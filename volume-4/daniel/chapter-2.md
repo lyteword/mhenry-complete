@@ -30,8 +30,7 @@ III\. The doom passed upon all the magicians of Babylon. There is but *one decre
 
 > <sup>14</sup> Then Daniel answered with counsel and wisdom to Arioch the captain of the king's guard, which was gone forth to slay the wise *men* of Babylon:  
 > <sup>15</sup> He answered and said to Arioch the king's captain, Why *is* the decree *so* hasty from the king? Then Arioch made the thing known to Daniel.  
-> <sup>2</sup> :  
-> <sup>15</sup> Then Daniel went in, and desired of the king that he would give him time, and that he would show the king the interpretation.  
+> <sup>16</sup> Then Daniel went in, and desired of the king that he would give him time, and that he would show the king the interpretation.  
 > <sup>17</sup> Then Daniel went to his house, and made the thing known to Hananiah, Mishael, and Azariah, his companions:  
 > <sup>18</sup> That they would desire mercies of the God of heaven concerning this secret; that Daniel and his fellows should not perish with the rest of the wise *men* of Babylon.  
 > <sup>19</sup> Then was the secret revealed unto Daniel in a night vision. Then Daniel blessed the God of heaven.  
