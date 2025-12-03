@@ -1,6 +1,6 @@
 # Chapter 22
 
-In this chapter we have divers laws concerning the priests and sacrifices all for the preserving of the honour of the sanctuary. I. That the priests should not eat the holy things in their uncleanness, Le 22:1-9. II. That no stranger who did not belong to some family of the priests should eat of the holy things (Le 22:10-13), and, if he did it unwittingly, he must make restitution,, Le 22:14-16. III. That the sacrifices which were offered must be without blemish, Le 22:17-25. IV. That they must be more than eight days old (Le 22:26-28), and that the sacrifices of thanksgiving must be eaten the same day they were offered, Le 22:29-33, etc.
+In this chapter we have divers laws concerning the priests and sacrifices all for the preserving of the honour of the sanctuary. I. That the priests should not eat the holy things in their uncleanness, Le 22:1-9. II. That no stranger who did not belong to some family of the priests should eat of the holy things (Le 22:10-13), and, if he did it unwittingly, he must make restitution, Le 22:14-16. III. That the sacrifices which were offered must be without blemish, Le 22:17-25. IV. That they must be more than eight days old (Le 22:26-28), and that the sacrifices of thanksgiving must be eaten the same day they were offered, Le 22:29-33, etc.
 
 ## Laws Concerning the Priests. (b. c. 1490.)
 
