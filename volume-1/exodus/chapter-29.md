@@ -54,7 +54,7 @@ Here is, I. The law concerning the consecration of Aaron and his sons to the pri
 
 (4.) It was done with many ceremonies.
 
-[1.] They were to be washed (Ex 29:4), signifying that those must be clean who *bear the vessels of the Lord,* Isa 52:11. Those that would *perfect holiness* must *cleanse themselves from all filthiness of flesh and spirit,* 2Co 7:1,Isa 1:16-18. They were now washed all over; but afterwards, when they went in to minister, they washed only their hands and feet (Ex 30:19); for *he that is washed needs* no more, Joh 13:10.
+[1.] They were to be washed (Ex 29:4), signifying that those must be clean who *bear the vessels of the Lord,* Isa 52:11. Those that would *perfect holiness* must *cleanse themselves from all filthiness of flesh and spirit,* 2Co 7:1, Isa 1:16-18. They were now washed all over; but afterwards, when they went in to minister, they washed only their hands and feet (Ex 30:19); for *he that is washed needs* no more, Joh 13:10.
 
 [2.] They were to be clothed with the holy garments (Ex 29:5,6,8,9), to signify that it was not sufficient for them to put away the pollutions of sin, but they must put on the graces of the Spirit, be *clothed with righteousness,* Ps 132:9. They must be girded, as men prepared and strengthened for their work; and they must be robed and crowned, as men that counted their work and office their true honour.
 
