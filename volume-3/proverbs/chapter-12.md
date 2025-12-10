@@ -28,7 +28,7 @@ In the foregoing verse the *thoughts* of the wicked and righteous were compared;
 
 > <sup>7</sup> The wicked are overthrown, and *are* not: but the house of the righteous shall stand.  
 
-We are here taught as before (Pr 12:3,Pr 10:25,30), 1. That the *triumphing of the wicked is short.* They may be exalted for a while, but in a little time they are *overthrown and are not;* their trouble proves their overthrow, and those who made a great show disappear, and their place knows them no more. *Turn the wicked, and they are not;* they stand in such a slippery place that the least touch of trouble brings them down, like the apples of Sodom, which look fair, but touch them and they go to dust. 2. That the prosperity of the righteous has a good bottom and will endure. Death will remove them, but their *house* shall *stand,* their families shall be kept up, and the generation of the upright shall be blessed.
+We are here taught as before (Pr 12:3, Pr 10:25,30), 1. That the *triumphing of the wicked is short.* They may be exalted for a while, but in a little time they are *overthrown and are not;* their trouble proves their overthrow, and those who made a great show disappear, and their place knows them no more. *Turn the wicked, and they are not;* they stand in such a slippery place that the least touch of trouble brings them down, like the apples of Sodom, which look fair, but touch them and they go to dust. 2. That the prosperity of the righteous has a good bottom and will endure. Death will remove them, but their *house* shall *stand,* their families shall be kept up, and the generation of the upright shall be blessed.
 
 > <sup>8</sup> A man shall be commended according to his wisdom: but he that is of a perverse heart shall be despised.  
 
