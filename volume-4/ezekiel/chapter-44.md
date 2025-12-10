@@ -69,7 +69,7 @@ I\. Concerning their clothes; they must wear *linen garments* when they *went in
 
 II\. Concerning their hair; in that they must avoid extremes on both hands (Eze 44:20): *They must not shave their heads,* in imitation of the Gentile priests, and as the priests of the Romish church do; nor, on the other hand, must they *suffer their locks to grow long,* as the *beaux,* or that they might be thought Nazarites, when really they were not; but they must be grave and modest, must *poll their heads* and keep their hair short. If a *man,* especially a minister, wear *long hair,* it is not becoming (1Co 11:14); it is effeminate.
 
-III\. Concerning their diet; they must be sure to *drink no wine* when they went in to minister, lest they should drink to excess, should drink and forget the law, Eze 44:21. *It is not for kings to drink wine,* more than will do them good, much less for priests. See Le 10:9,Pr 31:4,5.
+III\. Concerning their diet; they must be sure to *drink no wine* when they went in to minister, lest they should drink to excess, should drink and forget the law, Eze 44:21. *It is not for kings to drink wine,* more than will do them good, much less for priests. See Le 10:9, Pr 31:4,5.
 
 IV\. Concerning their marriages, Eze 44:22. Here they must consult the credit of their office, and not marry one that had been *divorced,* that was at least under the suspicion of immodesty, nor a *widow,* unless she were a priest's widow, that had been accustomed to the usages of the priests' families. Others may do that which ministers may not do, but must deny themselves in, in honour of their character. Their wives as well as themselves must be of good report.
 
