@@ -1,3 +1,7 @@
+---
+weight: 4
+---
+
 # Chapter 4
 
 We have here a further account of the furniture of God's house. I. Those things that were of brass. The altar for burnt-offerings (2Ch 4:1), the sea and lavers to hold water (2Ch 4:2-6), the plates with which the doors of the court were overlaid (2Ch 4:9), the vessels of the altar, and other things, 2Ch 4:10-18. II. Those that were of gold. The candlesticks and tables (2Ch 4:7,8), the altar of incense (2Ch 4:19), and the appurtenances of each of these, 2Ch 4:20-22. All these, except the brazen altar (2Ch 4:1), were accounted for more largely, 1Ki 7:23-50, etc.

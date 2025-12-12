@@ -1,3 +1,7 @@
+---
+weight: 38
+---
+
 # Chapter 38
 
 This chapter proceeds in the history of Hezekiah. Here is, I. His sickness, and the sentence of death he received within himself, Isa 38:1. II. His prayer in his sickness, Isa 38:2,3. III. The answer of peace which God gave to that prayer, assuring him that he should recover, that he should live fifteen years yet, that Jerusalem should be delivered from the king of Assyria, and that, for a sign to confirm his faith herein, the sun should go back ten degrees, Isa 38:4-8. And this we read and opened before, 2Ki 20:1, etc. But, IV. Here is Hezekiah's thanksgiving for his recovery, which we had not before, Isa 38:9-20. To which are added the means used (Isa 38:21), and the end the good man aimed at in desiring to recover, Isa 38:22. This is a chapter which will entertain the thoughts, direct the devotions, and encourage the faith and hopes of those that are confined by bodily distempers; it visits those that are visited with sickness.

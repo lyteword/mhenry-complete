@@ -1,3 +1,7 @@
+---
+weight: 7
+---
+
 # Chapter 7
 
 This chapter begins with an exhortation to progressive holiness and a due regard to the ministers of the gospel, 2Co 7:1-4. Then the apostle returns from a long digression to speak further of the affair concerning the incestuous person, and tells them what comfort he received in his distress about that matter, upon his meeting with Titus (2Co 7:5-7), and how re rejoiced in their repentance, with the evidences thereof, 2Co 7:8-11. And, lastly, he concludes with endeavouring to comfort the Corinthians, upon whom his admonitions had had so good an effect, 2Co 7:12-16.

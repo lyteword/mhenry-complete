@@ -1,3 +1,7 @@
+---
+weight: 19
+---
+
 # Chapter 19
 
 We have here a further account of the good reign of Jehoshaphat, I. His return in peace to Jerusalem, 2Ch 19:1. II. The reproof given him for his league with Ahab, and his acting in conjunction with him, 2Ch 19:2,3. III. The great care he took thereupon to reform his kingdom, 2Ch 19:4. IV. The instructions he gave to his judges, both those in the country towns that kept the inferior courts (2Ch 19:5-7), and those in Jerusalem that sat in the supreme judicature of the kingdom, 2Ch 19:8-11.
@@ -29,7 +33,7 @@ Jehoshaphat, having done what he could to make his people good, is here providin
 
 I\. He erected inferior courts of justice in the several cities of the kingdom, 2Ch 19:5. The judges of these courts were to keep the people in the worship of God, to punish the violations of the law, and to decide controversies between man and man. Here is the charge he gave them (2Ch 19:6), in which we have,
 
-1\. The means he prescribes to them for the keeping of them closely to their duty; and these are two:—(1.) Great caution and circumspection: *Take heed what you do,* 2Ch 19:6. And again, "*Take heed and do it,* 2Ch 19:7. Mind your business; take heed of making any mistakes; be afraid of misunderstanding any point of law, or the matter of fact." Judges, of all men, have need to be cautious, because so much depends upon the correctness of their judgment. (2.) Great piety and religion: "*Let the fear of God be upon you,* and that will be a restraint upon you to keep you from doing wrong (Ne 5:15,Ge 42:18) and an engagement to you to be active in doing the duty of your place." Let destruction from God be a terror to them, as Job speaks (Job 31:23), and then they will be a terror to none but evil-doers.
+1\. The means he prescribes to them for the keeping of them closely to their duty; and these are two:—(1.) Great caution and circumspection: *Take heed what you do,* 2Ch 19:6. And again, "*Take heed and do it,* 2Ch 19:7. Mind your business; take heed of making any mistakes; be afraid of misunderstanding any point of law, or the matter of fact." Judges, of all men, have need to be cautious, because so much depends upon the correctness of their judgment. (2.) Great piety and religion: "*Let the fear of God be upon you,* and that will be a restraint upon you to keep you from doing wrong (Ne 5:15, Ge 42:18) and an engagement to you to be active in doing the duty of your place." Let destruction from God be a terror to them, as Job speaks (Job 31:23), and then they will be a terror to none but evil-doers.
 
 2\. The motives he would have them consider, to engage them to faithfulness. These are three, all taken from God:—(1.) That from him they had their commission; his ministers they were. The powers that be are ordained by him and for him: "*You judge not for man, but for the Lord;* your business is to glorify him, and serve the interests of his kingdom among men." (2.) That his eye was upon them: "He is *with you in the judgment,* to take notice what you do and call you to an account if you do amiss." (3.) That he is the great example of justice to all magistrates: *There is no iniquity with him,* no bribery, nor respect of persons. Magistrates are called gods, and therefore must endeavour to resemble him.
 

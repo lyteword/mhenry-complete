@@ -1,3 +1,7 @@
+---
+weight: 39
+---
+
 # Chapter 39
 
 This chapter gives us an account of the finishing of the work of the tabernacle. I. The last things prepared were the holy garments. The ephod and its curious girdle, Ex 39:1-5. The onyx-stones for the shoulders, Ex 39:6,7. The breastplate with the precious stones in it, Ex 39:8-21. The robe of the ephod, Ex 39:22-26. The coats, bonnets, and breeches, for the inferior priests, Ex 39:27-29. And the plate of the holy crown, Ex 39:30,31. II. A summary account of the whole work, as it was presented to Moses when it was all finished, Ex 39:32-43, etc.

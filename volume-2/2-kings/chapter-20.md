@@ -1,3 +1,7 @@
+---
+weight: 20
+---
+
 # Chapter 20
 
 In this chapter we have, I. Hezekiah's sickness, and his recovery from that, in answer to prayer, in performance of a promise, in the use of means, and confirmed with a sign, 2Ki 20:1-11. II. Hezekiah's sin, and his recovery from that, 2Ki 20:12-19. In both of these, Isaiah was God's messenger to him. III. The conclusion of his reign, 2Ki 20:20,21.

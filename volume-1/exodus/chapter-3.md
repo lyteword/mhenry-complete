@@ -1,3 +1,7 @@
+---
+weight: 3
+---
+
 # Chapter 3
 
 As prophecy had ceased for many ages before the coming of Christ, that the revival and perfection of it in that great prophet might be the more remarkable, so vision had ceased (for aught that appears) among the patriarchs for some ages before the coming of Moses, that God's appearances to him for Israel's salvation might be the more welcome; and in this chapter we have God's first appearance to him in the bush and the conference between God and Moses in that vision. Here is, I. The discovery God was pleased to make of his glory to Moses at the bush, to which Moses was forbidden to approach too near, Ex 3:1-5. II. A general declaration of God's grace and good-will to his people, who were beloved for their fathers' sakes, Ex 3:6. III. A particular notification of God's purpose concerning the deliverance of Israel out of Egypt. 1. He assures Moses it should now be done, Ex 3:7-9. 2. He gives him a commission to act in it as his ambassador both to Pharaoh, (Ex 3:10) and to Israel, Ex 3:16. 3. He answers the objection Moses made of his own unworthiness, Ex 3:11,12. 4. He gives him full instructions what to say both to Pharaoh and to Israel, Ex 3:13-18. 5. He tells him beforehand what the issue would be, Ex 3:19-22, etc.

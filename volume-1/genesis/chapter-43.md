@@ -1,3 +1,7 @@
+---
+weight: 43
+---
+
 # Chapter 43
 
 Here the story of Joseph's brethren is carried on, and very particularly related. I. Their melancholy parting with their father Jacob in Canaan, Ge 43:1-14. II. Their pleasant meeting with Joseph in Egypt, Ge 43:15-34, etc. For on this occasion nothing occurs there but what is agreeable and pleasant.

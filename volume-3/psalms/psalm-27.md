@@ -1,3 +1,7 @@
+---
+weight: 27
+---
+
 # Psalm 27
 
 Some think David penned this psalm before his coming to the throne, when he was in the midst of his troubles, and perhaps upon occasion of the death of his parents; but the Jews think he penned it when he was old, upon occasion of the wonderful deliverance he had from the sword of the giant, when Abishai succoured him (2Sa 21:16,17) and his people thereupon resolved he should never venture his life again in battle, lest he should quench the light of Israel. Perhaps it was not penned upon any particular occasion; but it is very expressive of the pious and devout affections with which gracious souls are carried out towards God at all times, especially in times of trouble. Here is, I. The courage and holy bravery of his faith, Ps 27:1-3. II. The complacency he took in communion with God and the benefit he experienced by it, Ps 27:4-6. III. His desire towards God, and his favour and grace, Ps 27:7-9,11,12. IV. His expectations from God, and the encouragement he gives to others to hope in him, Ps 27:10,13,14. And let our hearts be thus affected in singing this psalm.

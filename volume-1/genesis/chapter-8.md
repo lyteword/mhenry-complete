@@ -1,3 +1,7 @@
+---
+weight: 8
+---
+
 # Chapter 8
 
 In the close of the foregoing chapter we left the world in ruins and the church in straits; but in this chapter we have the repair of the one and the enlargement of the other. Now the scene alters, and another face of things begins to be presented to us, and the brighter side of that cloud which there appeared so black and dark; for, though God contend long, he will not contend for ever, nor be always wrath. We have here, I. The earth made anew, by the recess of the waters, and the appearing of the dry land, now a second time, and both gradual. 1. The increase of the waters is stayed, Ge 8:1,2. 2. They begin sensibly to abate, Ge 8:3. 3. After sixteen days' ebbing, the ark rests, Ge 8:4. 4. After sixty days' ebbing, the tops of the mountains appeared above water, Ge 8:5. 5. After forty days' ebbing, and twenty days before the mountains appeared, Noah began to send out his spies, a raven and a dove, to gain intelligence, Ge 8:6-12. 6. Two months after the appearing of the tops of the mountains, the waters had gone, and the face of the earth was dry (Ge 8:13), though not dried so as to be fit for man till almost two months after, Ge 8:14. II. Man placed anew upon the earth, in which, 1. Noah's discharge and departure out of the ark, Ge 8:15-19. 2. His sacrifice of praise, which he offered to God upon his enlargement, Ge 8:20. 3. God's acceptance of his sacrifice, and the promise he made thereupon not to drown the world again, Ge 8:21,22. And thus, at length, mercy rejoices against judgment.

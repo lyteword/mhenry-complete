@@ -1,3 +1,7 @@
+---
+weight: 46
+---
+
 # Chapter 46
 
 How judgment began at the house of God we have found in the foregoing prophecy and history; but now we shall find that it did not end there. In this and the following chapters we have predictions of the desolations of the neighbouring nations, and those brought upon them too mostly by the king of Babylon, till at length Babylon itself comes to be reckoned with. The prophecy against Egypt is here put first and takes up this whole chapter, in which we have, I. A prophecy of the defeat of Pharaoh-necho's army by the Chaldean forces at Carchemish, which was accomplished soon after, in the fourth year of Jehoiakim, Jer 46:1-12. II. A prophecy of the descent which Nebuchadnezzar should make upon the land of Egypt, and his success in it, which was accomplished some years after the destruction of Jerusalem, Jer 46:13-26. III. A word of comfort to the Israel of God in the midst of those calamities, Jer 46:27,28.

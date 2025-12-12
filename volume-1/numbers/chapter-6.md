@@ -1,3 +1,7 @@
+---
+weight: 6
+---
+
 # Chapter 6
 
 In this chapter we have, I. The law concerning Nazarites, 1. What it was to which the vow of a Nazarite obliged him, Nu 6:1-8. 2. A remedial law in case a Nazarite happened to be polluted by the touch of a dead body, Nu 6:9-12. 3. The solemnity of his discharge when his time was up, Nu 6:13-21. II. Instructions given to the priests how they should bless the people, Nu 6:22-27, etc.

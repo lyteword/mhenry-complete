@@ -1,3 +1,7 @@
+---
+weight: 86
+---
+
 # Psalm 86
 
 This psalm is entitled "a prayer of David;" probably it was not penned upon any particular occasion, but was a prayer he often used himself, and recommended to others for their use, especially in a day of affliction. Many think that David penned this prayer as a type of Christ, "who in the days of his flesh offered up strong cries," Heb 5:7. David, in this prayer (according to the nature of that duty), I. Gives glory to God, Ps 86:8-10,12,13. II. Seeks for grace and favour from God, that God would hear his prayers (Ps 86:1,6,7), preserve and save him, and be merciful to him (Ps 86:2,3,16), that he would give him joy, and grace, and strength, and put honour upon him, Ps 86:4,11,17. He pleads God's goodness (Ps 86:5,15) and the malice of his enemies, Ps 86:14. In singing this we must, as David did, lift up our souls to God with application.

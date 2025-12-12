@@ -1,3 +1,7 @@
+---
+weight: 35
+---
+
 # Chapter 35
 
 We are here to attend Josiah, I. To the temple, where we see his religious care for the due observance of the ordinance of the passover, according to the law, 2Ch 35:1-19. II. To the field of battle, where we see his rashness in engaging with the king of Egypt, and how dearly it cost him, 2Ch 35:20-23. III. To the grave, where we see him bitterly lamented, 2Ch 35:24-27. And so we must take our leave of Josiah.

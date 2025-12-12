@@ -1,3 +1,7 @@
+---
+weight: 20
+---
+
 # Chapter 20
 
 In this chapter we have, I. Christ's answer to the chief priests' question concerning his authority, Lu 20:1-8. II. The parable of the vineyard let out to the unjust and rebellious husbandmen, Lu 20:9-19. III. Christ's answer to the question proposed to him concerning the lawfulness of paying tribute to Cæsar, Lu 20:20-26. IV. His vindication of that great fundamental doctrine of the Jewish and Christian institutes—the resurrection of the dead and the future state, from the foolish cavils of the Sadducees, Lu 20:27-38. V. His puzzling the scribes with a question concerning the Messiah's being the Son of David, Lu 20:39-44. VI. The caution he gave his disciples to take heed of the scribes, Lu 20:45-47. All which passages we had before in Matthew and Mark, and therefore need not enlarge upon them here, unless on those particulars which we had not there.

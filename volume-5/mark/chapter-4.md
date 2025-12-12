@@ -1,3 +1,7 @@
+---
+weight: 4
+---
+
 # Chapter 4
 
 In this chapter, we have, I. The parable of the seed, and the four sorts of ground (Mk 4:1-9), with the exposition of it (Mk 4:10-20), and the application of it, Mk 4:21-25. II. The parable of the seed growing gradually, but insensibly, Mk 4:26-29. III. The parable of the grain of mustard-seed, and a general account of Christ's parables, Mk 4:30-34. IV. The miracle of Christ's sudden stilling a storm at sea, Mk 4:35-41.

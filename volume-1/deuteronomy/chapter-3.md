@@ -1,3 +1,7 @@
+---
+weight: 3
+---
+
 # Chapter 3
 
 Moses, in this chapter, relates, I. The conquest of Og, king of Bashan, and the seizing of his country, De 3:1-11. II. The distribution of these new conquests to the two tribes and a half, De 3:12-17. Under certain provisos and limitations, De 3:18-20. III. The encouragement given to Joshua to carry on the war which was so gloriously begun, De 3:21,22. IV. Moses's request to go over into Canaan (De 3:23-25), with the denial of that request, but the grant of an equivalent, De 3:26-29, etc.

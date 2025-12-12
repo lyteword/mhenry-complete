@@ -1,3 +1,7 @@
+---
+weight: 45
+---
+
 # Chapter 45
 
 Cyrus was nominated, in the foregoing chapter, to be God's shepherd; more is said to him and more of him in this chapter, not only because he was to be instrumental in the release of the Jews out of their captivity, but because he was to be therein a type of the great Redeemer, and that release was to be typical of the great redemption from sin and death; for that was the salvation of which all the prophets witnessed. We have here, I. The great things which God would do for Cyrus, that he might be put into a capacity to release God's people, Isa 45:1-4. II. The proof God would hereby give of his eternal power and godhead, and his universal, incontestable, sovereignty, Isa 45:5-7. III. A prayer for the hastening of this deliverance, Isa 45:8. IV. A check to the unbelieving Jews, who quarrelled with God for the lengthening out of their captivity, Isa 45:9,10. V. Encouragement given to the believing Jews, who trusted in God and continued instant in prayer, assuring them that God would in due time accomplish this work by the hand of Cyrus, Isa 45:11-15. VI. A challenge given to the worshippers of idols and their doom read, and satisfaction given to the worshippers of the true God and their comfort secured, with an eye to the Mediator, who is made of God to us both righteousness and sanctification, Isa 45:16-25. And here, as in many other parts of this prophecy, there is much of Christ and of gospel grace.

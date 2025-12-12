@@ -1,3 +1,7 @@
+---
+weight: 50
+---
+
 # Chapter 50
 
 Here is, I. The preparation for Jacob's funeral, Ge 50:1-6. II. The funeral itself, Ge 50:7-14. III. The settling of a good understanding between Joseph and his brethren after the death of Jacob, Ge 50:15-21. IV. The age and death of Joseph, Ge 50:22-26. Thus the book of Genesis, which began with the origin of light and life, ends with nothing but death and darkness; so sad a change has sin made.

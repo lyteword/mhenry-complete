@@ -1,3 +1,7 @@
+---
+weight: 12
+---
+
 # Chapter 12
 
 In this chapter the apostle, I. Considers the case of spiritual gifts, which were very plentifully poured out on the Corinthian church. He considers their original, that they are from God; their variety and use, that they were all intended for one and the same general end, the advancement of Christianity and the church's edification, Ro 12:1-11. II. He illustrates this by an allusion to a human body, in which all the members have a mutual relation and subserviency, and each has its proper place and use, Ro 12:12-26. III. He tells us that the church is the body of Christ, and the members are variously gifted for the benefit of the whole body, and each particular member, Ro 12:27-30. And them, IV. Closes with an exhortation to seek somewhat more beneficial than these gifts, Ro 12:31.

@@ -1,3 +1,7 @@
+---
+weight: 20
+---
+
 # Chapter 20
 
 ## Miscellaneous Maxims.
@@ -80,7 +84,7 @@ Two sorts of people are dangerous to be conversed with:—1. Tale-bearers, thoug
 
 > <sup>20</sup> Whoso curseth his father or his mother, his lamp shall be put out in obscure darkness.  
 
-Here is, 1. An undutiful child become very wicked by degrees. He began with despising his father and mother, slighting their instructions, disobeying their commands, and raging at their rebukes, but at length he arrives at such a pitch of impudence and impiety as to curse them, to give them scurrilous and opprobrious language, and to wish mischief to those that were instruments of his being and have taken so much care and pains about him, and this in defiance of God and his law, which had made this a capital crime (Ex 21:17,Mt 15:4), and in violation of all the bonds of duty, natural affection, and gratitude. 2. An undutiful child become very miserable at last: *His lamp shall be put out in obscure darkness;* all his honour shall be laid in the dust, and he shall for ever lose his reputation. Let him never expect any peace or comfort in his own mind, no, nor to prosper in this world. His days shall be shortened, and the lamp of his life extinguished, according to the reverse of the promise of the fifth commandment. His family shall be cut off and his posterity be a curse to him. And it will be his eternal ruin; the lamp of his happiness shall be *put out in the blackness of darkness* (so the word is), even that which is *for ever,* Jude 1:13,Mt 22:13.
+Here is, 1. An undutiful child become very wicked by degrees. He began with despising his father and mother, slighting their instructions, disobeying their commands, and raging at their rebukes, but at length he arrives at such a pitch of impudence and impiety as to curse them, to give them scurrilous and opprobrious language, and to wish mischief to those that were instruments of his being and have taken so much care and pains about him, and this in defiance of God and his law, which had made this a capital crime (Ex 21:17, Mt 15:4), and in violation of all the bonds of duty, natural affection, and gratitude. 2. An undutiful child become very miserable at last: *His lamp shall be put out in obscure darkness;* all his honour shall be laid in the dust, and he shall for ever lose his reputation. Let him never expect any peace or comfort in his own mind, no, nor to prosper in this world. His days shall be shortened, and the lamp of his life extinguished, according to the reverse of the promise of the fifth commandment. His family shall be cut off and his posterity be a curse to him. And it will be his eternal ruin; the lamp of his happiness shall be *put out in the blackness of darkness* (so the word is), even that which is *for ever,* Jude 1:13, Mt 22:13.
 
 > <sup>21</sup> An inheritance *may be* gotten hastily at the beginning; but the end thereof shall not be blessed.  
 

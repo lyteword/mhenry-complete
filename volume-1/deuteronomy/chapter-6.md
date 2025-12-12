@@ -1,3 +1,7 @@
+---
+weight: 6
+---
+
 # Chapter 6
 
 Moses, in this chapter, goes on with his charge to Israel, to be sure to keep up their religion in Canaan. It is much the same with De 4:1-40 I. His preface is a persuasive to obedience, De 6:1-3. II. He lays down the great principles of obedience. The first truth to be believed, That God is one, De 6:4. The first duty to be done, To love him with all our heart, De 6:5. III. He prescribes the means for keeping up religion, De 6:6-9. IV. He cautions them against those things which would be the ruin of religion—abuse of plenty (De 6:10-24), inclination to idolatry (De 6:14,15), and gives them some general precepts, De 6:13,16-18. V. He directs them what instructions to give their children, De 6:20-25, etc.

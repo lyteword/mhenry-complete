@@ -1,3 +1,7 @@
+---
+weight: 13
+---
+
 # Chapter 13
 
 Nehemiah, having finished what he undertook for the fencing and filling of the holy city, returned to the king his master, who was not willing to be long without him, as appears (Ne 13:6). But, after some time, he obtained leave to come back again to Jerusalem, to redress grievances, and purge out some corruptions which had crept in in his absence; and very active he was in reforming several abuses, which here we have an account of. I. He turned out from Israel the mixed multitude, the Moabites and Ammonites especially, Ne 13:1-3. With a particular indignation, he expelled Tobiah out of the lodgings he had got in the court of the temple, Ne 13:4-9. II. He secured the maintenance of the priests and Levites to them more firmly than it had been, Ne 13:10-14. III. He restrained the profanation of the sabbath day, and provided for the due sanctification of it, Ne 13:15-22. IV. He checked the growing mischief of marrying strange wives, Ne 13:23-31.

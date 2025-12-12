@@ -1,3 +1,7 @@
+---
+weight: 1
+---
+
 # Chapter 1
 
 In this chapter we have, I. The preface or introduction to the epistle, showing from and to whom it was written, with the apostle's salutation and prayer for Titus, wishing all blessings to him, Tit 1:1-4. II. Entrance into the matter, by signifying the end of Titus's being left at Crete, Tit 1:5. III. And how the same should be pursued in reference both to good and bad ministers, Tit 1:6-16.

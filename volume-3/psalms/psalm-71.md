@@ -1,3 +1,7 @@
+---
+weight: 71
+---
+
 # Psalm 71
 
 David penned this psalm in his old age, as appears by several passages in it, which makes many think that it was penned at the time of Absalom's rebellion; for that was the great trouble of his later days. It might be occasioned by Sheba's insurrection, or some trouble that happened to him in that part of his life of which it was foretold that the sword should not depart from his house. But he is not over-particular in representing his case, because he intended it for the general use of God's people in their afflictions, especially those they meet with in their declining years; for this psalm, above any other, is fitted for the use of the old disciples of Jesus Christ. I. He begins the psalm with believing prayers, with prayers that God would deliver him and save him (Ps 71:2,4), and not cast him off (Ps 71:9) or be far from him (Ps 71:12), and that his enemies might be put to shame, Ps 71:13. He pleads his confidence in God (Ps 71:1,3,5,7), the experience he had had of help from God (Ps 71:6), and the malice of his enemies against him, Ps 71:10,11. II. He concludes the psalm with believing praises (Ps 71:14, etc.). Never was his hope more established, Ps 71:16,18,20,21. Never were his joys and thanksgivings more enlarged, Ps 71:15,19,22-24. He is in an ecstasy of joyful praise; and, in the singing of it, we too should have our faith in God encouraged and our hearts raised in blessing his holy name.

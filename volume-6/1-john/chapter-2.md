@@ -1,3 +1,7 @@
+---
+weight: 2
+---
+
 # Chapter 2
 
 Here the apostle encourages against sins of infirmity (1Jo 2:1,2), shows the true knowledge and love of God (1Jo 2:3-6), renews the precept of fraternal love (1Jo 2:7-11), addresses the several ages of Christians (1Jo 2:12-14), warns against worldly love (1Jo 2:15-17), against seducers (1Jo 2:18,19), shows the security of true Christians (1Jo 2:20-27), and advises to abide in Christ, 1Jo 2:28,29.

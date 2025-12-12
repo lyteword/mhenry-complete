@@ -1,3 +1,7 @@
+---
+weight: 1
+---
+
 # Chapter 1
 
 In this chapter we have a twofold comparison stated: I. Between the evangelical and legal dispensation; and the excellency of the gospel above that of the law is asserted and proved, Heb 1:1-3. II. Between the glory of Christ and that of the highest creatures, the angels; where the pre-eminence is justly given to the Lord Jesus Christ, and clearly demonstrated to belong to him, Heb 1:4-14.

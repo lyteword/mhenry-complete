@@ -1,3 +1,7 @@
+---
+weight: 14
+---
+
 # Chapter 14
 
 In this chapter we have, I. The cure which our Lord Jesus wrought upon a man that had the dropsy, on the sabbath day, and his justifying himself therein against those who were offended at his doing it on that day, Lu 14:1-6. II. A lesson of humility gives to those who were ambitious of the highest rooms, Lu 14:7-11. III. A lesson of charity to those who feasted the rich, and did not feed the poor, Lu 14:12-14. IV. The success of the gospel not foretold in the parable of the guests invited to a feast, signifying the rejection of the Jews and all others that set their hearts upon this world, and the entertainment of the Gentiles and all others that come to be filled with Christ, Lu 14:15-24. V. The great law of discipleship laid down, with a caution to all that will be Christ's disciples to undertake it deliberately and with consideration, and particularly to ministers, to retain their savour, Lu 14:25-35.

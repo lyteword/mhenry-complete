@@ -1,3 +1,7 @@
+---
+weight: 3
+---
+
 # Chapter 3
 
 Here we have three more of the epistles of Christ to the churches: I. To Sardis, Re 3:1-6. II. To Philadelphia, Re 3:7-13. III. To Laodicea, Re 3:14-22.

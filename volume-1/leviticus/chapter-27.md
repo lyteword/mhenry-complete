@@ -1,3 +1,7 @@
+---
+weight: 27
+---
+
 # Chapter 27
 
 The Le 26:46 seemed to close up the statute-book; yet this chapter is added as an appendix. Having given laws concerning instituted services, here he directs concerning vows and voluntary services, the free-will offerings of their mouth. Perhaps some devout serious people among them might be so affected with what Moses had delivered to them in the foregoing chapter as in a pang of zeal to consecrate themselves, or their children, or estates to him: this, because honestly meant, God would accept; but, because men are apt to repent of such vows, he leaves room for the redemption of what had been so consecrated, at a certain rate. Here is, I. The law concerning what was sanctified to God, persons (Le 27:2-8), cattle, clean or unclean (Le 27:9-13), houses and lands (Le 27:15-25), with an exception of firstlings, Le 27:26,27. II. Concerning what was devoted, Le 27:28,29. III. Concerning tithes, Le 27:30-34, etc.

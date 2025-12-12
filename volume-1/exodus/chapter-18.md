@@ -1,3 +1,7 @@
+---
+weight: 18
+---
+
 # Chapter 18
 
 This chapter is concerning Moses himself, and the affairs of his own family. I. Jethro his father-in-law brings to him his wife and children, Ex 18:1-6. II. Moses entertains his father-in-law with great respect (Ex 18:7), with good discourse (Ex 18:8-11), with a sacrifice and a feast, Ex 18:12. III. Jethro advises him about the management of his business as a judge in Israel, to take inferior judges in to his assistance (Ex 18:13-23), and Moses, after some time, takes his counsel (Ex 18:24-26), and so they part, Ex 18:27.

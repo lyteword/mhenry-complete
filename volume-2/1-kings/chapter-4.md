@@ -1,3 +1,7 @@
+---
+weight: 4
+---
+
 # Chapter 4
 
 An instance of the wisdom God granted to Solomon we had in the close of the foregoing chapter. In this we have an account of his wealth and prosperity, the other branch of the promise there made him. We have here, I. The magnificence of his court, his ministers of state (1Ki 4:1-6), and the purveyors of his household (1Ki 4:7-19), and their office, 1Ki 4:27,28. II. The provisions for his table, 1Ki 4:22,23. III. The extent of his dominion, 1Ki 4:21-24. IV. The numbers, case, and peace, of his subjects, 1Ki 4:20-25. V. His stables, 1Ki 4:26. VI. His great reputation for wisdom and learning, 1Ki 4:29-34. Thus great was Solomon, but our Lord Jesus was greater than he (Mt 12:42), though he took upon him the form of a servant; for divinity, in its lowest humiliation, infinitely transcends royalty in its highest elevation.

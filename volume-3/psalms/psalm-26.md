@@ -1,3 +1,7 @@
+---
+weight: 26
+---
+
 # Psalm 26
 
 Holy David is in this psalm putting himself upon a solemn trial, not by God and his country, but by God and his own conscience, to both which he appeals touching his integrity (Ps 26:1,2), for the proof of which he alleges, I. His constant regard to God and his grace, Ps 26:3. II. His rooted antipathy to sin and sinners, Ps 26:4,5. III. His sincere affection to the ordinances of God, and his care about them, Ps 26:6-8. Having thus proved his integrity, 1. He deprecates the doom of the wicked, Ps 26:9,10. 2. He casts himself upon the mercy and grace of God, with a resolution to hold fast his integrity, and his hope in God, Ps 26:11,12. In singing this psalm we must teach and admonish ourselves, and one another, what we must be and do that we may have the favour of God, and comfort in our own consciences, and comfort ourselves with it, as David does, if we can say that in any measure we have, through grace, answered to these characters. The learned Amyraldus, in his argument of his psalm, suggests that David is here, by the spirit of prophecy, carried out to speak of himself as a type of Christ, of whom what he here says of his spotless innocence, was fully and eminently true, and of him only, and to him we may apply it in singing this psalm. "We are complete in him."

@@ -1,3 +1,7 @@
+---
+weight: 2
+---
+
 # Chapter 2
 
 In this chapter we have, I. The sins with which the people of Israel are charged—covetousness and oppression, fraudulent and violent practices (Mic 2:1,2), dealing barbarously, even with women and children, and other harmless people, Mic 2:8,9. Opposition of God's prophets and silencing them (Mic 2:6,7), and delighting in false prophets, Mic 2:11. II. The judgments with which they are threatened for those sins, that they should be humbled, and impoverished (Mic 2:3-5), and banished, Mic 2:10. III. Gracious promises of comfort, reserved for the good people among them, in the Messiah, Mic 2:12,13. And this is the sum and scope of most of the chapters of this and other prophecies.

@@ -1,3 +1,7 @@
+---
+weight: 20
+---
+
 # Psalm 20
 
 It is the will of God that prayers, intercessions, and thanksgivings, should be made, in special manner, for kings and all in authority. This psalm is a prayer, and the next a thanksgiving, for the king. David was a martial prince, much in war. Either this psalm was penned upon occasion of some particular expedition of his, or, in general, as a form to be used in the daily service of the church for him. In this psalm we may observe, I. What it is they beg of God for the king, Ps 20:1-4. II. With what assurance they beg it. The people triumph (Ps 20:5), the prince (Ps 20:6), both together (Ps 20:7,8), and so he concludes with a prayer to God for audience, Ps 20:9. In this, David may well be looked upon as a type of Christ, to whose kingdom and its interests among men the church was, in every age, a hearty well-wisher.

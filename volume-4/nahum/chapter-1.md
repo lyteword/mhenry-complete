@@ -1,3 +1,7 @@
+---
+weight: 1
+---
+
 # Chapter 1
 
 In this chapter we have, I. The inscription of the book, Na 1:1. II. A magnificent display of the glory of God, in a mixture of wrath and justice against the wicked, and mercy and grace towards his people, and the discovery of his majesty and power in both, Na 1:2-8. III. A particular application of this (as most interpreters think) to the destruction of Sennacherib and the Assyrian army, when they besieged Jerusalem, which was a very memorable and illustrious instance of the power both of God's justice and of his mercy, and spoke abundance of terror to his enemies and encouragement to his faithful servants, Na 1:9-16.

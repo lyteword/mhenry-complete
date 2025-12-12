@@ -1,3 +1,7 @@
+---
+weight: 25
+---
+
 # Chapter 25
 
 Here is, I. A law to moderate the scourging of malefactors, De 25:1-3. II. A law in favour of the ox that treads out the corn, De 25:4. III. For the disgracing of him that refused to marry his brother's widow, De 25:5-10. IV. For the punishment of an immodest woman, De 25:11,12. V. For just weights and measures, De 25:13-16. VI. For the destroying of Amalek, De 25:17-19, etc.

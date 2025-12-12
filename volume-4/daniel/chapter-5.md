@@ -1,3 +1,7 @@
+---
+weight: 5
+---
+
 # Chapter 5
 
 The destruction of the kingdom of Babylon had been long and often foretold when it was at a distance; in this chapter we have it accomplished, and a prediction of it the very same night that it was accomplished. Belshazzar now reigned in Babylon; some compute he had reigned seventeen years, others but three; we have here the story of his exit and the period of his kingdom. We must know that about two years before this Cyrus king of Persia, a growing monarch, came against Babylon with a great army; Belshazzar met him, fought him, and was routed by him in a pitched battle. He and his scattered forces retired into the city, where Cyrus besieged them. They were very secure, because the river Euphrates was their bulwark, and they had twenty years; provision in the city; but in the second year of the siege he took it, as is here related. We have in this chapter, I. The riotous, idolatrous, sacrilegious feast which Belshazzar made, in which he filled up the measure of his iniquity, Da 5:1-4. II. The alarm given him in the midst of his jollity by a hand-writing on the wall, which none of his wise men could read or tell him the meaning of, Da 5:5-9. III. The interpretation of the mystical characters by Daniel, who was at length brought in to him, and dealt plainly with him, and showed him his doom written, Da 5:10-28. IV. The immediate accomplishment of the interpretation in the slaying of the king and seizing of the kingdom, Da 5:30,31.

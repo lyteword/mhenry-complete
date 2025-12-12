@@ -1,3 +1,7 @@
+---
+weight: 3
+---
+
 # Chapter 3
 
 In this chapter the apostle, I. Blames the Corinthians for their carnality and divisions, 1Co 3:1-4. II. He instructs them how what was amiss among them might be rectified, by remembering, 1. That their ministers were no more than ministers, 1Co 3:5. 2. That they were unanimous, and carried on the same design, 1Co 3:6-10. 3. That they built on one and the same foundation, 1Co 3:11-15. III. He exhorts them to give due honour to their bodies, by keeping them pure (1Co 3:16,17), and to humility and self-diffidence, 1Co 3:18-21. IV. And dehorts them from glorying in particular ministers, because of the equal interest they had in all, 1Co 3:22-23.

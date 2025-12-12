@@ -1,3 +1,7 @@
+---
+weight: 20
+---
+
 # Chapter 20
 
 Here is a repetition of the story of David's wars, I. With the Ammonites, and the taking of Rabbah, 1Ch 20:1-3. II. With the giants of the Philistines, 1Ch 20:4-8.

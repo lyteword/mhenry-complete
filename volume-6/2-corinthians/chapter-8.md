@@ -1,3 +1,7 @@
+---
+weight: 8
+---
+
 # Chapter 8
 
 In this and the following chapter Paul is exhorting and directing the Corinthians about a particular work of charity—to relieve the necessities of the poor saints at Jerusalem and in Judea, according to the good example of the churches in Macedonia, Ro 15:26. The Christians at Jerusalem, through war, famine, and persecution, had become poor, many of them had fallen into decay, and perhaps most of them were but poor when they first embraced Christianity; for Christ said, "The poor receive the gospel." Now Paul, though he was the apostle of the Gentiles, had a fonder regard, and kind concern, for those among the Jews who were converted to the Christian faith; and, though many of them had not so much affection to the Gentile converts as they ought to have had, yet the apostle would have the Gentiles to be kind to them, and stirred them up to contribute liberally for their relief. Upon this subject he is very copious, and writes very affectingly. In this eighth chapter he acquaints the Corinthians with, and commends, the good example of the Macedonians in this work of charity, and that Titus was sent to Corinth to collect their bounty, 2Co 8:1-6. He the proceeds to urge this duty with several cogent arguments (2Co 8:7-15), and commends the persons who were employed in this affair, 2Co 8:16-24.

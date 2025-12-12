@@ -1,3 +1,7 @@
+---
+weight: 14
+---
+
 # Chapter 14
 
 The departure of the children of Israel out of Egypt (which was indeed the birth of the Jewish church) is made yet more memorable by further works of wonder, which were wrought immediately upon it. Witness the records of this chapter, the contents whereof, together with a key to it, we have, Heb 11:29. "They passed through the Red Sea as by dry land, which the Egyptians assaying to do were drowned;" and this they did by faith, which intimates that there was something typical and spiritual in it. Here is, I. The extreme distress and danger that Israel was in at the Red Sea. 1. Notice was given of it to Moses before, Ex 14:1-4. 2. The cause of it was Pharaoh's violent pursuit of them, Ex 14:5-9. 3. Israel was in a great consternation upon it, Ex 14:10-12. 4. Moses endeavours to encourage them, Ex 14:13. II. The wonderful deliverance that God wrought for them out of this distress. 1. Moses is instructed concerning it, Ex 14:15-18. 2. Lines that could not be forced are set between the camp of Israel and Pharaoh's camp, Ex 14:19,20. 3. By the divine power the Red Sea is divided (Ex 14:31), and is made, (1.) A lane to the Israelites, who marched safely through it, Ex 14:22,29. But, (2.) To the Egyptians it was made, [1.] An ambush into which they were drawn, Ex 14:23-25. And, [2.] A grave in which they were all buried, Ex 14:26-28. III. The impressions this made upon the Israelites, Ex 14:30,31.

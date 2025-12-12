@@ -1,3 +1,7 @@
+---
+weight: 60
+---
+
 # Psalm 60
 
 After many psalms which David penned in a day of distress this comes which was calculated for a day of triumph; it was penned after he was settled in the throne, upon occasion of an illustrious victory which God blessed his forces with over the Syrians and Edomites; it was when David was in the zenith of his prosperity, and the affairs of his kingdom seem to have been in a better posture then ever they were either before or after. See 2Sa 8:3,13,1Ch 18:3,12. David, in prosperity, was as devout as David in adversity. In this psalm, I. He reflects upon the bad state of the public interests, for many years, in which God had been contending with them, Ps 60:1-3. II. He takes notice of the happy turn lately given to their affairs, Ps 60:4. III. He prays for the deliverance of God's Israel from their enemies, Ps 60:5. IV. He triumphs in hope of their victories over their enemies, and begs of God to carry them on and complete them, Ps 60:6-12. In singing this psalm we may have an eye both to the acts of the church and to the state of our own souls, both which have their struggles.

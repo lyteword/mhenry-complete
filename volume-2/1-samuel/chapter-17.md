@@ -1,3 +1,7 @@
+---
+weight: 17
+---
+
 # Chapter 17
 
 David is the man whom God now delights to honour, for he is a man after his own heart. We read in the foregoing chapter how, after he was anointed, Providence made him famous in the court; we read in this chapter how Providence made him much more famous in the camp, and, by both, not only marked him for a great man, but fitted him for the throne for which he was designed. In the court he was only Saul's physician; but in the camp Israel's champion; there he fairly fought, and beat Goliath of Gath. In the story observe, I. What a noble figure Goliath made, and how daringly he challenged the armies of Israel, 1Sa 17:1-11. II. What a mean figure David made, when Providence brought him to the army, 1Sa 17:12-30. III. The unparalleled bravery wherewith David undertook to encounter this Philistine, 1Sa 17:31-39. IV. The pious resolution with which he attacked him, 1Sa 17:40-47. V. The glorious victory he obtained over him with a sling and a stone, and the advantage which the Israelites thereby gained against the Philistines, 1Sa 17:48-54. VI. The great notice which was hereupon taken of David at court, 1Sa 17:55-58.

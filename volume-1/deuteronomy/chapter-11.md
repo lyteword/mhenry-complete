@@ -1,3 +1,7 @@
+---
+weight: 11
+---
+
 # Chapter 11
 
 With this chapter Moses concludes his preface to the repetition of the statutes and judgments which they must observe to do. He repeats the general charge (De 11:1), and, having in the close of the foregoing chapter begun to mention the great things God had done among them, in this, I. He specifies several of the great works God had done before their eyes, De 11:2-7. II. He sets before them, for the future, life and death, the blessing and the curse, according as they did, or did not, keep God's commandments, that they should certainly prosper if they were obedient, should be blessed with plenty of all good things (De 11:8-15), and with victory over their enemies, and the enlargement of their coast thereby, De 11:22-25. But their disobedience would undoubtedly be their ruin, De 11:16,17. III. He directs them what means to use that they might keep in mind the law of God, De 11:18-21. And, IV. Concludes all with solemnly charging them to choose which they would have, the blessing or the curse, De 11:26-32, etc.

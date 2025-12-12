@@ -1,3 +1,7 @@
+---
+weight: 30
+---
+
 # Chapter 30
 
 The prophecy of this chapter seems to relate (as that in the foregoing chapter) to the approaching danger of Jerusalem and desolations of Judah by Sennacherib's invasion. Here is, I. A just reproof to those who, in that distress, trusted to the Egyptians for help, and were all in a hurry to fetch succours from Egypt, Isa 30:1-7. II. A terrible threatening against those who slighted the good advice which God by his prophets gave them for the repose of their minds in that distress, assuring them that whatever became of others the judgment would certainly overtake them, Isa 30:8-17. III. A gracious promise to those who trusted in God, that they should not only see through the trouble, but should see happy days after it, times of joy and reformation, plenty of the means of grace, and therewith plenty of outward good things and increasing joys and triumphs (Isa 30:18-26), and many of these promises are very applicable to gospel grace. IV. A prophecy of the total rout and ruin of the Assyrian army, which should be an occasion of great joy and an introduction to those happy times, Isa 30:27-33.

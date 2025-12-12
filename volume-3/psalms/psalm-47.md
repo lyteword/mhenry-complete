@@ -1,3 +1,7 @@
+---
+weight: 47
+---
+
 # Psalm 47
 
 The scope of this psalm is to stir us up to praise God, to stir up all people to do so; and, I. We are directed in what manner to do it, publicly, cheerfully, and intelligently, Ps 47:1,6,7. II. We are furnished with matter for praise. 1. God's majesty, Ps 47:2. 2. His sovereign and universal dominion, Ps 47:2,7-9. 3. The great things he had done, and will do, for his people, Ps 47:3-5. Many suppose that this psalm was penned upon occasion of the bringing up of the ark to Mount Zion which Ps 47:5 seems to refer to ("God has gone up with a shout");—but it looks further, to the ascension of Christ into the heavenly Zion, after he had finished his undertaking on earth, and to the setting up of his kingdom in the world, to which the heathen should become willing subjects. In singing this psalm we are to give honour to the exalted Redeemer, to rejoice in his exaltation, and to celebrate his praises, confessing that he is Lord, to the glory of God the Father.

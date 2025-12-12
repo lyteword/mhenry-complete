@@ -1,3 +1,7 @@
+---
+weight: 18
+---
+
 # Chapter 18
 
 In this chapter we have, I. A general declaration of God's ways in dealing with nations and kingdoms, that he can easily do what he will with them, as easily as the potter can with the clay (Jer 18:1-6), but that he certainly will do what is just and fair with them. If he threaten their ruin, yet upon their repentance he will return in mercy to them, and, when he is coming towards them in mercy, nothing but their sin will stop the progress of his favours, Jer 18:7-10. II. A particular demonstration of the folly of the men of Judah and Jerusalem in departing from their God to idols, and so bringing ruin upon themselves notwithstanding the fair warnings given them and God's kind intentions towards them, Jer 18:11-17. III. The prophet's complaint to God of the base ingratitude and unreasonable malice of his enemies, persecutors, and slanderers, and his prayers against them, Jer 18:18-23.

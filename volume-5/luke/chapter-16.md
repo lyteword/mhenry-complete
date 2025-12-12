@@ -1,3 +1,7 @@
+---
+weight: 16
+---
+
 # Chapter 16
 
 The scope of Christ's discourse in this chapter is to awaken and quicken us all so to use this world as not to abuse it, so to manage all our possessions and enjoyments here as that they may make for us, and may not make against us in the other world; for they will do either the one or the other, according as we use them now. I. If we do good with them, and lay out what we have in works of piety and charity, we shall reap the benefit of it in the world to come; and this he shows in the parable of the unjust steward, who made so good a hand of his lord's goods that, when he was turned out of his stewardship, he had a comfortable subsistence to betake himself to. The parable itself we have (Lu 16:1-8); the explanation and application of it (Lu 16:9-13); and the contempt which the Pharisees put upon the doctrine Christ preached to them, for which he sharply reproved them, adding some other weighty sayings, Lu 16:14-18. II. It, instead of doing good with our worldly enjoyments, we make them the food and fuel of our lusts, of our luxury and sensuality, and deny relief to the poor, we shall certainly perish eternally, and the things of this world, which were thus abused, will but add to our misery and torment. This he shows in the other parable of the rich man and Lazarus, which has likewise a further intention, and that is, to awaken us all to take the warning given us by the written word, and not to expect immediate messages from the other world, Lu 16:19-31.

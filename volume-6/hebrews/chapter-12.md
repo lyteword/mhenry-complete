@@ -1,3 +1,7 @@
+---
+weight: 12
+---
+
 # Chapter 12
 
 The apostle, in this chapter, applies what he has collected in the chapter foregoing, and makes use of it as a great motive to patience and perseverance in the Christian faith and state, pressing home the argument, I. From a greater example than he had yet mentioned, and that is Christ himself, Heb 12:1-3. II. From the gentle and gracious nature of the afflictions they endured in their Christian course, Heb 12:4-17. III. From the communion and conformity between the state of the gospel-church on earth and the triumphant church in heaven, Heb 12:18-29.

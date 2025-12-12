@@ -1,3 +1,7 @@
+---
+weight: 16
+---
+
 # Chapter 16
 
 This chapter is wholly taken up with the reign of Ahaz; and we have quite enough of it, unless it were better. He had a good father, and a better son, and yet was himself one of the worst of the kings of Judah. I. He was a notorious idolater, 2Ki 16:1-4. II. With the treasures of the temple, as well as his own, he hired the king of Assyria to invade Syria and Israel, 2Ki 16:5-9. III. He took pattern from an idol's altar which he saw at Damascus for a new altar in God's temple, 2Ki 16:10-16. IV. He abused and embezzled the furniture of the temple, 2Ki 16:17,18. And so his story ends, 2Ki 16:19,20.

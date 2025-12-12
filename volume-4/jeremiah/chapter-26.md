@@ -1,3 +1,7 @@
+---
+weight: 26
+---
+
 # Chapter 26
 
 As in the history of the Acts of the Apostles that of their preaching and that of their suffering are interwoven, so it is in the account we have of the prophet Jeremiah; witness this chapter, where we are told, I. How faithfully he preached, Jer 26:1-6. II. How spitefully he was persecuted for so doing by the priests and the prophets, Jer 26:7-11. III. How bravely he stood to his doctrine, in the face of his persecutors, Jer 26:12-15. IV. How wonderfully he was protected and delivered by the prudence of the princes and elders, Jer 26:16-19. Though Urijah, another prophet, was about the same time put to death by Jehoiakim (Jer 26:20-23), yet Jeremiah met with those that sheltered him, Jer 26:24.

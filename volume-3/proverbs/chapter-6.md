@@ -1,3 +1,7 @@
+---
+weight: 6
+---
+
 # Chapter 6
 
 In this chapter we have, I. A caution against rash suretiship, Pr 6:1-5. II. A rebuke to slothfulness, Pr 6:6-11. III. The character and fate of a malicious mischievous man, Pr 6:12-15. IV. An account of seven things which God hates, Pr 6:16-19. V. An exhortation to make the word of God familiar to us, Pr 6:20-23. VI. A repeated warning of the pernicious consequences of the sin of whoredom, Pr 6:24-35. We are here dissuaded from sin very much by arguments borrowed from our secular interests, for it is not only represented as damning in the other world, but as impoverishing in this.

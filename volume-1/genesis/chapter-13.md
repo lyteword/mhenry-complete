@@ -1,3 +1,7 @@
+---
+weight: 13
+---
+
 # Chapter 13
 
 In this chapter we have a further account concerning Abram. I. In general, of his condition and behaviour in the land of promise, which was now the land of his pilgrimage. 1. His removes, Ge 13:1,3,4,18. 2. His riches, Ge 13:2. 3. His devotion, Ge 13:4,18. II. A particular account of a quarrel that happened between him and Lot. 1. The unhappy occasion of their strife Ge 13:5,6. 2. The parties concerned in the strife, with the aggravation of it, Ge 13:7. III. The making up of the quarrel, by the prudence of Abram Ge 13:8,9. IV. Lot's departure from Abram to the plain of Sodom, Ge 13:10-13. V. God's appearance to Abram, to confirm the promise of the land of Canaan to him, Ge 13:14-18, etc.

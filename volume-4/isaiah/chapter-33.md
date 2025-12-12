@@ -1,3 +1,7 @@
+---
+weight: 33
+---
+
 # Chapter 33
 
 This chapter relates to the same events as the foregoing chapter, the distress of Judah and Jerusalem by Sennacherib's invasion and their deliverance out of that distress by the destruction of the Assyrian army. These are intermixed in the prophecy, in the way of a Pindaric. Observe, I. The great distress that Judah and Jerusalem should then be brought into, Isa 33:7-9. II. The particular frights which the sinners in Zion should then be in, Isa 33:13,14. III. The prayers of good people to God in this distress, Isa 33:2. IV. The holy security which they should enjoy in the midst of this trouble, Isa 33:15,16. V. The destruction of the army of the Assyrians (Isa 33:1-3), in which God would be greatly glorified, Isa 33:5,10-12. VI. The enriching of the Jews with the spoil of the Assyrian camp, Isa 33:4,23,24. VII. The happy settlement of Jerusalem, and the Jewish state, upon this. Religion shall be uppermost (Isa 33:6), and their civil state shall flourish, Isa 33:17-22. This was soon fulfilled, but is written for our learning.

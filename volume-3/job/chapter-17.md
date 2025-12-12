@@ -1,3 +1,7 @@
+---
+weight: 17
+---
+
 # Chapter 17
 
 In this chapter, I. Job reflects upon the harsh censures which his friends had passed upon him, and looking upon himself as a dying man (Job 17:1), he appeals to God, and begs of him speedily to appear for him, and right him, because they had wronged him, and he knew not how to right himself, Job 17:2-7. But he hopes that, though it should be a surprise, it will be no stumbling-block, to good people, to see him thus abused, Job 17:8,9. II. He reflects upon the vain hopes they had fed him with, that he should yet see good days, showing that his days were just at an end, and with his body all his hopes would be buried in the dust, Job 17:10-16. His friends becoming strange to him, which greatly grieved him, he makes death and the grave familiar to him, which yielded him some comfort.

@@ -1,3 +1,7 @@
+---
+weight: 10
+---
+
 # Chapter 10
 
 There was no place in which the apostle Paul met with more opposition from false apostles than at Corinth; he had many enemies there. Let not any of the ministers of Christ think it strange if they meet with perils, not only from enemies, but from false brethren; for blessed Paul himself did so. Though he was so blameless and inoffensive in all his carriage, so condescending and useful to all, yet there were those who bore him ill-will, who envied him, and did all they could to undermine him, and lesson his interest and reputation. Therefore he vindicates himself from their imputation, and arms the Corinthians against their insinuations. In this chapter the apostle, in a mild and humble manner, asserts the power of his preaching, and to punish offenders, 2Co 10:1-6. He then proceeds to reason the case with the Corinthians, asserting his relation to Christ, and his authority as an apostle of Christ (2Co 10:7-11), and refuses to justify himself, or to act by such rules as the false teachers did, but according to the better rules he had fixed for himself, 2Co 10:12-18.

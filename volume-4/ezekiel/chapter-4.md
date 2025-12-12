@@ -1,3 +1,7 @@
+---
+weight: 4
+---
+
 # Chapter 4
 
 Ezekiel was now among the captives in Babylon, but they there had Jerusalem still upon their hearts; the pious captives looked towards it with an eye of faith (as Da 6:10), the presumptuous ones looked towards it with an eye of pride, and flattered themselves with a conceit that they should shortly return thither again; those that remained corresponded with the captives, and, it is likely, bouyed them up with hopes that all would be well yet, as long as Jerusalem was standing in its strength, and perhaps upbraided those with their folly who had surrendered at first; therefore, to take down this presumption, God gives the prophet, in this chapter, a very clear and affecting foresight of the besieging of Jerusalem by the Chaldean army and the calamities which would attend that siege. Two things are here represented to him in vision:—I. The fortifications that should be raised against the city; this is signified by the prophet's laying siege to the portraiture of Jerusalem (Eze 3:1-3) and laying first on one side and then on the other side before it, Eze 3:4-8. II. The famine that should rage within the city; this is signified by his eating very coarse fare, and confining himself to a little of it, so long as this typical representation lasted, Eze 3:9-17.

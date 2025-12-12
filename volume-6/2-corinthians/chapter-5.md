@@ -1,3 +1,7 @@
+---
+weight: 5
+---
+
 # Chapter 5
 
 The apostle proceeds in showing the reasons why they did not faint under their afflictions, namely, their expectation, desire, and assurance of happiness after death (2Co 5:1-5), and deduces an inference for the comfort of believers in their present state (2Co 5:6-8), and another to quicken them in their duty, 2Co 5:9-11. Then he makes an apology for seeming to commend himself, and gives a good reason for his zeal and diligence (2Co 5:12-15), and mentions two things that are necessary in order to our living to Christ, regeneration and reconciliation, 2Co 5:16-21.

@@ -1,3 +1,7 @@
+---
+weight: 20
+---
+
 # Chapter 20
 
 How do the clouds return after the rain! No sooner is one of David's troubles over than another arises, as it were out of the ashes of the former, wherein the threatening is fulfilled, that the sword should never depart from his house. I. Before he reaches Jerusalem a new rebellion is raised by Sheba, 2Sa 20:1,2. II. His first work, when he comes to Jerusalem, is to condemn his concubines to perpetual imprisonment, 2Sa 20:3. III. Amass, whom he entrusts to raise an army against Sheba, is too slow in his motions, which puts him into a fright, 2Sa 20:4-6. IV. One of his generals barbarously murders the other, when they are taking the field, 2Sa 20:7-13. V. Sheba is at length shut up in the city of Abel (2Sa 20:14,15), but the citizens deliver him up to Joab, and so his rebellion is crushed, 2Sa 20:16-22. The chapter concludes with a short account of David's great officers, 2Sa 20:23-26.

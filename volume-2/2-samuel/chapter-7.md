@@ -1,3 +1,7 @@
+---
+weight: 7
+---
+
 # Chapter 7
 
 Still the ark is David's care as well as his joy. In this chapter we have, I. His consultation with Nathan about building a house for it; he signifies his purpose to do it (2Sa 7:1,2) and Nathan approves his purpose, 2Sa 7:3. II. His communion with God about it. 1. A gracious message God sent him about it, accepting his purpose, countermanding the performance, and promising him an entail of blessings upon his family, 2Sa 7:4-17. 2. A very humble prayer which David offered up to God in return to that gracious message, thankfully accepting God's promises to him, and earnestly praying for the performance of them, 2Sa 7:18-29. And, in both these, there is an eye to the Messiah and his kingdom.

@@ -1,3 +1,7 @@
+---
+weight: 3
+---
+
 # Chapter 3
 
 The apostle drawing towards the conclusion of his second epistle, begins this last chapter with repeating the account of his design and scope in writing a second time to them, 2Pe 3:1-2. II. He proceeds to mention one thing that induced him to write this second epistle, namely, the coming of scoffers, whom he describes, 2Pe 3:3-7. III. He instructs and establishes them in the coming of our Lord Jesus Christ to judgment, 2Pe 3:8-10. IV. He sets forth the use and improvement which Christians ought to make of Christ's second coming, and that dissolution and renovation of things which will accompany that solemn coming of our Lord, 2Pe 3:11-18.

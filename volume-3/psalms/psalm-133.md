@@ -1,3 +1,7 @@
+---
+weight: 133
+---
+
 # Psalm 133
 
 This psalm is a brief encomium on unity and brotherly love, which, if we did not see the miseries of discord among men, we should think needless; but we cannot say too much, it were well if we could say enough, to persuade people to live together in peace. Some conjecture that David penned this psalm upon occasion of the union between the tribes when they all met unanimously to make him king. It is a psalm of general use to all societies, smaller and larger, civil and sacred. Here is, I. The doctrine laid down of the happiness of brotherly love, Ps 133:1. II. The illustration of that doctrine, in two similitudes, Ps 133:2,3. III. The proof of it, in a good reason given for it (Ps 133:3); and then we are left to make the application, which we ought to do in singing it, provoking ourselves and one another to holy love. The contents of this psalm in our Bibles, are short, but very proper; it is "the benefit of the communion of saints."

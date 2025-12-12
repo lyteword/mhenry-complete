@@ -1,3 +1,7 @@
+---
+weight: 2
+---
+
 # Chapter 2
 
 We now come closer to Nineveh, that great city; she took, not warning by the destruction of her armies and the fall of her king, and therefore may expect, since she persists in her enmity to God, that he will proceed in his controversy with her. Here is foretold, I. The approach of the enemy that should destroy Nineveh, and the terror of his military preparations, Na 2:1-5. II. The taking of the city, Na 2:6. III. The captivity of the queen, the flight of the inhabitants, the seizing of all its wealth, and the great consternation it should be in, Na 2:7-10. IV. All this is traced up to its true causes—their sinning against God and God's appearing against them, Na 2:11-13. All this was fulfilled when Nebuchadnezzar, in the first year of his reign, in conjunction with Cyaxares, or Ahasuerus, king of the Medes, conquered Nineveh, and made himself master of the Assyrian monarchy.

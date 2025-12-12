@@ -1,3 +1,7 @@
+---
+weight: 28
+---
+
 # Chapter 28
 
 ## Miscellaneous Maxims.
@@ -6,7 +10,7 @@
 
 See here, 1. What continual frights those are subject to that go on in wicked ways. Guilt in the conscience makes men a terror to themselves, so that they are ready *to flee when none pursues;* like one that absconds for debt, who thinks every one he meets a bailiff. Though they pretend to be easy, there are secret fears which haunt them wherever they go, so that they fear where no present or imminent danger is, Ps 53:5. Those that have made God their enemy, and know it, cannot but see the whole creation at war with them, and therefore can have no true enjoyment of themselves, no confidence, no courage, but a *fearful looking for of judgment.* Sin makes men cowards.
 
-If they flee when none pursues, what will they do when they shall see God himself pursuing them with his armies? Job 20:24,Job 15:24. See De 28:25,Le 26:36. 2. What a holy security and serenity of mind those enjoy who *keep conscience void of offence* and so keep themselves in the love of God: *The righteous are bold as a lion,* as a young lion; in the greatest dangers they have a God of almighty power to trust to. *Therefore will not we fear though the earth be removed.* Whatever difficulties they meet with in the way of their duty, they are not daunted by them. *None of those things move me.*
+If they flee when none pursues, what will they do when they shall see God himself pursuing them with his armies? Job 20:24, Job 15:24. See De 28:25, Le 26:36. 2. What a holy security and serenity of mind those enjoy who *keep conscience void of offence* and so keep themselves in the love of God: *The righteous are bold as a lion,* as a young lion; in the greatest dangers they have a God of almighty power to trust to. *Therefore will not we fear though the earth be removed.* Whatever difficulties they meet with in the way of their duty, they are not daunted by them. *None of those things move me.*
 
 > <sup>2</sup> For the transgression of a land many *are* the princes thereof: but by a man of understanding *and* knowledge the state *thereof* shall be prolonged.  
 
@@ -58,7 +62,7 @@ Note, 1. The comfort of the people of God is the honour of the nation in which t
 
 > <sup>13</sup> He that covereth his sins shall not prosper: but whoso confesseth and forsaketh *them* shall have mercy.  
 
-Here is, 1. The folly of indulging sin, of palliating and excusing it, denying or extenuating it, diminishing it, dissembling it, or throwing the blame of it upon others: *He that* thus *covers his sins shall not prosper,* let him never expect it. He shall not succeed in his endeavour to cover his sin, for it will be discovered, sooner or later. *There is nothing hid which shall not be revealed.* A *bird of the air shall carry the voice.* Murder will out, and so will other sins. He *shall not prosper,* that is, he shall not obtain the pardon of his sin, nor can he have any true peace of conscience. David owns himself to have been in a constant agitation while he *covered his sins,* Ps 32:3,4. While the patient conceals his distemper he cannot expect a cure. 2. The benefit of parting with it, both by a penitent confession and a universal reformation: *He that confesses* his guilt to God, and is careful not to return to sin again, shall *find mercy* with God, and shall have the comfort of it in his own bosom. His conscience shall be eased and his ruin prevented. See 1Jo 1:9,Jer 3:12,13. When we set sin before our face (as David, *My sin is ever before me*) God casts it behind his back.
+Here is, 1. The folly of indulging sin, of palliating and excusing it, denying or extenuating it, diminishing it, dissembling it, or throwing the blame of it upon others: *He that* thus *covers his sins shall not prosper,* let him never expect it. He shall not succeed in his endeavour to cover his sin, for it will be discovered, sooner or later. *There is nothing hid which shall not be revealed.* A *bird of the air shall carry the voice.* Murder will out, and so will other sins. He *shall not prosper,* that is, he shall not obtain the pardon of his sin, nor can he have any true peace of conscience. David owns himself to have been in a constant agitation while he *covered his sins,* Ps 32:3,4. While the patient conceals his distemper he cannot expect a cure. 2. The benefit of parting with it, both by a penitent confession and a universal reformation: *He that confesses* his guilt to God, and is careful not to return to sin again, shall *find mercy* with God, and shall have the comfort of it in his own bosom. His conscience shall be eased and his ruin prevented. See 1Jo 1:9, Jer 3:12,13. When we set sin before our face (as David, *My sin is ever before me*) God casts it behind his back.
 
 > <sup>14</sup> Happy *is* the man that feareth alway: but he that hardeneth his heart shall fall into mischief.  
 

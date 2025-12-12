@@ -1,3 +1,7 @@
+---
+weight: 12
+---
+
 # Chapter 12
 
 We left the general assembly of the states together, in the close of the foregoing chapter; in this chapter we have Samuel's speech to them, when he resigned the government into the hands of Saul, in which, I. He clears himself from all suspicion or imputation of mismanagement, while the administration was in his hands, 1Sa 12:1-5. II. He reminds them of the great things God had done for them and for their fathers, 1Sa 12:6-13. III. He sets before them good and evil, the blessing and the curse, 1Sa 12:14,15. IV. He awakens them to regard what he said to them, by calling to God for thunder, 1Sa 12:16-19. V. He encourages them with hopes that all should be well, 1Sa 12:20-25. This is his farewell sermon to that august assembly and Saul's coronation sermon.

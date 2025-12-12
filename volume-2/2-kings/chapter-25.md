@@ -1,3 +1,7 @@
+---
+weight: 25
+---
+
 # Chapter 25
 
 Ever since David's time Jerusalem had been a celebrated place, beautiful for situation and the joy of the whole earth: while the book of psalms lasts that name will sound great. In the New Testament we read much of it, when it was, as here, ripening again for its ruin. In the close of the Bible we read of a new Jerusalem. Every thing therefore that concerns Jerusalem is worthy our regard. In this chapter we have, I. The utter destruction of Jerusalem by the Chaldeans, the city besieged and taken (2Ki 25:1-4), the houses burnt (2Ki 25:8,9), and wall broken down (2Ki 25:10), and the inhabitants carried away into captivity, 2Ki 25:11,12. The glory of Jerusalem was, 1. That it was the royal city, where were set "the thrones of the house of David;" but that glory has now departed, for the prince is made a most miserable prisoner, the seed royal is destroyed (2Ki 25:5-7), and the principal officers are put to death, 2Ki 25:18-21. 2. That it was the holy city, where was the testimony of Israel; but that glory has departed, for Solomon's temple is burnt to the ground (2Ki 25:9) and the sacred vessels that remained are carried away to Babylon, 2Ki 25:13-17. Thus has Jerusalem become as a widow, La 1:1. Ichabod—Where is the glory? II. The distraction and dispersion of the remnant that was left in Judah under Gedaliah, 2Ki 25:22-26. III. The countenance which, after thirty-seven years' imprisonment, was given to Jehoiachin the captive king of Judah, 2Ki 25:27-30.

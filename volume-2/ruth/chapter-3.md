@@ -1,3 +1,7 @@
+---
+weight: 3
+---
+
 # Chapter 3
 
 We found it very easy, in the former chapter, to applaud the decency of Ruth's behaviour, and to show what good use we may make of the account given us of it; but in this chapter we shall have much ado to vindicate it from the imputation of indecency, and to save it from having an ill use made of it; but the goodness of those times was such as saved what is recorded here from being ill done, and yet the badness of these times is such as that it will not justify any now in doing the like. Here is, I. The directions Naomi gave to her daughter-in-law how to claim Boaz for her husband, Ru 3:1-5. II. Ruth's punctual observance of those directions, Ru 3:6,7. III. The kind and honourable treatment Boaz gave her, Ru 3:8-15. IV. Her return to her mother-in-law, Ru 3:16-18.

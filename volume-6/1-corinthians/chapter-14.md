@@ -1,3 +1,7 @@
+---
+weight: 14
+---
+
 # Chapter 14
 
 In this chapter the apostle directs them about the use of their spiritual gifts, preferring those that are best and fitted to do the greatest good. I. He begins with advising them of all spiritual gifts to prefer prophesying, and shows that this is much better than speaking with tongues, 1Co 14:1-5. II. He goes on to show them how unprofitable the speaking of foreign languages is, and useless to the church; it is like piping in one tone, like sounding a trumpet without any certain note, like talking gibberish; whereas gifts should be used for the good of the church, 1Co 14:6-14. III. He advises that worship should be celebrated so that the most ignorant might understand, and join in prayer and praise, and presses the advice by his own example, 1Co 14:15-20. IV. He informs them that tongues were a sign for unbelievers rather than those that believe; and represents the advantage of prophecy above speaking with tongues, from the different suggestions they would give to the mind of an unbeliever coming into their assemblies, 1Co 14:21-25. V. He blames them for the disorder and confusion they had brought into the assembly, by their vanity and ostentation of their gifts; and directs them in using the gifts both of tongues and prophecy, 1Co 14:26-33. VI. He forbids women speaking in the church; and closes this subject by requiring them to perform every thing in the public worship with order and decency, 1Co 14:34-40.

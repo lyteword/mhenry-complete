@@ -1,3 +1,7 @@
+---
+weight: 150
+---
+
 # Psalm 150
 
 The first and last of the psalms have both the same number of verses, are both short, and very memorable. But the scope of them is very different: the first psalm is an elaborate instruction in our duty, to prepare us for the comforts of our devotion; this is all rapture and transport, and perhaps was penned on purpose to be the conclusion of these sacred songs, to show what is the design of them all, and that is to assist us in praising God. The psalmist had been himself full of the praises of God, and here he would fain fill all the world with them: again and again he calls, "Praise the Lord, praise him, praise him," no less than thirteen times in these six short verses. He shows, I. For what, and upon what account, God is to be praised (Ps 150:1,2), II. How, and with what expressions of joy, God is to be praised, Ps 150:3-5. III. Who must praise the Lord; it is every one's business, Ps 150:6. In singing this psalm we should endeavour to get our hearts much affected with the perfections of God and the praises with which he is and shall be for ever attended, throughout all ages, world without end.

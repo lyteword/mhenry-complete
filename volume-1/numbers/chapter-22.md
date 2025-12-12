@@ -1,3 +1,7 @@
+---
+weight: 22
+---
+
 # Chapter 22
 
 At this chapter begins the famous story of Balak and Balaam, their attempt to curse Israel, and the baffling of that attempt; God's people are long afterwards told to remember what Balak the king of Moab consulted, and what Balaam the son of Beor answered him, that they might know the righteousness of the Lord, Mic 6:5. In this chapter we have, I. Balak's fear of Israel, and the plot he had to get them cursed, Nu 22:1-4. II. The embassy he sent to Balaam, a conjurer, to fetch him for that purpose, and the disappointment he met with in the first embassy, Nu 22:5-14. III. Balaam's coming to him upon his second message, Nu 22:15-21. IV. The opposition Balaam met with by the way, Nu 22:22-35. V. The interview at length between Balak and Balaam, Nu 22:36-41, etc.

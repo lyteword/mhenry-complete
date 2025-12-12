@@ -1,3 +1,7 @@
+---
+weight: 5
+---
+
 # Chapter 5
 
 Here the apostle, I. Directs Timothy how to reprove, 1Ti 5:1,2. II. Adverts to widows, both elder and younger, 1Ti 5:3-16. III. To elders, 1Ti 5:17-19. IV. Treats of public reproof, 1Ti 5:20. V. Gives a solemn charge concerning ordination, 1Ti 5:21,22. VI. Refers to his health (1Ti 5:23), and states men's sins to be very different in their effects, 1Ti 5:24,25.

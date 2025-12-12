@@ -1,3 +1,7 @@
+---
+weight: 8
+---
+
 # Chapter 8
 
 This chapter is concerning the lamps or lights of the sanctuary. I. The burning lamps in the candlestick, which the priests were charged to tend, Nu 8:1-4. II. The living lamps (if I may so call them), The Levites, who as ministers were burning and shining lights. The ordination of the priests we had an account of, Le 8:1-36. Here we have an account of the ordination of the Levites, the inferior clergy. 1. How they were purified, Nu 8:5-8. 2. How they were parted with by the people, Nu 8:9-10. 3. How they were presented to God in lieu of the firstborn, Nu 8:11-18. 4. How they were consigned to Aaron and his sons, to be ministers to them, Nu 8:19. 5. How all these orders were duly executed, Nu 8:20-22. And, lastly, the age appointed for their ministration, Nu 8:23-26, etc.

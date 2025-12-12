@@ -1,3 +1,7 @@
+---
+weight: 6
+---
+
 # Chapter 6
 
 Much ado there was to bring Moses to his work, and when the ice was broken, some difficulty having occurred in carrying it on, there was no less ado to put him forward in it. Witness this chapter, in which, I. God satisfies Moses himself in an answer to his complaints in the close of the foregoing chapter, Ex 6:1. II. He gives him fuller instructions than had yet been given him what to say to the children of Israel, for their satisfaction (Ex 6:2-8), but to little purpose, Ex 6:9. III. He sends him again to Pharaoh, Ex 6:10,11. But Moses objects against (Ex 6:12), upon which a very strict charge is given to him and his brother to execute their commission with vigour, Ex 6:13. IV. Here is an abstract of the genealogy of the tribes of Reuben and Simeon, to introduce that of Levi, that the pedigree of Moses and Aaron might be cleared (Ex 6:14-25), and then the chapter concludes with a repetition of so much of the preceding story as was necessary to make way for the following chapter.

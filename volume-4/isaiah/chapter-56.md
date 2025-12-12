@@ -1,3 +1,7 @@
+---
+weight: 56
+---
+
 # Chapter 56
 
 After the exceedingly great and precious promises of gospel grace, typified by temporal deliverances, which we had in the foregoing chapter, we have here, I. A solemn charge given to us all to make conscience of our duty, as we hope to have the benefit of those promises, Isa 56:1,2. II. Great encouragement given to strangers that were willing to come under the bonds of the covenant, assuring them of the blessings of the covenant, Isa 56:3-8. III. A high charge drawn up against the watchmen of Israel, that were careless and unfaithful in the discharge of their duty (Isa 56:9-12), which seems to be the beginning of a new sermon, by way of reproof and threatening, which is continued in the following chapters. And the word of God was intended for conviction, as well as for comfort and instruction in righteousness.

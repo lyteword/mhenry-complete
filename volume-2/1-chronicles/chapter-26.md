@@ -1,3 +1,7 @@
+---
+weight: 26
+---
+
 # Chapter 26
 
 We have here an account of the business of the Levites. That tribe had made but a very small figure all the time of the judges, till Eli and Samuel appeared. But when David revived religion the Levites were, of all men, in the greatest reputation. And happy it was that they had Levites who were men of sense, fit to support the honour of their tribe. We have here an account, I. Of the Levites that were appointed to be porters, 1Ch 26:1-19. II. Of those that were appointed to be treasurers and storekeepers, 1Ch 26:20-28. III. Of those that were officers and judges in the country, and were entrusted with the administration of public affairs, 1Ch 26:29-32.

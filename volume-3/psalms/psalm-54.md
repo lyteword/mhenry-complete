@@ -1,3 +1,7 @@
+---
+weight: 54
+---
+
 # Psalm 54
 
 The key of this psalm hangs at the door, for the title tells us upon what occasion it was penned—when the inhabitants of Ziph, men of Judah (types of Judas the traitor), betrayed David to Saul, by informing him where he was and putting him in a way how to seize him. This they did twice (1Sa 23:19,26:1), and it is upon record to their everlasting infamy. The psalm is sweet; the former part of it, perhaps, was meditated when he was in his distress and put into writing when the danger was over, with the addition of the last two verses, which express his thankfulness for the deliverance, which yet might be written in faith, even when he was in the midst of his fright. Here, I. He complains to God of the malice of his enemies, and prays for help against them, Ps 55:1-3. II. He comforts himself with an assurance of the divine favour and protection, and that, in due time, his enemies should be confounded and be delivered, Ps 55:4-7. What time we are in distress we may comfortably sing this psalm.

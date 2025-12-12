@@ -1,3 +1,7 @@
+---
+weight: 64
+---
+
 # Psalm 64
 
 This whole psalm has reference to David's enemies, persecutors, and slanderers; many such there were, and a great deal of trouble they gave him, almost all his days, so that we need not guess at any particular occasion of penning this psalm. I. He prays to God to preserve him from their malicious designs against him, Ps 64:1,2. II. He gives a very bad character of them, as men marked for ruin by their own wickedness, Ps 64:3-6. III. By the spirit of prophecy he foretels their destruction, which would redound to the glory of God and the encouragement of his people, Ps 64:7-10. In singing this psalm we must observe the effect of the old enmity that is in the seed of the woman against the seed of the serpent, and assure ourselves that the serpent's head will be broken, at last, to the honour and joy of the holy seed.

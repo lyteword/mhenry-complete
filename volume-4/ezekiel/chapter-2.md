@@ -1,3 +1,7 @@
+---
+weight: 2
+---
+
 # Chapter 2
 
 What our Lord Jesus said to St. Paul (Ac 26:16) may fitly be applied to the prophet Ezekiel, to whom the same Jesus is here speaking, "Rise and stand upon thy feet, for I have appeared unto thee for this purpose, to make thee a minister." We have here Ezekiel's ordination to his office, which the vision was designed to fit him for, not to entertain his curiosity with uncommon speculations, but to put him into business. Now here, I. He is commissioned to go as a prophet to the house of Israel, now captives in Babylon, and to deliver God's messages to them from time to time, Eze 2:1-5. II. He is cautioned not to be afraid of them, Eze 2:6. III. He is instructed what to say to them, and has words put into his mouth, signified by the vision of a roll, which he was ordered to eat (Eze 2:7-10), and which, in the next chapter, we find he did eat.

@@ -1,3 +1,7 @@
+---
+weight: 20
+---
+
 # Chapter 20
 
 This chapter is a prediction of the carrying away of multitudes both of the Egyptians and the Ethiopians into captivity by the king of Assyria. Here is, I. The sign by which this was foretold, which was the prophet's going for some time barefoot and almost naked, like a poor captive, Isa 20:1,2. II. The explication of that sign, with application to Egypt and Ethiopia, Isa 20:3-5. III. The good use which the people of God should make of this, which is never to trust in an arm of flesh, because thus it will deceive them, Isa 20:6.

@@ -1,3 +1,7 @@
+---
+weight: 17
+---
+
 # Chapter 17
 
 This excellent chapter is the same with 2Sa 7:1-29 It will be worth while to look back upon what was there said upon it. Two things in general we have in it:—I. God's gracious acceptance of David's purpose to build him a house, and the promise he made thereupon, 1Ch 17:1-15. II. David's gracious acceptance of God's good promise to build him a house, and the prayer he made thereupon, 1Ch 17:16-27.

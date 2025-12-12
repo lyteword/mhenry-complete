@@ -1,3 +1,7 @@
+---
+weight: 21
+---
+
 # Psalm 21
 
 As the foregoing psalm was a prayer for the king that God would protect and prosper him, so this is a thanksgiving for the success God had blessed him with. Those whom we have prayed for we ought to give thanks for, and particularly for kings, in whose prosperity we share. They are here taught, I. To congratulate him on his victories, and the honour he had achieved, Ps 21:1-6. II. To confide in the power of God for the completing of the ruin of the enemies of his kingdom, Ps 21:7-13. In this there is an eye to Messiah the Prince, and the glory of his kingdom; for to him divers passages in this psalm are more applicable than to David himself.

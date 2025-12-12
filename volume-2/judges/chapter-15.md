@@ -1,3 +1,7 @@
+---
+weight: 15
+---
+
 # Chapter 15
 
 Samson, when he courted an alliance with the Philistines, did but seek an occasion against them, Jdg 14:4. Now here we have a further account of the occasions he took to weaken them, and to avenge, not his own, but Israel's quarrels, upon them. Everything here is surprising; if any thing be thought incredible, because impossible, it must be remembered that with God nothing is impossible, and it was by the Spirit of the Lord coming upon him that he was both directed to and strengthened for those unusual ways of making war. I. From the perfidiousness of his wife and her father, he took occasion to burn their corn, Jdg 15:1-5. II. From the Philistines' barbarous cruelty to his wife and her father, he took occasion to smite them with a great slaughter, Jdg 15:6-8. III. From the treachery of his countrymen, who delivered him bound to the Philistines, he took occasion to kill 1000 of them with the jaw-bone of an ass, Jdg 15:9-17. IV. From the distress he was then in for want of water, God took occasion to show him favour in a seasonable supply, Jdg 15:18-20.

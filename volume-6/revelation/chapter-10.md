@@ -1,3 +1,7 @@
+---
+weight: 10
+---
+
 # Chapter 10
 
 This chapter is an introduction to the latter part of the prophecies of this book. Whether what is contained between this and the sounding of the seventh trumpet (Re 11:15) be a distinct prophecy from the other, or only a more general account of some of the principal things included in the other, is disputed by our curious enquirers into these abstruse writings. However, here we have, I. A remarkable description of a very glorious angel with an open book in his hand, Re 10:1-3. II. An account of seven thunders which the apostle heard, as echoing to the voice of this angel, and communicating some discoveries, which the apostle was not yet allowed to write, Re 10:4. III. The solemn oath taken by him who had the book in his hand, Re 10:5-7. IV. The charge given to the apostle, and observed by him, Re 10:8-11.

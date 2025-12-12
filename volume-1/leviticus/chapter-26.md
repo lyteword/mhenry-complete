@@ -1,3 +1,7 @@
+---
+weight: 26
+---
+
 # Chapter 26
 
 This chapter is a solemn conclusion of the main body of the levitical law. The precepts that follow in this and the following book either relate to some particular matters or are repetitions and explications of the foregoing institutions. Now this chapter contains a general enforcement of all those laws by promises of reward in case of obedience on the one hand, and threatenings of punishment for disobedience on the other hand, the former to work upon hope, the latter on fear, those two handles of the soul, by which it is taken hold of and managed. Here is, I. A repetition of two or three of the principal of the commandments, Le 26:1,2. II. An inviting promise of all good things, if they would but keep God's commandments, Le 26:3-13. III. A terrible threatening of ruining judgments which would be brought upon them if they were refractory and disobedient, Le 26:14-39. IV. A gracious promise of the return of mercy to those of them that would repent and reform, Le 26:40-46, etc. De 28:1-20 is parallel to this.

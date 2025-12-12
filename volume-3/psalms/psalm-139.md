@@ -1,3 +1,7 @@
+---
+weight: 139
+---
+
 # Psalm 139
 
 Some of the Jewish doctors are of opinion that this is the most excellent of all the psalms of David; and a very pious devout meditation it is upon the doctrine of God's omniscience, which we should therefore have our hearts fixed upon and filled with in singing this psalm. I. This doctrine is here asserted, and fully laid down, Ps 139:1-6. II. It is confirmed by two arguments:—1. God is every where present; therefore he knows all, Ps 139:7-12. 2. He made us, therefore he knows us, Ps 139:13-16. III. Some inferences are drawn from this doctrine. 1. It may fill us with pleasing admiration of God, Ps 139:17,18. 2. With a holy dread and detestation of sin and sinners, Ps 139:19-22. 3. With a holy satisfaction in our own integrity, concerning which we may appeal to God, Ps 139:23,24. This great and self-evident truth, That God knows our hearts, and the hearts of all the children of men, if we did but mix faith with it and seriously consider it and apply it, would have a great influence upon our holiness and upon our comfort.

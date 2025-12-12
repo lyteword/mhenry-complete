@@ -1,3 +1,7 @@
+---
+weight: 1
+---
+
 # Chapter 1
 
 After the introduction (2Ti 1:1,2) we have, I. Paul's sincere love to Timothy, 2Ti 1:3-5. II. Divers exhortations given to him, 2Ti 1:6-14. III. He speaks of Phygellus and Hermogenes, with others, and closes with Onesiphorus, 2Ti 1:15-18.

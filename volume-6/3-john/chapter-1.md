@@ -1,3 +1,7 @@
+---
+weight: 1
+---
+
 # Chapter 1
 
 In this epistle the apostle congratulates Gaius upon the prosperity of his soul (3Jo 1:1,2), upon the fame he had among good Christians (3Jo 1:3,4), and upon his charity and hospitality to the servants of Christ, 3Jo 1:5,6. He complains of contemptuous treatment by an ambitious Diotrephes, (3Jo 1:9,10), recommends Demetrius, (3Jo 1:12), and expresses his hope of visiting Gaius shortly, 3Jo 1:13,14.

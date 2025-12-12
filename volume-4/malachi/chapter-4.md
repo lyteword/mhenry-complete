@@ -1,3 +1,7 @@
+---
+weight: 4
+---
+
 # Chapter 4
 
 We have here proper instructions given us (very proper to close the canon of the Old Testament with), I. Concerning the state of recompence and retribution that is before us, the misery of the wicked and the happiness of the righteous in that state, Mal 4:1-3. And this is represented to us under a prophecy of the destruction of Jerusalem, and the unbelieving Jews with it, and of the comforts and triumphs of those among them that received the gospel. II. Concerning the state of trial and preparation we are now in, in which we are directed to have an eye to divine revelation, and to follow that; they then must keep to the law of Moses (Mal 4:4) and expect a further discovery of God's will by Elijah the prophet, that is, by John Baptist, the harbinger of the Messiah, Mal 4:5,6. The last chapter of the New Testament is much to the same purport, setting before us heaven and hell in the other world, and obliging us to adhere to the word of God in this world.

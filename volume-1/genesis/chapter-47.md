@@ -1,3 +1,7 @@
+---
+weight: 47
+---
+
 # Chapter 47
 
 In this chapter we have instances, I. Of Joseph's kindness and affection to his relations, presenting his brethren first and then his father to Pharaoh (Ge 47:1-10), settling them in Goshen, and providing for them there (Ge 47:11,12), and paying his respects to his father when he sent for him, Ge 47:27-31. II. Of Joseph's justice between prince and people in a very critical affair, selling Pharaoh's corn to his subjects with reasonable profits to Pharaoh, and yet without any wrong to them, Ge 47:13-26, etc. Thus he approved himself wise and good, both in his private and in his public capacity.

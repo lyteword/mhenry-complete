@@ -1,3 +1,7 @@
+---
+weight: 19
+---
+
 # Chapter 19
 
 The scope of this chapter is much the same with that of the 17th, to foretel and lament the ruin of the house of David, the royal family of Judah, in the calamitous exit of the four sons and grandsons of Josiah—Jehoahaz, Jehoiakim, Jeconiah, and Zedekiah, in whom that illustrious line of kings was cut off, which the prophet is here ordered to lament, Eze 19:1. And he does it by similitudes. I. The kingdom of Judah and house of David are here compared to a lioness, and those princes to lions, that were fierce and ravenous, but were hunted down and taken in nets, Eze 19:2-9. II. That kingdom and that house are here compared to a vine, and these princes to branches, which had been strong and flourishing, but were now broken off and burnt, Eze 19:10-14. This ruin of that monarchy was now in the doing, and this lamentation of it was intended to affect the people with it, that they might not flatter themselves with vain hopes of the lengthening out of their tranquility.

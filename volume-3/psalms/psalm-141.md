@@ -1,3 +1,7 @@
+---
+weight: 141
+---
+
 # Psalm 141
 
 David was in distress when he penned this psalm, pursued, it is most likely, by Saul, that violent man. Is any distressed? Let him pray; David did so, and had the comfort of it. I. He prays for God's favourable acceptance, Ps 141:1,2. II. For his powerful assistance, Ps 141:3,4. III. That others might be instrumental of good to his soul, as he hoped to be to the souls of others, Ps 141:5,6. IV. That he and his friends being now brought to the last extremity God would graciously appear for their relief and rescue, Ps 141:7-10. The mercy and grace of God are as necessary to us as they were to him, and therefore we should be humbly earnest for them in singing this psalm.

@@ -1,3 +1,7 @@
+---
+weight: 26
+---
+
 # Chapter 26
 
 With this chapter Moses concludes the particular statutes which he thought fit to give Israel in charge at his parting with them; what follows is by way of sanction and ratification. In this chapter, I. Moses gives them a form of confession to be made by him that offered the basket of his first-fruits, De 26:1-11. II. The protestation and prayer to be made after the disposal of the third year's tithe, De 26:12-15. III. He binds on all the precepts he had given them, 1. By the divine authority: "Not I, but the Lord thy God has commanded thee to do these statutes," De 26:16. 2. By the mutual covenant between God and them, De 26:17-19, etc.

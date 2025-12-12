@@ -1,3 +1,7 @@
+---
+weight: 1
+---
+
 # Chapter 1
 
 After the introduction (2Co 1:1,2) the apostle begins with the narrative of his troubles and God's goodness, which he had met with in Asia, by way of thanksgiving to God (2Co 1:3-6), and for the edification of the Corinthians, 2Co 1:7-11. Then he attests his and his fellow-labourers' integrity (2Co 1:12-14), and afterwards vindicates himself from the imputation of levity and inconstancy, 2Co 1:15-24.

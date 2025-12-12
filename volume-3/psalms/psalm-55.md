@@ -1,3 +1,7 @@
+---
+weight: 55
+---
+
 # Psalm 55
 
 It is the conjecture of many expositors that David penned this psalm upon occasion of Absalom's rebellion, and that the particular enemy he here speaks of, that dealt treacherously with him, was Ahithophel; and some will therefore make David's troubles here typical of Christ's sufferings, and Ahithophel's treachery a figure of Judas's, because they both hanged themselves. But there is nothing in it particularly applied to Christ in the New Testament. David was in great distress when he penned this psalm. I. He prays that God would manifest his favour to him, and pleads his own sorrow and fear, Ps 56:1-8. II. He prays that God would manifest his displeasure against his enemies, and pleads their great wickedness and treachery, Ps 56:9-15,20,21. III. He assures himself that God would, in due time, appear for him against his enemies, comforts himself with the hopes of it, and encourages others to trust in God, Ps 56:16-19,22,23. In singing this psalm we may, if there be occasion, apply it to our own troubles; if not, we may sympathize with those to whose case it comes nearer, foreseeing that there will be, at last, indignation and wrath to the persecutors, salvation and joy to the persecuted.

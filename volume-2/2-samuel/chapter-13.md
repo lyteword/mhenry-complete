@@ -1,3 +1,7 @@
+---
+weight: 13
+---
+
 # Chapter 13
 
 The righteous God had lately told David, by Nathan the prophet, that, to chastise him for his son in the matter of Uriah, he would "raise up evil against him out of his own house," (2Sa 12:11). And here, in the very next chapter, we find the evil beginning to rise; henceforward he was followed with one trouble after another, which made the latter part of his reign less glorious and pleasant than the former part. Thus God chastened him with the rod of men, yet assured him that his "loving-kindness he would not utterly take away." Adultery and murder were David's sins, and those sins among his children (Amnon defiling his sister Tamar, and Absalom murdering his brother Amnon) were the beginnings of his punishment, and the more grievous because he had reason to fear that his bad example might help to bring them to these wickednesses. In this chapter we have, I. Amnon ravishing Tamar, assisted in his plot to do it by Jonadab his kinsman, and villainously executing it, 2Sa 13:1-20. II. Absalom murdering Amnon for it, 2Sa 13:21-39. Both were great griefs to David, and the more because he was unwittingly made accessory to both, by sending Tamar to Amnon and Amnon to Absalom.

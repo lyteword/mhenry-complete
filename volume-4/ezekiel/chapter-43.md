@@ -1,3 +1,7 @@
+---
+weight: 43
+---
+
 # Chapter 43
 
 The prophet, having given us a view of the mystical temple, the gospel-church, as he received it from the Lord, that it might appear not to be erected in vain, comes to describe, in this and the next chapter, the worship that should be performed in it, but under the type of the Old-Testament services. In this chapter we have, I. Possession taken of this temple, by the glory of God filling it, Eze 43:1-6. II. A promise given of the continuance of God's presence with his people upon condition of their return to, and continuance in, the instituted way of worship, and their abandoning idols and idolatry, Eze 43:7-12. III. A description of the altar of burnt-offerings, Eze 43:13-17. IV. Directions given for the consecration of that altar, Eze 43:18-27. Ezekiel seems here to stand between God and Israel, as Moses the servant of the Lord did when the sanctuary was first set up.

@@ -1,3 +1,7 @@
+---
+weight: 10
+---
+
 # Chapter 10
 
 In this chapter we have, I. Orders given about the making and using of silver trumpets, which seems to have been the last of all the commandments God gave upon Mount Sinai, and one of the least, yet not without its significancy, Nu 10:1-10. II. The history of the removal of Israel's camp from Mount Sinai, and their orderly march into the wilderness of Paran, Nu 10:11-28. III. Moses's treaty with Hobab, his brother-in-law, Nu 10:29-32. IV. Moses's prayer at the removing and resting of the ark, Nu 10:33, etc.

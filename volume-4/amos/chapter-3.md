@@ -1,3 +1,7 @@
+---
+weight: 3
+---
+
 # Chapter 3
 
 A stupid, senseless, heedless people, are, in this chapter, called upon to take notice, I. Of the judgments of God denounced against them and the warnings he gave them of those judgments, and to be hereby awakened out of their security, Am 3:1-8. II. Of the sins that were found among them, by which God was provoked thus to threaten, thus to punish, that they might justify God in his controversy with them, and, unless they repented and reformed, might expect no other than that God should proceed in his controversy, Am 3:9-15.

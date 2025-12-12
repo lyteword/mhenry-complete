@@ -1,3 +1,7 @@
+---
+weight: 4
+---
+
 # Chapter 4
 
 The apostle, in this chapter, is still carrying on the same general design as in the former—to recover these Christians from the impressions made upon them by the judaizing teachers, and to represent their weakness and folly in suffering themselves to be drawn away from the gospel doctrine of justification, and to be deprived of their freedom from the bondage of the law of Moses. For this purpose he makes use of various considerations; such as, I. The great excellence of the gospel state above the legal, Ga 4:1-7. II. The happy change that was made in them at their conversion, Ga 4:8-11. III. The affection they had had for him and his ministry, Ga 4:12-16. IV. The character of the false teachers by whom they had been perverted, Ga 4:17,18. V. The very tender affection he had for them, Ga 4:19,20. VI. The history of Isaac and Ishmael, by a comparison taken from which he illustrates the difference between such as rested in Christ and such as trusted in the law. And in all these, as he uses great plainness and faithfulness with them, so he expresses the tenderest concern for them.

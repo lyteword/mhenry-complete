@@ -1,3 +1,7 @@
+---
+weight: 6
+---
+
 # Chapter 6
 
 In this chapter, as before, we have, I. A prophecy of the invading of the land of Judah and the besieging of Jerusalem by the Chaldean army (Jer 6:1-6), with the spoils they should make of the country (Jer 6:9) and the terror which all should be seized with on that occasion, Jer 6:22-26. II. An account of those sins of Judah and Jerusalem which provoked God to bring this desolating judgment upon them. Their oppression (Jer 6:7), their contempt of the word of God (Jer 6:10-12), their worldliness (Jer 6:13), the treachery of their prophets (Jer 6:14), their impudence in sin (Jer 6:15), their obstinacy against reproofs (Jer 6:18,19), which made their sacrifices unacceptable to him (Jer 6:20), and for which he gave them up to ruin (Jer 6:21), but tried them first (Jer 6:27) and then rejected them as irreclaimable, Jer 6:28-30. III. Good counsel given them in the midst of all this, but in vain, Jer 6:8,16,17.

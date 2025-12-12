@@ -1,3 +1,7 @@
+---
+weight: 21
+---
+
 # Chapter 21
 
 Hitherto the prophecy of this book has presented to us a very remarkable mixture of light and shade, prosperity and adversity, mercy and judgment, in the conduct of divine Providence towards the church in the world: now, at the close of all, the day breaks, and the shadows flee away; a new world now appears, the former having passed away. Some are willing to understand all that is said in these last two chapters of the state of the church even here on earth, in the glory of the latter days; but others, more probably, take it as a representation of the perfect and triumphant state of the church in heaven. Let but the faithful saints and servants of God wait awhile, and they shall not only see, but enjoy, the perfect holiness and happiness of that world. In this chapter you have, I. An introduction to the vision of the new Jerusalem, Re 21:1-9. II. The vision itself, Re 21:10-27, etc.

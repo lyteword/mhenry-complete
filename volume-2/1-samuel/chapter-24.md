@@ -1,3 +1,7 @@
+---
+weight: 24
+---
+
 # Chapter 24
 
 We have hitherto had Saul seeking an opportunity to destroy David, and, to his shame, he could never find it. In this chapter David had a fair opportunity to destroy Saul, and, to his honour, he did not make use of it; and his sparing Saul's life was as great an instance of God's grace in him as the preserving of his own life was of God's providence over him. Observe, I. How maliciously Saul sought David's life, 1Sa 24:1,2. II. How generously David saved Saul's life (when he had him at an advantage) and only cut off the skirt of his robe, 1Sa 24:3-8. III. How pathetically he reasoned with Saul, upon this to bring him to a better temper towards him, 1Sa 24:9-15. IV. The good impression this made upon Saul for the present, 1Sa 24:16-22.

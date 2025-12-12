@@ -1,3 +1,7 @@
+---
+weight: 24
+---
+
 # Chapter 24
 
 The last words of David, which we read in the chapter before, were admirably good, but in this chapter we read of some of his last works, which were none of the best; yet he repented, and did his first works again, and so he finished well. We have here, I. His sin, which was numbering the people in the pride of his heart, 2Sa 24:1-9. II. His conviction of the sin, and repentance for it, 2Sa 24:10. III. The judgment inflicted upon him for it, 2Sa 24:11-15. IV. The staying of the judgment, 2Sa 24:16,17. V. The erecting of an altar in token of God's reconciliation to him and his people, 2Sa 24:18-25.

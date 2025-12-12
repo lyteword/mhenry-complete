@@ -1,3 +1,7 @@
+---
+weight: 146
+---
+
 # Psalm 146
 
 This and all the rest of the psalms that follow begin and end with Hallelujah, a word which puts much of God's praise into a little compass; for in it we praise him by his name Jah, the contraction of Jehovah. In this excellent psalm of praise, I. The psalmist engages himself to praise God, Ps 146:1,2. II. He engages others to trust in him, which is one necessary and acceptable way of praising him. 1. He shows why we should not trust in men, Ps 146:3,4. 2. Why we should trust in God (Ps 146:5), because of his power in the kingdom of nature (Ps 146:6), his dominion in the kingdom of providence (Ps 146:7), and his grace in the kingdom of the Messiah (Ps 146:8,9), that everlasting kingdom (Ps 146:10), to which many of the Jewish writers refer this psalm, and to which therefore we should have an eye, in the singing of it.

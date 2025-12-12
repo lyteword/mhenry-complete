@@ -1,3 +1,7 @@
+---
+weight: 4
+---
+
 # Chapter 4
 
 When Abner was slain David was at a loss for a friend to perfect the reduction of those tribes that were yet in Ish-bosheth's interest. Which way to adopt for the accomplishment of it he could not tell; but here Providence brings it about by the removal of Ish-bosheth. I. Two of his own servants slew him, and brought his head to David, 2Sa 4:1-8. II. David, instead of rewarding them, put them to death for what they had done, 2Sa 4:9-12.

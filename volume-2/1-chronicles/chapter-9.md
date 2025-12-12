@@ -1,3 +1,7 @@
+---
+weight: 9
+---
+
 # Chapter 9
 
 This chapter intimates to us that one end of recording all these genealogies was to direct the Jews, now that they had returned out of captivity, with whom to incorporate and where to reside; for here we have an account of those who first took possession of Jerusalem after their return from Babylon, and began the rebuilding of it upon the old foundation. I. The Israelites, 1Ch 9:2-9. II. The priests, 1Ch 9:10-13. III. The Levites and other Nethinim, 1Ch 9:14-26. IV. Here is the particular charge of some of the priests and Levites, 1Ch 9:27-34. V. A repetition of the genealogy of king Saul, 1Ch 9:35-44.

@@ -1,3 +1,7 @@
+---
+weight: 3
+---
+
 # Chapter 3
 
 In this chapter the apostle applies what he had said in the chapter foregoing concerning the priesthood of Christ, I. In a serious pathetic exhortation that this great high priest, who was discovered to them, might be seriously considered by them, Heb 3:1-6. II. He then adds many weighty counsels and cautions, Heb 3:7-19.

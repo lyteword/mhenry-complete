@@ -1,3 +1,7 @@
+---
+weight: 148
+---
+
 # Psalm 148
 
 This psalm is a most solemn and earnest call to all the creatures, according to their capacity, to praise their Creator, and to show forth his eternal power and Godhead, the invisible things of which are manifested in the things that are seen. Thereby the psalmist designs to express his great affection to the duty of praise; he is highly satisfied that God is praised, is very desirous that he may be more praised, and therefore does all he can to engage all about him in this pleasant work, yea, and all who shall come after him, whose hearts must be very dead and cold if they be not raised and enlarged, in praising God, by the lofty flights of divine poetry which we find in this psalm. I. He calls upon the higher house, the creatures that are placed in the upper world, to praise the Lord, both those that are intellectual beings, and are capable of doing it actively (Ps 148:1,2), and those that are not, and are therefore capable of doing it only objectively, Ps 148:3-6. II. He calls upon the lower house, the creatures of this lower world, both those that can only minister matter of praise (Ps 148:7-10) and those that, being endued with reason, are capable of offering up this sacrifice (Ps 148:11-13), especially his own people, who have more cause to do it, and are more concerned to do it, than any other, Ps 148:14.

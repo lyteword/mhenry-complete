@@ -1,3 +1,7 @@
+---
+weight: 16
+---
+
 # Chapter 16
 
 In this chapter the apostle, I. Gives directions about some charitable collection to be made in this church, for the afflicted and impoverished churches in Judea, 1Co 16:1-4. II. He talks of paying them a visit, 1Co 16:5-9. III. He recommends Timothy to them, and tells them Apollos intended to come to them, 1Co 16:10-12. IV. He presses them to watchfulness, constancy, charity, and to pay a due regard to all who helped him and his fellow-labourers in their work, 1Co 16:13-19. V. After salutations from others, and his own, he closes the epistle with a solemn admonition to them, and his good wishes for them, 1Co 16:20-24.

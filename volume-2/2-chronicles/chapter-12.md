@@ -1,3 +1,7 @@
+---
+weight: 12
+---
+
 # Chapter 12
 
 This chapter gives us a more full account of the reign of Rehoboam than we had before in Kings and it is a very melancholy account. Methinks we are in the book of Judges again; for, I. Rehoboam and his people did evil in the sight of the Lord, 2Ch 12:1. II. God thereupon sold them into the hands of Shishak, king of Egypt, who greatly oppressed them, 2Ch 12:2-4. III. God sent a prophet to them, to expound to them the judgment and to call them to repentance, 2Ch 12:5. IV. They thereupon humbled themselves, 2Ch 12:6. V. God, upon their repentance, turned from his anger (2Ch 12:7,12) and yet left them under the marks of his displeasure, 2Ch 12:8-11. Lastly, Here is a general character of Rehoboam and his reign, with the conclusion of it, 2Ch 12:13-16.

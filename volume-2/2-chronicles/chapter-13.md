@@ -1,3 +1,7 @@
+---
+weight: 13
+---
+
 # Chapter 13
 
 We have here a much fuller account of the reign of Abijah, the son of Rehoboam, than we had in the Kings. There we found that his character was no better than his father's—he "walked in the sins of his father, and his heart was not right with God," 1Ki 15:2,3. But here we find him more brave and successful in war than his father was. He reigned but three years, and was chiefly famous for a glorious victory he obtained over the forces of Jeroboam. Here we have, I. The armies brought into the field on both sides, 2Ch 13:3. The remonstrance which Abijah made before the battle, setting forth the justice of his cause, 2Ch 13:4-12. III. The distress which Judah was brought into by the policy of Jeroboam, 2Ch 13:13,14. IV. The victory they obtained notwithstanding, by the power of God, 2Ch 13:15-20. V. The conclusion of Abijah's reign, 2Ch 13:21,22.

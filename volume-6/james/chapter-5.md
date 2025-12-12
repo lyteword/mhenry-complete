@@ -1,3 +1,7 @@
+---
+weight: 5
+---
+
 # Chapter 5
 
 In this chapter the apostle denounces the judgments of God upon those rich men who oppress the poor, showing them how great their sin and folly are in the sight of God, and how grievous the punishments would be which should fall upon themselves, Jam 5:1-6. Hereupon, all the faithful are exhorted to patience under their trials and sufferings, Jam 5:7-11. The sin of swearing is cautioned against, Jam 5:12. We are directed how to act, both under affliction and in prosperity, Jam 5:13. Prayer for the sick, and anointing with oil, are prescribed, Jam 5:14,15. Christians are directed to acknowledge their faults one to another, and to pray one for another, and the efficacy of prayer is proved, Jam 5:16-18. And, lastly, it is recommended to us to do what we can for bringing back those that stray from the ways of truth.

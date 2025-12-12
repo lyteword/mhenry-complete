@@ -1,3 +1,7 @@
+---
+weight: 22
+---
+
 # Chapter 22
 
 In this chapter we have, I. A further description of the heavenly state of the church, Re 22:1-5. II. A confirmation of this and all the other visions of this book, Re 22:6-19. III. The conclusion, Re 22:20,21.

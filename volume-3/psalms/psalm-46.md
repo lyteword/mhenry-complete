@@ -1,3 +1,7 @@
+---
+weight: 46
+---
+
 # Psalm 46
 
 This psalm encourages us to hope and trust in God, and his power, and providence, and gracious presence with his church in the worst of times, and directs us to give him the glory of what he has done for us and what he will do: probably it was penned upon occasion of David's victories over the neighbouring nations (2Sa 8:1-18), and the rest which God gave him from all his enemies round about. We are here taught, I. To take comfort in God when things look very black and threatening, Ps 46:1-5. II. To mention, to his praise, the great things he had wrought for his church against its enemies, Ps 46:6-9. III. To assure ourselves that God who has glorified his own name will glorify it yet again, and to comfort ourselves with that, Ps 46:10,11. We may, in singing it, apply it either to our spiritual enemies, and be more than conquerors over them, or to the public enemies of Christ's kingdom in the world and their threatening insults, endeavouring to preserve a holy security and serenity of mind when they seem most formidable. It is said of Luther that, when he heard any discouraging news, he would say, Come let us sing the forty-sixth psalm.

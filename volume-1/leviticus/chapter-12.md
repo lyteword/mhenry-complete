@@ -1,3 +1,7 @@
+---
+weight: 12
+---
+
 # Chapter 12
 
 After the laws concerning clean and unclean food come the laws concerning clean and unclean persons; and the first is in this chapter concerning the ceremonial uncleanness of women in child-birth, Le 12:1-5. And concerning their purification from that uncleanness, Le 12:6-8, etc.

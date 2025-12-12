@@ -1,3 +1,7 @@
+---
+weight: 21
+---
+
 # Chapter 21
 
 Never surely did any kingdom change its king so much for the worse as Judah did, when Jehoram, one of the vilest, succeeded Jehoshaphat, one of the best. Thus were they punished for not making a better use of Jehoshaphat's good government, and their disaffectedness (or coldness at least) to his reformation, 2Ch 20:33. Those that knew not now to value a good king are justly plagued with a bad one. Here is, I. Jehoram's elevation to the throne, 2Ch 21:1-3. II. The wicked course he took to establish himself in it, by the murder of his brethren, 2Ch 21:4. III. The idolatries and other wickedness he was guilty of, 2Ch 21:5,6,11. IV. The prophecy of Elijah against him, 2Ch 21:12-15. V. The judgments of God upon him, in the revolt of his subjects from him (2Ch 21:8-10) and the success of his enemies against him, 2Ch 21:16,17. VI. His miserable sickness and inglorious exit, 2Ch 21:18-20. VII. The preservation of the house of David notwithstanding, 2Ch 21:7.

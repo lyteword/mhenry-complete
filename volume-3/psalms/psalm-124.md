@@ -1,3 +1,7 @@
+---
+weight: 124
+---
+
 # Psalm 124
 
 David penned this psalm (we suppose) upon occasion of some great deliverance which God wrought for him and his people from some very threatening danger, which was likely to have involved them all in ruin, whether by foreign invasion, or intestine insurrection, is not certain; whatever it was he seems to have been himself much affected, and very desirous to affect others, with the goodness of God, in making a way for them to escape. To him he is careful to give all the glory, and takes none to himself as conquerors usually do. I. He here magnifies the greatness of the danger they were in, and of the ruin they were at the brink of, Ps 124:1-5. II. He gives God the glory of their escape, Ps 124:6,7,124:1,2. III. He takes encouragement thence to trust in God, Ps 124:8. In singing this psalm, besides the application of it to any particular deliverance wrought for us and our people, in our days and the days of our fathers, we may have in our thoughts the great work of our redemption by Jesus Christ, by which we were rescued from the powers of darkness.

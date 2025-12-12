@@ -1,3 +1,7 @@
+---
+weight: 108
+---
+
 # Psalm 108
 
 This psalm begins with praise and concludes with prayer, and faith is at work in both. I. David here gives thanks to God for mercies to himself, Ps 108:1-5. II. He prays to God for mercies for the land, pleading the promises of God and putting them in suit, Ps 108:6-13. The former part it taken out of Ps 57:7-11,108:1-5, etc., the latter out of Ps 60:5-12,108:6-13, etc., and both with very little variation, to teach us that we may in prayer use the same words that we have formerly used, provided it be with new affections. It intimates likewise that it is not only allowable, but sometimes convenient, to gather some verses out of one psalm and some out of another, and to put them together, to be sung to the glory of God. In singing this psalm we must give glory to God and take comfort to ourselves.

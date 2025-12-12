@@ -1,3 +1,7 @@
+---
+weight: 23
+---
+
 # Chapter 23
 
 This chapter carries on and concludes the history of Christ's sufferings and death. We have here, I. His arraignment before Pilate the Roman governor, Lu 23:1-5. II. His examination before Herod, who was tetrarch of Galilee, under the Romans likewise, Lu 23:6-12. III. Pilate's struggle with the people to release Jesus, his repeated testimonies concerning his innocency, but his yielding at length to their importunity and condemning him to be crucified, Lu 23:13-25. IV. An account of what passed as they led him to be crucified, and his discourse to the people that followed, Lu 23:26-31. V. An account of what passed at the place of execution, and the indignities done him there, Lu 23:32-38. VI. The conversion of one of the thieves, as Christ was hanging on the cross, Lu 23:39-43. VII. The death of Christ, and the prodigies that attended it, Lu 23:44-49. VIII. His burial, Lu 23:50-56.

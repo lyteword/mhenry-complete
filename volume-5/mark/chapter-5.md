@@ -1,3 +1,7 @@
+---
+weight: 5
+---
+
 # Chapter 5
 
 In this chapter, we have, I. Christ's casting the legion of devils out of the man possessed, and suffering them to enter into the swine, Mk 5:1-20. II. Christ's healing the woman with the bloody issue, in the way as he was going to raise Jairus's daughter to life, Mk 5:21-43. These three miracles we had the story of before (Mt 8:28,9:18, etc.) but more fully related here.

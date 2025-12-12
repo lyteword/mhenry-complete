@@ -1,3 +1,7 @@
+---
+weight: 4
+---
+
 # Chapter 4
 
 In this chapter we have an account, I. Of the constancy of the apostle and his fellow-labourers in their work. Their constancy in declared (2Co 4:1), their sincerity is vouched (2Co 4:2), an objection is obviated (2Co 4:3,4), and their integrity proved, 2Co 4:5-7. II. Of their courage and patience under their sufferings. Where see what their sufferings were, together with their allays (2Co 4:8-12), and what it was that kept them from sinking and fainting under them, 2Co 4:13-18.

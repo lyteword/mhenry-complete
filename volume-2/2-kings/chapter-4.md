@@ -1,3 +1,7 @@
+---
+weight: 4
+---
+
 # Chapter 4
 
 Great service Elisha had done, in the foregoing chapter, for the three kings: to his prayers and prophecies they owed their lives and triumphs. One would have expected that the next chapter would tell us what honours and what dignities were conferred on Elisha for this, that he should immediately be preferred at court, and made prime-minister of state, that Jehoshaphat should take him home with him, and advance him in his kingdom. No, the wise man delivered the army, but no man remembered the wise man, Ec 9:15. Or, if he had preferment offered him, he declined it: he preferred the honour of doing good in the schools of the prophets before that of being great in the courts of princes. God magnified him, and that sufficed him—magnified him indeed, for we have him here employed in working no fewer than five miracles. I. He multiplied the poor widow's oil, 2Ki 4:1-7. II. He obtained for the good Shunammite the blessing of a son in her old age, 2Ki 4:8-17. III. He raised that child to life when it was dead, 2Ki 4:18-27. IV. He healed the deadly pottage, 2Ki 4:38-41. V. He fed 100 men with twenty small loaves, 2Ki 4:42-44.

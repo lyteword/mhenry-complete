@@ -1,3 +1,7 @@
+---
+weight: 14
+---
+
 # Chapter 14
 
 Here is, I. The general method that was taken in dividing the land, Jos 14:1-5. II. The demand Caleb made of Hebron, as his by promise, and therefore not to be put into the lot with the rest, Jos 14:6-12. And Joshua's grant of that demand, Jos 14:13-15. This was done at Gilgal, which was as yet their head-quarters.

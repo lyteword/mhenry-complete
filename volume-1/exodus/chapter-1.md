@@ -1,3 +1,7 @@
+---
+weight: 1
+---
+
 # Chapter 1
 
 We have here, I. God's kindness to Israel, in multiplying them exceedingly, (Ex 1:1-7). II. The Egyptians' wickedness to them, 1. Oppressing and enslaving them, (Ex 1:8-14). 2. Murdering their children, (Ex 1:15-22). Thus whom the court of heaven blessed the country of Egypt cursed, and for that reason.

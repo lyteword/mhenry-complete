@@ -1,3 +1,7 @@
+---
+weight: 23
+---
+
 # Chapter 23
 
 In this chapter we have Balak and Balaam busy at work to do Israel a mischief, and, for ought that appears, neither Moses nor the elders of Israel know any thing of the matter, nor are in a capacity to break the snare; but God, who keeps Israel, and neither slumbers nor sleeps, baffles the attempt, without any intercession or contrivance of theirs. Here is, I. The first attempt to curse Israel. 1. The preparation made for it by sacrifice, Nu 23:1-3. 2. The contrary instruction God gave Balaam, Nu 23:4,5. 3. The blessing Balaam was compelled to pronounce upon Israel, instead of a curse, Nu 23:7-10. 4. The great disappointment of Balak, Nu 23:11,12. II. The second attempt, in the same manner made, and in the same manner frustrated, Nu 23:13-26. III. Preparations made for a third attempt (Nu 23:27-30), the issue of which we have in the next chapter.

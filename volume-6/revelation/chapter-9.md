@@ -1,3 +1,7 @@
+---
+weight: 9
+---
+
 # Chapter 9
 
 In this chapter we have an account of the sounding of the fifth and sixth trumpets, the appearances that attended them, and the events that were to follow; the fifth trumpet (Re 9:1-12), the sixth, Re 9:13-21.

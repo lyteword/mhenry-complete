@@ -1,3 +1,7 @@
+---
+weight: 19
+---
+
 # Chapter 19
 
 This chapter is only concerning the preparing and using of the ashes which were to impregnate the water of purification. The people had complained of the strictness of the law, which forbade their near approach to the tabernacle, Nu 17:13. In answer to this complaint, they are here directed to purify themselves, so as that they might come as far as they had occasion without fear. Here is, I. The method of preparing these ashes, by the burning of a red heifer, with a great deal of ceremony, Nu 19:1-10. II. The way of using them. 1. They were designed to purify persons from the pollution contracted by a dead body, Nu 19:11-16. 2. They were to be put into running water (a small quantity of them), with which the person to be cleansed must be purified, Nu 19:17-22. And that this ceremonial purification was a type and figure of the cleansing of the consciences of believers from the pollutions of sin appears by the apostle's discourse, Heb 9:13,14, where he compares the efficacy of the blood of Christ with the sanctifying virtue that was in "the ashes of a heifer sprinkling the unclean."

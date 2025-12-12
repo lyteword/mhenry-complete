@@ -1,3 +1,7 @@
+---
+weight: 32
+---
+
 # Psalm 32
 
 This psalm, though it speaks not of Christ, as many of the psalms we have hitherto met with have done, has yet a great deal of gospel in it. The apostle tells us that David, in this psalm, describes "the blessedness of the man unto whom God imputes righteousness without words," Ro 4:6. We have here a summary, I. Of gospel grace in the pardon of sin (Ps 32:1,2), in divine protection (Ps 32:7), and divine guidance, Ps 32:8. II. Of gospel duty. To confess sin (Ps 32:3-5), to pray (Ps 32:6), to govern ourselves well (Ps 32:9,10), and to rejoice in God, Ps 32:11. The way to obtain these privileges is to make conscience of these duties, which we ought to think of—of the former for our comfort, of the latter for our quickening, when we sing this psalm. Grotius thinks it was designed to be sung on the day of atonement.

@@ -1,3 +1,7 @@
+---
+weight: 17
+---
+
 # Chapter 17
 
 God was, in the foregoing chapter, reckoning with the people of Judah, and bringing ruin upon them for their treachery in breaking covenant with him; in this chapter he is reckoning with the king of Judah for his treachery in breaking covenant with the king of Babylon; for when God came to contend with them he found many grounds of his controversy. The thing was now in doing: Zedekiah was practising with the king of Egypt underhand for assistance in a treacherous project he had formed to shake off the yoke of the king of Babylon, and violate the homage and fealty he had sworn to him. For this God by the prophet here, I. Threatens the ruin of him and his kingdom, by a parable of two eagles and a vine (Eze 17:1-10), and the explanation of that parable, Eze 17:11-21. But, in the close, II. He promises hereafter to raise the royal family of Judah again, the house of David, in the Messiah and his kingdom, Eze 17:22-24.

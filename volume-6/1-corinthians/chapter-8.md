@@ -1,3 +1,7 @@
+---
+weight: 8
+---
+
 # Chapter 8
 
 The apostle, in this chapter, answers another case proposed to him by some of the Corinthians, about eating those things that had been sacrificed to idols. I. He hints at the occasion of this case, and gives a caution against too high an esteem of their knowledge, 1Co 8:1-3. II. He asserts the vanity of idols, the unity of the Godhead, and the sole mediation of Christ between God and man, 1Co 8:4-6. III. He tells them that upon supposition that it were lawful in itself to eat of things offered to idols (for that they themselves are nothing), yet regard must be had to the weakness of Christian brethren, and nothing done that would lay a stumbling block before them, and occasion their sin and destruction, 1Co 8:7-13.

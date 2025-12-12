@@ -1,3 +1,7 @@
+---
+weight: 4
+---
+
 # Chapter 4
 
 Exhortations to several Christian duties, as stedfastness, unanimity, joy, etc., Php 4:1-9. The apostle's grateful acknowledgments of the Philippians' kindness to him, with expressions of his own content, and desire of their good, Php 4:10-19. He concludes the epistle with praise, salutations, and blessing, Php 4:20-23.

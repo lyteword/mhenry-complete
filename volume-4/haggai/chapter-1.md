@@ -1,3 +1,7 @@
+---
+weight: 1
+---
+
 # Chapter 1
 
 In this chapter, after the preamble of the prophecy, we have, I. A reproof of the people of the Jews for their dilatoriness and slothfulness in building the temple, which had provoked God to contend with them by the judgment of famine and scarcity, with an exhortation to them to resume that good work and to prosecute it in good earnest, Hab 1:1-11. II. The good success of this sermon, appearing in the people's return and close application to that work, wherein the prophet, in God's name, animated and encouraged them, assuring them that God was with them, Hab 1:12-15.

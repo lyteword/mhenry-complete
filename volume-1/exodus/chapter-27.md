@@ -1,3 +1,7 @@
+---
+weight: 27
+---
+
 # Chapter 27
 
 In this chapter directions are given, I. Concerning the brazen altar for burnt-offerings, Ex 27:1-8. II. Concerning the court of the tabernacle, with the hangings of it, Ex 27:9-19. III. Concerning oil for the lamp, Ex 27:20,21.

@@ -1,3 +1,7 @@
+---
+weight: 20
+---
+
 # Chapter 20
 
 This short chapter is concerning the cities of refuge, which we often read of in the writings of Moses, but this is the last time that we find mention of them, for now that matter was thoroughly settled. Here is, I. The law God gave concerning them, Jos 20:1-6. II. The people's designation of the particular cities for that use, Jos 20:7-9. And this remedial law was a figure of good things to come.

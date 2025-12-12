@@ -1,3 +1,7 @@
+---
+weight: 83
+---
+
 # Psalm 83
 
 This psalm is the last of those that go under the name of Asaph. It is penned, as most of those, upon a public account, with reference to the insults of the church's enemies, who sought its ruin. Some think it was penned upon occasion of the threatening descent which was made upon the land of Judah in Jehoshaphat's time by the Moabites and Ammonites, those children of Lot here spoken of (Ps 83:8), who were at the head of the alliance and to whom all the other states here mentioned were auxiliaries. We have the story 2Ch 20:1, where it is said, The children of Moab and Ammon, and others besides them, invaded the land. Others think it was penned with reference to all the confederacies of the neighbouring nations against Israel, from first to last. The psalmist here makes an appeal and application, I. To God's knowledge, by a representation of their designs and endeavours to destroy Israel, Ps 83:1-8. II. To God's justice and jealousy, both for his church and for his own honour, by an earnest prayer for the defeat of their attempt, that the church might be preserved, the enemies humbled, and God glorified, Ps 83:9-18. This, in the singing of it, we may apply to the enemies of the gospel-church, all anti-christian powers and factions, representing to God their confederacies against Christ and his kingdom, and rejoicing in the hope that all their projects will be baffled and the gates of hell shall not prevail against the church.

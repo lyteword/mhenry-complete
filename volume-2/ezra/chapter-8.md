@@ -1,3 +1,7 @@
+---
+weight: 8
+---
+
 # Chapter 8
 
 This chapter gives us a more particular narrative of Ezra's journey to Jerusalem, of which we had a general account in the foregoing chapter I. The company that went up with him, Ezr 8:1-20. II. The solemn fast which he kept with his company, to implore God's presence with them in this journey, Ezr 8:21-23. III. The care he took of the treasure he had with him, and the charge he gave concerning it to the priests, to whose custody he committed it, Ezr 8:24-30. IV. The care God took of him and his company in the way, Ezr 8:31. V. Their safe arrival at Jerusalem, where they delivered their treasure to the priests (Ezr 8:32-34), their commissions to the kings lieutenants (Ezr 8:36), offered sacrifices to God (Ezr 8:35), and then applied to their business.

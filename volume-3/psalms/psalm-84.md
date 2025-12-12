@@ -1,3 +1,7 @@
+---
+weight: 84
+---
+
 # Psalm 84
 
 Though David's name be not in the title of this psalm, yet we have reason to think he was the penman of it, because it breathes so much of his excellent spirit and is so much like the sixty-third psalm which was penned by him; it is supposed that David penned this psalm when he was forced by Absalom's rebellion to quit his city, which he lamented his absence from, not so much because it was the royal city as because it was the holy city, witness this psalm, which contains the pious breathings of a gracious soul after God and communion with him. Though it be not entitled, yet it may fitly be looked upon as a psalm or song for the sabbath day, the day of our solemn assemblies. The psalmist here with great devotion expresses his affection, I. To the ordinances of God; his value for them (Ps 84:1), his desire towards them (Ps 84:2,3), his conviction of the happiness of those that did enjoy them (Ps 84:4-7), and his placing his own happiness so very much in the enjoyment of them, Ps 84:10. II. To the God of the ordinances; his desire towards him (Ps 84:8,9), his faith in him (Ps 84:11), and his conviction of the happiness of those that put their confidence in him, Ps 84:12. In singing this psalm we should have the same devout affections working towards God that David had, and then the singing of it will be very pleasant.

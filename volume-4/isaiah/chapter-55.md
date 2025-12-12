@@ -1,3 +1,7 @@
+---
+weight: 55
+---
+
 # Chapter 55
 
 As we had much of Christ in the Isa 53:1-12, and much of the church of Christ in the Isa 54:1-17, so in this chapter we have much of the covenant of grace made with us in Christ. The "sure mercies of David," which are promised here (Isa 55:3), are applied by the apostle to the benefits which flow to us from the resurrection of Christ (Ac 13:34), which may serve as a key to this chapter; not but that it was intended for the comfort of the people of God that lived then, especially of the captives in Babylon, and others of the dispersed of Israel; but unto us was this gospel preached as well as unto them, and much more clearly and fully in the New Testament. Here is, I. A free and gracious invitation to all to come and take the benefit of gospel grace, Isa 55:1. II. Pressing arguments to enforce this invitation, Isa 55:2-4. III. A promise of the success of this invitation among the Gentiles, Isa 55:5. IV. An exhortation to repentance and reformation, with great encouragement given to hope for pardon thereupon, Isa 55:6-9. V. The ratification of all this, with the certain efficacy of the word of God, Isa 55:10,11. And a particular instance of the accomplishment of it in the return of the Jews out of their captivity, which was intended for a sign of the accomplishment of all these other promises.

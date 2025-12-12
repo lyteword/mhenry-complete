@@ -1,3 +1,7 @@
+---
+weight: 109
+---
+
 # Psalm 109
 
 Whether David penned this psalm when he was persecuted by Saul, or when his son Absalom rebelled against him, or upon occasion of some other trouble that was given him, is uncertain; and whether the particular enemy he prays against was Saul, or Doeg, or Ahithophel, or some other not mentioned in the story, we cannot determine; but it is certain that in penning it he had an eye to Christ, his sufferings and his persecutors, for that imprecation (Ps 109:8) is applied to Judas, Ac 1:20. The rest of the prayers here against his enemies were the expressions, not of passion, but of the Spirit of prophecy. I. He lodges a complaint in the court of heaven of the malice and base ingratitude of his enemies and with it an appeal to the righteous God, Ps 109:1-5. II. He prays against his enemies, and devotes them to destruction, Ps 109:6-20. III. He prays for himself, that God would help and succour him in his low condition, Ps 109:21-29. IV. He concludes with a joyful expectation that God would appear for him, Ps 109:30,31. In singing this psalm we must comfort ourselves with the believing foresight of the certain destruction of all the enemies of Christ and his church, and the certain salvation of all those that trust in God and keep close to him.

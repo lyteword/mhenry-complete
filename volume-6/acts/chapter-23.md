@@ -1,3 +1,7 @@
+---
+weight: 23
+---
+
 # Chapter 23
 
 The close of the foregoing chapter left Paul in the high priest's court, into which the chief captain (whether to his advantage or no I know not) had removed his cause from the mob; and, if his enemies act there against him with less noise, yet it is with more subtlety. Now here we have, I. Paul's protestation of his own integrity, and of a civil respect to the high priest, however he had upon a sudden spoken warmly to him, and justly, Ac 23:1-5. II. Paul's prudent contrivance to get himself clear of them, by setting the Pharisees and Sadducees at variance one with another, Ac 23:6-9. III. The governor's seasonable interposal to rescue him out of their hands likewise, Ac 23:10. IV. Christ's more comfortable appearing to him, to animate him against those difficulties that lay before him, and to tell him what he must expect, Ac 23:11. V. A bloody conspiracy of some desperate Jews to kill Paul, and their drawing in the chief priests and the elders to be aiders and abettors with them in it, Ac 23:12-15. VI. The discovery of this conspiracy to Paul, and by him to the chief captain, who perceived so much of their inveterate malice against Paul that he had reason enough to believe the truth of it, Ac 23:16-22. VII. The chief captain's care of Paul's safety, by which he prevented the execution of the design; he sent him away immediately under a strong guard from Jerusalem to Cæsarea, which was now the residence of Felix, the Roman governor, and there he safely arrived, Ac 23:23-35.

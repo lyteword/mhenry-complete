@@ -1,3 +1,7 @@
+---
+weight: 16
+---
+
 # Chapter 16
 
 This chapter concludes the history of the reign of Asa, but does not furnish so pleasing an account of his latter end as we had of his beginning. I. Here is a foolish treaty with Benhadad king of Syria, 2Ch 16:1-6. II. The reproof which God sent him for it by a prophet, 2Ch 16:7-9. III. Asa's displeasure against the prophet for his faithfulness, 2Ch 16:10. IV. The sickness, death, and burial of Asa, 2Ch 16:11-14.

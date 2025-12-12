@@ -1,3 +1,7 @@
+---
+weight: 13
+---
+
 # Chapter 13
 
 In this chapter the apostle goes on to show more particularly what that more excellent way was of which he had just before been speaking. He recommends it, I. By showing the necessity and importance of it, 1Co 13:1-3. II. By giving a description of its properties and fruits, 1Co 13:4-7. III. By showing how much it excels the best of gifts and other graces, by its continuance, when they shall be no longer in being, or of any use, 1Co 13:8-13.

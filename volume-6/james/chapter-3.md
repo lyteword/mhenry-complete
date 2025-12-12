@@ -1,3 +1,7 @@
+---
+weight: 3
+---
+
 # Chapter 3
 
 The apostle here reproves ambition, and an arrogant magisterial tongue; and shows the duty and advantage of bridling it because of its power to do mischief. Those who profess religion ought especially to govern their tongues, Jam 3:1-12. True wisdom makes men meek, and avoiders of strife and envy: and hereby it may easily be distinguished from a wisdom that is earthly and hypocritical, Jam 3:13-18.

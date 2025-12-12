@@ -1,3 +1,7 @@
+---
+weight: 65
+---
+
 # Psalm 65
 
 In this psalm we are directed to give to God the glory of his power and goodness, which appear, I. In the kingdom of grace (Ps 65:1), hearing prayer (Ps 65:2), pardoning sin (Ps 65:3), satisfying the souls of the people (Ps 65:4), protecting and supporting them, Ps 65:5. II. In the kingdom of Providence, fixing the mountains (Ps 65:6), calming the sea (Ps 65:7), preserving the regular succession of day and night (Ps 65:8), and making the earth fruitful, Ps 65:9-13. These are blessings we are all indebted to God for, and therefore we may easily accommodate this psalm to ourselves in singing it.

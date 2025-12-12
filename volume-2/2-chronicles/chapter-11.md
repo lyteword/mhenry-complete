@@ -1,3 +1,7 @@
+---
+weight: 11
+---
+
 # Chapter 11
 
 We are here going on with the history of Rehoboam. I. His attempt to recover the ten tribes he has lost, and the letting fall of that attempt in obedience to the divine command, 2Ch 11:1-4. II. His successful endeavours to preserve the two tribes that remained, 2Ch 11:5-12. III. The resort of the priests and Levites to him, 2Ch 11:13-17. IV. An account of his wives and children, 2Ch 11:18-23.

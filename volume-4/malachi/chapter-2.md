@@ -1,3 +1,7 @@
+---
+weight: 2
+---
+
 # Chapter 2
 
 There are two great ordinances which divine wisdom has instituted, the wretched profanation of both of which is complained of and sharply reproved in this chapter. I. The ordinance of the ministry, which is peculiar to the church, and is designed for the maintaining and keeping up of that; this was profaned by those who were themselves dignified with the honour of it and entrusted with the business of it. The priests profaned the holy things of God; this they are here charged with; their sin is aggravated, and they are severely threatened for it, Mal 2:1-9. II. The ordinance of marriage, which is common to the world of mankind, and was instituted for the maintaining and keeping up of that; this was profaned both by the priests and by the people, in marrying strangers (Mal 2:11,12), treating their wives unkindly (Mal 2:13), putting them away (Mal 2:16), and herein dealing treacherously, Mal 2:10,14,15. And that which was at the bottom of this and other instances of profaneness and downright atheism, thinking God altogether such a one as themselves, which was, in effect, to say, There is no God, Mal 2:17. And these reproofs to them are warnings to us.

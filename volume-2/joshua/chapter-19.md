@@ -1,3 +1,7 @@
+---
+weight: 19
+---
+
 # Chapter 19
 
 In the description of the lots of Judah and Benjamin we have an account both of the borders that surrounded them and of the cities contained in them. In that of Ephraim and Manasseh we have the borders, but not the cities; in this chapter Simeon and Dan are described by their cities only, and not their borders, because they lay very much within Judah, especially the former; the rest have both their borders described and their cities names, especially frontiers. Here is, I. The lot of Simeon, Jos 19:1-9. II. Of Zebulun, Jos 19:10-16. III. Of Issachar, Jos 19:17-23. IV. Of Asher, Jos 19:24-31. V. Of Naphtali, Jos 19:32-39. VI. Of Dan, Jos 19:40-48. Lastly, The inheritance assigned to Joshua himself and his own family, Jos 19:49-51.
@@ -42,7 +46,7 @@ This is the lot of Zebulun, who, though born of Leah after Issachar, yet was ble
 > <sup>22</sup> And the coast reacheth to Tabor, and Shahazimah, and Beth-shemesh; and the outgoings of their border were at Jordan: sixteen cities with their villages.  
 > <sup>23</sup> This *is* the inheritance of the tribe of the children of Issachar according to their families, the cities and their villages.  
 
-The lot of Issachar ran from Jordan in the east to the great sea in the west, Manasseh on the south, and Zebulun on the north. A numerous tribe, Nu 26:25. Tola, one of the judges, was of this tribe, Jdg 10:1. So was Baasha, one of the kings of Israel, 1Ki 15:27. The most considerable places in this tribe were, 1. Jezreel, in which was Ahab's palace, and near it Naboth's vineyard. 2. Shunem, where lived that good Shunamite that entertained Elisha. 3. The river Kishon, on the banks of which, in this tribe, Sisera was beaten by Deborah and Barak. 4. The mountains of Gilboa, on which Saul and Jonathan were slain, which were not far from Endor, where Saul consulted the witch. 5. The valley of Megiddo, where Josiah was slain near Hadad-rimmon, 2Ki 23:29,Zec 12:11.
+The lot of Issachar ran from Jordan in the east to the great sea in the west, Manasseh on the south, and Zebulun on the north. A numerous tribe, Nu 26:25. Tola, one of the judges, was of this tribe, Jdg 10:1. So was Baasha, one of the kings of Israel, 1Ki 15:27. The most considerable places in this tribe were, 1. Jezreel, in which was Ahab's palace, and near it Naboth's vineyard. 2. Shunem, where lived that good Shunamite that entertained Elisha. 3. The river Kishon, on the banks of which, in this tribe, Sisera was beaten by Deborah and Barak. 4. The mountains of Gilboa, on which Saul and Jonathan were slain, which were not far from Endor, where Saul consulted the witch. 5. The valley of Megiddo, where Josiah was slain near Hadad-rimmon, 2Ki 23:29, Zec 12:11.
 
 ## The Lot of Asher. (b. c. 1444.)
 

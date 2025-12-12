@@ -1,3 +1,7 @@
+---
+weight: 3
+---
+
 # Chapter 3
 
 In this chapter the apostle gives further evidence of his love to the Thessalonians, reminding them of his sending Timothy to them, with the mention of his design therein and his inducements so to do, 1Th 3:1-5. He acquaints them also with his great satisfaction at the return of Timothy, with good tidings concerning them, 1Th 3:6-10. And concludes with fervent prayer for them, 1Th 3:11-13.

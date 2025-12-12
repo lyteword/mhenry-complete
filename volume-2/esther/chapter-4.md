@@ -1,3 +1,7 @@
+---
+weight: 4
+---
+
 # Chapter 4
 
 We left God's Isaac bound upon the altar and ready to be sacrificed, and the enemies triumphing in the prospect of it; but things here begin to work towards a deliverance, and they begin at the right end. I. The Jews' friends lay to heart the danger and lament it, Es 4:1-4. II. Matters are concerted between Mordecai and Esther for the preventing of it. 1. Esther enquires into this case, and receives a particular account of it, Es 4:5-7. 2. Mordecai urges her to intercede with the king for a revocation of the edict, Es 4:8,9. III. Esther objects the danger of addressing the king uncalled, Es 4:10-12. IV. Mordecai presses her to venture, Es 4:13,14. V. Esther, after a religious fast of three days, promises to do so (Es 4:15-17), and we shall find that she sped well.

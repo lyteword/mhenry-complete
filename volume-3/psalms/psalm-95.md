@@ -1,3 +1,7 @@
+---
+weight: 95
+---
+
 # Psalm 95
 
 For the expounding of this psalm we may borrow a great deal of light from the apostle's discourse, Heb 3:1-4:16, where it appears both to have been penned by David and to have been calculated for the days of the Messiah; for it is there said expressly (Heb 4:7) that the day here spoken of (Ps 95:7) is to be understood of the gospel day, in which God speaks to us by his Son in a voice which we are concerned to hear, and proposes to us a rest besides that of Canaan. In singing psalms it is intended, I. That we should "make melody unto the Lord;" this we are here excited to do, and assisted in doing, being called upon to praise God (Ps 95:1,2) as a great God (Ps 95:3-5) and as our gracious benefactor, Ps 95:6,7. II. That we should teach and admonish ourselves and one another; and we are here taught and warned to hear God's voice (Ps 95:7), and not to harden our hearts, as the Israelites in the wilderness did (Ps 95:8,9), lest we fall under God's wrath and fall short of his rest, as they did, Ps 95:10,11. This psalm must be sung with a holy reverence of God's majesty and a dread of his justice, with a desire to please him and a fear to offend him.

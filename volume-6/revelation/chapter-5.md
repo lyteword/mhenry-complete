@@ -1,3 +1,7 @@
+---
+weight: 5
+---
+
 # Chapter 5
 
 In the foregoing chapter the prophetical scene was opened, in the sight and hearing of the apostle, and he had a sight of God the Creator and ruler of the world, and the great King of the church. He saw God on the throne of glory and government, surrounded with his holy ones, and receiving their adorations. Now the counsels and decrees of God are set before the apostle, as in a book, which God held in his right hand; and this book is represented, I. As sealed in the hand of God, Re 5:1-9. II. As taken into the hand of Christ the Redeemer, to be unsealed and opened, Re 5:6-14.

@@ -1,3 +1,7 @@
+---
+weight: 13
+---
+
 # Chapter 13
 
 This chapter brings us again to the history of the kings of Israel, and particularly of the family of Jehu. We have here an account of the reign, I. Of his son Jehoahaz, which continued seventeen years. 1. His bad character in general (2Ki 13:1,2), the trouble he was brought into (2Ki 13:3), and the low ebb of his affairs, 2Ki 13:7. 2. His humiliation before God, and God's compassion towards him, 2Ki 13:4,5,23. 3. His continuance in his idolatry notwithstanding, 2Ki 13:6. 4. His death, 2Ki 13:8,9. II. Of his grandson Joash, which continued sixteen years. Here is a general account of his reign in the usual form (2Ki 13:10-13), but a particular account of the death of Elisha in his time. 1. The kind visit the king made him (2Ki 13:14), the encouragement he gave the king in his wars with Syria, 2Ki 13:15-19. 2. His death and burial (2Ki 13:20), and a miracle wrought by his bones, 2Ki 13:21. And, lastly, the advantages Joash gained against the Syrians, according to his predictions, 2Ki 13:24,25.

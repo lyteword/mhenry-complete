@@ -1,3 +1,7 @@
+---
+weight: 14
+---
+
 # Chapter 14
 
 In this chapter we have, I. David's kingdom established, 1Ch 14:1,2. II. His family built up, 1Ch 14:3-7. III. His enemies, the Philistines, routed in two campaigns, 1Ch 14:8-17. This is repeated here from 2Sa 5:11-25, etc.

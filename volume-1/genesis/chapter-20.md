@@ -1,3 +1,7 @@
+---
+weight: 20
+---
+
 # Chapter 20
 
 We are here returning to the story of Abraham; yet that part of it which is here recorded is not to his honour. The fairest marbles have their flaws, and, while there are spots in the sun, we must not expect any thing spotless under it. The scripture, it should be remarked, is impartial in relating the blemishes even of its most celebrated characters. We have here, I. Abraham's sin in denying his wife, and Abimelech's sin thereupon in taking her, Ge 20:1,2. II. God's discourse with Abimelech in a dream, upon this occasion, wherein he shows him his error (Ge 20:3), accepts his plea (Ge 20:4-6), and directs him to make restitution, Ge 20:7. III. Abimelech's discourse with Abraham, wherein he chides him for the cheat he had put upon him (Ge 20:8-10), and Abraham excuses it as well as he can, Ge 20:11-13. IV. The good issue of the story, in which Abimelech restores Abraham his wife (Ge 20:14-16), and Abraham, by prayer, prevails with God for the removal of the judgment Abimelech was under, Ge 20:17,18.

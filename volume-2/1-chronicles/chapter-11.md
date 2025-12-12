@@ -1,3 +1,7 @@
+---
+weight: 11
+---
+
 # Chapter 11
 
 In this chapter is repeated, I. The elevation of David to the throne, immediately upon the death of Saul, by common consent, 1Ch 11:1-3. II. His gaining the castle of Zion out of the hands of the Jebusites, 1Ch 11:4-9. III. The catalogue of the worthies and great men of his kingdom, 1Ch 11:10-47.

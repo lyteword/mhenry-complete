@@ -1,3 +1,7 @@
+---
+weight: 1
+---
+
 # Chapter 1
 
 The apostle here salutes an honourable matron and her children, 2Jo 1:1-3. Recommends to them faith and love, 2Jo 1:5,6. Warns them of deceivers (2Jo 1:7), and to take heed to themselves, 2Jo 1:8. Teaches how to treat those who bring not the doctrine of Christ, 2Jo 1:10,11. And, referring other things to personal discourse, concludes the epistle, 2Jo 1:12,13.

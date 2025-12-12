@@ -1,3 +1,7 @@
+---
+weight: 6
+---
+
 # Chapter 6
 
 The first seven verses of this chapter might fitly have been added to the foregoing chapter, being a continuation of the law of the trespass-offering, and the putting of other cases in which it was to be offered; and with this end the instructions God gave concerning the several kinds of sacrifices that should be offered: and then at Le 6:8 (which in the original begins a new section of the law) he comes to appoint the several rites and ceremonies concerning these sacrifices which had not been mentioned before. I. The burnt-offering, Le 6:8-13. II. The meat-offering (Le 6:11-18), particularly that at the consecration of the priest, Le 6:19-23. III. The sin-offering, Le 6:24-30, etc.

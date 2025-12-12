@@ -1,3 +1,7 @@
+---
+weight: 56
+---
+
 # Psalm 56
 
 It seems by this, and many other psalms, that even in times of the greatest trouble and distress David never hung his harp upon the willow-trees, never unstrung it or laid it by; but that when his dangers and fears were greatest he was still in tune for singing God's praises. He was in imminent peril when he penned this psalm, at least when he meditated it; yet even then his meditation of God was sweet. I. He complains of the malice of his enemies, and begs mercy for himself and justice against them, Ps 56:1,2,5-7. II. He confides in God, being assured that he took his part, comforting himself with this, that therefore he was safe and should be victorious, and that while he lived he should praise God, Ps 56:3,4,8-13. How pleasantly may a good Christian, in singing this psalm, rejoice in God, and praise him for what he will do, as well as for what he has done.

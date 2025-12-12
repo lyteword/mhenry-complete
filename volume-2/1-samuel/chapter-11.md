@@ -1,3 +1,7 @@
+---
+weight: 11
+---
+
 # Chapter 11
 
 In this chapter we have the first-fruits of Saul's government, in the glorious rescue of Jabesh-Gilead out of the hands of the Ammonites. Let not Israel thence infer that therefore they did well to ask a king (God could and would have saved them without one); but let them admire God's goodness, that he did not reject them when they rejected him, and acknowledge his wisdom in the choice of the person whom, if he did not find fit, yet he made fit, for the great trust he called him to, and enabled, in some measure, to merit the crown by his public services, before it was fixed on his head by the public approbation. Here is, I. The great extremity to which the city of Jabesh-Gilead, on the other side of Jordan, was reduced by the Ammonites, 1Sa 11:1-3. II. Saul's great readiness to come to their relief, whereby he signalized himself, 1Sa 11:4-10. III. The good success of his attempt, by which God signalized him, 1Sa 11:11. IV. Saul's tenderness, notwithstanding this, towards those that had opposed him, 1Sa 11:12,13. V. The public confirmation and recognition of his election to the government, 1Sa 11:14,15.

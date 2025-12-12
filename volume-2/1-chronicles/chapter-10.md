@@ -1,3 +1,7 @@
+---
+weight: 10
+---
+
 # Chapter 10
 
 The design of Ezra, in these books of the Chronicles, was to preserve the records of the house of David, which, though much sunk and lessened in a common eye by the captivity, yet grew more and more illustrious in the eyes of those that lived by faith by the nearer approach of the Son of David. And therefore he repeats, not the history of Saul's reign, but only of his death, by which way was made for David to the throne. In this chapter we have, I. The fatal rout which the Philistines gave to Saul's army, and the fatal stroke which he gave himself, 1Ch 10:1-7. II. The Philistines' triumph therein, 1Ch 10:8-10. III. The respect which the men of Jabesh-Gilead showed the royal corpse, 1Ch 10:11,12. IV. The reason of Saul's rejection, 1Ch 10:13,14.

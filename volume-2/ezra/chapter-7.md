@@ -1,3 +1,7 @@
+---
+weight: 7
+---
+
 # Chapter 7
 
 Ezra's precious name saluted us, at first, in the title of the book, but in the history we have not met with it till this chapter introduces him into public action in another reign, that of Artaxerxes. Zerubbabel and Jeshua we will suppose, by this time, to have grown old, if not gone off; nor do we hear any more of Haggai and Zechariah; they have finished their testimony. What shall become of the cause of God and Israel when these useful instruments are laid aside? Trust God, who has the residue of the Spirit, to raise up others in their room. Ezra here, and Nehemiah in the next book, are as serviceable in their days as those were in theirs. Here is, I. An account, in general, of Ezra himself, and of his expedition to Jerusalem for the public good, Ezr 7:1-10. II. A copy of the commission which Artaxerxes gave him, Ezr 7:11-26. III. His thankfulness to God for it, Ezr 7:27,28. The next chapter will give us a more particular narrative of his associates, his journey, and his arrival at Jerusalem.

@@ -1,3 +1,7 @@
+---
+weight: 1
+---
+
 # Chapter 1
 
 After the inscription (1Ti 1:1,2) we have, I. The charge given to Timothy, 1Ti 1:3,4. II. The true end of the law (1Ti 1:5-11), where he shows that it is entirely agreeable to the gospel. III. He mentions his own call to be an apostle, for which he expresses his thankfulness, 1Ti 1:12-16. IV. His doxology, 1Ti 1:17. V. A renewal of the charge to Timothy, 1Ti 1:18. And of Hymenæus and Alexander, 1Ti 1:19,20.

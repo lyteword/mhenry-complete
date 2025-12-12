@@ -1,3 +1,7 @@
+---
+weight: 12
+---
+
 # Chapter 12
 
 The foregoing chapter gave us the account of David's sin; this gives us the account of his repentance. Though he fell, he was not utterly cast down, but, by the grace of God, recovered himself, and found mercy with God. Here is, I. His conviction, by a message Nathan brought him from God, which was a parable that obliged him to condemn himself (2Sa 12:1-6), and the application of the parable, in which Nathan charged him with the sin (2Sa 12:7-9) and pronounced sentence upon him, 2Sa 12:10-12. II. His repentance and remission, with a proviso, 2Sa 12:13,14. III. The sickness and death of the child, and his behaviour while it was sick and when it was dead (2Sa 12:15-23), in both which David gave evidence of his repentance. IV. The birth of Solomon, and God's gracious message concerning him, in which God gave an evidence of his reconciliation to David, 2Sa 12:24,25. V. The taking of Rabbah (2Sa 12:26-31), which is mentioned as a further instance that God did not deal with David according to his sins.

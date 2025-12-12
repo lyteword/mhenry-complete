@@ -1,3 +1,7 @@
+---
+weight: 8
+---
+
 # Chapter 8
 
 In this chapter the apostle pursues his former subject, the priesthood of Christ. And, I. He sums up what he had already said, Heb 8:1,2. II. He sets before them the necessary parts of the priestly office, Heb 8:3-5. And, III. Largely illustrates the excellency of the priesthood of Christ, by considering the excellency of that new dispensation or covenant for which Christ is the Mediator, Heb 8:6-13.

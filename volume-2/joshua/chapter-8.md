@@ -1,3 +1,7 @@
+---
+weight: 8
+---
+
 # Chapter 8
 
 The embarrassment which Achan's sin gave to the affairs of Israel being over, we have them here in a very good posture again, the affairs both of war and religion. Here is, I. The glorious progress of their arms in the taking of Ai, before which they had lately suffered disgrace. 1. God encourages Joshua to attack it, with the assurance of success, and directs him what method to take, Jos 8:1,2. 2. Joshua gives orders accordingly to the men of war, Jos 8:3-8. 3. The stratagem is managed as it was projected, and succeeds as it was desired, Jos 8:9-22. 4. Joshua becomes master of this city, puts all the inhabitants to the sword, burns it, hangs the king, but gives the plunder to the soldiers, Jos 8:23-29. II. The great solemnity of writing and reading the law before a general assembly of all Israel, drawn up for that purpose upon the two mountains of Gerizim and Ebal, according to an order which Moses had received from the Lord, and delivered to them, Jos 8:30-35. Thus did they take their work before them, and make the business of their religion to keep pace with their secular business.

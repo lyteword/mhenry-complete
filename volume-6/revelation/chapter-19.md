@@ -1,3 +1,7 @@
+---
+weight: 19
+---
+
 # Chapter 19
 
 In this chapter we have, I. A further account of the triumphant song of angels and saints for the fall of Babylon, Re 19:1-4. II. The marriage between Christ and the church proclaimed and perfected, Re 19:5-10. III. Another warlike expedition of the glorious head and husband of the church, with the success of it, Re 19:10-21, etc.

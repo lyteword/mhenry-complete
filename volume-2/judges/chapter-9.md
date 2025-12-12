@@ -1,3 +1,7 @@
+---
+weight: 9
+---
+
 # Chapter 9
 
 The apostasy of Israel after the death of Gideon is punished, not as the former apostasies by a foreign invasion, or the oppressions of any neighbouring power, but by intestine broils among themselves, which in this chapter we have the story of; and it is hard to say whether their sin or their misery appears most in it. It is an account of the usurpation and tyranny of Abimelech, who was base son to Gideon; so we must call him, and not more modishly his natural son: he was so unlike him. We are here told, I. How he thrust himself into the government at Shechem, his own city, by subtlety and cruelty, particularly by the murder of all his brethren, Jdg 9:1-6. II. How his doom was read in a parable by Jotham, Gideon's youngest son, Jdg 9:7-21. III. What strifes there were between Abimelech and his friends the Shechemites, Jdg 9:22-41. IV. How this ended in the ruin of the Shechemites (Jdg 9:42-49), and of Abimelech himself, Jdg 9:50-57. Of this meteor, this ignis fatuus of a prince, that was not a protector but a plague to his country, we may say, as once was said of a great tyrant, that he came in like a fox, ruled like a lion, and died like a dog. "For the transgression of a land, such are the princes thereof."

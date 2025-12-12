@@ -1,3 +1,7 @@
+---
+weight: 101
+---
+
 # Psalm 101
 
 David was certainly the penman of this psalm, and it has in it the genuine spirit of the man after God's own heart; it is a solemn vow which he made to God when he took upon him the charge of a family and of the kingdom. Whether it was penned when he entered upon the government, immediately after the death of Saul (as some think), or when he began to reign over all Israel, and brought up the ark to the city of David (as others think), is not material; it is an excellent plan or model for the good government of a court, or the keeping up of virtue and piety, and, by that means, good order, in it: but it is applicable to private families; it is the householder's psalm. It instructs all that are in any sphere of power, whether larger or narrower, to use their power so as to make it a terror to evil-doers, but a praise to those that do well. Here is, I. The general scope of David's vow, Ps 101:1,2. II. The particulars of it, that he would detest and discountenance all manner of wickedness (Ps 101:3-5,7,8) and that he would favour and encourage such as were virtuous, Ps 101:6. Some think this may fitly be accommodated to Christ, the Son of David, who governs his church, the city of the Lord, by these rules, and who loves righteousness and hates wickedness. In singing this psalm families, both governors and governed, should teach, and admonish, and engage themselves and one another to walk by the rule of it, that peace may be upon them and God's presence with them.

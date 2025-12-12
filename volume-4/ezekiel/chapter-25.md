@@ -1,3 +1,7 @@
+---
+weight: 25
+---
+
 # Chapter 25
 
 Judgment began at the house of God, and therefore with them the prophets began, who were the judges; but it must not end there, and therefore they must not. Ezekiel had finished his testimony which related to the destruction of Jerusalem. As to that he was ordered to say no more, but stand upon his watch-tower and wait the issue; and yet he must not be silent; there are divers nations bordering upon the land of Israel, which he must prophesy against, as Isaiah and Jeremiah had done before; and must proclaim God's controversy with them, chiefly for the injuries and indignities which they had done to the people of God in the day of their calamity. In this chapter we have his prophecy, I. Against the Ammonites, Eze 25:1-7. II. Against the Moabites, Eze 25:8-11. III. Against the Edomites, Eze 25:11-14. IV. Against the Philistines, Eze 25:15-17. That which is laid to the charge of each of them is their barbarous and insolent conduct towards God's Israel, for which God threatens to put the same cup of trembling into their hand. God's resenting it thus would be an encouragement to Israel to believe that though he had dealt thus severely with them yet he had not cast them off, but would still own them and plead their cause.

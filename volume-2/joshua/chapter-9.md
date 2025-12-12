@@ -1,3 +1,7 @@
+---
+weight: 9
+---
+
 # Chapter 9
 
 Here is in this chapter, I. The impolite confederacy of the kings of Canaan against Israel, Jos 9:1,2. II. The polite confederacy of the inhabitants of Gibeon with Israel, 1. How it was subtly proposed and petitioned for by the Gibeonites pretending to come from a far country, Jos 9:3-13. 2. How it was unwarily consented to by Joshua and the Israelites, to the disgust of the congregation when the fraud was discovered, Jos 9:14-18. 3. How the matter was adjusted to the satisfaction of all sides, by giving these Gibeonites their lives because they had covenanted with them, yet depriving them of their liberties because the covenant was not fairly obtained, Jos 9:19-27.

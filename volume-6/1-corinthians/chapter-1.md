@@ -1,3 +1,7 @@
+---
+weight: 1
+---
+
 # Chapter 1
 
 In this chapter we have, I. The preface or introduction to the whole epistle, 1Co 1:1-9. II. One principal occasion of writing it hinted, namely, their divisions and the origin of them, 1Co 1:10-13. III. An account of Paul's ministry among them, which was principally preaching the gospel, 1Co 1:14-17. IV. The manner wherein he preached the gospel, and the different success of it, with an account how admirably it was fitted to bring glory to God and beat down the pride and vanity of men, 1Co 1:17-31.

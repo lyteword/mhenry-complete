@@ -1,3 +1,7 @@
+---
+weight: 11
+---
+
 # Chapter 11
 
 This chapter begins with as melancholy a "but" as almost any we find in all the Bible. Hitherto we have read nothing of Solomon but what was great and good; but the lustre both of his goodness and of his greatness is here sullied and eclipsed, and his sun sets under a cloud. I. The glory of his piety is stained by his departure from God and his duty, in his latter days, marrying strange wives and worshipping strange gods, 1Ki 11:4-8. II. The glory of his prosperity is stained by God's displeasure against him and the fruits of that displeasure. 1. He sent him an angry message, 1Ki 11:9-13. 2. He stirred up enemies, who gave him disturbance, Hadad (1Ki 11:14-22), Rezon, 1Ki 11:23-25. 3. He gave away ten tribes of his twelve, from his posterity after him, to Jeroboam, whom therefore he sought in vain to slay (1Ki 11:26-40), and this is all that remains here to be told concerning Solomon, except his death and burial (1Ki 11:41-43), for there is nothing perfect under the sun, but all is so above the sun.

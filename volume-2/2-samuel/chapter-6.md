@@ -1,3 +1,7 @@
+---
+weight: 6
+---
+
 # Chapter 6
 
 The obscurity of the ark, during the reign of Saul, had been as great a grievance to Israel as the insults of the Philistines. David, having humbled the Philistines and mortified them in gratitude for that favour, and in pursuance of his designs for the public welfare, is here bringing up the ark to his own city, that it might be near him, and be an ornament and strength to his new foundation. Here is, I. An attempt to do it, which failed and miscarried. The design was well laid, 2Sa 6:1,2. But, 1. They were guilty of an error in carrying it in a cart, 2Sa 6:3-5. 2. They were punished for that error by the sudden death of Uzzah (2Sa 6:6,7), which was a great terror to David (2Sa 6:8,9) and put a stop to his proceedings, 2Sa 6:10,11. II. The great joy and satisfaction with which it was at last done, 2Sa 6:12-15. And, 1. The good understanding between David and his people, 2Sa 6:17-19. 2. The uneasiness between David and his wife upon that occasion, 2Sa 6:16,20-23. And, when we consider that the ark was both the token of God's presence and a type of Christ, we shall see that this story is very instructive.

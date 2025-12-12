@@ -1,3 +1,7 @@
+---
+weight: 2
+---
+
 # Chapter 2
 
 The apostle John, having in the foregoing chapter written the things which he had seen, now proceeds to write the things that are, according to the command of God (Re 1:19), that is, the present state of the seven churches of Asia, with which he had a particular acquaintance, and for which he had a tender concern. He was directed to write to every one of them according to their present state and circumstances, and to inscribe every letter to the angel of that church, to the minister or rather ministry of that church, called angels because they are the messengers of God to mankind. In this chapter we have, I. The message sent to Ephesus, Re 2:1-7. II. To Smyrna, Re 2:8-11. III. To Pergamos, Re 2:12-17. IV. To Thyatira, Re 2:18-29, etc.

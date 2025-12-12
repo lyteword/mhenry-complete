@@ -1,3 +1,7 @@
+---
+weight: 30
+---
+
 # Chapter 30
 
 In this chapter we have a law concerning vows, which had been mentioned in the close of the foregoing chapter. I. Here is a general rule laid down that all vows must be carefully performed, Nu 30:1,2. II. Some particular exceptions to this rule. 1. That the vows of daughters should not be binding unless allowed by the father, Nu 30:3-5. Nor, 2. The vows of wives unless allowed by the husband, Nu 30:6-16, etc.

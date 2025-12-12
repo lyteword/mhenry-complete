@@ -1,3 +1,7 @@
+---
+weight: 1
+---
+
 # Chapter 1
 
 Evidence given concerning Christ's person and excellency, 1Jo 1:1,2. The knowledge thereof gives us communion with God and Christ (1Jo 1:3), and joy, 1Jo 1:4. A description of God, 1Jo 1:5. How we are thereupon to walk, 1Jo 1:6. The benefit of such walking, 1Jo 1:7. The way to forgiveness, 1Jo 1:9. The evil of denying our sin, 1Jo 1:8-10.

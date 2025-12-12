@@ -1,3 +1,7 @@
+---
+weight: 13
+---
+
 # Chapter 13
 
 In this chapter the apostle threatens to be severe against obstinate sinners, and assigns the reason thereof (2Co 13:1-6); then he makes a suitable prayer to God on the behalf of the Corinthians, with the reasons inducing him thereto (2Co 13:7-10), and concludes his epistle with a valediction and a benediction, 2Co 13:11-14.

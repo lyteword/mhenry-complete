@@ -1,3 +1,7 @@
+---
+weight: 5
+---
+
 # Chapter 5
 
 How far Abner's deserting the house of Saul, his murder, and the murder of Ish-bosheth, might contribute to the perfecting of the revolution, and the establishing of David as king over all Israel, does not appear; but, it should seem, that happy change followed presently thereupon, which in this chapter we have an account of. Here is, I. David anointed king by all the tribes, 2Sa 5:1-5. II. Making himself master of the strong-hold of Zion, 2Sa 5:6-10. III. Building himself a house and strengthening himself in his kingdom, 2Sa 5:11,12. IV. His children that were born after this, 2Sa 5:13-16. V. His victories over the Philistines, 2Sa 5:17-25.
@@ -14,7 +18,7 @@ Here is, I. The humble address of all the tribes to David, beseeching him to tak
 
 II\. The public and solemn inauguration of David, 2Sa 5:3. A convention of the states was called; all the elders of Israel came to him; the contract was settled, the *pacta conventa—covenants,* sworn to, and subscribed on both sides. He obliged himself to protect them as their judge in peace and captain in war; and they obliged themselves to obey him. He *made a league* with them to which God was a witness: it was *before the Lord.* Hereupon he was, for the third time, anointed king. His advances were gradual, that his faith might be tried and that he might gain experience. And thus his kingdom typified that of the Messiah, which was to come to its height by degrees; for *we see not yet all things put under him* (Heb 2:8), but we shall see it, 1Co 15:25.
 
-III\. A general account of his reign and age. He was thirty years old when he began to reign, upon the death of Saul, 2Sa 5:4. At that age the Levites were at first appointed to begin their administration, Nu 4:3. About that age the Son of David entered upon his public ministry, Lu 3:23. Then men come to their full maturity of strength and judgment. He reigned, in all, forty years and six months, of which seven years and a half in Hebron and thirty-three years in Jerusalem, 2Sa 5:5. Hebron had been famous, Jos 14:15. It was a priest's city. But Jerusalem was to be more so, and to be the holy city. Great kings affected to raise cities of their own, Ge 10:11,36,Ge 10:32-35. David did so, and Jerusalem was the city of David. It is a name famous to the end of the Bible (Re 21:1-27), where we read of a new Jerusalem.
+III\. A general account of his reign and age. He was thirty years old when he began to reign, upon the death of Saul, 2Sa 5:4. At that age the Levites were at first appointed to begin their administration, Nu 4:3. About that age the Son of David entered upon his public ministry, Lu 3:23. Then men come to their full maturity of strength and judgment. He reigned, in all, forty years and six months, of which seven years and a half in Hebron and thirty-three years in Jerusalem, 2Sa 5:5. Hebron had been famous, Jos 14:15. It was a priest's city. But Jerusalem was to be more so, and to be the holy city. Great kings affected to raise cities of their own, Ge 10:11,36, Ge 10:32-35. David did so, and Jerusalem was the city of David. It is a name famous to the end of the Bible (Re 21:1-27), where we read of a new Jerusalem.
 
 ## David Takes Mount Sion. (b. c. 1047.)
 

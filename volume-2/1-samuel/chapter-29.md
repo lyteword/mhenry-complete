@@ -1,3 +1,7 @@
+---
+weight: 29
+---
+
 # Chapter 29
 
 How Saul, who was forsaken of God, when he was in a strait was more and more perplexed and embarrassed with his own counsels, we read in the foregoing chapter. In this chapter we find how David, who kept close to God, when he was in a strait was extricated and brought off by the providence of God, without any contrivance of his own. We have him, I. Marching with the Philistines, 1Sa 29:1,2. II. Excepted against by the lords of the Philistines, 1Sa 29:3-5. III. Happily dismissed by Achish from that service which did so ill become him, and which yet he knew not how to decline, 1Sa 29:6-11.

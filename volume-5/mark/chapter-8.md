@@ -1,3 +1,7 @@
+---
+weight: 8
+---
+
 # Chapter 8
 
 In this chapter, we have, I. Christ's miraculous feeding of four thousand with seven loaves and a few small fishes, Mk 8:1-9. II. His refusing to give the Pharisees a sign from heaven, Mk 8:10-13. III. His cautioning his disciples to take heed of the leaven of Pharisaism and Herodianism, Mk 8:14-21. IV. His giving of sight to a blind man at Bethsaida, Mk 8:22-26. V. Peter's confession of him, Mk 8:27-30. VI. The notice he gave his disciples of his own approaching sufferings (Mk 8:31-33), and the warning he gave them to prepare for sufferings likewise, Mk 8:34-38.

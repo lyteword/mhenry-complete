@@ -1,3 +1,7 @@
+---
+weight: 28
+---
+
 # Chapter 28
 
 In the foregoing chapter Jeremiah had charged those prophets with lies who foretold the speedy breaking of the yoke of the king of Babylon and the speedy return of the vessels of the sanctuary; how here we have his contest with a particular prophet upon those heads. I. Hananiah, a pretender to prophecy, in contradiction to Jeremiah, foretold the sinking of Nebuchadnezzar's power and the return both of the persons and of the vessels that were carried away (Jer 28:1-4), and, as a sign of this, he broke the yoke from the neck of Jeremiah, Jer 28:10,11. II. Jeremiah wished his words might prove true, but appealed to the event whether they were so or no, not doubting but that would disprove them, Jer 28:5-9. III. The doom both of the deceived and the deceiver is here read. The people that were deceived should have their yoke of wood turned into a yoke of iron (Jer 28:12-14), and the prophet that was the deceiver should be shortly cut off by death, and he was so, accordingly, within two months, Jer 28:15-17.

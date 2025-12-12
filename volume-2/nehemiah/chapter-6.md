@@ -1,3 +1,7 @@
+---
+weight: 6
+---
+
 # Chapter 6
 
 The cries of oppressed poverty being stilled, we are now to enquire how the building of the wall goes forward, and in this chapter we find it carried on with vigour and finished with joy, notwithstanding the restless attempts of the gates of hell to hinder it. How the Jews' enemies were baffled in their design to put a stop to it by force we read before, Ne 4:1-23 Here we find how their endeavours to drive Nehemiah off from it were frustrated. I. When they courted him to an interview, with design to do him a mischief, he would not stir, Ne 6:1-4. II. When they would have made him believe his undertaking was represented as seditious and treasonable, he regarded not the insinuation, Ne 6:5-9. III. When they hired pretended prophets to advise him to retire into the temple for his own safety, still he kept his ground, Ne 6:10-14. IV. Notwithstanding the secret correspondence that was kept up between them and some false and treacherous Jews, the work was finished in a short time, Ne 6:15-19. Such as these were the struggles between the church and its enemies. But great is God's cause and it will be prosperous and victorious.

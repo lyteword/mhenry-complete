@@ -1,3 +1,7 @@
+---
+weight: 18
+---
+
 # Chapter 18
 
 This chapter puts a period to Absalom's rebellion and life, and so makes way for David to his throne again, whither the next chapter brings him back in peace and triumph. We have here, I. David's preparations to engage the rebels, 2Sa 18:1-5. II. The total defeat of Absalom's party and their dispersion, 2Sa 18:6-8. III. The death of Absalom, and his burial, 2Sa 18:9-18. IV. The bringing of the tidings to David, who tarried at Mahanaim, 2Sa 18:19-32. V. His bitter lamentation for Absalom, 2Sa 18:33.

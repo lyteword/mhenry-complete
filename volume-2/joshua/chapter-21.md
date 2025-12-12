@@ -1,3 +1,7 @@
+---
+weight: 21
+---
+
 # Chapter 21
 
 It had been often said that the tribe of Levi should have "no inheritance with their brethren," no particular part of the country assigned them, as the other tribes had, no, not the country about Shiloh, which one might have expected to be appropriated to them as the lands of the church; but, though they were not thus cast into a country by themselves, it appears, by the provision made for them in this chapter, that they were no losers, but the rest of the tribes were very much gainers, by their being dispersed. We have here, I. The motion they made to have their cities assigned them, according to God's appointment, Jos 21:1,2. II. The nomination of the cities accordingly out of the several tribes, and the distribution of them to the respective families of this tribe, Jos 21:3-8. III. A catalogue of the cities, forty-eight in all, Jos 21:9-42. IV. A receipt entered in full of all that God had promised to his people Israel, Jos 21:43-45.

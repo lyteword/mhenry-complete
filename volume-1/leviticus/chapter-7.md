@@ -1,3 +1,7 @@
+---
+weight: 7
+---
+
 # Chapter 7
 
 Here is, I. The law of the trespass-offering (Le 7:1-7), with some further directions concerning the burnt-offering and the meat-offering, Le 7:8-10. II. The law of the peace-offering. The eating of it (Le 7:11-21), on which occasion the prohibition of eating fat or blood is repeated (Le 7:22-27), and the priests' share of it, Le 7:28-34. III. The conclusion of those institutions, Le 7:35-38, etc.

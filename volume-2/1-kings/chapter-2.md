@@ -1,3 +1,7 @@
+---
+weight: 2
+---
+
 # Chapter 2
 
 In this chapter we have David setting and Solomon at the same time rising. I. The conclusion of David's reign with his life. 1. The charge he gives to Solomon upon his death-bed, in general, to serve God (1Ki 2:1-4), in particular, concerning Joab, Barzillai, and Shimei, 1Ki 2:5-9. 2. His death and burial, and the years of his reign, 1Ki 2:10,11. II. The beginning of Solomon's reign, 1Ki 2:12. Though he was to be a prince of peace, he began his reign with some remarkable acts of justice, 1. Upon Adonijah, whom he put to death for his aspiring pretensions, 1Ki 2:13-25. 2. Upon Abiathar, whom he deposed from the high priesthood for siding with Adonijah, 1Ki 2:26,27. 3. Upon Joab, who he put to death for his late treasons and former murders, 1Ki 2:28-35. 4. Upon Shimei, whom, for cursing David, he confined to Jerusalem (1Ki 2:36-38), and three years after, for transgressing the rules, put to death, 1Ki 2:39-46.

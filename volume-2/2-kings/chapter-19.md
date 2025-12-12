@@ -1,3 +1,7 @@
+---
+weight: 19
+---
+
 # Chapter 19
 
 Jerusalem's great distress we read of in the foregoing chapter, and left it besieged, insulted, threatened, terrified, and just ready to be swallowed up by the Assyrian army. But in this chapter we have an account of its glorious deliverance, not by sword or bow, but by prayer and prophecy, and by the hand of an angel. I. Hezekiah, in great concern, sent to the prophet Isaiah, to desire his prayers (2Ki 19:1-5) and received from him an answer of peace, 2Ki 19:6,7. II. Sennacherib sent a letter to Hezekiah to fright him into a surrender, 2Ki 19:8-13. III. Hezekiah thereupon, by a very solemn prayer, recommended his case to God, the righteous Judge, and begged help from him, 2Ki 19:14-19. IV. God, by Isaiah, sent him a very comfortable message, assuring him of deliverance, 2Ki 19:20-34. V. The army of the Assyrians was all cut off by an angel and Sennacherib himself slain by his own sons, 2Ki 19:35-37. And so God glorified himself and saved his people.

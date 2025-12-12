@@ -1,3 +1,7 @@
+---
+weight: 6
+---
+
 # Chapter 6
 
 In this chapter the apostle gives an account of his general errand to all to whom he preached; with the several arguments and methods he used, 2Co 6:1-10. Then he addresses himself particularly to the Corinthians, giving them good cautions with great affection and strong arguments, 2Co 6:11-18.

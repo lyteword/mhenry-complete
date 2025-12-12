@@ -1,3 +1,7 @@
+---
+weight: 1
+---
+
 # Chapter 1
 
 The book begins with the history, not of Joshua's life (many remarkable passages of that we had before in the books of Moses) but of his reign and government. In this chapter, I. God appoints him to the government in the stead of Moses, gives him an ample commission, full instructions, and great encouragements, Jos 1:1-9. II. He accepts the government, and addresses himself immediately to the business of it, giving orders to the officers of the people in general, Jos 1:10,11, and particularly to the two tribes and a half, Jos 1:12-15. III. The people agree to it, and take an oath of fealty to him, Jos 1:16-18. A reign which thus began with God could not but be honourable to the prince and comfortable to the subject. The last words of Moses are still verified, "Happy art thou, O Israel! Who is like unto thee, O people?" De 33:29.

@@ -1,3 +1,7 @@
+---
+weight: 6
+---
+
 # Chapter 6
 
 In this chapter the apostle proceeds to persuade the Hebrews to make a better proficiency in religion than they had done, as the best way to prevent apostasy, the dreadful nature and consequences of which sin he sets forth in a serious manner (Heb 6:1-8), and then expresses his good hopes concerning them, that they would persevere in faith and holiness, to which he exhorts them, and sets before them the great encouragement they had from God, both with respect to their duty and happiness, Heb 6:9-20.

@@ -1,3 +1,7 @@
+---
+weight: 9
+---
+
 # Chapter 9
 
 In this chapter we have, I. Judgment threatened, which the sinners shall not escape (Am 9:1-4), which an almighty power shall inflict (Am 9:5,6), which the people of Israel have deserved as a sinful people (Am 9:7,8); and yet it shall not be the utter ruin of their nation (Am 9:8), for a remnant of good people shall escape, Am 9:9. But the wicked ones shall perish, Am 9:10. II. Mercy promised, which was to be bestowed in the latter days (Am 9:11-15), as appears by the application of it to the days of the Messiah, Ac 15:16. And with those comfortable promises, after all the foregoing rebukes and threatenings, the book concludes.

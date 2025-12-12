@@ -1,3 +1,7 @@
+---
+weight: 21
+---
+
 # Chapter 21
 
 The armies of Israel now begin to emerge out of the wilderness, and to come into a land inhabited, to enter upon action, and take possession of the frontiers of the land of promise. A glorious campaign this chapter gives us the history of, especially in the latter part of it. Here is, I. The defeat of Arad the Canaanite, Nu 21:1-3. II. The chastisement of the people with fiery serpents for their murmurings, and the relief granted them upon their submission by a brazen serpent, Nu 21:4-9. III. Several marches forward, and some occurrences by the way, Nu 21:10-20. IV. The celebrated conquest of Sihon king of the Amorites (Nu 21:21-32), and of Og king of Bashan (Nu 21:33-35), and possession taken of their land.

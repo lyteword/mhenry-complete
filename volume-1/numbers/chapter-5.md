@@ -1,3 +1,7 @@
+---
+weight: 5
+---
+
 # Chapter 5
 
 In this chapter we have, I. An order, pursuant to the laws already made, for the removing of the unclean out of the camp, Nu 5:1-4. II. A repetition of the laws concerning restitution, in case of wrong done to a neighbour (Nu 5:5-8), and concerning the appropriating of the hallowed things to the priests, Nu 5:9,10. III. A new law made concerning the trial of a wife suspected of adultery, by the waters of jealousy, Nu 5:11-31, etc.

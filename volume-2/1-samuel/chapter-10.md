@@ -1,3 +1,7 @@
+---
+weight: 10
+---
+
 # Chapter 10
 
 We left Samuel and Saul walking together, probably some private way over the fields down from Ramah, perhaps in the paths of the vineyards, and Saul expecting to hear from Samuel the word of God. Now here we have, I. The anointing of Saul then and there, 1Sa 10:1. The signs Samuel gave him, 1Sa 10:2-6. And instructions, 1Sa 10:7-8. II. The accomplishment of those signs to the satisfaction of Saul, 1Sa 10:9-13. III. His return to his father's house, 1Sa 10:14-16. IV. His public election by lot, and solemn inauguration, 1Sa 10:17-25. V. His return to his own city, 1Sa 10:26,27. It is a great work that is here a doing, the setting up not only of a monarch, but of monarchy itself, in Israel; and therefore in all the advances towards it much of God is seen.

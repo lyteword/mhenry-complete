@@ -1,3 +1,7 @@
+---
+weight: 2
+---
+
 # Chapter 2
 
 This chapter contains an account, I. Of the miserable condition of these Ephesians by nature (Eph 2:1-3) and again, Eph 2:11,12. II. Of the glorious change that was wrought in them by converting grace (Eph 2:4-10) and again, Eph 2:13. III. Of the great and mighty privileges that both converted Jews and Gentiles receive from Christ, Eph 2:14-22. The apostle endeavours to affect them with a due sense of the wonderful change which divine grace had wrought in them; and this is very applicable to that great change which the same grace works in all those who are brought into a state of grace. So that we have here a lively picture both of the misery of unregenerate men and of the happy condition of converted souls, enough to awaken and alarm those who are yet in their sins and to put them upon hastening out of that state, and to comfort and delight those whom God hath quickened, with a consideration of the mighty privileges with which they are invested.

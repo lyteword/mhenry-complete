@@ -1,3 +1,7 @@
+---
+weight: 17
+---
+
 # Chapter 17
 
 The charge of this chapter is, I. Concerning the purity and perfection of all those animals that were offered in sacrifice, De 17:1. II. Concerning the punishment of those that worshipped idols, De 17:2-7. III. Concerning appeals from the inferior courts to the great sanhedrim, De 17:8-13. IV. Concerning the choice and duty of a king, De 17:14-20, etc.

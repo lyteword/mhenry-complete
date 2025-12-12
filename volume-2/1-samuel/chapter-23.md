@@ -1,3 +1,7 @@
+---
+weight: 23
+---
+
 # Chapter 23
 
 Saul, having made himself drunk with the blood of the priests of the Lord, is here, in this chapter, seeking David's life, who appears here doing good, and suffering ill, at the same time. Here is, I. The good service he did to his king and country, in rescuing the city of Keilah out of the hands of the Philistines, 1Sa 23:1-6. II. The danger he was thereby brought into from the malice of the prince he served and the treachery of the city he saved, and his deliverance, by divine direction, from that danger, 1Sa 23:7-13. III. David in a wood and his friend Jonathan visiting him there and encouraging him, 1Sa 23:14-18. IV. The information which the Ziphites brought to Saul of David's haunts, and the expedition Saul made, in pursuit of him, 1Sa 23:19-25. The narrow escape David had of falling into his hands, 1Sa 23:26-29. "Many are the troubles of the righteous, but the Lord delivereth them out of them all."

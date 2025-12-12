@@ -1,3 +1,7 @@
+---
+weight: 3
+---
+
 # Chapter 3
 
 In this chapter, we have, I. Christ's healing a man that had a withered hand, on the sabbath day, and the combination of his enemies against him for it, Mk 3:1-6. II. The universal resort of people to him from all parts, to be healed, and the relief they all found with him, Mk 3:7-12. III. His ordaining his twelve apostles to be attendants on him, and the preachers of his gospel, Mk 3:13-21. IV. His answer to the blasphemous cavils of the scribes, who imputed his power to cast out devils to a confederacy with the prince of the devils, Mk 3:22-30. V. His owning his disciples for his nearest and dearest relations, Mk 3:31-35.

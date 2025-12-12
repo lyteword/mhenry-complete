@@ -1,3 +1,7 @@
+---
+weight: 18
+---
+
 # Chapter 18
 
 ## Wisdom and Folly.
@@ -45,7 +49,7 @@ Here is, 1. God's sufficiency for the saints: His *name is a strong tower* for t
 
 > <sup>11</sup> The rich man's wealth *is* his strong city, and as an high wall in his own conceit.  
 
-Having described the firm and faithful defence of the righteous man (Pr 18:10), Solomon here shows what is the false and deceitful defence of the rich man, that has his portion and treasure in the things of this world, and sets his heart upon them. His wealth is as much his confidence, and he expects as much from it, as a godly man from his God. See, 1. How he supports himself. He makes his *wealth his city,* where he dwells, where he rules, with a great deal of self-complacency, as if he had a whole city under his command. It *is his strong city,* in which he intrenches himself, and then sets danger at defiance, as if nothing could hurt him. *His scales are his pride;* his wealth is his wall in which he encloses himself, and he thinks it a *high wall,* which cannot be scaled or got over, Job 31:24,Re 18:7. 2. How herein he cheats himself. It is a *strong city,* and a *high wall,* but it is so only *in his own conceit;* it will not prove to be really so, but like the house built on the sand, which will fail the builder when he most needs it.
+Having described the firm and faithful defence of the righteous man (Pr 18:10), Solomon here shows what is the false and deceitful defence of the rich man, that has his portion and treasure in the things of this world, and sets his heart upon them. His wealth is as much his confidence, and he expects as much from it, as a godly man from his God. See, 1. How he supports himself. He makes his *wealth his city,* where he dwells, where he rules, with a great deal of self-complacency, as if he had a whole city under his command. It *is his strong city,* in which he intrenches himself, and then sets danger at defiance, as if nothing could hurt him. *His scales are his pride;* his wealth is his wall in which he encloses himself, and he thinks it a *high wall,* which cannot be scaled or got over, Job 31:24, Re 18:7. 2. How herein he cheats himself. It is a *strong city,* and a *high wall,* but it is so only *in his own conceit;* it will not prove to be really so, but like the house built on the sand, which will fail the builder when he most needs it.
 
 > <sup>12</sup> Before destruction the heart of man is haughty, and before honour *is* humility.  
 

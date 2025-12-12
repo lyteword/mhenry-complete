@@ -1,3 +1,7 @@
+---
+weight: 28
+---
+
 # Chapter 28
 
 This chapter is the history of the reign of Ahaz the son of Jotham; a bad reign it was, and which helped to augment the fierce anger of the Lord. We have here, I. His great wickedness, 2Ch 28:1-4. II. The trouble he brought himself into by it, 2Ch 28:5-8. III. The reproof which God sent by a prophet to the army of Israel for trampling upon their brethren of Judah, and the obedient ear they gave to that reproof, 2Ch 28:9-15. IV. The many calamities that followed to Ahaz and his people, 2Ch 28:16-21. V. The continuance of his idolatry notwithstanding (2Ch 28:22-25), and so his story ends, 2Ch 28:26,27.

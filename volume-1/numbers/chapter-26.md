@@ -1,3 +1,7 @@
+---
+weight: 26
+---
+
 # Chapter 26
 
 This book is called Numbers, from the numberings of the children of Israel, of which it gives an account. Once they were numbered at Mount Sinai, in the first year after they came out of Egypt, which we had an account of, Nu 1:1-2:34. And now a second time they were numbered in the plains of Moab, just before they entered Canaan, and of this we have an account in this chapter. We have, I. Orders given for the doing of it, Nu 26:1-4. II. A register of the families and numbers of each tribe (Nu 26:5-50), and the sum total, Nu 26:51. III. Direction given to divide the land among them, Nu 26:52-56. IV. The families and numbers of the Levites by themselves, Nu 26:57-62. V. Notice taken of the fulfilling of the threatening in the death of all those that were first numbered, Nu 26:63-65), and to this there seems to have been a special regard in the taking and keeping of this account.

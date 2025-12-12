@@ -1,3 +1,7 @@
+---
+weight: 49
+---
+
 # Psalm 49
 
 This psalm is a sermon, and so is the next. In most of the psalms we have the penman praying or praising; in these we have him preaching; and it is our duty, in singing psalms, to teach and admonish ourselves and one another. The scope and design of this discourse is to convince the men of this world of their sin and folly in setting their hearts upon the things of this world, and so to persuade them to seek the things of a better world; as also to comfort the people of God, in reference to their own troubles and the grief that arises from the prosperity of the wicked. I. In the preface he proposes to awaken worldly people out of their security (Ps 49:1-3) and to comfort himself and other godly people in a day of distress, Ps 49:4,5. II. In the rest of the psalm, 1. He endeavours to convince sinners of their folly in doting upon the wealth of this world, by showing them (1.) That they cannot, with all their wealth, save their friends from death, Ps 49:6-9. (2.) They cannot save themselves from death, Ps 49:10. (3.) They cannot secure to themselves a happiness in this world, Ps 49:11,12. Much less, (4.) Can they secure to themselves a happiness in the other world, Ps 49:14. 2. He endeavours to comfort himself and other good people, (1.) Against the fear of death, Ps 49:15. (2.) Against the fear of the prospering power of wicked people, Ps 49:16-20. In singing this psalm let us receive these instructions, and be wise.

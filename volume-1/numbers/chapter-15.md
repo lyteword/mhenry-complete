@@ -1,3 +1,7 @@
+---
+weight: 15
+---
+
 # Chapter 15
 
 This chapter, which is mostly concerning sacrifice and offering, comes in between the story of two rebellions (one Nu 14:1-45 the other Nu 16:1-50), to signify that these legal institutions were typical of the gifts which Christ was to receive even for the rebellious, Ps 68:18. In the foregoing chapter, upon Israel's provocation, God had determined to destroy them, and in token of his wrath had sentenced them to perish in the wilderness. But, upon Moses' intercession, he said, "I have pardoned;" and, in token of that mercy, in this chapter he repeats and explains some of the laws concerning offerings, to show that he was reconciled to them, notwithstanding the severe dispensation they were under, and would not unchurch them. Here is, I. The law concerning the meat-offerings and drink-offerings (Nu 15:1-12) both for Israelites and for strangers (Nu 15:13-16), and a law concerning the heave-offerings of the first of their dough, Nu 15:17-21. II. The law concerning sacrifices for sins of ignorance, Nu 15:22-29. III. The punishment of presumptuous sins (Nu 15:30,31), and an instance given in the sabbath-breaker, Nu 15:32-36. IV. A law concerning fringes, for memorandums, upon the borders of their garments, Nu 15:37-41, etc.

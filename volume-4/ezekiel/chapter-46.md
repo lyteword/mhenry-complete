@@ -1,3 +1,7 @@
+---
+weight: 46
+---
+
 # Chapter 46
 
 In this chapter we have, I. Some further rules given both to the priests and to the people, relating to their worship, Eze 46:1-15. II. A law concerning the prince's disposal of his inheritance, Eze 46:16-18. III. A description of the places provided for the boiling of the sacrifices and the baking of the meat-offerings, Eze 46:19-24.

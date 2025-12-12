@@ -1,3 +1,7 @@
+---
+weight: 10
+---
+
 # Chapter 10
 
 Job owns here that he was full of confusion (Job 10:15), and as he was so was his discourse: he knew not what to say, and perhaps sometimes scarcely knew what he said. In this chapter, I. He complains of the hardships he was under (Job 10:1-7), and then comforts himself with this, that he was in the hand of the God that made him, and pleads that, Job 10:8-13. II. He complains again of the severity of God's dealings with him (Job 10:14-17), and then comforts himself with this, that death would put an end to his troubles, Job 10:18-22.

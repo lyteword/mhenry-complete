@@ -1,3 +1,7 @@
+---
+weight: 24
+---
+
 # Chapter 24
 
 Job having by his complaints in the foregoing chapter given vent to his passion, and thereby gained some ease, breaks them off abruptly, and now applies himself to a further discussion of the doctrinal controversy between him and his friends concerning the prosperity of wicked people. That many live at ease who yet are ungodly and profane, and despise all the exercises of devotion, he had shown, Job 21:1-34 Now here he goes further, and shows that many who are mischievous to mankind, and live in open defiance to all the laws of justice and common honesty, yet thrive and succeed in their unrighteous practices; and we do not see them reckoned with in this world. What he had said before (Job 12:6), "The tabernacles of robbers prosper," he here enlarges upon. He lays down his general proposition (Job 24:1), that the punishment of wicked people is not so visible and apparent as his friends supposed, and then proves it by an induction of particulars. I. Those that openly do wrong to their poor neighbours are not reckoned with, nor the injured righted (Job 24:2-12), though the former are very barbarous, Job 24:21,22. II. Those that secretly practise mischief often go undiscovered and unpunished, Job 24:13-17. III. That God punished such by secret judgments and reserves them for future judgments (Job 24:18-20,23-25), so that, upon the whole matter, we cannot say that all who are in trouble are wicked; for it is certain that all who are in prosperity are not righteous.

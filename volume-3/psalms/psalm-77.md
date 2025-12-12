@@ -1,3 +1,7 @@
+---
+weight: 77
+---
+
 # Psalm 77
 
 This psalm, according to the method of many other psalms, begins with sorrowful complaints but ends with comfortable encouragements. The complaints seem to be of personal grievances, but the encouragements relate to the public concerns of the church, so that it is not certain whether it was penned upon a personal or a public account. If they were private troubles that he was groaning under, it teaches us that what God has wrought for his church in general may be improved for the comfort of particular believers; if it was some public calamity that he is here lamenting, his speaking of it so feelingly, as if it had been some particular trouble of his own, shows how much we should lay to heart the interests of the church of God and make them ours. One of the rabbin says, This psalm is spoken in the dialect of the captives; and therefore some think it was penned in the captivity in Babylon. I. The psalmist complains here of the deep impressions which his troubles made upon his spirits, and the temptation he was in to despair of relief, Ps 77:1-10. II. He encourages himself to hope that it would be well at last, by the remembrance of God's former appearances for the help of his people, of which he gives several instances, Ps 77:11-20. In singing this psalm we must take shame to ourselves for all our sinful distrusts of God, and of his providence and promise, and give to him the glory of his power and goodness by a thankful commemoration of what he has done for us formerly and a cheerful dependence on him for the future.

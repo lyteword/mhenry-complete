@@ -1,3 +1,7 @@
+---
+weight: 58
+---
+
 # Psalm 58
 
 It is the probable conjecture of some (Amyraldus particularly) that before Saul began to persecute David by force of arms, and raised the militia to seize him, he formed a process against him by course of law, upon which he was condemned unheard, and attainted as a traitor, by the great council, or supreme court of judicature, and then proclaimed "qui caput gerit lupinum—an outlawed wolf," whom any man might kill and no man might protect. The elders, in order to curry favour with Saul, having passed this bill of attainder, it is supposed that David penned this psalm on the occasion. I. He describes their sin, and aggravates that, Ps 58:1-5. II. He imprecates and foretels their ruin, and the judgments which the righteous God would bring upon them for their injustice (Ps 58:6-9) which would redound, 1. To the comfort of the saints, Ps 58:10. 2. To the glory of God, Ps 58:11. Sin appears here both exceedingly sinful and exceedingly dangerous, and God a just avenger of wrong, with which we should be affected in singing this psalm.

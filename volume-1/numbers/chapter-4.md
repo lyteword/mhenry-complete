@@ -1,3 +1,7 @@
+---
+weight: 4
+---
+
 # Chapter 4
 
 In the former chapter an account was taken of the whole tribe of Levi, in this we have an account of those of that tribe who were in the prime of their time for service, betwixt thirty and fifty years old. I. The serviceable men of the Kohathites are ordered to be numbered, and their charges are given them, Nu 4:2-20. II. Of the Gershonites, Nu 4:24-28. III. Of the Merarites, Nu 4:29-33. IV. The numbers of each, and the sum total at last, are recorded, Nu 4:34-49, etc.

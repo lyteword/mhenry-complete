@@ -1,3 +1,7 @@
+---
+weight: 14
+---
+
 # Chapter 14
 
 We have four things in the story of this chapter. I. A war with the king of Sodom and his allies, Ge 14:1-11. II. The captivity of Lot in that war, Ge 14:12. III. Abram's rescue of Lot from that captivity, with the victory he obtained over the conquerors, Ge 14:13-16. IV. Abram's return from the expedition, (Ge 14:17), with an account of what passed, 1. Between him and the king of Salem, Ge 14:18-20. 2. Between him and the king of Sodom, Ge 14:21-24. So that here we have that promise to Abram in part fulfilled, that God would make his name great.

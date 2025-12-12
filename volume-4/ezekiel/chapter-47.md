@@ -1,3 +1,7 @@
+---
+weight: 47
+---
+
 # Chapter 47
 
 In this chapter we have, I. The vision of the holy waters, their rise, extent, depth, and healing virtue, the plenty of fish in them, and an account of the trees growing on the banks of them, Eze 47:1-12. II. An appointment of the borders of the land of Canaan, which was to be divided by lot to the tribes of Israel and the strangers that sojourned among them, Eze 47:13-23.

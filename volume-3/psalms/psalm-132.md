@@ -1,3 +1,7 @@
+---
+weight: 132
+---
+
 # Psalm 132
 
 It is probable that this psalm was penned by Solomon, to be sung at the dedication of the temple which he built according to the charge his father gave him, 1Ch 28:2-21, etc. Having fulfilled his trust, he begs of God to own what he had done. I. He had built this house for the honour and service of God; and when he brings the ark into it, the token of God's presence, he desires that God himself would come and take possession of it, Ps 132:8-10. With these words Solomon concluded his prayer, 2Ch 6:41,42. II. He had built it in pursuance of the orders he had received from his father, and therefore his pleas to enforce these petitions refer to David. 1. He pleads David's piety towards God, Ps 132:1-7. 2. He pleads God's promise to David, Ps 132:11-18. The former introduces his petition: the latter follows it as an answer to it. In singing this psalm we must have a concern for the gospel church as the temple of God, and a dependence upon Christ as David our King, in whom the mercies of God are sure mercies.

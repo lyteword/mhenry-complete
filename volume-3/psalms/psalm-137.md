@@ -1,3 +1,7 @@
+---
+weight: 137
+---
+
 # Psalm 137
 
 There are divers psalms which are thought to have been penned in the latter days of the Jewish church, when prophecy was near expiring and the canon of the Old Testament ready to be closed up, but none of them appears so plainly to be of a late date as this, which was penned when the people of God were captives in Babylon, and there insulted over by these proud oppressors; probably it was towards the latter end of their captivity; for now they saw the destruction of Babylon hastening on apace (Ps 137:8), which would be their discharge. It is a mournful psalm, a lamentation; and the Septuagint makes it one of the lamentations of Jeremiah, naming him for the author of it. Here I. The melancholy captives cannot enjoy themselves, Ps 137:1,2. II. They cannot humour their proud oppressors, Ps 137:3,4. III. They cannot forget Jerusalem, Ps 137:5,6. IV. They cannot forgive Edom and Babylon, Ps 137:7-9. In singing this psalm we must be much affected with the concernments of the church, especially that part of it that is in affliction, laying the sorrows of God's people near our hearts, comforting ourselves in the prospect of the deliverance of the church and the ruin of its enemies, in due time, but carefully avoiding all personal animosities, and not mixing the leaven of malice with our sacrifices.

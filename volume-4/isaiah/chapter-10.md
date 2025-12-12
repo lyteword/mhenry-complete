@@ -1,3 +1,7 @@
+---
+weight: 10
+---
+
 # Chapter 10
 
 The prophet, in this chapter, is dealing, I. With the proud oppressors of his people at home, that abused their power, to pervert justice, whom he would reckon with for their tyranny, Isa 10:1-4. II. With a threatening invader of his people from abroad, Sennacherib king of Assyria, concerning whom observe, 1. The commission given him to invade Judah, Isa 10:5,6. 2. His pride and insolence in the execution of that commission, Isa 10:7-11,13,14. 3. A rebuke given to his haughtiness, and a threatening of his fall and ruin, when he had served the purposes for which God raised him up, Isa 10:12,15-19. 4. A promise of grace to the people of God, to enable them to bear up under the affliction, and to get good by it, Isa 10:20-23. 5. Great encouragement given to them not to fear this threatening storm, but to hope that, though for the present all the country was put into a great consternation by it, yet it would end well, in the destruction of this formidable enemy, Isa 10:24-34. And this is intended to quiet the minds of good people in reference to all the threatening efforts of the wrath of the church's enemies. If God be for us, who can be against us? None to do us any harm.

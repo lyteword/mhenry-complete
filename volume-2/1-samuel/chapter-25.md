@@ -1,3 +1,7 @@
+---
+weight: 25
+---
+
 # Chapter 25
 
 We have here some intermission of David's troubles by Saul. Providence favoured him with a breathing time, and yet this chapter gives us instances of the troubles of David. If one vexation seems to be over, we must not be secure; a storm may arise from some other point, as here to David. I. Tidings of the death of Samuel could not but trouble him, 1Sa 25:1. But, II. The abuse he received from Nabal is more largely recorded in this chapter. 1. The character of Nabal, 1Sa 25:2,3. 2. The humble request sent to him, 1Sa 25:4-9. 3. His churlish answer, 1Sa 25:10-12. 4. David's angry resentment of it, 1Sa 25:13,21,22. 5. Abigail's prudent care to prevent the mischief it was likely to bring upon her family, 1Sa 25:14-20. 6. Her address to David to pacify him, 1Sa 25:23-31. 7. David's favourable reception of her, 1Sa 25:32-35. 8. The death of Nabal, 1Sa 25:36-38. 9. Abigail's marriage to David, 1Sa 25:39-44.

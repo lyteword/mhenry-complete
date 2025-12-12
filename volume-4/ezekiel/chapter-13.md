@@ -1,3 +1,7 @@
+---
+weight: 13
+---
+
 # Chapter 13
 
 Mention had been made, in the chapter before, of the vain visions and flattering divinations with which the people of Israel suffered themselves to be imposed upon (Eze 13:24); now this whole chapter is levelled against them. God's faithful prophets are nowhere so sharp upon any sort of sinners as upon the false prophets, not because they were the most spiteful enemies to them, but because they put the highest affront upon God and did the greatest mischief to his people. The prophet here shows the sin and punishment, I. Of the false prophets, Eze 13:1-16. II. Of the false prophetesses, Eze 13:17-23. Both agreed to sooth men up in their sins, and, under pretence of comforting God's people, to flatter them with hopes that they should yet have peace; but the prophets shall be proved liars, their prophecies mere shams, and the expectations of the people illusions; for God will let them know that "the deceived and the deceiver are his," are both accountable to him, Job 12:16.

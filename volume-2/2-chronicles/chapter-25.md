@@ -1,3 +1,7 @@
+---
+weight: 25
+---
+
 # Chapter 25
 
 Amaziah's reign, recorded in this chapter, was not one of the worse and yet for from good. Most of the passages in this chapter we had before more briefly related, 2Ki 14:1-22 Here we find Amaziah, I. A just revenger of his father's death, 2Ch 25:1-4. II. An obedient observer of the command of God, 2Ch 25:5-10. III. A cruel conqueror of the Edomites, 2Ch 25:11-13. IV. A foolish worshipper of the gods of Edom and impatient of reproof for it, 2Ch 25:14-16. V. Rashly challenging the king of Israel, and smarting for his rashness, 2Ch 25:17-24. And, lastly, ending his days ingloriously, 2Ch 25:25-28.

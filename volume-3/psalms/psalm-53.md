@@ -1,3 +1,7 @@
+---
+weight: 53
+---
+
 # Psalm 53
 
 God speaks once, yea, twice, and it were well if man would even then perceive it; God, in this psalm, speaks twice, for this is the same almost verbatim with the fourteenth psalm. The scope of it is to convince us of our sins, to set us a blushing and trembling because of them; and this is what we are with so much difficulty brought to that there is need of line upon line to this purport. The word, as a convincing word, is compared to a hammer, the strokes whereof must be frequently repeated. God, by the psalmist here, I. Shows us how bad we are, Ps 53:1. II. Proves it upon us by his own certain knowledge, Ps 53:2,3. III. He speaks terror to persecutors, the worst of sinners, Ps 53:4,5. IV. He speaks encouragement to God's persecuted people, Ps 53:6. Some little variation there is between Ps 14:1-7,53:1-6, but none considerable, only between Ps 14:5,6,53:5, there, and Ps 14:5,6,53:5 here; some expressions there used are here left out, concerning the shame which the wicked put upon God's people, and instead of that, is here foretold the shame which God would put upon the wicked, which alteration, with some others, he made by divine direction when he delivered it the second time to the chief musician. In singing it we ought to lament the corruption of the human nature, and the wretched degeneracy of the world we live in, yet rejoicing in hope of the great salvation.

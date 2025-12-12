@@ -1,3 +1,7 @@
+---
+weight: 16
+---
+
 # Chapter 16
 
 Hagar is the person mostly concerned in the story of this chapter, an obscure Egyptian woman, whose name and story we never should have heard of if Providence had not brought her into the family of Abram. Probably she was one of those maid-servants whom the king of Egypt, among other gifts, bestowed upon Abram, Ge 14:16. Concerning her, we have four things in this chapter:—I. Her marriage to Abram her master, Ge 16:1-3. II. Her misbehaviour towards Sarai her mistress, Ge 16:4-6. III. Her discourse with an angel that met her in her flight, Ge 16:7-14. IV. Her delivery of a son, Ge 16:15,16.

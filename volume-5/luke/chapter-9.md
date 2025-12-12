@@ -1,3 +1,7 @@
+---
+weight: 9
+---
+
 # Chapter 9
 
 In this chapter we have, I. The commission Christ gave to his twelve apostles to go out for some time to preach the gospel, and confirm it by miracles, Lu 9:1-6. II. Herod's terror at the growing greatness of our Lord Jesus, Lu 9:7-9. III. The apostles' return to Christ, his retirement with them into a place of solitude, the great resort of people to them notwithstanding, and his feeding five thousand men with five loaves and two fishes, Lu 9:10-17. IV. His discourse with his disciples concerning himself and his own sufferings for them, and their for him, Lu 9:18-27. V. Christ's transfiguration, Lu 9:28-36. VI. The cure of a lunatic child, Lu 9:37-42. VII. The repeated notice Christ gave his disciples of his approaching sufferings, Lu 9:43-45. VIII. His check to the ambition of his disciples (Lu 9:46-48), and to their monopolizing the power over devils to themselves, Lu 9:49,50. IX. The rebuke he gave them for an over-due resentment of an affront given him by a village of the Samaritans, Lu 9:51-56. X. The answers he gave to several that were inclined to follow him, but not considerately, or not zealously and heartily, so inclined, Lu 9:57-62.

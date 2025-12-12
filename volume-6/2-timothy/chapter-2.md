@@ -1,3 +1,7 @@
+---
+weight: 2
+---
+
 # Chapter 2
 
 In this chapter our apostle gives Timothy many exhortations and directions, which may be of great use to other, both ministers and Christians, for whom they were designed as well as for him. I. He encourages him in his work, showing him whence he must fetch help, 2Ti 2:1. II. He must take care of a succession in the ministry, that the office might not die with him, 2Ti 2:2. III. He exhorts him to constancy and perseverance in this work, as a soldier and as a husbandman, considering what would be the end of all his sufferings, etc., 2Ti 2:3-15. IV. He must shun profane and vain babblings (2Ti 2:16-18), for they will be pernicious and mischievous. V. He speaks of the foundation of God, which standeth sure, 2Ti 2:19-21. VI. What he is to avoid—youthful lusts, and foolish and unlearned questions; and what to do, 2Ti 2:22-26.

@@ -1,3 +1,7 @@
+---
+weight: 9
+---
+
 # Chapter 9
 
 In this chapter we have, I. The answer which God, in a vision, gave to Solomon's prayer, and the terms he settled with him, 1Ki 9:1-9. II. The interchanging of grateful kindnesses between Solomon and Hiram, 1Ki 9:10-14. III. His workmen and buildings, 1Ki 9:15-24. IV. His devotion, 1Ki 9:25. V. His trading navy, 1Ki 9:26-28.

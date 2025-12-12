@@ -1,3 +1,7 @@
+---
+weight: 35
+---
+
 # Chapter 35
 
 It was promised, in the foregoing chapter, that when the time to favour Zion, yea, the set time, should come, especially the time for sending the Messiah and setting up his kingdom in the world, God would cause the enemies of his church to cease and the blessings and comforts of the church to abound. This chapter enlarges upon the former promise, concerning the destruction of the enemies of the church; the next chapter upon the latter promise, the replenishing of the church with blessings. Mount Seir (that is, Edom) is the enemy prophesied against in this chapter, but fitly put here, as in the prophecy of Obadiah, for all the enemies of the church; for, as those all walked in the way of Cain that hated Abel, so those all walked in the way of Esau who hated Jacob, but over whom Jacob, by virtue of a particular blessing, was to have dominion. Now here we have, I. The sin charged upon the Edomites, and that was their spite and malice to Israel, Eze 35:5,10-13. II. The ruin threatened, that should come upon them for this sin. God will be against them (Eze 35:3) and then their country shall be laid waste (Eze 35:4), depopulated, and made quite desolate (Eze 35:6-9), and left so when other nations that had been wasted should recover themselves, Eze 35:14,15.

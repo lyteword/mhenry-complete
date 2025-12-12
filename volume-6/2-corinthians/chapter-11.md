@@ -1,3 +1,7 @@
+---
+weight: 11
+---
+
 # Chapter 11
 
 In this chapter the apostle goes on with his discourse, in opposition to the false apostles, who were very industrious to lessen his interest and reputation among the Corinthians, and had prevailed too much by their insinuations. I. He apologizes for going about to commend himself, and gives the reason for what he did, 2Co 11:1-4. II. He mentions, in his own necessary vindication, his equality with the other apostles, and with the false apostles in this particular of preaching the gospel to the Corinthians freely, without wages, 2Co 11:5-15. III. He makes another preface to what he was about further to say in his own justification, 2Co 11:16-21. And, IV. He gives a large account of his qualifications, labours, and sufferings, in which he exceeded the false apostles, 2Co 11:22-33.

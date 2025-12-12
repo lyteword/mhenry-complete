@@ -1,3 +1,7 @@
+---
+weight: 138
+---
+
 # Psalm 138
 
 It does not appear, nor is it material to enquire, upon what occasion David penned this psalm; but in it, I. He looks back with thankfulness upon the experiences he had had of God's goodness to him, Ps 138:1-3. II. He looks forward with comfort, in hopes, 1. That others would go on to praise God like him, Ps 138:4,5. 2. That God would go on to do good to him, Ps 138:6-8. In singing this psalm we must in like manner devote ourselves to God's praise and glory and repose ourselves in his power and goodness.

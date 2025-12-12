@@ -1,3 +1,7 @@
+---
+weight: 37
+---
+
 # Chapter 37
 
 At this chapter begins the story of Joseph, who, in every subsequent chapter but one to the end of this book, makes the greatest figure. He was Jacob's eldest son by his beloved wife Rachel, born, as many eminent men were, of a mother that had been long barren. His story is so remarkably divided between his humiliation and his exaltation that we cannot avoid seeing something of Christ in it, who was first humbled and then exalted, and, in many instances, so as to answer the type of Joseph. It also shows the lot of Christians, who must through many tribulations enter into the kingdom. In this chapter we have, I. The malice his brethren bore against him. They hated him, 1. Because he informed his father of their wickedness, Ge 37:1,2. 2. Because his father loved him, Ge 37:3,4. 3. Because he dreamed of his dominion over them, Ge 37:5-11. II. The mischiefs his brethren designed and did to him. 1. The kind visit he made them gave an opportunity, Ge 37:12-17. 2. They designed to slay him, but determined to starve him, Ge 37:18-24. 3. They changed their purpose, and sold him for a slave, Ge 37:25-28. 4. They made their father believe that he was torn in pieces, Ge 37:29-35. 5. He was sold into Egypt to Potiphar, Ge 37:36. And all this was working together for good.

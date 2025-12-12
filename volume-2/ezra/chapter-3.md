@@ -1,3 +1,7 @@
+---
+weight: 3
+---
+
 # Chapter 3
 
 In the close of the foregoing chapter we left Israel in their cities, but we may well imagine what a bad posture their affairs were in, the ground untilled, the cities in ruins, all out of order; but here we have an account of the early care they took about the re-establishment of religion among them. Thus did they lay the foundation well, and begin their work at the right end. I. They set up an altar, and offered sacrifices upon it, kept the feasts, and contributed towards the rebuilding of the temple, Ezr 3:1-7. II. They laid the foundation of the temple with a mixture of joy and sorrow, Ezr 3:8-13. This was the day of small things, which was not to be despised, Zec 4:10.

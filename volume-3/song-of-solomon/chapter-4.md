@@ -1,3 +1,7 @@
+---
+weight: 4
+---
+
 # Chapter 4
 
 In this chapter, I. Jesus Christ, having espoused his church to himself (So 3:11), highly commends her beauty in the several expressions of it, concluding her fair, all fair, So 4:1-5 and again, So 4:7. II. He retires himself, and invites her with him, from the mountains of terror to those of delight, So 4:6,8. III. He professes his love to her and his delight in her affection to him, So 4:9-14. IV. She ascribes all she had that was valuable in her to him, and depends upon the continued influence of his grace to make her more and more acceptable to him, So 4:15,16.

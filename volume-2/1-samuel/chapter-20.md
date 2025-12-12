@@ -1,3 +1,7 @@
+---
+weight: 20
+---
+
 # Chapter 20
 
 David, having several times narrowly escaped Saul's fury, begins to consider at last whether it may not be necessary for him to retire into the country and to take up arms in his own defence. But he will not do so daring a thing without consulting his faithful friend Jonathan; how he did this, and what passed between them, we have an account in this chapter, where we have as surprising instances of supernatural love as we had in the chapter before of unnatural hatred. I. David complains to Jonathan of his present distress, and engages him to be his friend, 1Sa 20:1-8. II. Jonathan faithfully promises to get and give him intelligence how his father stood affected to him, and renews the covenant of friendship with him, 1Sa 20:9-23. III. Jonathan, upon trial, finds, to his grief, that his father was implacably enraged against David, 1Sa 20:24-34. IV. He gives David notice of this, according to the appointment between them, 1Sa 20:35-42.

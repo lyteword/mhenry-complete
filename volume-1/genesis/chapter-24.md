@@ -1,3 +1,7 @@
+---
+weight: 24
+---
+
 # Chapter 24
 
 Marriages and funerals are the changes of families, and the common news among the inhabitants of the villages. In the foregoing chapter we had Abraham burying his wife, here we have him marrying his son. These stories concerning his family, with their minute circumstances, are largely related, while the histories of the kingdoms of the world then in being, with their revolutions, are buried in silence; for the Lord knows those that are his. The subjoining of Isaac's marriage to Sarah's funeral (with a particular reference to it, Ge 24:67) shows us that as "one generation passes away another generation comes;" and thus the entail both of the human nature, and of the covenant, is preserved. Here is, I. Abraham's care about the marrying of his son, and the charge he gave to his servant about it, Ge 24:1-9. II. His servant's journey into Abraham's country, to seek a wife for his young master among his own relations, Ge 24:10-14. III. The kind providence which brought him acquainted with Rebekah, whose father was Isaac's cousin-german, Ge 24:15-28. IV. The treaty of marriage with her relations, Ge 24:29-49. V. Their consent obtained, Ge 24:50-60. VI. The happy meeting and marriage between Isaac and Rebekah, Ge 24:61-67, etc.).

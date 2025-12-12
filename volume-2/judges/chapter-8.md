@@ -1,3 +1,7 @@
+---
+weight: 8
+---
+
 # Chapter 8
 
 This chapter gives us a further account of Gideon's victory over the Midianites, with the residue of the story of his life and government. I. Gideon prudently pacifies the offended Ephraimites, Jdg 8:1-3. II. He bravely pursues the flying Midianites, Jdg 8:4,10-12. III. He justly chastises the insolence of the men of Succoth and Penuel, who basely abused him (Jdg 8:5-9), and were reckoned with for it, Jdg 8:13-17. IV. He honourably slays the two kings of Midian, Jdg 8:18-21. V. After all this he modestly declines the government of Israel, Jdg 8:22,23. VI. He foolishly gratified the superstitious humour of his people by setting up an ephod in his own city, which proved a great snare, Jdg 8:24-27. VII. He kept the country quiet for forty years, Jdg 8:28. VIII. He died in honour, and left a numerous family behind him, Jdg 8:29-32. IX. Both he and his God were soon forgotten by ungrateful Israel, Jdg 8:33-35.

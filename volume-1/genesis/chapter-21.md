@@ -1,3 +1,7 @@
+---
+weight: 21
+---
+
 # Chapter 21
 
 In this chapter we have, I. Isaac, the child of promise born into Abraham's family, Ge 21:1-8. II. Ishmael, the son of the bondwoman, cast out of it, Ge 21:9-21. III. Abraham's league with his neighbour Abimelech, Ge 21:23-32. IV. His devotion to his God, Ge 21:33.

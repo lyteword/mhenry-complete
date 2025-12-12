@@ -1,3 +1,7 @@
+---
+weight: 10
+---
+
 # Chapter 10
 
 Moses having, in the foregoing chapter, reminded them of their own sin, as a reason why they should not depend upon their own righteousness, in this chapter he sets before them God's great mercy to them, notwithstanding their provocations, as a reason why they should be more obedient for the future. I. He mentions divers tokens of God's favour and reconciliation to them, never to be forgotten. (1.) The renewing of the tables of the covenant, De 10:1-5. (2.) Giving orders for their progress towards Canaan, De 10:6,7. (3.) Choosing the tribe of Levi for his own, De 10:8,9. (4.) And continuing the priesthood after the death of Aaron, De 10:6. (5.) Owning and accepting the intercession of Moses for them, De 10:10,11. II. Hence he infers what obligations they lay under to fear, and love, and serve God, which he presses upon them with many motives, De 10:12-22, etc.

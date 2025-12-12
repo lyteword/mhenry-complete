@@ -1,3 +1,7 @@
+---
+weight: 14
+---
+
 # Chapter 14
 
 The kingdom being divided into that of Judah and that of Israel, we must henceforward, in these books of Kings, expect and attend their separate history, the succession of their kings, and the affairs of their kingdoms, accounted for distinctly. In this chapter we have, I. The prophecy of the destruction of Jeroboam's house, 1Ki 14:7-16. The sickness of his child was the occasion of it (1Ki 14:1-6), and the death of his child the earnest of it (1Ki 14:17,18), together with the conclusion of his reign, 1Ki 14:19,20. II. The history of the declension and diminution of Rehoboam's house and kingdom (1Ki 14:21-28) and the conclusion of his reign, 1Ki 14:29-31. In both we may read the mischievous consequences of sin and the calamities it brings on kingdoms and families.

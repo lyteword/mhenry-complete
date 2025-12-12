@@ -1,3 +1,7 @@
+---
+weight: 10
+---
+
 # Chapter 10
 
 The prophet had observed to us (Eze 8:4) that when he was in vision at Jerusalem he saw the same appearance of the glory of God there that he had seen by the river Chebar; now, in this chapter, he gives us some account of the appearance there, as far as was requisite for the clearing up of two further indications of the approaching destruction of Jerusalem, which God here gave the prophet:—I. The scattering of the coals of fire upon the city, which were taken from between the cherubim, Eze 10:1-7. II. The removal of the glory of God from the temple, and its being upon the wing to be gone, Eze 10:8-22. When God goes out from a people all judgments break in upon them.

@@ -1,3 +1,7 @@
+---
+weight: 147
+---
+
 # Psalm 147
 
 This is another psalm of praise. Some think it was penned after the return of the Jews from their captivity; but it is so much of a piece with Ps 145:1-21 that I rather think it was penned by David, and what is said (Ps 147:2,13) may well enough be applied to the first building and fortifying of Jerusalem in his time, and the gathering in of those that had been out-casts in Saul's time. The Septuagint divides it into two; and we may divide it into the first and second part, but both of the same import. I. We are called upon to praise God, Ps 147:1,7,12. II. We are furnished with matter for praise, for God is to be glorified, 1. As the God of nature, and so he is very great, Ps 147:4,5,8,9,15-18. 2. As the God of grace, comforting his people, Ps 147:3,6,10,11. 3. As the God of Israel, Jerusalem, and Zion, settling their civil state (Ps 147:2,13,14), and especially settling religion among them, Ps 147:19,20. It is easy, in singing this psalm, to apply it to ourselves, both as to personal and national mercies, were it but as easy to do so with suitable affections.

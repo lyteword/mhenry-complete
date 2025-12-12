@@ -1,3 +1,7 @@
+---
+weight: 2
+---
+
 # Chapter 2
 
 The apostle, in this chapter, continues the relation of his past life and conduct, which he had begun in the former; and, by some further instances of what had passed between him and the other apostles, makes it appear that he was not beholden to them either for his knowledge of the gospel or his authority as an apostle, as his adversaries would insinuate; but, on the contrary, that he was owned and approved even by them, as having an equal commission with them to this office. I. He particularly informs them of another journey which he took to Jerusalem many years after the former, and how he behaved himself at that time, Ga 2:1-10. And, II. Gives them an account of another interview he had with the apostle Peter at Antioch, and how he was obliged to behave himself towards him there. From the subject-matter of that conversation, he proceeds to discourse on the great doctrine of justification by faith in Christ, without the works of the law, which it was the main design of this epistle to establish, and which he enlarges more upon in the two following chapters.

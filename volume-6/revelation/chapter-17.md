@@ -1,3 +1,7 @@
+---
+weight: 17
+---
+
 # Chapter 17
 
 This chapter contains another representation of those things that had been revealed before concerning the wickedness and ruin of antichrist. This antichrist had been before represented as a beast, and is now described as a great whore. And here, I. The apostle is invited to see this vile woman, Re 17:1,2. II. He tells us what an appearance she made, Re 17:3-6. III. The mystery of it is explained to him, Re 17:7-12. And, IV. Her ruin foretold, Re 17:13-18, etc.

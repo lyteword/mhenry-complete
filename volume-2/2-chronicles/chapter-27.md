@@ -1,3 +1,7 @@
+---
+weight: 27
+---
+
 # Chapter 27
 
 Here is a very short account of the reign of Jotham, a pious prosperous prince, of whom one would wish to have known more: but we may better dispense with the brevity of his story because that which lengthened the history of the last three kings was their degeneracy in their latter end, of which we have had a faithful account; but there was no occasion for such a melancholy conclusion of the history of this reign, which is only an account, I. Of the date and continuance of this reign, 2Ch 27:1,8. II. The general good character of it, 2Ch 27:2,6. III. The prosperity of it, 2Ch 27:3-5. IV. The period of it, 2Ch 27:7,9.

@@ -1,3 +1,7 @@
+---
+weight: 1
+---
+
 # Chapter 1
 
 This book is wholly concerning Edom, a nation nearly allied and near adjoining to Israel, and yet an enemy to the seed of Jacob, inheriting the enmity of their father Esau to Jacob. Now here we have, after the preface, Ob 1:1. I. Threatenings against Edom, 1. That their pride should be humbled, Ob 1:2-4. 2. That their wealth should be plundered, Ob 1:5-7. 3. That their wisdom should be infatuated, Ob 1:8,9. 4. That their spiteful behaviour towards God's Israel should be avenged, Ob 1:10-16. II. Gracious promises to Israel; that they shall be restored and reformed, and shall be victorious over the Edomites, and become masters of their land and the lands of others of their neighbours (Ob 1:17-20), and that the kingdom of the Messiah shall be set up by the bringing in of the great salvation, Ob 1:21.

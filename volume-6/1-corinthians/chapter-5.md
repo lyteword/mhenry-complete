@@ -1,3 +1,7 @@
+---
+weight: 5
+---
+
 # Chapter 5
 
 In this chapter the apostle, I. Blames them for their indulgence in the case of the incestuous person, and orders him to be excommunicated, and delivered to Satan, 1Co 5:1-6. II. He exhorts them to Christian purity, by purging out the old leaven, 1Co 5:7,8. And, III. Directs them to shun even the common conversation of Christians who were guilty of any notorious and flagitious wickedness, 1Co 5:9-13.

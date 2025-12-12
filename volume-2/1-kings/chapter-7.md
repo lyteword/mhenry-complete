@@ -1,3 +1,7 @@
+---
+weight: 7
+---
+
 # Chapter 7
 
 As, in the story of David, one chapter of wars and victories follows another, so, in the story of Solomon, one chapter concerning his buildings follows another. In this chapter we have, I. His fitting up several buildings for himself and his own use, 1Ki 7:1-12. II. His furnishing the temple which he had built for God, 1. With two pillars, 1Ki 7:13-22. 2. With a molten sea, 1Ki 7:23-26. 3. With ten basins of brass (1Ki 7:27-37), and ten layers upon them, 1Ki 7:38,39. 4. With all the other utensils of the temple, 1Ki 7:40-50. 5. With the things that his father had dedicated, 1Ki 7:51. The particular description of these things was not needless when it was written, nor is it now useless.

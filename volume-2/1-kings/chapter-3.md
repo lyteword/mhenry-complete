@@ -1,3 +1,7 @@
+---
+weight: 3
+---
+
 # Chapter 3
 
 Solomon's reign looked bloody in the foregoing chapter, but the necessary acts of justice must not be called cruelty; in this chapter it appears with another face. We must not think the worse of God's mercy to his subjects for his judgments on rebels. We have here, I. Solomon's marriage to Pharaoh's daughter, 1Ki 3:1. II. A general view of his religion, 1Ki 3:2-4. III. A particular account of his prayer to God for wisdom, and the answer to that prayer, 1Ki 3:5-15. IV. A particular instance of his wisdom in deciding the controversy between the two harlots, 1Ki 3:16-28. And very great he looks here, both at the altar and on the bench, and therefore on the bench because at the altar.

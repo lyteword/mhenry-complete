@@ -1,3 +1,7 @@
+---
+weight: 4
+---
+
 # Chapter 4
 
 In this chapter we have another comfortable vision, which, as it was explained to the prophet, had much in it for the encouragement of the people of God in their present straits, which were so great that they thought their case helpless, that their temple could never be rebuilt nor their city replenished; and therefore the scope of the vision is to show that God would, by his own power, perfect the work, though the assistance given to it by its friends were ever so weak, and the resistance given to it by its enemies were ever so strong. Here is, I. The awakening of the prophet to observe the vision, Zec 2:1. II. The vision itself, of a candlestick with seven lamps, which were supplied with oil, and kept burning, immediately from two olive-trees that grew by it, one on either side, Zec 2:2,3. III. The general encouragement hereby intended to be given to the builders of the temple to go on in that good work, assuring them that it should be brought to perfection at last, Zec 2:4-10. IV. The particular explication of the vision, for the illustration of these assurances, Zec 2:11-14.

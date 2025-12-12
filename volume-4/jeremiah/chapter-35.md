@@ -1,3 +1,7 @@
+---
+weight: 35
+---
+
 # Chapter 35
 
 A variety of methods is tried, and every stone turned, to awaken the Jews to a sense of their sin and to bring them to repentance and reformation. The scope and tendency of many of the prophet's sermons was to frighten them out of their disobedience, by setting before them what would be the end thereof if they persisted in it. The scope of this sermon, in this chapter, is to shame them out of their disobedience if they had any sense of honour left in them for a discourse of this nature to fasten upon. I. He sets before them the obedience of the family of the Rechabites to the commands which were left them by Jonadab their ancestor, and how they persevered in that obedience and would not be tempted from it, Jer 35:1-11. II. With this he aggravates the disobedience of the Jews to God and their contempt of his precepts, Jer 35:12-15. III. He foretels the judgments of God upon the Jews for their impious disobedience to God, Jer 35:16,17. IV. He assures the Rechabites of the blessing of God upon them for their pious obedience to their father, Jer 35:18,19.

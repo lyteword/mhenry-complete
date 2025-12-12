@@ -1,3 +1,7 @@
+---
+weight: 41
+---
+
 # Psalm 41
 
 God's kindness and truth have often been the support and comfort of the saints when they have had most experience of man's unkindness and treachery. David here found them so, upon a sick-bed; he found his enemies very barbarous, but his God very gracious. I. He here comforts himself in his communion with God under his sickness, by faith receiving and laying hold of God's promises to him (Ps 41:1-3) and lifting up his heart in prayer to God, Ps 41:4. II. He here represents the malice of his enemies against him, their malicious censures of him, their spiteful reflections upon him, and their insolent conduct towards him, Ps 41:5-9. III. He leaves his case with God, not doubting but that he would own and favour him (Ps 41:10-12), and so the psalm concludes with a doxology, Ps 41:13. Is any afflicted with sickness? let him sing the beginning of this psalm. Is any persecuted by enemies? let him sing the latter end of it; and we may any of us, in singing it, meditate upon both the calamities and comforts of good people in this world.

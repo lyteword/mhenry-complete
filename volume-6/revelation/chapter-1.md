@@ -1,3 +1,7 @@
+---
+weight: 1
+---
+
 # Chapter 1
 
 This chapter is a general preface to the whole book, and contains, I. An inscription, declaring the original and the design of it, Re 1:1,2. II. The apostolic benediction pronounced on all those who shall pay a due regard to the contents of this book, Re 1:3-8. III. A glorious vision or appearance of the Lord Jesus Christ to the apostle John, when he delivered to him this revelation, Re 1:9-20.

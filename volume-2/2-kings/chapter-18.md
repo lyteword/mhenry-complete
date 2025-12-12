@@ -1,3 +1,7 @@
+---
+weight: 18
+---
+
 # Chapter 18
 
 When the prophet had condemned Ephraim for lies and deceit he comforted himself with this, that Judah yet "ruled with God, and was faithful with the Most Holy," Ho 11:12. It was a very melancholy view which the last chapter gave us of the desolations of Israel; but this chapter shows us the affairs of Judah in a good posture at the same time, that it may appear God has not quite cast off the seed of Abraham, Ro 11:1. Hezekiah is here upon the throne, I. Reforming his kingdom, 2Ki 18:1-6. II. Prospering in all his undertakings (2Ki 18:7,8), and this at the same time when the ten tribes were led captive, 2Ki 18:9-12. III. Yet invaded by Sennacherib, the king of Assyria, 2Ki 18:13. 1. His country put under contribution, 2Ki 18:14-16. 2. Jerusalem besieged, 2Ki 18:17. 3. God blasphemed, himself reviled, and his people solicited to revolt, in a virulent speech made by Rabshakeh, 2Ki 18:18-37. But how well it ended, and how much to the honour and comfort of our great reformer, we shall find in the next chapter.

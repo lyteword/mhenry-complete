@@ -1,3 +1,7 @@
+---
+weight: 13
+---
+
 # Chapter 13
 
 We have here the substance of that prophetical sermon which our Lord Jesus preached, pointing at the destruction of Jerusalem, and the consummation of all things; it was one of the last of his sermons, and not *ad populum*—to the people, but *ad clerum*—to the clergy; it was private, preached only to four of his disciples, with whom his secret was. Here is, I. The occasion of his prediction—his disciples' admiring the building of the temple (Mk 13:1,2), and their enquiry concerning the time of the desolation of them, Mk 13:3,4. II. The predictions themselves, 1. Of the rise of deceivers, Mk 13:5,6,21-23. 2. Of the wars of the nations, Mk 13:7,8. 3. Of the persecution of Christians, Mk 13:9-13. 4. Of the destruction of Jerusalem, Mk 13:14-20. 5. Of the end of the world, Mk 13:24-27. III. Some general intimations concerning the time of them, Mk 13:28-32. IV. Some practical inferences from all, Mk 13:33-37.

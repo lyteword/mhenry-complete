@@ -1,3 +1,7 @@
+---
+weight: 22
+---
+
 # Chapter 22
 
 This chapter finishes the history of Ahab's reign. It was promised in the close of the foregoing chapter that the ruin of his house should not come in his days, but his days were soon at an end. His war with the Syrians at Ramoth-Gilead is that which we have an account of in this chapter. I. His preparations for that war. He consulted, 1. His privy-council, 1Ki 22:1-3. 2. Jehoshaphat, 1Ki 22:4. 3. His prophets. (1.) His own, who encouraged him to go on this expedition (1Ki 22:5,6), Zedekiah particularly, 1Ki 22:11,12. (2.) A prophet of the Lord, Micaiah, who was desired to come by Jehoshaphat (1Ki 22:7,8), sent for (1Ki 22:9-14), upbraided Ahab with his confidence in the false prophets (1Ki 22:15), but foretold his fall in this expedition (1Ki 22:16-18), and gave him an account how he came to be thus imposed upon by his prophets, 1Ki 22:19-23. He is abused by Zedekiah (1Ki 22:24,25), and imprisoned by Ahab, 1Ki 22:26-28. II. The battle itself, in which, 1. Jehoshaphat is exposed. But, 2. Ahab is slain, 1Ki 22:29-40. In the close of the chapter we have a short account, (1.) Of the good reign of Jehoshaphat king of Judah, 1Ki 22:41-50. (2.) Of the wicked reign of Ahaziah king of Israel, 1Ki 22:51-53.

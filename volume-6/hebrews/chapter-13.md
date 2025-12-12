@@ -1,3 +1,7 @@
+---
+weight: 13
+---
+
 # Chapter 13
 
 The apostle, having treated largely of Christ, and faith, and free grace, and gospel privileges, and warned the Hebrews against apostasy, now, in the close of all, recommends several excellent duties to them, as the proper fruits of faith (Heb 13:1-17); he then bespeaks their prayers for him, and offers up his prayers to God for them, gives them some hope of seeing himself and Timothy, and ends with the general salutation and benediction, Heb 13:18-25.

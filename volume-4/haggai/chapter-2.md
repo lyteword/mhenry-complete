@@ -1,3 +1,7 @@
+---
+weight: 2
+---
+
 # Chapter 2
 
 In this chapter we have three sermons preached by the prophet Haggai for the encouragement of those that are forward to build the temple. In the first he assures the builders that the glory of the house they were now building should, in spiritual respects, though not in outward, exceed that of Solomon's temple, in which he has an eye to the coming of Christ, Hab 2:1-9. In the second he assures them that though their sin, in delaying to build the temple, had retarded the prosperous progress of all their other affairs, yet now that they had set about it in good earnest he would bless them, and give them success, Hab 2:10-19. In the third he assures Zerubbabel that, as a reward of his pious zeal and activity herein, he should be a favourite of Heaven, and one of the ancestors of Messiah the Prince, whose kingdom should be set up on the ruins of all opposing powers, Hab 2:20-23.

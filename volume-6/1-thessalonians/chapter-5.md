@@ -1,3 +1,7 @@
+---
+weight: 5
+---
+
 # Chapter 5
 
 The apostle, having spoken in the end of the foregoing chapter concerning the resurrection, and the second coming of Christ, proceeds to speak concerning the uselessness of enquiring after the particular time of Christ's coming, which would be sudden and terrible to the wicked, but comfortable to the saints, 1Th 5:1-5. He then exhorts them to the duties of watchfulness, sobriety, and the exercise of faith, love, and hope, as being suitable to their state, 1Th 5:6-10. In the next words he exhorts them to several duties they owed to others, or to one another (1Th 5:11-15), afterwards to several other Christian duties of great importance (1Th 5:16-22), and then concludes this epistle, 1Th 5:23-28.

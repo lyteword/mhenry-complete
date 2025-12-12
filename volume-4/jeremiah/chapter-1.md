@@ -1,3 +1,7 @@
+---
+weight: 1
+---
+
 # Chapter 1
 
 In this chapter we have, I. The general inscription or title of this book, with the time of the continuance of Jeremiah's public ministry, Jer 1:1-3. II. The call of Jeremiah to the prophetic office, his modest objection against it answered, and an ample commission given him for the execution of it, Jer 1:4-10. III. The visions of an almond-rod and a seething-pot, signifying the approaching ruin of Judah and Jerusalem by the Chaldeans, Jer 1:11-16. IV. Encouragement given to the prophet to go on undauntedly in his work, in an assurance of God's presence with him, Jer 1:17-19. Thus is he set to work by one that will be sure to bear him out.

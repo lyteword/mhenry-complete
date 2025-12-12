@@ -1,3 +1,7 @@
+---
+weight: 7
+---
+
 # Psalm 7
 
 It appears by the title that this psalm was penned with a particular reference to the malicious imputations that David was unjustly laid under by some of his enemies. Being thus wronged, I. He applies to God for favour, Ps 7:1,2. II. He appeals to God concerning his innocency as to those things whereof he was accused, Ps 7:3-5. III. He prays to God to plead his cause and judge for him against his persecutors, Ps 7:6-9. IV. He expresses his confidence in God that he would do so, and would return the mischief upon the head of those that designed it against him, Ps 7:10-16. V. He promises to give God the glory of his deliverance, Ps 7:17. In this David was a type of Christ, who was himself, and still is in his members, thus injured, but will certainly be righted at last.

@@ -1,3 +1,7 @@
+---
+weight: 24
+---
+
 # Chapter 24
 
 We have here the history of the reign of Joash, the progress of which, and especially its termination, were not of a piece with its beginning, nor shone with so much lustre. How wonderfully he was preserved for the throne, and placed in it, we read before; now here we are told how he began in the spirit, but ended in the flesh. I. In the beginning of his time, while Jehoiada lived, he did well; particularly, he took care to put the temple in good repair, 2Ch 24:1-14. II. In the latter end of his time, after Jehoiada's death, he apostatized from God, and his apostasy was his ruin. 1. He set up the worship of Baal again (2Ch 24:15-18), though warned to the contrary, 2Ch 24:19. 2. He put Zechariah the prophet to death because he reproved him for what he had done, 2Ch 24:20-22. 3. The judgments of God came upon him for it. The Syrians invaded him, 2Ch 24:23,24. He was struck with sore diseases; his own servants conspired against him and slew him; and, as a mark of infamy upon him, he was not buried in the burying-place of the kings, 2Ch 24:25-27.

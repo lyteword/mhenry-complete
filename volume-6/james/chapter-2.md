@@ -1,3 +1,7 @@
+---
+weight: 2
+---
+
 # Chapter 2
 
 In this chapter the apostle condemns a sinful regarding of the rich, and despising the poor, which he imputes to partiality and injustice, and shows it to be an acting contrary to God, who has chosen the poor, and whose interest is often persecuted, and his name blasphemed, by the rich, Jam 2:1-7. He shows that the whole law is to be fulfilled, and that mercy should be followed, as well as justice, Jam 2:8-13. He exposes the error and folly of those who boast of faith without works, telling us that this is but a dead faith, and such a faith as devils have, not the faith of Abraham, or of Rahab, Jam 2:11-26.

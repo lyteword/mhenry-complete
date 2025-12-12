@@ -1,3 +1,7 @@
+---
+weight: 3
+---
+
 # Chapter 3
 
 I\. The apostle forewarns Timothy what the last days would be, with the reasons thereof, 2Ti 3:1-9. II. Prescribes various remedies against them (2Ti 3:10-17), particularly his own example ("But thou hast fully known my doctrine," etc.) and the knowledge of the holy scriptures, which are able to make us wise unto salvation, and will be the best antidote against the corruptions of the times we live in. In this chapter Paul tells Timothy how bad others would be, and therefore how good he should be; and this use we should make of the badness of others, thereby to engage us to hold our own integrity so much the firmer.

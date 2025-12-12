@@ -1,3 +1,7 @@
+---
+weight: 2
+---
+
 # Chapter 2
 
 How Nehemiah wrestled with God and prevailed we read in the foregoing chapter; now here we are told how, like Jacob, he prevailed with men also, and so found that his prayers were heard and answered. I. He prevailed with the king to send him to Jerusalem with a commission to build a wall about it, and grant him what was necessary for it, Ne 2:1-8. II. He prevailed against the enemies that would have obstructed him in his journey (Ne 2:9-11) and laughed him out of his undertaking, Ne 2:19-20. III. He prevailed upon his own people to join with him in this good work, viewing the desolations of the walls (Ne 2:12-16) and then gaining them to lend every one a hand towards the rebuilding of them, Ne 2:17,18. Thus did God own him in the work to which he called him.

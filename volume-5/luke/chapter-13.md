@@ -1,3 +1,7 @@
+---
+weight: 13
+---
+
 # Chapter 13
 
 In this chapter we have, I. The good improvement Christ made of a piece of news that was brought him concerning some Galileans, that were lately massacred by Pilate, as they were sacrificing in the temple at Jerusalem, Lu 13:1-5. II. The parable of the fruitless fig-tree, by which we are warned to bring forth fruits meet for that repentance to which he had in the foregoing passage called us, Lu 13:6-9. III. Christ's healing a poor infirm woman on the sabbath day, and justifying himself in it, Lu 13:11-17. IV. A repetition of the parables of the grain of mustard-seed and the leaven, Lu 13:18-22. V. His answer to the question concerning the number of the saved, Lu 13:23-30. VI. The slight he put upon Herod's malice and menaces, and the doom of Jerusalem read, Lu 13:31-35.

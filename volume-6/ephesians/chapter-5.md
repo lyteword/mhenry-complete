@@ -1,3 +1,7 @@
+---
+weight: 5
+---
+
 # Chapter 5
 
 We had several important exhortations in the close of the foregoing chapter, and they are continued in this: particularly, I. We have here an exhortation to mutual love and charity, Eph 5:1,2. II. Against all manner of uncleanness, with proper arguments and remedies proposed against such sins: and some further cautions are added, and other duties recommended, Eph 5:3-20. III. The apostle directs to the conscientious discharge of relative duties, Eph 5:21-6:9, throughout this, and in the beginning of the next chapter.

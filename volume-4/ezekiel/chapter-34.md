@@ -1,3 +1,7 @@
+---
+weight: 34
+---
+
 # Chapter 34
 
 The iniquities and calamities of God's Israel had been largely and pathetically lamented before, in this book. Now in this chapter the shepherds of Israel, their rulers both in church and state, are called to an account, as having been very much accessory to the sin and ruin of Israel, by their neglecting to do the duty of their place. Here is, I. A high charge exhibited against them for their negligence, their unskillfulness, and unfaithfulness in the management of public affairs, Eze 34:1-6,8. II. Their discharge from their trust, for their insufficiency and treachery, Eze 34:7-10. III. A gracious promise that God would take care of his flock, though they did not, and that it should not always suffer as it had done by their mal-administrations, Eze 34:11-16. IV. Another charge exhibited against those of the flock that were fat and strong, for the injuries they did to those that were weak and feeble, Eze 34:17-22. V. Another promise that God would in the fulness of time send the Messiah, to be the great and good Shepherd of the sheep, who should redress all grievances and set every thing to rights with the flock, Eze 34:23-31.

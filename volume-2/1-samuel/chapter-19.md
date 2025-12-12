@@ -1,3 +1,7 @@
+---
+weight: 19
+---
+
 # Chapter 19
 
 Immediately after David's marriage, which one would have hoped would secure him Saul's affection, we find his troubles coming upon him faster than ever and Saul's enmity to him the cause of all. His death was vowed, and four fair escapes of his from the hurtful sword of Saul we have an account of in this chapter: the first by the prudent mediation of Jonathan (1Sa 19:1-7), the second by his own quickness (1Sa 19:8-10), the third by Michal's fidelity (1Sa 19:11-17), the fourth by Samuel's protection, and a change, for the present, wrought upon Saul, 1Sa 19:18-24. Thus God has many ways of preserving his people. Providence is never at a loss.

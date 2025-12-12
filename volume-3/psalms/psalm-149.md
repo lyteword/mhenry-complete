@@ -1,3 +1,7 @@
+---
+weight: 149
+---
+
 # Psalm 149
 
 The foregoing psalm was a hymn of praise to the Creator; this is a hymn of praise to the Redeemer. It is a psalm of triumph in the God of Israel, and over the enemies of Israel. Probably it was penned upon occasion of some victory which Israel was blessed and honoured with. Some conjecture that it was penned when David had taken the strong-hold of Zion, and settled his government there. But it looks further, to the kingdom of the Messiah, who, in the chariot of the everlasting gospel, goes forth conquering and to conquer. To him, and his graces and glories, we must have an eye, in singing this psalm, which proclaims, I. Abundance of joy to all the people of God, Ps 149:1-5. II. Abundance of terror to the proudest of their enemies, Ps 149:6-9.

@@ -1,3 +1,7 @@
+---
+weight: 5
+---
+
 # Chapter 5
 
 In this chapter we have, I. A prediction of the troubles and distresses of the Jewish nation, Mic 5:1. II. A promise of the Messiah, and of his kingdom, to support the people of God in the day of these troubles. 1. Of the birth of the Messiah, Mic 5:2,3. 2. Of his advancement, Mic 5:4. 3. Of his protection of his people, and his victory over his and their enemies, Mic 5:5,6. 4. Of the great world by it, Mic 5:7. 5. Of the destruction of the enemies of the church, both those without, that attack it, and those within, that expose it, Mic 5:8-15.

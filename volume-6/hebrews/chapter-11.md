@@ -1,3 +1,7 @@
+---
+weight: 11
+---
+
 # Chapter 11
 
 The apostle having, in the close of the foregoing chapter, recommended the grace of faith and a life of faith as the best preservative against apostasy, he how enlarges upon the nature and fruits of this excellent grace. I. The nature of it, and the honour it reflects upon all who live in the exercise of it, Heb 11:1-3. II. The great examples we have in the Old Testament of those who lived by faith, and died and suffered extraordinary things by the strength of his grace, Heb 11:4-38. And, III. The advantages that we have in the gospel for the exercise of this grace above what those had who lived in the times of the Old Testament, Heb 11:39,40.

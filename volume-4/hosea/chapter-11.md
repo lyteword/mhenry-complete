@@ -1,3 +1,7 @@
+---
+weight: 11
+---
+
 # Chapter 11
 
 In this chapter we have, I. The great goodness of God towards his people Israel, and the great things he had done for them, Ho 11:1,3,4. II. Their ungrateful conduct towards him, notwithstanding his favours towards them, Ho 11:2-4,7,12. III. Threatenings of wrath against them for their ingratitude and treachery, Ho 11:5,6. IV. Mercy remembered in the midst of wrath, Ho 11:8,9. V. Promises of what God would yet do for them, Ho 11:10,11. VI. An honourable character given of Judah, Ho 11:12.

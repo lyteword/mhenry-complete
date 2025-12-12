@@ -1,3 +1,7 @@
+---
+weight: 18
+---
+
 # Chapter 18
 
 Here is, I. A general law against all conformity to the corrupt usages of the heathen, Le 18:1-5. II. Particular laws, 1. Against incest, Le 18:6-18. 2. Against beastly lusts, and barbarous idolatries, Le 18:19-23. III. The enforcement of these laws from the ruin of the Canaanites, Le 18:24-30.

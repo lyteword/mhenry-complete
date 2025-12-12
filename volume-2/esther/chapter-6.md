@@ -1,3 +1,7 @@
+---
+weight: 6
+---
+
 # Chapter 6
 
 It is a very surprising scene that opens in this chapter. Haman, when he hoped to be Mordecai's judge, was made his page, to his great confusion and mortification; and thus way was made for the defeat of Haman's plot and the deliverance of the Jews. I. The providence of God recommends Mordecai in the night to the king's favour, Es 6:1-3. II. Haman, who came to incense the king against him, is employed as an instrument of the king's favour to him, Es 6:4-11. III. From this his friends read him his doom, which is executed in the next chapter, Es 6:12-14. And now it appears that Esther's intercession for her people was happily adjourned, *De die in diem—from day to day.*

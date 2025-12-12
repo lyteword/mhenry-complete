@@ -1,3 +1,7 @@
+---
+weight: 4
+---
+
 # Chapter 4
 
 In this chapter we have, I. A most earnest and pathetic exhortation to obedience, both in general, and in some particular instances, backed with a great variety of very pressing arguments, repeated again and again, and set before them in the most moving and affectionate manner imaginable, De 4:1-40. II. The appointing of the cities of refuge on that side Jordan, De 4:41-43. III. The particular description of the place where Moses delivered the following repetition of the law, De 4:44-49, etc.

@@ -1,3 +1,7 @@
+---
+weight: 20
+---
+
 # Chapter 20
 
 All things being prepared for the solemn promulgation of the divine law, we have, in this chapter, I. The ten commandments, as God himself spoke them upon Mount Sinai (Ex 20:1-17), as remarkable a portion of scripture as any in the Old Testament. II. The impressions made upon the people thereby, Ex 20:18-21. III. Some particular instructions which God gave privately to Moses, to be by him communicated to the people, relating to his worship, Ex 20:22-26, etc.

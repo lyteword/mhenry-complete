@@ -1,3 +1,7 @@
+---
+weight: 8
+---
+
 # Chapter 8
 
 Solomon, in this chapter, comes to recommend wisdom to us as the most powerful antidote against both the temptations and vexations that arise from the vanity of the world. Here is, I. The benefit and praise of wisdom, Ec 8:1. II. Some particular instances of wisdom prescribed to us. 1. We must keep in due subjection to the government God has set over us, Ec 8:2-5. 2. We must get ready for sudden evils, and especially for sudden death, Ec 8:6-8. 3. We must arm ourselves against the temptation of an oppressive government and not think it strange, Ec 8:9,10. The impunity of oppressors makes them more daring (Ec 8:11), but in the issue it will be well with the righteous and ill with the wicked (Ec 8:12,13), and therefore the present prosperity of the wicked and afflictions of the righteous ought not to be a stumbling-block to us, Ec 8:14. 4. We must cheerfully use the gifts of God's providence, Ec 8:15. 5. We must with an entire satisfaction acquiesce in the will of God, and, not pretending to find the bottom, we must humbly and silently adore the depth of his unsearchable counsels, being assured they are all wise, just, and good, Ec 8:16,17.

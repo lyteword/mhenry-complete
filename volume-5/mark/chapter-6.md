@@ -1,3 +1,7 @@
+---
+weight: 6
+---
+
 # Chapter 6
 
 A great variety of observable passages we have, in this chapter, concerning our Lord Jesus, the substance of all which we had before in Matthew, but divers circumstances we have, which we did not there meet with. Here is, I. Christ contemned by his countrymen, because he was one of them, and they knew, or thought they knew, his original, Mk 6:1-6. II. The just power he gave his apostles over unclean spirits, and an account given of their negotiation, Mk 6:7-13. III. A strange notion which Herod and others had of Christ, upon which occasion we have the story of the martyrdom of John Baptist, Mk 6:14-29. IV. Christ's retirement into a desert place with his disciples; the crowds that followed him thither to receive instruction from him; and his feeding five thousand of them with five loaves and two fishes, Mk 6:30-44. V. Christ's walking upon the sea to his disciples, and the abundance of cures he wrought on the other side of the water, Mk 6:45-56.

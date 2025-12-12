@@ -1,3 +1,7 @@
+---
+weight: 42
+---
+
 # Chapter 42
 
 Johanan and the captains being strongly bent upon going into Egypt, either their affections or politics advising them to take that course, they had a great desire that God should direct them to do so too like Balaam, who, when he was determined to go and curse Israel, asked God leave. Here is, I. The fair bargain that was made between Jeremiah and them about consulting God in this matter, Jer 42:1-6. II. The message at large which God sent them, in answer to their enquiry, in which, 1. They are commanded and encouraged to continue in the land of Judah, and assured that if they did so it should be well with them, Jer 42:7-12. 2. They are forbidden to go to Egypt, and are plainly told that if they did it would be their ruin, Jer 42:13-18. 3. They are charged with dissimulation in their asking what God's will was in this matter and disobedience when they were told what it was; and sentence is accordingly passed upon them, Jer 42:19-22.

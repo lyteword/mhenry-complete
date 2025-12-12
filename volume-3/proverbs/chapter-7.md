@@ -1,3 +1,7 @@
+---
+weight: 7
+---
+
 # Chapter 7
 
 The scope of this chapter is, as of several before, to warn young men against the lusts of the flesh. Solomon remembered of what ill consequence it was to his father, perhaps found himself, and perceived his son, addicted to it, or at least had observed how many hopeful young men among his subjects had been ruined by those lusts; and therefore he thought he could never say enough to dissuade men from them, that "every one may possess his vessel in sanctification and honour, and not in the lusts of uncleanness." In this chapter we have, I. A general exhortation to get our minds principled and governed by the world of God, as a sovereign antidote against this sin, Pr 7:1-5. II. A particular representation of the great danger which unwary young men are in of being inveigled into this snare, Pr 7:6-23. III. A serious caution inferred thence, in the close, to take heed of all approaches towards this sin, Pr 7:24-27. We should all pray, "Lord, lead us not into this temptation."

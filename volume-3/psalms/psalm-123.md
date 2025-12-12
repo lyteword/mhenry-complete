@@ -1,3 +1,7 @@
+---
+weight: 123
+---
+
 # Psalm 123
 
 This psalm was penned at a time when the church of God was brought low and trampled upon; some think it was when the Jews were captives in Babylon, though that was not the only time that they were insulted over by the proud. The psalmist begins as if he spoke for himself only (Ps 123:1), but presently speaks in the name of the church. Here is, I. Their expectation of mercy from God, Ps 123:1,2. II. Their plea for mercy with God, Ps 123:3,4. In singing it we must have our eye up to God's favour with a holy concern, and then an eye down to men's reproach with a holy contempt.

@@ -1,3 +1,7 @@
+---
+weight: 19
+---
+
 # Chapter 19
 
 The contents of this chapter we have, 2Pe 2:6-8, where we find that "God, turning the cities of Sodom and Gomorrah into ashes, condemned them with an overthrow, and delivered just Lot." It is the history of Sodom's ruin, and Lot's rescue from that ruin. We read (Ge 18:1-33) of God's coming to take a view of the present state of Sodom, what its wickedness was, and what righteous persons there were in it: now here we have the result of that enquiry. I. It was found, upon trial, that Lot was very good (Ge 19:1-3), and it did not appear that there was any more of the same character. II. It was found that the Sodomites were very wicked and vile, Ge 19:4-11. III. Special care was therefore taken for the securing of Lot and his family, in a place of safety, Ge 19:12-23. IV. Mercy having rejoiced therein, justice shows itself in the ruin of Sodom and the death of Lot's wife (Ge 19:24-26), with a general repetition of the story, Ge 19:27-29. V. A foul sin that Lot was guilty of, in committing incest with his two daughters, Ge 19:30-38, etc.

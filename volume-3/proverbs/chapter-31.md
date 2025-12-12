@@ -1,3 +1,7 @@
+---
+weight: 31
+---
+
 # Chapter 31
 
 This chapter is added to Solomon's proverbs, some think because it is of the same author, supposing king Lemuel to be king Solomon; others only because it is of the same nature, though left in writing by another author, called Lemuel; however it be, it is a prophecy, and therefore given by inspiration and direction of God, which Lemuel was under in the writing of it, and putting it into this form, as his mother was in dictating to him the matter of it. Here is, I. An exhortation to Lemuel, a young prince, to take heed of the sins he would be tempted to and to do the duties of the place he was called to, Pr 31:1-9. II. The description of a virtuous woman, especially in the relation of a wife and the mistress of a family, which Lemuel's mother drew up, not as an encomium of herself, though, no doubt, it was her own true picture, but either as an instruction to her daughters, as the foregoing verses were to her son, or as a direction to her son in the choice of a wife; she must be chaste and modest, diligent and frugal, dutiful to her husband, careful of her family, discreet in her discourse, and in the education of her children, and, above all, conscientious in her duty to God: such a one as this, if he can find her, will make him happy, Pr 31:10-31.

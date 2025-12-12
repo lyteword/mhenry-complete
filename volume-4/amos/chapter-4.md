@@ -1,3 +1,7 @@
+---
+weight: 4
+---
+
 # Chapter 4
 
 In this chapter, I. The oppressors in Israel are threatened for their oppression of the poor, Am 4:1-3. II. The idolaters in Israel, being joined to idols, are given up to their own heart's lusts, Am 4:4,5. III. All the sins of Israel are aggravated from their incorrigibleness in them, and their refusal to return and reform, notwithstanding the various rebukes of Providence which they had been under, Am 4:6-11. IV. They are invited yet at length to humble themselves before God, since it is impossible for them to make their part good against him, Am 4:12,13.

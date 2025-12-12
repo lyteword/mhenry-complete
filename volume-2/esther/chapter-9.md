@@ -1,3 +1,7 @@
+---
+weight: 9
+---
+
 # Chapter 9
 
 We left two royal edicts in force, both given at the court of Shushan, one bearing date the thirteenth day of the first month, appointing that on the thirteenth day of the twelfth month then next ensuing all the Jews should be killed; another bearing date the twenty-third day of the third month, empowering the Jews, on the day appointed for their slaughter, to draw the sword in their own defence and make their part good against their enemies as well as they could. Great expectation there was, no doubt, of this day, and the issue of it. The Jews' cause was to be tried by battle and the day was fixed for the combat by authority. Their enemies resolved not to lose the advantages given them by the first edict, in hope to overpower them by numbers; the Jews relied on the goodness of their God and the justice of their cause, and resolved to make their utmost efforts against their enemies. The day comes at length; and here we are told, I. What a glorious day it was, that year, to the Jews, and the two days following—a day of victory and triumph, both in the city Shushan and in all the rest of the king's provinces, Es 9:1-19. II. What a memorable day it was made to posterity, by an annual feast, in commemoration of this great deliverance, called "the feast of Purim," Es 9:20-32.

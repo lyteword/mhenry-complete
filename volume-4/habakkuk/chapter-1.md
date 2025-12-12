@@ -1,3 +1,7 @@
+---
+weight: 1
+---
+
 # Chapter 1
 
 In this chapter, I. The prophet complains to God of the violence done by the abuse of the sword of justice among his own people and the hardships thereby put upon many good people, Hab 1:1-4. II. God by him foretels the punishment of that abuse of power by the sword of war, and the desolations which the army of the Chaldeans should make upon them, Hab 1:5-11. III. Then the prophet complains of that too, and is grieved that the Chaldeans prevail so far (Hab 1:12-17), so that he scarcely knows which is more to be lamented, the sin or the punishment of it, for in both many harmless good people are very great sufferers. It is well that there is a day of judgment, and a future state, before us, in which it shall be eternally well with all the righteous, and with them only, and ill with all the wicked, and them only; so the present seeming disorders of Providence shall be set to rights, and there will remain no matter of complaint whatsoever.

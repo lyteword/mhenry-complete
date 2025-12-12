@@ -1,3 +1,7 @@
+---
+weight: 8
+---
+
 # Chapter 8
 
 This chapter gives us an account of the solemn consecration of Aaron and his sons to the priest's office. I. It was done publicly, and the congregation was called together to be witnesses of it, Le 8:1-4. II. It was done exactly according to God's appointment, Le 8:5. 1. They were washed and dressed, Le 8:6-9,13. 2. The tabernacle and the utensils of it were anointed, and then the priests, Le 8:10-12. 3. A sin-offering was offered for them, Le 8:14-17. 4. A burnt-offering, Le 8:18-21. 5. The ram of consecration, Le 8:22-30. 6. The continuance of this solemnity for seven days, Le 8:31-36, etc.

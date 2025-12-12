@@ -1,3 +1,7 @@
+---
+weight: 14
+---
+
 # Chapter 14
 
 Hearing the word, and prayer, are two great ordinances of God, in which we are to give honour to him and may hope to find favour and acceptance with him; and yet in this chapter, to our great surprise, we find some waiting upon God in the one and some in the other and yet not meeting with success as they expected. I. The elders of Israel come to hear the word, and enquire of the prophet, but, because they are not duly qualified, they meet with a rebuke instead of acceptance (Eze 14:1-5) and are called upon to repent of their sins and reform their lives, else it is at their peril to enquire of God, Eze 14:6-11. II. Noah, Daniel, and Job, are supposed to pray for this people, and yet, because the decree has gone forth, and the destruction of them is determined by a variety of judgments, their prayers shall not be answered, Eze 14:12-21. And yet it is promised, in the close, that a remnant shall escape, Eze 14:22,23.

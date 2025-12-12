@@ -1,3 +1,7 @@
+---
+weight: 8
+---
+
 # Chapter 8
 
 Three more of the plagues of Egypt are related in this chapter, I. That of the frogs, which is, 1. Threatened, Ex 8:1-4. 2. Inflicted, Ex 8:5,6. 3. Mimicked by the magicians, Ex 8:7. 4. Removed, at the humble request of Pharaoh (Ex 8:8-14), who yet hardens his heart, and, notwithstanding his promise while the plague was upon him (Ex 8:8), refuses to let Israel go, Ex 8:15. II. The plague of lice (Ex 8:16,17), by which, 1. The magicians were baffled (Ex 8:18,19), and yet, 2. Pharaoh was hardened, Ex 8:19. III. That of flies. 1. Pharaoh is warned of it before (Ex 8:20,21), and told that the land of Goshen should be exempt from this plague, Ex 8:22,23. 2. The plague is brought, Ex 8:24. 3. Pharaoh treats with Moses about the release of Israel, and humbles himself, Ex 8:25-29. 4. The plague is thereupon removed (Ex 8:31), and Pharaoh's heart hardened, Ex 8:32.

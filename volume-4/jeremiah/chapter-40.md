@@ -1,3 +1,7 @@
+---
+weight: 40
+---
+
 # Chapter 40
 
 We have attended Jerusalem's funeral pile, and have taken our leave of the captives that were carried to Babylon, not expecting to hear any more of them in this book: perhaps we may in Ezekiel; and we must in this and the four following chapters observe the story of those few Jews that were left to remain in the land after their brethren were carried away, and it is a very melancholy story; for, though at first there were some hopeful prospects of their well-doing, they soon appeared as obstinate in sin as ever, unhumbled and unreformed, till, all the rest of the judgments threatened in De 28:1-68 being brought upon them, that which in the De 28:68 of that dreadful chapter completes the threatenings was accomplished, "The Lord shall bring thee into Egypt again." In this chapter we have, I. A more particular account of Jeremiah's discharge and his settlement with Gedaliah, Jer 40:1-6. II. The great resort of the Jews that remained scattered in the neighbouring countries to Gedaliah, who was made their governor under the king of Babylon; and the good posture they were in for a while under him, Jer 40:7-12. III. A treacherous design formed against Gedaliah, by Ishmael, which we shall find executed in the next chapter, Jer 40:13-16.

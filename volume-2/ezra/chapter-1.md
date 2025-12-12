@@ -1,3 +1,7 @@
+---
+weight: 1
+---
+
 # Chapter 1
 
 In this chapter we have, I. The proclamation which Cyrus, king of Persia, issued out for the release of all the Jews that he found captives in Babylon, and the building of their temple in Jerusalem, Ezr 1:1-4. II. The return of many thereupon, Ezr 1:5,6. III. Orders given for the restoring of the vessels of the temple, Ezr 1:7-11. And this is the dawning of the day of their deliverance.

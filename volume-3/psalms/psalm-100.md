@@ -1,3 +1,7 @@
+---
+weight: 100
+---
+
 # Psalm 100
 
 It is with good reason that many sing this psalm very frequently in their religious assemblies, for it is very proper both to express and to excite pious and devout affections towards God in our approach to him in holy ordinances; and, if our hearts go along with the words, we shall make melody in it to the Lord. The Jews say it was penned to be sung with their thank-offerings; perhaps it was; but we say that as there is nothing in it peculiar to their economy so its beginning with a call to all lands to praise God plainly extends it to the gospel-church. Here, I. We are called upon to praise God and rejoice in him, Ps 100:1,2,4. II. We are furnished with matter for praise; we must praise him, considering his being and relation to us (Ps 100:3) and his mercy and truth, Ps 100:5. These are plain and common things, and therefore the more fit to be the matter of devotion.

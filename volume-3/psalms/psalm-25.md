@@ -1,3 +1,7 @@
+---
+weight: 25
+---
+
 # Psalm 25
 
 This psalm is full of devout affection to God, the out-goings of holy desires towards his favour and grace and the lively actings of faith in his promises. We may learn out of it, I. What it is to pray, Ps 25:1,15. II. What we must pray for, the pardon of sin (Ps 25:6,7,18), direction in the way of duty (Ps 25:4,5), the favour of God (Ps 25:16), deliverance out of our troubles (Ps 25:17,18), preservation from our enemies (Ps 25:20,21), and the salvation of the church of God, Ps 25:22. III. What we may plead in prayer, our confidence in God (Ps 25:2,3,5,20,21), our distress and the malice of our enemies (Ps 25:17,19), our sincerity, Ps 25:21. IV. What precious promises we have to encourage us in prayer, of guidance and instruction (Ps 25:8,9,12), the benefit of the covenant (Ps 25:10), and the pleasure of communion with God, Ps 25:13,14. It is easy to apply the several passages of this psalm to ourselves in the singing of it; for we have often troubles, and always sins, to complain of at the throne of grace.

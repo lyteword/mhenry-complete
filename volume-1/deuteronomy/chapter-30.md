@@ -1,3 +1,7 @@
+---
+weight: 30
+---
+
 # Chapter 30
 
 One would have thought that the threatenings in the close of the foregoing chapter had made a full end of the people of Israel, and had left their case for ever desperate; but in this chapter we have a plain intimation of the mercy God had in store for them in the latter days, so that mercy at length rejoices against judgment, and has the last word. Here we have, I. Exceedingly great and precious promises made to them, upon their repentance and return to God, De 30:1-10. II. The righteousness of faith set before them in the plainness and easiness of the commandment that was now given them, De 30:11-14. III. A fair reference of the whole matter to their choice, De 30:15-20, etc.

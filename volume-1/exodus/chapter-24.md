@@ -1,3 +1,7 @@
+---
+weight: 24
+---
+
 # Chapter 24
 
 Moses, as mediator between God and Israel, having received divers laws and ordinances from God privately in the three foregoing chapters, in this chapter, I. Comes down to the people, acquaints them with the laws he had received, and takes their consent to those laws (Ex 24:3), writes the laws, and reads them to the people, who repeat their consent (Ex 24:4-7), and then by sacrifice, and the sprinkling of blood, ratifies the covenant between them and God, Ex 24:5,6,8. II. He returns to God again, to receive further directions. When he was dismissed from his former attendance, he was ordered to attend again, Ex 24:1,2. He did so with seventy of the elders, to whom God made a discovery of his glory, Ex 24:9-11. Moses is ordered up into the mount (Ex 24:12,13); the rest are ordered down to the people, Ex 24:14. The cloud of glory is seen by all the people on the top of Mount Sinai (Ex 24:15-17), and Moses is therewith God forty days and forty nights, Ex 24:18.

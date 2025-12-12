@@ -1,3 +1,7 @@
+---
+weight: 36
+---
+
 # Chapter 36
 
 In this chapter, I. The work of the tabernacle is begun, Ex 36:1-4. II. A stop is put to the people's contributions, Ex 36:5-7. III. A particular account is given of the making of the tabernacle itself; the fine curtains of it, Ex 36:8-13. The coarse ones, Ex 36:14-19. The boards, Ex 36:20-30. The bars, Ex 36:31-34. The partition veil, Ex 36:35,36. And the hanging for the door, Ex 36:37,38, etc.

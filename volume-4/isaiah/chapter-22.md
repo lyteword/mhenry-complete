@@ -1,3 +1,7 @@
+---
+weight: 22
+---
+
 # Chapter 22
 
 We have now come nearer home, for this chapter is "the burden of the valley of vision," Jerusalem; other places had their burden for the sake of their being concerned in some way or other with Jerusalem, and were reckoned with either as spiteful enemies or deceitful friends to the people of God; but now let Jerusalem hear her own doom. This chapter concerns, I. The city of Jerusalem itself and the neighbourhood depending upon it. Here is, 1. A prophecy of the grievous distress they should shortly be brought into by Sennacherib's invasion of the country and laying siege to the city, Isa 22:1-7. 2. A reproof given them for their misconduct in that distress, in two things:—(1.) Not having an eye to God in the use of the means of their preservation, Isa 22:8-11. (2.) Not humbling themselves under his mighty hand, Isa 22:12-14. II. The court of Hezekiah, and the officers of that court. 1. The displacing of Shebna, a bad man, and turning him out of the treasury, Isa 22:15-19,25. 2. The preferring of Eliakim, who should do his country better service, to his place, Isa 22:20-24.

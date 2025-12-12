@@ -1,3 +1,7 @@
+---
+weight: 39
+---
+
 # Chapter 39
 
 This chapter continues and concludes the prophecy against Gog and Magog, in whose destruction God crowns his favour to his people Israel, which shines very brightly after the scattering of that black cloud in the close of this chapter. Here is, I. An express prediction of the utter destruction of Gog and Magog, agreeing with what we had before, Eze 39:1-7. II. An illustration of the vastness of that destruction, in three consequences of it: the burning of their weapons (Eze 39:8-10), the burning of their slain (Eze 39:11-16), and the feasting of the fowls with the dead bodies of those that were unburied, Eze 39:17-22. III. A declaration of God's gracious purposes concerning his people Israel, in this and his other providences concerning them, and a promise of further mercy that he had yet in store for them, Eze 39:23-29.

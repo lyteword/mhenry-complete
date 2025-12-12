@@ -1,3 +1,7 @@
+---
+weight: 140
+---
+
 # Psalm 140
 
 This and the four following psalms are much of a piece, and the scope of them the same with many that we met with in the beginning and middle of the book of Psalms, though with but few of late. They were penned by David (as it should seem) when he was persecuted by Saul; one of them is said to be his "prayer when he was in the cave," and it is probable that all the rest were penned about the same time. In this psalm, I. David complains of the malice of his enemies, and prays to God to preserve him from them, Ps 140:1-5. II. He encourages himself in God as his God, Ps 140:6,7. III. He prays for, and prophesies, the destruction of his persecutors, Ps 140:8-11. IV. He assures all God's afflicted people that their troubles would in due time end well (Ps 140:12,13), with which assurance we must comfort ourselves, and one another, in singing this psalm.

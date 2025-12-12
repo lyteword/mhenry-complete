@@ -1,10 +1,14 @@
+---
+weight: 16
+---
+
 # Chapter 16
 
 ## The Sovereignty of Divine Providence.
 
 > <sup>1</sup> The preparations of the heart in man, and the answer of the tongue, *is* from the LORD.  
 
-As we read this, it teaches us a great truth, that we are not sufficient of ourselves to *think or speak any thing of ourselves* that is wise and good, but that all *our sufficiency is of God,* who is with the heart and with the mouth, and *works in us both to will and to do,* Php 2:13,Ps 10:17. But most read it otherwise: *The preparation of the heart is in man* (he may contrive and design this and the other) but *the answer of the tongue,* not only the delivering of what he designed to speak, but the issue and success of what he designed to do, *is of the Lord.* That is, in short, 1. *Man purposes.* He has a freedom of thought and a freedom of will permitted him; let him form his projects, and lay his schemes, as he thinks best: but, after all, 2. *God disposes.* Man cannot go on with his business without the assistance and blessing of God, who *made man's mouth* and teaches us what we shall say. Nay, God easily can, and often does, cross men's purposes, and break their measures. It was a curse that was prepared in Balaam's heart, but the answer of the tongue was a blessing.
+As we read this, it teaches us a great truth, that we are not sufficient of ourselves to *think or speak any thing of ourselves* that is wise and good, but that all *our sufficiency is of God,* who is with the heart and with the mouth, and *works in us both to will and to do,* Php 2:13, Ps 10:17. But most read it otherwise: *The preparation of the heart is in man* (he may contrive and design this and the other) but *the answer of the tongue,* not only the delivering of what he designed to speak, but the issue and success of what he designed to do, *is of the Lord.* That is, in short, 1. *Man purposes.* He has a freedom of thought and a freedom of will permitted him; let him form his projects, and lay his schemes, as he thinks best: but, after all, 2. *God disposes.* Man cannot go on with his business without the assistance and blessing of God, who *made man's mouth* and teaches us what we shall say. Nay, God easily can, and often does, cross men's purposes, and break their measures. It was a curse that was prepared in Balaam's heart, but the answer of the tongue was a blessing.
 
 > <sup>2</sup> All the ways of a man *are* clean in his own eyes; but the LORD weigheth the spirits.  
 
@@ -20,7 +24,7 @@ Note, 1. That God is the first cause. He is the former of all things and all per
 
 > <sup>5</sup> Every one *that is* proud in heart *is* an abomination to the LORD: *though* hand *join* in hand, he shall not be unpunished.  
 
-Note, 1. The pride of sinners sets God against them. He that, being high in estate is proud in heart, whose spirit is elevated with his condition, so that he becomes insolent in his conduct towards God and man, let him know that though he admires himself, and others caress him, yet he is *an abomination to the Lord.* The great God despises him; the holy God detest him. 2. The power of sinners cannot secure them against God, though they strengthen themselves with body hands. Though they may strengthen one another with their confederacies and combinations, joining forces against God, they shall not escape his righteous judgment. *Woe unto him that strives with his Maker,* Pr 11:21,Isa 45:9.
+Note, 1. The pride of sinners sets God against them. He that, being high in estate is proud in heart, whose spirit is elevated with his condition, so that he becomes insolent in his conduct towards God and man, let him know that though he admires himself, and others caress him, yet he is *an abomination to the Lord.* The great God despises him; the holy God detest him. 2. The power of sinners cannot secure them against God, though they strengthen themselves with body hands. Though they may strengthen one another with their confederacies and combinations, joining forces against God, they shall not escape his righteous judgment. *Woe unto him that strives with his Maker,* Pr 11:21, Isa 45:9.
 
 > <sup>6</sup> By mercy and truth iniquity is purged: and by the fear of the LORD *men* depart from evil.  
 
@@ -133,5 +137,5 @@ This recommends the grace of meekness to us, which will well become us all, part
 
 > <sup>33</sup> The lot is cast into the lap; but the whole disposing thereof *is* of the LORD.  
 
-Note, 1. The divine Providence orders and directs those things which to us are perfectly casual and fortuitous. Nothing comes to pass by chance, nor is an event determined by a blind fortune, but every thing by the will and counsel of God. What man has neither eye nor hand in God is intimately concerned in. 2. When solemn appeals are made to Providence by the casting of lots, for the deciding of that matter of moment which could not otherwise be at all, or not so well, decided, God must be eyed in it, by prayer, that it may be disposed aright (*Give a perfect lot,* 1Sa 14:41,Ac 1:24), and by acquiescing in it when it is disposed, being satisfied that the hand of God is in it and that hand directed by infinite wisdom. All the disposals of Providence concerning our affairs we must look upon to be the directing of our lot, the determining of what we referred to God, and must be reconciled to them accordingly.
+Note, 1. The divine Providence orders and directs those things which to us are perfectly casual and fortuitous. Nothing comes to pass by chance, nor is an event determined by a blind fortune, but every thing by the will and counsel of God. What man has neither eye nor hand in God is intimately concerned in. 2. When solemn appeals are made to Providence by the casting of lots, for the deciding of that matter of moment which could not otherwise be at all, or not so well, decided, God must be eyed in it, by prayer, that it may be disposed aright (*Give a perfect lot,* 1Sa 14:41, Ac 1:24), and by acquiescing in it when it is disposed, being satisfied that the hand of God is in it and that hand directed by infinite wisdom. All the disposals of Providence concerning our affairs we must look upon to be the directing of our lot, the determining of what we referred to God, and must be reconciled to them accordingly.
 

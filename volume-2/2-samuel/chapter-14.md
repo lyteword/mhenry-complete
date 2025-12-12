@@ -1,3 +1,7 @@
+---
+weight: 14
+---
+
 # Chapter 14
 
 How Absalom threw himself out of his royal father's protection and favour we read in the foregoing chapter, which left him an exile, outlawed, and proscribed; in this chapter we have the arts that were used to bring him and his father together again, and how, at last, it was done, which is here recorded to show the folly of David in sparing him and indulging him in his wickedness, for which he was soon after severely corrected by his unnatural rebellion. I. Joab, by bringing a feigned issue (as the lawyers speak) to be tried before him, in the case of a poor widow of Tekoah, gains from him a judgment in general, That the case might be so as that the putting of a murderer to death ought to be dispensed with, 2Sa 14:1-20. II. Upon the application of this, he gains from him an order to bring Absalom back to Jerusalem, while yet he was forbidden the court, 2Sa 14:21-24. III. After an account of Absalom, his person, and family, we are told how at length he was introduced by Joab into the king's presence, and the king was thoroughly reconciled to him, 2Sa 14:25-33.

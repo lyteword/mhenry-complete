@@ -1,3 +1,7 @@
+---
+weight: 33
+---
+
 # Psalm 33
 
 This is a psalm of praise; it is probable that David was the penman of it, but we are not told so, because God would have us look above the penmen of sacred writ, to that blessed Spirit that moved and guided them. The psalmist, in this psalm, I. Calls upon the righteous to praise God, Ps 33:1-3. II. Furnishes us with matter for praise. We must praise God, 1. For his justice, goodness, and truth, appearing in his word, and in all his works, Ps 33:4,5. 2. For his power appearing in the work of creation, Ps 33:6-9. 3. For the sovereignty of his providence in the government of the world (Ps 33:10,11) and again, Ps 33:13-17. 4. For the peculiar favour which he bears to his own chosen people, which encourages them to trust in him (Ps 33:12) and again, Ps 33:18-22. We need not be at a loss for proper thoughts in singing this psalm, which so naturally expresses the pious affections of a devout soul towards God.

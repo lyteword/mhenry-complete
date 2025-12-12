@@ -1,3 +1,7 @@
+---
+weight: 12
+---
+
 # Chapter 12
 
 In this chapter the apostle proceeds in maintaining the honour of his apostleship. He magnified his office when there were those who vilified it. What he says in his own praise was only in his own justification and the necessary defence of the honour of his ministry, the preservation of which was necessary to its success. First, He makes mention of the favour God had shown him, the honour done him, the methods God took to keep him humble, and the use he made of this dispensation, 2Co 12:1-10. Then he addresses himself to the Corinthians, blaming them for what was faulty among them, and giving a large account of his behaviour and kind intentions towards them, 2Co 12:11-21.

@@ -1,3 +1,7 @@
+---
+weight: 3
+---
+
 # Chapter 3
 
 The apostle makes an apology for his seeming to commend himself, and is careful not to assume too much to himself, but to ascribe all praise unto God, 2Co 3:1-5. He then draws a comparison between the Old Testament and the New, and shows the excellency of the later above the former (2Co 3:6-11), whence he infers what is the duty of gospel ministers, and the advantage of those who live under the gospel above those who lived under the law, 2Co 3:12-17.

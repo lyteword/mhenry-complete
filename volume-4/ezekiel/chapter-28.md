@@ -1,3 +1,7 @@
+---
+weight: 28
+---
+
 # Chapter 28
 
 In this chapter we have, I. A prediction of the fall and ruin of the king of Tyre, who, in the destruction of that city, is particularly set up as a mark for God's arrows, Eze 28:1-10. II. A lamentation for the king of Tyre, when he has thus fallen, though he falls by his own iniquity, Eze 28:11-19. III. A prophecy of the destruction of Zidon, which as in the neighbourhood of Tyre and had a dependence upon it, Eze 28:20-23. IV. A promise of the restoration of the Israel of God, though in the day of their calamity they were insulted over by their neighbours, Eze 28:24-26.

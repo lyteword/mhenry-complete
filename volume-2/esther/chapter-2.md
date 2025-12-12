@@ -1,3 +1,7 @@
+---
+weight: 2
+---
+
 # Chapter 2
 
 Two things are recorded in this chapter, which were working towards the deliverance of the Jews from Haman's conspiracy:—I. The advancement of Esther to be queen instead of Vashti. Many others were candidates for the honour (Es 2:1-4); but Esther, an orphan, a captive-Jewess (Es 2:5-7), recommended herself to the king's chamberlain first (Es 2:8-11) and then to the king (Es 2:12-17), who made her queen, Es 2:18-20. II. The good service that Mordecai did to the king in discovering a plot against his life, Es 2:21-23.

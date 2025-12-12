@@ -1,3 +1,7 @@
+---
+weight: 112
+---
+
 # Psalm 112
 
 This psalm is composed alphabetically, as the former is, and is (like the former) entitled "Hallelujah," though it treats of the happiness of the saints, because it redounds to the glory of God, and whatever we have the pleasure of he must have the praise of. It is a comment upon the Ps 111:10 of the foregoing psalm, and fully shows how much it is our wisdom to fear God and do his commandments. We have here, I. The character of the righteous, Ps 112:1. II. The blessedness of the righteous. 1. There is a blessing entailed upon their posterity, Ps 112:2. 2. There is a blessing conferred upon themselves. (1.) Prosperity outward and inward, Ps 112:3. (2.) Comfort, Ps 112:4. (3.) Wisdom, Ps 112:5. (4.) Stability, Ps 112:6-8. (5.) Honour, Ps 112:6,9. III. The misery of the wicked, Ps 112:10. So that good and evil are set before us, the blessing and the curse. In singing this psalm we must not only teach and admonish ourselves and one another to answer to the characters here given of the happy, but comfort and encourage ourselves and one another with the privileges and comforts here secured to the holy.

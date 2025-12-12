@@ -1,3 +1,7 @@
+---
+weight: 8
+---
+
 # Chapter 8
 
 We had some account given us of Benjamin in the foregoing chapter; here we have a larger catalogue of the great men of that tribe. 1. Because of that tribe Saul came, the first king of Israel, to the story of whom the sacred writer is hastening, 1Ch 10:1. 2. Because that tribe clave to Judah, inhabited much of Jerusalem, was one of the two tribes that went into captivity, and returned back; and that story also he has an eye to, 1Ch 9:1. Here is, I. Some of the heads of that tribe named, 1Ch 8:1-32. II. A more particular account of the family of Saul, 1Ch 8:30-40.

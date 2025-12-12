@@ -1,3 +1,7 @@
+---
+weight: 18
+---
+
 # Chapter 18
 
 In the course of the foregoing chapter we left David in triumph; now in this chapter we have, I. The improvement of his triumphs; he soon became, 1. Saul's constant attendant, 1Sa 18:2. 2. Jonathan's covenant friend, 1Sa 18:1,3,4. 3. The darling of his country, 1Sa 18:5,7,16. II. The allays of his triumphs. This is the vanity that accompanies even a right work, that "for it a man is envied," Ec 4:4. So David was by Saul. 1. He hated him, and sought to kill him himself, 1Sa 18:8-11. 2. He feared him, and contrived how he might have some mischief done him, 1Sa 18:12-17. He proposed to marry his daughter to him; but, [1.] cheated him of the eldest to provoke him (1Sa 18:19), and, [2.] Gave him the younger, upon conditions which would endanger his life, 1Sa 18:20-25. But David performed his conditions bravely (1Sa 18:26,27), and grew to be more and more esteemed, 1Sa 18:28-30. Still David is rising, but (as all that aim at the crown of life must expect) he had a great deal of difficulty and opposition to grapple with.

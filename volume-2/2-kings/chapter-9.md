@@ -1,3 +1,7 @@
+---
+weight: 9
+---
+
 # Chapter 9
 
 Hazael and Jehu were the men that were designed to be the instruments of God's justice in punishing and destroying the house of Ahab. Elijah was told to appoint them to this service; but, upon Ahab's humiliation, a reprieve was granted, and so it was left to Elisha to appoint them. Hazael's elevation to the throne of Syria we read of in the foregoing chapter; and we must now attend Jehu to the throne of Israel; for him that escapeth the sword of Hazael, as Joram and Ahaziah did, Jehu must slay, of which this chapter gives us an account. I. A commission is sent to Jehu by the hand of one of the prophets, to take upon him the government, and destroy the house of Ahab, 2Ki 9:1-10. II. Here is his speedy execution of this commission. 1. He communicates it to his captains, 2Ki 9:11-15. 2. He marches directly to Jezreel (2Ki 9:16-20), and there dispatches (1.) Joram king of Israel, 2Ki 9:21-26. (2.) Ahaziah king of Judah, 2Ki 9:27-29. (3.) Jezebel, 2Ki 9:30-37.

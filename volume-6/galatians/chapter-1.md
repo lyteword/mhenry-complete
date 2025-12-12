@@ -1,3 +1,7 @@
+---
+weight: 1
+---
+
 # Chapter 1
 
 In this chapter, after the preface or introduction (Ga 1:1-5), the apostle severely reproves these churches for their defection from the faith (Ga 1:6-9), and then proves his own apostleship, which his enemies had brought them to question, I. From his end and design in preaching the gospel, Ga 1:10. II. From his having received it by immediate revelation, Ga 1:11,12. For the proof of which he acquaints them, 1. What his former conversation was, Ga 1:13,14. 2. How he was converted, and called to the apostleship, Ga 1:15,16. 3. How he behaved himself afterwards, Ga 1:16-24.

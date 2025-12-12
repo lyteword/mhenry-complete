@@ -1,3 +1,7 @@
+---
+weight: 3
+---
+
 # Chapter 3
 
 In this chapter our apostle treats of church-officers. He specifies, I. The qualifications of a person to be admitted to the office of a bishop, 1Ti 3:1-7. II. The qualifications of deacons (1Ti 3:8-10), and of their wives (1Ti 3:11), again of the deacons, 1Ti 3:12,13. III. The reasons of his writing to Timothy, whereupon he speaks of the church and the foundation-truth professed therein, 1Ti 3:14-16.

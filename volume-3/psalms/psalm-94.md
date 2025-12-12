@@ -1,3 +1,7 @@
+---
+weight: 94
+---
+
 # Psalm 94
 
 This psalm was penned when the church of God was under hatches, oppressed and persecuted; and it is an appeal to God, as the judge of heaven and earth, and an address to him, to appear for his people against his and their enemies. Two things this psalm speaks:—I. Conviction and terror to the persecutors (Ps 94:1-11), showing them their danger and folly, and arguing with them. II. Comfort and peace to the persecuted (Ps 94:12-23), assuring them, both from God's promise and from the psalmist's own experience, that their troubles would end well, and God would, in due time, appear to their joy and the confusion of those who set themselves against them. In singing this psalm we must look abroad upon the pride of oppressors with a holy indignation, and the tears of the oppressed with a holy compassion; but, at the same time, look upwards to the righteous Judge with an entire satisfaction, and look forward, to the end of all these things, with a pleasing hope.

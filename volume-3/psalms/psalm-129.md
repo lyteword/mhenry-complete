@@ -1,3 +1,7 @@
+---
+weight: 129
+---
+
 # Psalm 129
 
 This psalm relates to the public concerns of God's Israel. It is not certain when it was penned, probably when they were in captivity in Babylon, or about the time of their return. I. They look back with thankfulness for the former deliverances God had wrought for them and their fathers out of the many distresses they had been in from time to time, Ps 129:1-4. II. They look forward with a believing prayer for and a prospect of the destruction of all the enemies of Zion, Ps 129:5-8. In singing this psalm we may apply it both ways to the Gospel-Israel, which, like the Old-Testament Israel, has weathered many a storm and is still threatened by many enemies.

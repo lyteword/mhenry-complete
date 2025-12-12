@@ -1,3 +1,7 @@
+---
+weight: 122
+---
+
 # Psalm 122
 
 This psalm seems to have been penned by David for the use of the people of Israel, when they came up to Jerusalem to worship at the three solemn feasts. It was in David's time that Jerusalem was first chosen to be the city where God would record his name. It being a new thing, this, among other means, was used to bring the people to be in love with Jerusalem, as the holy city, though it was but the other day in the hands of the Jebusites. Observe, I. The joy with which they were to go up to Jerusalem, Ps 122:1,2. II. The great esteem they were to have of Jerusalem, Ps 122:3-5. III. The great concern they were to have for Jerusalem, and the prayers they were to put up for its welfare, Ps 122:6-9. In singing this psalm we must have an eye to the gospel church, which is called the "Jerusalem that is from above."

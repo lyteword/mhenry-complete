@@ -1,3 +1,7 @@
+---
+weight: 2
+---
+
 # Chapter 2
 
 In this chapter the apostle puts the Thessalonians in mind of the manner of his preaching among them, 1Th 2:1-6. Then of the manner of his conversation among them, 1Th 2:7-12. Afterwards of the success of his ministry, with the effects both on himself and on them (1Th 2:13-16), and then apologizes for his absence, 1Th 2:17-20.

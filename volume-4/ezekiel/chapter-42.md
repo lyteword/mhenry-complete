@@ -1,3 +1,7 @@
+---
+weight: 42
+---
+
 # Chapter 42
 
 This chapter continues and concludes the describing and measuring of this mystical temple, which it is very hard to understand the particular architecture of, and yet more hard to comprehend the mystical meaning of. Here is, I. A description of the chambers that were about the courts, their situation and structure (Eze 42:1-13), and the uses for which they were designed, Eze 42:13,14. II. A survey of the whole compass of ground which was taken up with the house, and the courts belonging to it, Eze 42:15-20.

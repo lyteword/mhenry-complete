@@ -1,3 +1,7 @@
+---
+weight: 2
+---
+
 # Chapter 2
 
 In this chapter Paul treats, I. Of prayer, with many reasons for it, 1Ti 2:1-8. II. Of women's apparel, 1Ti 2:9,10. III. Of their subjection, with the reasons of it, 1Ti 2:11-14. IV. A promise given for their encouragement in child-bearing, 1Ti 2:15.

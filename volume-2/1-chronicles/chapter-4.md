@@ -1,3 +1,7 @@
+---
+weight: 4
+---
+
 # Chapter 4
 
 In this chapter we have, I. A further account of the genealogies of the tribe of Judah, the most numerous and most famous of all the tribes. The posterity of Shobal the son of Hur (1Ch 4:1-4), of Ashur the posthumous son of Hezron (who was mentioned, 1Ch 2:24), with something particular concerning Jabez (1Ch 4:5-10), of Chelub and others (1Ch 4:11-20), of Shelah, 1Ch 4:21-23. II. An account of the posterity and cities of Simeon, their conquest of Gedon, and of the Amalekites in Mount Seir, 1Ch 4:24-43.

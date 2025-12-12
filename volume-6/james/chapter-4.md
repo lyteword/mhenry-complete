@@ -1,3 +1,7 @@
+---
+weight: 4
+---
+
 # Chapter 4
 
 In this chapter we are directed to consider, I. Some causes of contention, besides those mentioned in the foregoing chapter, and to watch against them, Jam 4:1-5. II. We are taught to abandon the friendship of this world, so as to submit and subject ourselves entirely to God, Jam 4:4-10. III. All detraction and rash judgment of others are to be carefully avoided, Jam 4:11,12. IV. We must preserve a constant regard, and pay the utmost deference to the disposals of divine Providence, Jam 4:13-17.

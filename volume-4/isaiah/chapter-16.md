@@ -1,3 +1,7 @@
+---
+weight: 16
+---
+
 # Chapter 16
 
 This chapter continues and concludes the burden of Moab. In it, I. The prophet gives good counsel to the Moabites, to reform what was amiss among them, and particularly to be kind to God's people, as the likeliest way to prevent the judgments before threatened, Isa 16:1-5. II. Fearing they would not take this counsel (they were so proud), he goes on to foretel the lamentable devastation of their country, and the confusion they should be brought to, and this within three years, Isa 16:6-14.

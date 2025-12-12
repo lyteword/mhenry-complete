@@ -1,3 +1,7 @@
+---
+weight: 5
+---
+
 # Chapter 5
 
 In which the apostle gives particular directions, first to the elders, how to behave themselves towards their flock (1Pe 5:1-4); then to the younger, to be obedient and humble, and to cast their care upon God, 1Pe 5:5-7. He then exhorts all to sobriety, watchfulness against temptations, and stedfastness in the faith, praying earnestly for them; and so concludes his epistle with a solemn doxology, mutual salutations, and his apostolical benediction.

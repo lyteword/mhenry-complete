@@ -1,3 +1,7 @@
+---
+weight: 1
+---
+
 # Chapter 1
 
 After the introduction (2Th 1:1,2) the apostle begins this epistle with an account of his high esteem for these Thessalonians, 2Th 1:3,4. He then comforts them under their afflictions and persecutions (2Th 1:5-10) and tells them what his prayers were to God for them, 2Th 1:11,12.

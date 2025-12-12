@@ -1,3 +1,7 @@
+---
+weight: 11
+---
+
 # Chapter 11
 
 The ceremonial law is described by the apostle (Heb 9:9,10) to consist, not only "in gifts and sacrifices," which hitherto have been treated of in this book, but "in meats, and drinks, and divers washings" from ceremonial uncleanness, the laws concerning which begin with this chapter, which puts a difference between some sorts of flesh-meat and others, allowing some to be eaten as clean and forbidding others as unclean. "There is one kind of flesh of men." Nature startles at the thought of eating this, and none do it but such as have arrived at the highest degree of barbarity, and become but one remove from brutes; therefore there needed no law against it. But there is "another kind of flesh of beasts," concerning which the law directs here (Le 11:1-8), "another of fishes" (Le 11:9-12), "another of birds" (Le 11:13-19), and "another of creeping things," which are distinguished into two sorts, flying creeping things (Le 11:20-28) and creeping things upon the earth, Le 11:29-43. And the law concludes with the general rule of holiness, and reasons for it, Le 11:44-47, etc.

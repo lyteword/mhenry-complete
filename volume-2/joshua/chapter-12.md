@@ -1,3 +1,7 @@
+---
+weight: 12
+---
+
 # Chapter 12
 
 This chapter is a summary of Israel's conquests. I. Their conquests under Moses, on the other side Jordan (for we now suppose ourselves in Canaan) eastward, which we had the history of, Nu 21:24-35, etc. And here the abridgment of that history, Jos 12:1-6. II. Their conquests under Joshua, on this side Jordan, westward. 1. The country they reduced, Jos 12:7,8. 2. The kings they subdued, thirty-one in all, Jos 12:9-24. And this comes in here, not only as a conclusion of the history of the wars of Canaan (that we might at one view see what they had got), but as a preface to the history of the dividing of Canaan, that all that might be put together which they were not to make a distribution of.

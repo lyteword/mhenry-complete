@@ -1,3 +1,7 @@
+---
+weight: 46
+---
+
 # Chapter 46
 
 Jacob is here removing to Egypt in his old age, forced thither by a famine, and invited thither by a son. Here, I. God sends him thither, Ge 46:1-4. II. All his family goes with him, Ge 46:5-27. III. Joseph bids him welcome, Ge 46:28-34.

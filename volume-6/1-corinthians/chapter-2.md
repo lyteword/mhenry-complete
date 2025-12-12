@@ -1,3 +1,7 @@
+---
+weight: 2
+---
+
 # Chapter 2
 
 The apostle proceeds with his argument in this chapter, and, I. Reminds the Corinthians of the plain manner wherein he delivered the gospel to them, 1Co 2:1-5. But yet, II. Shows them that he had communicated to them a treasure of the truest and highest wisdom, such as exceeded all the attainments of learned men, such as could never have entered into the heart of man if it had not been revealed, nor can be received and improved to salvation but by the light and influence of that Spirit who revealed it, 1Co 2:6-16.

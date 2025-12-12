@@ -1,3 +1,7 @@
+---
+weight: 8
+---
+
 # Chapter 8
 
 Most of this chapter is a repetition of divers passages of Christ's preaching and miracles which we had before in Matthew and Mark; they are all of such weight, that they are worth repeating, and therefore they are repeated, that out of the mouth not only of two, but of three, witnesses every word may be established. Here is, I. A general account of Christ's preaching, and how he had subsistence for himself and his numerous family by the charitable contributions of good people, Lu 8:1-3. II. The parable of the sower, and the four sorts of ground, with the exposition of it, and some inferences from it, Lu 8:4-18. III. The preference which Christ gave to his obedient disciples before his nearest relations according to the flesh, Lu 8:19-21. IV. His stilling a storm at sea, with a word's speaking, Lu 8:22-25. V. His casting a legion of devils out of a man that was possessed by them, Lu 8:26-40. VI. His healing the woman that had the bloody issue, and raising Jairus's daughter to life, Lu 8:41-56.
