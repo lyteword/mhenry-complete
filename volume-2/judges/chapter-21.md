@@ -8,21 +8,21 @@ The ruins of the tribe of Benjamin we read of in the foregoing chapter; now here
 
 ## Lamentation for the Benjamites; Wives Provided for the Benjamites. (b. c. 1409.)
 
-> <sup>1</sup> Now the men of Israel had sworn in Mizpeh, saying, There shall not any of us give his daughter unto Benjamin to wife.  
-> <sup>2</sup> And the people came to the house of God, and abode there till even before God, and lifted up their voices, and wept sore;  
-> <sup>3</sup> And said, O LORD God of Israel, why is this come to pass in Israel, that there should be to day one tribe lacking in Israel?  
-> <sup>4</sup> And it came to pass on the morrow, that the people rose early, and built there an altar, and offered burnt offerings and peace offerings.  
-> <sup>5</sup> And the children of Israel said, Who *is there* among all the tribes of Israel that came not up with the congregation unto the LORD? For they had made a great oath concerning him that came not up to the LORD to Mizpeh, saying, He shall surely be put to death.  
-> <sup>6</sup> And the children of Israel repented them for Benjamin their brother, and said, There is one tribe cut off from Israel this day.  
-> <sup>7</sup> How shall we do for wives for them that remain, seeing we have sworn by the LORD that we will not give them of our daughters to wives?  
-> <sup>8</sup> And they said, What one *is there* of the tribes of Israel that came not up to Mizpeh to the LORD? And, behold, there came none to the camp from Jabesh-gilead to the assembly.  
-> <sup>9</sup> For the people were numbered, and, behold, *there were* none of the inhabitants of Jabesh-gilead there.  
-> <sup>10</sup> And the congregation sent thither twelve thousand men of the valiantest, and commanded them, saying, Go and smite the inhabitants of Jabesh-gilead with the edge of the sword, with the women and the children.  
-> <sup>11</sup> And this *is* the thing that ye shall do, Ye shall utterly destroy every male, and every woman that hath lain by man.  
-> <sup>12</sup> And they found among the inhabitants of Jabesh-gilead four hundred young virgins, that had known no man by lying with any male: and they brought them unto the camp to Shiloh, which *is* in the land of Canaan.  
-> <sup>13</sup> And the whole congregation sent *some* to speak to the children of Benjamin that *were* in the rock Rimmon, and to call peaceably unto them.  
-> <sup>14</sup> And Benjamin came again at that time; and they gave them wives which they had saved alive of the women of Jabesh-gilead: and yet so they sufficed them not.  
-> <sup>15</sup> And the people repented them for Benjamin, because that the LORD had made a breach in the tribes of Israel.  
+> **¹** Now the men of Israel had sworn in Mizpeh, saying, There shall not any of us give his daughter unto Benjamin to wife.  
+> **²** And the people came to the house of God, and abode there till even before God, and lifted up their voices, and wept sore;  
+> **³** And said, O LORD God of Israel, why is this come to pass in Israel, that there should be to day one tribe lacking in Israel?  
+> **⁴** And it came to pass on the morrow, that the people rose early, and built there an altar, and offered burnt offerings and peace offerings.  
+> **⁵** And the children of Israel said, Who *is there* among all the tribes of Israel that came not up with the congregation unto the LORD? For they had made a great oath concerning him that came not up to the LORD to Mizpeh, saying, He shall surely be put to death.  
+> **⁶** And the children of Israel repented them for Benjamin their brother, and said, There is one tribe cut off from Israel this day.  
+> **⁷** How shall we do for wives for them that remain, seeing we have sworn by the LORD that we will not give them of our daughters to wives?  
+> **⁸** And they said, What one *is there* of the tribes of Israel that came not up to Mizpeh to the LORD? And, behold, there came none to the camp from Jabesh-gilead to the assembly.  
+> **⁹** For the people were numbered, and, behold, *there were* none of the inhabitants of Jabesh-gilead there.  
+> **¹⁰** And the congregation sent thither twelve thousand men of the valiantest, and commanded them, saying, Go and smite the inhabitants of Jabesh-gilead with the edge of the sword, with the women and the children.  
+> **¹¹** And this *is* the thing that ye shall do, Ye shall utterly destroy every male, and every woman that hath lain by man.  
+> **¹²** And they found among the inhabitants of Jabesh-gilead four hundred young virgins, that had known no man by lying with any male: and they brought them unto the camp to Shiloh, which *is* in the land of Canaan.  
+> **¹³** And the whole congregation sent *some* to speak to the children of Benjamin that *were* in the rock Rimmon, and to call peaceably unto them.  
+> **¹⁴** And Benjamin came again at that time; and they gave them wives which they had saved alive of the women of Jabesh-gilead: and yet so they sufficed them not.  
+> **¹⁵** And the people repented them for Benjamin, because that the LORD had made a breach in the tribes of Israel.  
 
 We may observe in these verses,
 
@@ -36,16 +36,16 @@ II\. The deep concern which the Israelites did express for the destruction of th
 
 ## The Virgins of Shiloh Surprised. (b. c. 1409.)
 
-> <sup>16</sup> Then the elders of the congregation said, How shall we do for wives for them that remain, seeing the women are destroyed out of Benjamin?  
-> <sup>17</sup> And they said, *There must be* an inheritance for them that be escaped of Benjamin, that a tribe be not destroyed out of Israel.  
-> <sup>18</sup> Howbeit we may not give them wives of our daughters: for the children of Israel have sworn, saying, Cursed *be* he that giveth a wife to Benjamin.  
-> <sup>19</sup> Then they said, Behold, *there is* a feast of the LORD in Shiloh yearly *in a place* which *is* on the north side of Beth-el, on the east side of the highway that goeth up from Beth-el to Shechem, and on the south of Lebonah.  
-> <sup>20</sup> Therefore they commanded the children of Benjamin, saying, Go and lie in wait in the vineyards;  
-> <sup>21</sup> And see, and, behold, if the daughters of Shiloh come out to dance in dances, then come ye out of the vineyards, and catch you every man his wife of the daughters of Shiloh, and go to the land of Benjamin.  
-> <sup>22</sup> And it shall be, when their fathers or their brethren come unto us to complain, that we will say unto them, Be favourable unto them for our sakes: because we reserved not to each man his wife in the war: for ye did not give unto them at this time, *that* ye should be guilty.  
-> <sup>23</sup> And the children of Benjamin did so, and took *them* wives, according to their number, of them that danced, whom they caught: and they went and returned unto their inheritance, and repaired the cities, and dwelt in them.  
-> <sup>24</sup> And the children of Israel departed thence at that time, every man to his tribe and to his family, and they went out from thence every man to his inheritance.  
-> <sup>25</sup> In those days *there was* no king in Israel: every man did *that which was* right in his own eyes.  
+> **¹⁶** Then the elders of the congregation said, How shall we do for wives for them that remain, seeing the women are destroyed out of Benjamin?  
+> **¹⁷** And they said, *There must be* an inheritance for them that be escaped of Benjamin, that a tribe be not destroyed out of Israel.  
+> **¹⁸** Howbeit we may not give them wives of our daughters: for the children of Israel have sworn, saying, Cursed *be* he that giveth a wife to Benjamin.  
+> **¹⁹** Then they said, Behold, *there is* a feast of the LORD in Shiloh yearly *in a place* which *is* on the north side of Beth-el, on the east side of the highway that goeth up from Beth-el to Shechem, and on the south of Lebonah.  
+> **²⁰** Therefore they commanded the children of Benjamin, saying, Go and lie in wait in the vineyards;  
+> **²¹** And see, and, behold, if the daughters of Shiloh come out to dance in dances, then come ye out of the vineyards, and catch you every man his wife of the daughters of Shiloh, and go to the land of Benjamin.  
+> **²²** And it shall be, when their fathers or their brethren come unto us to complain, that we will say unto them, Be favourable unto them for our sakes: because we reserved not to each man his wife in the war: for ye did not give unto them at this time, *that* ye should be guilty.  
+> **²³** And the children of Benjamin did so, and took *them* wives, according to their number, of them that danced, whom they caught: and they went and returned unto their inheritance, and repaired the cities, and dwelt in them.  
+> **²⁴** And the children of Israel departed thence at that time, every man to his tribe and to his family, and they went out from thence every man to his inheritance.  
+> **²⁵** In those days *there was* no king in Israel: every man did *that which was* right in his own eyes.  
 
 We have here the method that was taken to provide the 200 Benjamites that remained with wives. And, though the tribe was reduced to a small number, they were only in care to provide each man with one wife, not with more under pretence of multiplying them the faster. They may not bestow their daughters upon them, but to save their oath, and yet marry some of their daughters to them, they put them into a way of taking them by surprise, and marrying them, which should be ratified by their parents' consent, *ex post facto*—*afterwards.* The less consideration is used before the making of a vow, the more, commonly, there is need of afterwards for the keeping of it.
 

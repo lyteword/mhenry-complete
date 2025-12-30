@@ -8,12 +8,12 @@ At the start of this chapter, concerning the baptism of John, begins the gospel 
 
 ## The Preaching of John the Baptist.
 
-> <sup>1</sup> In those days came John the Baptist, preaching in the wilderness of Judea,  
-> <sup>2</sup> And saying, Repent ye: for the kingdom of heaven is at hand.  
-> <sup>3</sup> For this is he that was spoken of by the prophet Esaias, saying, The voice of one crying in the wilderness, Prepare ye the way of the Lord, make his paths straight.  
-> <sup>4</sup> And the same John had his raiment of camel's hair, and a leathern girdle about his loins; and his meat was locusts and wild honey.  
-> <sup>5</sup> Then went out to him Jerusalem, and all Judea, and all the region round about Jordan,  
-> <sup>6</sup> And were baptized of him in Jordan, confessing their sins.  
+> **¹** In those days came John the Baptist, preaching in the wilderness of Judea,  
+> **²** And saying, Repent ye: for the kingdom of heaven is at hand.  
+> **³** For this is he that was spoken of by the prophet Esaias, saying, The voice of one crying in the wilderness, Prepare ye the way of the Lord, make his paths straight.  
+> **⁴** And the same John had his raiment of camel's hair, and a leathern girdle about his loins; and his meat was locusts and wild honey.  
+> **⁵** Then went out to him Jerusalem, and all Judea, and all the region round about Jordan,  
+> **⁶** And were baptized of him in Jordan, confessing their sins.  
 
 We have here an account of the preaching and baptism of John, which were the dawning of the gospel-day. Observe,
 
@@ -49,12 +49,12 @@ VII\. The rite, or ceremony, by which he admitted disciples, Mt 3:6. Those who r
 
 ## The Preaching of John the Baptist.
 
-> <sup>7</sup> But when he saw many of the Pharisees and Sadducees come to his baptism, he said unto them, O generation of vipers, who hath warned you to flee from the wrath to come?  
-> <sup>8</sup> Bring forth therefore fruits meet for repentance:  
-> <sup>9</sup> And think not to say within yourselves, We have Abraham to *our* father: for I say unto you, that God is able of these stones to raise up children unto Abraham.  
-> <sup>10</sup> And now also the axe is laid unto the root of the trees: therefore every tree which bringeth not forth good fruit is hewn down, and cast into the fire.  
-> <sup>11</sup> I indeed baptize you with water unto repentance: but he that cometh after me is mightier than I, whose shoes I am not worthy to bear: he shall baptize you with the Holy Ghost, and *with* fire:  
-> <sup>12</sup> Whose fan *is* in his hand, and he will throughly purge his floor, and gather his wheat into the garner; but he will burn up the chaff with unquenchable fire.  
+> **⁷** But when he saw many of the Pharisees and Sadducees come to his baptism, he said unto them, O generation of vipers, who hath warned you to flee from the wrath to come?  
+> **⁸** Bring forth therefore fruits meet for repentance:  
+> **⁹** And think not to say within yourselves, We have Abraham to *our* father: for I say unto you, that God is able of these stones to raise up children unto Abraham.  
+> **¹⁰** And now also the axe is laid unto the root of the trees: therefore every tree which bringeth not forth good fruit is hewn down, and cast into the fire.  
+> **¹¹** I indeed baptize you with water unto repentance: but he that cometh after me is mightier than I, whose shoes I am not worthy to bear: he shall baptize you with the Holy Ghost, and *with* fire:  
+> **¹²** Whose fan *is* in his hand, and he will throughly purge his floor, and gather his wheat into the garner; but he will burn up the chaff with unquenchable fire.  
 
 The doctrine John preached was that of repentance, in consideration of the *kingdom of heaven* being *at hand;* now here we have the use of that doctrine. Application is the life of preaching, so it was of John's preaching.
 
@@ -88,11 +88,11 @@ V\. A word of instruction concerning Jesus Christ, in whom all John's preaching 
 
 ## The Baptism of Jesus.
 
-> <sup>13</sup> Then cometh Jesus from Galilee to Jordan unto John, to be baptized of him.  
-> <sup>14</sup> But John forbad him, saying, I have need to be baptized of thee, and comest thou to me?  
-> <sup>15</sup> And Jesus answering said unto him, Suffer *it to be so* now: for thus it becometh us to fulfil all righteousness. Then he suffered him.  
-> <sup>16</sup> And Jesus, when he was baptized, went up straightway out of the water: and, lo, the heavens were opened unto him, and he saw the Spirit of God descending like a dove, and lighting upon him:  
-> <sup>17</sup> And lo a voice from heaven, saying, This is my beloved Son, in whom I am well pleased.  
+> **¹³** Then cometh Jesus from Galilee to Jordan unto John, to be baptized of him.  
+> **¹⁴** But John forbad him, saying, I have need to be baptized of thee, and comest thou to me?  
+> **¹⁵** And Jesus answering said unto him, Suffer *it to be so* now: for thus it becometh us to fulfil all righteousness. Then he suffered him.  
+> **¹⁶** And Jesus, when he was baptized, went up straightway out of the water: and, lo, the heavens were opened unto him, and he saw the Spirit of God descending like a dove, and lighting upon him:  
+> **¹⁷** And lo a voice from heaven, saying, This is my beloved Son, in whom I am well pleased.  
 
 Our Lord Jesus, from his childhood till now, when he was almost thirty years of age, had lain hid in Galilee, as it were, buried alive; but now, after a long and dark night, behold, *the Sun of righteousness* rises in glory. *The fulness of time was come* that Christ should enter upon his prophetical office; and he chooses to do it, not at Jerusalem (though it is probable that he went thither at the three yearly feasts, as others did), but there *where John was baptizing;* for to him resorted those who *waited for the consolation of Israel,* to whom alone he would be welcome. John the Baptist was six months older than our Saviour, and it is supposed that he began to preach and baptize about six months before Christ appeared; so long he was employed in preparing his way, *in the region round about Jordan;* and more was done towards it in these six months than had been done in several ages before. Christ's coming from Galilee *to Jordan, to be baptized,* teaches us not the shrink from pain and toil, that we may have an opportunity of drawing nigh to God in ordinance. We should be willing to go far, rather than come short of communion with God. Those who will find must seek.
 

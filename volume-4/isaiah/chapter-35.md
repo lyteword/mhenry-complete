@@ -8,10 +8,10 @@ As after a prediction of God's judgments upon the world (Isa 24:1-23) follows a 
 
 ## The Blessings of the Gospel. (b. c. 720.)
 
-> <sup>1</sup> The wilderness and the solitary place shall be glad for them; and the desert shall rejoice, and blossom as the rose.  
-> <sup>2</sup> It shall blossom abundantly, and rejoice even with joy and singing: the glory of Lebanon shall be given unto it, the excellency of Carmel and Sharon, they shall see the glory of the LORD, *and* the excellency of our God.  
-> <sup>3</sup> Strengthen ye the weak hands, and confirm the feeble knees.  
-> <sup>4</sup> Say to them *that are* of a fearful heart, Be strong, fear not: behold, your God will come *with* vengeance, *even* God *with* a recompence; he will come and save you.  
+> **¹** The wilderness and the solitary place shall be glad for them; and the desert shall rejoice, and blossom as the rose.  
+> **²** It shall blossom abundantly, and rejoice even with joy and singing: the glory of Lebanon shall be given unto it, the excellency of Carmel and Sharon, they shall see the glory of the LORD, *and* the excellency of our God.  
+> **³** Strengthen ye the weak hands, and confirm the feeble knees.  
+> **⁴** Say to them *that are* of a fearful heart, Be strong, fear not: behold, your God will come *with* vengeance, *even* God *with* a recompence; he will come and save you.  
 
 In these verses we have,
 
@@ -25,12 +25,12 @@ IV\. Assurance given of the approach of a Saviour: "*Your God will come with ven
 
 ## The Blessings of the Gospel. (b. c. 720.)
 
-> <sup>5</sup> Then the eyes of the blind shall be opened, and the ears of the deaf shall be unstopped.  
-> <sup>6</sup> Then shall the lame *man* leap as a hart, and the tongue of the dumb sing: for in the wilderness shall waters break out, and streams in the desert.  
-> <sup>7</sup> And the parched ground shall become a pool, and the thirsty land springs of water: in the habitation of dragons, where each lay, *shall be* grass with reeds and rushes.  
-> <sup>8</sup> And a highway shall be there, and a way, and it shall be called The way of holiness; the unclean shall not pass over it; but it *shall be* for those: the wayfaring men, though fools, shall not err *therein.*  
-> <sup>9</sup> No lion shall be there, nor *any* ravenous beast shall go up thereon, it shall not be found there; but the redeemed shall walk *there:*  
-> <sup>10</sup> And the ransomed of the LORD shall return, and come to Zion with songs and everlasting joy upon their heads: they shall obtain joy and gladness, and sorrow and sighing shall flee away.  
+> **⁵** Then the eyes of the blind shall be opened, and the ears of the deaf shall be unstopped.  
+> **⁶** Then shall the lame *man* leap as a hart, and the tongue of the dumb sing: for in the wilderness shall waters break out, and streams in the desert.  
+> **⁷** And the parched ground shall become a pool, and the thirsty land springs of water: in the habitation of dragons, where each lay, *shall be* grass with reeds and rushes.  
+> **⁸** And a highway shall be there, and a way, and it shall be called The way of holiness; the unclean shall not pass over it; but it *shall be* for those: the wayfaring men, though fools, shall not err *therein.*  
+> **⁹** No lion shall be there, nor *any* ravenous beast shall go up thereon, it shall not be found there; but the redeemed shall walk *there:*  
+> **¹⁰** And the ransomed of the LORD shall return, and come to Zion with songs and everlasting joy upon their heads: they shall obtain joy and gladness, and sorrow and sighing shall flee away.  
 
 "*Then,* when your God shall come, even Christ, to set up his kingdom in the world, to which all the prophets bore witness, especially towards the conclusion of their prophecies of the temporal deliverances of the church, and this evangelical prophet especially—then look for great things."
 

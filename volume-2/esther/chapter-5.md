@@ -8,14 +8,14 @@ The last news we had of Haman left him in his cups, Es 3:15. Our last news of qu
 
 ## Esther's Approach to the King. (b. c. 510.)
 
-> <sup>1</sup> Now it came to pass on the third day, that Esther put on *her* royal *apparel,* and stood in the inner court of the king's house, over against the king's house: and the king sat upon his royal throne in the royal house, over against the gate of the house.  
-> <sup>2</sup> And it was so, when the king saw Esther the queen standing in the court, *that* she obtained favour in his sight: and the king held out to Esther the golden sceptre that *was* in his hand. So Esther drew near, and touched the top of the sceptre.  
-> <sup>3</sup> Then said the king unto her, What wilt thou, queen Esther? and what *is* thy request? it shall be even given thee to the half of the kingdom.  
-> <sup>4</sup> And Esther answered, If *it seem* good unto the king, let the king and Haman come this day unto the banquet that I have prepared for him.  
-> <sup>5</sup> Then the king said, Cause Haman to make haste, that he may do as Esther hath said. So the king and Haman came to the banquet that Esther had prepared.  
-> <sup>6</sup> And the king said unto Esther at the banquet of wine, What *is* thy petition? and it shall be granted thee: and what *is* thy request? even to the half of the kingdom it shall be performed.  
-> <sup>7</sup> Then answered Esther, and said, My petition and my request *is;*  
-> <sup>8</sup> If I have found favour in the sight of the king, and if it please the king to grant my petition, and to perform my request, let the king and Haman come to the banquet that I shall prepare for them, and I will do to morrow as the king hath said.  
+> **¹** Now it came to pass on the third day, that Esther put on *her* royal *apparel,* and stood in the inner court of the king's house, over against the king's house: and the king sat upon his royal throne in the royal house, over against the gate of the house.  
+> **²** And it was so, when the king saw Esther the queen standing in the court, *that* she obtained favour in his sight: and the king held out to Esther the golden sceptre that *was* in his hand. So Esther drew near, and touched the top of the sceptre.  
+> **³** Then said the king unto her, What wilt thou, queen Esther? and what *is* thy request? it shall be even given thee to the half of the kingdom.  
+> **⁴** And Esther answered, If *it seem* good unto the king, let the king and Haman come this day unto the banquet that I have prepared for him.  
+> **⁵** Then the king said, Cause Haman to make haste, that he may do as Esther hath said. So the king and Haman came to the banquet that Esther had prepared.  
+> **⁶** And the king said unto Esther at the banquet of wine, What *is* thy petition? and it shall be granted thee: and what *is* thy request? even to the half of the kingdom it shall be performed.  
+> **⁷** Then answered Esther, and said, My petition and my request *is;*  
+> **⁸** If I have found favour in the sight of the king, and if it please the king to grant my petition, and to perform my request, let the king and Haman come to the banquet that I shall prepare for them, and I will do to morrow as the king hath said.  
 
 Here is, I. Esther's bold approach to the king, Es 5:1. When the time appointed for their fast was finished she lost no time, but on the third day, when the impression of her devotions were fresh upon her spirit, she addressed the king. When the heart is enlarged in communion with God it will be emboldened in doing and suffering for him. Some think that the three days' fast was only one whole day and two whole nights, in all which time they did not take any food at all, and that this is called *three days,* as Christ's lying in the grave so long is. This exposition is favoured by the consideration that on the third day the queen made her appearance at court. Resolutions which have difficulties and dangers to break though should be pursued without delay, lest they cool and slacken. *What thou doest,* which must be done boldly, *do it quickly.* Now she *put on her royal apparel,* that she might the better recommend herself to the king, and laid aside her fast-day clothes. She put on her fine clothes, not to please herself, but her husband; in her prayer, as we find in the Apocrypha (Esther xiv. 16), she thus appeals to God: *Thou knowest, Lord, I abhor the sign of my high estate which is upon my head, in the days wherein I show myself, etc.* Let hose whose rank obliges them to wear rich clothes learn hence to be dead to them, and not make them their adorning. She stood *in the inner court over against the king,* expecting her doom, between hope and fear.
 
@@ -33,12 +33,12 @@ II\. The favourable reception which the king gave her. When he *saw her* she *ob
 
 ## Haman's Joy and Chagrin; Haman's Mediated Revenge. (b. c. 510.)
 
-> <sup>9</sup> Then went Haman forth that day joyful and with a glad heart: but when Haman saw Mordecai in the king's gate, that he stood not up, nor moved for him, he was full of indignation against Mordecai.  
-> <sup>10</sup> Nevertheless Haman refrained himself: and when he came home, he sent and called for his friends, and Zeresh his wife.  
-> <sup>11</sup> And Haman told them of the glory of his riches, and the multitude of his children, and all *the things* wherein the king had promoted him, and how he had advanced him above the princes and servants of the king.  
-> <sup>12</sup> Haman said moreover, Yea, Esther the queen did let no man come in with the king unto the banquet that she had prepared but myself; and to morrow am I invited unto her also with the king.  
-> <sup>13</sup> Yet all this availeth me nothing, so long as I see Mordecai the Jew sitting at the king's gate.  
-> <sup>14</sup> Then said Zeresh his wife and all his friends unto him, Let a gallows be made of fifty cubits high, and to morrow speak thou unto the king that Mordecai may be hanged thereon: then go thou in merrily with the king unto the banquet. And the thing pleased Haman; and he caused the gallows to be made.  
+> **⁹** Then went Haman forth that day joyful and with a glad heart: but when Haman saw Mordecai in the king's gate, that he stood not up, nor moved for him, he was full of indignation against Mordecai.  
+> **¹⁰** Nevertheless Haman refrained himself: and when he came home, he sent and called for his friends, and Zeresh his wife.  
+> **¹¹** And Haman told them of the glory of his riches, and the multitude of his children, and all *the things* wherein the king had promoted him, and how he had advanced him above the princes and servants of the king.  
+> **¹²** Haman said moreover, Yea, Esther the queen did let no man come in with the king unto the banquet that she had prepared but myself; and to morrow am I invited unto her also with the king.  
+> **¹³** Yet all this availeth me nothing, so long as I see Mordecai the Jew sitting at the king's gate.  
+> **¹⁴** Then said Zeresh his wife and all his friends unto him, Let a gallows be made of fifty cubits high, and to morrow speak thou unto the king that Mordecai may be hanged thereon: then go thou in merrily with the king unto the banquet. And the thing pleased Haman; and he caused the gallows to be made.  
 
 This account here given of Haman is a comment upon that of Solomon, Pr 21:24. *Proud and haughty scorner is his name that deals in proud wrath.* Never did any man more answer that name than Haman, in whom pride and wrath had so much the ascendant. See him,
 

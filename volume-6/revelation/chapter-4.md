@@ -8,14 +8,14 @@ In this chapter the prophetical scene opens; and, as the epistolary part opened 
 
 ## The Vision of Heaven. (a. d. 95.)
 
-> <sup>1</sup> After this I looked, and, behold, a door *was* opened in heaven: and the first voice which I heard *was* as it were of a trumpet talking with me; which said, Come up hither, and I will show thee things which must be hereafter.  
-> <sup>2</sup> And immediately I was in the spirit: and, behold, a throne was set in heaven, and *one* sat on the throne.  
-> <sup>3</sup> And he that sat was to look upon like a jasper and a sardine stone: and *there was* a rainbow round about the throne, in sight like unto an emerald.  
-> <sup>4</sup> And round about the throne *were* four and twenty seats: and upon the seats I saw four and twenty elders sitting, clothed in white raiment; and they had on their heads crowns of gold.  
-> <sup>5</sup> And out of the throne proceeded lightnings and thunderings and voices: and *there were* seven lamps of fire burning before the throne, which are the seven Spirits of God.  
-> <sup>6</sup> And before the throne *there was* a sea of glass like unto crystal: and in the midst of the throne, and round about the throne, *were* four beasts full of eyes before and behind.  
-> <sup>7</sup> And the first beast *was* like a lion, and the second beast like a calf, and the third beast had a face as a man, and the fourth beast *was* like a flying eagle.  
-> <sup>8</sup> And the four beasts had each of them six wings about *him;* and *they were* full of eyes within—  
+> **¹** After this I looked, and, behold, a door *was* opened in heaven: and the first voice which I heard *was* as it were of a trumpet talking with me; which said, Come up hither, and I will show thee things which must be hereafter.  
+> **²** And immediately I was in the spirit: and, behold, a throne was set in heaven, and *one* sat on the throne.  
+> **³** And he that sat was to look upon like a jasper and a sardine stone: and *there was* a rainbow round about the throne, in sight like unto an emerald.  
+> **⁴** And round about the throne *were* four and twenty seats: and upon the seats I saw four and twenty elders sitting, clothed in white raiment; and they had on their heads crowns of gold.  
+> **⁵** And out of the throne proceeded lightnings and thunderings and voices: and *there were* seven lamps of fire burning before the throne, which are the seven Spirits of God.  
+> **⁶** And before the throne *there was* a sea of glass like unto crystal: and in the midst of the throne, and round about the throne, *were* four beasts full of eyes before and behind.  
+> **⁷** And the first beast *was* like a lion, and the second beast like a calf, and the third beast had a face as a man, and the fourth beast *was* like a flying eagle.  
+> **⁸** And the four beasts had each of them six wings about *him;* and *they were* full of eyes within—  
 
 We have here an account of a second vision with which the apostle John was favoured: *After this,* that is, not only "after I had seen the vision of Christ walking in the midst of the golden candlesticks," but "after I had taken his messages from his mouth, and written and sent them to the several churches, according to his command, after this I had another vision." Those who well improve the discoveries they have had of God already are prepared thereby for more, and may expect them. Observe,
 
@@ -31,10 +31,10 @@ II\. The vision itself. It begins with the strange sights that the apostle saw, 
 
 ## The Vision of Heaven. (a. d. 95.)
 
-> <sup>8</sup> And they rest not day and night, saying, Holy, holy, holy, Lord God Almighty, which was, and is, and is to come.  
-> <sup>9</sup> And when those beasts give glory and honour and thanks to him that sat on the throne, who liveth for ever and ever,  
-> <sup>10</sup> The four and twenty elders fall down before him that sat on the throne, and worship him that liveth for ever and ever, and cast their crowns before the throne, saying,  
-> <sup>11</sup> Thou art worthy, O Lord, to receive glory and honour and power: for thou hast created all things, and for thy pleasure they are and were created.  
+> **⁸** And they rest not day and night, saying, Holy, holy, holy, Lord God Almighty, which was, and is, and is to come.  
+> **⁹** And when those beasts give glory and honour and thanks to him that sat on the throne, who liveth for ever and ever,  
+> **¹⁰** The four and twenty elders fall down before him that sat on the throne, and worship him that liveth for ever and ever, and cast their crowns before the throne, saying,  
+> **¹¹** Thou art worthy, O Lord, to receive glory and honour and power: for thou hast created all things, and for thy pleasure they are and were created.  
 
 We have considered the sights that the apostle saw in heaven: now let us observe the songs that he heard, for there is in heaven not only that to be seen which will highly please a sanctified eye, but there is that to be heard which will greatly delight a sanctified ear. This is true concerning the church of Christ here, which is a heaven upon earth, and it will be eminently so in the church made perfect in the heaven of heavens.
 

@@ -8,9 +8,9 @@ Solomon, in this chapter, discourses, I. Concerning the worship of God, prescrib
 
 ## A Caution to Worshippers.
 
-> <sup>1</sup> Keep thy foot when thou goest to the house of God, and be more ready to hear, than to give the sacrifice of fools: for they consider not that they do evil.  
-> <sup>2</sup> Be not rash with thy mouth, and let not thine heart be hasty to utter *any* thing before God: for God *is* in heaven, and thou upon earth: therefore let thy words be few.  
-> <sup>3</sup> For a dream cometh through the multitude of business; and a fool's voice *is known* by multitude of words.  
+> **¹** Keep thy foot when thou goest to the house of God, and be more ready to hear, than to give the sacrifice of fools: for they consider not that they do evil.  
+> **²** Be not rash with thy mouth, and let not thine heart be hasty to utter *any* thing before God: for God *is* in heaven, and thou upon earth: therefore let thy words be few.  
+> **³** For a dream cometh through the multitude of business; and a fool's voice *is known* by multitude of words.  
 
 Solomon's design, in driving us off from the world, by showing us its vanity, is to drive us to God and to our duty, that we may not walk in the way of the world, but by religious rules, nor depend upon the wealth of the world, but on religious advantages; and therefore,
 
@@ -30,11 +30,11 @@ II\. He charges us to behave ourselves well there, that we may not miss of our e
 
 ## The Obligation of a Vow.
 
-> <sup>4</sup> When thou vowest a vow unto God, defer not to pay it; for *he hath* no pleasure in fools: pay that which thou hast vowed.  
-> <sup>5</sup> Better *is it* that thou shouldest not vow, than that thou shouldest vow and not pay.  
-> <sup>6</sup> Suffer not thy mouth to cause thy flesh to sin; neither say thou before the angel, that it *was* an error: wherefore should God be angry at thy voice, and destroy the work of thine hands?  
-> <sup>7</sup> For in the multitude of dreams and many words *there are* also *divers* vanities: but fear thou God.  
-> <sup>8</sup> If thou seest the oppression of the poor, and violent perverting of judgment and justice in a province, marvel not at the matter: for *he that is* higher than the highest regardeth; and *there be* higher than they.  
+> **⁴** When thou vowest a vow unto God, defer not to pay it; for *he hath* no pleasure in fools: pay that which thou hast vowed.  
+> **⁵** Better *is it* that thou shouldest not vow, than that thou shouldest vow and not pay.  
+> **⁶** Suffer not thy mouth to cause thy flesh to sin; neither say thou before the angel, that it *was* an error: wherefore should God be angry at thy voice, and destroy the work of thine hands?  
+> **⁷** For in the multitude of dreams and many words *there are* also *divers* vanities: but fear thou God.  
+> **⁸** If thou seest the oppression of the poor, and violent perverting of judgment and justice in a province, marvel not at the matter: for *he that is* higher than the highest regardeth; and *there be* higher than they.  
 
 Four things we are exhorted to in these verses:—
 
@@ -52,15 +52,15 @@ IV\. With that to keep down the fear of man, Ec 5:8. "Set God before thee, and t
 
 ## The Vanity of Riches.
 
-> <sup>9</sup> Moreover the profit of the earth is for all: the king *himself* is served by the field.  
-> <sup>10</sup> He that loveth silver shall not be satisfied with silver; nor he that loveth abundance with increase: this *is* also vanity.  
-> <sup>11</sup> When goods increase, they are increased that eat them: and what good *is there* to the owners thereof, saving the beholding *of them* with their eyes?  
-> <sup>12</sup> The sleep of a labouring man *is* sweet, whether he eat little or much: but the abundance of the rich will not suffer him to sleep.  
-> <sup>13</sup> There is a sore evil *which* I have seen under the sun, *namely,* riches kept for the owners thereof to their hurt.  
-> <sup>14</sup> But those riches perish by evil travail: and he begetteth a son, and *there is* nothing in his hand.  
-> <sup>15</sup> As he came forth of his mother's womb, naked shall he return to go as he came, and shall take nothing of his labour, which he may carry away in his hand.  
-> <sup>16</sup> And this also *is* a sore evil, *that* in all points as he came, so shall he go: and what profit hath he that hath laboured for the wind?  
-> <sup>17</sup> All his days also he eateth in darkness, and *he hath* much sorrow and wrath with his sickness.  
+> **⁹** Moreover the profit of the earth is for all: the king *himself* is served by the field.  
+> **¹⁰** He that loveth silver shall not be satisfied with silver; nor he that loveth abundance with increase: this *is* also vanity.  
+> **¹¹** When goods increase, they are increased that eat them: and what good *is there* to the owners thereof, saving the beholding *of them* with their eyes?  
+> **¹²** The sleep of a labouring man *is* sweet, whether he eat little or much: but the abundance of the rich will not suffer him to sleep.  
+> **¹³** There is a sore evil *which* I have seen under the sun, *namely,* riches kept for the owners thereof to their hurt.  
+> **¹⁴** But those riches perish by evil travail: and he begetteth a son, and *there is* nothing in his hand.  
+> **¹⁵** As he came forth of his mother's womb, naked shall he return to go as he came, and shall take nothing of his labour, which he may carry away in his hand.  
+> **¹⁶** And this also *is* a sore evil, *that* in all points as he came, so shall he go: and what profit hath he that hath laboured for the wind?  
+> **¹⁷** All his days also he eateth in darkness, and *he hath* much sorrow and wrath with his sickness.  
 
 Solomon had shown the vanity of pleasure, gaiety, and fine works, of honour, power, and royal dignity; and there is many a covetous worldling that will agree with him, and speak as slightly as he does of these things; but money, he thinks, is a substantial thing, and if he can but have enough of that he is happy. This is the mistake which Solomon attacks, and attempts to rectify, in these verses; he shows that there is as much vanity in great riches, and the *lust of the eye* about them, as there is in the *lusts of the flesh* and the *pride of life,* and a man can make himself no more happy by hoarding an estate than by spending it.
 
@@ -84,9 +84,9 @@ II\. He maintains that the riches that are more than these, that are for hoardin
 
 ## Grateful Enjoyment.
 
-> <sup>18</sup> Behold *that* which I have seen: *it is* good and comely *for one* to eat and to drink, and to enjoy the good of all his labour that he taketh under the sun all the days of his life, which God giveth him: for it *is* his portion.  
-> <sup>19</sup> Every man also to whom God hath given riches and wealth, and hath given him power to eat thereof, and to take his portion, and to rejoice in his labour; this *is* the gift of God.  
-> <sup>20</sup> For he shall not much remember the days of his life; because God answereth *him* in the joy of his heart.  
+> **¹⁸** Behold *that* which I have seen: *it is* good and comely *for one* to eat and to drink, and to enjoy the good of all his labour that he taketh under the sun all the days of his life, which God giveth him: for it *is* his portion.  
+> **¹⁹** Every man also to whom God hath given riches and wealth, and hath given him power to eat thereof, and to take his portion, and to rejoice in his labour; this *is* the gift of God.  
+> **²⁰** For he shall not much remember the days of his life; because God answereth *him* in the joy of his heart.  
 
 Solomon, from the vanity of riches hoarded up, here infers that the best course we can take is to use well what we have, to serve God with it, to do good with it, and take the comfort of it to ourselves and our families; this he had pressed before, Ec 2:24,3:22. Observe, 1. What it is that is here recommended to us, not to indulge the appetites of the flesh, or to take up with present pleasures or profits for our portion, but soberly and moderately to make use of what Providence has allotted for our comfortable passage through this world. We must not starve ourselves through covetousness, because we cannot afford ourselves food convenient, nor through eagerness in our worldly pursuits, nor through excessive care and grief, but *eat and drink* what is fit for us to keep our bodies in good plight for the serving of our souls in God's service. We must not kill ourselves with *labour,* and then leave others *to enjoy the good* of it, but take the comfort of that which our hands have laboured for, and that not now and then, but *all the days of our life which God gives us.* Life is God's gift, and he has appointed us *the number of the days* of our life (Job 14:5); let us therefore spend those days in *serving the Lord our God with joyfulness and gladness of heart.* We must not do the business of our calling as a drudgery, and make ourselves slaves to it, but we must *rejoice in our labour,* not grasp at more business than we can go through without perplexity and disquiet, but take a pleasure in the calling wherein God has put us, and go on in the business of it with cheerfulness. This it to *rejoice in our labour,* whatever it is, as *Zebulun in his going out and Issachar in his tents.* 2. What is urged to recommend it to us. (1.) That *it is good and comely* to do this. It is well, and it looks well. Those that cheerfully use what God has given them thereby honour the giver, answer the intention of the gift, act rationally and generously, do good in the world, and make what they have turn to the best account, and this is both their credit and their comfort; *it is good and comely;* there is duty and decency in it. (2.) That it is all the good we can have out of the things of this world: *It is our portion,* and in doing thus we take our portion, and make the best of bad. This is our part of our worldly possession. God must have his part, the poor theirs, and our families theirs, but this is ours; it is all that falls to our lot out of them. (3.) That a heart to do thus is such a gift of God's grace as crowns all the gifts of his providence. If God has given a man *riches and wealth,* he completes the favour, and makes that a blessing indeed, if withal he *gives him power to eat thereof,* wisdom and grace to take the good of it and to do good with it. If this *is God's gift,* we must *covet* it *earnestly* as *the best gift* relating to our enjoyments in this world. (4.) That this is the way to make our own lives easy and to relieve ourselves against the many toils and troubles which our lives on earth are incident to (Ec 5:20): *He shall not much remember the days of his life,* the days of his sorrow and sore travail, his working days, his weeping days. He shall either forget them or remember them as waters that pass away; he shall not much lay to heart his crosses, nor long retain the bitter relish of them, *because God answers him in the joy of his heart,* balances all the grievances of his labour with the joy of it and recompenses him for it by giving him to *eat the labour of his hands.* If he does not answer all his desires and expectations, in the letter of them, yet he answers them with that which is more than equivalent, *in the joy of his heart.* A cheerful spirit is a great blessing; it makes the yoke of our employments easy and the burden of our afflictions light.
 

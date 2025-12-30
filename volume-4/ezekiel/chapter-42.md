@@ -8,20 +8,20 @@ This chapter continues and concludes the describing and measuring of this mystic
 
 ## The Vision of the Temple. (b. c. 574.)
 
-> <sup>1</sup> Then he brought me forth into the utter court, the way toward the north: and he brought me into the chamber that *was* over against the separate place, and which *was* before the building toward the north.  
-> <sup>2</sup> Before the length of a hundred cubits *was* the north door, and the breadth *was* fifty cubits.  
-> <sup>3</sup> Over against the twenty *cubits* which *were* for the inner court, and over against the pavement which *was* for the utter court, *was* gallery against gallery in three *stories.*  
-> <sup>4</sup> And before the chambers *was* a walk of ten cubits breadth inward, a way of one cubit; and their doors toward the north.  
-> <sup>5</sup> Now the upper chambers *were* shorter: for the galleries were higher than these, than the lower, and than the middlemost of the building.  
-> <sup>6</sup> For they *were* in three *stories,* but had not pillars as the pillars of the courts: therefore *the building* was straitened more than the lowest and the middlemost from the ground.  
-> <sup>7</sup> And the wall that *was* without over against the chambers, toward the utter court on the forepart of the chambers, the length thereof *was* fifty cubits.  
-> <sup>8</sup> For the length of the chambers that *were* in the utter court *was* fifty cubits: and, lo, before the temple *were* a hundred cubits.  
-> <sup>9</sup> And from under these chambers *was* the entry on the east side, as one goeth into them from the utter court.  
-> <sup>10</sup> The chambers *were* in the thickness of the wall of the court toward the east, over against the separate place, and over against the building.  
-> <sup>11</sup> And the way before them *was* like the appearance of the chambers which *were* toward the north, as long as they, *and* as broad as they: and all their goings out *were* both according to their fashions, and according to their doors.  
-> <sup>12</sup> And according to the doors of the chambers that *were* toward the south *was* a door in the head of the way, *even* the way directly before the wall toward the east, as one entereth into them.  
-> <sup>13</sup> Then said he unto me, The north chambers *and* the south chambers, which *are* before the separate place, they *be* holy chambers, where the priests that approach unto the LORD shall eat the most holy things: there shall they lay the most holy things, and the meat offering, and the sin offering, and the trespass offering; for the place *is* holy.  
-> <sup>14</sup> When the priests enter therein, then shall they not go out of the holy *place* into the utter court, but there they shall lay their garments wherein they minister; for they *are* holy; and shall put on other garments, and shall approach to *those things* which *are* for the people.  
+> **¹** Then he brought me forth into the utter court, the way toward the north: and he brought me into the chamber that *was* over against the separate place, and which *was* before the building toward the north.  
+> **²** Before the length of a hundred cubits *was* the north door, and the breadth *was* fifty cubits.  
+> **³** Over against the twenty *cubits* which *were* for the inner court, and over against the pavement which *was* for the utter court, *was* gallery against gallery in three *stories.*  
+> **⁴** And before the chambers *was* a walk of ten cubits breadth inward, a way of one cubit; and their doors toward the north.  
+> **⁵** Now the upper chambers *were* shorter: for the galleries were higher than these, than the lower, and than the middlemost of the building.  
+> **⁶** For they *were* in three *stories,* but had not pillars as the pillars of the courts: therefore *the building* was straitened more than the lowest and the middlemost from the ground.  
+> **⁷** And the wall that *was* without over against the chambers, toward the utter court on the forepart of the chambers, the length thereof *was* fifty cubits.  
+> **⁸** For the length of the chambers that *were* in the utter court *was* fifty cubits: and, lo, before the temple *were* a hundred cubits.  
+> **⁹** And from under these chambers *was* the entry on the east side, as one goeth into them from the utter court.  
+> **¹⁰** The chambers *were* in the thickness of the wall of the court toward the east, over against the separate place, and over against the building.  
+> **¹¹** And the way before them *was* like the appearance of the chambers which *were* toward the north, as long as they, *and* as broad as they: and all their goings out *were* both according to their fashions, and according to their doors.  
+> **¹²** And according to the doors of the chambers that *were* toward the south *was* a door in the head of the way, *even* the way directly before the wall toward the east, as one entereth into them.  
+> **¹³** Then said he unto me, The north chambers *and* the south chambers, which *are* before the separate place, they *be* holy chambers, where the priests that approach unto the LORD shall eat the most holy things: there shall they lay the most holy things, and the meat offering, and the sin offering, and the trespass offering; for the place *is* holy.  
+> **¹⁴** When the priests enter therein, then shall they not go out of the holy *place* into the utter court, but there they shall lay their garments wherein they minister; for they *are* holy; and shall put on other garments, and shall approach to *those things* which *are* for the people.  
 
 The prophet has taken a very exact view of the temple and the buildings belonging to it, and is now brought again into the outer court, to observe the chambers that were in that square.
 
@@ -31,12 +31,12 @@ II\. Here is the use of these chambers appointed, Eze 42:13,14. 1. They were *fo
 
 ## The Vision of the Temple. (b. c. 574.)
 
-> <sup>15</sup> Now when he had made an end of measuring the inner house, he brought me forth toward the gate whose prospect *is* toward the east, and measured it round about.  
-> <sup>16</sup> He measured the east side with the measuring reed, five hundred reeds, with the measuring reed round about.  
-> <sup>17</sup> He measured the north side, five hundred reeds, with the measuring reed round about.  
-> <sup>18</sup> He measured the south side, five hundred reeds, with the measuring reed.  
-> <sup>19</sup> He turned about to the west side, *and* measured five hundred reeds with the measuring reed.  
-> <sup>20</sup> He measured it by the four sides: it had a wall round about, five hundred *reeds* long, and five hundred broad, to make a separation between the sanctuary and the profane place.  
+> **¹⁵** Now when he had made an end of measuring the inner house, he brought me forth toward the gate whose prospect *is* toward the east, and measured it round about.  
+> **¹⁶** He measured the east side with the measuring reed, five hundred reeds, with the measuring reed round about.  
+> **¹⁷** He measured the north side, five hundred reeds, with the measuring reed round about.  
+> **¹⁸** He measured the south side, five hundred reeds, with the measuring reed.  
+> **¹⁹** He turned about to the west side, *and* measured five hundred reeds with the measuring reed.  
+> **²⁰** He measured it by the four sides: it had a wall round about, five hundred *reeds* long, and five hundred broad, to make a separation between the sanctuary and the profane place.  
 
 We have attended the measuring of this mystical temple and are now to see how far the holy ground on which we tread extends; and that also is here measured, and found to take in a great compass. Observe, 1. What the dimensions of it were. It extended each way 500 reeds (Eze 42:16-19), each reed above three yards and a half, so that it reached every way about an English measured mile, which, the ground lying square, was above four miles round. Thus large were the suburbs (as I may call them) of this mystical temple, signifying the great extent of the church in gospel-times, when all nations should be discipled and the kingdoms of the world made Christ's kingdoms. Room should be made in God's courts for the numerous forces of the Gentiles that shall flow into them, as was foretold, Isa 49:18,60:4. It is in part fulfilled already in the accession of the Gentiles to the church; and we trust it shall have a more full accomplishment when the *fulness of the Gentiles shall come in* and *all Israel shall be saved.* 2. Why the dimensions of it were made thus large. It was to *make a separation,* by putting a very large distance *between the sanctuary* and *the profane place;* and *therefore* there was a wall surrounding it, to keep off those that were unclean and to separate between the *precious and the vile.* Note, A difference is to be put between common and sacred things, between God's name and other names, between his day and other days, his book and other books, his institutions and other observances; and a distance is to be put between our worldly and religious actions, so as still to go about the worship of God with a solemn pause.
 

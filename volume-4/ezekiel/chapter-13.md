@@ -8,15 +8,15 @@ Mention had been made, in the chapter before, of the vain visions and flattering
 
 ## The Guilt of False Prophets. (b. c. 593.)
 
-> <sup>1</sup> And the word of the LORD came unto me, saying,  
-> <sup>2</sup> Son of man, prophesy against the prophets of Israel that prophesy, and say thou unto them that prophesy out of their own hearts, Hear ye the word of the LORD;  
-> <sup>3</sup> Thus saith the Lord GOD; Woe unto the foolish prophets, that follow their own spirit, and have seen nothing!  
-> <sup>4</sup> O Israel, thy prophets are like the foxes in the deserts.  
-> <sup>5</sup> Ye have not gone up into the gaps, neither made up the hedge for the house of Israel to stand in the battle in the day of the LORD.  
-> <sup>6</sup> They have seen vanity and lying divination, saying, The LORD saith: and the LORD hath not sent them: and they have made *others* to hope that they would confirm the word.  
-> <sup>7</sup> Have ye not seen a vain vision, and have ye not spoken a lying divination, whereas ye say, The LORD saith *it;* albeit I have not spoken?  
-> <sup>8</sup> Therefore thus saith the Lord GOD; Because ye have spoken vanity, and seen lies, therefore, behold, I *am* against you, saith the Lord GOD.  
-> <sup>9</sup> And mine hand shall be upon the prophets that see vanity, and that divine lies: they shall not be in the assembly of my people, neither shall they be written in the writing of the house of Israel, neither shall they enter into the land of Israel; and ye shall know that I *am* the Lord GOD.  
+> **¹** And the word of the LORD came unto me, saying,  
+> **²** Son of man, prophesy against the prophets of Israel that prophesy, and say thou unto them that prophesy out of their own hearts, Hear ye the word of the LORD;  
+> **³** Thus saith the Lord GOD; Woe unto the foolish prophets, that follow their own spirit, and have seen nothing!  
+> **⁴** O Israel, thy prophets are like the foxes in the deserts.  
+> **⁵** Ye have not gone up into the gaps, neither made up the hedge for the house of Israel to stand in the battle in the day of the LORD.  
+> **⁶** They have seen vanity and lying divination, saying, The LORD saith: and the LORD hath not sent them: and they have made *others* to hope that they would confirm the word.  
+> **⁷** Have ye not seen a vain vision, and have ye not spoken a lying divination, whereas ye say, The LORD saith *it;* albeit I have not spoken?  
+> **⁸** Therefore thus saith the Lord GOD; Because ye have spoken vanity, and seen lies, therefore, behold, I *am* against you, saith the Lord GOD.  
+> **⁹** And mine hand shall be upon the prophets that see vanity, and that divine lies: they shall not be in the assembly of my people, neither shall they be written in the writing of the house of Israel, neither shall they enter into the land of Israel; and ye shall know that I *am* the Lord GOD.  
 
 The false prophets, who are here prophesied against, were some of them at Jerusalem (Jer 23:14): *I have seen in the prophets at Jerusalem a horrible thing;* some of them among the captives in Babylon, for to them Jeremiah writes (Jer 29:8), *Let not your diviners, that be in the midst of you, deceive you.* And as God's prophets, though at a distance from each other in place or time, yet preached the same truths, which was an evidence that they were guided by one and the same good Spirit, so the false prophets prophesied the same lies, being actuated by one and the same spirit of error. There were little hopes of bringing them to repentance, they were so hardened in their sin; yet Ezekiel must prophesy against them, in hopes that the people might be cautioned not to hearken to them; and thus a testimony will be left upon record against them, and they will thereby be left inexcusable.
 
@@ -28,13 +28,13 @@ II\. He is directed to denounce the judgments of God against them for these sins
 
 ## The Punishment of False Prophets; The Doom of False Prophets. (b. c. 593.)
 
-> <sup>10</sup> Because, even because they have seduced my people, saying, Peace; and *there was* no peace; and one built up a wall, and, lo, others daubed it with untempered *mortar:*  
-> <sup>11</sup> Say unto them which daub *it* with untempered *mortar,* that it shall fall: there shall be an overflowing shower; and ye, O great hailstones, shall fall; and a stormy wind shall rend *it.*  
-> <sup>12</sup> Lo, when the wall is fallen, shall it not be said unto you, Where *is* the daubing wherewith ye have daubed *it?*  
-> <sup>13</sup> Therefore thus saith the Lord GOD; I will even rend *it* with a stormy wind in my fury; and there shall be an overflowing shower in mine anger, and great hailstones in *my* fury to consume *it.*  
-> <sup>14</sup> So will I break down the wall that ye have daubed with untempered *mortar,* and bring it down to the ground, so that the foundation thereof shall be discovered, and it shall fall, and ye shall be consumed in the midst thereof: and ye shall know that I *am* the LORD.  
-> <sup>15</sup> Thus will I accomplish my wrath upon the wall, and upon them that have daubed it with untempered *mortar,* and will say unto you, The wall *is* no *more,* neither they that daubed it;  
-> <sup>16</sup> *To wit,* the prophets of Israel which prophesy concerning Jerusalem, and which see visions of peace for her, and *there is* no peace, saith the Lord GOD.  
+> **¹⁰** Because, even because they have seduced my people, saying, Peace; and *there was* no peace; and one built up a wall, and, lo, others daubed it with untempered *mortar:*  
+> **¹¹** Say unto them which daub *it* with untempered *mortar,* that it shall fall: there shall be an overflowing shower; and ye, O great hailstones, shall fall; and a stormy wind shall rend *it.*  
+> **¹²** Lo, when the wall is fallen, shall it not be said unto you, Where *is* the daubing wherewith ye have daubed *it?*  
+> **¹³** Therefore thus saith the Lord GOD; I will even rend *it* with a stormy wind in my fury; and there shall be an overflowing shower in mine anger, and great hailstones in *my* fury to consume *it.*  
+> **¹⁴** So will I break down the wall that ye have daubed with untempered *mortar,* and bring it down to the ground, so that the foundation thereof shall be discovered, and it shall fall, and ye shall be consumed in the midst thereof: and ye shall know that I *am* the LORD.  
+> **¹⁵** Thus will I accomplish my wrath upon the wall, and upon them that have daubed it with untempered *mortar,* and will say unto you, The wall *is* no *more,* neither they that daubed it;  
+> **¹⁶** *To wit,* the prophets of Israel which prophesy concerning Jerusalem, and which see visions of peace for her, and *there is* no peace, saith the Lord GOD.  
 
 We have here more plain dealing with the false prophets, and some further articles of their doom. We have seen the people made ashamed of the false prophets (though sometimes they had been fond of them) and casting them away, as they shall do their false gods, with indignation; now here we find them as much ashamed of their false prophecies, which they had sometimes depended upon with much assurance. Observe,
 
@@ -44,13 +44,13 @@ II\. How they will be soon undeceived by the judgment of God, which, we are sure
 
 ## The Guilt of the False Prophetesses. (b. c. 593.)
 
-> <sup>17</sup> Likewise, thou son of man, set thy face against the daughters of thy people, which prophesy out of their own heart; and prophesy thou against them,  
-> <sup>18</sup> And say, Thus saith the Lord GOD; Woe to the *women* that sew pillows to all armholes, and make kerchiefs upon the head of every stature to hunt souls! Will ye hunt the souls of my people, and will ye save the souls alive *that come* unto you?  
-> <sup>19</sup> And will ye pollute me among my people for handfuls of barley and for pieces of bread, to slay the souls that should not die, and to save the souls alive that should not live, by your lying to my people that hear *your* lies?  
-> <sup>20</sup> Wherefore thus saith the Lord GOD; Behold, I *am* against your pillows, wherewith ye there hunt the souls to make *them* fly, and I will tear them from your arms, and will let the souls go, *even* the souls that ye hunt to make *them* fly.  
-> <sup>21</sup> Your kerchiefs also will I tear, and deliver my people out of your hand, and they shall be no more in your hand to be hunted; and ye shall know that I *am* the LORD.  
-> <sup>22</sup> Because with lies ye have made the heart of the righteous sad, whom I have not made sad; and strengthened the hands of the wicked, that he should not return from his wicked way, by promising him life:  
-> <sup>23</sup> Therefore ye shall see no more vanity, nor divine divinations: for I will deliver my people out of your hand: and ye shall know that I *am* the LORD.  
+> **¹⁷** Likewise, thou son of man, set thy face against the daughters of thy people, which prophesy out of their own heart; and prophesy thou against them,  
+> **¹⁸** And say, Thus saith the Lord GOD; Woe to the *women* that sew pillows to all armholes, and make kerchiefs upon the head of every stature to hunt souls! Will ye hunt the souls of my people, and will ye save the souls alive *that come* unto you?  
+> **¹⁹** And will ye pollute me among my people for handfuls of barley and for pieces of bread, to slay the souls that should not die, and to save the souls alive that should not live, by your lying to my people that hear *your* lies?  
+> **²⁰** Wherefore thus saith the Lord GOD; Behold, I *am* against your pillows, wherewith ye there hunt the souls to make *them* fly, and I will tear them from your arms, and will let the souls go, *even* the souls that ye hunt to make *them* fly.  
+> **²¹** Your kerchiefs also will I tear, and deliver my people out of your hand, and they shall be no more in your hand to be hunted; and ye shall know that I *am* the LORD.  
+> **²²** Because with lies ye have made the heart of the righteous sad, whom I have not made sad; and strengthened the hands of the wicked, that he should not return from his wicked way, by promising him life:  
+> **²³** Therefore ye shall see no more vanity, nor divine divinations: for I will deliver my people out of your hand: and ye shall know that I *am* the LORD.  
 
 As God has promised that when he pours out his Spirit upon his people both *their sons and their daughters shall prophesy,* so the devil, when he acts as a spirit of lies and falsehood, is so in the mouth not only of false prophets, but of false prophetesses too, and those are the deceivers whom the prophet is here directed to prophesy against; for they are not such despicable enemies to God's truths as deserve not to be taken notice of, nor yet will either the weakness of their sex excuse their sin or the tenderness and respect that are owing to it exempt them from the reproaches and threatenings of the word of God. No: *Son of man, set they face against the daughters of thy people,* Eze 13:17. God takes no pleasure in owning them for his people. They are *thy people,* as Ex 32:7. The women pretend to a spirit of prophecy, and are in the same song with the men, as Ahab's prophets were: *Go on, and prosper.* They *prophesy out of their own heart* too; they say what comes uppermost and what they know nothing of. Therefore *prophesy against them* from God's own mouth. The prophet must *set his face against them,* and try if they can look him in the face and stand to what they say. Note, When sinners grow very impudent it is time for reprovers to be very bold. Now observe,
 

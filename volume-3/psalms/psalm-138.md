@@ -10,11 +10,11 @@ It does not appear, nor is it material to enquire, upon what occasion David penn
 
 *A psalm* of David.
 
-> <sup>1</sup> I will praise thee with my whole heart: before the gods will I sing praise unto thee.  
-> <sup>2</sup> I will worship toward thy holy temple, and praise thy name for thy lovingkindness and for thy truth: for thou hast magnified thy word above all thy name.  
-> <sup>3</sup> In the day when I cried thou answeredst me, *and* strengthenedst me *with* strength in my soul.  
-> <sup>4</sup> All the kings of the earth shall praise thee, O LORD, when they hear the words of thy mouth.  
-> <sup>5</sup> Yea, they shall sing in the ways of the LORD: for great *is* the glory of the LORD.  
+> **¹** I will praise thee with my whole heart: before the gods will I sing praise unto thee.  
+> **²** I will worship toward thy holy temple, and praise thy name for thy lovingkindness and for thy truth: for thou hast magnified thy word above all thy name.  
+> **³** In the day when I cried thou answeredst me, *and* strengthenedst me *with* strength in my soul.  
+> **⁴** All the kings of the earth shall praise thee, O LORD, when they hear the words of thy mouth.  
+> **⁵** Yea, they shall sing in the ways of the LORD: for great *is* the glory of the LORD.  
 
 I\. How he would praise God, compare Ps 111:1. 1. He will praise him with sincerity and zeal—"*With my heart, with my whole heart,* with that which is within me and with all that is within me, with uprightness of intention and fervency of affection, inward impressions agreeing with outward expressions." 2. With freedom and boldness: *Before the gods will I sing praise unto thee,* before the princes, and judges, and great men, either those of other nations that visited him or those of his own nation that attended on him, even in their presence. He will not only praise God with his heart, which we may do by pious ejaculations in any company, but will sing praise if there be occasion. Note, Praising God is work which the greatest of men need not be ashamed of; it is the work of angels, the work of heaven. *Before the angels* (so some understand it), that is, in religious assemblies, where there is a special presence of angels, 1Co 11:10. 3. In the way that God had appointed: *I will worship towards thy holy temple.* The priests alone went into the temple; the people, at the nearest, did but worship towards it, and that they might do at a distance. Christ is our temple, and towards him we must look with an eye of faith, as Mediator between us and God, in all our praises of him. Heaven is God's holy temple, and thitherward we must lift up our eyes in all our addresses to God. *Our Father in heaven.*
 
@@ -24,9 +24,9 @@ III\. What influence he hoped that his praising God would have upon others, Ps 1
 
 ## God's Care of His People.
 
-> <sup>6</sup> Though the LORD *be* high, yet hath he respect unto the lowly: but the proud he knoweth afar off.  
-> <sup>7</sup> Though I walk in the midst of trouble, thou wilt revive me: thou shalt stretch forth thine hand against the wrath of mine enemies, and thy right hand shall save me.  
-> <sup>8</sup> The LORD will perfect *that which* concerneth me: thy mercy, O LORD, *endureth* for ever: forsake not the works of thine own hands.  
+> **⁶** Though the LORD *be* high, yet hath he respect unto the lowly: but the proud he knoweth afar off.  
+> **⁷** Though I walk in the midst of trouble, thou wilt revive me: thou shalt stretch forth thine hand against the wrath of mine enemies, and thy right hand shall save me.  
+> **⁸** The LORD will perfect *that which* concerneth me: thy mercy, O LORD, *endureth* for ever: forsake not the works of thine own hands.  
 
 David here comforts himself with three things:—
 

@@ -8,11 +8,11 @@ In the foregoing chapter the prophetical scene was opened, in the sight and hear
 
 ## The Sealed Book. (a. d. 95.)
 
-> <sup>1</sup> And I saw in the right hand of him that sat on the throne a book written within and on the backside, sealed with seven seals.  
-> <sup>2</sup> And I saw a strong angel proclaiming with a loud voice, Who is worthy to open the book, and to loose the seals thereof?  
-> <sup>3</sup> And no man in heaven, nor in earth, neither under the earth, was able to open the book, neither to look thereon.  
-> <sup>4</sup> And I wept much, because no man was found worthy to open and to read the book, neither to look thereon.  
-> <sup>5</sup> And one of the elders saith unto me, Weep not: behold, the Lion of the tribe of Juda, the Root of David, hath prevailed to open the book, and to loose the seven seals thereof.  
+> **¹** And I saw in the right hand of him that sat on the throne a book written within and on the backside, sealed with seven seals.  
+> **²** And I saw a strong angel proclaiming with a loud voice, Who is worthy to open the book, and to loose the seals thereof?  
+> **³** And no man in heaven, nor in earth, neither under the earth, was able to open the book, neither to look thereon.  
+> **⁴** And I wept much, because no man was found worthy to open and to read the book, neither to look thereon.  
+> **⁵** And one of the elders saith unto me, Weep not: behold, the Lion of the tribe of Juda, the Root of David, hath prevailed to open the book, and to loose the seven seals thereof.  
 
 Hitherto the apostle had seen only the great God, the governor of all things, now,
 
@@ -26,15 +26,15 @@ IV\. The apostle was comforted and encouraged to hope this sealed book would yet
 
 ## The Sealed Book. (a. d. 95.)
 
-> <sup>6</sup> And I beheld, and, lo, in the midst of the throne and of the four beasts, and in the midst of the elders, stood a Lamb as it had been slain, having seven horns and seven eyes, which are the seven Spirits of God sent forth into all the earth.  
-> <sup>7</sup> And he came and took the book out of the right hand of him that sat upon the throne.  
-> <sup>8</sup> And when he had taken the book, the four beasts and four *and* twenty elders fell down before the Lamb, having every one of them harps, and golden vials full of odours, which are the prayers of saints.  
-> <sup>9</sup> And they sung a new song, saying, Thou art worthy to take the book, and to open the seals thereof: for thou wast slain, and hast redeemed us to God by thy blood out of every kindred, and tongue, and people, and nation;  
-> <sup>10</sup> And hast made us unto our God kings and priests: and we shall reign on the earth.  
-> <sup>11</sup> And I beheld, and I heard the voice of many angels round about the throne and the beasts and the elders: and the number of them was ten thousand times ten thousand, and thousands of thousands;  
-> <sup>12</sup> Saying with a loud voice, Worthy is the Lamb that was slain to receive power, and riches, and wisdom, and strength, and honour, and glory, and blessing.  
-> <sup>13</sup> And every creature which is in heaven, and on the earth, and under the earth, and such as are in the sea, and all that are in them, heard I saying, Blessing, and honour, and glory, and power, *be* unto him that sitteth upon the throne, and unto the Lamb for ever and ever.  
-> <sup>14</sup> And the four beasts said, Amen. And the four *and* twenty elders fell down and worshipped him that liveth for ever and ever.  
+> **⁶** And I beheld, and, lo, in the midst of the throne and of the four beasts, and in the midst of the elders, stood a Lamb as it had been slain, having seven horns and seven eyes, which are the seven Spirits of God sent forth into all the earth.  
+> **⁷** And he came and took the book out of the right hand of him that sat upon the throne.  
+> **⁸** And when he had taken the book, the four beasts and four *and* twenty elders fell down before the Lamb, having every one of them harps, and golden vials full of odours, which are the prayers of saints.  
+> **⁹** And they sung a new song, saying, Thou art worthy to take the book, and to open the seals thereof: for thou wast slain, and hast redeemed us to God by thy blood out of every kindred, and tongue, and people, and nation;  
+> **¹⁰** And hast made us unto our God kings and priests: and we shall reign on the earth.  
+> **¹¹** And I beheld, and I heard the voice of many angels round about the throne and the beasts and the elders: and the number of them was ten thousand times ten thousand, and thousands of thousands;  
+> **¹²** Saying with a loud voice, Worthy is the Lamb that was slain to receive power, and riches, and wisdom, and strength, and honour, and glory, and blessing.  
+> **¹³** And every creature which is in heaven, and on the earth, and under the earth, and such as are in the sea, and all that are in them, heard I saying, Blessing, and honour, and glory, and power, *be* unto him that sitteth upon the throne, and unto the Lamb for ever and ever.  
+> **¹⁴** And the four beasts said, Amen. And the four *and* twenty elders fell down and worshipped him that liveth for ever and ever.  
 
 Here, I. The apostle beholds this book taken into the hands of the Lord Jesus Christ, in order to its being unsealed and opened by him. Here Christ is described, 1. By his place and station: *In the midst of the throne, and of the four beasts, and of the elders.* He was on the same throne with the Father; he was nearer to him than either the elders or ministers of the churches. Christ, as man and Mediator, is subordinate to God the Father, but is nearer to him than all the creatures; *for in him all the fulness of the Godhead dwells bodily.* The ministers stand between God and the people. Christ stands as the Mediator between God and both ministers and people. 2. The form in which he appeared. Before he is called *a lion;* here he appears *as a lamb slain.* He is a lion to conquer Satan, a lamb to satisfy the justice of God. He appears with the marks of his sufferings upon him, to show that he interceded in heaven in the virtue of his satisfaction. He appears as a *lamb, having seven horns and seven eyes,* perfect power to execute all the will of God and perfect wisdom to understand it all and to do it in the most effectual manner; *for he hath the seven Spirits of God,* he has received the Holy Spirit without measure, in all perfection of light, and life, and power, by which he is able to teach and rule all parts of the earth. 3. He is described by his act and deed: *He came, and took the book out of the right hand of him that sat on the throne* (Re 5:7), not by violence, nor by fraud, but he prevailed to do it (as Re 5:5), he prevailed by his merit and worthiness, he did it by authority and by the Father's appointment. God very willingly and justly put the book of his eternal counsels into the hand of Christ, and Christ as readily and gladly took it into his hand; for he delights to reveal and to do the will of his Father.
 

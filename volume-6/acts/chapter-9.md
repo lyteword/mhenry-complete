@@ -8,15 +8,15 @@ In this chapter we have, I. The famous story of St. Paul's conversion from being
 
 ## Saul's Conversion.
 
-> <sup>1</sup> And Saul, yet breathing out threatenings and slaughter against the disciples of the Lord, went unto the high priest,  
-> <sup>2</sup> And desired of him letters to Damascus to the synagogues, that if he found any of this way, whether they were men or women, he might bring them bound unto Jerusalem.  
-> <sup>3</sup> And as he journeyed, he came near Damascus: and suddenly there shined round about him a light from heaven:  
-> <sup>4</sup> And he fell to the earth, and heard a voice saying unto him, Saul, Saul, why persecutest thou me?  
-> <sup>5</sup> And he said, Who art thou, Lord? And the Lord said, I am Jesus whom thou persecutest: *it is* hard for thee to kick against the pricks.  
-> <sup>6</sup> And he trembling and astonished said, Lord, what wilt thou have me to do? And the Lord *said* unto him, Arise, and go into the city, and it shall be told thee what thou must do.  
-> <sup>7</sup> And the men which journeyed with him stood speechless, hearing a voice, but seeing no man.  
-> <sup>8</sup> And Saul arose from the earth; and when his eyes were opened, he saw no man: but they led him by the hand, and brought *him* into Damascus.  
-> <sup>9</sup> And he was three days without sight, and neither did eat nor drink.  
+> **¹** And Saul, yet breathing out threatenings and slaughter against the disciples of the Lord, went unto the high priest,  
+> **²** And desired of him letters to Damascus to the synagogues, that if he found any of this way, whether they were men or women, he might bring them bound unto Jerusalem.  
+> **³** And as he journeyed, he came near Damascus: and suddenly there shined round about him a light from heaven:  
+> **⁴** And he fell to the earth, and heard a voice saying unto him, Saul, Saul, why persecutest thou me?  
+> **⁵** And he said, Who art thou, Lord? And the Lord said, I am Jesus whom thou persecutest: *it is* hard for thee to kick against the pricks.  
+> **⁶** And he trembling and astonished said, Lord, what wilt thou have me to do? And the Lord *said* unto him, Arise, and go into the city, and it shall be told thee what thou must do.  
+> **⁷** And the men which journeyed with him stood speechless, hearing a voice, but seeing no man.  
+> **⁸** And Saul arose from the earth; and when his eyes were opened, he saw no man: but they led him by the hand, and brought *him* into Damascus.  
+> **⁹** And he was three days without sight, and neither did eat nor drink.  
 
 We found mention made of Saul twice or thrice in the story of Stephen, for the sacred penman longed to come to his story; and now we are come to it, not quite taking leave of Peter but from henceforward being mostly taken up with Paul the apostle of the Gentiles, as Peter was of the circumcision. His name in Hebrew was *Saul—desired,* though as remarkably little in stature as his namesake king Saul was tall and stately; one of the ancients calls him, *Homo tricubitalis—but four feet and a half in height;* his Roman name which he went by among the citizens of Rome was *Paul—little.* He was born in Tarsus, a city of Cilicia, a free city of the Romans, and himself a freeman of that city. His father and mother were both native Jews; therefore he calls himself a *Hebrew of the Hebrews;* he was of the tribe of Benjamin, which adhered to Judah. His education was in the schools of Tarsus first, which was a little Athens for learning; there he acquainted himself with the philosophy and poetry of the Greeks. Thence he was sent to the university at Jerusalem, to study divinity and the Jewish law. His tutor was Gamaliel, an eminent Pharisee. He had extraordinary natural parts, and improved mightily in learning. He had likewise a handicraft trade (being bred to tent-making), which was common with those among the Jews who were bred scholars (as Dr. Lightfoot saith), for the earning of their maintenance, and the avoiding of idleness. This is the young man on whom the grace of God wrought this mighty change here recorded, about a year after the ascension of Christ, or little more. We are here told,
 
@@ -76,19 +76,19 @@ II\. How suddenly and strangely a blessed change was wrought in him, not in the 
 
 ## Ananias Sent to Saul; Ananias Restores Saul's Sight; Saul Associates with the Disciples; Saul Preaches Christ at Damascus.
 
-> <sup>10</sup> And there was a certain disciple at Damascus, named Ananias; and to him said the Lord in a vision, Ananias. And he said, Behold, I *am here,* Lord.  
-> <sup>11</sup> And the Lord *said* unto him, Arise, and go into the street which is called Straight, and enquire in the house of Judas for *one* called Saul, of Tarsus: for, behold, he prayeth,  
-> <sup>12</sup> And hath seen in a vision a man named Ananias coming in, and putting *his* hand on him, that he might receive his sight.  
-> <sup>13</sup> Then Ananias answered, Lord, I have heard by many of this man, how much evil he hath done to thy saints at Jerusalem:  
-> <sup>14</sup> And here he hath authority from the chief priests to bind all that call on thy name.  
-> <sup>15</sup> But the Lord said unto him, Go thy way: for he is a chosen vessel unto me, to bear my name before the Gentiles, and kings, and the children of Israel:  
-> <sup>16</sup> For I will show him how great things he must suffer for my name's sake.  
-> <sup>17</sup> And Ananias went his way, and entered into the house; and putting his hands on him said, Brother Saul, the Lord, *even* Jesus, that appeared unto thee in the way as thou camest, hath sent me, that thou mightest receive thy sight, and be filled with the Holy Ghost.  
-> <sup>18</sup> And immediately there fell from his eyes as it had been scales: and he received sight forthwith, and arose, and was baptized.  
-> <sup>19</sup> And when he had received meat, he was strengthened. Then was Saul certain days with the disciples which were at Damascus.  
-> <sup>20</sup> And straightway he preached Christ in the synagogues, that he is the Son of God.  
-> <sup>21</sup> But all that heard *him* were amazed, and said; Is not this he that destroyed them which called on this name in Jerusalem, and came hither for that intent, that he might bring them bound unto the chief priests?  
-> <sup>22</sup> But Saul increased the more in strength, and confounded the Jews which dwelt at Damascus, proving that this is very Christ.  
+> **¹⁰** And there was a certain disciple at Damascus, named Ananias; and to him said the Lord in a vision, Ananias. And he said, Behold, I *am here,* Lord.  
+> **¹¹** And the Lord *said* unto him, Arise, and go into the street which is called Straight, and enquire in the house of Judas for *one* called Saul, of Tarsus: for, behold, he prayeth,  
+> **¹²** And hath seen in a vision a man named Ananias coming in, and putting *his* hand on him, that he might receive his sight.  
+> **¹³** Then Ananias answered, Lord, I have heard by many of this man, how much evil he hath done to thy saints at Jerusalem:  
+> **¹⁴** And here he hath authority from the chief priests to bind all that call on thy name.  
+> **¹⁵** But the Lord said unto him, Go thy way: for he is a chosen vessel unto me, to bear my name before the Gentiles, and kings, and the children of Israel:  
+> **¹⁶** For I will show him how great things he must suffer for my name's sake.  
+> **¹⁷** And Ananias went his way, and entered into the house; and putting his hands on him said, Brother Saul, the Lord, *even* Jesus, that appeared unto thee in the way as thou camest, hath sent me, that thou mightest receive thy sight, and be filled with the Holy Ghost.  
+> **¹⁸** And immediately there fell from his eyes as it had been scales: and he received sight forthwith, and arose, and was baptized.  
+> **¹⁹** And when he had received meat, he was strengthened. Then was Saul certain days with the disciples which were at Damascus.  
+> **²⁰** And straightway he preached Christ in the synagogues, that he is the Son of God.  
+> **²¹** But all that heard *him* were amazed, and said; Is not this he that destroyed them which called on this name in Jerusalem, and came hither for that intent, that he might bring them bound unto the chief priests?  
+> **²²** But Saul increased the more in strength, and confounded the Jews which dwelt at Damascus, proving that this is very Christ.  
 
 *As for God, his work is perfect; if he begin, he will make an end:* a good work was begun in Saul, when he was brought to Christ's feet, in that word, *Lord, what wilt thou have me to do?* And never did Christ leave any that were brought to that. Though Saul was sadly mortified when he lay three days blind, yet he was not abandoned. Christ here takes care of the work of his own hands. He that hath torn will heal—that hath smitten will bind up—that hath convinced will comfort.
 
@@ -128,15 +128,15 @@ IV\. The good work that was begun in Saul is carried on wonderfully; this new-bo
 
 ## The Jews Plot to Kill Saul; Saul Is Received by the Apostles; Prosperity of the Church.
 
-> <sup>23</sup> And after that many days were fulfilled, the Jews took counsel to kill him:  
-> <sup>24</sup> But their laying await was known of Saul. And they watched the gates day and night to kill him.  
-> <sup>25</sup> Then the disciples took him by night, and let *him* down by the wall in a basket.  
-> <sup>26</sup> And when Saul was come to Jerusalem, he assayed to join himself to the disciples: but they were all afraid of him, and believed not that he was a disciple.  
-> <sup>27</sup> But Barnabas took him, and brought *him* to the apostles, and declared unto them how he had seen the Lord in the way, and that he had spoken to him, and how he had preached boldly at Damascus in the name of Jesus.  
-> <sup>28</sup> And he was with them coming in and going out at Jerusalem.  
-> <sup>29</sup> And he spake boldly in the name of the Lord Jesus, and disputed against the Grecians: but they went about to slay him.  
-> <sup>30</sup> *Which* when the brethren knew, they brought him down to Cæsarea, and sent him forth to Tarsus.  
-> <sup>31</sup> Then had the churches rest throughout all Judæa and Galilee and Samaria, and were edified; and walking in the fear of the Lord, and in the comfort of the Holy Ghost, were multiplied.  
+> **²³** And after that many days were fulfilled, the Jews took counsel to kill him:  
+> **²⁴** But their laying await was known of Saul. And they watched the gates day and night to kill him.  
+> **²⁵** Then the disciples took him by night, and let *him* down by the wall in a basket.  
+> **²⁶** And when Saul was come to Jerusalem, he assayed to join himself to the disciples: but they were all afraid of him, and believed not that he was a disciple.  
+> **²⁷** But Barnabas took him, and brought *him* to the apostles, and declared unto them how he had seen the Lord in the way, and that he had spoken to him, and how he had preached boldly at Damascus in the name of Jesus.  
+> **²⁸** And he was with them coming in and going out at Jerusalem.  
+> **²⁹** And he spake boldly in the name of the Lord Jesus, and disputed against the Grecians: but they went about to slay him.  
+> **³⁰** *Which* when the brethren knew, they brought him down to Cæsarea, and sent him forth to Tarsus.  
+> **³¹** Then had the churches rest throughout all Judæa and Galilee and Samaria, and were edified; and walking in the fear of the Lord, and in the comfort of the Holy Ghost, were multiplied.  
 
 Luke here makes no mention of Paul's journey into Arabia, which he tells us himself was immediately after his conversion, Ga 1:16,17. As soon as God *had revealed his Son in him, that he might preach him, he went not up to Jerusalem,* to receive instructions from the apostles (as any other convert would have done, that was designed for the ministry), but he went to Arabia, where there was new ground to break up, and where he would have opportunity of teaching, but not learning; thence he returned to Damascus, and there, three years after his conversion, this happened, which is here recorded.
 
@@ -158,10 +158,10 @@ III\. The churches had now a comfortable gleam of liberty and peace (Ac 9:31): *
 
 ## The Cure of Æneas.
 
-> <sup>32</sup> And it came to pass, as Peter passed throughout all *quarters,* he came down also to the saints which dwelt at Lydda.  
-> <sup>33</sup> And there he found a certain man named Æneas, which had kept his bed eight years, and was sick of the palsy.  
-> <sup>34</sup> And Peter said unto him, Æneas, Jesus Christ maketh thee whole: arise, and make thy bed. And he arose immediately.  
-> <sup>35</sup> And all that dwelt at Lydda and Saron saw him, and turned to the Lord.  
+> **³²** And it came to pass, as Peter passed throughout all *quarters,* he came down also to the saints which dwelt at Lydda.  
+> **³³** And there he found a certain man named Æneas, which had kept his bed eight years, and was sick of the palsy.  
+> **³⁴** And Peter said unto him, Æneas, Jesus Christ maketh thee whole: arise, and make thy bed. And he arose immediately.  
+> **³⁵** And all that dwelt at Lydda and Saron saw him, and turned to the Lord.  
 
 Here we have, I. The visit Peter made to the churches that were newly planted by the dispersed preachers, Ac 9:32. 1. He *passed through all quarters.* As an apostle, he was not to be the resident pastor of any one church, but the itinerant visitor of many churches, to confirm the doctrine of inferior preachers, to confer *the Holy Ghost on those that believed,* and to ordain ministers. He passed *dia panton*—*among them all,* who pertained to the churches of Judea, Galilee, and Samaria, mentioned in the foregoing chapter. He was, like his Master, always upon the remove, and *went about doing good;* but still his head-quarters were at Jerusalem, for there we shall find him imprisoned, Ac 12:2. *He came to the saints at Lydda.* This seems to be the same with *Lod,* a city in the tribe of Benjamin, mentioned 1Ch 8:12, Ezr 2:33. The Christians are called *saints,* not only some particular eminent ones, as saint Peter and saint Paul, but every sincere professor of the faith of Christ. These are the saints on the earth, Ps 16:3.
 
@@ -171,14 +171,14 @@ III\. The good influence this had upon many (Ac 9:35): *All that dwelt at Lydda 
 
 ## Tabitha Raised to Life.
 
-> <sup>36</sup> Now there was at Joppa a certain disciple named Tabitha, which by interpretation is called Dorcas: this woman was full of good works and almsdeeds which she did.  
-> <sup>37</sup> And it came to pass in those days, that she was sick, and died: whom when they had washed, they laid *her* in an upper chamber.  
-> <sup>38</sup> And forasmuch as Lydda was nigh to Joppa, and the disciples had heard that Peter was there, they sent unto him two men, desiring *him* that he would not delay to come to them.  
-> <sup>39</sup> Then Peter arose and went with them. When he was come, they brought him into the upper chamber: and all the widows stood by him weeping, and showing the coats and garments which Dorcas made, while she was with them.  
-> <sup>40</sup> But Peter put them all forth, and kneeled down, and prayed; and turning *him* to the body said, Tabitha, arise. And she opened her eyes: and when she saw Peter, she sat up.  
-> <sup>41</sup> And he gave her *his* hand, and lifted her up, and when he had called the saints and widows, presented her alive.  
-> <sup>42</sup> And it was known throughout all Joppa; and many believed in the Lord.  
-> <sup>43</sup> And it came to pass, that he tarried many days in Joppa with one Simon a tanner.  
+> **³⁶** Now there was at Joppa a certain disciple named Tabitha, which by interpretation is called Dorcas: this woman was full of good works and almsdeeds which she did.  
+> **³⁷** And it came to pass in those days, that she was sick, and died: whom when they had washed, they laid *her* in an upper chamber.  
+> **³⁸** And forasmuch as Lydda was nigh to Joppa, and the disciples had heard that Peter was there, they sent unto him two men, desiring *him* that he would not delay to come to them.  
+> **³⁹** Then Peter arose and went with them. When he was come, they brought him into the upper chamber: and all the widows stood by him weeping, and showing the coats and garments which Dorcas made, while she was with them.  
+> **⁴⁰** But Peter put them all forth, and kneeled down, and prayed; and turning *him* to the body said, Tabitha, arise. And she opened her eyes: and when she saw Peter, she sat up.  
+> **⁴¹** And he gave her *his* hand, and lifted her up, and when he had called the saints and widows, presented her alive.  
+> **⁴²** And it was known throughout all Joppa; and many believed in the Lord.  
+> **⁴³** And it came to pass, that he tarried many days in Joppa with one Simon a tanner.  
 
 Here we have another miracle wrought by Peter, for the confirming of the gospel, and which exceeded the former—the raising of Tabitha to life when she had been for some time dead. Here is,
 

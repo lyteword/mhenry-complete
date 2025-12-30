@@ -8,11 +8,11 @@ The apostle, having plainly asserted and largely proved that justification and s
 
 ## Paul's Anxiety for the Jews. (a. d. 58.)
 
-> <sup>1</sup> I say the truth in Christ, I lie not, my conscience also bearing me witness in the Holy Ghost,  
-> <sup>2</sup> That I have great heaviness and continual sorrow in my heart.  
-> <sup>3</sup> For I could wish that myself were accursed from Christ for my brethren, my kinsmen according to the flesh:  
-> <sup>4</sup> Who are Israelites; to whom *pertaineth* the adoption, and the glory, and the covenants, and the giving of the law, and the service *of God,* and the promises;  
-> <sup>5</sup> Whose *are* the fathers, and of whom as concerning the flesh Christ *came,* who is over all, God blessed for ever. Amen.  
+> **¹** I say the truth in Christ, I lie not, my conscience also bearing me witness in the Holy Ghost,  
+> **²** That I have great heaviness and continual sorrow in my heart.  
+> **³** For I could wish that myself were accursed from Christ for my brethren, my kinsmen according to the flesh:  
+> **⁴** Who are Israelites; to whom *pertaineth* the adoption, and the glory, and the covenants, and the giving of the law, and the service *of God,* and the promises;  
+> **⁵** Whose *are* the fathers, and of whom as concerning the flesh Christ *came,* who is over all, God blessed for ever. Amen.  
 
 We have here the apostle's solemn profession of a great concern for the nation and people of the Jews—that he was heartily troubled that so many of them were enemies to the gospel, and out of the way of salvation. For this he had *great heaviness and continual sorrow.* Such a profession as this was requisite to take off the odium which otherwise he might have contracted by asserting and proving their rejection. It is wisdom as much as may be to mollify those truths which sound harshly and seem unpleasant: dip the nail in oil, it will drive the better. The Jews had a particular pique at Paul above any of the apostles, as appears by the history of the Acts, and therefore were the more apt to take things amiss of him, to prevent which he introduces his discourse with this tender and affectionate profession, that they might not think he triumphed or insulted over the rejected Jews or was pleased with the calamities that were coming upon them. Thus Jeremiah appeals to God concerning the Jews of his day, whose ruin was hastening on (Jer 17:16), *Neither have I desired the woeful day, thou knowest.* Nay, Paul was so far from desiring it that he most pathetically deprecates it. And lest this should be thought only a copy of his countenance, to flatter and please them,
 
@@ -28,14 +28,14 @@ III\. He gives us the reason of this affection and concern.
 
 ## The Divine Sovereignty. (a. d. 58.)
 
-> <sup>6</sup> Not as though the word of God hath taken none effect. For they *are* not all Israel, which are of Israel:  
-> <sup>7</sup> Neither, because they are the seed of Abraham, *are they* all children: but, In Isaac shall thy seed be called.  
-> <sup>8</sup> That is, They which are the children of the flesh, these *are* not the children of God: but the children of the promise are counted for the seed.  
-> <sup>9</sup> For this *is* the word of promise, At this time will I come, and Sara shall have a son.  
-> <sup>10</sup> And not only *this;* but when Rebecca also had conceived by one, *even* by our father Isaac;  
-> <sup>11</sup> (For *the children* being not yet born, neither having done any good or evil, that the purpose of God according to election might stand, not of works, but of him that calleth;)  
-> <sup>12</sup> It was said unto her, The elder shall serve the younger.  
-> <sup>13</sup> As it is written, Jacob have I loved, but Esau have I hated.  
+> **⁶** Not as though the word of God hath taken none effect. For they *are* not all Israel, which are of Israel:  
+> **⁷** Neither, because they are the seed of Abraham, *are they* all children: but, In Isaac shall thy seed be called.  
+> **⁸** That is, They which are the children of the flesh, these *are* not the children of God: but the children of the promise are counted for the seed.  
+> **⁹** For this *is* the word of promise, At this time will I come, and Sara shall have a son.  
+> **¹⁰** And not only *this;* but when Rebecca also had conceived by one, *even* by our father Isaac;  
+> **¹¹** (For *the children* being not yet born, neither having done any good or evil, that the purpose of God according to election might stand, not of works, but of him that calleth;)  
+> **¹²** It was said unto her, The elder shall serve the younger.  
+> **¹³** As it is written, Jacob have I loved, but Esau have I hated.  
 
 The apostle, having made his way to that which he had to say, concerning the rejection of the body of his countrymen, with a protestation of his own affection for them and a concession of their undoubted privileges, comes in these verses, and the following part of the chapter, to prove that the rejection of the Jews, by the establishment of the gospel dispensation, did not at all invalidate the word of God's promise to the patriarchs: *Not as though the word of God hath taken no effect* (Ro 9:6), which, considering the present state of the Jews, which created to Paul so much *heaviness and continual sorrow* (Ro 9:2), might be suspected. We are not to ascribe inefficacy to any word of God: nothing that he has spoken does or can fall to the ground; see Isa 55:10,11. The promises and threatenings shall have their accomplishment; and, one way or other, he will magnify the law and make it honourable. This is to be understood especially of the promise of God, which by subsequent providences may be to a wavering faith very doubtful; but it is not, it cannot be, made of no effect; at the end it will speak and not lie.
 
@@ -53,17 +53,17 @@ II\. He proves this by instances; and therein shows not only that some of Abraha
 
 ## The Divine Sovereignty. (a. d. 58.)
 
-> <sup>14</sup> What shall we say then? *Is there* unrighteousness with God? God forbid.  
-> <sup>15</sup> For he saith to Moses, I will have mercy on whom I will have mercy, and I will have compassion on whom I will have compassion.  
-> <sup>16</sup> So then *it is* not of him that willeth, nor of him that runneth, but of God that showeth mercy.  
-> <sup>17</sup> For the scripture saith unto Pharaoh, Even for this same purpose have I raised thee up, that I might show my power in thee, and that my name might be declared throughout all the earth.  
-> <sup>18</sup> Therefore hath he mercy on whom he will *have mercy,* and whom he will he hardeneth.  
-> <sup>19</sup> Thou wilt say then unto me, Why doth he yet find fault? For who hath resisted his will?  
-> <sup>20</sup> Nay but, O man, who art thou that repliest against God? Shall the thing formed say to him that formed *it,* Why hast thou made me thus?  
-> <sup>21</sup> Hath not the potter power over the clay, of the same lump to make one vessel unto honour, and another unto dishonour?  
-> <sup>22</sup> *What* if God, willing to show *his* wrath, and to make his power known, endured with much longsuffering the vessels of wrath fitted to destruction:  
-> <sup>23</sup> And that he might make known the riches of his glory on the vessels of mercy, which he had afore prepared unto glory,  
-> <sup>24</sup> Even us, whom he hath called, not of the Jews only, but also of the Gentiles?  
+> **¹⁴** What shall we say then? *Is there* unrighteousness with God? God forbid.  
+> **¹⁵** For he saith to Moses, I will have mercy on whom I will have mercy, and I will have compassion on whom I will have compassion.  
+> **¹⁶** So then *it is* not of him that willeth, nor of him that runneth, but of God that showeth mercy.  
+> **¹⁷** For the scripture saith unto Pharaoh, Even for this same purpose have I raised thee up, that I might show my power in thee, and that my name might be declared throughout all the earth.  
+> **¹⁸** Therefore hath he mercy on whom he will *have mercy,* and whom he will he hardeneth.  
+> **¹⁹** Thou wilt say then unto me, Why doth he yet find fault? For who hath resisted his will?  
+> **²⁰** Nay but, O man, who art thou that repliest against God? Shall the thing formed say to him that formed *it,* Why hast thou made me thus?  
+> **²¹** Hath not the potter power over the clay, of the same lump to make one vessel unto honour, and another unto dishonour?  
+> **²²** *What* if God, willing to show *his* wrath, and to make his power known, endured with much longsuffering the vessels of wrath fitted to destruction:  
+> **²³** And that he might make known the riches of his glory on the vessels of mercy, which he had afore prepared unto glory,  
+> **²⁴** Even us, whom he hath called, not of the Jews only, but also of the Gentiles?  
 
 The apostle, having asserted the true meaning of the promise, comes here to maintain and prove the absolute sovereignty of God, in disposing of the children of men, with reference to their eternal state. And herein God is to be considered, not as a rector and governor, distributing rewards and punishments according to his revealed laws and covenants, but as an owner and benefactor, giving to the children of men such grace and favour as he has determined in and by his secret and eternal will and counsel: both the favour of visible church-membership and privileges, which is given to some people and denied to others, and the favour of effectual grace, which is given to some particular persons and denied to others.
 
@@ -93,11 +93,11 @@ II\. It might be objected, *Why doth he yet find fault? For who hath resisted hi
 
 ## Conversion of the Gentiles. (a. d. 58.)
 
-> <sup>25</sup> As he saith also in Osee, I will call them my people, which were not my people; and her beloved, which was not beloved.  
-> <sup>26</sup> And it shall come to pass, *that* in the place where it was said unto them, Ye *are* not my people; there shall they be called the children of the living God.  
-> <sup>27</sup> Esaias also crieth concerning Israel, Though the number of the children of Israel be as the sand of the sea, a remnant shall be saved:  
-> <sup>28</sup> For he will finish the work, and cut *it* short in righteousness: because a short work will the Lord make upon the earth.  
-> <sup>29</sup> And as Esaias said before, Except the Lord of Sabaoth had left us a seed, we had been as Sodoma, and been made like unto Gomorrha.  
+> **²⁵** As he saith also in Osee, I will call them my people, which were not my people; and her beloved, which was not beloved.  
+> **²⁶** And it shall come to pass, *that* in the place where it was said unto them, Ye *are* not my people; there shall they be called the children of the living God.  
+> **²⁷** Esaias also crieth concerning Israel, Though the number of the children of Israel be as the sand of the sea, a remnant shall be saved:  
+> **²⁸** For he will finish the work, and cut *it* short in righteousness: because a short work will the Lord make upon the earth.  
+> **²⁹** And as Esaias said before, Except the Lord of Sabaoth had left us a seed, we had been as Sodoma, and been made like unto Gomorrha.  
 
 Having explained the promise, and proved the divine sovereignty, the apostle here shows how the rejection of the Jews, and the taking in of the Gentiles, were foretold in the Old Testament, and therefore must needs be very well consistent with the promise made to the fathers under the Old Testament. It tends very much to the clearing of a truth to observe how the scripture is fulfilled in it. The Jews would, no doubt, willingly refer it to the Old Testament, the scriptures of which were committed to them. Now he shows how this, which was so uneasy to them, was there spoken of.
 
@@ -113,10 +113,10 @@ but it is not so in this case. Though it be cut short, it is clear and plain; an
 
 ## Reception of the Gentiles and Rejection of the Jews. (a. d. 58.)
 
-> <sup>30</sup> What shall we say then? That the Gentiles, which followed not after righteousness, have attained to righteousness, even the righteousness which is of faith.  
-> <sup>31</sup> But Israel, which followed after the law of righteousness, hath not attained to the law of righteousness.  
-> <sup>32</sup> Wherefore? Because *they sought it* not by faith, but as it were by the works of the law. For they stumbled at that stumblingstone;  
-> <sup>33</sup> As it is written, Behold, I lay in Sion a stumblingstone and rock of offence: and whosoever believeth on him shall not be ashamed.  
+> **³⁰** What shall we say then? That the Gentiles, which followed not after righteousness, have attained to righteousness, even the righteousness which is of faith.  
+> **³¹** But Israel, which followed after the law of righteousness, hath not attained to the law of righteousness.  
+> **³²** Wherefore? Because *they sought it* not by faith, but as it were by the works of the law. For they stumbled at that stumblingstone;  
+> **³³** As it is written, Behold, I lay in Sion a stumblingstone and rock of offence: and whosoever believeth on him shall not be ashamed.  
 
 The apostle comes here at last to fix the true reason of the reception of the Gentiles, and the rejection of the Jews. There was a difference in the way of their seeking, and therefore there was that different success, though still it was the free grace of God that made them differ. He concludes like an orator, *What shall we say then?* What is the conclusion of the whole dispute?
 

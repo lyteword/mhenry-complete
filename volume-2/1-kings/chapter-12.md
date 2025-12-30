@@ -8,21 +8,21 @@ The glory of the kingdom of Israel was in its height and perfection in Solomon; 
 
 ## The Folly of Rehoboam. (b. c. 975.)
 
-> <sup>1</sup> And Rehoboam went to Shechem: for all Israel were come to Shechem to make him king.  
-> <sup>2</sup> And it came to pass, when Jeroboam the son of Nebat, who was yet in Egypt, heard *of it,* (for he was fled from the presence of king Solomon, and Jeroboam dwelt in Egypt;)  
-> <sup>3</sup> That they sent and called him. And Jeroboam and all the congregation of Israel came, and spake unto Rehoboam, saying,  
-> <sup>4</sup> Thy father made our yoke grievous: now therefore make thou the grievous service of thy father, and his heavy yoke which he put upon us, lighter, and we will serve thee.  
-> <sup>5</sup> And he said unto them, Depart yet *for* three days, then come again to me. And the people departed.  
-> <sup>6</sup> And king Rehoboam consulted with the old men, that stood before Solomon his father while he yet lived, and said, How do ye advise that I may answer this people?  
-> <sup>7</sup> And they spake unto him, saying, If thou wilt be a servant unto this people this day, and wilt serve them, and answer them, and speak good words to them, then they will be thy servants for ever.  
-> <sup>8</sup> But he forsook the counsel of the old men, which they had given him, and consulted with the young men that were grown up with him, *and* which stood before him:  
-> <sup>9</sup> And he said unto them, What counsel give ye that we may answer this people, who have spoken to me, saying, Make the yoke which thy father did put upon us lighter?  
-> <sup>10</sup> And the young men that were grown up with him spake unto him, saying, Thus shalt thou speak unto this people that spake unto thee, saying, Thy father made our yoke heavy, but make thou *it* lighter unto us; thus shalt thou say unto them, My little *finger* shall be thicker than my father's loins.  
-> <sup>11</sup> And now whereas my father did lade you with a heavy yoke, I will add to your yoke: my father hath chastised you with whips, but I will chastise you with scorpions.  
-> <sup>12</sup> So Jeroboam and all the people came to Rehoboam the third day, as the king had appointed, saying, Come to me again the third day.  
-> <sup>13</sup> And the king answered the people roughly, and forsook the old men's counsel that they gave him;  
-> <sup>14</sup> And spake to them after the counsel of the young men, saying, My father made your yoke heavy, and I will add to your yoke: my father *also* chastised you with whips, but I will chastise you with scorpions.  
-> <sup>15</sup> Wherefore the king hearkened not unto the people; for the cause was from the LORD, that he might perform his saying, which the LORD spake by Ahijah the Shilonite unto Jeroboam the son of Nebat.  
+> **¹** And Rehoboam went to Shechem: for all Israel were come to Shechem to make him king.  
+> **²** And it came to pass, when Jeroboam the son of Nebat, who was yet in Egypt, heard *of it,* (for he was fled from the presence of king Solomon, and Jeroboam dwelt in Egypt;)  
+> **³** That they sent and called him. And Jeroboam and all the congregation of Israel came, and spake unto Rehoboam, saying,  
+> **⁴** Thy father made our yoke grievous: now therefore make thou the grievous service of thy father, and his heavy yoke which he put upon us, lighter, and we will serve thee.  
+> **⁵** And he said unto them, Depart yet *for* three days, then come again to me. And the people departed.  
+> **⁶** And king Rehoboam consulted with the old men, that stood before Solomon his father while he yet lived, and said, How do ye advise that I may answer this people?  
+> **⁷** And they spake unto him, saying, If thou wilt be a servant unto this people this day, and wilt serve them, and answer them, and speak good words to them, then they will be thy servants for ever.  
+> **⁸** But he forsook the counsel of the old men, which they had given him, and consulted with the young men that were grown up with him, *and* which stood before him:  
+> **⁹** And he said unto them, What counsel give ye that we may answer this people, who have spoken to me, saying, Make the yoke which thy father did put upon us lighter?  
+> **¹⁰** And the young men that were grown up with him spake unto him, saying, Thus shalt thou speak unto this people that spake unto thee, saying, Thy father made our yoke heavy, but make thou *it* lighter unto us; thus shalt thou say unto them, My little *finger* shall be thicker than my father's loins.  
+> **¹¹** And now whereas my father did lade you with a heavy yoke, I will add to your yoke: my father hath chastised you with whips, but I will chastise you with scorpions.  
+> **¹²** So Jeroboam and all the people came to Rehoboam the third day, as the king had appointed, saying, Come to me again the third day.  
+> **¹³** And the king answered the people roughly, and forsook the old men's counsel that they gave him;  
+> **¹⁴** And spake to them after the counsel of the young men, saying, My father made your yoke heavy, and I will add to your yoke: my father *also* chastised you with whips, but I will chastise you with scorpions.  
+> **¹⁵** Wherefore the king hearkened not unto the people; for the cause was from the LORD, that he might perform his saying, which the LORD spake by Ahijah the Shilonite unto Jeroboam the son of Nebat.  
 
 Solomon had 1000 wives and concubines, yet we read but of one son he had to bear up his name, and he a fool. It is said (Ho 4:10), *They shall commit whoredom, and shall not increase.* Sin is a bad way of building up a family. Rehoboam was the son of the wisest of men, yet did not inherit his father's wisdom, and then it stood him in little stead to inherit his father's throne. Neither wisdom nor grace runs in the blood. Solomon came to the crown very young, yet he was then a wise man. Rehoboam came to the crown at forty years old, when men will be wise if ever they will, yet he was then foolish. Wisdom does not go by age, nor is it the multitude of years nor the advantage of education that reaches it. Solomon's court was a mart of wisdom and the rendezvous of learned men, and Rehoboam was the darling of the court; and yet all was not sufficient to make him a wise man. *The race is not to the swift, nor the battle to the strong.* No dispute is made of Rehoboam's succession; upon the death of his father, he was immediately proclaimed. But,
 
@@ -40,15 +40,15 @@ IV\. He answered the people according to the counsel of the young men, 1Ki 12:14
 
 ## Revolt of the Ten Tribes. (b. c. 975.)
 
-> <sup>16</sup> So when all Israel saw that the king hearkened not unto them, the people answered the king, saying, What portion have we in David? neither *have we* inheritance in the son of Jesse: to your tents, O Israel: now see to thine own house, David. So Israel departed unto their tents.  
-> <sup>17</sup> But *as for* the children of Israel which dwelt in the cities of Judah, Rehoboam reigned over them.  
-> <sup>18</sup> Then king Rehoboam sent Adoram, who *was* over the tribute; and all Israel stoned him with stones, that he died. Therefore king Rehoboam made speed to get him up to his chariot, to flee to Jerusalem.  
-> <sup>19</sup> So Israel rebelled against the house of David unto this day.  
-> <sup>20</sup> And it came to pass, when all Israel heard that Jeroboam was come again, that they sent and called him unto the congregation, and made him king over all Israel: there was none that followed the house of David, but the tribe of Judah only.  
-> <sup>21</sup> And when Rehoboam was come to Jerusalem, he assembled all the house of Judah, with the tribe of Benjamin, a hundred and fourscore thousand chosen men, which were warriors, to fight against the house of Israel, to bring the kingdom again to Rehoboam the son of Solomon.  
-> <sup>22</sup> But the word of God came unto Shemaiah the man of God, saying,  
-> <sup>23</sup> Speak unto Rehoboam, the son of Solomon, king of Judah, and unto all the house of Judah and Benjamin, and to the remnant of the people, saying,  
-> <sup>24</sup> Thus saith the LORD, Ye shall not go up, nor fight against your brethren the children of Israel: return every man to his house; for this thing is from me. They hearkened therefore to the word of the LORD, and returned to depart, according to the word of the LORD.  
+> **¹⁶** So when all Israel saw that the king hearkened not unto them, the people answered the king, saying, What portion have we in David? neither *have we* inheritance in the son of Jesse: to your tents, O Israel: now see to thine own house, David. So Israel departed unto their tents.  
+> **¹⁷** But *as for* the children of Israel which dwelt in the cities of Judah, Rehoboam reigned over them.  
+> **¹⁸** Then king Rehoboam sent Adoram, who *was* over the tribute; and all Israel stoned him with stones, that he died. Therefore king Rehoboam made speed to get him up to his chariot, to flee to Jerusalem.  
+> **¹⁹** So Israel rebelled against the house of David unto this day.  
+> **²⁰** And it came to pass, when all Israel heard that Jeroboam was come again, that they sent and called him unto the congregation, and made him king over all Israel: there was none that followed the house of David, but the tribe of Judah only.  
+> **²¹** And when Rehoboam was come to Jerusalem, he assembled all the house of Judah, with the tribe of Benjamin, a hundred and fourscore thousand chosen men, which were warriors, to fight against the house of Israel, to bring the kingdom again to Rehoboam the son of Solomon.  
+> **²²** But the word of God came unto Shemaiah the man of God, saying,  
+> **²³** Speak unto Rehoboam, the son of Solomon, king of Judah, and unto all the house of Judah and Benjamin, and to the remnant of the people, saying,  
+> **²⁴** Thus saith the LORD, Ye shall not go up, nor fight against your brethren the children of Israel: return every man to his house; for this thing is from me. They hearkened therefore to the word of the LORD, and returned to depart, according to the word of the LORD.  
 
 We have here the rending of the kingdom of the ten tribes from the house of David, to effect which,
 
@@ -60,15 +60,15 @@ III\. God forbade his attempt to recover by the sword what he had lost. What was
 
 ## Jeroboam's Idolatry. (b. c. 975.)
 
-> <sup>25</sup> Then Jeroboam built Shechem in mount Ephraim, and dwelt therein; and went out from thence, and built Penuel.  
-> <sup>26</sup> And Jeroboam said in his heart, Now shall the kingdom return to the house of David:  
-> <sup>27</sup> If this people go up to do sacrifice in the house of the LORD at Jerusalem, then shall the heart of this people turn again unto their lord, *even* unto Rehoboam king of Judah, and they shall kill me, and go again to Rehoboam king of Judah.  
-> <sup>28</sup> Whereupon the king took counsel, and made two calves *of* gold, and said unto them, It is too much for you to go up to Jerusalem: behold thy gods, O Israel, which brought thee up out of the land of Egypt.  
-> <sup>29</sup> And he set the one in Beth-el, and the other put he in Dan.  
-> <sup>30</sup> And this thing became a sin: for the people went *to worship* before the one, *even* unto Dan.  
-> <sup>31</sup> And he made a house of high places, and made priests of the lowest of the people, which were not of the sons of Levi.  
-> <sup>32</sup> And Jeroboam ordained a feast in the eighth month, on the fifteenth day of the month, like unto the feast that *is* in Judah, and he offered upon the altar. So did he in Beth-el, sacrificing unto the calves that he had made: and he placed in Beth-el the priests of the high places which he had made.  
-> <sup>33</sup> So he offered upon the altar which he had made in Beth-el the fifteenth day of the eighth month, *even* in the month which he had devised of his own heart; and ordained a feast unto the children of Israel: and he offered upon the altar, and burnt incense.  
+> **²⁵** Then Jeroboam built Shechem in mount Ephraim, and dwelt therein; and went out from thence, and built Penuel.  
+> **²⁶** And Jeroboam said in his heart, Now shall the kingdom return to the house of David:  
+> **²⁷** If this people go up to do sacrifice in the house of the LORD at Jerusalem, then shall the heart of this people turn again unto their lord, *even* unto Rehoboam king of Judah, and they shall kill me, and go again to Rehoboam king of Judah.  
+> **²⁸** Whereupon the king took counsel, and made two calves *of* gold, and said unto them, It is too much for you to go up to Jerusalem: behold thy gods, O Israel, which brought thee up out of the land of Egypt.  
+> **²⁹** And he set the one in Beth-el, and the other put he in Dan.  
+> **³⁰** And this thing became a sin: for the people went *to worship* before the one, *even* unto Dan.  
+> **³¹** And he made a house of high places, and made priests of the lowest of the people, which were not of the sons of Levi.  
+> **³²** And Jeroboam ordained a feast in the eighth month, on the fifteenth day of the month, like unto the feast that *is* in Judah, and he offered upon the altar. So did he in Beth-el, sacrificing unto the calves that he had made: and he placed in Beth-el the priests of the high places which he had made.  
+> **³³** So he offered upon the altar which he had made in Beth-el the fifteenth day of the eighth month, *even* in the month which he had devised of his own heart; and ordained a feast unto the children of Israel: and he offered upon the altar, and burnt incense.  
 
 We have here the beginning of the reign of Jeroboam. He built Shechem first and then Penuel—beautified and fortified them, and probably had a palace in each of them for himself (1Ki 12:25), the former in Ephraim, the latter in Gad, on the other side Jordan. This might be proper; but he formed another project for the establishing of his kingdom which was fatal to the interests of religion in it.
 

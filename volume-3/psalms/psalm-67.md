@@ -10,13 +10,13 @@ This psalm relates to the church and is calculated for the public. Here is, I. A
 
 To the chief musician on Neginoth. A psalm *or* song.
 
-> <sup>1</sup> God be merciful unto us, and bless us; *and* cause his face to shine upon us; Selah.  
-> <sup>2</sup> That thy way may be known upon earth, thy saving health among all nations.  
-> <sup>3</sup> Let the people praise thee, O God; let all the people praise thee.  
-> <sup>4</sup> O let the nations be glad and sing for joy: for thou shalt judge the people righteously, and govern the nations upon earth. Selah.  
-> <sup>5</sup> Let the people praise thee, O God; let all the people praise thee.  
-> <sup>6</sup> *Then* shall the earth yield her increase; *and* God, *even* our own God, shall bless us.  
-> <sup>7</sup> God shall bless us; and all the ends of the earth shall fear him.  
+> **¹** God be merciful unto us, and bless us; *and* cause his face to shine upon us; Selah.  
+> **²** That thy way may be known upon earth, thy saving health among all nations.  
+> **³** Let the people praise thee, O God; let all the people praise thee.  
+> **⁴** O let the nations be glad and sing for joy: for thou shalt judge the people righteously, and govern the nations upon earth. Selah.  
+> **⁵** Let the people praise thee, O God; let all the people praise thee.  
+> **⁶** *Then* shall the earth yield her increase; *and* God, *even* our own God, shall bless us.  
+> **⁷** God shall bless us; and all the ends of the earth shall fear him.  
 
 The composition of this psalm is such as denotes the penman's affections to have been very warm and lively, by which spirit of devotion he was elevated to receive the spirit of prophecy concerning the enlargement of God's kingdom.
 

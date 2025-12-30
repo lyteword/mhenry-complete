@@ -8,9 +8,9 @@ How do the clouds return after the rain! No sooner is one of David's troubles ov
 
 ## Sheba's Rebellion. (b. c. 1023.)
 
-> <sup>1</sup> And there happened to be there a man of Belial, whose name *was* Sheba, the son of Bichri, a Benjamite: and he blew a trumpet, and said, We have no part in David, neither have we inheritance in the son of Jesse: every man to his tents, O Israel.  
-> <sup>2</sup> So every man of Israel went up from after David, *and* followed Sheba the son of Bichri: but the men of Judah clave unto their king, from Jordan even to Jerusalem.  
-> <sup>3</sup> And David came to his house at Jerusalem; and the king took the ten women *his* concubines, whom he had left to keep the house, and put them in ward, and fed them, but went not in unto them. So they were shut up unto the day of their death, living in widowhood.  
+> **¹** And there happened to be there a man of Belial, whose name *was* Sheba, the son of Bichri, a Benjamite: and he blew a trumpet, and said, We have no part in David, neither have we inheritance in the son of Jesse: every man to his tents, O Israel.  
+> **²** So every man of Israel went up from after David, *and* followed Sheba the son of Bichri: but the men of Judah clave unto their king, from Jordan even to Jerusalem.  
+> **³** And David came to his house at Jerusalem; and the king took the ten women *his* concubines, whom he had left to keep the house, and put them in ward, and fed them, but went not in unto them. So they were shut up unto the day of their death, living in widowhood.  
 
 David, in the midst of his triumphs, has here the affliction to see his kingdom disturbed and his family disgraced.
 
@@ -20,16 +20,16 @@ II\. His concubines imprisoned for life, and he himself under a necessity of put
 
 ## Amasa's Death. (b. c. 1023.)
 
-> <sup>4</sup> Then said the king to Amasa, Assemble me the men of Judah within three days, and be thou here present.  
-> <sup>5</sup> So Amasa went to assemble *the men of* Judah: but he tarried longer than the set time which he had appointed him.  
-> <sup>6</sup> And David said to Abishai, Now shall Sheba the son of Bichri do us more harm than *did* Absalom: take thou thy lord's servants, and pursue after him, lest he get him fenced cities, and escape us.  
-> <sup>7</sup> And there went out after him Joab's men, and the Cherethites, and the Pelethites, and all the mighty men: and they went out of Jerusalem, to pursue after Sheba the son of Bichri.  
-> <sup>8</sup> When they *were* at the great stone which *is* in Gibeon, Amasa went before them. And Joab's garment that he had put on was girded unto him, and upon it a girdle *with* a sword fastened upon his loins in the sheath thereof; and as he went forth it fell out.  
-> <sup>9</sup> And Joab said to Amasa, *Art* thou in health, my brother? And Joab took Amasa by the beard with the right hand to kiss him.  
-> <sup>10</sup> But Amasa took no heed to the sword that *was* in Joab's hand: so he smote him therewith in the fifth *rib,* and shed out his bowels to the ground, and struck him not again; and he died. So Joab and Abishai his brother pursued after Sheba the son of Bichri.  
-> <sup>11</sup> And one of Joab's men stood by him, and said, He that favoureth Joab, and he that *is* for David, *let him go* after Joab.  
-> <sup>12</sup> And Amasa wallowed in blood in the midst of the highway. And when the man saw that all the people stood still, he removed Amasa out of the highway into the field, and cast a cloth upon him, when he saw that every one that came by him stood still.  
-> <sup>13</sup> When he was removed out of the highway, all the people went on after Joab, to pursue after Sheba the son of Bichri.  
+> **⁴** Then said the king to Amasa, Assemble me the men of Judah within three days, and be thou here present.  
+> **⁵** So Amasa went to assemble *the men of* Judah: but he tarried longer than the set time which he had appointed him.  
+> **⁶** And David said to Abishai, Now shall Sheba the son of Bichri do us more harm than *did* Absalom: take thou thy lord's servants, and pursue after him, lest he get him fenced cities, and escape us.  
+> **⁷** And there went out after him Joab's men, and the Cherethites, and the Pelethites, and all the mighty men: and they went out of Jerusalem, to pursue after Sheba the son of Bichri.  
+> **⁸** When they *were* at the great stone which *is* in Gibeon, Amasa went before them. And Joab's garment that he had put on was girded unto him, and upon it a girdle *with* a sword fastened upon his loins in the sheath thereof; and as he went forth it fell out.  
+> **⁹** And Joab said to Amasa, *Art* thou in health, my brother? And Joab took Amasa by the beard with the right hand to kiss him.  
+> **¹⁰** But Amasa took no heed to the sword that *was* in Joab's hand: so he smote him therewith in the fifth *rib,* and shed out his bowels to the ground, and struck him not again; and he died. So Joab and Abishai his brother pursued after Sheba the son of Bichri.  
+> **¹¹** And one of Joab's men stood by him, and said, He that favoureth Joab, and he that *is* for David, *let him go* after Joab.  
+> **¹²** And Amasa wallowed in blood in the midst of the highway. And when the man saw that all the people stood still, he removed Amasa out of the highway into the field, and cast a cloth upon him, when he saw that every one that came by him stood still.  
+> **¹³** When he was removed out of the highway, all the people went on after Joab, to pursue after Sheba the son of Bichri.  
 
 We have here Amasa's fall just as he began to rise. He was nephew to David (2Sa 17:25), had been Absalom's general and commander-in-chief of his rebellious army, but, that being routed, he came over into David's interest, upon a promise that he should be general of his forces instead of Joab. Sheba's rebellion gives David an occasion to fulfil his promise sooner than he could wish, but Joab's envy and emulation rendered its fulfillment of ill consequence both to him and David.
 
@@ -43,15 +43,15 @@ IV\. Joab immediately resumes his general's place, and takes care to lead the ar
 
 ## Sheba Pursued. (b. c. 1023.)
 
-> <sup>14</sup> And he went through all the tribes of Israel unto Abel, and to Beth-maachah, and all the Berites: and they were gathered together, and went also after him.  
-> <sup>15</sup> And they came and besieged him in Abel of Beth-maachah, and they cast up a bank against the city, and it stood in the trench: and all the people that *were* with Joab battered the wall, to throw it down.  
-> <sup>16</sup> Then cried a wise woman out of the city, Hear, hear; say, I pray you, unto Joab, Come near hither, that I may speak with thee.  
-> <sup>17</sup> And when he was come near unto her, the woman said, *Art* thou Joab? And he answered, I *am he.* Then she said unto him, Hear the words of thine handmaid. And he answered, I do hear.  
-> <sup>18</sup> Then she spake, saying, They were wont to speak in old time, saying, They shall surely ask *counsel* at Abel: and so they ended *the matter.*  
-> <sup>19</sup> I *am one of them that are* peaceable *and* faithful in Israel: thou seekest to destroy a city and a mother in Israel: why wilt thou swallow up the inheritance of the LORD?  
-> <sup>20</sup> And Joab answered and said, Far be it, far be it from me, that I should swallow up or destroy.  
-> <sup>21</sup> The matter *is* not so: but a man of mount Ephraim, Sheba the son of Bichri by name, hath lifted up his hand against the king, *even* against David: deliver him only, and I will depart from the city. And the woman said unto Joab, Behold, his head shall be thrown to thee over the wall.  
-> <sup>22</sup> Then the woman went unto all the people in her wisdom. And they cut off the head of Sheba the son of Bichri, and cast *it* out to Joab. And he blew a trumpet, and they retired from the city, every man to his tent. And Joab returned to Jerusalem unto the king.  
+> **¹⁴** And he went through all the tribes of Israel unto Abel, and to Beth-maachah, and all the Berites: and they were gathered together, and went also after him.  
+> **¹⁵** And they came and besieged him in Abel of Beth-maachah, and they cast up a bank against the city, and it stood in the trench: and all the people that *were* with Joab battered the wall, to throw it down.  
+> **¹⁶** Then cried a wise woman out of the city, Hear, hear; say, I pray you, unto Joab, Come near hither, that I may speak with thee.  
+> **¹⁷** And when he was come near unto her, the woman said, *Art* thou Joab? And he answered, I *am he.* Then she said unto him, Hear the words of thine handmaid. And he answered, I do hear.  
+> **¹⁸** Then she spake, saying, They were wont to speak in old time, saying, They shall surely ask *counsel* at Abel: and so they ended *the matter.*  
+> **¹⁹** I *am one of them that are* peaceable *and* faithful in Israel: thou seekest to destroy a city and a mother in Israel: why wilt thou swallow up the inheritance of the LORD?  
+> **²⁰** And Joab answered and said, Far be it, far be it from me, that I should swallow up or destroy.  
+> **²¹** The matter *is* not so: but a man of mount Ephraim, Sheba the son of Bichri by name, hath lifted up his hand against the king, *even* against David: deliver him only, and I will depart from the city. And the woman said unto Joab, Behold, his head shall be thrown to thee over the wall.  
+> **²²** Then the woman went unto all the people in her wisdom. And they cut off the head of Sheba the son of Bichri, and cast *it* out to Joab. And he blew a trumpet, and they retired from the city, every man to his tent. And Joab returned to Jerusalem unto the king.  
 
 We have here the conclusion of Sheba's attempt.
 
@@ -73,10 +73,10 @@ III\. A discreet good woman of the city of Abel brings this matter, by her prude
 
 ## David's Court. (b. c. 1023.)
 
-> <sup>23</sup> Now Joab *was* over all the host of Israel: and Benaiah the son of Jehoiada *was* over the Cherethites and over the Pelethites:  
-> <sup>24</sup> And Adoram *was* over the tribute: and Jehoshaphat the son of Ahilud *was* recorder:  
-> <sup>25</sup> And Sheva *was* scribe: and Zadok and Abiathar *were* the priests:  
-> <sup>26</sup> And Ira also the Jairite was a chief ruler about David.  
+> **²³** Now Joab *was* over all the host of Israel: and Benaiah the son of Jehoiada *was* over the Cherethites and over the Pelethites:  
+> **²⁴** And Adoram *was* over the tribute: and Jehoshaphat the son of Ahilud *was* recorder:  
+> **²⁵** And Sheva *was* scribe: and Zadok and Abiathar *were* the priests:  
+> **²⁶** And Ira also the Jairite was a chief ruler about David.  
 
 Here is an account of the state of David's court after his restoration. Joab retained the office of general, being too great to be displaced. Benaiah, as before, was captain of the guards. Here is one new office erected, which we had not (2Sa 8:16-18), that of *treasurer,* or one *over the tribute,* for it was not till towards the latter end of his time that David began to raise taxes. Adoram was long in this office, but it cost him his life at last, 1Ki 12:18.
 

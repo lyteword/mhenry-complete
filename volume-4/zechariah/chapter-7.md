@@ -8,13 +8,13 @@ We have done with the visions, but not with the revelations of this book; the pr
 
 ## An Enquiry Concerning Fasting; Hypocrisy Reproved. (b. c. 520.)
 
-> <sup>1</sup> And it came to pass in the fourth year of king Darius, *that* the word of the LORD came unto Zechariah in the fourth *day* of the ninth month, *even* in Chisleu;  
-> <sup>2</sup> When they had sent unto the house of God Sherezer and Regem-melech, and their men, to pray before the LORD,  
-> <sup>3</sup> *And* to speak unto the priests which *were* in the house of the LORD of hosts, and to the prophets, saying, Should I weep in the fifth month, separating myself, as I have done these so many years?  
-> <sup>4</sup> Then came the word of the LORD of hosts unto me, saying,  
-> <sup>5</sup> Speak unto all the people of the land, and to the priests, saying, When ye fasted and mourned in the fifth and seventh *month,* even those seventy years, did ye at all fast unto me, *even* to me?  
-> <sup>6</sup> And when ye did eat, and when ye did drink, did not ye eat *for yourselves,* and drink *for yourselves?*  
-> <sup>7</sup> *Should ye* not *hear* the words which the LORD hath cried by the former prophets, when Jerusalem was inhabited and in prosperity, and the cities thereof round about her, when *men* inhabited the south and the plain?  
+> **¹** And it came to pass in the fourth year of king Darius, *that* the word of the LORD came unto Zechariah in the fourth *day* of the ninth month, *even* in Chisleu;  
+> **²** When they had sent unto the house of God Sherezer and Regem-melech, and their men, to pray before the LORD,  
+> **³** *And* to speak unto the priests which *were* in the house of the LORD of hosts, and to the prophets, saying, Should I weep in the fifth month, separating myself, as I have done these so many years?  
+> **⁴** Then came the word of the LORD of hosts unto me, saying,  
+> **⁵** Speak unto all the people of the land, and to the priests, saying, When ye fasted and mourned in the fifth and seventh *month,* even those seventy years, did ye at all fast unto me, *even* to me?  
+> **⁶** And when ye did eat, and when ye did drink, did not ye eat *for yourselves,* and drink *for yourselves?*  
+> **⁷** *Should ye* not *hear* the words which the LORD hath cried by the former prophets, when Jerusalem was inhabited and in prosperity, and the cities thereof round about her, when *men* inhabited the south and the plain?  
 
 This occasional sermon, which the prophet preached, and which is recorded in this and the next chapter, was above two years after the former, in which he gave them an account of his visions, as appears by comparing the date of this (Zec 7:1), in the *ninth month* of the *fourth year* of Darius, with the date of that (Zec 1:1), in the eighth month of the second year of Darius; not that Zechariah was idle all that while (it is expressly said that he and Haggai continued *prophesying* till the temple was finished in the sixth year of Darius; Ezr 6:14,15), but during that time he did not preach any sermon that was afterwards published, and left upon record, as this is. God may be honoured, his work done, and his interest served, by word of mouth as well as by writing; and by inculcating and pressing what has been taught, as well as by advancing something new. Now here we have,
 
@@ -36,13 +36,13 @@ II\. An answer given to this case. It should seem that, though the question look
 
 ## Wilful Disobedience of Israel; Consequences of Disobedience. (b. c. 520.)
 
-> <sup>8</sup> And the word of the LORD came unto Zechariah, saying,  
-> <sup>9</sup> Thus speaketh the LORD of hosts, saying, Execute true judgment, and shew mercy and compassions every man to his brother:  
-> <sup>10</sup> And oppress not the widow, nor the fatherless, the stranger, nor the poor; and let none of you imagine evil against his brother in your heart.  
-> <sup>11</sup> But they refused to hearken, and pulled away the shoulder, and stopped their ears, that they should not hear.  
-> <sup>12</sup> Yea, they made their hearts *as* an adamant stone, lest they should hear the law, and the words which the LORD of hosts hath sent in his spirit by the former prophets: therefore came a great wrath from the LORD of hosts.  
-> <sup>13</sup> Therefore it is come to pass, *that* as he cried, and they would not hear; so they cried, and I would not hear, saith the LORD of hosts:  
-> <sup>14</sup> But I scattered them with a whirlwind among all the nations whom they knew not. Thus the land was desolate after them, that no man passed through nor returned: for they laid the pleasant land desolate.  
+> **⁸** And the word of the LORD came unto Zechariah, saying,  
+> **⁹** Thus speaketh the LORD of hosts, saying, Execute true judgment, and shew mercy and compassions every man to his brother:  
+> **¹⁰** And oppress not the widow, nor the fatherless, the stranger, nor the poor; and let none of you imagine evil against his brother in your heart.  
+> **¹¹** But they refused to hearken, and pulled away the shoulder, and stopped their ears, that they should not hear.  
+> **¹²** Yea, they made their hearts *as* an adamant stone, lest they should hear the law, and the words which the LORD of hosts hath sent in his spirit by the former prophets: therefore came a great wrath from the LORD of hosts.  
+> **¹³** Therefore it is come to pass, *that* as he cried, and they would not hear; so they cried, and I would not hear, saith the LORD of hosts:  
+> **¹⁴** But I scattered them with a whirlwind among all the nations whom they knew not. Thus the land was desolate after them, that no man passed through nor returned: for they laid the pleasant land desolate.  
 
 What was said Zec 7:7, that they *should have heard the words of the former prophets,* is here enlarged upon, for warning to these hypocritical enquirers, who continued their sins when they asked with great preciseness whether they should continue their fasts. This prophet had before put them in mind of their fathers' disobedience to the calls of the prophets, and what was the consequence of it (Zec 1:4-6), and now here again; for others' harms should be our warnings. God's judgments upon Israel of old for their sins were written for admonition to us Christians (1Co 10:11), and the same use we should make of similar providences in our own day.
 

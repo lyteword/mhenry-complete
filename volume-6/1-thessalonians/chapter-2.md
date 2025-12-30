@@ -8,12 +8,12 @@ In this chapter the apostle puts the Thessalonians in mind of the manner of his 
 
 ## The Primitive Ministers. (a. d. 51.)
 
-> <sup>1</sup> For yourselves, brethren, know our entrance in unto you, that it was not in vain:  
-> <sup>2</sup> But even after that we had suffered before, and were shamefully entreated, as ye know, at Philippi, we were bold in our God to speak unto you the gospel of God with much contention.  
-> <sup>3</sup> For our exhortation *was* not of deceit, nor of uncleanness, nor in guile:  
-> <sup>4</sup> But as we were allowed of God to be put in trust with the gospel, even so we speak; not as pleasing men, but God, which trieth our hearts.  
-> <sup>5</sup> For neither at any time used we flattering words, as ye know, nor a cloak of covetousness; God *is* witness:  
-> <sup>6</sup> Nor of men sought we glory, neither of you, nor *yet* of others, when we might have been burdensome, as the apostles of Christ.  
+> **¹** For yourselves, brethren, know our entrance in unto you, that it was not in vain:  
+> **²** But even after that we had suffered before, and were shamefully entreated, as ye know, at Philippi, we were bold in our God to speak unto you the gospel of God with much contention.  
+> **³** For our exhortation *was* not of deceit, nor of uncleanness, nor in guile:  
+> **⁴** But as we were allowed of God to be put in trust with the gospel, even so we speak; not as pleasing men, but God, which trieth our hearts.  
+> **⁵** For neither at any time used we flattering words, as ye know, nor a cloak of covetousness; God *is* witness:  
+> **⁶** Nor of men sought we glory, neither of you, nor *yet* of others, when we might have been burdensome, as the apostles of Christ.  
 
 Here we have an account of Paul's manner of preaching, and his comfortable reflection upon his entrance in among the Thessalonians. As he had the testimony of his own conscience witnessing to his integrity, so he could appeal to the Thessalonians how faithful he, and Silas, and Timotheus, his helpers in the work of the Lord, had discharged their office: *You yourselves, brethren, know our entrance in unto you.* Note, It is a great comfort to a minister to have his own conscience and the consciences of others witnessing for him that he set out well, with good designs and from good principles; and that *his preaching was not in vain,* or, as some read it, *was not fain.* The apostle here comforts himself either in the success of his ministry, that it was not fruitless or in vain (according to our translation), or as others think, reflecting upon the sincerity of his preaching, that it was not vain and empty, or deceitful and treacherous. The subject-matter of the apostle's preaching was not vain and idle speculations about useless niceties and foolish questions, but sound and solid truth, such as was most likely to profit his hearers. A good example this is, to be imitated by all the ministers of the gospel. Much less was the apostle's preaching vain or deceitful. He could say to these Thessalonians what he told the Corinthians (2Co 4:2): *We have renounced the hidden things of dishonesty, not walking in craftiness, nor handling the word of God deceitfully.* He had no sinister or worldly design in his preaching, which he puts them in mind to have been,
 
@@ -29,12 +29,12 @@ II\. With great simplicity and godly sincerity: *Our exhortation was not of dece
 
 ## The Primitive Ministers. (a. d. 51.)
 
-> <sup>7</sup> But we were gentle among you, even as a nurse cherisheth her children:  
-> <sup>8</sup> So being affectionately desirous of you, we were willing to have imparted unto you, not the gospel of God only, but also our own souls, because ye were dear unto us.  
-> <sup>9</sup> For ye remember, brethren, our labour and travail: for labouring night and day, because we would not be chargeable unto any of you, we preached unto you the gospel of God.  
-> <sup>10</sup> Ye *are* witnesses, and God *also,* how holily and justly and unblameably we behaved ourselves among you that believe:  
-> <sup>11</sup> As ye know how we exhorted and comforted and charged every one of you, as a father *doth* his children,  
-> <sup>12</sup> That ye would walk worthy of God, who hath called you unto his kingdom and glory.  
+> **⁷** But we were gentle among you, even as a nurse cherisheth her children:  
+> **⁸** So being affectionately desirous of you, we were willing to have imparted unto you, not the gospel of God only, but also our own souls, because ye were dear unto us.  
+> **⁹** For ye remember, brethren, our labour and travail: for labouring night and day, because we would not be chargeable unto any of you, we preached unto you the gospel of God.  
+> **¹⁰** Ye *are* witnesses, and God *also,* how holily and justly and unblameably we behaved ourselves among you that believe:  
+> **¹¹** As ye know how we exhorted and comforted and charged every one of you, as a father *doth* his children,  
+> **¹²** That ye would walk worthy of God, who hath called you unto his kingdom and glory.  
 
 In these words the apostle reminds the Thessalonians of the manner of his conversation among them. And,
 
@@ -44,10 +44,10 @@ II\. He mentions their faithful discharge of the work and office of the ministry
 
 ## Effects of the Christian Ministry. (a. d. 51.)
 
-> <sup>13</sup> For this cause also thank we God without ceasing, because, when ye received the word of God which ye heard of us, ye received *it* not *as* the word of men, but as it is in truth, the word of God, which effectually worketh also in you that believe.  
-> <sup>14</sup> For ye, brethren, became followers of the churches of God which in Judæa are in Christ Jesus: for ye also have suffered like things of your own countrymen, even as they *have* of the Jews:  
-> <sup>15</sup> Who both killed the Lord Jesus, and their own prophets, and have persecuted us; and they please not God, and are contrary to all men:  
-> <sup>16</sup> Forbidding us to speak to the Gentiles that they might be saved, to fill up their sins alway: for the wrath is come upon them to the uttermost.  
+> **¹³** For this cause also thank we God without ceasing, because, when ye received the word of God which ye heard of us, ye received *it* not *as* the word of men, but as it is in truth, the word of God, which effectually worketh also in you that believe.  
+> **¹⁴** For ye, brethren, became followers of the churches of God which in Judæa are in Christ Jesus: for ye also have suffered like things of your own countrymen, even as they *have* of the Jews:  
+> **¹⁵** Who both killed the Lord Jesus, and their own prophets, and have persecuted us; and they please not God, and are contrary to all men:  
+> **¹⁶** Forbidding us to speak to the Gentiles that they might be saved, to fill up their sins alway: for the wrath is come upon them to the uttermost.  
 
 Here observe, I. The apostle makes mention of the success of his ministry among these Thessalonians (1Th 2:13), which is expressed,
 
@@ -63,10 +63,10 @@ II\. He mentions the good effects which his successful preaching had,
 
 ## Effects of the Christian Ministry. (a. d. 51.)
 
-> <sup>17</sup> But we, brethren, being taken from you for a short time in presence, not in heart, endeavoured the more abundantly to see your face with great desire.  
-> <sup>18</sup> Wherefore we would have come unto you, even I Paul, once and again; but Satan hindered us.  
-> <sup>19</sup> For what *is* our hope, or joy, or crown of rejoicing? *Are* not even ye in the presence of our Lord Jesus Christ at his coming?  
-> <sup>20</sup> For ye are our glory and joy.  
+> **¹⁷** But we, brethren, being taken from you for a short time in presence, not in heart, endeavoured the more abundantly to see your face with great desire.  
+> **¹⁸** Wherefore we would have come unto you, even I Paul, once and again; but Satan hindered us.  
+> **¹⁹** For what *is* our hope, or joy, or crown of rejoicing? *Are* not even ye in the presence of our Lord Jesus Christ at his coming?  
+> **²⁰** For ye are our glory and joy.  
 
 In these words the apostle apologizes for his absence. Here observe, 1. He tells them they were involuntarily forced from them: *We, brethren, were taken from you,* 1Th 2:17. Such was the rage of his persecutors. He was unwillingly sent away by night to Berea, Ac 17:10. 2. Though he was absent in body, yet he was present in heart. He had still a remembrance of them, and great care for them. 3. Even his bodily absence was but for a short time, the time of an hour. Time is short, all our time on earth is short and uncertain, whether we are present with our friends or absent from them. This world is not a place where we are always, or long, to be together. It is in heaven that holy souls shall meet, and never part more. 4. He earnestly desired and endeavoured to see them again: *We endeavoured more abundantly to see your face with great desire,* 1Th 2:17. So that the apostle at least intended his absence should be but for a short time. His desire and endeavour were to return again very soon to Thessalonica. But men of business are not masters of their own time. Paul did his endeavour, and he could do no more, 1Th 2:18. 5. He tells them that Satan hindered his return (1Th 2:18), that is, either some enemy or enemies, or the great enemy of mankind, who stirred up opposition to Paul, either in his return to Thessalonica, when he intended to return thither, or stirred up such contentions or dissensions in those places whether he went as made his presence necessary. Note, Satan is a constant enemy to the work of God, and does all he can to obstruct it. 6. He assures them of his affection and high esteem for them, though he was not able, as yet, to be present with them according to his desire. They were his *hope, and joy, and crown of rejoicing; his glory and joy.* These are expressions of great and endeared affection, and high estimation. And it is happy when ministers and people have such mutual affection and esteem of each other, and especially if they shall thus rejoice, if those that sow and those that reap shall rejoice together, *in the presence of our Lord Jesus Christ at his coming.*
 

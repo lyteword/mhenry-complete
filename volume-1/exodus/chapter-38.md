@@ -8,14 +8,14 @@ Here is an account, I. Of the making of the brazen altar (Ex 38:1-7), and the la
 
 ## The Tabernacle and Its Furniture. (b. c. 1491.)
 
-> <sup>1</sup> And he made the altar of burnt offering *of* shittim wood: five cubits *was* the length thereof, and five cubits the breadth thereof; *it was* foursquare; and three cubits the height thereof.  
-> <sup>2</sup> And he made the horns thereof on the four corners of it; the horns thereof were of the same: and he overlaid it with brass.  
-> <sup>3</sup> And he made all the vessels of the altar, the pots, and the shovels, and the basons, *and* the fleshhooks, and the firepans: all the vessels thereof made he *of* brass.  
-> <sup>4</sup> And he made for the altar a brazen grate of network under the compass thereof beneath unto the midst of it.  
-> <sup>5</sup> And he cast four rings for the four ends of the grate of brass, *to be* places for the staves.  
-> <sup>6</sup> And he made the staves *of* shittim wood, and overlaid them with brass.  
-> <sup>7</sup> And he put the staves into the rings on the sides of the altar, to bear it withal; he made the altar hollow with boards.  
-> <sup>8</sup> And he made the laver *of* brass, and the foot of it *of* brass, of the looking-glasses of *the women* assembling, which assembled *at* the door of the tabernacle of the congregation.  
+> **¹** And he made the altar of burnt offering *of* shittim wood: five cubits *was* the length thereof, and five cubits the breadth thereof; *it was* foursquare; and three cubits the height thereof.  
+> **²** And he made the horns thereof on the four corners of it; the horns thereof were of the same: and he overlaid it with brass.  
+> **³** And he made all the vessels of the altar, the pots, and the shovels, and the basons, *and* the fleshhooks, and the firepans: all the vessels thereof made he *of* brass.  
+> **⁴** And he made for the altar a brazen grate of network under the compass thereof beneath unto the midst of it.  
+> **⁵** And he cast four rings for the four ends of the grate of brass, *to be* places for the staves.  
+> **⁶** And he made the staves *of* shittim wood, and overlaid them with brass.  
+> **⁷** And he put the staves into the rings on the sides of the altar, to bear it withal; he made the altar hollow with boards.  
+> **⁸** And he made the laver *of* brass, and the foot of it *of* brass, of the looking-glasses of *the women* assembling, which assembled *at* the door of the tabernacle of the congregation.  
 
 Bezaleel having finished the gold-work, which, though the richest, yet was ordered to lie most out of sight, in the tabernacle itself, here goes on to prepare the court, which lay open to the view of all. Two things the court was furnished with, and both made of brass:—
 
@@ -29,32 +29,32 @@ II\. A laver, to hold water for the priests to wash in when they went in to mini
 
 3\. These mirrors were used for the making of the laver. Either they were artfully joined together, or else molten down and cast anew; but it is probable that the laver was so brightly burnished that the sides of it still served for mirrors, that the priests, when they came to wash, might there see their faces, and so discover the spots, to wash them clean. Note, In the washing of repentance, there is need of the looking-glass of self-examination. The word of God is a glass, in which we may see our own faces (see Jam 1:23); and with it we must compare our own hearts and lives, that, finding out our blemishes, we may wash with particular sorrow, and application of the blood of Christ to our souls. Usually the more particular we are in the confession of sin the more comfort we have in the sense of the pardon.
 
-> <sup>9</sup> And he made the court: on the south side southward the hangings of the court *were of* fine twined linen, an hundred cubits:  
-> <sup>10</sup> Their pillars *were* twenty, and their brazen sockets twenty; the hooks of the pillars and their fillets *were of* silver.  
-> <sup>11</sup> And for the north side *the hangings were* an hundred cubits, their pillars *were* twenty, and their sockets of brass twenty; the hooks of the pillars and their fillets *of* silver.  
-> <sup>12</sup> And for the west side *were* hangings of fifty cubits, their pillars ten, and their sockets ten; the hooks of the pillars and their fillets *of* silver.  
-> <sup>13</sup> And for the east side eastward fifty cubits.  
-> <sup>14</sup> The hangings of the one side *of the gate were* fifteen cubits; their pillars three, and their sockets three.  
-> <sup>15</sup> And for the other side of the court gate, on this hand and that hand, *were* hangings of fifteen cubits; their pillars three, and their sockets three.  
-> <sup>16</sup> All the hangings of the court round about *were* of fine twined linen.  
-> <sup>17</sup> And the sockets for the pillars *were of* brass; the hooks of the pillars and their fillets *of* silver; and the overlaying of their chapiters *of* silver; and all the pillars of the court *were* filleted with silver.  
-> <sup>18</sup> And the hanging for the gate of the court *was* needlework, *of* blue, and purple, and scarlet, and fine twined linen: and twenty cubits *was* the length, and the height in the breadth *was* five cubits, answerable to the hangings of the court.  
-> <sup>19</sup> And their pillars *were* four, and their sockets *of* brass four; their hooks *of* silver, and the overlaying of their chapiters and their fillets *of* silver.  
-> <sup>20</sup> And all the pins of the tabernacle, and of the court round about, *were of* brass.  
+> **⁹** And he made the court: on the south side southward the hangings of the court *were of* fine twined linen, an hundred cubits:  
+> **¹⁰** Their pillars *were* twenty, and their brazen sockets twenty; the hooks of the pillars and their fillets *were of* silver.  
+> **¹¹** And for the north side *the hangings were* an hundred cubits, their pillars *were* twenty, and their sockets of brass twenty; the hooks of the pillars and their fillets *of* silver.  
+> **¹²** And for the west side *were* hangings of fifty cubits, their pillars ten, and their sockets ten; the hooks of the pillars and their fillets *of* silver.  
+> **¹³** And for the east side eastward fifty cubits.  
+> **¹⁴** The hangings of the one side *of the gate were* fifteen cubits; their pillars three, and their sockets three.  
+> **¹⁵** And for the other side of the court gate, on this hand and that hand, *were* hangings of fifteen cubits; their pillars three, and their sockets three.  
+> **¹⁶** All the hangings of the court round about *were* of fine twined linen.  
+> **¹⁷** And the sockets for the pillars *were of* brass; the hooks of the pillars and their fillets *of* silver; and the overlaying of their chapiters *of* silver; and all the pillars of the court *were* filleted with silver.  
+> **¹⁸** And the hanging for the gate of the court *was* needlework, *of* blue, and purple, and scarlet, and fine twined linen: and twenty cubits *was* the length, and the height in the breadth *was* five cubits, answerable to the hangings of the court.  
+> **¹⁹** And their pillars *were* four, and their sockets *of* brass four; their hooks *of* silver, and the overlaying of their chapiters and their fillets *of* silver.  
+> **²⁰** And all the pins of the tabernacle, and of the court round about, *were of* brass.  
 
 The walls of the court, or church-yard, were like the rest curtains or hangings, made according to the appointment, Ex 27:9-19, etc. This represented the state of the Old-Testament church: it was a garden enclosed; the worshippers were then confined to a little compass. But the enclosure being of curtains only intimated that the confinement of the church in one particular nation was not to be perpetual. The dispensation itself was a tabernacle-dispensation, movable and mutable, and in due time to be taken down and folded up, when the place of the tent should be enlarged and its cords lengthened, to make room for the Gentile world, as is foretold, Isa 54:2,3. The church here on earth is but the court of God's house, and happy they that tread these courts and flourish in them; but through these courts we are passing to the holy place above. *Blessed are those that dwell in that house* of God: they well be *still praising him.* The enclosing of a court before the tabernacle teaches us a gradual approach to God. The priests that ministered must pass through the holy court, before they entered the holy house. Thus before solemn ordinances there ought to be the separated and enclosed court of a solemn preparation, in which we must wash our hands, and so draw near with a true heart.
 
-> <sup>21</sup> This is the sum of the tabernacle, *even* of the tabernacle of testimony, as it was counted, according to the commandment of Moses, *for* the service of the Levites, by the hand of Ithamar, son to Aaron the priest.  
-> <sup>22</sup> And Bezaleel the son of Uri, the son of Hur, of the tribe of Judah, made all that the LORD commanded Moses.  
-> <sup>23</sup> And with him *was* Aholiab, son of Ahisamach, of the tribe of Dan, an engraver, and a cunning workman, and an embroiderer in blue, and in purple, and in scarlet, and fine linen.  
-> <sup>24</sup> All the gold that was occupied for the work in all the work of the holy *place,* even the gold of the offering, was twenty and nine talents, and seven hundred and thirty shekels, after the shekel of the sanctuary.  
-> <sup>25</sup> And the silver of them that were numbered of the congregation *was* an hundred talents, and a thousand seven hundred and threescore and fifteen shekels, after the shekel of the sanctuary:  
-> <sup>26</sup> A bekah for every man, *that is,* half a shekel, after the shekel of the sanctuary, for every one that went to be numbered, from twenty years old and upward, for six hundred thousand and three thousand and five hundred and fifty *men.*  
-> <sup>27</sup> And of the hundred talents of silver were cast the sockets of the sanctuary, and the sockets of the vail; an hundred sockets of the hundred talents, a talent for a socket.  
-> <sup>28</sup> And of the thousand seven hundred seventy and five shekels he made hooks for the pillars, and overlaid their chapiters, and filleted them.  
-> <sup>29</sup> And the brass of the offering *was* seventy talents, and two thousand and four hundred shekels.  
-> <sup>30</sup> And therewith he made the sockets to the door of the tabernacle of the congregation, and the brazen altar, and the brazen grate for it, and all the vessels of the altar,  
-> <sup>31</sup> And the sockets of the court round about, and the sockets of the court gate, and all the pins of the tabernacle, and all the pins of the court round about.  
+> **²¹** This is the sum of the tabernacle, *even* of the tabernacle of testimony, as it was counted, according to the commandment of Moses, *for* the service of the Levites, by the hand of Ithamar, son to Aaron the priest.  
+> **²²** And Bezaleel the son of Uri, the son of Hur, of the tribe of Judah, made all that the LORD commanded Moses.  
+> **²³** And with him *was* Aholiab, son of Ahisamach, of the tribe of Dan, an engraver, and a cunning workman, and an embroiderer in blue, and in purple, and in scarlet, and fine linen.  
+> **²⁴** All the gold that was occupied for the work in all the work of the holy *place,* even the gold of the offering, was twenty and nine talents, and seven hundred and thirty shekels, after the shekel of the sanctuary.  
+> **²⁵** And the silver of them that were numbered of the congregation *was* an hundred talents, and a thousand seven hundred and threescore and fifteen shekels, after the shekel of the sanctuary:  
+> **²⁶** A bekah for every man, *that is,* half a shekel, after the shekel of the sanctuary, for every one that went to be numbered, from twenty years old and upward, for six hundred thousand and three thousand and five hundred and fifty *men.*  
+> **²⁷** And of the hundred talents of silver were cast the sockets of the sanctuary, and the sockets of the vail; an hundred sockets of the hundred talents, a talent for a socket.  
+> **²⁸** And of the thousand seven hundred seventy and five shekels he made hooks for the pillars, and overlaid their chapiters, and filleted them.  
+> **²⁹** And the brass of the offering *was* seventy talents, and two thousand and four hundred shekels.  
+> **³⁰** And therewith he made the sockets to the door of the tabernacle of the congregation, and the brazen altar, and the brazen grate for it, and all the vessels of the altar,  
+> **³¹** And the sockets of the court round about, and the sockets of the court gate, and all the pins of the tabernacle, and all the pins of the court round about.  
 
 Here we have a breviat of the account which, by Moses's appointment, the Levites took and kept of the gold, silver, and brass, that was brought in for the tabernacle's use, and how it was employed. Ithamar the son of Aaron was appointed to draw up this account, and was thus by less services trained up and fitted for greater, Ex 38:21. Bezaleel and Aholiab must bring in the account (Ex 38:22,23), and Ithamar must audit it, and give it in to Moses. And it was thus:—1. All the gold was a free-will offering; every man brought as he could and would, and it amounted to twenty-nine talents, and 730 shekels over, which some compute to be about 150,000*l.* worth of gold, according to the present value of it. Of this were made all the golden furniture and vessels. 2. The silver was levied by way of tax; every man was assessed half a shekel, a kind of poll-money, which amounted in the whole to 100 talents, and 1775 shekels over, Ex 38:25,26. Of this they made the sockets into which the boards of the tabernacle were let, and on which they rested; so that they were as the foundation of the tabernacle, Ex 38:27. The silver amounted to about 34,000*l.* of our money. The raising of the gold by voluntary contribution, and of the silver by way of tribute, shows that either way may be taken for the defraying of public expenses, provided that nothing be done with partiality. 3. The brass, though less valuable, was of use not only for the brazen altar, but for the sockets of the court, which probably in other tents were of wood: but it is promised (Isa 60:17), *For wood I will bring brass.* See how liberal the people were and how faithful the workmen were, in both which respects their good example ought to be followed.
 

@@ -8,54 +8,54 @@ This chapter gives us an account of the finishing of the work of the tabernacle.
 
 ## The Tabernacle and Its Furniture. (b. c. 1491.)
 
-> <sup>1</sup> And of the blue, and purple, and scarlet, they made cloths of service, to do service in the holy *place,* and made the holy garments for Aaron; as the LORD commanded Moses.  
-> <sup>2</sup> And he made the ephod *of* gold, blue, and purple, and scarlet, and fine twined linen.  
-> <sup>3</sup> And they did beat the gold into thin plates, and cut *it into* wires, to work *it* in the blue, and in the purple, and in the scarlet, and in the fine linen, *with* cunning work.  
-> <sup>4</sup> They made shoulderpieces for it, to couple *it* together: by the two edges was it coupled together.  
-> <sup>5</sup> And the curious girdle of his ephod, that *was* upon it, *was* of the same, according to the work thereof; *of* gold, blue, and purple, and scarlet, and fine twined linen; as the LORD commanded Moses.  
-> <sup>6</sup> And they wrought onyx stones inclosed in ouches of gold, graven, as signets are graven, with the names of the children of Israel.  
-> <sup>7</sup> And he put them on the shoulders of the ephod, *that they should be* stones for a memorial to the children of Israel; as the LORD commanded Moses.  
-> <sup>8</sup> And he made the breastplate *of* cunning work, like the work of the ephod; *of* gold, blue, and purple, and scarlet, and fine twined linen.  
-> <sup>9</sup> It was foursquare; they made the breastplate double: a span *was* the length thereof, and a span the breadth thereof, *being* doubled.  
-> <sup>10</sup> And they set in it four rows of stones: *the first* row *was* a sardius, a topaz, and a carbuncle: this *was* the first row.  
-> <sup>11</sup> And the second row, an emerald, a sapphire, and a diamond.  
-> <sup>12</sup> And the third row, a ligure, an agate, and an amethyst.  
-> <sup>13</sup> And the fourth row, a beryl, an onyx, and a jasper: *they were* inclosed in ouches of gold in their inclosings.  
-> <sup>14</sup> And the stones *were* according to the names of the children of Israel, twelve, according to their names, *like* the engravings of a signet, every one with his name, according to the twelve tribes.  
-> <sup>15</sup> And they made upon the breastplate chains at the ends, *of* wreathen work *of* pure gold.  
-> <sup>16</sup> And they made two ouches *of* gold, and two gold rings; and put the two rings in the two ends of the breastplate.  
-> <sup>17</sup> And they put the two wreathen chains of gold in the two rings on the ends of the breastplate.  
-> <sup>18</sup> And the two ends of the two wreathen chains they fastened in the two ouches, and put them on the shoulderpieces of the ephod, before it.  
-> <sup>19</sup> And they made two rings of gold, and put *them* on the two ends of the breastplate, upon the border of it, which *was* on the side of the ephod inward.  
-> <sup>20</sup> And they made two *other* golden rings, and put them on the two sides of the ephod underneath, toward the forepart of it, over against the *other* coupling thereof, above the curious girdle of the ephod.  
-> <sup>21</sup> And they did bind the breastplate by his rings unto the rings of the ephod with a lace of blue, that it might be above the curious girdle of the ephod, and that the breastplate might not be loosed from the ephod; as the LORD commanded Moses.  
-> <sup>22</sup> And he made the robe of the ephod *of* woven work, all *of* blue.  
-> <sup>23</sup> And *there was* an hole in the midst of the robe, as the hole of an habergeon, *with* a band round about the hole, that it should not rend.  
-> <sup>24</sup> And they made upon the hems of the robe pomegranates *of* blue, and purple, and scarlet, *and* twined *linen.*  
-> <sup>25</sup> And they made bells *of* pure gold, and put the bells between the pomegranates upon the hem of the robe, round about between the pomegranates;  
-> <sup>26</sup> A bell and a pomegranate, a bell and a pomegranate, round about the hem of the robe to minister *in;* as the LORD commanded Moses.  
-> <sup>27</sup> And they made coats *of* fine linen *of* woven work for Aaron, and for his sons,  
-> <sup>28</sup> And a mitre *of* fine linen, and goodly bonnets *of* fine linen, and linen breeches *of* fine twined linen,  
-> <sup>29</sup> And a girdle *of* fine twined linen, and blue, and purple, and scarlet, *of* needlework; as the LORD commanded Moses.  
-> <sup>30</sup> And they made the plate of the holy crown *of* pure gold, and wrote upon it a writing, *like to* the engravings of a signet, HOLINESS TO THE LORD.  
-> <sup>31</sup> And they tied unto it a lace of blue, to fasten *it* on high upon the mitre; as the LORD commanded Moses.  
+> **¹** And of the blue, and purple, and scarlet, they made cloths of service, to do service in the holy *place,* and made the holy garments for Aaron; as the LORD commanded Moses.  
+> **²** And he made the ephod *of* gold, blue, and purple, and scarlet, and fine twined linen.  
+> **³** And they did beat the gold into thin plates, and cut *it into* wires, to work *it* in the blue, and in the purple, and in the scarlet, and in the fine linen, *with* cunning work.  
+> **⁴** They made shoulderpieces for it, to couple *it* together: by the two edges was it coupled together.  
+> **⁵** And the curious girdle of his ephod, that *was* upon it, *was* of the same, according to the work thereof; *of* gold, blue, and purple, and scarlet, and fine twined linen; as the LORD commanded Moses.  
+> **⁶** And they wrought onyx stones inclosed in ouches of gold, graven, as signets are graven, with the names of the children of Israel.  
+> **⁷** And he put them on the shoulders of the ephod, *that they should be* stones for a memorial to the children of Israel; as the LORD commanded Moses.  
+> **⁸** And he made the breastplate *of* cunning work, like the work of the ephod; *of* gold, blue, and purple, and scarlet, and fine twined linen.  
+> **⁹** It was foursquare; they made the breastplate double: a span *was* the length thereof, and a span the breadth thereof, *being* doubled.  
+> **¹⁰** And they set in it four rows of stones: *the first* row *was* a sardius, a topaz, and a carbuncle: this *was* the first row.  
+> **¹¹** And the second row, an emerald, a sapphire, and a diamond.  
+> **¹²** And the third row, a ligure, an agate, and an amethyst.  
+> **¹³** And the fourth row, a beryl, an onyx, and a jasper: *they were* inclosed in ouches of gold in their inclosings.  
+> **¹⁴** And the stones *were* according to the names of the children of Israel, twelve, according to their names, *like* the engravings of a signet, every one with his name, according to the twelve tribes.  
+> **¹⁵** And they made upon the breastplate chains at the ends, *of* wreathen work *of* pure gold.  
+> **¹⁶** And they made two ouches *of* gold, and two gold rings; and put the two rings in the two ends of the breastplate.  
+> **¹⁷** And they put the two wreathen chains of gold in the two rings on the ends of the breastplate.  
+> **¹⁸** And the two ends of the two wreathen chains they fastened in the two ouches, and put them on the shoulderpieces of the ephod, before it.  
+> **¹⁹** And they made two rings of gold, and put *them* on the two ends of the breastplate, upon the border of it, which *was* on the side of the ephod inward.  
+> **²⁰** And they made two *other* golden rings, and put them on the two sides of the ephod underneath, toward the forepart of it, over against the *other* coupling thereof, above the curious girdle of the ephod.  
+> **²¹** And they did bind the breastplate by his rings unto the rings of the ephod with a lace of blue, that it might be above the curious girdle of the ephod, and that the breastplate might not be loosed from the ephod; as the LORD commanded Moses.  
+> **²²** And he made the robe of the ephod *of* woven work, all *of* blue.  
+> **²³** And *there was* an hole in the midst of the robe, as the hole of an habergeon, *with* a band round about the hole, that it should not rend.  
+> **²⁴** And they made upon the hems of the robe pomegranates *of* blue, and purple, and scarlet, *and* twined *linen.*  
+> **²⁵** And they made bells *of* pure gold, and put the bells between the pomegranates upon the hem of the robe, round about between the pomegranates;  
+> **²⁶** A bell and a pomegranate, a bell and a pomegranate, round about the hem of the robe to minister *in;* as the LORD commanded Moses.  
+> **²⁷** And they made coats *of* fine linen *of* woven work for Aaron, and for his sons,  
+> **²⁸** And a mitre *of* fine linen, and goodly bonnets *of* fine linen, and linen breeches *of* fine twined linen,  
+> **²⁹** And a girdle *of* fine twined linen, and blue, and purple, and scarlet, *of* needlework; as the LORD commanded Moses.  
+> **³⁰** And they made the plate of the holy crown *of* pure gold, and wrote upon it a writing, *like to* the engravings of a signet, HOLINESS TO THE LORD.  
+> **³¹** And they tied unto it a lace of blue, to fasten *it* on high upon the mitre; as the LORD commanded Moses.  
 
 In this account of the making of the priests' garments, according to the instructions given (ch. 28), we may observe, 1. That the priests' garments are called here *clothes of service,* Ex 39:1. Note, Those that wear robes of honour must look upon them as clothes of service; for from those upon whom honour is put service is expected. It is said of those that are arrayed in white robes that they *are before the throne of God, and serve him day and night in his temple,* Re 7:13. Holy garments were not made for men to sleep in, or to strut in, but to do service in; and then they are indeed for glory and beauty. The Son of man himself *came not to be ministered unto, but to minister.* 2. That all the six paragraphs here, which give a distinct account of the making of these holy garments, conclude with those words, *as the Lord commanded Moses,* Ex 39:5,7,21,26,29,31. The like is not in any of the foregoing accounts, as if in these, more than any other of the appurtenances of the tabernacle, they had a particular regard to the divine appointment, both for warrant and for direction. It is an intimation to all the Lord's ministers to make the word of God their rule in all their ministrations, and to act in observance of and obedience to the command of God. 3. That these garments, in conformity to the rest of the furniture of the tabernacle, were very rich and splendid; the church in its infancy was thus taught, thus pleased, with the rudiments of this world; but now under the gospel, which is the ministration of the Spirit, to affect and impose such pompous habits as the church of Rome does, under pretence of decency and instruction, is to betray *the liberty wherewith Christ has made us free,* and to entangle the church again in the bondage of those carnal ordinances which were imposed only till the time of reformation. 4. That they were all shadows of good things to come, but the substance is Christ, and the grace of the gospel; when therefore the substance has come, it is a jest to be fond of the shadow. (1.) Christ is our great high-priest; when he undertook the work of our redemption, he put on the clothes of service—he arrayed himself with the gifts and graces of the Spirit, which he received not by measure—girded himself with the curious girdle of resolution, to go through with his undertaking—charged himself with the curious girdle of resolution, to go through with his undertaking—charged himself with all God's spiritual Israel, bore them on his shoulders, carried them in his bosom, laid them near his heart, engraved them on the palms of his hands, and presented them in the breast-plate of judgment unto his Father. And (lastly) he crowned himself with *holiness to the Lord,* consecrating his whole undertaking to the honour of his Father's holiness: now consider how great this man is. (2.) True believers are spiritual priests. The clean linen with which all their clothes of service must be made is *the righteousness of saints* (Re 19:8), and *Holiness to the Lord* must be so written upon their foreheads that all who converse with them may see, and say, that they bear the image of God's holiness, and are devoted to the praise of it.
 
 ## The Tabernacle Completed. (b. c. 1491.)
 
-> <sup>32</sup> Thus was all the work of the tabernacle of the tent of the congregation finished: and the children of Israel did according to all that the LORD commanded Moses, so did they.  
-> <sup>33</sup> And they brought the tabernacle unto Moses, the tent, and all his furniture, his taches, his boards, his bars, and his pillars, and his sockets,  
-> <sup>34</sup> And the covering of rams' skins dyed red, and the covering of badgers' skins, and the vail of the covering,  
-> <sup>35</sup> The ark of the testimony, and the staves thereof, and the mercy seat,  
-> <sup>36</sup> The table, *and* all the vessels thereof, and the showbread,  
-> <sup>37</sup> The pure candlestick, *with* the lamps thereof, *even with* the lamps to be set in order, and all the vessels thereof, and the oil for light,  
-> <sup>38</sup> And the golden altar, and the anointing oil, and the sweet incense, and the hanging for the tabernacle door,  
-> <sup>39</sup> The brazen altar, and his grate of brass, his staves, and all his vessels, the laver and his foot,  
-> <sup>40</sup> The hangings of the court, his pillars, and his sockets, and the hanging for the court gate, his cords, and his pins, and all the vessels of the service of the tabernacle, for the tent of the congregation,  
-> <sup>41</sup> The cloths of service to do service in the holy *place,* and the holy garments for Aaron the priest, and his sons' garments, to minister in the priest's office.  
-> <sup>42</sup> According to all that the LORD commanded Moses, so the children of Israel made all the work.  
-> <sup>43</sup> And Moses did look upon all the work, and, behold, they had done it as the LORD had commanded, even so had they done it: and Moses blessed them.  
+> **³²** Thus was all the work of the tabernacle of the tent of the congregation finished: and the children of Israel did according to all that the LORD commanded Moses, so did they.  
+> **³³** And they brought the tabernacle unto Moses, the tent, and all his furniture, his taches, his boards, his bars, and his pillars, and his sockets,  
+> **³⁴** And the covering of rams' skins dyed red, and the covering of badgers' skins, and the vail of the covering,  
+> **³⁵** The ark of the testimony, and the staves thereof, and the mercy seat,  
+> **³⁶** The table, *and* all the vessels thereof, and the showbread,  
+> **³⁷** The pure candlestick, *with* the lamps thereof, *even with* the lamps to be set in order, and all the vessels thereof, and the oil for light,  
+> **³⁸** And the golden altar, and the anointing oil, and the sweet incense, and the hanging for the tabernacle door,  
+> **³⁹** The brazen altar, and his grate of brass, his staves, and all his vessels, the laver and his foot,  
+> **⁴⁰** The hangings of the court, his pillars, and his sockets, and the hanging for the court gate, his cords, and his pins, and all the vessels of the service of the tabernacle, for the tent of the congregation,  
+> **⁴¹** The cloths of service to do service in the holy *place,* and the holy garments for Aaron the priest, and his sons' garments, to minister in the priest's office.  
+> **⁴²** According to all that the LORD commanded Moses, so the children of Israel made all the work.  
+> **⁴³** And Moses did look upon all the work, and, behold, they had done it as the LORD had commanded, even so had they done it: and Moses blessed them.  
 
 Observe here, I. The builders of the tabernacle made very good despatch. It was not much more than five months from the beginning to the finishing of it. Though there was a great deal of fine work about it, such as is usually the work of time, embroidering and engraving, not only in gold, but in precious stones, yet they went through with it in a little time. Church-work is usually slow work, but they made quick work of this, and yet did it with the greatest exactness imaginable. For, 1. Many hands were employed, all unanimous, and not striving with each other. This expedited the business, and made it easy. 2. The workmen were taught of God, and so were kept from making blunders, which would have retarded them. 3. The people were hearty and zealous in the work, and impatient till it was finished. God had prepared their hearts, and then *the thing was done suddenly,* 2Ch 29:36. Resolution and industry, and a cheerful application of mind, will, by the grace of God, bring a great deal of good work to pass in a little time, in less than one would expect.
 

@@ -8,32 +8,32 @@ This chapter gives us an account of Judah and his family, and such an account it
 
 ## Judah's Profligacy. (b. c. 1717.)
 
-> <sup>1</sup> And it came to pass at that time, that Judah went down from his brethren, and turned in to a certain Adullamite, whose name *was* Hirah.  
-> <sup>2</sup> And Judah saw there a daughter of a certain Canaanite, whose name *was* Shuah; and he took her, and went in unto her.  
-> <sup>3</sup> And she conceived, and bare a son; and he called his name Er.  
-> <sup>4</sup> And she conceived again, and bare a son; and she called his name Onan.  
-> <sup>5</sup> And she yet again conceived, and bare a son; and called his name Shelah: and he was at Chezib, when she bare him.  
-> <sup>6</sup> And Judah took a wife for Er his firstborn, whose name *was* Tamar.  
-> <sup>7</sup> And Er, Judah's firstborn, was wicked in the sight of the LORD; and the LORD slew him.  
-> <sup>8</sup> And Judah said unto Onan, Go in unto thy brother's wife, and marry her, and raise up seed to thy brother.  
-> <sup>9</sup> And Onan knew that the seed should not be his; and it came to pass, when he went in unto his brother's wife, that he spilled *it* on the ground, lest that he should give seed to his brother.  
-> <sup>10</sup> And the thing which he did displeased the LORD: wherefore he slew him also.  
-> <sup>11</sup> Then said Judah to Tamar his daughter in law, Remain a widow at thy father's house, till Shelah my son be grown: for he said, Lest peradventure he die also, as his brethren *did.* And Tamar went and dwelt in her father's house.  
+> **¹** And it came to pass at that time, that Judah went down from his brethren, and turned in to a certain Adullamite, whose name *was* Hirah.  
+> **²** And Judah saw there a daughter of a certain Canaanite, whose name *was* Shuah; and he took her, and went in unto her.  
+> **³** And she conceived, and bare a son; and he called his name Er.  
+> **⁴** And she conceived again, and bare a son; and she called his name Onan.  
+> **⁵** And she yet again conceived, and bare a son; and called his name Shelah: and he was at Chezib, when she bare him.  
+> **⁶** And Judah took a wife for Er his firstborn, whose name *was* Tamar.  
+> **⁷** And Er, Judah's firstborn, was wicked in the sight of the LORD; and the LORD slew him.  
+> **⁸** And Judah said unto Onan, Go in unto thy brother's wife, and marry her, and raise up seed to thy brother.  
+> **⁹** And Onan knew that the seed should not be his; and it came to pass, when he went in unto his brother's wife, that he spilled *it* on the ground, lest that he should give seed to his brother.  
+> **¹⁰** And the thing which he did displeased the LORD: wherefore he slew him also.  
+> **¹¹** Then said Judah to Tamar his daughter in law, Remain a widow at thy father's house, till Shelah my son be grown: for he said, Lest peradventure he die also, as his brethren *did.* And Tamar went and dwelt in her father's house.  
 
 Here is, 1. Judah's foolish friendship with a Canaanite-man. He went down from his brethren, and withdrew for a time from their society and his father's family, and got to be intimately acquainted with one Hirah, an Adullamite, Ge 38:1. It is computed that he was now not much above fifteen or sixteen years of age, an easy prey to the tempter. Note, When young people that have been well educated begin to change their company, they will soon change their manners, and lose their good education. Those that go down from their brethren, that despise and forsake the society of the seed of Israel, and pick up Canaanites for their companions, are going down the hill apace. It is of great consequence to young people to choose proper associates; for these they will imitate, study to recommend themselves to, and, by their opinion of them, value themselves: an error in this choice is often fatal. 2. His foolish marriage with a Canaanite-woman, a match made, not by his father, who, it should seem, was not consulted, but by his new friend Hirah, Ge 38:2. Many have been drawn into marriages scandalous and pernicious to themselves and their families by keeping bad company, and growing familiar with bad people: one wicked league entangles men in another. Let young people be admonished by this to take their good parents for their best friends, and to be advised by them, and not by flatterers, who wheedle them, to make a prey of them. 3. His children by this Canaanite, and his disposal of them. Three sons he had by her, Er, Onan, and Shelah. It is probable that she embraced the worship of the God of Israel, at least in profession, but, for aught that appears, there was little of the fear of God in the family. Judah married too young, and very rashly; he also married his sons too young, when they had neither wit nor grace to govern themselves, and the consequences were very bad. (1.) His first-born, *Er,* was notoriously wicked; he was so *in the sight of the Lord,* that is, in defiance of God and his law; or, if perhaps he was not wicked in the sight of the world, he was so in the sight of God, to whom all men's wickedness is open; and what came of it? Why, God cut him off presently (Ge 38:7): *The Lord slew him.* Note, Sometimes God makes quick work with sinners, and takes them away in his wrath, when they are but just setting out in a wicked course of life. (2.) The next son, *Onan,* was, according to the ancient usage, married to the widow, to preserve the name of his deceased brother that died childless. Though God had taken away his life for his wickedness, yet they were solicitous to preserve his memory; and their disappointment therein, through Onan's sin, was a further punishment of his wickedness. The custom of marrying the brother's widow was afterwards made one of the laws of Moses, De 25:5. Onan, though he consented to marry the widow, yet, to the great abuse of his own body, of the wife that he had married, and of the memory of his brother that was gone, he refused to raise up seed unto his brother, as he was in duty bound. This was so much the worse because the Messiah was to descend from Judah, and, had he not been guilty of this wickedness, he might have had the honour of being one of his ancestors. Note, Those sins that dishonour the body and defile it are very displeasing to God and evidences of vile affections. (3.) *Shelah,* the third son, was reserved for the widow (Ge 38:11), yet with a design that he should not marry so young as his brothers had done, *lest he die also.* Some think that Judah never intended to marry Shelah to Tamar, but unjustly suspected her to have been the death of her two former husbands (whereas it was their own wickedness that slew them), and then sent her to her father's house, with a charge to remain a widow. If so, it was an inexcusable piece of prevarication that he was guilty of. However, Tamar acquiesced for the present, and waited the issue.
 
-> <sup>12</sup> And in process of time the daughter of Shuah Judah's wife died; and Judah was comforted, and went up unto his sheepshearers to Timnath, he and his friend Hirah the Adullamite.  
-> <sup>13</sup> And it was told Tamar, saying, Behold thy father in law goeth up to Timnath to shear his sheep.  
-> <sup>14</sup> And she put her widow's garments off from her, and covered her with a veil, and wrapped herself, and sat in an open place, which *is* by the way to Timnath; for she saw that Shelah was grown, and she was not given unto him to wife.  
-> <sup>15</sup> When Judah saw her, he thought her *to be* an harlot; because she had covered her face.  
-> <sup>16</sup> And he turned unto her by the way, and said, Go to, I pray thee, let me come in unto thee; (for he knew not that she *was* his daughter in law.) And she said, What wilt thou give me, that thou mayest come in unto me?  
-> <sup>17</sup> And he said, I will send *thee* a kid from the flock. And she said, Wilt thou give *me* a pledge, till thou send *it?*  
-> <sup>18</sup> And he said, What pledge shall I give thee? And she said, Thy signet, and thy bracelets, and thy staff that *is* in thine hand. And he gave *it* her, and came in unto her, and she conceived by him.  
-> <sup>19</sup> And she arose, and went away, and laid by her veil from her, and put on the garments of her widowhood.  
-> <sup>20</sup> And Judah sent the kid by the hand of his friend the Adullamite, to receive *his* pledge from the woman's hand: but he found her not.  
-> <sup>21</sup> Then he asked the men of that place, saying, Where *is* the harlot, that *was* openly by the way side? And they said, There was no harlot in this *place.*  
-> <sup>22</sup> And he returned to Judah, and said, I cannot find her, and also the men of the place said, *that* there was no harlot in this *place.*  
-> <sup>23</sup> And Judah said, Let her take *it* to her, lest we be shamed: behold, I sent this kid, and thou hast not found her.  
+> **¹²** And in process of time the daughter of Shuah Judah's wife died; and Judah was comforted, and went up unto his sheepshearers to Timnath, he and his friend Hirah the Adullamite.  
+> **¹³** And it was told Tamar, saying, Behold thy father in law goeth up to Timnath to shear his sheep.  
+> **¹⁴** And she put her widow's garments off from her, and covered her with a veil, and wrapped herself, and sat in an open place, which *is* by the way to Timnath; for she saw that Shelah was grown, and she was not given unto him to wife.  
+> **¹⁵** When Judah saw her, he thought her *to be* an harlot; because she had covered her face.  
+> **¹⁶** And he turned unto her by the way, and said, Go to, I pray thee, let me come in unto thee; (for he knew not that she *was* his daughter in law.) And she said, What wilt thou give me, that thou mayest come in unto me?  
+> **¹⁷** And he said, I will send *thee* a kid from the flock. And she said, Wilt thou give *me* a pledge, till thou send *it?*  
+> **¹⁸** And he said, What pledge shall I give thee? And she said, Thy signet, and thy bracelets, and thy staff that *is* in thine hand. And he gave *it* her, and came in unto her, and she conceived by him.  
+> **¹⁹** And she arose, and went away, and laid by her veil from her, and put on the garments of her widowhood.  
+> **²⁰** And Judah sent the kid by the hand of his friend the Adullamite, to receive *his* pledge from the woman's hand: but he found her not.  
+> **²¹** Then he asked the men of that place, saying, Where *is* the harlot, that *was* openly by the way side? And they said, There was no harlot in this *place.*  
+> **²²** And he returned to Judah, and said, I cannot find her, and also the men of the place said, *that* there was no harlot in this *place.*  
+> **²³** And Judah said, Let her take *it* to her, lest we be shamed: behold, I sent this kid, and thou hast not found her.  
 
 It is a very ill-favoured story that is here told concerning Judah; one would not have expected such folly in Israel. Judah had buried his wife; and widowers have need to stand upon their guard with the utmost caution and resolution against all fleshly lusts. He was unjust to his daughter-in-law, either through negligence or design, in not giving her his surviving son, and this exposed her to temptation.
 
@@ -45,13 +45,13 @@ III\. He lost his jewels by the bargain; he sent the kid, according to this prom
 
 ## Birth of Phares and Zarah. (b. c. 1714.)
 
-> <sup>24</sup> And it came to pass about three months after, that it was told Judah, saying, Tamar thy daughter in law hath played the harlot; and also, behold, she *is* with child by whoredom. And Judah said, Bring her forth, and let her be burnt.  
-> <sup>25</sup> When she *was* brought forth, she sent to her father in law, saying, By the man, whose these *are, am* I with child: and she said, Discern, I pray thee, whose *are* these, the signet, and bracelets, and staff.  
-> <sup>26</sup> And Judah acknowledged *them,* and said, She hath been more righteous than I; because that I gave her not to Shelah my son. And he knew her again no more.  
-> <sup>27</sup> And it came to pass in the time of her travail, that, behold, twins *were* in her womb.  
-> <sup>28</sup> And it came to pass, when she travailed, that *the one* put out *his* hand: and the midwife took and bound upon his hand a scarlet thread, saying, This came out first.  
-> <sup>29</sup> And it came to pass, as he drew back his hand, that, behold, his brother came out: and she said, How hast thou broken forth? *this* breach *be* upon thee: therefore his name was called Pharez.  
-> <sup>30</sup> And afterward came out his brother, that had the scarlet thread upon his hand: and his name was called Zarah.  
+> **²⁴** And it came to pass about three months after, that it was told Judah, saying, Tamar thy daughter in law hath played the harlot; and also, behold, she *is* with child by whoredom. And Judah said, Bring her forth, and let her be burnt.  
+> **²⁵** When she *was* brought forth, she sent to her father in law, saying, By the man, whose these *are, am* I with child: and she said, Discern, I pray thee, whose *are* these, the signet, and bracelets, and staff.  
+> **²⁶** And Judah acknowledged *them,* and said, She hath been more righteous than I; because that I gave her not to Shelah my son. And he knew her again no more.  
+> **²⁷** And it came to pass in the time of her travail, that, behold, twins *were* in her womb.  
+> **²⁸** And it came to pass, when she travailed, that *the one* put out *his* hand: and the midwife took and bound upon his hand a scarlet thread, saying, This came out first.  
+> **²⁹** And it came to pass, as he drew back his hand, that, behold, his brother came out: and she said, How hast thou broken forth? *this* breach *be* upon thee: therefore his name was called Pharez.  
+> **³⁰** And afterward came out his brother, that had the scarlet thread upon his hand: and his name was called Zarah.  
 
 Here is, I. Judah's rigour against Tamar, when he heard she was an adulteress. She was, in the eye of the law, Shelah's wife, and therefore her being with child by another was looked upon as an injury and reproach to Judah's family: *Bring her forth therefore,* says Judah, the master of the family, and *let her be burnt;* not burnt to death, but burnt in the cheek or forehead, stigmatized for a harlot. This seems probable, Ge 38:24. Note, it is a common thing for men to be severe against those very sins in others in which yet they allow themselves; and so, in judging others, they condemn themselves, Ro 2:1,14:22. If he designed that she should be burnt to death, perhaps, under pretence of zeal against the sin, he was contriving how to get rid of his daughter-in-law, being loath to marry Shelah to her. Note, It is a common thing, but a very bad thing, to cover malice against men's persons with a show of zeal against their vices.
 

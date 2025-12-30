@@ -8,10 +8,10 @@ The prophet, in this chapter, is dealing, I. With the proud oppressors of his pe
 
 ## The Condemnation of Oppressors. (b. c. 740.)
 
-> <sup>1</sup> Woe unto them that decree unrighteous decrees, and that write grievousness *which* they have prescribed;  
-> <sup>2</sup> To turn aside the needy from judgment, and to take away the right from the poor of my people, that widows may be their prey, and *that* they may rob the fatherless!  
-> <sup>3</sup> And what will ye do in the day of visitation, and in the desolation *which* shall come from far? to whom will ye flee for help? and where will ye leave your glory?  
-> <sup>4</sup> Without me they shall bow down under the prisoners, and they shall fall under the slain. For all this his anger is not turned away, but his hand *is* stretched out still.  
+> **¹** Woe unto them that decree unrighteous decrees, and that write grievousness *which* they have prescribed;  
+> **²** To turn aside the needy from judgment, and to take away the right from the poor of my people, that widows may be their prey, and *that* they may rob the fatherless!  
+> **³** And what will ye do in the day of visitation, and in the desolation *which* shall come from far? to whom will ye flee for help? and where will ye leave your glory?  
+> **⁴** Without me they shall bow down under the prisoners, and they shall fall under the slain. For all this his anger is not turned away, but his hand *is* stretched out still.  
 
 Whether they were the princes and judges of Israel of Judah, or both, that the prophet denounced this woe against, is not certain: if those of Israel, these verses are to be joined with the close of the foregoing chapter, which is probable enough, because the burden of that prophecy (*for all this his anger is not turned away*) is repeated here (Isa 10:4); if those of Judah, they then show what was the particular design with which God brought the Assyrian army upon them—to punish their magistrates for mal-administration, which they could not legally be called to account for. To them he speaks woes before he speaks comfort to God's own people. Here is,
 
@@ -25,21 +25,21 @@ And yet, *for all this, his anger is not turned away,* which intimates not only 
 
 ## The Pride of the King of Assyria; Sennacherib's Pride Rebuked; Destruction of the King of Assyria. (b. c. 740.)
 
-> <sup>5</sup> O Assyrian, the rod of mine anger, and the staff in their hand is mine indignation.  
-> <sup>6</sup> I will send him against a hypocritical nation, and against the people of my wrath will I give him a charge, to take the spoil, and to take the prey, and to tread them down like the mire of the streets.  
-> <sup>7</sup> Howbeit he meaneth not so, neither doth his heart think so; but *it is* in his heart to destroy and cut off nations not a few.  
-> <sup>8</sup> For he saith, *Are* not my princes altogether kings?  
-> <sup>9</sup> *Is* not Calno as Carchemish? *is* not Hamath as Arpad? *is* not Samaria as Damascus?  
-> <sup>10</sup> As my hand hath found the kingdoms of the idols, and whose graven images did excel them of Jerusalem and of Samaria;  
-> <sup>11</sup> Shall I not, as I have done unto Samaria and her idols, so do to Jerusalem and her idols?  
-> <sup>12</sup> Wherefore it shall come to pass, *that* when the Lord hath performed his whole work upon mount Zion and on Jerusalem, I will punish the fruit of the stout heart of the king of Assyria, and the glory of his high looks.  
-> <sup>13</sup> For he saith, By the strength of my hand I have done *it,* and by my wisdom; for I am prudent: and I have removed the bounds of the people, and have robbed their treasures, and I have put down the inhabitants like a valiant *man:*  
-> <sup>14</sup> And my hand hath found as a nest the riches of the people: and as one gathereth eggs *that are* left, have I gathered all the earth; and there was none that moved the wing, or opened the mouth, or peeped.  
-> <sup>15</sup> Shall the axe boast itself against him that heweth therewith? *or* shall the saw magnify itself against him that shaketh it? as if the rod should shake *itself* against them that lift it up, *or* as if the staff should lift up *itself, as if it were* no wood.  
-> <sup>16</sup> Therefore shall the Lord, the Lord of hosts, send among his fat ones leanness; and under his glory he shall kindle a burning like the burning of a fire.  
-> <sup>17</sup> And the light of Israel shall be for a fire, and his Holy One for a flame: and it shall burn and devour his thorns and his briers in one day;  
-> <sup>18</sup> And shall consume the glory of his forest, and of his fruitful field, both soul and body: and they shall be as when a standard-bearer fainteth.  
-> <sup>19</sup> And the rest of the trees of his forest shall be few, that a child may write them.  
+> **⁵** O Assyrian, the rod of mine anger, and the staff in their hand is mine indignation.  
+> **⁶** I will send him against a hypocritical nation, and against the people of my wrath will I give him a charge, to take the spoil, and to take the prey, and to tread them down like the mire of the streets.  
+> **⁷** Howbeit he meaneth not so, neither doth his heart think so; but *it is* in his heart to destroy and cut off nations not a few.  
+> **⁸** For he saith, *Are* not my princes altogether kings?  
+> **⁹** *Is* not Calno as Carchemish? *is* not Hamath as Arpad? *is* not Samaria as Damascus?  
+> **¹⁰** As my hand hath found the kingdoms of the idols, and whose graven images did excel them of Jerusalem and of Samaria;  
+> **¹¹** Shall I not, as I have done unto Samaria and her idols, so do to Jerusalem and her idols?  
+> **¹²** Wherefore it shall come to pass, *that* when the Lord hath performed his whole work upon mount Zion and on Jerusalem, I will punish the fruit of the stout heart of the king of Assyria, and the glory of his high looks.  
+> **¹³** For he saith, By the strength of my hand I have done *it,* and by my wisdom; for I am prudent: and I have removed the bounds of the people, and have robbed their treasures, and I have put down the inhabitants like a valiant *man:*  
+> **¹⁴** And my hand hath found as a nest the riches of the people: and as one gathereth eggs *that are* left, have I gathered all the earth; and there was none that moved the wing, or opened the mouth, or peeped.  
+> **¹⁵** Shall the axe boast itself against him that heweth therewith? *or* shall the saw magnify itself against him that shaketh it? as if the rod should shake *itself* against them that lift it up, *or* as if the staff should lift up *itself, as if it were* no wood.  
+> **¹⁶** Therefore shall the Lord, the Lord of hosts, send among his fat ones leanness; and under his glory he shall kindle a burning like the burning of a fire.  
+> **¹⁷** And the light of Israel shall be for a fire, and his Holy One for a flame: and it shall burn and devour his thorns and his briers in one day;  
+> **¹⁸** And shall consume the glory of his forest, and of his fruitful field, both soul and body: and they shall be as when a standard-bearer fainteth.  
+> **¹⁹** And the rest of the trees of his forest shall be few, that a child may write them.  
 
 The destruction of the kingdom of Israel by Shalmaneser king of Assyria was foretold in the foregoing chapter, and it had its accomplishment in the sixth year of Hezekiah, 2Ki 18:10. It was total and final, head and tail were all cut off. Now the correction of the kingdom of Judah by Sennacherib king of Assyria is foretold in this chapter; and this prediction was fulfilled in the fourteenth year of Hezekiah, when that potent prince, encouraged by the successes of his predecessor against the ten tribes, *came up against all the fenced cities of Judah and took them, and laid siege to Jerusalem* (2Ki 18:13,17), in consequence of which we may well suppose Hezekiah and his kingdom were greatly alarmed, though there was a good work of reformation lately begun among them: but it ended well, in the confusion of the Assyrians and the great encouragement of Hezekiah and his people in their return to God. Now let us see here,
 
@@ -77,10 +77,10 @@ III\. See how God, in his justice, rebukes his pride and reads his doom. We have
 
 ## Encouragement to Israel. (b. c. 740.)
 
-> <sup>20</sup> And it shall come to pass in that day, *that* the remnant of Israel, and such as are escaped of the house of Jacob, shall no more again stay upon him that smote them; but shall stay upon the LORD, the Holy One of Israel, in truth.  
-> <sup>21</sup> The remnant shall return, *even* the remnant of Jacob, unto the mighty God.  
-> <sup>22</sup> For though thy people Israel be as the sand of the sea, *yet* a remnant of them shall return: the consumption decreed shall overflow with righteousness.  
-> <sup>23</sup> For the Lord GOD of hosts shall make a consumption, even determined, in the midst of all the land.  
+> **²⁰** And it shall come to pass in that day, *that* the remnant of Israel, and such as are escaped of the house of Jacob, shall no more again stay upon him that smote them; but shall stay upon the LORD, the Holy One of Israel, in truth.  
+> **²¹** The remnant shall return, *even* the remnant of Jacob, unto the mighty God.  
+> **²²** For though thy people Israel be as the sand of the sea, *yet* a remnant of them shall return: the consumption decreed shall overflow with righteousness.  
+> **²³** For the Lord GOD of hosts shall make a consumption, even determined, in the midst of all the land.  
 
 The prophet had said (Isa 10:12) that *the Lord would perform his whole work upon Mount Zion and upon Jerusalem,* by Sennacherib's invading the land. Now here we are told what that work should be, a twofold work:—
 
@@ -90,17 +90,17 @@ II\. The consumption of others: *The Lord God of hosts shall make a consumption,
 
 ## Encouragement to Israel. (b. c. 740.)
 
-> <sup>24</sup> Therefore thus saith the Lord GOD of hosts, O my people that dwellest in Zion, be not afraid of the Assyrian: he shall smite thee with a rod, and shall lift up his staff against thee, after the manner of Egypt.  
-> <sup>25</sup> For yet a very little while, and the indignation shall cease, and mine anger in their destruction.  
-> <sup>26</sup> And the LORD of hosts shall stir up a scourge for him according to the slaughter of Midian at the rock of Oreb: and *as* his rod *was* upon the sea, so shall he lift it up after the manner of Egypt.  
-> <sup>27</sup> And it shall come to pass in that day, *that* his burden shall be taken away from off thy shoulder, and his yoke from off thy neck, and the yoke shall be destroyed because of the anointing.  
-> <sup>28</sup> He is come to Aiath, he is passed to Migron; at Michmash he hath laid up his carriages:  
-> <sup>29</sup> They are gone over the passage: they have taken up their lodging at Geba; Ramah is afraid; Gibeah of Saul is fled.  
-> <sup>30</sup> Lift up thy voice, O daughter of Gallim: cause it to be heard unto Laish, O poor Anathoth.  
-> <sup>31</sup> Madmenah is removed; the inhabitants of Gebim gather themselves to flee.  
-> <sup>32</sup> As yet shall he remain at Nob that day: he shall shake his hand *against* the mount of the daughter of Zion, the hill of Jerusalem.  
-> <sup>33</sup> Behold, the Lord, the LORD of hosts, shall lop the bough with terror: and the high ones of stature *shall be* hewn down, and the haughty shall be humbled.  
-> <sup>34</sup> And he shall cut down the thickets of the forest with iron, and Lebanon shall fall by a mighty one.  
+> **²⁴** Therefore thus saith the Lord GOD of hosts, O my people that dwellest in Zion, be not afraid of the Assyrian: he shall smite thee with a rod, and shall lift up his staff against thee, after the manner of Egypt.  
+> **²⁵** For yet a very little while, and the indignation shall cease, and mine anger in their destruction.  
+> **²⁶** And the LORD of hosts shall stir up a scourge for him according to the slaughter of Midian at the rock of Oreb: and *as* his rod *was* upon the sea, so shall he lift it up after the manner of Egypt.  
+> **²⁷** And it shall come to pass in that day, *that* his burden shall be taken away from off thy shoulder, and his yoke from off thy neck, and the yoke shall be destroyed because of the anointing.  
+> **²⁸** He is come to Aiath, he is passed to Migron; at Michmash he hath laid up his carriages:  
+> **²⁹** They are gone over the passage: they have taken up their lodging at Geba; Ramah is afraid; Gibeah of Saul is fled.  
+> **³⁰** Lift up thy voice, O daughter of Gallim: cause it to be heard unto Laish, O poor Anathoth.  
+> **³¹** Madmenah is removed; the inhabitants of Gebim gather themselves to flee.  
+> **³²** As yet shall he remain at Nob that day: he shall shake his hand *against* the mount of the daughter of Zion, the hill of Jerusalem.  
+> **³³** Behold, the Lord, the LORD of hosts, shall lop the bough with terror: and the high ones of stature *shall be* hewn down, and the haughty shall be humbled.  
+> **³⁴** And he shall cut down the thickets of the forest with iron, and Lebanon shall fall by a mighty one.  
 
 The prophet, in his preaching, distinguishes between the precious and the vile; for God in his providence, even in the same providence, does so. He speaks terror, in Sennacherib's invasion, to the hypocrites, who were the *people of God's wrath,* Isa 10:6. But here he speaks comfort to the sincere, who were the people of God's love. The judgment was sent for the sake of the former; the deliverance was wrought for the sake of the latter. Here we have,
 

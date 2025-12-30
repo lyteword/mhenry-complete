@@ -8,18 +8,18 @@ John the Baptist had said concerning Christ, He must increase, but I must decrea
 
 ## The Death of John the Baptist.
 
-> <sup>1</sup> At that time Herod the tetrarch heard of the fame of Jesus,  
-> <sup>2</sup> And said unto his servants, This is John the Baptist; he is risen from the dead; and therefore mighty works do show forth themselves in him.  
-> <sup>3</sup> For Herod had laid hold on John, and bound him, and put *him* in prison for Herodias' sake, his brother Philip's wife.  
-> <sup>4</sup> For John said unto him, It is not lawful for thee to have her.  
-> <sup>5</sup> And when he would have put him to death, he feared the multitude, because they counted him as a prophet.  
-> <sup>6</sup> But when Herod's birthday was kept, the daughter of Herodias danced before them, and pleased Herod.  
-> <sup>7</sup> Whereupon he promised with an oath to give her whatsoever she would ask.  
-> <sup>8</sup> And she, being before instructed of her mother, said, Give me here John Baptist's head in a charger.  
-> <sup>9</sup> And the king was sorry: nevertheless for the oath's sake, and them which sat with him at meat, he commanded *it* to be given *her.*  
-> <sup>10</sup> And he sent, and beheaded John in the prison.  
-> <sup>11</sup> And his head was brought in a charger, and given to the damsel: and she brought *it* to her mother.  
-> <sup>12</sup> And his disciples came, and took up the body, and buried it, and went and told Jesus.  
+> **¹** At that time Herod the tetrarch heard of the fame of Jesus,  
+> **²** And said unto his servants, This is John the Baptist; he is risen from the dead; and therefore mighty works do show forth themselves in him.  
+> **³** For Herod had laid hold on John, and bound him, and put *him* in prison for Herodias' sake, his brother Philip's wife.  
+> **⁴** For John said unto him, It is not lawful for thee to have her.  
+> **⁵** And when he would have put him to death, he feared the multitude, because they counted him as a prophet.  
+> **⁶** But when Herod's birthday was kept, the daughter of Herodias danced before them, and pleased Herod.  
+> **⁷** Whereupon he promised with an oath to give her whatsoever she would ask.  
+> **⁸** And she, being before instructed of her mother, said, Give me here John Baptist's head in a charger.  
+> **⁹** And the king was sorry: nevertheless for the oath's sake, and them which sat with him at meat, he commanded *it* to be given *her.*  
+> **¹⁰** And he sent, and beheaded John in the prison.  
+> **¹¹** And his head was brought in a charger, and given to the damsel: and she brought *it* to her mother.  
+> **¹²** And his disciples came, and took up the body, and buried it, and went and told Jesus.  
 
 We have here the story of John's martyrdom. Observe,
 
@@ -89,15 +89,15 @@ Josephus mentions this story of the death of John the Baptist (*Antiq.* 18. 116-
 
 ## The Five Thousand Fed.
 
-> <sup>13</sup> When Jesus heard *of it,* he departed thence by ship into a desert place apart: and when the people had heard *thereof,* they followed him on foot out of the cities.  
-> <sup>14</sup> And Jesus went forth, and saw a great multitude, and was moved with compassion toward them, and he healed their sick.  
-> <sup>15</sup> And when it was evening, his disciples came to him, saying, This is a desert place, and the time is now past; send the multitude away, that they may go into the villages, and buy themselves victuals.  
-> <sup>16</sup> But Jesus said unto them, They need not depart; give ye them to eat.  
-> <sup>17</sup> And they say unto him, We have here but five loaves, and two fishes.  
-> <sup>18</sup> He said, Bring them hither to me.  
-> <sup>19</sup> And he commanded the multitude to sit down on the grass, and took the five loaves, and the two fishes, and looking up to heaven, he blessed, and brake, and gave the loaves to *his* disciples, and the disciples to the multitude.  
-> <sup>20</sup> And they did all eat, and were filled: and they took up of the fragments that remained twelve baskets full.  
-> <sup>21</sup> And they that had eaten were about five thousand men, beside women and children.  
+> **¹³** When Jesus heard *of it,* he departed thence by ship into a desert place apart: and when the people had heard *thereof,* they followed him on foot out of the cities.  
+> **¹⁴** And Jesus went forth, and saw a great multitude, and was moved with compassion toward them, and he healed their sick.  
+> **¹⁵** And when it was evening, his disciples came to him, saying, This is a desert place, and the time is now past; send the multitude away, that they may go into the villages, and buy themselves victuals.  
+> **¹⁶** But Jesus said unto them, They need not depart; give ye them to eat.  
+> **¹⁷** And they say unto him, We have here but five loaves, and two fishes.  
+> **¹⁸** He said, Bring them hither to me.  
+> **¹⁹** And he commanded the multitude to sit down on the grass, and took the five loaves, and the two fishes, and looking up to heaven, he blessed, and brake, and gave the loaves to *his* disciples, and the disciples to the multitude.  
+> **²⁰** And they did all eat, and were filled: and they took up of the fragments that remained twelve baskets full.  
+> **²¹** And they that had eaten were about five thousand men, beside women and children.  
 
 This passage of story, concerning Christ's feeding *five thousand men with five loaves and two fishes,* is recorded by all the four Evangelists, which very few, if any, of Christ's miracles are: this intimates that there is something in it worthy of special remark. Observe,
 
@@ -137,18 +137,18 @@ It is the same divine power, though exerted in an ordinary way, which multiplies
 
 ## Jesus Walks to His Disciples on the Sea.
 
-> <sup>22</sup> And straightway Jesus constrained his disciples to get into a ship, and to go before him unto the other side, while he sent the multitudes away.  
-> <sup>23</sup> And when he had sent the multitudes away, he went up into a mountain apart to pray: and when the evening was come, he was there alone.  
-> <sup>24</sup> But the ship was now in the midst of the sea, tossed with waves: for the wind was contrary.  
-> <sup>25</sup> And in the fourth watch of the night Jesus went unto them, walking on the sea.  
-> <sup>26</sup> And when the disciples saw him walking on the sea, they were troubled, saying, It is a spirit; and they cried out for fear.  
-> <sup>27</sup> But straightway Jesus spake unto them, saying, Be of good cheer; it is I; be not afraid.  
-> <sup>28</sup> And Peter answered him and said, Lord, if it be thou, bid me come unto thee on the water.  
-> <sup>29</sup> And he said, Come. And when Peter was come down out of the ship, he walked on the water, to go to Jesus.  
-> <sup>30</sup> But when he saw the wind boisterous, he was afraid; and beginning to sink, he cried, saying, Lord, save me.  
-> <sup>31</sup> And immediately Jesus stretched forth *his* hand, and caught him, and said unto him, O thou of little faith, wherefore didst thou doubt?  
-> <sup>32</sup> And when they were come into the ship, the wind ceased.  
-> <sup>33</sup> Then they that were in the ship came and worshipped him, saying, Of a truth thou art the Son of God.  
+> **²²** And straightway Jesus constrained his disciples to get into a ship, and to go before him unto the other side, while he sent the multitudes away.  
+> **²³** And when he had sent the multitudes away, he went up into a mountain apart to pray: and when the evening was come, he was there alone.  
+> **²⁴** But the ship was now in the midst of the sea, tossed with waves: for the wind was contrary.  
+> **²⁵** And in the fourth watch of the night Jesus went unto them, walking on the sea.  
+> **²⁶** And when the disciples saw him walking on the sea, they were troubled, saying, It is a spirit; and they cried out for fear.  
+> **²⁷** But straightway Jesus spake unto them, saying, Be of good cheer; it is I; be not afraid.  
+> **²⁸** And Peter answered him and said, Lord, if it be thou, bid me come unto thee on the water.  
+> **²⁹** And he said, Come. And when Peter was come down out of the ship, he walked on the water, to go to Jesus.  
+> **³⁰** But when he saw the wind boisterous, he was afraid; and beginning to sink, he cried, saying, Lord, save me.  
+> **³¹** And immediately Jesus stretched forth *his* hand, and caught him, and said unto him, O thou of little faith, wherefore didst thou doubt?  
+> **³²** And when they were come into the ship, the wind ceased.  
+> **³³** Then they that were in the ship came and worshipped him, saying, Of a truth thou art the Son of God.  
 
 We have here the story of another miracle which Christ wrought for the relief of his friends and followers, his *walking upon the water to his disciples.* In the foregoing miracle he acted as the Lord of nature, improving its powers for the supply of those who were in want; in this, he acted as the Lord of nature, correcting and controlling its powers for the succour of those who were in danger and distress. Observe,
 
@@ -242,9 +242,9 @@ VII\. The adoration paid to Christ hereupon (Mt 14:33); *They that were in the s
 
 ## The People of Gennesaret Flock to Christ.
 
-> <sup>34</sup> And when they were gone over, they came into the land of Gennesaret.  
-> <sup>35</sup> And when the men of that place had knowledge of him, they sent out into all that country round about, and brought unto him all that were diseased;  
-> <sup>36</sup> And besought him that they might only touch the hem of his garment: and as many as touched were made perfectly whole.  
+> **³⁴** And when they were gone over, they came into the land of Gennesaret.  
+> **³⁵** And when the men of that place had knowledge of him, they sent out into all that country round about, and brought unto him all that were diseased;  
+> **³⁶** And besought him that they might only touch the hem of his garment: and as many as touched were made perfectly whole.  
 
 We have here an account of miracles by wholesale, which Christ wrought on the other side of the water, in the land of Gennesaret. Whithersoever Christ went, he was doing good. Gennesaret was a tract of land that lay between Bethsaida and Capernaum, and either gave the name to, or took the name from, this sea, which is called (Lu 5:1) *The Lake of Gennesaret;* it signifies the valley of branches. Observe here,
 

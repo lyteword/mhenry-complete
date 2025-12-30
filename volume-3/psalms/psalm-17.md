@@ -10,13 +10,13 @@ David being in great distress and danger by the malice of his enemies, does, in 
 
 A prayer of David.
 
-> <sup>1</sup> Hear the right, O LORD, attend unto my cry, give ear unto my prayer, *that goeth* not out of feigned lips.  
-> <sup>2</sup> Let my sentence come forth from thy presence; let thine eyes behold the things that are equal.  
-> <sup>3</sup> Thou hast proved mine heart; thou hast visited *me* in the night; thou hast tried me, *and* shalt find nothing; I am purposed *that* my mouth shall not transgress.  
-> <sup>4</sup> Concerning the works of men, by the word of thy lips I have kept *me from* the paths of the destroyer.  
-> <sup>5</sup> Hold up my goings in thy paths, *that* my footsteps slip not.  
-> <sup>6</sup> I have called upon thee, for thou wilt hear me, O God: incline thine ear unto me, *and hear* my speech.  
-> <sup>7</sup> show thy marvellous lovingkindness, O thou that savest by thy right hand them which put their trust *in thee* from those that rise up *against them.*  
+> **¹** Hear the right, O LORD, attend unto my cry, give ear unto my prayer, *that goeth* not out of feigned lips.  
+> **²** Let my sentence come forth from thy presence; let thine eyes behold the things that are equal.  
+> **³** Thou hast proved mine heart; thou hast visited *me* in the night; thou hast tried me, *and* shalt find nothing; I am purposed *that* my mouth shall not transgress.  
+> **⁴** Concerning the works of men, by the word of thy lips I have kept *me from* the paths of the destroyer.  
+> **⁵** Hold up my goings in thy paths, *that* my footsteps slip not.  
+> **⁶** I have called upon thee, for thou wilt hear me, O God: incline thine ear unto me, *and hear* my speech.  
+> **⁷** show thy marvellous lovingkindness, O thou that savest by thy right hand them which put their trust *in thee* from those that rise up *against them.*  
 
 This psalm is a prayer. As there is a time to weep and a time to rejoice, so there is a time for praise and a time for prayer. David was now persecuted, probably by Saul, who hunted him like a partridge on the mountains; without were fightings, within were fears, and both urged him as a suppliant to the throne of mercy. He addresses himself to God in these verses both by way of appeal (*Hear the right, O Lord!* let my righteous cause have a hearing before thy tribunal, and give judgment upon it) and by way of petition (*Give ear unto my prayer* Ps 17:1, and again Ps 17:6, *Incline thy ear unto me and hear my speech*); not that God needs to be thus pressed with our importunity, but he gives us leave thus to express our earnest desire of his gracious answers to our prayers. These things he pleads with God for audience, 1. That he was sincere, and did not dissemble with God in his prayer: *It goeth not out of feigned lips.* He meant as he spoke, and the feelings of his mind agreed with the expressions of his mouth. Feigned prayers are fruitless; but, if our hearts lead our prayers, God will meet them with his favour. 2. That he had been used to pray at other times, and it was not his distress and danger that now first brought him to his duty: "*I have called upon thee* formerly (Ps 17:6); therefore, Lord, hear me now." It will be a great comfort to us if trouble, when it comes, find the wheels of prayer a-going, for then we may come with the more boldness to the throne of grace. Tradesmen are willing to oblige those that have been long their customers. 3. That he was encouraged by his faith to expect God would take notice of his prayers: "I know *thou wilt hear me,* and therefore, O God, *incline thy ear to me.*" Our believing dependence upon God is a good plea to enforce our desires towards him. Let us now see,
 
@@ -34,14 +34,14 @@ II\. What his petition is; it is, in short, this, That he might experience the g
 
 ## Prayer for Protecting Mercy; Character of David's Enemies.
 
-> <sup>8</sup> Keep me as the apple of the eye, hide me under the shadow of thy wings,  
-> <sup>9</sup> From the wicked that oppress me, *from* my deadly enemies, *who* compass me about.  
-> <sup>10</sup> They are inclosed in their own fat: with their mouth they speak proudly.  
-> <sup>11</sup> They have now compassed us in our steps: they have set their eyes bowing down to the earth;  
-> <sup>12</sup> Like as a lion *that* is greedy of his prey, and as it were a young lion lurking in secret places.  
-> <sup>13</sup> Arise, O LORD, disappoint him, cast him down: deliver my soul from the wicked, *which is* thy sword:  
-> <sup>14</sup> From men *which are* thy hand, O LORD, from men of the world, *which have* their portion in *this* life, and whose belly thou fillest with thy hid *treasure:* they are full of children, and leave the rest of their *substance* to their babes.  
-> <sup>15</sup> As for me, I will behold thy face in righteousness: I shall be satisfied, when I awake, with thy likeness.  
+> **⁸** Keep me as the apple of the eye, hide me under the shadow of thy wings,  
+> **⁹** From the wicked that oppress me, *from* my deadly enemies, *who* compass me about.  
+> **¹⁰** They are inclosed in their own fat: with their mouth they speak proudly.  
+> **¹¹** They have now compassed us in our steps: they have set their eyes bowing down to the earth;  
+> **¹²** Like as a lion *that* is greedy of his prey, and as it were a young lion lurking in secret places.  
+> **¹³** Arise, O LORD, disappoint him, cast him down: deliver my soul from the wicked, *which is* thy sword:  
+> **¹⁴** From men *which are* thy hand, O LORD, from men of the world, *which have* their portion in *this* life, and whose belly thou fillest with thy hid *treasure:* they are full of children, and leave the rest of their *substance* to their babes.  
+> **¹⁵** As for me, I will behold thy face in righteousness: I shall be satisfied, when I awake, with thy likeness.  
 
 We may observe, in these verses,
 

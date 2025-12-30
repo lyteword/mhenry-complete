@@ -8,11 +8,11 @@ In this chapter, after the preface or introduction (Ga 1:1-5), the apostle sever
 
 ## The Introductory Address. (a. d. 56.)
 
-> <sup>1</sup> Paul, an apostle, (not of men, neither by man, but by Jesus Christ, and God the Father, who raised him from the dead;)  
-> <sup>2</sup> And all the brethren which are with me, unto the churches of Galatia:  
-> <sup>3</sup> Grace *be* to you and peace from God the Father, and *from* our Lord Jesus Christ,  
-> <sup>4</sup> Who gave himself for our sins, that he might deliver us from this present evil world, according to the will of God and our Father:  
-> <sup>5</sup> To whom *be* glory for ever and ever. Amen.  
+> **¹** Paul, an apostle, (not of men, neither by man, but by Jesus Christ, and God the Father, who raised him from the dead;)  
+> **²** And all the brethren which are with me, unto the churches of Galatia:  
+> **³** Grace *be* to you and peace from God the Father, and *from* our Lord Jesus Christ,  
+> **⁴** Who gave himself for our sins, that he might deliver us from this present evil world, according to the will of God and our Father:  
+> **⁵** To whom *be* glory for ever and ever. Amen.  
 
 In these verses we have the preface or introduction to the epistle, where observe,
 
@@ -26,10 +26,10 @@ The apostle, having thus taken notice of the great love wherewith Christ hath lo
 
 ## The Apostle's Concern at Their Defection. (a. d. 56.)
 
-> <sup>6</sup> I marvel that ye are so soon removed from him that called you into the grace of Christ unto another gospel:  
-> <sup>7</sup> Which is not another; but there be some that trouble you, and would pervert the gospel of Christ.  
-> <sup>8</sup> But though we, or an angel from heaven, preach any other gospel unto you than that which we have preached unto you, let him be accursed.  
-> <sup>9</sup> As we said before, so say I now again, If any *man* preach any other gospel unto you than that ye have received, let him be accursed.  
+> **⁶** I marvel that ye are so soon removed from him that called you into the grace of Christ unto another gospel:  
+> **⁷** Which is not another; but there be some that trouble you, and would pervert the gospel of Christ.  
+> **⁸** But though we, or an angel from heaven, preach any other gospel unto you than that which we have preached unto you, let him be accursed.  
+> **⁹** As we said before, so say I now again, If any *man* preach any other gospel unto you than that ye have received, let him be accursed.  
 
 Here the apostle comes to the body of the epistle; and he begins it with a more general reproof of these churches for their unsteadiness in the faith, which he afterwards, in some following parts of it, enlarges more upon. Here we may observe,
 
@@ -39,21 +39,21 @@ II\. How confident he was that the gospel he had preached to them was the only t
 
 ## The Apostle's Integrity. (a. d. 56.)
 
-> <sup>10</sup> For do I now persuade men, or God? or do I seek to please men? for if I yet pleased men, I should not be the servant of Christ.  
-> <sup>11</sup> But I certify you, brethren, that the gospel which was preached of me is not after man.  
-> <sup>12</sup> For I neither received it of man, neither was I taught *it,* but by the revelation of Jesus Christ.  
-> <sup>13</sup> For ye have heard of my conversation in time past in the Jews' religion, how that beyond measure I persecuted the church of God, and wasted it:  
-> <sup>14</sup> And profited in the Jews' religion above many my equals in mine own nation, being more exceedingly zealous of the traditions of my fathers.  
-> <sup>15</sup> But when it pleased God, who separated me from my mother's womb, and called *me* by his grace,  
-> <sup>16</sup> To reveal his Son in me, that I might preach him among the heathen; immediately I conferred not with flesh and blood:  
-> <sup>17</sup> Neither went I up to Jerusalem to them which were apostles before me; but I went into Arabia, and returned again unto Damascus.  
-> <sup>18</sup> Then after three years I went up to Jerusalem to see Peter, and abode with him fifteen days.  
-> <sup>19</sup> But other of the apostles saw I none, save James the Lord's brother.  
-> <sup>20</sup> Now the things which I write unto you, behold, before God, I lie not.  
-> <sup>21</sup> Afterwards I came into the regions of Syria and Cilicia;  
-> <sup>22</sup> And was unknown by face unto the churches of Judæa which were in Christ:  
-> <sup>23</sup> But they had heard only, That he which persecuted us in times past now preacheth the faith which once he destroyed.  
-> <sup>24</sup> And they glorified God in me.  
+> **¹⁰** For do I now persuade men, or God? or do I seek to please men? for if I yet pleased men, I should not be the servant of Christ.  
+> **¹¹** But I certify you, brethren, that the gospel which was preached of me is not after man.  
+> **¹²** For I neither received it of man, neither was I taught *it,* but by the revelation of Jesus Christ.  
+> **¹³** For ye have heard of my conversation in time past in the Jews' religion, how that beyond measure I persecuted the church of God, and wasted it:  
+> **¹⁴** And profited in the Jews' religion above many my equals in mine own nation, being more exceedingly zealous of the traditions of my fathers.  
+> **¹⁵** But when it pleased God, who separated me from my mother's womb, and called *me* by his grace,  
+> **¹⁶** To reveal his Son in me, that I might preach him among the heathen; immediately I conferred not with flesh and blood:  
+> **¹⁷** Neither went I up to Jerusalem to them which were apostles before me; but I went into Arabia, and returned again unto Damascus.  
+> **¹⁸** Then after three years I went up to Jerusalem to see Peter, and abode with him fifteen days.  
+> **¹⁹** But other of the apostles saw I none, save James the Lord's brother.  
+> **²⁰** Now the things which I write unto you, behold, before God, I lie not.  
+> **²¹** Afterwards I came into the regions of Syria and Cilicia;  
+> **²²** And was unknown by face unto the churches of Judæa which were in Christ:  
+> **²³** But they had heard only, That he which persecuted us in times past now preacheth the faith which once he destroyed.  
+> **²⁴** And they glorified God in me.  
 
 What Paul had said more generally, in the preface of this epistle, he now proceeds more particularly to enlarge upon. There he had declared himself to be an apostle of Christ; and here he comes more directly to support his claim to that character and office. There were some in the churches of Galatia who were prevailed with to call this in question; for those who preached up the ceremonial law did all they could to lessen Paul's reputation, who preached the pure gospel of Christ to the Gentiles: and therefore he here sets himself to prove the divinity both of his mission and doctrine, that thereby he might wipe off the aspersions which his enemies had cast upon him, and recover these Christians into a better opinion of the gospel he had preached to them. This he gives sufficient evidence of,
 

@@ -8,15 +8,15 @@ This chapter goes on with the good words and comfortable words which we had in t
 
 ## Promises to Israel; Joyful Return from Captivity. (b. c. 594.)
 
-> <sup>1</sup> At the same time, saith the LORD, will I be the God of all the families of Israel, and they shall be my people.  
-> <sup>2</sup> Thus saith the LORD, The people *which were* left of the sword found grace in the wilderness; *even* Israel, when I went to cause him to rest.  
-> <sup>3</sup> The LORD hath appeared of old unto me, *saying,* Yea, I have loved thee with an everlasting love: therefore with lovingkindness have I drawn thee.  
-> <sup>4</sup> Again I will build thee, and thou shalt be built, O virgin of Israel: thou shalt again be adorned with thy tabrets, and shalt go forth in the dances of them that make merry.  
-> <sup>5</sup> Thou shalt yet plant vines upon the mountains of Samaria: the planters shall plant, and shall eat *them* as common things.  
-> <sup>6</sup> For there shall be a day, *that* the watchmen upon the mount Ephraim shall cry, Arise ye, and let us go up to Zion unto the LORD our God.  
-> <sup>7</sup> For thus saith the LORD; Sing with gladness for Jacob, and shout among the chief of the nations: publish ye, praise ye, and say, O LORD, save thy people, the remnant of Israel.  
-> <sup>8</sup> Behold, I will bring them from the north country, and gather them from the coasts of the earth, *and* with them the blind and the lame, the woman with child and her that travaileth with child together: a great company shall return thither.  
-> <sup>9</sup> They shall come with weeping, and with supplications will I lead them: I will cause them to walk by the rivers of waters in a straight way, wherein they shall not stumble: for I am a father to Israel, and Ephraim *is* my firstborn.  
+> **¹** At the same time, saith the LORD, will I be the God of all the families of Israel, and they shall be my people.  
+> **²** Thus saith the LORD, The people *which were* left of the sword found grace in the wilderness; *even* Israel, when I went to cause him to rest.  
+> **³** The LORD hath appeared of old unto me, *saying,* Yea, I have loved thee with an everlasting love: therefore with lovingkindness have I drawn thee.  
+> **⁴** Again I will build thee, and thou shalt be built, O virgin of Israel: thou shalt again be adorned with thy tabrets, and shalt go forth in the dances of them that make merry.  
+> **⁵** Thou shalt yet plant vines upon the mountains of Samaria: the planters shall plant, and shall eat *them* as common things.  
+> **⁶** For there shall be a day, *that* the watchmen upon the mount Ephraim shall cry, Arise ye, and let us go up to Zion unto the LORD our God.  
+> **⁷** For thus saith the LORD; Sing with gladness for Jacob, and shout among the chief of the nations: publish ye, praise ye, and say, O LORD, save thy people, the remnant of Israel.  
+> **⁸** Behold, I will bring them from the north country, and gather them from the coasts of the earth, *and* with them the blind and the lame, the woman with child and her that travaileth with child together: a great company shall return thither.  
+> **⁹** They shall come with weeping, and with supplications will I lead them: I will cause them to walk by the rivers of waters in a straight way, wherein they shall not stumble: for I am a father to Israel, and Ephraim *is* my firstborn.  
 
 God here assures his people,
 
@@ -34,14 +34,14 @@ VI\. That, in order to a happy settlement in their own land, they shall have a j
 
 ## Restoration of Israel; Promises to Israel. (b. c. 594.)
 
-> <sup>10</sup> Hear the word of the LORD, O ye nations, and declare *it* in the isles afar off, and say, He that scattered Israel will gather him, and keep him, as a shepherd *doth* his flock.  
-> <sup>11</sup> For the LORD hath redeemed Jacob, and ransomed him from the hand of *him that was* stronger than he.  
-> <sup>12</sup> Therefore they shall come and sing in the height of Zion, and shall flow together to the goodness of the LORD, for wheat, and for wine, and for oil, and for the young of the flock and of the herd: and their soul shall be as a watered garden; and they shall not sorrow any more at all.  
-> <sup>13</sup> Then shall the virgin rejoice in the dance, both young men and old together: for I will turn their mourning into joy, and will comfort them, and make them rejoice from their sorrow.  
-> <sup>14</sup> And I will satiate the soul of the priests with fatness, and my people shall be satisfied with my goodness, saith the LORD.  
-> <sup>15</sup> Thus saith the LORD; A voice was heard in Ramah, lamentation, *and* bitter weeping; Rachel weeping for her children refused to be comforted for her children, because they *were* not.  
-> <sup>16</sup> Thus saith the LORD; Refrain thy voice from weeping, and thine eyes from tears: for thy work shall be rewarded, saith the LORD; and they shall come again from the land of the enemy.  
-> <sup>17</sup> And there is hope in thine end, saith the LORD, that thy children shall come again to their own border.  
+> **¹⁰** Hear the word of the LORD, O ye nations, and declare *it* in the isles afar off, and say, He that scattered Israel will gather him, and keep him, as a shepherd *doth* his flock.  
+> **¹¹** For the LORD hath redeemed Jacob, and ransomed him from the hand of *him that was* stronger than he.  
+> **¹²** Therefore they shall come and sing in the height of Zion, and shall flow together to the goodness of the LORD, for wheat, and for wine, and for oil, and for the young of the flock and of the herd: and their soul shall be as a watered garden; and they shall not sorrow any more at all.  
+> **¹³** Then shall the virgin rejoice in the dance, both young men and old together: for I will turn their mourning into joy, and will comfort them, and make them rejoice from their sorrow.  
+> **¹⁴** And I will satiate the soul of the priests with fatness, and my people shall be satisfied with my goodness, saith the LORD.  
+> **¹⁵** Thus saith the LORD; A voice was heard in Ramah, lamentation, *and* bitter weeping; Rachel weeping for her children refused to be comforted for her children, because they *were* not.  
+> **¹⁶** Thus saith the LORD; Refrain thy voice from weeping, and thine eyes from tears: for thy work shall be rewarded, saith the LORD; and they shall come again from the land of the enemy.  
+> **¹⁷** And there is hope in thine end, saith the LORD, that thy children shall come again to their own border.  
 
 This paragraph is much to the same purport with the last, publishing to the world, as well as to the church, the purposes of God's love concerning his people. This is a *word of the Lord* which the *nations* must *hear,* for it is a prophecy of a work of the Lord which the nations cannot but take notice of. Let them hear the prophecy, that they may the better understand and improve the performance; and let those that hear it themselves declare it to others, *declare it in the isles afar off.* It will be a piece of news that will spread all the world over. It will look very great in history; let us see how it looks in prophecy.
 
@@ -49,15 +49,15 @@ It is foretold, 1. That those who are dispersed shall be brought together again 
 
 ## Ephraim's Repentance and Privilege; Encouragements to the Captives. (b. c. 594.)
 
-> <sup>18</sup> I have surely heard Ephraim bemoaning himself *thus;* Thou hast chastised me, and I was chastised, as a bullock unaccustomed *to the yoke:* turn thou me, and I shall be turned; for thou *art* the LORD my God.  
-> <sup>19</sup> Surely after that I was turned, I repented; and after that I was instructed, I smote upon *my* thigh: I was ashamed, yea, even confounded, because I did bear the reproach of my youth.  
-> <sup>20</sup> *Is* Ephraim my dear son? *is he* a pleasant child? for since I spake against him, I do earnestly remember him still: therefore my bowels are troubled for him; I will surely have mercy upon him, saith the LORD.  
-> <sup>21</sup> Set thee up waymarks, make thee high heaps: set thine heart toward the highway, *even* the way *which* thou wentest: turn again, O virgin of Israel, turn again to these thy cities.  
-> <sup>22</sup> How long wilt thou go about, O thou backsliding daughter? for the LORD hath created a new thing in the earth, A woman shall compass a man.  
-> <sup>23</sup> Thus saith the LORD of hosts, the God of Israel; As yet they shall use this speech in the land of Judah and in the cities thereof, when I shall bring again their captivity; The LORD bless thee, O habitation of justice, *and* mountain of holiness.  
-> <sup>24</sup> And there shall dwell in Judah itself, and in all the cities thereof together, husbandmen, and they *that* go forth with flocks.  
-> <sup>25</sup> For I have satiated the weary soul, and I have replenished every sorrowful soul.  
-> <sup>26</sup> Upon this I awaked, and beheld; and my sleep was sweet unto me.  
+> **¹⁸** I have surely heard Ephraim bemoaning himself *thus;* Thou hast chastised me, and I was chastised, as a bullock unaccustomed *to the yoke:* turn thou me, and I shall be turned; for thou *art* the LORD my God.  
+> **¹⁹** Surely after that I was turned, I repented; and after that I was instructed, I smote upon *my* thigh: I was ashamed, yea, even confounded, because I did bear the reproach of my youth.  
+> **²⁰** *Is* Ephraim my dear son? *is he* a pleasant child? for since I spake against him, I do earnestly remember him still: therefore my bowels are troubled for him; I will surely have mercy upon him, saith the LORD.  
+> **²¹** Set thee up waymarks, make thee high heaps: set thine heart toward the highway, *even* the way *which* thou wentest: turn again, O virgin of Israel, turn again to these thy cities.  
+> **²²** How long wilt thou go about, O thou backsliding daughter? for the LORD hath created a new thing in the earth, A woman shall compass a man.  
+> **²³** Thus saith the LORD of hosts, the God of Israel; As yet they shall use this speech in the land of Judah and in the cities thereof, when I shall bring again their captivity; The LORD bless thee, O habitation of justice, *and* mountain of holiness.  
+> **²⁴** And there shall dwell in Judah itself, and in all the cities thereof together, husbandmen, and they *that* go forth with flocks.  
+> **²⁵** For I have satiated the weary soul, and I have replenished every sorrowful soul.  
+> **²⁶** Upon this I awaked, and beheld; and my sleep was sweet unto me.  
 
 We have here,
 
@@ -73,14 +73,14 @@ V\. The prophet tells us what pleasure the discovery of this brought to his mind
 
 ## God's Covenant Renewed. (b. c. 594.)
 
-> <sup>27</sup> Behold, the days come, saith the LORD, that I will sow the house of Israel and the house of Judah with the seed of man, and with the seed of beast.  
-> <sup>28</sup> And it shall come to pass, *that* like as I have watched over them, to pluck up, and to break down, and to throw down, and to destroy, and to afflict; so will I watch over them, to build, and to plant, saith the LORD.  
-> <sup>29</sup> In those days they shall say no more, The fathers have eaten a sour grape, and the children's teeth are set on edge.  
-> <sup>30</sup> But every one shall die for his own iniquity: every man that eateth the sour grape, his teeth shall be set on edge.  
-> <sup>31</sup> Behold, the days come, saith the LORD, that I will make a new covenant with the house of Israel, and with the house of Judah:  
-> <sup>32</sup> Not according to the covenant that I made with their fathers in the day *that* I took them by the hand to bring them out of the land of Egypt; which my covenant they brake, although I was a husband unto them, saith the LORD:  
-> <sup>33</sup> But this *shall be* the covenant that I will make with the house of Israel; After those days, saith the LORD, I will put my law in their inward parts, and write it in their hearts; and will be their God, and they shall be my people.  
-> <sup>34</sup> And they shall teach no more every man his neighbour, and every man his brother, saying, Know the LORD: for they shall all know me, from the least of them unto the greatest of them, saith the LORD: for I will forgive their iniquity, and I will remember their sin no more.  
+> **²⁷** Behold, the days come, saith the LORD, that I will sow the house of Israel and the house of Judah with the seed of man, and with the seed of beast.  
+> **²⁸** And it shall come to pass, *that* like as I have watched over them, to pluck up, and to break down, and to throw down, and to destroy, and to afflict; so will I watch over them, to build, and to plant, saith the LORD.  
+> **²⁹** In those days they shall say no more, The fathers have eaten a sour grape, and the children's teeth are set on edge.  
+> **³⁰** But every one shall die for his own iniquity: every man that eateth the sour grape, his teeth shall be set on edge.  
+> **³¹** Behold, the days come, saith the LORD, that I will make a new covenant with the house of Israel, and with the house of Judah:  
+> **³²** Not according to the covenant that I made with their fathers in the day *that* I took them by the hand to bring them out of the land of Egypt; which my covenant they brake, although I was a husband unto them, saith the LORD:  
+> **³³** But this *shall be* the covenant that I will make with the house of Israel; After those days, saith the LORD, I will put my law in their inward parts, and write it in their hearts; and will be their God, and they shall be my people.  
+> **³⁴** And they shall teach no more every man his neighbour, and every man his brother, saying, Know the LORD: for they shall all know me, from the least of them unto the greatest of them, saith the LORD: for I will forgive their iniquity, and I will remember their sin no more.  
 
 The prophet, having found his sleep sweet, made so by the revelations of divine grace, sets himself to sleep again, in hopes of further discoveries, and is not disappointed; for it is here further promised,
 
@@ -92,12 +92,12 @@ III\. That God will renew his covenant with them, so that all these blessings th
 
 ## Evangelical Promises; The Rebuilding of Jerusalem. (b. c. 594.)
 
-> <sup>35</sup> Thus saith the LORD, which giveth the sun for a light by day, *and* the ordinances of the moon and of the stars for a light by night, which divideth the sea when the waves thereof roar; The LORD of hosts *is* his name:  
-> <sup>36</sup> If those ordinances depart from before me, saith the LORD, *then* the seed of Israel also shall cease from being a nation before me for ever.  
-> <sup>37</sup> Thus saith the LORD; If heaven above can be measured, and the foundations of the earth searched out beneath, I will also cast off all the seed of Israel for all that they have done, saith the LORD.  
-> <sup>38</sup> Behold, the days come, saith the LORD, that the city shall be built to the LORD from the tower of Hananeel unto the gate of the corner.  
-> <sup>39</sup> And the measuring line shall yet go forth over against it upon the hill Gareb, and shall compass about to Goath.  
-> <sup>40</sup> And the whole valley of the dead bodies, and of the ashes, and all the fields unto the brook of Kidron, unto the corner of the horse gate toward the east, *shall be* holy unto the LORD; it shall not be plucked up, nor thrown down any more for ever.  
+> **³⁵** Thus saith the LORD, which giveth the sun for a light by day, *and* the ordinances of the moon and of the stars for a light by night, which divideth the sea when the waves thereof roar; The LORD of hosts *is* his name:  
+> **³⁶** If those ordinances depart from before me, saith the LORD, *then* the seed of Israel also shall cease from being a nation before me for ever.  
+> **³⁷** Thus saith the LORD; If heaven above can be measured, and the foundations of the earth searched out beneath, I will also cast off all the seed of Israel for all that they have done, saith the LORD.  
+> **³⁸** Behold, the days come, saith the LORD, that the city shall be built to the LORD from the tower of Hananeel unto the gate of the corner.  
+> **³⁹** And the measuring line shall yet go forth over against it upon the hill Gareb, and shall compass about to Goath.  
+> **⁴⁰** And the whole valley of the dead bodies, and of the ashes, and all the fields unto the brook of Kidron, unto the corner of the horse gate toward the east, *shall be* holy unto the LORD; it shall not be plucked up, nor thrown down any more for ever.  
 
 Glorious things have been spoken in the Jer 31:1-34 concerning the gospel church, which that epocha of the Jewish church that was to commence at the return from captivity would at length terminate in, and which all those promises were to have their full accomplishment in. But may we depend upon these promises? Yes, we have here a ratification of them, and the utmost assurance imaginable given of the perpetuity of the blessings contained in them. The great thing here secured to us is that while the world stands God will have a church in it, which, though sometimes it may be brought very low, shall yet be raised again, and its interests re-established; it is *built upon a rock, and the gates of hell shall not prevail against it.* Now here are two things offered for the confirmation of our faith in this matter—the building of the world and the rebuilding of Jerusalem.
 

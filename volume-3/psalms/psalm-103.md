@@ -10,11 +10,11 @@ This psalm calls more for devotion than exposition; it is a most excellent psalm
 
 A psalm of David.
 
-> <sup>1</sup> Bless the LORD, O my soul: and all that is within me, *bless* his holy name.  
-> <sup>2</sup> Bless the LORD, O my soul, and forget not all his benefits:  
-> <sup>3</sup> Who forgiveth all thine iniquities; who healeth all thy diseases;  
-> <sup>4</sup> Who redeemeth thy life from destruction; who crowneth thee with lovingkindness and tender mercies;  
-> <sup>5</sup> Who satisfieth thy mouth with good *things; so that* thy youth is renewed like the eagle's.  
+> **¹** Bless the LORD, O my soul: and all that is within me, *bless* his holy name.  
+> **²** Bless the LORD, O my soul, and forget not all his benefits:  
+> **³** Who forgiveth all thine iniquities; who healeth all thy diseases;  
+> **⁴** Who redeemeth thy life from destruction; who crowneth thee with lovingkindness and tender mercies;  
+> **⁵** Who satisfieth thy mouth with good *things; so that* thy youth is renewed like the eagle's.  
 
 David is here communing with his own heart, and he is no fool that thus talks to himself and excites his own soul to that which is good. Observe,
 
@@ -24,19 +24,19 @@ II\. How he furnishes himself with abundant matter for praise, and that which is
 
 ## Goodness and Compassion of God.
 
-> <sup>6</sup> The LORD executeth righteousness and judgment for all that are oppressed.  
-> <sup>7</sup> He made known his ways unto Moses, his acts unto the children of Israel.  
-> <sup>8</sup> The LORD *is* merciful and gracious, slow to anger, and plenteous in mercy.  
-> <sup>9</sup> He will not always chide: neither will he keep *his anger* for ever.  
-> <sup>10</sup> He hath not dealt with us after our sins; nor rewarded us according to our iniquities.  
-> <sup>11</sup> For as the heaven is high above the earth, *so* great is his mercy toward them that fear him.  
-> <sup>12</sup> As far as the east is from the west, *so* far hath he removed our transgressions from us.  
-> <sup>13</sup> Like as a father pitieth *his* children, *so* the LORD pitieth them that fear him.  
-> <sup>14</sup> For he knoweth our frame; he remembereth that we *are* dust.  
-> <sup>15</sup> *As for* man, his days *are* as grass: as a flower of the field, so he flourisheth.  
-> <sup>16</sup> For the wind passeth over it, and it is gone; and the place thereof shall know it no more.  
-> <sup>17</sup> But the mercy of the LORD *is* from everlasting to everlasting upon them that fear him, and his righteousness unto children's children;  
-> <sup>18</sup> To such as keep his covenant, and to those that remember his commandments to do them.  
+> **⁶** The LORD executeth righteousness and judgment for all that are oppressed.  
+> **⁷** He made known his ways unto Moses, his acts unto the children of Israel.  
+> **⁸** The LORD *is* merciful and gracious, slow to anger, and plenteous in mercy.  
+> **⁹** He will not always chide: neither will he keep *his anger* for ever.  
+> **¹⁰** He hath not dealt with us after our sins; nor rewarded us according to our iniquities.  
+> **¹¹** For as the heaven is high above the earth, *so* great is his mercy toward them that fear him.  
+> **¹²** As far as the east is from the west, *so* far hath he removed our transgressions from us.  
+> **¹³** Like as a father pitieth *his* children, *so* the LORD pitieth them that fear him.  
+> **¹⁴** For he knoweth our frame; he remembereth that we *are* dust.  
+> **¹⁵** *As for* man, his days *are* as grass: as a flower of the field, so he flourisheth.  
+> **¹⁶** For the wind passeth over it, and it is gone; and the place thereof shall know it no more.  
+> **¹⁷** But the mercy of the LORD *is* from everlasting to everlasting upon them that fear him, and his righteousness unto children's children;  
+> **¹⁸** To such as keep his covenant, and to those that remember his commandments to do them.  
 
 Hitherto the psalmist had only looked back upon his own experiences and thence fetched matter for praise; here he looks abroad and takes notice of his favour to others also; for in them we should rejoice and give thanks for them, all the saints being fed at a common table and sharing in the same blessings.
 
@@ -60,10 +60,10 @@ II\. He is in a special manner good to Israel, to every Israelite indeed, that i
 
 ## Cheerful Praise.
 
-> <sup>19</sup> The LORD hath prepared his throne in the heavens; and his kingdom ruleth over all.  
-> <sup>20</sup> Bless the LORD, ye his angels, that excel in strength, that do his commandments, hearkening unto the voice of his word.  
-> <sup>21</sup> Bless ye the LORD, all *ye* his hosts; *ye* ministers of his, that do his pleasure.  
-> <sup>22</sup> Bless the LORD, all his works in all places of his dominion: bless the LORD, O my soul.  
+> **¹⁹** The LORD hath prepared his throne in the heavens; and his kingdom ruleth over all.  
+> **²⁰** Bless the LORD, ye his angels, that excel in strength, that do his commandments, hearkening unto the voice of his word.  
+> **²¹** Bless ye the LORD, all *ye* his hosts; *ye* ministers of his, that do his pleasure.  
+> **²²** Bless the LORD, all his works in all places of his dominion: bless the LORD, O my soul.  
 
 Here is, I. The doctrine of universal providence laid down, Ps 103:19. He has secured the happiness of his peculiar people by promise and covenant, but the order of mankind, and the world in general, he secures by common providence. *The Lord has a throne* of his own, a throne of glory, a throne of government. He that made all rules all, and both by a word of power: *He has prepared his throne,* has fixed and established it that it cannot be shaken; he has afore-ordained all the measures of his government and does all according to the counsel of his own will. He *has prepared* it *in the heavens,* above us, and out of sight; for he *holds back the face of his throne, and spreads a cloud upon it* (Job 26:9); yet he can himself *judge through the dark cloud,* Job 22:13. Hence *the heavens are said to rule* (Da 4:26), and we are led to consider this by the influence which even the visible heavens have upon this earth, their *dominion,* Job 38:33, Ge 1:16. But though God's throne is in heaven, and there he keeps his court, and thither we are to direct to him (*Our Father who art in heaven*), yet *his kingdom rules over all.* He takes cognizance of all the inhabitants, and all the affairs, of this lower world, and disposes all persons and things according to the counsel of his will, to his own glory (Da 4:35): *His kingdom rules over all* kings and all kingdoms, and from it there is no exempt jurisdiction.
 

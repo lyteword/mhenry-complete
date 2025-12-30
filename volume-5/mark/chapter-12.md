@@ -8,18 +8,18 @@ In this chapter, we have, I. The parable of the vineyard let out to unthankful h
 
 ## The Vineyard and Husbandmen.
 
-> <sup>1</sup> And he began to speak unto them by parables. A *certain* man planted a vineyard, and set a hedge about *it,* and digged *a place for* the winefat, and built a tower, and let it out to husbandmen, and went into a far country.  
-> <sup>2</sup> And at the season he sent to the husbandmen a servant, that he might receive from the husbandmen of the fruit of the vineyard.  
-> <sup>3</sup> And they caught *him,* and beat him, and sent *him* away empty.  
-> <sup>4</sup> And again he sent unto them another servant; and at him they cast stones, and wounded *him* in the head, and sent *him* away shamefully handled.  
-> <sup>5</sup> And again he sent another; and him they killed, and many others; beating some, and killing some.  
-> <sup>6</sup> Having yet therefore one son, his wellbeloved, he sent him also last unto them, saying, They will reverence my son.  
-> <sup>7</sup> But those husbandmen said among themselves, This is the heir; come, let us kill him, and the inheritance shall be ours.  
-> <sup>8</sup> And they took him, and killed *him,* and cast *him* out of the vineyard.  
-> <sup>9</sup> What shall therefore the lord of the vineyard do? he will come and destroy the husbandmen, and will give the vineyard unto others.  
-> <sup>10</sup> And have ye not read this scripture; The stone which the builders rejected is become the head of the corner:  
-> <sup>11</sup> This was the Lord's doing, and it is marvellous in our eyes?  
-> <sup>12</sup> And they sought to lay hold on him, but feared the people: for they knew that he had spoken the parable against them: and they left him, and went their way.  
+> **¹** And he began to speak unto them by parables. A *certain* man planted a vineyard, and set a hedge about *it,* and digged *a place for* the winefat, and built a tower, and let it out to husbandmen, and went into a far country.  
+> **²** And at the season he sent to the husbandmen a servant, that he might receive from the husbandmen of the fruit of the vineyard.  
+> **³** And they caught *him,* and beat him, and sent *him* away empty.  
+> **⁴** And again he sent unto them another servant; and at him they cast stones, and wounded *him* in the head, and sent *him* away shamefully handled.  
+> **⁵** And again he sent another; and him they killed, and many others; beating some, and killing some.  
+> **⁶** Having yet therefore one son, his wellbeloved, he sent him also last unto them, saying, They will reverence my son.  
+> **⁷** But those husbandmen said among themselves, This is the heir; come, let us kill him, and the inheritance shall be ours.  
+> **⁸** And they took him, and killed *him,* and cast *him* out of the vineyard.  
+> **⁹** What shall therefore the lord of the vineyard do? he will come and destroy the husbandmen, and will give the vineyard unto others.  
+> **¹⁰** And have ye not read this scripture; The stone which the builders rejected is become the head of the corner:  
+> **¹¹** This was the Lord's doing, and it is marvellous in our eyes?  
+> **¹²** And they sought to lay hold on him, but feared the people: for they knew that he had spoken the parable against them: and they left him, and went their way.  
 
 Christ had formerly in parables showed how he designed to set up the gospel church; now he begins in parables to show how he would lay aside the Jewish church, which it might have been grafted into the *stock of,* but was built upon the *ruins of.* This parable we had just as we have it here, Mt 21:33. We may observe here,
 
@@ -43,11 +43,11 @@ Now what effect had this parable upon the chief priests and scribes, whose convi
 
 ## The Question Respecting Tribute.
 
-> <sup>13</sup> And they send unto him certain of the Pharisees and of the Herodians, to catch him in *his* words.  
-> <sup>14</sup> And when they were come, they say unto him, Master, we know that thou art true, and carest for no man: for thou regardest not the person of men, but teachest the way of God in truth: Is it lawful to give tribute to Cæsar, or not?  
-> <sup>15</sup> Shall we give, or shall we not give? But he, knowing their hypocrisy, said unto them, Why tempt ye me? bring me a penny, that I may see *it.*  
-> <sup>16</sup> And they brought *it.* And he saith unto them, Whose *is* this image and superscription? And they said unto him, Cæsar's.  
-> <sup>17</sup> And Jesus answering said unto them, Render to Cæsar the things that are Cæsar's, and to God the things that are God's. And they marvelled at him.  
+> **¹³** And they send unto him certain of the Pharisees and of the Herodians, to catch him in *his* words.  
+> **¹⁴** And when they were come, they say unto him, Master, we know that thou art true, and carest for no man: for thou regardest not the person of men, but teachest the way of God in truth: Is it lawful to give tribute to Cæsar, or not?  
+> **¹⁵** Shall we give, or shall we not give? But he, knowing their hypocrisy, said unto them, Why tempt ye me? bring me a penny, that I may see *it.*  
+> **¹⁶** And they brought *it.* And he saith unto them, Whose *is* this image and superscription? And they said unto him, Cæsar's.  
+> **¹⁷** And Jesus answering said unto them, Render to Cæsar the things that are Cæsar's, and to God the things that are God's. And they marvelled at him.  
 
 When the enemies of Christ, who thirsted for his blood, could not find occasion against him from what he said against them, they tried to ensnare him by putting questions to him. Here we have him tempted, or *at*tempted rather, with a question about the lawfulness of paying tribute to Cæsar. We had this narrative, Mt 22:15.
 
@@ -61,16 +61,16 @@ IV\. Christ determined the question, and evaded the snare, by referring them to 
 
 ## The Question of the Sadducees.
 
-> <sup>18</sup> Then come unto him the Sadducees, which say there is no resurrection; and they asked him, saying,  
-> <sup>19</sup> Master, Moses wrote unto us, If a man's brother die, and leave *his* wife *behind him,* and leave no children, that his brother should take his wife, and raise up seed unto his brother.  
-> <sup>20</sup> Now there were seven brethren: and the first took a wife, and dying left no seed.  
-> <sup>21</sup> And the second took her, and died, neither left he any seed: and the third likewise.  
-> <sup>22</sup> And the seven had her, and left no seed: last of all the woman died also.  
-> <sup>23</sup> In the resurrection therefore, when they shall rise, whose wife shall she be of them? for the seven had her to wife.  
-> <sup>24</sup> And Jesus answering said unto them, Do ye not therefore err, because ye know not the scriptures, neither the power of God?  
-> <sup>25</sup> For when they shall rise from the dead, they neither marry, nor are given in marriage; but are as the angels which are in heaven.  
-> <sup>26</sup> And as touching the dead, that they rise: have ye not read in the book of Moses, how in the bush God spake unto him, saying, I *am* the God of Abraham, and the God of Isaac, and the God of Jacob?  
-> <sup>27</sup> He is not the God of the dead, but the God of the living: ye therefore do greatly err.  
+> **¹⁸** Then come unto him the Sadducees, which say there is no resurrection; and they asked him, saying,  
+> **¹⁹** Master, Moses wrote unto us, If a man's brother die, and leave *his* wife *behind him,* and leave no children, that his brother should take his wife, and raise up seed unto his brother.  
+> **²⁰** Now there were seven brethren: and the first took a wife, and dying left no seed.  
+> **²¹** And the second took her, and died, neither left he any seed: and the third likewise.  
+> **²²** And the seven had her, and left no seed: last of all the woman died also.  
+> **²³** In the resurrection therefore, when they shall rise, whose wife shall she be of them? for the seven had her to wife.  
+> **²⁴** And Jesus answering said unto them, Do ye not therefore err, because ye know not the scriptures, neither the power of God?  
+> **²⁵** For when they shall rise from the dead, they neither marry, nor are given in marriage; but are as the angels which are in heaven.  
+> **²⁶** And as touching the dead, that they rise: have ye not read in the book of Moses, how in the bush God spake unto him, saying, I *am* the God of Abraham, and the God of Isaac, and the God of Jacob?  
+> **²⁷** He is not the God of the dead, but the God of the living: ye therefore do greatly err.  
 
 The Sadducees, who were the deists of that age, here attack our Lord Jesus, it should seem, not as the scribes, and Pharisees, and chief-priests, with any malicious design upon his person; they were not bigots and persecutors, but sceptics and infidels, and their design was upon his doctrine, to hinder the spreading of that: they denied that there was any resurrection, and world of spirits, any state of rewards and punishments on the other side of death: now those great and fundamental truths which they denied, Christ had made it his business to establish and prove, and had carried the notion of them much further that ever it was before carried; and therefore they set themselves to perplex his doctrine.
 
@@ -86,13 +86,13 @@ III\. He builds the doctrine of the future state, and of the blessedness of the 
 
 ## The Hopeful Scribe.
 
-> <sup>28</sup> And one of the scribes came, and having heard them reasoning together, and perceiving that he had answered them well, asked him, Which is the first commandment of all?  
-> <sup>29</sup> And Jesus answered him, The first of all the commandments *is,* Hear, O Israel; The Lord our God is one Lord:  
-> <sup>30</sup> And thou shalt love the Lord thy God with all thy heart, and with all thy soul, and with all thy mind, and with all thy strength: this *is* the first commandment.  
-> <sup>31</sup> And the second *is* like, *namely* this, Thou shalt love thy neighbour as thyself. There is none other commandment greater than these.  
-> <sup>32</sup> And the scribe said unto him, Well, Master, thou hast said the truth: for there is one God; and there is none other but he:  
-> <sup>33</sup> And to love him with all the heart, and with all the understanding, and with all the soul, and with all the strength, and to love *his* neighbour as himself, is more than all whole burnt offerings and sacrifices.  
-> <sup>34</sup> And when Jesus saw that he answered discreetly, he said unto him, Thou art not far from the kingdom of God. And no man after that durst ask him *any question.*  
+> **²⁸** And one of the scribes came, and having heard them reasoning together, and perceiving that he had answered them well, asked him, Which is the first commandment of all?  
+> **²⁹** And Jesus answered him, The first of all the commandments *is,* Hear, O Israel; The Lord our God is one Lord:  
+> **³⁰** And thou shalt love the Lord thy God with all thy heart, and with all thy soul, and with all thy mind, and with all thy strength: this *is* the first commandment.  
+> **³¹** And the second *is* like, *namely* this, Thou shalt love thy neighbour as thyself. There is none other commandment greater than these.  
+> **³²** And the scribe said unto him, Well, Master, thou hast said the truth: for there is one God; and there is none other but he:  
+> **³³** And to love him with all the heart, and with all the understanding, and with all the soul, and with all the strength, and to love *his* neighbour as himself, is more than all whole burnt offerings and sacrifices.  
+> **³⁴** And when Jesus saw that he answered discreetly, he said unto him, Thou art not far from the kingdom of God. And no man after that durst ask him *any question.*  
 
 The scribes and Pharisees were (however bad otherwise) enemies to the Sadducees; now one would have expected that, when they heard Christ argue so well against the Sadducees, they would have countenanced him, as they did Paul when he appeared against the Sadducees (Ac 23:9); but it had not the effect: because he did not fall in with them in the ceremonials of religion, he agreeing with them in the essentials, gained him no manner of respect with them. Only we have here an account of *one* of them, a scribe, who had so much civility in him as to take notice of Christ's answer to the Sadducees, and to own that he had *answered well,* and much to the purpose (Mk 12:28); and we have reason to hope that he did not join with the other scribes in persecuting Christ; for here we have his application to Christ for instruction, and it was such as became him; not tempting Christ, but desiring to improve his acquaintance with him.
 
@@ -110,12 +110,12 @@ IV\. Christ approved of what he said, and encouraged him to proceed in his enqui
 
 ## Christ the Son and Lord of David.
 
-> <sup>35</sup> And Jesus answered and said, while he taught in the temple, How say the scribes that Christ is the Son of David?  
-> <sup>36</sup> For David himself said by the Holy Ghost, The LORD said to my Lord, Sit thou on my right hand, till I make thine enemies thy footstool.  
-> <sup>37</sup> David therefore himself calleth him Lord; and whence is he *then* his son? And the common people heard him gladly.  
-> <sup>38</sup> And he said unto them in his doctrine, Beware of the scribes, which love to go in long clothing, and *love* salutations in the marketplaces,  
-> <sup>39</sup> And the chief seats in the synagogues, and the uppermost rooms at feasts:  
-> <sup>40</sup> Which devour widows' houses, and for a pretence make long prayers: these shall receive greater damnation.  
+> **³⁵** And Jesus answered and said, while he taught in the temple, How say the scribes that Christ is the Son of David?  
+> **³⁶** For David himself said by the Holy Ghost, The LORD said to my Lord, Sit thou on my right hand, till I make thine enemies thy footstool.  
+> **³⁷** David therefore himself calleth him Lord; and whence is he *then* his son? And the common people heard him gladly.  
+> **³⁸** And he said unto them in his doctrine, Beware of the scribes, which love to go in long clothing, and *love* salutations in the marketplaces,  
+> **³⁹** And the chief seats in the synagogues, and the uppermost rooms at feasts:  
+> **⁴⁰** Which devour widows' houses, and for a pretence make long prayers: these shall receive greater damnation.  
 
 Here, I. Christ shows the people how weak and defective the scribes were in their preaching, and how unable to solve the difficulties that occurred in the scriptures of the Old Testament, which they undertook to expound. Of this he gives an instance, which is not so fully related here as it was in Matthew. Christ was *teaching in the temple:* many things he said, which were not written; but notice is taken of this, because it will stir us up to enquire *concerning Christ,* and to enquire *of him;* for none can have the right knowledge of him but *from himself;* it is not to be had from *the scribes,* for they will soon be run aground.
 
@@ -137,10 +137,10 @@ II\. He cautions the people to take heed of suffering themselves to be imposed u
 
 ## Christ Commendeth the Poor Widow.
 
-> <sup>41</sup> And Jesus sat over against the treasury, and beheld how the people cast money into the treasury: and many that were rich cast in much.  
-> <sup>42</sup> And there came a certain poor widow, and she threw in two mites, which make a farthing.  
-> <sup>43</sup> And he called *unto him* his disciples, and saith unto them, Verily I say unto you, That this poor widow hath cast more in, than all they which have cast into the treasury:  
-> <sup>44</sup> For all *they* did cast in of their abundance; but she of her want did cast in all that she had, *even* all her living.  
+> **⁴¹** And Jesus sat over against the treasury, and beheld how the people cast money into the treasury: and many that were rich cast in much.  
+> **⁴²** And there came a certain poor widow, and she threw in two mites, which make a farthing.  
+> **⁴³** And he called *unto him* his disciples, and saith unto them, Verily I say unto you, That this poor widow hath cast more in, than all they which have cast into the treasury:  
+> **⁴⁴** For all *they* did cast in of their abundance; but she of her want did cast in all that she had, *even* all her living.  
 
 This passage of story was not in Matthew, but is here and in Luke; it is Christ's commendation of the poor widow, that cast *two mites* into the treasury, which our Saviour, busy as he was in preaching, found leisure to take notice of. Observe,
 

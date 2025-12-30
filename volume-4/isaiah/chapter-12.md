@@ -8,9 +8,9 @@ The salvation promised in the foregoing chapter was compared to that of Israel "
 
 ## A Song of Praise. (b. c. 740.)
 
-> <sup>1</sup> And in that day thou shalt say, O LORD, I will praise thee: though thou wast angry with me, thine anger is turned away, and thou comfortedst me.  
-> <sup>2</sup> Behold, God *is* my salvation; I will trust, and not be afraid: for the LORD JEHOVAH *is* my strength and *my* song; he also is become my salvation.  
-> <sup>3</sup> Therefore with joy shall ye draw water out of the wells of salvation.  
+> **¹** And in that day thou shalt say, O LORD, I will praise thee: though thou wast angry with me, thine anger is turned away, and thou comfortedst me.  
+> **²** Behold, God *is* my salvation; I will trust, and not be afraid: for the LORD JEHOVAH *is* my strength and *my* song; he also is become my salvation.  
+> **³** Therefore with joy shall ye draw water out of the wells of salvation.  
 
 This is the former part of the hymn of praise which is prepared for the use of the church, of the Jewish church when God would work great deliverances for them, and of the Christian church when the kingdom of the Messiah should be set up in the world in despite of the opposition of the powers of darkness: *In that day thou shalt say, O Lord! I will praise thee.* The scattered church, being united into one body, shall, as one man, with one mind and one mouth, thus praise God, who is one and his name one. *In that day,* when the Lord shall do these great things for thee, *thou shalt say, O Lord! I will praise thee.* That is,
 
@@ -26,9 +26,9 @@ II\. "Thou shalt have a heart to say so." All God's other gifts to his people sh
 
 ## A Song of Praise. (b. c. 740.)
 
-> <sup>4</sup> And in that day shall ye say, Praise the LORD, call upon his name, declare his doings among the people, make mention that his name is exalted.  
-> <sup>5</sup> Sing unto the LORD; for he hath done excellent things: this *is* known in all the earth.  
-> <sup>6</sup> Cry out and shout, thou inhabitant of Zion: for great *is* the Holy One of Israel in the midst of thee.  
+> **⁴** And in that day shall ye say, Praise the LORD, call upon his name, declare his doings among the people, make mention that his name is exalted.  
+> **⁵** Sing unto the LORD; for he hath done excellent things: this *is* known in all the earth.  
+> **⁶** Cry out and shout, thou inhabitant of Zion: for great *is* the Holy One of Israel in the midst of thee.  
 
 This is the second part of this evangelical song, and to the same purport with the former; there believers stir up themselves to praise God, here they invite and encourage one another to do it, and are contriving to spread his praise and draw in others to join with them in it. Observe,
 

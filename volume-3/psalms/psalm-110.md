@@ -10,10 +10,10 @@ This psalm is pure gospel; it is only, and wholly, concerning Christ, the Messia
 
 A psalm of David.
 
-> <sup>1</sup> The LORD said unto my Lord, Sit thou at my right hand, until I make thine enemies thy footstool.  
-> <sup>2</sup> The LORD shall send the rod of thy strength out of Zion: rule thou in the midst of thine enemies.  
-> <sup>3</sup> Thy people *shall be* willing in the day of thy power, in the beauties of holiness from the womb of the morning: thou hast the dew of thy youth.  
-> <sup>4</sup> The LORD hath sworn, and will not repent, Thou *art* a priest for ever after the order of Melchizedek.  
+> **¹** The LORD said unto my Lord, Sit thou at my right hand, until I make thine enemies thy footstool.  
+> **²** The LORD shall send the rod of thy strength out of Zion: rule thou in the midst of thine enemies.  
+> **³** Thy people *shall be* willing in the day of thy power, in the beauties of holiness from the womb of the morning: thou hast the dew of thy youth.  
+> **⁴** The LORD hath sworn, and will not repent, Thou *art* a priest for ever after the order of Melchizedek.  
 
 Some have called this psalm *David's creed,* almost all the articles of the Christian faith being found in it; the title calls it *David's psalm,* for in the believing foresight of the Messiah he both praised God and solaced himself, much more may we, in singing it, to whom that is fulfilled, and therefore more clearly revealed, which is here foretold. Glorious things are here spoken of Christ, and such as oblige us to consider how great he is.
 
@@ -45,9 +45,9 @@ VII\. That he should have a great number of subjects, who should be to him for a
 
 ## The Messiah's Dominion.
 
-> <sup>5</sup> The Lord at thy right hand shall strike through kings in the day of his wrath.  
-> <sup>6</sup> He shall judge among the heathen, he shall fill *the places* with the dead bodies; he shall wound the heads over many countries.  
-> <sup>7</sup> He shall drink of the brook in the way: therefore shall he lift up the head.  
+> **⁵** The Lord at thy right hand shall strike through kings in the day of his wrath.  
+> **⁶** He shall judge among the heathen, he shall fill *the places* with the dead bodies; he shall wound the heads over many countries.  
+> **⁷** He shall drink of the brook in the way: therefore shall he lift up the head.  
 
 Here we have our great Redeemer,
 

@@ -8,8 +8,8 @@ The prophet, in this chapter, has his commission and charge renewed to reprove t
 
 ## A Charge against the People. (b. c. 706.)
 
-> <sup>1</sup> Cry aloud, spare not, lift up thy voice like a trumpet, and show my people their transgression, and the house of Jacob their sins.  
-> <sup>2</sup> Yet they seek me daily, and delight to know my ways, as a nation that did righteousness, and forsook not the ordinance of their God: they ask of me the ordinances of justice; they take delight in approaching to God.  
+> **¹** Cry aloud, spare not, lift up thy voice like a trumpet, and show my people their transgression, and the house of Jacob their sins.  
+> **²** Yet they seek me daily, and delight to know my ways, as a nation that did righteousness, and forsook not the ordinance of their God: they ask of me the ordinances of justice; they take delight in approaching to God.  
 
 When our Lord Jesus promised to send the Comforter he added, *When he shall come he shall convince* (Joh 16:7,8); for conviction must prepare for comfort, and must also separate between the precious and the vile, and mark out those to whom comfort does not belong. God had appointed this prophet to comfort his people (Isa 40:1); here he appoints him to convince them, and show them their sins.
 
@@ -23,11 +23,11 @@ II\. He must acknowledge how very good they seemed to be, notwithstanding (Isa 5
 
 ## A Charge against the People. (b. c. 706.)
 
-> <sup>3</sup> Wherefore have we fasted, *say they,* and thou seest not? *wherefore* have we afflicted our soul, and thou takest no knowledge? Behold, in the day of your fast ye find pleasure, and exact all your labours.  
-> <sup>4</sup> Behold, ye fast for strife and debate, and to smite with the fist of wickedness: ye shall not fast as *ye do this* day, to make your voice to be heard on high.  
-> <sup>5</sup> Is it such a fast that I have chosen? a day for a man to afflict his soul? *is it* to bow down his head as a bulrush, and to spread sackcloth and ashes *under him?* wilt thou call this a fast, and an acceptable day to the LORD?  
-> <sup>6</sup> *Is* not this the fast that I have chosen? to loose the bands of wickedness, to undo the heavy burdens, and to let the oppressed go free, and that ye break every yoke?  
-> <sup>7</sup> *Is it* not to deal thy bread to the hungry, and that thou bring the poor that are cast out to thy house? when thou seest the naked, that thou cover him; and that thou hide not thyself from thine own flesh?  
+> **³** Wherefore have we fasted, *say they,* and thou seest not? *wherefore* have we afflicted our soul, and thou takest no knowledge? Behold, in the day of your fast ye find pleasure, and exact all your labours.  
+> **⁴** Behold, ye fast for strife and debate, and to smite with the fist of wickedness: ye shall not fast as *ye do this* day, to make your voice to be heard on high.  
+> **⁵** Is it such a fast that I have chosen? a day for a man to afflict his soul? *is it* to bow down his head as a bulrush, and to spread sackcloth and ashes *under him?* wilt thou call this a fast, and an acceptable day to the LORD?  
+> **⁶** *Is* not this the fast that I have chosen? to loose the bands of wickedness, to undo the heavy burdens, and to let the oppressed go free, and that ye break every yoke?  
+> **⁷** *Is it* not to deal thy bread to the hungry, and that thou bring the poor that are cast out to thy house? when thou seest the naked, that thou cover him; and that thou hide not thyself from thine own flesh?  
 
 Here we have, I. The displeasure which these hypocrites conceived against God for not accepting the services which they themselves had a mighty opinion of (Isa 58:3): *Wherefore have we fasted, say they, and thou seest not?* Thus they went in the way of Cain, who was angry at God, and resented it as a gross affront that his offering was not accepted. Having gone about to put a cheat upon God by their external services, here they go about to pick a quarrel with God for not being pleased with their services, as if he had not done fairly or justly by them. Observe, 1. How they boast of themselves, and magnify their own performances: "*We have fasted, and afflicted our souls;* we have not only sought God daily (Isa 58:2), but have kept some certain times of more solemn devotion." Some think this refers to the yearly fast (which was called *the day of atonement*), others to their arbitrary occasional fasts. Note, It is common for unhumbled hearts to be proud of their professions of humiliation, as the Pharisee (Lu 18:12), *I fast twice in the week.* 2. What they expected from their performances. They thought God should take great notice of them, and own himself a debtor to them for their services. Note, It is a common thing for hypocrites, while they perform the external services of religion, to promise themselves that acceptance with God which he has promised only to the sincere; as if they must be accepted of course, or for a compliment. 3. How heinously they take it that God had not put some particular marks of his favour upon them, that he had not immediately delivered them out of their troubles and advanced them to honour and prosperity. They charge God with injustice and partiality, and seem resolved to throw up their religion, and justify themselves in doing so with this, that they had found no *profit in praying* to God, Job 21:14,15, Mal 3:14. Note, Reigning hypocrisy often breaks out in daring impiety and an open contempt and reproach of God and religion for that which the hypocrisy itself must bear all the blame of. Sinners reflect upon religion as a hard and melancholy service, and on which there is nothing to be got by, when really it is owing to themselves that it seems so to them, because they are not sincere in it.
 
@@ -45,11 +45,11 @@ III\. Plain instructions given concerning the true nature of a religious fast.
 
 ## A Charge against the People; Encouragement to Israelites Indeed. (b. c. 706.)
 
-> <sup>8</sup> Then shall thy light break forth as the morning, and thine health shall spring forth speedily: and thy righteousness shall go before thee; the glory of the LORD shall be thy rereward.  
-> <sup>9</sup> Then shalt thou call, and the LORD shall answer; thou shalt cry, and he shall say, Here I *am.* If thou take away from the midst of thee the yoke, the putting forth of the finger, and speaking vanity;  
-> <sup>10</sup> And *if* thou draw out thy soul to the hungry, and satisfy the afflicted soul; then shall thy light rise in obscurity, and thy darkness *be* as the noonday:  
-> <sup>11</sup> And the LORD shall guide thee continually, and satisfy thy soul in drought, and make fat thy bones: and thou shalt be like a watered garden, and like a spring of water, whose waters fail not.  
-> <sup>12</sup> And *they that shall be* of thee shall build the old waste places: thou shalt raise up the foundations of many generations; and thou shalt be called, The repairer of the breach, The restorer of paths to dwell in.  
+> **⁸** Then shall thy light break forth as the morning, and thine health shall spring forth speedily: and thy righteousness shall go before thee; the glory of the LORD shall be thy rereward.  
+> **⁹** Then shalt thou call, and the LORD shall answer; thou shalt cry, and he shall say, Here I *am.* If thou take away from the midst of thee the yoke, the putting forth of the finger, and speaking vanity;  
+> **¹⁰** And *if* thou draw out thy soul to the hungry, and satisfy the afflicted soul; then shall thy light rise in obscurity, and thy darkness *be* as the noonday:  
+> **¹¹** And the LORD shall guide thee continually, and satisfy thy soul in drought, and make fat thy bones: and thou shalt be like a watered garden, and like a spring of water, whose waters fail not.  
+> **¹²** And *they that shall be* of thee shall build the old waste places: thou shalt raise up the foundations of many generations; and thou shalt be called, The repairer of the breach, The restorer of paths to dwell in.  
 
 Here are precious promises for those to feast freely and cheerfully upon by faith who keep the fast that God has chosen; let them know that God will make it up to them. Here is,
 
@@ -59,8 +59,8 @@ II\. Here is a full account of the blessings and benefits which attend the perfo
 
 ## The Sanctification of the Sabbath. (b. c. 706.)
 
-> <sup>13</sup> If thou turn away thy foot from the sabbath, *from* doing thy pleasure on my holy day; and call the sabbath a delight, the holy of the LORD, honourable; and shalt honour him, not doing thine own ways, nor finding thine own pleasure, nor speaking *thine own* words:  
-> <sup>14</sup> Then shalt thou delight thyself in the LORD; and I will cause thee to ride upon the high places of the earth, and feed thee with the heritage of Jacob thy father: for the mouth of the LORD hath spoken *it.*  
+> **¹³** If thou turn away thy foot from the sabbath, *from* doing thy pleasure on my holy day; and call the sabbath a delight, the holy of the LORD, honourable; and shalt honour him, not doing thine own ways, nor finding thine own pleasure, nor speaking *thine own* words:  
+> **¹⁴** Then shalt thou delight thyself in the LORD; and I will cause thee to ride upon the high places of the earth, and feed thee with the heritage of Jacob thy father: for the mouth of the LORD hath spoken *it.*  
 
 Great stress was always laid upon the due observance of the sabbath day, and it was particularly required from the Jews when they were captives in Babylon, because by keeping that day, in honour of the Creator, they distinguished themselves from the worshippers of the gods that have not made the heavens and the earth. See Isa 56:1,2, where keeping the sabbath is joined, as here, with *keeping judgment* and *doing justice.* Some, indeed, understand this of the day of atonement, which they think is the fast spoken of in the former part of the chapter, and which is called a *sabbath of rest,* Le 23:32. But, as the fasts before spoken of seem to be those that were occasional, so this sabbath is doubtless the weekly sabbath, that great sign between God and his professing people—his appointing it a sign of his favour to them and their observing it a sign of their obedience to him. Now observe here,
 

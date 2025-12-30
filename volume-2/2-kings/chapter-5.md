@@ -8,14 +8,14 @@ Two more of Elisha's miracles are recorded in this chapter. I. The cleansing of 
 
 ## Naaman's Leprosy. (b. c. 894.)
 
-> <sup>1</sup> Now Naaman, captain of the host of the king of Syria, was a great man with his master, and honourable, because by him the LORD had given deliverance unto Syria: he was also a mighty man in valour, *but he was* a leper.  
-> <sup>2</sup> And the Syrians had gone out by companies, and had brought away captive out of the land of Israel a little maid; and she waited on Naaman's wife.  
-> <sup>3</sup> And she said unto her mistress, Would God my lord *were* with the prophet that *is* in Samaria! for he would recover him of his leprosy.  
-> <sup>4</sup> And *one* went in, and told his lord, saying, Thus and thus said the maid that *is* of the land of Israel.  
-> <sup>5</sup> And the king of Syria said, Go to, go, and I will send a letter unto the king of Israel. And he departed, and took with him ten talents of silver, and six thousand *pieces* of gold, and ten changes of raiment.  
-> <sup>6</sup> And he brought the letter to the king of Israel, saying, Now when this letter is come unto thee, behold, I have *therewith* sent Naaman my servant to thee, that thou mayest recover him of his leprosy.  
-> <sup>7</sup> And it came to pass, when the king of Israel had read the letter, that he rent his clothes, and said, *Am* I God, to kill and to make alive, that this man doth send unto me to recover a man of his leprosy? wherefore consider, I pray you, and see how he seeketh a quarrel against me.  
-> <sup>8</sup> And it was *so,* when Elisha the man of God had heard that the king of Israel had rent his clothes, that he sent to the king, saying, Wherefore hast thou rent thy clothes? let him come now to me, and he shall know that there is a prophet in Israel.  
+> **¹** Now Naaman, captain of the host of the king of Syria, was a great man with his master, and honourable, because by him the LORD had given deliverance unto Syria: he was also a mighty man in valour, *but he was* a leper.  
+> **²** And the Syrians had gone out by companies, and had brought away captive out of the land of Israel a little maid; and she waited on Naaman's wife.  
+> **³** And she said unto her mistress, Would God my lord *were* with the prophet that *is* in Samaria! for he would recover him of his leprosy.  
+> **⁴** And *one* went in, and told his lord, saying, Thus and thus said the maid that *is* of the land of Israel.  
+> **⁵** And the king of Syria said, Go to, go, and I will send a letter unto the king of Israel. And he departed, and took with him ten talents of silver, and six thousand *pieces* of gold, and ten changes of raiment.  
+> **⁶** And he brought the letter to the king of Israel, saying, Now when this letter is come unto thee, behold, I have *therewith* sent Naaman my servant to thee, that thou mayest recover him of his leprosy.  
+> **⁷** And it came to pass, when the king of Israel had read the letter, that he rent his clothes, and said, *Am* I God, to kill and to make alive, that this man doth send unto me to recover a man of his leprosy? wherefore consider, I pray you, and see how he seeketh a quarrel against me.  
+> **⁸** And it was *so,* when Elisha the man of God had heard that the king of Israel had rent his clothes, that he sent to the king, saying, Wherefore hast thou rent thy clothes? let him come now to me, and he shall know that there is a prophet in Israel.  
 
 Our saviour's miracles were intended for the lost sheep of the house of Israel, yet one, like a crumb, fell from the table to a woman of Canaan; so this one miracle Elisha wrought for Naaman, a Syrian; for God does good to all, and will have all men to be saved. Here is,
 
@@ -31,12 +31,12 @@ V\. The proffer which Elisha made of his services. He was willing to do any thin
 
 ## The Cure of Naaman's Leprosy. (b. c. 894.)
 
-> <sup>9</sup> So Naaman came with his horses and with his chariot, and stood at the door of the house of Elisha.  
-> <sup>10</sup> And Elisha sent a messenger unto him, saying, Go and wash in Jordan seven times, and thy flesh shall come again to thee, and thou shalt be clean.  
-> <sup>11</sup> But Naaman was wroth, and went away, and said, Behold, I thought, He will surely come out to me, and stand, and call on the name of the LORD his God, and strike his hand over the place, and recover the leper.  
-> <sup>12</sup> *Are* not Abana and Pharpar, rivers of Damascus, better than all the waters of Israel? may I not wash in them, and be clean? So he turned and went away in a rage.  
-> <sup>13</sup> And his servants came near, and spake unto him, and said, My father, *if* the prophet had bid thee *do some* great thing, wouldest thou not have done *it?* how much rather then, when he saith to thee, Wash, and be clean?  
-> <sup>14</sup> Then went he down, and dipped himself seven times in Jordan, according to the saying of the man of God: and his flesh came again like unto the flesh of a little child, and he was clean.  
+> **⁹** So Naaman came with his horses and with his chariot, and stood at the door of the house of Elisha.  
+> **¹⁰** And Elisha sent a messenger unto him, saying, Go and wash in Jordan seven times, and thy flesh shall come again to thee, and thou shalt be clean.  
+> **¹¹** But Naaman was wroth, and went away, and said, Behold, I thought, He will surely come out to me, and stand, and call on the name of the LORD his God, and strike his hand over the place, and recover the leper.  
+> **¹²** *Are* not Abana and Pharpar, rivers of Damascus, better than all the waters of Israel? may I not wash in them, and be clean? So he turned and went away in a rage.  
+> **¹³** And his servants came near, and spake unto him, and said, My father, *if* the prophet had bid thee *do some* great thing, wouldest thou not have done *it?* how much rather then, when he saith to thee, Wash, and be clean?  
+> **¹⁴** Then went he down, and dipped himself seven times in Jordan, according to the saying of the man of God: and his flesh came again like unto the flesh of a little child, and he was clean.  
 
 We have here the cure of Naaman's leprosy.
 
@@ -52,11 +52,11 @@ III\. The modest advice which his servants gave him, to observe the prophet's pr
 
 IV\. The cure effected, in the use of the means prescribed, 2Ki 5:14. Naaman, upon second thoughts, yielded to make the experiment, yet, it should seem, with no great faith and resolution; for, whereas the prophet bade him wash in Jordan seven times, he did but dip himself so many times, as lightly as he could. However God was pleased so far to honour himself and his word as to make that effectual. *His flesh came again, like the flesh of a child,* to his great surprise and joy. This men get by yielding to the will of God, by attending to his institutions. His being cleansed by washing put an honour on the law for cleansing lepers. God will magnify his word above all his name.
 
-> <sup>15</sup> And he returned to the man of God, he and all his company, and came, and stood before him: and he said, Behold, now I know that *there is* no God in all the earth, but in Israel: now therefore, I pray thee, take a blessing of thy servant.  
-> <sup>16</sup> But he said, *As* the LORD liveth, before whom I stand, I will receive none. And he urged him to take *it;* but he refused.  
-> <sup>17</sup> And Naaman said, Shall there not then, I pray thee, be given to thy servant two mules' burden of earth? for thy servant will henceforth offer neither burnt offering nor sacrifice unto other gods, but unto the LORD.  
-> <sup>18</sup> In this thing the LORD pardon thy servant, *that* when my master goeth into the house of Rimmon to worship there, and he leaneth on my hand, and I bow myself in the house of Rimmon: when I bow down myself in the house of Rimmon, the LORD pardon thy servant in this thing.  
-> <sup>19</sup> And he said unto him, Go in peace. So he departed from him a little way.  
+> **¹⁵** And he returned to the man of God, he and all his company, and came, and stood before him: and he said, Behold, now I know that *there is* no God in all the earth, but in Israel: now therefore, I pray thee, take a blessing of thy servant.  
+> **¹⁶** But he said, *As* the LORD liveth, before whom I stand, I will receive none. And he urged him to take *it;* but he refused.  
+> **¹⁷** And Naaman said, Shall there not then, I pray thee, be given to thy servant two mules' burden of earth? for thy servant will henceforth offer neither burnt offering nor sacrifice unto other gods, but unto the LORD.  
+> **¹⁸** In this thing the LORD pardon thy servant, *that* when my master goeth into the house of Rimmon to worship there, and he leaneth on my hand, and I bow myself in the house of Rimmon: when I bow down myself in the house of Rimmon, the LORD pardon thy servant in this thing.  
+> **¹⁹** And he said unto him, Go in peace. So he departed from him a little way.  
 
 Of the ten lepers that our Saviour cleansed, the only one that *returned to give thanks* was a *Samaritan,* Lu 17:16. This Syrian did so, and here expresses himself.
 
@@ -68,14 +68,14 @@ III\. Proselyted to the worship of the God of Israel. He will not only offer a s
 
 ## Naaman's Gratitude. (b. c. 894.)
 
-> <sup>20</sup> But Gehazi, the servant of Elisha the man of God, said, Behold, my master hath spared Naaman this Syrian, in not receiving at his hands that which he brought: but, *as* the LORD liveth, I will run after him, and take somewhat of him.  
-> <sup>21</sup> So Gehazi followed after Naaman. And when Naaman saw *him* running after him, he lighted down from the chariot to meet him, and said, *Is* all well?  
-> <sup>22</sup> And he said, All *is* well. My master hath sent me, saying, Behold, even now there be come to me from mount Ephraim two young men of the sons of the prophets: give them, I pray thee, a talent of silver, and two changes of garments.  
-> <sup>23</sup> And Naaman said, Be content, take two talents. And he urged him, and bound two talents of silver in two bags, with two changes of garments, and laid *them* upon two of his servants; and they bare *them* before him.  
-> <sup>24</sup> And when he came to the tower, he took *them* from their hand, and bestowed *them* in the house: and he let the men go, and they departed.  
-> <sup>25</sup> But he went in, and stood before his master. And Elisha said unto him, Whence *comest thou,* Gehazi? And he said, Thy servant went no whither.  
-> <sup>26</sup> And he said unto him, Went not mine heart *with thee,* when the man turned again from his chariot to meet thee? *Is it* a time to receive money, and to receive garments, and oliveyards, and vineyards, and sheep, and oxen, and menservants, and maidservants?  
-> <sup>27</sup> The leprosy therefore of Naaman shall cleave unto thee, and unto thy seed for ever. And he went out from his presence a leper *as white* as snow.  
+> **²⁰** But Gehazi, the servant of Elisha the man of God, said, Behold, my master hath spared Naaman this Syrian, in not receiving at his hands that which he brought: but, *as* the LORD liveth, I will run after him, and take somewhat of him.  
+> **²¹** So Gehazi followed after Naaman. And when Naaman saw *him* running after him, he lighted down from the chariot to meet him, and said, *Is* all well?  
+> **²²** And he said, All *is* well. My master hath sent me, saying, Behold, even now there be come to me from mount Ephraim two young men of the sons of the prophets: give them, I pray thee, a talent of silver, and two changes of garments.  
+> **²³** And Naaman said, Be content, take two talents. And he urged him, and bound two talents of silver in two bags, with two changes of garments, and laid *them* upon two of his servants; and they bare *them* before him.  
+> **²⁴** And when he came to the tower, he took *them* from their hand, and bestowed *them* in the house: and he let the men go, and they departed.  
+> **²⁵** But he went in, and stood before his master. And Elisha said unto him, Whence *comest thou,* Gehazi? And he said, Thy servant went no whither.  
+> **²⁶** And he said unto him, Went not mine heart *with thee,* when the man turned again from his chariot to meet thee? *Is it* a time to receive money, and to receive garments, and oliveyards, and vineyards, and sheep, and oxen, and menservants, and maidservants?  
+> **²⁷** The leprosy therefore of Naaman shall cleave unto thee, and unto thy seed for ever. And he went out from his presence a leper *as white* as snow.  
 
 Naaman, a Syrian, a courtier, a soldier, had many servants, and we read how wise and good they were, 2Ki 5:13. Elisha, a holy prophet, a man of God, has but one servant, and he proves a base, lying, naughty fellow. Those that heard of Elisha at a distance honoured him, and got good by what they heard; but he that stood continually before him, to hear his wisdom, had no good impressions made upon him either by his doctrine or miracles. One would have expected that Elisha's servant should be a saint (even Ahab's servant, Obadiah, was), but even Christ himself had a Judas among his followers. The means of grace cannot give grace. The best men, the best ministers have often had those about them that have been their grief and shame. The nearer the church the further from God. *Many come from the east and west to sit down with Abraham when the children of the kingdom shall be cast out.* Here is,
 

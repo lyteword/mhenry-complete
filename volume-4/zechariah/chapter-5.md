@@ -8,10 +8,10 @@ Hitherto we have seen visions of peace only, and all the words we have heard hav
 
 ## The Vision of the Flying Roll. (b. c. 520.)
 
-> <sup>1</sup> Then I turned, and lifted up mine eyes, and looked, and behold a flying roll.  
-> <sup>2</sup> And he said unto me, What seest thou? And I answered, I see a flying roll; the length thereof *is* twenty cubits, and the breadth thereof ten cubits.  
-> <sup>3</sup> Then said he unto me, This *is* the curse that goeth forth over the face of the whole earth: for every one that stealeth shall be cut off *as* on this side according to it; and every one that sweareth shall be cut off *as* on that side according to it.  
-> <sup>4</sup> I will bring it forth, saith the LORD of hosts, and it shall enter into the house of the thief, and into the house of him that sweareth falsely by my name: and it shall remain in the midst of his house, and shall consume it with the timber thereof and the stones thereof.  
+> **¹** Then I turned, and lifted up mine eyes, and looked, and behold a flying roll.  
+> **²** And he said unto me, What seest thou? And I answered, I see a flying roll; the length thereof *is* twenty cubits, and the breadth thereof ten cubits.  
+> **³** Then said he unto me, This *is* the curse that goeth forth over the face of the whole earth: for every one that stealeth shall be cut off *as* on this side according to it; and every one that sweareth shall be cut off *as* on that side according to it.  
+> **⁴** I will bring it forth, saith the LORD of hosts, and it shall enter into the house of the thief, and into the house of him that sweareth falsely by my name: and it shall remain in the midst of his house, and shall consume it with the timber thereof and the stones thereof.  
 
 We do not find that the prophet now needed to be awakened, as he did Zec 4:1. Being awakened then, he kept wakeful after; nay, now he needs not be so much as called to look about him, for of his own accord he *turns and lifts up his eyes.* This good men sometimes get by their infirmities, they make them the more careful and circumspect afterwards. Now observe,
 
@@ -29,13 +29,13 @@ II\. How it was expounded to him, Zec 5:3,4. This flying roll is a *curse;* it c
 
 ## The Vision of the Ephah. (b. c. 520.)
 
-> <sup>5</sup> Then the angel that talked with me went forth, and said unto me, Lift up now thine eyes, and see what *is* this that goeth forth.  
-> <sup>6</sup> And I said, What *is* it? And he said, This *is* an ephah that goeth forth. He said moreover, This *is* their resemblance through all the earth.  
-> <sup>7</sup> And, behold, there was lifted up a talent of lead: and this *is* a woman that sitteth in the midst of the ephah.  
-> <sup>8</sup> And he said, This *is* wickedness. And he cast it into the midst of the ephah; and he cast the weight of lead upon the mouth thereof.  
-> <sup>9</sup> Then lifted I up mine eyes, and looked, and, behold, there came out two women, and the wind *was* in their wings; for they had wings like the wings of a stork: and they lifted up the ephah between the earth and the heaven.  
-> <sup>10</sup> Then said I to the angel that talked with me, Whither do these bear the ephah?  
-> <sup>11</sup> And he said unto me, To build it a house in the land of Shinar: and it shall be established, and set there upon her own base.  
+> **⁵** Then the angel that talked with me went forth, and said unto me, Lift up now thine eyes, and see what *is* this that goeth forth.  
+> **⁶** And I said, What *is* it? And he said, This *is* an ephah that goeth forth. He said moreover, This *is* their resemblance through all the earth.  
+> **⁷** And, behold, there was lifted up a talent of lead: and this *is* a woman that sitteth in the midst of the ephah.  
+> **⁸** And he said, This *is* wickedness. And he cast it into the midst of the ephah; and he cast the weight of lead upon the mouth thereof.  
+> **⁹** Then lifted I up mine eyes, and looked, and, behold, there came out two women, and the wind *was* in their wings; for they had wings like the wings of a stork: and they lifted up the ephah between the earth and the heaven.  
+> **¹⁰** Then said I to the angel that talked with me, Whither do these bear the ephah?  
+> **¹¹** And he said unto me, To build it a house in the land of Shinar: and it shall be established, and set there upon her own base.  
 
 The foregoing vision was very plain and easy, but in this are things *dark and hard to be understood;* and some think that the scope of it is to foretel the final destruction of the Jewish church and nation and the dispersion of the Jews, when, by crucifying Christ and persecuting his gospel, they should have filled up the measure of their iniquities; therefore it is industriously set out in obscure figures and expressions, "lest the plain denunciation of the second overthrow of temple and state might discourage them too much from going forward in the present restoration of both." So Mr. Pemble.
 

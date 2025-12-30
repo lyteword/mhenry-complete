@@ -8,11 +8,11 @@ This chapter is a prayer, it is the Lord's prayer, the Lord Christ's prayer. The
 
 ## Christ's Intercessory Prayer.
 
-> <sup>1</sup> These words spake Jesus, and lifted up his eyes to heaven, and said, Father, the hour is come; glorify thy Son, that thy Son also may glorify thee:  
-> <sup>2</sup> As thou hast given him power over all flesh, that he should give eternal life to as many as thou hast given him.  
-> <sup>3</sup> And this is life eternal, that they might know thee the only true God, and Jesus Christ, whom thou hast sent.  
-> <sup>4</sup> I have glorified thee on the earth: I have finished the work which thou gavest me to do.  
-> <sup>5</sup> And now, O Father, glorify thou me with thine own self with the glory which I had with thee before the world was.  
+> **¹** These words spake Jesus, and lifted up his eyes to heaven, and said, Father, the hour is come; glorify thy Son, that thy Son also may glorify thee:  
+> **²** As thou hast given him power over all flesh, that he should give eternal life to as many as thou hast given him.  
+> **³** And this is life eternal, that they might know thee the only true God, and Jesus Christ, whom thou hast sent.  
+> **⁴** I have glorified thee on the earth: I have finished the work which thou gavest me to do.  
+> **⁵** And now, O Father, glorify thou me with thine own self with the glory which I had with thee before the world was.  
 
 Here we have, I. The circumstances of this prayer, Joh 17:1. Many a solemn prayer Christ made in the days of his flesh (sometimes he continued all night in prayer), but none of his prayers are recorded so fully as this. Observe,
 
@@ -70,11 +70,11 @@ II\. The first part of the prayer itself, in which Christ prays for himself. Obs
 
 ## Christ's Intercessory Prayer.
 
-> <sup>6</sup> I have manifested thy name unto the men which thou gavest me out of the world: thine they were, and thou gavest them me; and they have kept thy word.  
-> <sup>7</sup> Now they have known that all things whatsoever thou hast given me are of thee.  
-> <sup>8</sup> For I have given unto them the words which thou gavest me; and they have received *them,* and have known surely that I came out from thee, and they have believed that thou didst send me.  
-> <sup>9</sup> I pray for them: I pray not for the world, but for them which thou hast given me; for they are thine.  
-> <sup>10</sup> And all mine are thine, and thine are mine; and I am glorified in them.  
+> **⁶** I have manifested thy name unto the men which thou gavest me out of the world: thine they were, and thou gavest them me; and they have kept thy word.  
+> **⁷** Now they have known that all things whatsoever thou hast given me are of thee.  
+> **⁸** For I have given unto them the words which thou gavest me; and they have received *them,* and have known surely that I came out from thee, and they have believed that thou didst send me.  
+> **⁹** I pray for them: I pray not for the world, but for them which thou hast given me; for they are thine.  
+> **¹⁰** And all mine are thine, and thine are mine; and I am glorified in them.  
 
 Christ, having prayed for himself, comes next to pray for those that are his, and he knew them by name, though he did not here name them. Now observe here,
 
@@ -124,12 +124,12 @@ III\. What encouragement he had to pray for them, and what are the general pleas
 
 ## Christ's Intercessory Prayer.
 
-> <sup>11</sup> And now I am no more in the world, but these are in the world, and I come to thee. Holy Father, keep through thine own name those whom thou hast given me, that they may be one, as we *are.*  
-> <sup>12</sup> While I was with them in the world, I kept them in thy name: those that thou gavest me I have kept, and none of them is lost, but the son of perdition; that the scripture might be fulfilled.  
-> <sup>13</sup> And now come I to thee; and these things I speak in the world, that they might have my joy fulfilled in themselves.  
-> <sup>14</sup> I have given them thy word; and the world hath hated them, because they are not of the world, even as I am not of the world.  
-> <sup>15</sup> I pray not that thou shouldest take them out of the world, but that thou shouldest keep them from the evil.  
-> <sup>16</sup> They are not of the world, even as I am not of the world.  
+> **¹¹** And now I am no more in the world, but these are in the world, and I come to thee. Holy Father, keep through thine own name those whom thou hast given me, that they may be one, as we *are.*  
+> **¹²** While I was with them in the world, I kept them in thy name: those that thou gavest me I have kept, and none of them is lost, but the son of perdition; that the scripture might be fulfilled.  
+> **¹³** And now come I to thee; and these things I speak in the world, that they might have my joy fulfilled in themselves.  
+> **¹⁴** I have given them thy word; and the world hath hated them, because they are not of the world, even as I am not of the world.  
+> **¹⁵** I pray not that thou shouldest take them out of the world, but that thou shouldest keep them from the evil.  
+> **¹⁶** They are not of the world, even as I am not of the world.  
 
 After the general pleas with which Christ recommended his disciples to his Father's care follow the particular petitions he puts up for them; and, 1. They all relate to spiritual blessings in heavenly things. He does not pray that they might be rich and great in the world, that they might raise estates and get preferments, but that they might be kept from sin, and furnished for their duty, and brought safely to heaven. Note, The prosperity of the soul is the best prosperity; for what relates to this Christ came to purchase and bestow, and so teaches us to seek, in the first place, both for others and for ourselves. 2. They are such blessings as were suited to their present state and case, and their various exigencies and occasions. Note, Christ's intercession is always pertinent. Our *advocate with the Father* is acquainted with all the particulars of our wants and burdens, our dangers and difficulties, and knows how to accommodate his intercession to each, as to Peter's peril, which he himself was not aware of (Lu 22:32), *I have prayed for thee.* 3. He is large and full in the petitions, orders them before his Father, and *fills his mouth with arguments,* to teach us fervency and importunity in prayer, to be large in prayer, and dwell upon our errands at the throne of grace, wrestling as Jacob, *I will not let thee go, except thou bless me.*
 
@@ -187,9 +187,9 @@ II\. The reasons with which he enforces these requests for their preservation, w
 
 ## Christ's Intercessory Prayer.
 
-> <sup>17</sup> Sanctify them through thy truth: thy word is truth.  
-> <sup>18</sup> As thou hast sent me into the world, even so have I also sent them into the world.  
-> <sup>19</sup> And for their sakes I sanctify myself, that they also might be sanctified through the truth.  
+> **¹⁷** Sanctify them through thy truth: thy word is truth.  
+> **¹⁸** As thou hast sent me into the world, even so have I also sent them into the world.  
+> **¹⁹** And for their sakes I sanctify myself, that they also might be sanctified through the truth.  
 
 The next thing he prayed for for them was that they might be sanctified; not only kept from evil, but made good.
 
@@ -215,10 +215,10 @@ II\. We have here two pleas or arguments to enforce the petition for the discipl
 
 ## Christ's Intercessory Prayer.
 
-> <sup>20</sup> Neither pray I for these alone, but for them also which shall believe on me through their word;  
-> <sup>21</sup> That they all may be one; as thou, Father, *art* in me, and I in thee, that they also may be one in us: that the world may believe that thou hast sent me.  
-> <sup>22</sup> And the glory which thou gavest me I have given them; that they may be one, even as we are one:  
-> <sup>23</sup> I in them, and thou in me, that they may be made perfect in one; and that the world may know that thou hast sent me, and hast loved them, as thou hast loved me.  
+> **²⁰** Neither pray I for these alone, but for them also which shall believe on me through their word;  
+> **²¹** That they all may be one; as thou, Father, *art* in me, and I in thee, that they also may be one in us: that the world may believe that thou hast sent me.  
+> **²²** And the glory which thou gavest me I have given them; that they may be one, even as we are one:  
+> **²³** I in them, and thou in me, that they may be made perfect in one; and that the world may know that thou hast sent me, and hast loved them, as thou hast loved me.  
 
 Next to their purity he prays for their unity; for the wisdom from above is *first pure, then peaceable;* and amity is amiable indeed when it is like the ointment on Aaron's holy head, and the dew on Zion's holy hill. Observe,
 
@@ -250,9 +250,9 @@ III\. What is intimated by way of plea or argument to enforce this petition; thr
 
 ## Christ's Intercessory Prayer.
 
-> <sup>24</sup> Father, I will that they also, whom thou hast given me, be with me where I am; that they may behold my glory, which thou hast given me: for thou lovedst me before the foundation of the world.  
-> <sup>25</sup> O righteous Father, the world hath not known thee: but I have known thee, and these have known that thou hast sent me.  
-> <sup>26</sup> And I have declared unto them thy name, and will declare *it:* that the love wherewith thou hast loved me may be in them, and I in them.  
+> **²⁴** Father, I will that they also, whom thou hast given me, be with me where I am; that they may behold my glory, which thou hast given me: for thou lovedst me before the foundation of the world.  
+> **²⁵** O righteous Father, the world hath not known thee: but I have known thee, and these have known that thou hast sent me.  
+> **²⁶** And I have declared unto them thy name, and will declare *it:* that the love wherewith thou hast loved me may be in them, and I in them.  
 
 Here is, I. A petition for the glorifying of all those that were given to Christ (Joh 17:24), not only these apostles, but all believers: *Father, I will that they may be with me.* Observe,
 

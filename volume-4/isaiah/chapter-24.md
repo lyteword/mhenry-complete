@@ -8,18 +8,18 @@ It is agreed that here begins a new sermon, which is continued to the end of Isa
 
 ## General Desolation Announced. (b. c. 718.)
 
-> <sup>1</sup> Behold, the LORD maketh the earth empty, and maketh it waste, and turneth it upside down, and scattereth abroad the inhabitants thereof.  
-> <sup>2</sup> And it shall be, as with the people, so with the priest; as with the servant, so with his master; as with the maid, so with her mistress; as with the buyer, so with the seller; as with the lender, so with the borrower; as with the taker of usury, so with the giver of usury to him.  
-> <sup>3</sup> The land shall be utterly emptied, and utterly spoiled: for the LORD hath spoken this word.  
-> <sup>4</sup> The earth mourneth *and* fadeth away, the world languisheth *and* fadeth away, the haughty people of the earth do languish.  
-> <sup>5</sup> The earth also is defiled under the inhabitants thereof; because they have transgressed the laws, changed the ordinance, broken the everlasting covenant.  
-> <sup>6</sup> Therefore hath the curse devoured the earth, and they that dwell therein are desolate: therefore the inhabitants of the earth are burned, and few men left.  
-> <sup>7</sup> The new wine mourneth, the vine languisheth, all the merry-hearted do sigh.  
-> <sup>8</sup> The mirth of tabrets ceaseth, the noise of them that rejoice endeth, the joy of the harp ceaseth.  
-> <sup>9</sup> They shall not drink wine with a song; strong drink shall be bitter to them that drink it.  
-> <sup>10</sup> The city of confusion is broken down: every house is shut up, that no man may come in.  
-> <sup>11</sup> *There is* a crying for wine in the streets; all joy is darkened, the mirth of the land is gone.  
-> <sup>12</sup> In the city is left desolation, and the gate is smitten with destruction.  
+> **¹** Behold, the LORD maketh the earth empty, and maketh it waste, and turneth it upside down, and scattereth abroad the inhabitants thereof.  
+> **²** And it shall be, as with the people, so with the priest; as with the servant, so with his master; as with the maid, so with her mistress; as with the buyer, so with the seller; as with the lender, so with the borrower; as with the taker of usury, so with the giver of usury to him.  
+> **³** The land shall be utterly emptied, and utterly spoiled: for the LORD hath spoken this word.  
+> **⁴** The earth mourneth *and* fadeth away, the world languisheth *and* fadeth away, the haughty people of the earth do languish.  
+> **⁵** The earth also is defiled under the inhabitants thereof; because they have transgressed the laws, changed the ordinance, broken the everlasting covenant.  
+> **⁶** Therefore hath the curse devoured the earth, and they that dwell therein are desolate: therefore the inhabitants of the earth are burned, and few men left.  
+> **⁷** The new wine mourneth, the vine languisheth, all the merry-hearted do sigh.  
+> **⁸** The mirth of tabrets ceaseth, the noise of them that rejoice endeth, the joy of the harp ceaseth.  
+> **⁹** They shall not drink wine with a song; strong drink shall be bitter to them that drink it.  
+> **¹⁰** The city of confusion is broken down: every house is shut up, that no man may come in.  
+> **¹¹** *There is* a crying for wine in the streets; all joy is darkened, the mirth of the land is gone.  
+> **¹²** In the city is left desolation, and the gate is smitten with destruction.  
 
 It is a very dark and melancholy scene that this prophecy presents to our view; turn our eyes which way we will, every thing looks dismal. The threatened desolations are here described in a great variety of expressions to the same purport, and all aggravating.
 
@@ -37,9 +37,9 @@ VI\. The cities will in a particular manner feel from these desolations of the c
 
 ## Hope in the End. (b. c. 718.)
 
-> <sup>13</sup> When thus it shall be in the midst of the land among the people, *there shall be* as the shaking of an olive tree, *and* as the gleaning grapes when the vintage is done.  
-> <sup>14</sup> They shall lift up their voice, they shall sing for the majesty of the LORD, they shall cry aloud from the sea.  
-> <sup>15</sup> Wherefore glorify ye the LORD in the fires, *even* the name of the LORD God of Israel in the isles of the sea.  
+> **¹³** When thus it shall be in the midst of the land among the people, *there shall be* as the shaking of an olive tree, *and* as the gleaning grapes when the vintage is done.  
+> **¹⁴** They shall lift up their voice, they shall sing for the majesty of the LORD, they shall cry aloud from the sea.  
+> **¹⁵** Wherefore glorify ye the LORD in the fires, *even* the name of the LORD God of Israel in the isles of the sea.  
 
 Here is mercy remembered in the midst of wrath. In Judah and Jerusalem, and the neighbouring countries, when they are overrun by the enemy, Sennacherib or Nebuchadnezzar, there shall be a remnant preserved from the general ruin, and it shall be a devout and pious remnant. And this method God usually observes when his judgments are abroad; he does not make a full end, Isa 6:13. Or we may take it thus: Though the greatest part of mankind have all their comfort ruined by the emptying of the earth, and the making of that desolate, yet there are some few who understand their interests better, who have laid up their treasure in heaven and not in things below, and therefore can keep up their comfort and joy in God even *when the earth mourns and fades away.* Observe,
 
@@ -51,14 +51,14 @@ III\. Their holy zeal to excite others to the same devotion (Isa 24:15); they en
 
 ## Encouraging Prospects; Degeneracy Predicted. (b. c. 718.)
 
-> <sup>16</sup> From the uttermost part of the earth have we heard songs, *even* glory to the righteous. But I said, My leanness, my leanness, woe unto me! the treacherous dealers have dealt treacherously; yea, the treacherous dealers have dealt very treacherously.  
-> <sup>17</sup> Fear, and the pit, and the snare, *are* upon thee, O inhabitant of the earth.  
-> <sup>18</sup> And it shall come to pass, *that* he who fleeth from the noise of the fear shall fall into the pit; and he that cometh up out of the midst of the pit shall be taken in the snare: for the windows from on high are open, and the foundations of the earth do shake.  
-> <sup>19</sup> The earth is utterly broken down, the earth is clean dissolved, the earth is moved exceedingly.  
-> <sup>20</sup> The earth shall reel to and fro like a drunkard, and shall be removed like a cottage; and the transgression thereof shall be heavy upon it; and it shall fall, and not rise again.  
-> <sup>21</sup> And it shall come to pass in that day, *that* the LORD shall punish the host of the high ones *that are* on high, and the kings of the earth upon the earth.  
-> <sup>22</sup> And they shall be gathered together, *as* prisoners are gathered in the pit, and shall be shut up in the prison, and after many days shall they be visited.  
-> <sup>23</sup> Then the moon shall be confounded, and the sun ashamed, when the LORD of hosts shall reign in mount Zion, and in Jerusalem, and before his ancients gloriously.  
+> **¹⁶** From the uttermost part of the earth have we heard songs, *even* glory to the righteous. But I said, My leanness, my leanness, woe unto me! the treacherous dealers have dealt treacherously; yea, the treacherous dealers have dealt very treacherously.  
+> **¹⁷** Fear, and the pit, and the snare, *are* upon thee, O inhabitant of the earth.  
+> **¹⁸** And it shall come to pass, *that* he who fleeth from the noise of the fear shall fall into the pit; and he that cometh up out of the midst of the pit shall be taken in the snare: for the windows from on high are open, and the foundations of the earth do shake.  
+> **¹⁹** The earth is utterly broken down, the earth is clean dissolved, the earth is moved exceedingly.  
+> **²⁰** The earth shall reel to and fro like a drunkard, and shall be removed like a cottage; and the transgression thereof shall be heavy upon it; and it shall fall, and not rise again.  
+> **²¹** And it shall come to pass in that day, *that* the LORD shall punish the host of the high ones *that are* on high, and the kings of the earth upon the earth.  
+> **²²** And they shall be gathered together, *as* prisoners are gathered in the pit, and shall be shut up in the prison, and after many days shall they be visited.  
+> **²³** Then the moon shall be confounded, and the sun ashamed, when the LORD of hosts shall reign in mount Zion, and in Jerusalem, and before his ancients gloriously.  
 
 These verses, as those before, plainly speak,
 

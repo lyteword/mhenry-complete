@@ -8,18 +8,18 @@ Our Lord Jesus went gloriously down to death, in spite of the malice of his enem
 
 ## The Resurrection.
 
-> <sup>1</sup> Now upon the first *day* of the week, very early in the morning, they came unto the sepulchre, bringing the spices which they had prepared, and certain *others* with them.  
-> <sup>2</sup> And they found the stone rolled away from the sepulchre.  
-> <sup>3</sup> And they entered in, and found not the body of the Lord Jesus.  
-> <sup>4</sup> And it came to pass, as they were much perplexed thereabout, behold, two men stood by them in shining garments:  
-> <sup>5</sup> And as they were afraid, and bowed down *their* faces to the earth, they said unto them, Why seek ye the living among the dead?  
-> <sup>6</sup> He is not here, but is risen: remember how he spake unto you when he was yet in Galilee,  
-> <sup>7</sup> Saying, The Son of man must be delivered into the hands of sinful men, and be crucified, and the third day rise again.  
-> <sup>8</sup> And they remembered his words,  
-> <sup>9</sup> And returned from the sepulchre, and told all these things unto the eleven, and to all the rest.  
-> <sup>10</sup> It was Mary Magdalene, and Joanna, and Mary *the mother* of James, and other *women that were* with them, which told these things unto the apostles.  
-> <sup>11</sup> And their words seemed to them as idle tales, and they believed them not.  
-> <sup>12</sup> Then arose Peter, and ran unto the sepulchre; and stooping down, he beheld the linen clothes laid by themselves, and departed, wondering in himself at that which was come to pass.  
+> **¹** Now upon the first *day* of the week, very early in the morning, they came unto the sepulchre, bringing the spices which they had prepared, and certain *others* with them.  
+> **²** And they found the stone rolled away from the sepulchre.  
+> **³** And they entered in, and found not the body of the Lord Jesus.  
+> **⁴** And it came to pass, as they were much perplexed thereabout, behold, two men stood by them in shining garments:  
+> **⁵** And as they were afraid, and bowed down *their* faces to the earth, they said unto them, Why seek ye the living among the dead?  
+> **⁶** He is not here, but is risen: remember how he spake unto you when he was yet in Galilee,  
+> **⁷** Saying, The Son of man must be delivered into the hands of sinful men, and be crucified, and the third day rise again.  
+> **⁸** And they remembered his words,  
+> **⁹** And returned from the sepulchre, and told all these things unto the eleven, and to all the rest.  
+> **¹⁰** It was Mary Magdalene, and Joanna, and Mary *the mother* of James, and other *women that were* with them, which told these things unto the apostles.  
+> **¹¹** And their words seemed to them as idle tales, and they believed them not.  
+> **¹²** Then arose Peter, and ran unto the sepulchre; and stooping down, he beheld the linen clothes laid by themselves, and departed, wondering in himself at that which was come to pass.  
 
 The manner of the re-uniting of Christ's soul and body in his resurrection is a mystery, one of the *secret things* that *belong not to us;* but the *infallible proofs* of his resurrection, that he did indeed rise from the dead, and was thereby proved to be the Son of God, are *things revealed, which belong to us and to our children.* Some of them we have here in these verses, which relate the same story for substance that we had in Matthew and Mark.
 
@@ -37,29 +37,29 @@ VI\. The enquiry which Peter made hereupon, Lu 24:12. It was Mary Magdalene that
 
 ## The Disciples Going to Emmaus.
 
-> <sup>13</sup> And, behold, two of them went that same day to a village called Emmaus, which was from Jerusalem *about* threescore furlongs.  
-> <sup>14</sup> And they talked together of all these things which had happened.  
-> <sup>15</sup> And it came to pass, that, while they communed *together* and reasoned, Jesus himself drew near, and went with them.  
-> <sup>16</sup> But their eyes were holden that they should not know him.  
-> <sup>17</sup> And he said unto them, What manner of communications *are* these that ye have one to another, as ye walk, and are sad?  
-> <sup>18</sup> And the one of them, whose name was Cleopas, answering said unto him, Art thou only a stranger in Jerusalem, and hast not known the things which are come to pass there in these days?  
-> <sup>19</sup> And he said unto them, What things? And they said unto him, Concerning Jesus of Nazareth, which was a prophet mighty in deed and word before God and all the people:  
-> <sup>20</sup> And how the chief priests and our rulers delivered him to be condemned to death, and have crucified him.  
-> <sup>21</sup> But we trusted that it had been he which should have redeemed Israel: and beside all this, to day is the third day since these things were done.  
-> <sup>22</sup> Yea, and certain women also of our company made us astonished, which were early at the sepulchre;  
-> <sup>23</sup> And when they found not his body, they came, saying, that they had also seen a vision of angels, which said that he was alive.  
-> <sup>24</sup> And certain of them which were with us went to the sepulchre, and found *it* even so as the women had said: but him they saw not.  
-> <sup>25</sup> Then he said unto them, O fools, and slow of heart to believe all that the prophets have spoken:  
-> <sup>26</sup> Ought not Christ to have suffered these things, and to enter into his glory?  
-> <sup>27</sup> And beginning at Moses and all the prophets, he expounded unto them in all the scriptures the things concerning himself.  
-> <sup>28</sup> And they drew nigh unto the village, whither they went: and he made as though he would have gone further.  
-> <sup>29</sup> But they constrained him, saying, Abide with us: for it is toward evening, and the day is far spent. And he went in to tarry with them.  
-> <sup>30</sup> And it came to pass, as he sat at meat with them, he took bread, and blessed *it,* and brake, and gave to them.  
-> <sup>31</sup> And their eyes were opened, and they knew him; and he vanished out of their sight.  
-> <sup>32</sup> And they said one to another, Did not our heart burn within us, while he talked with us by the way, and while he opened to us the scriptures?  
-> <sup>33</sup> And they rose up the same hour, and returned to Jerusalem, and found the eleven gathered together, and them that were with them,  
-> <sup>34</sup> Saying, The Lord is risen indeed, and hath appeared to Simon.  
-> <sup>35</sup> And they told what things *were done* in the way, and how he was known of them in breaking of bread.  
+> **¹³** And, behold, two of them went that same day to a village called Emmaus, which was from Jerusalem *about* threescore furlongs.  
+> **¹⁴** And they talked together of all these things which had happened.  
+> **¹⁵** And it came to pass, that, while they communed *together* and reasoned, Jesus himself drew near, and went with them.  
+> **¹⁶** But their eyes were holden that they should not know him.  
+> **¹⁷** And he said unto them, What manner of communications *are* these that ye have one to another, as ye walk, and are sad?  
+> **¹⁸** And the one of them, whose name was Cleopas, answering said unto him, Art thou only a stranger in Jerusalem, and hast not known the things which are come to pass there in these days?  
+> **¹⁹** And he said unto them, What things? And they said unto him, Concerning Jesus of Nazareth, which was a prophet mighty in deed and word before God and all the people:  
+> **²⁰** And how the chief priests and our rulers delivered him to be condemned to death, and have crucified him.  
+> **²¹** But we trusted that it had been he which should have redeemed Israel: and beside all this, to day is the third day since these things were done.  
+> **²²** Yea, and certain women also of our company made us astonished, which were early at the sepulchre;  
+> **²³** And when they found not his body, they came, saying, that they had also seen a vision of angels, which said that he was alive.  
+> **²⁴** And certain of them which were with us went to the sepulchre, and found *it* even so as the women had said: but him they saw not.  
+> **²⁵** Then he said unto them, O fools, and slow of heart to believe all that the prophets have spoken:  
+> **²⁶** Ought not Christ to have suffered these things, and to enter into his glory?  
+> **²⁷** And beginning at Moses and all the prophets, he expounded unto them in all the scriptures the things concerning himself.  
+> **²⁸** And they drew nigh unto the village, whither they went: and he made as though he would have gone further.  
+> **²⁹** But they constrained him, saying, Abide with us: for it is toward evening, and the day is far spent. And he went in to tarry with them.  
+> **³⁰** And it came to pass, as he sat at meat with them, he took bread, and blessed *it,* and brake, and gave to them.  
+> **³¹** And their eyes were opened, and they knew him; and he vanished out of their sight.  
+> **³²** And they said one to another, Did not our heart burn within us, while he talked with us by the way, and while he opened to us the scriptures?  
+> **³³** And they rose up the same hour, and returned to Jerusalem, and found the eleven gathered together, and them that were with them,  
+> **³⁴** Saying, The Lord is risen indeed, and hath appeared to Simon.  
+> **³⁵** And they told what things *were done* in the way, and how he was known of them in breaking of bread.  
 
 This appearance of Christ to the *two disciples* going to Emmaus was mentioned, and but just mentioned, before (Mk 16:12); here it is largely related. It happened the same day that Christ rose, the first day of the new world that rose with him. One of these two disciples was *Cleopas* or *Alpheus,* said by the ancients to be the brother of Joseph, Christ's supposed father; who the other was is not certain. Some think it was Peter; it should seem indeed that Christ did appear particularly to Peter that day, which the eleven spoke of among themselves (Lu 24:34), and Paul mentions, 1Co 15:5. But it could not be Peter that was one of the *two,* for he was one of the *eleven* to whom the *two* returned; and, besides, we know Peter so well as to think that if he had been one of the two he would have been the *chief speaker,* and not Cleopas. It was one of those that were associated with the eleven, mentioned Lu 24:9. Now in this passage of story we may observe,
 
@@ -113,20 +113,20 @@ V\. Here is the reflection which these disciples made upon this conference, and 
 
 ## Christ's Interview with the Apostles.
 
-> <sup>36</sup> And as they thus spake, Jesus himself stood in the midst of them, and saith unto them, Peace *be* unto you.  
-> <sup>37</sup> But they were terrified and affrighted, and supposed that they had seen a spirit.  
-> <sup>38</sup> And he said unto them, Why are ye troubled? and why do thoughts arise in your hearts?  
-> <sup>39</sup> Behold my hands and my feet, that it is I myself: handle me, and see; for a spirit hath not flesh and bones, as ye see me have.  
-> <sup>40</sup> And when he had thus spoken, he showed them *his* hands and *his* feet.  
-> <sup>41</sup> And while they yet believed not for joy, and wondered, he said unto them, Have ye here any meat?  
-> <sup>42</sup> And they gave him a piece of a broiled fish, and of an honeycomb.  
-> <sup>43</sup> And he took *it,* and did eat before them.  
-> <sup>44</sup> And he said unto them, These *are* the words which I spake unto you, while I was yet with you, that all things must be fulfilled, which were written in the law of Moses, and *in* the prophets, and *in* the psalms, concerning me.  
-> <sup>45</sup> Then opened he their understanding, that they might understand the scriptures,  
-> <sup>46</sup> And said unto them, Thus it is written, and thus it behoved Christ to suffer, and to rise from the dead the third day:  
-> <sup>47</sup> And that repentance and remission of sins should be preached in his name among all nations, beginning at Jerusalem.  
-> <sup>48</sup> And ye are witnesses of these things.  
-> <sup>49</sup> And, behold, I send the promise of my Father upon you: but tarry ye in the city of Jerusalem, until ye be endued with power from on high.  
+> **³⁶** And as they thus spake, Jesus himself stood in the midst of them, and saith unto them, Peace *be* unto you.  
+> **³⁷** But they were terrified and affrighted, and supposed that they had seen a spirit.  
+> **³⁸** And he said unto them, Why are ye troubled? and why do thoughts arise in your hearts?  
+> **³⁹** Behold my hands and my feet, that it is I myself: handle me, and see; for a spirit hath not flesh and bones, as ye see me have.  
+> **⁴⁰** And when he had thus spoken, he showed them *his* hands and *his* feet.  
+> **⁴¹** And while they yet believed not for joy, and wondered, he said unto them, Have ye here any meat?  
+> **⁴²** And they gave him a piece of a broiled fish, and of an honeycomb.  
+> **⁴³** And he took *it,* and did eat before them.  
+> **⁴⁴** And he said unto them, These *are* the words which I spake unto you, while I was yet with you, that all things must be fulfilled, which were written in the law of Moses, and *in* the prophets, and *in* the psalms, concerning me.  
+> **⁴⁵** Then opened he their understanding, that they might understand the scriptures,  
+> **⁴⁶** And said unto them, Thus it is written, and thus it behoved Christ to suffer, and to rise from the dead the third day:  
+> **⁴⁷** And that repentance and remission of sins should be preached in his name among all nations, beginning at Jerusalem.  
+> **⁴⁸** And ye are witnesses of these things.  
+> **⁴⁹** And, behold, I send the promise of my Father upon you: but tarry ye in the city of Jerusalem, until ye be endued with power from on high.  
 
 Five times Christ was seen the same day that he rose: by Mary Magdalene alone in the garden (Joh 20:14), by the women as they were going to tell the disciples (Mt 28:9), by Peter alone, by the two disciples going to Emmaus, and now at night by the eleven, of which we have an account in these verses, as also Joh 20:19. Observe,
 
@@ -164,10 +164,10 @@ II\. The great *satisfaction* which his discourse gave them, wherein we have,
 
 ## Christ's Ascension.
 
-> <sup>50</sup> And he led them out as far as to Bethany, and he lifted up his hands, and blessed them.  
-> <sup>51</sup> And it came to pass, while he blessed them, he was parted from them, and carried up into heaven.  
-> <sup>52</sup> And they worshipped him, and returned to Jerusalem with great joy:  
-> <sup>53</sup> And were continually in the temple, praising and blessing God. Amen.  
+> **⁵⁰** And he led them out as far as to Bethany, and he lifted up his hands, and blessed them.  
+> **⁵¹** And it came to pass, while he blessed them, he was parted from them, and carried up into heaven.  
+> **⁵²** And they worshipped him, and returned to Jerusalem with great joy:  
+> **⁵³** And were continually in the temple, praising and blessing God. Amen.  
 
 This evangelist omits the solemn meeting between Christ and his disciples *in Galilee;* but what he said to them there, and at other interviews, he subjoins to what he said to them at the first visit he made them on the evening of the day he rose; and has now nothing more to account for but his ascension into heaven, of which we have a very brief narrative in these verses, in which we are told,
 

@@ -8,13 +8,13 @@ Job owns here that he was full of confusion (Job 10:15), and as he was so was hi
 
 ## Job's Reply to Bildad. (b. c. 1520.)
 
-> <sup>1</sup> My soul is weary of my life; I will leave my complaint upon myself; I will speak in the bitterness of my soul.  
-> <sup>2</sup> I will say unto God, Do not condemn me; show me wherefore thou contendest with me.  
-> <sup>3</sup> *Is it* good unto thee that thou shouldest oppress, that thou shouldest despise the work of thine hands, and shine upon the counsel of the wicked?  
-> <sup>4</sup> Hast thou eyes of flesh? or seest thou as man seeth?  
-> <sup>5</sup> *Are* thy days as the days of man? *are* thy years as man's days,  
-> <sup>6</sup> That thou enquirest after mine iniquity, and searchest after my sin?  
-> <sup>7</sup> Thou knowest that I am not wicked; and *there is* none that can deliver out of thine hand.  
+> **¹** My soul is weary of my life; I will leave my complaint upon myself; I will speak in the bitterness of my soul.  
+> **²** I will say unto God, Do not condemn me; show me wherefore thou contendest with me.  
+> **³** *Is it* good unto thee that thou shouldest oppress, that thou shouldest despise the work of thine hands, and shine upon the counsel of the wicked?  
+> **⁴** Hast thou eyes of flesh? or seest thou as man seeth?  
+> **⁵** *Are* thy days as the days of man? *are* thy years as man's days,  
+> **⁶** That thou enquirest after mine iniquity, and searchest after my sin?  
+> **⁷** Thou knowest that I am not wicked; and *there is* none that can deliver out of thine hand.  
 
 Here is, I. A passionate resolution to persist in his complaint, Job 10:1. Being daunted with the dread of God's majesty, so that he could not plead his cause with him, he resolves to give himself some ease by giving vent to his resentments. He begins with vehement language: "*My soul is weary of my life,* weary of this body, and impatient to get clear of it, fallen out with life, and displeased at it, sick of it, and longing for death." Through the weakness of grace he went contrary to the dictates even of nature itself. We should act more like men did we act more like saints. Faith and patience would keep us from being weary of our lives (and *cruel to them,* as some read it), even when Providence has made them most wearisome to us; for that is to be weary of God's correction. Job, being weary of his life and having ease no other way, resolves to complain, resolves to speak. He will not give vent to his soul by violent hands, but he will give vent to the bitterness of his soul by violent words. Losers think they may have leave to speak; and unbridled passions, as well as unbridled appetites, are apt to think it an excuse for their excursions that they cannot help them: but what have we wisdom and grace for, but to keep the mouth as with a bridle? Job's corruption speaks here, yet grace puts in a word. 1. He will complain, but he will *leave his complaint upon himself.* He would not impeach God, nor charge him with unrighteousness or unkindness; but, though he knew not particularly the ground of God's controversy with him and the cause of action, yet, in the general, he would suppose it to be in himself and willingly bear all the blame. 2. He will speak, but it shall be the *bitterness of his soul* that he will express, not his settled judgment. If I speak amiss, it is *not I, but sin that dwells in me,* not my soul, but its bitterness.
 
@@ -28,12 +28,12 @@ III\. A peevish expostulation with God concerning his dealings with him. Now he 
 
 3\. He thinks it looked like an abuse of his omnipotence to keep a poor prisoner in custody, whom he knew to be innocent, only because there was none that could deliver him out of his hand (Job 10:7): *Thou knowest that I am not wicked.* He had already owned himself a sinner, and guilty before God; but he here stands to it that he was not wicked, not devoted to sin, not an enemy to God, not a dissembler in his religion, that *he had not wickedly departed from his God,* Ps 18:21. "*But there is none that can deliver out of thy hand,* and therefore there is no remedy; I must be content to lie there, waiting thy time, and throwing myself on thy mercy, in submission to thy sovereign will." Here see, (1.) What ought to quiet us under our troubles—that it is to no purpose to contend with Omnipotence. (2.) What will abundantly comfort us—if we are able to appeal to God, as Job here, "Lord, *thou knowest that I am not wicked.* I cannot say that l am not wanting, or I am not weak; but, through grace, I can say, *I am not wicked:* thou knowest I am not, for *thou knowest I love thee.*"
 
-> <sup>8</sup> Thine hands have made me and fashioned me together round about; yet thou dost destroy me.  
-> <sup>9</sup> Remember, I beseech thee, that thou hast made me as the clay; and wilt thou bring me into dust again?  
-> <sup>10</sup> Hast thou not poured me out as milk, and curdled me like cheese?  
-> <sup>11</sup> Thou hast clothed me with skin and flesh, and hast fenced me with bones and sinews.  
-> <sup>12</sup> Thou hast granted me life and favour, and thy visitation hath preserved my spirit.  
-> <sup>13</sup> And these *things* hast thou hid in thine heart: I know that this *is* with thee.  
+> **⁸** Thine hands have made me and fashioned me together round about; yet thou dost destroy me.  
+> **⁹** Remember, I beseech thee, that thou hast made me as the clay; and wilt thou bring me into dust again?  
+> **¹⁰** Hast thou not poured me out as milk, and curdled me like cheese?  
+> **¹¹** Thou hast clothed me with skin and flesh, and hast fenced me with bones and sinews.  
+> **¹²** Thou hast granted me life and favour, and thy visitation hath preserved my spirit.  
+> **¹³** And these *things* hast thou hid in thine heart: I know that this *is* with thee.  
 
 In these verses we may observe,
 
@@ -45,15 +45,15 @@ I\. How Job eyes God as his Creator and preserver, and describes his dependence 
 
 II\. How he pleads this with God, and what use he makes of it. He reminds God of it (Job 10:9): *Remember, I beseech thee, that thou hast made me.* What then? Why, 1. "Thou hast made me, and therefore thou hast a perfect knowledge of me (Ps 139:1-13), and needest not to examine me by scourging, nor to put me upon the rack for the discovery of what is within me." 2. "Thou hast made me, as the clay, by an act of sovereignty; and wilt thou by a like act of sovereignty unmake me again? If so, I must submit." 3. "Wilt thou destroy the work of thy own hands?" It is a plea the saints have often used in prayer, *We are the clay and thou our potter,* Isa 64:8. *Thy hands have made me and fashioned me,* Ps 119:73. So here, *Thou madest me;* and wilt thou destroy me (Job 10:8), *wilt thou bring me into dust again?* Job 10:9. "Wilt thou not pity me? Wilt thou not spare and help me, and stand by *the work of thy own hands?* Ps 138:8. Thou madest me, and knowest my strength; wilt thou then suffer me to be pressed above measure? Was I made to be made miserable? Was I preserved only to be reserved for these calamities?" If we plead this with ourselves as an inducement to duty, "God made me and maintains me, and therefore I will serve him and submit to him," we may plead it with God as an argument for mercy: *Thou hast made me,* new—make me; *I am thine, save me.* Job knew not how to reconcile God's former favours and his present frowns, but concludes (Job 10:13), "*These things hast thou hidden in thy heart.* Both are according to the counsel of thy own will, and therefore undoubtedly consistent, however they seem." When God thus strangely changes his way, though we cannot account for it, we are bound to believe there are good reasons for it hidden in his heart, which will be manifested shortly. It is not with us, or in our reach, to assign the cause, but I *know that this is with thee.* Known unto God are all his works.
 
-> <sup>14</sup> If I sin, then thou markest me, and thou wilt not acquit me from mine iniquity.  
-> <sup>15</sup> If I be wicked, woe unto me; and *if* I be righteous, *yet* will I not lift up my head. *I am* full of confusion; therefore see thou mine affliction;  
-> <sup>16</sup> For it increaseth. Thou huntest me as a fierce lion: and again thou showest thyself marvellous upon me.  
-> <sup>17</sup> Thou renewest thy witnesses against me, and increasest thine indignation upon me; changes and war *are* against me.  
-> <sup>18</sup> Wherefore then hast thou brought me forth out of the womb? Oh that I had given up the ghost, and no eye had seen me!  
-> <sup>19</sup> I should have been as though I had not been; I should have been carried from the womb to the grave.  
-> <sup>20</sup> *Are* not my days few? cease *then, and* let me alone, that I may take comfort a little,  
-> <sup>21</sup> Before I go *whence* I shall not return, *even* to the land of darkness and the shadow of death;  
-> <sup>22</sup> A land of darkness, as darkness *itself; and* of the shadow of death, without any order, and *where* the light *is* as darkness.  
+> **¹⁴** If I sin, then thou markest me, and thou wilt not acquit me from mine iniquity.  
+> **¹⁵** If I be wicked, woe unto me; and *if* I be righteous, *yet* will I not lift up my head. *I am* full of confusion; therefore see thou mine affliction;  
+> **¹⁶** For it increaseth. Thou huntest me as a fierce lion: and again thou showest thyself marvellous upon me.  
+> **¹⁷** Thou renewest thy witnesses against me, and increasest thine indignation upon me; changes and war *are* against me.  
+> **¹⁸** Wherefore then hast thou brought me forth out of the womb? Oh that I had given up the ghost, and no eye had seen me!  
+> **¹⁹** I should have been as though I had not been; I should have been carried from the womb to the grave.  
+> **²⁰** *Are* not my days few? cease *then, and* let me alone, that I may take comfort a little,  
+> **²¹** Before I go *whence* I shall not return, *even* to the land of darkness and the shadow of death;  
+> **²²** A land of darkness, as darkness *itself; and* of the shadow of death, without any order, and *where* the light *is* as darkness.  
 
 Here we have,
 

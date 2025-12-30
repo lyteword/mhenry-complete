@@ -8,22 +8,22 @@ Paul is now concluding this long and excellent epistle, and he does it with a gr
 
 ## Friendly Salutations; Apostolic Salutations. (a. d. 58.)
 
-> <sup>1</sup> I commend unto you Phebe our sister, which is a servant of the church which is at Cenchrea:  
-> <sup>2</sup> That ye receive her in the Lord, as becometh saints, and that ye assist her in whatsoever business she hath need of you: for she hath been a succourer of many, and of myself also.  
-> <sup>3</sup> Greet Priscilla and Aquila my helpers in Christ Jesus:  
-> <sup>4</sup> Who have for my life laid down their own necks: unto whom not only I give thanks, but also all the churches of the Gentiles.  
-> <sup>5</sup> Likewise *greet* the church that is in their house. Salute my wellbeloved Epenetus, who is the firstfruits of Achaia unto Christ.  
-> <sup>6</sup> Greet Mary, who bestowed much labour on us.  
-> <sup>7</sup> Salute Andronicus and Junia, my kinsmen, and my fellowprisoners, who are of note among the apostles, who also were in Christ before me.  
-> <sup>8</sup> Greet Amplias my beloved in the Lord.  
-> <sup>9</sup> Salute Urbane, our helper in Christ, and Stachys my beloved.  
-> <sup>10</sup> Salute Apelles approved in Christ. Salute them which are of Aristobulus' *household.*  
-> <sup>11</sup> Salute Herodion my kinsman. Greet them that be of the *household* of Narcissus, which are in the Lord.  
-> <sup>12</sup> Salute Tryphena and Tryphosa, who labour in the Lord. Salute the beloved Persis, which laboured much in the Lord.  
-> <sup>13</sup> Salute Rufus chosen in the Lord, and his mother and mine.  
-> <sup>14</sup> Salute Asyncritus, Phlegon, Hermas, Patrobas, Hermes, and the brethren which are with them.  
-> <sup>15</sup> Salute Philologus, and Julia, Nereus, and his sister, and Olympas, and all the saints which are with them.  
-> <sup>16</sup> Salute one another with a holy kiss. The churches of Christ salute you.  
+> **¹** I commend unto you Phebe our sister, which is a servant of the church which is at Cenchrea:  
+> **²** That ye receive her in the Lord, as becometh saints, and that ye assist her in whatsoever business she hath need of you: for she hath been a succourer of many, and of myself also.  
+> **³** Greet Priscilla and Aquila my helpers in Christ Jesus:  
+> **⁴** Who have for my life laid down their own necks: unto whom not only I give thanks, but also all the churches of the Gentiles.  
+> **⁵** Likewise *greet* the church that is in their house. Salute my wellbeloved Epenetus, who is the firstfruits of Achaia unto Christ.  
+> **⁶** Greet Mary, who bestowed much labour on us.  
+> **⁷** Salute Andronicus and Junia, my kinsmen, and my fellowprisoners, who are of note among the apostles, who also were in Christ before me.  
+> **⁸** Greet Amplias my beloved in the Lord.  
+> **⁹** Salute Urbane, our helper in Christ, and Stachys my beloved.  
+> **¹⁰** Salute Apelles approved in Christ. Salute them which are of Aristobulus' *household.*  
+> **¹¹** Salute Herodion my kinsman. Greet them that be of the *household* of Narcissus, which are in the Lord.  
+> **¹²** Salute Tryphena and Tryphosa, who labour in the Lord. Salute the beloved Persis, which laboured much in the Lord.  
+> **¹³** Salute Rufus chosen in the Lord, and his mother and mine.  
+> **¹⁴** Salute Asyncritus, Phlegon, Hermas, Patrobas, Hermes, and the brethren which are with them.  
+> **¹⁵** Salute Philologus, and Julia, Nereus, and his sister, and Olympas, and all the saints which are with them.  
+> **¹⁶** Salute one another with a holy kiss. The churches of Christ salute you.  
 
 Such remembrances as these are usual in letters between friends; and yet Paul, by the savouriness of his expressions, sanctifies these common compliments.
 
@@ -55,10 +55,10 @@ II\. Here are commendations to some particular friends among those to whom he wr
 
 ## Apostolic Salutations. (a. d. 58.)
 
-> <sup>17</sup> Now I beseech you, brethren, mark them which cause divisions and offences contrary to the doctrine which ye have learned; and avoid them.  
-> <sup>18</sup> For they that are such serve not our Lord Jesus Christ, but their own belly; and by good words and fair speeches deceive the hearts of the simple.  
-> <sup>19</sup> For your obedience is come abroad unto all *men.* I am glad therefore on your behalf: but yet I would have you wise unto that which is good, and simple concerning evil.  
-> <sup>20</sup> And the God of peace shall bruise Satan under your feet shortly. The grace of our Lord Jesus Christ *be* with you. Amen.  
+> **¹⁷** Now I beseech you, brethren, mark them which cause divisions and offences contrary to the doctrine which ye have learned; and avoid them.  
+> **¹⁸** For they that are such serve not our Lord Jesus Christ, but their own belly; and by good words and fair speeches deceive the hearts of the simple.  
+> **¹⁹** For your obedience is come abroad unto all *men.* I am glad therefore on your behalf: but yet I would have you wise unto that which is good, and simple concerning evil.  
+> **²⁰** And the God of peace shall bruise Satan under your feet shortly. The grace of our Lord Jesus Christ *be* with you. Amen.  
 
 The apostle having endeavoured by his endearing salutations to unite them together, it was not improper to subjoin a caution to take heed of those whose principles and practices were destructive to Christian love. And we may observe,
 
@@ -78,18 +78,18 @@ II\. The reasons to enforce this caution.
 
 ## Apostolic Salutations. (a. d. 58.)
 
-> <sup>21</sup> Timotheus my workfellow, and Lucius, and Jason, and Sosipater, my kinsmen, salute you.  
-> <sup>22</sup> I Tertius, who wrote *this* epistle, salute you in the Lord.  
-> <sup>23</sup> Gaius mine host, and of the whole church, saluteth you. Erastus the chamberlain of the city saluteth you, and Quartus a brother.  
-> <sup>24</sup> The grace of our Lord Jesus Christ *be* with you all. Amen.  
+> **²¹** Timotheus my workfellow, and Lucius, and Jason, and Sosipater, my kinsmen, salute you.  
+> **²²** I Tertius, who wrote *this* epistle, salute you in the Lord.  
+> **²³** Gaius mine host, and of the whole church, saluteth you. Erastus the chamberlain of the city saluteth you, and Quartus a brother.  
+> **²⁴** The grace of our Lord Jesus Christ *be* with you all. Amen.  
 
 As the Apostle had before sent his own salutations to many of this church, and that of the churches round him to them all, he here adds an affectionate remembrance of them from some particular persons who were now with him, the better to promote acquaintance and fellowship among distant saints, and that the subscribing of these worthy names, known to them, might the more recommend this epistle. He mentions, 1. Some that were his particular friends, and probably known to the Roman Christians: *Timotheus my work-fellow.* Paul sometimes calls Timothy his son, as an inferior; but here he styles him his work-fellow, as one equal with him, such a respect does he put upon him: and *Lucius,* probably Lucius of Cyrene, a noted man in the church of Antioch (Ac 13:1), as Jason was at Thessalonica, where he suffered for entertaining Paul (Ac 17:5,6): and *Sosipater,* supposed to be the same with Sopater of Berea, mentioned Ac 20:4. These Paul calls his kinsmen; not only more largely, as they were Jews, but as they were in blood or affinity nearly allied to him. It seems, Paul was of a good family, that he met with so many of his kindred in several places. It is a very great comfort to see the holiness and usefulness of our kindred. 2. One that was Paul's amanuensis (Ro 16:22): *I Tertius, who wrote this epistle.* Paul made use of a scribe, not out of state nor idleness, but because he wrote a bad hand, which was not very legible, which he excuses, when he writes to the Galatians with his own hand (Ga 6:11): *pelikois grammasi*—*with what kind of letters.* Perhaps this Tertius was the same with Silas; for Silas (as some think) signifies *the third* in Hebrew, as *Tertius* in Latin. Tertius either wrote as Paul dictated, or transcribed it fairly over out of Paul's foul copy. The least piece of service done to the church, and the ministers of the church, shall not pass without a remembrance and a recompence. It was an honour to Tertius that he had a hand, though but as a scribe, in writing this epistle. 3. Some others that were of note among the Christians (Ro 16:23): *Gaius my host.* It is uncertain whether this was Gaius of Derbe (Ac 20:4), or Gaius of Macedonia (Ac 19:29), or rather Gaius of Corinth (1Co 1:14), and whether any of these was he to whom John wrote his 3Jo 1:1. However, Paul commends him for his great hospitality; not only my host, but of the *whole church*—one that entertained them all as there was occasion, opened his doors to their church-meetings, and eased the rest of the church by his readiness to treat all Christian stranger that came to them. *Erastus, the chamberlain of the city* is another; he means the city of Corinth, whence this epistle was dated. It seems he was a person of honour and account, one in public place, steward or treasurer. Not many mighty, not many noble, are called, but some are. His estate, and honour, and employment, did not take him off from attending on Paul and laying out himself for the good of the church, it should seem, in the work of the ministry; for he is joined with Timothy (Ac 19:22), and is mentioned 2Ti 4:20. It was no disparagement to the chamberlain of the city to be a preacher of the gospel of Christ. *Quartus* is likewise mentioned, and called a brother; for as one is our Father, even Christ, so all we are brethren.
 
 ## Description of the Gospel; The Apostle's Doxology. (a. d. 58.)
 
-> <sup>25</sup> Now to him that is of power to stablish you according to my gospel, and the preaching of Jesus Christ, according to the revelation of the mystery, which was kept secret since the world began,  
-> <sup>26</sup> But now is made manifest, and by the scriptures of the prophets, according to the commandment of the everlasting God, made known to all nations for the obedience of faith:  
-> <sup>27</sup> To God only wise, *be* glory through Jesus Christ for ever. Amen.  
+> **²⁵** Now to him that is of power to stablish you according to my gospel, and the preaching of Jesus Christ, according to the revelation of the mystery, which was kept secret since the world began,  
+> **²⁶** But now is made manifest, and by the scriptures of the prophets, according to the commandment of the everlasting God, made known to all nations for the obedience of faith:  
+> **²⁷** To God only wise, *be* glory through Jesus Christ for ever. Amen.  
 
 Here the apostle solemnly closes his epistle with a magnificent ascription of glory to the blessed God, as one that terminated all in the praise and glory of God, and studied to return all to him, seeing all is of him and from him. He does, as it were, breathe out his soul to these Romans in the praise of God, choosing to make that the end of his epistle which he made the end of his life. Observe here,
 

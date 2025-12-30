@@ -8,17 +8,17 @@ The apostle proceeds to further exhortations to several duties, to be like-minde
 
 ## Brotherly Love Recommended; Glory and Condescension of Christ. (a. d. 62.)
 
-> <sup>1</sup> If *there be* therefore any consolation in Christ, if any comfort of love, if any fellowship of the Spirit, if any bowels and mercies,  
-> <sup>2</sup> Fulfil ye my joy, that ye be likeminded, having the same love, *being* of one accord, of one mind.  
-> <sup>3</sup> *Let* nothing *be done* through strife or vainglory; but in lowliness of mind let each esteem other better than themselves.  
-> <sup>4</sup> Look not every man on his own things, but every man also on the things of others.  
-> <sup>5</sup> Let this mind be in you, which was also in Christ Jesus:  
-> <sup>6</sup> Who, being in the form of God, thought it not robbery to be equal with God:  
-> <sup>7</sup> But made himself of no reputation, and took upon him the form of a servant, and was made in the likeness of men:  
-> <sup>8</sup> And being found in fashion as a man, he humbled himself, and became obedient unto death, even the death of the cross.  
-> <sup>9</sup> Wherefore God also hath highly exalted him, and given him a name which is above every name:  
-> <sup>10</sup> That at the name of Jesus every knee should bow, of *things* in heaven, and *things* in earth, and *things* under the earth;  
-> <sup>11</sup> And *that* every tongue should confess that Jesus Christ *is* Lord, to the glory of God the Father.  
+> **¹** If *there be* therefore any consolation in Christ, if any comfort of love, if any fellowship of the Spirit, if any bowels and mercies,  
+> **²** Fulfil ye my joy, that ye be likeminded, having the same love, *being* of one accord, of one mind.  
+> **³** *Let* nothing *be done* through strife or vainglory; but in lowliness of mind let each esteem other better than themselves.  
+> **⁴** Look not every man on his own things, but every man also on the things of others.  
+> **⁵** Let this mind be in you, which was also in Christ Jesus:  
+> **⁶** Who, being in the form of God, thought it not robbery to be equal with God:  
+> **⁷** But made himself of no reputation, and took upon him the form of a servant, and was made in the likeness of men:  
+> **⁸** And being found in fashion as a man, he humbled himself, and became obedient unto death, even the death of the cross.  
+> **⁹** Wherefore God also hath highly exalted him, and given him a name which is above every name:  
+> **¹⁰** That at the name of Jesus every knee should bow, of *things* in heaven, and *things* in earth, and *things* under the earth;  
+> **¹¹** And *that* every tongue should confess that Jesus Christ *is* Lord, to the glory of God the Father.  
 
 The apostle proceeds in this chapter where he left off in the last, with further exhortations to Christian duties. He presses them largely to like-mindedness and lowly-mindedness, in conformity to the example of the Lord Jesus, the great pattern of humility and love. Here we may observe,
 
@@ -36,8 +36,8 @@ II\. Here is a gospel pattern proposed to our imitation, and that is the example
 
 ## Practical Religion. (a. d. 62.)
 
-> <sup>12</sup> Wherefore, my beloved, as ye have always obeyed, not as in my presence only, but now much more in my absence, work out your own salvation with fear and trembling.  
-> <sup>13</sup> For it is God which worketh in you both to will and to do of *his* good pleasure.  
+> **¹²** Wherefore, my beloved, as ye have always obeyed, not as in my presence only, but now much more in my absence, work out your own salvation with fear and trembling.  
+> **¹³** For it is God which worketh in you both to will and to do of *his* good pleasure.  
 
 I\. He exhorts them to diligence and seriousness in the Christian course: *Work out your own salvation.* It is the salvation of our souls (1Pe 1:9), and our eternal salvation (Heb 5:9), and contains deliverance from all the evils sin had brought upon us and exposed us to, and the possession of all good and whatsoever is necessary to our complete and final happiness. Observe, It concerns us above all things to secure the welfare of our souls: whatever becomes of other things, let us take care of our best interests. It is our own salvation, the salvation of our own souls. It is not for us to judge other people; we have enough to do to look to ourselves; and, though we must promote the common salvation (Jude 1:3) as much as we can, yet we must upon no account neglect our own. We are required to *work out our salvation,* *katergazesthe.* The word signifies *working thoroughly* at a thing, and taking *true pains.* Observe, We must be diligent in the use of all the means which conduce to our salvation. We must not only work at our salvation, by doing something now and then about it; but we must work out our salvation, by doing all that is to be done, and persevering therein to the end. Salvation is the great thing we should mind, and set our hearts upon; and we cannot attain salvation without the utmost care and diligence. He adds, *With fear and trembling,* that is, with great care and circumspection: "Trembling for fear lest you miscarry and come short. Be careful to do every thing in religion in the best manner, and fear lest under all your advantages you should so much as *seem to come short,*" Heb 4:1. Fear is a great guard and preservative from evil.
 
@@ -45,28 +45,28 @@ II\. He urges this from the consideration of their readiness always to obey the 
 
 ## Practical Religion. (a. d. 62.)
 
-> <sup>14</sup> Do all things without murmurings and disputings:  
-> <sup>15</sup> That ye may be blameless and harmless, the sons of God, without rebuke, in the midst of a crooked and perverse nation, among whom ye shine as lights in the world;  
-> <sup>16</sup> Holding forth the word of life; that I may rejoice in the day of Christ, that I have not run in vain, neither laboured in vain.  
-> <sup>17</sup> Yea, and if I be offered upon the sacrifice and service of your faith, I joy, and rejoice with you all.  
-> <sup>18</sup> For the same cause also do ye joy, and rejoice with me.  
+> **¹⁴** Do all things without murmurings and disputings:  
+> **¹⁵** That ye may be blameless and harmless, the sons of God, without rebuke, in the midst of a crooked and perverse nation, among whom ye shine as lights in the world;  
+> **¹⁶** Holding forth the word of life; that I may rejoice in the day of Christ, that I have not run in vain, neither laboured in vain.  
+> **¹⁷** Yea, and if I be offered upon the sacrifice and service of your faith, I joy, and rejoice with you all.  
+> **¹⁸** For the same cause also do ye joy, and rejoice with me.  
 
 The apostle exhorts them in these verses to adorn their Christian profession by a suitable temper and behaviour, in several instances. 1. By a cheerful obedience to the commands of God (Php 2:14): "*Do all things,* do your duty in every branch of it, *without murmurings.* Do it, and do not find fault with it. Mind your work, and do not quarrel with it." God's commands were given to be obeyed, not to be disputed. This greatly adorns our profession, and shows we serve a good Master, whose service is freedom and whose work is its own reward. 2. By peaceableness and love one to another. "Do all things *without disputing,* wrangling, and debating one another; because the light of truth and the life of religion are often lost in the heats and mists of disputation." 3. By a blameless conversation towards all men (Php 2:15): "*That you may be blameless and harmless, the sons of God, without rebuke;* that you be not injurious to any in word or deed, and give no just occasion of offence." We should endeavour not only to be harmless, but to be blameless; not only not to do hurt, but not to come under the just suspicion of it. *Blameless and sincere;* so some read it. Blameless before men, sincere towards God. The *sons of God.* It becomes those to be blameless and harmless who stand in such a relation, and are favoured with such a privilege. The children of God should differ from the sons of men. *Without rebuke*—*amometa.* Momus was a carping deity among the Greeks, mentioned by Hesiod and Lucian, who did nothing himself, and found fault with every body and every thing. From him all carpers at other men, and rigid censurers of their works, were called *Momi.* The sense of the expression is, "Walk so circumspectly that Momus himself may have no occasion to cavil at you, that the severest censurer may find no fault with you." We should aim and endeavour, not only to get to heaven, but to get thither without a blot; and, like Demetrius, to *have a good report of all men, and of the truth,* 3Jo 1:12. *In the midst of a crooked and perverse generation;* that is, among the heathens, and those who are without. Observe, Where there is no true religion, little is to be expected but crookedness and perverseness; and the more crooked and perverse others are among whom we live, and the more apt to cavil, the more careful we should be to keep ourselves blameless and harmless. Abraham and Lot must not *strive, because the Canaanite and Perizzite dwelt in the land,* Ge 13:7. *Among whom you shine as lights in the world.* Christ is the light of the world, and good Christians are lights in the world. When God raises up a good man in any place, he sets up a light in that place. Or it may be read imperatively: *Among whom shine you as lights:* compare Mt 5:16, *Let your light so shine before men.* Christians should endeavour not only to approve themselves to God, but to recommend themselves to others, that they may also glorify God. They must shine as well as be sincere.—*Holding forth the word of life,* Php 2:16. The gospel is called the word of life because it reveals and proposes to us eternal life through Jesus Christ. *Life and immortality are brought to light by the gospel,* 2Ti 1:10. It is our duty not only to hold fast, but to hold forth the word of life; not only to hold it fast for our own benefit, but to hold it forth for the benefit of others, to hold it forth as the candlestick holds forth the candle, which makes it appear to advantage all around, or as the luminaries of the heavens, which shed their influence far and wide. This Paul tells them would be his joy: "*That I may rejoice in the day of Christ;* not only rejoice in your stedfastness, but in your usefulness." He would have them think his pains well bestowed, and that *he had not run in vain, nor laboured in vain.* Observe, (1.) The work of the ministry requires the putting forth of the whole man: all that is within us is little enough to be employed in it; as in running and labouring. Running denotes vehemence and vigour, and continual pressing forward; labour denotes constancy and close application. (2.) It is a great joy to ministers when they perceive that they have not *run in vain, nor laboured in vain;* and it will be their rejoicing in the day of Christ, when their converts will be their crown. *What is our hope, or joy, or crown of rejoicing? Are not even you in the presence of our Lord Jesus Christ at his coming? For you are our glory and joy,* 1Th 2:19,20. The apostle not only ran and laboured for them with satisfaction, but shows that he was ready to suffer for their good (Php 2:17): *Yea, and if I be offered upon the sacrifice and service of your faith, I joy and rejoice with you all.* He could reckon himself happy if he could promote the honour of Christ, the edification of the church, and the welfare of the souls of men; though it were not only by hazarding, but by laying down, his life: he could willingly be a sacrifice at their altars, to serve the faith of God's elect. Could Paul think it worth while to shed his blood for the service of the church, and shall we think it much to take a little pains? Is not that worth our labour which he thought worth his life? *If I be offered,* or *poured* out as the wine of the *drink-offerings,* *spendomai.* 2Ti 4:6, *I am now ready to be offered.* He could rejoice to seal his doctrine with his blood (Php 2:18): *For the same cause also do you joy and rejoice with me.* It is the will of God that good Christians should be much in rejoicing; and those who are happy in good ministers have a great deal of reason to joy and rejoice with them. If the minister loves the people, and is willing to spend and be spent for their welfare, the people have reason to love the minister and to *joy and rejoice with him.*
 
 ## Praise of Timothy and Epaphroditus. (a. d. 62.)
 
-> <sup>19</sup> But I trust in the Lord Jesus to send Timotheus shortly unto you, that I also may be of good comfort, when I know your state.  
-> <sup>20</sup> For I have no man likeminded, who will naturally care for your state.  
-> <sup>21</sup> For all seek their own, not the things which are Jesus Christ's.  
-> <sup>22</sup> But ye know the proof of him, that, as a son with the father, he hath served with me in the gospel.  
-> <sup>23</sup> Him therefore I hope to send presently, so soon as I shall see how it will go with me.  
-> <sup>24</sup> But I trust in the Lord that I also myself shall come shortly.  
-> <sup>25</sup> Yet I supposed it necessary to send to you Epaphroditus, my brother, and companion in labour, and fellowsoldier, but your messenger, and he that ministered to my wants.  
-> <sup>26</sup> For he longed after you all, and was full of heaviness, because that ye had heard that he had been sick.  
-> <sup>27</sup> For indeed he was sick nigh unto death: but God had mercy on him; and not on him only, but on me also, lest I should have sorrow upon sorrow.  
-> <sup>28</sup> I sent him therefore the more carefully, that, when ye see him again, ye may rejoice, and that I may be the less sorrowful.  
-> <sup>29</sup> Receive him therefore in the Lord with all gladness; and hold such in reputation:  
-> <sup>30</sup> Because for the work of Christ he was nigh unto death, not regarding his life, to supply your lack of service toward me.  
+> **¹⁹** But I trust in the Lord Jesus to send Timotheus shortly unto you, that I also may be of good comfort, when I know your state.  
+> **²⁰** For I have no man likeminded, who will naturally care for your state.  
+> **²¹** For all seek their own, not the things which are Jesus Christ's.  
+> **²²** But ye know the proof of him, that, as a son with the father, he hath served with me in the gospel.  
+> **²³** Him therefore I hope to send presently, so soon as I shall see how it will go with me.  
+> **²⁴** But I trust in the Lord that I also myself shall come shortly.  
+> **²⁵** Yet I supposed it necessary to send to you Epaphroditus, my brother, and companion in labour, and fellowsoldier, but your messenger, and he that ministered to my wants.  
+> **²⁶** For he longed after you all, and was full of heaviness, because that ye had heard that he had been sick.  
+> **²⁷** For indeed he was sick nigh unto death: but God had mercy on him; and not on him only, but on me also, lest I should have sorrow upon sorrow.  
+> **²⁸** I sent him therefore the more carefully, that, when ye see him again, ye may rejoice, and that I may be the less sorrowful.  
+> **²⁹** Receive him therefore in the Lord with all gladness; and hold such in reputation:  
+> **³⁰** Because for the work of Christ he was nigh unto death, not regarding his life, to supply your lack of service toward me.  
 
 Paul takes particular notice of two good ministers; for though he was himself a great apostle, and *laboured more abundantly than they all,* yet he took all occasions to speak with respect of those who were far his inferiors.
 

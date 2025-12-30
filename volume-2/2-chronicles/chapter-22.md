@@ -8,15 +8,15 @@ We read, in the foregoing chapter, of the carrying away of Jehoram's sons and hi
 
 ## Ahaziah Slain by Jehu. (b. c. 884.)
 
-> <sup>1</sup> And the inhabitants of Jerusalem made Ahaziah his youngest son king in his stead: for the band of men that came with the Arabians to the camp had slain all the eldest. So Ahaziah the son of Jehoram king of Judah reigned.  
-> <sup>2</sup> Forty and two years old *was* Ahaziah when he began to reign, and he reigned one year in Jerusalem. His mother's name also *was* Athaliah the daughter of Omri.  
-> <sup>3</sup> He also walked in the ways of the house of Ahab: for his mother was his counsellor to do wickedly.  
-> <sup>4</sup> Wherefore he did evil in the sight of the LORD like the house of Ahab: for they were his counsellors after the death of his father to his destruction.  
-> <sup>5</sup> He walked also after their counsel, and went with Jehoram the son of Ahab king of Israel to war against Hazael king of Syria at Ramoth-gilead: and the Syrians smote Joram.  
-> <sup>6</sup> And he returned to be healed in Jezreel because of the wounds which were given him at Ramah, when he fought with Hazael king of Syria. And Azariah the son of Jehoram king of Judah went down to see Jehoram the son of Ahab at Jezreel, because he was sick.  
-> <sup>7</sup> And the destruction of Ahaziah was of God by coming to Joram: for when he was come, he went out with Jehoram against Jehu the son of Nimshi, whom the LORD had anointed to cut off the house of Ahab.  
-> <sup>8</sup> And it came to pass, that, when Jehu was executing judgment upon the house of Ahab, and found the princes of Judah, and the sons of the brethren of Ahaziah, that ministered to Ahaziah, he slew them.  
-> <sup>9</sup> And he sought Ahaziah: and they caught him, (for he was hid in Samaria,) and brought him to Jehu: and when they had slain him, they buried him: Because, said they, he *is* the son of Jehoshaphat, who sought the LORD with all his heart. So the house of Ahaziah had no power to keep still the kingdom.  
+> **¹** And the inhabitants of Jerusalem made Ahaziah his youngest son king in his stead: for the band of men that came with the Arabians to the camp had slain all the eldest. So Ahaziah the son of Jehoram king of Judah reigned.  
+> **²** Forty and two years old *was* Ahaziah when he began to reign, and he reigned one year in Jerusalem. His mother's name also *was* Athaliah the daughter of Omri.  
+> **³** He also walked in the ways of the house of Ahab: for his mother was his counsellor to do wickedly.  
+> **⁴** Wherefore he did evil in the sight of the LORD like the house of Ahab: for they were his counsellors after the death of his father to his destruction.  
+> **⁵** He walked also after their counsel, and went with Jehoram the son of Ahab king of Israel to war against Hazael king of Syria at Ramoth-gilead: and the Syrians smote Joram.  
+> **⁶** And he returned to be healed in Jezreel because of the wounds which were given him at Ramah, when he fought with Hazael king of Syria. And Azariah the son of Jehoram king of Judah went down to see Jehoram the son of Ahab at Jezreel, because he was sick.  
+> **⁷** And the destruction of Ahaziah was of God by coming to Joram: for when he was come, he went out with Jehoram against Jehu the son of Nimshi, whom the LORD had anointed to cut off the house of Ahab.  
+> **⁸** And it came to pass, that, when Jehu was executing judgment upon the house of Ahab, and found the princes of Judah, and the sons of the brethren of Ahaziah, that ministered to Ahaziah, he slew them.  
+> **⁹** And he sought Ahaziah: and they caught him, (for he was hid in Samaria,) and brought him to Jehu: and when they had slain him, they buried him: Because, said they, he *is* the son of Jehoshaphat, who sought the LORD with all his heart. So the house of Ahaziah had no power to keep still the kingdom.  
 
 We have here an account of the reign of Ahaziah, a short reign (of one year only), yet long enough, unless it had been better. He was called *Jeho-ahaz* (2Ch 21:17); here he is called *Ahaz-iah,* which is the same name and of the same signification, only the words of which it is compounded are transposed. He is here said to be forty-two years old when he began to reign (2Ch 22:2), which could not be, for his father, his immediate predecessor, was but forty when he died, and it is said (2Ki 8:26) that he was twenty-two years old when *he began to reign.* Some make this forty-two to be the age of his mother Athaliah, for in the original it is, *he was the son of forty-two years,* that is, the son of a mother that was of that age; and justly is her age put for his, in reproach to him, because she managed him, and did what she would—she, in effect, reigned, and he had little more than the title of king. Many good expositors are ready to allow that this, with some few more such difficulties, arise from the mistake of some transcriber, who put forty-two for twenty-two, and the copies by which the error should have been corrected might be lost. Many ancient translations read it here twenty-two. Few books are now printed without some *errata,* yet the authors do not therefore disown them, nor are the errors of the press imputed to the author, but the candid reader amends them by the sense, or by comparing them with some other part of the work, as we may easily do this.
 
@@ -30,9 +30,9 @@ III\. He was counselled by them to his destruction. So it proved. Those that cou
 
 ## Athaliah Usurps the Throne. (b. c. 884.)
 
-> <sup>10</sup> But when Athaliah the mother of Ahaziah saw that her son was dead, she arose and destroyed all the seed royal of the house of Judah.  
-> <sup>11</sup> But Jehoshabeath, the daughter of the king, took Joash the son of Ahaziah, and stole him from among the king's sons that were slain, and put him and his nurse in a bedchamber. So Jehoshabeath, the daughter of king Jehoram, the wife of Jehoiada the priest, (for she was the sister of Ahaziah,) hid him from Athaliah, so that she slew him not.  
-> <sup>12</sup> And he was with them hid in the house of God six years: and Athaliah reigned over the land.  
+> **¹⁰** But when Athaliah the mother of Ahaziah saw that her son was dead, she arose and destroyed all the seed royal of the house of Judah.  
+> **¹¹** But Jehoshabeath, the daughter of the king, took Joash the son of Ahaziah, and stole him from among the king's sons that were slain, and put him and his nurse in a bedchamber. So Jehoshabeath, the daughter of king Jehoram, the wife of Jehoiada the priest, (for she was the sister of Ahaziah,) hid him from Athaliah, so that she slew him not.  
+> **¹²** And he was with them hid in the house of God six years: and Athaliah reigned over the land.  
 
 We have here what we had before, 2Ki 11:1-16, etc. 1. A wicked woman endeavouring to destroy the house of David, that she might set up a throne for herself upon the ruins of it. Athaliah barbarously cut off all the seed-royal (2Ch 22:10), perhaps intending to transmit the crown of Judah after herself to some of her own relations, that though her family was cut off in Israel by Jehu it might be planted in Judah. 2. A good woman effectually preserving it from being wholly extirpated. One of the late king's sons, a child of a year old, was rescued from among the dead, and saved alive by the care of Jehoiada's wife (2Ch 22:11,12), that a *lamp might be ordained for God's anointed;* for no word of God shall fall to the ground.
 

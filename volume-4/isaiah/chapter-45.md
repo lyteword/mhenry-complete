@@ -8,10 +8,10 @@ Cyrus was nominated, in the foregoing chapter, to be God's shepherd; more is sai
 
 ## Prophecies Concerning Cyrus. (b. c. 708.)
 
-> <sup>1</sup> Thus saith the LORD to his anointed, to Cyrus, whose right hand I have holden, to subdue nations before him; and I will loose the loins of kings, to open before him the two leaved gates; and the gates shall not be shut;  
-> <sup>2</sup> I will go before thee, and make the crooked places straight: I will break in pieces the gates of brass, and cut in sunder the bars of iron:  
-> <sup>3</sup> And I will give thee the treasures of darkness, and hidden riches of secret places, that thou mayest know that I, the LORD, which call *thee* by thy name, *am* the God of Israel.  
-> <sup>4</sup> For Jacob my servant's sake, and Israel mine elect, I have even called thee by thy name: I have surnamed thee, though thou hast not known me.  
+> **¹** Thus saith the LORD to his anointed, to Cyrus, whose right hand I have holden, to subdue nations before him; and I will loose the loins of kings, to open before him the two leaved gates; and the gates shall not be shut;  
+> **²** I will go before thee, and make the crooked places straight: I will break in pieces the gates of brass, and cut in sunder the bars of iron:  
+> **³** And I will give thee the treasures of darkness, and hidden riches of secret places, that thou mayest know that I, the LORD, which call *thee* by thy name, *am* the God of Israel.  
+> **⁴** For Jacob my servant's sake, and Israel mine elect, I have even called thee by thy name: I have surnamed thee, though thou hast not known me.  
 
 Cyrus was a Mede, descended (as some say) from Astyages king of Media. The pagan writers are not agreed in their accounts of his origin. Some tell us that in his infancy he was an outcast, left exposed, and was saved from perishing by a herdsman's wife. However, it is agreed that, being a man of an active genius, he soon made himself very considerable, especially when Crœsus king of Lydia made a descent upon his country, which he not only repulsed, but revenged, prosecuting the advantages he had gained against Crœsus with such vigour that in a little time he took Sardis and made himself master of the rich kingdom of Lydia and the many provinces that then belonged to it. This made him very great (for Crœsus was rich to a proverb) and enabled him to pursue his victories in many countries; but it was nearly ten years afterwards that, in conjunction with his uncle Darius and with the forces of Persia, he made this famous attack upon Babylon, which is here foretold, and which we have the history of Dan. 5. Babylon had now grown exorbitantly rich and strong. It was forty-five miles in compass (some say more): the walls were thirty-two feet thick and 100 cubits high. Some say, They were so thick that six chariots might drive abreast upon them; others say, They were fifty cubits thick and 200 high. Cyrus seems to have had a great ambition to make himself master of this place, and to have projected it long; and at last he performed it. Now here, 210 years before it came to pass, we are told,
 
@@ -29,12 +29,12 @@ II\. We are here told what God designed in doing all this for Cyrus. What Cyrus 
 
 ## The Divine Dominion. (b. c. 708.)
 
-> <sup>5</sup> I *am* the LORD, and *there is* none else, *there is* no God beside me: I girded thee, though thou hast not known me:  
-> <sup>6</sup> That they may know from the rising of the sun, and from the west, that *there is* none beside me. I *am* the LORD, and *there is* none else.  
-> <sup>7</sup> I form the light, and create darkness: I make peace, and create evil: I the LORD do all these *things.*  
-> <sup>8</sup> Drop down, ye heavens, from above, and let the skies pour down righteousness: let the earth open, and let them bring forth salvation, and let righteousness spring up together; I the LORD have created it.  
-> <sup>9</sup> Woe unto him that striveth with his Maker! *Let* the potsherd *strive* with the potsherds of the earth. Shall the clay say to him that fashioneth it, What makest thou? or thy work, He hath no hands?  
-> <sup>10</sup> Woe unto him that saith unto *his* father, What begettest thou? or to the woman, What hast thou brought forth?  
+> **⁵** I *am* the LORD, and *there is* none else, *there is* no God beside me: I girded thee, though thou hast not known me:  
+> **⁶** That they may know from the rising of the sun, and from the west, that *there is* none beside me. I *am* the LORD, and *there is* none else.  
+> **⁷** I form the light, and create darkness: I make peace, and create evil: I the LORD do all these *things.*  
+> **⁸** Drop down, ye heavens, from above, and let the skies pour down righteousness: let the earth open, and let them bring forth salvation, and let righteousness spring up together; I the LORD have created it.  
+> **⁹** Woe unto him that striveth with his Maker! *Let* the potsherd *strive* with the potsherds of the earth. Shall the clay say to him that fashioneth it, What makest thou? or thy work, He hath no hands?  
+> **¹⁰** Woe unto him that saith unto *his* father, What begettest thou? or to the woman, What hast thou brought forth?  
 
 God here asserts his sole and sovereign dominion, as that which he designed to prove and manifest to the world in all the great things he did for Cyrus and by him. Observe,
 
@@ -50,15 +50,15 @@ III\. How this doctrine is here improved and applied.
 
 ## The Power of God; Encouragement to the People of God. (b. c. 708.)
 
-> <sup>11</sup> Thus saith the LORD, the Holy One of Israel, and his Maker, Ask me of things to come concerning my sons, and concerning the work of my hands command ye me.  
-> <sup>12</sup> I have made the earth, and created man upon it: I, *even* my hands, have stretched out the heavens, and all their host have I commanded.  
-> <sup>13</sup> I have raised him up in righteousness, and I will direct all his ways: he shall build my city, and he shall let go my captives, not for price nor reward, saith the LORD of hosts.  
-> <sup>14</sup> Thus saith the LORD, The labour of Egypt, and merchandise of Ethiopia and of the Sabeans, men of stature, shall come over unto thee, and they shall be thine: they shall come after thee; in chains they shall come over, and they shall fall down unto thee, they shall make supplication unto thee, *saying,* Surely God *is* in thee; and *there is* none else, *there is* no God.  
-> <sup>15</sup> Verily thou *art* a God that hidest thyself, O God of Israel, the Saviour.  
-> <sup>16</sup> They shall be ashamed, and also confounded, all of them: they shall go to confusion together *that are* makers of idols.  
-> <sup>17</sup> *But* Israel shall be saved in the LORD with an everlasting salvation: ye shall not be ashamed nor confounded world without end.  
-> <sup>18</sup> For thus saith the LORD that created the heavens; God himself that formed the earth and made it; he hath established it, he created it not in vain, he formed it to be inhabited: I *am* the LORD; and *there is* none else.  
-> <sup>19</sup> I have not spoken in secret, in a dark place of the earth: I said not unto the seed of Jacob, Seek ye me in vain: I the LORD speak righteousness, I declare things that are right.  
+> **¹¹** Thus saith the LORD, the Holy One of Israel, and his Maker, Ask me of things to come concerning my sons, and concerning the work of my hands command ye me.  
+> **¹²** I have made the earth, and created man upon it: I, *even* my hands, have stretched out the heavens, and all their host have I commanded.  
+> **¹³** I have raised him up in righteousness, and I will direct all his ways: he shall build my city, and he shall let go my captives, not for price nor reward, saith the LORD of hosts.  
+> **¹⁴** Thus saith the LORD, The labour of Egypt, and merchandise of Ethiopia and of the Sabeans, men of stature, shall come over unto thee, and they shall be thine: they shall come after thee; in chains they shall come over, and they shall fall down unto thee, they shall make supplication unto thee, *saying,* Surely God *is* in thee; and *there is* none else, *there is* no God.  
+> **¹⁵** Verily thou *art* a God that hidest thyself, O God of Israel, the Saviour.  
+> **¹⁶** They shall be ashamed, and also confounded, all of them: they shall go to confusion together *that are* makers of idols.  
+> **¹⁷** *But* Israel shall be saved in the LORD with an everlasting salvation: ye shall not be ashamed nor confounded world without end.  
+> **¹⁸** For thus saith the LORD that created the heavens; God himself that formed the earth and made it; he hath established it, he created it not in vain, he formed it to be inhabited: I *am* the LORD; and *there is* none else.  
+> **¹⁹** I have not spoken in secret, in a dark place of the earth: I said not unto the seed of Jacob, Seek ye me in vain: I the LORD speak righteousness, I declare things that are right.  
 
 The people of God in captivity, who reconciled themselves to the will of God in their affliction and were content to wait his time for their deliverance, are here assured that they should not wait in vain.
 
@@ -88,12 +88,12 @@ VII\. They are engaged for ever to cleave to God, and never to desert him, never
 
 ## The Folly of Idolatry; Salvation in Christ. (b. c. 708.)
 
-> <sup>20</sup> Assemble yourselves and come; draw near together, ye *that are* escaped of the nations: they have no knowledge that set up the wood of their graven image, and pray unto a god *that* cannot save.  
-> <sup>21</sup> Tell ye, and bring *them* near; yea, let them take counsel together: who hath declared this from ancient time? *who* hath told it from that time? *have* not I the LORD? and *there is* no God else beside me; a just God and a Saviour; *there is* none beside me.  
-> <sup>22</sup> Look unto me, and be ye saved, all the ends of the earth: for I *am* God, and *there is* none else.  
-> <sup>23</sup> I have sworn by myself, the word is gone out of my mouth *in* righteousness, and shall not return, That unto me every knee shall bow, every tongue shall swear.  
-> <sup>24</sup> Surely, shall *one* say, in the LORD have I righteousness and strength: *even* to him shall *men* come; and all that are incensed against him shall be ashamed.  
-> <sup>25</sup> In the LORD shall all the seed of Israel be justified, and shall glory.  
+> **²⁰** Assemble yourselves and come; draw near together, ye *that are* escaped of the nations: they have no knowledge that set up the wood of their graven image, and pray unto a god *that* cannot save.  
+> **²¹** Tell ye, and bring *them* near; yea, let them take counsel together: who hath declared this from ancient time? *who* hath told it from that time? *have* not I the LORD? and *there is* no God else beside me; a just God and a Saviour; *there is* none beside me.  
+> **²²** Look unto me, and be ye saved, all the ends of the earth: for I *am* God, and *there is* none else.  
+> **²³** I have sworn by myself, the word is gone out of my mouth *in* righteousness, and shall not return, That unto me every knee shall bow, every tongue shall swear.  
+> **²⁴** Surely, shall *one* say, in the LORD have I righteousness and strength: *even* to him shall *men* come; and all that are incensed against him shall be ashamed.  
+> **²⁵** In the LORD shall all the seed of Israel be justified, and shall glory.  
 
 What here is said is intended, as before,
 

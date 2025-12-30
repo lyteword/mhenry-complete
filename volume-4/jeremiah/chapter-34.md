@@ -8,13 +8,13 @@ In this chapter we have two messages which God sent by Jeremiah. I. One to foret
 
 ## Captivity of Zedekiah Foretold; The Babylonish Captivity Predicted. (b. c. 589.)
 
-> <sup>1</sup> The word which came unto Jeremiah from the LORD, when Nebuchadnezzar king of Babylon, and all his army, and all the kingdoms of the earth of his dominion, and all the people, fought against Jerusalem, and against all the cities thereof, saying,  
-> <sup>2</sup> Thus saith the LORD, the God of Israel; Go and speak to Zedekiah king of Judah, and tell him, Thus saith the LORD; Behold, I will give this city into the hand of the king of Babylon, and he shall burn it with fire:  
-> <sup>3</sup> And thou shalt not escape out of his hand, but shalt surely be taken, and delivered into his hand; and thine eyes shall behold the eyes of the king of Babylon, and he shall speak with thee mouth to mouth, and thou shalt go to Babylon.  
-> <sup>4</sup> Yet hear the word of the LORD, O Zedekiah king of Judah; Thus saith the LORD of thee, Thou shalt not die by the sword:  
-> <sup>5</sup> *But* thou shalt die in peace: and with the burnings of thy fathers, the former kings which were before thee, so shall they burn *odours* for thee; and they will lament thee, *saying,* Ah lord! for I have pronounced the word, saith the LORD.  
-> <sup>6</sup> Then Jeremiah the prophet spake all these words unto Zedekiah king of Judah in Jerusalem,  
-> <sup>7</sup> When the king of Babylon's army fought against Jerusalem, and against all the cities of Judah that were left, against Lachish, and against Azekah: for these defenced cities remained of the cities of Judah.  
+> **¹** The word which came unto Jeremiah from the LORD, when Nebuchadnezzar king of Babylon, and all his army, and all the kingdoms of the earth of his dominion, and all the people, fought against Jerusalem, and against all the cities thereof, saying,  
+> **²** Thus saith the LORD, the God of Israel; Go and speak to Zedekiah king of Judah, and tell him, Thus saith the LORD; Behold, I will give this city into the hand of the king of Babylon, and he shall burn it with fire:  
+> **³** And thou shalt not escape out of his hand, but shalt surely be taken, and delivered into his hand; and thine eyes shall behold the eyes of the king of Babylon, and he shall speak with thee mouth to mouth, and thou shalt go to Babylon.  
+> **⁴** Yet hear the word of the LORD, O Zedekiah king of Judah; Thus saith the LORD of thee, Thou shalt not die by the sword:  
+> **⁵** *But* thou shalt die in peace: and with the burnings of thy fathers, the former kings which were before thee, so shall they burn *odours* for thee; and they will lament thee, *saying,* Ah lord! for I have pronounced the word, saith the LORD.  
+> **⁶** Then Jeremiah the prophet spake all these words unto Zedekiah king of Judah in Jerusalem,  
+> **⁷** When the king of Babylon's army fought against Jerusalem, and against all the cities of Judah that were left, against Lachish, and against Azekah: for these defenced cities remained of the cities of Judah.  
 
 This prophecy concerning Zedekiah was delivered to Jeremiah, and by him to the parties concerned, before he was shut up in the prison, for we find this prediction here made the ground of his commitment, as appears by the recital of some passages out of it, Jer 32:4. Observe,
 
@@ -26,21 +26,21 @@ III\. Jeremiah's faithfulness in delivering this message. Though he knew it woul
 
 ## Transient Reformation; The Servants Re-enslaved. (b. c. 589.)
 
-> <sup>8</sup> *This is* the word that came unto Jeremiah from the LORD, after that the king Zedekiah had made a covenant with all the people which *were* at Jerusalem, to proclaim liberty unto them;  
-> <sup>9</sup> That every man should let his manservant, and every man his maidservant, *being* a Hebrew or a Hebrewess, go free; that none should serve himself of them, *to wit,* of a Jew his brother.  
-> <sup>10</sup> Now when all the princes, and all the people, which had entered into the covenant, heard that every one should let his manservant, and every one his maidservant, go free, that none should serve themselves of them any more, then they obeyed, and let *them* go.  
-> <sup>11</sup> But afterward they turned, and caused the servants and the handmaids, whom they had let go free, to return, and brought them into subjection for servants and for handmaids.  
-> <sup>12</sup> Therefore the word of the LORD came to Jeremiah from the LORD, saying,  
-> <sup>13</sup> Thus saith the LORD, the God of Israel; I made a covenant with your fathers in the day that I brought them forth out of the land of Egypt, out of the house of bondmen, saying,  
-> <sup>14</sup> At the end of seven years let ye go every man his brother an Hebrew, which hath been sold unto thee; and when he hath served thee six years, thou shalt let him go free from thee: but your fathers hearkened not unto me, neither inclined their ear.  
-> <sup>15</sup> And ye were now turned, and had done right in my sight, in proclaiming liberty every man to his neighbour; and ye had made a covenant before me in the house which is called by my name:  
-> <sup>16</sup> But ye turned and polluted my name, and caused every man his servant, and every man his handmaid, whom ye had set at liberty at their pleasure, to return, and brought them into subjection, to be unto you for servants and for handmaids.  
-> <sup>17</sup> Therefore thus saith the LORD; Ye have not hearkened unto me, in proclaiming liberty, every one to his brother, and every man to his neighbour: behold, I proclaim a liberty for you, saith the LORD, to the sword, to the pestilence, and to the famine; and I will make you to be removed into all the kingdoms of the earth.  
-> <sup>18</sup> And I will give the men that have transgressed my covenant, which have not performed the words of the covenant which they had made before me, when they cut the calf in twain, and passed between the parts thereof,  
-> <sup>19</sup> The princes of Judah, and the princes of Jerusalem, the eunuchs, and the priests, and all the people of the land, which passed between the parts of the calf;  
-> <sup>20</sup> I will even give them into the hand of their enemies, and into the hand of them that seek their life: and their dead bodies shall be for meat unto the fowls of the heaven, and to the beasts of the earth.  
-> <sup>21</sup> And Zedekiah king of Judah and his princes will I give into the hand of their enemies, and into the hand of them that seek their life, and into the hand of the king of Babylon's army, which are gone up from you.  
-> <sup>22</sup> Behold, I will command, saith the LORD, and cause them to return to this city; and they shall fight against it, and take it, and burn it with fire: and I will make the cities of Judah a desolation without an inhabitant.  
+> **⁸** *This is* the word that came unto Jeremiah from the LORD, after that the king Zedekiah had made a covenant with all the people which *were* at Jerusalem, to proclaim liberty unto them;  
+> **⁹** That every man should let his manservant, and every man his maidservant, *being* a Hebrew or a Hebrewess, go free; that none should serve himself of them, *to wit,* of a Jew his brother.  
+> **¹⁰** Now when all the princes, and all the people, which had entered into the covenant, heard that every one should let his manservant, and every one his maidservant, go free, that none should serve themselves of them any more, then they obeyed, and let *them* go.  
+> **¹¹** But afterward they turned, and caused the servants and the handmaids, whom they had let go free, to return, and brought them into subjection for servants and for handmaids.  
+> **¹²** Therefore the word of the LORD came to Jeremiah from the LORD, saying,  
+> **¹³** Thus saith the LORD, the God of Israel; I made a covenant with your fathers in the day that I brought them forth out of the land of Egypt, out of the house of bondmen, saying,  
+> **¹⁴** At the end of seven years let ye go every man his brother an Hebrew, which hath been sold unto thee; and when he hath served thee six years, thou shalt let him go free from thee: but your fathers hearkened not unto me, neither inclined their ear.  
+> **¹⁵** And ye were now turned, and had done right in my sight, in proclaiming liberty every man to his neighbour; and ye had made a covenant before me in the house which is called by my name:  
+> **¹⁶** But ye turned and polluted my name, and caused every man his servant, and every man his handmaid, whom ye had set at liberty at their pleasure, to return, and brought them into subjection, to be unto you for servants and for handmaids.  
+> **¹⁷** Therefore thus saith the LORD; Ye have not hearkened unto me, in proclaiming liberty, every one to his brother, and every man to his neighbour: behold, I proclaim a liberty for you, saith the LORD, to the sword, to the pestilence, and to the famine; and I will make you to be removed into all the kingdoms of the earth.  
+> **¹⁸** And I will give the men that have transgressed my covenant, which have not performed the words of the covenant which they had made before me, when they cut the calf in twain, and passed between the parts thereof,  
+> **¹⁹** The princes of Judah, and the princes of Jerusalem, the eunuchs, and the priests, and all the people of the land, which passed between the parts of the calf;  
+> **²⁰** I will even give them into the hand of their enemies, and into the hand of them that seek their life: and their dead bodies shall be for meat unto the fowls of the heaven, and to the beasts of the earth.  
+> **²¹** And Zedekiah king of Judah and his princes will I give into the hand of their enemies, and into the hand of them that seek their life, and into the hand of the king of Babylon's army, which are gone up from you.  
+> **²²** Behold, I will command, saith the LORD, and cause them to return to this city; and they shall fight against it, and take it, and burn it with fire: and I will make the cities of Judah a desolation without an inhabitant.  
 
 We have here another prophecy upon a particular occasion, the history of which we must take notice of, as necessary to give light to the prophecy.
 

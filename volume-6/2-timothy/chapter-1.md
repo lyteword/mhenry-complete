@@ -8,11 +8,11 @@ After the introduction (2Ti 1:1,2) we have, I. Paul's sincere love to Timothy, 2
 
 ## Introduction; Timothy's Faith and Holiness. (a. d. 66.)
 
-> <sup>1</sup> Paul, an apostle of Jesus Christ by the will of God, according to the promise of life which is in Christ Jesus,  
-> <sup>2</sup> To Timothy, *my* dearly beloved son: Grace, mercy, *and* peace, from God the Father and Christ Jesus our Lord.  
-> <sup>3</sup> I thank God, whom I serve from *my* forefathers with pure conscience, that without ceasing I have remembrance of thee in my prayers night and day;  
-> <sup>4</sup> Greatly desiring to see thee, being mindful of thy tears, that I may be filled with joy;  
-> <sup>5</sup> When I call to remembrance the unfeigned faith that is in thee, which dwelt first in thy grandmother Lois, and thy mother Eunice; and I am persuaded that in thee also.  
+> **¹** Paul, an apostle of Jesus Christ by the will of God, according to the promise of life which is in Christ Jesus,  
+> **²** To Timothy, *my* dearly beloved son: Grace, mercy, *and* peace, from God the Father and Christ Jesus our Lord.  
+> **³** I thank God, whom I serve from *my* forefathers with pure conscience, that without ceasing I have remembrance of thee in my prayers night and day;  
+> **⁴** Greatly desiring to see thee, being mindful of thy tears, that I may be filled with joy;  
+> **⁵** When I call to remembrance the unfeigned faith that is in thee, which dwelt first in thy grandmother Lois, and thy mother Eunice; and I am persuaded that in thee also.  
 
 Here is, I. The inscription of the epistle Paul calls himself *an apostle by the will of God,* merely by the good pleasure of God, and by his grace, which he professes himself unworthy of. *According to the promise of life which is in Christ Jesus,* or according to the gospel. The gospel is the promise of life in Christ Jesus; life is the end, and Christ the way, Joh 14:6. The life is put into the promise, and both are sure in Christ Jesus the faithful witness; *for all the promises of God in Christ Jesus are yea, and all amen,* 2Co 1:20. He calls Timothy his *beloved son.* Paul felt the warmest affection for him both because he had been an instrument of his conversion and because as a son with his father he had served with him in the gospel. Observe, 1. Paul was an apostle of Jesus Christ by the will of God; as he did not receive the gospel of man, nor was taught it, but had it by the revelation of Jesus Christ (Ga 1:12), so his commission to be an apostle was not by the will of man, but of God: in the former epistle he says it was *by the commandment of God our Saviour,* and here *by the will of God.* God called him to be an apostle. 2. We have the promise of life, blessed be God for it: *In hope of eternal life, which God, who cannot lie, promised before the world began,* Tit 1:2. It is a promise to discover the freeness and certainty of it. 3. This, as well as all other promises, is in and through Jesus Christ; they all take their rise from the mercy of God in Christ, and they are sure, so that we may safely depend on them. 4. The grace, mercy, and peace, which even Paul's dearly beloved son Timothy wanted, comes from God the Father and Christ Jesus our Lord; and therefore the one as well as the other is the giver of these blessings, and ought to be applied to for them. 5. The best want these blessings, and they are the best we can ask for our dearly-beloved friends, that they may have grace to help them in the time of need, and mercy to pardon what is amiss, and so may have peace with God the Father and Christ Jesus our Lord.
 
@@ -20,15 +20,15 @@ II\. Paul's thanksgiving to God for Timothy's faith and holiness: he thanks God 
 
 ## Cautions and Exhortations; Ministerial Fidelity. (a. d. 66.)
 
-> <sup>6</sup> Wherefore I put thee in remembrance that thou stir up the gift of God, which is in thee by the putting on of my hands.  
-> <sup>7</sup> For God hath not given us the spirit of fear; but of power, and of love, and of a sound mind.  
-> <sup>8</sup> Be not thou therefore ashamed of the testimony of our Lord, nor of me his prisoner: but be thou partaker of the afflictions of the gospel according to the power of God;  
-> <sup>9</sup> Who hath saved us, and called *us* with a holy calling, not according to our works, but according to his own purpose and grace, which was given us in Christ Jesus before the world began,  
-> <sup>10</sup> But is now made manifest by the appearing of our Saviour Jesus Christ, who hath abolished death, and hath brought life and immortality to light through the gospel:  
-> <sup>11</sup> Whereunto I am appointed a preacher, and an apostle, and a teacher of the Gentiles.  
-> <sup>12</sup> For the which cause I also suffer these things: nevertheless I am not ashamed: for I know whom I have believed, and am persuaded that he is able to keep that which I have committed unto him against that day.  
-> <sup>13</sup> Hold fast the form of sound words, which thou hast heard of me, in faith and love which is in Christ Jesus.  
-> <sup>14</sup> That good thing which was committed unto thee keep by the Holy Ghost which dwelleth in us.  
+> **⁶** Wherefore I put thee in remembrance that thou stir up the gift of God, which is in thee by the putting on of my hands.  
+> **⁷** For God hath not given us the spirit of fear; but of power, and of love, and of a sound mind.  
+> **⁸** Be not thou therefore ashamed of the testimony of our Lord, nor of me his prisoner: but be thou partaker of the afflictions of the gospel according to the power of God;  
+> **⁹** Who hath saved us, and called *us* with a holy calling, not according to our works, but according to his own purpose and grace, which was given us in Christ Jesus before the world began,  
+> **¹⁰** But is now made manifest by the appearing of our Saviour Jesus Christ, who hath abolished death, and hath brought life and immortality to light through the gospel:  
+> **¹¹** Whereunto I am appointed a preacher, and an apostle, and a teacher of the Gentiles.  
+> **¹²** For the which cause I also suffer these things: nevertheless I am not ashamed: for I know whom I have believed, and am persuaded that he is able to keep that which I have committed unto him against that day.  
+> **¹³** Hold fast the form of sound words, which thou hast heard of me, in faith and love which is in Christ Jesus.  
+> **¹⁴** That good thing which was committed unto thee keep by the Holy Ghost which dwelleth in us.  
 
 Here is an exhortation and excitation of Timothy to his duty (2Ti 1:6): *I put thee in remembrance.* The best men need remembrancers; what we know we should be reminded of. 2Pe 3:1, I write this, *to stir up your pure minds by way of remembrance.*
 
@@ -48,10 +48,10 @@ III\. He exhorts him to *hold fast the form of sound words,* 2Ti 1:13. 1. "*Have
 
 ## Ministerial Fortitude. (a. d. 66.)
 
-> <sup>15</sup> This thou knowest, that all they which are in Asia be turned away from me; of whom are Phygellus and Hermogenes.  
-> <sup>16</sup> The Lord give mercy unto the house of Onesiphorus; for he oft refreshed me, and was not ashamed of my chain:  
-> <sup>17</sup> But, when he was in Rome, he sought me out very diligently, and found *me.*  
-> <sup>18</sup> The Lord grant unto him that he may find mercy of the Lord in that day: and in how many things he ministered unto me at Ephesus, thou knowest very well.  
+> **¹⁵** This thou knowest, that all they which are in Asia be turned away from me; of whom are Phygellus and Hermogenes.  
+> **¹⁶** The Lord give mercy unto the house of Onesiphorus; for he oft refreshed me, and was not ashamed of my chain:  
+> **¹⁷** But, when he was in Rome, he sought me out very diligently, and found *me.*  
+> **¹⁸** The Lord grant unto him that he may find mercy of the Lord in that day: and in how many things he ministered unto me at Ephesus, thou knowest very well.  
 
 Having (2Ti 1:13,14) exhorted Timothy to hold fast,
 

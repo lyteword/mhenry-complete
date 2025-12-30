@@ -8,16 +8,16 @@ Moses having very largely and fully set before the people their duty, both to Go
 
 ## The Exhibition of the Law. (b. c. 1451.)
 
-> <sup>1</sup> And Moses with the elders of Israel commanded the people, saying, Keep all the commandments which I command you this day.  
-> <sup>2</sup> And it shall be on the day when ye shall pass over Jordan unto the land which the LORD thy God giveth thee, that thou shalt set thee up great stones, and plaster them with plaster:  
-> <sup>3</sup> And thou shalt write upon them all the words of this law, when thou art passed over, that thou mayest go in unto the land which the LORD thy God giveth thee, a land that floweth with milk and honey; as the LORD God of thy fathers hath promised thee.  
-> <sup>4</sup> Therefore it shall be when ye be gone over Jordan, *that* ye shall set up these stones, which I command you this day, in mount Ebal, and thou shalt plaster them with plaster.  
-> <sup>5</sup> And there shalt thou build an altar unto the LORD thy God, an altar of stones: thou shalt not lift up *any* iron *tool* upon them.  
-> <sup>6</sup> Thou shalt build the altar of the LORD thy God of whole stones: and thou shalt offer burnt offerings thereon unto the LORD thy God:  
-> <sup>7</sup> And thou shalt offer peace offerings, and shalt eat there, and rejoice before the LORD thy God.  
-> <sup>8</sup> And thou shalt write upon the stones all the words of this law very plainly.  
-> <sup>9</sup> And Moses and the priests the Levites spake unto all Israel, saying, Take heed, and hearken, O Israel; this day thou art become the people of the LORD thy God.  
-> <sup>10</sup> Thou shalt therefore obey the voice of the LORD thy God, and do his commandments and his statutes, which I command thee this day.  
+> **¹** And Moses with the elders of Israel commanded the people, saying, Keep all the commandments which I command you this day.  
+> **²** And it shall be on the day when ye shall pass over Jordan unto the land which the LORD thy God giveth thee, that thou shalt set thee up great stones, and plaster them with plaster:  
+> **³** And thou shalt write upon them all the words of this law, when thou art passed over, that thou mayest go in unto the land which the LORD thy God giveth thee, a land that floweth with milk and honey; as the LORD God of thy fathers hath promised thee.  
+> **⁴** Therefore it shall be when ye be gone over Jordan, *that* ye shall set up these stones, which I command you this day, in mount Ebal, and thou shalt plaster them with plaster.  
+> **⁵** And there shalt thou build an altar unto the LORD thy God, an altar of stones: thou shalt not lift up *any* iron *tool* upon them.  
+> **⁶** Thou shalt build the altar of the LORD thy God of whole stones: and thou shalt offer burnt offerings thereon unto the LORD thy God:  
+> **⁷** And thou shalt offer peace offerings, and shalt eat there, and rejoice before the LORD thy God.  
+> **⁸** And thou shalt write upon the stones all the words of this law very plainly.  
+> **⁹** And Moses and the priests the Levites spake unto all Israel, saying, Take heed, and hearken, O Israel; this day thou art become the people of the LORD thy God.  
+> **¹⁰** Thou shalt therefore obey the voice of the LORD thy God, and do his commandments and his statutes, which I command thee this day.  
 
 Here is, I. A general charge to the people to keep God's commandments; for in vain did they know them, unless they would do them. This is pressed upon them, 1. With all authority. *Moses with the elders of Israel,* the rulers of each tribe (De 27:1), and again, *Moses and the priests the Levites* (De 27:9); so that the charge is given by Moses who was king in Jeshurun, and by their lords, both spiritual and temporal, in concurrence with him. Lest they should think that it was Moses only, an old and dying man, that made such ado about religion, or the priests and Levites only, whose trade it was to attend religion and who had their maintenance out of it, the elders of Israel, whom God had placed in honour and power over them, and who were men of business in the world and likely to be so long so when Moses was gone, *they* commanded their people to *keep God's law.* Moses, having put some of his honour upon them, joins them in commission with himself, in giving this charge, as Paul sometimes in his epistles joins with himself Silvanus and Timotheus. Note, All that have any interest in others, or power over them, should use it for the support and furtherance of religion among them. Though the supreme power of a nation provide ever so good laws for this purpose, if inferior magistrates in their places, and ministers in theirs, and masters of families in theirs, do not execute their offices, it will all be to little effect. 2. With all importunity. They press it upon them with the utmost earnestness (De 27:9): *Take heed and hearken, O Israel.* It is a thing that requires and deserves the highest degree of caution and attention. They tell them of their privilege and honour: "*This day thou hast become the people of the Lord thy God,* the Lord having avouched thee to be his own, and being now about to put thee in possession of Canaan which he had long promised as *thy God* (Ge 17:7,8), and which if he had failed to do in due time, he would have been ashamed to be called thy God, Heb 11:16. Now thou art more than ever his people, therefore *obey his voice.*" Privileges should be improved as engagements to duty. Should not a people be ruled by their God?
 
@@ -29,22 +29,22 @@ II\. A particular direction to them with great solemnity to register *the words 
 
 ## The Curses from Ebal. (b. c. 1451.)
 
-> <sup>11</sup> And Moses charged the people the same day, saying,  
-> <sup>12</sup> These shall stand upon mount Gerizim to bless the people, when ye are come over Jordan; Simeon, and Levi, and Judah, and Issachar, and Joseph, and Benjamin:  
-> <sup>13</sup> And these shall stand upon mount Ebal to curse; Reuben, Gad, and Asher, and Zebulun, Dan, and Naphtali.  
-> <sup>14</sup> And the Levites shall speak, and say unto all the men of Israel with a loud voice,  
-> <sup>15</sup> Cursed *be* the man that maketh *any* graven or molten image, an abomination unto the LORD, the work of the hands of the craftsman, and putteth *it* in *a* secret *place.* And all the people shall answer and say, Amen.  
-> <sup>16</sup> Cursed *be* he that setteth light by his father or his mother. And all the people shall say, Amen.  
-> <sup>17</sup> Cursed *be* he that removeth his neighbour's landmark. And all the people shall say, Amen.  
-> <sup>18</sup> Cursed *be* he that maketh the blind to wander out of the way. And all the people shall say, Amen.  
-> <sup>19</sup> Cursed *be* he that perverteth the judgment of the stranger, fatherless, and widow. And all the people shall say, Amen.  
-> <sup>20</sup> Cursed *be* he that lieth with his father's wife; because he uncovereth his father's skirt. And all the people shall say, Amen.  
-> <sup>21</sup> Cursed *be* he that lieth with any manner of beast. And all the people shall say, Amen.  
-> <sup>22</sup> Cursed *be* he that lieth with his sister, the daughter of his father, or the daughter of his mother. And all the people shall say, Amen.  
-> <sup>23</sup> Cursed *be* he that lieth with his mother in law. And all the people shall say, Amen.  
-> <sup>24</sup> Cursed *be* he that smiteth his neighbour secretly. And all the people shall say, Amen.  
-> <sup>25</sup> Cursed *be* he that taketh reward to slay an innocent person. And all the people shall say, Amen.  
-> <sup>26</sup> Cursed *be* he that confirmeth not *all* the words of this law to do them. And all the people shall say, Amen.  
+> **¹¹** And Moses charged the people the same day, saying,  
+> **¹²** These shall stand upon mount Gerizim to bless the people, when ye are come over Jordan; Simeon, and Levi, and Judah, and Issachar, and Joseph, and Benjamin:  
+> **¹³** And these shall stand upon mount Ebal to curse; Reuben, Gad, and Asher, and Zebulun, Dan, and Naphtali.  
+> **¹⁴** And the Levites shall speak, and say unto all the men of Israel with a loud voice,  
+> **¹⁵** Cursed *be* the man that maketh *any* graven or molten image, an abomination unto the LORD, the work of the hands of the craftsman, and putteth *it* in *a* secret *place.* And all the people shall answer and say, Amen.  
+> **¹⁶** Cursed *be* he that setteth light by his father or his mother. And all the people shall say, Amen.  
+> **¹⁷** Cursed *be* he that removeth his neighbour's landmark. And all the people shall say, Amen.  
+> **¹⁸** Cursed *be* he that maketh the blind to wander out of the way. And all the people shall say, Amen.  
+> **¹⁹** Cursed *be* he that perverteth the judgment of the stranger, fatherless, and widow. And all the people shall say, Amen.  
+> **²⁰** Cursed *be* he that lieth with his father's wife; because he uncovereth his father's skirt. And all the people shall say, Amen.  
+> **²¹** Cursed *be* he that lieth with any manner of beast. And all the people shall say, Amen.  
+> **²²** Cursed *be* he that lieth with his sister, the daughter of his father, or the daughter of his mother. And all the people shall say, Amen.  
+> **²³** Cursed *be* he that lieth with his mother in law. And all the people shall say, Amen.  
+> **²⁴** Cursed *be* he that smiteth his neighbour secretly. And all the people shall say, Amen.  
+> **²⁵** Cursed *be* he that taketh reward to slay an innocent person. And all the people shall say, Amen.  
+> **²⁶** Cursed *be* he that confirmeth not *all* the words of this law to do them. And all the people shall say, Amen.  
 
 When the law was written, to be *seen and read by all men,* the sanctions of it were to be published, which, to complete the solemnity of their covenanting with God, they were deliberately to declare their approbation of. This they were before directed to do (De 11:29,30), and therefore the appointment here begins somewhat abruptly, De 27:12. There were, it seems, in Canaan, that part of it which afterwards fell to the lot of Ephraim (Joshua's tribe), two mountains that lay near together, with a valley between, one called *Gerizim* and the other *Ebal.* On the sides of these two mountains, which faced one another, all the tribes were to be drawn up, six on one side and six on the other, so that in the valley, at the foot of each mountain, they came pretty near together, so near as that the priests standing betwixt them might be heard by those that were next them on both sides; then when silence was proclaimed, and attention commanded, one of the priests, or perhaps more at some distance from each other, pronounced with a loud voice one of the curses here following, and all the people that stood on the side and foot of Mount Ebal (those that stood further off taking the signal from those that stood nearer and within hearing) said *Amen;* then the contrary blessing was pronounced, "Blessed is he that doth not so or so," and then those that stood on the side, and at the foot, of Mount Gerizim, said *Amen.* This could not but affect them very much with the blessings and curses, the promises and threatenings, of the law, and not only acquaint all the people with them, but teach them to apply them to themselves.
 

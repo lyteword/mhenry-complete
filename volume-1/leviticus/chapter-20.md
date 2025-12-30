@@ -8,15 +8,15 @@ The laws which before were made are in this chapter repeated and penalties annex
 
 ## Moral Laws. (b. c. 1490.)
 
-> <sup>1</sup> And the LORD spake unto Moses, saying,  
-> <sup>2</sup> Again, thou shalt say to the children of Israel, Whosoever *he be* of the children of Israel, or of the strangers that sojourn in Israel, that giveth *any* of his seed unto Molech; he shall surely be put to death: the people of the land shall stone him with stones.  
-> <sup>3</sup> And I will set my face against that man, and will cut him off from among his people; because he hath given of his seed unto Molech, to defile my sanctuary, and to profane my holy name.  
-> <sup>4</sup> And if the people of the land do any ways hide their eyes from the man, when he giveth of his seed unto Molech, and kill him not:  
-> <sup>5</sup> Then I will set my face against that man, and against his family, and will cut him off, and all that go a whoring after him, to commit whoredom with Molech, from among their people.  
-> <sup>6</sup> And the soul that turneth after such as have familiar spirits, and after wizards, to go a whoring after them, I will even set my face against that soul, and will cut him off from among his people.  
-> <sup>7</sup> Sanctify yourselves therefore, and be ye holy: for I *am* the LORD your God.  
-> <sup>8</sup> And ye shall keep my statutes, and do them: I *am* the LORD which sanctify you.  
-> <sup>9</sup> For every one that curseth his father or his mother shall be surely put to death: he hath cursed his father or his mother; his blood *shall be* upon him.  
+> **¹** And the LORD spake unto Moses, saying,  
+> **²** Again, thou shalt say to the children of Israel, Whosoever *he be* of the children of Israel, or of the strangers that sojourn in Israel, that giveth *any* of his seed unto Molech; he shall surely be put to death: the people of the land shall stone him with stones.  
+> **³** And I will set my face against that man, and will cut him off from among his people; because he hath given of his seed unto Molech, to defile my sanctuary, and to profane my holy name.  
+> **⁴** And if the people of the land do any ways hide their eyes from the man, when he giveth of his seed unto Molech, and kill him not:  
+> **⁵** Then I will set my face against that man, and against his family, and will cut him off, and all that go a whoring after him, to commit whoredom with Molech, from among their people.  
+> **⁶** And the soul that turneth after such as have familiar spirits, and after wizards, to go a whoring after them, I will even set my face against that soul, and will cut him off from among his people.  
+> **⁷** Sanctify yourselves therefore, and be ye holy: for I *am* the LORD your God.  
+> **⁸** And ye shall keep my statutes, and do them: I *am* the LORD which sanctify you.  
+> **⁹** For every one that curseth his father or his mother shall be surely put to death: he hath cursed his father or his mother; his blood *shall be* upon him.  
 
 Moses is here directed to say that again to the children of Israel which he had in effect said before, Le 20:2. We are sure it was no vain repetition, but very necessary, that they might *give the more earnest heed to the things that were spoken,* and might believe them to be of great consequence, being so often inculcated. *God speaketh once, yea, twice,* and what he orders to be said again we must be willing to hear again, because *for us it is safe,* Php 3:1.
 
@@ -34,18 +34,18 @@ II\. In the midst of these particular laws comes in that general charge, Le 20:7
 
 2\. The reasons to enforce these duties. (1.) "*I am the Lord your God;* therefore be holy, that you may resemble him whose people you are, and may be pleasing to him. Holiness becomes his house and household." (2.) *I am the Lord who sanctifieth you.* God sanctified them by peculiar privileges, laws, and favours, which distinguished them from all other nations, and dignified them as a people set apart for God. He gave them his word and ordinances to be means of their sanctification, and his good Spirit to instruct them; therefore they must be holy, else they received the grace of God herein in vain. Note, [1.] God's people are, and must be, persons of distinction. God has distinguished them by his holy covenant, and therefore they ought to distinguish themselves by their holy conversation. [2.] God's sanctifying us is a good reason why we should sanctify ourselves, that we may comply with the designs of his grace, and not walk contrary to them. If it be the Lord that sanctifies us, we may hope the work shall be done, though it be difficult: the manner of expression is like that, 2Co 5:5, *He that hath wrought us for the self-same thing is God.* And his grace is so far from superseding our care and endeavour that it most strongly engages and encourages them. *Work out your salvation, for it is God that worketh in you.*
 
-> <sup>10</sup> And the man that committeth adultery with *another* man's wife, *even he* that committeth adultery with his neighbour's wife, the adulterer and the adulteress shall surely be put to death.  
-> <sup>11</sup> And the man that lieth with his father's wife hath uncovered his father's nakedness: both of them shall surely be put to death; their blood *shall be* upon them.  
-> <sup>12</sup> And if a man lie with his daughter in law, both of them shall surely be put to death: they have wrought confusion; their blood *shall be* upon them.  
-> <sup>13</sup> If a man also lie with mankind, as he lieth with a woman, both of them have committed an abomination: they shall surely be put to death; their blood *shall be* upon them.  
-> <sup>14</sup> And if a man take a wife and her mother, it *is* wickedness: they shall be burnt with fire, both he and they; that there be no wickedness among you.  
-> <sup>15</sup> And if a man lie with a beast, he shall surely be put to death: and ye shall slay the beast.  
-> <sup>16</sup> And if a woman approach unto any beast, and lie down thereto, thou shalt kill the woman, and the beast: they shall surely be put to death; their blood *shall be* upon them.  
-> <sup>17</sup> And if a man shall take his sister, his father's daughter, or his mother's daughter, and see her nakedness, and she see his nakedness; it *is* a wicked thing; and they shall be cut off in the sight of their people: he hath uncovered his sister's nakedness; he shall bear his iniquity.  
-> <sup>18</sup> And if a man shall lie with a woman having her sickness, and shall uncover her nakedness; he hath discovered her fountain, and she hath uncovered the fountain of her blood: and both of them shall be cut off from among their people.  
-> <sup>19</sup> And thou shalt not uncover the nakedness of thy mother's sister, nor of thy father's sister: for he uncovereth his near kin: they shall bear their iniquity.  
-> <sup>20</sup> And if a man shall lie with his uncle's wife, he hath uncovered his uncle's nakedness: they shall bear their sin; they shall die childless.  
-> <sup>21</sup> And if a man shall take his brother's wife, it *is* an unclean thing: he hath uncovered his brother's nakedness; they shall be childless.  
+> **¹⁰** And the man that committeth adultery with *another* man's wife, *even he* that committeth adultery with his neighbour's wife, the adulterer and the adulteress shall surely be put to death.  
+> **¹¹** And the man that lieth with his father's wife hath uncovered his father's nakedness: both of them shall surely be put to death; their blood *shall be* upon them.  
+> **¹²** And if a man lie with his daughter in law, both of them shall surely be put to death: they have wrought confusion; their blood *shall be* upon them.  
+> **¹³** If a man also lie with mankind, as he lieth with a woman, both of them have committed an abomination: they shall surely be put to death; their blood *shall be* upon them.  
+> **¹⁴** And if a man take a wife and her mother, it *is* wickedness: they shall be burnt with fire, both he and they; that there be no wickedness among you.  
+> **¹⁵** And if a man lie with a beast, he shall surely be put to death: and ye shall slay the beast.  
+> **¹⁶** And if a woman approach unto any beast, and lie down thereto, thou shalt kill the woman, and the beast: they shall surely be put to death; their blood *shall be* upon them.  
+> **¹⁷** And if a man shall take his sister, his father's daughter, or his mother's daughter, and see her nakedness, and she see his nakedness; it *is* a wicked thing; and they shall be cut off in the sight of their people: he hath uncovered his sister's nakedness; he shall bear his iniquity.  
+> **¹⁸** And if a man shall lie with a woman having her sickness, and shall uncover her nakedness; he hath discovered her fountain, and she hath uncovered the fountain of her blood: and both of them shall be cut off from among their people.  
+> **¹⁹** And thou shalt not uncover the nakedness of thy mother's sister, nor of thy father's sister: for he uncovereth his near kin: they shall bear their iniquity.  
+> **²⁰** And if a man shall lie with his uncle's wife, he hath uncovered his uncle's nakedness: they shall bear their sin; they shall die childless.  
+> **²¹** And if a man shall take his brother's wife, it *is* an unclean thing: he hath uncovered his brother's nakedness; they shall be childless.  
 
 Sins against the seventh commandment are here ordered to be severely punished. These are sins which, of all others, fools are most apt to make a mock at; but God would teach those the heinousness of the guilt by the extremity of the punishment that would not otherwise be taught it.
 
@@ -55,12 +55,12 @@ II\. Incestuous connections, whether by marriage or not. 1. Some of them were to
 
 III\. The unnatural lusts of sodomy and bestiality (sins not to be mentioned without horror) were to be punished with death, as they are at this day by our law, Le 20:13,15,16. Even the beast that was thus abused was to be killed with the sinner, who was thereby openly put to the greater shame: and the villany was thus represented as in the highest degree execrable and abominable, all occasions of the remembrance or mention of it being to be taken away. Even the unseasonable use of the marriage, if presumptuous, and in contempt of the law, would expose the offenders to the just judgment of God: they *shall be cut off,* Le 20:18. For this is the will of God, that *every man should possess his vessel* (and the wife is called the weaker vessel) *in sanctification and honour,* as becomes saints.
 
-> <sup>22</sup> Ye shall therefore keep all my statutes, and all my judgments, and do them: that the land, whither I bring you to dwell therein, spue you not out.  
-> <sup>23</sup> And ye shall not walk in the manners of the nation, which I cast out before you: for they committed all these things, and therefore I abhorred them.  
-> <sup>24</sup> But I have said unto you, Ye shall inherit their land, and I will give it unto you to possess it, a land that floweth with milk and honey: I *am* the LORD your God, which have separated you from *other* people.  
-> <sup>25</sup> Ye shall therefore put difference between clean beasts and unclean, and between unclean fowls and clean: and ye shall not make your souls abominable by beast, or by fowl, or by any manner of living thing that creepeth on the ground, which I have separated from you as unclean.  
-> <sup>26</sup> And ye shall be holy unto me: for I the LORD *am* holy, and have severed you from *other* people, that ye should be mine.  
-> <sup>27</sup> A man also or woman that hath a familiar spirit, or that is a wizard, shall surely be put to death: they shall stone them with stones: their blood *shall be* upon them.  
+> **²²** Ye shall therefore keep all my statutes, and all my judgments, and do them: that the land, whither I bring you to dwell therein, spue you not out.  
+> **²³** And ye shall not walk in the manners of the nation, which I cast out before you: for they committed all these things, and therefore I abhorred them.  
+> **²⁴** But I have said unto you, Ye shall inherit their land, and I will give it unto you to possess it, a land that floweth with milk and honey: I *am* the LORD your God, which have separated you from *other* people.  
+> **²⁵** Ye shall therefore put difference between clean beasts and unclean, and between unclean fowls and clean: and ye shall not make your souls abominable by beast, or by fowl, or by any manner of living thing that creepeth on the ground, which I have separated from you as unclean.  
+> **²⁶** And ye shall be holy unto me: for I the LORD *am* holy, and have severed you from *other* people, that ye should be mine.  
+> **²⁷** A man also or woman that hath a familiar spirit, or that is a wizard, shall surely be put to death: they shall stone them with stones: their blood *shall be* upon them.  
 
 The last verse is a particular law, which comes in after the general conclusion, as if omitted in its proper place: it is for the putting of those to death that dealt with familiar spirits, Le 20:27. It would be an affront to God and to his lively oracles, a scandal to the country, and a temptation to ignorant bad people, to consult them, if such were known and suffered to live among them. Those that are in league with the devil have in effect made a covenant with death and an agreement with hell, and so shall their doom be.
 

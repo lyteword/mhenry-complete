@@ -10,9 +10,9 @@ This psalm is a brief encomium on unity and brotherly love, which, if we did not
 
 A song of degrees of David.
 
-> <sup>1</sup> Behold, how good and how pleasant *it is* for brethren to dwell together in unity!  
-> <sup>2</sup> *It is* like the precious ointment upon the head, that ran down upon the beard, *even* Aaron's beard: that went down to the skirts of his garments;  
-> <sup>3</sup> As the dew of Hermon, *and as the dew* that descended upon the mountains of Zion: for there the LORD commanded the blessing, *even* life for evermore.  
+> **¹** Behold, how good and how pleasant *it is* for brethren to dwell together in unity!  
+> **²** *It is* like the precious ointment upon the head, that ran down upon the beard, *even* Aaron's beard: that went down to the skirts of his garments;  
+> **³** As the dew of Hermon, *and as the dew* that descended upon the mountains of Zion: for there the LORD commanded the blessing, *even* life for evermore.  
 
 Here see, I. What it is that is commended—*brethren's dwelling together in unity,* not only not quarrelling, and devouring one another, but delighting in each other with mutual endearments, and promoting each other's welfare with mutual services. Sometimes it is chosen, as the best expedient for preserving peace, that brethren should live asunder and at a distance from each other; that indeed may prevent enmity and strife (Ge 13:9), but the goodness and pleasantness are *for brethren to dwell together* and so *to dwell in unity, to dwell even as one* (so some read it), as having one heart, one soul, one interest. David had many sons by many wives; probably he penned this psalm for their instruction, to engage them to love another, and, if they had done this, much of the mischief that arose in his family would have been happily prevented. The tribes of Israel had long had separate interests during the government of the Judges, and it was often of bad consequence; but now that they were united under one common head he would have them sensible how much it was likely to be for their advantage, especially since now the ark was fixed, and with it the place of their rendezvous for public worship and the centre of their unity. Now let them live in love.
 

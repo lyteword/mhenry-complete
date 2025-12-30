@@ -8,10 +8,10 @@ Hitherto, it should seem, Isaiah had prophesied as a candidate, having only a vi
 
 ## Isaiah's Heavenly Vision. (b. c. 758.)
 
-> <sup>1</sup> In the year that king Uzziah died I saw also the Lord sitting upon a throne, high and lifted up, and his train filled the temple.  
-> <sup>2</sup> Above it stood the seraphims: each one had six wings; with twain he covered his face, and with twain he covered his feet, and with twain he did fly.  
-> <sup>3</sup> And one cried unto another, and said, Holy, holy, holy, *is* the LORD of hosts: the whole earth *is* full of his glory.  
-> <sup>4</sup> And the posts of the door moved at the voice of him that cried, and the house was filled with smoke.  
+> **¹** In the year that king Uzziah died I saw also the Lord sitting upon a throne, high and lifted up, and his train filled the temple.  
+> **²** Above it stood the seraphims: each one had six wings; with twain he covered his face, and with twain he covered his feet, and with twain he did fly.  
+> **³** And one cried unto another, and said, Holy, holy, holy, *is* the LORD of hosts: the whole earth *is* full of his glory.  
+> **⁴** And the posts of the door moved at the voice of him that cried, and the house was filled with smoke.  
 
 The vision which Isaiah saw when he was, as is said of Samuel, *established to be a prophet of the Lord* (1Sa 3:20), was intended, 1. To confirm his faith, that he might himself be abundantly satisfied of the truth of those things which should afterwards be made known to him. This God opened the communications of himself to him; but such visions needed not to be afterwards repeated upon every revelation. Thus God appeared at first as a God of glory to Abraham (Ac 7:2), and to Moses, Ex 3:2. Ezekiel's prophecies and St. John's, begin with visions of the divine glory. 2. To work upon his affections, that he might be possessed with such a reverence of God as would both quicken him and fix him to his service. Those who are to teach others the knowledge of God ought to be well acquainted with him themselves.
 
@@ -39,10 +39,10 @@ V\. Observe the marks and tokens of terror with which the temple was filled, upo
 
 ## Isaiah's Heavenly Vision. (b. c. 758.)
 
-> <sup>5</sup> Then said I, Woe *is* me! for I am undone; because I *am* a man of unclean lips, and I dwell in the midst of a people of unclean lips: for mine eyes have seen the King, the LORD of hosts.  
-> <sup>6</sup> Then flew one of the seraphims unto me, having a live coal in his hand, *which* he had taken with the tongs from off the altar:  
-> <sup>7</sup> And he laid *it* upon my mouth, and said, Lo, this hath touched thy lips; and thine iniquity is taken away, and thy sin purged.  
-> <sup>8</sup> Also I heard the voice of the Lord, saying, Whom shall I send, and who will go for us? Then said I, Here *am* I; send me.  
+> **⁵** Then said I, Woe *is* me! for I am undone; because I *am* a man of unclean lips, and I dwell in the midst of a people of unclean lips: for mine eyes have seen the King, the LORD of hosts.  
+> **⁶** Then flew one of the seraphims unto me, having a live coal in his hand, *which* he had taken with the tongs from off the altar:  
+> **⁷** And he laid *it* upon my mouth, and said, Lo, this hath touched thy lips; and thine iniquity is taken away, and thy sin purged.  
+> **⁸** Also I heard the voice of the Lord, saying, Whom shall I send, and who will go for us? Then said I, Here *am* I; send me.  
 
 Our curiosity would lead us to enquire further concerning the seraphim, their songs and their services; but here we leave them, and must attend to what passed between God and his prophet. *Secret things belong not to us,* the secret things of the world of angels, but things revealed to and by the prophets, which concern the administration of God's kingdom among men. Now here we have,
 
@@ -62,11 +62,11 @@ III\. The renewing of the prophet's mission, Isa 6:8. Here is a communication be
 
 ## Judicial Blindness Threatened. (b. c. 758.)
 
-> <sup>9</sup> And he said, Go, and tell this people, Hear ye indeed, but understand not; and see ye indeed, but perceive not.  
-> <sup>10</sup> Make the heart of this people fat, and make their ears heavy, and shut their eyes; lest they see with their eyes, and hear with their ears, and understand with their heart, and convert, and be healed.  
-> <sup>11</sup> Then said I, Lord, how long? And he answered, Until the cities be wasted without inhabitant, and the houses without man, and the land be utterly desolate,  
-> <sup>12</sup> And the LORD have removed men far away, and *there be* a great forsaking in the midst of the land.  
-> <sup>13</sup> But yet in it *shall be* a tenth, and *it* shall return, and shall be eaten: as a teil-tree, and as an oak, whose substance *is* in them, when they cast *their leaves: so* the holy seed *shall be* the substance thereof.  
+> **⁹** And he said, Go, and tell this people, Hear ye indeed, but understand not; and see ye indeed, but perceive not.  
+> **¹⁰** Make the heart of this people fat, and make their ears heavy, and shut their eyes; lest they see with their eyes, and hear with their ears, and understand with their heart, and convert, and be healed.  
+> **¹¹** Then said I, Lord, how long? And he answered, Until the cities be wasted without inhabitant, and the houses without man, and the land be utterly desolate,  
+> **¹²** And the LORD have removed men far away, and *there be* a great forsaking in the midst of the land.  
+> **¹³** But yet in it *shall be* a tenth, and *it* shall return, and shall be eaten: as a teil-tree, and as an oak, whose substance *is* in them, when they cast *their leaves: so* the holy seed *shall be* the substance thereof.  
 
 God takes Isaiah at his word, and here sends him on a strange errand—to foretel the ruin of his people and even to ripen them for that ruin—to preach that which, by their abuse of it, would be to them a savour of death unto death. And this was to be a type and figure of the state of the Jewish church in the days of the Messiah, when they should obstinately reject the gospel, and should thereupon be rejected of God. These verses are quoted in part, or referred to, six times, in the New Testament, which intimates that in gospel time these spiritual judgments would be most frequently inflicted; and though they make the least noise, and come not with observation, yet they are of all judgments the most dreadful. Isaiah is here given to understand these four things:—
 

@@ -8,13 +8,13 @@ In this chapter, I. Jesus Christ, having espoused his church to himself (So 3:11
 
 ## The Beauty of the Church.
 
-> <sup>1</sup> Behold, thou *art* fair, my love; behold, thou *art* fair; thou *hast* doves' eyes within thy locks: thy hair *is* as a flock of goats, that appear from mount Gilead.  
-> <sup>2</sup> Thy teeth *are* like a flock *of sheep that are even* shorn, which came up from the washing; whereof every one bear twins, and none *is* barren among them.  
-> <sup>3</sup> Thy lips *are* like a thread of scarlet, and thy speech *is* comely: thy temples *are* like a piece of a pomegranate within thy locks.  
-> <sup>4</sup> Thy neck *is* like the tower of David builded for an armoury, whereon there hang a thousand bucklers, all shields of mighty men.  
-> <sup>5</sup> Thy two breasts *are* like two young roes that are twins, which feed among the lilies.  
-> <sup>6</sup> Until the day break, and the shadows flee away, I will get me to the mountain of myrrh, and to the hill of frankincense.  
-> <sup>7</sup> Thou *art* all fair, my love; *there is* no spot in thee.  
+> **¹** Behold, thou *art* fair, my love; behold, thou *art* fair; thou *hast* doves' eyes within thy locks: thy hair *is* as a flock of goats, that appear from mount Gilead.  
+> **²** Thy teeth *are* like a flock *of sheep that are even* shorn, which came up from the washing; whereof every one bear twins, and none *is* barren among them.  
+> **³** Thy lips *are* like a thread of scarlet, and thy speech *is* comely: thy temples *are* like a piece of a pomegranate within thy locks.  
+> **⁴** Thy neck *is* like the tower of David builded for an armoury, whereon there hang a thousand bucklers, all shields of mighty men.  
+> **⁵** Thy two breasts *are* like two young roes that are twins, which feed among the lilies.  
+> **⁶** Until the day break, and the shadows flee away, I will get me to the mountain of myrrh, and to the hill of frankincense.  
+> **⁷** Thou *art* all fair, my love; *there is* no spot in thee.  
 
 Here is, I. A large and particular account of the beauties of the church, and of gracious souls on whom the image of God is renewed, consisting *in the beauty of holiness.* In general, he that is a competent judge of beauty, whose *judgment,* we are sure, *is according to truth,* and what all must subscribe to, he has said, *Behold, thou art fair.* She had commended him, and called all about her to take notice of his glories; and hereby she recommends herself to him, gains his favour, and, in return for her respects, he calls to all about him to take notice of her graces. Those that honour Christ he will honour, 1Sa 2:30.
 
@@ -42,13 +42,13 @@ III\. His repeated commendation of the beauty of the spouse (So 4:7): *Thou art 
 
 ## The Love of Christ to the Church.
 
-> <sup>8</sup> Come with me from Lebanon, *my* spouse, with me from Lebanon: look from the top of Amana, from the top of Shenir and Hermon, from the lions' dens, from the mountains of the leopards.  
-> <sup>9</sup> Thou hast ravished my heart, my sister, *my* spouse; thou hast ravished my heart with one of thine eyes, with one chain of thy neck.  
-> <sup>10</sup> How fair is thy love, my sister, *my* spouse! how much better is thy love than wine! and the smell of thine ointments than all spices!  
-> <sup>11</sup> Thy lips, O *my* spouse, drop *as* the honeycomb: honey and milk *are* under thy tongue; and the smell of thy garments *is* like the smell of Lebanon.  
-> <sup>12</sup> A garden inclosed *is* my sister, *my* spouse; a spring shut up, a fountain sealed.  
-> <sup>13</sup> Thy plants *are* an orchard of pomegranates, with pleasant fruits; camphire, with spikenard,  
-> <sup>14</sup> Spikenard and saffron; calamus and cinnamon, with all trees of frankincense; myrrh and aloes, with all the chief spices:  
+> **⁸** Come with me from Lebanon, *my* spouse, with me from Lebanon: look from the top of Amana, from the top of Shenir and Hermon, from the lions' dens, from the mountains of the leopards.  
+> **⁹** Thou hast ravished my heart, my sister, *my* spouse; thou hast ravished my heart with one of thine eyes, with one chain of thy neck.  
+> **¹⁰** How fair is thy love, my sister, *my* spouse! how much better is thy love than wine! and the smell of thine ointments than all spices!  
+> **¹¹** Thy lips, O *my* spouse, drop *as* the honeycomb: honey and milk *are* under thy tongue; and the smell of thy garments *is* like the smell of Lebanon.  
+> **¹²** A garden inclosed *is* my sister, *my* spouse; a spring shut up, a fountain sealed.  
+> **¹³** Thy plants *are* an orchard of pomegranates, with pleasant fruits; camphire, with spikenard,  
+> **¹⁴** Spikenard and saffron; calamus and cinnamon, with all trees of frankincense; myrrh and aloes, with all the chief spices:  
 
 These are still the words of Christ to his church, expressing his great esteem of her and affection to her, the opinion he had of her beauty and excellency, the desire he had of, and the delight he had in, her converse and society. And so ought men to love their wives as Christ loves the church, and takes pleasure in it as if it were spotless and had no fault, when yet it is compassed with infirmity. Now, observe here,
 
@@ -68,8 +68,8 @@ III\. The great delight Christ takes in his church and in all believers. He deli
 
 ## The Love of the Church to Christ.
 
-> <sup>15</sup> A fountain of gardens, a well of living waters, and streams from Lebanon.  
-> <sup>16</sup> Awake, O north wind; and come, thou south; blow upon my garden, *that* the spices thereof may flow out. Let my beloved come into his garden, and eat his pleasant fruits.  
+> **¹⁵** A fountain of gardens, a well of living waters, and streams from Lebanon.  
+> **¹⁶** Awake, O north wind; and come, thou south; blow upon my garden, *that* the spices thereof may flow out. Let my beloved come into his garden, and eat his pleasant fruits.  
 
 These seem to be the words of the spouse, the church, in answer to the commendations which Christ, the bridegroom, had given of her as a pleasant fruitful garden. Is she a garden?
 

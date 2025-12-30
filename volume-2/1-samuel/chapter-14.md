@@ -8,21 +8,21 @@ We left the host of Israel in a very ill posture, in the close of the foregoing 
 
 ## Jonathan Smites the Philistines. (b. c. 1067.)
 
-> <sup>1</sup> Now it came to pass upon a day, that Jonathan the son of Saul said unto the young man that bare his armour, Come, and let us go over to the Philistines' garrison, that *is* on the other side. But he told not his father.  
-> <sup>2</sup> And Saul tarried in the uttermost part of Gibeah under a pomegranate tree which *is* in Migron: and the people that *were* with him *were* about six hundred men;  
-> <sup>3</sup> And Ahiah, the son of Ahitub, Ichabod's brother, the son of Phinehas, the son of Eli, the LORD's priest in Shiloh, wearing an ephod. And the people knew not that Jonathan was gone.  
-> <sup>4</sup> And between the passages, by which Jonathan sought to go over unto the Philistines' garrison, *there was* a sharp rock on the one side, and a sharp rock on the other side: and the name of the one *was* Bozez, and the name of the other Seneh.  
-> <sup>5</sup> The forefront of the one *was* situate northward over against Michmash, and the other southward over against Gibeah.  
-> <sup>6</sup> And Jonathan said to the young man that bare his armour, Come, and let us go over unto the garrison of these uncircumcised: it may be that the LORD will work for us: for *there is* no restraint to the LORD to save by many or by few.  
-> <sup>7</sup> And his armourbearer said unto him, Do all that *is* in thine heart: turn thee; behold, I *am* with thee according to thy heart.  
-> <sup>8</sup> Then said Jonathan, Behold, we will pass over unto *these* men, and we will discover ourselves unto them.  
-> <sup>9</sup> If they say thus unto us, Tarry until we come to you; then we will stand still in our place, and will not go up unto them.  
-> <sup>10</sup> But if they say thus, Come up unto us; then we will go up: for the LORD hath delivered them into our hand: and this *shall be* a sign unto us.  
-> <sup>11</sup> And both of them discovered themselves unto the garrison of the Philistines: and the Philistines said, Behold, the Hebrews come forth out of the holes where they had hid themselves.  
-> <sup>12</sup> And the men of the garrison answered Jonathan and his armourbearer, and said, Come up to us, and we will shew you a thing. And Jonathan said unto his armourbearer, Come up after me: for the LORD hath delivered them into the hand of Israel.  
-> <sup>13</sup> And Jonathan climbed up upon his hands and upon his feet, and his armourbearer after him: and they fell before Jonathan; and his armourbearer slew after him.  
-> <sup>14</sup> And that first slaughter, which Jonathan and his armourbearer made, was about twenty men, within as it were an half acre of land, *which* a yoke *of oxen might plow.*  
-> <sup>15</sup> And there was trembling in the host, in the field, and among all the people: the garrison, and the spoilers, they also trembled, and the earth quaked: so it was a very great trembling.  
+> **¹** Now it came to pass upon a day, that Jonathan the son of Saul said unto the young man that bare his armour, Come, and let us go over to the Philistines' garrison, that *is* on the other side. But he told not his father.  
+> **²** And Saul tarried in the uttermost part of Gibeah under a pomegranate tree which *is* in Migron: and the people that *were* with him *were* about six hundred men;  
+> **³** And Ahiah, the son of Ahitub, Ichabod's brother, the son of Phinehas, the son of Eli, the LORD's priest in Shiloh, wearing an ephod. And the people knew not that Jonathan was gone.  
+> **⁴** And between the passages, by which Jonathan sought to go over unto the Philistines' garrison, *there was* a sharp rock on the one side, and a sharp rock on the other side: and the name of the one *was* Bozez, and the name of the other Seneh.  
+> **⁵** The forefront of the one *was* situate northward over against Michmash, and the other southward over against Gibeah.  
+> **⁶** And Jonathan said to the young man that bare his armour, Come, and let us go over unto the garrison of these uncircumcised: it may be that the LORD will work for us: for *there is* no restraint to the LORD to save by many or by few.  
+> **⁷** And his armourbearer said unto him, Do all that *is* in thine heart: turn thee; behold, I *am* with thee according to thy heart.  
+> **⁸** Then said Jonathan, Behold, we will pass over unto *these* men, and we will discover ourselves unto them.  
+> **⁹** If they say thus unto us, Tarry until we come to you; then we will stand still in our place, and will not go up unto them.  
+> **¹⁰** But if they say thus, Come up unto us; then we will go up: for the LORD hath delivered them into our hand: and this *shall be* a sign unto us.  
+> **¹¹** And both of them discovered themselves unto the garrison of the Philistines: and the Philistines said, Behold, the Hebrews come forth out of the holes where they had hid themselves.  
+> **¹²** And the men of the garrison answered Jonathan and his armourbearer, and said, Come up to us, and we will shew you a thing. And Jonathan said unto his armourbearer, Come up after me: for the LORD hath delivered them into the hand of Israel.  
+> **¹³** And Jonathan climbed up upon his hands and upon his feet, and his armourbearer after him: and they fell before Jonathan; and his armourbearer slew after him.  
+> **¹⁴** And that first slaughter, which Jonathan and his armourbearer made, was about twenty men, within as it were an half acre of land, *which* a yoke *of oxen might plow.*  
+> **¹⁵** And there was trembling in the host, in the field, and among all the people: the garrison, and the spoilers, they also trembled, and the earth quaked: so it was a very great trembling.  
 
 We must here take notice,
 
@@ -44,14 +44,14 @@ III\. Of the bravery and piety of Jonathan, the son of Saul, who was much fitter
 
 ## The Philistines Destroyed. (b. c. 1067.)
 
-> <sup>16</sup> And the watchmen of Saul in Gibeah of Benjamin looked; and, behold, the multitude melted away, and they went on beating down *one another.*  
-> <sup>17</sup> Then said Saul unto the people that *were* with him, Number now, and see who is gone from us. And when they had numbered, behold, Jonathan and his armourbearer *were* not *there.*  
-> <sup>18</sup> And Saul said unto Ahiah, Bring hither the ark of God. For the ark of God was at that time with the children of Israel.  
-> <sup>19</sup> And it came to pass, while Saul talked unto the priest, that the noise that *was* in the host of the Philistines went on and increased: and Saul said unto the priest, Withdraw thine hand.  
-> <sup>20</sup> And Saul and all the people that *were* with him assembled themselves, and they came to the battle: and, behold, every man's sword was against his fellow, *and there was* a very great discomfiture.  
-> <sup>21</sup> Moreover the Hebrews *that* were with the Philistines before that time, which went up with them into the camp *from the country* round about, even they also *turned* to be with the Israelites that *were* with Saul and Jonathan.  
-> <sup>22</sup> Likewise all the men of Israel which had hid themselves in mount Ephraim, *when* they heard that the Philistines fled, even they also followed hard after them in the battle.  
-> <sup>23</sup> So the LORD saved Israel that day: and the battle passed over unto Beth-aven.  
+> **¹⁶** And the watchmen of Saul in Gibeah of Benjamin looked; and, behold, the multitude melted away, and they went on beating down *one another.*  
+> **¹⁷** Then said Saul unto the people that *were* with him, Number now, and see who is gone from us. And when they had numbered, behold, Jonathan and his armourbearer *were* not *there.*  
+> **¹⁸** And Saul said unto Ahiah, Bring hither the ark of God. For the ark of God was at that time with the children of Israel.  
+> **¹⁹** And it came to pass, while Saul talked unto the priest, that the noise that *was* in the host of the Philistines went on and increased: and Saul said unto the priest, Withdraw thine hand.  
+> **²⁰** And Saul and all the people that *were* with him assembled themselves, and they came to the battle: and, behold, every man's sword was against his fellow, *and there was* a very great discomfiture.  
+> **²¹** Moreover the Hebrews *that* were with the Philistines before that time, which went up with them into the camp *from the country* round about, even they also *turned* to be with the Israelites that *were* with Saul and Jonathan.  
+> **²²** Likewise all the men of Israel which had hid themselves in mount Ephraim, *when* they heard that the Philistines fled, even they also followed hard after them in the battle.  
+> **²³** So the LORD saved Israel that day: and the battle passed over unto Beth-aven.  
 
 We have here the prosecution and improvement of the wonderful advantages which Jonathan and his armour-bearer gained against the Philistines.
 
@@ -69,18 +69,18 @@ II\. The Israelites were hereby animated against them.
 
 ## Saul's Rash Oath. (b. c. 1067.)
 
-> <sup>24</sup> And the men of Israel were distressed that day: for Saul had adjured the people, saying, Cursed *be* the man that eateth *any* food until evening, that I may be avenged on mine enemies. So none of the people tasted *any* food.  
-> <sup>25</sup> And all *they of* the land came to a wood; and there was honey upon the ground.  
-> <sup>26</sup> And when the people were come into the wood, behold, the honey dropped; but no man put his hand to his mouth: for the people feared the oath.  
-> <sup>27</sup> But Jonathan heard not when his father charged the people with the oath: wherefore he put forth the end of the rod that *was* in his hand, and dipped it in a honeycomb, and put his hand to his mouth; and his eyes were enlightened.  
-> <sup>28</sup> Then answered one of the people, and said, Thy father straitly charged the people with an oath, saying, Cursed *be* the man that eateth *any* food this day. And the people were faint.  
-> <sup>29</sup> Then said Jonathan, My father hath troubled the land: see, I pray you, how mine eyes have been enlightened, because I tasted a little of this honey.  
-> <sup>30</sup> How much more, if haply the people had eaten freely to day of the spoil of their enemies which they found? for had there not been now a much greater slaughter among the Philistines?  
-> <sup>31</sup> And they smote the Philistines that day from Michmash to Aijalon: and the people were very faint.  
-> <sup>32</sup> And the people flew upon the spoil, and took sheep, and oxen, and calves, and slew *them* on the ground: and the people did eat *them* with the blood.  
-> <sup>33</sup> Then they told Saul, saying, Behold, the people sin against the LORD, in that they eat with the blood. And he said, Ye have transgressed: roll a great stone unto me this day.  
-> <sup>34</sup> And Saul said, Disperse yourselves among the people, and say unto them, Bring me hither every man his ox, and every man his sheep, and slay *them* here, and eat; and sin not against the LORD in eating with the blood. And all the people brought every man his ox with him that night, and slew *them* there.  
-> <sup>35</sup> And Saul built an altar unto the LORD: the same was the first altar that he built unto the LORD.  
+> **²⁴** And the men of Israel were distressed that day: for Saul had adjured the people, saying, Cursed *be* the man that eateth *any* food until evening, that I may be avenged on mine enemies. So none of the people tasted *any* food.  
+> **²⁵** And all *they of* the land came to a wood; and there was honey upon the ground.  
+> **²⁶** And when the people were come into the wood, behold, the honey dropped; but no man put his hand to his mouth: for the people feared the oath.  
+> **²⁷** But Jonathan heard not when his father charged the people with the oath: wherefore he put forth the end of the rod that *was* in his hand, and dipped it in a honeycomb, and put his hand to his mouth; and his eyes were enlightened.  
+> **²⁸** Then answered one of the people, and said, Thy father straitly charged the people with an oath, saying, Cursed *be* the man that eateth *any* food this day. And the people were faint.  
+> **²⁹** Then said Jonathan, My father hath troubled the land: see, I pray you, how mine eyes have been enlightened, because I tasted a little of this honey.  
+> **³⁰** How much more, if haply the people had eaten freely to day of the spoil of their enemies which they found? for had there not been now a much greater slaughter among the Philistines?  
+> **³¹** And they smote the Philistines that day from Michmash to Aijalon: and the people were very faint.  
+> **³²** And the people flew upon the spoil, and took sheep, and oxen, and calves, and slew *them* on the ground: and the people did eat *them* with the blood.  
+> **³³** Then they told Saul, saying, Behold, the people sin against the LORD, in that they eat with the blood. And he said, Ye have transgressed: roll a great stone unto me this day.  
+> **³⁴** And Saul said, Disperse yourselves among the people, and say unto them, Bring me hither every man his ox, and every man his sheep, and slay *them* here, and eat; and sin not against the LORD in eating with the blood. And all the people brought every man his ox with him that night, and slew *them* there.  
+> **³⁵** And Saul built an altar unto the LORD: the same was the first altar that he built unto the LORD.  
 
 We have here an account of the distress of the children of Israel, even in the day of their triumphs. Such alloys are all present joys subject to. And such obstructions does many a good cause meet with, even when it seems most prosperous, through the mismanagement of instruments.
 
@@ -92,17 +92,17 @@ III\. On this occasion Saul built an altar (1Sa 14:35), that he might offer sacr
 
 ## Jonathan Condemned to Die; Jonathan Rescued. (b. c. 1067.)
 
-> <sup>36</sup> And Saul said, Let us go down after the Philistines by night, and spoil them until the morning light, and let us not leave a man of them. And they said, Do whatsoever seemeth good unto thee. Then said the priest, Let us draw near hither unto God.  
-> <sup>37</sup> And Saul asked counsel of God, Shall I go down after the Philistines? wilt thou deliver them into the hand of Israel? But he answered him not that day.  
-> <sup>38</sup> And Saul said, Draw ye near hither, all the chief of the people: and know and see wherein this sin hath been this day.  
-> <sup>39</sup> For, *as* the LORD liveth, which saveth Israel, though it be in Jonathan my son, he shall surely die. But *there was* not a man among all the people *that* answered him.  
-> <sup>40</sup> Then said he unto all Israel, Be ye on one side, and I and Jonathan my son will be on the other side. And the people said unto Saul, Do what seemeth good unto thee.  
-> <sup>41</sup> Therefore Saul said unto the LORD God of Israel, Give a perfect *lot.* And Saul and Jonathan were taken: but the people escaped.  
-> <sup>42</sup> And Saul said, Cast *lots* between me and Jonathan my son. And Jonathan was taken.  
-> <sup>43</sup> Then Saul said to Jonathan, Tell me what thou hast done. And Jonathan told him, and said, I did but taste a little honey with the end of the rod that *was* in mine hand, *and,* lo, I must die.  
-> <sup>44</sup> And Saul answered, God do so and more also: for thou shalt surely die, Jonathan.  
-> <sup>45</sup> And the people said unto Saul, Shall Jonathan die, who hath wrought this great salvation in Israel? God forbid: *as* the LORD liveth, there shall not one hair of his head fall to the ground; for he hath wrought with God this day. So the people rescued Jonathan, that he died not.  
-> <sup>46</sup> Then Saul went up from following the Philistines: and the Philistines went to their own place.  
+> **³⁶** And Saul said, Let us go down after the Philistines by night, and spoil them until the morning light, and let us not leave a man of them. And they said, Do whatsoever seemeth good unto thee. Then said the priest, Let us draw near hither unto God.  
+> **³⁷** And Saul asked counsel of God, Shall I go down after the Philistines? wilt thou deliver them into the hand of Israel? But he answered him not that day.  
+> **³⁸** And Saul said, Draw ye near hither, all the chief of the people: and know and see wherein this sin hath been this day.  
+> **³⁹** For, *as* the LORD liveth, which saveth Israel, though it be in Jonathan my son, he shall surely die. But *there was* not a man among all the people *that* answered him.  
+> **⁴⁰** Then said he unto all Israel, Be ye on one side, and I and Jonathan my son will be on the other side. And the people said unto Saul, Do what seemeth good unto thee.  
+> **⁴¹** Therefore Saul said unto the LORD God of Israel, Give a perfect *lot.* And Saul and Jonathan were taken: but the people escaped.  
+> **⁴²** And Saul said, Cast *lots* between me and Jonathan my son. And Jonathan was taken.  
+> **⁴³** Then Saul said to Jonathan, Tell me what thou hast done. And Jonathan told him, and said, I did but taste a little honey with the end of the rod that *was* in mine hand, *and,* lo, I must die.  
+> **⁴⁴** And Saul answered, God do so and more also: for thou shalt surely die, Jonathan.  
+> **⁴⁵** And the people said unto Saul, Shall Jonathan die, who hath wrought this great salvation in Israel? God forbid: *as* the LORD liveth, there shall not one hair of his head fall to the ground; for he hath wrought with God this day. So the people rescued Jonathan, that he died not.  
+> **⁴⁶** Then Saul went up from following the Philistines: and the Philistines went to their own place.  
 
 Here is, I. Saul's boasting against the Philistines. He proposed, as soon as his soldiers had got their suppers, to pursue them all night, and *not leave a man of them,* 1Sa 14:36. Here he showed much zeal, but little discretion; for his army, thus fatigued, could as ill spare a night's sleep as a meal's meat. But it is common for rash and foolish men to consider nobody but themselves, and, so that they might but have their humour, not to care what hardships they put upon those that are under them. However, the people were so obsequious to their king that they would by no means oppose the motion, but resolved to make the best of it, and, if he will go on, they will follow him: *Do whatsoever seemeth good to thee.* Only the priest thought it convenient to go on with the devotions that were broken off abruptly (1Sa 14:19), and to consult the oracle: *Let us draw near hither unto God.* Princes and great men have need of such about them as will thus be their remembrancers, wherever they go, to take God along with them. And, when the priest proposed it, Saul could not for shame reject the proposal, but *asked counsel of God* (1Sa 14:37): "*Shall I go down after the Philistines?* And shall I speed?"
 
@@ -120,12 +120,12 @@ II\. His falling foul on his son Jonathan: and the rest of this paragraph is who
 
 ## The Amalekites Destroyed. (b. c. 1067.)
 
-> <sup>47</sup> So Saul took the kingdom over Israel, and fought against all his enemies on every side, against Moab, and against the children of Ammon, and against Edom, and against the kings of Zobah, and against the Philistines: and whithersoever he turned himself, he vexed *them.*  
-> <sup>48</sup> And he gathered a host, and smote the Amalekites, and delivered Israel out of the hands of them that spoiled them.  
-> <sup>49</sup> Now the sons of Saul were Jonathan, and Ishui, and Melchishua: and the names of his two daughters *were these;* the name of the firstborn Merab, and the name of the younger Michal:  
-> <sup>50</sup> And the name of Saul's wife *was* Ahinoam, the daughter of Ahimaaz: and the name of the captain of his host *was* Abner, the son of Ner, Saul's uncle.  
-> <sup>51</sup> And Kish *was* the father of Saul; and Ner the father of Abner *was* the son of Abiel.  
-> <sup>52</sup> And there was sore war against the Philistines all the days of Saul: and when Saul saw any strong man, or any valiant man, he took him unto him.  
+> **⁴⁷** So Saul took the kingdom over Israel, and fought against all his enemies on every side, against Moab, and against the children of Ammon, and against Edom, and against the kings of Zobah, and against the Philistines: and whithersoever he turned himself, he vexed *them.*  
+> **⁴⁸** And he gathered a host, and smote the Amalekites, and delivered Israel out of the hands of them that spoiled them.  
+> **⁴⁹** Now the sons of Saul were Jonathan, and Ishui, and Melchishua: and the names of his two daughters *were these;* the name of the firstborn Merab, and the name of the younger Michal:  
+> **⁵⁰** And the name of Saul's wife *was* Ahinoam, the daughter of Ahimaaz: and the name of the captain of his host *was* Abner, the son of Ner, Saul's uncle.  
+> **⁵¹** And Kish *was* the father of Saul; and Ner the father of Abner *was* the son of Abiel.  
+> **⁵²** And there was sore war against the Philistines all the days of Saul: and when Saul saw any strong man, or any valiant man, he took him unto him.  
 
 Here is a general account of Saul's court and camp. 1. Of his court and family, the names of his sons and daughters (1Sa 14:49), and of his wife and his cousin-german that was general of his army, 1Sa 14:50. There is mention of another wife of Saul's (2Sa 21:8), Rizpah, a secondary wife, and of the children he had by her. 2. Of his camp and military actions. (1.) How he levied his army: *When he saw any strong valiant man,* that was remarkably fit for service, *he took him unto him* (1Sa 14:52), as Samuel had told them the manner of the king would be (1Sa 8:11); and, if he must have a standing army, it was his prudence to fill it up with the ablest men he could make choice of. (2.) How he employed his army. He guarded his country against the insults of its enemies on every side, and prevented their incursions, 1Sa 14:47,48. It is supposed that he acted only defensively against those that used to invade the borders of Israel; *and whithersoever he turned himself,* as there was occasion, *he vexed them,* by checking and disappointing them. But the enemies he struggled most with were the Philistines, with whom he had *sore war all his days,* 1Sa 14:52. He had little reason to be proud of his royal dignity, nor had any of his neighbours cause to envy him, for he had little enjoyment of himself after he took the kingdom. He could not vex his enemies without some vexation to himself, such thorns are crowns quilted with.
 

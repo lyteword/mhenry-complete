@@ -8,15 +8,15 @@ We left Paul a prisoner at Cæsarea, in Herod's judgment-hall, expecting his tri
 
 ## The Speech of Tertullus.
 
-> <sup>1</sup> And after five days Ananias the high priest descended with the elders, and *with* a certain orator *named* Tertullus, who informed the governor against Paul.  
-> <sup>2</sup> And when he was called forth, Tertullus began to accuse *him,* saying, Seeing that by thee we enjoy great quietness, and that very worthy deeds are done unto this nation by thy providence,  
-> <sup>3</sup> We accept *it* always, and in all places, most noble Felix, with all thankfulness.  
-> <sup>4</sup> Notwithstanding, that I be not further tedious unto thee, I pray thee that thou wouldest hear us of thy clemency a few words.  
-> <sup>5</sup> For we have found this man *a* pestilent *fellow,* and a mover of sedition among all the Jews throughout the world, and a ringleader of the sect of the Nazarenes:  
-> <sup>6</sup> Who also hath gone about to profane the temple: whom we took, and would have judged according to our law.  
-> <sup>7</sup> But the chief captain Lysias came *upon us,* and with great violence took *him* away out of our hands,  
-> <sup>8</sup> Commanding his accusers to come unto thee: by examining of whom thyself mayest take knowledge of all these things, whereof we accuse him.  
-> <sup>9</sup> And the Jews also assented, saying that these things were so.  
+> **¹** And after five days Ananias the high priest descended with the elders, and *with* a certain orator *named* Tertullus, who informed the governor against Paul.  
+> **²** And when he was called forth, Tertullus began to accuse *him,* saying, Seeing that by thee we enjoy great quietness, and that very worthy deeds are done unto this nation by thy providence,  
+> **³** We accept *it* always, and in all places, most noble Felix, with all thankfulness.  
+> **⁴** Notwithstanding, that I be not further tedious unto thee, I pray thee that thou wouldest hear us of thy clemency a few words.  
+> **⁵** For we have found this man *a* pestilent *fellow,* and a mover of sedition among all the Jews throughout the world, and a ringleader of the sect of the Nazarenes:  
+> **⁶** Who also hath gone about to profane the temple: whom we took, and would have judged according to our law.  
+> **⁷** But the chief captain Lysias came *upon us,* and with great violence took *him* away out of our hands,  
+> **⁸** Commanding his accusers to come unto thee: by examining of whom thyself mayest take knowledge of all these things, whereof we accuse him.  
+> **⁹** And the Jews also assented, saying that these things were so.  
 
 We must suppose *that Lysias, the chief captain,* when he had *sent away Paul to Cæsarea,* gave notice to the chief priests, and others that had appeared against Paul, that if they had any thing to accuse him of they must follow him to Cæsarea, and there they would find him, and a judge ready to hear them-thinking, perhaps, they would not have given themselves so much trouble; but what will not malice do?
 
@@ -50,18 +50,18 @@ III\. The assent of the Jews to this charge which Tertullus exhibited (Ac 24:9):
 
 ## Paul's Third Defence.
 
-> <sup>10</sup> Then Paul, after that the governor had beckoned unto him to speak, answered, Forasmuch as I know that thou hast been of many years a judge unto this nation, I do the more cheerfully answer for myself:  
-> <sup>11</sup> Because that thou mayest understand, that there are yet but twelve days since I went up to Jerusalem for to worship.  
-> <sup>12</sup> And they neither found me in the temple disputing with any man, neither raising up the people, neither in the synagogues, nor in the city:  
-> <sup>13</sup> Neither can they prove the things whereof they now accuse me.  
-> <sup>14</sup> But this I confess unto thee, that after the way which they call heresy, so worship I the God of my fathers, believing all things which are written in the law and in the prophets:  
-> <sup>15</sup> And have hope toward God, which they themselves also allow, that there shall be a resurrection of the dead, both of the just and unjust.  
-> <sup>16</sup> And herein do I exercise myself, to have always a conscience void of offence toward God, and *toward* men.  
-> <sup>17</sup> Now after many years I came to bring alms to my nation, and offerings.  
-> <sup>18</sup> Whereupon certain Jews from Asia found me purified in the temple, neither with multitude, nor with tumult.  
-> <sup>19</sup> Who ought to have been here before thee, and object, if they had ought against me.  
-> <sup>20</sup> Or else let these same *here* say, if they have found any evil doing in me, while I stood before the council,  
-> <sup>21</sup> Except it be for this one voice, that I cried standing among them, Touching the resurrection of the dead I am called in question by you this day.  
+> **¹⁰** Then Paul, after that the governor had beckoned unto him to speak, answered, Forasmuch as I know that thou hast been of many years a judge unto this nation, I do the more cheerfully answer for myself:  
+> **¹¹** Because that thou mayest understand, that there are yet but twelve days since I went up to Jerusalem for to worship.  
+> **¹²** And they neither found me in the temple disputing with any man, neither raising up the people, neither in the synagogues, nor in the city:  
+> **¹³** Neither can they prove the things whereof they now accuse me.  
+> **¹⁴** But this I confess unto thee, that after the way which they call heresy, so worship I the God of my fathers, believing all things which are written in the law and in the prophets:  
+> **¹⁵** And have hope toward God, which they themselves also allow, that there shall be a resurrection of the dead, both of the just and unjust.  
+> **¹⁶** And herein do I exercise myself, to have always a conscience void of offence toward God, and *toward* men.  
+> **¹⁷** Now after many years I came to bring alms to my nation, and offerings.  
+> **¹⁸** Whereupon certain Jews from Asia found me purified in the temple, neither with multitude, nor with tumult.  
+> **¹⁹** Who ought to have been here before thee, and object, if they had ought against me.  
+> **²⁰** Or else let these same *here* say, if they have found any evil doing in me, while I stood before the council,  
+> **²¹** Except it be for this one voice, that I cried standing among them, Touching the resurrection of the dead I am called in question by you this day.  
 
 We have here Paul's defence of himself, in answer to Tertullus's charge, and there appears in it a great deal of the spirit of wisdom and holiness, and an accomplishment of Christ's promise to his followers that when they were before governors and kings, for his sake, it should be *given them in that same hour what they should speak.* Though Tertullus had said a great many provoking things, yet Paul did not interrupt him, but let him go on to the end of his speech, according to the rules of decency and the method in courts of justice, that the plaintiff be allowed to finish his evidence before the defendant begins his plea. And when he had done, he did not presently fly out into passionate exclamations against the iniquity of the times and the men (*O tempora! O mores!—Oh the degeneracy of the times!*) but he waited for a permission from the judge to speak in his turn, and had it. The *governor beckoned to him to speak,* Ac 24:10. And now he also may have leave to speak out, under the protection of the governor, which was more than he could hitherto obtain. And, when he did speak, he made no reflections at all upon Tertullus, who he knew spoke for his fee, and therefore despised what he said, and levelled his defence against those that employed him. And here,
 
@@ -99,12 +99,12 @@ IV\. Having made confession of his faith, he gives a plain and faithful account 
 
 ## Paul Converses with Felix; Felix Trembles; Paul's Trial Adjourned.
 
-> <sup>22</sup> And when Felix heard these things, having more perfect knowledge of *that* way, he deferred them, and said, When Lysias the chief captain shall come down, I will know the uttermost of your matter.  
-> <sup>23</sup> And he commanded a centurion to keep Paul, and to let *him* have liberty, and that he should forbid none of his acquaintance to minister or come unto him.  
-> <sup>24</sup> And after certain days, when Felix came with his wife Drusilla, which was a Jewess, he sent for Paul, and heard him concerning the faith in Christ.  
-> <sup>25</sup> And as he reasoned of righteousness, temperance, and judgment to come, Felix trembled, and answered, Go thy way for this time; when I have a convenient season, I will call for thee.  
-> <sup>26</sup> He hoped also that money should have been given him of Paul, that he might loose him: wherefore he sent for him the oftener, and communed with him.  
-> <sup>27</sup> But after two years Porcius Festus came into Felix' room: and Felix, willing to show the Jews a pleasure, left Paul bound.  
+> **²²** And when Felix heard these things, having more perfect knowledge of *that* way, he deferred them, and said, When Lysias the chief captain shall come down, I will know the uttermost of your matter.  
+> **²³** And he commanded a centurion to keep Paul, and to let *him* have liberty, and that he should forbid none of his acquaintance to minister or come unto him.  
+> **²⁴** And after certain days, when Felix came with his wife Drusilla, which was a Jewess, he sent for Paul, and heard him concerning the faith in Christ.  
+> **²⁵** And as he reasoned of righteousness, temperance, and judgment to come, Felix trembled, and answered, Go thy way for this time; when I have a convenient season, I will call for thee.  
+> **²⁶** He hoped also that money should have been given him of Paul, that he might loose him: wherefore he sent for him the oftener, and communed with him.  
+> **²⁷** But after two years Porcius Festus came into Felix' room: and Felix, willing to show the Jews a pleasure, left Paul bound.  
 
 We have here the result of Paul's trial before Felix, and what was the consequence of it.
 

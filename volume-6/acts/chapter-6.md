@@ -8,13 +8,13 @@ In this chapter we have, I. The discontent that was among the disciples about th
 
 ## The Appointment of Deacons.
 
-> <sup>1</sup> And in those days, when the number of the disciples was multiplied, there arose a murmuring of the Grecians against the Hebrews, because their widows were neglected in the daily ministration.  
-> <sup>2</sup> Then the twelve called the multitude of the disciples *unto them,* and said, It is not reason that we should leave the word of God, and serve tables.  
-> <sup>3</sup> Wherefore, brethren, look ye out among you seven men of honest report, full of the Holy Ghost and wisdom, whom we may appoint over this business.  
-> <sup>4</sup> But we will give ourselves continually to prayer, and to the ministry of the word.  
-> <sup>5</sup> And the saying pleased the whole multitude: and they chose Stephen, a man full of faith and of the Holy Ghost, and Philip, and Prochorus, and Nicanor, and Timon, and Parmenas, and Nicolas a proselyte of Antioch:  
-> <sup>6</sup> Whom they set before the apostles: and when they had prayed, they laid *their* hands on them.  
-> <sup>7</sup> And the word of God increased; and the number of the disciples multiplied in Jerusalem greatly; and a great company of the priests were obedient to the faith.  
+> **¹** And in those days, when the number of the disciples was multiplied, there arose a murmuring of the Grecians against the Hebrews, because their widows were neglected in the daily ministration.  
+> **²** Then the twelve called the multitude of the disciples *unto them,* and said, It is not reason that we should leave the word of God, and serve tables.  
+> **³** Wherefore, brethren, look ye out among you seven men of honest report, full of the Holy Ghost and wisdom, whom we may appoint over this business.  
+> **⁴** But we will give ourselves continually to prayer, and to the ministry of the word.  
+> **⁵** And the saying pleased the whole multitude: and they chose Stephen, a man full of faith and of the Holy Ghost, and Philip, and Prochorus, and Nicanor, and Timon, and Parmenas, and Nicolas a proselyte of Antioch:  
+> **⁶** Whom they set before the apostles: and when they had prayed, they laid *their* hands on them.  
+> **⁷** And the word of God increased; and the number of the disciples multiplied in Jerusalem greatly; and a great company of the priests were obedient to the faith.  
 
 Having seen the church's struggles with her enemies, and triumphed with her in her victories, we now come to take a view of the administration of her affairs at home; and here we have,
 
@@ -54,14 +54,14 @@ III\. The advancement of the church hereupon. When things were thus put into goo
 
 ## Stephen's Address.
 
-> <sup>8</sup> And Stephen, full of faith and power, did great wonders and miracles among the people.  
-> <sup>9</sup> Then there arose certain of the synagogue, which is called *the synagogue* of the Libertines, and Cyrenians, and Alexandrians, and of them of Cilicia and of Asia, disputing with Stephen.  
-> <sup>10</sup> And they were not able to resist the wisdom and the spirit by which he spake.  
-> <sup>11</sup> Then they suborned men, which said, We have heard him speak blasphemous words against Moses, and *against* God.  
-> <sup>12</sup> And they stirred up the people, and the elders, and the scribes, and came upon *him,* and caught him, and brought *him* to the council,  
-> <sup>13</sup> And set up false witnesses, which said, This man ceaseth not to speak blasphemous words against this holy place, and the law:  
-> <sup>14</sup> For we have heard him say, that this Jesus of Nazareth shall destroy this place, and shall change the customs which Moses delivered us.  
-> <sup>15</sup> And all that sat in the council, looking stedfastly on him, saw his face as it had been the face of an angel.  
+> **⁸** And Stephen, full of faith and power, did great wonders and miracles among the people.  
+> **⁹** Then there arose certain of the synagogue, which is called *the synagogue* of the Libertines, and Cyrenians, and Alexandrians, and of them of Cilicia and of Asia, disputing with Stephen.  
+> **¹⁰** And they were not able to resist the wisdom and the spirit by which he spake.  
+> **¹¹** Then they suborned men, which said, We have heard him speak blasphemous words against Moses, and *against* God.  
+> **¹²** And they stirred up the people, and the elders, and the scribes, and came upon *him,* and caught him, and brought *him* to the council,  
+> **¹³** And set up false witnesses, which said, This man ceaseth not to speak blasphemous words against this holy place, and the law:  
+> **¹⁴** For we have heard him say, that this Jesus of Nazareth shall destroy this place, and shall change the customs which Moses delivered us.  
+> **¹⁵** And all that sat in the council, looking stedfastly on him, saw his face as it had been the face of an angel.  
 
 Stephen, no doubt was diligent and faithful in the discharge of his office as distributor of the church's charity, and laid out himself to put that affair in a good method, which he did to universal satisfaction; and though it appears here that he was a man of uncommon gifts, and fitted for a higher station, yet, being called to that office, he did not think it below him to do the duty of it. And, being faithful in a little, he was entrusted with more; and, though we do not find him propagating the gospel by preaching and baptizing, yet we find him here called out to very honourable services, and owned in them.
 

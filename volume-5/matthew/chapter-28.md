@@ -8,16 +8,16 @@ In the foregoing chapters, we saw the Captain of our salvation engaged with the 
 
 ## The Resurrection.
 
-> <sup>1</sup> In the end of the sabbath, as it began to dawn toward the first *day* of the week, came Mary Magdalene and the other Mary to see the sepulchre.  
-> <sup>2</sup> And, behold, there was a great earthquake: for the angel of the Lord descended from heaven, and came and rolled back the stone from the door, and sat upon it.  
-> <sup>3</sup> His countenance was like lightning, and his raiment white as snow:  
-> <sup>4</sup> And for fear of him the keepers did shake, and became as dead *men.*  
-> <sup>5</sup> And the angel answered and said unto the women, Fear not ye: for I know that ye seek Jesus, which was crucified.  
-> <sup>6</sup> He is not here: for he is risen, as he said. Come, see the place where the Lord lay.  
-> <sup>7</sup> And go quickly, and tell his disciples that he is risen from the dead; and, behold, he goeth before you into Galilee; there shall ye see him: lo, I have told you.  
-> <sup>8</sup> And they departed quickly from the sepulchre with fear and great joy; and did run to bring his disciples word.  
-> <sup>9</sup> And as they went to tell his disciples, behold, Jesus met them, saying, All hail. And they came and held him by the feet, and worshipped him.  
-> <sup>10</sup> Then said Jesus unto them, Be not afraid: go tell my brethren that they go into Galilee, and there shall they see me.  
+> **¹** In the end of the sabbath, as it began to dawn toward the first *day* of the week, came Mary Magdalene and the other Mary to see the sepulchre.  
+> **²** And, behold, there was a great earthquake: for the angel of the Lord descended from heaven, and came and rolled back the stone from the door, and sat upon it.  
+> **³** His countenance was like lightning, and his raiment white as snow:  
+> **⁴** And for fear of him the keepers did shake, and became as dead *men.*  
+> **⁵** And the angel answered and said unto the women, Fear not ye: for I know that ye seek Jesus, which was crucified.  
+> **⁶** He is not here: for he is risen, as he said. Come, see the place where the Lord lay.  
+> **⁷** And go quickly, and tell his disciples that he is risen from the dead; and, behold, he goeth before you into Galilee; there shall ye see him: lo, I have told you.  
+> **⁸** And they departed quickly from the sepulchre with fear and great joy; and did run to bring his disciples word.  
+> **⁹** And as they went to tell his disciples, behold, Jesus met them, saying, All hail. And they came and held him by the feet, and worshipped him.  
+> **¹⁰** Then said Jesus unto them, Be not afraid: go tell my brethren that they go into Galilee, and there shall they see me.  
 
 For the proof of Christ's resurrection, we have here the testimony of *the angel,* and of *Christ* himself, concerning his resurrection. Now we may think that it would have been better, if the matter had been so ordered, that a competent number of witnesses should have been present, and have seen the stone rolled away by the angel, and the dead body reviving, as people saw Lazarus come out of the grave, and then the matter had been past dispute; but let us not prescribe to Infinite Wisdom, which ordered that the witnesses of his resurrection should see him *risen,* but not see him *rise.* His incarnation was a mystery; so was this *second incarnation* (if we may so call it), this *new making* of the body of Christ, for his exalted state; it was therefore *made in secret. Blessed are they that have not seen, and yet have believed.* Christ gave such proofs of his resurrection as were *corroborated* by the scriptures, and by the *word* which he had *spoken* (Lu 24:6,7-44, Mk 16:7); for here we must *walk by faith, not by sight.* We have here,
 
@@ -97,11 +97,11 @@ Here is, 1. Christ's surprising appearance to the women; *As they went to tell h
 
 ## The Resurrection.
 
-> <sup>11</sup> Now when they were going, behold, some of the watch came into the city, and showed unto the chief priests all the things that were done.  
-> <sup>12</sup> And when they were assembled with the elders, and had taken counsel, they gave large money unto the soldiers,  
-> <sup>13</sup> Saying, Say ye, His disciples came by night, and stole him *away* while we slept.  
-> <sup>14</sup> And if this come to the governor's ears, we will persuade him, and secure you.  
-> <sup>15</sup> So they took the money, and did as they were taught: and this saying is commonly reported among the Jews until this day.  
+> **¹¹** Now when they were going, behold, some of the watch came into the city, and showed unto the chief priests all the things that were done.  
+> **¹²** And when they were assembled with the elders, and had taken counsel, they gave large money unto the soldiers,  
+> **¹³** Saying, Say ye, His disciples came by night, and stole him *away* while we slept.  
+> **¹⁴** And if this come to the governor's ears, we will persuade him, and secure you.  
+> **¹⁵** So they took the money, and did as they were taught: and this saying is commonly reported among the Jews until this day.  
 
 For the further proof of the resurrection of Christ, we have here the confession of the adversaries that were upon the guard; and there are two things which strengthen this testimony—that they were *eye-witnesses,* and did themselves see the glory of the resurrection, which none else did—and that they were *enemies,* set there to oppose and obstruct his resurrection. Now observe here,
 
@@ -127,11 +127,11 @@ The great argument to prove Christ to be the Son of God, is, his resurrection, a
 
 ## The Apostolic Commission.
 
-> <sup>16</sup> Then the eleven disciples went away into Galilee, into a mountain where Jesus had appointed them.  
-> <sup>17</sup> And when they saw him, they worshipped him: but some doubted.  
-> <sup>18</sup> And Jesus came and spake unto them, saying, All power is given unto me in heaven and in earth.  
-> <sup>19</sup> Go ye therefore, and teach all nations, baptizing them in the name of the Father, and of the Son, and of the Holy Ghost:  
-> <sup>20</sup> Teaching them to observe all things whatsoever I have commanded you: and, lo, I am with you alway, *even* unto the end of the world. Amen.  
+> **¹⁶** Then the eleven disciples went away into Galilee, into a mountain where Jesus had appointed them.  
+> **¹⁷** And when they saw him, they worshipped him: but some doubted.  
+> **¹⁸** And Jesus came and spake unto them, saying, All power is given unto me in heaven and in earth.  
+> **¹⁹** Go ye therefore, and teach all nations, baptizing them in the name of the Father, and of the Son, and of the Holy Ghost:  
+> **²⁰** Teaching them to observe all things whatsoever I have commanded you: and, lo, I am with you alway, *even* unto the end of the world. Amen.  
 
 This evangelist passes over several other appearances of Christ, recorded by Luke and John, and hastens to this, which was of all other the most solemn, as being promised and appointed again and again before his death, and after his resurrection. Observe,
 

@@ -8,11 +8,11 @@ I\. He treats of the duty of servants, 1Ti 6:1,2. II. Of false teachers, 1Ti 6:3
 
 ## The Duty of Servants. (a. d. 64.)
 
-> <sup>1</sup> Let as many servants as are under the yoke count their own masters worthy of all honour, that the name of God and *his* doctrine be not blasphemed.  
-> <sup>2</sup> And they that have believing masters, let them not despise *them,* because they are brethren; but rather do *them* service, because they are faithful and beloved, partakers of the benefit. These things teach and exhort.  
-> <sup>3</sup> If any man teach otherwise, and consent not to wholesome words, *even* the words of our Lord Jesus Christ, and to the doctrine which is according to godliness;  
-> <sup>4</sup> He is proud, knowing nothing, but doting about questions and strifes of words, whereof cometh envy, strife, railings, evil surmisings,  
-> <sup>5</sup> Perverse disputings of men of corrupt minds, and destitute of the truth, supposing that gain is godliness: from such withdraw thyself.  
+> **¹** Let as many servants as are under the yoke count their own masters worthy of all honour, that the name of God and *his* doctrine be not blasphemed.  
+> **²** And they that have believing masters, let them not despise *them,* because they are brethren; but rather do *them* service, because they are faithful and beloved, partakers of the benefit. These things teach and exhort.  
+> **³** If any man teach otherwise, and consent not to wholesome words, *even* the words of our Lord Jesus Christ, and to the doctrine which is according to godliness;  
+> **⁴** He is proud, knowing nothing, but doting about questions and strifes of words, whereof cometh envy, strife, railings, evil surmisings,  
+> **⁵** Perverse disputings of men of corrupt minds, and destitute of the truth, supposing that gain is godliness: from such withdraw thyself.  
 
 I\. Here is the duty of servants. The apostle had spoken before of church-relations, here of our family-relations. Servants are here said to be *under the yoke,* which denotes both subjection and labour; they are yoked to work, not to be idle. If Christianity finds servants under the yoke, it continues them under it; for the gospel does not cancel the obligations any lie under either by the law of nature or by mutual consent. They must respect their masters, *count them worthy of all honour* (because they are their masters), of all the respect, observance, compliance, and obedience, that are justly expected from servants to their masters. Not that they were to think that of them which they were not; but as their masters they must count them worthy of all that honour which was fit for them to receive, *that the name of God be not blasphemed.* If servants that embraced the Christian religion should grow insolent and disobedient to their masters, the doctrine of Christ would be reflected on for their sakes, as if it had made men worse livers than they had been before they received the gospel. Observe, If the professors of religion misbehave themselves, *the name of God and his doctrine* are in danger of being blasphemed by those who seek occasion *to speak evil of that worthy name by which we are called.* And this is a good reason why we should all conduct ourselves well, that we may prevent the occasion which many seek, and will be very apt to lay hold of, to speak ill of religion for our sakes. Or suppose the master were a Christian, and a believer, and the servant a believer too, would not this excuse him, because *in Christ there is neither bond nor free?* No, by no means, for Jesus Christ did not come to dissolve the bond of civil relation, but to strengthen it: *Those that have believing masters, let them not despise them because they are brethren;* for this brotherhood relates only to spiritual privileges, not to any outward dignity or advantage (those misunderstood and abuse their religion who make it a pretence for denying the duties that they owe to their relations); nay, *rather do them service, because they are faithful and beloved.* They must think themselves the more obliged to serve them because the faith and love that bespeak men Christians oblige them to do good; and that is all wherein their service consists. Observe, It is a great encouragement to us in doing our duty to our relations if we have reason to think they are faithful and beloved, *and partakers of the benefit,* that is, of the benefit of Christianity. Again, Believing masters and servants are brethren, and partakers of the benefit; for in Christ Jesus there is neither bond nor free, for you are all one in Christ Jesus, Ga 3:28. Timothy is appointed to *teach and exhort these things.* Ministers must preach not only the general duties of all, but the duties of particular relations.
 
@@ -20,13 +20,13 @@ II\. Paul here warns Timothy to withdraw from those who corrupted the doctrine o
 
 ## Excellence of Contentment; Evil of Covetousness. (a. d. 64.)
 
-> <sup>6</sup> But godliness with contentment is great gain.  
-> <sup>7</sup> For we brought nothing into *this* world, *and it is* certain we can carry nothing out.  
-> <sup>8</sup> And having food and raiment let us be therewith content.  
-> <sup>9</sup> But they that will be rich fall into temptation and a snare, and *into* many foolish and hurtful lusts, which drown men in destruction and perdition.  
-> <sup>10</sup> For the love of money is the root of all evil: which while some coveted after, they have erred from the faith, and pierced themselves through with many sorrows.  
-> <sup>11</sup> But thou, O man of God, flee these things; and follow after righteousness, godliness, faith, love, patience, meekness.  
-> <sup>12</sup> Fight the good fight of faith, lay hold on eternal life, whereunto thou art also called, and hast professed a good profession before many witnesses.  
+> **⁶** But godliness with contentment is great gain.  
+> **⁷** For we brought nothing into *this* world, *and it is* certain we can carry nothing out.  
+> **⁸** And having food and raiment let us be therewith content.  
+> **⁹** But they that will be rich fall into temptation and a snare, and *into* many foolish and hurtful lusts, which drown men in destruction and perdition.  
+> **¹⁰** For the love of money is the root of all evil: which while some coveted after, they have erred from the faith, and pierced themselves through with many sorrows.  
+> **¹¹** But thou, O man of God, flee these things; and follow after righteousness, godliness, faith, love, patience, meekness.  
+> **¹²** Fight the good fight of faith, lay hold on eternal life, whereunto thou art also called, and hast professed a good profession before many witnesses.  
 
 From the mention of the abuse which some put upon religion, making it to serve their secular advantages, the apostle,
 
@@ -50,15 +50,15 @@ II\. Hence he takes occasion to caution Timothy, and to counsel him to keep in t
 
 ## The Apostle's Solemn Charge; Caution to Rich. (a. d. 64.)
 
-> <sup>13</sup> I give thee charge in the sight of God, who quickeneth all things, and *before* Christ Jesus, who before Pontius Pilate witnessed a good confession;  
-> <sup>14</sup> That thou keep *this* commandment without spot, unrebukeable, until the appearing of our Lord Jesus Christ:  
-> <sup>15</sup> Which in his times he shall show, *who is* the blessed and only Potentate, the King of kings, and Lord of lords;  
-> <sup>16</sup> Who only hath immortality, dwelling in the light which no man can approach unto; whom no man hath seen, nor can see: to whom *be* honour and power everlasting. Amen.  
-> <sup>17</sup> Charge them that are rich in this world, that they be not highminded, nor trust in uncertain riches, but in the living God, who giveth us richly all things to enjoy;  
-> <sup>18</sup> That they do good, that they be rich in good works, ready to distribute, willing to communicate;  
-> <sup>19</sup> Laying up in store for themselves a good foundation against the time to come, that they may lay hold on eternal life.  
-> <sup>20</sup> O Timothy, keep that which is committed to thy trust, avoiding profane *and* vain babblings, and oppositions of science falsely so called:  
-> <sup>21</sup> Which some professing have erred concerning the faith. Grace *be* with thee. Amen.  
+> **¹³** I give thee charge in the sight of God, who quickeneth all things, and *before* Christ Jesus, who before Pontius Pilate witnessed a good confession;  
+> **¹⁴** That thou keep *this* commandment without spot, unrebukeable, until the appearing of our Lord Jesus Christ:  
+> **¹⁵** Which in his times he shall show, *who is* the blessed and only Potentate, the King of kings, and Lord of lords;  
+> **¹⁶** Who only hath immortality, dwelling in the light which no man can approach unto; whom no man hath seen, nor can see: to whom *be* honour and power everlasting. Amen.  
+> **¹⁷** Charge them that are rich in this world, that they be not highminded, nor trust in uncertain riches, but in the living God, who giveth us richly all things to enjoy;  
+> **¹⁸** That they do good, that they be rich in good works, ready to distribute, willing to communicate;  
+> **¹⁹** Laying up in store for themselves a good foundation against the time to come, that they may lay hold on eternal life.  
+> **²⁰** O Timothy, keep that which is committed to thy trust, avoiding profane *and* vain babblings, and oppositions of science falsely so called:  
+> **²¹** Which some professing have erred concerning the faith. Grace *be* with thee. Amen.  
 
 The apostle here charges Timothy *to keep this commandment* (that is, the whole work of his ministry, all the trust reposed in him, all the service expected from him) *without spot, unrebukable;* he must conduct himself so in his ministry that he might not lay himself open to any blame nor incur any blemish. What are the motives to move him to this?
 

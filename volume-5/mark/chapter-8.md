@@ -8,15 +8,15 @@ In this chapter, we have, I. Christ's miraculous feeding of four thousand with s
 
 ## Christ Feeds the Four Thousand.
 
-> <sup>1</sup> In those days the multitude being very great, and having nothing to eat, Jesus called his disciples *unto him,* and saith unto them,  
-> <sup>2</sup> I have compassion on the multitude, because they have now been with me three days, and have nothing to eat:  
-> <sup>3</sup> And if I send them away fasting to their own houses, they will faint by the way: for divers of them came from far.  
-> <sup>4</sup> And his disciples answered him, From whence can a man satisfy these *men* with bread here in the wilderness?  
-> <sup>5</sup> And he asked them, How many loaves have ye? And they said, Seven.  
-> <sup>6</sup> And he commanded the people to sit down on the ground: and he took the seven loaves, and gave thanks, and brake, and gave to his disciples to set before *them;* and they did set *them* before the people.  
-> <sup>7</sup> And they had a few small fishes: and he blessed, and commanded to set them also before *them.*  
-> <sup>8</sup> So they did eat, and were filled: and they took up of the broken *meat* that was left seven baskets.  
-> <sup>9</sup> And they that had eaten were about four thousand: and he sent them away.  
+> **¹** In those days the multitude being very great, and having nothing to eat, Jesus called his disciples *unto him,* and saith unto them,  
+> **²** I have compassion on the multitude, because they have now been with me three days, and have nothing to eat:  
+> **³** And if I send them away fasting to their own houses, they will faint by the way: for divers of them came from far.  
+> **⁴** And his disciples answered him, From whence can a man satisfy these *men* with bread here in the wilderness?  
+> **⁵** And he asked them, How many loaves have ye? And they said, Seven.  
+> **⁶** And he commanded the people to sit down on the ground: and he took the seven loaves, and gave thanks, and brake, and gave to his disciples to set before *them;* and they did set *them* before the people.  
+> **⁷** And they had a few small fishes: and he blessed, and commanded to set them also before *them.*  
+> **⁸** So they did eat, and were filled: and they took up of the broken *meat* that was left seven baskets.  
+> **⁹** And they that had eaten were about four thousand: and he sent them away.  
 
 We had the story of a miracle very like this before, in this gospel (Mk 6:35), and of this same miracle (Mt 15:32), and here is little or no addition or alternation as to the circumstances. Yet observe,
 
@@ -38,18 +38,18 @@ We had the story of a miracle very like this before, in this gospel (Mk 6:35), a
 
 ## The Leaven of Herod and the Pharisees; Christ Reproves His Disciples.
 
-> <sup>10</sup> And straightway he entered into a ship with his disciples, and came into the parts of Dalmanutha.  
-> <sup>11</sup> And the Pharisees came forth, and began to question with him, seeking of him a sign from heaven, tempting him.  
-> <sup>12</sup> And he sighed deeply in his spirit, and saith, Why doth this generation seek after a sign? verily I say unto you, There shall no sign be given unto this generation.  
-> <sup>13</sup> And he left them, and entering into the ship again departed to the other side.  
-> <sup>14</sup> Now *the disciples* had forgotten to take bread, neither had they in the ship with them more than one loaf.  
-> <sup>15</sup> And he charged them, saying, Take heed, beware of the leaven of the Pharisees, and *of* the leaven of Herod.  
-> <sup>16</sup> And they reasoned among themselves, saying, *It is* because we have no bread.  
-> <sup>17</sup> And when Jesus knew *it,* he saith unto them, Why reason ye, because ye have no bread? perceive ye not yet, neither understand? have ye your heart yet hardened?  
-> <sup>18</sup> Having eyes, see ye not? and having ears, hear ye not? and do ye not remember?  
-> <sup>19</sup> When I brake the five loaves among five thousand, how many baskets full of fragments took ye up? They say unto him, Twelve.  
-> <sup>20</sup> And when the seven among four thousand, how many baskets full of fragments took ye up? And they said, Seven.  
-> <sup>21</sup> And he said unto them, How is it that ye do not understand?  
+> **¹⁰** And straightway he entered into a ship with his disciples, and came into the parts of Dalmanutha.  
+> **¹¹** And the Pharisees came forth, and began to question with him, seeking of him a sign from heaven, tempting him.  
+> **¹²** And he sighed deeply in his spirit, and saith, Why doth this generation seek after a sign? verily I say unto you, There shall no sign be given unto this generation.  
+> **¹³** And he left them, and entering into the ship again departed to the other side.  
+> **¹⁴** Now *the disciples* had forgotten to take bread, neither had they in the ship with them more than one loaf.  
+> **¹⁵** And he charged them, saying, Take heed, beware of the leaven of the Pharisees, and *of* the leaven of Herod.  
+> **¹⁶** And they reasoned among themselves, saying, *It is* because we have no bread.  
+> **¹⁷** And when Jesus knew *it,* he saith unto them, Why reason ye, because ye have no bread? perceive ye not yet, neither understand? have ye your heart yet hardened?  
+> **¹⁸** Having eyes, see ye not? and having ears, hear ye not? and do ye not remember?  
+> **¹⁹** When I brake the five loaves among five thousand, how many baskets full of fragments took ye up? They say unto him, Twelve.  
+> **²⁰** And when the seven among four thousand, how many baskets full of fragments took ye up? And they said, Seven.  
+> **²¹** And he said unto them, How is it that ye do not understand?  
 
 Still Christ is upon motion; now he visits the parts of Dalmanutha, that no corner of the land of Israel might say that they had not had his presence with them. He came thither *by ship* (Mk 8:10); but, meeting with occasions of dispute there, and not with opportunities of doing good, he *entered into the ship again* (Mk 8:13), and came back. In these verses, we are told,
 
@@ -69,11 +69,11 @@ II\. How he warned his disciples against the leaven of the Pharisees and of Hero
 
 ## A Blind Man Restored to Sight.
 
-> <sup>22</sup> And he cometh to Bethsaida; and they bring a blind man unto him, and besought him to touch him.  
-> <sup>23</sup> And he took the blind man by the hand, and led him out of the town; and when he had spit on his eyes, and put his hands upon him, he asked him if he saw ought.  
-> <sup>24</sup> And he looked up, and said, I see men as trees, walking.  
-> <sup>25</sup> After that he put *his* hands again upon his eyes, and made him look up: and he was restored, and saw every man clearly.  
-> <sup>26</sup> And he sent him away to his house, saying, Neither go into the town, nor tell *it* to any in the town.  
+> **²²** And he cometh to Bethsaida; and they bring a blind man unto him, and besought him to touch him.  
+> **²³** And he took the blind man by the hand, and led him out of the town; and when he had spit on his eyes, and put his hands upon him, he asked him if he saw ought.  
+> **²⁴** And he looked up, and said, I see men as trees, walking.  
+> **²⁵** After that he put *his* hands again upon his eyes, and made him look up: and he was restored, and saw every man clearly.  
+> **²⁶** And he sent him away to his house, saying, Neither go into the town, nor tell *it* to any in the town.  
 
 This cure is related only by this evangelist, and there is something singular in the circumstances.
 
@@ -87,18 +87,18 @@ IV\. The directions Christ gave the man he had cured, not to *tell it to any in 
 
 ## Peter's Enlightened Testimony; Peter Rebuked.
 
-> <sup>27</sup> And Jesus went out, and his disciples, into the towns of Cæsarea Philippi: and by the way he asked his disciples, saying unto them, Whom do men say that I am?  
-> <sup>28</sup> And they answered, John the Baptist: but some *say,* Elias; and others, One of the prophets.  
-> <sup>29</sup> And he saith unto them, But whom say ye that I am? And Peter answereth and saith unto him, Thou art the Christ.  
-> <sup>30</sup> And he charged them that they should tell no man of him.  
-> <sup>31</sup> And he began to teach them, that the Son of man must suffer many things, and be rejected of the elders, and *of* the chief priests, and scribes, and be killed, and after three days rise again.  
-> <sup>32</sup> And he spake that saying openly. And Peter took him, and began to rebuke him.  
-> <sup>33</sup> But when he had turned about and looked on his disciples, he rebuked Peter, saying, Get thee behind me, Satan: for thou savourest not the things that be of God, but the things that be of men.  
-> <sup>34</sup> And when he had called the people *unto him* with his disciples also, he said unto them, Whosoever will come after me, let him deny himself, and take up his cross, and follow me.  
-> <sup>35</sup> For whosoever will save his life shall lose it; but whosoever shall lose his life for my sake and the gospel's, the same shall save it.  
-> <sup>36</sup> For what shall it profit a man, if he shall gain the whole world, and lose his own soul?  
-> <sup>37</sup> Or what shall a man give in exchange for his soul?  
-> <sup>38</sup> Whosoever therefore shall be ashamed of me and of my words in this adulterous and sinful generation; of him also shall the Son of man be ashamed, when he cometh in the glory of his Father with the holy angels.  
+> **²⁷** And Jesus went out, and his disciples, into the towns of Cæsarea Philippi: and by the way he asked his disciples, saying unto them, Whom do men say that I am?  
+> **²⁸** And they answered, John the Baptist: but some *say,* Elias; and others, One of the prophets.  
+> **²⁹** And he saith unto them, But whom say ye that I am? And Peter answereth and saith unto him, Thou art the Christ.  
+> **³⁰** And he charged them that they should tell no man of him.  
+> **³¹** And he began to teach them, that the Son of man must suffer many things, and be rejected of the elders, and *of* the chief priests, and scribes, and be killed, and after three days rise again.  
+> **³²** And he spake that saying openly. And Peter took him, and began to rebuke him.  
+> **³³** But when he had turned about and looked on his disciples, he rebuked Peter, saying, Get thee behind me, Satan: for thou savourest not the things that be of God, but the things that be of men.  
+> **³⁴** And when he had called the people *unto him* with his disciples also, he said unto them, Whosoever will come after me, let him deny himself, and take up his cross, and follow me.  
+> **³⁵** For whosoever will save his life shall lose it; but whosoever shall lose his life for my sake and the gospel's, the same shall save it.  
+> **³⁶** For what shall it profit a man, if he shall gain the whole world, and lose his own soul?  
+> **³⁷** Or what shall a man give in exchange for his soul?  
+> **³⁸** Whosoever therefore shall be ashamed of me and of my words in this adulterous and sinful generation; of him also shall the Son of man be ashamed, when he cometh in the glory of his Father with the holy angels.  
 
 We have read a great deal of the doctrine Christ preached, and the miracles he wrought, which were many, and strange, and well-attested, of various kinds, and wrought in several places, to the astonishment of the multitudes that were eye-witnesses of them. It is now time for us to pause a little, and to consider what these things mean; the wondrous works which Christ then forbade the publishing of, being recorded in these sacred writings, are thereby published to all the world, to us, to all ages; now what shall we think of them? Is the record of those things designed only for an amusement, or to furnish us with matter for discourse? No, certainly *these things are written, that we may believe that Jesus is the Christ the Son of God* (Joh 20:31); and this discourse which Christ had with his disciples, will assist us in making the necessary reflections upon the miracles of Christ, and a right use of them. Three things we are here taught to infer from the miracles Christ wrought.
 

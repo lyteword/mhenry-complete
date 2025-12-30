@@ -8,12 +8,12 @@ Nothing that occurred in the quiet and peaceable times of Israel is recorded; th
 
 ## The Inroads of the Midianites. (b. c. 1249.)
 
-> <sup>1</sup> And the children of Israel did evil in the sight of the LORD: and the LORD delivered them into the hand of Midian seven years.  
-> <sup>2</sup> And the hand of Midian prevailed against Israel: *and* because of the Midianites the children of Israel made them the dens which *are* in the mountains, and caves, and strong holds.  
-> <sup>3</sup> And *so* it was, when Israel had sown, that the Midianites came up, and the Amalekites, and the children of the east, even they came up against them;  
-> <sup>4</sup> And they encamped against them, and destroyed the increase of the earth, till thou come unto Gaza, and left no sustenance for Israel, neither sheep, nor ox, nor ass.  
-> <sup>5</sup> For they came up with their cattle and their tents, and they came as grasshoppers for multitude; *for* both they and their camels were without number: and they entered into the land to destroy it.  
-> <sup>6</sup> And Israel was greatly impoverished because of the Midianites; and the children of Israel cried unto the LORD.  
+> **¹** And the children of Israel did evil in the sight of the LORD: and the LORD delivered them into the hand of Midian seven years.  
+> **²** And the hand of Midian prevailed against Israel: *and* because of the Midianites the children of Israel made them the dens which *are* in the mountains, and caves, and strong holds.  
+> **³** And *so* it was, when Israel had sown, that the Midianites came up, and the Amalekites, and the children of the east, even they came up against them;  
+> **⁴** And they encamped against them, and destroyed the increase of the earth, till thou come unto Gaza, and left no sustenance for Israel, neither sheep, nor ox, nor ass.  
+> **⁵** For they came up with their cattle and their tents, and they came as grasshoppers for multitude; *for* both they and their camels were without number: and they entered into the land to destroy it.  
+> **⁶** And Israel was greatly impoverished because of the Midianites; and the children of Israel cried unto the LORD.  
 
 We have here, I. Israel's sin renewed: *They did evil in the sight of the Lord,* Jdg 6:1. The burnt child dreads the fire; yet this perverse unthinking people, that had so often smarted sorely for their idolatry, upon a little respite of God's judgments return to it again. *This people hath a revolting rebellious heart,* not kept in awe by the terror of God's judgments, nor engaged in honour and gratitude by the great things he had done for them to keep themselves in his love. The providence of God will not change the hearts and lives of sinners.
 
@@ -21,10 +21,10 @@ II\. Israel's troubles repeated. This would follow of course; let all that sin e
 
 III\. Israel's sense of God's hand revived at last. Seven years, year after year, did the Midianites make these inroads upon them, each we may suppose worse than the other (Jdg 6:1), until at last, all other succours failing, *Israel cried unto the Lord* (Jdg 6:6), for crying to Baal ruined them, and would not help them. When God judges he will overcome; and sinners shall be made either to bend or break before him.
 
-> <sup>7</sup> And it came to pass, when the children of Israel cried unto the LORD because of the Midianites,  
-> <sup>8</sup> That the LORD sent a prophet unto the children of Israel, which said unto them, Thus saith the LORD God of Israel, I brought you up from Egypt, and brought you forth out of the house of bondage;  
-> <sup>9</sup> And I delivered you out of the hand of the Egyptians, and out of the hand of all that oppressed you, and drave them out from before you, and gave you their land;  
-> <sup>10</sup> And I said unto you, I *am* the LORD your God; fear not the gods of the Amorites, in whose land ye dwell: but ye have not obeyed my voice.  
+> **⁷** And it came to pass, when the children of Israel cried unto the LORD because of the Midianites,  
+> **⁸** That the LORD sent a prophet unto the children of Israel, which said unto them, Thus saith the LORD God of Israel, I brought you up from Egypt, and brought you forth out of the house of bondage;  
+> **⁹** And I delivered you out of the hand of the Egyptians, and out of the hand of all that oppressed you, and drave them out from before you, and gave you their land;  
+> **¹⁰** And I said unto you, I *am* the LORD your God; fear not the gods of the Amorites, in whose land ye dwell: but ye have not obeyed my voice.  
 
 Observe here, I. The cognizance God took of the cries of Israel, when at length they were directed towards him. Though in their prosperity they had neglected him and made court to his rivals, and though they never looked towards him until they were driven to it by extremity, yet, upon their complain and prayer, he intended relief for them. Thus would he show how ready he is to forgive, how swift he is to show mercy, and how inclinable to hear prayer, that sinners may be encouraged to return and repent, Ps 130:4.
 
@@ -42,20 +42,20 @@ II\. The method God took of working deliverance for them.
 
 ## The Call of Gideon. (b. c. 1249.)
 
-> <sup>11</sup> And there came an angel of the LORD, and sat under an oak which *was* in Ophrah, that *pertained* unto Joash the Abiezrite: and his son Gideon threshed wheat by the winepress, to hide *it* from the Midianites.  
-> <sup>12</sup> And the angel of the LORD appeared unto him, and said unto him, The LORD *is* with thee, thou mighty man of valour.  
-> <sup>13</sup> And Gideon said unto him, Oh my Lord, if the LORD be with us, why then is all this befallen us? and where *be* all his miracles which our fathers told us of, saying, Did not the LORD bring us up from Egypt? but now the LORD hath forsaken us, and delivered us into the hands of the Midianites.  
-> <sup>14</sup> And the LORD looked upon him, and said, Go in this thy might, and thou shalt save Israel from the hand of the Midianites: have not I sent thee?  
-> <sup>15</sup> And he said unto him, Oh my Lord, wherewith shall I save Israel? behold, my family *is* poor in Manasseh, and I *am* the least in my father's house.  
-> <sup>16</sup> And the LORD said unto him, Surely I will be with thee, and thou shalt smite the Midianites as one man.  
-> <sup>17</sup> And he said unto him, If now I have found grace in thy sight, then show me a sign that thou talkest with me.  
-> <sup>18</sup> Depart not hence, I pray thee, until I come unto thee, and bring forth my present, and set *it* before thee. And he said, I will tarry until thou come again.  
-> <sup>19</sup> And Gideon went in, and made ready a kid, and unleavened cakes of an ephah of flour: the flesh he put in a basket, and he put the broth in a pot, and brought *it* out unto him under the oak, and presented *it.*  
-> <sup>20</sup> And the angel of God said unto him, Take the flesh and the unleavened cakes, and lay *them* upon this rock, and pour out the broth. And he did so.  
-> <sup>21</sup> Then the angel of the LORD put forth the end of the staff that *was* in his hand, and touched the flesh and the unleavened cakes; and there rose up fire out of the rock, and consumed the flesh and the unleavened cakes. Then the angel of the LORD departed out of his sight.  
-> <sup>22</sup> And when Gideon perceived that he *was* an angel of the LORD, Gideon said, Alas, O Lord GOD! for because I have seen an angel of the LORD face to face.  
-> <sup>23</sup> And the LORD said unto him, Peace *be* unto thee; fear not: thou shalt not die.  
-> <sup>24</sup> Then Gideon built an altar there unto the LORD, and called it Jehovah-shalom: unto this day it *is* yet in Ophrah of the Abi-ezrites.  
+> **¹¹** And there came an angel of the LORD, and sat under an oak which *was* in Ophrah, that *pertained* unto Joash the Abiezrite: and his son Gideon threshed wheat by the winepress, to hide *it* from the Midianites.  
+> **¹²** And the angel of the LORD appeared unto him, and said unto him, The LORD *is* with thee, thou mighty man of valour.  
+> **¹³** And Gideon said unto him, Oh my Lord, if the LORD be with us, why then is all this befallen us? and where *be* all his miracles which our fathers told us of, saying, Did not the LORD bring us up from Egypt? but now the LORD hath forsaken us, and delivered us into the hands of the Midianites.  
+> **¹⁴** And the LORD looked upon him, and said, Go in this thy might, and thou shalt save Israel from the hand of the Midianites: have not I sent thee?  
+> **¹⁵** And he said unto him, Oh my Lord, wherewith shall I save Israel? behold, my family *is* poor in Manasseh, and I *am* the least in my father's house.  
+> **¹⁶** And the LORD said unto him, Surely I will be with thee, and thou shalt smite the Midianites as one man.  
+> **¹⁷** And he said unto him, If now I have found grace in thy sight, then show me a sign that thou talkest with me.  
+> **¹⁸** Depart not hence, I pray thee, until I come unto thee, and bring forth my present, and set *it* before thee. And he said, I will tarry until thou come again.  
+> **¹⁹** And Gideon went in, and made ready a kid, and unleavened cakes of an ephah of flour: the flesh he put in a basket, and he put the broth in a pot, and brought *it* out unto him under the oak, and presented *it.*  
+> **²⁰** And the angel of God said unto him, Take the flesh and the unleavened cakes, and lay *them* upon this rock, and pour out the broth. And he did so.  
+> **²¹** Then the angel of the LORD put forth the end of the staff that *was* in his hand, and touched the flesh and the unleavened cakes; and there rose up fire out of the rock, and consumed the flesh and the unleavened cakes. Then the angel of the LORD departed out of his sight.  
+> **²²** And when Gideon perceived that he *was* an angel of the LORD, Gideon said, Alas, O Lord GOD! for because I have seen an angel of the LORD face to face.  
+> **²³** And the LORD said unto him, Peace *be* unto thee; fear not: thou shalt not die.  
+> **²⁴** Then Gideon built an altar there unto the LORD, and called it Jehovah-shalom: unto this day it *is* yet in Ophrah of the Abi-ezrites.  
 
 It is not said what effect the prophet's sermon had upon the people, but we may hope it had a good effect, and that some of them at least repented and reformed upon it; for here, immediately after, we have the dawning of the day of their deliverance, by the effectual calling of Gideon to take upon him the command of their forces against the Midianites.
 
@@ -87,14 +87,14 @@ II\. The person that gave him the commission was an *angel of the Lord;* it shou
 
 ## Gideon Overturns the Altar of Baal; Gideon Rescued from the Mob. (b. c. 1249.)
 
-> <sup>25</sup> And it came to pass the same night, that the LORD said unto him, Take thy father's young bullock, even the second bullock of seven years old, and throw down the altar of Baal that thy father hath, and cut down the grove that *is* by it:  
-> <sup>26</sup> And build an altar unto the LORD thy God upon the top of this rock, in the ordered place, and take the second bullock, and offer a burnt sacrifice with the wood of the grove which thou shalt cut down.  
-> <sup>27</sup> Then Gideon took ten men of his servants, and did as the LORD had said unto him: and *so* it was, because he feared his father's household, and the men of the city, that he could not do *it* by day, that he did *it* by night.  
-> <sup>28</sup> And when the men of the city arose early in the morning, behold, the altar of Baal was cast down, and the grove was cut down that *was* by it, and the second bullock was offered upon the altar *that was* built.  
-> <sup>29</sup> And they said one to another, Who hath done this thing? And when they enquired and asked, they said, Gideon the son of Joash hath done this thing.  
-> <sup>30</sup> Then the men of the city said unto Joash, Bring out thy son, that he may die: because he hath cast down the altar of Baal, and because he hath cut down the grove that *was* by it.  
-> <sup>31</sup> And Joash said unto all that stood against him, Will ye plead for Baal? will ye save him? he that will plead for him, let him be put to death whilst *it is yet* morning: if he *be* a god, let him plead for himself, because *one* hath cast down his altar.  
-> <sup>32</sup> Therefore on that day he called him Jerubbaal, saying, Let Baal plead against him, because he hath thrown down his altar.  
+> **²⁵** And it came to pass the same night, that the LORD said unto him, Take thy father's young bullock, even the second bullock of seven years old, and throw down the altar of Baal that thy father hath, and cut down the grove that *is* by it:  
+> **²⁶** And build an altar unto the LORD thy God upon the top of this rock, in the ordered place, and take the second bullock, and offer a burnt sacrifice with the wood of the grove which thou shalt cut down.  
+> **²⁷** Then Gideon took ten men of his servants, and did as the LORD had said unto him: and *so* it was, because he feared his father's household, and the men of the city, that he could not do *it* by day, that he did *it* by night.  
+> **²⁸** And when the men of the city arose early in the morning, behold, the altar of Baal was cast down, and the grove was cut down that *was* by it, and the second bullock was offered upon the altar *that was* built.  
+> **²⁹** And they said one to another, Who hath done this thing? And when they enquired and asked, they said, Gideon the son of Joash hath done this thing.  
+> **³⁰** Then the men of the city said unto Joash, Bring out thy son, that he may die: because he hath cast down the altar of Baal, and because he hath cut down the grove that *was* by it.  
+> **³¹** And Joash said unto all that stood against him, Will ye plead for Baal? will ye save him? he that will plead for him, let him be put to death whilst *it is yet* morning: if he *be* a god, let him plead for himself, because *one* hath cast down his altar.  
+> **³²** Therefore on that day he called him Jerubbaal, saying, Let Baal plead against him, because he hath thrown down his altar.  
 
 Here, I. Orders are given to Gideon to begin his government with the reformation of his father's house, Jdg 6:25,26. A correspondence being settled between God and Gideon, by the appearance of the angel to him, it was kept up in another way; the same night after he had seen God, when he was full of thoughts concerning what had passed, which probably he had not yet communicated to any, *The Lord said unto him* in a dream, *Do so and so.* Note, God's visits, if gratefully received, shall be graciously repeated. Bid God welcome, and he will come again. Gideon is appointed, 1. To throw down Baal's altar, which it seems his father had, either for his own house or perhaps for the whole town. See the power of God's grace, that he could raise up a reformer, and the condescensions of his grace, that he would raise up a deliverer, out of the family of one that was a ring-leader in idolatry. But Gideon must not now think it enough not to worship at that altar, which we charitably hope he had not done, but he must throw it down; not consecrate the same altar to God (it is bishop Hall's observation), but utterly demolish it. God first commands down the monuments of superstition, and then enjoins his own service. He must likewise *cut down the grove that was by it,* the plantation of young trees, designed to beautify the place. The learned bishop Patrick, by the grove, understands the image in the grove, probably the image of Ashtaroth (for the word for a grove is *Ashereh*), which stood upon or close by the altar. 2. To erect an altar to God, *to Jehovah his God,* which probably was to be notified by an inscription upon the altar to that purport—to Jehovah, Gideon's God, or Israel's. It would have been an improper thing for him to build an altar, even to the God of Israel, especially for burnt-offering and sacrifice, and would have been construed into a contempt of the altar at Shiloh, if God, who has not tied up himself to his own laws, had not bidden him to do it. But now it was his duty and honour to be thus employed. God directs him to the place where he should build it, on the *top of the rock,* perhaps in the same place in which the angel had appeared to him, near to the altar he had already built: and he must not do it in a hurry, but with the decency that became a religious action (*in an orderly manner,* as it is in the margin), according to the ancient law for altars raised on particular occasions, that they must be of earth not of hewn stone. The word here used for the rock on which the altar was to be built signifies a fortress, or strong-hold, erected, some think, to secure them from the Midianites; if so, it was no security while the altar of Baal was so near it, but it was effectually fortified when an altar to the Lord was built on the top of it, for that is the best defence upon our glory. On this altar, (1.) He was to offer sacrifice. Two bullocks he must offer: his father's *young bullock, and the second bullock of seven years old,* so it should rather be read, not *even* the second as we read it. The former, we may suppose, he was to offer for himself, the latter *for the sins of the people* whom he was to deliver. It was requisite he should thus make peace with God, before he made war on Midian. Till sin be pardoned through the great sacrifice, no good is to be expected. These bullocks, it is supposed, were intended for sacrifices on the altar of Baal, but were now converted to a better use. Thus, when the *strong man armed* is overcome and dispossessed, the stronger than he divides the spoil, seizes that for himself *which was prepared for Baal.* Let him come *whose right it is,* and *give it to him.* (2.) Ball's grove, or image, or whatever it was that was the sanctity or beauty of his altar, must not only be burnt, but must be used as fuel for God's altar, to signify not only that whatever sets up itself in opposition to God shall be destroyed, but that the justice of God will be glorified in its destruction. God ordered Gideon to do this, [1.] To try his zeal for religion, which it was necessary he should give proofs of before he took the field, to give proof of his valour there. [2.] That some steps might hereby to taken towards Israel's reformation, which must prepare the way for their deliverance. Sin, the cause, must be taken away, else how should the trouble, which was but the effect, come to an end? And it might be hoped that this example of Gideon's, who was now shortly to appear so great a man, would be followed by the rest of the cities and tribes, and the destruction of this one altar of Baal would be the destruction of many.
 
@@ -116,14 +116,14 @@ IV\. He was rescued out of the hands of his persecutors by his own father, Jdg 6
 
 ## Gideon's Fleece. (b. c. 1249.)
 
-> <sup>33</sup> Then all the Midianites and the Amalekites and the children of the east were gathered together, and went over, and pitched in the valley of Jezreel.  
-> <sup>34</sup> But the Spirit of the LORD came upon Gideon, and he blew a trumpet; and Abiezer was gathered after him.  
-> <sup>35</sup> And he sent messengers throughout all Manasseh; who also was gathered after him: and he sent messengers unto Asher, and unto Zebulun, and unto Naphtali; and they came up to meet them.  
-> <sup>36</sup> And Gideon said unto God, If thou wilt save Israel by mine hand, as thou hast said,  
-> <sup>37</sup> Behold, I will put a fleece of wool in the floor; *and* if the dew be on the fleece only, and *it be* dry upon all the earth *beside,* then shall I know that thou wilt save Israel by mine hand, as thou hast said.  
-> <sup>38</sup> And it was so: for he rose up early on the morrow, and thrust the fleece together, and wringed the dew out of the fleece, a bowl full of water.  
-> <sup>39</sup> And Gideon said unto God, Let not thine anger be hot against me, and I will speak but this once: let me prove, I pray thee, but this once with the fleece; let it now be dry only upon the fleece, and upon all the ground let there be dew.  
-> <sup>40</sup> And God did so that night: for it was dry upon the fleece only, and there was dew on all the ground.  
+> **³³** Then all the Midianites and the Amalekites and the children of the east were gathered together, and went over, and pitched in the valley of Jezreel.  
+> **³⁴** But the Spirit of the LORD came upon Gideon, and he blew a trumpet; and Abiezer was gathered after him.  
+> **³⁵** And he sent messengers throughout all Manasseh; who also was gathered after him: and he sent messengers unto Asher, and unto Zebulun, and unto Naphtali; and they came up to meet them.  
+> **³⁶** And Gideon said unto God, If thou wilt save Israel by mine hand, as thou hast said,  
+> **³⁷** Behold, I will put a fleece of wool in the floor; *and* if the dew be on the fleece only, and *it be* dry upon all the earth *beside,* then shall I know that thou wilt save Israel by mine hand, as thou hast said.  
+> **³⁸** And it was so: for he rose up early on the morrow, and thrust the fleece together, and wringed the dew out of the fleece, a bowl full of water.  
+> **³⁹** And Gideon said unto God, Let not thine anger be hot against me, and I will speak but this once: let me prove, I pray thee, but this once with the fleece; let it now be dry only upon the fleece, and upon all the ground let there be dew.  
+> **⁴⁰** And God did so that night: for it was dry upon the fleece only, and there was dew on all the ground.  
 
 Here we have, I. The descent which the enemies of Israel made upon them, Jdg 6:33. A vast number of Midianites, Amalekites, and Arabians, got together, and came over Jordan, none either caring or daring to guard that important and advantageous pass against them, and they made their headquarters in the valley of Jezreel, in the heart of Manasseh's tribe, not far from Gideon's city. Some think that the notice they had of Gideon's destroying Baal's altar brought them over, and that they came to plead for Baal and to make that a pretence for quarrelling with Israel; but it is more likely that it was now harvest-time, when they had been wont each year to make such a visit as this (Jdg 6:3), and that they were expected when Gideon was threshing, Jdg 6:11. God raised up Gideon to be ready against this terrible blow came. Their success so many years in these incursions, the little opposition they had met with and the great booty they had carried off, made them now both very eager and very confident. But it proved that *the measure of their iniquity was full* and the year of recompence had come; they must now *make an end to spoil* and *must be spoiled,* and they are *gathered as sheaves to the floor* (Mic 4:12,13), for Gideon to thresh.
 

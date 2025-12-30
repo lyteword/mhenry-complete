@@ -8,17 +8,17 @@ John Baptist said concerning Christ, He must increase, but I must decrease; and 
 
 ## The Temptation of Christ.
 
-> <sup>1</sup> Then was Jesus led up of the Spirit into the wilderness to be tempted of the devil.  
-> <sup>2</sup> And when he had fasted forty days and forty nights, he was afterward an hungred.  
-> <sup>3</sup> And when the tempter came to him, he said, If thou be the Son of God, command that these stones be made bread.  
-> <sup>4</sup> But he answered and said, It is written, Man shall not live by bread alone, but by every word that proceedeth out of the mouth of God.  
-> <sup>5</sup> Then the devil taketh him up into the holy city, and setteth him on a pinnacle of the temple,  
-> <sup>6</sup> And saith unto him, If thou be the Son of God, cast thyself down: for it is written, He shall give his angels charge concerning thee: and in *their* hands they shall bear thee up, lest at any time thou dash thy foot against a stone.  
-> <sup>7</sup> Jesus said unto him, It is written again, Thou shalt not tempt the Lord thy God.  
-> <sup>8</sup> Again, the devil taketh him up into an exceeding high mountain, and showeth him all the kingdoms of the world, and the glory of them;  
-> <sup>9</sup> And saith unto him, All these things will I give thee, if thou wilt fall down and worship me.  
-> <sup>10</sup> Then saith Jesus unto him, Get thee hence, Satan: for it is written, Thou shalt worship the Lord thy God, and him only shalt thou serve.  
-> <sup>11</sup> Then the devil leaveth him, and, behold, angels came and ministered unto him.  
+> **¹** Then was Jesus led up of the Spirit into the wilderness to be tempted of the devil.  
+> **²** And when he had fasted forty days and forty nights, he was afterward an hungred.  
+> **³** And when the tempter came to him, he said, If thou be the Son of God, command that these stones be made bread.  
+> **⁴** But he answered and said, It is written, Man shall not live by bread alone, but by every word that proceedeth out of the mouth of God.  
+> **⁵** Then the devil taketh him up into the holy city, and setteth him on a pinnacle of the temple,  
+> **⁶** And saith unto him, If thou be the Son of God, cast thyself down: for it is written, He shall give his angels charge concerning thee: and in *their* hands they shall bear thee up, lest at any time thou dash thy foot against a stone.  
+> **⁷** Jesus said unto him, It is written again, Thou shalt not tempt the Lord thy God.  
+> **⁸** Again, the devil taketh him up into an exceeding high mountain, and showeth him all the kingdoms of the world, and the glory of them;  
+> **⁹** And saith unto him, All these things will I give thee, if thou wilt fall down and worship me.  
+> **¹⁰** Then saith Jesus unto him, Get thee hence, Satan: for it is written, Thou shalt worship the Lord thy God, and him only shalt thou serve.  
+> **¹¹** Then the devil leaveth him, and, behold, angels came and ministered unto him.  
 
 We have here the story of a famous duel, fought hand to hand, between Michael and the dragon, the Seed of the woman and the seed of the serpent, nay, the serpent himself; in which the seed of the woman suffers, being *tempted,* and so has his heel bruised; but the serpent is quite baffled in his temptations, and so has his head broken; and our Lord Jesus comes off a Conqueror, and so secures not only comfort, but conquest at last, to all his faithful followers. Concerning Christ's temptation, observe,
 
@@ -116,12 +116,12 @@ Christ was thus succoured after the temptation, [1.] For his encouragement to go
 
 ## Opening of Christ's Ministry.
 
-> <sup>12</sup> Now when Jesus had heard that John was cast into prison, he departed into Galilee;  
-> <sup>13</sup> And leaving Nazareth, he came and dwelt in Capernaum, which is upon the sea coast, in the borders of Zabulon and Nephthalim:  
-> <sup>14</sup> That it might be fulfilled which was spoken by Esaias the prophet, saying,  
-> <sup>15</sup> The land of Zabulon, and the land of Nephthalim, *by* the way of the sea, beyond Jordan, Galilee of the Gentiles;  
-> <sup>16</sup> The people which sat in darkness saw great light; and to them which sat in the region and shadow of death light is sprung up.  
-> <sup>17</sup> From that time Jesus began to preach, and to say, Repent: for the kingdom of heaven is at hand.  
+> **¹²** Now when Jesus had heard that John was cast into prison, he departed into Galilee;  
+> **¹³** And leaving Nazareth, he came and dwelt in Capernaum, which is upon the sea coast, in the borders of Zabulon and Nephthalim:  
+> **¹⁴** That it might be fulfilled which was spoken by Esaias the prophet, saying,  
+> **¹⁵** The land of Zabulon, and the land of Nephthalim, *by* the way of the sea, beyond Jordan, Galilee of the Gentiles;  
+> **¹⁶** The people which sat in darkness saw great light; and to them which sat in the region and shadow of death light is sprung up.  
+> **¹⁷** From that time Jesus began to preach, and to say, Repent: for the kingdom of heaven is at hand.  
 
 We have here an account of Christ's preaching in the synagogues of Galilee, for he came into the world to be a Preacher; the great salvation which he wrought out, he himself began to publish (Heb 2:3) to show how much his heart *was* upon it, and ours *should* be.
 
@@ -151,11 +151,11 @@ The subject which Christ dwelt upon now in his preaching (and it was indeed the 
 
 ## Christ Calls Peter, Andrew, James, and John.
 
-> <sup>18</sup> And Jesus, walking by the sea of Galilee, saw two brethren, Simon called Peter, and Andrew his brother, casting a net into the sea: for they were fishers.  
-> <sup>19</sup> And he saith unto them, Follow me, and I will make you fishers of men.  
-> <sup>20</sup> And they straightway left *their* nets, and followed him.  
-> <sup>21</sup> And going on from thence, he saw other two brethren, James *the son* of Zebedee, and John his brother, in a ship with Zebedee their father, mending their nets; and he called them.  
-> <sup>22</sup> And they immediately left the ship and their father, and followed him.  
+> **¹⁸** And Jesus, walking by the sea of Galilee, saw two brethren, Simon called Peter, and Andrew his brother, casting a net into the sea: for they were fishers.  
+> **¹⁹** And he saith unto them, Follow me, and I will make you fishers of men.  
+> **²⁰** And they straightway left *their* nets, and followed him.  
+> **²¹** And going on from thence, he saw other two brethren, James *the son* of Zebedee, and John his brother, in a ship with Zebedee their father, mending their nets; and he called them.  
+> **²²** And they immediately left the ship and their father, and followed him.  
 
 When Christ began to preach, he began to *gather disciples,* who should now be the *hearers,* and hereafter the *preachers,* of his doctrine, who should now be witnesses *of* his miracles, and hereafter *concerning* them. Now, in these verses, we have an account of the first disciples that he called into fellowship with himself.
 
@@ -187,9 +187,9 @@ V\. What was the *success* of this call. Peter and Andrew *straightway left thei
 
 ## Christ Preaches in Galilee; Miracles of Christ in Galilee.
 
-> <sup>23</sup> And Jesus went about all Galilee, teaching in their synagogues, and preaching the gospel of the kingdom, and healing all manner of sickness and all manner of disease among the people.  
-> <sup>24</sup> And his fame went throughout all Syria: and they brought unto him all sick people that were taken with divers diseases and torments, and those which were possessed with devils, and those which were lunatic, and those that had the palsy; and he healed them.  
-> <sup>25</sup> And there followed him great multitudes of people from Galilee, and *from* Decapolis, and *from* Jerusalem, and *from* Judea, and *from* beyond Jordan.  
+> **²³** And Jesus went about all Galilee, teaching in their synagogues, and preaching the gospel of the kingdom, and healing all manner of sickness and all manner of disease among the people.  
+> **²⁴** And his fame went throughout all Syria: and they brought unto him all sick people that were taken with divers diseases and torments, and those which were possessed with devils, and those which were lunatic, and those that had the palsy; and he healed them.  
+> **²⁵** And there followed him great multitudes of people from Galilee, and *from* Decapolis, and *from* Jerusalem, and *from* Judea, and *from* beyond Jordan.  
 
 See here, I. What an industrious preacher Christ was; He *went about all Galilee, teaching in their synagogues, and preaching the gospel of the kingdom.* Observe, 1. *What* Christ preached—*the gospel of the kingdom. The kingdom of heaven,* that is, of grace and glory, is emphatically *the kingdom, the kingdom* that was now to come; that kingdom which shall survive, as it doth surpass, all the kingdoms of the earth. *The gospel* is the charter of that kingdom, containing the King's coronation oath, by which he has graciously obliged himself to pardon, protect, and save the subjects of that kingdom; it contains also their oath of allegiance, by which they oblige themselves to observe his statutes and seek his honour; this is *the gospel of the kingdom;* this Christ was himself the Preacher of, that our faith in it might be confirmed. 2. *Where* he preached—*in the synagogues;* not there only, but there chiefly, because those were *the places of concourse,* where *wisdom* was to *lift up her voice* (Pr 1:21); because they were *places of concourse* for religious worship, and there, it was to be hoped, the minds of the people would be prepared to receive *the gospel;* and there the scriptures of the Old Testament were read, the exposition of which would easily introduce *the gospel of the kingdom.* 3. *What pains he took* in preaching; He *went about all Galilee, teaching.* He might have issued out a proclamation to summon all to come to him; but, to show his humility, and the condescensions of his grace, he goes to them; for he *waits to be gracious,* and comes *to seek and save.* Josephus says, There were above two hundred cities and towns in Galilee, and all, or most of them, Christ visited. He *went about doing good.* Never was there such an itinerant preacher, such an indefatigable one, as Christ was; he went from town to town, to beseech poor sinners to be reconciled to God. This is an example to ministers, to lay themselves out to do good, and to *be instant,* and constant, in *season, and out of season,* to preach the word.
 

@@ -10,12 +10,12 @@ It is a groundless opinion of some of the Jewish writers (who are usually free o
 
 A psalm *or* song for the sabbath day.
 
-> <sup>1</sup> *It is a* good *thing* to give thanks unto the LORD, and to sing praises unto thy name, O most High:  
-> <sup>2</sup> To show forth thy lovingkindness in the morning, and thy faithfulness every night,  
-> <sup>3</sup> Upon an instrument of ten strings, and upon the psaltery; upon the harp with a solemn sound.  
-> <sup>4</sup> For thou, LORD, hast made me glad through thy work: I will triumph in the works of thy hands.  
-> <sup>5</sup> O LORD, how great are thy works! *and* thy thoughts are very deep.  
-> <sup>6</sup> A brutish man knoweth not; neither doth a fool understand this.  
+> **¹** *It is a* good *thing* to give thanks unto the LORD, and to sing praises unto thy name, O most High:  
+> **²** To show forth thy lovingkindness in the morning, and thy faithfulness every night,  
+> **³** Upon an instrument of ten strings, and upon the psaltery; upon the harp with a solemn sound.  
+> **⁴** For thou, LORD, hast made me glad through thy work: I will triumph in the works of thy hands.  
+> **⁵** O LORD, how great are thy works! *and* thy thoughts are very deep.  
+> **⁶** A brutish man knoweth not; neither doth a fool understand this.  
 
 This psalm was appointed to be sung, at least it usually was sung, in the house of the sanctuary on the sabbath day, that day of rest, which was an instituted memorial of the work of creation, of God's rest from that work, and the continuance of it in his providence; for *the Father worketh hitherto.* Note, 1. The sabbath day must be a day, not only of holy rest, but of holy work, and the rest is in order to the work. 2. The proper work of the sabbath is praising God; every sabbath day must be a thanksgiving-day; and the other services of the day must be in order to this, and therefore must by no means thrust this into a corner. One of the Jewish writers refers it to the kingdom of the Messiah, and calls it, *A psalm or song for the age to come,* which shall be all sabbath. Believers, through Christ, enjoy that *sabbatism which remains for the people of God* (Heb 4:9), the beginning of the everlasting sabbath. In these verses,
 
@@ -27,15 +27,15 @@ III\. We are admonished not to neglect the works of God, by the character of tho
 
 ## The Triumph of the Righteous; The Happiness of the Righteous.
 
-> <sup>7</sup> When the wicked spring as the grass, and when all the workers of iniquity do flourish; *it is* that they shall be destroyed for ever:  
-> <sup>8</sup> But thou, LORD, *art most* high for evermore.  
-> <sup>9</sup> For, lo, thine enemies, O LORD, for, lo, thine enemies shall perish; all the workers of iniquity shall be scattered.  
-> <sup>10</sup> But my horn shalt thou exalt like *the horn of* an unicorn: I shall be anointed with fresh oil.  
-> <sup>11</sup> Mine eye also shall see *my desire* on mine enemies, *and* mine ears shall hear *my desire* of the wicked that rise up against me.  
-> <sup>12</sup> The righteous shall flourish like the palm tree: he shall grow like a cedar in Lebanon.  
-> <sup>13</sup> Those that be planted in the house of the LORD shall flourish in the courts of our God.  
-> <sup>14</sup> They shall still bring forth fruit in old age; they shall be fat and flourishing;  
-> <sup>15</sup> To show that the LORD *is* upright: *he is* my rock, and *there is* no unrighteousness in him.  
+> **⁷** When the wicked spring as the grass, and when all the workers of iniquity do flourish; *it is* that they shall be destroyed for ever:  
+> **⁸** But thou, LORD, *art most* high for evermore.  
+> **⁹** For, lo, thine enemies, O LORD, for, lo, thine enemies shall perish; all the workers of iniquity shall be scattered.  
+> **¹⁰** But my horn shalt thou exalt like *the horn of* an unicorn: I shall be anointed with fresh oil.  
+> **¹¹** Mine eye also shall see *my desire* on mine enemies, *and* mine ears shall hear *my desire* of the wicked that rise up against me.  
+> **¹²** The righteous shall flourish like the palm tree: he shall grow like a cedar in Lebanon.  
+> **¹³** Those that be planted in the house of the LORD shall flourish in the courts of our God.  
+> **¹⁴** They shall still bring forth fruit in old age; they shall be fat and flourishing;  
+> **¹⁵** To show that the LORD *is* upright: *he is* my rock, and *there is* no unrighteousness in him.  
 
 The psalmist had said (Ps 92:4) that from the works of God he would take occasion to triumph; and here he does so.
 

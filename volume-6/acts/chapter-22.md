@@ -8,8 +8,8 @@ In the close of the foregoing chapter we had Paul bound, according to Agabus's p
 
 ## Paul's First Defence.
 
-> <sup>1</sup> Men, brethren, and fathers, hear ye my defence *which I make* now unto you.  
-> <sup>2</sup> (And when they heard that he spake in the Hebrew tongue to them, they kept the more silence: and he saith,)  
+> **¹** Men, brethren, and fathers, hear ye my defence *which I make* now unto you.  
+> **²** (And when they heard that he spake in the Hebrew tongue to them, they kept the more silence: and he saith,)  
 
 Paul had, in the Ac 21:40, gained a great point, by commanding so profound a silence after so loud a clamour. Now here observe,
 
@@ -21,25 +21,25 @@ III\. The language he spoke in, which recommended what he said to the auditory; 
 
 ## Paul's First Defence.
 
-> <sup>3</sup> I am verily a man *which am* a Jew, born in Tarsus, *a city* in Cilicia, yet brought up in this city at the feet of Gamaliel, *and* taught according to the perfect manner of the law of the fathers, and was zealous toward God, as ye all are this day.  
-> <sup>4</sup> And I persecuted this way unto the death, binding and delivering into prisons both men and women.  
-> <sup>5</sup> As also the high priest doth bear me witness, and all the estate of the elders: from whom also I received letters unto the brethren, and went to Damascus, to bring them which were there bound unto Jerusalem, for to be punished.  
-> <sup>6</sup> And it came to pass, that, as I made my journey, and was come nigh unto Damascus about noon, suddenly there shone from heaven a great light round about me.  
-> <sup>7</sup> And I fell unto the ground, and heard a voice saying unto me, Saul, Saul, why persecutest thou me?  
-> <sup>8</sup> And I answered, Who art thou, Lord? And he said unto me, I am Jesus of Nazareth, whom thou persecutest.  
-> <sup>9</sup> And they that were with me saw indeed the light, and were afraid; but they heard not the voice of him that spake to me.  
-> <sup>10</sup> And I said, What shall I do, Lord? And the Lord said unto me, Arise, and go into Damascus; and there it shall be told thee of all things which are appointed for thee to do.  
-> <sup>11</sup> And when I could not see for the glory of that light, being led by the hand of them that were with me, I came into Damascus.  
-> <sup>12</sup> And one Ananias, a devout man according to the law, having a good report of all the Jews which dwelt *there,*  
-> <sup>13</sup> Came unto me, and stood, and said unto me, Brother Saul, receive thy sight. And the same hour I looked up upon him.  
-> <sup>14</sup> And he said, The God of our fathers hath chosen thee, that thou shouldest know his will, and see that Just One, and shouldest hear the voice of his mouth.  
-> <sup>15</sup> For thou shalt be his witness unto all men of what thou hast seen and heard.  
-> <sup>16</sup> And now why tarriest thou? arise, and be baptized, and wash away thy sins, calling on the name of the Lord.  
-> <sup>17</sup> And it came to pass, that, when I was come again to Jerusalem, even while I prayed in the temple, I was in a trance;  
-> <sup>18</sup> And saw him saying unto me, Make haste, and get thee quickly out of Jerusalem: for they will not receive thy testimony concerning me.  
-> <sup>19</sup> And I said, Lord, they know that I imprisoned and beat in every synagogue them that believed on thee:  
-> <sup>20</sup> And when the blood of thy martyr Stephen was shed, I also was standing by, and consenting unto his death, and kept the raiment of them that slew him.  
-> <sup>21</sup> And he said unto me, Depart: for I will send thee far hence unto the Gentiles.  
+> **³** I am verily a man *which am* a Jew, born in Tarsus, *a city* in Cilicia, yet brought up in this city at the feet of Gamaliel, *and* taught according to the perfect manner of the law of the fathers, and was zealous toward God, as ye all are this day.  
+> **⁴** And I persecuted this way unto the death, binding and delivering into prisons both men and women.  
+> **⁵** As also the high priest doth bear me witness, and all the estate of the elders: from whom also I received letters unto the brethren, and went to Damascus, to bring them which were there bound unto Jerusalem, for to be punished.  
+> **⁶** And it came to pass, that, as I made my journey, and was come nigh unto Damascus about noon, suddenly there shone from heaven a great light round about me.  
+> **⁷** And I fell unto the ground, and heard a voice saying unto me, Saul, Saul, why persecutest thou me?  
+> **⁸** And I answered, Who art thou, Lord? And he said unto me, I am Jesus of Nazareth, whom thou persecutest.  
+> **⁹** And they that were with me saw indeed the light, and were afraid; but they heard not the voice of him that spake to me.  
+> **¹⁰** And I said, What shall I do, Lord? And the Lord said unto me, Arise, and go into Damascus; and there it shall be told thee of all things which are appointed for thee to do.  
+> **¹¹** And when I could not see for the glory of that light, being led by the hand of them that were with me, I came into Damascus.  
+> **¹²** And one Ananias, a devout man according to the law, having a good report of all the Jews which dwelt *there,*  
+> **¹³** Came unto me, and stood, and said unto me, Brother Saul, receive thy sight. And the same hour I looked up upon him.  
+> **¹⁴** And he said, The God of our fathers hath chosen thee, that thou shouldest know his will, and see that Just One, and shouldest hear the voice of his mouth.  
+> **¹⁵** For thou shalt be his witness unto all men of what thou hast seen and heard.  
+> **¹⁶** And now why tarriest thou? arise, and be baptized, and wash away thy sins, calling on the name of the Lord.  
+> **¹⁷** And it came to pass, that, when I was come again to Jerusalem, even while I prayed in the temple, I was in a trance;  
+> **¹⁸** And saw him saying unto me, Make haste, and get thee quickly out of Jerusalem: for they will not receive thy testimony concerning me.  
+> **¹⁹** And I said, Lord, they know that I imprisoned and beat in every synagogue them that believed on thee:  
+> **²⁰** And when the blood of thy martyr Stephen was shed, I also was standing by, and consenting unto his death, and kept the raiment of them that slew him.  
+> **²¹** And he said unto me, Depart: for I will send thee far hence unto the Gentiles.  
 
 Paul here gives such an account of himself as might serve not only to satisfy the chief captain that he was not that Egyptian he took him to be, but the Jews also that he was not that enemy to their church and nation, to their law and temple, they took him to be, and that what he did in preaching Christ, and particularly in preaching him to the Gentiles, he did by a divine commission. He here gives them to understand,
 
@@ -69,15 +69,15 @@ Now, if they would lay all this together, surely they would see that they had no
 
 ## Paul's First Defence.
 
-> <sup>22</sup> And they gave him audience unto this word, and *then* lifted up their voices, and said, Away with such a *fellow* from the earth: for it is not fit that he should live.  
-> <sup>23</sup> And as they cried out, and cast off *their* clothes, and threw dust into the air,  
-> <sup>24</sup> The chief captain commanded him to be brought into the castle, and bade that he should be examined by scourging; that he might know wherefore they cried so against him.  
-> <sup>25</sup> And as they bound him with thongs, Paul said unto the centurion that stood by, Is it lawful for you to scourge a man that is a Roman, and uncondemned?  
-> <sup>26</sup> When the centurion heard *that,* he went and told the chief captain, saying, Take heed what thou doest: for this man is a Roman.  
-> <sup>27</sup> Then the chief captain came, and said unto him, Tell me, art thou a Roman? He said, Yea.  
-> <sup>28</sup> And the chief captain answered, With a great sum obtained I this freedom. And Paul said, But I was *free* born.  
-> <sup>29</sup> Then straightway they departed from him which should have examined him: and the chief captain also was afraid, after he knew that he was a Roman, and because he had bound him.  
-> <sup>30</sup> On the morrow, because he would have known the certainty wherefore he was accused of the Jews, he loosed him from *his* bands, and commanded the chief priests and all their council to appear, and brought Paul down, and set him before them.  
+> **²²** And they gave him audience unto this word, and *then* lifted up their voices, and said, Away with such a *fellow* from the earth: for it is not fit that he should live.  
+> **²³** And as they cried out, and cast off *their* clothes, and threw dust into the air,  
+> **²⁴** The chief captain commanded him to be brought into the castle, and bade that he should be examined by scourging; that he might know wherefore they cried so against him.  
+> **²⁵** And as they bound him with thongs, Paul said unto the centurion that stood by, Is it lawful for you to scourge a man that is a Roman, and uncondemned?  
+> **²⁶** When the centurion heard *that,* he went and told the chief captain, saying, Take heed what thou doest: for this man is a Roman.  
+> **²⁷** Then the chief captain came, and said unto him, Tell me, art thou a Roman? He said, Yea.  
+> **²⁸** And the chief captain answered, With a great sum obtained I this freedom. And Paul said, But I was *free* born.  
+> **²⁹** Then straightway they departed from him which should have examined him: and the chief captain also was afraid, after he knew that he was a Roman, and because he had bound him.  
+> **³⁰** On the morrow, because he would have known the certainty wherefore he was accused of the Jews, he loosed him from *his* bands, and commanded the chief priests and all their council to appear, and brought Paul down, and set him before them.  
 
 Paul was going on with this account of himself, had shown them his commission to preach among the Gentiles without any peevish reflections upon the Jews, and we may suppose designed next to show how he was afterwards, by a special direction of the Holy Ghost at Antioch, separated to this service, how tender he was of the Jews, how respectful to them, and how careful to give them the precedency in all places whither he came, and to unite Jews and Gentiles in one body; and then to show how wonderfully God had owned him, and what good service had been done to the interest of God's kingdom among men in general, without damage to any of the true interests of the Jewish church in particular. But, whatever he designs to say, they resolve he shall say no more to them: *They gave him audience to this word.* Hitherto they had heard him with patience and some attention. But when he speaks of being sent to the Gentiles, though it was what Christ himself said to him, they cannot bear it, not so much as to hear the Gentiles named, such an enmity had they to them, and such a jealousy of them. Upon the mention of this, they have no manner of patience, but forget all rules of decency and equity; thus were they *provoked to jealousy by those that were no people,* Ro 10:19.
 

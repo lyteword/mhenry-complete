@@ -8,35 +8,35 @@ We have here, I. An angel proclaiming the fall of Babylon, Re 18:1,2. II. Assign
 
 ## The Fall of Babylon. (a. d. 95.)
 
-> <sup>1</sup> And after these things I saw another angel come down from heaven, having great power; and the earth was lightened with his glory.  
-> <sup>2</sup> And he cried mightily with a strong voice, saying, Babylon the great is fallen, is fallen, and is become the habitation of devils, and the hold of every foul spirit, and a cage of every unclean and hateful bird.  
-> <sup>3</sup> For all nations have drunk of the wine of the wrath of her fornication, and the kings of the earth have committed fornication with her, and the merchants of the earth are waxed rich through the abundance of her delicacies.  
-> <sup>4</sup> And I heard another voice from heaven, saying, Come out of her, my people, that ye be not partakers of her sins, and that ye receive not of her plagues.  
-> <sup>5</sup> For her sins have reached unto heaven, and God hath remembered her iniquities.  
-> <sup>6</sup> Reward her even as she rewarded you, and double unto her double according to her works: in the cup which she hath filled fill to her double.  
-> <sup>7</sup> How much she hath glorified herself, and lived deliciously, so much torment and sorrow give her: for she saith in her heart, I sit a queen, and am no widow, and shall see no sorrow.  
-> <sup>8</sup> Therefore shall her plagues come in one day, death, and mourning, and famine; and she shall be utterly burned with fire: for strong *is* the Lord God who judgeth her.  
+> **¹** And after these things I saw another angel come down from heaven, having great power; and the earth was lightened with his glory.  
+> **²** And he cried mightily with a strong voice, saying, Babylon the great is fallen, is fallen, and is become the habitation of devils, and the hold of every foul spirit, and a cage of every unclean and hateful bird.  
+> **³** For all nations have drunk of the wine of the wrath of her fornication, and the kings of the earth have committed fornication with her, and the merchants of the earth are waxed rich through the abundance of her delicacies.  
+> **⁴** And I heard another voice from heaven, saying, Come out of her, my people, that ye be not partakers of her sins, and that ye receive not of her plagues.  
+> **⁵** For her sins have reached unto heaven, and God hath remembered her iniquities.  
+> **⁶** Reward her even as she rewarded you, and double unto her double according to her works: in the cup which she hath filled fill to her double.  
+> **⁷** How much she hath glorified herself, and lived deliciously, so much torment and sorrow give her: for she saith in her heart, I sit a queen, and am no widow, and shall see no sorrow.  
+> **⁸** Therefore shall her plagues come in one day, death, and mourning, and famine; and she shall be utterly burned with fire: for strong *is* the Lord God who judgeth her.  
 
 The downfall and destruction of Babylon form an event so fully determined in the counsels of God, and of such consequence to his interests and glory, that the visions and predictions concerning it are repeated. 1. Here is another angel sent from heaven, attended with great power and lustre, Re 18:1. He had not only light in himself, to discern the truth of his own prediction, but to inform and enlighten the world about that great event; and not only light to discern it, but power to accomplish it. 2. This angel publishes the fall of Babylon, as a thing already come to pass; and this he does with a mighty strong voice, that all might hear the cry, and might see how well this angel was pleased to be the messenger of such tidings. Here seems to be an allusion to the prediction of the fall of pagan Babylon (Isa 21:9), where the word is repeated as it is here: *has fallen, has fallen.* Some have thought a double fall is hereby intended, first her apostasy, and then her ruin; and they think the words immediately following favour their opinion; *She has become the habitation of devils, and the hold of every foul spirit, and the cage of every unclean and hateful bird,* Re 18:2. But this is also borrowed from Isa 21:9, and seems to describe not so much her sin of entertaining idols (which are truly called *devils*) as her punishment, it being a common notion that unclean spirits, as well as ominous and hateful birds, used to haunt a city or house that lay in its ruins. 3. The reason of this ruin is declared (Re 18:3); for, though God is not obliged to give any account of his matters, yet he is pleased to do so, especially in those dispensations of providence that are most awful and tremendous. The wickedness of Babylon had been very great; for she had not only forsaken the true God herself, and set up idols, but had with great art and industry drawn all sorts of men into the spiritual adultery, and by her wealth and luxury had retained them in her interest. 4. Fair warning is given to all that expect mercy from God, that they should not only *come out of her,* but be assisting in her destruction, Re 18:4,5. Here observe, (1.) God may have a people even in Babylon, some who belong to the election of grace. (2.) God's people shall be called out of Babylon, and called effectually. (3.) Those that are resolved to partake with wicked men in their sins must receive of their plagues. (4.) When the sins of a people reach up to heaven, the wrath of God will reach down to the earth. (5.) Though private revenge is forbidden, yet God will have his people act under him, when called to it, in pulling down his and their inveterate and implacable enemies, Re 18:6. (6.) God will proportion the punishment of sinners to the measure of their wickedness, pride, and security, Re 18:7. (7.) When destruction comes on a people suddenly, the surprise is a great aggravation of their misery, Re 18:8.
 
 ## The Fall of Babylon. (a. d. 95.)
 
-> <sup>9</sup> And the kings of the earth, who have committed fornication and lived deliciously with her, shall bewail her, and lament for her, when they shall see the smoke of her burning,  
-> <sup>10</sup> Standing afar off for the fear of her torment, saying, Alas, alas, that great city Babylon, that mighty city! for in one hour is thy judgment come.  
-> <sup>11</sup> And the merchants of the earth shall weep and mourn over her; for no man buyeth their merchandise any more:  
-> <sup>12</sup> The merchandise of gold, and silver, and precious stones, and of pearls, and fine linen, and purple, and silk, and scarlet, and all thyine wood, and all manner vessels of ivory, and all manner vessels of most precious wood, and of brass, and iron, and marble,  
-> <sup>13</sup> And cinnamon, and odours, and ointments, and frankincense, and wine, and oil, and fine flour, and wheat, and beasts, and sheep, and horses, and chariots, and slaves, and souls of men.  
-> <sup>14</sup> And the fruits that thy soul lusted after are departed from thee, and all things which were dainty and goodly are departed from thee, and thou shalt find them no more at all.  
-> <sup>15</sup> The merchants of these things, which were made rich by her, shall stand afar off for the fear of her torment, weeping and wailing,  
-> <sup>16</sup> And saying, Alas, alas, that great city, that was clothed in fine linen, and purple, and scarlet, and decked with gold, and precious stones, and pearls!  
-> <sup>17</sup> For in one hour so great riches is come to nought. And every shipmaster, and all the company in ships, and sailors, and as many as trade by sea, stood afar off,  
-> <sup>18</sup> And cried when they saw the smoke of her burning, saying, What *city is* like unto this great city!  
-> <sup>19</sup> And they cast dust on their heads, and cried, weeping and wailing, saying, Alas, alas, that great city, wherein were made rich all that had ships in the sea by reason of her costliness! for in one hour is she made desolate.  
-> <sup>20</sup> Rejoice over her, *thou* heaven, and *ye* holy apostles and prophets; for God hath avenged you on her.  
-> <sup>21</sup> And a mighty angel took up a stone like a great millstone, and cast *it* into the sea, saying, Thus with violence shall that great city Babylon be thrown down, and shall be found no more at all.  
-> <sup>22</sup> And the voice of harpers, and musicians, and of pipers, and trumpeters, shall be heard no more at all in thee; and no craftsman, of whatsoever craft *he be,* shall be found any more in thee; and the sound of a millstone shall be heard no more at all in thee;  
-> <sup>23</sup> And the light of a candle shall shine no more at all in thee; and the voice of the bridegroom and of the bride shall be heard no more at all in thee: for thy merchants were the great men of the earth; for by thy sorceries were all nations deceived.  
-> <sup>24</sup> And in her was found the blood of prophets, and of saints, and of all that were slain upon the earth.  
+> **⁹** And the kings of the earth, who have committed fornication and lived deliciously with her, shall bewail her, and lament for her, when they shall see the smoke of her burning,  
+> **¹⁰** Standing afar off for the fear of her torment, saying, Alas, alas, that great city Babylon, that mighty city! for in one hour is thy judgment come.  
+> **¹¹** And the merchants of the earth shall weep and mourn over her; for no man buyeth their merchandise any more:  
+> **¹²** The merchandise of gold, and silver, and precious stones, and of pearls, and fine linen, and purple, and silk, and scarlet, and all thyine wood, and all manner vessels of ivory, and all manner vessels of most precious wood, and of brass, and iron, and marble,  
+> **¹³** And cinnamon, and odours, and ointments, and frankincense, and wine, and oil, and fine flour, and wheat, and beasts, and sheep, and horses, and chariots, and slaves, and souls of men.  
+> **¹⁴** And the fruits that thy soul lusted after are departed from thee, and all things which were dainty and goodly are departed from thee, and thou shalt find them no more at all.  
+> **¹⁵** The merchants of these things, which were made rich by her, shall stand afar off for the fear of her torment, weeping and wailing,  
+> **¹⁶** And saying, Alas, alas, that great city, that was clothed in fine linen, and purple, and scarlet, and decked with gold, and precious stones, and pearls!  
+> **¹⁷** For in one hour so great riches is come to nought. And every shipmaster, and all the company in ships, and sailors, and as many as trade by sea, stood afar off,  
+> **¹⁸** And cried when they saw the smoke of her burning, saying, What *city is* like unto this great city!  
+> **¹⁹** And they cast dust on their heads, and cried, weeping and wailing, saying, Alas, alas, that great city, wherein were made rich all that had ships in the sea by reason of her costliness! for in one hour is she made desolate.  
+> **²⁰** Rejoice over her, *thou* heaven, and *ye* holy apostles and prophets; for God hath avenged you on her.  
+> **²¹** And a mighty angel took up a stone like a great millstone, and cast *it* into the sea, saying, Thus with violence shall that great city Babylon be thrown down, and shall be found no more at all.  
+> **²²** And the voice of harpers, and musicians, and of pipers, and trumpeters, shall be heard no more at all in thee; and no craftsman, of whatsoever craft *he be,* shall be found any more in thee; and the sound of a millstone shall be heard no more at all in thee;  
+> **²³** And the light of a candle shall shine no more at all in thee; and the voice of the bridegroom and of the bride shall be heard no more at all in thee: for thy merchants were the great men of the earth; for by thy sorceries were all nations deceived.  
+> **²⁴** And in her was found the blood of prophets, and of saints, and of all that were slain upon the earth.  
 
 Here we have,
 

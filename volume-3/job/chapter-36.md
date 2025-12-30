@@ -8,23 +8,23 @@ Elihu, having largely reproved Job for some of his unadvised speeches, which Job
 
 ## The Address of Elihu. (b. c. 1520.)
 
-> <sup>1</sup> Elihu also proceeded, and said,  
-> <sup>2</sup> Suffer me a little, and I will show thee that *I have* yet to speak on God's behalf.  
-> <sup>3</sup> I will fetch my knowledge from afar, and will ascribe righteousness to my Maker.  
-> <sup>4</sup> For truly my words *shall* not *be* false: he that is perfect in knowledge *is* with thee.  
+> **¹** Elihu also proceeded, and said,  
+> **²** Suffer me a little, and I will show thee that *I have* yet to speak on God's behalf.  
+> **³** I will fetch my knowledge from afar, and will ascribe righteousness to my Maker.  
+> **⁴** For truly my words *shall* not *be* false: he that is perfect in knowledge *is* with thee.  
 
 Once more Elihu begs the patience of the auditory, and Job's particularly, for he has not said all that he has to say, but he will not detain them long. *Stand about me a little* (so some read it), Job 36:2. "Let me have your attendance, your attention, awhile longer, and I will speak but this once, as plainly and as much to the purpose as I can." To gain this he pleads, 1. That he had a good cause, and a noble and very fruitful subject: *I have yet to speak on God's behalf.* He spoke as an advocate for God, and therefore might justly expect the ear of the court. Some indeed pretend to speak on God's behalf who really speak for themselves; but those who sincerely appear in the cause of God, and speak in behalf of his honour, his truths, his ways, his people, shall be sure neither to want instructions (*it shall be given them in that same hour what they shall speak*) nor to lose their cause or their fee. Nor need they fear lest they should exhaust their subject. Those that have spoken ever so much may yet find more to be spoken on God's behalf. 2. That he had something to offer that was uncommon, and out of the road of vulgar observation: *I will fetch my knowledge from afar* (Job 36:3), that is, "we will have recourse to our first principles and the highest notions we can make use of to serve any purpose." It is worth while to go far for this knowledge of God, to dig for it, to travel for it; it will recompense our pains, and, though far-fetched, is not dear-bought. 3. That his design was undeniably honest; for all he aimed at was to ascribe righteousness to his Maker, to maintain and clear this truth, that God is righteous in all his ways. In speaking of God, and speaking for him, it is good to remember that he is our Maker, to call him so, and therefore to be ready to do him and the interests of his kingdom the best service we can. If he be our Maker, we have our all from him, must use our all for him, and be very jealous for his honour. That his management should be very just and fair (Job 36:4): "*My words shall not be false,* neither disagreeable to the thing itself nor to my own thoughts and apprehensions. It is truth that I am contending for, and that for truth's sake, with all possible sincerity and plainness." He will make use of plain and solid arguments and not the subtleties and niceties of the schools. "He who is perfect or upright in knowledge is now reasoning with thee; and therefore let him not only have a fair hearing, but let what he says be taken in good part, as meant well." The perfection of our knowledge in this world is to be honest and sincere in searching out truth, in applying it to ourselves, and in making use of what we know for the good of others.
 
-> <sup>5</sup> Behold, God *is* mighty, and despiseth not *any: he is* mighty in strength *and* wisdom.  
-> <sup>6</sup> He preserveth not the life of the wicked: but giveth right to the poor.  
-> <sup>7</sup> He withdraweth not his eyes from the righteous: but with kings *are they* on the throne; yea, he doth establish them for ever, and they are exalted.  
-> <sup>8</sup> And if *they be* bound in fetters, *and* be holden in cords of affliction;  
-> <sup>9</sup> Then he showeth them their work, and their transgressions that they have exceeded.  
-> <sup>10</sup> He openeth also their ear to discipline, and commandeth that they return from iniquity.  
-> <sup>11</sup> If they obey and serve *him,* they shall spend their days in prosperity, and their years in pleasures.  
-> <sup>12</sup> But if they obey not, they shall perish by the sword, and they shall die without knowledge.  
-> <sup>13</sup> But the hypocrites in heart heap up wrath: they cry not when he bindeth them.  
-> <sup>14</sup> They die in youth, and their life *is* among the unclean.  
+> **⁵** Behold, God *is* mighty, and despiseth not *any: he is* mighty in strength *and* wisdom.  
+> **⁶** He preserveth not the life of the wicked: but giveth right to the poor.  
+> **⁷** He withdraweth not his eyes from the righteous: but with kings *are they* on the throne; yea, he doth establish them for ever, and they are exalted.  
+> **⁸** And if *they be* bound in fetters, *and* be holden in cords of affliction;  
+> **⁹** Then he showeth them their work, and their transgressions that they have exceeded.  
+> **¹⁰** He openeth also their ear to discipline, and commandeth that they return from iniquity.  
+> **¹¹** If they obey and serve *him,* they shall spend their days in prosperity, and their years in pleasures.  
+> **¹²** But if they obey not, they shall perish by the sword, and they shall die without knowledge.  
+> **¹³** But the hypocrites in heart heap up wrath: they cry not when he bindeth them.  
+> **¹⁴** They die in youth, and their life *is* among the unclean.  
 
 Elihu, being to speak on God's behalf, and particularly to ascribe righteousness to his Maker, here shows that the disposals of divine Providence are all, not only according to the eternal counsels of his will, but according to the eternal rules of equity. God acts as a righteous governor, for,
 
@@ -46,15 +46,15 @@ IV\. He takes a particular care for the protection of his good subjects, Job 36:
 
 V\. He brings ruin upon hypocrites, the secret enemies of his kingdom (such as Elihu described, Job 36:12), who, though they were numbered among the righteous whom Elihu had spoken of before, yet did not obey God, but, being children of disobedience and darkness, become children of wrath and perdition; these are the *hypocrites in heart, who heap up wrath,* Job 36:13. See the nature of hypocrisy: it lies in the heart, which is for the world and the flesh when the outside seems to be for God and religion. Many that are saints in show and saints in word are hypocrites in heart. That spring is corrupt, and there is an evil treasure there. See the mischievousness of hypocrisy: hypocrites *heap up wrath.* They are doing that every day which is provoking to God, and will be reckoned with for it all together in the great day. *They treasure up wrath against the day of wrath,* Ro 2:5. Their sins are *laid up in store with God among his treasures,* De 32:34, Jam 5:3. As what goes up a vapour comes down a shower, so what goes up sin, if not repented of, will come down wrath. They think they are heaping up wealth, heaping up merits, but, when the treasures are opened, it will prove they were heaping up wrath. Observe, 1. What they do to heap up wrath. What is it that is so provoking? It is this, *They cry not when he binds them,* that is, when they are in affliction, bound with the cords of trouble, their hearts are hardened, they are stubborn and unhumbled, and will not cry to God nor make their application to him. They are stupid and senseless as stocks and stones, despising the chastening of the Lord. 2. What are the effects of that wrath? *They die in youth, and their life is among the unclean,* Job 36:14. This is the portion of hypocrites, whom Christ denounced many woes against. If they continue impenitent, (1.) They shall die a sudden death, *die in youth,* when death is most a surprise, and death (that is, the consequence of it) is always such to hypocrites; as those that die in youth die when they hoped to live, so hypocrites, at death, go to hell, when they hoped to go to heaven. *When a wicked man dies his expectations shall perish.* (2.) They shall die the second death. *Their life,* after death (for so it comes in here), *is among the unclean,* among the *fornicators* (so some), among the worst and vilest of sinners, notwithstanding their specious and plausible profession. It is among the *Sodomites* (so the margin), those filthy wretches, who *going after strange flesh, are set forth for an example, suffering the vengeance of eternal fire,* Jude 1:7. The souls of the wicked live after death, but they live among the unclean, the unclean spirits, the devil and his angels, forever separated from the new Jerusalem, into which *no unclean thing shall enter.*
 
-> <sup>15</sup> He delivereth the poor in his affliction, and openeth their ears in oppression.  
-> <sup>16</sup> Even so would he have removed thee out of the strait *into* a broad place, where *there is* no straitness; and that which should be set on thy table *should be* full of fatness.  
-> <sup>17</sup> But thou hast fulfilled the judgment of the wicked: judgment and justice take hold *on thee.*  
-> <sup>18</sup> Because *there is* wrath, *beware* lest he take thee away with *his* stroke: then a great ransom cannot deliver thee.  
-> <sup>19</sup> Will he esteem thy riches? *no,* not gold, nor all the forces of strength.  
-> <sup>20</sup> Desire not the night, when people are cut off in their place.  
-> <sup>21</sup> Take heed, regard not iniquity: for this hast thou chosen rather than affliction.  
-> <sup>22</sup> Behold, God exalteth by his power: who teacheth like him?  
-> <sup>23</sup> Who hath enjoined him his way? or who can say, Thou hast wrought iniquity?  
+> **¹⁵** He delivereth the poor in his affliction, and openeth their ears in oppression.  
+> **¹⁶** Even so would he have removed thee out of the strait *into* a broad place, where *there is* no straitness; and that which should be set on thy table *should be* full of fatness.  
+> **¹⁷** But thou hast fulfilled the judgment of the wicked: judgment and justice take hold *on thee.*  
+> **¹⁸** Because *there is* wrath, *beware* lest he take thee away with *his* stroke: then a great ransom cannot deliver thee.  
+> **¹⁹** Will he esteem thy riches? *no,* not gold, nor all the forces of strength.  
+> **²⁰** Desire not the night, when people are cut off in their place.  
+> **²¹** Take heed, regard not iniquity: for this hast thou chosen rather than affliction.  
+> **²²** Behold, God exalteth by his power: who teacheth like him?  
+> **²³** Who hath enjoined him his way? or who can say, Thou hast wrought iniquity?  
 
 Elihu here comes more closely to Job; and,
 
@@ -72,16 +72,16 @@ III\. He cautions him not to persist in his frowardness. Several good cautions h
 
 4\. Let him not dare to prescribe to God, nor give him his measures (Job 36:22,23): "*Behold, God exalteth by his power,*" that is, "He does, may, and can set up and pull down whom he pleases, and therefore it is not for thee nor me to contend with him." The more we magnify God the more do we humble and abase ourselves. Now consider, (1.) That God is an absolute sovereign: *He exalts by his* own *power,* and not by strength derived from any other. He exalts whom he pleases, exalts those that were afflicted and cast down, by the strength and power which he gives his people; and therefore *who has enjoined him his way?* Who presides above him in his way? Is there any superior from whom he has his commission and to whom he is accountable? No; he himself is supreme and independent. *Who puts him in mind of his way?* so some. Does the eternal Mind need a remembrancer? No; his own way, as well as ours, is ever before him. He has not received orders or instructions from any (Isa 60:13,14), nor is he accountable to any. He enjoins to all the creatures their way; let not us then enjoin him his, but leave it to him to govern the world, who is fit to do it. (2.) That he is an incomparable teacher: *Who teaches like him?* It is absurd for us to teach him who is himself the fountain of light, truth, knowledge, and instruction. *He that teaches man knowledge,* and so as none else can, *shall not he know?* Ps 94:9,10. Shall we light a candle to the sun? Observe, When Elihu would give glory to God as a ruler he praises him as a teacher, for rulers must teach. God does so. He binds with the cords of a man. In this, as in other things, he is unequalled. None so fit to direct his own actions as he himself is. He knows what he has to do, and how to do it for the best, and needs no information nor advice. Solomon himself had a privy-council to advise him, but the King of kings has none. Nor is any so fit to direct our actions as he is. None teaches with such authority and convincing evidence, with such condescension and compassion, nor with such power and efficacy, as God does. He teaches by the Bible, and that is the best book, teaches by his Son, and he is the best Master. (3.) That he is unexceptionably just in all his proceedings: *Who can say, Thou hast wrought iniquity?* Not, Who *dares* say it? (many do iniquity, and those who tell them of it do so at their peril), but Who *can* say it? Who has any cause to say it? Who can say it and prove it? It is a maxim undoubtedly true, without limitation, that *the King of kings can do no wrong.*
 
-> <sup>24</sup> Remember that thou magnify his work, which men behold.  
-> <sup>25</sup> Every man may see it; man may behold *it* afar off.  
-> <sup>26</sup> Behold, God *is* great, and we know *him* not, neither can the number of his years be searched out.  
-> <sup>27</sup> For he maketh small the drops of water: they pour down rain according to the vapour thereof:  
-> <sup>28</sup> Which the clouds do drop *and* distil upon man abundantly.  
-> <sup>29</sup> Also can *any* understand the spreadings of the clouds, *or* the noise of his tabernacle?  
-> <sup>30</sup> Behold, he spreadeth his light upon it, and covereth the bottom of the sea.  
-> <sup>31</sup> For by them judgeth he the people; he giveth meat in abundance.  
-> <sup>32</sup> With clouds he covereth the light; and commandeth it *not to shine* by *the cloud* that cometh betwixt.  
-> <sup>33</sup> The noise thereof showeth concerning it, the cattle also concerning the vapour.  
+> **²⁴** Remember that thou magnify his work, which men behold.  
+> **²⁵** Every man may see it; man may behold *it* afar off.  
+> **²⁶** Behold, God *is* great, and we know *him* not, neither can the number of his years be searched out.  
+> **²⁷** For he maketh small the drops of water: they pour down rain according to the vapour thereof:  
+> **²⁸** Which the clouds do drop *and* distil upon man abundantly.  
+> **²⁹** Also can *any* understand the spreadings of the clouds, *or* the noise of his tabernacle?  
+> **³⁰** Behold, he spreadeth his light upon it, and covereth the bottom of the sea.  
+> **³¹** For by them judgeth he the people; he giveth meat in abundance.  
+> **³²** With clouds he covereth the light; and commandeth it *not to shine* by *the cloud* that cometh betwixt.  
+> **³³** The noise thereof showeth concerning it, the cattle also concerning the vapour.  
 
 Elihu is here endeavouring to possess Job with great and high thoughts of God, and so to persuade him into a cheerful submission to his providence.
 

@@ -10,11 +10,11 @@ This psalm is adapted to a state of affliction; it is copied almost word for wor
 
 To the chief musician. *A psalm* of David, to bring to remembrance.
 
-> <sup>1</sup> *Make haste,* O God, to deliver me; make haste to help me, O LORD.  
-> <sup>2</sup> Let them be ashamed and confounded that seek after my soul: let them be turned backward, and put to confusion, that desire my hurt.  
-> <sup>3</sup> Let them be turned back for a reward of their shame that say, Aha, aha.  
-> <sup>4</sup> Let all those that seek thee rejoice and be glad in thee: and let such as love thy salvation say continually, Let God be magnified.  
-> <sup>5</sup> But I *am* poor and needy: make haste unto me, O God: thou *art* my help and my deliverer; O LORD, make no tarrying.  
+> **¹** *Make haste,* O God, to deliver me; make haste to help me, O LORD.  
+> **²** Let them be ashamed and confounded that seek after my soul: let them be turned backward, and put to confusion, that desire my hurt.  
+> **³** Let them be turned back for a reward of their shame that say, Aha, aha.  
+> **⁴** Let all those that seek thee rejoice and be glad in thee: and let such as love thy salvation say continually, Let God be magnified.  
+> **⁵** But I *am* poor and needy: make haste unto me, O God: thou *art* my help and my deliverer; O LORD, make no tarrying.  
 
 The title tells us that this psalm was designed to bring to remembrance; that is, to put God in remembrance of his mercy and promises (for so we are said to do when we pray to him and plead with him. Isa 43:26, *Put me in remembrance*)—not that the Eternal Mind needs a remembrancer, but this honour he is pleased to put upon the prayer of faith. Or, rather, to put himself and others in remembrance of former afflictions, that we may never be secure, but always in expectation of troubles, and of former devotions, that when the clouds return after the rain we may have recourse to the same means which we have formerly found effectual for fetching in comfort and relief. We may in prayer use the words we have often used before: our Saviour in his agony prayed thrice, saying the same words; so David here uses the words he had used before, yet not without some alterations, to show that he did not design to tie himself or others to them as a form. God looks at the heart, not at the words.
 

@@ -8,9 +8,9 @@ The apostle, having in the foregoing chapter exhorted them to proceed and advanc
 
 ## False Prophets and Corrupt Leaders. (a. d. 67.)
 
-> <sup>1</sup> But there were false prophets also among the people, even as there shall be false teachers among you, who privily shall bring in damnable heresies, even denying the Lord that bought them, and bring upon themselves swift destruction.  
-> <sup>2</sup> And many shall follow their pernicious ways; by reason of whom the way of truth shall be evil spoken of.  
-> <sup>3</sup> And through covetousness shall they with feigned words make merchandise of you—  
+> **¹** But there were false prophets also among the people, even as there shall be false teachers among you, who privily shall bring in damnable heresies, even denying the Lord that bought them, and bring upon themselves swift destruction.  
+> **²** And many shall follow their pernicious ways; by reason of whom the way of truth shall be evil spoken of.  
+> **³** And through covetousness shall they with feigned words make merchandise of you—  
 
 I\. In the end of the former chapter there is mention made of holy men of God, who lived in the times of the Old Testament, and were used as the amanuenses of the Holy Ghost, in writing the sacred oracles; but in the beginning of this he tells us they had, even at that time, false prophets in the church as well as true. In all ages of the church, and under all dispensations, when God sends true prophets, the devil sends some to seduce and deceive, false prophets in the Old Testament, and false Christs, false apostles, and seducing teachers, in the New. Concerning these observe, 1. Their business is to bring in destructive errors, *even damnable heresies,* as the business of teachers sent of God is to show the way of truth, even the true way to everlasting life. There are damnable heresies as well as damnable practices; and false teachers are industrious to spread pernicious errors. 2. Damnable heresies are commonly brought in privily, under the cloak and colour of truth. Those who introduce destructive heresies *deny the Lord that bought them.* They reject and refuse to hear and learn of the great teacher sent from God, though he is the only Saviour and Redeemer of men, who paid a price sufficient to redeem as many worlds of sinners as there are sinners in the world. 4. Those who bring in errors destructive to others bring swift (and therefore sure) *destruction upon themselves.* Self-destroyers are soon destroyed; and those who are so hardened as to propagate errors destructive to others shall surely and suddenly be destroyed, and that without remedy.
 
@@ -20,10 +20,10 @@ III\. Observe, in the next place, the method seducers take to draw disciples aft
 
 ## Divine Judgments. (a. d. 67.)
 
-> <sup>3</sup> Whose judgment now of a long time lingereth not, and their damnation slumbereth not.  
-> <sup>4</sup> For if God spared not the angels that sinned, but cast *them* down to hell, and delivered *them* into chains of darkness, to be reserved unto judgment;  
-> <sup>5</sup> And spared not the old world, but saved Noah the eighth *person,* a preacher of righteousness, bringing in the flood upon the world of the ungodly;  
-> <sup>6</sup> And turning the cities of Sodom and Gomorrha into ashes condemned *them* with an overthrow, making *them* an ensample unto those that after should live ungodly;  
+> **³** Whose judgment now of a long time lingereth not, and their damnation slumbereth not.  
+> **⁴** For if God spared not the angels that sinned, but cast *them* down to hell, and delivered *them* into chains of darkness, to be reserved unto judgment;  
+> **⁵** And spared not the old world, but saved Noah the eighth *person,* a preacher of righteousness, bringing in the flood upon the world of the ungodly;  
+> **⁶** And turning the cities of Sodom and Gomorrha into ashes condemned *them* with an overthrow, making *them* an ensample unto those that after should live ungodly;  
 
 Men are apt to think that a reprieve is the forerunner of a pardon, and that if judgment be not speedily executed it is, or will be, certainly reversed. But the apostle tells us that how successful and prosperous soever false teachers may be, and that for a time, yet their *judgment lingereth not.* God has determined long ago how he will deal with them. Such unbelievers, who endeavour to turn others from the faith, are condemned already, and the wrath of God abideth on them. The righteous Judge will speedily take vengeance; the day of their calamity is at hand, and the things that shall come upon them make haste. To prove this assertion, here are several examples of the righteous judgment of God, in taking vengeance on sinners, proposed to our serious consideration.
 
@@ -35,27 +35,27 @@ III\. See how God dealt with Sodom and Gomorrah; though they were situated in a 
 
 ## Divine Judgments. (a. d. 67.)
 
-> <sup>7</sup> And delivered just Lot, vexed with the filthy conversation of the wicked:  
-> <sup>8</sup> (For that righteous man dwelling among them, in seeing and hearing, vexed *his* righteous soul from day to day with *their* unlawful deeds;)  
-> <sup>9</sup> The Lord knoweth how to deliver the godly out of temptations, and to reserve the unjust unto the day of judgment to be punished:  
+> **⁷** And delivered just Lot, vexed with the filthy conversation of the wicked:  
+> **⁸** (For that righteous man dwelling among them, in seeing and hearing, vexed *his* righteous soul from day to day with *their* unlawful deeds;)  
+> **⁹** The Lord knoweth how to deliver the godly out of temptations, and to reserve the unjust unto the day of judgment to be punished:  
 
 When God sends destruction on the ungodly, he commands deliverance for the righteous; and, if he rain fire and brimstone on the wicked, he will cover the head of the just, and they shall be hid in the day of his anger. This we have an instance of in his preserving Lot. Here observe, 1. The character given of Lot; he is called *a just man;* this he was as to the generally prevailing bent of his heart and through the main of his conversation. God does not account men just or unjust from one single act, but from their general course of life. And here is a just man in the midst of a most corrupt and profligate generation universally gone off from all good. He does not follow the multitude to do evil, but in a city of injustice he walks uprightly. 2. The impression the sins of others made upon this righteous man. Though the sinner takes pleasure in his wickedness, it is a grief and vexation to the soul of the righteous. In bad company we cannot escape either guilt or grief. Let the sins of others be a trouble to us, otherwise it will not be possible for us to keep ourselves pure. 3. Here is a particular mention of the duration and continuance of this good man's grief and vexation: it was *from day to day.* Being accustomed to hear and see their wickedness did not reconcile him to it, nor abate of the horror that was occasioned by it. This is the righteous man whom God preserved from the desolating judgment that destroyed all round about him. From this instance we are taught to argue that God knows how to deliver his people and punish his enemies. It is here presupposed that the righteous must have their temptations and trials. The devil and his instruments will thrust sore at them, that they may fall; and, if we will get to heaven, it must be through many tribulations. It is therefore our duty to reckon upon and prepare for them. Observe here, (1.) *The Lord knows those that are his.* He has set apart him who is godly for himself; and, if there is but one in five cities, he knows him; and where there is a greater number he cannot be ignorant of nor overlook any one of them. (2.) The wisdom of God is never at a loss about ways and means to deliver his people. They are often utterly at a loss, and can see no way; he can deliver a great many. (3.) The deliverance of the godly is the work of God, that which he concerns himself in, both his wisdom to contrive the way and his power to work out the deliverance *out of temptation,* to prevent their falling into sin and their being ruined by their troubles. And surely, if he can deliver out of temptation, he could keep from falling into it if he did not see such trials to be necessary. (4.) God makes a very great difference in his dealings with the godly and the wicked. When he saves his people from destruction, he delivers over his enemies to deserved ruin. The unjust has no share in the salvation God works out for the righteous. The wicked are *reserved to the day of judgment.* Here we see, [1.] There is a day of judgment. *God has appointed a day wherein he will judge the world.* [2.] The preservation of impenitent sinners is only a reserving of them to the day of the revelation of the righteous judgment of God.
 
 ## False Teachers. (a. d. 67.)
 
-> <sup>10</sup> But chiefly them that walk after the flesh in the lust of uncleanness, and despise government. Presumptuous *are they,* selfwilled, they are not afraid to speak evil of dignities.  
-> <sup>11</sup> Whereas angels, which are greater in power and might, bring not railing accusation against them before the Lord.  
-> <sup>12</sup> But these, as natural brute beasts, made to be taken and destroyed, speak evil of the things that they understand not; and shall utterly perish in their own corruption;  
-> <sup>13</sup> And shall receive the reward of unrighteousness, *as* they that count it pleasure to riot in the day time. Spots *they are* and blemishes, sporting themselves with their own deceivings while they feast with you;  
-> <sup>14</sup> Having eyes full of adultery, and that cannot cease from sin; beguiling unstable souls: a heart they have exercised with covetous practices; cursed children:  
-> <sup>15</sup> Which have forsaken the right way, and are gone astray, following the way of Balaam *the son* of Bosor, who loved the wages of unrighteousness;  
-> <sup>16</sup> But was rebuked for his iniquity: the dumb ass speaking with man's voice forbad the madness of the prophet.  
-> <sup>17</sup> These are wells without water, clouds that are carried with a tempest; to whom the mist of darkness is reserved for ever.  
-> <sup>18</sup> For when they speak great swelling *words* of vanity, they allure through the lusts of the flesh, *through much* wantonness, those that were clean escaped from them who live in error.  
-> <sup>19</sup> While they promise them liberty, they themselves are the servants of corruption: for of whom a man is overcome, of the same is he brought in bondage.  
-> <sup>20</sup> For if after they have escaped the pollutions of the world through the knowledge of the Lord and Saviour Jesus Christ, they are again entangled therein, and overcome, the latter end is worse with them than the beginning.  
-> <sup>21</sup> For it had been better for them not to have known the way of righteousness, than, after they have known *it,* to turn from the holy commandment delivered unto them.  
-> <sup>22</sup> But it is happened unto them according to the true proverb, The dog *is* turned to his own vomit again; and the sow that was washed to her wallowing in the mire.  
+> **¹⁰** But chiefly them that walk after the flesh in the lust of uncleanness, and despise government. Presumptuous *are they,* selfwilled, they are not afraid to speak evil of dignities.  
+> **¹¹** Whereas angels, which are greater in power and might, bring not railing accusation against them before the Lord.  
+> **¹²** But these, as natural brute beasts, made to be taken and destroyed, speak evil of the things that they understand not; and shall utterly perish in their own corruption;  
+> **¹³** And shall receive the reward of unrighteousness, *as* they that count it pleasure to riot in the day time. Spots *they are* and blemishes, sporting themselves with their own deceivings while they feast with you;  
+> **¹⁴** Having eyes full of adultery, and that cannot cease from sin; beguiling unstable souls: a heart they have exercised with covetous practices; cursed children:  
+> **¹⁵** Which have forsaken the right way, and are gone astray, following the way of Balaam *the son* of Bosor, who loved the wages of unrighteousness;  
+> **¹⁶** But was rebuked for his iniquity: the dumb ass speaking with man's voice forbad the madness of the prophet.  
+> **¹⁷** These are wells without water, clouds that are carried with a tempest; to whom the mist of darkness is reserved for ever.  
+> **¹⁸** For when they speak great swelling *words* of vanity, they allure through the lusts of the flesh, *through much* wantonness, those that were clean escaped from them who live in error.  
+> **¹⁹** While they promise them liberty, they themselves are the servants of corruption: for of whom a man is overcome, of the same is he brought in bondage.  
+> **²⁰** For if after they have escaped the pollutions of the world through the knowledge of the Lord and Saviour Jesus Christ, they are again entangled therein, and overcome, the latter end is worse with them than the beginning.  
+> **²¹** For it had been better for them not to have known the way of righteousness, than, after they have known *it,* to turn from the holy commandment delivered unto them.  
+> **²²** But it is happened unto them according to the true proverb, The dog *is* turned to his own vomit again; and the sow that was washed to her wallowing in the mire.  
 
 The apostle's design being to warn us of, and arm us against, seducers, he now returns to discourse more particularly of them, and give us an account of their character and conduct, which abundantly justifies the righteous Judge of the world in reserving them in an especial manner for the most severe and heavy doom, as Cain is taken under special protection that he might be kept for uncommon vengeance. But why will God thus deal with these false teachers? This he shows in what follows.
 

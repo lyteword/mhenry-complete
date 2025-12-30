@@ -8,20 +8,20 @@ In this chapter we have, I. The appropriating of the east gate of the temple to 
 
 ## Message of the House of Israel. (b. c. 574.)
 
-> <sup>1</sup> Then he brought me back the way of the gate of the outward sanctuary which looketh toward the east; and it *was* shut.  
-> <sup>2</sup> Then said the LORD unto me; This gate shall be shut, it shall not be opened, and no man shall enter in by it; because the LORD, the God of Israel, hath entered in by it, therefore it shall be shut.  
-> <sup>3</sup> *It is* for the prince; the prince, he shall sit in it to eat bread before the LORD; he shall enter by the way of the porch of *that* gate, and shall go out by the way of the same.  
+> **¹** Then he brought me back the way of the gate of the outward sanctuary which looketh toward the east; and it *was* shut.  
+> **²** Then said the LORD unto me; This gate shall be shut, it shall not be opened, and no man shall enter in by it; because the LORD, the God of Israel, hath entered in by it, therefore it shall be shut.  
+> **³** *It is* for the prince; the prince, he shall sit in it to eat bread before the LORD; he shall enter by the way of the porch of *that* gate, and shall go out by the way of the same.  
 
 The prophet is here brought to review what he had before once surveyed; for, though we have often looked into the things of God, they will yet bear to be looked over again, such a copiousness there is in them. The lessons we have learned we should still repeat to ourselves. Every time we review the sacred fabric of holy things, which we have in the scriptures, we shall still find something new which we did not before take notice of. The prophet is brought a third time to the east gate, and finds it shut, which intimates that the rest of the gates were open at all times to the worshippers. But such an account is given of this gate's being shut as puts honour, 1. Upon the God of Israel. It is for the honour of him that the gate of the inner court, at which his glory entered when he took possession of the house, was ever after kept shut, and no man was allowed to enter in by it, Eze 44:2. The difference ever after made between this and the other gates, that this was shut when the others were open, was intended both to perpetuate the remembrance of the solemn entrance of the glory of the Lord into the house (which it would remain a traditional evidence of the truth of) and also to possess the minds of people with a reverence for the Divine Majesty, and with very awful thoughts of his transcendent glory, which was designed in God's charge to Moses at the bush, *Put off thy shoe from off thy foot.* God will have a way by himself. 2. Upon the prince of Israel, Eze 44:3. It is an honour to him that though he may not enter in by this gate, for no man may, yet, (1.) He shall *sit in this gate* to *eat* his share of the peace-offerings, that sacred food, *before the Lord.* (2.) He shall *enter by the way of the porch of that gate,* by some little door or wicket, either in the gate or adjoining to it, which is called the *way of the porch.* This is to signify that God puts some of his glory upon magistrates, upon the princes of his people, for he has said, *You are gods.* Some by the prince here understand the high priests, or the sagan or second priest; and that he only was allowed to enter by this gate, for he was God's representative. Christ is the high priest of our profession, who entered himself into the holy place, and *opened the kingdom of heaven to all believers.*
 
 ## Idolatry of the Levites. (b. c. 574.)
 
-> <sup>4</sup> Then brought he me the way of the north gate before the house: and I looked, and, behold, the glory of the LORD filled the house of the LORD: and I fell upon my face.  
-> <sup>5</sup> And the LORD said unto me, Son of man, mark well, and behold with thine eyes, and hear with thine ears all that I say unto thee concerning all the ordinances of the house of the LORD, and all the laws thereof; and mark well the entering in of the house, with every going forth of the sanctuary.  
-> <sup>6</sup> And thou shalt say to the rebellious, *even* to the house of Israel, Thus saith the Lord GOD; O ye house of Israel, let it suffice you of all your abominations,  
-> <sup>7</sup> In that ye have brought *into my sanctuary* strangers, uncircumcised in heart, and uncircumcised in flesh, to be in my sanctuary, to pollute it, *even* my house, when ye offer my bread, the fat and the blood, and they have broken my covenant because of all your abominations.  
-> <sup>8</sup> And ye have not kept the charge of mine holy things: but ye have set keepers of my charge in my sanctuary for yourselves.  
-> <sup>9</sup> Thus saith the Lord GOD; No stranger, uncircumcised in heart, nor uncircumcised in flesh, shall enter into my sanctuary, of any stranger that *is* among the children of Israel.  
+> **⁴** Then brought he me the way of the north gate before the house: and I looked, and, behold, the glory of the LORD filled the house of the LORD: and I fell upon my face.  
+> **⁵** And the LORD said unto me, Son of man, mark well, and behold with thine eyes, and hear with thine ears all that I say unto thee concerning all the ordinances of the house of the LORD, and all the laws thereof; and mark well the entering in of the house, with every going forth of the sanctuary.  
+> **⁶** And thou shalt say to the rebellious, *even* to the house of Israel, Thus saith the Lord GOD; O ye house of Israel, let it suffice you of all your abominations,  
+> **⁷** In that ye have brought *into my sanctuary* strangers, uncircumcised in heart, and uncircumcised in flesh, to be in my sanctuary, to pollute it, *even* my house, when ye offer my bread, the fat and the blood, and they have broken my covenant because of all your abominations.  
+> **⁸** And ye have not kept the charge of mine holy things: but ye have set keepers of my charge in my sanctuary for yourselves.  
+> **⁹** Thus saith the Lord GOD; No stranger, uncircumcised in heart, nor uncircumcised in flesh, shall enter into my sanctuary, of any stranger that *is* among the children of Israel.  
 
 This is much to the same purport with what we had in the beginning of Eze 43:1-31 As the prophet must look again upon what he had before seen, so he must be told again what he had before heard. Here, as before, he sees the house *filled with the glory of the Lord,* which strikes an awe upon him, so that he falls prostrate at the sight, the humblest posture of adoration and the expression of a holy awe: *I fell upon my face,* Eze 44:4. Note, The more we see of the glory of God the more low we shall lie in our own eyes. Now here,
 
@@ -35,13 +35,13 @@ II\. He sends him upon an errand to the people, *to the rebellious, even to the 
 
 ## Idolatrous Priests Degraded. (b. c. 574.)
 
-> <sup>10</sup> And the Levites that are gone away far from me, when Israel went astray, which went astray away from me after their idols; they shall even bear their iniquity.  
-> <sup>11</sup> Yet they shall be ministers in my sanctuary, *having* charge at the gates of the house, and ministering to the house: they shall slay the burnt offering and the sacrifice for the people, and they shall stand before them to minister unto them.  
-> <sup>12</sup> Because they ministered unto them before their idols, and caused the house of Israel to fall into iniquity; therefore have I lifted up mine hand against them, saith the Lord GOD, and they shall bear their iniquity.  
-> <sup>13</sup> And they shall not come near unto me, to do the office of a priest unto me, nor to come near to any of my holy things, in the most holy *place:* but they shall bear their shame, and their abominations which they have committed.  
-> <sup>14</sup> But I will make them keepers of the charge of the house, for all the service thereof, and for all that shall be done therein.  
-> <sup>15</sup> But the priests the Levites, the sons of Zadok, that kept the charge of my sanctuary when the children of Israel went astray from me, they shall come near to me to minister unto me, and they shall stand before me to offer unto me the fat and the blood, saith the Lord GOD:  
-> <sup>16</sup> They shall enter into my sanctuary, and they shall come near to my table, to minister unto me, and they shall keep my charge.  
+> **¹⁰** And the Levites that are gone away far from me, when Israel went astray, which went astray away from me after their idols; they shall even bear their iniquity.  
+> **¹¹** Yet they shall be ministers in my sanctuary, *having* charge at the gates of the house, and ministering to the house: they shall slay the burnt offering and the sacrifice for the people, and they shall stand before them to minister unto them.  
+> **¹²** Because they ministered unto them before their idols, and caused the house of Israel to fall into iniquity; therefore have I lifted up mine hand against them, saith the Lord GOD, and they shall bear their iniquity.  
+> **¹³** And they shall not come near unto me, to do the office of a priest unto me, nor to come near to any of my holy things, in the most holy *place:* but they shall bear their shame, and their abominations which they have committed.  
+> **¹⁴** But I will make them keepers of the charge of the house, for all the service thereof, and for all that shall be done therein.  
+> **¹⁵** But the priests the Levites, the sons of Zadok, that kept the charge of my sanctuary when the children of Israel went astray from me, they shall come near to me to minister unto me, and they shall stand before me to offer unto me the fat and the blood, saith the Lord GOD:  
+> **¹⁶** They shall enter into my sanctuary, and they shall come near to my table, to minister unto me, and they shall keep my charge.  
 
 The Master of the house, being about to set up house again, takes account of his servants the priests, and sees who are fit to be turned out of their places and who to be kept in, and takes a course with them accordingly.
 
@@ -51,21 +51,21 @@ II\. Those who have been faithful are honoured and established, Eze 44:15,16. Th
 
 ## Directions Concerning the Priests. (b. c. 574.)
 
-> <sup>17</sup> And it shall come to pass, *that* when they enter in at the gates of the inner court, they shall be clothed with linen garments; and no wool shall come upon them, whiles they minister in the gates of the inner court, and within.  
-> <sup>18</sup> They shall have linen bonnets upon their heads, and shall have linen breeches upon their loins; they shall not gird *themselves* with any thing that causeth sweat.  
-> <sup>19</sup> And when they go forth into the utter court, *even* into the utter court to the people, they shall put off their garments wherein they ministered, and lay them in the holy chambers, and they shall put on other garments; and they shall not sanctify the people with their garments.  
-> <sup>20</sup> Neither shall they shave their heads, nor suffer their locks to grow long; they shall only poll their heads.  
-> <sup>21</sup> Neither shall any priest drink wine, when they enter into the inner court.  
-> <sup>22</sup> Neither shall they take for their wives a widow, nor her that is put away: but they shall take maidens of the seed of the house of Israel, or a widow that had a priest before.  
-> <sup>23</sup> And they shall teach my people *the difference* between the holy and profane, and cause them to discern between the unclean and the clean.  
-> <sup>24</sup> And in controversy they shall stand in judgment; *and* they shall judge it according to my judgments: and they shall keep my laws and my statutes in all mine assemblies; and they shall hallow my sabbaths.  
-> <sup>25</sup> And they shall come at no dead person to defile themselves: but for father, or for mother, or for son, or for daughter, for brother, or for sister that hath had no husband, they may defile themselves.  
-> <sup>26</sup> And after he is cleansed, they shall reckon unto him seven days.  
-> <sup>27</sup> And in the day that he goeth into the sanctuary, unto the inner court, to minister in the sanctuary, he shall offer his sin offering, saith the Lord GOD.  
-> <sup>28</sup> And it shall be unto them for an inheritance: I *am* their inheritance: and ye shall give them no possession in Israel: I *am* their possession.  
-> <sup>29</sup> They shall eat the meat offering, and the sin offering, and the trespass offering; and every dedicated thing in Israel shall be theirs.  
-> <sup>30</sup> And the first of all the firstfruits of all *things,* and every oblation of all, of every *sort* of your oblations, shall be the priest's: ye shall also give unto the priest the first of your dough, that he may cause the blessing to rest in thine house.  
-> <sup>31</sup> The priests shall not eat of any thing that is dead of itself, or torn, whether it be fowl or beast.  
+> **¹⁷** And it shall come to pass, *that* when they enter in at the gates of the inner court, they shall be clothed with linen garments; and no wool shall come upon them, whiles they minister in the gates of the inner court, and within.  
+> **¹⁸** They shall have linen bonnets upon their heads, and shall have linen breeches upon their loins; they shall not gird *themselves* with any thing that causeth sweat.  
+> **¹⁹** And when they go forth into the utter court, *even* into the utter court to the people, they shall put off their garments wherein they ministered, and lay them in the holy chambers, and they shall put on other garments; and they shall not sanctify the people with their garments.  
+> **²⁰** Neither shall they shave their heads, nor suffer their locks to grow long; they shall only poll their heads.  
+> **²¹** Neither shall any priest drink wine, when they enter into the inner court.  
+> **²²** Neither shall they take for their wives a widow, nor her that is put away: but they shall take maidens of the seed of the house of Israel, or a widow that had a priest before.  
+> **²³** And they shall teach my people *the difference* between the holy and profane, and cause them to discern between the unclean and the clean.  
+> **²⁴** And in controversy they shall stand in judgment; *and* they shall judge it according to my judgments: and they shall keep my laws and my statutes in all mine assemblies; and they shall hallow my sabbaths.  
+> **²⁵** And they shall come at no dead person to defile themselves: but for father, or for mother, or for son, or for daughter, for brother, or for sister that hath had no husband, they may defile themselves.  
+> **²⁶** And after he is cleansed, they shall reckon unto him seven days.  
+> **²⁷** And in the day that he goeth into the sanctuary, unto the inner court, to minister in the sanctuary, he shall offer his sin offering, saith the Lord GOD.  
+> **²⁸** And it shall be unto them for an inheritance: I *am* their inheritance: and ye shall give them no possession in Israel: I *am* their possession.  
+> **²⁹** They shall eat the meat offering, and the sin offering, and the trespass offering; and every dedicated thing in Israel shall be theirs.  
+> **³⁰** And the first of all the firstfruits of all *things,* and every oblation of all, of every *sort* of your oblations, shall be the priest's: ye shall also give unto the priest the first of your dough, that he may cause the blessing to rest in thine house.  
+> **³¹** The priests shall not eat of any thing that is dead of itself, or torn, whether it be fowl or beast.  
 
 God's priests must be *regulars,* not *seculars;* and therefore here are rules laid down for them to govern themselves by and due encouragement given them to live up to those rules. Directions are here given,
 

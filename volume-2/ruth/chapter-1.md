@@ -8,11 +8,11 @@ In this chapter we have Naomi's afflictions. I. As a distressed housekeeper, for
 
 ## Elimelech and Naomi; Death of Elimelech and His Sons. (b. c. 1312.)
 
-> <sup>1</sup> Now it came to pass in the days when the judges ruled, that there was a famine in the land. And a certain man of Beth-lehem-judah went to sojourn in the country of Moab, he, and his wife, and his two sons.  
-> <sup>2</sup> And the name of the man *was* Elimelech, and the name of his wife Naomi, and the name of his two sons Mahlon and Chilion, Ephrathites of Beth-lehem-judah. And they came into the country of Moab, and continued there.  
-> <sup>3</sup> And Elimelech Naomi's husband died; and she was left, and her two sons.  
-> <sup>4</sup> And they took them wives of the women of Moab; the name of the one *was* Orpah, and the name of the other Ruth: and they dwelled there about ten years.  
-> <sup>5</sup> And Mahlon and Chilion died also both of them; and the woman was left of her two sons and her husband.  
+> **¹** Now it came to pass in the days when the judges ruled, that there was a famine in the land. And a certain man of Beth-lehem-judah went to sojourn in the country of Moab, he, and his wife, and his two sons.  
+> **²** And the name of the man *was* Elimelech, and the name of his wife Naomi, and the name of his two sons Mahlon and Chilion, Ephrathites of Beth-lehem-judah. And they came into the country of Moab, and continued there.  
+> **³** And Elimelech Naomi's husband died; and she was left, and her two sons.  
+> **⁴** And they took them wives of the women of Moab; the name of the one *was* Orpah, and the name of the other Ruth: and they dwelled there about ten years.  
+> **⁵** And Mahlon and Chilion died also both of them; and the woman was left of her two sons and her husband.  
 
 The first words give all the date we have of this story. It was *in the days when the judges ruled* (Ru 1:1), not in those disorderly times when *there was no king in Israel;* but under which of the judges these things happened we are not told, and the conjectures of the learned are very uncertain. It must have been towards the beginning of the judges' time, for Boaz, who married Ruth, was born of Rahab, who received the spies in Joshua's time. Some think it was in the days of Ehud, others of Deborah; the learned bishop Patrick inclines to think it was in the days of Gideon, because in his days only we read of a famine by the Midianites' invasion, Jdg 6:3,4. While the judges were ruling, some one city and some another, Providence takes particular cognizance of Bethlehem, and has an eye to a King, to Messiah himself, who should descend from two Gentile mothers, Rahab and Ruth. Here is,
 
@@ -28,19 +28,19 @@ V\. The death of Elimelech and his two sons, and the disconsolate condition Naom
 
 ## Naomi Returns to Canaan; Naomi and Her Daughters-in-Law; Ruth's Constancy to Naomi. (b. c. 1312.)
 
-> <sup>6</sup> Then she arose with her daughters in law, that she might return from the country of Moab: for she had heard in the country of Moab how that the LORD had visited his people in giving them bread.  
-> <sup>7</sup> Wherefore she went forth out of the place where she was, and her two daughters in law with her; and they went on the way to return unto the land of Judah.  
-> <sup>8</sup> And Naomi said unto her two daughters in law, Go, return each to her mother's house: the LORD deal kindly with you, as ye have dealt with the dead, and with me.  
-> <sup>9</sup> The LORD grant you that ye may find rest, each *of you* in the house of her husband. Then she kissed them; and they lifted up their voice, and wept.  
-> <sup>10</sup> And they said unto her, Surely we will return with thee unto thy people.  
-> <sup>11</sup> And Naomi said, Turn again, my daughters: why will ye go with me? *are* there yet *any more* sons in my womb, that they may be your husbands?  
-> <sup>12</sup> Turn again, my daughters, go *your way;* for I am too old to have a husband. If I should say, I have hope, *if* I should have a husband also to night, and should also bear sons;  
-> <sup>13</sup> Would ye tarry for them till they were grown? would ye stay for them from having husbands? nay, my daughters; for it grieveth me much for your sakes that the hand of the LORD is gone out against me.  
-> <sup>14</sup> And they lifted up their voice, and wept again: and Orpah kissed her mother in law; but Ruth clave unto her.  
-> <sup>15</sup> And she said, Behold, thy sister in law is gone back unto her people, and unto her gods: return thou after thy sister in law.  
-> <sup>16</sup> And Ruth said, Intreat me not to leave thee, *or* to return from following after thee: for whither thou goest, I will go; and where thou lodgest, I will lodge: thy people *shall be* my people, and thy God my God:  
-> <sup>17</sup> Where thou diest, will I die, and there will I be buried: the LORD do so to me, and more also, *if ought* but death part thee and me.  
-> <sup>18</sup> When she saw that she was stedfastly minded to go with her, then she left speaking unto her.  
+> **⁶** Then she arose with her daughters in law, that she might return from the country of Moab: for she had heard in the country of Moab how that the LORD had visited his people in giving them bread.  
+> **⁷** Wherefore she went forth out of the place where she was, and her two daughters in law with her; and they went on the way to return unto the land of Judah.  
+> **⁸** And Naomi said unto her two daughters in law, Go, return each to her mother's house: the LORD deal kindly with you, as ye have dealt with the dead, and with me.  
+> **⁹** The LORD grant you that ye may find rest, each *of you* in the house of her husband. Then she kissed them; and they lifted up their voice, and wept.  
+> **¹⁰** And they said unto her, Surely we will return with thee unto thy people.  
+> **¹¹** And Naomi said, Turn again, my daughters: why will ye go with me? *are* there yet *any more* sons in my womb, that they may be your husbands?  
+> **¹²** Turn again, my daughters, go *your way;* for I am too old to have a husband. If I should say, I have hope, *if* I should have a husband also to night, and should also bear sons;  
+> **¹³** Would ye tarry for them till they were grown? would ye stay for them from having husbands? nay, my daughters; for it grieveth me much for your sakes that the hand of the LORD is gone out against me.  
+> **¹⁴** And they lifted up their voice, and wept again: and Orpah kissed her mother in law; but Ruth clave unto her.  
+> **¹⁵** And she said, Behold, thy sister in law is gone back unto her people, and unto her gods: return thou after thy sister in law.  
+> **¹⁶** And Ruth said, Intreat me not to leave thee, *or* to return from following after thee: for whither thou goest, I will go; and where thou lodgest, I will lodge: thy people *shall be* my people, and thy God my God:  
+> **¹⁷** Where thou diest, will I die, and there will I be buried: the LORD do so to me, and more also, *if ought* but death part thee and me.  
+> **¹⁸** When she saw that she was stedfastly minded to go with her, then she left speaking unto her.  
 
 See here, I. The good affection Naomi bore to the land of Israel, Ru 1:6. Though she could not stay in it while the famine lasted, she would not stay out of it when the famine ceased. Though the country of Moab had afforded her shelter and supply in a time of need, yet she did not intend it should be her rest for ever; no land should be that but the holy land, in which the sanctuary of God was, of which he had said, *This is my rest for ever.* Observe,
 
@@ -84,10 +84,10 @@ The Chaldee paraphrase thus relates the debate between Naomi and Ruth:—Ruth sa
 
 ## Naomi's Reception at Bethlehem. (b. c. 1312.)
 
-> <sup>19</sup> So they two went until they came to Bethlehem. And it came to pass, when they were come to Bethlehem, that all the city was moved about them, and they said, *Is* this Naomi?  
-> <sup>20</sup> And she said unto them, Call me not Naomi, call me Mara: for the Almighty hath dealt very bitterly with me.  
-> <sup>21</sup> I went out full, and the LORD hath brought me home again empty: why *then* call ye me Naomi, seeing the LORD hath testified against me, and the Almighty hath afflicted me?  
-> <sup>22</sup> So Naomi returned, and Ruth the Moabitess, her daughter in law, with her, which returned out of the country of Moab: and they came to Bethlehem in the beginning of barley harvest.  
+> **¹⁹** So they two went until they came to Bethlehem. And it came to pass, when they were come to Bethlehem, that all the city was moved about them, and they said, *Is* this Naomi?  
+> **²⁰** And she said unto them, Call me not Naomi, call me Mara: for the Almighty hath dealt very bitterly with me.  
+> **²¹** I went out full, and the LORD hath brought me home again empty: why *then* call ye me Naomi, seeing the LORD hath testified against me, and the Almighty hath afflicted me?  
+> **²²** So Naomi returned, and Ruth the Moabitess, her daughter in law, with her, which returned out of the country of Moab: and they came to Bethlehem in the beginning of barley harvest.  
 
 Naomi and Ruth, after many a weary step (the fatigue of the journey, we may suppose, being somewhat relieved by the good instructions Naomi gave to her proselyte and the good discourse they had together), came at last to Bethlehem. And they came very seasonably, *in the beginning of the barley-harvest,* which was the first of their harvests, that of wheat following after. Now Naomi's own eyes might convince her of the truth of what she had heard in the country of Moab, that *the Lord had visited his people in giving them bread,* and Ruth might see this good land in its best state; and now they had opportunity to provide for winter. Our *times are in God's hand,* both the events and the time of them. Notice is here taken,
 

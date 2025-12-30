@@ -8,15 +8,15 @@ The last words of David, which we read in the chapter before, were admirably goo
 
 ## The People Numbered. (b. c. 1017.)
 
-> <sup>1</sup> And again the anger of the LORD was kindled against Israel, and he moved David against them to say, Go, number Israel and Judah.  
-> <sup>2</sup> For the king said to Joab the captain of the host, which *was* with him, Go now through all the tribes of Israel, from Dan even to Beer-sheba, and number ye the people, that I may know the number of the people.  
-> <sup>3</sup> And Joab said unto the king, Now the LORD thy God add unto the people, how many soever they be, a hundredfold, and that the eyes of my lord the king may see *it:* but why doth my lord the king delight in this thing?  
-> <sup>4</sup> Notwithstanding the king's word prevailed against Joab, and against the captains of the host. And Joab and the captains of the host went out from the presence of the king, to number the people of Israel.  
-> <sup>5</sup> And they passed over Jordan, and pitched in Aroer, on the right side of the city that *lieth* in the midst of the river of Gad, and toward Jazer:  
-> <sup>6</sup> Then they came to Gilead, and to the land of Tahtim-hodshi; and they came to Dan-jaan, and about to Zidon,  
-> <sup>7</sup> And came to the strong hold of Tyre, and to all the cities of the Hivites, and of the Canaanites: and they went out to the south of Judah, *even* to Beer-sheba.  
-> <sup>8</sup> So when they had gone through all the land, they came to Jerusalem at the end of nine months and twenty days.  
-> <sup>9</sup> And Joab gave up the sum of the number of the people unto the king: and there were in Israel eight hundred thousand valiant men that drew the sword; and the men of Judah *were* five hundred thousand men.  
+> **¹** And again the anger of the LORD was kindled against Israel, and he moved David against them to say, Go, number Israel and Judah.  
+> **²** For the king said to Joab the captain of the host, which *was* with him, Go now through all the tribes of Israel, from Dan even to Beer-sheba, and number ye the people, that I may know the number of the people.  
+> **³** And Joab said unto the king, Now the LORD thy God add unto the people, how many soever they be, a hundredfold, and that the eyes of my lord the king may see *it:* but why doth my lord the king delight in this thing?  
+> **⁴** Notwithstanding the king's word prevailed against Joab, and against the captains of the host. And Joab and the captains of the host went out from the presence of the king, to number the people of Israel.  
+> **⁵** And they passed over Jordan, and pitched in Aroer, on the right side of the city that *lieth* in the midst of the river of Gad, and toward Jazer:  
+> **⁶** Then they came to Gilead, and to the land of Tahtim-hodshi; and they came to Dan-jaan, and about to Zidon,  
+> **⁷** And came to the strong hold of Tyre, and to all the cities of the Hivites, and of the Canaanites: and they went out to the south of Judah, *even* to Beer-sheba.  
+> **⁸** So when they had gone through all the land, they came to Jerusalem at the end of nine months and twenty days.  
+> **⁹** And Joab gave up the sum of the number of the people unto the king: and there were in Israel eight hundred thousand valiant men that drew the sword; and the men of Judah *were* five hundred thousand men.  
 
 Here we have,
 
@@ -30,14 +30,14 @@ III\. The orders executed notwithstanding. *The king's word prevailed,* 2Sa 24:4
 
 ## The Numbering of the People Punished. (b. c. 1017.)
 
-> <sup>10</sup> And David's heart smote him after that he had numbered the people. And David said unto the LORD, I have sinned greatly in that I have done: and now, I beseech thee, O LORD, take away the iniquity of thy servant; for I have done very foolishly.  
-> <sup>11</sup> For when David was up in the morning, the word of the LORD came unto the prophet Gad, David's seer, saying,  
-> <sup>12</sup> Go and say unto David, Thus saith the LORD, I offer thee three *things;* choose thee one of them, that I may *do it* unto thee.  
-> <sup>13</sup> So Gad came to David, and told him, and said unto him, Shall seven years of famine come unto thee in thy land? or wilt thou flee three months before thine enemies, while they pursue thee? or that there be three days' pestilence in thy land? now advise, and see what answer I shall return to him that sent me.  
-> <sup>14</sup> And David said unto Gad, I am in a great strait: let us fall now into the hand of the LORD; for his mercies *are* great: and let me not fall into the hand of man.  
-> <sup>15</sup> So the LORD sent a pestilence upon Israel from the morning even to the time appointed: and there died of the people from Dan even to Beer-sheba seventy thousand men.  
-> <sup>16</sup> And when the angel stretched out his hand upon Jerusalem to destroy it, the LORD repented him of the evil, and said to the angel that destroyed the people, It is enough: stay now thine hand. And the angel of the LORD was by the threshingplace of Araunah the Jebusite.  
-> <sup>17</sup> And David spake unto the LORD when he saw the angel that smote the people, and said, Lo, I have sinned, and I have done wickedly: but these sheep, what have they done? let thine hand, I pray thee, be against me, and against my father's house.  
+> **¹⁰** And David's heart smote him after that he had numbered the people. And David said unto the LORD, I have sinned greatly in that I have done: and now, I beseech thee, O LORD, take away the iniquity of thy servant; for I have done very foolishly.  
+> **¹¹** For when David was up in the morning, the word of the LORD came unto the prophet Gad, David's seer, saying,  
+> **¹²** Go and say unto David, Thus saith the LORD, I offer thee three *things;* choose thee one of them, that I may *do it* unto thee.  
+> **¹³** So Gad came to David, and told him, and said unto him, Shall seven years of famine come unto thee in thy land? or wilt thou flee three months before thine enemies, while they pursue thee? or that there be three days' pestilence in thy land? now advise, and see what answer I shall return to him that sent me.  
+> **¹⁴** And David said unto Gad, I am in a great strait: let us fall now into the hand of the LORD; for his mercies *are* great: and let me not fall into the hand of man.  
+> **¹⁵** So the LORD sent a pestilence upon Israel from the morning even to the time appointed: and there died of the people from Dan even to Beer-sheba seventy thousand men.  
+> **¹⁶** And when the angel stretched out his hand upon Jerusalem to destroy it, the LORD repented him of the evil, and said to the angel that destroyed the people, It is enough: stay now thine hand. And the angel of the LORD was by the threshingplace of Araunah the Jebusite.  
+> **¹⁷** And David spake unto the LORD when he saw the angel that smote the people, and said, Lo, I have sinned, and I have done wickedly: but these sheep, what have they done? let thine hand, I pray thee, be against me, and against my father's house.  
 
 We have here David repenting of the sin and yet punished for it, God repenting of the judgment and David thereby made more penitent.
 
@@ -61,14 +61,14 @@ IV\. David's renewed repentance for his sin upon this occasion, 2Sa 24:17. He sa
 
 ## The Plague Removed. (b. c. 1017.)
 
-> <sup>18</sup> And Gad came that day to David, and said unto him, Go up, rear an altar unto the LORD in the threshingfloor of Araunah the Jebusite.  
-> <sup>19</sup> And David, according to the saying of Gad, went up as the LORD commanded.  
-> <sup>20</sup> And Araunah looked, and saw the king and his servants coming on toward him: and Araunah went out, and bowed himself before the king on his face upon the ground.  
-> <sup>21</sup> And Araunah said, Wherefore is my lord the king come to his servant? And David said, To buy the threshingfloor of thee, to build an altar unto the LORD, that the plague may be stayed from the people.  
-> <sup>22</sup> And Araunah said unto David, Let my lord the king take and offer up what *seemeth* good unto him: behold, *here be* oxen for burnt sacrifice, and threshing instruments and *other* instruments of the oxen for wood.  
-> <sup>23</sup> All these *things* did Araunah, *as* a king, give unto the king. And Araunah said unto the king, The LORD thy God accept thee.  
-> <sup>24</sup> And the king said unto Araunah, Nay; but I will surely buy *it* of thee at a price: neither will I offer burnt offerings unto the LORD my God of that which doth cost me nothing. So David bought the threshingfloor and the oxen for fifty shekels of silver.  
-> <sup>25</sup> And David built there an altar unto the LORD, and offered burnt offerings and peace offerings. So the LORD was intreated for the land, and the plague was stayed from Israel.  
+> **¹⁸** And Gad came that day to David, and said unto him, Go up, rear an altar unto the LORD in the threshingfloor of Araunah the Jebusite.  
+> **¹⁹** And David, according to the saying of Gad, went up as the LORD commanded.  
+> **²⁰** And Araunah looked, and saw the king and his servants coming on toward him: and Araunah went out, and bowed himself before the king on his face upon the ground.  
+> **²¹** And Araunah said, Wherefore is my lord the king come to his servant? And David said, To buy the threshingfloor of thee, to build an altar unto the LORD, that the plague may be stayed from the people.  
+> **²²** And Araunah said unto David, Let my lord the king take and offer up what *seemeth* good unto him: behold, *here be* oxen for burnt sacrifice, and threshing instruments and *other* instruments of the oxen for wood.  
+> **²³** All these *things* did Araunah, *as* a king, give unto the king. And Araunah said unto the king, The LORD thy God accept thee.  
+> **²⁴** And the king said unto Araunah, Nay; but I will surely buy *it* of thee at a price: neither will I offer burnt offerings unto the LORD my God of that which doth cost me nothing. So David bought the threshingfloor and the oxen for fifty shekels of silver.  
+> **²⁵** And David built there an altar unto the LORD, and offered burnt offerings and peace offerings. So the LORD was intreated for the land, and the plague was stayed from Israel.  
 
 Here is, I. A command sent to David to erect an altar in the place where he saw the angel, 2Sa 24:18. This was to intimate to David, 1. That, upon his repeated submission and humiliation, God was now thoroughly reconciled to him; *for, if the Lord had been pleased to kill him, he would not have accepted an offering,* and therefore would not have ordered him to *build an altar.* God's encouraging us to offer to him spiritual sacrifices is a comfortable evidence of his reconciling us to himself. 2. That peace is made between God and sinners by sacrifice, and not otherwise, even by Christ the great propitiation, of whom all the legal sacrifices were types. It is for his sake that the destroying angel is told to stay his hand. 3. That when God's judgments are graciously stayed we ought to acknowledge it with thankfulness to his praise. This altar was to be for thank-offerings. See Isa 12:1.
 

@@ -8,12 +8,12 @@ Glorious things had been spoken in the previous chapters concerning the delivera
 
 ## Encouragement to the Gentiles. (b. c. 706.)
 
-> <sup>1</sup> Listen, O isles, unto me; and hearken, ye people, from far; The LORD hath called me from the womb; from the bowels of my mother hath he made mention of my name.  
-> <sup>2</sup> And he hath made my mouth like a sharp sword; in the shadow of his hand hath he hid me, and made me a polished shaft; in his quiver hath he hid me;  
-> <sup>3</sup> And said unto me, Thou *art* my servant, O Israel, in whom I will be glorified.  
-> <sup>4</sup> Then I said, I have laboured in vain, I have spent my strength for nought, and in vain: *yet* surely my judgment *is* with the LORD, and my work with my God.  
-> <sup>5</sup> And now, saith the LORD that formed me from the womb *to be* his servant, to bring Jacob again to him, Though Israel be not gathered, yet shall I be glorious in the eyes of the LORD, and my God shall be my strength.  
-> <sup>6</sup> And he said, It is a light thing that thou shouldest be my servant to raise up the tribes of Jacob, and to restore the preserved of Israel: I will also give thee for a light to the Gentiles, that thou mayest be my salvation unto the end of the earth.  
+> **¹** Listen, O isles, unto me; and hearken, ye people, from far; The LORD hath called me from the womb; from the bowels of my mother hath he made mention of my name.  
+> **²** And he hath made my mouth like a sharp sword; in the shadow of his hand hath he hid me, and made me a polished shaft; in his quiver hath he hid me;  
+> **³** And said unto me, Thou *art* my servant, O Israel, in whom I will be glorified.  
+> **⁴** Then I said, I have laboured in vain, I have spent my strength for nought, and in vain: *yet* surely my judgment *is* with the LORD, and my work with my God.  
+> **⁵** And now, saith the LORD that formed me from the womb *to be* his servant, to bring Jacob again to him, Though Israel be not gathered, yet shall I be glorious in the eyes of the LORD, and my God shall be my strength.  
+> **⁶** And he said, It is a light thing that thou shouldest be my servant to raise up the tribes of Jacob, and to restore the preserved of Israel: I will also give thee for a light to the Gentiles, that thou mayest be my salvation unto the end of the earth.  
 
 Here, I. An auditory is summoned together and attention demanded. The sermon in the foregoing chapter was directed to the house of Jacob and the people of Israel, Isa 49:1,12. But this is directed to the isles (that is, the Gentiles, for they are called *the isles of the Gentiles,* Ge 10:5) and to *the people from far,* that were *strangers to the commonwealth of Israel,* and afar off. Let these listen (Isa 49:1) as to a thing at a distance, which yet they are to hear with desire and attention. Note, 1. The tidings of a Redeemer are sent to the Gentiles, and to those that lie most remote; and they are concerned to listen to them. 2. The Gentiles listened to the gospel when the Jews were deaf to it.
 
@@ -29,12 +29,12 @@ III\. He is assured of the good success of his undertaking; for whom God calls h
 
 ## Encouragement to the Gentiles. (b. c. 706.)
 
-> <sup>7</sup> Thus saith the LORD, the Redeemer of Israel, *and* his Holy One, to him whom man despiseth, to him whom the nation abhorreth, to a servant of rulers, Kings shall see and arise, princes also shall worship, because of the LORD that is faithful, *and* the Holy One of Israel, and he shall choose thee.  
-> <sup>8</sup> Thus saith the LORD, In an acceptable time have I heard thee, and in a day of salvation have I helped thee: and I will preserve thee, and give thee for a covenant of the people, to establish the earth, to cause to inherit the desolate heritages;  
-> <sup>9</sup> That thou mayest say to the prisoners, Go forth; to them that *are* in darkness, Show yourselves. They shall feed in the ways, and their pastures *shall be* in all high places.  
-> <sup>10</sup> They shall not hunger nor thirst; neither shall the heat nor sun smite them: for he that hath mercy on them shall lead them, even by the springs of water shall he guide them.  
-> <sup>11</sup> And I will make all my mountains a way, and my highways shall be exalted.  
-> <sup>12</sup> Behold, these shall come from far: and, lo, these from the north and from the west; and these from the land of Sinim.  
+> **⁷** Thus saith the LORD, the Redeemer of Israel, *and* his Holy One, to him whom man despiseth, to him whom the nation abhorreth, to a servant of rulers, Kings shall see and arise, princes also shall worship, because of the LORD that is faithful, *and* the Holy One of Israel, and he shall choose thee.  
+> **⁸** Thus saith the LORD, In an acceptable time have I heard thee, and in a day of salvation have I helped thee: and I will preserve thee, and give thee for a covenant of the people, to establish the earth, to cause to inherit the desolate heritages;  
+> **⁹** That thou mayest say to the prisoners, Go forth; to them that *are* in darkness, Show yourselves. They shall feed in the ways, and their pastures *shall be* in all high places.  
+> **¹⁰** They shall not hunger nor thirst; neither shall the heat nor sun smite them: for he that hath mercy on them shall lead them, even by the springs of water shall he guide them.  
+> **¹¹** And I will make all my mountains a way, and my highways shall be exalted.  
+> **¹²** Behold, these shall come from far: and, lo, these from the north and from the west; and these from the land of Sinim.  
 
 In these verses we have,
 
@@ -58,11 +58,11 @@ II\. The blessings he has in store for all those to whom he is made salvation.
 
 ## Encouragement to Zion. (b. c. 706.)
 
-> <sup>13</sup> Sing, O heavens; and be joyful, O earth; and break forth into singing, O mountains: for the LORD hath comforted his people, and will have mercy upon his afflicted.  
-> <sup>14</sup> But Zion said, The LORD hath forsaken me, and my Lord hath forgotten me.  
-> <sup>15</sup> Can a woman forget her sucking child, that she should not have compassion on the son of her womb? yea, they may forget, yet will I not forget thee.  
-> <sup>16</sup> Behold, I have graven thee upon the palms of *my* hands; thy walls *are* continually before me.  
-> <sup>17</sup> Thy children shall make haste; thy destroyers and they that made thee waste shall go forth of thee.  
+> **¹³** Sing, O heavens; and be joyful, O earth; and break forth into singing, O mountains: for the LORD hath comforted his people, and will have mercy upon his afflicted.  
+> **¹⁴** But Zion said, The LORD hath forsaken me, and my Lord hath forgotten me.  
+> **¹⁵** Can a woman forget her sucking child, that she should not have compassion on the son of her womb? yea, they may forget, yet will I not forget thee.  
+> **¹⁶** Behold, I have graven thee upon the palms of *my* hands; thy walls *are* continually before me.  
+> **¹⁷** Thy children shall make haste; thy destroyers and they that made thee waste shall go forth of thee.  
 
 The scope of these verses is to show that the return of the people of God out of their captivity, and the eternal redemption to be wrought out by Christ (of which that was a type), would be great occasions of joy to the church and great proofs of the tender care God has of the church.
 
@@ -80,12 +80,12 @@ II\. Nothing can furnish us with more convincing arguments to prove the most ten
 
 ## Encouragement to Zion. (b. c. 706.)
 
-> <sup>18</sup> Lift up thine eyes round about, and behold: all these gather themselves together, *and* come to thee. *As* I live, saith the LORD, thou shalt surely clothe thee with them all, as with an ornament, and bind them *on thee,* as a bride *doeth.*  
-> <sup>19</sup> For thy waste and thy desolate places, and the land of thy destruction, shall even now be too narrow by reason of the inhabitants, and they that swallowed thee up shall be far away.  
-> <sup>20</sup> The children which thou shalt have, after thou hast lost the other, shall say again in thine ears, The place *is* too strait for me: give place to me that I may dwell.  
-> <sup>21</sup> Then shalt thou say in thine heart, Who hath begotten me these, seeing I have lost my children, and am desolate, a captive, and removing to and fro? and who hath brought up these? Behold, I was left alone; these, where *had* they *been?*  
-> <sup>22</sup> Thus saith the Lord GOD, Behold, I will lift up mine hand to the Gentiles, and set up my standard to the people: and they shall bring thy sons in *their* arms, and thy daughters shall be carried upon *their* shoulders.  
-> <sup>23</sup> And kings shall be thy nursing fathers, and their queens thy nursing mothers: they shall bow down to thee with *their* face toward the earth, and lick up the dust of thy feet; and thou shalt know that I *am* the LORD: for they shall not be ashamed that wait for me.  
+> **¹⁸** Lift up thine eyes round about, and behold: all these gather themselves together, *and* come to thee. *As* I live, saith the LORD, thou shalt surely clothe thee with them all, as with an ornament, and bind them *on thee,* as a bride *doeth.*  
+> **¹⁹** For thy waste and thy desolate places, and the land of thy destruction, shall even now be too narrow by reason of the inhabitants, and they that swallowed thee up shall be far away.  
+> **²⁰** The children which thou shalt have, after thou hast lost the other, shall say again in thine ears, The place *is* too strait for me: give place to me that I may dwell.  
+> **²¹** Then shalt thou say in thine heart, Who hath begotten me these, seeing I have lost my children, and am desolate, a captive, and removing to and fro? and who hath brought up these? Behold, I was left alone; these, where *had* they *been?*  
+> **²²** Thus saith the Lord GOD, Behold, I will lift up mine hand to the Gentiles, and set up my standard to the people: and they shall bring thy sons in *their* arms, and thy daughters shall be carried upon *their* shoulders.  
+> **²³** And kings shall be thy nursing fathers, and their queens thy nursing mothers: they shall bow down to thee with *their* face toward the earth, and lick up the dust of thy feet; and thou shalt know that I *am* the LORD: for they shall not be ashamed that wait for me.  
 
 Two things are here promised, which were to be in part accomplished in the reviving of the Jewish church after its return out of captivity, but more fully in the planting of the Christian church by the preaching of the gospel of Christ; and we may take the comfort of these promises.
 
@@ -105,9 +105,9 @@ II\. That the church shall have a great and prevailing interest in the nations, 
 
 ## Encouragement to Zion. (b. c. 706.)
 
-> <sup>24</sup> Shall the prey be taken from the mighty, or the lawful captive delivered?  
-> <sup>25</sup> But thus saith the LORD, Even the captives of the mighty shall be taken away, and the prey of the terrible shall be delivered: for I will contend with him that contendeth with thee, and I will save thy children.  
-> <sup>26</sup> And I will feed them that oppress thee with their own flesh; and they shall be drunken with their own blood, as with sweet wine: and all flesh shall know that I the LORD *am* thy Saviour and thy Redeemer, the mighty One of Jacob.  
+> **²⁴** Shall the prey be taken from the mighty, or the lawful captive delivered?  
+> **²⁵** But thus saith the LORD, Even the captives of the mighty shall be taken away, and the prey of the terrible shall be delivered: for I will contend with him that contendeth with thee, and I will save thy children.  
+> **²⁶** And I will feed them that oppress thee with their own flesh; and they shall be drunken with their own blood, as with sweet wine: and all flesh shall know that I the LORD *am* thy Saviour and thy Redeemer, the mighty One of Jacob.  
 
 Here is, I. An objection started against the promise of the Jews' release out of their captivity in Babylon, suggesting that it was a thing not to be expected; for (Isa 49:24) they were a prey in the hand of the mighty, of such as were then the greatest potentates on earth, and therefore it was not likely they should be rescued by force. Yet that was not all: they were lawful captives; by the law of God, having offended, they were justly delivered into captivity; and by the law of nations, being taken in war, they were justly detained in captivity till they should be ransomed or exchanged. Now this is spoken either, 1. By the enemies, as justifying themselves in their refusal to let them go. They plead both might and right. Proud men think all their own that they can lay their hands on and their title good if they have but the longest sword. Or, 2. By their friends, either in a way of distrust, despairing of the deliverance ("for who is able to deal with those that detain us, either by force of arms or a treaty of peace?"), or in a way of thankfulness, admiring the deliverance. "Who would have thought that ever the prey should be *taken from the mighty?* Yet it is done." This is applicable to our redemption by Christ. As to Satan, we were a prey in the hand of the mighty, and yet delivered even from him that had the power of death, by him that had the power of life. As to the justice of God, we were lawful captives, and yet delivered by a price of inestimable value.
 

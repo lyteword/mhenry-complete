@@ -8,10 +8,10 @@ This chapter begins with an exhortation to progressive holiness and a due regard
 
 ## Progressive Holiness. (a. d. 57.)
 
-> <sup>1</sup> Having therefore these promises, dearly beloved, let us cleanse ourselves from all filthiness of the flesh and spirit, perfecting holiness in the fear of God.  
-> <sup>2</sup> Receive us; we have wronged no man, we have corrupted no man, we have defrauded no man.  
-> <sup>3</sup> I speak not *this* to condemn *you:* for I have said before, that ye are in our hearts to die and live with *you.*  
-> <sup>4</sup> Great *is* my boldness of speech toward you, great *is* my glorying of you: I am filled with comfort, I am exceeding joyful in all our tribulation.  
+> **¹** Having therefore these promises, dearly beloved, let us cleanse ourselves from all filthiness of the flesh and spirit, perfecting holiness in the fear of God.  
+> **²** Receive us; we have wronged no man, we have corrupted no man, we have defrauded no man.  
+> **³** I speak not *this* to condemn *you:* for I have said before, that ye are in our hearts to die and live with *you.*  
+> **⁴** Great *is* my boldness of speech toward you, great *is* my glorying of you: I am filled with comfort, I am exceeding joyful in all our tribulation.  
 
 These verses contain a double exhortation:—
 
@@ -21,13 +21,13 @@ II\. To show a due regard to the ministers of the gospel: *Receive us,* 2Co 7:2.
 
 ## Various Exhortations. (a. d. 57.)
 
-> <sup>5</sup> For, when we were come into Macedonia, our flesh had no rest, but we were troubled on every side; without *were* fightings, within *were* fears.  
-> <sup>6</sup> Nevertheless God, that comforteth those that are cast down, comforted us by the coming of Titus;  
-> <sup>7</sup> And not by his coming only, but by the consolation wherewith he was comforted in you, when he told us your earnest desire, your mourning, your fervent mind toward me; so that I rejoiced the more.  
-> <sup>8</sup> For though I made you sorry with a letter, I do not repent, though I did repent: for I perceive that the same epistle hath made you sorry, though *it were* but for a season.  
-> <sup>9</sup> Now I rejoice, not that ye were made sorry, but that ye sorrowed to repentance: for ye were made sorry after a godly manner, that ye might receive damage by us in nothing.  
-> <sup>10</sup> For godly sorrow worketh repentance to salvation not to be repented of: but the sorrow of the world worketh death.  
-> <sup>11</sup> For behold this selfsame thing, that ye sorrowed after a godly sort, what carefulness it wrought in you, yea, *what* clearing of yourselves, yea, *what* indignation, yea, *what* fear, yea, *what* vehement desire, yea, *what* zeal, yea, *what* revenge! In all *things* ye have approved yourselves to be clear in this matter.  
+> **⁵** For, when we were come into Macedonia, our flesh had no rest, but we were troubled on every side; without *were* fightings, within *were* fears.  
+> **⁶** Nevertheless God, that comforteth those that are cast down, comforted us by the coming of Titus;  
+> **⁷** And not by his coming only, but by the consolation wherewith he was comforted in you, when he told us your earnest desire, your mourning, your fervent mind toward me; so that I rejoiced the more.  
+> **⁸** For though I made you sorry with a letter, I do not repent, though I did repent: for I perceive that the same epistle hath made you sorry, though *it were* but for a season.  
+> **⁹** Now I rejoice, not that ye were made sorry, but that ye sorrowed to repentance: for ye were made sorry after a godly manner, that ye might receive damage by us in nothing.  
+> **¹⁰** For godly sorrow worketh repentance to salvation not to be repented of: but the sorrow of the world worketh death.  
+> **¹¹** For behold this selfsame thing, that ye sorrowed after a godly sort, what carefulness it wrought in you, yea, *what* clearing of yourselves, yea, *what* indignation, yea, *what* fear, yea, *what* vehement desire, yea, *what* zeal, yea, *what* revenge! In all *things* ye have approved yourselves to be clear in this matter.  
 
 There seems to be a connection between 2Co 2:13,7:5 (where the apostle said he had no rest in his spirit when he found not Titus at Troas) and the 2Co 2:13,7:5: and so great was his affection to the Corinthians, and his concern about their behaviour in relation to the incestuous person, that, in his further travels, he still had no rest till he heard from them. And now he tells them,
 
@@ -43,11 +43,11 @@ III\. How greatly he rejoiced at their repentance, and the evidences thereof. Th
 
 ## Case of Incestuous Person. (a. d. 57.)
 
-> <sup>12</sup> Wherefore, though I wrote unto you, *I did it* not for his cause that had done the wrong, nor for his cause that suffered wrong, but that our care for you in the sight of God might appear unto you.  
-> <sup>13</sup> Therefore we were comforted in your comfort: yea, and exceedingly the more joyed we for the joy of Titus, because his spirit was refreshed by you all.  
-> <sup>14</sup> For if I have boasted any thing to him of you, I am not ashamed; but as we spake all things to you in truth, even so our boasting, which *I made* before Titus, is found a truth.  
-> <sup>15</sup> And his inward affection is more abundant toward you, whilst he remembereth the obedience of you all, how with fear and trembling ye received him.  
-> <sup>16</sup> I rejoice therefore that I have confidence in you in all *things.*  
+> **¹²** Wherefore, though I wrote unto you, *I did it* not for his cause that had done the wrong, nor for his cause that suffered wrong, but that our care for you in the sight of God might appear unto you.  
+> **¹³** Therefore we were comforted in your comfort: yea, and exceedingly the more joyed we for the joy of Titus, because his spirit was refreshed by you all.  
+> **¹⁴** For if I have boasted any thing to him of you, I am not ashamed; but as we spake all things to you in truth, even so our boasting, which *I made* before Titus, is found a truth.  
+> **¹⁵** And his inward affection is more abundant toward you, whilst he remembereth the obedience of you all, how with fear and trembling ye received him.  
+> **¹⁶** I rejoice therefore that I have confidence in you in all *things.*  
 
 In these verses the apostle endeavours to comfort the Corinthians, upon whom his admonitions had had such good effect. And in order thereto, 1. He tells them he had a good design in his former epistle, which might be thought severe, 2Co 7:12. It was not chiefly *for his cause that did the wrong,* not only for his benefit, much less merely that he should be punished; nor was it merely *for his cause that suffered wrong,* namely, the injured father, and that he might have what satisfaction could be given him; but it was also to manifest his great and sincere concern and *care for them,* for the whole church, lest that should suffer by letting such a crime, and the scandal thereof, remain among them without due remark and resentment. 2. He acquaints them with the joy of Titus as well as of himself upon the account of their repentance and good behaviour. Titus was rejoiced, and his spirit refreshed, with their comfort, and this comforted and rejoiced the apostle also (2Co 7:13); and, as Titus was comforted while he was with them, so when he remembered his reception among them, expressing their obedience to the apostolical directions, and their fear and trembling at the reproofs that were given them, the thoughts of these things inflamed and increased his affections to them, 2Co 7:15. Note, Great comfort and joy follow upon godly sorrow. As sin occasions general grief, so repentance and reformation occasion general joy. Paul was glad, and Titus was glad, and the Corinthians were comforted, and the penitent ought to be comforted; and well may all this joy be on earth, when there is joy in heaven over one sinner that repenteth. 3. He concludes this whole matter with expressing the entire confidence he had in them: He was not ashamed of his boasting concerning them to Titus (2Co 7:14); for he was not disappointed in his expectation concerning them, which he signified to Titus, and he could now with great joy declare what confidence he still had in them as to all things, that he did not doubt of their good behaviour for the time to come. Note, It is a great comfort and joy to a faithful minister to have to do with a people whom he can confide in, and who he has reason to hope will comply with every thing he proposes to them that is for the glory of God, the credit of the gospel, and their advantage.
 

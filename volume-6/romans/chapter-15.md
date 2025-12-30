@@ -8,10 +8,10 @@ The apostle, in this chapter, continues the discourse of the former, concerning 
 
 ## Condescension and Self-denial; Tenderness and Generosity. (a. d. 58.)
 
-> <sup>1</sup> We then that are strong ought to bear the infirmities of the weak, and not to please ourselves.  
-> <sup>2</sup> Let every one of us please *his* neighbour for *his* good to edification.  
-> <sup>3</sup> For even Christ pleased not himself; but, as it is written, The reproaches of them that reproached thee fell on me.  
-> <sup>4</sup> For whatsoever things were written aforetime were written for our learning, that we through patience and comfort of the scriptures might have hope.  
+> **¹** We then that are strong ought to bear the infirmities of the weak, and not to please ourselves.  
+> **²** Let every one of us please *his* neighbour for *his* good to edification.  
+> **³** For even Christ pleased not himself; but, as it is written, The reproaches of them that reproached thee fell on me.  
+> **⁴** For whatsoever things were written aforetime were written for our learning, that we through patience and comfort of the scriptures might have hope.  
 
 The apostle here lays down two precepts, with reasons to enforce them, showing the duty of the strong Christian to consider and condescend to the weakest.
 
@@ -31,8 +31,8 @@ II\. We must not please ourselves, but our neighbour, Ro 15:1,2. We must deny ou
 
 ## Christian Unity. (a. d. 58.)
 
-> <sup>5</sup> Now the God of patience and consolation grant you to be like-minded one toward another according to Christ Jesus:  
-> <sup>6</sup> That ye may with one mind *and* one mouth glorify God, even the Father of our Lord Jesus Christ.  
+> **⁵** Now the God of patience and consolation grant you to be like-minded one toward another according to Christ Jesus:  
+> **⁶** That ye may with one mind *and* one mouth glorify God, even the Father of our Lord Jesus Christ.  
 
 The apostle, having delivered two exhortations, before he proceeds to more, intermixes here a prayer for the success of what he had said. Faithful ministers water their preaching with their prayers, because, whoever sows the seed, it is God that gives the increase. We can but speak to the ear; it is God's prerogative to speak to the heart. Observe,
 
@@ -44,12 +44,12 @@ III\. The end of his desire: that God may be glorified, Ro 15:6. This is his ple
 
 ## Christian Unity. (a. d. 58.)
 
-> <sup>7</sup> Wherefore receive ye one another, as Christ also received us to the glory of God.  
-> <sup>8</sup> Now I say that Jesus Christ was a minister of the circumcision for the truth of God, to confirm the promises *made* unto the fathers:  
-> <sup>9</sup> And that the Gentiles might glorify God for *his* mercy; as it is written, For this cause I will confess to thee among the Gentiles, and sing unto thy name.  
-> <sup>10</sup> And again he saith, Rejoice, ye Gentiles, with his people.  
-> <sup>11</sup> And again, Praise the Lord, all ye Gentiles; and laud him, all ye people.  
-> <sup>12</sup> And again, Esaias saith, There shall be a root of Jesse, and he that shall rise to reign over the Gentiles; in him shall the Gentiles trust.  
+> **⁷** Wherefore receive ye one another, as Christ also received us to the glory of God.  
+> **⁸** Now I say that Jesus Christ was a minister of the circumcision for the truth of God, to confirm the promises *made* unto the fathers:  
+> **⁹** And that the Gentiles might glorify God for *his* mercy; as it is written, For this cause I will confess to thee among the Gentiles, and sing unto thy name.  
+> **¹⁰** And again he saith, Rejoice, ye Gentiles, with his people.  
+> **¹¹** And again, Praise the Lord, all ye Gentiles; and laud him, all ye people.  
+> **¹²** And again, Esaias saith, There shall be a root of Jesse, and he that shall rise to reign over the Gentiles; in him shall the Gentiles trust.  
 
 The apostle here returns to his exhortation to Christians. What he says here (Ro 15:7) is to the same purport with the former; but the repetition shows how much the apostle's heart was upon it. "Receive one another into your affection, into your communion, and into your common conversation, as there is occasion." He had exhorted the strong to receive the weak (Ro 14:1), here, *Receive one another;* for sometimes the prejudices of the weak Christian make him shy of the strong, as much as the pride of the strong Christian makes him shy of the weak, neither of which ought to be. Let there be a mutual embracing among Christians. Those that have received Christ by faith must receive all Christians by brotherly love; though poor in the world, though persecuted and despised, though it may be matter of reproach and danger to you to receive them, though in the less weighty matters of the law they are of different apprehensions, though there may have been occasion for private piques, yet, laying aside these and the like considerations, *receive you one another.* Now the reason why Christians must receive one another is taken, as before, from the condescending love of Christ to us: *As Christ also received us, to the glory of God.* Can there be a more cogent argument? Has Christ been so kind to us, and shall we be so unkind to those that are his? Was he so forward to entertain us, and shall we be backward to entertain our brethren? Christ has received us into the nearest and dearest relations to himself: has received us into his fold, into his family, into the adoption of sons, into a covenant of friendship, yea, into a marriage-covenant with himself; he has received us (though we were strangers and enemies, and had played the prodigal) into fellowship and communion with himself. Those words, *to the glory of God,* may refer both to Christ's receiving us, which is our pattern, and to our receiving one another, which is our practice according to that pattern.
 
@@ -67,7 +67,7 @@ II\. We must receive one another to the glory of God. This must be our great end
 
 ## The God of Hope. (a. d. 58.)
 
-> <sup>13</sup> Now the God of hope fill you with all joy and peace in believing, that ye may abound in hope, through the power of the Holy Ghost.  
+> **¹³** Now the God of hope fill you with all joy and peace in believing, that ye may abound in hope, through the power of the Holy Ghost.  
 
 Here is another prayer directed to God, as the God of hope; and it is, as the former (Ro 15:5), for spiritual blessings: these are the blest blessings, and to be first and chiefly prayed for.
 
@@ -81,9 +81,9 @@ II\. What he asks of God, not for himself, but for them.
 
 ## Paul Commends the Brethren. (a. d. 58.)
 
-> <sup>14</sup> And I myself also am persuaded of you, my brethren, that ye also are full of goodness, filled with all knowledge, able also to admonish one another.  
-> <sup>15</sup> Nevertheless, brethren, I have written the more boldly unto you in some sort, as putting you in mind, because of the grace that is given to me of God,  
-> <sup>16</sup> That I should be the minister of Jesus Christ to the Gentiles, ministering the gospel of God, that the offering up of the Gentiles might be acceptable, being sanctified by the Holy Ghost.  
+> **¹⁴** And I myself also am persuaded of you, my brethren, that ye also are full of goodness, filled with all knowledge, able also to admonish one another.  
+> **¹⁵** Nevertheless, brethren, I have written the more boldly unto you in some sort, as putting you in mind, because of the grace that is given to me of God,  
+> **¹⁶** That I should be the minister of Jesus Christ to the Gentiles, ministering the gospel of God, that the offering up of the Gentiles might be acceptable, being sanctified by the Holy Ghost.  
 
 Here, I. He commends these Christians with the highest characters that could be. He began his epistle with their praises (Ro 1:8), *Your faith is spoken of throughout the world,* thereby to make way for his discourse: and, because sometimes he had reproved them sharply, he now concludes with the like commendation, to qualify them, and to part friends. This he does like an orator. It was not a piece of idle flattery and compliment, but a due acknowledgment of their worth, and of the grace of God in them. We must be forward to observe and commend in others that which is excellent and praise-worthy; it is part of the present recompence of virtue and usefulness, and will be of use to quicken others to a holy emulation. It was a great credit to the Romans to be commended by Paul, a man of such great judgment and integrity, too skilful to be deceived and too honest to flatter. Paul had no personal acquaintance with these Christians, and yet he says he was persuaded of their excellencies, though he knew them only be hearsay. As we must not, on the one hand, be so simple as to believe every word; so, on the other hand, we must not be so skeptical as to believe nothing; but especially we must be forward to believe good concerning others: in this case charity hopeth all things, and believeth all things, and (if the probabilities be any way strong, as here they were) is persuaded. It is safer to err on this side. Now observe what it was that he commended them for. 1. That they *were full of goodness;* therefore the more likely to take in good part what he had written, and to account it a kindness; and not only so, but to comply with it, and to put it in practice, especially that which relates to their union and to the healing of their differences. A good understanding of one another, and a good will to one another, would soon put an end to strife. 2. *Filled with all knowledge.* Goodness and knowledge together! A very rare and an excellent conjunction; the head and the heart of the new man. All knowledge, all necessary knowledge, all the knowledge of those things which belong to their everlasting peace. 3. *Able to admonish one another.* To this there is a further gift requisite, even the gift of utterance. Those that have goodness and knowledge should communicate what they have for the use and benefit of others. "You that excel so much in good gifts may think you have no need of any instructions of mine." It is a comfort to faithful ministers to see their work superseded by the gifts and graces of their people. How gladly would ministers leave off their admonishing work, if people were able and willing to admonish one another! Would to God that all the Lord's people were prophets. But that which is every body's work is nobody's work; and therefore,
 
@@ -95,11 +95,11 @@ II\. He clears himself from the suspicion of intermeddling needlessly with that 
 
 ## The Apostle's Labours. (a. d. 58.)
 
-> <sup>17</sup> I have therefore whereof I may glory through Jesus Christ in those things which pertain to God.  
-> <sup>18</sup> For I will not dare to speak of any of those things which Christ hath not wrought by me, to make the Gentiles obedient, by word and deed,  
-> <sup>19</sup> Through mighty signs and wonders, by the power of the Spirit of God; so that from Jerusalem, and round about unto Illyricum, I have fully preached the gospel of Christ.  
-> <sup>20</sup> Yea, so have I strived to preach the gospel, not where Christ was named, lest I should build upon another man's foundation:  
-> <sup>21</sup> But as it is written, To whom he was not spoken of, they shall see: and they that have not heard shall understand.  
+> **¹⁷** I have therefore whereof I may glory through Jesus Christ in those things which pertain to God.  
+> **¹⁸** For I will not dare to speak of any of those things which Christ hath not wrought by me, to make the Gentiles obedient, by word and deed,  
+> **¹⁹** Through mighty signs and wonders, by the power of the Spirit of God; so that from Jerusalem, and round about unto Illyricum, I have fully preached the gospel of Christ.  
+> **²⁰** Yea, so have I strived to preach the gospel, not where Christ was named, lest I should build upon another man's foundation:  
+> **²¹** But as it is written, To whom he was not spoken of, they shall see: and they that have not heard shall understand.  
 
 The apostle here gives some account of himself and of his own affairs. Having mentioned his ministry and apostleship, he goes on further to magnify his office in the efficacy of it, and to mention to the glory of God the great success of his ministry and the wonderful things that God had done by him, for encouragement to the Christian church at Rome, that they were not alone in the profession of Christianity, but though, compared with the multitude of their idolatrous neighbours, they were but a little flock, yet, up and down the country, there were many that were their companions in the kingdom and patience of Jesus Christ. It was likewise a great confirmation of the truth of the Christian doctrine that it had such strange success, and was so far propagated by such weak and unlikely means, such multitudes captivated to the obedience of Christ by the foolishness of preaching. Therefore Paul gives them this account, which he makes the matter of his glorying; not vain glory, but holy gracious glorying, which appears by the limitations; it is *through Jesus Christ.* Thus does he centre all his glorying in Christ; he teaches us so to do, 1Co 1:31. *Not unto us,* Ps 115:1. And it is *in those things which pertain to God.* The conversion of souls is one of those things that pertain to God, and therefore is the matter of Paul's glorying; not the things of the flesh. *Whereof I may glory,* *echo oun kauchesin en Christo Iesou ta pros Theon.* I would rather read it thus: *Therefore I have a rejoicing in Christ Jesus* (it is the same word that is used, 2Co 1:12, Php 3:3, where it is the character of the circumcision that they *rejoice*—*kauchomenoi,* in Christ Jesus) *concerning the things of God;* or those things that are offered to God—the living sacrifices of the Gentiles, Ro 15:16. Paul would have them to rejoice with him in the extent and efficacy of his ministry, of which he speaks not only with the greatest deference possible to the power of Christ, and the effectual working of the Spirit as all in all; but with a protestation of the truth of what he said (Ro 15:18): *I will not dare to speak of any of those things which Christ hath not wrought by me.* He would not boast of things without his line, nor take the praise of another man's work, as he might have done when he was writing to distant strangers, who perhaps could not contradict him; but (says he) I dare not do it: a faithful man dares not lie, however he be tempted, dares be true, however he be terrified. Now, in this account of himself, we may observe,
 
@@ -113,14 +113,14 @@ II\. The great and wonderful success that he had in his work: It was effectual t
 
 ## The Apostle's Labours; Paul's Desire to See the Romans; Contributions for the Poor Saints. (a. d. 58.)
 
-> <sup>22</sup> For which cause also I have been much hindered from coming to you.  
-> <sup>23</sup> But now having no more place in these parts, and having a great desire these many years to come unto you;  
-> <sup>24</sup> Whensoever I take my journey into Spain, I will come to you: for I trust to see you in my journey, and to be brought on my way thitherward by you, if first I be somewhat filled with your *company.*  
-> <sup>25</sup> But now I go unto Jerusalem to minister unto the saints.  
-> <sup>26</sup> For it hath pleased them of Macedonia and Achaia to make a certain contribution for the poor saints which are at Jerusalem.  
-> <sup>27</sup> It hath pleased them verily; and their debtors they are. For if the Gentiles have been made partakers of their spiritual things, their duty is also to minister unto them in carnal things.  
-> <sup>28</sup> When therefore I have performed this, and have sealed to them this fruit, I will come by you into Spain.  
-> <sup>29</sup> And I am sure that, when I come unto you, I shall come in the fulness of the blessing of the gospel of Christ.  
+> **²²** For which cause also I have been much hindered from coming to you.  
+> **²³** But now having no more place in these parts, and having a great desire these many years to come unto you;  
+> **²⁴** Whensoever I take my journey into Spain, I will come to you: for I trust to see you in my journey, and to be brought on my way thitherward by you, if first I be somewhat filled with your *company.*  
+> **²⁵** But now I go unto Jerusalem to minister unto the saints.  
+> **²⁶** For it hath pleased them of Macedonia and Achaia to make a certain contribution for the poor saints which are at Jerusalem.  
+> **²⁷** It hath pleased them verily; and their debtors they are. For if the Gentiles have been made partakers of their spiritual things, their duty is also to minister unto them in carnal things.  
+> **²⁸** When therefore I have performed this, and have sealed to them this fruit, I will come by you into Spain.  
+> **²⁹** And I am sure that, when I come unto you, I shall come in the fulness of the blessing of the gospel of Christ.  
 
 St. Paul here declares his purpose to come and see the Christians at Rome. Upon this head his matter is but common and ordinary, appointing a visit to his friends; but the manner of his expression is gracious and savoury, very instructive, and for our imitation. We should learn by it to speak of our common affairs in the language of Canaan. Even our common discourse should have an air of grace; by this it will appear what country we belong to. It should seem that Paul's company was very much desired at Rome. He was a man that had as many friends and as many enemies as most men ever had: he passed through evil report and good report. No doubt they had heard much of him at Rome, and longed to see him. Should the apostle of the Gentiles be a stranger at Rome, the metropolis of the Gentile world? Why as to this he excuses it that he had not come yet, he promises to come shortly, and gives a good reason why he could not come now.
 
@@ -140,10 +140,10 @@ III\. He gives them a good reason why he could not come and see them now, becaus
 
 ## Paul's Desire for the Church's Prayers. (a. d. 58.)
 
-> <sup>30</sup> Now I beseech you, brethren, for the Lord Jesus Christ's sake, and for the love of the Spirit, that ye strive together with me in *your* prayers to God for me;  
-> <sup>31</sup> That I may be delivered from them that do not believe in Judæa; and that my service which *I have* for Jerusalem may be accepted of the saints;  
-> <sup>32</sup> That I may come unto you with joy by the will of God, and may with you be refreshed.  
-> <sup>33</sup> Now the God of peace *be* with you all. Amen.  
+> **³⁰** Now I beseech you, brethren, for the Lord Jesus Christ's sake, and for the love of the Spirit, that ye strive together with me in *your* prayers to God for me;  
+> **³¹** That I may be delivered from them that do not believe in Judæa; and that my service which *I have* for Jerusalem may be accepted of the saints;  
+> **³²** That I may come unto you with joy by the will of God, and may with you be refreshed.  
+> **³³** Now the God of peace *be* with you all. Amen.  
 
 Here we have, I. St. Paul's desire of a share in the prayers of the Romans for him, expressed very earnestly, Ro 15:30-32. Though Paul was a great apostle, yet he begged the prayers of the meanest Christians, not here only, but in several other of the epistles. He had prayed much for them, and this he desires as the return of his kindness. Interchanging prayers is an excellent token of the interchanging of loves. Paul speaks like one that knew himself, and would hereby teach us how to value the effectual fervent prayer of the righteous. How careful should we be lest we do any thing to forfeit our interest in the love and prayers of god's praying people!
 

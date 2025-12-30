@@ -8,20 +8,20 @@ This chapter gives as the history of Jephthah, another of Israel's judges, and n
 
 ## Jephthah's Promotion. (b. c. 1143.)
 
-> <sup>1</sup> Now Jephthah the Gileadite was a mighty man of valour, and he *was* the son of a harlot: and Gilead begat Jephthah.  
-> <sup>2</sup> And Gilead's wife bare him sons; and his wife's sons grew up, and they thrust out Jephthah, and said unto him, Thou shalt not inherit in our father's house; for thou *art* the son of a strange woman.  
-> <sup>3</sup> Then Jephthah fled from his brethren, and dwelt in the land of Tob: and there were gathered vain men to Jephthah, and went out with him.  
+> **¹** Now Jephthah the Gileadite was a mighty man of valour, and he *was* the son of a harlot: and Gilead begat Jephthah.  
+> **²** And Gilead's wife bare him sons; and his wife's sons grew up, and they thrust out Jephthah, and said unto him, Thou shalt not inherit in our father's house; for thou *art* the son of a strange woman.  
+> **³** Then Jephthah fled from his brethren, and dwelt in the land of Tob: and there were gathered vain men to Jephthah, and went out with him.  
 
 The princes and people of Gilead we left, in the close of the foregoing chapter, consulting about the choice of a general, having come to this resolve, that whoever would undertake to lead their forces against the children of Ammon should by common consent be head over all the inhabitants of Gilead. The enterprise was difficult, and it was fit that so great an encouragement as this should be proposed to him that would undertake it. Now all agreed that Jephthah, the Gileadite, was a mighty man of valour, and very fit for that purpose, none so fit as he, but he lay under three disadvantages:—1. He was *the son of a harlot* (Jdg 11:1), of *a strange woman* (Jdg 11:2), one that was neither a wife nor a concubine; some think his mother was a Gentile; so Josephus, who calls him *a stranger by the mother's side.* An Ishmaelite, say the Jews. If his mother was a harlot, that was not his fault, however it was his disgrace. Men ought not to be reproached with any of the infelicities of their parentage or extraction, so long as they are endeavouring by their personal merits to roll away the reproach. The son of a harlot, if born again, born from above, shall be accepted of God, and be as welcome as any other to the glorious liberties of his children. Jephthah could not read in the law the brand there put on the Ammonites, the enemies he was to grapple with, that they should *not enter into the congregation of the Lord,* but in the same paragraph he met with that which looked black upon himself, that a bastard should be in like manner excluded, De 23:2,3. But if that law means, as most probably it does, only those that are born of incest, not of fornication, he was not within the reach of it. 2. He had been driven from his country by his brethren. His father's legitimate children, insisting upon the rigour of the law, thrust him out from having any inheritance with them, without any consideration of his extraordinary qualifications, which merited a dispensation, and would have made him a mighty strength and ornament of their family, if they had overlooked his being illegitimate and admitted him to a child's part, Jdg 11:2. One would not have thought this abandoned youth was intended to be Israel's deliverer and judge, but God often humbles those whom he designs to exalt, and makes that *stone the head of the corner which the builders refused;* so Joseph, Moses, and David, the three most eminent of the shepherds of Israel, were all thrust out by men, before they were called of God to their great offices. 3. He had, in his exile, headed a rabble, Jdg 11:3. Being driven out by his brethren, his great soul would not suffer him either to dig or beg, but by his sword he must live; and, being soon noted for his bravery, those that were reduced to such straits, and animated by such a spirit, enlisted themselves under him. *Vain men* they are here called, that is, men that had run through their estates and had to seek for a livelihood. These went out with him, not to rob or plunder, but to hunt wild beasts, and perhaps to make incursions upon those countries which Israel was entitled to, but had not as yet come to the possession of, or were some way or other injured by. This is the man that must save Israel. That people had by their idolatry made themselves children of whoredoms, and aliens from God and his covenant, and therefore, though God upon their repentance will deliver them, yet, to mortify them and remind them of their sin, he chooses to do it by a bastard and an exile.
 
-> <sup>4</sup> And it came to pass in process of time, that the children of Ammon made war against Israel.  
-> <sup>5</sup> And it was so, that when the children of Ammon made war against Israel, the elders of Gilead went to fetch Jephthah out of the land of Tob:  
-> <sup>6</sup> And they said unto Jephthah, Come, and be our captain, that we may fight with the children of Ammon.  
-> <sup>7</sup> And Jephthah said unto the elders of Gilead, Did not ye hate me, and expel me out of my father's house? and why are ye come unto me now when ye are in distress?  
-> <sup>8</sup> And the elders of Gilead said unto Jephthah, Therefore we turn again to thee now, that thou mayest go with us, and fight against the children of Ammon, and be our head over all the inhabitants of Gilead.  
-> <sup>9</sup> And Jephthah said unto the elders of Gilead, If ye bring me home again to fight against the children of Ammon, and the LORD deliver them before me, shall I be your head?  
-> <sup>10</sup> And the elders of Gilead said unto Jephthah, The LORD be witness between us, if we do not so according to thy words.  
-> <sup>11</sup> Then Jephthah went with the elders of Gilead, and the people made him head and captain over them: and Jephthah uttered all his words before the LORD in Mizpeh.  
+> **⁴** And it came to pass in process of time, that the children of Ammon made war against Israel.  
+> **⁵** And it was so, that when the children of Ammon made war against Israel, the elders of Gilead went to fetch Jephthah out of the land of Tob:  
+> **⁶** And they said unto Jephthah, Come, and be our captain, that we may fight with the children of Ammon.  
+> **⁷** And Jephthah said unto the elders of Gilead, Did not ye hate me, and expel me out of my father's house? and why are ye come unto me now when ye are in distress?  
+> **⁸** And the elders of Gilead said unto Jephthah, Therefore we turn again to thee now, that thou mayest go with us, and fight against the children of Ammon, and be our head over all the inhabitants of Gilead.  
+> **⁹** And Jephthah said unto the elders of Gilead, If ye bring me home again to fight against the children of Ammon, and the LORD deliver them before me, shall I be your head?  
+> **¹⁰** And the elders of Gilead said unto Jephthah, The LORD be witness between us, if we do not so according to thy words.  
+> **¹¹** Then Jephthah went with the elders of Gilead, and the people made him head and captain over them: and Jephthah uttered all his words before the LORD in Mizpeh.  
 
 Here is, I. The distress which the children of Israel were in upon the Ammonites' invasion of their country, Jdg 11:4. Probably this was the same invasion with that mentioned, Jdg 10:17, when *the children of Ammon* were *gathered together and encamped in or against Gilead.* And those words, *in process of time,* refer to what goes immediately before of the expulsion of Jephthah; many days after he had been thus thrust out in disgrace was he fetched back again with honour.
 
@@ -37,23 +37,23 @@ VI\. Jephthah's pious acknowledgment of God in this great affair (Jdg 11:11): *H
 
 ## The War with the Ammonites. (b. c. 1143.)
 
-> <sup>12</sup> And Jephthah sent messengers unto the king of the children of Ammon, saying, What hast thou to do with me, that thou art come against me to fight in my land?  
-> <sup>13</sup> And the king of the children of Ammon answered unto the messengers of Jephthah, Because Israel took away my land, when they came up out of Egypt, from Arnon even unto Jabbok, and unto Jordan: now therefore restore those *lands* again peaceably.  
-> <sup>14</sup> And Jephthah sent messengers again unto the king of the children of Ammon:  
-> <sup>15</sup> And said unto him, Thus saith Jephthah, Israel took not away the land of Moab, nor the land of the children of Ammon:  
-> <sup>16</sup> But when Israel came up from Egypt, and walked through the wilderness unto the Red sea, and came to Kadesh;  
-> <sup>17</sup> Then Israel sent messengers unto the king of Edom, saying, Let me, I pray thee, pass through thy land: but the king of Edom would not hearken *thereto.* And in like manner they sent unto the king of Moab: but he would not *consent:* and Israel abode in Kadesh.  
-> <sup>18</sup> Then they went along through the wilderness, and compassed the land of Edom, and the land of Moab, and came by the east side of the land of Moab, and pitched on the other side of Arnon, but came not within the border of Moab: for Arnon *was* the border of Moab.  
-> <sup>19</sup> And Israel sent messengers unto Sihon king of the Amorites, the king of Heshbon; and Israel said unto him, Let us pass, we pray thee, through thy land into my place.  
-> <sup>20</sup> But Sihon trusted not Israel to pass through his coast: but Sihon gathered all his people together, and pitched in Jahaz, and fought against Israel.  
-> <sup>21</sup> And the LORD God of Israel delivered Sihon and all his people into the hand of Israel, and they smote them: so Israel possessed all the land of the Amorites, the inhabitants of that country.  
-> <sup>22</sup> And they possessed all the coasts of the Amorites, from Arnon even unto Jabbok, and from the wilderness even unto Jordan.  
-> <sup>23</sup> So now the LORD God of Israel hath dispossessed the Amorites from before his people Israel, and shouldest thou possess it?  
-> <sup>24</sup> Wilt not thou possess that which Chemosh thy god giveth thee to possess? So whomsoever the LORD our God shall drive out from before us, them will we possess.  
-> <sup>25</sup> And now *art* thou any thing better than Balak the son of Zippor, king of Moab? did he ever strive against Israel, or did he ever fight against them,  
-> <sup>26</sup> While Israel dwelt in Heshbon and her towns, and in Aroer and her towns, and in all the cities that *be* along by the coasts of Arnon, three hundred years? why therefore did ye not recover *them* within that time?  
-> <sup>27</sup> Wherefore I have not sinned against thee, but thou doest me wrong to war against me: the LORD the Judge be judge this day between the children of Israel and the children of Ammon.  
-> <sup>28</sup> Howbeit the king of the children of Ammon hearkened not unto the words of Jephthah which he sent him.  
+> **¹²** And Jephthah sent messengers unto the king of the children of Ammon, saying, What hast thou to do with me, that thou art come against me to fight in my land?  
+> **¹³** And the king of the children of Ammon answered unto the messengers of Jephthah, Because Israel took away my land, when they came up out of Egypt, from Arnon even unto Jabbok, and unto Jordan: now therefore restore those *lands* again peaceably.  
+> **¹⁴** And Jephthah sent messengers again unto the king of the children of Ammon:  
+> **¹⁵** And said unto him, Thus saith Jephthah, Israel took not away the land of Moab, nor the land of the children of Ammon:  
+> **¹⁶** But when Israel came up from Egypt, and walked through the wilderness unto the Red sea, and came to Kadesh;  
+> **¹⁷** Then Israel sent messengers unto the king of Edom, saying, Let me, I pray thee, pass through thy land: but the king of Edom would not hearken *thereto.* And in like manner they sent unto the king of Moab: but he would not *consent:* and Israel abode in Kadesh.  
+> **¹⁸** Then they went along through the wilderness, and compassed the land of Edom, and the land of Moab, and came by the east side of the land of Moab, and pitched on the other side of Arnon, but came not within the border of Moab: for Arnon *was* the border of Moab.  
+> **¹⁹** And Israel sent messengers unto Sihon king of the Amorites, the king of Heshbon; and Israel said unto him, Let us pass, we pray thee, through thy land into my place.  
+> **²⁰** But Sihon trusted not Israel to pass through his coast: but Sihon gathered all his people together, and pitched in Jahaz, and fought against Israel.  
+> **²¹** And the LORD God of Israel delivered Sihon and all his people into the hand of Israel, and they smote them: so Israel possessed all the land of the Amorites, the inhabitants of that country.  
+> **²²** And they possessed all the coasts of the Amorites, from Arnon even unto Jabbok, and from the wilderness even unto Jordan.  
+> **²³** So now the LORD God of Israel hath dispossessed the Amorites from before his people Israel, and shouldest thou possess it?  
+> **²⁴** Wilt not thou possess that which Chemosh thy god giveth thee to possess? So whomsoever the LORD our God shall drive out from before us, them will we possess.  
+> **²⁵** And now *art* thou any thing better than Balak the son of Zippor, king of Moab? did he ever strive against Israel, or did he ever fight against them,  
+> **²⁶** While Israel dwelt in Heshbon and her towns, and in Aroer and her towns, and in all the cities that *be* along by the coasts of Arnon, three hundred years? why therefore did ye not recover *them* within that time?  
+> **²⁷** Wherefore I have not sinned against thee, but thou doest me wrong to war against me: the LORD the Judge be judge this day between the children of Israel and the children of Ammon.  
+> **²⁸** Howbeit the king of the children of Ammon hearkened not unto the words of Jephthah which he sent him.  
 
 We have here the treaty between Jephthah, now judge of Israel, and the king of the Ammonites (who is not named), that the controversy between the two nations might, if possible, be accommodated without the effusion of blood.
 
@@ -81,18 +81,18 @@ Neither Jephthah's apology, nor his appeal, wrought upon the king of the childre
 
 ## Jephthah's Vow. (b. c. 1143.)
 
-> <sup>29</sup> Then the Spirit of the LORD came upon Jephthah, and he passed over Gilead, and Manasseh, and passed over Mizpeh of Gilead, and from Mizpeh of Gilead he passed over *unto* the children of Ammon.  
-> <sup>30</sup> And Jephthah vowed a vow unto the LORD, and said, If thou shalt without fail deliver the children of Ammon into mine hands,  
-> <sup>31</sup> Then it shall be, that whatsoever cometh forth of the doors of my house to meet me, when I return in peace from the children of Ammon, shall surely be the LORD's, and I will offer it up for a burnt offering.  
-> <sup>32</sup> So Jephthah passed over unto the children of Ammon to fight against them; and the LORD delivered them into his hands.  
-> <sup>33</sup> And he smote them from Aroer, even till thou come to Minneth, *even* twenty cities, and unto the plain of the vineyards, with a very great slaughter. Thus the children of Ammon were subdued before the children of Israel.  
-> <sup>34</sup> And Jephthah came to Mizpeh unto his house, and, behold, his daughter came out to meet him with timbrels and with dances: and she *was his* only child; beside her he had neither son nor daughter.  
-> <sup>35</sup> And it came to pass, when he saw her, that he rent his clothes, and said, Alas, my daughter! thou hast brought me very low, and thou art one of them that trouble me: for I have opened my mouth unto the LORD, and I cannot go back.  
-> <sup>36</sup> And she said unto him, My father, *if* thou hast opened thy mouth unto the LORD, do to me according to that which hath proceeded out of thy mouth; forasmuch as the LORD hath taken vengeance for thee of thine enemies, *even* of the children of Ammon.  
-> <sup>37</sup> And she said unto her father, Let this thing be done for me: let me alone two months, that I may go up and down upon the mountains, and bewail my virginity, I and my fellows.  
-> <sup>38</sup> And he said, Go. And he sent her away *for* two months: and she went with her companions, and bewailed her virginity upon the mountains.  
-> <sup>39</sup> And it came to pass at the end of two months, that she returned unto her father, who did with her *according* to his vow which he had vowed: and she knew no man. And it was a custom in Israel,  
-> <sup>40</sup> *That* the daughters of Israel went yearly to lament the daughter of Jephthah the Gileadite four days in a year.  
+> **²⁹** Then the Spirit of the LORD came upon Jephthah, and he passed over Gilead, and Manasseh, and passed over Mizpeh of Gilead, and from Mizpeh of Gilead he passed over *unto* the children of Ammon.  
+> **³⁰** And Jephthah vowed a vow unto the LORD, and said, If thou shalt without fail deliver the children of Ammon into mine hands,  
+> **³¹** Then it shall be, that whatsoever cometh forth of the doors of my house to meet me, when I return in peace from the children of Ammon, shall surely be the LORD's, and I will offer it up for a burnt offering.  
+> **³²** So Jephthah passed over unto the children of Ammon to fight against them; and the LORD delivered them into his hands.  
+> **³³** And he smote them from Aroer, even till thou come to Minneth, *even* twenty cities, and unto the plain of the vineyards, with a very great slaughter. Thus the children of Ammon were subdued before the children of Israel.  
+> **³⁴** And Jephthah came to Mizpeh unto his house, and, behold, his daughter came out to meet him with timbrels and with dances: and she *was his* only child; beside her he had neither son nor daughter.  
+> **³⁵** And it came to pass, when he saw her, that he rent his clothes, and said, Alas, my daughter! thou hast brought me very low, and thou art one of them that trouble me: for I have opened my mouth unto the LORD, and I cannot go back.  
+> **³⁶** And she said unto him, My father, *if* thou hast opened thy mouth unto the LORD, do to me according to that which hath proceeded out of thy mouth; forasmuch as the LORD hath taken vengeance for thee of thine enemies, *even* of the children of Ammon.  
+> **³⁷** And she said unto her father, Let this thing be done for me: let me alone two months, that I may go up and down upon the mountains, and bewail my virginity, I and my fellows.  
+> **³⁸** And he said, Go. And he sent her away *for* two months: and she went with her companions, and bewailed her virginity upon the mountains.  
+> **³⁹** And it came to pass at the end of two months, that she returned unto her father, who did with her *according* to his vow which he had vowed: and she knew no man. And it was a custom in Israel,  
+> **⁴⁰** *That* the daughters of Israel went yearly to lament the daughter of Jephthah the Gileadite four days in a year.  
 
 We have here Jephthah triumphing in a glorious victory, but, as an alloy to his joy, troubled and distressed by an unadvised vow.
 

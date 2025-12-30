@@ -8,14 +8,14 @@ In this chapter, I. The rights and revenues of the church are settled, and rules
 
 ## Maintenance of the Levites. (b. c. 1451.)
 
-> <sup>1</sup> The priests the Levites, *and* all the tribe of Levi, shall have no part nor inheritance with Israel: they shall eat the offerings of the LORD made by fire, and his inheritance.  
-> <sup>2</sup> Therefore shall they have no inheritance among their brethren: the LORD *is* their inheritance, as he hath said unto them.  
-> <sup>3</sup> And this shall be the priest's due from the people, from them that offer a sacrifice, whether *it be* ox or sheep; and they shall give unto the priest the shoulder, and the two cheeks, and the maw.  
-> <sup>4</sup> The firstfruits *also* of thy corn, of thy wine, and of thine oil, and the first of the fleece of thy sheep, shalt thou give him.  
-> <sup>5</sup> For the LORD thy God hath chosen him out of all thy tribes, to stand to minister in the name of the LORD, him and his sons for ever.  
-> <sup>6</sup> And if a Levite come from any of thy gates out of all Israel, where he sojourned, and come with all the desire of his mind unto the place which the LORD shall choose;  
-> <sup>7</sup> Then he shall minister in the name of the LORD his God, as all his brethren the Levites *do,* which stand there before the LORD.  
-> <sup>8</sup> They shall have like portions to eat, beside that which cometh of the sale of his patrimony.  
+> **¹** The priests the Levites, *and* all the tribe of Levi, shall have no part nor inheritance with Israel: they shall eat the offerings of the LORD made by fire, and his inheritance.  
+> **²** Therefore shall they have no inheritance among their brethren: the LORD *is* their inheritance, as he hath said unto them.  
+> **³** And this shall be the priest's due from the people, from them that offer a sacrifice, whether *it be* ox or sheep; and they shall give unto the priest the shoulder, and the two cheeks, and the maw.  
+> **⁴** The firstfruits *also* of thy corn, of thy wine, and of thine oil, and the first of the fleece of thy sheep, shalt thou give him.  
+> **⁵** For the LORD thy God hath chosen him out of all thy tribes, to stand to minister in the name of the LORD, him and his sons for ever.  
+> **⁶** And if a Levite come from any of thy gates out of all Israel, where he sojourned, and come with all the desire of his mind unto the place which the LORD shall choose;  
+> **⁷** Then he shall minister in the name of the LORD his God, as all his brethren the Levites *do,* which stand there before the LORD.  
+> **⁸** They shall have like portions to eat, beside that which cometh of the sale of his patrimony.  
 
 Magistracy and ministry are two divine institutions of admirable use for the support and advancement of the *kingdom of God among men.* Laws concerning the former we had in the close of the foregoing chapter, directions are in this given concerning the latter. Land-marks are here set between the estates of the priests and those of the people.
 
@@ -29,12 +29,12 @@ II\. Care is likewise taken that they want not any of the comforts and convenien
 
 ## Idolatrous Customs of the Canaanites. (b. c. 1451.)
 
-> <sup>9</sup> When thou art come into the land which the LORD thy God giveth thee, thou shalt not learn to do after the abominations of those nations.  
-> <sup>10</sup> There shall not be found among you *any one* that maketh his son or his daughter to pass through the fire, *or* that useth divination, *or* an observer of times, or an enchanter, or a witch,  
-> <sup>11</sup> Or a charmer, or a consulter with familiar spirits, or a wizard, or a necromancer.  
-> <sup>12</sup> For all that do these things *are* an abomination unto the LORD: and because of these abominations the LORD thy God doth drive them out from before thee.  
-> <sup>13</sup> Thou shalt be perfect with the LORD thy God.  
-> <sup>14</sup> For these nations, which thou shalt possess, hearkened unto observers of times, and unto diviners: but as for thee, the LORD thy God hath not suffered thee so *to do.*  
+> **⁹** When thou art come into the land which the LORD thy God giveth thee, thou shalt not learn to do after the abominations of those nations.  
+> **¹⁰** There shall not be found among you *any one* that maketh his son or his daughter to pass through the fire, *or* that useth divination, *or* an observer of times, or an enchanter, or a witch,  
+> **¹¹** Or a charmer, or a consulter with familiar spirits, or a wizard, or a necromancer.  
+> **¹²** For all that do these things *are* an abomination unto the LORD: and because of these abominations the LORD thy God doth drive them out from before thee.  
+> **¹³** Thou shalt be perfect with the LORD thy God.  
+> **¹⁴** For these nations, which thou shalt possess, hearkened unto observers of times, and unto diviners: but as for thee, the LORD thy God hath not suffered thee so *to do.*  
 
 One would not think there had been so much need as it seems there was to arm the people of Israel against the infection of the idolatrous customs of the Canaanites. Was it possible that a people so blessed with divine institutions should ever admit the brutish and barbarous inventions of men and devils? Were they in any danger of making those their tutors and directors in religion whom God had made their captives and tributaries? It seems they were in danger, and therefore, after many similar cautions, they are here charged not to do after the abominations of those nations, De 18:9.
 
@@ -44,14 +44,14 @@ II\. Some reasons are given against their conformity to the customs of the Genti
 
 ## The Great Prophet; False Prophets. (b. c. 1451.)
 
-> <sup>15</sup> The LORD thy God will raise up unto thee a Prophet from the midst of thee, of thy brethren, like unto me; unto him ye shall hearken;  
-> <sup>16</sup> According to all that thou desiredst of the LORD thy God in Horeb in the day of the assembly, saying, Let me not hear again the voice of the LORD my God, neither let me see this great fire any more, that I die not.  
-> <sup>17</sup> And the LORD said unto me, They have well *spoken that* which they have spoken.  
-> <sup>18</sup> I will raise them up a Prophet from among their brethren, like unto thee, and will put my words in his mouth; and he shall speak unto them all that I shall command him.  
-> <sup>19</sup> And it shall come to pass, *that* whosoever will not hearken unto my words which he shall speak in my name, I will require *it* of him.  
-> <sup>20</sup> But the prophet, which shall presume to speak a word in my name, which I have not commanded him to speak, or that shall speak in the name of other gods, even that prophet shall die.  
-> <sup>21</sup> And if thou say in thine heart, How shall we know the word which the LORD hath not spoken?  
-> <sup>22</sup> When a prophet speaketh in the name of the LORD, if the thing follow not, nor come to pass, that *is* the thing which the LORD hath not spoken, *but* the prophet hath spoken it presumptuously: thou shalt not be afraid of him.  
+> **¹⁵** The LORD thy God will raise up unto thee a Prophet from the midst of thee, of thy brethren, like unto me; unto him ye shall hearken;  
+> **¹⁶** According to all that thou desiredst of the LORD thy God in Horeb in the day of the assembly, saying, Let me not hear again the voice of the LORD my God, neither let me see this great fire any more, that I die not.  
+> **¹⁷** And the LORD said unto me, They have well *spoken that* which they have spoken.  
+> **¹⁸** I will raise them up a Prophet from among their brethren, like unto thee, and will put my words in his mouth; and he shall speak unto them all that I shall command him.  
+> **¹⁹** And it shall come to pass, *that* whosoever will not hearken unto my words which he shall speak in my name, I will require *it* of him.  
+> **²⁰** But the prophet, which shall presume to speak a word in my name, which I have not commanded him to speak, or that shall speak in the name of other gods, even that prophet shall die.  
+> **²¹** And if thou say in thine heart, How shall we know the word which the LORD hath not spoken?  
+> **²²** When a prophet speaketh in the name of the LORD, if the thing follow not, nor come to pass, that *is* the thing which the LORD hath not spoken, *but* the prophet hath spoken it presumptuously: thou shalt not be afraid of him.  
 
 Here is, I. The promise of the great prophet, with a command to receive him, and hearken to him. Now,
 

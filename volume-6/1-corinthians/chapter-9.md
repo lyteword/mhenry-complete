@@ -8,25 +8,25 @@ In this chapter the apostle seems to answer some cavils against himself. I. He a
 
 ## Rights of a Christian Minister. (a. d. 57.)
 
-> <sup>1</sup> Am I not an apostle? am I not free? have I not seen Jesus Christ our Lord? are not ye my work in the Lord?  
-> <sup>2</sup> If I be not an apostle unto others, yet doubtless I am to you: for the seal of mine apostleship are ye in the Lord.  
+> **¹** Am I not an apostle? am I not free? have I not seen Jesus Christ our Lord? are not ye my work in the Lord?  
+> **²** If I be not an apostle unto others, yet doubtless I am to you: for the seal of mine apostleship are ye in the Lord.  
 
 Blessed Paul, in the work of his ministry, not only met with opposition from those without, but discouragement from those within. He was under reproach; false brethren questioned his apostleship, and were very industrious to lessen his character and sink his reputation; particularly here at Corinth, a place to which he had been instrumental in doing much good, and from which he had deserved well; and yet there were those among them who upon these heads created him great uneasiness. Note, It is no strange nor new thing for a minister to meet with very unkind returns for great good-will to a people, and diligent and successful services among them. Some among the Corinthians questioned, if they did not disown, his apostolical character. To their cavils he here answers, and in such a manner as to set forth himself as a remarkable example of that self-denial, for the good of others, which he had been recommending in the former chapter. And, 1. He asserts his apostolical mission and character: *Am I not an apostle? Have I not seen Jesus Christ our Lord?* To be a witness of his resurrection was one great branch of the apostolical charge. "Now," says Paul, "have not I seen the Lord, though not immediately after his resurrection, yet since his ascent?" See 1Co 4:8. "*Am I not free?* Have I not the same commission, and charge, and powers, with the other apostles? What respect, or honour, or subsistence, can they challenge, which I am not at liberty to demand as well as they?" It was not because he had no right to live of the gospel that he maintained himself with his own hands, but for other reasons. 2. He offers the success of his ministry among them, and the good he had done to them, as a proof of his apostleship: "*Are not you my work in the Lord?* Through the blessing of Christ on my labours, have not I raised a church among you? *The seal of my apostleship are you in the Lord.* Your conversion by my means is a confirmation from God of my mission." Note, The ministers of Christ should not think it strange to be put upon the proof of their ministry by some who have had experimental evidence of the power of it and the presence of God with it. 3. He justly upbraids the Corinthians with their disrespect: "*Doubtless, if I am not an apostle to others, I am so to you,* 1Co 9:2. I have laboured so long, and with so much success, among you, that you, above all others, should own and honour my character, and not call it in question." Note, It is no new thing for faithful ministers to meet with the worst treatment where they might expect the best. This church at Corinth had as much reason to believe, and as little reason to question, his apostolical mission, as any; they had as much reason, perhaps more than any church, to pay him respect. He had been instrumental in bringing them to the knowledge and faith of Christ; he laboured long among them, nearly two years, and he laboured to good purpose, *God having much people among them.* See Ac 18:10,11. It was aggravated ingratitude for this people to call in question his authority.
 
 ## Rights of a Christian Minister. (a. d. 57.)
 
-> <sup>3</sup> Mine answer to them that do examine me is this,  
-> <sup>4</sup> Have we not power to eat and to drink?  
-> <sup>5</sup> Have we not power to lead about a sister, a wife, as well as other apostles, and *as* the brethren of the Lord, and Cephas?  
-> <sup>6</sup> Or I only and Barnabas, have not we power to forbear working?  
-> <sup>7</sup> Who goeth a warfare any time at his own charges? who planteth a vineyard, and eateth not of the fruit thereof? or who feedeth a flock, and eateth not of the milk of the flock?  
-> <sup>8</sup> Say I these things as a man? or saith not the law the same also?  
-> <sup>9</sup> For it is written in the law of Moses, Thou shalt not muzzle the mouth of the ox that treadeth out the corn. Doth God take care for oxen?  
-> <sup>10</sup> Or saith he *it* altogether for our sakes? For our sakes, no doubt, *this* is written: that he that ploweth should plow in hope; and that he that thresheth in hope should be partaker of his hope.  
-> <sup>11</sup> If we have sown unto you spiritual things, *is it* a great thing if we shall reap your carnal things?  
-> <sup>12</sup> If others be partakers of *this* power over you, *are* not we rather? Nevertheless we have not used this power; but suffer all things, lest we should hinder the gospel of Christ.  
-> <sup>13</sup> Do ye not know that they which minister about holy things live *of the things* of the temple? and they which wait at the altar are partakers with the altar?  
-> <sup>14</sup> Even so hath the Lord ordained that they which preach the gospel should live of the gospel.  
+> **³** Mine answer to them that do examine me is this,  
+> **⁴** Have we not power to eat and to drink?  
+> **⁵** Have we not power to lead about a sister, a wife, as well as other apostles, and *as* the brethren of the Lord, and Cephas?  
+> **⁶** Or I only and Barnabas, have not we power to forbear working?  
+> **⁷** Who goeth a warfare any time at his own charges? who planteth a vineyard, and eateth not of the fruit thereof? or who feedeth a flock, and eateth not of the milk of the flock?  
+> **⁸** Say I these things as a man? or saith not the law the same also?  
+> **⁹** For it is written in the law of Moses, Thou shalt not muzzle the mouth of the ox that treadeth out the corn. Doth God take care for oxen?  
+> **¹⁰** Or saith he *it* altogether for our sakes? For our sakes, no doubt, *this* is written: that he that ploweth should plow in hope; and that he that thresheth in hope should be partaker of his hope.  
+> **¹¹** If we have sown unto you spiritual things, *is it* a great thing if we shall reap your carnal things?  
+> **¹²** If others be partakers of *this* power over you, *are* not we rather? Nevertheless we have not used this power; but suffer all things, lest we should hinder the gospel of Christ.  
+> **¹³** Do ye not know that they which minister about holy things live *of the things* of the temple? and they which wait at the altar are partakers with the altar?  
+> **¹⁴** Even so hath the Lord ordained that they which preach the gospel should live of the gospel.  
 
 Having asserted his apostolical authority, he proceeds to claim the rights belonging to his office, especially that of being maintained by it.
 
@@ -36,10 +36,10 @@ II\. He proceeds, by several arguments, to prove his claim. 1. From the common p
 
 ## The Apostle's Devotedness. (a. d. 57.)
 
-> <sup>15</sup> But I have used none of these things: neither have I written these things, that it should be so done unto me: for *it were* better for me to die, than that any man should make my glorying void.  
-> <sup>16</sup> For though I preach the gospel, I have nothing to glory of: for necessity is laid upon me; yea, woe is unto me, if I preach not the gospel!  
-> <sup>17</sup> For if I do this thing willingly, I have a reward: but if against my will, a dispensation *of the gospel* is committed unto me.  
-> <sup>18</sup> What is my reward then? *Verily* that, when I preach the gospel, I may make the gospel of Christ without charge, that I abuse not my power in the gospel.  
+> **¹⁵** But I have used none of these things: neither have I written these things, that it should be so done unto me: for *it were* better for me to die, than that any man should make my glorying void.  
+> **¹⁶** For though I preach the gospel, I have nothing to glory of: for necessity is laid upon me; yea, woe is unto me, if I preach not the gospel!  
+> **¹⁷** For if I do this thing willingly, I have a reward: but if against my will, a dispensation *of the gospel* is committed unto me.  
+> **¹⁸** What is my reward then? *Verily* that, when I preach the gospel, I may make the gospel of Christ without charge, that I abuse not my power in the gospel.  
 
 Here he tells them that he had, notwithstanding, waived his privilege, and lays down his reason for doing it.
 
@@ -55,11 +55,11 @@ V\. The apostle sums up the argument, by laying before them the encouraging hope
 
 ## The Apostle's Devotedness. (a. d. 57.)
 
-> <sup>19</sup> For though I be free from all *men,* yet have I made myself servant unto all, that I might gain the more.  
-> <sup>20</sup> And unto the Jews I became as a Jew, that I might gain the Jews; to them that are under the law, as under the law, that I might gain them that are under the law;  
-> <sup>21</sup> To them that are without law, as without law, (being not without law to God, but under the law to Christ,) that I might gain them that are without law.  
-> <sup>22</sup> To the weak became I as weak, that I might gain the weak: I am made all things to all *men,* that I might by all means save some.  
-> <sup>23</sup> And this I do for the gospel's sake, that I might be partaker thereof with *you.*  
+> **¹⁹** For though I be free from all *men,* yet have I made myself servant unto all, that I might gain the more.  
+> **²⁰** And unto the Jews I became as a Jew, that I might gain the Jews; to them that are under the law, as under the law, that I might gain them that are under the law;  
+> **²¹** To them that are without law, as without law, (being not without law to God, but under the law to Christ,) that I might gain them that are without law.  
+> **²²** To the weak became I as weak, that I might gain the weak: I am made all things to all *men,* that I might by all means save some.  
+> **²³** And this I do for the gospel's sake, that I might be partaker thereof with *you.*  
 
 The apostle takes occasion from what he had before discoursed to mention some other instances of his self-denial and parting with his liberty for the benefit of others.
 
@@ -71,10 +71,10 @@ III\. He assigns his reason for acting in this manner (1Co 9:23): *This I do for
 
 ## The Apostle's Devotedness. (a. d. 57.)
 
-> <sup>24</sup> Know ye not that they which run in a race run all, but one receiveth the prize? So run, that ye may obtain.  
-> <sup>25</sup> And every man that striveth for the mastery is temperate in all things. Now they *do it* to obtain a corruptible crown; but we an incorruptible.  
-> <sup>26</sup> I therefore so run, not as uncertainly; so fight I, not as one that beateth the air:  
-> <sup>27</sup> But I keep under my body, and bring *it* into subjection: lest that by any means, when I have preached to others, I myself should be a castaway.  
+> **²⁴** Know ye not that they which run in a race run all, but one receiveth the prize? So run, that ye may obtain.  
+> **²⁵** And every man that striveth for the mastery is temperate in all things. Now they *do it* to obtain a corruptible crown; but we an incorruptible.  
+> **²⁶** I therefore so run, not as uncertainly; so fight I, not as one that beateth the air:  
+> **²⁷** But I keep under my body, and bring *it* into subjection: lest that by any means, when I have preached to others, I myself should be a castaway.  
 
 In these verses the apostle hints at the great encouragement he had to act in this manner. He had a glorious prize, an incorruptible crown, in view. Upon this head he compares himself to the racers and combatants in the Isthmian games, an allusion well known to the Corinthians, because they were celebrated in their neighbourhood: "*Know you not that those who run in a race run all, but one obtaineth the prize?* 1Co 9:24. All run at your games, but only one gets the race and wins the crown." And here,
 

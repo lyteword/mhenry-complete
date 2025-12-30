@@ -8,15 +8,15 @@ The scope of this chapter is much the same with that of the foregoing chapter—
 
 ## Encouraging Prospects. (b. c. 589.)
 
-> <sup>1</sup> Moreover the word of the LORD came unto Jeremiah the second time, while he was yet shut up in the court of the prison, saying,  
-> <sup>2</sup> Thus saith the LORD the maker thereof, the LORD that formed it, to establish it; the LORD *is* his name;  
-> <sup>3</sup> Call unto me, and I will answer thee, and shew thee great and mighty things, which thou knowest not.  
-> <sup>4</sup> For thus saith the LORD, the God of Israel, concerning the houses of this city, and concerning the houses of the kings of Judah, which are thrown down by the mounts, and by the sword;  
-> <sup>5</sup> They come to fight with the Chaldeans, but *it is* to fill them with the dead bodies of men, whom I have slain in mine anger and in my fury, and for all whose wickedness I have hid my face from this city.  
-> <sup>6</sup> Behold, I will bring it health and cure, and I will cure them, and will reveal unto them the abundance of peace and truth.  
-> <sup>7</sup> And I will cause the captivity of Judah and the captivity of Israel to return, and will build them, as at the first.  
-> <sup>8</sup> And I will cleanse them from all their iniquity, whereby they have sinned against me; and I will pardon all their iniquities, whereby they have sinned, and whereby they have transgressed against me.  
-> <sup>9</sup> And it shall be to me a name of joy, a praise and a honour before all the nations of the earth, which shall hear all the good that I do unto them: and they shall fear and tremble for all the goodness and for all the prosperity that I procure unto it.  
+> **¹** Moreover the word of the LORD came unto Jeremiah the second time, while he was yet shut up in the court of the prison, saying,  
+> **²** Thus saith the LORD the maker thereof, the LORD that formed it, to establish it; the LORD *is* his name;  
+> **³** Call unto me, and I will answer thee, and shew thee great and mighty things, which thou knowest not.  
+> **⁴** For thus saith the LORD, the God of Israel, concerning the houses of this city, and concerning the houses of the kings of Judah, which are thrown down by the mounts, and by the sword;  
+> **⁵** They come to fight with the Chaldeans, but *it is* to fill them with the dead bodies of men, whom I have slain in mine anger and in my fury, and for all whose wickedness I have hid my face from this city.  
+> **⁶** Behold, I will bring it health and cure, and I will cure them, and will reveal unto them the abundance of peace and truth.  
+> **⁷** And I will cause the captivity of Judah and the captivity of Israel to return, and will build them, as at the first.  
+> **⁸** And I will cleanse them from all their iniquity, whereby they have sinned against me; and I will pardon all their iniquities, whereby they have sinned, and whereby they have transgressed against me.  
+> **⁹** And it shall be to me a name of joy, a praise and a honour before all the nations of the earth, which shall hear all the good that I do unto them: and they shall fear and tremble for all the goodness and for all the prosperity that I procure unto it.  
 
 Observe here, I. The date of this comfortable prophecy which God entrusted Jeremiah with. It is not exact in the time, only that it was after that in the foregoing chapter, when things were still growing worse and worse; it was *the second time. God speaketh once, yea, twice,* for the encouragement of his people. We are not only so disobedient that we have need of *precept upon precept* to bring us to our duty, but so distrustful that we have need of promise upon promise to bring us to our comfort. This word, as the former, *came to Jeremiah* when *he was in prison.* Note, No confinement can deprive God's people of his presence; no locks nor bars can shut out his gracious visits; nay, oftentimes *as their afflictions abound their consolations much more abound,* and they have the most reviving communications of his favour when the world frowns upon them. Paul's sweetest epistles were those that bore date out of a prison.
 
@@ -40,13 +40,13 @@ II\. The prophecy itself. A great deal of comfort is wrapped up in it for the re
 
 ## Encouraging Prospects. (b. c. 589.)
 
-> <sup>10</sup> Thus saith the LORD; Again there shall be heard in this place, which ye say *shall be* desolate without man and without beast, *even* in the cities of Judah, and in the streets of Jerusalem, that are desolate, without man, and without inhabitant, and without beast,  
-> <sup>11</sup> The voice of joy, and the voice of gladness, the voice of the bridegroom, and the voice of the bride, the voice of them that shall say, Praise the LORD of hosts: for the LORD *is* good; for his mercy *endureth* for ever: *and* of them that shall bring the sacrifice of praise into the house of the LORD. For I will cause to return the captivity of the land, as at the first, saith the LORD.  
-> <sup>12</sup> Thus saith the LORD of hosts; Again in this place, which is desolate without man and without beast, and in all the cities thereof, shall be a habitation of shepherds causing *their* flocks to lie down.  
-> <sup>13</sup> In the cities of the mountains, in the cities of the vale, and in the cities of the south, and in the land of Benjamin, and in the places about Jerusalem, and in the cities of Judah, shall the flocks pass again under the hands of him that telleth *them,* saith the LORD.  
-> <sup>14</sup> Behold, the days come, saith the LORD, that I will perform that good thing which I have promised unto the house of Israel and to the house of Judah.  
-> <sup>15</sup> In those days, and at that time, will I cause the Branch of righteousness to grow up unto David; and he shall execute judgment and righteousness in the land.  
-> <sup>16</sup> In those days shall Judah be saved, and Jerusalem shall dwell safely: and this *is the name* wherewith she shall be called, The LORD our righteousness.  
+> **¹⁰** Thus saith the LORD; Again there shall be heard in this place, which ye say *shall be* desolate without man and without beast, *even* in the cities of Judah, and in the streets of Jerusalem, that are desolate, without man, and without inhabitant, and without beast,  
+> **¹¹** The voice of joy, and the voice of gladness, the voice of the bridegroom, and the voice of the bride, the voice of them that shall say, Praise the LORD of hosts: for the LORD *is* good; for his mercy *endureth* for ever: *and* of them that shall bring the sacrifice of praise into the house of the LORD. For I will cause to return the captivity of the land, as at the first, saith the LORD.  
+> **¹²** Thus saith the LORD of hosts; Again in this place, which is desolate without man and without beast, and in all the cities thereof, shall be a habitation of shepherds causing *their* flocks to lie down.  
+> **¹³** In the cities of the mountains, in the cities of the vale, and in the cities of the south, and in the land of Benjamin, and in the places about Jerusalem, and in the cities of Judah, shall the flocks pass again under the hands of him that telleth *them,* saith the LORD.  
+> **¹⁴** Behold, the days come, saith the LORD, that I will perform that good thing which I have promised unto the house of Israel and to the house of Judah.  
+> **¹⁵** In those days, and at that time, will I cause the Branch of righteousness to grow up unto David; and he shall execute judgment and righteousness in the land.  
+> **¹⁶** In those days shall Judah be saved, and Jerusalem shall dwell safely: and this *is the name* wherewith she shall be called, The LORD our righteousness.  
 
 Here is a further prediction of the happy state of Judah and Jerusalem after their glorious return out of captivity, issuing gloriously at length in the kingdom of the Messiah.
 
@@ -58,16 +58,16 @@ III\. To crown all these blessings which God has in store for them, here is a pr
 
 ## Security of God's Covenants; The Covenant of Priesthood. (b. c. 589.)
 
-> <sup>17</sup> For thus saith the LORD; David shall never want a man to sit upon the throne of the house of Israel;  
-> <sup>18</sup> Neither shall the priests the Levites want a man before me to offer burnt offerings, and to kindle meat offerings, and to do sacrifice continually.  
-> <sup>19</sup> And the word of the LORD came unto Jeremiah, saying,  
-> <sup>20</sup> Thus saith the LORD; If ye can break my covenant of the day, and my covenant of the night, and that there should not be day and night in their season;  
-> <sup>21</sup> *Then* may also my covenant be broken with David my servant, that he should not have a son to reign upon his throne; and with the Levites the priests, my ministers.  
-> <sup>22</sup> As the host of heaven cannot be numbered, neither the sand of the sea measured: so will I multiply the seed of David my servant, and the Levites that minister unto me.  
-> <sup>23</sup> Moreover the word of the LORD came to Jeremiah, saying,  
-> <sup>24</sup> Considerest thou not what this people have spoken, saying, The two families which the LORD hath chosen, he hath even cast them off? thus they have despised my people, that they should be no more a nation before them.  
-> <sup>25</sup> Thus saith the LORD; If my covenant *be* not with day and night, *and if* I have not appointed the ordinances of heaven and earth;  
-> <sup>26</sup> Then will I cast away the seed of Jacob, and David my servant, *so* that I will not take *any* of his seed *to be* rulers over the seed of Abraham, Isaac, and Jacob: for I will cause their captivity to return, and have mercy on them.  
+> **¹⁷** For thus saith the LORD; David shall never want a man to sit upon the throne of the house of Israel;  
+> **¹⁸** Neither shall the priests the Levites want a man before me to offer burnt offerings, and to kindle meat offerings, and to do sacrifice continually.  
+> **¹⁹** And the word of the LORD came unto Jeremiah, saying,  
+> **²⁰** Thus saith the LORD; If ye can break my covenant of the day, and my covenant of the night, and that there should not be day and night in their season;  
+> **²¹** *Then* may also my covenant be broken with David my servant, that he should not have a son to reign upon his throne; and with the Levites the priests, my ministers.  
+> **²²** As the host of heaven cannot be numbered, neither the sand of the sea measured: so will I multiply the seed of David my servant, and the Levites that minister unto me.  
+> **²³** Moreover the word of the LORD came to Jeremiah, saying,  
+> **²⁴** Considerest thou not what this people have spoken, saying, The two families which the LORD hath chosen, he hath even cast them off? thus they have despised my people, that they should be no more a nation before them.  
+> **²⁵** Thus saith the LORD; If my covenant *be* not with day and night, *and if* I have not appointed the ordinances of heaven and earth;  
+> **²⁶** Then will I cast away the seed of Jacob, and David my servant, *so* that I will not take *any* of his seed *to be* rulers over the seed of Abraham, Isaac, and Jacob: for I will cause their captivity to return, and have mercy on them.  
 
 Three of God's covenants, that of royalty with David and his seed, that of the priesthood with Aaron and his seed, and that of Peculiarity with Abraham and his seed, seemed to be all broken and lost while the captivity lasted; but it is here promised that, notwithstanding that interruption and discontinuance for a time, they shall all three take place again, and the true intents and meaning of them all shall be abundantly answered in the New Testament blessings, typified by those conferred on the Jews after their return out of captivity.
 

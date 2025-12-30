@@ -8,11 +8,11 @@ This chapter continues and concludes the burden of Moab. In it, I. The prophet g
 
 ## Exhortations to Moab. (b. c. 725.)
 
-> <sup>1</sup> Send ye the lamb to the ruler of the land from Sela to the wilderness, unto the mount of the daughter of Zion.  
-> <sup>2</sup> For it shall be, *that,* as a wandering bird cast out of the nest, *so* the daughters of Moab shall be at the fords of Arnon.  
-> <sup>3</sup> Take counsel, execute judgment; make thy shadow as the night in the midst of the noonday; hide the outcasts; bewray not him that wandereth.  
-> <sup>4</sup> Let mine outcasts dwell with thee, Moab; be thou a covert to them from the face of the spoiler: for the extortioner is at an end, the spoiler ceaseth, the oppressors are consumed out of the land.  
-> <sup>5</sup> And in mercy shall the throne be established: and he shall sit upon it in truth in the tabernacle of David, judging, and seeking judgment, and hasting righteousness.  
+> **¹** Send ye the lamb to the ruler of the land from Sela to the wilderness, unto the mount of the daughter of Zion.  
+> **²** For it shall be, *that,* as a wandering bird cast out of the nest, *so* the daughters of Moab shall be at the fords of Arnon.  
+> **³** Take counsel, execute judgment; make thy shadow as the night in the midst of the noonday; hide the outcasts; bewray not him that wandereth.  
+> **⁴** Let mine outcasts dwell with thee, Moab; be thou a covert to them from the face of the spoiler: for the extortioner is at an end, the spoiler ceaseth, the oppressors are consumed out of the land.  
+> **⁵** And in mercy shall the throne be established: and he shall sit upon it in truth in the tabernacle of David, judging, and seeking judgment, and hasting righteousness.  
 
 God has made it to appear that he delights not in the ruin of sinners by telling them what they may do to prevent the ruin; so he does here to Moab.
 
@@ -28,15 +28,15 @@ II\. He advises them to be *kind to the seed of Israel* (Isa 16:3): "Take counse
 
 ## The Pride of Moab; The Threatening against Moab; The Doom of Moab. (b. c. 725.)
 
-> <sup>6</sup> We have heard of the pride of Moab; *he is* very proud: *even* of his haughtiness, and his pride, and his wrath: *but* his lies *shall* not *be* so.  
-> <sup>7</sup> Therefore shall Moab howl for Moab, every one shall howl: for the foundations of Kir-hareseth shall ye mourn; surely *they are* stricken.  
-> <sup>8</sup> For the fields of Heshbon languish, *and* the vine of Sibmah: the lords of the heathen have broken down the principal plants thereof, they are come *even* unto Jazer, they wandered *through* the wilderness: her branches are stretched out, they are gone over the sea.  
-> <sup>9</sup> Therefore I will bewail with the weeping of Jazer the vine of Sibmah: I will water thee with my tears, O Heshbon, and Elealeh: for the shouting for thy summer fruits and for thy harvest is fallen.  
-> <sup>10</sup> And gladness is taken away, and joy out of the plentiful field; and in the vineyards there shall be no singing, neither shall there be shouting: the treaders shall tread out no wine in *their* presses; I have made *their vintage* shouting to cease.  
-> <sup>11</sup> Wherefore my bowels shall sound like a harp for Moab, and mine inward parts for Kir-haresh.  
-> <sup>12</sup> And it shall come to pass, when it is seen that Moab is weary on the high place, that he shall come to his sanctuary to pray; but he shall not prevail.  
-> <sup>13</sup> This *is* the word that the LORD hath spoken concerning Moab since that time.  
-> <sup>14</sup> But now the LORD hath spoken, saying, Within three years, as the years of a hireling, and the glory of Moab shall be contemned, with all that great multitude; and the remnant *shall be* very small *and* feeble.  
+> **⁶** We have heard of the pride of Moab; *he is* very proud: *even* of his haughtiness, and his pride, and his wrath: *but* his lies *shall* not *be* so.  
+> **⁷** Therefore shall Moab howl for Moab, every one shall howl: for the foundations of Kir-hareseth shall ye mourn; surely *they are* stricken.  
+> **⁸** For the fields of Heshbon languish, *and* the vine of Sibmah: the lords of the heathen have broken down the principal plants thereof, they are come *even* unto Jazer, they wandered *through* the wilderness: her branches are stretched out, they are gone over the sea.  
+> **⁹** Therefore I will bewail with the weeping of Jazer the vine of Sibmah: I will water thee with my tears, O Heshbon, and Elealeh: for the shouting for thy summer fruits and for thy harvest is fallen.  
+> **¹⁰** And gladness is taken away, and joy out of the plentiful field; and in the vineyards there shall be no singing, neither shall there be shouting: the treaders shall tread out no wine in *their* presses; I have made *their vintage* shouting to cease.  
+> **¹¹** Wherefore my bowels shall sound like a harp for Moab, and mine inward parts for Kir-haresh.  
+> **¹²** And it shall come to pass, when it is seen that Moab is weary on the high place, that he shall come to his sanctuary to pray; but he shall not prevail.  
+> **¹³** This *is* the word that the LORD hath spoken concerning Moab since that time.  
+> **¹⁴** But now the LORD hath spoken, saying, Within three years, as the years of a hireling, and the glory of Moab shall be contemned, with all that great multitude; and the remnant *shall be* very small *and* feeble.  
 
 Here we have, I. The sins with which Moab is charged, Isa 16:6. The prophet seems to check himself for going about to give good counsel to the Moabites, concluding they would not take the advice he gave them. He told them their duty (whether they would hear or whether they would forbear), but despairs of working any good upon them; he would have healed them, but they would not be healed. Those that will not be counselled cannot be helped. Their sins were, 1. Pride. This is most insisted upon; for perhaps there are more precious souls ruined by pride than by any one lust whatsoever. The Moabites were notorious for this: "*We have heard* in both ears *of the pride of Moab;* it is what all their neighbours cry out shame upon them for. *He is very proud;* the body of the nation is so, forgetting the baseness of their origin and the brand of infamy fastened upon them by that law of God which forbade a Moabite to *enter into the congregation of the Lord for ever,* De 23:3. We have heard of *his haughtiness and his pride.* It is not the rash and rigid censure of one of two concerning them, but it is the character which all that know them will give of them. They are a proud people, and therefore they will not take good counsel when it is given them. They think themselves too wise to be advised; therefore they will not take example by Hezekiah to do justly and love mercy. They scorn to make him their pattern, for they think themselves able to teach him. They are proud, and therefore will not be subject to God himself nor regard the warnings he gives them. *The wicked, in the pride of his countenance, will not seek after God.* They are proud, and therefore will not entertain and protect God's outcasts; they scorn to have any thing to do with them." But this is not all:—2. "We have heard of *his wrath* too (for those that are very proud are commonly very passionate), particularly his wrath against the people of God, whom therefore he will rather persecute than protect. 3. It is with *his lies* that he gains the gratifications of his pride and his passion; *but his lies shall not be so;* he shall not compass his proud and angry projects as he hoped he should." Some read it, *His haughtiness, his pride, and his wrath, are greater than his strength.* "We know that, if we lay at his mercy, we should find no mercy with him, but he has not power equal to his malice. His pride draws down ruin upon him; for it is the preface to destruction, and he has not strength to ward it off."
 

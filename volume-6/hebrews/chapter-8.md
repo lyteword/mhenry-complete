@@ -8,11 +8,11 @@ In this chapter the apostle pursues his former subject, the priesthood of Christ
 
 ## The Priesthood of Christ. (a. d. 62.)
 
-> <sup>1</sup> Now of the things which we have spoken *this is* the sum: We have such a high priest, who is set on the right hand of the throne of the Majesty in the heavens;  
-> <sup>2</sup> A minister of the sanctuary, and of the true tabernacle, which the Lord pitched, and not man.  
-> <sup>3</sup> For every high priest is ordained to offer gifts and sacrifices: wherefore *it is* of necessity that this man have somewhat also to offer.  
-> <sup>4</sup> For if he were on earth, he should not be a priest, seeing that there are priests that offer gifts according to the law:  
-> <sup>5</sup> Who serve unto the example and shadow of heavenly things, as Moses was admonished of God when he was about to make the tabernacle: for, See, saith he, *that* thou make all things according to the pattern showed to thee in the mount.  
+> **¹** Now of the things which we have spoken *this is* the sum: We have such a high priest, who is set on the right hand of the throne of the Majesty in the heavens;  
+> **²** A minister of the sanctuary, and of the true tabernacle, which the Lord pitched, and not man.  
+> **³** For every high priest is ordained to offer gifts and sacrifices: wherefore *it is* of necessity that this man have somewhat also to offer.  
+> **⁴** For if he were on earth, he should not be a priest, seeing that there are priests that offer gifts according to the law:  
+> **⁵** Who serve unto the example and shadow of heavenly things, as Moses was admonished of God when he was about to make the tabernacle: for, See, saith he, *that* thou make all things according to the pattern showed to thee in the mount.  
 
 Here is, I. A summary recital of what had been said before concerning the excellency of Christ's priesthood, showing what we have in Christ, where he now resides, and what sanctuary he is the minister of, Heb 8:1,2. Observe, 1. What we have in Christ; we have a high priest, and such a high priest as no other people ever had, no age of the world, or of the church, ever produced; all others were but types and shadows of this high priest. He is adequately fitted and absolutely sufficient to all the intents and purposes of a high priest, both with respect to the honour of God and the happiness of men and himself; the great honour of all those who have an interest in him. 2. Where he now resides: *He sits on the right hand of the throne of the Majesty on high,* that is, of the glorious God of heaven. There the Mediator is placed, and he is possessed of all authority and power both in heaven and upon earth. This is the reward of his humiliation. This authority he exercises for the glory of his Father, for his own honour, and for the happiness of all who belong to him; and he will by his almighty power bring every one of them in their own order to the right hand of God in heaven, as members of his mystical body, that where he is they may be also. 3. What is that sanctuary of which he is a minister: *Of the true tabernacle, which the Lord hath pitched, and not man,* Heb 8:2. The tabernacle which was pitched by man, according to the appointment of God. There was an outer part, in which was the altar where they were to offer their sacrifices, which typified Christ dying; and there was an interior part within the veil, which typified Christ interceding for the people in heaven. Now this tabernacle Christ never entered into; but, having finished the work of satisfaction in the true tabernacle of his own body, he is now a minister of the sanctuary, the holy of holies, the true tabernacle in heaven, there taking care of his people's affairs, interceding with God for them, that their sins may be pardoned and their persons and services accepted, through the merit of his sacrifice. He is not only in heaven enjoying great dominion and dignity, but, as the high priest of his church, executing this office for them all in general, and every member of the church in particular.
 
@@ -20,14 +20,14 @@ II\. The apostle sets before the Hebrews the necessary parts of Christ's priesth
 
 ## The Old and New Covenant. (a. d. 62.)
 
-> <sup>6</sup> But now hath he obtained a more excellent ministry, by how much also he is the mediator of a better covenant, which was established upon better promises.  
-> <sup>7</sup> For if that first *covenant* had been faultless, then should no place have been sought for the second.  
-> <sup>8</sup> For finding fault with them, he saith, Behold, the days come, saith the Lord, when I will make a new covenant with the house of Israel and with the house of Judah:  
-> <sup>9</sup> Not according to the covenant that I made with their fathers in the day when I took them by the hand to lead them out of the land of Egypt; because they continued not in my covenant, and I regarded them not, saith the Lord.  
-> <sup>10</sup> For this *is* the covenant that I will make with the house of Israel after those days, saith the Lord; I will put my laws into their mind, and write them in their hearts: and I will be to them a God, and they shall be to me a people:  
-> <sup>11</sup> And they shall not teach every man his neighbour, and every man his brother, saying, Know the Lord: for all shall know me, from the least to the greatest.  
-> <sup>12</sup> For I will be merciful to their unrighteousness, and their sins and their iniquities will I remember no more.  
-> <sup>13</sup> In that he saith, A new *covenant,* he hath made the first old. Now that which decayeth and waxeth old *is* ready to vanish away.  
+> **⁶** But now hath he obtained a more excellent ministry, by how much also he is the mediator of a better covenant, which was established upon better promises.  
+> **⁷** For if that first *covenant* had been faultless, then should no place have been sought for the second.  
+> **⁸** For finding fault with them, he saith, Behold, the days come, saith the Lord, when I will make a new covenant with the house of Israel and with the house of Judah:  
+> **⁹** Not according to the covenant that I made with their fathers in the day when I took them by the hand to lead them out of the land of Egypt; because they continued not in my covenant, and I regarded them not, saith the Lord.  
+> **¹⁰** For this *is* the covenant that I will make with the house of Israel after those days, saith the Lord; I will put my laws into their mind, and write them in their hearts: and I will be to them a God, and they shall be to me a people:  
+> **¹¹** And they shall not teach every man his neighbour, and every man his brother, saying, Know the Lord: for all shall know me, from the least to the greatest.  
+> **¹²** For I will be merciful to their unrighteousness, and their sins and their iniquities will I remember no more.  
+> **¹³** In that he saith, A new *covenant,* he hath made the first old. Now that which decayeth and waxeth old *is* ready to vanish away.  
 
 In this part of the chapter, the apostle illustrates and confirms the superior excellency of the priesthood of Christ above that of Aaron, from the excellency of that covenant, or that dispensation of the covenant of grace, of which Christ was the Mediator (Heb 8:6): his ministry is more excellent, by how much he is the Mediator of a better covenant. The body and soul too of all divinity (as some observe) consist very much in rightly distinguishing between the two covenants—the covenant of works and the covenant of grace; and between the two dispensations of the covenant of grace—that under the Old Testament and that under the New. Now observe,
 

@@ -8,15 +8,15 @@ The first words of this chapter are the contents of it, "These are the words of 
 
 ## Mercies Called to Remembrance. (b. c. 1451.)
 
-> <sup>1</sup> These *are* the words of the covenant, which the LORD commanded Moses to make with the children of Israel in the land of Moab, beside the covenant which he made with them in Horeb.  
-> <sup>2</sup> And Moses called unto all Israel, and said unto them, Ye have seen all that the LORD did before your eyes in the land of Egypt unto Pharaoh, and unto all his servants, and unto all his land;  
-> <sup>3</sup> The great temptations which thine eyes have seen, the signs, and those great miracles:  
-> <sup>4</sup> Yet the LORD hath not given you a heart to perceive, and eyes to see, and ears to hear, unto this day.  
-> <sup>5</sup> And I have led you forty years in the wilderness: your clothes are not waxen old upon you, and thy shoe is not waxen old upon thy foot.  
-> <sup>6</sup> Ye have not eaten bread, neither have ye drunk wine or strong drink: that ye might know that I *am* the LORD your God.  
-> <sup>7</sup> And when ye came unto this place, Sihon the king of Heshbon, and Og the king of Bashan, came out against us unto battle, and we smote them:  
-> <sup>8</sup> And we took their land, and gave it for an inheritance unto the Reubenites, and to the Gadites, and to the half tribe of Manasseh.  
-> <sup>9</sup> Keep therefore the words of this covenant, and do them, that ye may prosper in all that ye do.  
+> **¹** These *are* the words of the covenant, which the LORD commanded Moses to make with the children of Israel in the land of Moab, beside the covenant which he made with them in Horeb.  
+> **²** And Moses called unto all Israel, and said unto them, Ye have seen all that the LORD did before your eyes in the land of Egypt unto Pharaoh, and unto all his servants, and unto all his land;  
+> **³** The great temptations which thine eyes have seen, the signs, and those great miracles:  
+> **⁴** Yet the LORD hath not given you a heart to perceive, and eyes to see, and ears to hear, unto this day.  
+> **⁵** And I have led you forty years in the wilderness: your clothes are not waxen old upon you, and thy shoe is not waxen old upon thy foot.  
+> **⁶** Ye have not eaten bread, neither have ye drunk wine or strong drink: that ye might know that I *am* the LORD your God.  
+> **⁷** And when ye came unto this place, Sihon the king of Heshbon, and Og the king of Bashan, came out against us unto battle, and we smote them:  
+> **⁸** And we took their land, and gave it for an inheritance unto the Reubenites, and to the Gadites, and to the half tribe of Manasseh.  
+> **⁹** Keep therefore the words of this covenant, and do them, that ye may prosper in all that ye do.  
 
 Now that Moses had largely repeated the commands which the people were to observe as their part of the covenant, and the promises and threatenings which God would make good (according as they behaved themselves) as part of the covenant, the whole is here summed up in a federal transaction. The covenant formerly made is here renewed, and Moses, who was before, is still, the mediator of it (De 29:1): *The Lord commanded Moses to make it.* Moses himself, though king in Jeshurun, could not make the covenant any otherwise than as God gave him instructions. It does not lie in the power of ministers to fix the terms of the covenant; they are only to dispense the seals of it. This is said to be *besides the covenant made in Horeb;* for, though the covenant was the same, yet it was a new promulgation and ratification of it. It is probable that some now living, though not of age to be mustered, were of age to consent for themselves to the covenant made at Horeb, and yet it is here renewed. Note, Those that have solemnly covenanted with God should take all opportunities to do it again, as those that like their choice too well to change. But the far greater part were a new generation, and therefore the covenant must be made afresh with them, for it is fit that the covenant should be renewed to the children of the covenant.
 
@@ -34,26 +34,26 @@ IV\. By way of inference from these memoirs,
 
 ## The Covenant Renewed. (b. c. 1451.)
 
-> <sup>10</sup> Ye stand this day all of you before the LORD your God; your captains of your tribes, your elders, and your officers, *with* all the men of Israel,  
-> <sup>11</sup> Your little ones, your wives, and thy stranger that *is* in thy camp, from the hewer of thy wood unto the drawer of thy water:  
-> <sup>12</sup> That thou shouldest enter into covenant with the LORD thy God, and into his oath, which the LORD thy God maketh with thee this day:  
-> <sup>13</sup> That he may establish thee to day for a people unto himself, and *that* he may be unto thee a God, as he hath said unto thee, and as he hath sworn unto thy fathers, to Abraham, to Isaac, and to Jacob.  
-> <sup>14</sup> Neither with you only do I make this covenant and this oath;  
-> <sup>15</sup> But with *him* that standeth here with us this day before the LORD our God, and also with *him* that *is* not here with us this day:  
-> <sup>16</sup> (For ye know how we have dwelt in the land of Egypt; and how we came through the nations which ye passed by;  
-> <sup>17</sup> And ye have seen their abominations, and their idols, wood and stone, silver and gold, which *were* among them:)  
-> <sup>18</sup> Lest there should be among you man, or woman, or family, or tribe, whose heart turneth away this day from the LORD our God, to go *and* serve the gods of these nations; lest there should be among you a root that beareth gall and wormwood;  
-> <sup>19</sup> And it come to pass, when he heareth the words of this curse, that he bless himself in his heart, saying, I shall have peace, though I walk in the imagination of mine heart, to add drunkenness to thirst:  
-> <sup>20</sup> The LORD will not spare him, but then the anger of the LORD and his jealousy shall smoke against that man, and all the curses that are written in this book shall lie upon him, and the LORD shall blot out his name from under heaven.  
-> <sup>21</sup> And the LORD shall separate him unto evil out of all the tribes of Israel, according to all the curses of the covenant that are written in this book of the law:  
-> <sup>22</sup> So that the generation to come of your children that shall rise up after you, and the stranger that shall come from a far land, shall say, when they see the plagues of that land, and the sicknesses which the LORD hath laid upon it;  
-> <sup>23</sup> *And that* the whole land thereof *is* brimstone, and salt, *and* burning, *that* it is not sown, nor beareth, nor any grass groweth therein, like the overthrow of Sodom, and Gomorrah, Admah, and Zeboim, which the LORD overthrew in his anger, and in his wrath:  
-> <sup>24</sup> Even all nations shall say, Wherefore hath the LORD done thus unto this land? what *meaneth* the heat of this great anger?  
-> <sup>25</sup> Then men shall say, Because they have forsaken the covenant of the LORD God of their fathers, which he made with them when he brought them forth out of the land of Egypt:  
-> <sup>26</sup> For they went and served other gods, and worshipped them, gods whom they knew not, and *whom* he had not given unto them:  
-> <sup>27</sup> And the anger of the LORD was kindled against this land, to bring upon it all the curses that are written in this book:  
-> <sup>28</sup> And the LORD rooted them out of their land in anger, and in wrath, and in great indignation, and cast them into another land, as *it is* this day.  
-> <sup>29</sup> The secret *things belong* unto the LORD our God: but those *things which are* revealed *belong* unto us and to our children for ever, that *we* may do all the words of this law.  
+> **¹⁰** Ye stand this day all of you before the LORD your God; your captains of your tribes, your elders, and your officers, *with* all the men of Israel,  
+> **¹¹** Your little ones, your wives, and thy stranger that *is* in thy camp, from the hewer of thy wood unto the drawer of thy water:  
+> **¹²** That thou shouldest enter into covenant with the LORD thy God, and into his oath, which the LORD thy God maketh with thee this day:  
+> **¹³** That he may establish thee to day for a people unto himself, and *that* he may be unto thee a God, as he hath said unto thee, and as he hath sworn unto thy fathers, to Abraham, to Isaac, and to Jacob.  
+> **¹⁴** Neither with you only do I make this covenant and this oath;  
+> **¹⁵** But with *him* that standeth here with us this day before the LORD our God, and also with *him* that *is* not here with us this day:  
+> **¹⁶** (For ye know how we have dwelt in the land of Egypt; and how we came through the nations which ye passed by;  
+> **¹⁷** And ye have seen their abominations, and their idols, wood and stone, silver and gold, which *were* among them:)  
+> **¹⁸** Lest there should be among you man, or woman, or family, or tribe, whose heart turneth away this day from the LORD our God, to go *and* serve the gods of these nations; lest there should be among you a root that beareth gall and wormwood;  
+> **¹⁹** And it come to pass, when he heareth the words of this curse, that he bless himself in his heart, saying, I shall have peace, though I walk in the imagination of mine heart, to add drunkenness to thirst:  
+> **²⁰** The LORD will not spare him, but then the anger of the LORD and his jealousy shall smoke against that man, and all the curses that are written in this book shall lie upon him, and the LORD shall blot out his name from under heaven.  
+> **²¹** And the LORD shall separate him unto evil out of all the tribes of Israel, according to all the curses of the covenant that are written in this book of the law:  
+> **²²** So that the generation to come of your children that shall rise up after you, and the stranger that shall come from a far land, shall say, when they see the plagues of that land, and the sicknesses which the LORD hath laid upon it;  
+> **²³** *And that* the whole land thereof *is* brimstone, and salt, *and* burning, *that* it is not sown, nor beareth, nor any grass groweth therein, like the overthrow of Sodom, and Gomorrah, Admah, and Zeboim, which the LORD overthrew in his anger, and in his wrath:  
+> **²⁴** Even all nations shall say, Wherefore hath the LORD done thus unto this land? what *meaneth* the heat of this great anger?  
+> **²⁵** Then men shall say, Because they have forsaken the covenant of the LORD God of their fathers, which he made with them when he brought them forth out of the land of Egypt:  
+> **²⁶** For they went and served other gods, and worshipped them, gods whom they knew not, and *whom* he had not given unto them:  
+> **²⁷** And the anger of the LORD was kindled against this land, to bring upon it all the curses that are written in this book:  
+> **²⁸** And the LORD rooted them out of their land in anger, and in wrath, and in great indignation, and cast them into another land, as *it is* this day.  
+> **²⁹** The secret *things belong* unto the LORD our God: but those *things which are* revealed *belong* unto us and to our children for ever, that *we* may do all the words of this law.  
 
 It appears by the length of the sentences here, and by the copiousness and pungency of the expressions, that Moses, now that he was drawing near to the close of his discourse, was very warm and zealous, and very desirous to impress what he said upon the minds of this unthinking people. To bind them the faster to God and duty, he here, with great solemnity of expression (to make up the want of the external ceremony that was used (Ex 24:4-8, etc.), concludes a bargain (as it were) between them and God, an everlasting covenant, which God would not forget and they must not. He requires not their explicit consent, but lays the matter plainly before them, and then leaves it between God and their own consciences. Observe,
 

@@ -8,18 +8,18 @@ Job here comes to make application of what he had said in the foregoing chapter;
 
 ## Job's Reply to Zophar. (b. c. 1520.)
 
-> <sup>1</sup> Lo, mine eye hath seen all *this,* mine ear hath heard and understood it.  
-> <sup>2</sup> What ye know, *the same* do I know also: I *am* not inferior unto you.  
-> <sup>3</sup> Surely I would speak to the Almighty, and I desire to reason with God.  
-> <sup>4</sup> But ye *are* forgers of lies, ye *are* all physicians of no value.  
-> <sup>5</sup> O that ye would altogether hold your peace! and it should be your wisdom.  
-> <sup>6</sup> Hear now my reasoning, and hearken to the pleadings of my lips.  
-> <sup>7</sup> Will ye speak wickedly for God? and talk deceitfully for him?  
-> <sup>8</sup> Will ye accept his person? will ye contend for God?  
-> <sup>9</sup> Is it good that he should search you out? or as one man mocketh another, do ye *so* mock him?  
-> <sup>10</sup> He will surely reprove you, if ye do secretly accept persons.  
-> <sup>11</sup> Shall not his excellency make you afraid? and his dread fall upon you?  
-> <sup>12</sup> Your remembrances *are* like unto ashes, your bodies to bodies of clay.  
+> **¹** Lo, mine eye hath seen all *this,* mine ear hath heard and understood it.  
+> **²** What ye know, *the same* do I know also: I *am* not inferior unto you.  
+> **³** Surely I would speak to the Almighty, and I desire to reason with God.  
+> **⁴** But ye *are* forgers of lies, ye *are* all physicians of no value.  
+> **⁵** O that ye would altogether hold your peace! and it should be your wisdom.  
+> **⁶** Hear now my reasoning, and hearken to the pleadings of my lips.  
+> **⁷** Will ye speak wickedly for God? and talk deceitfully for him?  
+> **⁸** Will ye accept his person? will ye contend for God?  
+> **⁹** Is it good that he should search you out? or as one man mocketh another, do ye *so* mock him?  
+> **¹⁰** He will surely reprove you, if ye do secretly accept persons.  
+> **¹¹** Shall not his excellency make you afraid? and his dread fall upon you?  
+> **¹²** Your remembrances *are* like unto ashes, your bodies to bodies of clay.  
 
 Job here warmly expresses his resentment of the unkindness of his friends.
 
@@ -39,16 +39,16 @@ VI\. He endeavours to possess them with a fear of God's judgment, and so to brin
 
 2\. Let them consider themselves, and what an unequal match they were for this great God (Job 13:12): "*Your remembrances* (all that in you for which you hope to be remembered when you are gone) *are like unto ashes,* worthless and weak, and easily trampled on and blown away. *Your bodies are like bodies of clay,* mouldering and coming to nothing. Your memories, you think, will survive your bodies, but, alas! they are like ashes which will be shovelled up with your dust." Note, the consideration of our own meanness and mortality should make us afraid of offending God, and furnishes a good reason why we should not despise and trample upon our brethren. Bishop Patrick gives another sense of this verse: "Your remonstrances on God's behalf are no better than dust, and the arguments you accumulate but like so many heaps of dirt."
 
-> <sup>13</sup> Hold your peace, let me alone, that I may speak, and let come on me what *will.*  
-> <sup>14</sup> Wherefore do I take my flesh in my teeth, and put my life in mine hand?  
-> <sup>15</sup> Though he slay me, yet will I trust in him: but I will maintain mine own ways before him.  
-> <sup>16</sup> He also *shall be* my salvation: for a hypocrite shall not come before him.  
-> <sup>17</sup> Hear diligently my speech, and my declaration with your ears.  
-> <sup>18</sup> Behold now, I have ordered *my* cause; I know that I shall be justified.  
-> <sup>19</sup> Who *is* he *that* will plead with me? for now, if I hold my tongue, I shall give up the ghost.  
-> <sup>20</sup> Only do not two *things* unto me: then will I not hide myself from thee.  
-> <sup>21</sup> Withdraw thine hand far from me: and let not thy dread make me afraid.  
-> <sup>22</sup> Then call thou, and I will answer: or let me speak, and answer thou me.  
+> **¹³** Hold your peace, let me alone, that I may speak, and let come on me what *will.*  
+> **¹⁴** Wherefore do I take my flesh in my teeth, and put my life in mine hand?  
+> **¹⁵** Though he slay me, yet will I trust in him: but I will maintain mine own ways before him.  
+> **¹⁶** He also *shall be* my salvation: for a hypocrite shall not come before him.  
+> **¹⁷** Hear diligently my speech, and my declaration with your ears.  
+> **¹⁸** Behold now, I have ordered *my* cause; I know that I shall be justified.  
+> **¹⁹** Who *is* he *that* will plead with me? for now, if I hold my tongue, I shall give up the ghost.  
+> **²⁰** Only do not two *things* unto me: then will I not hide myself from thee.  
+> **²¹** Withdraw thine hand far from me: and let not thy dread make me afraid.  
+> **²²** Then call thou, and I will answer: or let me speak, and answer thou me.  
 
 Job here takes fresh hold, fast hold, of his integrity, as one that was resolved not to let it go, nor suffer it to be wrested from him. His firmness in this matter is commendable and his warmth excusable.
 
@@ -66,12 +66,12 @@ IV\. He comforts himself in God, and still keeps hold of his confidence in him. 
 
 V\. He wishes to argue the case even with God himself, if he might but have leave to settle the preliminaries of the treaty, Job 13:20-22. He had desired (Job 13:3) to *reason with God,* and is still of the same mind. He *will not hide himself,* that is, he will not decline the trial, nor dread the issue of it, but under two provisos:—1. That his body might not be tortured with this exquisite pain: "*Withdraw thy hand far from me;* for, while I am in this extremity, I am fit for nothing. I can make a shift to talk with my friends, but I know not how to address myself to thee." When we are to converse with God we have need to be composed, and as free as possible from every thing that may make us uneasy. 2. That his mind might not be terrified with the tremendous majesty of God: "*Let not thy dread make me afraid;* either let the manifestations of thy presence be familiar or let me be enabled to bear them without disorder and disturbance." Moses himself trembled before God, so did Isaiah and Habakkuk. *O God! thou art terrible even in thy holy places.* "Lord," says Job, "let me not be put into such a consternation of spirit, together with this bodily affliction; for then I must certainly drop the cause, and shall make nothing of it." See what a folly it is for men to put off their repentance and conversion to a sick-bed and a death-bed. How can even a good man, much less a bad man, reason with God, so as to be justified before him, when he is upon the rack of pain and under the terror of the arrests of death? At such a time it is very bad to have the great work to do, but very comfortable to have it done, as it was to Job, who, if he might but have a little breathing-time, was ready either, (1.) To hear God speaking to him by his word, and return an answer: *Call thou, and I will answer;* or, (2.) To speak to him by prayer, and expect an answer: *Let me speak, and answer thou me,* Job 13:22. Compare this with Job 9:34,35, where he speaks to the same purport. In short, the badness of his case was at present such a damp upon him as he could not get over; otherwise he was well assured of the goodness of his cause, and doubted not but to have the comfort of it at last, when the present cloud was over. With such holy boldness may the upright come to the throne of grace, not doubting but to find mercy there.
 
-> <sup>23</sup> How many *are* mine iniquities and sins? make me to know my transgression and my sin.  
-> <sup>24</sup> Wherefore hidest thou thy face, and holdest me for thine enemy?  
-> <sup>25</sup> Wilt thou break a leaf driven to and fro? and wilt thou pursue the dry stubble?  
-> <sup>26</sup> For thou writest bitter things against me, and makest me to possess the iniquities of my youth.  
-> <sup>27</sup> Thou puttest my feet also in the stocks, and lookest narrowly unto all my paths; thou settest a print upon the heels of my feet.  
-> <sup>28</sup> And he, as a rotten thing, consumeth, as a garment that is moth eaten.  
+> **²³** How many *are* mine iniquities and sins? make me to know my transgression and my sin.  
+> **²⁴** Wherefore hidest thou thy face, and holdest me for thine enemy?  
+> **²⁵** Wilt thou break a leaf driven to and fro? and wilt thou pursue the dry stubble?  
+> **²⁶** For thou writest bitter things against me, and makest me to possess the iniquities of my youth.  
+> **²⁷** Thou puttest my feet also in the stocks, and lookest narrowly unto all my paths; thou settest a print upon the heels of my feet.  
+> **²⁸** And he, as a rotten thing, consumeth, as a garment that is moth eaten.  
 
 Here, I. Job enquires after his sins, and begs to have them discovered to him. He looks up to God, and asks him what was the number of them (*How many are my iniquities?*) and what were the particulars of them: *Make me to know my transgressions,* Job 13:23. His friends were ready enough to tell him how numerous and how heinous they were, Job 22:5. "But, Lord," says he, "let me know them from thee; *for thy judgment is according to truth,* theirs is not." This may be taken either, 1. As a passionate complaint of hard usage, that he was punished for his faults and yet was not told what his faults were. Or, 2. As a prudent appeal to God from the censures of his friends. He desired that all his sins might be brought to light, as knowing they would then appear not so many, nor so mighty, as his friends suspected him to be guilty of. Or, 3. As a pious request, to the same purport with that which Elihu directed him to, Job 34:32. *That which I see not, teach thou me.* Note, A true penitent is willing to know the worst of himself; and we should all desire to know what our transgressions are, that we may be particular in the confession of them and on our guard against them for the future.
 

@@ -8,12 +8,12 @@ After the title of the book (Zep 1:1) here is, I. A threatening of the destructi
 
 ## Judgment Predicted. (b. c. 612.)
 
-> <sup>1</sup> The word of the LORD which came unto Zephaniah the son of Cushi, the son of Gedaliah, the son of Amariah, the son of Hizkiah, in the days of Josiah the son of Amon, king of Judah.  
-> <sup>2</sup> I will utterly consume all *things* from off the land, saith the LORD.  
-> <sup>3</sup> I will consume man and beast; I will consume the fowls of the heaven, and the fishes of the sea, and the stumbling-blocks with the wicked; and I will cut off man from off the land, saith the LORD.  
-> <sup>4</sup> I will also stretch out mine hand upon Judah, and upon all the inhabitants of Jerusalem; and I will cut off the remnant of Baal from this place, *and* the name of the Chemarims with the priests;  
-> <sup>5</sup> And them that worship the host of heaven upon the housetops; and them that worship *and* that swear by the LORD, and that swear by Malcham;  
-> <sup>6</sup> And them that are turned back from the LORD; and *those* that have not sought the LORD, nor enquired for him.  
+> **¹** The word of the LORD which came unto Zephaniah the son of Cushi, the son of Gedaliah, the son of Amariah, the son of Hizkiah, in the days of Josiah the son of Amon, king of Judah.  
+> **²** I will utterly consume all *things* from off the land, saith the LORD.  
+> **³** I will consume man and beast; I will consume the fowls of the heaven, and the fishes of the sea, and the stumbling-blocks with the wicked; and I will cut off man from off the land, saith the LORD.  
+> **⁴** I will also stretch out mine hand upon Judah, and upon all the inhabitants of Jerusalem; and I will cut off the remnant of Baal from this place, *and* the name of the Chemarims with the priests;  
+> **⁵** And them that worship the host of heaven upon the housetops; and them that worship *and* that swear by the LORD, and that swear by Malcham;  
+> **⁶** And them that are turned back from the LORD; and *those* that have not sought the LORD, nor enquired for him.  
 
 Here is, I. The title-page of this book (Zep 1:1), in which we observe, 1. What authority it has, and who gave it that authority; it is from heaven, and not of men: It is *the word of the Lord.* 2. Who was the instrument of conveying it to the church. His name was Zephaniah, which signifies the *servant of the Lord,* for God *revealed his secrets to his servants the prophets.* The pedigree of other prophets, whose extraction we have an account of, goes no further back than their father, except Zecharias, whose grandfather also is named. But this of Zephaniah goes back four generations, and the highest mentioned is *Hizkiah;* it is the very same name in the original with that of Hezekiah king of Judah (2Ki 18:1), and refers probably to him; if so, our prophet, being lineally descended from that pious prince, and being of the royal family, could with the better grace reprove the folly of the king's children as he does, Zep 1:8. 3. When this prophet prophesied—*in the days of Josiah king of Judah,* who reigned well, and in the twelfth year of his reign began vigorously, and carried on a work of reformation, in which he destroyed idols and idolatry. Now it does not appear whether Zephaniah prophesied in the beginning of his reign; if so, we may suppose his prophesying had a great and good influence on that reformation. When he, as God's messenger, reproved the idolatries of Jerusalem, Josiah, as God's vice-gerent, removed them; and reformation is likely to go on and prosper when both magistrates and ministers do their part towards it. If it were towards the latter end of his reign that he prophesied, we sadly see how a corrupt people relapse into their former distempers. The idolatries Josiah had abolished, it should seem, returned in his own time, when the heat of the reformation began a little to abate and wear off. What good can the best reformers do with a people that hate to be reformed, as if they longed to be ruined?
 
@@ -21,13 +21,13 @@ II\. The summary, or contents, of this book. The general proposition contained i
 
 ## Judgment Predicted. (b. c. 612.)
 
-> <sup>7</sup> Hold thy peace at the presence of the Lord GOD: for the day of the LORD *is* at hand: for the LORD hath prepared a sacrifice, he hath bid his guests.  
-> <sup>8</sup> And it shall come to pass in the day of the LORD's sacrifice, that I will punish the princes, and the king's children, and all such as are clothed with strange apparel.  
-> <sup>9</sup> In the same day also will I punish all those that leap on the threshold, which fill their masters' houses with violence and deceit.  
-> <sup>10</sup> And it shall come to pass in that day, saith the LORD, *that there shall be* the noise of a cry from the fish gate, and an howling from the second, and a great crashing from the hills.  
-> <sup>11</sup> Howl, ye inhabitants of Maktesh, for all the merchant people are cut down; all they that bear silver are cut off.  
-> <sup>12</sup> And it shall come to pass at that time, *that* I will search Jerusalem with candles, and punish the men that are settled on their lees: that say in their heart, The LORD will not do good, neither will he do evil.  
-> <sup>13</sup> Therefore their goods shall become a booty, and their houses a desolation: they shall also build houses, but not inhabit *them;* and they shall plant vineyards, but not drink the wine thereof.  
+> **⁷** Hold thy peace at the presence of the Lord GOD: for the day of the LORD *is* at hand: for the LORD hath prepared a sacrifice, he hath bid his guests.  
+> **⁸** And it shall come to pass in the day of the LORD's sacrifice, that I will punish the princes, and the king's children, and all such as are clothed with strange apparel.  
+> **⁹** In the same day also will I punish all those that leap on the threshold, which fill their masters' houses with violence and deceit.  
+> **¹⁰** And it shall come to pass in that day, saith the LORD, *that there shall be* the noise of a cry from the fish gate, and an howling from the second, and a great crashing from the hills.  
+> **¹¹** Howl, ye inhabitants of Maktesh, for all the merchant people are cut down; all they that bear silver are cut off.  
+> **¹²** And it shall come to pass at that time, *that* I will search Jerusalem with candles, and punish the men that are settled on their lees: that say in their heart, The LORD will not do good, neither will he do evil.  
+> **¹³** Therefore their goods shall become a booty, and their houses a desolation: they shall also build houses, but not inhabit *them;* and they shall plant vineyards, but not drink the wine thereof.  
 
 Notice is here given to Judah and Jerusalem that God is coming forth against them, and will be with them shortly; his *presence,* as a just avenger, *his day,* the day of his judgment and his wrath, are not far off, Zep 1:7. Those that improve not the presence of God with them as a Father, but sin away that presence, may expect his presence with them as a Judge, to call them to an account for the contempt put upon his grace. The *day of the Lord* will come. Men have their day now, when they take a liberty to do what they please; but *God's day is at hand;* it is here called his *sacrifice,* a sacrifice of his preparing, for the punishing of presumptuous sinners is a sacrifice to the justice of God, some reparation to his injured honour. Those that brought their offerings to other gods were themselves justly made victims to the true God. On a day of sacrifice great slaughter was made; so shall there be in Jerusalem; men shall be killed up as fast as lambs for the altar, with as little regret, with as much pleasure: *The slain of the Lord shall be many.* On a day of sacrifice great feasts were made upon the sacrifices; so the inhabitants of Judah and Jerusalem shall be feasted upon by their enemies the Chaldeans; these are the guests God has prepared and invited to come and glut themselves—their revenge with slaughter and their covetousness with plunder. Now observe,
 
@@ -37,11 +37,11 @@ II\. What the destruction will be with which God will punish these sinners, and 
 
 ## Judgment Predicted. (b. c. 612.)
 
-> <sup>14</sup> The great day of the LORD *is* near, *it is* near, and hasteth greatly, *even* the voice of the day of the LORD: the mighty man shall cry there bitterly.  
-> <sup>15</sup> That day *is* a day of wrath, a day of trouble and distress, a day of wasteness and desolation, a day of darkness and gloominess, a day of clouds and thick darkness,  
-> <sup>16</sup> A day of the trumpet and alarm against the fenced cities, and against the high towers.  
-> <sup>17</sup> And I will bring distress upon men, that they shall walk like blind men, because they have sinned against the LORD: and their blood shall be poured out as dust, and their flesh as the dung.  
-> <sup>18</sup> Neither their silver nor their gold shall be able to deliver them in the day of the LORD's wrath; but the whole land shall be devoured by the fire of his jealousy: for he shall make even a speedy riddance of all them that dwell in the land.  
+> **¹⁴** The great day of the LORD *is* near, *it is* near, and hasteth greatly, *even* the voice of the day of the LORD: the mighty man shall cry there bitterly.  
+> **¹⁵** That day *is* a day of wrath, a day of trouble and distress, a day of wasteness and desolation, a day of darkness and gloominess, a day of clouds and thick darkness,  
+> **¹⁶** A day of the trumpet and alarm against the fenced cities, and against the high towers.  
+> **¹⁷** And I will bring distress upon men, that they shall walk like blind men, because they have sinned against the LORD: and their blood shall be poured out as dust, and their flesh as the dung.  
+> **¹⁸** Neither their silver nor their gold shall be able to deliver them in the day of the LORD's wrath; but the whole land shall be devoured by the fire of his jealousy: for he shall make even a speedy riddance of all them that dwell in the land.  
 
 Nothing could be expressed with more spirit and life, nor in words more proper to startle and awaken a secure and careless people, than the warning here given to Judah and Jerusalem of the approaching destruction by the Chaldeans. That is enough to make the sinners in Zion tremble—that it is *the day of the Lord,* the day in which he will manifest himself by taking vengeance on them. It is *the great day of the Lord,* a specimen of the day of judgment, a kind of doom's-day, as the last destruction of Jerusalem by the Romans is represented to be in our Saviour's prediction concerning it, Mt 24:27.
 

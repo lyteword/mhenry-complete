@@ -8,27 +8,27 @@ This chapter begins Job's reply to that discourse of Eliphaz which we had in the
 
 ## The Reply of Job to Eliphaz. (b. c. 1520.)
 
-> <sup>1</sup> Then Job answered and said,  
-> <sup>2</sup> I have heard many such things: miserable comforters *are* ye all.  
-> <sup>3</sup> Shall vain words have an end? or what emboldeneth thee that thou answerest?  
-> <sup>4</sup> I also could speak as ye *do:* if your soul were in my soul's stead, I could heap up words against you, and shake mine head at you.  
-> <sup>5</sup> *But* I would strengthen you with my mouth, and the moving of my lips should assuage *your grief.*  
+> **¹** Then Job answered and said,  
+> **²** I have heard many such things: miserable comforters *are* ye all.  
+> **³** Shall vain words have an end? or what emboldeneth thee that thou answerest?  
+> **⁴** I also could speak as ye *do:* if your soul were in my soul's stead, I could heap up words against you, and shake mine head at you.  
+> **⁵** *But* I would strengthen you with my mouth, and the moving of my lips should assuage *your grief.*  
 
 Both Job and his friends took the same way that disputants commonly take, which is to undervalue one another's sense, and wisdom, and management. The longer the saw of contention is drawn the hotter it grows; and the *beginning of* this sort of *strife is as the letting forth of water; therefore leave it off before it be meddled with.* Eliphaz had represented Job's discourses as idle, and unprofitable, and nothing to the purpose; and Job here gives his the same character. Those who are free in passing such censures must expect to have them retorted; it is easy, it is endless: but *cui bono?—what good does it do?* It will stir up men's passions, but will never convince their judgments, nor set truth in a clear light. Job here reproves Eliphaz, 1. For needless repetitions (Job 16:2): "*I have heard many such things.* You tell me nothing but what I knew before, nothing but what you yourselves have before said; you offer nothing new; it is the same thing over and over again." This Job thinks as great a trial of his patience as almost any of his troubles. The inculcating of the same things thus by an adversary is indeed provoking and nauseous, but by a teacher it is often necessary, and must not be grievous to the learner, to whom *precept must be upon precept, and line upon line.* Many things we have heard which it is good for us to hear again, that we may understand and remember them better, and be more affected with them and influenced by them. 2. For unskilful applications. They came with a design to comfort him, but they went about it very awkwardly, and, when they touched Job's case, quite mistook it: "*Miserable comforters are you all,* who, instead of offering any thing to alleviate the affliction, add affliction to it, and make it yet more grievous." The patient's case is sad indeed when his medicines are poisons and his physicians his worst disease. What Job says here of his friends is true of all creatures, in comparison with God, and, one time or other, we shall be made to see it and own it, that miserable comforters are they all. When we are under convictions of sin, terrors of conscience, and the arrests of death, it is only the blessed Spirit that can comfort effectually; all others, without him, do it miserably, and sing songs to a heavy heart, to no purpose. 3. For endless impertinence. Job wishes that *vain words might have an end,* Job 16:3. If vain, it were well that they were never begun, and the sooner they are ended the better. Those who are so wise as to speak to the purpose will be so wise as to know when they have said enough of a thing and when it is time to break off. 4. For causeless obstinacy. *What emboldeneth thee, that thou answerest?* It is a great piece of confidence, and unaccountable, to charge men with those crimes which we cannot prove upon them, to pass a judgment on men's spiritual state upon the view of their outward condition, and to re-advance those objections which have been again and again answered, as Eliphaz did. 5. For the violation of the sacred laws of friendship, doing by his brother as he would not have been done by and as his brother would not have done by him. This is a cutting reproof, and very affecting, Job 16:4,5. (1.) He desires his friends, in imagination, for a little while, to change conditions with him, to put their souls in his soul's stead, to suppose themselves in misery like him and him at ease like them. This was no absurd or foreign supposition, but what might quickly become true in fact. So strange, so sudden, frequently, are the vicissitudes of human affairs, and such the turns of the wheel, that the spokes soon change places. Whatever our brethren's sorrows are, we ought by sympathy to make them our own, because we know not how soon they may be so. (2.) He represents the unkindness of their conduct towards him, by showing what he could do to them if they were in his condition: *I could speak as you do.* It is an easy thing to trample upon those that are down, and to find fault with what those say that are in extremity of pain and affliction: "*I could heap up words against you,* as you do against me; and how would you like it? how would you bear it?" (3.) He shows them what they should do, by telling them what in that case he would do (Job 16:5): *"I would strengthen you,* and say all I could to assuage your grief, but nothing to aggravate it." It is natural to sufferers to think what they would do if the tables were turned. But perhaps our hearts may deceive us; we know not what we should do. We find it easier to discern the reasonableness and importance of a command when we have occasion to claim the benefit of it than when we have occasion to do the duty of it. See what is the duty we owe to our brethren in their affliction. [1.] We should say and do all we can to strengthen them, suggesting to them such considerations as are proper to encourage their confidence in God and to support their sinking spirits. Faith and patience are the strength of the afflicted; whatever helps these graces confirms the feeble knees. [2.] To assuage their grief—the causes of their grief, if possible, or at least their resentment of those causes. Good words cost nothing; but they may be of good service to those that are in sorrow, not only as it is some comfort to them to see their friends concerned for them, but as they may be so reminded of that which, through the prevalency of grief, was forgotten. Though hard words (we say) break no bones, yet kind words may help to make broken bones rejoice; and those have the *tongue of the learned* that know how to *speak a word in season to the weary.*
 
 ## Grievances of Job. (b. c. 1520.)
 
-> <sup>6</sup> Though I speak, my grief is not assuaged: and *though* I forbear, what am I eased?  
-> <sup>7</sup> But now he hath made me weary: thou hast made desolate all my company.  
-> <sup>8</sup> And thou hast filled me with wrinkles, *which* is a witness *against me:* and my leanness rising up in me beareth witness to my face.  
-> <sup>9</sup> He teareth *me* in his wrath, who hateth me: he gnasheth upon me with his teeth; mine enemy sharpeneth his eyes upon me.  
-> <sup>10</sup> They have gaped upon me with their mouth; they have smitten me upon the cheek reproachfully; they have gathered themselves together against me.  
-> <sup>11</sup> God hath delivered me to the ungodly, and turned me over into the hands of the wicked.  
-> <sup>12</sup> I was at ease, but he hath broken me asunder: he hath also taken *me* by my neck, and shaken me to pieces, and set me up for his mark.  
-> <sup>13</sup> His archers compass me round about, he cleaveth my reins asunder, and doth not spare; he poureth out my gall upon the ground.  
-> <sup>14</sup> He breaketh me with breach upon breach, he runneth upon me like a giant.  
-> <sup>15</sup> I have sewed sackcloth upon my skin, and defiled my horn in the dust.  
-> <sup>16</sup> My face is foul with weeping, and on my eyelids *is* the shadow of death;  
+> **⁶** Though I speak, my grief is not assuaged: and *though* I forbear, what am I eased?  
+> **⁷** But now he hath made me weary: thou hast made desolate all my company.  
+> **⁸** And thou hast filled me with wrinkles, *which* is a witness *against me:* and my leanness rising up in me beareth witness to my face.  
+> **⁹** He teareth *me* in his wrath, who hateth me: he gnasheth upon me with his teeth; mine enemy sharpeneth his eyes upon me.  
+> **¹⁰** They have gaped upon me with their mouth; they have smitten me upon the cheek reproachfully; they have gathered themselves together against me.  
+> **¹¹** God hath delivered me to the ungodly, and turned me over into the hands of the wicked.  
+> **¹²** I was at ease, but he hath broken me asunder: he hath also taken *me* by my neck, and shaken me to pieces, and set me up for his mark.  
+> **¹³** His archers compass me round about, he cleaveth my reins asunder, and doth not spare; he poureth out my gall upon the ground.  
+> **¹⁴** He breaketh me with breach upon breach, he runneth upon me like a giant.  
+> **¹⁵** I have sewed sackcloth upon my skin, and defiled my horn in the dust.  
+> **¹⁶** My face is foul with weeping, and on my eyelids *is* the shadow of death;  
 
 Job's complaint is here as bitter as any where in all his discourses, and he is at a stand whether to smother it or to give it vent. Sometimes the one and sometimes the other is a relief to the afflicted, according as the temper or the circumstances are; but Job found help by neither, Job 16:6. 1. Sometimes giving vent to grief gives ease; but, "*Though I speak*" (says Job), "*my grief is not assuaged,* my spirit is never the lighter for the pouring out of my complaint; nay, what I speak is so misconstrued as to be turned to the aggravation of my grief." 2. At other times keeping silence makes the trouble the easier and the sooner forgotten; but (says Job) *though I forbear* I am never the nearer; *what am I eased?* If he complained he was censured as passionate; if not, as sullen. If he maintained his integrity, that was his crime; if he made no answer to their accusations, his silence was taken for a confession of his guilt.
 
@@ -50,12 +50,12 @@ VII\. That he had divested himself of all his honour, and all his comfort, in co
 
 ## Testimony of Conscience; Job's Comfort in Conscious Integrity. (b. c. 1520.)
 
-> <sup>17</sup> Not for *any* injustice in mine hands: also my prayer *is* pure.  
-> <sup>18</sup> O earth, cover not thou my blood, and let my cry have no place.  
-> <sup>19</sup> Also now, behold, my witness *is* in heaven, and my record *is* on high.  
-> <sup>20</sup> My friends scorn me: *but* mine eye poureth out *tears* unto God.  
-> <sup>21</sup> O that one might plead for a man with God, as a man *pleadeth* for his neighbour!  
-> <sup>22</sup> When a few years are come, then I shall go the way *whence* I shall not return.  
+> **¹⁷** Not for *any* injustice in mine hands: also my prayer *is* pure.  
+> **¹⁸** O earth, cover not thou my blood, and let my cry have no place.  
+> **¹⁹** Also now, behold, my witness *is* in heaven, and my record *is* on high.  
+> **²⁰** My friends scorn me: *but* mine eye poureth out *tears* unto God.  
+> **²¹** O that one might plead for a man with God, as a man *pleadeth* for his neighbour!  
+> **²²** When a few years are come, then I shall go the way *whence* I shall not return.  
 
 Job's condition was very deplorable; but had he nothing to support him, nothing to comfort him? Yes, and he here tells us what it was.
 

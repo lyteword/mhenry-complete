@@ -8,11 +8,11 @@ After the threatenings of wrath in the foregoing chapter we have here, I. Thankf
 
 ## A Song of Praise. (b. c. 718.)
 
-> <sup>1</sup> O LORD, thou *art* my God; I will exalt thee, I will praise thy name; for thou hast done wonderful *things; thy* counsels of old *are* faithfulness *and* truth.  
-> <sup>2</sup> For thou hast made of a city a heap; *of* a defenced city a ruin: a palace of strangers to be no city; it shall never be built.  
-> <sup>3</sup> Therefore shall the strong people glorify thee, the city of the terrible nations shall fear thee.  
-> <sup>4</sup> For thou hast been a strength to the poor, a strength to the needy in his distress, a refuge from the storm, a shadow from the heat, when the blast of the terrible ones *is* as a storm *against* the wall.  
-> <sup>5</sup> Thou shalt bring down the noise of strangers, as the heat in a dry place; *even* the heat with the shadow of a cloud: the branch of the terrible ones shall be brought low.  
+> **¹** O LORD, thou *art* my God; I will exalt thee, I will praise thy name; for thou hast done wonderful *things; thy* counsels of old *are* faithfulness *and* truth.  
+> **²** For thou hast made of a city a heap; *of* a defenced city a ruin: a palace of strangers to be no city; it shall never be built.  
+> **³** Therefore shall the strong people glorify thee, the city of the terrible nations shall fear thee.  
+> **⁴** For thou hast been a strength to the poor, a strength to the needy in his distress, a refuge from the storm, a shadow from the heat, when the blast of the terrible ones *is* as a storm *against* the wall.  
+> **⁵** Thou shalt bring down the noise of strangers, as the heat in a dry place; *even* the heat with the shadow of a cloud: the branch of the terrible ones shall be brought low.  
 
 It is said in the close of the foregoing chapter that the *Lord of hosts shall reign gloriously;* now, in compliance with this, the prophet here speaks of *the glorious majesty of his kingdom* (Ps 145:12), and gives him the glory of it; and, however this prophecy might have an accomplishment in the destruction of Babylon and the deliverance of the Jews out of their captivity there, it seems to look further, to the praises that should be offered up to God by the gospel church for Christ's victories over our spiritual enemies and the comforts he has provided for all believers. Here,
 
@@ -24,9 +24,9 @@ III\. He observes what is, and ought to be, the matter of this praise. We and ot
 
 ## The Blessings of the Gospel. (b. c. 718.)
 
-> <sup>6</sup> And in this mountain shall the LORD of hosts make unto all people a feast of fat things, a feast of wines on the lees, of fat things full of marrow, of wines on the lees well refined.  
-> <sup>7</sup> And he will destroy in this mountain the face of the covering cast over all people, and the vail that is spread over all nations.  
-> <sup>8</sup> He will swallow up death in victory; and the Lord GOD will wipe away tears from off all faces; and the rebuke of his people shall he take away from off all the earth: for the LORD hath spoken *it.*  
+> **⁶** And in this mountain shall the LORD of hosts make unto all people a feast of fat things, a feast of wines on the lees, of fat things full of marrow, of wines on the lees well refined.  
+> **⁷** And he will destroy in this mountain the face of the covering cast over all people, and the vail that is spread over all nations.  
+> **⁸** He will swallow up death in victory; and the Lord GOD will wipe away tears from off all faces; and the rebuke of his people shall he take away from off all the earth: for the LORD hath spoken *it.*  
 
 If we suppose (as many do) that this refers to the great joy which there should be in Zion and Jerusalem when the army of the Assyrians was routed by an angel, or when the Jews were released out of their captivity in Babylon, or upon occasion of some other equally surprising deliverance, yet we cannot avoid making it to look further, to the grace of the gospel and the glory which is the crown and consummation of that grace; for it is at our resurrection through Christ that the saying here written *shall be brought to pass;* then, and not till then (if we may believe St. Paul), it shall have its full accomplishment: *Death is swallowed up in victory,* 1Co 15:54. This is a key to the rest of the promises here connected together. And so we have here a prophecy of the salvation and the grace brought unto us by Jesus Christ, into which *the prophets enquired and searched diligently,* 1Pe 1:10.
 
@@ -42,10 +42,10 @@ V\. That all the reproach cast upon religion and the serious professors of it sh
 
 ## The Blessings of the Gospel. (b. c. 718.)
 
-> <sup>9</sup> And it shall be said in that day, Lo, this *is* our God; we have waited for him, and he will save us: this *is* the LORD; we have waited for him, we will be glad and rejoice in his salvation.  
-> <sup>10</sup> For in this mountain shall the hand of the LORD rest, and Moab shall be trodden down under him, even as straw is trodden down for the dunghill.  
-> <sup>11</sup> And he shall spread forth his hands in the midst of them, as he that swimmeth spreadeth forth *his hands* to swim: and he shall bring down their pride together with the spoils of their hands.  
-> <sup>12</sup> And the fortress of the high fort of thy walls shall he bring down, lay low, *and* bring to the ground, *even* to the dust.  
+> **⁹** And it shall be said in that day, Lo, this *is* our God; we have waited for him, and he will save us: this *is* the LORD; we have waited for him, we will be glad and rejoice in his salvation.  
+> **¹⁰** For in this mountain shall the hand of the LORD rest, and Moab shall be trodden down under him, even as straw is trodden down for the dunghill.  
+> **¹¹** And he shall spread forth his hands in the midst of them, as he that swimmeth spreadeth forth *his hands* to swim: and he shall bring down their pride together with the spoils of their hands.  
+> **¹²** And the fortress of the high fort of thy walls shall he bring down, lay low, *and* bring to the ground, *even* to the dust.  
 
 Here is, I. The welcome which the church shall give to these blessings promised in the foregoing verses (Isa 25:9): *It shall be said in that day,* with a humble holy triumph and exultation, *Lo, this is our God; we have waited for him!* Thus will the deliverance of the church out of long and sore troubles be celebrated; thus will it be as life from the dead. With such transports of joy and praise will those entertain the glad tidings of the Redeemer who looked for him, and for redemption in Jerusalem by him; and with such a triumphant song as this will glorified saints *enter into the joy of their Lord.* 1. God himself must have the glory of all: "*Lo, this is our God, this is the Lord.* This which is done is his doing, and it is marvellous in our eyes. Herein he has done like himself, has magnified his own wisdom, power, and goodness. Herein he has done for us like our God, a God in covenant with us, and whom we serve." Note, Our triumphs must not terminate in what God does for us and gives to us, but must pass through them to himself, who is the author and giver of them: *This is our God.* Have any of the nations of the earth such a God to trust to? No, *their rock is not as our rock. There is none like unto the God of Jerusalem.* 2. The longer it has been expected the more welcome it is. "This is he whom we have waited for, in dependence upon his word of promise, and a full assurance that he would come in the set time, in due time, and therefore we were willing to tarry his time; and now we find it is not in vain to wait for him, for the mercy comes at last, with an abundant recompence for the delay." 3. It is matter of joy unspeakable: "*We will be glad and rejoice in his salvation.* We that share in the benefits of it will concur in the joyful thanksgivings for it." 4. It is an encouragement to hope for the continuance and perfection of this salvation: *We have waited for him, and he will save us,* will carry on what he has begun; for *as for God,* our God, *his work is perfect.*
 

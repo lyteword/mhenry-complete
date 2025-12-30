@@ -8,37 +8,37 @@ This chapter is concerning the lamps or lights of the sanctuary. I. The burning 
 
 ## The Lights of the Sanctuary. (b. c. 1490.)
 
-> <sup>1</sup> And the LORD spake unto Moses, saying,  
-> <sup>2</sup> Speak unto Aaron, and say unto him, When thou lightest the lamps, the seven lamps shall give light over against the candlestick.  
-> <sup>3</sup> And Aaron did so; he lighted the lamps thereof over against the candlestick, as the LORD commanded Moses.  
-> <sup>4</sup> And this work of the candlestick *was of* beaten gold, unto the shaft thereof, unto the flowers thereof, *was* beaten work: according unto the pattern which the LORD had showed Moses, so he made the candlestick.  
+> **¹** And the LORD spake unto Moses, saying,  
+> **²** Speak unto Aaron, and say unto him, When thou lightest the lamps, the seven lamps shall give light over against the candlestick.  
+> **³** And Aaron did so; he lighted the lamps thereof over against the candlestick, as the LORD commanded Moses.  
+> **⁴** And this work of the candlestick *was of* beaten gold, unto the shaft thereof, unto the flowers thereof, *was* beaten work: according unto the pattern which the LORD had showed Moses, so he made the candlestick.  
 
 Directions were given long before this for the making of the golden candlestick (Ex 25:31), and it was made according to the pattern shown to Moses in the mount, Ex 38:17. But now it was that the lamps were first ordered to be lighted, when other things began to be used. Observe, 1. Who must light the lamps; Aaron himself, he *lighted the lamps,* Nu 8:3. As the people's representative to God, he thus did the office of a servant in God's house, lighting his Master's candle; as the representative of God to the people, he thus gave them the intimations of God's will and favour, thus expressed (Ps 18:28), *Thou wilt light my candle;* and thus Aaron himself was now lately directed to bless the people, *The Lord make his face to shine upon thee,* Nu 6:25. The commandment is a *lamp,* Pr 6:23. The scripture is *a light shining in a dark place,* 2Pe 1:19. And a dark place indeed even the church would be without it, as the tabernacle (which had no window in it) without the lamps. Now the work of ministers is to light these lamps, by expounding and applying the word of God. The priest lighted the middle lamp from the fire of the altar, and the rest of the lamps he lighted one from another, which (says Mr. Ainsworth) signifies that the fountain of all light and knowledge is in Christ, who has the *seven spirits of God* figured by the *seven lamps of fire* (Re 4:5), but that in the expounding of scripture one passage must borrow light from another. He also supposes that, *seven* being a number of perfection, by the seven branches of the candlestick is shown the full perfection of the scriptures, which are able to make us wise to salvation. 2. To what end the lamps were lighted, that they might give light *over against the candlestick,* that is, to that part of the tabernacle where the table stood, with the show-bread upon it, over against the candlestick. They were not lighted like tapers in an urn, to burn to themselves, but to give light to the other side of the tabernacle, for therefore candles are lighted, Mt 5:15. Note, The lights of the world, the lights of the church, must shine as lights. Therefore we have light, that we may give light.
 
 ## The Consecration of the Levites. (b. c. 1490.)
 
-> <sup>5</sup> And the LORD spake unto Moses, saying,  
-> <sup>6</sup> Take the Levites from among the children of Israel, and cleanse them.  
-> <sup>7</sup> And thus shalt thou do unto them, to cleanse them: Sprinkle water of purifying upon them, and let them shave all their flesh, and let them wash their clothes, and *so* make themselves clean.  
-> <sup>8</sup> Then let them take a young bullock with his meat offering, *even* fine flour mingled with oil, and another young bullock shalt thou take for a sin offering.  
-> <sup>9</sup> And thou shalt bring the Levites before the tabernacle of the congregation: and thou shalt gather the whole assembly of the children of Israel together:  
-> <sup>10</sup> And thou shalt bring the Levites before the LORD: and the children of Israel shall put their hands upon the Levites:  
-> <sup>11</sup> And Aaron shall offer the Levites before the LORD *for* an offering of the children of Israel, that they may execute the service of the LORD.  
-> <sup>12</sup> And the Levites shall lay their hands upon the heads of the bullocks: and thou shalt offer the one *for* a sin offering, and the other *for* a burnt offering, unto the LORD, to make an atonement for the Levites.  
-> <sup>13</sup> And thou shalt set the Levites before Aaron, and before his sons, and offer them *for* an offering unto the LORD.  
-> <sup>14</sup> Thus shalt thou separate the Levites from among the children of Israel: and the Levites shall be mine.  
-> <sup>15</sup> And after that shall the Levites go in to do the service of the tabernacle of the congregation: and thou shalt cleanse them, and offer them *for* an offering.  
-> <sup>16</sup> For they *are* wholly given unto me from among the children of Israel; instead of such as open every womb, *even instead of* the firstborn of all the children of Israel, have I taken them unto me.  
-> <sup>17</sup> For all the firstborn of the children of Israel *are* mine, *both* man and beast: on the day that I smote every firstborn in the land of Egypt I sanctified them for myself.  
-> <sup>18</sup> And I have taken the Levites for all the firstborn of the children of Israel.  
-> <sup>19</sup> And I have given the Levites *as* a gift to Aaron and to his sons from among the children of Israel, to do the service of the children of Israel in the tabernacle of the congregation, and to make an atonement for the children of Israel: that there be no plague among the children of Israel, when the children of Israel come nigh unto the sanctuary.  
-> <sup>20</sup> And Moses, and Aaron, and all the congregation of the children of Israel, did to the Levites according unto all that the LORD commanded Moses concerning the Levites, so did the children of Israel unto them.  
-> <sup>21</sup> And the Levites were purified, and they washed their clothes; and Aaron offered them *as* an offering before the LORD; and Aaron made an atonement for them to cleanse them.  
-> <sup>22</sup> And after that went the Levites in to do their service in the tabernacle of the congregation before Aaron, and before his sons: as the LORD had commanded Moses concerning the Levites, so did they unto them.  
-> <sup>23</sup> And the LORD spake unto Moses, saying,  
-> <sup>24</sup> This *is it* that *belongeth* unto the Levites: from twenty and five years old and upward they shall go in to wait upon the service of the tabernacle of the congregation:  
-> <sup>25</sup> And from the age of fifty years they shall cease waiting upon the service *thereof,* and shall serve no more:  
-> <sup>26</sup> But shall minister with their brethren in the tabernacle of the congregation, to keep the charge, and shall do no service. Thus shalt thou do unto the Levites touching their charge.  
+> **⁵** And the LORD spake unto Moses, saying,  
+> **⁶** Take the Levites from among the children of Israel, and cleanse them.  
+> **⁷** And thus shalt thou do unto them, to cleanse them: Sprinkle water of purifying upon them, and let them shave all their flesh, and let them wash their clothes, and *so* make themselves clean.  
+> **⁸** Then let them take a young bullock with his meat offering, *even* fine flour mingled with oil, and another young bullock shalt thou take for a sin offering.  
+> **⁹** And thou shalt bring the Levites before the tabernacle of the congregation: and thou shalt gather the whole assembly of the children of Israel together:  
+> **¹⁰** And thou shalt bring the Levites before the LORD: and the children of Israel shall put their hands upon the Levites:  
+> **¹¹** And Aaron shall offer the Levites before the LORD *for* an offering of the children of Israel, that they may execute the service of the LORD.  
+> **¹²** And the Levites shall lay their hands upon the heads of the bullocks: and thou shalt offer the one *for* a sin offering, and the other *for* a burnt offering, unto the LORD, to make an atonement for the Levites.  
+> **¹³** And thou shalt set the Levites before Aaron, and before his sons, and offer them *for* an offering unto the LORD.  
+> **¹⁴** Thus shalt thou separate the Levites from among the children of Israel: and the Levites shall be mine.  
+> **¹⁵** And after that shall the Levites go in to do the service of the tabernacle of the congregation: and thou shalt cleanse them, and offer them *for* an offering.  
+> **¹⁶** For they *are* wholly given unto me from among the children of Israel; instead of such as open every womb, *even instead of* the firstborn of all the children of Israel, have I taken them unto me.  
+> **¹⁷** For all the firstborn of the children of Israel *are* mine, *both* man and beast: on the day that I smote every firstborn in the land of Egypt I sanctified them for myself.  
+> **¹⁸** And I have taken the Levites for all the firstborn of the children of Israel.  
+> **¹⁹** And I have given the Levites *as* a gift to Aaron and to his sons from among the children of Israel, to do the service of the children of Israel in the tabernacle of the congregation, and to make an atonement for the children of Israel: that there be no plague among the children of Israel, when the children of Israel come nigh unto the sanctuary.  
+> **²⁰** And Moses, and Aaron, and all the congregation of the children of Israel, did to the Levites according unto all that the LORD commanded Moses concerning the Levites, so did the children of Israel unto them.  
+> **²¹** And the Levites were purified, and they washed their clothes; and Aaron offered them *as* an offering before the LORD; and Aaron made an atonement for them to cleanse them.  
+> **²²** And after that went the Levites in to do their service in the tabernacle of the congregation before Aaron, and before his sons: as the LORD had commanded Moses concerning the Levites, so did they unto them.  
+> **²³** And the LORD spake unto Moses, saying,  
+> **²⁴** This *is it* that *belongeth* unto the Levites: from twenty and five years old and upward they shall go in to wait upon the service of the tabernacle of the congregation:  
+> **²⁵** And from the age of fifty years they shall cease waiting upon the service *thereof,* and shall serve no more:  
+> **²⁶** But shall minister with their brethren in the tabernacle of the congregation, to keep the charge, and shall do no service. Thus shalt thou do unto the Levites touching their charge.  
 
 We read before of the separating of the Levites from among the children of Israel when they were numbered, and the numbering of them by themselves (Nu 3:6,15), that they might be employed in the service of the tabernacle. Now here we have directions given for their solemn ordination (Nu 8:6), and the performance of it, Nu 8:20. All Israel must know that they took not this honour to themselves, but were called of God to it; nor was it enough that they were distinguished from their neighbours, but they must be solemnly devoted to God. Note, All that are employed for God must be dedicated to him, according as the degree of employment is. Christian musts be baptized, ministers must be ordained; we must first give ourselves unto the Lord, and then our services. Observe in what method this was done:
 

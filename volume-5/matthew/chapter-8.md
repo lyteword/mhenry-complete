@@ -8,10 +8,10 @@ The evangelist having, in the foregoing chapters, given us a specimen of our Lor
 
 ## The Leper Healed.
 
-> <sup>1</sup> When he was come down from the mountain, great multitudes followed him.  
-> <sup>2</sup> And, behold, there came a leper and worshipped him, saying, Lord, if thou wilt, thou canst make me clean.  
-> <sup>3</sup> And Jesus put forth *his* hand, and touched him, saying, I will; be thou clean. And immediately his leprosy was cleansed.  
-> <sup>4</sup> And Jesus saith unto him, See thou tell no man; but go thy way, show thyself to the priest, and offer the gift that Moses commanded, for a testimony unto them.  
+> **¹** When he was come down from the mountain, great multitudes followed him.  
+> **²** And, behold, there came a leper and worshipped him, saying, Lord, if thou wilt, thou canst make me clean.  
+> **³** And Jesus put forth *his* hand, and touched him, saying, I will; be thou clean. And immediately his leprosy was cleansed.  
+> **⁴** And Jesus saith unto him, See thou tell no man; but go thy way, show thyself to the priest, and offer the gift that Moses commanded, for a testimony unto them.  
 
 The first verse refers to the close of the foregoing sermon: the people that heard him were *astonished at his doctrine;* and the effect was, that *when he came down from the mountain, great multitudes followed him;* though he was so strict a Lawgiver, and so faithful a Reprover, they diligently attended him, and were loth to disperse, and go from him. Note, They to whom Christ has manifested himself, cannot but desire to be better acquainted with him. They who know much of Christ should covet to know more; and *then shall we know, if we* thus *follow on to know the Lord.* It is pleasing to see people so well affected to Christ, as to think they can never hear enough of him; so well affected to the best things, as thus to flock after good preaching, and to *follow the Lamb* withersoever he goes. Now was Jacob's prophecy concerning the Messiah fulfilled, that *unto him shall the gathering of the people be;* yet they who gathered to him did not cleave to him. They who followed him closely and constantly were but few, compared with the multitudes that were but followers at large.
 
@@ -41,15 +41,15 @@ IV\. The after-directions Christ gave him. It is fit that they who are cured by 
 
 ## Christ Heals the Centurion's Servant.
 
-> <sup>5</sup> And when Jesus was entered into Capernaum, there came unto him a centurion, beseeching him,  
-> <sup>6</sup> And saying, Lord, my servant lieth at home sick of the palsy, grievously tormented.  
-> <sup>7</sup> And Jesus saith unto him, I will come and heal him.  
-> <sup>8</sup> The centurion answered and said, Lord, I am not worthy that thou shouldest come under my roof: but speak the word only, and my servant shall be healed.  
-> <sup>9</sup> For I am a man under authority, having soldiers under me: and I say to this *man,* Go, and he goeth; and to another, Come, and he cometh; and to my servant, Do this, and he doeth *it.*  
-> <sup>10</sup> When Jesus heard *it,* he marvelled, and said to them that followed, Verily I say unto you, I have not found so great faith, no, not in Israel.  
-> <sup>11</sup> And I say unto you, That many shall come from the east and west, and shall sit down with Abraham, and Isaac, and Jacob, in the kingdom of heaven.  
-> <sup>12</sup> But the children of the kingdom shall be cast out into outer darkness: there shall be weeping and gnashing of teeth.  
-> <sup>13</sup> And Jesus said unto the centurion, Go thy way; and as thou hast believed, *so* be it done unto thee. And his servant was healed in the selfsame hour.  
+> **⁵** And when Jesus was entered into Capernaum, there came unto him a centurion, beseeching him,  
+> **⁶** And saying, Lord, my servant lieth at home sick of the palsy, grievously tormented.  
+> **⁷** And Jesus saith unto him, I will come and heal him.  
+> **⁸** The centurion answered and said, Lord, I am not worthy that thou shouldest come under my roof: but speak the word only, and my servant shall be healed.  
+> **⁹** For I am a man under authority, having soldiers under me: and I say to this *man,* Go, and he goeth; and to another, Come, and he cometh; and to my servant, Do this, and he doeth *it.*  
+> **¹⁰** When Jesus heard *it,* he marvelled, and said to them that followed, Verily I say unto you, I have not found so great faith, no, not in Israel.  
+> **¹¹** And I say unto you, That many shall come from the east and west, and shall sit down with Abraham, and Isaac, and Jacob, in the kingdom of heaven.  
+> **¹²** But the children of the kingdom shall be cast out into outer darkness: there shall be weeping and gnashing of teeth.  
+> **¹³** And Jesus said unto the centurion, Go thy way; and as thou hast believed, *so* be it done unto thee. And his servant was healed in the selfsame hour.  
 
 We have here an account of Christ's curing the centurion's servant of a palsy. This was done at Capernaum, where Christ now dwelt, Mt 4:13. Christ went about doing good, and came home to do good too; every place he came to was the better for him.
 
@@ -107,10 +107,10 @@ II\. Here is the grace of Christ appearing towards this centurion; for to the gr
 
 ## Peter's Wife's Mother Healed.
 
-> <sup>14</sup> And when Jesus was come into Peter's house, he saw his wife's mother laid, and sick of a fever.  
-> <sup>15</sup> And he touched her hand, and the fever left her: and she arose, and ministered unto them.  
-> <sup>16</sup> When the even was come, they brought unto him many that were possessed with devils: and he cast out the spirits with *his* word, and healed all that were sick:  
-> <sup>17</sup> That it might be fulfilled which was spoken by Esaias the prophet, saying, Himself took our infirmities, and bare *our* sicknesses.  
+> **¹⁴** And when Jesus was come into Peter's house, he saw his wife's mother laid, and sick of a fever.  
+> **¹⁵** And he touched her hand, and the fever left her: and she arose, and ministered unto them.  
+> **¹⁶** When the even was come, they brought unto him many that were possessed with devils: and he cast out the spirits with *his* word, and healed all that were sick:  
+> **¹⁷** That it might be fulfilled which was spoken by Esaias the prophet, saying, Himself took our infirmities, and bare *our* sicknesses.  
 
 They who pretend to be critical in the Harmony of the evangelists, place this passage, and all that follows to the end of Mt 8:14-9:38 before the sermon on the mount, according to the order which Mark and Luke observe in placing it. Dr. Lightfoot places only this passage before the sermon on the mount, and Mt 8:18, etc. after. Here we have,
 
@@ -128,11 +128,11 @@ II\. Here is a general account of the many cures that Christ wrought. This cure 
 
 ## Christ's Answer to a Scribe and Another.
 
-> <sup>18</sup> Now when Jesus saw great multitudes about him, he gave commandment to depart unto the other side.  
-> <sup>19</sup> And a certain scribe came, and said unto him, Master, I will follow thee whithersoever thou goest.  
-> <sup>20</sup> And Jesus saith unto him, The foxes have holes, and the birds of the air *have* nests; but the Son of man hath not where to lay *his* head.  
-> <sup>21</sup> And another of his disciples said unto him, Lord, suffer me first to go and bury my father.  
-> <sup>22</sup> But Jesus said unto him, Follow me; and let the dead bury their dead.  
+> **¹⁸** Now when Jesus saw great multitudes about him, he gave commandment to depart unto the other side.  
+> **¹⁹** And a certain scribe came, and said unto him, Master, I will follow thee whithersoever thou goest.  
+> **²⁰** And Jesus saith unto him, The foxes have holes, and the birds of the air *have* nests; but the Son of man hath not where to lay *his* head.  
+> **²¹** And another of his disciples said unto him, Lord, suffer me first to go and bury my father.  
+> **²²** But Jesus said unto him, Follow me; and let the dead bury their dead.  
 
 Here is, I. Christ's removing to *the other side of the sea of Tiberias,* and his ordering his disciples, whose boats attended him, to get their transport-vessels ready, in order to it, Mt 8:18. The influences of this Sun of righteousness were not to be confined to one place, but diffused all the country over; he must go about to do good; the necessities of souls called to him, *Come over, and help us* (Ac 16:9); he removed *when he saw great multitudes about him.* Though by this it appeared that they were desirous to have him there, he knew there were others as desirous to have him with them, and they must have their share of him: his being acceptable and useful in one place was no objection against, but a reason for, his going to another. Thus he would try the multitudes that were *about him,* whether their zeal would carry them to follow him, and attend on him, when his preaching was removed to some distance. Many would be glad of such helps, if they could have them at next door, who will not be at the pains to follow them to *the other side;* and thus Christ shook off those who were less zealous, and the perfect were made manifest.
 
@@ -158,11 +158,11 @@ We have here Christ's managing of two different tempers, one quick and eager, th
 
 ## Jesus Allays a Storm.
 
-> <sup>23</sup> And when he was entered into a ship, his disciples followed him.  
-> <sup>24</sup> And, behold, there arose a great tempest in the sea, insomuch that the ship was covered with the waves: but he was asleep.  
-> <sup>25</sup> And his disciples came to *him,* and awoke him, saying, Lord, save us: we perish.  
-> <sup>26</sup> And he saith unto them, Why are ye fearful, O ye of little faith? Then he arose, and rebuked the winds and the sea; and there was a great calm.  
-> <sup>27</sup> But the men marvelled, saying, What manner of man is this, that even the winds and the sea obey him!  
+> **²³** And when he was entered into a ship, his disciples followed him.  
+> **²⁴** And, behold, there arose a great tempest in the sea, insomuch that the ship was covered with the waves: but he was asleep.  
+> **²⁵** And his disciples came to *him,* and awoke him, saying, Lord, save us: we perish.  
+> **²⁶** And he saith unto them, Why are ye fearful, O ye of little faith? Then he arose, and rebuked the winds and the sea; and there was a great calm.  
+> **²⁷** But the men marvelled, saying, What manner of man is this, that even the winds and the sea obey him!  
 
 Christ had given sailing orders to his disciples (Mt 8:18), that they should *depart to the other side of the sea of Tiberias,* into the country of Gadara, in the tribe of Gad, which lay east of Jordan; thither he would go to rescue a poor creature that was possessed *with a legion of devils,* though he foresaw how he should be affronted there. Now. 1. He chose to go by water. It had not been much about, if he had gone by land; but he chose to cross the lake, that he might have occasion to manifest himself the God *of the sea* as well as of *the dry land,* and to show that *all power is his, both in heaven and in earth.* It is a comfort to those *who go down to the sea in ships,* and are often in perils there, to reflect that they have a Saviour to trust in, and pray to, who knows what it is to be at sea, and to be in storms there. But observe, when he went to sea, he had no yacht or pleasure-boat to attend him, but made use of his disciples' fishing-boats; so poorly was he accommodated in all respects. 2. *His disciples followed him;* the twelve kept close to him, when others staid behind upon the *terra firma,* where there was sure footing. Note, They, and they only, will be found the true disciples of Christ, that are willing to go to sea with him, to follow him into dangers and difficulties. Many would be content to go the land-way to heaven, that will rather stand still, or go back, than venture upon a dangerous sea; but those that would rest with Christ hereafter must follow him now wherever he leads them, into a ship or into a prison, as well as into a palace. Now observe here,
 
@@ -184,13 +184,13 @@ II\. The power and grace of Jesus Christ put forth for their succour: then the L
 
 ## The Devils Cast Out of Two Men.
 
-> <sup>28</sup> And when he was come to the other side into the country of the Gergesenes, there met him two possessed with devils, coming out of the tombs, exceeding fierce, so that no man might pass by that way.  
-> <sup>29</sup> And, behold, they cried out, saying, What have we to do with thee, Jesus, thou Son of God? art thou come hither to torment us before the time?  
-> <sup>30</sup> And there was a good way off from them a herd of many swine feeding.  
-> <sup>31</sup> So the devils besought him, saying, If thou cast us out, suffer us to go away into the herd of swine.  
-> <sup>32</sup> And he said unto them, Go. And when they were come out, they went into the herd of swine: and, behold, the whole herd of swine ran violently down a steep place into the sea, and perished in the waters.  
-> <sup>33</sup> And they that kept them fled, and went their ways into the city, and told every thing, and what was befallen to the possessed of the devils.  
-> <sup>34</sup> And, behold, the whole city came out to meet Jesus: and when they saw him, they besought *him* that he would depart out of their coasts.  
+> **²⁸** And when he was come to the other side into the country of the Gergesenes, there met him two possessed with devils, coming out of the tombs, exceeding fierce, so that no man might pass by that way.  
+> **²⁹** And, behold, they cried out, saying, What have we to do with thee, Jesus, thou Son of God? art thou come hither to torment us before the time?  
+> **³⁰** And there was a good way off from them a herd of many swine feeding.  
+> **³¹** So the devils besought him, saying, If thou cast us out, suffer us to go away into the herd of swine.  
+> **³²** And he said unto them, Go. And when they were come out, they went into the herd of swine: and, behold, the whole herd of swine ran violently down a steep place into the sea, and perished in the waters.  
+> **³³** And they that kept them fled, and went their ways into the city, and told every thing, and what was befallen to the possessed of the devils.  
+> **³⁴** And, behold, the whole city came out to meet Jesus: and when they saw him, they besought *him* that he would depart out of their coasts.  
 
 We have here the story of Christ's casting the devils out of two men that were possessed. The scope of this chapter is to show the divine power of Christ, by the instances of his dominion over bodily diseases, which to us are irresistible; over winds and waves, which to us are yet more uncontrollable; and lastly, over devils, which to us are most formidable of all. Christ has not only all *power in heaven and earth* and all deep places, but has the keys of hell too. *Principalities and powers were made subject to him,* even while he was in his estate of humiliation, as an earnest of what should be at his entrance into his glory (Eph 1:21); he spoiled them, Col 2:15. It was observed in general (Mt 8:16), that Christ *cast out the spirits with his word;* here we have a particular instance of it, which have some circumstances more remarkable than the rest. This miracle was wrought in the country of the Gergesenes; some think, they were the remains of the old Girgashites, De 7:1. Though Christ was sent chiefly *to the lost sheep of the house of Israel,* yet some sallies he made among the borderers, as here, to gain this victory over Satan, which was a specimen of the conquest of his legions in the Gentile world.
 

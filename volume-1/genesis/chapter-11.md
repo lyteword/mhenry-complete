@@ -8,10 +8,10 @@ The old distinction between the sons of God and the sons of men (professors and 
 
 ## The Confusion of Tongues. (b. c. 2247.)
 
-> <sup>1</sup> And the whole earth was of one language, and of one speech.  
-> <sup>2</sup> And it came to pass, as they journeyed from the east, that they found a plain in the land of Shinar; and they dwelt there.  
-> <sup>3</sup> And they said one to another, Go to, let us make brick, and burn them thoroughly. And they had brick for stone, and slime had they for mortar.  
-> <sup>4</sup> And they said, Go to, let us build us a city and a tower, whose top *may reach* unto heaven; and let us make us a name, lest we be scattered abroad upon the face of the whole earth.  
+> **¹** And the whole earth was of one language, and of one speech.  
+> **²** And it came to pass, as they journeyed from the east, that they found a plain in the land of Shinar; and they dwelt there.  
+> **³** And they said one to another, Go to, let us make brick, and burn them thoroughly. And they had brick for stone, and slime had they for mortar.  
+> **⁴** And they said, Go to, let us build us a city and a tower, whose top *may reach* unto heaven; and let us make us a name, lest we be scattered abroad upon the face of the whole earth.  
 
 The close of the foregoing chapter tells us that *by* the sons of Noah, or *among* the sons of Noah, *the nations were divided in the earth after the flood,* that is, were distinguished into several tribes or colonies; and, the places having grown too strait for them, it was either appointed by Noah, or agreed upon among his sons, which way each several tribe or colony should steer its course, beginning with the countries that were next to them, and designing to proceed farther and farther, and to remove to a greater distance from each other, as the increase of their several companies should require. Thus was the matter well settled, one hundred years after the flood, about the time of Peleg's birth; but the sons of men, it should seem, were loth to disperse into distant places; they thought the more the merrier and the safer, and therefore they contrived to keep together, and were *slack to go to possess the land which the Lord God of their fathers had given them* (Jos 18:3), thinking themselves wiser than either God or Noah. Now here we have,
 
@@ -31,11 +31,11 @@ II\. The method they took to bind themselves to one another, and to settle toget
 
 (3.) They did it to prevent their dispersion: *Lest we be scattered abroad upon the face of the earth.* "It was done" (says Josephus) "in disobedience to that command (Ge 9:1), *Replenish the earth.*" God orders them to disperse. "No," say they, "we will not, we will live and die together." In order hereunto, they engage themselves and one another in this vast undertaking. That they might unite in one glorious empire, they resolve to build this city and tower, to be the metropolis of their kingdom and the centre of their unity. It is probable that the band of ambitious Nimrod was in all this. He could not content himself with the command of a particular colony, but aimed at universal monarchy, in order to which, under pretence of uniting for their common safety, he contrives to keep them in one body, that, having them all under his eye, he might not fail to have them under his power. See the daring presumption of these sinners. Here is, [1.] A bold opposition to God: "You shall be scattered," says God. "But we will not," say they. *Woe unto him that thus strives with his Maker.* [2.] A bold competition with God. It is God's prerogative to be universal monarch, Lord of all, and King of kings; the man that aims at it offers to step into the throne of God, who will not give his glory to another.
 
-> <sup>5</sup> And the LORD came down to see the city and the tower, which the children of men builded.  
-> <sup>6</sup> And the LORD said, Behold, the people *is* one, and they have all one language; and this they begin to do: and now nothing will be restrained from them, which they have imagined to do.  
-> <sup>7</sup> Go to, let us go down, and there confound their language, that they may not understand one another's speech.  
-> <sup>8</sup> So the LORD scattered them abroad from thence upon the face of all the earth: and they left off to build the city.  
-> <sup>9</sup> Therefore is the name of it called Babel; because the LORD did there confound the language of all the earth: and from thence did the LORD scatter them abroad upon the face of all the earth.  
+> **⁵** And the LORD came down to see the city and the tower, which the children of men builded.  
+> **⁶** And the LORD said, Behold, the people *is* one, and they have all one language; and this they begin to do: and now nothing will be restrained from them, which they have imagined to do.  
+> **⁷** Go to, let us go down, and there confound their language, that they may not understand one another's speech.  
+> **⁸** So the LORD scattered them abroad from thence upon the face of all the earth: and they left off to build the city.  
+> **⁹** Therefore is the name of it called Babel; because the LORD did there confound the language of all the earth: and from thence did the LORD scatter them abroad upon the face of all the earth.  
 
 We have here the quashing of the project of the Babel-builders, and the turning of the counsel of those froward men headlong, that God's counsel might stand in spite of them. Here is,
 
@@ -59,34 +59,34 @@ III\. The execution of these counsels of God, to the blasting and defeating of t
 
 3\. The builders were scattered abroad upon the face of the whole earth, Ge 11:8,9. They departed in companies, after their families, and after their tongues (Ge 10:5,20,31), to the several countries and places allotted to them in the division that had been made, which they knew before, but would not go to take possession of till now that they were forced to it. Observe here, (1.) The very thing which they feared came upon them. That dispersion which sought to evade by an act of rebellion they by this act brought upon themselves; for we are most likely to fall into that trouble which we seek to evade by indirect and sinful methods. (2.) It was God's work: *The Lord scattered them.* God's hand is to be acknowledged in all scattering providences; if the family be scattered, relations scattered, churches scattered, it is the Lord's doing. (3.) Though they were as firmly in league with one another as could be, yet the Lord scattered them; for no man can keep together what God will put asunder. (4.) Thus God justly took vengeance on them for their oneness in that presumptuous attempt to build their tower. Shameful dispersions are the just punishment of sinful unions. Simeon and Levi, who had been brethren in iniquity, were divided in Jacob, Ge 49:5,7, Ps 83:3-13. (5.) They left behind them a perpetual memorandum of their reproach, in the name given to the place. It was called *Babel, confusion.* Those that aim at a great name commonly come off with a *bad* name. (6.) The children of men were now finally scattered, and never did, nor ever will, come all together again, till the great day, when the Son of man shall sit upon the throne of his glory, and all nations shall be gathered before him, Mt 25:31,32.
 
-> <sup>10</sup> These *are* the generations of Shem: Shem *was* a hundred years old, and begat Arphaxad two years after the flood:  
-> <sup>11</sup> And Shem lived after he begat Arphaxad five hundred years, and begat sons and daughters.  
-> <sup>12</sup> And Arphaxad lived five and thirty years, and begat Salah:  
-> <sup>13</sup> And Arphaxad lived after he begat Salah four hundred and three years, and begat sons and daughters.  
-> <sup>14</sup> And Salah lived thirty years, and begat Eber:  
-> <sup>15</sup> And Salah lived after he begat Eber four hundred and three years, and begat sons and daughters.  
-> <sup>16</sup> And Eber lived four and thirty years, and begat Peleg:  
-> <sup>17</sup> And Eber lived after he begat Peleg four hundred and thirty years, and begat sons and daughters.  
-> <sup>18</sup> And Peleg lived thirty years, and begat Reu:  
-> <sup>19</sup> And Peleg lived after he begat Reu two hundred and nine years, and begat sons and daughters.  
-> <sup>20</sup> And Reu lived two and thirty years, and begat Serug:  
-> <sup>21</sup> And Reu lived after he begat Serug two hundred and seven years, and begat sons and daughters.  
-> <sup>22</sup> And Serug lived thirty years, and begat Nahor:  
-> <sup>23</sup> And Serug lived after he begat Nahor two hundred years, and begat sons and daughters.  
-> <sup>24</sup> And Nahor lived nine and twenty years, and begat Terah:  
-> <sup>25</sup> And Nahor lived after he begat Terah a hundred and nineteen years, and begat sons and daughters.  
-> <sup>26</sup> And Terah lived seventy years, and begat Abram, Nahor, and Haran.  
+> **¹⁰** These *are* the generations of Shem: Shem *was* a hundred years old, and begat Arphaxad two years after the flood:  
+> **¹¹** And Shem lived after he begat Arphaxad five hundred years, and begat sons and daughters.  
+> **¹²** And Arphaxad lived five and thirty years, and begat Salah:  
+> **¹³** And Arphaxad lived after he begat Salah four hundred and three years, and begat sons and daughters.  
+> **¹⁴** And Salah lived thirty years, and begat Eber:  
+> **¹⁵** And Salah lived after he begat Eber four hundred and three years, and begat sons and daughters.  
+> **¹⁶** And Eber lived four and thirty years, and begat Peleg:  
+> **¹⁷** And Eber lived after he begat Peleg four hundred and thirty years, and begat sons and daughters.  
+> **¹⁸** And Peleg lived thirty years, and begat Reu:  
+> **¹⁹** And Peleg lived after he begat Reu two hundred and nine years, and begat sons and daughters.  
+> **²⁰** And Reu lived two and thirty years, and begat Serug:  
+> **²¹** And Reu lived after he begat Serug two hundred and seven years, and begat sons and daughters.  
+> **²²** And Serug lived thirty years, and begat Nahor:  
+> **²³** And Serug lived after he begat Nahor two hundred years, and begat sons and daughters.  
+> **²⁴** And Nahor lived nine and twenty years, and begat Terah:  
+> **²⁵** And Nahor lived after he begat Terah a hundred and nineteen years, and begat sons and daughters.  
+> **²⁶** And Terah lived seventy years, and begat Abram, Nahor, and Haran.  
 
 We have here a genealogy, not an endless genealogy, for here it ends in Abram, the friend of God, and leads further to Christ, the promised seed, who was the son of Abram, and from Abram the genealogy of Christ is reckoned (Mt 1:1-17, etc.); so that put Ge 5, 11:10-26, Matt. 1:1-17, together, and you have such an entire genealogy of Jesus Christ as cannot be produced, for aught I know, concerning any person in the world, out of his line, and at such a distance from the fountain-head. And, laying these three genealogies together, we shall find that twice ten, and thrice fourteen, generations or descents, passed between the first and second Adam, making it clear concerning Christ that he was not only the Son of Abraham, but the Son of man, and the seed of woman. Observe here, 1. Nothing is left upon record concerning those of this line but their names and ages, the Holy Ghost seeming to hasten through them to the story of Abram. How little do we know of those that have gone before us in this world, even those that lived in the same places where we live, as we likewise know little of those that are our contemporaries in distant places! we have enough to do to mind the work of our own day, and let God alone to *require that which is past,* Ec 3:15. 2. There was an observable gradual decrease in the years of their lives. Shem reached to 600 years, which yet fell short of the age of the patriarchs before the flood; the next three came short of 500; the next three did not reach to 300; after them we read not of any that attained to 200, except Terah; and, not many ages after this, Moses reckoned seventy, or eighty, to be the utmost men ordinarily arrive at. When the earth began to be replenished, men's lives began to shorten; so that the decrease is to be imputed to the wise disposal of Providence, rather than to any decay of nature. For the elect's sake, men's days are shortened; and, being evil, it is well they are few, and *attain not to the years of the lives of our fathers,* Ge 47:9. 3. Eber, from whom the Hebrews were denominated, was the longest-lived of any that was born after the flood, which perhaps was the reward of his singular piety and strict adherence to the ways of God.
 
 ## The Generations of Terah. (b. c. 1921.)
 
-> <sup>27</sup> Now these *are* the generations of Terah: Terah begat Abram, Nahor, and Haran; and Haran begat Lot.  
-> <sup>28</sup> And Haran died before his father Terah in the land of his nativity, in Ur of the Chaldees.  
-> <sup>29</sup> And Abram and Nahor took them wives: the name of Abram's wife *was* Sarai; and the name of Nahor's wife, Milcah, the daughter of Haran, the father of Milcah, and the father of Iscah.  
-> <sup>30</sup> But Sarai was barren; she *had* no child.  
-> <sup>31</sup> And Terah took Abram his son, and Lot the son of Haran his son's son, and Sarai his daughter in law, his son Abram's wife; and they went forth with them from Ur, of the Chaldees, to go into the land of Canaan; and they came unto Haran, and dwelt there.  
-> <sup>32</sup> And the days of Terah were two hundred and five years: and Terah died in Haran.  
+> **²⁷** Now these *are* the generations of Terah: Terah begat Abram, Nahor, and Haran; and Haran begat Lot.  
+> **²⁸** And Haran died before his father Terah in the land of his nativity, in Ur of the Chaldees.  
+> **²⁹** And Abram and Nahor took them wives: the name of Abram's wife *was* Sarai; and the name of Nahor's wife, Milcah, the daughter of Haran, the father of Milcah, and the father of Iscah.  
+> **³⁰** But Sarai was barren; she *had* no child.  
+> **³¹** And Terah took Abram his son, and Lot the son of Haran his son's son, and Sarai his daughter in law, his son Abram's wife; and they went forth with them from Ur, of the Chaldees, to go into the land of Canaan; and they came unto Haran, and dwelt there.  
+> **³²** And the days of Terah were two hundred and five years: and Terah died in Haran.  
 
 Here begins the story of Abram, whose name is famous, henceforward, in both Testaments. We have here,
 

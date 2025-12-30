@@ -8,12 +8,12 @@ Preparations are herein making for that war which will put an end to the life an
 
 ## The Philistines Make War on Israel. (b. c. 1055.)
 
-> <sup>1</sup> And it came to pass in those days, that the Philistines gathered their armies together for warfare, to fight with Israel. And Achish said unto David, Know thou assuredly, that thou shalt go out with me to battle, thou and thy men.  
-> <sup>2</sup> And David said to Achish, Surely thou shalt know what thy servant can do. And Achish said to David, Therefore will I make thee keeper of mine head for ever.  
-> <sup>3</sup> Now Samuel was dead, and all Israel had lamented him, and buried him in Ramah, even in his own city. And Saul had put away those that had familiar spirits, and the wizards, out of the land.  
-> <sup>4</sup> And the Philistines gathered themselves together, and came and pitched in Shunem: and Saul gathered all Israel together, and they pitched in Gilboa.  
-> <sup>5</sup> And when Saul saw the host of the Philistines, he was afraid, and his heart greatly trembled.  
-> <sup>6</sup> And when Saul enquired of the LORD, the LORD answered him not, neither by dreams, nor by Urim, nor by prophets.  
+> **¹** And it came to pass in those days, that the Philistines gathered their armies together for warfare, to fight with Israel. And Achish said unto David, Know thou assuredly, that thou shalt go out with me to battle, thou and thy men.  
+> **²** And David said to Achish, Surely thou shalt know what thy servant can do. And Achish said to David, Therefore will I make thee keeper of mine head for ever.  
+> **³** Now Samuel was dead, and all Israel had lamented him, and buried him in Ramah, even in his own city. And Saul had put away those that had familiar spirits, and the wizards, out of the land.  
+> **⁴** And the Philistines gathered themselves together, and came and pitched in Shunem: and Saul gathered all Israel together, and they pitched in Gilboa.  
+> **⁵** And when Saul saw the host of the Philistines, he was afraid, and his heart greatly trembled.  
+> **⁶** And when Saul enquired of the LORD, the LORD answered him not, neither by dreams, nor by Urim, nor by prophets.  
 
 Here is, I. The design of the Philistines against Israel. They resolved to *fight them,* 1Sa 28:1. If the Israelites had not forsaken God, there would have been no Philistines remaining to molest them; if Saul had not forsaken him, they would by this time have been put out of all danger by them. The Philistines took an opportunity to make this attempt when they had David among them, whom they feared more than Saul and all his forces.
 
@@ -27,14 +27,14 @@ V\. The mention of some things that had happened a good while ago, to introduce 
 
 ## Saul Consults the Witch at Endor. (b. c. 1055.)
 
-> <sup>7</sup> Then said Saul unto his servants, Seek me a woman that hath a familiar spirit, that I may go to her, and enquire of her. And his servants said to him, Behold, *there is* a woman that hath a familiar spirit at Endor.  
-> <sup>8</sup> And Saul disguised himself, and put on other raiment, and he went, and two men with him, and they came to the woman by night: and he said, I pray thee, divine unto me by the familiar spirit, and bring me *him* up, whom I shall name unto thee.  
-> <sup>9</sup> And the woman said unto him, Behold, thou knowest what Saul hath done, how he hath cut off those that have familiar spirits, and the wizards, out of the land: wherefore then layest thou a snare for my life, to cause me to die?  
-> <sup>10</sup> And Saul sware to her by the LORD, saying, *As* the LORD liveth, there shall no punishment happen to thee for this thing.  
-> <sup>11</sup> Then said the woman, Whom shall I bring up unto thee? And he said, Bring me up Samuel.  
-> <sup>12</sup> And when the woman saw Samuel, she cried with a loud voice: and the woman spake to Saul, saying, Why hast thou deceived me? for thou *art* Saul.  
-> <sup>13</sup> And the king said unto her, Be not afraid: for what sawest thou? And the woman said unto Saul, I saw gods ascending out of the earth.  
-> <sup>14</sup> And he said unto her, What form *is* he of? And she said, An old man cometh up; and he *is* covered with a mantle. And Saul perceived that it *was* Samuel, and he stooped with *his* face to the ground, and bowed himself.  
+> **⁷** Then said Saul unto his servants, Seek me a woman that hath a familiar spirit, that I may go to her, and enquire of her. And his servants said to him, Behold, *there is* a woman that hath a familiar spirit at Endor.  
+> **⁸** And Saul disguised himself, and put on other raiment, and he went, and two men with him, and they came to the woman by night: and he said, I pray thee, divine unto me by the familiar spirit, and bring me *him* up, whom I shall name unto thee.  
+> **⁹** And the woman said unto him, Behold, thou knowest what Saul hath done, how he hath cut off those that have familiar spirits, and the wizards, out of the land: wherefore then layest thou a snare for my life, to cause me to die?  
+> **¹⁰** And Saul sware to her by the LORD, saying, *As* the LORD liveth, there shall no punishment happen to thee for this thing.  
+> **¹¹** Then said the woman, Whom shall I bring up unto thee? And he said, Bring me up Samuel.  
+> **¹²** And when the woman saw Samuel, she cried with a loud voice: and the woman spake to Saul, saying, Why hast thou deceived me? for thou *art* Saul.  
+> **¹³** And the king said unto her, Be not afraid: for what sawest thou? And the woman said unto Saul, I saw gods ascending out of the earth.  
+> **¹⁴** And he said unto her, What form *is* he of? And she said, An old man cometh up; and he *is* covered with a mantle. And Saul perceived that it *was* Samuel, and he stooped with *his* face to the ground, and bowed himself.  
 
 Here, I. Saul seeks for a witch, 1Sa 28:7. When God *answered him not,* if he had humbled himself by repentance and persevered in seeking God, who knows but that at length he might have been entreated for him? but, since he can discern no comfort either from heaven or earth (Isa 8:21,22), he resolves to knock at the gates of hell, and to see if any there will befriend him and give him advice: *Seek me a woman that has a familiar spirit,* 1Sa 28:7. And his servants were too officious to serve him in this evil affair; they presently recommended one to him at Endor (a city not far off) who had escaped the execution of Saul's edict. To her he resolves to apply. Herein he is chargeable, 1. With contempt of the God of Israel; as if any creature could do him a kindness when God had left him and frowned upon him. 2. With contradiction to himself. He knew the heinousness of the sin of witchcraft, else he would not have cut off those that had familiar spirits; yet now he had recourse to that as an oracle which he had before condemned as an abomination. It is common for men to inveigh severely against those sins which they are in no temptation to, but afterwards to be themselves overcome by them. Had one told Saul, when he was destroying the witches, that he himself would, ere long, consult with one, he would have said, as Hazael did, *What? Is thy servant a dog?* But who knows what mischiefs those will run into that forsake God and are forsaken of him?
 
@@ -46,11 +46,11 @@ IV\. Samuel, who was lately dead, is the person whom Saul desired to have some t
 
 ## Saul's Death Foretold. (b. c. 1055.)
 
-> <sup>15</sup> And Samuel said to Saul, Why hast thou disquieted me, to bring me up? And Saul answered, I am sore distressed; for the Philistines make war against me, and God is departed from me, and answereth me no more, neither by prophets, nor by dreams: therefore I have called thee, that thou mayest make known unto me what I shall do.  
-> <sup>16</sup> Then said Samuel, Wherefore then dost thou ask of me, seeing the LORD is departed from thee, and is become thine enemy?  
-> <sup>17</sup> And the LORD hath done to him, as he spake by me: for the LORD hath rent the kingdom out of thine hand, and given it to thy neighbour, *even* to David:  
-> <sup>18</sup> Because thou obeyedst not the voice of the LORD, nor executedst his fierce wrath upon Amalek, therefore hath the LORD done this thing unto thee this day.  
-> <sup>19</sup> Moreover the LORD will also deliver Israel with thee into the hand of the Philistines: and to morrow *shalt* thou and thy sons *be* with me: the LORD also shall deliver the host of Israel into the hand of the Philistines.  
+> **¹⁵** And Samuel said to Saul, Why hast thou disquieted me, to bring me up? And Saul answered, I am sore distressed; for the Philistines make war against me, and God is departed from me, and answereth me no more, neither by prophets, nor by dreams: therefore I have called thee, that thou mayest make known unto me what I shall do.  
+> **¹⁶** Then said Samuel, Wherefore then dost thou ask of me, seeing the LORD is departed from thee, and is become thine enemy?  
+> **¹⁷** And the LORD hath done to him, as he spake by me: for the LORD hath rent the kingdom out of thine hand, and given it to thy neighbour, *even* to David:  
+> **¹⁸** Because thou obeyedst not the voice of the LORD, nor executedst his fierce wrath upon Amalek, therefore hath the LORD done this thing unto thee this day.  
+> **¹⁹** Moreover the LORD will also deliver Israel with thee into the hand of the Philistines: and to morrow *shalt* thou and thy sons *be* with me: the LORD also shall deliver the host of Israel into the hand of the Philistines.  
 
 We have here the conference between Saul and Satan. Saul came in disguise (1Sa 28:8), but Satan soon discovered him, 1Sa 28:12. Satan comes in disguise, in the disguise of Samuel's mantle, and Saul cannot discover him. Such is the disadvantage we labour under, in wrestling with *the rulers of the darkness of this world,* that they know us, while we are ignorant of their wiles and devices.
 
@@ -62,12 +62,12 @@ III\. It is cold comfort which this evil spirit in Samuel's mantle gives to Saul
 
 ## Saul's Despair. (b. c. 1055.)
 
-> <sup>20</sup> Then Saul fell straightway all along on the earth, and was sore afraid, because of the words of Samuel: and there was no strength in him; for he had eaten no bread all the day, nor all the night.  
-> <sup>21</sup> And the woman came unto Saul, and saw that he was sore troubled, and said unto him, Behold, thine handmaid hath obeyed thy voice, and I have put my life in my hand, and have hearkened unto thy words which thou spakest unto me.  
-> <sup>22</sup> Now therefore, I pray thee, hearken thou also unto the voice of thine handmaid, and let me set a morsel of bread before thee; and eat, that thou mayest have strength, when thou goest on thy way.  
-> <sup>23</sup> But he refused, and said, I will not eat. But his servants, together with the woman, compelled him; and he hearkened unto their voice. So he arose from the earth, and sat upon the bed.  
-> <sup>24</sup> And the woman had a fat calf in the house; and she hasted, and killed it, and took flour, and kneaded *it,* and did bake unleavened bread thereof:  
-> <sup>25</sup> And she brought *it* before Saul, and before his servants; and they did eat. Then they rose up, and went away that night.  
+> **²⁰** Then Saul fell straightway all along on the earth, and was sore afraid, because of the words of Samuel: and there was no strength in him; for he had eaten no bread all the day, nor all the night.  
+> **²¹** And the woman came unto Saul, and saw that he was sore troubled, and said unto him, Behold, thine handmaid hath obeyed thy voice, and I have put my life in my hand, and have hearkened unto thy words which thou spakest unto me.  
+> **²²** Now therefore, I pray thee, hearken thou also unto the voice of thine handmaid, and let me set a morsel of bread before thee; and eat, that thou mayest have strength, when thou goest on thy way.  
+> **²³** But he refused, and said, I will not eat. But his servants, together with the woman, compelled him; and he hearkened unto their voice. So he arose from the earth, and sat upon the bed.  
+> **²⁴** And the woman had a fat calf in the house; and she hasted, and killed it, and took flour, and kneaded *it,* and did bake unleavened bread thereof:  
+> **²⁵** And she brought *it* before Saul, and before his servants; and they did eat. Then they rose up, and went away that night.  
 
 We are here told how Saul received this terrible message from the ghost he consulted. He desired to be told *what he should do* (1Sa 28:15), but was only told what he had not done and what should be done to him. Those that expect any good counsel or comfort otherwise than from God, and in the way of his institutions, will be as wretchedly disappointed as Saul here was. Observe,
 

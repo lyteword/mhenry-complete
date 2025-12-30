@@ -8,19 +8,19 @@ Moab is next set to the bar before Jeremiah the prophet, whom God has constitute
 
 ## The Judgment of Moab. (b. c. 605.)
 
-> <sup>1</sup> Against Moab thus saith the LORD of hosts, the God of Israel; Woe unto Nebo! for it is spoiled: Kiriathaim is confounded *and* taken: Misgab is confounded and dismayed.  
-> <sup>2</sup> *There shall be* no more praise of Moab: in Heshbon they have devised evil against it; come, and let us cut it off from *being* a nation. Also thou shalt be cut down, O Madmen; the sword shall pursue thee.  
-> <sup>3</sup> A voice of crying *shall be* from Horonaim, spoiling and great destruction.  
-> <sup>4</sup> Moab is destroyed; her little ones have caused a cry to be heard.  
-> <sup>5</sup> For in the going up of Luhith continual weeping shall go up; for in the going down of Horonaim the enemies have heard a cry of destruction.  
-> <sup>6</sup> Flee, save your lives, and be like the heath in the wilderness.  
-> <sup>7</sup> For because thou hast trusted in thy works and in thy treasures, thou shalt also be taken: and Chemosh shall go forth into captivity *with* his priests and his princes together.  
-> <sup>8</sup> And the spoiler shall come upon every city, and no city shall escape: the valley also shall perish, and the plain shall be destroyed, as the LORD hath spoken.  
-> <sup>9</sup> Give wings unto Moab, that it may flee and get away: for the cities thereof shall be desolate, without any to dwell therein.  
-> <sup>10</sup> Cursed *be* he that doeth the work of the LORD deceitfully, and cursed *be* he that keepeth back his sword from blood.  
-> <sup>11</sup> Moab hath been at ease from his youth, and he hath settled on his lees, and hath not been emptied from vessel to vessel, neither hath he gone into captivity: therefore his taste remained in him, and his scent is not changed.  
-> <sup>12</sup> Therefore, behold, the days come, saith the LORD, that I will send unto him wanderers, that shall cause him to wander, and shall empty his vessels, and break their bottles.  
-> <sup>13</sup> And Moab shall be ashamed of Chemosh, as the house of Israel was ashamed of Beth-el their confidence.  
+> **¹** Against Moab thus saith the LORD of hosts, the God of Israel; Woe unto Nebo! for it is spoiled: Kiriathaim is confounded *and* taken: Misgab is confounded and dismayed.  
+> **²** *There shall be* no more praise of Moab: in Heshbon they have devised evil against it; come, and let us cut it off from *being* a nation. Also thou shalt be cut down, O Madmen; the sword shall pursue thee.  
+> **³** A voice of crying *shall be* from Horonaim, spoiling and great destruction.  
+> **⁴** Moab is destroyed; her little ones have caused a cry to be heard.  
+> **⁵** For in the going up of Luhith continual weeping shall go up; for in the going down of Horonaim the enemies have heard a cry of destruction.  
+> **⁶** Flee, save your lives, and be like the heath in the wilderness.  
+> **⁷** For because thou hast trusted in thy works and in thy treasures, thou shalt also be taken: and Chemosh shall go forth into captivity *with* his priests and his princes together.  
+> **⁸** And the spoiler shall come upon every city, and no city shall escape: the valley also shall perish, and the plain shall be destroyed, as the LORD hath spoken.  
+> **⁹** Give wings unto Moab, that it may flee and get away: for the cities thereof shall be desolate, without any to dwell therein.  
+> **¹⁰** Cursed *be* he that doeth the work of the LORD deceitfully, and cursed *be* he that keepeth back his sword from blood.  
+> **¹¹** Moab hath been at ease from his youth, and he hath settled on his lees, and hath not been emptied from vessel to vessel, neither hath he gone into captivity: therefore his taste remained in him, and his scent is not changed.  
+> **¹²** Therefore, behold, the days come, saith the LORD, that I will send unto him wanderers, that shall cause him to wander, and shall empty his vessels, and break their bottles.  
+> **¹³** And Moab shall be ashamed of Chemosh, as the house of Israel was ashamed of Beth-el their confidence.  
 
 We may observe in these verses,
 
@@ -34,40 +34,40 @@ IV\. The sins for which God will now reckon with Moab, and which justify God in 
 
 ## The Judgment of Moab. (b. c. 605.)
 
-> <sup>14</sup> How say ye, We *are* mighty and strong men for the war?  
-> <sup>15</sup> Moab is spoiled, and gone up *out of* her cities, and his chosen young men are gone down to the slaughter, saith the King, whose name *is* the LORD of hosts.  
-> <sup>16</sup> The calamity of Moab *is* near to come, and his affliction hasteth fast.  
-> <sup>17</sup> All ye that are about him, bemoan him; and all ye that know his name, say, How is the strong staff broken, *and* the beautiful rod!  
-> <sup>18</sup> Thou daughter that dost inhabit Dibon, come down from *thy* glory, and sit in thirst; for the spoiler of Moab shall come upon thee, *and* he shall destroy thy strong holds.  
-> <sup>19</sup> O inhabitant of Aroer, stand by the way, and espy; ask him that fleeth, and her that escapeth, *and* say, What is done?  
-> <sup>20</sup> Moab is confounded; for it is broken down: howl and cry; tell ye it in Arnon, that Moab is spoiled,  
-> <sup>21</sup> And judgment is come upon the plain country; upon Holon, and upon Jahazah, and upon Mephaath,  
-> <sup>22</sup> And upon Dibon, and upon Nebo, and upon Beth-diblathaim,  
-> <sup>23</sup> And upon Kiriathaim, and upon Beth-gamul, and upon Beth-meon,  
-> <sup>24</sup> And upon Kerioth, and upon Bozrah, and upon all the cities of the land of Moab, far or near.  
-> <sup>25</sup> The horn of Moab is cut off, and his arm is broken, saith the LORD.  
-> <sup>26</sup> Make ye him drunken: for he magnified *himself* against the LORD: Moab also shall wallow in his vomit, and he also shall be in derision.  
-> <sup>27</sup> For was not Israel a derision unto thee? was he found among thieves? for since thou spakest of him, thou skippedst for joy.  
-> <sup>28</sup> O ye that dwell in Moab, leave the cities, and dwell in the rock, and be like the dove *that* maketh her nest in the sides of the hole's mouth.  
-> <sup>29</sup> We have heard the pride of Moab, (he is exceeding proud) his loftiness, and his arrogancy, and his pride, and the haughtiness of his heart.  
-> <sup>30</sup> I know his wrath, saith the LORD; but *it shall* not *be* so; his lies shall not so effect *it.*  
-> <sup>31</sup> Therefore will I howl for Moab, and I will cry out for all Moab; *mine heart* shall mourn for the men of Kirheres.  
-> <sup>32</sup> O vine of Sibmah, I will weep for thee with the weeping of Jazer: thy plants are gone over the sea, they reach *even* to the sea of Jazer: the spoiler is fallen upon thy summer fruits and upon thy vintage.  
-> <sup>33</sup> And joy and gladness is taken from the plentiful field, and from the land of Moab; and I have caused wine to fail from the winepresses: none shall tread with shouting; *their* shouting *shall be* no shouting.  
-> <sup>34</sup> From the cry of Heshbon *even* unto Elealeh, *and even* unto Jahaz, have they uttered their voice, from Zoar *even* unto Horonaim, *as* a heifer of three years old: for the waters also of Nimrim shall be desolate.  
-> <sup>35</sup> Moreover I will cause to cease in Moab, saith the LORD, him that offereth in the high places, and him that burneth incense to his gods.  
-> <sup>36</sup> Therefore mine heart shall sound for Moab like pipes, and mine heart shall sound like pipes for the men of Kirheres: because the riches *that* he hath gotten are perished.  
-> <sup>37</sup> For every head *shall be* bald, and every beard clipped: upon all the hands *shall be* cuttings, and upon the loins sackcloth.  
-> <sup>38</sup> *There shall be* lamentation generally upon all the housetops of Moab, and in the streets thereof: for I have broken Moab like a vessel wherein *is* no pleasure, saith the LORD.  
-> <sup>39</sup> They shall howl, *saying,* How is it broken down! how hath Moab turned the back with shame! so shall Moab be a derision and a dismaying to all them about him.  
-> <sup>40</sup> For thus saith the LORD; Behold, he shall fly as an eagle, and shall spread his wings over Moab.  
-> <sup>41</sup> Kerioth is taken, and the strong holds are surprised, and the mighty men's hearts in Moab at that day shall be as the heart of a woman in her pangs.  
-> <sup>42</sup> And Moab shall be destroyed from *being* a people, because he hath magnified *himself* against the LORD.  
-> <sup>43</sup> Fear, and the pit, and the snare, *shall be* upon thee, O inhabitant of Moab, saith the LORD.  
-> <sup>44</sup> He that fleeth from the fear shall fall into the pit; and he that getteth up out of the pit shall be taken in the snare: for I will bring upon it, *even* upon Moab, the year of their visitation, saith the LORD.  
-> <sup>45</sup> They that fled stood under the shadow of Heshbon because of the force: but a fire shall come forth out of Heshbon, and a flame from the midst of Sihon, and shall devour the corner of Moab, and the crown of the head of the tumultuous ones.  
-> <sup>46</sup> Woe be unto thee, O Moab! the people of Chemosh perisheth: for thy sons are taken captives, and thy daughters captives.  
-> <sup>47</sup> Yet will I bring again the captivity of Moab in the latter days, saith the LORD. Thus far *is* the judgment of Moab.  
+> **¹⁴** How say ye, We *are* mighty and strong men for the war?  
+> **¹⁵** Moab is spoiled, and gone up *out of* her cities, and his chosen young men are gone down to the slaughter, saith the King, whose name *is* the LORD of hosts.  
+> **¹⁶** The calamity of Moab *is* near to come, and his affliction hasteth fast.  
+> **¹⁷** All ye that are about him, bemoan him; and all ye that know his name, say, How is the strong staff broken, *and* the beautiful rod!  
+> **¹⁸** Thou daughter that dost inhabit Dibon, come down from *thy* glory, and sit in thirst; for the spoiler of Moab shall come upon thee, *and* he shall destroy thy strong holds.  
+> **¹⁹** O inhabitant of Aroer, stand by the way, and espy; ask him that fleeth, and her that escapeth, *and* say, What is done?  
+> **²⁰** Moab is confounded; for it is broken down: howl and cry; tell ye it in Arnon, that Moab is spoiled,  
+> **²¹** And judgment is come upon the plain country; upon Holon, and upon Jahazah, and upon Mephaath,  
+> **²²** And upon Dibon, and upon Nebo, and upon Beth-diblathaim,  
+> **²³** And upon Kiriathaim, and upon Beth-gamul, and upon Beth-meon,  
+> **²⁴** And upon Kerioth, and upon Bozrah, and upon all the cities of the land of Moab, far or near.  
+> **²⁵** The horn of Moab is cut off, and his arm is broken, saith the LORD.  
+> **²⁶** Make ye him drunken: for he magnified *himself* against the LORD: Moab also shall wallow in his vomit, and he also shall be in derision.  
+> **²⁷** For was not Israel a derision unto thee? was he found among thieves? for since thou spakest of him, thou skippedst for joy.  
+> **²⁸** O ye that dwell in Moab, leave the cities, and dwell in the rock, and be like the dove *that* maketh her nest in the sides of the hole's mouth.  
+> **²⁹** We have heard the pride of Moab, (he is exceeding proud) his loftiness, and his arrogancy, and his pride, and the haughtiness of his heart.  
+> **³⁰** I know his wrath, saith the LORD; but *it shall* not *be* so; his lies shall not so effect *it.*  
+> **³¹** Therefore will I howl for Moab, and I will cry out for all Moab; *mine heart* shall mourn for the men of Kirheres.  
+> **³²** O vine of Sibmah, I will weep for thee with the weeping of Jazer: thy plants are gone over the sea, they reach *even* to the sea of Jazer: the spoiler is fallen upon thy summer fruits and upon thy vintage.  
+> **³³** And joy and gladness is taken from the plentiful field, and from the land of Moab; and I have caused wine to fail from the winepresses: none shall tread with shouting; *their* shouting *shall be* no shouting.  
+> **³⁴** From the cry of Heshbon *even* unto Elealeh, *and even* unto Jahaz, have they uttered their voice, from Zoar *even* unto Horonaim, *as* a heifer of three years old: for the waters also of Nimrim shall be desolate.  
+> **³⁵** Moreover I will cause to cease in Moab, saith the LORD, him that offereth in the high places, and him that burneth incense to his gods.  
+> **³⁶** Therefore mine heart shall sound for Moab like pipes, and mine heart shall sound like pipes for the men of Kirheres: because the riches *that* he hath gotten are perished.  
+> **³⁷** For every head *shall be* bald, and every beard clipped: upon all the hands *shall be* cuttings, and upon the loins sackcloth.  
+> **³⁸** *There shall be* lamentation generally upon all the housetops of Moab, and in the streets thereof: for I have broken Moab like a vessel wherein *is* no pleasure, saith the LORD.  
+> **³⁹** They shall howl, *saying,* How is it broken down! how hath Moab turned the back with shame! so shall Moab be a derision and a dismaying to all them about him.  
+> **⁴⁰** For thus saith the LORD; Behold, he shall fly as an eagle, and shall spread his wings over Moab.  
+> **⁴¹** Kerioth is taken, and the strong holds are surprised, and the mighty men's hearts in Moab at that day shall be as the heart of a woman in her pangs.  
+> **⁴²** And Moab shall be destroyed from *being* a people, because he hath magnified *himself* against the LORD.  
+> **⁴³** Fear, and the pit, and the snare, *shall be* upon thee, O inhabitant of Moab, saith the LORD.  
+> **⁴⁴** He that fleeth from the fear shall fall into the pit; and he that getteth up out of the pit shall be taken in the snare: for I will bring upon it, *even* upon Moab, the year of their visitation, saith the LORD.  
+> **⁴⁵** They that fled stood under the shadow of Heshbon because of the force: but a fire shall come forth out of Heshbon, and a flame from the midst of Sihon, and shall devour the corner of Moab, and the crown of the head of the tumultuous ones.  
+> **⁴⁶** Woe be unto thee, O Moab! the people of Chemosh perisheth: for thy sons are taken captives, and thy daughters captives.  
+> **⁴⁷** Yet will I bring again the captivity of Moab in the latter days, saith the LORD. Thus far *is* the judgment of Moab.  
 
 The destruction is here further prophesied of very largely and with a great copiousness and variety of expression, and very pathetically and in moving language, designed not only to awaken them by a national repentance and reformation to prevent the trouble, or by a personal repentance and reformation to prepare for it, but to affect us with the calamitous state of human life, which is liable to such lamentable occurrences, and with the power of God's anger and the terror of his judgments, when he comes forth to contend with a provoking people. In reading this long roll of threatenings, and meditating on the terror of them, it will be of more use to us to keep this in our eye, and to get our hearts thereby possessed with a holy awe of God and of his wrath, than to enquire critically into all the lively figures and metaphors here used.
 

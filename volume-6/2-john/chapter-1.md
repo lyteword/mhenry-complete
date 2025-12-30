@@ -8,10 +8,10 @@ The apostle here salutes an honourable matron and her children, 2Jo 1:1-3. Recom
 
 ## Salutation. (a. d. 90.)
 
-> <sup>1</sup> The elder unto the elect lady and her children, whom I love in the truth; and not I only, but also all they that have known the truth;  
-> <sup>2</sup> For the truth's sake, which dwelleth in us, and shall be with us for ever.  
-> <sup>3</sup> Grace be with you, mercy, *and* peace, from God the Father, and from the Lord Jesus Christ, the Son of the Father, in truth and love.  
-> <sup>4</sup> I rejoiced greatly that I found of thy children walking in truth, as we have received a commandment from the Father.  
+> **¹** The elder unto the elect lady and her children, whom I love in the truth; and not I only, but also all they that have known the truth;  
+> **²** For the truth's sake, which dwelleth in us, and shall be with us for ever.  
+> **³** Grace be with you, mercy, *and* peace, from God the Father, and from the Lord Jesus Christ, the Son of the Father, in truth and love.  
+> **⁴** I rejoiced greatly that I found of thy children walking in truth, as we have received a commandment from the Father.  
 
 Ancient epistles began, as here, with salutation and good wishes: religion consecrates, as far as may be, old forms, and turns compliments into real expressions of life and love. Here we have, as usually,
 
@@ -29,8 +29,8 @@ IV\. The congratulation upon the prospect of the exemplary behaviour of other ch
 
 ## Christian Love. (a. d. 90.)
 
-> <sup>5</sup> And now I beseech thee, lady, not as though I wrote a new commandment unto thee, but that which we had from the beginning, that we love one another.  
-> <sup>6</sup> And this is love, that we walk after his commandments. This is the commandment, That, as ye have heard from the beginning, ye should walk in it.  
+> **⁵** And now I beseech thee, lady, not as though I wrote a new commandment unto thee, but that which we had from the beginning, that we love one another.  
+> **⁶** And this is love, that we walk after his commandments. This is the commandment, That, as ye have heard from the beginning, ye should walk in it.  
 
 We come now more into the design and substance of the epistle; and here we have,
 
@@ -44,9 +44,9 @@ II\. The thing requested of *the lady and her children*—Christian sacred love:
 
 ## Deceivers Condemned. (a. d. 90.)
 
-> <sup>7</sup> For many deceivers are entered into the world, who confess not that Jesus Christ is come in the flesh. This is a deceiver and an antichrist.  
-> <sup>8</sup> Look to yourselves, that we lose not those things which we have wrought, but that we receive a full reward.  
-> <sup>9</sup> Whosoever transgresseth, and abideth not in the doctrine of Christ, hath not God. He that abideth in the doctrine of Christ, he hath both the Father and the Son.  
+> **⁷** For many deceivers are entered into the world, who confess not that Jesus Christ is come in the flesh. This is a deceiver and an antichrist.  
+> **⁸** Look to yourselves, that we lose not those things which we have wrought, but that we receive a full reward.  
+> **⁹** Whosoever transgresseth, and abideth not in the doctrine of Christ, hath not God. He that abideth in the doctrine of Christ, he hath both the Father and the Son.  
 
 In this principal part of the epistle we find,
 
@@ -58,8 +58,8 @@ III\. The reason of the apostle's counsel, and of their care and caution about t
 
 ## Caution against Seducers. (a. d. 90.)
 
-> <sup>10</sup> If there come any unto you, and bring not this doctrine, receive him not into *your* house, neither bid him God speed:  
-> <sup>11</sup> For he that biddeth him God speed is partaker of his evil deeds.  
+> **¹⁰** If there come any unto you, and bring not this doctrine, receive him not into *your* house, neither bid him God speed:  
+> **¹¹** For he that biddeth him God speed is partaker of his evil deeds.  
 
 Here, I. Upon due warning given concerning seducers, the apostle gives direction concerning the treatment of such. They are not to be entertained as the ministers of Christ. The Lord Christ will distinguish them from such, and so would he have his disciples. The direction is negative. 1. "Support them not: *If there come any unto you, and bring not this doctrine* (concerning Christ as the Son of God, the Messiah and anointed of God for our redemption and salvation), *receive him not into your house.*" Possibly this lady was like Gaius, of whom we read in the next epistle, a generous housekeeper, and hospitable entertainer of travelling ministers and Christians. These deceivers might possibly expect the same reception with others, or with the best who came there (as the blind are often bold enough), but the apostle allows it not: "Do not welcome them into your family." Doubtless such may be relieved in their pressing necessities, but not encouraged for ill service. Deniers of the faith are destroyers of souls; and it is supposed that even ladies themselves should have good understanding in the affairs of religion. 2. "Bless not their enterprises: *Neither bid him God speed.* Attend not their service with your prayers and good wishes." Bad work should not be consecrated or recommended to the divine benediction. God will be no patron of falsehood, seduction, and sin. We ought to bid God speed to evangelical ministration; but the propagation of fatal error, if we cannot prevent, we must not dare to countenance. Then,
 
@@ -67,8 +67,8 @@ II\. Here is the reason of such direction, forbidding the support and patronage 
 
 ## Conclusion and Salutation. (a. d. 90.)
 
-> <sup>12</sup> Having many things to write unto you, I would not *write* with paper and ink: but I trust to come unto you, and speak face to face, that our joy may be full.  
-> <sup>13</sup> The children of thy elect sister greet thee. Amen.  
+> **¹²** Having many things to write unto you, I would not *write* with paper and ink: but I trust to come unto you, and speak face to face, that our joy may be full.  
+> **¹³** The children of thy elect sister greet thee. Amen.  
 
 The apostle concludes this letter, 1. With an adjournment of many things to personal conference: *Having many things to write unto you I would not write with paper and ink; but I trust to come unto you, and speak face to face, that our joy may be full.* Here it is supposed that some things are better spoken than written. The use of pen and ink may be a mercy and a pleasure; but a personal interview may be more so. The apostle was not yet too old for travel, nor consequently for travelling service. The communion of saints should be by all methods maintained; and their communion should tend to their mutual joy. Excellent ministers may have their joy advanced by their Christian friends. *That I may be comforted together with you by the mutual faith both of you and me,* Ro 1:12. 2. With the presentation of service and salutation from some near relations to the lady: *The children of thy elect sister greet thee.* Grace was abundant towards this family; here are two elect sisters, and probably their elect children. How will they admire this grace in heaven! The apostle condescends to insert the nieces' duty (as we should call it), or dutiful salutation, to their aunt. The duty of inferior relations is to be cherished. Doubtless the apostle was easy of access, and would admit all friendly and pious communication, and was ready to enhance the good lady's joy in her nieces as well as in her children. May there by many such gracious ladies rejoicing in their gracious descendants and other relations! *Amen.*
 

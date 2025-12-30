@@ -8,16 +8,16 @@ Great and long preparation had been making for the building of the temple, and h
 
 ## The Building of the Temple. (b. c. 1011.)
 
-> <sup>1</sup> And it came to pass in the four hundred and eightieth year after the children of Israel were come out of the land of Egypt, in the fourth year of Solomon's reign over Israel, in the month Zif, which *is* the second month, that he began to build the house of the LORD.  
-> <sup>2</sup> And the house which king Solomon built for the LORD, the length thereof *was* threescore cubits, and the breadth thereof twenty *cubits,* and the height thereof thirty cubits.  
-> <sup>3</sup> And the porch before the temple of the house, twenty cubits *was* the length thereof, according to the breadth of the house; *and* ten cubits *was* the breadth thereof before the house.  
-> <sup>4</sup> And for the house he made windows of narrow lights.  
-> <sup>5</sup> And against the wall of the house he built chambers round about, *against* the walls of the house round about, *both* of the temple and of the oracle: and he made chambers round about:  
-> <sup>6</sup> The nethermost chamber *was* five cubits broad, and the middle *was* six cubits broad, and the third *was* seven cubits broad: for without *in the wall* of the house he made narrowed rests round about, that *the beams* should not be fastened in the walls of the house.  
-> <sup>7</sup> And the house, when it was in building, was built of stone made ready before it was brought thither: so that there was neither hammer nor axe *nor* any tool of iron heard in the house, while it was in building.  
-> <sup>8</sup> The door for the middle chamber *was* in the right side of the house: and they went up with winding stairs into the middle *chamber,* and out of the middle into the third.  
-> <sup>9</sup> So he built the house, and finished it; and covered the house with beams and boards of cedar.  
-> <sup>10</sup> And *then* he built chambers against all the house, five cubits high: and they rested on the house *with* timber of cedar.  
+> **¹** And it came to pass in the four hundred and eightieth year after the children of Israel were come out of the land of Egypt, in the fourth year of Solomon's reign over Israel, in the month Zif, which *is* the second month, that he began to build the house of the LORD.  
+> **²** And the house which king Solomon built for the LORD, the length thereof *was* threescore cubits, and the breadth thereof twenty *cubits,* and the height thereof thirty cubits.  
+> **³** And the porch before the temple of the house, twenty cubits *was* the length thereof, according to the breadth of the house; *and* ten cubits *was* the breadth thereof before the house.  
+> **⁴** And for the house he made windows of narrow lights.  
+> **⁵** And against the wall of the house he built chambers round about, *against* the walls of the house round about, *both* of the temple and of the oracle: and he made chambers round about:  
+> **⁶** The nethermost chamber *was* five cubits broad, and the middle *was* six cubits broad, and the third *was* seven cubits broad: for without *in the wall* of the house he made narrowed rests round about, that *the beams* should not be fastened in the walls of the house.  
+> **⁷** And the house, when it was in building, was built of stone made ready before it was brought thither: so that there was neither hammer nor axe *nor* any tool of iron heard in the house, while it was in building.  
+> **⁸** The door for the middle chamber *was* in the right side of the house: and they went up with winding stairs into the middle *chamber,* and out of the middle into the third.  
+> **⁹** So he built the house, and finished it; and covered the house with beams and boards of cedar.  
+> **¹⁰** And *then* he built chambers against all the house, five cubits high: and they rested on the house *with* timber of cedar.  
 
 Here, I. The temple is called *the house of the Lord* (1Ki 6:1), because it was, 1. Directed and modelled by him. Infinite Wisdom was the architect, and gave David the plan or pattern by the Spirit, not by word of mouth only, but, for the greater certainty and exactness, in writing (1Ch 28:11,12), as he had given to Moses in the mouth a draught of the tabernacle. 2. Dedicated and devoted to him and to his honour, to be employed in his service, so his as never any other house was, for he manifested his glory in it (so as never in any other) in a way agreeable to that dispensation; for, when there were carnal ordinances, there was a *worldly sanctuary,* Heb 9:1,10. This gave it its *beauty of holiness,* that it was *the house of the Lord,* which far transcended all its other beauties.
 
@@ -31,39 +31,39 @@ V\. An account of the windows (1Ki 6:4): They were *broad within, and narrow wit
 
 VI\. The chambers are described (1Ki 6:5,6), which served as vestries, in which the utensils of the tabernacle were carefully laid up, and where the priests dressed and undressed themselves and left the clothes in which they ministered: probably in some of these chambers they feasted upon the holy things. Solomon was not so intent upon the magnificence of the house as to neglect the conveniences that were requisite for the offices thereof, that every thing might be done decently and in order. Care was taken that the beams should not be fastened in the walls to weaken them, 1Ki 6:6. Let not the church's strength be impaired under pretence of adding to its beauty or convenience.
 
-> <sup>11</sup> And the word of the LORD came to Solomon, saying,  
-> <sup>12</sup> *Concerning* this house which thou art in building, if thou wilt walk in my statutes, and execute my judgments, and keep all my commandments to walk in them; then will I perform my word with thee, which I spake unto David thy father:  
-> <sup>13</sup> And I will dwell among the children of Israel, and will not forsake my people Israel.  
-> <sup>14</sup> So Solomon built the house, and finished it.  
+> **¹¹** And the word of the LORD came to Solomon, saying,  
+> **¹²** *Concerning* this house which thou art in building, if thou wilt walk in my statutes, and execute my judgments, and keep all my commandments to walk in them; then will I perform my word with thee, which I spake unto David thy father:  
+> **¹³** And I will dwell among the children of Israel, and will not forsake my people Israel.  
+> **¹⁴** So Solomon built the house, and finished it.  
 
 Here is, I. The word God sent to Solomon, when he was engaged in building the temple. God let him know that he took notice of what he was doing, *the house he was now building,* 1Ki 6:12. None employ themselves for God without having his eye upon them. "*I know thy works,* thy good works." He assured him that if he would proceed and persevere in obedience to the divine law, and keep in the way of duty and the true worship of God, the divine loving-kindness should be drawn out both to himself *(I will perform my word with thee*) and to his kingdom: "Israel shall be ever owned as my people; I will *dwell among them,* and *not forsake them.*" This word God sent him probably by a prophet, 1. That by the promise he might be encouraged and comforted in his work. Perhaps sometimes the great care, expense, and fatigue of it, made him ready to wish he had never begun it; but this would help him through the difficulties of it, that the promised establishment of his family and kingdom would abundantly recompense all his pains. An eye to the promise will carry us cheerfully through our work; and those who wish well to the public will think nothing too much that they can do to secure and perpetuate to it the tokens of God's presence. 2. That, by the condition annexed, he might be awakened to consider that though he built the temple ever so strong the glory of it would soon depart, unless he and his people continued *to walk in God's statutes.* God plainly let him know that all this charge which he and his people were at, in erecting this temple, would neither excuse them from obedience to the law of God nor shelter them from his judgments in case of disobedience. Keeping God's commandments is better, and more pleasing to him, than building churches.
 
 II\. The work Solomon did for God: *So he built the house* (1Ki 6:14), *so* animated by the message God had sent him, *so* admonished not to expect that God should own his building unless he were obedient to his laws: "Lord, I proceed upon these terms, being firmly resolved to walk in thy statutes." The strictness of God's government will never drive a good man from his service, but quicken him in it. Solomon built and finished, he went on with the work, and God went along with him till it was completed. It is spoken both to God's praise and his: he grew not weary of the work, met not with any obstructions (as Ezr 4:24), did not out-build his property, nor do it by halves, but, having begun to build, was both able and willing to finish; for he was a wise builder.
 
-> <sup>15</sup> And he built the walls of the house within with boards of cedar, both the floor of the house, and the walls of the ceiling: *and* he covered *them* on the inside with wood, and covered the floor of the house with planks of fir.  
-> <sup>16</sup> And he built twenty cubits on the sides of the house, both the floor and the walls with boards of cedar: he even built *them* for it within, *even* for the oracle, *even* for the most holy *place.*  
-> <sup>17</sup> And the house, that *is,* the temple before it, was forty cubits *long.*  
-> <sup>18</sup> And the cedar of the house within *was* carved with knops and open flowers: all *was* cedar; there was no stone seen.  
-> <sup>19</sup> And the oracle he prepared in the house within, to set there the ark of the covenant of the LORD.  
-> <sup>20</sup> And the oracle in the forepart *was* twenty cubits in length, and twenty cubits in breadth, and twenty cubits in the height thereof: and he overlaid it with pure gold; and *so* covered the altar *which was of* cedar.  
-> <sup>21</sup> So Solomon overlaid the house within with pure gold: and he made a partition by the chains of gold before the oracle; and he overlaid it with gold.  
-> <sup>22</sup> And the whole house he overlaid with gold, until he had finished all the house: also the whole altar that *was* by the oracle he overlaid with gold.  
-> <sup>23</sup> And within the oracle he made two cherubims *of* olive tree, *each* ten cubits high.  
-> <sup>24</sup> And five cubits *was* the one wing of the cherub, and five cubits the other wing of the cherub: from the uttermost part of the one wing unto the uttermost part of the other *were* ten cubits.  
-> <sup>25</sup> And the other cherub *was* ten cubits: both the cherubims *were* of one measure and one size.  
-> <sup>26</sup> The height of the one cherub *was* ten cubits, and so *was it* of the other cherub.  
-> <sup>27</sup> And he set the cherubims within the inner house: and they stretched forth the wings of the cherubims, so that the wing of the one touched the *one* wall, and the wing of the other cherub touched the other wall; and their wings touched one another in the midst of the house.  
-> <sup>28</sup> And he overlaid the cherubims with gold.  
-> <sup>29</sup> And he carved all the walls of the house round about with carved figures of cherubims and palm trees and open flowers, within and without.  
-> <sup>30</sup> And the floor of the house he overlaid with gold, within and without.  
-> <sup>31</sup> And for the entering of the oracle he made doors *of* olive tree: the lintel *and* side posts *were* a fifth part *of the wall.*  
-> <sup>32</sup> The two doors also *were of* olive tree; and he carved upon them carvings of cherubims and palm trees and open flowers, and overlaid *them* with gold, and spread gold upon the cherubims, and upon the palm trees.  
-> <sup>33</sup> So also made he for the door of the temple posts *of* olive tree, a fourth part *of the wall.*  
-> <sup>34</sup> And the two doors *were of* fir tree: the two leaves of the one door *were* folding, and the two leaves of the other door *were* folding.  
-> <sup>35</sup> And he carved *thereon* cherubims and palm trees and open flowers: and covered *them* with gold fitted upon the carved work.  
-> <sup>36</sup> And he built the inner court with three rows of hewed stone, and a row of cedar beams.  
-> <sup>37</sup> In the fourth year was the foundation of the house of the LORD laid, in the month Zif:  
-> <sup>38</sup> And in the eleventh year, in the month Bul, which *is* the eighth month, was the house finished throughout all the parts thereof, and according to all the fashion of it. So was he seven years in building it.  
+> **¹⁵** And he built the walls of the house within with boards of cedar, both the floor of the house, and the walls of the ceiling: *and* he covered *them* on the inside with wood, and covered the floor of the house with planks of fir.  
+> **¹⁶** And he built twenty cubits on the sides of the house, both the floor and the walls with boards of cedar: he even built *them* for it within, *even* for the oracle, *even* for the most holy *place.*  
+> **¹⁷** And the house, that *is,* the temple before it, was forty cubits *long.*  
+> **¹⁸** And the cedar of the house within *was* carved with knops and open flowers: all *was* cedar; there was no stone seen.  
+> **¹⁹** And the oracle he prepared in the house within, to set there the ark of the covenant of the LORD.  
+> **²⁰** And the oracle in the forepart *was* twenty cubits in length, and twenty cubits in breadth, and twenty cubits in the height thereof: and he overlaid it with pure gold; and *so* covered the altar *which was of* cedar.  
+> **²¹** So Solomon overlaid the house within with pure gold: and he made a partition by the chains of gold before the oracle; and he overlaid it with gold.  
+> **²²** And the whole house he overlaid with gold, until he had finished all the house: also the whole altar that *was* by the oracle he overlaid with gold.  
+> **²³** And within the oracle he made two cherubims *of* olive tree, *each* ten cubits high.  
+> **²⁴** And five cubits *was* the one wing of the cherub, and five cubits the other wing of the cherub: from the uttermost part of the one wing unto the uttermost part of the other *were* ten cubits.  
+> **²⁵** And the other cherub *was* ten cubits: both the cherubims *were* of one measure and one size.  
+> **²⁶** The height of the one cherub *was* ten cubits, and so *was it* of the other cherub.  
+> **²⁷** And he set the cherubims within the inner house: and they stretched forth the wings of the cherubims, so that the wing of the one touched the *one* wall, and the wing of the other cherub touched the other wall; and their wings touched one another in the midst of the house.  
+> **²⁸** And he overlaid the cherubims with gold.  
+> **²⁹** And he carved all the walls of the house round about with carved figures of cherubims and palm trees and open flowers, within and without.  
+> **³⁰** And the floor of the house he overlaid with gold, within and without.  
+> **³¹** And for the entering of the oracle he made doors *of* olive tree: the lintel *and* side posts *were* a fifth part *of the wall.*  
+> **³²** The two doors also *were of* olive tree; and he carved upon them carvings of cherubims and palm trees and open flowers, and overlaid *them* with gold, and spread gold upon the cherubims, and upon the palm trees.  
+> **³³** So also made he for the door of the temple posts *of* olive tree, a fourth part *of the wall.*  
+> **³⁴** And the two doors *were of* fir tree: the two leaves of the one door *were* folding, and the two leaves of the other door *were* folding.  
+> **³⁵** And he carved *thereon* cherubims and palm trees and open flowers: and covered *them* with gold fitted upon the carved work.  
+> **³⁶** And he built the inner court with three rows of hewed stone, and a row of cedar beams.  
+> **³⁷** In the fourth year was the foundation of the house of the LORD laid, in the month Zif:  
+> **³⁸** And in the eleventh year, in the month Bul, which *is* the eighth month, was the house finished throughout all the parts thereof, and according to all the fashion of it. So was he seven years in building it.  
 
 Here, I. We have a particular account of the details of the building.
 

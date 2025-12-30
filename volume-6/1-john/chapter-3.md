@@ -8,9 +8,9 @@ The apostle here magnifies the love of God in our adoption, 1Jo 3:1,2. He thereu
 
 ## Adoption. (a. d. 80.)
 
-> <sup>1</sup> Behold, what manner of love the Father hath bestowed upon us, that we should be called the sons of God: therefore the world knoweth us not, because it knew him not.  
-> <sup>2</sup> Beloved, now are we the sons of God, and it doth not yet appear what we shall be: but we know that, when he shall appear, we shall be like him; for we shall see him as he is.  
-> <sup>3</sup> And every man that hath this hope in him purifieth himself, even as he is pure.  
+> **¹** Behold, what manner of love the Father hath bestowed upon us, that we should be called the sons of God: therefore the world knoweth us not, because it knew him not.  
+> **²** Beloved, now are we the sons of God, and it doth not yet appear what we shall be: but we know that, when he shall appear, we shall be like him; for we shall see him as he is.  
+> **³** And every man that hath this hope in him purifieth himself, even as he is pure.  
 
 The apostle, having shown the dignity of Christ's faithful followers, that they are born of him and thereby nearly allied to God, now here,
 
@@ -24,13 +24,13 @@ IV\. Urges the engagement of these sons of God to the prosecution of holiness: *
 
 ## The Mark of God's Children. (a. d. 80.)
 
-> <sup>4</sup> Whosoever committeth sin transgresseth also the law: for sin is the transgression of the law.  
-> <sup>5</sup> And ye know that he was manifested to take away our sins; and in him is no sin.  
-> <sup>6</sup> Whosoever abideth in him sinneth not: whosoever sinneth hath not seen him, neither known him.  
-> <sup>7</sup> Little children, let no man deceive you: he that doeth righteousness is righteous, even as he is righteous.  
-> <sup>8</sup> He that committeth sin is of the devil; for the devil sinneth from the beginning. For this purpose the Son of God was manifested, that he might destroy the works of the devil.  
-> <sup>9</sup> Whosoever is born of God doth not commit sin; for his seed remaineth in him: and he cannot sin, because he is born of God.  
-> <sup>10</sup> In this the children of God are manifest, and the children of the devil: whosoever doeth not righteousness is not of God, neither he that loveth not his brother.  
+> **⁴** Whosoever committeth sin transgresseth also the law: for sin is the transgression of the law.  
+> **⁵** And ye know that he was manifested to take away our sins; and in him is no sin.  
+> **⁶** Whosoever abideth in him sinneth not: whosoever sinneth hath not seen him, neither known him.  
+> **⁷** Little children, let no man deceive you: he that doeth righteousness is righteous, even as he is righteous.  
+> **⁸** He that committeth sin is of the devil; for the devil sinneth from the beginning. For this purpose the Son of God was manifested, that he might destroy the works of the devil.  
+> **⁹** Whosoever is born of God doth not commit sin; for his seed remaineth in him: and he cannot sin, because he is born of God.  
+> **¹⁰** In this the children of God are manifest, and the children of the devil: whosoever doeth not righteousness is not of God, neither he that loveth not his brother.  
 
 The apostle, having alleged the believer's obligation to purity from his hope of heaven, and of communion with Christ in glory at the day of his appearance, now proceeds to fill his own mouth and the believer's mind with multiplied arguments against sin, and all communion with the impure unfruitful works of darkness. And so he reasons and argues,
 
@@ -50,9 +50,9 @@ VII\. From the discrimination between the children of God and the children of th
 
 ## Brotherly Love. (a. d. 80.)
 
-> <sup>11</sup> For this is the message that ye heard from the beginning, that we should love one another.  
-> <sup>12</sup> Not as Cain, *who* was of that wicked one, and slew his brother. And wherefore slew he him? Because his own works were evil, and his brother's righteous.  
-> <sup>13</sup> Marvel not, my brethren, if the world hate you.  
+> **¹¹** For this is the message that ye heard from the beginning, that we should love one another.  
+> **¹²** Not as Cain, *who* was of that wicked one, and slew his brother. And wherefore slew he him? Because his own works were evil, and his brother's righteous.  
+> **¹³** Marvel not, my brethren, if the world hate you.  
 
 The apostle, having intimated that one mark of the devil's children is hatred of the brethren, takes occasion thence,
 
@@ -64,12 +64,12 @@ III\. To infer that it is no wonder that good men are so served now: *Marvel not
 
 ## Brotherly Love. (a. d. 80.)
 
-> <sup>14</sup> We know that we have passed from death unto life, because we love the brethren. He that loveth not *his* brother abideth in death.  
-> <sup>15</sup> Whosoever hateth his brother is a murderer: and ye know that no murderer hath eternal life abiding in him.  
-> <sup>16</sup> Hereby perceive we the love *of God,* because he laid down his life for us: and we ought to lay down *our* lives for the brethren.  
-> <sup>17</sup> But whoso hath this world's good, and seeth his brother have need, and shutteth up his bowels *of compassion* from him, how dwelleth the love of God in him?  
-> <sup>18</sup> My little children, let us not love in word, neither in tongue; but in deed and in truth.  
-> <sup>19</sup> And hereby we know that we are of the truth, and shall assure our hearts before him.  
+> **¹⁴** We know that we have passed from death unto life, because we love the brethren. He that loveth not *his* brother abideth in death.  
+> **¹⁵** Whosoever hateth his brother is a murderer: and ye know that no murderer hath eternal life abiding in him.  
+> **¹⁶** Hereby perceive we the love *of God,* because he laid down his life for us: and we ought to lay down *our* lives for the brethren.  
+> **¹⁷** But whoso hath this world's good, and seeth his brother have need, and shutteth up his bowels *of compassion* from him, how dwelleth the love of God in him?  
+> **¹⁸** My little children, let us not love in word, neither in tongue; but in deed and in truth.  
+> **¹⁹** And hereby we know that we are of the truth, and shall assure our hearts before him.  
 
 The beloved apostle can scarcely touch upon the mention of sacred love, but he must enlarge upon the enforcement of it, as here he does by divers arguments and incentives thereto; as,
 
@@ -89,9 +89,9 @@ V\. This love will evince our sincerity in religion, and give us hope towards Go
 
 ## The Testimony of Conscience. (a. d. 80.)
 
-> <sup>20</sup> For if our heart condemn us, God is greater than our heart, and knoweth all things.  
-> <sup>21</sup> Beloved, if our heart condemn us not, *then* have we confidence toward God.  
-> <sup>22</sup> And whatsoever we ask, we receive of him, because we keep his commandments, and do those things that are pleasing in his sight.  
+> **²⁰** For if our heart condemn us, God is greater than our heart, and knoweth all things.  
+> **²¹** Beloved, if our heart condemn us not, *then* have we confidence toward God.  
+> **²²** And whatsoever we ask, we receive of him, because we keep his commandments, and do those things that are pleasing in his sight.  
 
 The apostle, having intimated that there may be, even among us, such a privilege as an assurance or sound persuasion of heart towards God, proceeds here,
 
@@ -101,8 +101,8 @@ II\. To indicate the privilege of those who have a good conscience towards God. 
 
 ## God's Commandments. (a. d. 80.)
 
-> <sup>23</sup> And this is his commandment, That we should believe on the name of his Son Jesus Christ, and love one another, as he gave us commandment.  
-> <sup>24</sup> And he that keepeth his commandments dwelleth in him, and he in him. And hereby we know that he abideth in us, by the Spirit which he hath given us.  
+> **²³** And this is his commandment, That we should believe on the name of his Son Jesus Christ, and love one another, as he gave us commandment.  
+> **²⁴** And he that keepeth his commandments dwelleth in him, and he in him. And hereby we know that he abideth in us, by the Spirit which he hath given us.  
 
 The apostle, having mentioned keeping the commandments, and pleasing God, as the qualification of effectual petitioners in and with Heaven, here suitably proceeds,
 

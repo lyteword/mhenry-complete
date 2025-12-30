@@ -8,8 +8,8 @@ After the exceedingly great and precious promises of gospel grace, typified by t
 
 ## Evangelical Promises; Exhortations to Duty. (b. c. 706.)
 
-> <sup>1</sup> Thus saith the LORD, Keep ye judgment, and do justice: for my salvation *is* near to come, and my righteousness to be revealed.  
-> <sup>2</sup> Blessed *is* the man *that* doeth this, and the son of man *that* layeth hold on it; that keepeth the sabbath from polluting it, and keepeth his hand from doing any evil.  
+> **¹** Thus saith the LORD, Keep ye judgment, and do justice: for my salvation *is* near to come, and my righteousness to be revealed.  
+> **²** Blessed *is* the man *that* doeth this, and the son of man *that* layeth hold on it; that keepeth the sabbath from polluting it, and keepeth his hand from doing any evil.  
 
 The scope of these verses is to show that when God is coming towards us in a way of mercy we must go forth to meet him in a way of duty.
 
@@ -25,12 +25,12 @@ II\. He tells us what are his expectations of duty from us, in consideration the
 
 ## Encouragement to the Sincere; Encouragement to the Gentiles. (b. c. 706.)
 
-> <sup>3</sup> Neither let the son of the stranger, that hath joined himself to the LORD, speak, saying, The LORD hath utterly separated me from his people: neither let the eunuch say, Behold, I *am* a dry tree.  
-> <sup>4</sup> For thus saith the LORD unto the eunuchs that keep my sabbaths, and choose *the things* that please me, and take hold of my covenant;  
-> <sup>5</sup> Even unto them will I give in mine house and within my walls a place and a name better than of sons and of daughters: I will give them an everlasting name, that shall not be cut off.  
-> <sup>6</sup> Also the sons of the stranger, that join themselves to the LORD, to serve him, and to love the name of the LORD, to be his servants, every one that keepeth the sabbath from polluting it, and taketh hold of my covenant;  
-> <sup>7</sup> Even them will I bring to my holy mountain, and make them joyful in my house of prayer: their burnt offerings and their sacrifices *shall be* accepted upon mine altar; for mine house shall be called a house of prayer for all people.  
-> <sup>8</sup> The Lord GOD which gathereth the outcasts of Israel saith, Yet will I gather *others* to him, beside those that are gathered unto him.  
+> **³** Neither let the son of the stranger, that hath joined himself to the LORD, speak, saying, The LORD hath utterly separated me from his people: neither let the eunuch say, Behold, I *am* a dry tree.  
+> **⁴** For thus saith the LORD unto the eunuchs that keep my sabbaths, and choose *the things* that please me, and take hold of my covenant;  
+> **⁵** Even unto them will I give in mine house and within my walls a place and a name better than of sons and of daughters: I will give them an everlasting name, that shall not be cut off.  
+> **⁶** Also the sons of the stranger, that join themselves to the LORD, to serve him, and to love the name of the LORD, to be his servants, every one that keepeth the sabbath from polluting it, and taketh hold of my covenant;  
+> **⁷** Even them will I bring to my holy mountain, and make them joyful in my house of prayer: their burnt offerings and their sacrifices *shall be* accepted upon mine altar; for mine house shall be called a house of prayer for all people.  
+> **⁸** The Lord GOD which gathereth the outcasts of Israel saith, Yet will I gather *others* to him, beside those that are gathered unto him.  
 
 The prophet is here, in God's name, encouraging those that were hearty in joining themselves to God and yet laboured under great discouragements. 1. Some were discouraged because they were not of the seed of Abraham. They had *joined themselves to the Lord,* and bound their souls with a bond to be his for ever (this is the root and life of religion, to break off from the world and the flesh, and devote ourselves entirely to the service and honour of God); but they questioned whether God would accept them, because they were of *the sons of the stranger,* Isa 56:3. They were Gentiles, strangers to the commonwealth of Israel and aliens from the covenants of promise, and therefore feared they had no part nor lot in the matter. They said, "*The Lord has utterly separated me from his people,* and will not own me as one of them, nor admit me to their privileges." It was often said that there should be *one law for the stranger and for him that was born in the land* (Ex 12:49), and yet they came to this melancholy conclusion. Note, Unbelief often suggests things to the discouragement of good people which are directly contrary to what God himself has said, things which he has expressly guarded against. Let not the *sons of the stranger* therefore say thus, for they have no reason to say it. Note, Ministers must have answers ready for the disquieting fears and jealousies of weak Christians, which, how unreasonable soever, they must take notice of. 2. Others were discouraged because they were not fathers in Israel. The eunuch said, *Behold, I am a dry tree.* So he looked upon himself, and it was his grief; so others looked upon him, and it was his reproach. He was thought to be of no use because he had no children, nor was ever likely to have any. This was then the more grievous because eunuchs were not admitted to be priests (Le 21:20), nor to *enter into the congregation* (De 23:1), and because the promise of a numerous posterity was the particular blessing of Israel and the more valuable because from among them the Messiah was to come. Yet God would not have the eunuchs to make the worst of their case, nor to think that they should be excluded from the gospel church, and from being spiritual priests, because they were shut out from the congregation of Israel and the Levitical priesthood; no, as the taking down of the partition wall, contained in ordinances, admitted the Gentiles, so it let in likewise those that had been kept out by ceremonial pollutions. Yet, by the reply here given to this suggestion, it should seem the chief thing which the eunuch laments in his case is his being written childless.
 
@@ -54,10 +54,10 @@ II\. To those that are themselves the children of strangers.
 
 ## A Charge against the Prophets. (b. c. 706.)
 
-> <sup>9</sup> All ye beasts of the field, come to devour, *yea,* all ye beasts in the forest.  
-> <sup>10</sup> His watchmen *are* blind: they are all ignorant, they *are* all dumb dogs, they cannot bark; sleeping, lying down, loving to slumber.  
-> <sup>11</sup> Yea, *they are* greedy dogs *which* can never have enough, and they *are* shepherds *that* cannot understand: they all look to their own way, every one for his gain, from his quarter.  
-> <sup>12</sup> Come ye, *say they,* I will fetch wine, and we will fill ourselves with strong drink; and to morrow shall be as this day, *and* much more abundant.  
+> **⁹** All ye beasts of the field, come to devour, *yea,* all ye beasts in the forest.  
+> **¹⁰** His watchmen *are* blind: they are all ignorant, they *are* all dumb dogs, they cannot bark; sleeping, lying down, loving to slumber.  
+> **¹¹** Yea, *they are* greedy dogs *which* can never have enough, and they *are* shepherds *that* cannot understand: they all look to their own way, every one for his gain, from his quarter.  
+> **¹²** Come ye, *say they,* I will fetch wine, and we will fill ourselves with strong drink; and to morrow shall be as this day, *and* much more abundant.  
 
 From words of comfort the prophet here, by a very sudden change of his style, passes to words of reproof and conviction, and goes on in that strain, for the most part, in the three following chapters; and therefore some here begin a new sermon. He had assured the people that in due time God would deliver them out of captivity, which was designed for the comfort of those that should live when God would do this. Now here he shows what their sins and provocations were, for which God would send them into captivity, and this was designed for the conviction of those that lived in his own time, nearly a hundred years before the captivity, who were now filling up the measure of the nation's sin, and to justify God in what he brought upon them. God will lay them waste by the fierceness of their enemies, for the falseness of their friends.
 

@@ -8,16 +8,16 @@ In the foregoing chapter we had Samuel a young priest, though by birth a Levite 
 
 ## The Call of Samuel. (b. c. 1128.)
 
-> <sup>1</sup> And the child Samuel ministered unto the LORD before Eli. And the word of the LORD was precious in those days; *there was* no open vision.  
-> <sup>2</sup> And it came to pass at that time, when Eli *was* laid down in his place, and his eyes began to wax dim, *that* he could not see;  
-> <sup>3</sup> And ere the lamp of God went out in the temple of the LORD, where the ark of God *was,* and Samuel was laid down *to sleep;*  
-> <sup>4</sup> That the LORD called Samuel: and he answered, Here *am* I.  
-> <sup>5</sup> And he ran unto Eli, and said, Here *am* I; for thou calledst me. And he said, I called not; lie down again. And he went and lay down.  
-> <sup>6</sup> And the LORD called yet again, Samuel. And Samuel arose and went to Eli, and said, Here *am* I; for thou didst call me. And he answered, I called not, my son; lie down again.  
-> <sup>7</sup> Now Samuel did not yet know the LORD, neither was the word of the LORD yet revealed unto him.  
-> <sup>8</sup> And the LORD called Samuel again the third time. And he arose and went to Eli, and said, Here *am* I; for thou didst call me. And Eli perceived that the LORD had called the child.  
-> <sup>9</sup> Therefore Eli said unto Samuel, Go, lie down: and it shall be, if he call thee, that thou shalt say, Speak, LORD; for thy servant heareth. So Samuel went and lay down in his place.  
-> <sup>10</sup> And the LORD came, and stood, and called as at other times, Samuel, Samuel. Then Samuel answered, Speak; for thy servant heareth.  
+> **¹** And the child Samuel ministered unto the LORD before Eli. And the word of the LORD was precious in those days; *there was* no open vision.  
+> **²** And it came to pass at that time, when Eli *was* laid down in his place, and his eyes began to wax dim, *that* he could not see;  
+> **³** And ere the lamp of God went out in the temple of the LORD, where the ark of God *was,* and Samuel was laid down *to sleep;*  
+> **⁴** That the LORD called Samuel: and he answered, Here *am* I.  
+> **⁵** And he ran unto Eli, and said, Here *am* I; for thou calledst me. And he said, I called not; lie down again. And he went and lay down.  
+> **⁶** And the LORD called yet again, Samuel. And Samuel arose and went to Eli, and said, Here *am* I; for thou didst call me. And he answered, I called not, my son; lie down again.  
+> **⁷** Now Samuel did not yet know the LORD, neither was the word of the LORD yet revealed unto him.  
+> **⁸** And the LORD called Samuel again the third time. And he arose and went to Eli, and said, Here *am* I; for thou didst call me. And Eli perceived that the LORD had called the child.  
+> **⁹** Therefore Eli said unto Samuel, Go, lie down: and it shall be, if he call thee, that thou shalt say, Speak, LORD; for thy servant heareth. So Samuel went and lay down in his place.  
+> **¹⁰** And the LORD came, and stood, and called as at other times, Samuel, Samuel. Then Samuel answered, Speak; for thy servant heareth.  
 
 To make way for the account of God's revealing himself first to Samuel, we are here told, 1. How industrious Samuel was in serving God, according as his place and capacity were (1Sa 3:1): *The child Samuel,* though but a child, *ministered unto the Lord before Eli.* It was an aggravation of the wickedness of Eli's sons that the child Samuel shamed them. They rebelled against the Lord, but Samuel ministered to him; they slighted their father's admonitions, but Samuel was observant of them; he ministered before Eli, under his eye and direction. It was the praise of Samuel that he was so far from being influenced by their bad example that he did not in the least fall off, but improved and went on. And it was a preparative for the honours God intended him; he that was thus faithful in a little was soon after entrusted with much more. Let those that are young be humble and diligent, which they will find the surest way to preferment. Those are fittest to rule who have learnt to obey. 2. How scarce a thing prophecy then was, which made the call of Samuel to be the greater surprise to himself and the greater favour to Israel: *The word of the Lord was precious in those days.* Now and then a man of God was employed as a messenger upon an extraordinary occasion (as 1Sa 2:27), but there were no settled prophets, to whom the people might have recourse for counsel, nor from whom they might expect the discoveries of the divine will. And the rarity of prophecy made it the more precious in the account of all those that knew how to put a right value upon it. It was precious, for what there was (it seems) was private: *There was no open vision,* that is, there were none that were publicly known to have visions. Perhaps the impiety and impurity that prevailed in the tabernacle, and no doubt corrupted the whole nation, had provoked God, as a token of his displeasure, to withdraw the Spirit of prophecy, till the decree had gone forth for the raising up of a more faithful priest, and then, as an earnest of that, this faithful prophet was raised up.
 
@@ -35,14 +35,14 @@ V\. At length Samuel was put into a posture to receive a message from God, not t
 
 ## Eli and His House Threatened. (b. c. 1128.)
 
-> <sup>11</sup> And the LORD said to Samuel, Behold, I will do a thing in Israel, at which both the ears of every one that heareth it shall tingle.  
-> <sup>12</sup> In that day I will perform against Eli all *things* which I have spoken concerning his house: when I begin, I will also make an end.  
-> <sup>13</sup> For I have told him that I will judge his house for ever for the iniquity which he knoweth; because his sons made themselves vile, and he restrained them not.  
-> <sup>14</sup> And therefore I have sworn unto the house of Eli, that the iniquity of Eli's house shall not be purged with sacrifice nor offering for ever.  
-> <sup>15</sup> And Samuel lay until the morning, and opened the doors of the house of the LORD. And Samuel feared to shew Eli the vision.  
-> <sup>16</sup> Then Eli called Samuel, and said, Samuel, my son. And he answered, Here *am* I.  
-> <sup>17</sup> And he said, What *is* the thing that *the LORD* hath said unto thee? I pray thee hide *it* not from me: God do so to thee, and more also, if thou hide *any* thing from me of all the things that he said unto thee.  
-> <sup>18</sup> And Samuel told him every whit, and hid nothing from him. And he said, It *is* the LORD: let him do what seemeth him good.  
+> **¹¹** And the LORD said to Samuel, Behold, I will do a thing in Israel, at which both the ears of every one that heareth it shall tingle.  
+> **¹²** In that day I will perform against Eli all *things* which I have spoken concerning his house: when I begin, I will also make an end.  
+> **¹³** For I have told him that I will judge his house for ever for the iniquity which he knoweth; because his sons made themselves vile, and he restrained them not.  
+> **¹⁴** And therefore I have sworn unto the house of Eli, that the iniquity of Eli's house shall not be purged with sacrifice nor offering for ever.  
+> **¹⁵** And Samuel lay until the morning, and opened the doors of the house of the LORD. And Samuel feared to shew Eli the vision.  
+> **¹⁶** Then Eli called Samuel, and said, Samuel, my son. And he answered, Here *am* I.  
+> **¹⁷** And he said, What *is* the thing that *the LORD* hath said unto thee? I pray thee hide *it* not from me: God do so to thee, and more also, if thou hide *any* thing from me of all the things that he said unto thee.  
+> **¹⁸** And Samuel told him every whit, and hid nothing from him. And he said, It *is* the LORD: let him do what seemeth him good.  
 
 Here is, I. The message which, after all this introduction, God delivered to Samuel concerning Eli's house. God did not come to him now to tell him how great a man he should be in his day, what a figure he should make, and what a blessing he should be in Israel. Young people have commonly a great curiosity to be told their fortune, but God came to Samuel, not to gratify his curiosity, but to employ him in his service and send him on an errand to another person, which was much better; and yet the matter of this first message, which no doubt made a very great impression upon him, might be of good use to him afterwards, when his own sons proved, though not so bad as Eli's, yet not so good as they should have been, 1Sa 8:3. The message is short, not nearly so long as that which the man of God brought, 1Sa 2:27. For, Samuel being a child, it could not be expected that he should remember a long message, and God considered his frame. The memories of children must not be overcharged, no, not with divine things. But it is a sad message, a message of wrath, to ratify the message in the former chapter, and to bind on the sentence there pronounced, because perhaps Eli did not give so much regard to that as he ought to have done. Divine threatenings, the less they are heeded, the surer they will come and the heavier they will fall. Reference is here had to what was there said concerning both the sin and the punishment.
 
@@ -62,9 +62,9 @@ II\. The delivery of this message to Eli. Observe,
 
 ## Samuel Honoured as a Prophet. (b. c. 1128.)
 
-> <sup>19</sup> And Samuel grew, and the LORD was with him, and did let none of his words fall to the ground.  
-> <sup>20</sup> And all Israel from Dan even to Beer-sheba knew that Samuel *was* established *to be* a prophet of the LORD.  
-> <sup>21</sup> And the LORD appeared again in Shiloh: for the LORD revealed himself to Samuel in Shiloh by the word of the LORD.  
+> **¹⁹** And Samuel grew, and the LORD was with him, and did let none of his words fall to the ground.  
+> **²⁰** And all Israel from Dan even to Beer-sheba knew that Samuel *was* established *to be* a prophet of the LORD.  
+> **²¹** And the LORD appeared again in Shiloh: for the LORD revealed himself to Samuel in Shiloh by the word of the LORD.  
 
 Samuel being thus brought acquainted with the visions of God, we have here an account of the further honour done him as a prophet.
 

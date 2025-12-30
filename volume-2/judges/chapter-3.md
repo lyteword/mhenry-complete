@@ -8,13 +8,13 @@ In this chapter, I. A general account of Israel's enemies is premised, and of th
 
 ## The Idolatry of the Israelites. (b. c. 1406.)
 
-> <sup>1</sup> Now these *are* the nations which the LORD left, to prove Israel by them, *even* as many *of Israel* as had not known all the wars of Canaan;  
-> <sup>2</sup> Only that the generations of the children of Israel might know, to teach them war, at the least such as before knew nothing thereof;  
-> <sup>3</sup> *Namely,* five lords of the Philistines, and all the Canaanites, and the Sidonians, and the Hivites that dwelt in mount Lebanon, from mount Baal-hermon unto the entering in of Hamath.  
-> <sup>4</sup> And they were to prove Israel by them, to know whether they would hearken unto the commandments of the LORD, which he commanded their fathers by the hand of Moses.  
-> <sup>5</sup> And the children of Israel dwelt among the Canaanites, Hittites, and Amorites, and Perizzites, and Hivites, and Jebusites:  
-> <sup>6</sup> And they took their daughters to be their wives, and gave their daughters to their sons, and served their gods.  
-> <sup>7</sup> And the children of Israel did evil in the sight of the LORD, and forgat the LORD their God, and served Baalim and the groves.  
+> **¹** Now these *are* the nations which the LORD left, to prove Israel by them, *even* as many *of Israel* as had not known all the wars of Canaan;  
+> **²** Only that the generations of the children of Israel might know, to teach them war, at the least such as before knew nothing thereof;  
+> **³** *Namely,* five lords of the Philistines, and all the Canaanites, and the Sidonians, and the Hivites that dwelt in mount Lebanon, from mount Baal-hermon unto the entering in of Hamath.  
+> **⁴** And they were to prove Israel by them, to know whether they would hearken unto the commandments of the LORD, which he commanded their fathers by the hand of Moses.  
+> **⁵** And the children of Israel dwelt among the Canaanites, Hittites, and Amorites, and Perizzites, and Hivites, and Jebusites:  
+> **⁶** And they took their daughters to be their wives, and gave their daughters to their sons, and served their gods.  
+> **⁷** And the children of Israel did evil in the sight of the LORD, and forgat the LORD their God, and served Baalim and the groves.  
 
 We are here told what remained of the old inhabitants of Canaan. 1. There were some of them that kept together in united bodies, unbroken (Jdg 3:3): *The five lords of the Philistines,* namely, Ashdod, Gaza, Askelon, Gath, and Ekron, 1Sa 6:17. Three of these cities had been in part reduced (Jdg 1:18), but it seems the Philistines (probably with the help of the other two, which strengthened their confederacy with each other thenceforward) recovered the possession of them. These gave the greatest disturbance to Israel of any of the natives, especially in the latter times of the judges, and they were never quite reduced until David's time. There was a particular nation called *Canaanites,* that kept their ground with the Sidonians, upon the coast of the great sea. And in the north the Hivites held much of Mount Lebanon, it being a remote corner, in which perhaps they were supported by some of the neighbouring states. But, besides these, 2. There were every where in all parts of the country some scatterings of the nations (Jdg 3:5), Hittites, Amorites, etc., which, by Israel's foolish connivance and indulgence, were so many, so easy, and so insolent, that the *children of Israel* are said to *dwell among them,* as if the right had still remained in the Canaanites, and the Israelites had been taken in by their permission and only as tenants at will.
 
@@ -26,10 +26,10 @@ II\. How wickedly Israel mingled themselves with those that did remain. One thin
 
 ## The Government of Othniel. (b. c. 1336.)
 
-> <sup>8</sup> Therefore the anger of the LORD was hot against Israel, and he sold them into the hand of Chushan-rishathaim king of Mesopotamia: and the children of Israel served Chushan-rishathaim eight years.  
-> <sup>9</sup> And when the children of Israel cried unto the LORD, the LORD raised up a deliverer to the children of Israel, who delivered them, *even* Othniel the son of Kenaz, Caleb's younger brother.  
-> <sup>10</sup> And the Spirit of the LORD came upon him, and he judged Israel, and went out to war: and the LORD delivered Chushan-rishathaim king of Mesopotamia into his hand; and his hand prevailed against Chushan-rishathaim.  
-> <sup>11</sup> And the land had rest forty years. And Othniel the son of Kenaz died.  
+> **⁸** Therefore the anger of the LORD was hot against Israel, and he sold them into the hand of Chushan-rishathaim king of Mesopotamia: and the children of Israel served Chushan-rishathaim eight years.  
+> **⁹** And when the children of Israel cried unto the LORD, the LORD raised up a deliverer to the children of Israel, who delivered them, *even* Othniel the son of Kenaz, Caleb's younger brother.  
+> **¹⁰** And the Spirit of the LORD came upon him, and he judged Israel, and went out to war: and the LORD delivered Chushan-rishathaim king of Mesopotamia into his hand; and his hand prevailed against Chushan-rishathaim.  
+> **¹¹** And the land had rest forty years. And Othniel the son of Kenaz died.  
 
 We now come to the records of the government of the particular judges, the first of which was Othniel, in whom the story of this book is knit to that of Joshua, for even in Joshua's time Othniel began to be famous, by which it appears that it was not long after Israel's settlement in Canaan before their purity began to be corrupted and their peace (by consequence) disturbed. And those who have taken pains to enquire into the sacred chronology are generally agreed that the Danites' idolatry, and the war with the Benjamites for abusing the Levite's concubine, though related in the latter end of this book, happened about this time, under or before the government of Othniel, who, though a judge, was not such a king in Israel as would keep men from doing what was *right in their own eyes.* In this short narrative of Othniel's government we have,
 
@@ -41,25 +41,25 @@ III\. God's return in mercy to them for their deliverance. Though need drove the
 
 ## Israel Oppressed by Eglon; Eglon Slain by Ehud. (b. c. 1336.)
 
-> <sup>12</sup> And the children of Israel did evil again in the sight of the LORD: and the LORD strengthened Eglon the king of Moab against Israel, because they had done evil in the sight of the LORD.  
-> <sup>13</sup> And he gathered unto him the children of Ammon and Amalek, and went and smote Israel, and possessed the city of palm trees.  
-> <sup>14</sup> So the children of Israel served Eglon the king of Moab eighteen years.  
-> <sup>15</sup> But when the children of Israel cried unto the LORD, the LORD raised them up a deliverer, Ehud the son of Gera, a Benjamite, a man left-handed: and by him the children of Israel sent a present unto Eglon the king of Moab.  
-> <sup>16</sup> But Ehud made him a dagger which had two edges, of a cubit length; and he did gird it under his raiment upon his right thigh.  
-> <sup>17</sup> And he brought the present unto Eglon king of Moab: and Eglon *was* a very fat man.  
-> <sup>18</sup> And when he had made an end to offer the present, he sent away the people that bare the present.  
-> <sup>19</sup> But he himself turned again from the quarries that *were* by Gilgal, and said, I have a secret errand unto thee, O king: who said, Keep silence. And all that stood by him went out from him.  
-> <sup>20</sup> And Ehud came unto him; and he was sitting in a summer parlour, which he had for himself alone. And Ehud said, I have a message from God unto thee. And he arose out of *his* seat.  
-> <sup>21</sup> And Ehud put forth his left hand, and took the dagger from his right thigh, and thrust it into his belly:  
-> <sup>22</sup> And the haft also went in after the blade; and the fat closed upon the blade, so that he could not draw the dagger out of his belly; and the dirt came out.  
-> <sup>23</sup> Then Ehud went forth through the porch, and shut the doors of the parlour upon him, and locked them.  
-> <sup>24</sup> When he was gone out, his servants came; and when they saw that, behold, the doors of the parlour *were* locked, they said, Surely he covereth his feet in his summer chamber.  
-> <sup>25</sup> And they tarried till they were ashamed: and, behold, he opened not the doors of the parlour; therefore they took a key, and opened *them:* and, behold, their lord *was* fallen down dead on the earth.  
-> <sup>26</sup> And Ehud escaped while they tarried, and passed beyond the quarries, and escaped unto Seirath.  
-> <sup>27</sup> And it came to pass, when he was come, that he blew a trumpet in the mountain of Ephraim, and the children of Israel went down with him from the mount, and he before them.  
-> <sup>28</sup> And he said unto them, Follow after me: for the LORD hath delivered your enemies the Moabites into your hand. And they went down after him, and took the fords of Jordan toward Moab, and suffered not a man to pass over.  
-> <sup>29</sup> And they slew of Moab at that time about ten thousand men, all lusty, and all men of valour; and there escaped not a man.  
-> <sup>30</sup> So Moab was subdued that day under the hand of Israel. And the land had rest fourscore years.  
+> **¹²** And the children of Israel did evil again in the sight of the LORD: and the LORD strengthened Eglon the king of Moab against Israel, because they had done evil in the sight of the LORD.  
+> **¹³** And he gathered unto him the children of Ammon and Amalek, and went and smote Israel, and possessed the city of palm trees.  
+> **¹⁴** So the children of Israel served Eglon the king of Moab eighteen years.  
+> **¹⁵** But when the children of Israel cried unto the LORD, the LORD raised them up a deliverer, Ehud the son of Gera, a Benjamite, a man left-handed: and by him the children of Israel sent a present unto Eglon the king of Moab.  
+> **¹⁶** But Ehud made him a dagger which had two edges, of a cubit length; and he did gird it under his raiment upon his right thigh.  
+> **¹⁷** And he brought the present unto Eglon king of Moab: and Eglon *was* a very fat man.  
+> **¹⁸** And when he had made an end to offer the present, he sent away the people that bare the present.  
+> **¹⁹** But he himself turned again from the quarries that *were* by Gilgal, and said, I have a secret errand unto thee, O king: who said, Keep silence. And all that stood by him went out from him.  
+> **²⁰** And Ehud came unto him; and he was sitting in a summer parlour, which he had for himself alone. And Ehud said, I have a message from God unto thee. And he arose out of *his* seat.  
+> **²¹** And Ehud put forth his left hand, and took the dagger from his right thigh, and thrust it into his belly:  
+> **²²** And the haft also went in after the blade; and the fat closed upon the blade, so that he could not draw the dagger out of his belly; and the dirt came out.  
+> **²³** Then Ehud went forth through the porch, and shut the doors of the parlour upon him, and locked them.  
+> **²⁴** When he was gone out, his servants came; and when they saw that, behold, the doors of the parlour *were* locked, they said, Surely he covereth his feet in his summer chamber.  
+> **²⁵** And they tarried till they were ashamed: and, behold, he opened not the doors of the parlour; therefore they took a key, and opened *them:* and, behold, their lord *was* fallen down dead on the earth.  
+> **²⁶** And Ehud escaped while they tarried, and passed beyond the quarries, and escaped unto Seirath.  
+> **²⁷** And it came to pass, when he was come, that he blew a trumpet in the mountain of Ephraim, and the children of Israel went down with him from the mount, and he before them.  
+> **²⁸** And he said unto them, Follow after me: for the LORD hath delivered your enemies the Moabites into your hand. And they went down after him, and took the fords of Jordan toward Moab, and suffered not a man to pass over.  
+> **²⁹** And they slew of Moab at that time about ten thousand men, all lusty, and all men of valour; and there escaped not a man.  
+> **³⁰** So Moab was subdued that day under the hand of Israel. And the land had rest fourscore years.  
 
 Ehud is the next of the judges whose achievements are related in this history, and here is an account of his actions.
 
@@ -89,7 +89,7 @@ II\. When Israel prays again God raises up a new deliverer (Jdg 3:15), named *Eh
 
 ## Shamgar Slays Six Hundred Philistines. (b. c. 1316.)
 
-> <sup>31</sup> And after him was Shamgar the son of Anath, which slew of the Philistines six hundred men with an ox goad: and he also delivered Israel.  
+> **³¹** And after him was Shamgar the son of Anath, which slew of the Philistines six hundred men with an ox goad: and he also delivered Israel.  
 
 When it is said *the land had rest eighty years,* some think it meant chiefly of that part of the land which lay eastward on the banks of Jordan, which had been oppressed by the Moabites; but it seems, by this passage here, that the other side of the country which lay south-west was in that time infested by the Philistines, against whom Shamgar made head. 1. It seems Israel needed deliverance, for *he delivered Israel;* how great the distress was Deborah afterwards related in her song (Jdg 5:6), that *in the days of Shamgar the highways were unoccupied,* etc.; that part of the country which lay next to the Philistines was so infested with plunderers that people could not travel the roads in safety, but were in danger of being set upon and robbed, nor durst they dwell in the unguarded villages, but were forced to take shelter in the fortified cities. 2. God raised him up to deliver them, as it should seem, while Ehud was yet living, but superannuated. So inconsiderable were the enemies for number that it seems the killing of 600 of them amounted to a deliverance of Israel, and so many he slew with an ox-goad, or, as some read it, *a plough-share.* It is probable that he was himself following the plough when the Philistines made an inroad upon the country to ravage it, and God put it into his heart to oppose them; the impulse being sudden and strong, and having neither sword nor spear to do execution with, he took the instrument that was next at hand, some of the tools of his plough, and with that killed so many hundred men and came off unhurt. See here, (1.) That God can make those eminently serviceable to his glory and his church's good whose extraction, education, and employment, are very mean and obscure. He that has the residue of the Spirit could, when he pleased, make ploughmen judges and generals, and fishermen apostles. (2.) It is no matter how weak the weapon is if God direct and strengthen the arm. An ox-goad, when God pleases, shall do more than Goliath's sword. And sometimes he chooses to work by such unlikely means, that the excellency of the power may appear to be of God.
 

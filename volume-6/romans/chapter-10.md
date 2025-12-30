@@ -8,17 +8,17 @@ The dissolving of the peculiar church-state of the Jews, and the rejection of th
 
 ## Paul's Discourse of Righteousness; The Method of Salvation. (a. d. 58.)
 
-> <sup>1</sup> Brethren, my heart's desire and prayer to God for Israel is, that they might be saved.  
-> <sup>2</sup> For I bear them record that they have a zeal of God, but not according to knowledge.  
-> <sup>3</sup> For they being ignorant of God's righteousness, and going about to establish their own righteousness, have not submitted themselves unto the righteousness of God.  
-> <sup>4</sup> For Christ *is* the end of the law for righteousness to every one that believeth.  
-> <sup>5</sup> For Moses describeth the righteousness which is of the law, That the man which doeth those things shall live by them.  
-> <sup>6</sup> But the righteousness which is of faith speaketh on this wise, Say not in thine heart, Who shall ascend into heaven? (that is, to bring Christ down *from above:*)  
-> <sup>7</sup> Or, Who shall descend into the deep? (that is, to bring up Christ again from the dead.)  
-> <sup>8</sup> But what saith it? The word is nigh thee, *even* in thy mouth, and in thy heart: that is, the word of faith, which we preach;  
-> <sup>9</sup> That if thou shalt confess with thy mouth the Lord Jesus, and shalt believe in thine heart that God hath raised him from the dead, thou shalt be saved.  
-> <sup>10</sup> For with the heart man believeth unto righteousness; and with the mouth confession is made unto salvation.  
-> <sup>11</sup> For the scripture saith, Whosoever believeth on him shall not be ashamed.  
+> **¹** Brethren, my heart's desire and prayer to God for Israel is, that they might be saved.  
+> **²** For I bear them record that they have a zeal of God, but not according to knowledge.  
+> **³** For they being ignorant of God's righteousness, and going about to establish their own righteousness, have not submitted themselves unto the righteousness of God.  
+> **⁴** For Christ *is* the end of the law for righteousness to every one that believeth.  
+> **⁵** For Moses describeth the righteousness which is of the law, That the man which doeth those things shall live by them.  
+> **⁶** But the righteousness which is of faith speaketh on this wise, Say not in thine heart, Who shall ascend into heaven? (that is, to bring Christ down *from above:*)  
+> **⁷** Or, Who shall descend into the deep? (that is, to bring up Christ again from the dead.)  
+> **⁸** But what saith it? The word is nigh thee, *even* in thy mouth, and in thy heart: that is, the word of faith, which we preach;  
+> **⁹** That if thou shalt confess with thy mouth the Lord Jesus, and shalt believe in thine heart that God hath raised him from the dead, thou shalt be saved.  
+> **¹⁰** For with the heart man believeth unto righteousness; and with the mouth confession is made unto salvation.  
+> **¹¹** For the scripture saith, Whosoever believeth on him shall not be ashamed.  
 
 The scope of the apostle in this part of the chapter is to show the vast difference between the righteousness of the law and the righteousness of faith, and the great pre-eminence of the righteousness of faith above that of the law; that he might induce and persuade the Jews to believe in Christ, aggravate the folly and sin of those that refused, and justify God in the rejection of such refusers.
 
@@ -58,16 +58,16 @@ III\. He here shows the folly of that mistake, and what an unreasonable thing it
 
 ## Importance of Preaching the Gospel; Perverseness of Israel. (a. d. 58.)
 
-> <sup>12</sup> For there is no difference between the Jew and the Greek: for the same Lord over all is rich unto all that call upon him.  
-> <sup>13</sup> For whosoever shall call upon the name of the Lord shall be saved.  
-> <sup>14</sup> How then shall they call on him in whom they have not believed? and how shall they believe in him of whom they have not heard? and how shall they hear without a preacher?  
-> <sup>15</sup> And how shall they preach, except they be sent? as it is written, How beautiful are the feet of them that preach the gospel of peace, and bring glad tidings of good things!  
-> <sup>16</sup> But they have not all obeyed the gospel. For Esaias saith, Lord, who hath believed our report?  
-> <sup>17</sup> So then faith *cometh* by hearing, and hearing by the word of God.  
-> <sup>18</sup> But I say, Have they not heard? Yes verily, their sound went into all the earth, and their words unto the ends of the world.  
-> <sup>19</sup> But I say, Did not Israel know? First Moses saith, I will provoke you to jealousy by *them that are* no people, *and* by a foolish nation I will anger you.  
-> <sup>20</sup> But Esaias is very bold, and saith, I was found of them that sought me not; I was made manifest unto them that asked not after me.  
-> <sup>21</sup> But to Israel he saith, All day long I have stretched forth my hands unto a disobedient and gainsaying people.  
+> **¹²** For there is no difference between the Jew and the Greek: for the same Lord over all is rich unto all that call upon him.  
+> **¹³** For whosoever shall call upon the name of the Lord shall be saved.  
+> **¹⁴** How then shall they call on him in whom they have not believed? and how shall they believe in him of whom they have not heard? and how shall they hear without a preacher?  
+> **¹⁵** And how shall they preach, except they be sent? as it is written, How beautiful are the feet of them that preach the gospel of peace, and bring glad tidings of good things!  
+> **¹⁶** But they have not all obeyed the gospel. For Esaias saith, Lord, who hath believed our report?  
+> **¹⁷** So then faith *cometh* by hearing, and hearing by the word of God.  
+> **¹⁸** But I say, Have they not heard? Yes verily, their sound went into all the earth, and their words unto the ends of the world.  
+> **¹⁹** But I say, Did not Israel know? First Moses saith, I will provoke you to jealousy by *them that are* no people, *and* by a foolish nation I will anger you.  
+> **²⁰** But Esaias is very bold, and saith, I was found of them that sought me not; I was made manifest unto them that asked not after me.  
+> **²¹** But to Israel he saith, All day long I have stretched forth my hands unto a disobedient and gainsaying people.  
 
 The first words express the design of the apostle through these verses, that there is no difference between Jews and Gentiles, but they stand upon the same level in point of acceptance with God. In Jesus Christ there is neither Greek nor Jews, Col 3:11. God doth not save any nor reject any because they are Jews, nor because they are Greeks, but doth equally accept both upon gospel terms: *There is no difference.* For the proof of this he urges two arguments:—
 

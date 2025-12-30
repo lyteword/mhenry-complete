@@ -8,25 +8,25 @@ This is one of the Hallelujah-psalms; that is the title of it, and that is the A
 
 ## Majesty and Goodness of God.
 
-> <sup>1</sup> Praise ye the LORD. Praise ye the name of the LORD; praise *him,* O ye servants of the LORD.  
-> <sup>2</sup> Ye that stand in the house of the LORD, in the courts of the house of our God,  
-> <sup>3</sup> Praise the LORD; for the LORD *is* good: sing praises unto his name; for *it is* pleasant.  
-> <sup>4</sup> For the LORD hath chosen Jacob unto himself, *and* Israel for his peculiar treasure.  
+> **¹** Praise ye the LORD. Praise ye the name of the LORD; praise *him,* O ye servants of the LORD.  
+> **²** Ye that stand in the house of the LORD, in the courts of the house of our God,  
+> **³** Praise the LORD; for the LORD *is* good: sing praises unto his name; for *it is* pleasant.  
+> **⁴** For the LORD hath chosen Jacob unto himself, *and* Israel for his peculiar treasure.  
 
 Here is, 1. The duty we are called to—to *praise the Lord,* to *praise his name; praise him,* and again *praise him.* We must not only thank him for what he has done for us, but praise him for what he is in himself and has done for others; take all occasions to speak well of God and to give his truths and ways a good word. 2. The persons that are called upon to do this—the *servants of the Lord,* the priests and Levites *that stand in his house,* and all the devout and pious Israelites that stand *in the courts of his house* to worship there, Ps 135:2. Those that have most reason to praise God who are admitted to the privileges of his house, and those see most reason who there behold his beauty and taste his bounty; from them it is expected, for to that end they enjoy their places. Who should praise him if they do not? 3. The reasons why we should praise God. (1.) Because he whom we are to praise *is good,* and goodness is that which every body will speak well of. He is good to all, and we must give him the praise of that. His goodness is his glory, and we must make mention of it to his glory. (2.) Because the work is its own wages: *Sing praises to his name, for it is pleasant.* It is best done with a cheerful spirit, and we shall have the pleasure of having done our duty. It is a heaven upon earth to be praising God; and the pleasure of that should quite put our mouths out of taste for the pleasures of sin. (3.) Because of the peculiar privileges of God's people (Ps 135:4): *The Lord hath chosen Jacob to himself,* and therefore Jacob is bound to praise him; for *therefore* God chose a people to himself that they might be unto him *for a name and a praise* (Jer 13:11), and *therefore* Jacob has abundant matter for praise, being thus dignified and distinguished. *Israel* is God's *peculiar treasure* above all people (Ex 19:5); they are his *Segullah,* a people appropriated to him, and that he has a delight in, *precious in his sight and honourable.* For this distinguishing surprising favour, if the seed of Jacob do not praise him, they are the most unworthy ungrateful people under the sun.
 
 ## Majesty and Goodness of God.
 
-> <sup>5</sup> For I know that the LORD *is* great, and *that* our Lord *is* above all gods.  
-> <sup>6</sup> Whatsoever the LORD pleased, *that* did he in heaven, and in earth, in the seas, and all deep places.  
-> <sup>7</sup> He causeth the vapours to ascend from the ends of the earth; he maketh lightnings for the rain; he bringeth the wind out of his treasuries.  
-> <sup>8</sup> Who smote the firstborn of Egypt, both of man and beast.  
-> <sup>9</sup> *Who* sent tokens and wonders into the midst of thee, O Egypt, upon Pharaoh, and upon all his servants.  
-> <sup>10</sup> Who smote great nations, and slew mighty kings;  
-> <sup>11</sup> Sihon king of the Amorites, and Og king of Bashan, and all the kingdoms of Canaan:  
-> <sup>12</sup> And gave their land *for* a heritage, a heritage unto Israel his people.  
-> <sup>13</sup> Thy name, O LORD, *endureth* for ever; *and* thy memorial, O LORD, throughout all generations.  
-> <sup>14</sup> For the LORD will judge his people, and he will repent himself concerning his servants.  
+> **⁵** For I know that the LORD *is* great, and *that* our Lord *is* above all gods.  
+> **⁶** Whatsoever the LORD pleased, *that* did he in heaven, and in earth, in the seas, and all deep places.  
+> **⁷** He causeth the vapours to ascend from the ends of the earth; he maketh lightnings for the rain; he bringeth the wind out of his treasuries.  
+> **⁸** Who smote the firstborn of Egypt, both of man and beast.  
+> **⁹** *Who* sent tokens and wonders into the midst of thee, O Egypt, upon Pharaoh, and upon all his servants.  
+> **¹⁰** Who smote great nations, and slew mighty kings;  
+> **¹¹** Sihon king of the Amorites, and Og king of Bashan, and all the kingdoms of Canaan:  
+> **¹²** And gave their land *for* a heritage, a heritage unto Israel his people.  
+> **¹³** Thy name, O LORD, *endureth* for ever; *and* thy memorial, O LORD, throughout all generations.  
+> **¹⁴** For the LORD will judge his people, and he will repent himself concerning his servants.  
 
 The psalmist had suggested to us the goodness of God, as the proper matter of our cheerful praises; here he suggests to us the greatness of God as the proper matter of our awful praises; and on this he is most copious, because this we are less forward to consider.
 
@@ -44,13 +44,13 @@ IV\. He triumphs in the perpetuity of God's glory and grace. 1. Of his glory (Ps
 
 ## An Invitation to Praise.
 
-> <sup>15</sup> The idols of the heathen *are* silver and gold, the work of men's hands.  
-> <sup>16</sup> They have mouths, but they speak not; eyes have they, but they see not;  
-> <sup>17</sup> They have ears, but they hear not; neither is there *any* breath in their mouths.  
-> <sup>18</sup> They that make them are like unto them: *so is* every one that trusteth in them.  
-> <sup>19</sup> Bless the LORD, O house of Israel: bless the LORD, O house of Aaron:  
-> <sup>20</sup> Bless the LORD, O house of Levi: ye that fear the LORD, bless the LORD.  
-> <sup>21</sup> Blessed be the LORD out of Zion, which dwelleth at Jerusalem. Praise ye the LORD.  
+> **¹⁵** The idols of the heathen *are* silver and gold, the work of men's hands.  
+> **¹⁶** They have mouths, but they speak not; eyes have they, but they see not;  
+> **¹⁷** They have ears, but they hear not; neither is there *any* breath in their mouths.  
+> **¹⁸** They that make them are like unto them: *so is* every one that trusteth in them.  
+> **¹⁹** Bless the LORD, O house of Israel: bless the LORD, O house of Aaron:  
+> **²⁰** Bless the LORD, O house of Levi: ye that fear the LORD, bless the LORD.  
+> **²¹** Blessed be the LORD out of Zion, which dwelleth at Jerusalem. Praise ye the LORD.  
 
 The design of these verses is,
 

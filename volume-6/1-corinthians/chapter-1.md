@@ -8,15 +8,15 @@ In this chapter we have, I. The preface or introduction to the whole epistle, 1C
 
 ## The Apostle's Salutation. (a. d. 57.)
 
-> <sup>1</sup> Paul, called *to be* an apostle of Jesus Christ through the will of God, and Sosthenes *our* brother,  
-> <sup>2</sup> Unto the church of God which is at Corinth, to them that are sanctified in Christ Jesus, called *to be* saints, with all that in every place call upon the name of Jesus Christ our Lord, both theirs and ours:  
-> <sup>3</sup> Grace *be* unto you, and peace, from God our Father, and *from* the Lord Jesus Christ.  
-> <sup>4</sup> I thank my God always on your behalf, for the grace of God which is given you by Jesus Christ;  
-> <sup>5</sup> That in every thing ye are enriched by him, in all utterance, and *in* all knowledge;  
-> <sup>6</sup> Even as the testimony of Christ was confirmed in you:  
-> <sup>7</sup> So that ye come behind in no gift; waiting for the coming of our Lord Jesus Christ:  
-> <sup>8</sup> Who shall also confirm you unto the end, *that ye may be* blameless in the day of our Lord Jesus Christ.  
-> <sup>9</sup> God *is* faithful, by whom ye were called unto the fellowship of his Son Jesus Christ our Lord.  
+> **¹** Paul, called *to be* an apostle of Jesus Christ through the will of God, and Sosthenes *our* brother,  
+> **²** Unto the church of God which is at Corinth, to them that are sanctified in Christ Jesus, called *to be* saints, with all that in every place call upon the name of Jesus Christ our Lord, both theirs and ours:  
+> **³** Grace *be* unto you, and peace, from God our Father, and *from* the Lord Jesus Christ.  
+> **⁴** I thank my God always on your behalf, for the grace of God which is given you by Jesus Christ;  
+> **⁵** That in every thing ye are enriched by him, in all utterance, and *in* all knowledge;  
+> **⁶** Even as the testimony of Christ was confirmed in you:  
+> **⁷** So that ye come behind in no gift; waiting for the coming of our Lord Jesus Christ:  
+> **⁸** Who shall also confirm you unto the end, *that ye may be* blameless in the day of our Lord Jesus Christ.  
+> **⁹** God *is* faithful, by whom ye were called unto the fellowship of his Son Jesus Christ our Lord.  
 
 We have here the apostle's preface to his whole epistle, in which we may take notice,
 
@@ -30,10 +30,10 @@ IV\. Of the encouraging hopes the apostle had of them for the time to come, foun
 
 ## Party-Spirit Reproved. (a. d. 57.)
 
-> <sup>10</sup> Now I beseech you, brethren, by the name of our Lord Jesus Christ, that ye all speak the same thing, and *that* there be no divisions among you; but *that* ye be perfectly joined together in the same mind and in the same judgment.  
-> <sup>11</sup> For it hath been declared unto me of you, my brethren, by them *which are of the house* of Chloe, that there are contentions among you.  
-> <sup>12</sup> Now this I say, that every one of you saith, I am of Paul; and I of Apollos; and I of Cephas; and I of Christ.  
-> <sup>13</sup> Is Christ divided? was Paul crucified for you? or were ye baptized in the name of Paul?  
+> **¹⁰** Now I beseech you, brethren, by the name of our Lord Jesus Christ, that ye all speak the same thing, and *that* there be no divisions among you; but *that* ye be perfectly joined together in the same mind and in the same judgment.  
+> **¹¹** For it hath been declared unto me of you, my brethren, by them *which are of the house* of Chloe, that there are contentions among you.  
+> **¹²** Now this I say, that every one of you saith, I am of Paul; and I of Apollos; and I of Cephas; and I of Christ.  
+> **¹³** Is Christ divided? was Paul crucified for you? or were ye baptized in the name of Paul?  
 
 Here the apostle enters on his subject.
 
@@ -45,29 +45,29 @@ III\. He expostulates with them upon their discord and quarrels: "*Is Christ div
 
 ## Party-Spirit Reproved. (a. d. 57.)
 
-> <sup>14</sup> I thank God that I baptized none of you, but Crispus and Gaius;  
-> <sup>15</sup> Lest any should say that I had baptized in mine own name.  
-> <sup>16</sup> And I baptized also the household of Stephanas: besides, I know not whether I baptized any other.  
+> **¹⁴** I thank God that I baptized none of you, but Crispus and Gaius;  
+> **¹⁵** Lest any should say that I had baptized in mine own name.  
+> **¹⁶** And I baptized also the household of Stephanas: besides, I know not whether I baptized any other.  
 
 Here the apostle gives an account of his ministry among them. He thanks God he had baptized but a few among them, *Crispus,* who had been a ruler of a synagogue at Corinth (Ac 18:8), *Gaius, and the household of Stephanas,* besides whom, he says, he did not remember that he had baptized any. But how was this a proper matter for thankfulness? Was it not a part of the apostolical commission to baptize all nations? And could Paul give thanks to God for his own neglect of duty? He is not to be understood in such a sense as if he were thankful for not having baptized at all, but for not having done it in present circumstances, lest it should have had this very bad construction put upon it—that he had baptized in his own name, made disciples for himself, or set himself up as the head of a sect. He left it to other ministers to baptize, while he set himself to more useful work, and filled up his time with preaching the gospel. This, he thought, was more his business, because the more important business of the two. He had assistants that could baptize, when none could discharge the other part of his office so well as himself. In this sense he says, *Christ sent him not to baptize, but to preach the gospel*—not so much to baptize as to preach. Note, Ministers should consider themselves sent and set apart more especially to that service in which Christ will be most honoured and the salvation of souls promoted, and for which they are best fitted, though no part of their duty is to be neglected. The principal business Paul did among them was to preach *the gospel* (1Co 1:17), *the cross* (1Co 1:18), *Christ crucified,* 1Co 1:23. Ministers are the soldiers of Christ, and are to erect and display the banner of the cross. He did not preach his own fancy, but the gospel—the glad tidings of peace, and reconciliation to God, through the mediation of a crucified Redeemer. This is the sum and substance of the gospel. Christ crucified is the foundation of all our joys. By his death we live. This is what Paul preached, what all ministers should preach, and what all the saints live upon.
 
 ## The Efficacy of the Gospel; The Character of the Gospel. (a. d. 57.)
 
-> <sup>17</sup> For Christ sent me not to baptize, but to preach the gospel: not with wisdom of words, lest the cross of Christ should be made of none effect.  
-> <sup>18</sup> For the preaching of the cross is to them that perish foolishness; but unto us which are saved it is the power of God.  
-> <sup>19</sup> For it is written, I will destroy the wisdom of the wise, and will bring to nothing the understanding of the prudent.  
-> <sup>20</sup> Where *is* the wise? where *is* the scribe? where *is* the disputer of this world? hath not God made foolish the wisdom of this world?  
-> <sup>21</sup> For after that in the wisdom of God the world by wisdom knew not God, it pleased God by the foolishness of preaching to save them that believe.  
-> <sup>22</sup> For the Jews require a sign, and the Greeks seek after wisdom:  
-> <sup>23</sup> But we preach Christ crucified, unto the Jews a stumblingblock, and unto the Greeks foolishness;  
-> <sup>24</sup> But unto them which are called, both Jews and Greeks, Christ the power of God, and the wisdom of God.  
-> <sup>25</sup> Because the foolishness of God is wiser than men; and the weakness of God is stronger than men.  
-> <sup>26</sup> For ye see your calling, brethren, how that not many wise men after the flesh, not many mighty, not many noble, *are called:*  
-> <sup>27</sup> But God hath chosen the foolish things of the world to confound the wise; and God hath chosen the weak things of the world to confound the things which are mighty;  
-> <sup>28</sup> And base things of the world, and things which are despised, hath God chosen, *yea,* and things which are not, to bring to nought things that are:  
-> <sup>29</sup> That no flesh should glory in his presence.  
-> <sup>30</sup> But of him are ye in Christ Jesus, who of God is made unto us wisdom, and righteousness, and sanctification, and redemption:  
-> <sup>31</sup> That, according as it is written, He that glorieth, let him glory in the Lord.  
+> **¹⁷** For Christ sent me not to baptize, but to preach the gospel: not with wisdom of words, lest the cross of Christ should be made of none effect.  
+> **¹⁸** For the preaching of the cross is to them that perish foolishness; but unto us which are saved it is the power of God.  
+> **¹⁹** For it is written, I will destroy the wisdom of the wise, and will bring to nothing the understanding of the prudent.  
+> **²⁰** Where *is* the wise? where *is* the scribe? where *is* the disputer of this world? hath not God made foolish the wisdom of this world?  
+> **²¹** For after that in the wisdom of God the world by wisdom knew not God, it pleased God by the foolishness of preaching to save them that believe.  
+> **²²** For the Jews require a sign, and the Greeks seek after wisdom:  
+> **²³** But we preach Christ crucified, unto the Jews a stumblingblock, and unto the Greeks foolishness;  
+> **²⁴** But unto them which are called, both Jews and Greeks, Christ the power of God, and the wisdom of God.  
+> **²⁵** Because the foolishness of God is wiser than men; and the weakness of God is stronger than men.  
+> **²⁶** For ye see your calling, brethren, how that not many wise men after the flesh, not many mighty, not many noble, *are called:*  
+> **²⁷** But God hath chosen the foolish things of the world to confound the wise; and God hath chosen the weak things of the world to confound the things which are mighty;  
+> **²⁸** And base things of the world, and things which are despised, hath God chosen, *yea,* and things which are not, to bring to nought things that are:  
+> **²⁹** That no flesh should glory in his presence.  
+> **³⁰** But of him are ye in Christ Jesus, who of God is made unto us wisdom, and righteousness, and sanctification, and redemption:  
+> **³¹** That, according as it is written, He that glorieth, let him glory in the Lord.  
 
 We have here,
 

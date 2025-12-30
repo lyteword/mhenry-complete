@@ -10,15 +10,15 @@ This psalm is a lamentation, one of the most melancholy of all the psalms; and i
 
 A song *or* psalm for the sons of Korah, to the chief musician upon Mahalath Leannoth, Maschil of Heman the Ezrahite.
 
-> <sup>1</sup> O LORD God of my salvation, I have cried day *and* night before thee:  
-> <sup>2</sup> Let my prayer come before thee: incline thine ear unto my cry;  
-> <sup>3</sup> For my soul is full of troubles: and my life draweth nigh unto the grave.  
-> <sup>4</sup> I am counted with them that go down into the pit: I am as a man *that hath* no strength:  
-> <sup>5</sup> Free among the dead, like the slain that lie in the grave, whom thou rememberest no more: and they are cut off from thy hand.  
-> <sup>6</sup> Thou hast laid me in the lowest pit, in darkness, in the deeps.  
-> <sup>7</sup> Thy wrath lieth hard upon me, and thou hast afflicted *me* with all thy waves. Selah.  
-> <sup>8</sup> Thou hast put away mine acquaintance far from me; thou hast made me an abomination unto them: *I am* shut up, and I cannot come forth.  
-> <sup>9</sup> Mine eye mourneth by reason of affliction: LORD, I have called daily upon thee, I have stretched out my hands unto thee.  
+> **¹** O LORD God of my salvation, I have cried day *and* night before thee:  
+> **²** Let my prayer come before thee: incline thine ear unto my cry;  
+> **³** For my soul is full of troubles: and my life draweth nigh unto the grave.  
+> **⁴** I am counted with them that go down into the pit: I am as a man *that hath* no strength:  
+> **⁵** Free among the dead, like the slain that lie in the grave, whom thou rememberest no more: and they are cut off from thy hand.  
+> **⁶** Thou hast laid me in the lowest pit, in darkness, in the deeps.  
+> **⁷** Thy wrath lieth hard upon me, and thou hast afflicted *me* with all thy waves. Selah.  
+> **⁸** Thou hast put away mine acquaintance far from me; thou hast made me an abomination unto them: *I am* shut up, and I cannot come forth.  
+> **⁹** Mine eye mourneth by reason of affliction: LORD, I have called daily upon thee, I have stretched out my hands unto thee.  
 
 It should seem, by the titles of this and the following psalm, that Heman was the penman of the one and Ethan of the other. There were two, of these names, who were sons of Zerah the son of Judah, 1Ch 2:4,6. There were two others famed for wisdom, 1Ki 4:31, where, to magnify Solomon's wisdom, he is said to be *wiser than Heman and Ethan.* Whether the Heman and Ethan who were Levites and precentors in the songs of Zion were the same we are not sure, nor which of these, nor whether any of these, were the penmen of these psalms. There was a Heman that was one of the chief singers, who is called *the king's seer, or prophet,* in the words of God (1Ch 25:5); it is probable that this also was a seer, and yet could see no comfort for himself, an instructor and comforter of others, and yet himself putting comfort away from him. The very first words of the psalm are the only words of comfort and support in all the psalm. There is nothing about him but clouds and darkness; but, before he begins his complaint, he calls God *the God of his salvation,* which intimates both that he looked for salvation, bad as things were, and that he looked up to God for the salvation and depended upon him to be the author of it. Now here we have the psalmist,
 
@@ -36,15 +36,15 @@ VI\. He looked upon his case as helpless and deplorable: "*I am shut up, and I c
 
 ## Pleading with God.
 
-> <sup>10</sup> Wilt thou show wonders to the dead? shall the dead arise *and* praise thee? Selah.  
-> <sup>11</sup> Shall thy lovingkindness be declared in the grave? *or* thy faithfulness in destruction?  
-> <sup>12</sup> Shall thy wonders be known in the dark? and thy righteousness in the land of forgetfulness?  
-> <sup>13</sup> But unto thee have I cried, O LORD; and in the morning shall my prayer prevent thee.  
-> <sup>14</sup> LORD, why castest thou off my soul? *why* hidest thou thy face from me?  
-> <sup>15</sup> I *am* afflicted and ready to die from *my* youth up: *while* I suffer thy terrors I am distracted.  
-> <sup>16</sup> Thy fierce wrath goeth over me; thy terrors have cut me off.  
-> <sup>17</sup> They came round about me daily like water; they compassed me about together.  
-> <sup>18</sup> Lover and friend hast thou put far from me, *and* mine acquaintance into darkness.  
+> **¹⁰** Wilt thou show wonders to the dead? shall the dead arise *and* praise thee? Selah.  
+> **¹¹** Shall thy lovingkindness be declared in the grave? *or* thy faithfulness in destruction?  
+> **¹²** Shall thy wonders be known in the dark? and thy righteousness in the land of forgetfulness?  
+> **¹³** But unto thee have I cried, O LORD; and in the morning shall my prayer prevent thee.  
+> **¹⁴** LORD, why castest thou off my soul? *why* hidest thou thy face from me?  
+> **¹⁵** I *am* afflicted and ready to die from *my* youth up: *while* I suffer thy terrors I am distracted.  
+> **¹⁶** Thy fierce wrath goeth over me; thy terrors have cut me off.  
+> **¹⁷** They came round about me daily like water; they compassed me about together.  
+> **¹⁸** Lover and friend hast thou put far from me, *and* mine acquaintance into darkness.  
 
 In these verses,
 

@@ -8,19 +8,19 @@ We left Christ newly baptized, and owned by a voice from heaven and the descent 
 
 ## The Temptation in the Wilderness.
 
-> <sup>1</sup> And Jesus being full of the Holy Ghost returned from Jordan, and was led by the Spirit into the wilderness,  
-> <sup>2</sup> Being forty days tempted of the devil. And in those days he did eat nothing: and when they were ended, he afterward hungered.  
-> <sup>3</sup> And the devil said unto him, If thou be the Son of God, command this stone that it be made bread.  
-> <sup>4</sup> And Jesus answered him, saying, It is written, That man shall not live by bread alone, but by every word of God.  
-> <sup>5</sup> And the devil, taking him up into a high mountain, showed unto him all the kingdoms of the world in a moment of time.  
-> <sup>6</sup> And the devil said unto him, All this power will I give thee, and the glory of them: for that is delivered unto me; and to whomsoever I will I give it.  
-> <sup>7</sup> If thou therefore wilt worship me, all shall be thine.  
-> <sup>8</sup> And Jesus answered and said unto him, Get thee behind me, Satan: for it is written, Thou shalt worship the Lord thy God, and him only shalt thou serve.  
-> <sup>9</sup> And he brought him to Jerusalem, and set him on a pinnacle of the temple, and said unto him, If thou be the Son of God, cast thyself down from hence:  
-> <sup>10</sup> For it is written, He shall give his angels charge over thee, to keep thee:  
-> <sup>11</sup> And in *their* hands they shall bear thee up, lest at any time thou dash thy foot against a stone.  
-> <sup>12</sup> And Jesus answering said unto him, It is said, Thou shalt not tempt the Lord thy God.  
-> <sup>13</sup> And when the devil had ended all the temptation, he departed from him for a season.  
+> **¹** And Jesus being full of the Holy Ghost returned from Jordan, and was led by the Spirit into the wilderness,  
+> **²** Being forty days tempted of the devil. And in those days he did eat nothing: and when they were ended, he afterward hungered.  
+> **³** And the devil said unto him, If thou be the Son of God, command this stone that it be made bread.  
+> **⁴** And Jesus answered him, saying, It is written, That man shall not live by bread alone, but by every word of God.  
+> **⁵** And the devil, taking him up into a high mountain, showed unto him all the kingdoms of the world in a moment of time.  
+> **⁶** And the devil said unto him, All this power will I give thee, and the glory of them: for that is delivered unto me; and to whomsoever I will I give it.  
+> **⁷** If thou therefore wilt worship me, all shall be thine.  
+> **⁸** And Jesus answered and said unto him, Get thee behind me, Satan: for it is written, Thou shalt worship the Lord thy God, and him only shalt thou serve.  
+> **⁹** And he brought him to Jerusalem, and set him on a pinnacle of the temple, and said unto him, If thou be the Son of God, cast thyself down from hence:  
+> **¹⁰** For it is written, He shall give his angels charge over thee, to keep thee:  
+> **¹¹** And in *their* hands they shall bear thee up, lest at any time thou dash thy foot against a stone.  
+> **¹²** And Jesus answering said unto him, It is said, Thou shalt not tempt the Lord thy God.  
+> **¹³** And when the devil had ended all the temptation, he departed from him for a season.  
 
 The last words of the foregoing chapter, that Jesus was the *Son of Adam,* bespeak him to be the *seed of the woman;* being so, we have here, according to the promise, *breaking the serpent's head,* baffling and foiling the devil in all his temptations, who by one temptation had baffled and foiled our first parents. Thus, in the beginning of the war, he made reprisals upon him, and conquered the conqueror.
 
@@ -74,23 +74,23 @@ III\. What was the result and issue of this combat, Lu 4:13. Our victorious Rede
 
 ## Christ in the Synagogue of Nazareth; Christ Driven from Nazareth.
 
-> <sup>14</sup> And Jesus returned in the power of the Spirit into Galilee: and there went out a fame of him through all the region round about.  
-> <sup>15</sup> And he taught in their synagogues, being glorified of all.  
-> <sup>16</sup> And he came to Nazareth, where he had been brought up: and, as his custom was, he went into the synagogue on the sabbath day, and stood up for to read.  
-> <sup>17</sup> And there was delivered unto him the book of the prophet Esaias. And when he had opened the book, he found the place where it was written,  
-> <sup>18</sup> The Spirit of the Lord *is* upon me, because he hath anointed me to preach the gospel to the poor; he hath sent me to heal the brokenhearted, to preach deliverance to the captives, and recovering of sight to the blind, to set at liberty them that are bruised,  
-> <sup>19</sup> To preach the acceptable year of the Lord.  
-> <sup>20</sup> And he closed the book, and he gave *it* again to the minister, and sat down. And the eyes of all them that were in the synagogue were fastened on him.  
-> <sup>21</sup> And he began to say unto them, This day is this scripture fulfilled in your ears.  
-> <sup>22</sup> And all bare him witness, and wondered at the gracious words which proceeded out of his mouth. And they said, Is not this Joseph's son?  
-> <sup>23</sup> And he said unto them, Ye will surely say unto me this proverb, Physician, heal thyself: whatsoever we have heard done in Capernaum, do also here in thy country.  
-> <sup>24</sup> And he said, Verily I say unto you, No prophet is accepted in his own country.  
-> <sup>25</sup> But I tell you of a truth, many widows were in Israel in the days of Elias, when the heaven was shut up three years and six months, when great famine was throughout all the land;  
-> <sup>26</sup> But unto none of them was Elias sent, save unto Sarepta, *a city* of Sidon, unto a woman *that was* a widow.  
-> <sup>27</sup> And many lepers were in Israel in the time of Eliseus the prophet; and none of them was cleansed, saving Naaman the Syrian.  
-> <sup>28</sup> And all they in the synagogue, when they heard these things, were filled with wrath,  
-> <sup>29</sup> And rose up, and thrust him out of the city, and led him unto the brow of the hill whereon their city was built, that they might cast him down headlong.  
-> <sup>30</sup> But he passing through the midst of them went his way,  
+> **¹⁴** And Jesus returned in the power of the Spirit into Galilee: and there went out a fame of him through all the region round about.  
+> **¹⁵** And he taught in their synagogues, being glorified of all.  
+> **¹⁶** And he came to Nazareth, where he had been brought up: and, as his custom was, he went into the synagogue on the sabbath day, and stood up for to read.  
+> **¹⁷** And there was delivered unto him the book of the prophet Esaias. And when he had opened the book, he found the place where it was written,  
+> **¹⁸** The Spirit of the Lord *is* upon me, because he hath anointed me to preach the gospel to the poor; he hath sent me to heal the brokenhearted, to preach deliverance to the captives, and recovering of sight to the blind, to set at liberty them that are bruised,  
+> **¹⁹** To preach the acceptable year of the Lord.  
+> **²⁰** And he closed the book, and he gave *it* again to the minister, and sat down. And the eyes of all them that were in the synagogue were fastened on him.  
+> **²¹** And he began to say unto them, This day is this scripture fulfilled in your ears.  
+> **²²** And all bare him witness, and wondered at the gracious words which proceeded out of his mouth. And they said, Is not this Joseph's son?  
+> **²³** And he said unto them, Ye will surely say unto me this proverb, Physician, heal thyself: whatsoever we have heard done in Capernaum, do also here in thy country.  
+> **²⁴** And he said, Verily I say unto you, No prophet is accepted in his own country.  
+> **²⁵** But I tell you of a truth, many widows were in Israel in the days of Elias, when the heaven was shut up three years and six months, when great famine was throughout all the land;  
+> **²⁶** But unto none of them was Elias sent, save unto Sarepta, *a city* of Sidon, unto a woman *that was* a widow.  
+> **²⁷** And many lepers were in Israel in the time of Eliseus the prophet; and none of them was cleansed, saving Naaman the Syrian.  
+> **²⁸** And all they in the synagogue, when they heard these things, were filled with wrath,  
+> **²⁹** And rose up, and thrust him out of the city, and led him unto the brow of the hill whereon their city was built, that they might cast him down headlong.  
+> **³⁰** But he passing through the midst of them went his way,  
 
 After Christ had vanquished the evil spirit, he made it appear how much he was under the influence of the good Spirit; and, having defended himself against the devil's assaults, he now begins to act *offensively,* and to make those attacks upon him, by his preaching and miracles, which he could not resist or repel. Observe,
 
@@ -154,20 +154,20 @@ II\. Of his preaching at Nazareth, the city where he was brought up; and the ent
 
 ## The Expulsion of a Demon; Christ's Departure from Capernaum.
 
-> <sup>31</sup> And came down to Capernaum, a city of Galilee, and taught them on the sabbath days.  
-> <sup>32</sup> And they were astonished at his doctrine: for his word was with power.  
-> <sup>33</sup> And in the synagogue there was a man, which had a spirit of an unclean devil, and cried out with a loud voice,  
-> <sup>34</sup> Saying, Let *us* alone; what have we to do with thee, *thou* Jesus of Nazareth? art thou come to destroy us? I know thee who thou art; the Holy One of God.  
-> <sup>35</sup> And Jesus rebuked him, saying, Hold thy peace, and come out of him. And when the devil had thrown him in the midst, he came out of him, and hurt him not.  
-> <sup>36</sup> And they were all amazed, and spake among themselves, saying, What a word *is* this! for with authority and power he commandeth the unclean spirits, and they come out.  
-> <sup>37</sup> And the fame of him went out into every place of the country round about.  
-> <sup>38</sup> And he arose out of the synagogue, and entered into Simon's house. And Simon's wife's mother was taken with a great fever; and they besought him for her.  
-> <sup>39</sup> And he stood over her, and rebuked the fever; and it left her: and immediately she arose and ministered unto them.  
-> <sup>40</sup> Now when the sun was setting, all they that had any sick with divers diseases brought them unto him; and he laid his hands on every one of them, and healed them.  
-> <sup>41</sup> And devils also came out of many, crying out, and saying, Thou art Christ the Son of God. And he rebuking *them* suffered them not to speak: for they knew that he was Christ.  
-> <sup>42</sup> And when it was day, he departed and went into a desert place: and the people sought him, and came unto him, and stayed him, that he should not depart from them.  
-> <sup>43</sup> And he said unto them, I must preach the kingdom of God to other cities also: for therefore am I sent.  
-> <sup>44</sup> And he preached in the synagogues of Galilee.  
+> **³¹** And came down to Capernaum, a city of Galilee, and taught them on the sabbath days.  
+> **³²** And they were astonished at his doctrine: for his word was with power.  
+> **³³** And in the synagogue there was a man, which had a spirit of an unclean devil, and cried out with a loud voice,  
+> **³⁴** Saying, Let *us* alone; what have we to do with thee, *thou* Jesus of Nazareth? art thou come to destroy us? I know thee who thou art; the Holy One of God.  
+> **³⁵** And Jesus rebuked him, saying, Hold thy peace, and come out of him. And when the devil had thrown him in the midst, he came out of him, and hurt him not.  
+> **³⁶** And they were all amazed, and spake among themselves, saying, What a word *is* this! for with authority and power he commandeth the unclean spirits, and they come out.  
+> **³⁷** And the fame of him went out into every place of the country round about.  
+> **³⁸** And he arose out of the synagogue, and entered into Simon's house. And Simon's wife's mother was taken with a great fever; and they besought him for her.  
+> **³⁹** And he stood over her, and rebuked the fever; and it left her: and immediately she arose and ministered unto them.  
+> **⁴⁰** Now when the sun was setting, all they that had any sick with divers diseases brought them unto him; and he laid his hands on every one of them, and healed them.  
+> **⁴¹** And devils also came out of many, crying out, and saying, Thou art Christ the Son of God. And he rebuking *them* suffered them not to speak: for they knew that he was Christ.  
+> **⁴²** And when it was day, he departed and went into a desert place: and the people sought him, and came unto him, and stayed him, that he should not depart from them.  
+> **⁴³** And he said unto them, I must preach the kingdom of God to other cities also: for therefore am I sent.  
+> **⁴⁴** And he preached in the synagogues of Galilee.  
 
 When Christ was expelled Nazareth, he came to Capernaum, another city of Galilee. The account we have in these verses of his preaching and miracles there we had before, Mk 1:21, etc. Observe,
 

@@ -8,19 +8,19 @@ This chapter gives us an account of the solemn consecration of Aaron and his son
 
 ## Consecration of Aaron and His Sons. (b. c. 1490.)
 
-> <sup>1</sup> And the LORD spake unto Moses, saying,  
-> <sup>2</sup> Take Aaron and his sons with him, and the garments, and the anointing oil, and a bullock for the sin offering, and two rams, and a basket of unleavened bread;  
-> <sup>3</sup> And gather thou all the congregation together unto the door of the tabernacle of the congregation.  
-> <sup>4</sup> And Moses did as the LORD commanded him; and the assembly was gathered together unto the door of the tabernacle of the congregation.  
-> <sup>5</sup> And Moses said unto the congregation, This *is* the thing which the LORD commanded to be done.  
-> <sup>6</sup> And Moses brought Aaron and his sons, and washed them with water.  
-> <sup>7</sup> And he put upon him the coat, and girded him with the girdle, and clothed him with the robe, and put the ephod upon him, and he girded him with the curious girdle of the ephod, and bound *it* unto him therewith.  
-> <sup>8</sup> And he put the breastplate upon him: also he put in the breastplate the Urim and the Thummim.  
-> <sup>9</sup> And he put the mitre upon his head; also upon the mitre, *even* upon his forefront, did he put the golden plate, the holy crown; as the LORD commanded Moses.  
-> <sup>10</sup> And Moses took the anointing oil, and anointed the tabernacle and all that *was* therein, and sanctified them.  
-> <sup>11</sup> And he sprinkled thereof upon the altar seven times, and anointed the altar and all his vessels, both the laver and his foot, to sanctify them.  
-> <sup>12</sup> And he poured of the anointing oil upon Aaron's head, and anointed him, to sanctify him.  
-> <sup>13</sup> And Moses brought Aaron's sons, and put coats upon them, and girded them with girdles, and put bonnets upon them; as the LORD commanded Moses.  
+> **¹** And the LORD spake unto Moses, saying,  
+> **²** Take Aaron and his sons with him, and the garments, and the anointing oil, and a bullock for the sin offering, and two rams, and a basket of unleavened bread;  
+> **³** And gather thou all the congregation together unto the door of the tabernacle of the congregation.  
+> **⁴** And Moses did as the LORD commanded him; and the assembly was gathered together unto the door of the tabernacle of the congregation.  
+> **⁵** And Moses said unto the congregation, This *is* the thing which the LORD commanded to be done.  
+> **⁶** And Moses brought Aaron and his sons, and washed them with water.  
+> **⁷** And he put upon him the coat, and girded him with the girdle, and clothed him with the robe, and put the ephod upon him, and he girded him with the curious girdle of the ephod, and bound *it* unto him therewith.  
+> **⁸** And he put the breastplate upon him: also he put in the breastplate the Urim and the Thummim.  
+> **⁹** And he put the mitre upon his head; also upon the mitre, *even* upon his forefront, did he put the golden plate, the holy crown; as the LORD commanded Moses.  
+> **¹⁰** And Moses took the anointing oil, and anointed the tabernacle and all that *was* therein, and sanctified them.  
+> **¹¹** And he sprinkled thereof upon the altar seven times, and anointed the altar and all his vessels, both the laver and his foot, to sanctify them.  
+> **¹²** And he poured of the anointing oil upon Aaron's head, and anointed him, to sanctify him.  
+> **¹³** And Moses brought Aaron's sons, and put coats upon them, and girded them with girdles, and put bonnets upon them; as the LORD commanded Moses.  
 
 God had given Moses orders to consecrate Aaron and his sons to the priests' office, when he was with him the first time upon Mount Sinai, Ex 28:1-29:46, where we have also the particular instructions he had how to do it. Now here we have,
 
@@ -32,32 +32,32 @@ III\. The commission read, Le 8:5. Moses, who was God's representative in this s
 
 IV\. The ceremony performed according to the divine ritual. 1. Aaron and his sons were *washed with water* (Le 8:6), to signify that they ought now to purify themselves from all sinful dispositions and inclinations, and ever after to keep themselves pure. Christ washes those from their sins in his own blood whom he makes to our God kings and priests (Re 1:5,6); and those that draw near to God must be washed in pure water, Heb 10:22. Though they were ever so clean before and no filth was to be seen upon them, yet they must be washed, to signify their purification from sin, with which their souls were polluted, how clean soever their bodies were. 2. They were clothed with the holy garments, Aaron with his (Le 8:7-9), which typified the dignity of Christ our great high priest, and his sons with theirs (Le 8:13), which typified the decency of Christians, who are spiritual priests. Christ wears the breast-plate of judgment and the holy crown; for the church's high priest is her prophet and king. All believers are clothed with the robe of righteousness, and girt with the girdle of truth, resolution, and close application; and their heads are *bound,* as the word here is, with the bonnet or diadem of beauty, the beauty of holiness. 3. The high priest was anointed, and, it should seem, the holy things were anointed at the same time; some think that they were anointed before, but that the anointing of them is mentioned here because Aaron was anointed with the same oil with which they were anointed; but the manner of relating it here makes it more than probable that it was done at the same time, and that the seven days employed in consecrating the altar were coincident with the seven days of the priests' consecration. The tabernacle, and all its utensils, had some of the anointing oil put upon them with Moses's finger (Le 8:10), so had the altar (Le 8:11); these were to sanctify the gold and the gift (Mt 23:17-19), and therefore must themselves be thus sanctified; but he poured it out more plentifully upon the head of Aaron (Le 8:12), so that it ran down to the *skirts of his garments,* because his unction was to typify the anointing of Christ with the Spirit, which was not given by measure to him. Yet all believers also have received the anointing, which puts an indelible character upon them, 1Jo 2:27.
 
-> <sup>14</sup> And he brought the bullock for the sin offering: and Aaron and his sons laid their hands upon the head of the bullock for the sin offering.  
-> <sup>15</sup> And he slew *it;* and Moses took the blood, and put *it* upon the horns of the altar round about with his finger, and purified the altar, and poured the blood at the bottom of the altar, and sanctified it, to make reconciliation upon it.  
-> <sup>16</sup> And he took all the fat that *was* upon the inwards, and the caul *above* the liver, and the two kidneys, and their fat, and Moses burned *it* upon the altar.  
-> <sup>17</sup> But the bullock, and his hide, his flesh, and his dung, he burnt with fire without the camp; as the LORD commanded Moses.  
-> <sup>18</sup> And he brought the ram for the burnt offering: and Aaron and his sons laid their hands upon the head of the ram.  
-> <sup>19</sup> And he killed *it;* and Moses sprinkled the blood upon the altar round about.  
-> <sup>20</sup> And he cut the ram into pieces; and Moses burnt the head, and the pieces, and the fat.  
-> <sup>21</sup> And he washed the inwards and the legs in water; and Moses burnt the whole ram upon the altar: it *was* a burnt sacrifice for a sweet savour, *and* an offering made by fire unto the LORD; as the LORD commanded Moses.  
-> <sup>22</sup> And he brought the other ram, the ram of consecration: and Aaron and his sons laid their hands upon the head of the ram.  
-> <sup>23</sup> And he slew *it;* and Moses took of the blood of it, and put *it* upon the tip of Aaron's right ear, and upon the thumb of his right hand, and upon the great toe of his right foot.  
-> <sup>24</sup> And he brought Aaron's sons, and Moses put of the blood upon the tip of their right ear, and upon the thumbs of their right hands, and upon the great toes of their right feet: and Moses sprinkled the blood upon the altar round about.  
-> <sup>25</sup> And he took the fat, and the rump, and all the fat that *was* upon the inwards, and the caul *above* the liver, and the two kidneys, and their fat, and the right shoulder:  
-> <sup>26</sup> And out of the basket of unleavened bread, that *was* before the LORD, he took one unleavened cake, and a cake of oiled bread, and one wafer, and put *them* on the fat, and upon the right shoulder:  
-> <sup>27</sup> And he put all upon Aaron's hands, and upon his sons' hands, and waved them *for* a wave offering before the LORD.  
-> <sup>28</sup> And Moses took them from off their hands, and burnt *them* on the altar upon the burnt offering: they *were* consecrations for a sweet savour: it *is* an offering made by fire unto the LORD.  
-> <sup>29</sup> And Moses took the breast, and waved it *for* a wave offering before the LORD: *for* of the ram of consecration it was Moses' part; as the LORD commanded Moses.  
-> <sup>30</sup> And Moses took of the anointing oil, and of the blood which *was* upon the altar, and sprinkled *it* upon Aaron, *and* upon his garments, and upon his sons, and upon his sons' garments with him; and sanctified Aaron, *and* his garments, and his sons, and his sons' garments with him.  
+> **¹⁴** And he brought the bullock for the sin offering: and Aaron and his sons laid their hands upon the head of the bullock for the sin offering.  
+> **¹⁵** And he slew *it;* and Moses took the blood, and put *it* upon the horns of the altar round about with his finger, and purified the altar, and poured the blood at the bottom of the altar, and sanctified it, to make reconciliation upon it.  
+> **¹⁶** And he took all the fat that *was* upon the inwards, and the caul *above* the liver, and the two kidneys, and their fat, and Moses burned *it* upon the altar.  
+> **¹⁷** But the bullock, and his hide, his flesh, and his dung, he burnt with fire without the camp; as the LORD commanded Moses.  
+> **¹⁸** And he brought the ram for the burnt offering: and Aaron and his sons laid their hands upon the head of the ram.  
+> **¹⁹** And he killed *it;* and Moses sprinkled the blood upon the altar round about.  
+> **²⁰** And he cut the ram into pieces; and Moses burnt the head, and the pieces, and the fat.  
+> **²¹** And he washed the inwards and the legs in water; and Moses burnt the whole ram upon the altar: it *was* a burnt sacrifice for a sweet savour, *and* an offering made by fire unto the LORD; as the LORD commanded Moses.  
+> **²²** And he brought the other ram, the ram of consecration: and Aaron and his sons laid their hands upon the head of the ram.  
+> **²³** And he slew *it;* and Moses took of the blood of it, and put *it* upon the tip of Aaron's right ear, and upon the thumb of his right hand, and upon the great toe of his right foot.  
+> **²⁴** And he brought Aaron's sons, and Moses put of the blood upon the tip of their right ear, and upon the thumbs of their right hands, and upon the great toes of their right feet: and Moses sprinkled the blood upon the altar round about.  
+> **²⁵** And he took the fat, and the rump, and all the fat that *was* upon the inwards, and the caul *above* the liver, and the two kidneys, and their fat, and the right shoulder:  
+> **²⁶** And out of the basket of unleavened bread, that *was* before the LORD, he took one unleavened cake, and a cake of oiled bread, and one wafer, and put *them* on the fat, and upon the right shoulder:  
+> **²⁷** And he put all upon Aaron's hands, and upon his sons' hands, and waved them *for* a wave offering before the LORD.  
+> **²⁸** And Moses took them from off their hands, and burnt *them* on the altar upon the burnt offering: they *were* consecrations for a sweet savour: it *is* an offering made by fire unto the LORD.  
+> **²⁹** And Moses took the breast, and waved it *for* a wave offering before the LORD: *for* of the ram of consecration it was Moses' part; as the LORD commanded Moses.  
+> **³⁰** And Moses took of the anointing oil, and of the blood which *was* upon the altar, and sprinkled *it* upon Aaron, *and* upon his garments, and upon his sons, and upon his sons' garments with him; and sanctified Aaron, *and* his garments, and his sons, and his sons' garments with him.  
 
 The covenant of priesthood must be made by sacrifice, as well as other covenants, Ps 50:5. And thus Christ was consecrated by the sacrifice of himself, once for all. Sacrifices of each kind must be offered for the priests, that they might with the more tenderness and concern offer the gifts and sacrifices of the people, with compassion on the ignorant, and on *those that were out of the way,* not insulting over those for whom sacrifices were offered, remembering that they themselves had had sacrifices offered for them, being *compassed with infirmity.* 1. A bullock, the largest sacrifice, was offered for a sin-offering (Le 8:14), that hereby atonement might be made, and they might not bring any of the guilt of the sins of their former state into the new character they were now to put on. When Isaiah was sent to be a prophet, he was told to his comfort, *Thy iniquity is taken away,* Isa 6:7. Ministers, that are to declare the remission of sins to others, should give diligence to get it made sure to themselves in the first place that their own sins are pardoned. Those to whom is *committed the ministry of reconciliation* must first be reconciled to God themselves, that they may deal for the souls of others as for their own. 2. A ram was offered for a burnt-offering, Le 8:18-21. By this they gave to God the glory of this great honour which was now put upon them, and returned him praise for it, as Paul thanked Christ Jesus for *putting him into the ministry,* 1Ti 1:12. They also signified the devoting of themselves and all their services to the honour of God. 3. Another ram, called the *ram of consecration,* was offered for a peace-offering, Le 8:22, etc. The blood of it was part put on the priests, on their ears, thumbs, and toes, and part sprinkled upon the altar; and thus he did (as it were) marry them to the altar, upon which they must all their days give attendance. All the ceremonies about this offering, as those before, were appointed by the express command of God; and, if we compare this chapter with Ex 29:1-46, we shall find that the performance of the solemnity exactly agrees with the precept there, and in nothing varies. Here, therefore, as in the account we had of the tabernacle and its vessels, it is again and again repeated, *As the Lord commanded Moses.* And thus Christ, when he sanctified himself with his own blood, had an eye to his Father's will in it. *As the Father gave me commandment so I do,* Joh 14:31, Joh 10:18, Joh 6:38.
 
-> <sup>31</sup> And Moses said unto Aaron and to his sons, Boil the flesh *at* the door of the tabernacle of the congregation: and there eat it with the bread that *is* in the basket of consecrations, as I commanded, saying, Aaron and his sons shall eat it.  
-> <sup>32</sup> And that which remaineth of the flesh and of the bread shall ye burn with fire.  
-> <sup>33</sup> And ye shall not go out of the door of the tabernacle of the congregation *in* seven days, until the days of your consecration be at an end: for seven days shall he consecrate you.  
-> <sup>34</sup> As he hath done this day, *so* the LORD hath commanded to do, to make an atonement for you.  
-> <sup>35</sup> Therefore shall ye abide *at* the door of the tabernacle of the congregation day and night seven days, and keep the charge of the LORD, that ye die not: for so I am commanded.  
-> <sup>36</sup> So Aaron and his sons did all things which the LORD commanded by the hand of Moses.  
+> **³¹** And Moses said unto Aaron and to his sons, Boil the flesh *at* the door of the tabernacle of the congregation: and there eat it with the bread that *is* in the basket of consecrations, as I commanded, saying, Aaron and his sons shall eat it.  
+> **³²** And that which remaineth of the flesh and of the bread shall ye burn with fire.  
+> **³³** And ye shall not go out of the door of the tabernacle of the congregation *in* seven days, until the days of your consecration be at an end: for seven days shall he consecrate you.  
+> **³⁴** As he hath done this day, *so* the LORD hath commanded to do, to make an atonement for you.  
+> **³⁵** Therefore shall ye abide *at* the door of the tabernacle of the congregation day and night seven days, and keep the charge of the LORD, that ye die not: for so I am commanded.  
+> **³⁶** So Aaron and his sons did all things which the LORD commanded by the hand of Moses.  
 
 Moses, having done his part of the ceremony, now leaves Aaron and his sons to do theirs.
 

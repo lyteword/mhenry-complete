@@ -8,13 +8,13 @@ In this chapter we have, I. Jephthah's rencounter with the Ephraimites, and the 
 
 ## Displeasure of the Ephraimites; Punishment of the Ephraimites. (b. c. 1143.)
 
-> <sup>1</sup> And the men of Ephraim gathered themselves together, and went northward, and said unto Jephthah, Wherefore passedst thou over to fight against the children of Ammon, and didst not call us to go with thee? we will burn thine house upon thee with fire.  
-> <sup>2</sup> And Jephthah said unto them, I and my people were at great strife with the children of Ammon; and when I called you, ye delivered me not out of their hands.  
-> <sup>3</sup> And when I saw that ye delivered *me* not, I put my life in my hands, and passed over against the children of Ammon, and the LORD delivered them into my hand: wherefore then are ye come up unto me this day, to fight against me?  
-> <sup>4</sup> Then Jephthah gathered together all the men of Gilead, and fought with Ephraim: and the men of Gilead smote Ephraim, because they said, Ye Gileadites *are* fugitives of Ephraim among the Ephraimites, *and* among the Manassites.  
-> <sup>5</sup> And the Gileadites took the passages of Jordan before the Ephraimites: and it was *so,* that when those Ephraimites which were escaped said, Let me go over; that the men of Gilead said unto him, *Art* thou an Ephraimite? If he said, Nay;  
-> <sup>6</sup> Then said they unto him, Say now Shibboleth: and he said Sibboleth: for he could not frame to pronounce *it* right. Then they took him, and slew him at the passages of Jordan: and there fell at that time of the Ephraimites forty and two thousand.  
-> <sup>7</sup> And Jephthah judged Israel six years. Then died Jephthah the Gileadite, and was buried in *one of* the cities of Gilead.  
+> **¹** And the men of Ephraim gathered themselves together, and went northward, and said unto Jephthah, Wherefore passedst thou over to fight against the children of Ammon, and didst not call us to go with thee? we will burn thine house upon thee with fire.  
+> **²** And Jephthah said unto them, I and my people were at great strife with the children of Ammon; and when I called you, ye delivered me not out of their hands.  
+> **³** And when I saw that ye delivered *me* not, I put my life in my hands, and passed over against the children of Ammon, and the LORD delivered them into my hand: wherefore then are ye come up unto me this day, to fight against me?  
+> **⁴** Then Jephthah gathered together all the men of Gilead, and fought with Ephraim: and the men of Gilead smote Ephraim, because they said, Ye Gileadites *are* fugitives of Ephraim among the Ephraimites, *and* among the Manassites.  
+> **⁵** And the Gileadites took the passages of Jordan before the Ephraimites: and it was *so,* that when those Ephraimites which were escaped said, Let me go over; that the men of Gilead said unto him, *Art* thou an Ephraimite? If he said, Nay;  
+> **⁶** Then said they unto him, Say now Shibboleth: and he said Sibboleth: for he could not frame to pronounce *it* right. Then they took him, and slew him at the passages of Jordan: and there fell at that time of the Ephraimites forty and two thousand.  
+> **⁷** And Jephthah judged Israel six years. Then died Jephthah the Gileadite, and was buried in *one of* the cities of Gilead.  
 
 Here is, I. The unreasonable displeasure of the men of Ephraim against Jephthah, because he had not called them in to his assistance against the Ammonites, that they might share in the triumphs and spoils, Jdg 11:1. Pride was at the bottom of the quarrel. Only by that comes contention. Proud men think all the honours lost that go beside themselves, and then *who can stand before envy?* The Ephraimites had the same quarrel with Gideon (Jdg 8:1), who was of Manasseh on their side Jordan, as Jephthah was of Manasseh on the other side Jordan. Ephraim and Manasseh were hearer akin than any other of the tribes, being both the sons of Joseph, and yet they were more jealous one of another than any other of the tribes. Jacob having crossed hands, and given Ephraim the preference, looking as far forward as the kingdom of the ten tribes, which Ephraim was the head of, after the revolt from the house of David, that tribe, not content with that honour in the promise, was displeased if Manasseh had any honour done it in the mean time. It is a pity that kindred or relationship, which should be an inducement to love and peace, should be ever an occasion (as it often proves) of strife and discord. *A brother offended is harder to be won than a strong city, and contentions among brethren are as the bars of a castle.* The anger of the Ephraimites at Jephthah was, 1. Causeless and unjust. Why *didst thou not call us to go with thee?* For a good reason. Because it was the men of Gilead that had made him their captain, not the men of Ephraim, so that he had no authority to call them. Had his attempt miscarried for want of their help, they might justly have blamed him for not desiring it. But when the work was done, and done effectually, the Ammonites being subdued and Israel delivered, there was no harm done, though their hands were not employed in it. 2. It was cruel and outrageous. They get together in a tumultuous manner, pass over Jordan as far as Mizpeh in Gilead, where Jephthah lived, and no less will satisfy their fury but they will burn his house and him in it. *Cursed be their anger, for it was fierce.* Those resentments that have the least reason for them have commonly the most rage in them. Jephthah was now a conqueror over the common enemies of Israel, and they should have come to congratulate him, and return him the thanks of their tribe for the good services he had done; but we must not think it strange if we receive ill from those from whom we deserve well. Jephthah was now a mourner for the calamity of his family upon his daughter's account, and they should have come to condole with him and comfort him; but barbarous men take a pleasure in adding affliction to the afflicted. In this world, the end of one trouble often proves the beginning of another; nor must we ever *boast as though we had put off the harness.*
 
@@ -30,14 +30,14 @@ III\. Here is the end of Jephthah's government. He judged Israel but six years, 
 
 ## Jephthah's Successors. (b. c. 1112.)
 
-> <sup>8</sup> And after him Ibzan of Bethlehem judged Israel.  
-> <sup>9</sup> And he had thirty sons, and thirty daughters, *whom* he sent abroad, and took in thirty daughters from abroad for his sons. And he judged Israel seven years.  
-> <sup>10</sup> Then died Ibzan, and was buried at Bethlehem.  
-> <sup>11</sup> And after him Elon, a Zebulonite, judged Israel; and he judged Israel ten years.  
-> <sup>12</sup> And Elon the Zebulonite died, and was buried in Aijalon in the country of Zebulun.  
-> <sup>13</sup> And after him Abdon the son of Hillel, a Pirathonite, judged Israel.  
-> <sup>14</sup> And he had forty sons and thirty nephews, that rode on threescore and ten ass colts: and he judged Israel eight years.  
-> <sup>15</sup> And Abdon the son of Hillel the Pirathonite died, and was buried in Pirathon in the land of Ephraim, in the mount of the Amalekites.  
+> **⁸** And after him Ibzan of Bethlehem judged Israel.  
+> **⁹** And he had thirty sons, and thirty daughters, *whom* he sent abroad, and took in thirty daughters from abroad for his sons. And he judged Israel seven years.  
+> **¹⁰** Then died Ibzan, and was buried at Bethlehem.  
+> **¹¹** And after him Elon, a Zebulonite, judged Israel; and he judged Israel ten years.  
+> **¹²** And Elon the Zebulonite died, and was buried in Aijalon in the country of Zebulun.  
+> **¹³** And after him Abdon the son of Hillel, a Pirathonite, judged Israel.  
+> **¹⁴** And he had forty sons and thirty nephews, that rode on threescore and ten ass colts: and he judged Israel eight years.  
+> **¹⁵** And Abdon the son of Hillel the Pirathonite died, and was buried in Pirathon in the land of Ephraim, in the mount of the Amalekites.  
 
 We have here a short account of the short reigns of three more of the judges of Israel, the first of whom governed but seven years, the second ten, and the third eight. *For the transgression of a land, many are the princes thereof,* many in a short time, successively (Pr 28:2), good men being removed in the beginning of their usefulness and by the time that they have applied themselves to their business.
 

@@ -8,17 +8,17 @@ Here is, I. The case of Zelophehad's daughters determined, Nu 27:1-11. II. Notic
 
 ## The Daughters of Zelophehad. (b. c. 1452.)
 
-> <sup>1</sup> Then came the daughters of Zelophehad, the son of Hepher, the son of Gilead, the son of Machir, the son of Manasseh, of the families of Manasseh the son of Joseph: and these *are* the names of his daughters; Mahlah, Noah, and Hoglah, and Milcah, and Tirzah.  
-> <sup>2</sup> And they stood before Moses, and before Eleazar the priest, and before the princes and all the congregation, *by* the door of the tabernacle of the congregation, saying,  
-> <sup>3</sup> Our father died in the wilderness, and he was not in the company of them that gathered themselves together against the LORD in the company of Korah; but died in his own sin, and had no sons.  
-> <sup>4</sup> Why should the name of our father be done away from among his family, because he hath no son? Give unto us *therefore* a possession among the brethren of our father.  
-> <sup>5</sup> And Moses brought their cause before the LORD.  
-> <sup>6</sup> And the LORD spake unto Moses, saying,  
-> <sup>7</sup> The daughters of Zelophehad speak right: thou shalt surely give them a possession of an inheritance among their father's brethren; and thou shalt cause the inheritance of their father to pass unto them.  
-> <sup>8</sup> And thou shalt speak unto the children of Israel, saying, If a man die, and have no son, then ye shall cause his inheritance to pass unto his daughter.  
-> <sup>9</sup> And if he have no daughter, then ye shall give his inheritance unto his brethren.  
-> <sup>10</sup> And if he have no brethren, then ye shall give his inheritance unto his father's brethren.  
-> <sup>11</sup> And if his father have no brethren, then ye shall give his inheritance unto his kinsman that is next to him of his family, and he shall possess it: and it shall be unto the children of Israel a statute of judgment, as the LORD commanded Moses.  
+> **¹** Then came the daughters of Zelophehad, the son of Hepher, the son of Gilead, the son of Machir, the son of Manasseh, of the families of Manasseh the son of Joseph: and these *are* the names of his daughters; Mahlah, Noah, and Hoglah, and Milcah, and Tirzah.  
+> **²** And they stood before Moses, and before Eleazar the priest, and before the princes and all the congregation, *by* the door of the tabernacle of the congregation, saying,  
+> **³** Our father died in the wilderness, and he was not in the company of them that gathered themselves together against the LORD in the company of Korah; but died in his own sin, and had no sons.  
+> **⁴** Why should the name of our father be done away from among his family, because he hath no son? Give unto us *therefore* a possession among the brethren of our father.  
+> **⁵** And Moses brought their cause before the LORD.  
+> **⁶** And the LORD spake unto Moses, saying,  
+> **⁷** The daughters of Zelophehad speak right: thou shalt surely give them a possession of an inheritance among their father's brethren; and thou shalt cause the inheritance of their father to pass unto them.  
+> **⁸** And thou shalt speak unto the children of Israel, saying, If a man die, and have no son, then ye shall cause his inheritance to pass unto his daughter.  
+> **⁹** And if he have no daughter, then ye shall give his inheritance unto his brethren.  
+> **¹⁰** And if he have no brethren, then ye shall give his inheritance unto his father's brethren.  
+> **¹¹** And if his father have no brethren, then ye shall give his inheritance unto his kinsman that is next to him of his family, and he shall possess it: and it shall be unto the children of Israel a statute of judgment, as the LORD commanded Moses.  
 
 Mention is made of the case of these daughters of Zelophehad in the chapter before, Nu 27:33. It should seem, by the particular notice taken of it, that it was a singular case, and that the like did not at this time occur in all Israel, that the head of a family had no sons, but daughters only. Their case is again debated (Nu 36:1-13) upon another article of it; and, according to the judgments given in their case, we find them put in possession, Jos 17:3,4. One would suppose that their personal character was such as added weight to their case, and caused it to be so often taken notice of.
 
@@ -32,23 +32,23 @@ II\. Their case determined by the divine oracle. Moses did not presume to give j
 
 ## Moses Warned of His Death. (b. c. 1452.)
 
-> <sup>12</sup> And the LORD said unto Moses, Get thee up into this mount Abarim, and see the land which I have given unto the children of Israel.  
-> <sup>13</sup> And when thou hast seen it, thou also shalt be gathered unto thy people, as Aaron thy brother was gathered.  
-> <sup>14</sup> For ye rebelled against my commandment in the desert of Zin, in the strife of the congregation, to sanctify me at the water before their eyes: that *is* the water of Meribah in Kadesh in the wilderness of Zin.  
+> **¹²** And the LORD said unto Moses, Get thee up into this mount Abarim, and see the land which I have given unto the children of Israel.  
+> **¹³** And when thou hast seen it, thou also shalt be gathered unto thy people, as Aaron thy brother was gathered.  
+> **¹⁴** For ye rebelled against my commandment in the desert of Zin, in the strife of the congregation, to sanctify me at the water before their eyes: that *is* the water of Meribah in Kadesh in the wilderness of Zin.  
 
 Here, 1. God tells Moses of his fault, his speaking unadvisedly with his lips at the waters of strife, where he did not express, so carefully as he ought to have done, a regard to the honour both of God and Israel, Nu 27:14. Though Moses was a servant of the Lord, a faithful servant, yet once he *rebelled against God's commandment,* and failed in his duty; and though a very honourable servant, and highly favoured, yet he shall hear of his miscarriage, and all the world shall hear of it too, again and again; for God will show his displeasure against sin, even in those that are nearest and dearest to him. Those that are *in reputation for wisdom and honour* have need to be constantly careful of their words and ways, lest at any time they say or do that which may be a diminution to their comfort, or to their credit, or both, a great while after. 2. He tells Moses of his death. His death was the punishment of his sin, and yet notice is given him of it in such a manner as might best serve to sweeten and mollify the sentence, and reconcile him to it. (1.) Moses must die, but he shall first have the satisfaction of seeing the land of promise, Nu 27:12. God did not intend with this sight of Canaan to tantalize him, or upbraid him with his folly in doing that which cut him short of it, nor had it any impression of that kind upon him, but God appointed it and Moses accepted it as a favour, his sight (we have reason to think) being wonderfully strengthened and enlarged to take such a full and distinct view of it as did abundantly gratify his innocent curiosity. This sight of Canaan signified his believing prospect of the better country, that is, the heavenly, which is very comfortable to dying saints. (2.) Moses must die, but death does not *cut him off;* it only gathers him to his people, brings him to rest with the holy patriarchs that had gone before him. Abraham, and Isaac, and Jacob, were *his people,* the people of his choice and love, and to them death gathered him. (3.) Moses must die, but only as Aaron died before him, Nu 27:13. And Moses had seen how easily and cheerfully Aaron had put off the priesthood first and then the body; let not Moses therefore be afraid of dying; it was but to be *gathered to his people,* as Aaron was gathered. Thus the death of our near and dear relations should be improved by us, [1.] As an engagement to us to think often of dying. We are not better than our fathers or brethren; if they are gone, we are going; if they are gathered already, we must be gathered very shortly. [2.] As an encouragement to us to think of death without terror, and even to please ourselves with the thoughts of it. It is but to die as such and such died, if we live as they lived; and their *end was peace, they finished their course with joy;* why then should we fear any evil in that melancholy valley?
 
 ## Joshua Named as Moses's Successor. (b. c. 1452.)
 
-> <sup>15</sup> And Moses spake unto the LORD, saying,  
-> <sup>16</sup> Let the LORD, the God of the spirits of all flesh, set a man over the congregation,  
-> <sup>17</sup> Which may go out before them, and which may go in before them, and which may lead them out, and which may bring them in; that the congregation of the LORD be not as sheep which have no shepherd.  
-> <sup>18</sup> And the LORD said unto Moses, Take thee Joshua the son of Nun, a man in whom *is* the spirit, and lay thine hand upon him;  
-> <sup>19</sup> And set him before Eleazar the priest, and before all the congregation; and give him a charge in their sight.  
-> <sup>20</sup> And thou shalt put *some* of thine honour upon him, that all the congregation of the children of Israel may be obedient.  
-> <sup>21</sup> And he shall stand before Eleazar the priest, who shall ask *counsel* for him after the judgment of Urim before the LORD: at his word shall they go out, and at his word they shall come in, *both* he, and all the children of Israel with him, even all the congregation.  
-> <sup>22</sup> And Moses did as the LORD commanded him: and he took Joshua, and set him before Eleazar the priest, and before all the congregation:  
-> <sup>23</sup> And he laid his hands upon him, and gave him a charge, as the LORD commanded by the hand of Moses.  
+> **¹⁵** And Moses spake unto the LORD, saying,  
+> **¹⁶** Let the LORD, the God of the spirits of all flesh, set a man over the congregation,  
+> **¹⁷** Which may go out before them, and which may go in before them, and which may lead them out, and which may bring them in; that the congregation of the LORD be not as sheep which have no shepherd.  
+> **¹⁸** And the LORD said unto Moses, Take thee Joshua the son of Nun, a man in whom *is* the spirit, and lay thine hand upon him;  
+> **¹⁹** And set him before Eleazar the priest, and before all the congregation; and give him a charge in their sight.  
+> **²⁰** And thou shalt put *some* of thine honour upon him, that all the congregation of the children of Israel may be obedient.  
+> **²¹** And he shall stand before Eleazar the priest, who shall ask *counsel* for him after the judgment of Urim before the LORD: at his word shall they go out, and at his word they shall come in, *both* he, and all the children of Israel with him, even all the congregation.  
+> **²²** And Moses did as the LORD commanded him: and he took Joshua, and set him before Eleazar the priest, and before all the congregation:  
+> **²³** And he laid his hands upon him, and gave him a charge, as the LORD commanded by the hand of Moses.  
 
 Here, I. Moses prays for a successor. When God had told him that he must die, though it appears elsewhere that he solicited for a reprieve for himself (De 3:24,25), yet, when this could not be obtained, he begged earnestly that the work of God might be carried on, though he might not have the honour of finishing it. Envious spirits do not love their successors, but Moses was not one of these. We should concern ourselves, both in our prayers and in our endeavours, for the rising generation, that religion may flourish, and the interests of God's kingdom among men may be maintained and advanced, when we are in our graves. In this prayer Moses expresses, 1. A tender concern for the people of Israel: *That the congregation of the Lord be not as sheep which have no shepherd.* Our Saviour uses this comparison in his compassions for the people when they wanted good ministers, Mt 9:36. Magistrates and ministers are the shepherds of a people; if these be wanting, or be not as they should be, people are apt to wander and be scattered abroad, are exposed to enemies, and in danger of wanting food and of hurting one another, *as sheep having no shepherd.* 2. A believing dependence upon God, as the *God of the spirits of all flesh.* He is both the former and the searcher of spirits, and therefore can either find men fit or make them fit to serve his purposes, for the good of his church. Moses prays to God, not to send an angel, but to *set a man over the congregation,* that is, to nominate and appoint one whom he would qualify and own as ruler of his people Israel. Before God gave this blessing to Israel, he stirred up Moses to pray for it: thus Christ, before he sent forth his apostles, called to those about him *to pray the Lord of the harvest that he would send forth labourers into his harvest,* Mt 9:38.
 

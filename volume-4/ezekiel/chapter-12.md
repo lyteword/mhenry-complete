@@ -8,22 +8,22 @@ Though the vision of God's glory had gone up from the prophet, yet his word come
 
 ## Zedekiah's Captivity Foretold. (b. c. 593.)
 
-> <sup>1</sup> The word of the LORD also came unto me, saying,  
-> <sup>2</sup> Son of man, thou dwellest in the midst of a rebellious house, which have eyes to see, and see not; they have ears to hear, and hear not: for they *are* a rebellious house.  
-> <sup>3</sup> Therefore, thou son of man, prepare thee stuff for removing, and remove by day in their sight; and thou shalt remove from thy place to another place in their sight: it may be they will consider, though they *be* a rebellious house.  
-> <sup>4</sup> Then shalt thou bring forth thy stuff by day in their sight, as stuff for removing: and thou shalt go forth at even in their sight, as they that go forth into captivity.  
-> <sup>5</sup> Dig thou through the wall in their sight, and carry out thereby.  
-> <sup>6</sup> In their sight shalt thou bear *it* upon *thy* shoulders, *and* carry *it* forth in the twilight: thou shalt cover thy face, that thou see not the ground: for I have set thee *for* a sign unto the house of Israel.  
-> <sup>7</sup> And I did so as I was commanded: I brought forth my stuff by day, as stuff for captivity, and in the even I digged through the wall with mine hand; I brought *it* forth in the twilight, *and* I bare *it* upon *my* shoulder in their sight.  
-> <sup>8</sup> And in the morning came the word of the LORD unto me, saying,  
-> <sup>9</sup> Son of man, hath not the house of Israel, the rebellious house, said unto thee, What doest thou?  
-> <sup>10</sup> Say thou unto them, Thus saith the Lord GOD; This burden *concerneth* the prince in Jerusalem, and all the house of Israel that *are* among them.  
-> <sup>11</sup> Say, I *am* your sign: like as I have done, so shall it be done unto them: they shall remove *and* go into captivity.  
-> <sup>12</sup> And the prince that *is* among them shall bear upon *his* shoulder in the twilight, and shall go forth: they shall dig through the wall to carry out thereby: he shall cover his face, that he see not the ground with *his* eyes.  
-> <sup>13</sup> My net also will I spread upon him, and he shall be taken in my snare: and I will bring him to Babylon *to* the land of the Chaldeans; yet shall he not see it, though he shall die there.  
-> <sup>14</sup> And I will scatter toward every wind all that *are* about him to help him, and all his bands; and I will draw out the sword after them.  
-> <sup>15</sup> And they shall know that I *am* the LORD, when I shall scatter them among the nations, and disperse them in the countries.  
-> <sup>16</sup> But I will leave a few men of them from the sword, from the famine, and from the pestilence; that they may declare all their abominations among the heathen whither they come; and they shall know that I *am* the LORD.  
+> **¹** The word of the LORD also came unto me, saying,  
+> **²** Son of man, thou dwellest in the midst of a rebellious house, which have eyes to see, and see not; they have ears to hear, and hear not: for they *are* a rebellious house.  
+> **³** Therefore, thou son of man, prepare thee stuff for removing, and remove by day in their sight; and thou shalt remove from thy place to another place in their sight: it may be they will consider, though they *be* a rebellious house.  
+> **⁴** Then shalt thou bring forth thy stuff by day in their sight, as stuff for removing: and thou shalt go forth at even in their sight, as they that go forth into captivity.  
+> **⁵** Dig thou through the wall in their sight, and carry out thereby.  
+> **⁶** In their sight shalt thou bear *it* upon *thy* shoulders, *and* carry *it* forth in the twilight: thou shalt cover thy face, that thou see not the ground: for I have set thee *for* a sign unto the house of Israel.  
+> **⁷** And I did so as I was commanded: I brought forth my stuff by day, as stuff for captivity, and in the even I digged through the wall with mine hand; I brought *it* forth in the twilight, *and* I bare *it* upon *my* shoulder in their sight.  
+> **⁸** And in the morning came the word of the LORD unto me, saying,  
+> **⁹** Son of man, hath not the house of Israel, the rebellious house, said unto thee, What doest thou?  
+> **¹⁰** Say thou unto them, Thus saith the Lord GOD; This burden *concerneth* the prince in Jerusalem, and all the house of Israel that *are* among them.  
+> **¹¹** Say, I *am* your sign: like as I have done, so shall it be done unto them: they shall remove *and* go into captivity.  
+> **¹²** And the prince that *is* among them shall bear upon *his* shoulder in the twilight, and shall go forth: they shall dig through the wall to carry out thereby: he shall cover his face, that he see not the ground with *his* eyes.  
+> **¹³** My net also will I spread upon him, and he shall be taken in my snare: and I will bring him to Babylon *to* the land of the Chaldeans; yet shall he not see it, though he shall die there.  
+> **¹⁴** And I will scatter toward every wind all that *are* about him to help him, and all his bands; and I will draw out the sword after them.  
+> **¹⁵** And they shall know that I *am* the LORD, when I shall scatter them among the nations, and disperse them in the countries.  
+> **¹⁶** But I will leave a few men of them from the sword, from the famine, and from the pestilence; that they may declare all their abominations among the heathen whither they come; and they shall know that I *am* the LORD.  
 
 Perhaps Ezekiel reflected with so much pleasure upon the vision he had had of the glory of God that often, since it went up from him, he was wishing it might come down to him again, and, having seen it once and a second time, he was willing to hope he might be a third time so favoured; but we do not find that he ever saw it any more, and yet *the word of the Lord comes to* him; for God did *in divers manners speak to the fathers* (Heb 1:1) and they often *heard the words of God* when they did not *see the visions of the Almighty.* Faith comes by hearing that word of prophecy which is more sure than vision. We may keep up our communion with God without raptures and ecstasies. In these verses the prophet is directed,
 
@@ -37,23 +37,23 @@ II\. He is directed by what words to explain those signs and actions, as Agabus,
 
 ## Prediction of the Famine. (b. c. 593.)
 
-> <sup>17</sup> Moreover the word of the LORD came to me, saying,  
-> <sup>18</sup> Son of man, eat thy bread with quaking, and drink thy water with trembling and with carefulness;  
-> <sup>19</sup> And say unto the people of the land, Thus saith the Lord GOD of the inhabitants of Jerusalem, *and* of the land of Israel; They shall eat their bread with carefulness, and drink their water with astonishment, that her land may be desolate from all that is therein, because of the violence of all them that dwell therein.  
-> <sup>20</sup> And the cities that are inhabited shall be laid waste, and the land shall be desolate; and ye shall know that I *am* the LORD.  
+> **¹⁷** Moreover the word of the LORD came to me, saying,  
+> **¹⁸** Son of man, eat thy bread with quaking, and drink thy water with trembling and with carefulness;  
+> **¹⁹** And say unto the people of the land, Thus saith the Lord GOD of the inhabitants of Jerusalem, *and* of the land of Israel; They shall eat their bread with carefulness, and drink their water with astonishment, that her land may be desolate from all that is therein, because of the violence of all them that dwell therein.  
+> **²⁰** And the cities that are inhabited shall be laid waste, and the land shall be desolate; and ye shall know that I *am* the LORD.  
 
 Here again the prophet is made a sign to them of the desolations that were coming on Judah and Jerusalem. 1. He must himself eat and drink in care and fear, especially when he was in company, Eze 12:17,18. Though he was under no apprehension of danger to himself, but lived in safety and plenty, yet he must *eat his bread with quaking* (the bread of sorrows, Ps 127:2) *and drink his water with trembling and with carefulness,* that he might express the calamitous condition of those that should be in Jerusalem during the siege; not that he must dissemble and pretend to be in fear and care when really he was not; but having to foretel this judgment, to show that he firmly believed it himself, and yet was far from desiring it, in the prospect of it he was himself affected with grief and fear. Note, When ministers speak of the ruin coming upon impenitent sinners they must endeavour to speak feelingly, as those that *know the terrors of the Lord;* and they must be content to endure hardness, so that they may but do good. 2. He must tell them that *the inhabitants of Jerusalem* should in like manner eat and drink with care and fear, Eze 12:19,20. Both those that have their home in Jerusalem and those *of the land of Israel* that come to shelter themselves there, *shall eat their bread with carefulness and drink their water with astonishment,* either because they are afraid it will not hold out, but they shall want shortly, or because they are continually expecting the alarms of the enemy, *their life hanging in doubt before them* (De 28:66), so that what they have they shall have no enjoyment of nor will it do them any good. Note, Care and fear, if they prevail, are enough to embitter all our comforts and are themselves very sore judgments. They shall be reduced to these straits that thus by degrees, and by the hand of those that thus straiten them, both city and country may be laid in ruins; for it is no less than an utter destruction of both that is aimed at in these judgments—*that her land may be desolate from all* the fulness thereof, may be stripped of all its ornaments and robbed of all its fruits, and then of course *the cities that are inhabited shall be laid waste,* for they are *served by the field.* This universal desolation was coming upon them, and then no wonder that they eat their bread with care and fear. Now we are here told, (1.) How bad the cause of this judgment was; it is *because of the violence of all those that dwell therein,* their injustice and oppression, and the mischief they did one another, for which God would reckon with them, as well as for the affronts put upon him in his worship. Note, The decay of virtue in a nation brings on a decay of every thing else; and when neighbours devour one another it is just with God to bring enemies upon them to devour them all. (2.) How good the effect of this judgment should be: *You shall know that I am the Lord;* and if, by these judgments, they learn to know him aright, that will make up the loss of all they are deprived of by these desolations. Those are happy afflictions, how grievous soever to flesh and blood, that help to introduce us into and improve us in an acquaintance with God.
 
 ## Message from God to the People; Impious and Deceitful Hopes. (b. c. 593.)
 
-> <sup>21</sup> And the word of the LORD came unto me, saying,  
-> <sup>22</sup> Son of man, what *is* that proverb *that* ye have in the land of Israel, saying, The days are prolonged, and every vision faileth?  
-> <sup>23</sup> Tell them therefore, Thus saith the Lord GOD; I will make this proverb to cease, and they shall no more use it as a proverb in Israel; but say unto them, The days are at hand, and the effect of every vision.  
-> <sup>24</sup> For there shall be no more any vain vision nor flattering divination within the house of Israel.  
-> <sup>25</sup> For I *am* the LORD: I will speak, and the word that I shall speak shall come to pass; it shall be no more prolonged: for in your days, O rebellious house, will I say the word, and will perform it, saith the Lord GOD.  
-> <sup>26</sup> Again the word of the LORD came to me, saying,  
-> <sup>27</sup> Son of man, behold, *they of* the house of Israel say, The vision that he seeth *is* for many days *to come,* and he prophesieth of the times *that are* far off.  
-> <sup>28</sup> Therefore say unto them, Thus saith the Lord GOD; There shall none of my words be prolonged any more, but the word which I have spoken shall be done, saith the Lord GOD.  
+> **²¹** And the word of the LORD came unto me, saying,  
+> **²²** Son of man, what *is* that proverb *that* ye have in the land of Israel, saying, The days are prolonged, and every vision faileth?  
+> **²³** Tell them therefore, Thus saith the Lord GOD; I will make this proverb to cease, and they shall no more use it as a proverb in Israel; but say unto them, The days are at hand, and the effect of every vision.  
+> **²⁴** For there shall be no more any vain vision nor flattering divination within the house of Israel.  
+> **²⁵** For I *am* the LORD: I will speak, and the word that I shall speak shall come to pass; it shall be no more prolonged: for in your days, O rebellious house, will I say the word, and will perform it, saith the Lord GOD.  
+> **²⁶** Again the word of the LORD came to me, saying,  
+> **²⁷** Son of man, behold, *they of* the house of Israel say, The vision that he seeth *is* for many days *to come,* and he prophesieth of the times *that are* far off.  
+> **²⁸** Therefore say unto them, Thus saith the Lord GOD; There shall none of my words be prolonged any more, but the word which I have spoken shall be done, saith the Lord GOD.  
 
 Various methods had been used to awaken this secure and careless people to an expectation of the judgments coming, that they might be stirred up, by repentance and reformation, to prevent them. The prophecies of their ruin were confirmed by visions, and illustrated by signs, and all with such evidence and power that one would think they must needs be wrought upon; but here we are told how they evaded the conviction, and guarded against it, namely, by telling themselves, and one another, that though these judgments threatened should come at last yet they would not come of a long time. This suggestion, with which they bolstered themselves up in their security, is here answered, and shown to be vain and groundless, in two separate messages which God sent to them by the prophet at different times, both to the same purport; such care, such pains, must the prophet take to undeceive them, Eze 12:21,26. Observe,
 

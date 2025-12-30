@@ -8,12 +8,12 @@ In this chapter, after the introduction (Zec 1:1), we have, I. An awakening call
 
 ## Repentance Urged. (b. c. 520.)
 
-> <sup>1</sup> In the eighth month, in the second year of Darius, came the word of the LORD unto Zechariah, the son of Berechiah, the son of Iddo the prophet, saying,  
-> <sup>2</sup> The LORD hath been sore displeased with your fathers.  
-> <sup>3</sup> Therefore say thou unto them, Thus saith the LORD of hosts; Turn ye unto me, saith the LORD of hosts, and I will turn unto you, saith the LORD of hosts.  
-> <sup>4</sup> Be ye not as your fathers, unto whom the former prophets have cried, saying, Thus saith the LORD of hosts; Turn ye now from your evil ways, and *from* your evil doings: but they did not hear, nor hearken unto me, saith the LORD.  
-> <sup>5</sup> Your fathers, where *are* they? and the prophets, do they live for ever?  
-> <sup>6</sup> But my words and my statutes, which I commanded my servants the prophets, did they not take hold of your fathers? and they returned and said, Like as the LORD of hosts thought to do unto us, according to our ways, and according to our doings, so hath he dealt with us.  
+> **¹** In the eighth month, in the second year of Darius, came the word of the LORD unto Zechariah, the son of Berechiah, the son of Iddo the prophet, saying,  
+> **²** The LORD hath been sore displeased with your fathers.  
+> **³** Therefore say thou unto them, Thus saith the LORD of hosts; Turn ye unto me, saith the LORD of hosts, and I will turn unto you, saith the LORD of hosts.  
+> **⁴** Be ye not as your fathers, unto whom the former prophets have cried, saying, Thus saith the LORD of hosts; Turn ye now from your evil ways, and *from* your evil doings: but they did not hear, nor hearken unto me, saith the LORD.  
+> **⁵** Your fathers, where *are* they? and the prophets, do they live for ever?  
+> **⁶** But my words and my statutes, which I commanded my servants the prophets, did they not take hold of your fathers? and they returned and said, Like as the LORD of hosts thought to do unto us, according to our ways, and according to our doings, so hath he dealt with us.  
 
 Here is, I. The foundation of Zechariah's ministry; it is laid in a divine authority: *The word of the Lord came to him.* He received a divine commission to be God's mouth to the people and with it instructions what to say. He received of the Lord that which also he delivered unto them. *The word of the Lord was to him;* it came in the evidence and demonstration of the Spirit, as a real thing, and not a fancy. For the ascertaining of this, we have here, 1. The time when the word of the Lord came first to him, or when the word that next follows came to him: it was *in the second year of Darius.* Before the captivity the prophets dated their writings by the reigns of the kings of Judah and Israel; but now by the reigns of the kings of Persia, to whom they were subjects. Such a melancholy change had sin made of their circumstances. Zerubbabel took not so much state upon him as to have public acts dated by the years of his government, and in things of this nature the prophets, as is fit, complied with the usage of the time, and scrupled not to reckon by the years of the heathen kings, as Da 7:1,8:1. Zechariah preached his first sermon in the *eighth month* of this *second year* of Darius; Haggai preached his in the sixth month of the same year, Hag 1:1. The people being readily obedient to the word of the Lord in the mouth of Haggai, God blessed them with another prophet; for to him that has, and uses well what he has, more shall be given. 2. The name and family of the prophet to whom the word of the Lord came; He was *Zechariah, the son of Barachiah, the son of Iddo,* and he was *the prophet,* as Haggai is called *the prophet,* Hag 1:1. For, though in former ages there was one Iddo a prophet (2Ch 12:15), yet we have no reason to think that Zechariah was of his progeny, or should be denominated from him. The learned Mr. Pemble is decidedly of opinion that this Zechariah, the son of Barachiah, is the same that our Saviour says was *slain between the temple and the altar,* perhaps many years after the rebuilding of the temple (Mt 23:35), and that our Saviour does not mean (as is commonly thought) Zechariah the son of Jehoiada, for why should Jehoiada be called Barachiah? And he thinks the manner of Christ's account persuades us to think so; for, reckoning up the innocent blood shed by the Jews, he begins at Abel, and ends even in the last of the holy prophets. Whereas, after Zechariah the son of Jehoiada, many prophets and righteous men were put to death by them. It is true there is no mention made in any history of their slaying this Zechariah, but Josephus might industriously conceal that shame of his nation. Perhaps what Zechariah spoke in his prophesying concerning Christ of his being sold, his being wounded in the house of his friends, and the shepherd being smitten, was verified in the prophet himself, and so he became a type of Christ. Probably, being assaulted by his persecutors, he took sanctuary in the court of the priests (and some think he was himself a priest), and so was slain between the porch and the altar.
 
@@ -35,17 +35,17 @@ II\. The first-fruits of Zechariah's ministry. Before he came to visions and rev
 
 ## The Vision of the Horse and Myrtles; Intercession for Jerusalem. (b. c. 520.)
 
-> <sup>7</sup> Upon the four and twentieth day of the eleventh month, which *is* the month Sebat, in the second year of Darius, came the word of the LORD unto Zechariah, the son of Berechiah, the son of Iddo the prophet, saying,  
-> <sup>8</sup> I saw by night, and behold a man riding upon a red horse, and he stood among the myrtle trees that *were* in the bottom; and behind him *were there* red horses, speckled, and white.  
-> <sup>9</sup> Then said I, O my lord, what *are* these? And the angel that talked with me said unto me, I will shew thee what these *be.*  
-> <sup>10</sup> And the man that stood among the myrtle trees answered and said, These *are they* whom the LORD hath sent to walk to and fro through the earth.  
-> <sup>11</sup> And they answered the angel of the LORD that stood among the myrtle trees, and said, We have walked to and fro through the earth, and, behold, all the earth sitteth still, and is at rest.  
-> <sup>12</sup> Then the angel of the LORD answered and said, O LORD of hosts, how long wilt thou not have mercy on Jerusalem and on the cities of Judah, against which thou hast had indignation these threescore and ten years?  
-> <sup>13</sup> And the LORD answered the angel that talked with me *with* good words *and* comfortable words.  
-> <sup>14</sup> So the angel that communed with me said unto me, Cry thou, saying, Thus saith the LORD of hosts; I am jealous for Jerusalem and for Zion with a great jealousy.  
-> <sup>15</sup> And I am very sore displeased with the heathen *that are* at ease: for I was but a little displeased, and they helped forward the affliction.  
-> <sup>16</sup> Therefore thus saith the LORD; I am returned to Jerusalem with mercies: my house shall be built in it, saith the LORD of hosts, and a line shall be stretched forth upon Jerusalem.  
-> <sup>17</sup> Cry yet, saying, Thus saith the LORD of hosts; My cities through prosperity shall yet be spread abroad; and the LORD shall yet comfort Zion, and shall yet choose Jerusalem.  
+> **⁷** Upon the four and twentieth day of the eleventh month, which *is* the month Sebat, in the second year of Darius, came the word of the LORD unto Zechariah, the son of Berechiah, the son of Iddo the prophet, saying,  
+> **⁸** I saw by night, and behold a man riding upon a red horse, and he stood among the myrtle trees that *were* in the bottom; and behind him *were there* red horses, speckled, and white.  
+> **⁹** Then said I, O my lord, what *are* these? And the angel that talked with me said unto me, I will shew thee what these *be.*  
+> **¹⁰** And the man that stood among the myrtle trees answered and said, These *are they* whom the LORD hath sent to walk to and fro through the earth.  
+> **¹¹** And they answered the angel of the LORD that stood among the myrtle trees, and said, We have walked to and fro through the earth, and, behold, all the earth sitteth still, and is at rest.  
+> **¹²** Then the angel of the LORD answered and said, O LORD of hosts, how long wilt thou not have mercy on Jerusalem and on the cities of Judah, against which thou hast had indignation these threescore and ten years?  
+> **¹³** And the LORD answered the angel that talked with me *with* good words *and* comfortable words.  
+> **¹⁴** So the angel that communed with me said unto me, Cry thou, saying, Thus saith the LORD of hosts; I am jealous for Jerusalem and for Zion with a great jealousy.  
+> **¹⁵** And I am very sore displeased with the heathen *that are* at ease: for I was but a little displeased, and they helped forward the affliction.  
+> **¹⁶** Therefore thus saith the LORD; I am returned to Jerusalem with mercies: my house shall be built in it, saith the LORD of hosts, and a line shall be stretched forth upon Jerusalem.  
+> **¹⁷** Cry yet, saying, Thus saith the LORD of hosts; My cities through prosperity shall yet be spread abroad; and the LORD shall yet comfort Zion, and shall yet choose Jerusalem.  
 
 We not come to visions and revelations of the Lord; for in that way God chose to speak by Zechariah, to awaken the people's attention, and to engage their humble reverence of the word and their humble enquiries into it, and to fix it the more in their minds and memories. Most of the following visions seem designed for the comfort of the Jews, now newly returned out of captivity, and their encouragement to go on with the building of the temple. The scope of this vision (which is as an introduction to the rest) is to assure the Jews of the care God took of them, and the eye of his providence that was upon them for good, now in their present state, when they seem to be deserted, and their case deplorable. The vision is dated (Zec 1:7) *the twenty-fourth day of the eleventh month,* three months after he preached that sermon (Zec 1:1), in which he calls them to repentance from the consideration of God's judgments. Finding that that sermon had a good effect, and that they returned to God in a way of duty, the assurances he had given them are confirmed, that God would return to them in a way of mercy. Now observe here,
 
@@ -63,10 +63,10 @@ II\. What the prophet heard, and what instructions were thereby given him. Faith
 
 ## Comfort for Jerusalem. (b. c. 520.)
 
-> <sup>18</sup> Then lifted I up mine eyes, and saw, and behold four horns.  
-> <sup>19</sup> And I said unto the angel that talked with me, What *be* these? And he answered me, These *are* the horns which have scattered Judah, Israel, and Jerusalem.  
-> <sup>20</sup> And the LORD shewed me four carpenters.  
-> <sup>21</sup> Then said I, What come these to do? And he spake, saying, These *are* the horns which have scattered Judah, so that no man did lift up his head: but these are come to fray them, to cast out the horns of the Gentiles, which lifted up *their* horn over the land of Judah to scatter it.  
+> **¹⁸** Then lifted I up mine eyes, and saw, and behold four horns.  
+> **¹⁹** And I said unto the angel that talked with me, What *be* these? And he answered me, These *are* the horns which have scattered Judah, Israel, and Jerusalem.  
+> **²⁰** And the LORD shewed me four carpenters.  
+> **²¹** Then said I, What come these to do? And he spake, saying, These *are* the horns which have scattered Judah, so that no man did lift up his head: but these are come to fray them, to cast out the horns of the Gentiles, which lifted up *their* horn over the land of Judah to scatter it.  
 
 It is the comfort and triumph of the church (Isa 59:19) that *when the enemy shall come in like a flood,* with mighty force and fury, then the *Spirit of the Lord shall lift up a standard against him.* Now, in this vision (the second which this prophet had), we have an illustration of that, God's Spirit making a stand, and making head, against the formidable power of the church's adversaries.
 

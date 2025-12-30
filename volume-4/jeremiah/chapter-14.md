@@ -8,15 +8,15 @@ This chapter was penned upon occasion of a great drought, for want of rain. This
 
 ## Lamentation Caused by a Great Drought; Prayer for Mercy; Pleading with God. (b. c. 606.)
 
-> <sup>1</sup> The word of the LORD that came to Jeremiah concerning the dearth.  
-> <sup>2</sup> Judah mourneth, and the gates thereof languish; they are black unto the ground; and the cry of Jerusalem is gone up.  
-> <sup>3</sup> And their nobles have sent their little ones to the waters: they came to the pits, *and* found no water; they returned with their vessels empty; they were ashamed and confounded, and covered their heads.  
-> <sup>4</sup> Because the ground is chapt, for there was no rain in the earth, the plowmen were ashamed, they covered their heads.  
-> <sup>5</sup> Yea, the hind also calved in the field, and forsook *it,* because there was no grass.  
-> <sup>6</sup> And the wild asses did stand in the high places, they snuffed up the wind like dragons; their eyes did fail, because *there was* no grass.  
-> <sup>7</sup> O LORD, though our iniquities testify against us, do thou *it* for thy name's sake: for our backslidings are many; we have sinned against thee.  
-> <sup>8</sup> O the hope of Israel, the saviour thereof in time of trouble, why shouldest thou be as a stranger in the land, and as a wayfaring man *that* turneth aside to tarry for a night?  
-> <sup>9</sup> Why shouldest thou be as a man astonied, as a mighty man *that* cannot save? yet thou, O LORD, *art* in the midst of us, and we are called by thy name; leave us not.  
+> **¹** The word of the LORD that came to Jeremiah concerning the dearth.  
+> **²** Judah mourneth, and the gates thereof languish; they are black unto the ground; and the cry of Jerusalem is gone up.  
+> **³** And their nobles have sent their little ones to the waters: they came to the pits, *and* found no water; they returned with their vessels empty; they were ashamed and confounded, and covered their heads.  
+> **⁴** Because the ground is chapt, for there was no rain in the earth, the plowmen were ashamed, they covered their heads.  
+> **⁵** Yea, the hind also calved in the field, and forsook *it,* because there was no grass.  
+> **⁶** And the wild asses did stand in the high places, they snuffed up the wind like dragons; their eyes did fail, because *there was* no grass.  
+> **⁷** O LORD, though our iniquities testify against us, do thou *it* for thy name's sake: for our backslidings are many; we have sinned against thee.  
+> **⁸** O the hope of Israel, the saviour thereof in time of trouble, why shouldest thou be as a stranger in the land, and as a wayfaring man *that* turneth aside to tarry for a night?  
+> **⁹** Why shouldest thou be as a man astonied, as a mighty man *that* cannot save? yet thou, O LORD, *art* in the midst of us, and we are called by thy name; leave us not.  
 
 The first verse is the title of the whole chapter: it does indeed all *concern the dearth,* but much of it consists of the prophet's prayers concerning it; yet these are not unfitly said to be, *The word of the Lord which came to him* concerning it, for every acceptable prayer is that which God puts into our hearts; nothing is our word that comes to him but what is first his word that comes from him. In these verses we have,
 
@@ -26,13 +26,13 @@ II\. Here is the language of grace, lamenting the iniquity, and complaining to G
 
 ## Divine Threatenings. (b. c. 606.)
 
-> <sup>10</sup> Thus saith the LORD unto this people, Thus have they loved to wander, they have not refrained their feet, therefore the LORD doth not accept them; he will now remember their iniquity, and visit their sins.  
-> <sup>11</sup> Then said the LORD unto me, Pray not for this people for *their* good.  
-> <sup>12</sup> When they fast, I will not hear their cry; and when they offer burnt offering and an oblation, I will not accept them: but I will consume them by the sword, and by the famine, and by the pestilence.  
-> <sup>13</sup> Then said I, Ah, Lord GOD! behold, the prophets say unto them, Ye shall not see the sword, neither shall ye have famine; but I will give you assured peace in this place.  
-> <sup>14</sup> Then the LORD said unto me, The prophets prophesy lies in my name: I sent them not, neither have I commanded them, neither spake unto them: they prophesy unto you a false vision and divination, and a thing of nought, and the deceit of their heart.  
-> <sup>15</sup> Therefore thus saith the LORD concerning the prophets that prophesy in my name, and I sent them not, yet they say, Sword and famine shall not be in this land; By sword and famine shall those prophets be consumed.  
-> <sup>16</sup> And the people to whom they prophesy shall be cast out in the streets of Jerusalem because of the famine and the sword; and they shall have none to bury them, them, their wives, nor their sons, nor their daughters: for I will pour their wickedness upon them.  
+> **¹⁰** Thus saith the LORD unto this people, Thus have they loved to wander, they have not refrained their feet, therefore the LORD doth not accept them; he will now remember their iniquity, and visit their sins.  
+> **¹¹** Then said the LORD unto me, Pray not for this people for *their* good.  
+> **¹²** When they fast, I will not hear their cry; and when they offer burnt offering and an oblation, I will not accept them: but I will consume them by the sword, and by the famine, and by the pestilence.  
+> **¹³** Then said I, Ah, Lord GOD! behold, the prophets say unto them, Ye shall not see the sword, neither shall ye have famine; but I will give you assured peace in this place.  
+> **¹⁴** Then the LORD said unto me, The prophets prophesy lies in my name: I sent them not, neither have I commanded them, neither spake unto them: they prophesy unto you a false vision and divination, and a thing of nought, and the deceit of their heart.  
+> **¹⁵** Therefore thus saith the LORD concerning the prophets that prophesy in my name, and I sent them not, yet they say, Sword and famine shall not be in this land; By sword and famine shall those prophets be consumed.  
+> **¹⁶** And the people to whom they prophesy shall be cast out in the streets of Jerusalem because of the famine and the sword; and they shall have none to bury them, them, their wives, nor their sons, nor their daughters: for I will pour their wickedness upon them.  
 
 The dispute between God and his prophet, in this chapter, seems to be like that between the owner and the dresser of the vineyard concerning the barren fig-tree, Lu 13:7. The justice of the owner condemns it to be cut down; the clemency of the dresser intercedes for a reprieve. Jeremiah had been earnest with God, in prayer, to return in mercy to this people. Now here,
 
@@ -44,12 +44,12 @@ III\. God not only overrules this plea, but condemns both the blind leaders and 
 
 ## The Prophet's Intercession. (b. c. 606.)
 
-> <sup>17</sup> Therefore thou shalt say this word unto them; Let mine eyes run down with tears night and day, and let them not cease: for the virgin daughter of my people is broken with a great breach, with a very grievous blow.  
-> <sup>18</sup> If I go forth into the field, then behold the slain with the sword! and if I enter into the city, then behold them that are sick with famine! yea, both the prophet and the priest go about into a land that they know not.  
-> <sup>19</sup> Hast thou utterly rejected Judah? hath thy soul loathed Zion? why hast thou smitten us, and *there is* no healing for us? we looked for peace, and *there is* no good; and for the time of healing, and behold trouble!  
-> <sup>20</sup> We acknowledge, O LORD, our wickedness, *and* the iniquity of our fathers: for we have sinned against thee.  
-> <sup>21</sup> Do not abhor *us,* for thy name's sake, do not disgrace the throne of thy glory: remember, break not thy covenant with us.  
-> <sup>22</sup> Are there *any* among the vanities of the Gentiles that can cause rain? or can the heavens give showers? *art* not thou he, O LORD our God? therefore we will wait upon thee: for thou hast made all these *things.*  
+> **¹⁷** Therefore thou shalt say this word unto them; Let mine eyes run down with tears night and day, and let them not cease: for the virgin daughter of my people is broken with a great breach, with a very grievous blow.  
+> **¹⁸** If I go forth into the field, then behold the slain with the sword! and if I enter into the city, then behold them that are sick with famine! yea, both the prophet and the priest go about into a land that they know not.  
+> **¹⁹** Hast thou utterly rejected Judah? hath thy soul loathed Zion? why hast thou smitten us, and *there is* no healing for us? we looked for peace, and *there is* no good; and for the time of healing, and behold trouble!  
+> **²⁰** We acknowledge, O LORD, our wickedness, *and* the iniquity of our fathers: for we have sinned against thee.  
+> **²¹** Do not abhor *us,* for thy name's sake, do not disgrace the throne of thy glory: remember, break not thy covenant with us.  
+> **²²** Are there *any* among the vanities of the Gentiles that can cause rain? or can the heavens give showers? *art* not thou he, O LORD our God? therefore we will wait upon thee: for thou hast made all these *things.*  
 
 The present deplorable state of Judah and Jerusalem is here made the matter of the prophet's lamentation (Jer 14:17,18) and the occasion of his prayer and intercession for them (Jer 14:19), and I am willing to hope that the latter, as well as the former, was by divine direction, and that these words (Jer 14:17), *Thus shalt thou say unto them* (or *concerning them,* or *in their hearing*), refer to the intercession, as well as to the lamentation, and then it amounts to a revocation of the directions given to the prophet not to pray for them, Jer 14:11. However, it is plain, by the prayers we find in these verses, that the prophet did not understand it as a prohibition, but only as a discouragement, like that 1Jo 5:16, *I do not say he shall pray for that.* Here,
 

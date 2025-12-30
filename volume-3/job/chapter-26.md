@@ -8,10 +8,10 @@ This is Job's short reply to Bildad's short discourse, in which he is so far fro
 
 ## Job's Reproof of Bildad. (b. c. 1520.)
 
-> <sup>1</sup> But Job answered and said,  
-> <sup>2</sup> How hast thou helped *him that is* without power? *how* savest thou the arm *that hath* no strength?  
-> <sup>3</sup> How hast thou counselled *him that hath* no wisdom? and *how* hast thou plentifully declared the thing as it is?  
-> <sup>4</sup> To whom hast thou uttered words? and whose spirit came from thee?  
+> **¹** But Job answered and said,  
+> **²** How hast thou helped *him that is* without power? *how* savest thou the arm *that hath* no strength?  
+> **³** How hast thou counselled *him that hath* no wisdom? and *how* hast thou plentifully declared the thing as it is?  
+> **⁴** To whom hast thou uttered words? and whose spirit came from thee?  
 
 One would not have thought that Job, when he was in so much pain and misery, could banter his friend as he does here and make himself merry with the impertinency of his discourse. Bildad thought that he had made a fine speech, that the matter was so weighty, and the language so fine, that he had gained the reputation both of an oracle and of an orator; but Job peevishly enough shows that his performance was not so valuable as he thought it and ridicules him for it. He shows,
 
@@ -21,16 +21,16 @@ II\. That there was no great use to be made of it. *Cui bono*—*What good hast 
 
 ## The Wisdom and Power of God. (b. c. 1520.)
 
-> <sup>5</sup> Dead *things* are formed from under the waters, and the inhabitants thereof.  
-> <sup>6</sup> Hell *is* naked before him, and destruction hath no covering.  
-> <sup>7</sup> He stretcheth out the north over the empty place, *and* hangeth the earth upon nothing.  
-> <sup>8</sup> He bindeth up the waters in his thick clouds; and the cloud is not rent under them.  
-> <sup>9</sup> He holdeth back the face of his throne, *and* spreadeth his cloud upon it.  
-> <sup>10</sup> He hath compassed the waters with bounds, until the day and night come to an end.  
-> <sup>11</sup> The pillars of heaven tremble and are astonished at his reproof.  
-> <sup>12</sup> He divideth the sea with his power, and by his understanding he smiteth through the proud.  
-> <sup>13</sup> By his spirit he hath garnished the heavens; his hand hath formed the crooked serpent.  
-> <sup>14</sup> Lo, these *are* parts of his ways: but how little a portion is heard of him? but the thunder of his power who can understand?  
+> **⁵** Dead *things* are formed from under the waters, and the inhabitants thereof.  
+> **⁶** Hell *is* naked before him, and destruction hath no covering.  
+> **⁷** He stretcheth out the north over the empty place, *and* hangeth the earth upon nothing.  
+> **⁸** He bindeth up the waters in his thick clouds; and the cloud is not rent under them.  
+> **⁹** He holdeth back the face of his throne, *and* spreadeth his cloud upon it.  
+> **¹⁰** He hath compassed the waters with bounds, until the day and night come to an end.  
+> **¹¹** The pillars of heaven tremble and are astonished at his reproof.  
+> **¹²** He divideth the sea with his power, and by his understanding he smiteth through the proud.  
+> **¹³** By his spirit he hath garnished the heavens; his hand hath formed the crooked serpent.  
+> **¹⁴** Lo, these *are* parts of his ways: but how little a portion is heard of him? but the thunder of his power who can understand?  
 
 The truth received a great deal of light from the dispute between Job and his friends concerning those points about which they differed; but now they are upon a subject in which they were all agreed, the infinite glory and power of God. How does truth triumph, and how brightly does it shine, when there appears no other strife between the contenders than which shall speak most highly and honourably of God and be most copious in showing forth his praise! It were well if all disputes about matters of religion might end thus, in *glorifying God* as Lord of all, and our Lord, *with one mind and one mouth* (Ro 15:6); for to that we have all attained, in that we are all agreed.
 

@@ -8,19 +8,19 @@ In this chapter we have an account of the increase, I. Of Jacob's family. Eight 
 
 ## Increase of Jacob's Family. (b. c. 1745.)
 
-> <sup>1</sup> And when Rachel saw that she bare Jacob no children, Rachel envied her sister; and said unto Jacob, Give me children, or else I die.  
-> <sup>2</sup> And Jacob's anger was kindled against Rachel: and he said, *Am* I in God's stead, who hath withheld from thee the fruit of the womb?  
-> <sup>3</sup> And she said, Behold my maid Bilhah, go in unto her; and she shall bear upon my knees, that I may also have children by her.  
-> <sup>4</sup> And she gave him Bilhah her handmaid to wife: and Jacob went in unto her.  
-> <sup>5</sup> And Bilhah conceived, and bare Jacob a son.  
-> <sup>6</sup> And Rachel said, God hath judged me, and hath also heard my voice, and hath given me a son: therefore called she his name Dan.  
-> <sup>7</sup> And Bilhah Rachel's maid conceived again, and bare Jacob a second son.  
-> <sup>8</sup> And Rachel said, With great wrestlings have I wrestled with my sister, and I have prevailed: and she called his name Naphtali.  
-> <sup>9</sup> When Leah saw that she had left bearing, she took Zilpah her maid, and gave her Jacob to wife.  
-> <sup>10</sup> And Zilpah Leah's maid bare Jacob a son.  
-> <sup>11</sup> And Leah said, A troop cometh: and she called his name Gad.  
-> <sup>12</sup> And Zilpah Leah's maid bare Jacob a second son.  
-> <sup>13</sup> And Leah said, Happy am I, for the daughters will call me blessed: and she called his name Asher.  
+> **¹** And when Rachel saw that she bare Jacob no children, Rachel envied her sister; and said unto Jacob, Give me children, or else I die.  
+> **²** And Jacob's anger was kindled against Rachel: and he said, *Am* I in God's stead, who hath withheld from thee the fruit of the womb?  
+> **³** And she said, Behold my maid Bilhah, go in unto her; and she shall bear upon my knees, that I may also have children by her.  
+> **⁴** And she gave him Bilhah her handmaid to wife: and Jacob went in unto her.  
+> **⁵** And Bilhah conceived, and bare Jacob a son.  
+> **⁶** And Rachel said, God hath judged me, and hath also heard my voice, and hath given me a son: therefore called she his name Dan.  
+> **⁷** And Bilhah Rachel's maid conceived again, and bare Jacob a second son.  
+> **⁸** And Rachel said, With great wrestlings have I wrestled with my sister, and I have prevailed: and she called his name Naphtali.  
+> **⁹** When Leah saw that she had left bearing, she took Zilpah her maid, and gave her Jacob to wife.  
+> **¹⁰** And Zilpah Leah's maid bare Jacob a son.  
+> **¹¹** And Leah said, A troop cometh: and she called his name Gad.  
+> **¹²** And Zilpah Leah's maid bare Jacob a second son.  
+> **¹³** And Leah said, Happy am I, for the daughters will call me blessed: and she called his name Asher.  
 
 We have here the bad consequences of that strange marriage which Jacob made with the two sisters. Here is,
 
@@ -36,17 +36,17 @@ II\. An unhappy agreement between him and the two handmaids.
 
 2\. At the persuasion of Leah, he took Zilpah her handmaid to wife also, Ge 30:9. Rachel had done that absurd and preposterous thing of giving her maid to her husband, in emulation with Leah; and now Leah (because she missed one year in bearing children) does the same, to be even with her, or rather to keep before her. See the power of jealousy and rivalship, and admire the wisdom of the divine appointment, which unites one man and one woman only; for *God hath called us to peace* and purity, 1Co 7:15. Two sons Zilpah bore to Jacob, whom Leah looked upon herself as entitled to, in token of which she called one *Gad* (Ge 30:11), promising herself a little *troop* of children; and children are the militia of a family, they fill the quiver, Ps 127:4,5. The other she called *Asher* (*happy*), thinking herself happy in him, and promising herself that her neighbours would think so too: *The daughters will call me blessed,* Ge 30:13. Note, It is an instance of the vanity of the world, and the foolishness bound up in our hearts, that most people value themselves and govern themselves more by reputation than either by reason or religion; they think themselves blessed if the daughters do but call them so. There was much amiss in the contest and competition between these two sisters, yet God brought good out of this evil; for, the time being now at hand when the seed of Abraham must begin to increase and multiply, thus Jacob's family was replenished with twelve sons, heads of the thousands of Israel, from whom the celebrated twelve tribes descended and were named.
 
-> <sup>14</sup> And Reuben went in the days of wheat harvest, and found mandrakes in the field, and brought them unto his mother Leah. Then Rachel said to Leah, Give me, I pray thee, of thy son's mandrakes.  
-> <sup>15</sup> And she said unto her, *Is it* a small matter that thou hast taken my husband? and wouldest thou take away my son's mandrakes also? And Rachel said, Therefore he shall lie with thee to night for thy son's mandrakes.  
-> <sup>16</sup> And Jacob came out of the field in the evening, and Leah went out to meet him, and said, Thou must come in unto me; for surely I have hired thee with my son's mandrakes. And he lay with her that night.  
-> <sup>17</sup> And God hearkened unto Leah, and she conceived, and bare Jacob the fifth son.  
-> <sup>18</sup> And Leah said, God hath given me my hire, because I have given my maiden to my husband: and she called his name Issachar.  
-> <sup>19</sup> And Leah conceived again, and bare Jacob the sixth son.  
-> <sup>20</sup> And Leah said, God hath endued me *with* a good dowry; now will my husband dwell with me, because I have borne him six sons: and she called his name Zebulun.  
-> <sup>21</sup> And afterwards she bare a daughter, and called her name Dinah.  
-> <sup>22</sup> And God remembered Rachel, and God hearkened to her, and opened her womb.  
-> <sup>23</sup> And she conceived, and bare a son; and said, God hath taken away my reproach:  
-> <sup>24</sup> And she called his name Joseph; and said, The LORD shall add to me another son.  
+> **¹⁴** And Reuben went in the days of wheat harvest, and found mandrakes in the field, and brought them unto his mother Leah. Then Rachel said to Leah, Give me, I pray thee, of thy son's mandrakes.  
+> **¹⁵** And she said unto her, *Is it* a small matter that thou hast taken my husband? and wouldest thou take away my son's mandrakes also? And Rachel said, Therefore he shall lie with thee to night for thy son's mandrakes.  
+> **¹⁶** And Jacob came out of the field in the evening, and Leah went out to meet him, and said, Thou must come in unto me; for surely I have hired thee with my son's mandrakes. And he lay with her that night.  
+> **¹⁷** And God hearkened unto Leah, and she conceived, and bare Jacob the fifth son.  
+> **¹⁸** And Leah said, God hath given me my hire, because I have given my maiden to my husband: and she called his name Issachar.  
+> **¹⁹** And Leah conceived again, and bare Jacob the sixth son.  
+> **²⁰** And Leah said, God hath endued me *with* a good dowry; now will my husband dwell with me, because I have borne him six sons: and she called his name Zebulun.  
+> **²¹** And afterwards she bare a daughter, and called her name Dinah.  
+> **²²** And God remembered Rachel, and God hearkened to her, and opened her womb.  
+> **²³** And she conceived, and bare a son; and said, God hath taken away my reproach:  
+> **²⁴** And she called his name Joseph; and said, The LORD shall add to me another son.  
 
 Here is, I. Leah fruitful again, after she had, for some time, left off bearing. Jacob, it should seem, associated more with Rachel than with Leah. The law of Moses supposes it a common case that, if a man had two wives, one would be beloved and the other hated, De 21:15. But at length Rachel's strong passions betrayed her into a bargain with Leah that Jacob should return to her apartment. Reuben, a little lad, five or six years old, playing in the field, found *mandrakes, dudaim.* It is uncertain what they were, the critics are not agreed about them; we are sure they were some rarities, either fruits or flowers that were very pleasant to the smell, So 7:13. Note, The God of nature has provided, not only for our necessities, but for our delights; there are products of the earth in the exposed fields, as well as in the planted protected gardens, that are very valuable and useful. How plentifully is nature's house furnished and her table spread! Her precious fruits offer themselves to be gathered by the hands of little children. It is a laudable custom of the devout Jews, when they find pleasure, suppose in eating an apple, to lift up their hearts, and say, "Blessed be he that made this fruit pleasant!" Or, in smelling a flower, "Blessed be he that made this flower sweet." Some think these mandrakes were jessamine flowers. Whatever they were, Rachel could not see them in Leah's hands, where the child had placed them, but she must covet them. She cannot bear the want of these pretty flowers, but will purchase them at any rate. Note, There may be great sin and folly in the inordinate desire of a small thing. Leah takes this advantage (as Jacob had of Esau's coveting his red pottage) to obtain that which was justly due to her, but to which Rachel would not otherwise have consented. Note, Strong passions often thwart one another, and those cannot but be continually uneasy that are hurried on by them. Leah is overjoyed that she shall have her husband's company again, that her family might yet further be built up, which is the blessing she desires and devoutly prays for, as is intimated, Ge 30:17, where it is said, *God hearkened unto Leah.* The learned bishop Patrick very well suggests here that the true reason of this contest between Jacob's wives for his company, and their giving him their maids to be his wives, was the earnest desire they had to fulfil the promise made to Abraham (and now lately renewed to Jacob), that his seed should be as the stars of heaven for multitude, and that in one seed of his, the Messiah, all the nations of the earth should be blessed. And he thinks it would have been below the dignity of this sacred history to take such particular notice of these things if there had not been some such great consideration in them. Leah was now blessed with two sons; the first she called *Issachar* (*a hire*), reckoning herself well repaid for her mandrakes, nay (which is a strange construction of the providence) rewarded for giving her maid to her husband. Note, We abuse God's mercy when we reckon that his favours countenance and patronize our follies. The other she called *Zebulun* (*dwelling*), owning God's bounty to her: *God has endowed me with a good dowry,* Ge 30:20. Jacob had not endowed her when he married her, nor had he wherewithal in possession; but she reckons a family of children not a bill of charges, but a good dowry, Ps 113:9. She promises herself more of her husband's company now that she had borne him six sons, and that, in love to his children at least, he would often visit her lodgings. Mention is made (Ge 30:21) of the birth of a daughter, *Dinah,* because of the following story concerning her, Ge 34:1-31. Perhaps Jacob had other daughters, though their names are not registered.
 
@@ -54,18 +54,18 @@ II\. Rachel fruitful at last (Ge 30:22): *God remembered Rachel,* whom he seemed
 
 ## Jacob's Bargain with Laban. (b. c. 1745.)
 
-> <sup>25</sup> And it came to pass, when Rachel had borne Joseph, that Jacob said unto Laban, Send me away, that I may go unto mine own place, and to my country.  
-> <sup>26</sup> Give *me* my wives and my children, for whom I have served thee, and let me go: for thou knowest my service which I have done thee.  
-> <sup>27</sup> And Laban said unto him, I pray thee, if I have found favour in thine eyes, *tarry: for* I have learned by experience that the LORD hath blessed me for thy sake.  
-> <sup>28</sup> And he said, Appoint me thy wages, and I will give *it.*  
-> <sup>29</sup> And he said unto him, Thou knowest how I have served thee, and how thy cattle was with me.  
-> <sup>30</sup> For *it was* little which thou hadst before I *came,* and it is *now* increased unto a multitude; and the LORD hath blessed thee since my coming: and now when shall I provide for mine own house also?  
-> <sup>31</sup> And he said, What shall I give thee? And Jacob said, Thou shalt not give me anything: if thou wilt do this thing for me, I will again feed *and* keep thy flock:  
-> <sup>32</sup> I will pass through all thy flock to day, removing from thence all the speckled and spotted cattle, and all the brown cattle among the sheep, and the spotted and speckled among the goats: and *of such* shall be my hire.  
-> <sup>33</sup> So shall my righteousness answer for me in time to come, when it shall come for my hire before thy face: every one that *is* not speckled and spotted among the goats, and brown among the sheep, that shall be counted stolen with me.  
-> <sup>34</sup> And Laban said, Behold, I would it might be according to thy word.  
-> <sup>35</sup> And he removed that day the he goats that were ringstraked and spotted, and all the she goats that were speckled and spotted, *and* every one that had *some* white in it, and all the brown among the sheep, and gave *them* into the hand of his sons.  
-> <sup>36</sup> And he set three days' journey betwixt himself and Jacob: and Jacob fed the rest of Laban's flocks.  
+> **²⁵** And it came to pass, when Rachel had borne Joseph, that Jacob said unto Laban, Send me away, that I may go unto mine own place, and to my country.  
+> **²⁶** Give *me* my wives and my children, for whom I have served thee, and let me go: for thou knowest my service which I have done thee.  
+> **²⁷** And Laban said unto him, I pray thee, if I have found favour in thine eyes, *tarry: for* I have learned by experience that the LORD hath blessed me for thy sake.  
+> **²⁸** And he said, Appoint me thy wages, and I will give *it.*  
+> **²⁹** And he said unto him, Thou knowest how I have served thee, and how thy cattle was with me.  
+> **³⁰** For *it was* little which thou hadst before I *came,* and it is *now* increased unto a multitude; and the LORD hath blessed thee since my coming: and now when shall I provide for mine own house also?  
+> **³¹** And he said, What shall I give thee? And Jacob said, Thou shalt not give me anything: if thou wilt do this thing for me, I will again feed *and* keep thy flock:  
+> **³²** I will pass through all thy flock to day, removing from thence all the speckled and spotted cattle, and all the brown cattle among the sheep, and the spotted and speckled among the goats: and *of such* shall be my hire.  
+> **³³** So shall my righteousness answer for me in time to come, when it shall come for my hire before thy face: every one that *is* not speckled and spotted among the goats, and brown among the sheep, that shall be counted stolen with me.  
+> **³⁴** And Laban said, Behold, I would it might be according to thy word.  
+> **³⁵** And he removed that day the he goats that were ringstraked and spotted, and all the she goats that were speckled and spotted, *and* every one that had *some* white in it, and all the brown among the sheep, and gave *them* into the hand of his sons.  
+> **³⁶** And he set three days' journey betwixt himself and Jacob: and Jacob fed the rest of Laban's flocks.  
 
 We have here,
 
@@ -81,13 +81,13 @@ III\. The new bargain they came upon. Laban's craft and covetousness took advant
 
 ## Jacob's Ingenious Policy. (b. c. 1745.)
 
-> <sup>37</sup> And Jacob took him rods of green poplar, and of the hazel and chesnut tree; and pilled white strakes in them, and made the white appear which *was* in the rods.  
-> <sup>38</sup> And he set the rods which he had pilled before the flocks in the gutters in the watering troughs when the flocks came to drink, that they should conceive when they came to drink.  
-> <sup>39</sup> And the flocks conceived before the rods, and brought forth cattle ringstraked, speckled, and spotted.  
-> <sup>40</sup> And Jacob did separate the lambs, and set the faces of the flocks toward the ringstraked, and all the brown in the flock of Laban; and he put his own flocks by themselves, and put them not unto Laban's cattle.  
-> <sup>41</sup> And it came to pass, whensoever the stronger cattle did conceive, that Jacob laid the rods before the eyes of the cattle in the gutters, that they might conceive among the rods.  
-> <sup>42</sup> But when the cattle were feeble, he put *them* not in: so the feebler were Laban's, and the stronger Jacob's.  
-> <sup>43</sup> And the man increased exceedingly, and had much cattle, and maidservants, and menservants, and camels, and asses.  
+> **³⁷** And Jacob took him rods of green poplar, and of the hazel and chesnut tree; and pilled white strakes in them, and made the white appear which *was* in the rods.  
+> **³⁸** And he set the rods which he had pilled before the flocks in the gutters in the watering troughs when the flocks came to drink, that they should conceive when they came to drink.  
+> **³⁹** And the flocks conceived before the rods, and brought forth cattle ringstraked, speckled, and spotted.  
+> **⁴⁰** And Jacob did separate the lambs, and set the faces of the flocks toward the ringstraked, and all the brown in the flock of Laban; and he put his own flocks by themselves, and put them not unto Laban's cattle.  
+> **⁴¹** And it came to pass, whensoever the stronger cattle did conceive, that Jacob laid the rods before the eyes of the cattle in the gutters, that they might conceive among the rods.  
+> **⁴²** But when the cattle were feeble, he put *them* not in: so the feebler were Laban's, and the stronger Jacob's.  
+> **⁴³** And the man increased exceedingly, and had much cattle, and maidservants, and menservants, and camels, and asses.  
 
 Here is Jacob's honest policy to make his bargain more advantageous to himself than it was likely to be. If he had not taken some course to help himself, it would have been a bad bargain indeed, which he knew Laban would never consider, or rather would be well pleased to see him a loser by, so little did Laban consult any one's interest but his own. Now Jacob's contrivances were, 1. To set peeled sticks before the cattle where they were watered, that, looking much at those unusual party-coloured sticks, by the power of imagination they might bring forth young ones in like manner party-coloured, Ge 30:37-39. Probably this custom was commonly used by the shepherds of Canaan, who coveted to have their cattle of this motley colour. Note, It becomes a man to be master of his trade, whatever it is, and to be not only industrious, but ingenious in it, and to be versed in all its lawful arts and mysteries; for what is a man but his trade? There is a discretion which God teaches the husbandman (as plain a trade as that is), and which he ought to learn, Isa 28:26. 2. When he began to have a stock of ringstraked and brown, he contrived to set them first, and to put the faces of the rest towards them, with the same design as in the former contrivance; but would not let his own, that were of one colour, Ge 30:40. Strong impressions, it seems, are made by the eye, with which therefore we have need to make a covenant. 3. When he found that his project succeeded, through the special blessing of God upon it, he contrived, by using it only with the stronger cattle, to secure to himself those that were most valuable, leaving the feebler to Laban, Ge 30:41,42. Thus *Jacob increased exceedingly* (Ge 30:43), and grew very rich in a little time. This success of his policy, it is true, was not sufficient to justify it, if there had been any thing fraudulent or unjust in it, which we are sure there was not, for he did it by divine direction (Ge 31:12); nor was there any thing in the thing itself but the honest improvement of a fair bargain, which the divine providence wonderfully prospered, both in justice to Jacob whom Laban had wronged and dealt hardly with and in pursuance of the particular promises made to him of the tokens of the divine favour, Note, Those who, while their beginning is small, are humble and honest, contented and industrious, are in a likely way to see their latter end greatly increasing. He that is faithful in a little shall be entrusted with more. He that is faithful in that which is another man's shall be entrusted with something of his own. Jacob, who had been a just servant, became a rich master.
 

@@ -8,8 +8,8 @@ It should seem that the Jer 3:29-37,4:1-2 of this chapter might better have been
 
 ## Exhortation to Repentance. (b. c. 620.)
 
-> <sup>1</sup> If thou wilt return, O Israel, saith the LORD, return unto me: and if thou wilt put away thine abominations out of my sight, then shalt thou not remove.  
-> <sup>2</sup> And thou shalt swear, The LORD liveth, in truth, in judgment, and in righteousness; and the nations shall bless themselves in him, and in him shall they glory.  
+> **¹** If thou wilt return, O Israel, saith the LORD, return unto me: and if thou wilt put away thine abominations out of my sight, then shalt thou not remove.  
+> **²** And thou shalt swear, The LORD liveth, in truth, in judgment, and in righteousness; and the nations shall bless themselves in him, and in him shall they glory.  
 
 When God called to backsliding Israel to return (Jer 3:22) they immediately answered, *Lord, we return;* now God here takes notice of their answer, and, by way of reply to it,
 
@@ -19,8 +19,8 @@ II\. He encourages them to keep in this good mind and adhere to their resolution
 
 ## Punishment Predicted. (b. c. 620.)
 
-> <sup>3</sup> For thus saith the LORD to the men of Judah and Jerusalem, Break up your fallow ground, and sow not among thorns.  
-> <sup>4</sup> Circumcise yourselves to the LORD, and take away the foreskins of your heart, ye men of Judah and inhabitants of Jerusalem: lest my fury come forth like fire, and burn that none can quench *it,* because of the evil of your doings.  
+> **³** For thus saith the LORD to the men of Judah and Jerusalem, Break up your fallow ground, and sow not among thorns.  
+> **⁴** Circumcise yourselves to the LORD, and take away the foreskins of your heart, ye men of Judah and inhabitants of Jerusalem: lest my fury come forth like fire, and burn that none can quench *it,* because of the evil of your doings.  
 
 The prophet here turns his speech, in God's name, to the men of the place where he lived. We have heard what words he proclaimed *towards the north* (Jer 3:12), for the comfort of those that were now in captivity and were humbled under the hand of God; let us now see what he says to the *men of Judah and Jerusalem,* who were now in prosperity, for their conviction and awakening. In these two verses he exhorts them to repentance and reformation, as the only way left them to prevent the desolating judgments that were ready to break in upon them. Observe,
 
@@ -34,20 +34,20 @@ II\. The danger they are threatened with, which they are concerned to avoid. Rep
 
 ## Punishment Predicted. (b. c. 620.)
 
-> <sup>5</sup> Declare ye in Judah, and publish in Jerusalem; and say, Blow ye the trumpet in the land: cry, gather together, and say, Assemble yourselves, and let us go into the defenced cities.  
-> <sup>6</sup> Set up the standard toward Zion: retire, stay not: for I will bring evil from the north, and a great destruction.  
-> <sup>7</sup> The lion is come up from his thicket, and the destroyer of the Gentiles is on his way; he is gone forth from his place to make thy land desolate; *and* thy cities shall be laid waste, without an inhabitant.  
-> <sup>8</sup> For this gird you with sackcloth, lament and howl: for the fierce anger of the LORD is not turned back from us.  
-> <sup>9</sup> And it shall come to pass at that day, saith the LORD, *that* the heart of the king shall perish, and the heart of the princes; and the priests shall be astonished, and the prophets shall wonder.  
-> <sup>10</sup> Then said I, Ah, Lord GOD! surely thou hast greatly deceived this people and Jerusalem, saying, Ye shall have peace; whereas the sword reacheth unto the soul.  
-> <sup>11</sup> At that time shall it be said to this people and to Jerusalem, A dry wind of the high places in the wilderness toward the daughter of my people, not to fan, nor to cleanse,  
-> <sup>12</sup> *Even* a full wind from those *places* shall come unto me: now also will I give sentence against them.  
-> <sup>13</sup> Behold, he shall come up as clouds, and his chariots *shall be* as a whirlwind: his horses are swifter than eagles. Woe unto us! for we are spoiled.  
-> <sup>14</sup> O Jerusalem, wash thine heart from wickedness, that thou mayest be saved. How long shall thy vain thoughts lodge within thee?  
-> <sup>15</sup> For a voice declareth from Dan, and publisheth affliction from mount Ephraim.  
-> <sup>16</sup> Make ye mention to the nations; behold, publish against Jerusalem, *that* watchers come from a far country, and give out their voice against the cities of Judah.  
-> <sup>17</sup> As keepers of a field, are they against her round about; because she hath been rebellious against me, saith the LORD.  
-> <sup>18</sup> Thy way and thy doings have procured these *things* unto thee; this *is* thy wickedness, because it is bitter, because it reacheth unto thine heart.  
+> **⁵** Declare ye in Judah, and publish in Jerusalem; and say, Blow ye the trumpet in the land: cry, gather together, and say, Assemble yourselves, and let us go into the defenced cities.  
+> **⁶** Set up the standard toward Zion: retire, stay not: for I will bring evil from the north, and a great destruction.  
+> **⁷** The lion is come up from his thicket, and the destroyer of the Gentiles is on his way; he is gone forth from his place to make thy land desolate; *and* thy cities shall be laid waste, without an inhabitant.  
+> **⁸** For this gird you with sackcloth, lament and howl: for the fierce anger of the LORD is not turned back from us.  
+> **⁹** And it shall come to pass at that day, saith the LORD, *that* the heart of the king shall perish, and the heart of the princes; and the priests shall be astonished, and the prophets shall wonder.  
+> **¹⁰** Then said I, Ah, Lord GOD! surely thou hast greatly deceived this people and Jerusalem, saying, Ye shall have peace; whereas the sword reacheth unto the soul.  
+> **¹¹** At that time shall it be said to this people and to Jerusalem, A dry wind of the high places in the wilderness toward the daughter of my people, not to fan, nor to cleanse,  
+> **¹²** *Even* a full wind from those *places* shall come unto me: now also will I give sentence against them.  
+> **¹³** Behold, he shall come up as clouds, and his chariots *shall be* as a whirlwind: his horses are swifter than eagles. Woe unto us! for we are spoiled.  
+> **¹⁴** O Jerusalem, wash thine heart from wickedness, that thou mayest be saved. How long shall thy vain thoughts lodge within thee?  
+> **¹⁵** For a voice declareth from Dan, and publisheth affliction from mount Ephraim.  
+> **¹⁶** Make ye mention to the nations; behold, publish against Jerusalem, *that* watchers come from a far country, and give out their voice against the cities of Judah.  
+> **¹⁷** As keepers of a field, are they against her round about; because she hath been rebellious against me, saith the LORD.  
+> **¹⁸** Thy way and thy doings have procured these *things* unto thee; this *is* thy wickedness, because it is bitter, because it reacheth unto thine heart.  
 
 God's usual method is to warn before he wounds. In these verses, accordingly, God gives notice to the Jews of the general desolation that would shortly be brought upon them by a foreign invasion. This must be declared and published in all the cities of Judah and streets of Jerusalem, that all might hear and fear, and by this loud alarm be either brought to repentance or left inexcusable. The prediction of this calamity is here given very largely, and in lively expressions, which one would think should have awakened and affected the most stupid. Observe,
 
@@ -65,19 +65,19 @@ VI\. The prophet's endeavour to undeceive them. When the prophets they loved and
 
 ## Punishment Predicted. (b. c. 620.)
 
-> <sup>19</sup> My bowels, my bowels! I am pained at my very heart; my heart maketh a noise in me; I cannot hold my peace, because thou hast heard, O my soul, the sound of the trumpet, the alarm of war.  
-> <sup>20</sup> Destruction upon destruction is cried; for the whole land is spoiled: suddenly are my tents spoiled, *and* my curtains in a moment.  
-> <sup>21</sup> How long shall I see the standard, *and* hear the sound of the trumpet?  
-> <sup>22</sup> For my people *is* foolish, they have not known me; they *are* sottish children, and they have none understanding: they *are* wise to do evil, but to do good they have no knowledge.  
-> <sup>23</sup> I beheld the earth, and, lo, *it was* without form, and void; and the heavens, and they *had* no light.  
-> <sup>24</sup> I beheld the mountains, and, lo, they trembled, and all the hills moved lightly.  
-> <sup>25</sup> I beheld, and, lo, *there was* no man, and all the birds of the heavens were fled.  
-> <sup>26</sup> I beheld, and, lo, the fruitful place *was* a wilderness, and all the cities thereof were broken down at the presence of the LORD, *and* by his fierce anger.  
-> <sup>27</sup> For thus hath the LORD said, The whole land shall be desolate; yet will I not make a full end.  
-> <sup>28</sup> For this shall the earth mourn, and the heavens above be black: because I have spoken *it,* I have purposed *it,* and will not repent, neither will I turn back from it.  
-> <sup>29</sup> The whole city shall flee for the noise of the horsemen and bowmen; they shall go into thickets, and climb up upon the rocks: every city *shall be* forsaken, and not a man dwell therein.  
-> <sup>30</sup> And *when* thou *art* spoiled, what wilt thou do? Though thou clothest thyself with crimson, though thou deckest thee with ornaments of gold, though thou rentest thy face with painting, in vain shalt thou make thyself fair; *thy* lovers will despise thee, they will seek thy life.  
-> <sup>31</sup> For I have heard a voice as of a woman in travail, *and* the anguish as of her that bringeth forth her first child, the voice of the daughter of Zion, *that* bewaileth herself, *that* spreadeth her hands, *saying,* Woe *is* me now! for my soul is wearied because of murderers.  
+> **¹⁹** My bowels, my bowels! I am pained at my very heart; my heart maketh a noise in me; I cannot hold my peace, because thou hast heard, O my soul, the sound of the trumpet, the alarm of war.  
+> **²⁰** Destruction upon destruction is cried; for the whole land is spoiled: suddenly are my tents spoiled, *and* my curtains in a moment.  
+> **²¹** How long shall I see the standard, *and* hear the sound of the trumpet?  
+> **²²** For my people *is* foolish, they have not known me; they *are* sottish children, and they have none understanding: they *are* wise to do evil, but to do good they have no knowledge.  
+> **²³** I beheld the earth, and, lo, *it was* without form, and void; and the heavens, and they *had* no light.  
+> **²⁴** I beheld the mountains, and, lo, they trembled, and all the hills moved lightly.  
+> **²⁵** I beheld, and, lo, *there was* no man, and all the birds of the heavens were fled.  
+> **²⁶** I beheld, and, lo, the fruitful place *was* a wilderness, and all the cities thereof were broken down at the presence of the LORD, *and* by his fierce anger.  
+> **²⁷** For thus hath the LORD said, The whole land shall be desolate; yet will I not make a full end.  
+> **²⁸** For this shall the earth mourn, and the heavens above be black: because I have spoken *it,* I have purposed *it,* and will not repent, neither will I turn back from it.  
+> **²⁹** The whole city shall flee for the noise of the horsemen and bowmen; they shall go into thickets, and climb up upon the rocks: every city *shall be* forsaken, and not a man dwell therein.  
+> **³⁰** And *when* thou *art* spoiled, what wilt thou do? Though thou clothest thyself with crimson, though thou deckest thee with ornaments of gold, though thou rentest thy face with painting, in vain shalt thou make thyself fair; *thy* lovers will despise thee, they will seek thy life.  
+> **³¹** For I have heard a voice as of a woman in travail, *and* the anguish as of her that bringeth forth her first child, the voice of the daughter of Zion, *that* bewaileth herself, *that* spreadeth her hands, *saying,* Woe *is* me now! for my soul is wearied because of murderers.  
 
 The prophet is here in an agony, and cries out like one upon the rack of pain with some acute distemper, or as a woman in travail. The expressions are very pathetic and moving, enough to melt a heart of stone into compassion: *My bowels! my bowels! I am pained at my very heart;* and yet well, and in health himself, and nothing ails him. Note, A good man, in such a bad world as this is, cannot but be a *man of sorrows. My heart makes a noise in me,* through the tumult of my spirits, and *I cannot hold my peace.* Note, The grievance and the grief sometimes may be such that the most prudent patient man cannot forbear complaining.
 

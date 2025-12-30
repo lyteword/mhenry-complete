@@ -8,17 +8,17 @@ This is a psalm of praise; it is probable that David was the penman of it, but w
 
 ## An Exhortation to Praise God.
 
-> <sup>1</sup> Rejoice in the LORD, O ye righteous: *for* praise is comely for the upright.  
-> <sup>2</sup> Praise the LORD with harp: sing unto him with the psaltery *and* an instrument of ten strings.  
-> <sup>3</sup> Sing unto him a new song; play skilfully with a loud noise.  
-> <sup>4</sup> For the word of the LORD *is* right; and all his works *are done* in truth.  
-> <sup>5</sup> He loveth righteousness and judgment: the earth is full of the goodness of the LORD.  
-> <sup>6</sup> By the word of the LORD were the heavens made; and all the host of them by the breath of his mouth.  
-> <sup>7</sup> He gathereth the waters of the sea together as a heap: he layeth up the depth in storehouses.  
-> <sup>8</sup> Let all the earth fear the LORD: let all the inhabitants of the world stand in awe of him.  
-> <sup>9</sup> For he spake, and it was *done;* he commanded, and it stood fast.  
-> <sup>10</sup> The LORD bringeth the counsel of the heathen to nought: he maketh the devices of the people of none effect.  
-> <sup>11</sup> The counsel of the LORD standeth for ever, the thoughts of his heart to all generations.  
+> **¹** Rejoice in the LORD, O ye righteous: *for* praise is comely for the upright.  
+> **²** Praise the LORD with harp: sing unto him with the psaltery *and* an instrument of ten strings.  
+> **³** Sing unto him a new song; play skilfully with a loud noise.  
+> **⁴** For the word of the LORD *is* right; and all his works *are done* in truth.  
+> **⁵** He loveth righteousness and judgment: the earth is full of the goodness of the LORD.  
+> **⁶** By the word of the LORD were the heavens made; and all the host of them by the breath of his mouth.  
+> **⁷** He gathereth the waters of the sea together as a heap: he layeth up the depth in storehouses.  
+> **⁸** Let all the earth fear the LORD: let all the inhabitants of the world stand in awe of him.  
+> **⁹** For he spake, and it was *done;* he commanded, and it stood fast.  
+> **¹⁰** The LORD bringeth the counsel of the heathen to nought: he maketh the devices of the people of none effect.  
+> **¹¹** The counsel of the LORD standeth for ever, the thoughts of his heart to all generations.  
 
 Four things the psalmist expresses in these verses:
 
@@ -38,17 +38,17 @@ IV\. The satisfaction he had of God's sovereignty and dominion, Ps 33:10,11. He 
 
 ## God's Sovereign Power.
 
-> <sup>12</sup> Blessed *is* the nation whose God *is* the LORD; *and* the people *whom* he hath chosen for his own inheritance.  
-> <sup>13</sup> The LORD looketh from heaven; he beholdeth all the sons of men.  
-> <sup>14</sup> From the place of his habitation he looketh upon all the inhabitants of the earth.  
-> <sup>15</sup> He fashioneth their hearts alike; he considereth all their works.  
-> <sup>16</sup> There is no king saved by the multitude of a host: a mighty man is not delivered by much strength.  
-> <sup>17</sup> A horse *is* a vain thing for safety: neither shall he deliver *any* by his great strength.  
-> <sup>18</sup> Behold, the eye of the LORD *is* upon them that fear him, upon them that hope in his mercy;  
-> <sup>19</sup> To deliver their soul from death, and to keep them alive in famine.  
-> <sup>20</sup> Our soul waiteth for the LORD: he *is* our help and our shield.  
-> <sup>21</sup> For our heart shall rejoice in him, because we have trusted in his holy name.  
-> <sup>22</sup> Let thy mercy, O LORD, be upon us, according as we hope in thee.  
+> **¹²** Blessed *is* the nation whose God *is* the LORD; *and* the people *whom* he hath chosen for his own inheritance.  
+> **¹³** The LORD looketh from heaven; he beholdeth all the sons of men.  
+> **¹⁴** From the place of his habitation he looketh upon all the inhabitants of the earth.  
+> **¹⁵** He fashioneth their hearts alike; he considereth all their works.  
+> **¹⁶** There is no king saved by the multitude of a host: a mighty man is not delivered by much strength.  
+> **¹⁷** A horse *is* a vain thing for safety: neither shall he deliver *any* by his great strength.  
+> **¹⁸** Behold, the eye of the LORD *is* upon them that fear him, upon them that hope in his mercy;  
+> **¹⁹** To deliver their soul from death, and to keep them alive in famine.  
+> **²⁰** Our soul waiteth for the LORD: he *is* our help and our shield.  
+> **²¹** For our heart shall rejoice in him, because we have trusted in his holy name.  
+> **²²** Let thy mercy, O LORD, be upon us, according as we hope in thee.  
 
 We are here taught to give to God the glory,
 

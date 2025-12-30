@@ -8,15 +8,15 @@ At this chapter begins an account of the orders and instructions God gave to Mos
 
 ## The Tabernacle and Its Furniture. (b. c. 1491.)
 
-> <sup>1</sup> And the LORD spake unto Moses, saying,  
-> <sup>2</sup> Speak unto the children of Israel, that they bring me an offering: of every man that giveth it willingly with his heart ye shall take my offering.  
-> <sup>3</sup> And this *is* the offering which ye shall take of them; gold, and silver, and brass,  
-> <sup>4</sup> And blue, and purple, and scarlet, and fine linen, and goats' *hair,*  
-> <sup>5</sup> And rams' skins dyed red, and badgers' skins, and shittim wood,  
-> <sup>6</sup> Oil for the light, spices for anointing oil, and for sweet incense,  
-> <sup>7</sup> Onyx stones, and stones to be set in the ephod, and in the breastplate.  
-> <sup>8</sup> And let them make me a sanctuary; that I may dwell among them.  
-> <sup>9</sup> According to all that I show thee, *after* the pattern of the tabernacle, and the pattern of all the instruments thereof, even so shall ye make *it.*  
+> **¹** And the LORD spake unto Moses, saying,  
+> **²** Speak unto the children of Israel, that they bring me an offering: of every man that giveth it willingly with his heart ye shall take my offering.  
+> **³** And this *is* the offering which ye shall take of them; gold, and silver, and brass,  
+> **⁴** And blue, and purple, and scarlet, and fine linen, and goats' *hair,*  
+> **⁵** And rams' skins dyed red, and badgers' skins, and shittim wood,  
+> **⁶** Oil for the light, spices for anointing oil, and for sweet incense,  
+> **⁷** Onyx stones, and stones to be set in the ephod, and in the breastplate.  
+> **⁸** And let them make me a sanctuary; that I may dwell among them.  
+> **⁹** According to all that I show thee, *after* the pattern of the tabernacle, and the pattern of all the instruments thereof, even so shall ye make *it.*  
 
 We may suppose that when Moses went into the midst of the cloud, and abode there so long, where the holy angels attended the *shechinah,* or divine Majesty, he saw and heard very glorious things relating to the upper world, but they were things which it was not lawful nor possible to utter; and therefore, in the records he kept of the transactions there, he says nothing to satisfy the curiosity of those who would intrude into the things which they have not seen, but writes that only which he was to speak to the children of Israel. For the scripture is designed to direct us in our duty, not to fill our heads with speculations, nor to please our fancies.
 
@@ -40,19 +40,19 @@ II\. When Moses was to erect this palace, it was requisite that he should first 
 
 2\. God himself would furnish him with the model: *According to all that I show thee,* Ex 25:9. God showed him an exact plan of it, in miniature, which he must conform to in all points. Thus Ezekiel saw in vision the form of the house and the fashion thereof, Eze 43:11. Note, Whatsoever is done in God's service must be done by his direction, and not otherwise. Yet God did not only show him the model, but gave him also particular directions how to frame the tabernacle according to that model, in all the parts of it, which he goes over distinctly in this and the following chapters. When Moses, in the beginning of Genesis, was to describe the creation of the world, though it is such a stately and curious fabric and made up of such a variety and vast number of particulars, yet he gave a very short and general account of it, and nothing compared with what the wisdom of this world would have desired and expected from one that wrote by divine revelation; but, when he comes to describe the tabernacle, he does it with the greatest niceness and accuracy imaginable. He that gave us no account of the lines and circles of the globe, the diameter of the earth, or the height and magnitude of the stars, has told us particularly the measure of every board and curtain of the tabernacle; for God's church and instituted religion are more precious to him and more considerable than all the rest of the world. And the scriptures were written, not to describe to us the works of nature, a general view of which is sufficient to lead us to the knowledge and service of the Creator, but to acquaint us with the methods of grace, and those things which are purely matters of divine revelation. The blessedness of the future state is more fully represented under the notion of a new Jerusalem than under the notion of new heavens and a new earth.
 
-> <sup>10</sup> And they shall make an ark *of* shittim wood: two cubits and a half *shall be* the length thereof, and a cubit and a half the breadth thereof, and a cubit and a half the height thereof.  
-> <sup>11</sup> And thou shalt overlay it with pure gold, within and without shalt thou overlay it, and shalt make upon it a crown of gold round about.  
-> <sup>12</sup> And thou shalt cast four rings of gold for it, and put *them* in the four corners thereof; and two rings *shall be* in the one side of it, and two rings in the other side of it.  
-> <sup>13</sup> And thou shalt make staves *of* shittim wood, and overlay them with gold.  
-> <sup>14</sup> And thou shalt put the staves into the rings by the sides of the ark, that the ark may be borne with them.  
-> <sup>15</sup> The staves shall be in the rings of the ark: they shall not be taken from it.  
-> <sup>16</sup> And thou shalt put into the ark the testimony which I shall give thee.  
-> <sup>17</sup> And thou shalt make a mercy seat *of* pure gold: two cubits and a half *shall be* the length thereof, and a cubit and a half the breadth thereof.  
-> <sup>18</sup> And thou shalt make two cherubims *of* gold, *of* beaten work shalt thou make them, in the two ends of the mercy seat.  
-> <sup>19</sup> And make one cherub on the one end, and the other cherub on the other end: *even* of the mercy seat shall ye make the cherubims on the two ends thereof.  
-> <sup>20</sup> And the cherubims shall stretch forth *their* wings on high, covering the mercy seat with their wings, and their faces *shall look* one to another; toward the mercy seat shall the faces of the cherubims be.  
-> <sup>21</sup> And thou shalt put the mercy seat above upon the ark; and in the ark thou shalt put the testimony that I shall give thee.  
-> <sup>22</sup> And there I will meet with thee, and I will commune with thee from above the mercy seat, from between the two cherubims which *are* upon the ark of the testimony, of all *things* which I will give thee in commandment unto the children of Israel.  
+> **¹⁰** And they shall make an ark *of* shittim wood: two cubits and a half *shall be* the length thereof, and a cubit and a half the breadth thereof, and a cubit and a half the height thereof.  
+> **¹¹** And thou shalt overlay it with pure gold, within and without shalt thou overlay it, and shalt make upon it a crown of gold round about.  
+> **¹²** And thou shalt cast four rings of gold for it, and put *them* in the four corners thereof; and two rings *shall be* in the one side of it, and two rings in the other side of it.  
+> **¹³** And thou shalt make staves *of* shittim wood, and overlay them with gold.  
+> **¹⁴** And thou shalt put the staves into the rings by the sides of the ark, that the ark may be borne with them.  
+> **¹⁵** The staves shall be in the rings of the ark: they shall not be taken from it.  
+> **¹⁶** And thou shalt put into the ark the testimony which I shall give thee.  
+> **¹⁷** And thou shalt make a mercy seat *of* pure gold: two cubits and a half *shall be* the length thereof, and a cubit and a half the breadth thereof.  
+> **¹⁸** And thou shalt make two cherubims *of* gold, *of* beaten work shalt thou make them, in the two ends of the mercy seat.  
+> **¹⁹** And make one cherub on the one end, and the other cherub on the other end: *even* of the mercy seat shall ye make the cherubims on the two ends thereof.  
+> **²⁰** And the cherubims shall stretch forth *their* wings on high, covering the mercy seat with their wings, and their faces *shall look* one to another; toward the mercy seat shall the faces of the cherubims be.  
+> **²¹** And thou shalt put the mercy seat above upon the ark; and in the ark thou shalt put the testimony that I shall give thee.  
+> **²²** And there I will meet with thee, and I will commune with thee from above the mercy seat, from between the two cherubims which *are* upon the ark of the testimony, of all *things* which I will give thee in commandment unto the children of Israel.  
 
 The first thing which is here ordered to be made is the ark with its appurtenances, the furniture of the most holy place, and the special token of God's presence, for which the tabernacle was erected to be the receptacle.
 
@@ -62,27 +62,27 @@ II\. The mercy-seat was the covering of the ark or chest, made of solid gold, ex
 
 III\. The cherubim of gold were fixed to the mercy-seat, and of a piece with it, and spread their wings over it, Ex 25:18. It is supposed that these cherubim were designed to represent the holy angels, who always attended the *shechinah,* or divine Majesty, particularly at the giving of the law; not by any effigies of an angel, but some emblem of the angelical nature, probably some one of those four faces spoken of, Eze 1:10. Whatever the faces were, they looked one towards another, and both downward towards the ark, while their wings were stretched out so as to touch one another. The apostle calls them *cherubim of glory shadowing the mercy-seat,* Heb 9:5. It denotes their attendance upon the Redeemer, to whom they were ministering spirits, their readiness to do his will, their special presence in the assemblies of saints (Ps 68:17,1Co 11:10), and their desire to look into the mysteries of the gospel which they diligently contemplate, 1Pe 1:12. God is said to dwell, or sit, *between the cherubim,* on the mercy-seat (Ps 80:1), and thence he here promises, for the future, to meet with Moses, and to *commune with him,* Ex 25:22. There he would give law, and there he would give audience, as a prince on his throne; and thus he manifests himself willing to be reconciled to us, and keep up communion with us, in and by the mediation of Christ. In allusion to this mercy-seat, we are said to come boldly to *the throne of grace* (Heb 4:16); for we *are not under the law,* which is covered, *but under grace,* which is displayed; its wings are stretched out, and we are invited to come under the shadow of them, Ru 2:12.
 
-> <sup>23</sup> Thou shalt also make a table *of* shittim wood: two cubits *shall be* the length thereof, and a cubit the breadth thereof, and a cubit and a half the height thereof.  
-> <sup>24</sup> And thou shalt overlay it with pure gold, and make thereto a crown of gold round about.  
-> <sup>25</sup> And thou shalt make unto it a border of an hand breadth round about, and thou shalt make a golden crown to the border thereof round about.  
-> <sup>26</sup> And thou shalt make for it four rings of gold, and put the rings in the four corners that *are* on the four feet thereof.  
-> <sup>27</sup> Over against the border shall the rings be for places of the staves to bear the table.  
-> <sup>28</sup> And thou shalt make the staves *of* shittim wood, and overlay them with gold, that the table may be borne with them.  
-> <sup>29</sup> And thou shalt make the dishes thereof, and spoons thereof, and covers thereof, and bowls thereof, to cover withal: *of* pure gold shalt thou make them.  
-> <sup>30</sup> And thou shalt set upon the table showbread before me alway.  
+> **²³** Thou shalt also make a table *of* shittim wood: two cubits *shall be* the length thereof, and a cubit the breadth thereof, and a cubit and a half the height thereof.  
+> **²⁴** And thou shalt overlay it with pure gold, and make thereto a crown of gold round about.  
+> **²⁵** And thou shalt make unto it a border of an hand breadth round about, and thou shalt make a golden crown to the border thereof round about.  
+> **²⁶** And thou shalt make for it four rings of gold, and put the rings in the four corners that *are* on the four feet thereof.  
+> **²⁷** Over against the border shall the rings be for places of the staves to bear the table.  
+> **²⁸** And thou shalt make the staves *of* shittim wood, and overlay them with gold, that the table may be borne with them.  
+> **²⁹** And thou shalt make the dishes thereof, and spoons thereof, and covers thereof, and bowls thereof, to cover withal: *of* pure gold shalt thou make them.  
+> **³⁰** And thou shalt set upon the table showbread before me alway.  
 
 Here is, 1. A table ordered to be made of wood overlaid with gold, which was to stand, not in the holy of holies (nothing was in that but the ark with its appurtenances), but in the outer part of the tabernacle, called the *sanctuary,* or *holy place,* Heb 9:2,23, etc. There must also be the usual furniture of the sideboard, dishes and spoons, etc., and all *of gold,* Ex 25:29. 2. This table was to be always spread, and furnished with the show-bread (Ex 25:30), or *bread of faces,* twelve loaves, one for each tribe, set in two rows, six in a row; see the law concerning them, Le 24:5-10, etc. The tabernacle being God's house, in which he was pleased to say that he would dwell among them, he would show that he kept a good house. In the royal palace it was fit that there should be a royal table. Some make the twelve loaves to represent the twelve tribes, set before God as his people and *the corn of his floor,* as they are called, Isa 21:10. As the ark signified God's being present with them, so the twelve loaves signified their being presented to God. This bread was designed to be, (1.) A thankful acknowledgement of God's goodness to them, in giving them their daily bread, manna in the wilderness, where he prepared a table for them, and, in Canaan, the corn of the land. Hereby they owned their dependence upon Providence, not only for the corn in the field, which they gave thanks for in offering the sheaf of first-fruits, but for the bread in their houses, that, when it was brought home, God did not *blow upon it,* Hag 1:9. Christ has taught us to pray every day for the bread of the day. (2.) A token of their communion with God. This bread on God's table being made of the same corn with the bread on their own tables, God and Israel did, as it were, eat together, as a pledge of friendship and fellowship; he supped with them, and they with him. (3.) A type of the spiritual provision which is made in the church, by the gospel of Christ, for all that are made priests to our God. *In our Father's house there is bread enough and to spare,* a loaf for every tribe. All that attend in God's house shall be abundantly satisfied with the goodness of it, Ps 36:8. Divine consolations are the continual feast of holy souls, notwithstanding there are those to whom *the table of the Lord,* and the *meat thereof* (because it is plain bread), are *contemptible,* Mal 1:12. Christ has a table in his kingdom, at which all his saints shall for every eat and drink with him, Lu 22:30.
 
-> <sup>31</sup> And thou shalt make a candlestick *of* pure gold: *of* beaten work shall the candlestick be made: his shaft, and his branches, his bowls, his knops, and his flowers, shall be of the same.  
-> <sup>32</sup> And six branches shall come out of the sides of it; three branches of the candlestick out of the one side, and three branches of the candlestick out of the other side:  
-> <sup>33</sup> Three bowls made like unto almonds, *with* a knop and a flower in one branch; and three bowls made like almonds in the other branch, *with* a knop and a flower: so in the six branches that come out of the candlestick.  
-> <sup>34</sup> And in the candlestick *shall be* four bowls made like unto almonds, *with* their knops and their flowers.  
-> <sup>35</sup> And *there shall be* a knop under two branches of the same, and a knop under two branches of the same, and a knop under two branches of the same, according to the six branches that proceed out of the candlestick.  
-> <sup>36</sup> Their knops and their branches shall be of the same: all it *shall be* one beaten work *of* pure gold.  
-> <sup>37</sup> And thou shalt make the seven lamps thereof: and they shall light the lamps thereof, that they may give light over against it.  
-> <sup>38</sup> And the tongs thereof, and the snuffdishes thereof, *shall be of* pure gold.  
-> <sup>39</sup> *Of* a talent of pure gold shall he make it, with all these vessels.  
-> <sup>40</sup> And look that thou make *them* after their pattern, which was showed thee in the mount.  
+> **³¹** And thou shalt make a candlestick *of* pure gold: *of* beaten work shall the candlestick be made: his shaft, and his branches, his bowls, his knops, and his flowers, shall be of the same.  
+> **³²** And six branches shall come out of the sides of it; three branches of the candlestick out of the one side, and three branches of the candlestick out of the other side:  
+> **³³** Three bowls made like unto almonds, *with* a knop and a flower in one branch; and three bowls made like almonds in the other branch, *with* a knop and a flower: so in the six branches that come out of the candlestick.  
+> **³⁴** And in the candlestick *shall be* four bowls made like unto almonds, *with* their knops and their flowers.  
+> **³⁵** And *there shall be* a knop under two branches of the same, and a knop under two branches of the same, and a knop under two branches of the same, according to the six branches that proceed out of the candlestick.  
+> **³⁶** Their knops and their branches shall be of the same: all it *shall be* one beaten work *of* pure gold.  
+> **³⁷** And thou shalt make the seven lamps thereof: and they shall light the lamps thereof, that they may give light over against it.  
+> **³⁸** And the tongs thereof, and the snuffdishes thereof, *shall be of* pure gold.  
+> **³⁹** *Of* a talent of pure gold shall he make it, with all these vessels.  
+> **⁴⁰** And look that thou make *them* after their pattern, which was showed thee in the mount.  
 
 I\. The next thing ordered to be made for the furnishing of God's palace was a rich stately candlestick, all of pure gold, not hollow, but solid. The particular directions here given concerning it show, 1. That it was very magnificent, and a great ornament to the place; it had many branches drawn from the main shaft, which had not only their bowls (to put the oil and the kindled wick in) for necessity, but knops and flowers for ornament. 2. That it was very convenient, and admirably contrived both to scatter the light and to keep the tabernacle clean from smoke and snuffs. 3. That it was very significant. The tabernacle had no windows by which to let in the light of the day, all its light was candle-light, which intimates the comparative darkness of that dispensation, while the Sun or righteousness had not as yet risen, nor had the day-star from on high yet visited his church. Yet God left not himself without witness, nor them without instruction; the commandment was a lamp, and the law a light, and the prophets were branches from that lamp, which gave light in their several ages to the Old-Testament church. The church is still dark, as the tabernacle was, in comparison with what it will be in heaven; but the word of God is the candlestick, *a light shining in a dark place* (2Pe 1:19), and a dark place indeed the world would be without it. The Spirit of God, in his various gifts and graces, is compared to the *seven lamps* which *burn before the throne,* Re 4:5. The churches are golden candlesticks, the lights of the world, *holding forth the word of life* as the candlestick does the light, Php 2:15,16. Ministers are to light the lamps, and snuff them (Ex 25:37), by opening the scriptures. The treasure of this light is now put into *earthen vessels,* 2Co 4:6,7. The branches of the candlestick spread every way, to denote the diffusing of the light of the gospel into all parts by the Christian ministry, Mt 5:14,15. There is a *diversity of gifts,* but the same Spirit gives to each to profit withal.
 

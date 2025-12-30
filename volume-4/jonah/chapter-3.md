@@ -8,10 +8,10 @@ In this chapter we have, I. Jonah's mission renewed, and the command a second ti
 
 ## Jonah's Mission Renewed; The Prophet's Mission to Nineveh. (b. c. 840.)
 
-> <sup>1</sup> And the word of the LORD came unto Jonah the second time, saying,  
-> <sup>2</sup> Arise, go unto Nineveh, that great city, and preach unto it the preaching that I bid thee.  
-> <sup>3</sup> So Jonah arose, and went unto Nineveh, according to the word of the LORD. Now Nineveh was an exceeding great city of three days' journey.  
-> <sup>4</sup> And Jonah began to enter into the city a day's journey, and he cried, and said, Yet forty days, and Nineveh shall be overthrown.  
+> **¹** And the word of the LORD came unto Jonah the second time, saying,  
+> **²** Arise, go unto Nineveh, that great city, and preach unto it the preaching that I bid thee.  
+> **³** So Jonah arose, and went unto Nineveh, according to the word of the LORD. Now Nineveh was an exceeding great city of three days' journey.  
+> **⁴** And Jonah began to enter into the city a day's journey, and he cried, and said, Yet forty days, and Nineveh shall be overthrown.  
 
 We have here a further evidence of the reconciliation between God and Jonah, and that it was a thorough reconciliation, though the controversy between them had run high.
 
@@ -29,12 +29,12 @@ III\. He faithfully and boldly delivered his errand. When he came to Nineveh he 
 
 ## Nineveh's Repentance. (b. c. 840.)
 
-> <sup>5</sup> So the people of Nineveh believed God, and proclaimed a fast, and put on sackcloth, from the greatest of them even to the least of them.  
-> <sup>6</sup> For word came unto the king of Nineveh, and he arose from his throne, and he laid his robe from him, and covered *him* with sackcloth, and sat in ashes.  
-> <sup>7</sup> And he caused *it* to be proclaimed and published through Nineveh by the decree of the king and his nobles, saying, Let neither man nor beast, herd nor flock, taste any thing: let them not feed, nor drink water:  
-> <sup>8</sup> But let man and beast be covered with sackcloth, and cry mightily unto God: yea, let them turn every one from his evil way, and from the violence that *is* in their hands.  
-> <sup>9</sup> Who can tell *if* God will turn and repent, and turn away from his fierce anger, that we perish not?  
-> <sup>10</sup> And God saw their works, that they turned from their evil way; and God repented of the evil, that he had said that he would do unto them; and he did *it* not.  
+> **⁵** So the people of Nineveh believed God, and proclaimed a fast, and put on sackcloth, from the greatest of them even to the least of them.  
+> **⁶** For word came unto the king of Nineveh, and he arose from his throne, and he laid his robe from him, and covered *him* with sackcloth, and sat in ashes.  
+> **⁷** And he caused *it* to be proclaimed and published through Nineveh by the decree of the king and his nobles, saying, Let neither man nor beast, herd nor flock, taste any thing: let them not feed, nor drink water:  
+> **⁸** But let man and beast be covered with sackcloth, and cry mightily unto God: yea, let them turn every one from his evil way, and from the violence that *is* in their hands.  
+> **⁹** Who can tell *if* God will turn and repent, and turn away from his fierce anger, that we perish not?  
+> **¹⁰** And God saw their works, that they turned from their evil way; and God repented of the evil, that he had said that he would do unto them; and he did *it* not.  
 
 Here is I. A wonder of divine grace in the repentance and reformation of Nineveh, upon the warning given them of their destruction approaching. *Verily I say unto you,* we have not found so great an instance of it, no, not in Israel; and it will *rise up in judgment against the men of* the gospel—*generation, and condemn them; for the Ninevites repented at the preaching of Jonas, but behold, a greater than Jonas is here,* Mt 12:41. Nay, it did condemn the impenitence and obstinacy of Israel at that time. God sent many prophets to Israel, and those well known among them to be *mighty in word and deed;* but to Nineveh he sent only one, and him a stranger, whose aspect was mean, we may suppose, and his *bodily presence weak,* especially after the fatigue of so long a journey; and yet they repented, but Israel repented not. Jonah preached but one sermon, and we do not find that he gave them any sign or wonder by the accomplishment of which his word might be confirmed; and yet they were wrought upon, while Israel continued obstinate, whose prophets chose out words wherewith to reason with them, and confirmed them by signs following. Jonah only threatened wrath and ruin; we do not find that he gave them any calls to repentance or directions how to repent, much less any encouragements to hope that they should find mercy if they did repent, and yet they repented; but Israel persisted in impenitence, though the prophets sent to them drew them *with cords of a man, and with bands of love,* and assured them of great things which God would do for them if they did repent and reform. Now let us see what was the method of Nineveh's repentance, what were the steps and particular instances of it.
 

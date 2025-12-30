@@ -8,11 +8,11 @@ God is still by the prophet inculcating the same thing upon this careless people
 
 ## Idolatry of Israel; The Prophet's Remonstrances; Promises to the Penitent. (b. c. 760.)
 
-> <sup>1</sup> Then said the LORD unto me, Go yet, love a woman beloved of *her* friend, yet an adulteress, according to the love of the LORD toward the children of Israel, who look to other gods, and love flagons of wine.  
-> <sup>2</sup> So I bought her to me for fifteen *pieces* of silver, and *for* a homer of barley, and a half homer of barley:  
-> <sup>3</sup> And I said unto her, Thou shalt abide for me many days; thou shalt not play the harlot, and thou shalt not be for *another* man: so *will* I also *be* for thee.  
-> <sup>4</sup> For the children of Israel shall abide many days without a king, and without a prince, and without a sacrifice, and without an image, and without an ephod, and *without* teraphim:  
-> <sup>5</sup> Afterward shall the children of Israel return, and seek the LORD their God, and David their king; and shall fear the LORD and his goodness in the latter days.  
+> **¹** Then said the LORD unto me, Go yet, love a woman beloved of *her* friend, yet an adulteress, according to the love of the LORD toward the children of Israel, who look to other gods, and love flagons of wine.  
+> **²** So I bought her to me for fifteen *pieces* of silver, and *for* a homer of barley, and a half homer of barley:  
+> **³** And I said unto her, Thou shalt abide for me many days; thou shalt not play the harlot, and thou shalt not be for *another* man: so *will* I also *be* for thee.  
+> **⁴** For the children of Israel shall abide many days without a king, and without a prince, and without a sacrifice, and without an image, and without an ephod, and *without* teraphim:  
+> **⁵** Afterward shall the children of Israel return, and seek the LORD their God, and David their king; and shall fear the LORD and his goodness in the latter days.  
 
 Some think that this chapter refers to Judah, the two tribes, as the adulteress the prophet married (Ho 1:3) represented the *ten tribes;* for this was not to be divorced, as the ten tribes were, but to be left desolate for a long time, and then to return, as the two tribes did. But these are called the *children of Israel,* which was the ten tribes, and therefore it is more probable that of them this parable, as well as that before, is to be understood. *Go,* and repeat it, says God to the prophet; *Go yet again.* Note, For the conviction and reduction of sinners it is necessary that precept be upon precept, and line upon line. If they will not believe one sign, try another, Ex 4:8,9. Now,
 

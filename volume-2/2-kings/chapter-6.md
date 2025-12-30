@@ -8,13 +8,13 @@ In this chapter we have, I. A further account of the wondrous works of Elisha. 1
 
 ## Iron Made to Swim. (b. c. 893.)
 
-> <sup>1</sup> And the sons of the prophets said unto Elisha, Behold now, the place where we dwell with thee is too strait for us.  
-> <sup>2</sup> Let us go, we pray thee, unto Jordan, and take thence every man a beam, and let us make us a place there, where we may dwell. And he answered, Go ye.  
-> <sup>3</sup> And one said, Be content, I pray thee, and go with thy servants. And he answered, I will go.  
-> <sup>4</sup> So he went with them. And when they came to Jordan, they cut down wood.  
-> <sup>5</sup> But as one was felling a beam, the axe head fell into the water: and he cried, and said, Alas, master! for it was borrowed.  
-> <sup>6</sup> And the man of God said, Where fell it? And he showed him the place. And he cut down a stick, and cast *it* in thither; and the iron did swim.  
-> <sup>7</sup> Therefore said he, Take *it* up to thee. And he put out his hand, and took it.  
+> **¹** And the sons of the prophets said unto Elisha, Behold now, the place where we dwell with thee is too strait for us.  
+> **²** Let us go, we pray thee, unto Jordan, and take thence every man a beam, and let us make us a place there, where we may dwell. And he answered, Go ye.  
+> **³** And one said, Be content, I pray thee, and go with thy servants. And he answered, I will go.  
+> **⁴** So he went with them. And when they came to Jordan, they cut down wood.  
+> **⁵** But as one was felling a beam, the axe head fell into the water: and he cried, and said, Alas, master! for it was borrowed.  
+> **⁶** And the man of God said, Where fell it? And he showed him the place. And he cut down a stick, and cast *it* in thither; and the iron did swim.  
+> **⁷** Therefore said he, Take *it* up to thee. And he put out his hand, and took it.  
 
 Several things may be observed here,
 
@@ -36,11 +36,11 @@ II\. Concerning the father of the prophets, Elisha. 1. That he was a man of grea
 
 ## The Syrians Ensnared; the Syrians Generously Liberated. (b. c. 893.)
 
-> <sup>8</sup> Then the king of Syria warred against Israel, and took counsel with his servants, saying, In such and such a place *shall be* my camp.  
-> <sup>9</sup> And the man of God sent unto the king of Israel, saying, Beware that thou pass not such a place; for thither the Syrians are come down.  
-> <sup>10</sup> And the king of Israel sent to the place which the man of God told him and warned him of, and saved himself there, not once nor twice.  
-> <sup>11</sup> Therefore the heart of the king of Syria was sore troubled for this thing; and he called his servants, and said unto them, Will ye not show me which of us *is* for the king of Israel?  
-> <sup>12</sup> And one of his servants said, None, my lord, O king: but Elisha, the prophet that *is* in Israel, telleth the king of Israel the words that thou speakest in thy bedchamber.  
+> **⁸** Then the king of Syria warred against Israel, and took counsel with his servants, saying, In such and such a place *shall be* my camp.  
+> **⁹** And the man of God sent unto the king of Israel, saying, Beware that thou pass not such a place; for thither the Syrians are come down.  
+> **¹⁰** And the king of Israel sent to the place which the man of God told him and warned him of, and saved himself there, not once nor twice.  
+> **¹¹** Therefore the heart of the king of Syria was sore troubled for this thing; and he called his servants, and said unto them, Will ye not show me which of us *is* for the king of Israel?  
+> **¹²** And one of his servants said, None, my lord, O king: but Elisha, the prophet that *is* in Israel, telleth the king of Israel the words that thou speakest in thy bedchamber.  
 
 Here we have Elisha, with his spirit of prophecy, serving the king, as before helping the sons of the prophets; for that, as other gifts, is given to every man to profit withal; and, whatever abilities any man has of doing good, he is by them made a debtor both to the wise and unwise. Observe here,
 
@@ -48,17 +48,17 @@ I\. How the king of Israel was informed by Elisha of all the designs and motions
 
 II\. How the king of Syria resented this. He suspected treachery among his senators, and that his counsels were betrayed, 2Ki 6:11. But one of his servants, that had heard, by Naaman and others, of Elisha's wondrous works, concludes it must needs be he that gave this intelligence to the king of Israel, 2Ki 6:12. What could not he discover who could tell Gehazi his thoughts? Here a confession of the boundless knowledge, as before of the boundless power, of Israel's God, is extorted from Syrians. Nothing done, said, thought, by any person, in any place, at any time, is out of the reach of God's cognizance.
 
-> <sup>13</sup> And he said, Go and spy where he *is,* that I may send and fetch him. And it was told him, saying, Behold, *he is* in Dothan.  
-> <sup>14</sup> Therefore sent he thither horses, and chariots, and a great host: and they came by night, and compassed the city about.  
-> <sup>15</sup> And when the servant of the man of God was risen early, and gone forth, behold, a host compassed the city both with horses and chariots. And his servant said unto him, Alas, my master! how shall we do?  
-> <sup>16</sup> And he answered, Fear not: for they that *be* with us *are* more than they that *be* with them.  
-> <sup>17</sup> And Elisha prayed, and said, LORD, I pray thee, open his eyes, that he may see. And the LORD opened the eyes of the young man; and he saw: and, behold, the mountain *was* full of horses and chariots of fire round about Elisha.  
-> <sup>18</sup> And when they came down to him, Elisha prayed unto the LORD, and said, Smite this people, I pray thee, with blindness. And he smote them with blindness according to the word of Elisha.  
-> <sup>19</sup> And Elisha said unto them, This *is* not the way, neither *is* this the city: follow me, and I will bring you to the man whom ye seek. But he led them to Samaria.  
-> <sup>20</sup> And it came to pass, when they were come into Samaria, that Elisha said, LORD, open the eyes of these *men,* that they may see. And the LORD opened their eyes, and they saw; and, behold, *they were* in the midst of Samaria.  
-> <sup>21</sup> And the king of Israel said unto Elisha, when he saw them, My father, shall I smite *them?* shall I smite *them*?  
-> <sup>22</sup> And he answered, Thou shalt not smite *them:* wouldest thou smite those whom thou hast taken captive with thy sword and with thy bow? set bread and water before them, that they may eat and drink, and go to their master.  
-> <sup>23</sup> And he prepared great provision for them: and when they had eaten and drunk, he sent them away, and they went to their master. So the bands of Syria came no more into the land of Israel.  
+> **¹³** And he said, Go and spy where he *is,* that I may send and fetch him. And it was told him, saying, Behold, *he is* in Dothan.  
+> **¹⁴** Therefore sent he thither horses, and chariots, and a great host: and they came by night, and compassed the city about.  
+> **¹⁵** And when the servant of the man of God was risen early, and gone forth, behold, a host compassed the city both with horses and chariots. And his servant said unto him, Alas, my master! how shall we do?  
+> **¹⁶** And he answered, Fear not: for they that *be* with us *are* more than they that *be* with them.  
+> **¹⁷** And Elisha prayed, and said, LORD, I pray thee, open his eyes, that he may see. And the LORD opened the eyes of the young man; and he saw: and, behold, the mountain *was* full of horses and chariots of fire round about Elisha.  
+> **¹⁸** And when they came down to him, Elisha prayed unto the LORD, and said, Smite this people, I pray thee, with blindness. And he smote them with blindness according to the word of Elisha.  
+> **¹⁹** And Elisha said unto them, This *is* not the way, neither *is* this the city: follow me, and I will bring you to the man whom ye seek. But he led them to Samaria.  
+> **²⁰** And it came to pass, when they were come into Samaria, that Elisha said, LORD, open the eyes of these *men,* that they may see. And the LORD opened their eyes, and they saw; and, behold, *they were* in the midst of Samaria.  
+> **²¹** And the king of Israel said unto Elisha, when he saw them, My father, shall I smite *them?* shall I smite *them*?  
+> **²²** And he answered, Thou shalt not smite *them:* wouldest thou smite those whom thou hast taken captive with thy sword and with thy bow? set bread and water before them, that they may eat and drink, and go to their master.  
+> **²³** And he prepared great provision for them: and when they had eaten and drunk, he sent them away, and they went to their master. So the bands of Syria came no more into the land of Israel.  
 
 Here is, 1. The great force which the king of Syria sent to seize Elisha. He found out where he was, at Dothan (2Ki 6:13), which was not far from Samaria; thither he sent a great host, who were to come upon him by night, and to bring him dead or alive, 2Ki 6:14. Perhaps he had heard that when only one captain and his fifty men were sent to take Elijah they were baffled in the attempt, and therefore he sent an *army* against Elisha, as if the fire from heaven that consumed fifty men could not as easily consume 50,000. Naaman could tell him that Elisha dwelt not in any strong-hold, nor was attended with any guards, nor had any such great interest in the people that he needed to fear a tumult among them; what occasion then was there for this great force? But thus he hoped to make sure of him, especially coming upon him by surprise. Foolish man! Did he believe that Elisha had informed the king of Israel of his secret counsels or not? If not, what quarrel had he with him? If he did, could he be so weak as to imagine that Elisha would not discover the designs laid against himself, and that, having interest enough in heaven to discover them, he would not have interest enough to defeat them? Those that fight against God, his people, and prophet, know not what they do.
 
@@ -72,16 +72,16 @@ IV\. The good effect this had, for the present, upon the Syrians. They *came no 
 
 ## The Siege of Samaria. (b. c. 891.)
 
-> <sup>24</sup> And it came to pass after this, that Benhadad king of Syria gathered all his host, and went up, and besieged Samaria.  
-> <sup>25</sup> And there was a great famine in Samaria: and, behold, they besieged it, until an ass's head was *sold* for fourscore *pieces* of silver, and the fourth part of a cab of dove's dung for five *pieces* of silver.  
-> <sup>26</sup> And as the king of Israel was passing by upon the wall, there cried a woman unto him, saying, Help, my lord, O king.  
-> <sup>27</sup> And he said, If the LORD do not help thee, whence shall I help thee? out of the barnfloor, or out of the winepress?  
-> <sup>28</sup> And the king said unto her, What aileth thee? And she answered, This woman said unto me, Give thy son, that we may eat him to day, and we will eat my son to morrow.  
-> <sup>29</sup> So we boiled my son, and did eat him: and I said unto her on the next day, Give thy son, that we may eat him: and she hath hid her son.  
-> <sup>30</sup> And it came to pass, when the king heard the words of the woman, that he rent his clothes; and he passed by upon the wall, and the people looked, and, behold, *he had* sackcloth within upon his flesh.  
-> <sup>31</sup> Then he said, God do so and more also to me, if the head of Elisha the son of Shaphat shall stand on him this day.  
-> <sup>32</sup> But Elisha sat in his house, and the elders sat with him; and *the king* sent a man from before him: but ere the messenger came to him, he said to the elders, See ye how this son of a murderer hath sent to take away mine head? look, when the messenger cometh, shut the door, and hold him fast at the door: *is* not the sound of his master's feet behind him?  
-> <sup>33</sup> And while he yet talked with them, behold, the messenger came down unto him: and he said, Behold, this evil *is* of the LORD; what should I wait for the LORD any longer?  
+> **²⁴** And it came to pass after this, that Benhadad king of Syria gathered all his host, and went up, and besieged Samaria.  
+> **²⁵** And there was a great famine in Samaria: and, behold, they besieged it, until an ass's head was *sold* for fourscore *pieces* of silver, and the fourth part of a cab of dove's dung for five *pieces* of silver.  
+> **²⁶** And as the king of Israel was passing by upon the wall, there cried a woman unto him, saying, Help, my lord, O king.  
+> **²⁷** And he said, If the LORD do not help thee, whence shall I help thee? out of the barnfloor, or out of the winepress?  
+> **²⁸** And the king said unto her, What aileth thee? And she answered, This woman said unto me, Give thy son, that we may eat him to day, and we will eat my son to morrow.  
+> **²⁹** So we boiled my son, and did eat him: and I said unto her on the next day, Give thy son, that we may eat him: and she hath hid her son.  
+> **³⁰** And it came to pass, when the king heard the words of the woman, that he rent his clothes; and he passed by upon the wall, and the people looked, and, behold, *he had* sackcloth within upon his flesh.  
+> **³¹** Then he said, God do so and more also to me, if the head of Elisha the son of Shaphat shall stand on him this day.  
+> **³²** But Elisha sat in his house, and the elders sat with him; and *the king* sent a man from before him: but ere the messenger came to him, he said to the elders, See ye how this son of a murderer hath sent to take away mine head? look, when the messenger cometh, shut the door, and hold him fast at the door: *is* not the sound of his master's feet behind him?  
+> **³³** And while he yet talked with them, behold, the messenger came down unto him: and he said, Behold, this evil *is* of the LORD; what should I wait for the LORD any longer?  
 
 This last paragraph of this chapter should, of right, have been the first of the next chapter, for it begins a new story, which is there continued and concluded. Here is,
 

@@ -8,12 +8,12 @@ In this chapter we have, I. The cure which our Lord Jesus wrought upon a man tha
 
 ## A Man Cured of the Dropsy.
 
-> <sup>1</sup> And it came to pass, as he went into the house of one of the chief Pharisees to eat bread on the sabbath day, that they watched him.  
-> <sup>2</sup> And, behold, there was a certain man before him which had the dropsy.  
-> <sup>3</sup> And Jesus answering spake unto the lawyers and Pharisees, saying, Is it lawful to heal on the sabbath day?  
-> <sup>4</sup> And they held their peace. And he took *him,* and healed him, and let him go;  
-> <sup>5</sup> And answered them, saying, Which of you shall have an ass or an ox fallen into a pit, and will not straightway pull him out on the sabbath day?  
-> <sup>6</sup> And they could not answer him again to these things.  
+> **¹** And it came to pass, as he went into the house of one of the chief Pharisees to eat bread on the sabbath day, that they watched him.  
+> **²** And, behold, there was a certain man before him which had the dropsy.  
+> **³** And Jesus answering spake unto the lawyers and Pharisees, saying, Is it lawful to heal on the sabbath day?  
+> **⁴** And they held their peace. And he took *him,* and healed him, and let him go;  
+> **⁵** And answered them, saying, Which of you shall have an ass or an ox fallen into a pit, and will not straightway pull him out on the sabbath day?  
+> **⁶** And they could not answer him again to these things.  
 
 In this passage of story we find,
 
@@ -29,14 +29,14 @@ V\. That our Lord Jesus *did nothing but what he could justify,* to the convicti
 
 ## Humility Recommended.
 
-> <sup>7</sup> And he put forth a parable to those which were bidden, when he marked how they chose out the chief rooms; saying unto them,  
-> <sup>8</sup> When thou art bidden of any *man* to a wedding, sit not down in the highest room; lest a more honourable man than thou be bidden of him;  
-> <sup>9</sup> And he that bade thee and him come and say to thee, Give this man place; and thou begin with shame to take the lowest room.  
-> <sup>10</sup> But when thou art bidden, go and sit down in the lowest room; that when he that bade thee cometh, he may say unto thee, Friend, go up higher: then shalt thou have worship in the presence of them that sit at meat with thee.  
-> <sup>11</sup> For whosoever exalteth himself shall be abased; and he that humbleth himself shall be exalted.  
-> <sup>12</sup> Then said he also to him that bade him, When thou makest a dinner or a supper, call not thy friends, nor thy brethren, neither thy kinsmen, nor *thy* rich neighbours; lest they also bid thee again, and a recompence be made thee.  
-> <sup>13</sup> But when thou makest a feast, call the poor, the maimed, the lame, the blind:  
-> <sup>14</sup> And thou shalt be blessed; for they cannot recompense thee: for thou shalt be recompensed at the resurrection of the just.  
+> **⁷** And he put forth a parable to those which were bidden, when he marked how they chose out the chief rooms; saying unto them,  
+> **⁸** When thou art bidden of any *man* to a wedding, sit not down in the highest room; lest a more honourable man than thou be bidden of him;  
+> **⁹** And he that bade thee and him come and say to thee, Give this man place; and thou begin with shame to take the lowest room.  
+> **¹⁰** But when thou art bidden, go and sit down in the lowest room; that when he that bade thee cometh, he may say unto thee, Friend, go up higher: then shalt thou have worship in the presence of them that sit at meat with thee.  
+> **¹¹** For whosoever exalteth himself shall be abased; and he that humbleth himself shall be exalted.  
+> **¹²** Then said he also to him that bade him, When thou makest a dinner or a supper, call not thy friends, nor thy brethren, neither thy kinsmen, nor *thy* rich neighbours; lest they also bid thee again, and a recompence be made thee.  
+> **¹³** But when thou makest a feast, call the poor, the maimed, the lame, the blind:  
+> **¹⁴** And thou shalt be blessed; for they cannot recompense thee: for thou shalt be recompensed at the resurrection of the just.  
 
 Our Lord Jesus here sets us an example of profitable edifying discourse at our tables, when we are in company with our friends. We find that when he had none but his disciples, who were his own family, with him at his table, his discourse with them was *good, and to the use of edifying;* and not only so, but when he was in company with strangers, nay, with enemies that *watched him,* he took occasion to reprove what he saw amiss in them, and to instruct them. Though the *wicked were before him,* he did not *keep silence from good* (as David did, Ps 39:1,2), for, notwithstanding the provocation given him, he had not his *heart hot within him,* nor was *his spirit stirred.* We must not only not allow any corrupt communication at our tables, such as that of the *hypocritical mockers at feasts,* but we must go beyond common harmless talk, and should take occasion from God's goodness to us at our tables to speak well of him, and learn to *spiritualize* common things. The lips of the righteous should then *feed many.* Our Lord Jesus was among persons of quality, yet, as one that had not respect of persons,
 
@@ -56,16 +56,16 @@ II\. He takes occasion to reprove the master of the feast for inviting so many *
 
 ## The Generous Invitations; The Neglected Feast.
 
-> <sup>15</sup> And when one of them that sat at meat with him heard these things, he said unto him, Blessed *is* he that shall eat bread in the kingdom of God.  
-> <sup>16</sup> Then said he unto him, A certain man made a great supper, and bade many:  
-> <sup>17</sup> And sent his servant at supper time to say to them that were bidden, Come; for all things are now ready.  
-> <sup>18</sup> And they all with one *consent* began to make excuse. The first said unto him, I have bought a piece of ground, and I must needs go and see it: I pray thee have me excused.  
-> <sup>19</sup> And another said, I have bought five yoke of oxen, and I go to prove them: I pray thee have me excused.  
-> <sup>20</sup> And another said, I have married a wife, and therefore I cannot come.  
-> <sup>21</sup> So that servant came, and showed his lord these things. Then the master of the house being angry said to his servant, Go out quickly into the streets and lanes of the city, and bring in hither the poor, and the maimed, and the halt, and the blind.  
-> <sup>22</sup> And the servant said, Lord, it is done as thou hast commanded, and yet there is room.  
-> <sup>23</sup> And the lord said unto the servant, Go out into the highways and hedges, and compel *them* to come in, that my house may be filled.  
-> <sup>24</sup> For I say unto you, That none of those men which were bidden shall taste of my supper.  
+> **¹⁵** And when one of them that sat at meat with him heard these things, he said unto him, Blessed *is* he that shall eat bread in the kingdom of God.  
+> **¹⁶** Then said he unto him, A certain man made a great supper, and bade many:  
+> **¹⁷** And sent his servant at supper time to say to them that were bidden, Come; for all things are now ready.  
+> **¹⁸** And they all with one *consent* began to make excuse. The first said unto him, I have bought a piece of ground, and I must needs go and see it: I pray thee have me excused.  
+> **¹⁹** And another said, I have bought five yoke of oxen, and I go to prove them: I pray thee have me excused.  
+> **²⁰** And another said, I have married a wife, and therefore I cannot come.  
+> **²¹** So that servant came, and showed his lord these things. Then the master of the house being angry said to his servant, Go out quickly into the streets and lanes of the city, and bring in hither the poor, and the maimed, and the halt, and the blind.  
+> **²²** And the servant said, Lord, it is done as thou hast commanded, and yet there is room.  
+> **²³** And the lord said unto the servant, Go out into the highways and hedges, and compel *them* to come in, that my house may be filled.  
+> **²⁴** For I say unto you, That none of those men which were bidden shall taste of my supper.  
 
 Here is another discourse of our Saviour's, in which he *spiritualizes* the feast he was invited to, which is another way of keeping up good discourse in the midst of common actions.
 
@@ -93,17 +93,17 @@ II\. The parable which our Lord Jesus put forth upon this occasion, Lu 14:16, et
 
 ## The Necessity of Self-denial.
 
-> <sup>25</sup> And there went great multitudes with him: and he turned, and said unto them,  
-> <sup>26</sup> If any *man* come to me, and hate not his father, and mother, and wife, and children, and brethren, and sisters, yea, and his own life also, he cannot be my disciple.  
-> <sup>27</sup> And whosoever doth not bear his cross, and come after me, cannot be my disciple.  
-> <sup>28</sup> For which of you, intending to build a tower, sitteth not down first, and counteth the cost, whether he have *sufficient* to finish *it?*  
-> <sup>29</sup> Lest haply, after he hath laid the foundation, and is not able to finish *it,* all that behold *it* begin to mock him,  
-> <sup>30</sup> Saying, This man began to build, and was not able to finish.  
-> <sup>31</sup> Or what king, going to make war against another king, sitteth not down first, and consulteth whether he be able with ten thousand to meet him that cometh against him with twenty thousand?  
-> <sup>32</sup> Or else, while the other is yet a great way off, he sendeth an ambassage, and desireth conditions of peace.  
-> <sup>33</sup> So likewise, whosoever he be of you that forsaketh not all that he hath, he cannot be my disciple.  
-> <sup>34</sup> Salt *is* good: but if the salt have lost his savour, wherewith shall it be seasoned?  
-> <sup>35</sup> It is neither fit for the land, nor yet for the dunghill; *but* men cast it out. He that hath ears to hear, let him hear.  
+> **²⁵** And there went great multitudes with him: and he turned, and said unto them,  
+> **²⁶** If any *man* come to me, and hate not his father, and mother, and wife, and children, and brethren, and sisters, yea, and his own life also, he cannot be my disciple.  
+> **²⁷** And whosoever doth not bear his cross, and come after me, cannot be my disciple.  
+> **²⁸** For which of you, intending to build a tower, sitteth not down first, and counteth the cost, whether he have *sufficient* to finish *it?*  
+> **²⁹** Lest haply, after he hath laid the foundation, and is not able to finish *it,* all that behold *it* begin to mock him,  
+> **³⁰** Saying, This man began to build, and was not able to finish.  
+> **³¹** Or what king, going to make war against another king, sitteth not down first, and consulteth whether he be able with ten thousand to meet him that cometh against him with twenty thousand?  
+> **³²** Or else, while the other is yet a great way off, he sendeth an ambassage, and desireth conditions of peace.  
+> **³³** So likewise, whosoever he be of you that forsaketh not all that he hath, he cannot be my disciple.  
+> **³⁴** Salt *is* good: but if the salt have lost his savour, wherewith shall it be seasoned?  
+> **³⁵** It is neither fit for the land, nor yet for the dunghill; *but* men cast it out. He that hath ears to hear, let him hear.  
 
 See how Christ in his doctrine suited himself to those to whom he spoke, and *gave every one his portion of meat.* To Pharisees he preached humility and charity. He is in these verses directing his discourse to the multitudes that crowded after him, and seemed zealous in following him; and his exhortation to them is to understand the terms of discipleship, before they undertook the profession of it, and to consider what they did. See here,
 

@@ -8,18 +8,18 @@ Christ and sin are rivals for the soul of man, and here we are told how they bot
 
 ## The Invitation of Wisdom.
 
-> <sup>1</sup> Wisdom hath builded her house, she hath hewn out her seven pillars:  
-> <sup>2</sup> She hath killed her beasts; she hath mingled her wine; she hath also furnished her table.  
-> <sup>3</sup> She hath sent forth her maidens: she crieth upon the highest places of the city,  
-> <sup>4</sup> Whoso *is* simple, let him turn in hither: *as for* him that wanteth understanding, she saith to him,  
-> <sup>5</sup> Come, eat of my bread, and drink of the wine *which* I have mingled.  
-> <sup>6</sup> Forsake the foolish, and live; and go in the way of understanding.  
-> <sup>7</sup> He that reproveth a scorner getteth to himself shame: and he that rebuketh a wicked *man getteth* himself a blot.  
-> <sup>8</sup> Reprove not a scorner, lest he hate thee: rebuke a wise man, and he will love thee.  
-> <sup>9</sup> Give *instruction* to a wise *man,* and he will be yet wiser: teach a just *man,* and he will increase in learning.  
-> <sup>10</sup> The fear of the LORD *is* the beginning of wisdom: and the knowledge of the holy *is* understanding.  
-> <sup>11</sup> For by me thy days shall be multiplied, and the years of thy life shall be increased.  
-> <sup>12</sup> If thou be wise, thou shalt be wise for thyself: but *if* thou scornest, thou alone shalt bear *it.*  
+> **¹** Wisdom hath builded her house, she hath hewn out her seven pillars:  
+> **²** She hath killed her beasts; she hath mingled her wine; she hath also furnished her table.  
+> **³** She hath sent forth her maidens: she crieth upon the highest places of the city,  
+> **⁴** Whoso *is* simple, let him turn in hither: *as for* him that wanteth understanding, she saith to him,  
+> **⁵** Come, eat of my bread, and drink of the wine *which* I have mingled.  
+> **⁶** Forsake the foolish, and live; and go in the way of understanding.  
+> **⁷** He that reproveth a scorner getteth to himself shame: and he that rebuketh a wicked *man getteth* himself a blot.  
+> **⁸** Reprove not a scorner, lest he hate thee: rebuke a wise man, and he will love thee.  
+> **⁹** Give *instruction* to a wise *man,* and he will be yet wiser: teach a just *man,* and he will increase in learning.  
+> **¹⁰** The fear of the LORD *is* the beginning of wisdom: and the knowledge of the holy *is* understanding.  
+> **¹¹** For by me thy days shall be multiplied, and the years of thy life shall be increased.  
+> **¹²** If thou be wise, thou shalt be wise for thyself: but *if* thou scornest, thou alone shalt bear *it.*  
 
 Wisdom is here introduced as a magnificent and munificent queen, very great and very generous; that Word of God is this Wisdom in which God makes known his goodwill towards men; God the Word is this Wisdom, to whom the Father has committed all judgment. He who, in the chapter before, showed his grandeur and glory as the Creator of the world, here shows his grace and goodness as the Redeemer of it. The word is plural, *Wisdoms;* for in Christ are hid treasures of wisdom, and in his undertaking appears the manifold wisdom of God in a mystery. Now observe here,
 
@@ -53,12 +53,12 @@ IV\. The instructions she gives to those that are invited, which her maidens mus
 
 ## The Invitation of Folly.
 
-> <sup>13</sup> A foolish woman *is* clamorous: *she is* simple, and knoweth nothing.  
-> <sup>14</sup> For she sitteth at the door of her house, on a seat in the high places of the city,  
-> <sup>15</sup> To call passengers who go right on their ways:  
-> <sup>16</sup> Whoso *is* simple, let him turn in hither: and *as for* him that wanteth understanding, she saith to him,  
-> <sup>17</sup> Stolen waters are sweet, and bread *eaten* in secret is pleasant.  
-> <sup>18</sup> But he knoweth not that the dead *are* there; *and that* her guests *are* in the depths of hell.  
+> **¹³** A foolish woman *is* clamorous: *she is* simple, and knoweth nothing.  
+> **¹⁴** For she sitteth at the door of her house, on a seat in the high places of the city,  
+> **¹⁵** To call passengers who go right on their ways:  
+> **¹⁶** Whoso *is* simple, let him turn in hither: and *as for* him that wanteth understanding, she saith to him,  
+> **¹⁷** Stolen waters are sweet, and bread *eaten* in secret is pleasant.  
+> **¹⁸** But he knoweth not that the dead *are* there; *and that* her guests *are* in the depths of hell.  
 
 We have heard what Christ has to say, to engage our affections to God and godliness, and one would think the whole world should go after him; but here we are told how industrious the tempter is to seduce unwary souls into the paths of sin, and with the most he gains his point, and Wisdom's courtship is not effectual. Now observe,
 

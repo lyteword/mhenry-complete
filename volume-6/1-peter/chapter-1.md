@@ -8,8 +8,8 @@ The apostle describes the persons to whom he writes, and salutes them (1Pe 1:1,2
 
 ## Inscription. (a. d. 66.)
 
-> <sup>1</sup> Peter, an apostle of Jesus Christ, to the strangers scattered throughout Pontus, Galatia, Cappadocia, Asia, and Bithynia,  
-> <sup>2</sup> Elect according to the foreknowledge of God the Father, through sanctification of the Spirit, unto obedience and sprinkling of the blood of Jesus Christ: Grace unto you, and peace, be multiplied.  
+> **¹** Peter, an apostle of Jesus Christ, to the strangers scattered throughout Pontus, Galatia, Cappadocia, Asia, and Bithynia,  
+> **²** Elect according to the foreknowledge of God the Father, through sanctification of the Spirit, unto obedience and sprinkling of the blood of Jesus Christ: Grace unto you, and peace, be multiplied.  
 
 In this inscription we have three parts:—
 
@@ -31,9 +31,9 @@ III\. The salutation follows: *Grace unto you, and peace be multiplied.* The ble
 
 ## Privileges of Christians. (a. d. 66.)
 
-> <sup>3</sup> Blessed *be* the God and Father of our Lord Jesus Christ, which according to his abundant mercy hath begotten us again unto a lively hope by the resurrection of Jesus Christ from the dead,  
-> <sup>4</sup> To an inheritance incorruptible, and undefiled, and that fadeth not away, reserved in heaven for you,  
-> <sup>5</sup> Who are kept by the power of God through faith unto salvation ready to be revealed in the last time.  
+> **³** Blessed *be* the God and Father of our Lord Jesus Christ, which according to his abundant mercy hath begotten us again unto a lively hope by the resurrection of Jesus Christ from the dead,  
+> **⁴** To an inheritance incorruptible, and undefiled, and that fadeth not away, reserved in heaven for you,  
+> **⁵** Who are kept by the power of God through faith unto salvation ready to be revealed in the last time.  
 
 We come now to the body of the epistle, which begins with,
 
@@ -55,10 +55,10 @@ III\. This inheritance being described as future, and distant both in time and p
 
 ## Privileges of Christians. (a. d. 66.)
 
-> <sup>6</sup> Wherein ye greatly rejoice, though now for a season, if need be, ye are in heaviness through manifold temptations:  
-> <sup>7</sup> That the trial of your faith, being much more precious than of gold that perisheth, though it be tried with fire, might be found unto praise and honour and glory at the appearing of Jesus Christ:  
-> <sup>8</sup> Whom having not seen, ye love; in whom, though now ye see *him* not, yet believing, ye rejoice with joy unspeakable and full of glory:  
-> <sup>9</sup> Receiving the end of your faith, *even* the salvation of *your* souls.  
+> **⁶** Wherein ye greatly rejoice, though now for a season, if need be, ye are in heaviness through manifold temptations:  
+> **⁷** That the trial of your faith, being much more precious than of gold that perisheth, though it be tried with fire, might be found unto praise and honour and glory at the appearing of Jesus Christ:  
+> **⁸** Whom having not seen, ye love; in whom, though now ye see *him* not, yet believing, ye rejoice with joy unspeakable and full of glory:  
+> **⁹** Receiving the end of your faith, *even* the salvation of *your* souls.  
 
 The first word, *wherein,* refers to the apostle's foregoing discourse about the excellency of their present state, and their grand expectations for the future. "In this condition *you greatly rejoice, though now for a season,* or a little while, *if need be, you are made sorrowful through manifold temptations,*" 1Pe 1:6.
 
@@ -80,9 +80,9 @@ III\. He particularly commends the faith of these primitive Christians upon two 
 
 ## Privileges of Christians. (a. d. 66.)
 
-> <sup>10</sup> Of which salvation the prophets have enquired and searched diligently, who prophesied of the grace *that should come* unto you:  
-> <sup>11</sup> Searching what, or what manner of time the Spirit of Christ which was in them did signify, when it testified beforehand the sufferings of Christ, and the glory that should follow.  
-> <sup>12</sup> Unto whom it was revealed, that not unto themselves, but unto us they did minister the things, which are now reported unto you by them that have preached the gospel unto you with the Holy Ghost sent down from heaven; which things the angels desire to look into.  
+> **¹⁰** Of which salvation the prophets have enquired and searched diligently, who prophesied of the grace *that should come* unto you:  
+> **¹¹** Searching what, or what manner of time the Spirit of Christ which was in them did signify, when it testified beforehand the sufferings of Christ, and the glory that should follow.  
+> **¹²** Unto whom it was revealed, that not unto themselves, but unto us they did minister the things, which are now reported unto you by them that have preached the gospel unto you with the Holy Ghost sent down from heaven; which things the angels desire to look into.  
 
 The apostle having described the persons to whom he wrote, and declared to them the excellent advantages they were under, goes on to show them what warrant he had for what he had delivered; and because they were Jews, and had a profound veneration for the Old Testament, he produces the authority of the prophets to convince them that the doctrine of salvation by faith in Jesus Christ was no new doctrine, but the same which the old prophets did enquire and search diligently into. Note,
 
@@ -104,17 +104,17 @@ You have here three sorts of students, or enquirers into the great affair of man
 
 ## Sobriety and Holiness; Exhortation to Brotherly Love. (a. d. 66.)
 
-> <sup>13</sup> Wherefore gird up the loins of your mind, be sober, and hope to the end for the grace that is to be brought unto you at the revelation of Jesus Christ;  
-> <sup>14</sup> As obedient children, not fashioning yourselves according to the former lusts in your ignorance:  
-> <sup>15</sup> But as he which hath called you is holy, so be ye holy in all manner of conversation;  
-> <sup>16</sup> Because it is written, Be ye holy; for I am holy.  
-> <sup>17</sup> And if ye call on the Father, who without respect of persons judgeth according to every man's work, pass the time of your sojourning *here* in fear:  
-> <sup>18</sup> Forasmuch as ye know that ye were not redeemed with corruptible things, *as* silver and gold, from your vain conversation *received* by tradition from your fathers;  
-> <sup>19</sup> But with the precious blood of Christ, as of a lamb without blemish and without spot:  
-> <sup>20</sup> Who verily was foreordained before the foundation of the world, but was manifest in these last times for you,  
-> <sup>21</sup> Who by him do believe in God, that raised him up from the dead, and gave him glory; that your faith and hope might be in God.  
-> <sup>22</sup> Seeing ye have purified your souls in obeying the truth through the Spirit unto unfeigned love of the brethren, *see that ye* love one another with a pure heart fervently:  
-> <sup>23</sup> Being born again, not of corruptible seed, but of incorruptible, by the word of God, which liveth and abideth for ever.  
+> **¹³** Wherefore gird up the loins of your mind, be sober, and hope to the end for the grace that is to be brought unto you at the revelation of Jesus Christ;  
+> **¹⁴** As obedient children, not fashioning yourselves according to the former lusts in your ignorance:  
+> **¹⁵** But as he which hath called you is holy, so be ye holy in all manner of conversation;  
+> **¹⁶** Because it is written, Be ye holy; for I am holy.  
+> **¹⁷** And if ye call on the Father, who without respect of persons judgeth according to every man's work, pass the time of your sojourning *here* in fear:  
+> **¹⁸** Forasmuch as ye know that ye were not redeemed with corruptible things, *as* silver and gold, from your vain conversation *received* by tradition from your fathers;  
+> **¹⁹** But with the precious blood of Christ, as of a lamb without blemish and without spot:  
+> **²⁰** Who verily was foreordained before the foundation of the world, but was manifest in these last times for you,  
+> **²¹** Who by him do believe in God, that raised him up from the dead, and gave him glory; that your faith and hope might be in God.  
+> **²²** Seeing ye have purified your souls in obeying the truth through the Spirit unto unfeigned love of the brethren, *see that ye* love one another with a pure heart fervently:  
+> **²³** Being born again, not of corruptible seed, but of incorruptible, by the word of God, which liveth and abideth for ever.  
 
 Here the apostle begins his exhortations to those whose glorious state he had before described, thereby instructing us that Christianity is a doctrine according to godliness, designed to make us not only wiser, but better.
 
@@ -146,8 +146,8 @@ II\. He exhorts them to brotherly love.
 
 ## Vanity of the Natural Man. (a. d. 66.)
 
-> <sup>24</sup> For all flesh *is* as grass, and all the glory of man as the flower of grass. The grass withereth, and the flower thereof falleth away:  
-> <sup>25</sup> But the word of the Lord endureth for ever. And this is the word which by the gospel is preached unto you.  
+> **²⁴** For all flesh *is* as grass, and all the glory of man as the flower of grass. The grass withereth, and the flower thereof falleth away:  
+> **²⁵** But the word of the Lord endureth for ever. And this is the word which by the gospel is preached unto you.  
 
 The apostle having given an account of the excellency of the renewed spiritual man as born again, not of corruptible but incorruptible seed, he now sets before us the vanity of the natural man, taking him with all his ornaments and advantages about him: *For all flesh is as grass, and all the glory of man as the flower of grass;* and nothing can make him a solid substantial being, but the being born again of the incorruptible seed, the word of God, which will transform him into a most excellent creature, whose glory will not fade like a flower, but shine like an angel; and this word is daily set before you in the preaching of the gospel. Learn, 1. Man, in his utmost flourish and glory, is still a withering, fading, dying creature. Take him singly, all flesh is grass. In his entrance into the world, in his life and in his fall, he is similar to grass, Job 14:2, Isa 40:6,7. Take him in all his glory, even this is as the flower of grass; his wit, beauty, strength, vigour, wealth, honour—these are but as the flower of grass, which soon withers and dies away. 2. The only way to render this perishing creature solid and incorruptible is for him to entertain and receive the word of God; for this remains everlasting truth, and, if received, will preserve him to everlasting life, and abide with him for ever. 3. The prophets and apostles preached the same doctrine. This word which Isaiah and others delivered in the Old Testament is the same which the apostles preached in the New.
 

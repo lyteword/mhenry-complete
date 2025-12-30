@@ -8,9 +8,9 @@ The penman of this chapter is Nebuchadnezzar himself: the story here recorded co
 
 ## Nebuchadnezzar Magnifies God. (b. c. 570.)
 
-> <sup>1</sup> Nebuchadnezzar the king, unto all people, nations, and languages, that dwell in all the earth; Peace be multiplied unto you.  
-> <sup>2</sup> I thought it good to show the signs and wonders that the high God hath wrought toward me.  
-> <sup>3</sup> How great *are* his signs! and how mighty *are* his wonders! his kingdom *is* an everlasting kingdom, and his dominion *is* from generation to generation.  
+> **¹** Nebuchadnezzar the king, unto all people, nations, and languages, that dwell in all the earth; Peace be multiplied unto you.  
+> **²** I thought it good to show the signs and wonders that the high God hath wrought toward me.  
+> **³** How great *are* his signs! and how mighty *are* his wonders! his kingdom *is* an everlasting kingdom, and his dominion *is* from generation to generation.  
 
 Here is, I. Something of form, which was usual in writs, proclamations, or circular letters, issued by the king, Da 4:1. The royal style which Nebuchadnezzar makes use of has nothing in it of pomp or fancy, but is plain, short, and unaffected—*Nebuchadnezzar the king.* If at other times he made use of great swelling words of vanity in his title, how he laid them all aside; for he was old, he had lately recovered from a distraction which had humbled and mortified him, and was now in the actual contemplation of God's greatness and sovereignty. The declaration is directed not only to his own subjects, but to all to whom this present writing shall come—*to all people, nations, and languages, that dwell in all the earth.* He is not only willing that they should all hear of it, though it carry the account if his own infamy (which perhaps none durst have published if he had not done it himself, and therefore Daniel published the original paper), but he strictly charges and commands all manner of persons to take notice of it; for all are concerned, and it may be profitable to all. He salutes those to whom he writes, in the usual form, *Peace be multiplied unto you.* Note, It becomes kings with their commands to disperse their good wishes, and, as fathers of their country, to bless their subjects. So the common form with us. We send greeting, *Omnibus quibus hæ præsentes literæ pervenerint, salutem—To all to whom these presents shall come, health;* and sometimes *Salutem sempiternam—Health and salvation everlasting.*
 
@@ -18,21 +18,21 @@ II\. Something of substance and matter. He writes this, 1. To acquaint others wi
 
 ## Nebuchadnezzar's Second Dream; Nebuchadnezzar Relates His Dream. (b. c. 570.)
 
-> <sup>4</sup> I Nebuchadnezzar was at rest in mine house, and flourishing in my palace:  
-> <sup>5</sup> I saw a dream which made me afraid, and the thoughts upon my bed and the visions of my head troubled me.  
-> <sup>6</sup> Therefore made I a decree to bring in all the wise *men* of Babylon before me, that they might make known unto me the interpretation of the dream.  
-> <sup>7</sup> Then came in the magicians, the astrologers, the Chaldeans, and the soothsayers: and I told the dream before them; but they did not make known unto me the interpretation thereof.  
-> <sup>8</sup> But at the last Daniel came in before me, whose name *was* Belteshazzar, according to the name of my god, and in whom *is* the spirit of the holy gods: and before him I told the dream, *saying,*  
-> <sup>9</sup> O Belteshazzar, master of the magicians, because I know that the spirit of the holy gods *is* in thee, and no secret troubleth thee, tell me the visions of my dream that I have seen, and the interpretation thereof.  
-> <sup>10</sup> Thus *were* the visions of mine head in my bed; I saw, and behold a tree in the midst of the earth, and the height thereof *was* great.  
-> <sup>11</sup> The tree grew, and was strong, and the height thereof reached unto heaven, and the sight thereof to the end of all the earth:  
-> <sup>12</sup> The leaves thereof *were* fair, and the fruit thereof much, and in it *was* meat for all: the beasts of the field had shadow under it, and the fowls of the heaven dwelt in the boughs thereof, and all flesh was fed of it.  
-> <sup>13</sup> I saw in the visions of my head upon my bed, and, behold, a watcher and a holy one came down from heaven;  
-> <sup>14</sup> He cried aloud, and said thus, Hew down the tree, and cut off his branches, shake off his leaves, and scatter his fruit: let the beasts get away from under it, and the fowls from his branches:  
-> <sup>15</sup> Nevertheless leave the stump of his roots in the earth, even with a band of iron and brass, in the tender grass of the field; and let it be wet with the dew of heaven, and *let* his portion *be* with the beasts in the grass of the earth:  
-> <sup>16</sup> Let his heart be changed from man's, and let a beast's heart be given unto him; and let seven times pass over him.  
-> <sup>17</sup> This matter *is* by the decree of the watchers, and the demand by the word of the holy ones: to the intent that the living may know that the most High ruleth in the kingdom of men, and giveth it to whomsoever he will, and setteth up over it the basest of men.  
-> <sup>18</sup> This dream I king Nebuchadnezzar have seen. Now thou, O Belteshazzar, declare the interpretation thereof, forasmuch as all the wise *men* of my kingdom are not able to make known unto me the interpretation: but thou *art* able; for the spirit of the holy gods *is* in thee.  
+> **⁴** I Nebuchadnezzar was at rest in mine house, and flourishing in my palace:  
+> **⁵** I saw a dream which made me afraid, and the thoughts upon my bed and the visions of my head troubled me.  
+> **⁶** Therefore made I a decree to bring in all the wise *men* of Babylon before me, that they might make known unto me the interpretation of the dream.  
+> **⁷** Then came in the magicians, the astrologers, the Chaldeans, and the soothsayers: and I told the dream before them; but they did not make known unto me the interpretation thereof.  
+> **⁸** But at the last Daniel came in before me, whose name *was* Belteshazzar, according to the name of my god, and in whom *is* the spirit of the holy gods: and before him I told the dream, *saying,*  
+> **⁹** O Belteshazzar, master of the magicians, because I know that the spirit of the holy gods *is* in thee, and no secret troubleth thee, tell me the visions of my dream that I have seen, and the interpretation thereof.  
+> **¹⁰** Thus *were* the visions of mine head in my bed; I saw, and behold a tree in the midst of the earth, and the height thereof *was* great.  
+> **¹¹** The tree grew, and was strong, and the height thereof reached unto heaven, and the sight thereof to the end of all the earth:  
+> **¹²** The leaves thereof *were* fair, and the fruit thereof much, and in it *was* meat for all: the beasts of the field had shadow under it, and the fowls of the heaven dwelt in the boughs thereof, and all flesh was fed of it.  
+> **¹³** I saw in the visions of my head upon my bed, and, behold, a watcher and a holy one came down from heaven;  
+> **¹⁴** He cried aloud, and said thus, Hew down the tree, and cut off his branches, shake off his leaves, and scatter his fruit: let the beasts get away from under it, and the fowls from his branches:  
+> **¹⁵** Nevertheless leave the stump of his roots in the earth, even with a band of iron and brass, in the tender grass of the field; and let it be wet with the dew of heaven, and *let* his portion *be* with the beasts in the grass of the earth:  
+> **¹⁶** Let his heart be changed from man's, and let a beast's heart be given unto him; and let seven times pass over him.  
+> **¹⁷** This matter *is* by the decree of the watchers, and the demand by the word of the holy ones: to the intent that the living may know that the most High ruleth in the kingdom of men, and giveth it to whomsoever he will, and setteth up over it the basest of men.  
+> **¹⁸** This dream I king Nebuchadnezzar have seen. Now thou, O Belteshazzar, declare the interpretation thereof, forasmuch as all the wise *men* of my kingdom are not able to make known unto me the interpretation: but thou *art* able; for the spirit of the holy gods *is* in thee.  
 
 Nebuchadnezzar, before he relates the judgments of God that had been wrought upon him for his pride, gives an account of the fair warning he had of them before they came, a due regard to which might have prevented them. But he was *told of them,* and of the issue of them, *before they came to pass, that, when they did come to pass,* by comparing them with the prediction of them, he might see, and say, that they were the Lord's doing, and might be brought to believe that there is a divine revelation in the world, as well as a divine Providence, and that the works of God agree with his word.
 
@@ -66,15 +66,15 @@ Thus has Nebuchadnezzar fully and faithfully related his dream, what he saw and 
 
 ## Nebuchadnezzar's Dream Interpreted. (b. c. 570.)
 
-> <sup>19</sup> Then Daniel, whose name *was* Belteshazzar, was astonied for one hour, and his thoughts troubled him. The king spake, and said, Belteshazzar, let not the dream, or the interpretation thereof, trouble thee. Belteshazzar answered and said, My lord, the dream *be* to them that hate thee, and the interpretation thereof to thine enemies.  
-> <sup>20</sup> The tree that thou sawest, which grew, and was strong, whose height reached unto the heaven, and the sight thereof to all the earth;  
-> <sup>21</sup> Whose leaves *were* fair, and the fruit thereof much, and in it *was* meat for all; under which the beasts of the field dwelt, and upon whose branches the fowls of the heaven had their habitation:  
-> <sup>22</sup> It *is* thou, O king, that art grown and become strong: for thy greatness is grown, and reacheth unto heaven, and thy dominion to the end of the earth.  
-> <sup>23</sup> And whereas the king saw a watcher and a holy one coming down from heaven, and saying, Hew the tree down, and destroy it; yet leave the stump of the roots thereof in the earth, even with a band of iron and brass, in the tender grass of the field; and let it be wet with the dew of heaven, and *let* his portion *be* with the beasts of the field, till seven times pass over him;  
-> <sup>24</sup> This *is* the interpretation, O king, and this *is* the decree of the most High, which is come upon my lord the king:  
-> <sup>25</sup> That they shall drive thee from men, and thy dwelling shall be with the beasts of the field, and they shall make thee to eat grass as oxen, and they shall wet thee with the dew of heaven, and seven times shall pass over thee, till thou know that the most High ruleth in the kingdom of men, and giveth it to whomsoever he will.  
-> <sup>26</sup> And whereas they commanded to leave the stump of the tree roots; thy kingdom shall be sure unto thee, after that thou shalt have known that the heavens do rule.  
-> <sup>27</sup> Wherefore, O king, let my counsel be acceptable unto thee, and break off thy sins by righteousness, and thine iniquities by showing mercy to the poor; if it may be a lengthening of thy tranquillity.  
+> **¹⁹** Then Daniel, whose name *was* Belteshazzar, was astonied for one hour, and his thoughts troubled him. The king spake, and said, Belteshazzar, let not the dream, or the interpretation thereof, trouble thee. Belteshazzar answered and said, My lord, the dream *be* to them that hate thee, and the interpretation thereof to thine enemies.  
+> **²⁰** The tree that thou sawest, which grew, and was strong, whose height reached unto the heaven, and the sight thereof to all the earth;  
+> **²¹** Whose leaves *were* fair, and the fruit thereof much, and in it *was* meat for all; under which the beasts of the field dwelt, and upon whose branches the fowls of the heaven had their habitation:  
+> **²²** It *is* thou, O king, that art grown and become strong: for thy greatness is grown, and reacheth unto heaven, and thy dominion to the end of the earth.  
+> **²³** And whereas the king saw a watcher and a holy one coming down from heaven, and saying, Hew the tree down, and destroy it; yet leave the stump of the roots thereof in the earth, even with a band of iron and brass, in the tender grass of the field; and let it be wet with the dew of heaven, and *let* his portion *be* with the beasts of the field, till seven times pass over him;  
+> **²⁴** This *is* the interpretation, O king, and this *is* the decree of the most High, which is come upon my lord the king:  
+> **²⁵** That they shall drive thee from men, and thy dwelling shall be with the beasts of the field, and they shall make thee to eat grass as oxen, and they shall wet thee with the dew of heaven, and seven times shall pass over thee, till thou know that the most High ruleth in the kingdom of men, and giveth it to whomsoever he will.  
+> **²⁶** And whereas they commanded to leave the stump of the tree roots; thy kingdom shall be sure unto thee, after that thou shalt have known that the heavens do rule.  
+> **²⁷** Wherefore, O king, let my counsel be acceptable unto thee, and break off thy sins by righteousness, and thine iniquities by showing mercy to the poor; if it may be a lengthening of thy tranquillity.  
 
 We have here the interpretation of Nebuchadnezzar's dream; and when once it is applied to himself, and it is declared that he is the tree in the dream (*Mutato nomine de te fabula narratur—Change but the name, the fable speaks of thee*), when once it is said, *Thou art the man,* there needs little more to be said for the explication of the dream. *Out of his own mouth he is judged; so shall his doom be, he himself has decided it.* The thing was so plain that Daniel, upon hearing the dream, was *astonished for one hour,* Da 4:19. He was struck with amazement and terror at so great a judgment coming upon so great a prince. *His flesh trembled for fear of God.* He was likewise struck with confusion when he found himself under a necessity of being the man that must bring to the king *these heavy tidings,* which, having received so many favours from the king, he had rather he should have heard from any one else; so far is he from desiring the woeful day that he dreads it, and the thoughts of it trouble him. Those that come after the ruined sinner are said to be *astonished at his day,* as *those that went before,* and saw it coming (as Daniel here), *were affrighted,* Job 18:20.
 
@@ -86,12 +86,12 @@ III\. The close of the interpretation is the pious counsel which Daniel, as a pr
 
 ## Nebuchadnezzar Driven among Beasts. (b. c. 569.)
 
-> <sup>28</sup> All this came upon the king Nebuchadnezzar.  
-> <sup>29</sup> At the end of twelve months he walked in the palace of the kingdom of Babylon.  
-> <sup>30</sup> The king spake, and said, Is not this great Babylon, that I have built for the house of the kingdom by the might of my power, and for the honour of my majesty?  
-> <sup>31</sup> While the word *was* in the king's mouth, there fell a voice from heaven, *saying,* O king Nebuchadnezzar, to thee it is spoken; The kingdom is departed from thee.  
-> <sup>32</sup> And they shall drive thee from men, and thy dwelling *shall be* with the beasts of the field: they shall make thee to eat grass as oxen, and seven times shall pass over thee, until thou know that the most High ruleth in the kingdom of men, and giveth it to whomsoever he will.  
-> <sup>33</sup> The same hour was the thing fulfilled upon Nebuchadnezzar: and he was driven from men, and did eat grass as oxen, and his body was wet with the dew of heaven, till his hairs were grown like eagles' *feathers,* and his nails like birds' *claws.*  
+> **²⁸** All this came upon the king Nebuchadnezzar.  
+> **²⁹** At the end of twelve months he walked in the palace of the kingdom of Babylon.  
+> **³⁰** The king spake, and said, Is not this great Babylon, that I have built for the house of the kingdom by the might of my power, and for the honour of my majesty?  
+> **³¹** While the word *was* in the king's mouth, there fell a voice from heaven, *saying,* O king Nebuchadnezzar, to thee it is spoken; The kingdom is departed from thee.  
+> **³²** And they shall drive thee from men, and thy dwelling *shall be* with the beasts of the field: they shall make thee to eat grass as oxen, and seven times shall pass over thee, until thou know that the most High ruleth in the kingdom of men, and giveth it to whomsoever he will.  
+> **³³** The same hour was the thing fulfilled upon Nebuchadnezzar: and he was driven from men, and did eat grass as oxen, and his body was wet with the dew of heaven, till his hairs were grown like eagles' *feathers,* and his nails like birds' *claws.*  
 
 We have here Nebuchadnezzar's dream accomplished, and Daniel's application of it to him justified and confirmed. How he took it we are not told, whether he was pleased with Daniel or displeased; but here we have,
 
@@ -103,10 +103,10 @@ III\. His punishment for his pride. When he was thus strutting, and vaunting him
 
 ## Nebuchadnezzar Restored. (b. c. 562.)
 
-> <sup>34</sup> And at the end of the days I Nebuchadnezzar lifted up mine eyes unto heaven, and mine understanding returned unto me, and I blessed the most High, and I praised and honoured him that liveth for ever, whose dominion *is* an everlasting dominion, and his kingdom *is* from generation to generation:  
-> <sup>35</sup> And all the inhabitants of the earth *are* reputed as nothing: and he doeth according to his will in the army of heaven, and *among* the inhabitants of the earth: and none can stay his hand, or say unto him, What doest thou?  
-> <sup>36</sup> At the same time my reason returned unto me; and for the glory of my kingdom, mine honour and brightness returned unto me; and my counsellors and my lords sought unto me; and I was established in my kingdom, and excellent majesty was added unto me.  
-> <sup>37</sup> Now I Nebuchadnezzar praise and extol and honour the King of heaven, all whose works *are* truth, and his ways judgment: and those that walk in pride he is able to abase.  
+> **³⁴** And at the end of the days I Nebuchadnezzar lifted up mine eyes unto heaven, and mine understanding returned unto me, and I blessed the most High, and I praised and honoured him that liveth for ever, whose dominion *is* an everlasting dominion, and his kingdom *is* from generation to generation:  
+> **³⁵** And all the inhabitants of the earth *are* reputed as nothing: and he doeth according to his will in the army of heaven, and *among* the inhabitants of the earth: and none can stay his hand, or say unto him, What doest thou?  
+> **³⁶** At the same time my reason returned unto me; and for the glory of my kingdom, mine honour and brightness returned unto me; and my counsellors and my lords sought unto me; and I was established in my kingdom, and excellent majesty was added unto me.  
+> **³⁷** Now I Nebuchadnezzar praise and extol and honour the King of heaven, all whose works *are* truth, and his ways judgment: and those that walk in pride he is able to abase.  
 
 We have here Nebuchadnezzar's recovery from his distraction, and his return to his right mind, *at the end of the days* prefixed, that is, of the seven years. So long he continued a monument of God's justice and a trophy of his victory over the children of pride, and he was made more so by being struck mad than if he had been in an instant struck dead with a thunderbolt; yet it was a mercy to him that he was kept alive, for while there is life there is hope that we may yet praise God, as he did here: *At the end of the days* (says he), *I lifted up my eyes unto heaven* (Da 4:34), looked no longer down towards the earth as a beast, but begun to look up as a man. *Os homini sublime dedit—Heaven gave to man an erect countenance.* But there was more in it than this; he looked up as a devout man, as a penitent, as a humble petitioner for mercy, being perhaps never till now made sensible of his own misery. And now,
 

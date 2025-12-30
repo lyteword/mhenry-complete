@@ -8,12 +8,12 @@ The laws of this chapter relate, I. To the eighth commandment, concerning theft 
 
 ## Judicial Laws. (b. c. 1491.)
 
-> <sup>1</sup> If a man shall steal an ox, or a sheep, and kill it, or sell it; he shall restore five oxen for an ox, and four sheep for a sheep.  
-> <sup>2</sup> If a thief be found breaking up, and be smitten that he die, *there shall* no blood *be shed* for him.  
-> <sup>3</sup> If the sun be risen upon him, *there shall be* blood *shed* for him; *for* he should make full restitution; if he have nothing, then he shall be sold for his theft.  
-> <sup>4</sup> If the theft be certainly found in his hand alive, whether it be ox, or ass, or sheep; he shall restore double.  
-> <sup>5</sup> If a man shall cause a field or vineyard to be eaten, and shall put in his beast, and shall feed in another man's field; of the best of his own field, and of the best of his own vineyard, shall he make restitution.  
-> <sup>6</sup> If fire break out, and catch in thorns, so that the stacks of corn, or the standing corn, or the field, be consumed *therewith;* he that kindled the fire shall surely make restitution.  
+> **¹** If a man shall steal an ox, or a sheep, and kill it, or sell it; he shall restore five oxen for an ox, and four sheep for a sheep.  
+> **²** If a thief be found breaking up, and be smitten that he die, *there shall* no blood *be shed* for him.  
+> **³** If the sun be risen upon him, *there shall be* blood *shed* for him; *for* he should make full restitution; if he have nothing, then he shall be sold for his theft.  
+> **⁴** If the theft be certainly found in his hand alive, whether it be ox, or ass, or sheep; he shall restore double.  
+> **⁵** If a man shall cause a field or vineyard to be eaten, and shall put in his beast, and shall feed in another man's field; of the best of his own field, and of the best of his own vineyard, shall he make restitution.  
+> **⁶** If fire break out, and catch in thorns, so that the stacks of corn, or the standing corn, or the field, be consumed *therewith;* he that kindled the fire shall surely make restitution.  
 
 Here are the laws,
 
@@ -23,15 +23,15 @@ II\. Concerning trespass, Ex 22:5. He that wilfully put his cattle into his neig
 
 III\. Concerning damage done by fire, Ex 22:6. He that designed only the burning of thorns might become accessory to the burning of corn, and should not be held guiltless. Men of hot and eager spirits should take heed, lest, while they pretend only to pluck up the tares, they root out the wheat also. If the fire did mischief, he that kindled it must answer for it, though it could not be proved that he designed the mischief. Men must suffer for their carelessness, as well as for their malice. We must take heed of beginning strife; for, though it seem but little, we know not how great a matter it may kindle, the blame of which we must bear, if, with the madman, we cast fire-brands, arrows, and death, and pretend we mean no harm. It will make us very careful of ourselves, if we consider that we are accountable, not only for the hurt we do, but for the hurt we occasion through inadvertency.
 
-> <sup>7</sup> If a man shall deliver unto his neighbour money or stuff to keep, and it be stolen out of the man's house; if the thief be found, let him pay double.  
-> <sup>8</sup> If the thief be not found, then the master of the house shall be brought unto the judges, *to see* whether he have put his hand unto his neighbour's goods.  
-> <sup>9</sup> For all manner of trespass, *whether it be* for ox, for ass, for sheep, for raiment, *or* for any manner of lost thing, which *another* challengeth to be his, the cause of both parties shall come before the judges; *and* whom the judges shall condemn, he shall pay double unto his neighbour.  
-> <sup>10</sup> If a man deliver unto his neighbour an ass, or an ox, or a sheep, or any beast, to keep; and it die, or be hurt, or driven away, no man seeing *it:*  
-> <sup>11</sup> *Then* shall an oath of the LORD be between them both, that he hath not put his hand unto his neighbour's goods; and the owner of it shall accept *thereof,* and he shall not make *it* good.  
-> <sup>12</sup> And if it be stolen from him, he shall make restitution unto the owner thereof.  
-> <sup>13</sup> If it be torn in pieces, *then* let him bring it *for* witness, *and* he shall not make good that which was torn.  
-> <sup>14</sup> And if a man borrow *ought* of his neighbour, and it be hurt, or die, the owner thereof *being* not with it, he shall surely make *it* good.  
-> <sup>15</sup> *But* if the owner thereof *be* with it, he shall not make *it* good: if it *be* an hired *thing,* it came for his hire.  
+> **⁷** If a man shall deliver unto his neighbour money or stuff to keep, and it be stolen out of the man's house; if the thief be found, let him pay double.  
+> **⁸** If the thief be not found, then the master of the house shall be brought unto the judges, *to see* whether he have put his hand unto his neighbour's goods.  
+> **⁹** For all manner of trespass, *whether it be* for ox, for ass, for sheep, for raiment, *or* for any manner of lost thing, which *another* challengeth to be his, the cause of both parties shall come before the judges; *and* whom the judges shall condemn, he shall pay double unto his neighbour.  
+> **¹⁰** If a man deliver unto his neighbour an ass, or an ox, or a sheep, or any beast, to keep; and it die, or be hurt, or driven away, no man seeing *it:*  
+> **¹¹** *Then* shall an oath of the LORD be between them both, that he hath not put his hand unto his neighbour's goods; and the owner of it shall accept *thereof,* and he shall not make *it* good.  
+> **¹²** And if it be stolen from him, he shall make restitution unto the owner thereof.  
+> **¹³** If it be torn in pieces, *then* let him bring it *for* witness, *and* he shall not make good that which was torn.  
+> **¹⁴** And if a man borrow *ought* of his neighbour, and it be hurt, or die, the owner thereof *being* not with it, he shall surely make *it* good.  
+> **¹⁵** *But* if the owner thereof *be* with it, he shall not make *it* good: if it *be* an hired *thing,* it came for his hire.  
 
 These laws are,
 
@@ -39,15 +39,15 @@ I\. Concerning trusts, Ex 22:7-13. If a man deliver goods, suppose to a carrier 
 
 II\. Concerning loans, Ex 22:14,15. If a man (suppose) lent his team to his neighbour, if the owner was with it, or was to receive profit for the loan of it, whatever harm befel the cattle the owner must stand to the loss of: but if the owner was so kind to the borrower as to lend it to him gratis, and put such a confidence in him as to trust it from under his own eye, then, if any harm happened, the borrower must make it good. Let us learn hence to be very careful not to abuse any thing that is lent us; it is not only unjust, but base and disingenuous, inasmuch as it is rendering evil for good; we should much rather choose to lose ourselves than that any should sustain loss by their kindness to us. *Alas, master! for it was borrowed,* 2Ki 6:5.
 
-> <sup>16</sup> And if a man entice a maid that is not betrothed, and lie with her, he shall surely endow her to be his wife.  
-> <sup>17</sup> If her father utterly refuse to give her unto him, he shall pay money according to the dowry of virgins.  
-> <sup>18</sup> Thou shalt not suffer a witch to live.  
-> <sup>19</sup> Whosoever lieth with a beast shall surely be put to death.  
-> <sup>20</sup> He that sacrificeth unto *any* god, save unto the LORD only, he shall be utterly destroyed.  
-> <sup>21</sup> Thou shalt neither vex a stranger, nor oppress him: for ye were strangers in the land of Egypt.  
-> <sup>22</sup> Ye shall not afflict any widow, or fatherless child.  
-> <sup>23</sup> If thou afflict them in any wise, and they cry at all unto me, I will surely hear their cry;  
-> <sup>24</sup> And my wrath shall wax hot, and I will kill you with the sword; and your wives shall be widows, and your children fatherless.  
+> **¹⁶** And if a man entice a maid that is not betrothed, and lie with her, he shall surely endow her to be his wife.  
+> **¹⁷** If her father utterly refuse to give her unto him, he shall pay money according to the dowry of virgins.  
+> **¹⁸** Thou shalt not suffer a witch to live.  
+> **¹⁹** Whosoever lieth with a beast shall surely be put to death.  
+> **²⁰** He that sacrificeth unto *any* god, save unto the LORD only, he shall be utterly destroyed.  
+> **²¹** Thou shalt neither vex a stranger, nor oppress him: for ye were strangers in the land of Egypt.  
+> **²²** Ye shall not afflict any widow, or fatherless child.  
+> **²³** If thou afflict them in any wise, and they cry at all unto me, I will surely hear their cry;  
+> **²⁴** And my wrath shall wax hot, and I will kill you with the sword; and your wives shall be widows, and your children fatherless.  
 
 Here is, I. A law that he who debauched a young woman should be obliged to marry her, Ex 22:16,17. If she was betrothed to another, it was death to debauch her (De 22:23,24); but the law here mentioned respects her as single. But, if the father refused her to him, he was to give satisfaction in money for the injury and disgrace he had done her. This law puts an honour upon marriage and shows likewise how improper a thing it is that children should marry without their parents' consent: even here, where the divine law appointed the marriage, both as a punishment to him that had done wrong and a recompence to her that had suffered wrong, yet there was an express reservation for the father's power; if he denied his consent, it must be no marriage.
 
@@ -63,13 +63,13 @@ V\. A caution against oppression. Because those who were empowered to punish oth
 
 2\. Widows and fatherless must not be abused (Ex 22:22): *You shall not afflict them,* that is, "You shall comfort and assist them, and be ready upon all occasions to show them kindness." In making just demands from them, their condition must be considered, who have lost those that should deal for them, and protect them; they are supposed to be unversed in business, destitute of advice, timorous, and of a tender spirit, and therefore must be treated with kindness and compassion; no advantage must be taken against them, nor any hardship put upon them, from which a husband or a father would have sheltered them. For, (1.) God takes particular cognizance of their case, Ex 22:23. Having no one else to complain and appeal to, they will *cry unto God,* and he will be sure *to hear them;* for his law and his providence are guardians to the widows and fatherless, and if men do not pity them, and will not hear them, he will. Note, It is a great comfort to those who are injured and oppressed by men that they have a God to go to who will do more than *give them the hearing;* and it ought to be a terror to those who are oppressive that they have the cry of the poor against them, which God will hear. Nay, (2.) He will severely reckon with those that do oppress them. Though they escape punishments from men, God's righteous judgments will pursue and overtake them, Ex 22:24. Men that have a sense of justice and honour will espouse the injured cause of the weak and helpless; and shall not the righteous God do it? Observe the equity of the sentence here passed upon those that oppress the widows and fatherless: their wives shall become widows, and their children fatherless; and the Lord is known by these judgments, which he sometimes executes still.
 
-> <sup>25</sup> If thou lend money to *any of* my people *that is* poor by thee, thou shalt not be to him as an usurer, neither shalt thou lay upon him usury.  
-> <sup>26</sup> If thou at all take thy neighbour's raiment to pledge, thou shalt deliver it unto him by that the sun goeth down:  
-> <sup>27</sup> For that *is* his covering only, it *is* his raiment for his skin: wherein shall he sleep? and it shall come to pass, when he crieth unto me, that I will hear; for I *am* gracious.  
-> <sup>28</sup> Thou shalt not revile the gods, nor curse the ruler of thy people.  
-> <sup>29</sup> Thou shalt not delay *to offer* the first of thy ripe fruits, and of thy liquors: the firstborn of thy sons shalt thou give unto me.  
-> <sup>30</sup> Likewise shalt thou do with thine oxen, *and* with thy sheep: seven days it shall be with his dam; on the eighth day thou shalt give it me.  
-> <sup>31</sup> And ye shall be holy men unto me: neither shall ye eat *any* flesh *that is* torn of beasts in the field; ye shall cast it to the dogs.  
+> **²⁵** If thou lend money to *any of* my people *that is* poor by thee, thou shalt not be to him as an usurer, neither shalt thou lay upon him usury.  
+> **²⁶** If thou at all take thy neighbour's raiment to pledge, thou shalt deliver it unto him by that the sun goeth down:  
+> **²⁷** For that *is* his covering only, it *is* his raiment for his skin: wherein shall he sleep? and it shall come to pass, when he crieth unto me, that I will hear; for I *am* gracious.  
+> **²⁸** Thou shalt not revile the gods, nor curse the ruler of thy people.  
+> **²⁹** Thou shalt not delay *to offer* the first of thy ripe fruits, and of thy liquors: the firstborn of thy sons shalt thou give unto me.  
+> **³⁰** Likewise shalt thou do with thine oxen, *and* with thy sheep: seven days it shall be with his dam; on the eighth day thou shalt give it me.  
+> **³¹** And ye shall be holy men unto me: neither shall ye eat *any* flesh *that is* torn of beasts in the field; ye shall cast it to the dogs.  
 
 Here is, I. A law against extortion in lending. 1. They must not receive use for money from any that borrowed for necessity (Ex 22:25), as in that case, Ne 5:5,7. And such provision the law made for the preservation of estates to their families by the year of jubilee that a people who had little concern in trade could not be supposed to borrow money but for necessity, and therefore it is generally forbidden among themselves; but to a stranger, whom yet they might not oppress, they were allowed to lend upon usury: this law, therefore, in the strictness of it, seems to have been peculiar to the Jewish state; but, in the equity of it, it obliges us to show mercy to those of whom we might take advantage, and to be content to share, in loss as well as profit, with those we lend to, if Providence cross them; and, upon this condition, it seems as lawful to receive interest for my money, which another takes pains with and improves, but runs the hazard of, in trade, as it is to receive rent for my land, which another takes pains with and improves, but runs the hazard of, in husbandry. 2. They must not take a poor man's bed-clothes in pawn; but, if they did, must restore them by bed-time, Ex 22:26,27. Those who lie soft and warm themselves should consider the hard and cold lodgings of many poor people, and not do any thing to make bad worse, or to add affliction to the afflicted.
 

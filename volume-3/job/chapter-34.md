@@ -8,15 +8,15 @@ Elihu, it is likely, paused awhile, to see if Job had any thing to say against h
 
 ## The Address of Elihu. (b. c. 1520.)
 
-> <sup>1</sup> Furthermore Elihu answered and said,  
-> <sup>2</sup> Hear my words, O ye wise *men;* and give ear unto me, ye that have knowledge.  
-> <sup>3</sup> For the ear trieth words, as the mouth tasteth meat.  
-> <sup>4</sup> Let us choose to us judgment: let us know among ourselves what *is* good.  
-> <sup>5</sup> For Job hath said, I am righteous: and God hath taken away my judgment.  
-> <sup>6</sup> Should I lie against my right? my wound *is* incurable without transgression.  
-> <sup>7</sup> What man *is* like Job, *who* drinketh up scorning like water?  
-> <sup>8</sup> Which goeth in company with the workers of iniquity, and walketh with wicked men.  
-> <sup>9</sup> For he hath said, It profiteth a man nothing that he should delight himself with God.  
+> **¹** Furthermore Elihu answered and said,  
+> **²** Hear my words, O ye wise *men;* and give ear unto me, ye that have knowledge.  
+> **³** For the ear trieth words, as the mouth tasteth meat.  
+> **⁴** Let us choose to us judgment: let us know among ourselves what *is* good.  
+> **⁵** For Job hath said, I am righteous: and God hath taken away my judgment.  
+> **⁶** Should I lie against my right? my wound *is* incurable without transgression.  
+> **⁷** What man *is* like Job, *who* drinketh up scorning like water?  
+> **⁸** Which goeth in company with the workers of iniquity, and walketh with wicked men.  
+> **⁹** For he hath said, It profiteth a man nothing that he should delight himself with God.  
 
 Here, I. Elihu humbly addresses himself to the auditors, and endeavours, like an orator, to gain their good-will and their favourable attention. 1. He calls them *wise men,* and men that *had knowledge,* Job 34:2. It is comfortable dealing with such as understand sense. *I speak as to wise men,* who can *judge what I say,* 1Co 10:15. Elihu differed in opinion from them, and yet he calls them wise and knowing men. Peevish disputants think all fools that are not of their mind; but it is a piece of justice which we owe to those who are wise to acknowledge it, though our sentiments do not agree with theirs. 2. He appeals to their judgment, and therefore submits to their trial, Job 34:3. *The ear* of the judicious *tries words,* whether what is said be true or false, right or wrong, and he that speaks must stand the test of the intelligent. As we must prove all things we hear, so we must be willing that what we speak should be proved. 3. He takes them into partnership with him in the examination and discussion of this matter, Job 34:4. He does not pretend to be sole dictator, nor undertake to say what is just and good and what is not, but he is willing to join with them in searching it out, and desires a consultation: "Let us agree to lay aside all animosities and feuds, all prejudices and affectation of contradiction, and all stiffness in adhering to the opinion we have once espoused, and *let us choose to ourselves judgment;* let us fix right principles on which to proceed, and then take right methods for finding out truth; and *let us know among ourselves,* by comparing notes and communicating our reasons, *what is good* and what is otherwise." Note, We are then likely to discern what is right when we agree to assist one another in searching it out.
 
@@ -26,12 +26,12 @@ II\. He warmly accuses Job for some passionate words which he had spoken, that r
 
 2\. He charges Job very high upon it. In general, *What man is like Job?* Job 34:7. "Did you ever know such a man as Job, or ever hear a man talk at such an extravagant rate?" He represents him, (1.) As sitting in the seat of the scornful: "He *drinketh up scorning like water,*" that is, "he takes a great deal of liberty to reproach both God and his friends, takes a pleasure in so doing, and is very liberal in his reflections." Or, "He is very greedy in receiving and hearkening to the scorns and contempts which others cast upon their brethren, is well pleased with them and extols them." Or, as some explain it, "By these foolish expressions of his he makes himself the object of scorn, lays himself very open to reproach, and gives occasion to others to laugh at him; while his religion suffers by them, and the reputation of that is wounded through his side." We have need to pray that God will never leave us to ourselves to say or do any thing which may *make us a reproach to the foolish,* Ps 39:8. (2.) As walking in the course of the ungodly, and standing in the way of sinners: He *goes in company with the workers of iniquity* (Job 34:8), not that in his conversation he did associate with them, but in his opinion he did favour and countenance them, and strengthen their hands. If (as it follows, Job 34:9, for the proof of this) *it profits a man nothing to delight himself in God,* why should he not lay the reins on the neck of his lusts and herd with the workers of iniquity? He that says, I have *cleansed my hands in vain,* does not only *offend against the generation of God's children* (Ps 72:13,14), but gratifies his enemies, and says as they say.
 
-> <sup>10</sup> Therefore hearken unto me, ye men of understanding: far be it from God, *that he should do* wickedness; and *from* the Almighty, *that he should commit* iniquity.  
-> <sup>11</sup> For the work of a man shall he render unto him, and cause every man to find according to *his* ways.  
-> <sup>12</sup> Yea, surely God will not do wickedly, neither will the Almighty pervert judgment.  
-> <sup>13</sup> Who hath given him a charge over the earth? or who hath disposed the whole world?  
-> <sup>14</sup> If he set his heart upon man, *if* he gather unto himself his spirit and his breath;  
-> <sup>15</sup> All flesh shall perish together, and man shall turn again unto dust.  
+> **¹⁰** Therefore hearken unto me, ye men of understanding: far be it from God, *that he should do* wickedness; and *from* the Almighty, *that he should commit* iniquity.  
+> **¹¹** For the work of a man shall he render unto him, and cause every man to find according to *his* ways.  
+> **¹²** Yea, surely God will not do wickedly, neither will the Almighty pervert judgment.  
+> **¹³** Who hath given him a charge over the earth? or who hath disposed the whole world?  
+> **¹⁴** If he set his heart upon man, *if* he gather unto himself his spirit and his breath;  
+> **¹⁵** All flesh shall perish together, and man shall turn again unto dust.  
 
 The scope of Elihu's discourse to reconcile Job to his afflictions and to pacify his spirit under them. In order to this he had shown, in the foregoing chapter, that God meant him no hurt in afflicting him, but intended it for his spiritual benefit. In this chapter he shows that he did him no wrong in afflicting him, nor punished him more than he deserved. If the former could not prevail to satisfy him, yet this ought to silence him. In these verses he directs his discourse to all the company: "*Hearken to me, you men of understanding* (Job 34:10), and show yourselves to be intelligent by assenting to this which I say." And this is that which he says, That the righteous God never did, nor ever will do, any wrong to any of his creatures, but his ways are equal, ours are unequal. The truth here maintained respects the justice of equity of all God's proceedings. Now observe in these verses,
 
@@ -45,21 +45,21 @@ III\. How evidently it is proved by two arguments:
 
 2\. His irresistible power (Job 34:14): *If he set his heart upon man,* to contend with him, much more *if* (as some read it) *he set his heart against man,* to ruin him, if he should deal with man either by *summa potestas—mere sovereignty,* or by *summum jus—strict justice,* there were no standing before him; man's spirit and breath would soon be gone and *all flesh would perish together,* Job 34:15. Many men's honesty is owing purely to their impotency; they do not do wrong because they cannot support it when it is done, or it is not in their power to do it. But God is able to crush any man easily and suddenly, and yet does not by arbitrary power crush any man, which therefore must be attributed to the infinite perfection of his nature, and that is immutable. See here, (1.) What God can do with us. He can soon bring us to dust; there needs not any positive act of his omnipotence to do it; if he do but withdraw that concurrence of his providence by which we live, *if he gather unto himself that spirit and breath* which was from his hand at first and is still in his hand, we expire immediately, like an animal in an air-pump when the air is exhausted. (2.) What he may do with us without doing us wrong. He may recall the being he gave, of which we are but tenants at will, and which also we have forfeited; and therefore, as long as that is continued of his mere favour, we have no reason to cry out of wrong, whatever other comforts are removed.
 
-> <sup>16</sup> If now *thou hast* understanding, hear this: hearken to the voice of my words.  
-> <sup>17</sup> Shall even he that hateth right govern? and wilt thou condemn him that is most just?  
-> <sup>18</sup> *Is it fit* to say to a king, *Thou art* wicked? *and* to princes, *Ye are* ungodly?  
-> <sup>19</sup> *How much less to him* that accepteth not the persons of princes, nor regardeth the rich more than the poor? for they all *are* the work of his hands.  
-> <sup>20</sup> In a moment shall they die, and the people shall be troubled at midnight, and pass away: and the mighty shall be taken away without hand.  
-> <sup>21</sup> For his eyes *are* upon the ways of man, and he seeth all his goings.  
-> <sup>22</sup> *There is* no darkness, nor shadow of death, where the workers of iniquity may hide themselves.  
-> <sup>23</sup> For he will not lay upon man more *than right;* that he should enter into judgment with God.  
-> <sup>24</sup> He shall break in pieces mighty men without number, and set others in their stead.  
-> <sup>25</sup> Therefore he knoweth their works, and he overturneth *them* in the night, so that they are destroyed.  
-> <sup>26</sup> He striketh them as wicked men in the open sight of others;  
-> <sup>27</sup> Because they turned back from him, and would not consider any of his ways:  
-> <sup>28</sup> So that they cause the cry of the poor to come unto him, and he heareth the cry of the afflicted.  
-> <sup>29</sup> When he giveth quietness, who then can make trouble? and when he hideth *his* face, who then can behold him? whether *it be done* against a nation, or against a man only:  
-> <sup>30</sup> That the hypocrite reign not, lest the people be ensnared.  
+> **¹⁶** If now *thou hast* understanding, hear this: hearken to the voice of my words.  
+> **¹⁷** Shall even he that hateth right govern? and wilt thou condemn him that is most just?  
+> **¹⁸** *Is it fit* to say to a king, *Thou art* wicked? *and* to princes, *Ye are* ungodly?  
+> **¹⁹** *How much less to him* that accepteth not the persons of princes, nor regardeth the rich more than the poor? for they all *are* the work of his hands.  
+> **²⁰** In a moment shall they die, and the people shall be troubled at midnight, and pass away: and the mighty shall be taken away without hand.  
+> **²¹** For his eyes *are* upon the ways of man, and he seeth all his goings.  
+> **²²** *There is* no darkness, nor shadow of death, where the workers of iniquity may hide themselves.  
+> **²³** For he will not lay upon man more *than right;* that he should enter into judgment with God.  
+> **²⁴** He shall break in pieces mighty men without number, and set others in their stead.  
+> **²⁵** Therefore he knoweth their works, and he overturneth *them* in the night, so that they are destroyed.  
+> **²⁶** He striketh them as wicked men in the open sight of others;  
+> **²⁷** Because they turned back from him, and would not consider any of his ways:  
+> **²⁸** So that they cause the cry of the poor to come unto him, and he heareth the cry of the afflicted.  
+> **²⁹** When he giveth quietness, who then can make trouble? and when he hideth *his* face, who then can behold him? whether *it be done* against a nation, or against a man only:  
+> **³⁰** That the hypocrite reign not, lest the people be ensnared.  
 
 Elihu here addresses himself more directly to Job. He had spoken to the rest (Job 34:10) as *men of understanding;* now, speaking to Job; he puts an *if* upon his understanding: *If thou hast understanding,* hear this and observe it, Job 34:16.
 
@@ -77,13 +77,13 @@ II\. Hear this, That God is to be acknowledged and submitted to in all that he d
 
 5\. God is wise, and careful of the public welfare, and therefore provides *that the hypocrite reign not, lest the people be ensnared,* Job 34:30. See here, (1.) The pride of hypocrites. They aim to reign; the praise of men, and power in the world, are their reward, what they aim at. (2.) The policy of tyrants. When they aim to set up themselves they sometimes make use of religion as a cloak and cover for their ambition and by their hypocrisy come to the throne. (3.) The danger the people are in when hypocrites reign. They are likely to be ensnared in sin, or trouble, or both. Power, in the hands of dissemblers, is often destructive to the rights and liberties of a people, which they are more easily wheedled out of than forced out of. Much mischief has been done likewise to the power of godliness under the pretence of a form of godliness. (4.) The care which divine Providence takes of the people, to prevent this danger, *that the hypocrite reign not,* either that he do not reign at all or that he do not reign long. If God has mercy in store for a people, he will either prevent the rise or hasten the ruin of hypocritical rulers.
 
-> <sup>31</sup> Surely it is meet to be said unto God, I have borne *chastisement,* I will not offend *any more:*  
-> <sup>32</sup> *That which* I see not teach thou me: if I have done iniquity, I will do no more.  
-> <sup>33</sup> *Should it be* according to thy mind? he will recompense it, whether thou refuse, or whether thou choose; and not I: therefore speak what thou knowest.  
-> <sup>34</sup> Let men of understanding tell me, and let a wise man hearken unto me.  
-> <sup>35</sup> Job hath spoken without knowledge, and his words *were* without wisdom.  
-> <sup>36</sup> My desire *is that* Job may be tried unto the end because of *his* answers for wicked men.  
-> <sup>37</sup> For he addeth rebellion unto his sin, he clappeth *his hands* among us, and multiplieth his words against God.  
+> **³¹** Surely it is meet to be said unto God, I have borne *chastisement,* I will not offend *any more:*  
+> **³²** *That which* I see not teach thou me: if I have done iniquity, I will do no more.  
+> **³³** *Should it be* according to thy mind? he will recompense it, whether thou refuse, or whether thou choose; and not I: therefore speak what thou knowest.  
+> **³⁴** Let men of understanding tell me, and let a wise man hearken unto me.  
+> **³⁵** Job hath spoken without knowledge, and his words *were* without wisdom.  
+> **³⁶** My desire *is that* Job may be tried unto the end because of *his* answers for wicked men.  
+> **³⁷** For he addeth rebellion unto his sin, he clappeth *his hands* among us, and multiplieth his words against God.  
 
 In these verses,
 

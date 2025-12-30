@@ -8,11 +8,11 @@ This chapter, and that which follows it, are the burden of Moab—a prophecy of 
 
 ## The Burden of Moab. (b. c. 725.)
 
-> <sup>1</sup> The burden of Moab. Because in the night Ar of Moab is laid waste, *and* brought to silence; because in the night Kir of Moab is laid waste, *and* brought to silence;  
-> <sup>2</sup> He is gone up to Bajith, and to Dibon, the high places, to weep: Moab shall howl over Nebo, and over Medeba: on all their heads *shall be* baldness, *and* every beard cut off.  
-> <sup>3</sup> In their streets they shall gird themselves with sackcloth: on the tops of their houses, and in their streets, every one shall howl, weeping abundantly.  
-> <sup>4</sup> And Heshbon shall cry, and Elealeh: their voice shall be heard *even* unto Jahaz: therefore the armed soldiers of Moab shall cry out; his life shall be grievous unto him.  
-> <sup>5</sup> My heart shall cry out for Moab; his fugitives *shall flee* unto Zoar, a heifer of three years old: for by the mounting up of Luhith with weeping shall they go it up; for in the way of Horonaim they shall raise up a cry of destruction.  
+> **¹** The burden of Moab. Because in the night Ar of Moab is laid waste, *and* brought to silence; because in the night Kir of Moab is laid waste, *and* brought to silence;  
+> **²** He is gone up to Bajith, and to Dibon, the high places, to weep: Moab shall howl over Nebo, and over Medeba: on all their heads *shall be* baldness, *and* every beard cut off.  
+> **³** In their streets they shall gird themselves with sackcloth: on the tops of their houses, and in their streets, every one shall howl, weeping abundantly.  
+> **⁴** And Heshbon shall cry, and Elealeh: their voice shall be heard *even* unto Jahaz: therefore the armed soldiers of Moab shall cry out; his life shall be grievous unto him.  
+> **⁵** My heart shall cry out for Moab; his fugitives *shall flee* unto Zoar, a heifer of three years old: for by the mounting up of Luhith with weeping shall they go it up; for in the way of Horonaim they shall raise up a cry of destruction.  
 
 The country of Moab was of small extent, but very fruitful. It bordered upon the lot of Reuben on the other side Jordan and upon the Dead Sea. Naomi went to sojourn there when there was a famine in Canaan. This is the country which (it is here foretold) should be wasted and grievously harassed, not quite ruined, for we find another prophecy of its ruin (Jer 48:1-47), which was accomplished by Nebuchadnezzar. This prophecy here was to be fulfilled *within three years* (Isa 16:14), and therefore was fulfilled in the devastations made of that country by the army of the Assyrians, which for many years ravaged those parts, enriching themselves with spoil and plunder. It was done either by the army of Shalmaneser, about the time of the taking of Samaria, in the fourth year of Hezekiah (as is most probable), or by the army of Sennacherib, which, ten years after, invaded Judah. We cannot suppose that the prophet went among the Moabites to preach to them this sermon; but he delivered it to his own people, 1. To show them that, though judgment begins at the house of God, it shall not end there,—that there is a providence which governs the world and all the nations of it,—and that to the God of Israel the worshippers of false gods were accountable, and liable to his judgments. 2. To give them a proof of God's care of them and jealousy for them, and to convince them that God was an enemy to their enemies, for such the Moabites had often been. 3. That the accomplishment of this prophecy now shortly (*within three years*) might be a confirmation of the prophet's mission and of the truth of all his other prophecies, and might encourage the faithful to depend upon them.
 
@@ -30,10 +30,10 @@ V\. That the outcry for these calamities should propagate grief to all the adjac
 
 ## The Burden of Moab. (b. c. 725.)
 
-> <sup>6</sup> For the waters of Nimrim shall be desolate: for the hay is withered away, the grass faileth, there is no green thing.  
-> <sup>7</sup> Therefore the abundance they have gotten, and that which they have laid up, shall they carry away to the brook of the willows.  
-> <sup>8</sup> For the cry is gone round about the borders of Moab; the howling thereof unto Eglaim, and the howling thereof unto Beer-elim.  
-> <sup>9</sup> For the waters of Dimon shall be full of blood: for I will bring more upon Dimon, lions upon him that escapeth of Moab, and upon the remnant of the land.  
+> **⁶** For the waters of Nimrim shall be desolate: for the hay is withered away, the grass faileth, there is no green thing.  
+> **⁷** Therefore the abundance they have gotten, and that which they have laid up, shall they carry away to the brook of the willows.  
+> **⁸** For the cry is gone round about the borders of Moab; the howling thereof unto Eglaim, and the howling thereof unto Beer-elim.  
+> **⁹** For the waters of Dimon shall be full of blood: for I will bring more upon Dimon, lions upon him that escapeth of Moab, and upon the remnant of the land.  
 
 Here the prophet further describes the woeful and piteous lamentations that should be heard throughout all the country of Moab when it should become a prey to the Assyrian army. "By this time *the cry has gone round about* all *the borders of Moab,*" Isa 15:8. Every corner of the country has received the alarm, and is in the utmost confusion upon it. It has reached to *Eglaim,* a city at one end of the country, and to *Beer-elim,* a city as far the other way. Where sin has been general, and all flesh have corrupted their way, what can be expected but a general desolation? Two things are here spoken of as causes of this lamentation:—
 

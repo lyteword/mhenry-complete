@@ -8,8 +8,8 @@ In this chapter we have, I. The general title of this prophecy (Am 1:1), with th
 
 ## Threatenings of Judgment. (b. c. 790.)
 
-> <sup>1</sup> The words of Amos, who was among the herdmen of Tekoa, which he saw concerning Israel in the days of Uzziah king of Judah, and in the days of Jeroboam the son of Joash king of Israel, two years before the earthquake.  
-> <sup>2</sup> And he said, The LORD will roar from Zion, and utter his voice from Jerusalem; and the habitations of the shepherds shall mourn, and the top of Carmel shall wither.  
+> **¹** The words of Amos, who was among the herdmen of Tekoa, which he saw concerning Israel in the days of Uzziah king of Judah, and in the days of Jeroboam the son of Joash king of Israel, two years before the earthquake.  
+> **²** And he said, The LORD will roar from Zion, and utter his voice from Jerusalem; and the habitations of the shepherds shall mourn, and the top of Carmel shall wither.  
 
 Here is, I. The general character of this prophecy. It consists of *the words which the prophet saw.* Are words to be seen? Yes, God's words are; the apostles speak of the *word of life,* which they had not only *heard,* but *which they had seen with their eyes, which they had looked upon, and which their hands had handled* (1Jo 1:1), such a real substantial thing is the word of God. The prophet saw these words, that is, 1. They were revealed to him in a *vision,* as John is said to see *the voice* that spoke to him, Re 1:12. 2. That which was foretold by them was to him as certain as if he had seen it with his bodily eyes. It intimates how strong he was in that faith which is *the evidence of things not seen.*
 
@@ -23,19 +23,19 @@ V\. The introduction to these prophecies, containing the general scope of them (
 
 ## Threatenings of Judgment. (b. c. 790.)
 
-> <sup>3</sup> Thus saith the LORD; For three transgressions of Damascus, and for four, I will not turn away *the punishment* thereof; because they have threshed Gilead with threshing instruments of iron:  
-> <sup>4</sup> But I will send a fire into the house of Hazael, which shall devour the palaces of Benhadad.  
-> <sup>5</sup> I will break also the bar of Damascus, and cut off the inhabitant from the plain of Aven, and him that holdeth the sceptre from the house of Eden: and the people of Syria shall go into captivity unto Kir, saith the LORD.  
-> <sup>6</sup> Thus saith the LORD; For three transgressions of Gaza, and for four, I will not turn away *the punishment* thereof; because they carried away captive the whole captivity, to deliver *them* up to Edom:  
-> <sup>7</sup> But I will send a fire on the wall of Gaza, which shall devour the palaces thereof:  
-> <sup>8</sup> And I will cut off the inhabitant from Ashdod, and him that holdeth the sceptre from Ashkelon, and I will turn mine hand against Ekron: and the remnant of the Philistines shall perish, saith the Lord GOD.  
-> <sup>9</sup> Thus saith the LORD; For three transgressions of Tyrus, and for four, I will not turn away *the punishment* thereof; because they delivered up the whole captivity to Edom, and remembered not the brotherly covenant:  
-> <sup>10</sup> But I will send a fire on the wall of Tyrus, which shall devour the palaces thereof.  
-> <sup>11</sup> Thus saith the LORD; For three transgressions of Edom, and for four, I will not turn away *the punishment* thereof; because he did pursue his brother with the sword, and did cast off all pity, and his anger did tear perpetually, and he kept his wrath for ever:  
-> <sup>12</sup> But I will send a fire upon Teman, which shall devour the palaces of Bozrah.  
-> <sup>13</sup> Thus saith the LORD; For three transgressions of the children of Ammon, and for four, I will not turn away *the punishment* thereof; because they have ripped up the women with child of Gilead, that they might enlarge their border:  
-> <sup>14</sup> But I will kindle a fire in the wall of Rabbah, and it shall devour the palaces thereof, with shouting in the day of battle, with a tempest in the day of the whirlwind:  
-> <sup>15</sup> And their king shall go into captivity, he and his princes together, saith the LORD.  
+> **³** Thus saith the LORD; For three transgressions of Damascus, and for four, I will not turn away *the punishment* thereof; because they have threshed Gilead with threshing instruments of iron:  
+> **⁴** But I will send a fire into the house of Hazael, which shall devour the palaces of Benhadad.  
+> **⁵** I will break also the bar of Damascus, and cut off the inhabitant from the plain of Aven, and him that holdeth the sceptre from the house of Eden: and the people of Syria shall go into captivity unto Kir, saith the LORD.  
+> **⁶** Thus saith the LORD; For three transgressions of Gaza, and for four, I will not turn away *the punishment* thereof; because they carried away captive the whole captivity, to deliver *them* up to Edom:  
+> **⁷** But I will send a fire on the wall of Gaza, which shall devour the palaces thereof:  
+> **⁸** And I will cut off the inhabitant from Ashdod, and him that holdeth the sceptre from Ashkelon, and I will turn mine hand against Ekron: and the remnant of the Philistines shall perish, saith the Lord GOD.  
+> **⁹** Thus saith the LORD; For three transgressions of Tyrus, and for four, I will not turn away *the punishment* thereof; because they delivered up the whole captivity to Edom, and remembered not the brotherly covenant:  
+> **¹⁰** But I will send a fire on the wall of Tyrus, which shall devour the palaces thereof.  
+> **¹¹** Thus saith the LORD; For three transgressions of Edom, and for four, I will not turn away *the punishment* thereof; because he did pursue his brother with the sword, and did cast off all pity, and his anger did tear perpetually, and he kept his wrath for ever:  
+> **¹²** But I will send a fire upon Teman, which shall devour the palaces of Bozrah.  
+> **¹³** Thus saith the LORD; For three transgressions of the children of Ammon, and for four, I will not turn away *the punishment* thereof; because they have ripped up the women with child of Gilead, that they might enlarge their border:  
+> **¹⁴** But I will kindle a fire in the wall of Rabbah, and it shall devour the palaces thereof, with shouting in the day of battle, with a tempest in the day of the whirlwind:  
+> **¹⁵** And their king shall go into captivity, he and his princes together, saith the LORD.  
 
 What the Lord says here may be explained by what he says Jer 12:14, *Thus said the Lord, against all my evil neighbours that touch the inheritance of my people Israel, Behold, I will pluck them out.* Damascus was a near neighbour to Israel on the north, Tyre and Gaza on the west, Edom on the south, Ammon and (in the next chapter) Moab on the east; and all of them had been, one time, one way, or other, *pricking briers and grieving thorns* to Israel, evil neighbours to them; and, because God espouses his people's cause, he there calls them *his evil neighbours,* and here comes forth to reckon with them. The method is taken in dealing with each of them is, in part, the same, and therefore we put them together, and yet in each there is something peculiar.
 

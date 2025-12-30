@@ -8,14 +8,14 @@ This chapter begins with as melancholy a "but" as almost any we find in all the 
 
 ## Solomon's Defection and Degeneracy. (b. c. 983.)
 
-> <sup>1</sup> But king Solomon loved many strange women, together with the daughter of Pharaoh, women of the Moabites, Ammonites, Edomites, Zidonians, *and* Hittites;  
-> <sup>2</sup> Of the nations *concerning* which the LORD said unto the children of Israel, Ye shall not go in to them, neither shall they come in unto you: *for* surely they will turn away your heart after their gods: Solomon clave unto these in love.  
-> <sup>3</sup> And he had seven hundred wives, princesses, and three hundred concubines: and his wives turned away his heart.  
-> <sup>4</sup> For it came to pass, when Solomon was old, *that* his wives turned away his heart after other gods: and his heart was not perfect with the LORD his God, as *was* the heart of David his father.  
-> <sup>5</sup> For Solomon went after Ashtoreth the goddess of the Zidonians, and after Milcom the abomination of the Ammonites.  
-> <sup>6</sup> And Solomon did evil in the sight of the LORD, and went not fully after the LORD, as *did* David his father.  
-> <sup>7</sup> Then did Solomon build a high place for Chemosh, the abomination of Moab, in the hill that *is* before Jerusalem, and for Molech, the abomination of the children of Ammon.  
-> <sup>8</sup> And likewise did he for all his strange wives, which burnt incense and sacrificed unto their gods.  
+> **¹** But king Solomon loved many strange women, together with the daughter of Pharaoh, women of the Moabites, Ammonites, Edomites, Zidonians, *and* Hittites;  
+> **²** Of the nations *concerning* which the LORD said unto the children of Israel, Ye shall not go in to them, neither shall they come in unto you: *for* surely they will turn away your heart after their gods: Solomon clave unto these in love.  
+> **³** And he had seven hundred wives, princesses, and three hundred concubines: and his wives turned away his heart.  
+> **⁴** For it came to pass, when Solomon was old, *that* his wives turned away his heart after other gods: and his heart was not perfect with the LORD his God, as *was* the heart of David his father.  
+> **⁵** For Solomon went after Ashtoreth the goddess of the Zidonians, and after Milcom the abomination of the Ammonites.  
+> **⁶** And Solomon did evil in the sight of the LORD, and went not fully after the LORD, as *did* David his father.  
+> **⁷** Then did Solomon build a high place for Chemosh, the abomination of Moab, in the hill that *is* before Jerusalem, and for Molech, the abomination of the children of Ammon.  
+> **⁸** And likewise did he for all his strange wives, which burnt incense and sacrificed unto their gods.  
 
 This is a sad story, and very surprising, of Solomon's defection and degeneracy.
 
@@ -33,11 +33,11 @@ II\. Let us now pause awhile, and lament Solomon's fall; and we may justly stand
 
 ## God's Displeasure against Solomon. (b. c. 983.)
 
-> <sup>9</sup> And the LORD was angry with Solomon, because his heart was turned from the LORD God of Israel, which had appeared unto him twice,  
-> <sup>10</sup> And had commanded him concerning this thing, that he should not go after other gods: but he kept not that which the LORD commanded.  
-> <sup>11</sup> Wherefore the LORD said unto Solomon, Forasmuch as this is done of thee, and thou hast not kept my covenant and my statutes, which I have commanded thee, I will surely rend the kingdom from thee, and will give it to thy servant.  
-> <sup>12</sup> Notwithstanding in thy days I will not do it for David thy father's sake: *but* I will rend it out of the hand of thy son.  
-> <sup>13</sup> Howbeit I will not rend away all the kingdom; *but* will give one tribe to thy son for David my servant's sake, and for Jerusalem's sake which I have chosen.  
+> **⁹** And the LORD was angry with Solomon, because his heart was turned from the LORD God of Israel, which had appeared unto him twice,  
+> **¹⁰** And had commanded him concerning this thing, that he should not go after other gods: but he kept not that which the LORD commanded.  
+> **¹¹** Wherefore the LORD said unto Solomon, Forasmuch as this is done of thee, and thou hast not kept my covenant and my statutes, which I have commanded thee, I will surely rend the kingdom from thee, and will give it to thy servant.  
+> **¹²** Notwithstanding in thy days I will not do it for David thy father's sake: *but* I will rend it out of the hand of thy son.  
+> **¹³** Howbeit I will not rend away all the kingdom; *but* will give one tribe to thy son for David my servant's sake, and for Jerusalem's sake which I have chosen.  
 
 Here is, I. God's anger against Solomon for his sin. The thing he did *displeased the Lord.* Time was then the Lord *loved Solomon* (2Sa 12:24) and delighted in him (1Ki 10:9), but now *the Lord was angry with Solomon* (1Ki 11:9), for there was in his sin, 1. The most base ingratitude that could be. He turned from the Lord *who had appeared unto him twice,* once before he began to build the temple (1Ki 3:5) and once after he had dedicated it, 1Ki 9:2. God keeps account of the gracious visits he makes us, whether we do or no, knows how often he has appeared *to* us and *for* us, and will remember it against us if we *turn from him.* God's appearing to Solomon was such a sensible confirmation of his faith as should have for ever prevented his worshipping *any other god;* it was also such a distinguishing favour, and put such an honour upon him, as he ought never to have forgotten, especially considering what God said to him in both these appearances. 2. The most wilful disobedience. This was the very thing concerning which *God had commanded him—that he should not go after other gods,* yet he was not restrained by such an express admonition, 1Ki 11:10. Those who have dominion over men are apt to forget God's dominion over them; and, while they demand obedience from their inferiors, to deny it to him who is the Supreme.
 
@@ -47,18 +47,18 @@ Upon this message which God graciously sent to Solomon, to awaken his conscience
 
 ## Solomon's Adversaries. (b. c. 980.)
 
-> <sup>14</sup> And the LORD stirred up an adversary unto Solomon, Hadad the Edomite: he *was* of the king's seed in Edom.  
-> <sup>15</sup> For it came to pass, when David was in Edom, and Joab the captain of the host was gone up to bury the slain, after he had smitten every male in Edom;  
-> <sup>16</sup> (For six months did Joab remain there with all Israel, until he had cut off every male in Edom:)  
-> <sup>17</sup> That Hadad fled, he and certain Edomites of his father's servants with him, to go into Egypt; Hadad *being* yet a little child.  
-> <sup>18</sup> And they arose out of Midian, and came to Paran: and they took men with them out of Paran, and they came to Egypt, unto Pharaoh king of Egypt; which gave him a house, and appointed him victuals, and gave him land.  
-> <sup>19</sup> And Hadad found great favour in the sight of Pharaoh, so that he gave him to wife the sister of his own wife, the sister of Tahpenes the queen.  
-> <sup>20</sup> And the sister of Tahpenes bare him Genubath his son, whom Tahpenes weaned in Pharaoh's house: and Genubath was in Pharaoh's household among the sons of Pharaoh.  
-> <sup>21</sup> And when Hadad heard in Egypt that David slept with his fathers, and that Joab the captain of the host was dead, Hadad said to Pharaoh, Let me depart, that I may go to mine own country.  
-> <sup>22</sup> Then Pharaoh said unto him, But what hast thou lacked with me, that, behold, thou seekest to go to thine own country? And he answered, Nothing: howbeit let me go in any wise.  
-> <sup>23</sup> And God stirred him up *another* adversary, Rezon the son of Eliadah, which fled from his lord Hadadezer king of Zobah:  
-> <sup>24</sup> And he gathered men unto him, and became captain over a band, when David slew them *of Zobah:* and they went to Damascus, and dwelt therein, and reigned in Damascus.  
-> <sup>25</sup> And he was an adversary to Israel all the days of Solomon, beside the mischief that Hadad *did:* and he abhorred Israel, and reigned over Syria.  
+> **¹⁴** And the LORD stirred up an adversary unto Solomon, Hadad the Edomite: he *was* of the king's seed in Edom.  
+> **¹⁵** For it came to pass, when David was in Edom, and Joab the captain of the host was gone up to bury the slain, after he had smitten every male in Edom;  
+> **¹⁶** (For six months did Joab remain there with all Israel, until he had cut off every male in Edom:)  
+> **¹⁷** That Hadad fled, he and certain Edomites of his father's servants with him, to go into Egypt; Hadad *being* yet a little child.  
+> **¹⁸** And they arose out of Midian, and came to Paran: and they took men with them out of Paran, and they came to Egypt, unto Pharaoh king of Egypt; which gave him a house, and appointed him victuals, and gave him land.  
+> **¹⁹** And Hadad found great favour in the sight of Pharaoh, so that he gave him to wife the sister of his own wife, the sister of Tahpenes the queen.  
+> **²⁰** And the sister of Tahpenes bare him Genubath his son, whom Tahpenes weaned in Pharaoh's house: and Genubath was in Pharaoh's household among the sons of Pharaoh.  
+> **²¹** And when Hadad heard in Egypt that David slept with his fathers, and that Joab the captain of the host was dead, Hadad said to Pharaoh, Let me depart, that I may go to mine own country.  
+> **²²** Then Pharaoh said unto him, But what hast thou lacked with me, that, behold, thou seekest to go to thine own country? And he answered, Nothing: howbeit let me go in any wise.  
+> **²³** And God stirred him up *another* adversary, Rezon the son of Eliadah, which fled from his lord Hadadezer king of Zobah:  
+> **²⁴** And he gathered men unto him, and became captain over a band, when David slew them *of Zobah:* and they went to Damascus, and dwelt therein, and reigned in Damascus.  
+> **²⁵** And he was an adversary to Israel all the days of Solomon, beside the mischief that Hadad *did:* and he abhorred Israel, and reigned over Syria.  
 
 While Solomon kept closely to God and to his duty there was *no adversary nor evil occurrent* (1Ki 5:4), nothing to create him any disturbance or uneasiness in the least; but here we have an account of two adversaries that appeared against him, inconsiderable, and that could not have done any thing worth taking notice of if Solomon had not first made God his enemy. What hurt could Hadad or Rezon have done to so great and powerful a king as Solomon was if he had not, by sin, made himself mean and weak? And then those little people menace and insult him. If God be on our side, we need not fear the greatest adversary; but, if he be against us, he can make us fear the least, and the very grasshopper shall be a burden. Observe,
 
@@ -72,21 +72,21 @@ II\. Both these adversaries had the origin of their enmity to Solomon and Israel
 
 ## Jeroboam's Promotion Foretold. (b. c. 977.)
 
-> <sup>26</sup> And Jeroboam the son of Nebat, an Ephrathite of Zereda, Solomon's servant, whose mother's name *was* Zeruah, a widow woman, even he lifted up *his* hand against the king.  
-> <sup>27</sup> And this *was* the cause that he lifted up *his* hand against the king: Solomon built Millo, *and* repaired the breaches of the city of David his father.  
-> <sup>28</sup> And the man Jeroboam *was* a mighty man of valour: and Solomon seeing the young man that he was industrious, he made him ruler over all the charge of the house of Joseph.  
-> <sup>29</sup> And it came to pass at that time when Jeroboam went out of Jerusalem, that the prophet Ahijah the Shilonite found him in the way; and he had clad himself with a new garment; and they two *were* alone in the field:  
-> <sup>30</sup> And Ahijah caught the new garment that *was* on him, and rent it *in* twelve pieces:  
-> <sup>31</sup> And he said to Jeroboam, Take thee ten pieces: for thus saith the LORD, the God of Israel, Behold, I will rend the kingdom out of the hand of Solomon, and will give ten tribes to thee:  
-> <sup>32</sup> (But he shall have one tribe for my servant David's sake, and for Jerusalem's sake, the city which I have chosen out of all the tribes of Israel:)  
-> <sup>33</sup> Because that they have forsaken me, and have worshipped Ashtoreth the goddess of the Zidonians, Chemosh the god of the Moabites, and Milcom the god of the children of Ammon, and have not walked in my ways, to do *that which is* right in mine eyes, and *to keep* my statutes and my judgments, as *did* David his father.  
-> <sup>34</sup> Howbeit I will not take the whole kingdom out of his hand: but I will make him prince all the days of his life for David my servant's sake, whom I chose, because he kept my commandments and my statutes:  
-> <sup>35</sup> But I will take the kingdom out of his son's hand, and will give it unto thee, *even* ten tribes.  
-> <sup>36</sup> And unto his son will I give one tribe, that David my servant may have a light alway before me in Jerusalem, the city which I have chosen me to put my name there.  
-> <sup>37</sup> And I will take thee, and thou shalt reign according to all that thy soul desireth, and shalt be king over Israel.  
-> <sup>38</sup> And it shall be, if thou wilt hearken unto all that I command thee, and wilt walk in my ways, and do *that is* right in my sight, to keep my statutes and my commandments, as David my servant did; that I will be with thee, and build thee a sure house, as I built for David, and will give Israel unto thee.  
-> <sup>39</sup> And I will for this afflict the seed of David, but not for ever.  
-> <sup>40</sup> Solomon sought therefore to kill Jeroboam. And Jeroboam arose, and fled into Egypt, unto Shishak king of Egypt, and was in Egypt until the death of Solomon.  
+> **²⁶** And Jeroboam the son of Nebat, an Ephrathite of Zereda, Solomon's servant, whose mother's name *was* Zeruah, a widow woman, even he lifted up *his* hand against the king.  
+> **²⁷** And this *was* the cause that he lifted up *his* hand against the king: Solomon built Millo, *and* repaired the breaches of the city of David his father.  
+> **²⁸** And the man Jeroboam *was* a mighty man of valour: and Solomon seeing the young man that he was industrious, he made him ruler over all the charge of the house of Joseph.  
+> **²⁹** And it came to pass at that time when Jeroboam went out of Jerusalem, that the prophet Ahijah the Shilonite found him in the way; and he had clad himself with a new garment; and they two *were* alone in the field:  
+> **³⁰** And Ahijah caught the new garment that *was* on him, and rent it *in* twelve pieces:  
+> **³¹** And he said to Jeroboam, Take thee ten pieces: for thus saith the LORD, the God of Israel, Behold, I will rend the kingdom out of the hand of Solomon, and will give ten tribes to thee:  
+> **³²** (But he shall have one tribe for my servant David's sake, and for Jerusalem's sake, the city which I have chosen out of all the tribes of Israel:)  
+> **³³** Because that they have forsaken me, and have worshipped Ashtoreth the goddess of the Zidonians, Chemosh the god of the Moabites, and Milcom the god of the children of Ammon, and have not walked in my ways, to do *that which is* right in mine eyes, and *to keep* my statutes and my judgments, as *did* David his father.  
+> **³⁴** Howbeit I will not take the whole kingdom out of his hand: but I will make him prince all the days of his life for David my servant's sake, whom I chose, because he kept my commandments and my statutes:  
+> **³⁵** But I will take the kingdom out of his son's hand, and will give it unto thee, *even* ten tribes.  
+> **³⁶** And unto his son will I give one tribe, that David my servant may have a light alway before me in Jerusalem, the city which I have chosen me to put my name there.  
+> **³⁷** And I will take thee, and thou shalt reign according to all that thy soul desireth, and shalt be king over Israel.  
+> **³⁸** And it shall be, if thou wilt hearken unto all that I command thee, and wilt walk in my ways, and do *that is* right in my sight, to keep my statutes and my commandments, as David my servant did; that I will be with thee, and build thee a sure house, as I built for David, and will give Israel unto thee.  
+> **³⁹** And I will for this afflict the seed of David, but not for ever.  
+> **⁴⁰** Solomon sought therefore to kill Jeroboam. And Jeroboam arose, and fled into Egypt, unto Shishak king of Egypt, and was in Egypt until the death of Solomon.  
 
 We have here the first mention of that infamous name *Jeroboam the son of Nebat, that made Israel to sin;* he is here brought upon the stage as an adversary to Solomon, whom God had expressly told (1Ki 11:11) that he would give the greatest part of his kingdom to his servant, and Jeroboam was the man. We have here an account,
 
@@ -100,9 +100,9 @@ IV\. Jeroboam's flight into Egypt, 1Ki 11:40. In some way or other Solomon came 
 
 ## The Death of Solomon. (b. c. 975.)
 
-> <sup>41</sup> And the rest of the acts of Solomon, and all that he did, and his wisdom, *are* they not written in the book of the acts of Solomon?  
-> <sup>42</sup> And the time that Solomon reigned in Jerusalem over all Israel *was* forty years.  
-> <sup>43</sup> And Solomon slept with his fathers, and was buried in the city of David his father: and Rehoboam his son reigned in his stead.  
+> **⁴¹** And the rest of the acts of Solomon, and all that he did, and his wisdom, *are* they not written in the book of the acts of Solomon?  
+> **⁴²** And the time that Solomon reigned in Jerusalem over all Israel *was* forty years.  
+> **⁴³** And Solomon slept with his fathers, and was buried in the city of David his father: and Rehoboam his son reigned in his stead.  
 
 We have here the conclusion of Solomon's story, and in it, 1. Reference is had to another history then extant, but (not being divinely inspired) since lost, *the Book of the Acts of Solomon,* 1Ki 11:41. Probably this book was written by a chronologer or historiographer, whom Solomon employed to write his annals, out of which the sacred writer extracted what God saw fit to transmit to the church. 2. A summary of the years of his reign (1Ki 11:42): *He reigned in Jerusalem* (not, as his father, part of his time in Hebron and part in Jerusalem), *over all Israel* (not as his son, and his father in the beginning of his time, over Judah only), *forty years.* His reign was as long as his father's, but not his life. Sin shortened his days. 3. His death and burial, and his successor, 1Ki 11:43. (1.) He followed his fathers to the grave, slept with them, and was buried in David's burying-place, with honour no doubt. (2.) His son followed him in the throne. Thus the graves are filling with the generations that go off, and houses are filling with those that are growing up. As the grave cries, "Give, give," so land is never lost for want of an heir.
 

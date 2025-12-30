@@ -8,12 +8,12 @@ The first and last of the psalms have both the same number of verses, are both s
 
 ## An Invitation to Praise God; All Creatures Called to Praise God.
 
-> <sup>1</sup> Praise ye the LORD. Praise God in his sanctuary: praise him in the firmament of his power.  
-> <sup>2</sup> Praise him for his mighty acts: praise him according to his excellent greatness.  
-> <sup>3</sup> Praise him with the sound of the trumpet: praise him with the psaltery and harp.  
-> <sup>4</sup> Praise him with the timbrel and dance: praise him with stringed instruments and organs.  
-> <sup>5</sup> Praise him upon the loud cymbals: praise him upon the high sounding cymbals.  
-> <sup>6</sup> Let every thing that hath breath praise the LORD. Praise ye the LORD.  
+> **¹** Praise ye the LORD. Praise God in his sanctuary: praise him in the firmament of his power.  
+> **²** Praise him for his mighty acts: praise him according to his excellent greatness.  
+> **³** Praise him with the sound of the trumpet: praise him with the psaltery and harp.  
+> **⁴** Praise him with the timbrel and dance: praise him with stringed instruments and organs.  
+> **⁵** Praise him upon the loud cymbals: praise him upon the high sounding cymbals.  
+> **⁶** Let every thing that hath breath praise the LORD. Praise ye the LORD.  
 
 We are here, with the greatest earnestness imaginable, excited to praise God; if, as some suppose, this psalm was primarily intended for the Levites, to stir them up to do their office in the house of the Lord, as singers and players on instruments, yet we must take it as speaking to us, who are made to our God spiritual priests. And the repeated inculcating of the call thus intimates that it is a great and necessary duty, a duty which we should be much employed and much enlarged in, but which we are naturally backward to and cold in, and therefore need to be brought to, and held to, by precept upon precept, and line upon line. Observe here,
 

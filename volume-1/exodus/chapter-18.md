@@ -8,12 +8,12 @@ This chapter is concerning Moses himself, and the affairs of his own family. I. 
 
 ## Jethro's Visit to Moses. (b. c. 1491.)
 
-> <sup>1</sup> When Jethro, the priest of Midian, Moses' father in law, heard of all that God had done for Moses, and for Israel his people, *and* that the LORD had brought Israel out of Egypt;  
-> <sup>2</sup> Then Jethro, Moses' father in law, took Zipporah, Moses' wife, after he had sent her back,  
-> <sup>3</sup> And her two sons; of which the name of the one *was* Gershom; for he said, I have been an alien in a strange land:  
-> <sup>4</sup> And the name of the other *was* Eliezer; for the God of my father, *said he, was* mine help, and delivered me from the sword of Pharaoh:  
-> <sup>5</sup> And Jethro, Moses' father in law, came with his sons and his wife unto Moses into the wilderness, where he encamped at the mount of God:  
-> <sup>6</sup> And he said unto Moses, I thy father in law Jethro am come unto thee, and thy wife, and her two sons with her.  
+> **¹** When Jethro, the priest of Midian, Moses' father in law, heard of all that God had done for Moses, and for Israel his people, *and* that the LORD had brought Israel out of Egypt;  
+> **²** Then Jethro, Moses' father in law, took Zipporah, Moses' wife, after he had sent her back,  
+> **³** And her two sons; of which the name of the one *was* Gershom; for he said, I have been an alien in a strange land:  
+> **⁴** And the name of the other *was* Eliezer; for the God of my father, *said he, was* mine help, and delivered me from the sword of Pharaoh:  
+> **⁵** And Jethro, Moses' father in law, came with his sons and his wife unto Moses into the wilderness, where he encamped at the mount of God:  
+> **⁶** And he said unto Moses, I thy father in law Jethro am come unto thee, and thy wife, and her two sons with her.  
 
 This incident may very well be allowed to have happened as it is placed here, before the giving of the law, and not, as some place it, in connection with what is recorded, Nu 10:11,29, etc. Sacrifices were offered before; in these mentioned here (Ex 18:12) it is observable that *Jethro* is said to take them, not *Aaron.* And as to Jethro's advising Moses to constitute judges under him, though it is intimate (Ex 18:13) that the occasion of his giving that advice was *on the morrow,* yet it does not follow but that Moses's settlement of that affair might be some time after, when the law was given, as it is placed, De 1:9. It is plain that Jethro himself would not have him make this alteration in the government till he had received instructions from God about it (Ex 18:23), which he did not till some time after. Jethro comes,
 
@@ -21,12 +21,12 @@ I\. To congratulate the happiness of Israel, and particularly the honour of Mose
 
 II\. To bring Moses's wife and children to him. It seems, he had sent them back, probably from the inn where his wife's aversion to the circumcision of her son had like to have cost him his life (Ex 4:25); fearing lest they should prove a further hindrance, he sent them home to his father-in-law. He foresaw what discouragements he was likely to meet with in the court of Pharaoh, and therefore would not take any with him in his own family. He was of that tribe that said to his father, *I have not known him,* when service was to be done for God, De 33:9. Thus Christ's disciples, when they were to go upon an expedition not much unlike that of Moses, were to forsake *wife and children,* Mt 19:29. But though there might be reason for the separation that was between Moses and his wife for a time, yet they must come together again, as soon as ever they could with any convenience. It is the law of the relation. *You husbands, dwell with your wives,* 1Pe 3:7. Jethro, we may suppose, was glad of his daughter's company, and fond of her children, yet he would not keep her from her husband, nor them from their father, Ex 18:5,6. Moses must have his family with him, that while he ruled the church of God he might set a good example of prudence in family-government, 1Ti 3:5. Moses had now a great deal both of honour and care put upon him, and it was fit that his wife should be with him to share with him in both. Notice is taken of the significant names of his two sons. 1. The eldest was called *Gershom* (Ex 18:3), *a stranger,* Moses designing thereby, not only a memorial of his own condition, but a memorandum to his son of his condition also: for we are all strangers upon earth, as all our fathers were. Moses had a great uncle almost of the same name, *Gershon, a stranger;* for though he was born in Canaan (Ge 46:11), yet even there the patriarchs confessed themselves strangers. 2. The other he called *Eliezer* (Ex 18:4), *My God a help,* as we translate it; it looks back to his deliverance from Pharaoh, when he made his escape, after the slaying of the Egyptian; but, if this was (as some think) the son that was circumcised at the inn as he was going, I would rather translate it so as to look forward, which the original will bear, *The Lord is my help, and will deliver me* from the sword of Pharaoh, which he had reason to expect would be drawn against him when he was going to fetch Israel out of bondage. Note, When we are undertaking any difficult service for God and our generation, it is good for us to encourage ourselves in God as our help: he that has delivered does and will deliver.
 
-> <sup>7</sup> And Moses went out to meet his father in law, and did obeisance, and kissed him; and they asked each other of *their* welfare; and they came into the tent.  
-> <sup>8</sup> And Moses told his father in law all that the LORD had done unto Pharaoh and to the Egyptians for Israel's sake, *and* all the travail that had come upon them by the way, and *how* the LORD delivered them.  
-> <sup>9</sup> And Jethro rejoiced for all the goodness which the LORD had done to Israel, whom he had delivered out of the hand of the Egyptians.  
-> <sup>10</sup> And Jethro said, Blessed *be* the LORD, who hath delivered you out of the hand of the Egyptians, and out of the hand of Pharaoh, who hath delivered the people from under the hand of the Egyptians.  
-> <sup>11</sup> Now I know that the LORD *is* greater than all gods: for in the thing wherein they dealt proudly *he was* above them.  
-> <sup>12</sup> And Jethro, Moses' father in law, took a burnt offering and sacrifices for God: and Aaron came, and all the elders of Israel, to eat bread with Moses' father in law before God.  
+> **⁷** And Moses went out to meet his father in law, and did obeisance, and kissed him; and they asked each other of *their* welfare; and they came into the tent.  
+> **⁸** And Moses told his father in law all that the LORD had done unto Pharaoh and to the Egyptians for Israel's sake, *and* all the travail that had come upon them by the way, and *how* the LORD delivered them.  
+> **⁹** And Jethro rejoiced for all the goodness which the LORD had done to Israel, whom he had delivered out of the hand of the Egyptians.  
+> **¹⁰** And Jethro said, Blessed *be* the LORD, who hath delivered you out of the hand of the Egyptians, and out of the hand of Pharaoh, who hath delivered the people from under the hand of the Egyptians.  
+> **¹¹** Now I know that the LORD *is* greater than all gods: for in the thing wherein they dealt proudly *he was* above them.  
+> **¹²** And Jethro, Moses' father in law, took a burnt offering and sacrifices for God: and Aaron came, and all the elders of Israel, to eat bread with Moses' father in law before God.  
 
 Observe here, I. The kind greeting that took place between Moses and his father-in-law, Ex 18:7. Though Moses was a prophet of the Lord, a great prophet, and king in Jeshurun, yet he showed a very humble respect to his father-in-law. However God in his providence is pleased to advance us, we must make conscience of giving honour to whom honour is due, and never look with disdain upon our poor relations. Those that stand high in the favour of God are not thereby discharged from the duty they owe to men, nor will that justify them in a stately haughty carriage. Moses went out to meet Jethro, did *homage to him, and kissed him.* Religion does not destroy good manners. *They asked each other of their welfare.* Even the kind How-do-you-do's that pass between them are taken notice of, as the expressions and improvements of mutual love and friendship.
 
@@ -38,21 +38,21 @@ IV\. The expressions of their joy and thankfulness. They had communion with each
 
 ## Jethro's Advice to Moses. (b. c. 1491.)
 
-> <sup>13</sup> And it came to pass on the morrow, that Moses sat to judge the people: and the people stood by Moses from the morning unto the evening.  
-> <sup>14</sup> And when Moses' father in law saw all that he did to the people, he said, What *is* this thing that thou doest to the people? why sittest thou thyself alone, and all the people stand by thee from morning unto even?  
-> <sup>15</sup> And Moses said unto his father in law, Because the people come unto me to enquire of God:  
-> <sup>16</sup> When they have a matter, they come unto me; and I judge between one and another, and I do make *them* know the statutes of God, and his laws.  
-> <sup>17</sup> And Moses' father in law said unto him, The thing that thou doest *is* not good.  
-> <sup>18</sup> Thou wilt surely wear away, both thou, and this people that *is* with thee: for this thing *is* too heavy for thee; thou art not able to perform it thyself alone.  
-> <sup>19</sup> Hearken now unto my voice, I will give thee counsel, and God shall be with thee: Be thou for the people to God-ward, that thou mayest bring the causes unto God:  
-> <sup>20</sup> And thou shalt teach them ordinances and laws, and shalt show them the way wherein they must walk, and the work that they must do.  
-> <sup>21</sup> Moreover thou shalt provide out of all the people able men, such as fear God, men of truth, hating covetousness; and place *such* over them, *to be* rulers of thousands, *and* rulers of hundreds, rulers of fifties, and rulers of tens:  
-> <sup>22</sup> And let them judge the people at all seasons: and it shall be, *that* every great matter they shall bring unto thee, but every small matter they shall judge: so shall it be easier for thyself, and they shall bear *the burden* with thee.  
-> <sup>23</sup> If thou shalt do this thing, and God command thee *so,* then thou shalt be able to endure, and all this people shall also go to their place in peace.  
-> <sup>24</sup> So Moses hearkened to the voice of his father in law, and did all that he had said.  
-> <sup>25</sup> And Moses chose able men out of all Israel, and made them heads over the people, rulers of thousands, rulers of hundreds, rulers of fifties, and rulers of tens.  
-> <sup>26</sup> And they judged the people at all seasons: the hard causes they brought unto Moses, but every small matter they judged themselves.  
-> <sup>27</sup> And Moses let his father in law depart; and he went his way into his own land.  
+> **¹³** And it came to pass on the morrow, that Moses sat to judge the people: and the people stood by Moses from the morning unto the evening.  
+> **¹⁴** And when Moses' father in law saw all that he did to the people, he said, What *is* this thing that thou doest to the people? why sittest thou thyself alone, and all the people stand by thee from morning unto even?  
+> **¹⁵** And Moses said unto his father in law, Because the people come unto me to enquire of God:  
+> **¹⁶** When they have a matter, they come unto me; and I judge between one and another, and I do make *them* know the statutes of God, and his laws.  
+> **¹⁷** And Moses' father in law said unto him, The thing that thou doest *is* not good.  
+> **¹⁸** Thou wilt surely wear away, both thou, and this people that *is* with thee: for this thing *is* too heavy for thee; thou art not able to perform it thyself alone.  
+> **¹⁹** Hearken now unto my voice, I will give thee counsel, and God shall be with thee: Be thou for the people to God-ward, that thou mayest bring the causes unto God:  
+> **²⁰** And thou shalt teach them ordinances and laws, and shalt show them the way wherein they must walk, and the work that they must do.  
+> **²¹** Moreover thou shalt provide out of all the people able men, such as fear God, men of truth, hating covetousness; and place *such* over them, *to be* rulers of thousands, *and* rulers of hundreds, rulers of fifties, and rulers of tens:  
+> **²²** And let them judge the people at all seasons: and it shall be, *that* every great matter they shall bring unto thee, but every small matter they shall judge: so shall it be easier for thyself, and they shall bear *the burden* with thee.  
+> **²³** If thou shalt do this thing, and God command thee *so,* then thou shalt be able to endure, and all this people shall also go to their place in peace.  
+> **²⁴** So Moses hearkened to the voice of his father in law, and did all that he had said.  
+> **²⁵** And Moses chose able men out of all Israel, and made them heads over the people, rulers of thousands, rulers of hundreds, rulers of fifties, and rulers of tens.  
+> **²⁶** And they judged the people at all seasons: the hard causes they brought unto Moses, but every small matter they judged themselves.  
+> **²⁷** And Moses let his father in law depart; and he went his way into his own land.  
 
 Here is, I. The great zeal and industry of Moses as a magistrate.
 

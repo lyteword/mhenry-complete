@@ -8,10 +8,10 @@ Solomon's reign looked bloody in the foregoing chapter, but the necessary acts o
 
 ## Solomon Marries Pharaoh's Daughter. (b. c. 1014.)
 
-> <sup>1</sup> And Solomon made affinity with Pharaoh king of Egypt, and took Pharaoh's daughter, and brought her into the city of David, until he had made an end of building his own house, and the house of the LORD, and the wall of Jerusalem round about.  
-> <sup>2</sup> Only the people sacrificed in high places, because there was no house built unto the name of the LORD, until those days.  
-> <sup>3</sup> And Solomon loved the LORD, walking in the statutes of David his father: only he sacrificed and burnt incense in high places.  
-> <sup>4</sup> And the king went to Gibeon to sacrifice there; for that *was* the great high place: a thousand burnt offerings did Solomon offer upon that altar.  
+> **¹** And Solomon made affinity with Pharaoh king of Egypt, and took Pharaoh's daughter, and brought her into the city of David, until he had made an end of building his own house, and the house of the LORD, and the wall of Jerusalem round about.  
+> **²** Only the people sacrificed in high places, because there was no house built unto the name of the LORD, until those days.  
+> **³** And Solomon loved the LORD, walking in the statutes of David his father: only he sacrificed and burnt incense in high places.  
+> **⁴** And the king went to Gibeon to sacrifice there; for that *was* the great high place: a thousand burnt offerings did Solomon offer upon that altar.  
 
 We are here told concerning Solomon,
 
@@ -21,17 +21,17 @@ II\. Here is something concerning which it may be doubted whether it was good or
 
 ## God's Appearance to Solomon. (b. c. 1014.)
 
-> <sup>5</sup> In Gibeon the LORD appeared to Solomon in a dream by night: and God said, Ask what I shall give thee.  
-> <sup>6</sup> And Solomon said, Thou hast showed unto thy servant David my father great mercy, according as he walked before thee in truth, and in righteousness, and in uprightness of heart with thee; and thou hast kept for him this great kindness, that thou hast given him a son to sit on his throne, as *it is* this day.  
-> <sup>7</sup> And now, O LORD my God, thou hast made thy servant king instead of David my father: and I *am but* a little child: I know not *how* to go out or come in.  
-> <sup>8</sup> And thy servant *is* in the midst of thy people which thou hast chosen, a great people, that cannot be numbered nor counted for multitude.  
-> <sup>9</sup> Give therefore thy servant an understanding heart to judge thy people, that I may discern between good and bad: for who is able to judge this thy so great a people?  
-> <sup>10</sup> And the speech pleased the Lord, that Solomon had asked this thing.  
-> <sup>11</sup> And God said unto him, Because thou hast asked this thing, and hast not asked for thyself long life; neither hast asked riches for thyself, nor hast asked the life of thine enemies; but hast asked for thyself understanding to discern judgment;  
-> <sup>12</sup> Behold, I have done according to thy words: lo, I have given thee a wise and an understanding heart; so that there was none like thee before thee, neither after thee shall any arise like unto thee.  
-> <sup>13</sup> And I have also given thee that which thou hast not asked, both riches, and honour: so that there shall not be any among the kings like unto thee all thy days.  
-> <sup>14</sup> And if thou wilt walk in my ways, to keep my statutes and my commandments, as thy father David did walk, then I will lengthen thy days.  
-> <sup>15</sup> And Solomon awoke; and, behold, *it was* a dream. And he came to Jerusalem, and stood before the ark of the covenant of the LORD, and offered up burnt offerings, and offered peace offerings, and made a feast to all his servants.  
+> **⁵** In Gibeon the LORD appeared to Solomon in a dream by night: and God said, Ask what I shall give thee.  
+> **⁶** And Solomon said, Thou hast showed unto thy servant David my father great mercy, according as he walked before thee in truth, and in righteousness, and in uprightness of heart with thee; and thou hast kept for him this great kindness, that thou hast given him a son to sit on his throne, as *it is* this day.  
+> **⁷** And now, O LORD my God, thou hast made thy servant king instead of David my father: and I *am but* a little child: I know not *how* to go out or come in.  
+> **⁸** And thy servant *is* in the midst of thy people which thou hast chosen, a great people, that cannot be numbered nor counted for multitude.  
+> **⁹** Give therefore thy servant an understanding heart to judge thy people, that I may discern between good and bad: for who is able to judge this thy so great a people?  
+> **¹⁰** And the speech pleased the Lord, that Solomon had asked this thing.  
+> **¹¹** And God said unto him, Because thou hast asked this thing, and hast not asked for thyself long life; neither hast asked riches for thyself, nor hast asked the life of thine enemies; but hast asked for thyself understanding to discern judgment;  
+> **¹²** Behold, I have done according to thy words: lo, I have given thee a wise and an understanding heart; so that there was none like thee before thee, neither after thee shall any arise like unto thee.  
+> **¹³** And I have also given thee that which thou hast not asked, both riches, and honour: so that there shall not be any among the kings like unto thee all thy days.  
+> **¹⁴** And if thou wilt walk in my ways, to keep my statutes and my commandments, as thy father David did walk, then I will lengthen thy days.  
+> **¹⁵** And Solomon awoke; and, behold, *it was* a dream. And he came to Jerusalem, and stood before the ark of the covenant of the LORD, and offered up burnt offerings, and offered peace offerings, and made a feast to all his servants.  
 
 We have here an account of a gracious visit which God paid to Solomon, and the communion he had with God in it, which put a greater honour upon Solomon than all the wealth and power of his kingdom did.
 
@@ -53,19 +53,19 @@ III\. The pious request Solomon hereupon made to God. He readily laid hold of th
 
 ## The Wisdom of Solomon. (b. c. 1014.)
 
-> <sup>16</sup> Then came there two women, *that were* harlots, unto the king, and stood before him.  
-> <sup>17</sup> And the one woman said, O my lord, I and this woman dwell in one house; and I was delivered of a child with her in the house.  
-> <sup>18</sup> And it came to pass the third day after that I was delivered, that this woman was delivered also: and we *were* together; *there was* no stranger with us in the house, save we two in the house.  
-> <sup>19</sup> And this woman's child died in the night; because she overlaid it.  
-> <sup>20</sup> And she arose at midnight, and took my son from beside me, while thine handmaid slept, and laid it in her bosom, and laid her dead child in my bosom.  
-> <sup>21</sup> And when I rose in the morning to give my child suck, behold, it was dead: but when I had considered it in the morning, behold, it was not my son, which I did bear.  
-> <sup>22</sup> And the other woman said, Nay; but the living *is* my son, and the dead *is* thy son. And this said, No; but the dead *is* thy son, and the living *is* my son. Thus they spake before the king.  
-> <sup>23</sup> Then said the king, The one saith, This *is* my son that liveth, and thy son *is* the dead: and the other saith, Nay; but thy son *is* the dead, and my son *is* the living.  
-> <sup>24</sup> And the king said, Bring me a sword. And they brought a sword before the king.  
-> <sup>25</sup> And the king said, Divide the living child in two, and give half to the one, and half to the other.  
-> <sup>26</sup> Then spake the woman whose the living child *was* unto the king, for her bowels yearned upon her son, and she said, O my lord, give her the living child, and in no wise slay it. But the other said, Let it be neither mine nor thine, *but* divide *it.*  
-> <sup>27</sup> Then the king answered and said, Give her the living child, and in no wise slay it: she *is* the mother thereof.  
-> <sup>28</sup> And all Israel heard of the judgment which the king had judged; and they feared the king: for they saw that the wisdom of God *was* in him, to do judgment.  
+> **¹⁶** Then came there two women, *that were* harlots, unto the king, and stood before him.  
+> **¹⁷** And the one woman said, O my lord, I and this woman dwell in one house; and I was delivered of a child with her in the house.  
+> **¹⁸** And it came to pass the third day after that I was delivered, that this woman was delivered also: and we *were* together; *there was* no stranger with us in the house, save we two in the house.  
+> **¹⁹** And this woman's child died in the night; because she overlaid it.  
+> **²⁰** And she arose at midnight, and took my son from beside me, while thine handmaid slept, and laid it in her bosom, and laid her dead child in my bosom.  
+> **²¹** And when I rose in the morning to give my child suck, behold, it was dead: but when I had considered it in the morning, behold, it was not my son, which I did bear.  
+> **²²** And the other woman said, Nay; but the living *is* my son, and the dead *is* thy son. And this said, No; but the dead *is* thy son, and the living *is* my son. Thus they spake before the king.  
+> **²³** Then said the king, The one saith, This *is* my son that liveth, and thy son *is* the dead: and the other saith, Nay; but thy son *is* the dead, and my son *is* the living.  
+> **²⁴** And the king said, Bring me a sword. And they brought a sword before the king.  
+> **²⁵** And the king said, Divide the living child in two, and give half to the one, and half to the other.  
+> **²⁶** Then spake the woman whose the living child *was* unto the king, for her bowels yearned upon her son, and she said, O my lord, give her the living child, and in no wise slay it. But the other said, Let it be neither mine nor thine, *but* divide *it.*  
+> **²⁷** Then the king answered and said, Give her the living child, and in no wise slay it: she *is* the mother thereof.  
+> **²⁸** And all Israel heard of the judgment which the king had judged; and they feared the king: for they saw that the wisdom of God *was* in him, to do judgment.  
 
 An instance is here given of Solomon's wisdom, to show that the grant lately made him had a real effect upon him. The proof is fetched, not from the mysteries of state and the policies of the council-board, though there no doubt he excelled, but from the trial and determination of a cause between party and party, which princes, though they devolve them upon their judges, must not think it below them to take cognizance of. Observe,
 

@@ -8,15 +8,15 @@ This chapter, as the former, in intended both for the conviction of idolaters an
 
 ## Idolatry Exposed. (b. c. 708.)
 
-> <sup>1</sup> Keep silence before me, O islands; and let the people renew *their* strength: let them come near; then let them speak: let us come near together to judgment.  
-> <sup>2</sup> Who raised up the righteous *man* from the east, called him to his foot, gave the nations before him, and made *him* rule over kings? he gave *them* as the dust to his sword, *and* as driven stubble to his bow.  
-> <sup>3</sup> He pursued them, *and* passed safely; *even* by the way *that* he had not gone with his feet.  
-> <sup>4</sup> Who hath wrought and done *it,* calling the generations from the beginning? I the LORD, the first, and with the last; I *am* he.  
-> <sup>5</sup> The isles saw *it,* and feared; the ends of the earth were afraid, drew near, and came.  
-> <sup>6</sup> They helped every one his neighbour; and *every one* said to his brother, Be of good courage.  
-> <sup>7</sup> So the carpenter encouraged the goldsmith, *and* he that smootheth *with* the hammer him that smote the anvil, saying, It *is* ready for the sodering: and he fastened it with nails, *that* it should not be moved.  
-> <sup>8</sup> But thou, Israel, *art* my servant, Jacob whom I have chosen, the seed of Abraham my friend.  
-> <sup>9</sup> *Thou* whom I have taken from the ends of the earth, and called thee from the chief men thereof, and said unto thee, Thou *art* my servant; I have chosen thee, and not cast thee away.  
+> **¹** Keep silence before me, O islands; and let the people renew *their* strength: let them come near; then let them speak: let us come near together to judgment.  
+> **²** Who raised up the righteous *man* from the east, called him to his foot, gave the nations before him, and made *him* rule over kings? he gave *them* as the dust to his sword, *and* as driven stubble to his bow.  
+> **³** He pursued them, *and* passed safely; *even* by the way *that* he had not gone with his feet.  
+> **⁴** Who hath wrought and done *it,* calling the generations from the beginning? I the LORD, the first, and with the last; I *am* he.  
+> **⁵** The isles saw *it,* and feared; the ends of the earth were afraid, drew near, and came.  
+> **⁶** They helped every one his neighbour; and *every one* said to his brother, Be of good courage.  
+> **⁷** So the carpenter encouraged the goldsmith, *and* he that smootheth *with* the hammer him that smote the anvil, saying, It *is* ready for the sodering: and he fastened it with nails, *that* it should not be moved.  
+> **⁸** But thou, Israel, *art* my servant, Jacob whom I have chosen, the seed of Abraham my friend.  
+> **⁹** *Thou* whom I have taken from the ends of the earth, and called thee from the chief men thereof, and said unto thee, Thou *art* my servant; I have chosen thee, and not cast thee away.  
 
 That particular instance of God's care for his people Israel in raising up Cyrus to be their deliverer is here insisted upon as a great proof both of his sovereignty above all idols and of his power to protect his people. Here is,
 
@@ -38,17 +38,17 @@ IV\. He encourages his own people to trust in him (Isa 41:8,9): "*But thou, Isra
 
 ## Israel Encouraged. (b. c. 708.)
 
-> <sup>10</sup> Fear thou not; for I *am* with thee: be not dismayed; for I *am* thy God: I will strengthen thee; yea, I will help thee; yea, I will uphold thee with the right hand of my righteousness.  
-> <sup>11</sup> Behold, all they that were incensed against thee shall be ashamed and confounded: they shall be as nothing; and they that strive with thee shall perish.  
-> <sup>12</sup> Thou shalt seek them, and shalt not find them, *even* them that contended with thee: they that war against thee shall be as nothing, and as a thing of nought.  
-> <sup>13</sup> For I the LORD thy God will hold thy right hand, saying unto thee, Fear not; I will help thee.  
-> <sup>14</sup> Fear not, thou worm Jacob, *and* ye men of Israel; I will help thee, saith the LORD, and thy redeemer, the Holy One of Israel.  
-> <sup>15</sup> Behold, I will make thee a new sharp threshing instrument having teeth: thou shalt thresh the mountains, and beat *them* small, and shalt make the hills as chaff.  
-> <sup>16</sup> Thou shalt fan them, and the wind shall carry them away, and the whirlwind shall scatter them: and thou shalt rejoice in the LORD, *and* shalt glory in the Holy One of Israel.  
-> <sup>17</sup> *When* the poor and needy seek water, and *there is* none, *and* their tongue faileth for thirst, I the LORD will hear them, I the God of Israel will not forsake them.  
-> <sup>18</sup> I will open rivers in high places, and fountains in the midst of the valleys: I will make the wilderness a pool of water, and the dry land springs of water.  
-> <sup>19</sup> I will plant in the wilderness the cedar, the shittah tree, and the myrtle, and the oil tree; I will set in the desert the fir tree, *and* the pine, and the box tree together:  
-> <sup>20</sup> That they may see, and know, and consider, and understand together, that the hand of the LORD hath done this, and the Holy One of Israel hath created it.  
+> **¹⁰** Fear thou not; for I *am* with thee: be not dismayed; for I *am* thy God: I will strengthen thee; yea, I will help thee; yea, I will uphold thee with the right hand of my righteousness.  
+> **¹¹** Behold, all they that were incensed against thee shall be ashamed and confounded: they shall be as nothing; and they that strive with thee shall perish.  
+> **¹²** Thou shalt seek them, and shalt not find them, *even* them that contended with thee: they that war against thee shall be as nothing, and as a thing of nought.  
+> **¹³** For I the LORD thy God will hold thy right hand, saying unto thee, Fear not; I will help thee.  
+> **¹⁴** Fear not, thou worm Jacob, *and* ye men of Israel; I will help thee, saith the LORD, and thy redeemer, the Holy One of Israel.  
+> **¹⁵** Behold, I will make thee a new sharp threshing instrument having teeth: thou shalt thresh the mountains, and beat *them* small, and shalt make the hills as chaff.  
+> **¹⁶** Thou shalt fan them, and the wind shall carry them away, and the whirlwind shall scatter them: and thou shalt rejoice in the LORD, *and* shalt glory in the Holy One of Israel.  
+> **¹⁷** *When* the poor and needy seek water, and *there is* none, *and* their tongue faileth for thirst, I the LORD will hear them, I the God of Israel will not forsake them.  
+> **¹⁸** I will open rivers in high places, and fountains in the midst of the valleys: I will make the wilderness a pool of water, and the dry land springs of water.  
+> **¹⁹** I will plant in the wilderness the cedar, the shittah tree, and the myrtle, and the oil tree; I will set in the desert the fir tree, *and* the pine, and the box tree together:  
+> **²⁰** That they may see, and know, and consider, and understand together, that the hand of the LORD hath done this, and the Holy One of Israel hath created it.  
 
 The scope of these verses is to silence the fears, and encourage the faith, of the servants of God in their distresses. Perhaps it is intended, in the first place, for the support of God's Israel, in captivity; but all that faithfully serve God *through patience and comfort of this scripture may have hope.* And it is addressed to Israel as a single person, that it might the more easily and readily be accommodated and applied by every Israelite indeed to himself. That is a word of caution, counsel, and comfort, which is so often repeated, *Fear thou not;* and again (Isa 41:13), *Fear not;* and (Isa 41:14), "*Fear not, thou worm Jacob;* fear not the threatenings of the enemy, doubt not the promise of thy God; fear not that thou shalt perish in thy affliction or that the promise of thy deliverance shall fail." It is against the mind of God that his people should be a timorous people. For the suppressing of fear he assures them,
 
@@ -64,15 +64,15 @@ V\. That they shall have seasonable and suitable supplies of every thing that is
 
 ## Idolatry Exposed. (b. c. 708.)
 
-> <sup>21</sup> Produce your cause, saith the LORD; bring forth your strong *reasons,* saith the King of Jacob.  
-> <sup>22</sup> Let them bring *them* forth, and show us what shall happen: let them show the former things, what they *be,* that we may consider them, and know the latter end of them; or declare us things for to come.  
-> <sup>23</sup> Show the things that are to come hereafter, that we may know that ye *are* gods: yea, do good, or do evil, that we may be dismayed, and behold *it* together.  
-> <sup>24</sup> Behold, ye *are* of nothing, and your work of nought: an abomination *is he that* chooseth you.  
-> <sup>25</sup> I have raised up *one* from the north, and he shall come: from the rising of the sun shall he call upon my name: and he shall come upon princes as *upon* mortar, and as the potter treadeth clay.  
-> <sup>26</sup> Who hath declared from the beginning, that we may know? and beforetime, that we may say, *He is* righteous? yea, *there is* none that showeth, yea, *there is* none that declareth, yea, *there is* none that heareth your words.  
-> <sup>27</sup> The first *shall say* to Zion, Behold, behold them: and I will give to Jerusalem one that bringeth good tidings.  
-> <sup>28</sup> For I beheld, and *there was* no man; even among them, and *there was* no counsellor, that, when I asked of them, could answer a word.  
-> <sup>29</sup> Behold, they *are* all vanity; their works *are* nothing: their molten images *are* wind and confusion.  
+> **²¹** Produce your cause, saith the LORD; bring forth your strong *reasons,* saith the King of Jacob.  
+> **²²** Let them bring *them* forth, and show us what shall happen: let them show the former things, what they *be,* that we may consider them, and know the latter end of them; or declare us things for to come.  
+> **²³** Show the things that are to come hereafter, that we may know that ye *are* gods: yea, do good, or do evil, that we may be dismayed, and behold *it* together.  
+> **²⁴** Behold, ye *are* of nothing, and your work of nought: an abomination *is he that* chooseth you.  
+> **²⁵** I have raised up *one* from the north, and he shall come: from the rising of the sun shall he call upon my name: and he shall come upon princes as *upon* mortar, and as the potter treadeth clay.  
+> **²⁶** Who hath declared from the beginning, that we may know? and beforetime, that we may say, *He is* righteous? yea, *there is* none that showeth, yea, *there is* none that declareth, yea, *there is* none that heareth your words.  
+> **²⁷** The first *shall say* to Zion, Behold, behold them: and I will give to Jerusalem one that bringeth good tidings.  
+> **²⁸** For I beheld, and *there was* no man; even among them, and *there was* no counsellor, that, when I asked of them, could answer a word.  
+> **²⁹** Behold, they *are* all vanity; their works *are* nothing: their molten images *are* wind and confusion.  
 
 The Lord, by the prophet, here repeats the challenge to idolaters to make out the pretentions of their idols: "*Produce your cause* (Isa 41:21) and make your best of it; *bring forth the strongest reasons* you have to prove that your idols are gods, and worthy of your adoration." Note, There needs no more to show the absurdity of sin than to produce the reasons that are given in defence of it, for they carry with them their own confutation.
 

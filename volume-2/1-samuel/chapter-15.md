@@ -8,15 +8,15 @@ In this chapter we have the final rejection of Saul from being king, for his dis
 
 ## The Amalekites Destroyed. (b. c. 1065.)
 
-> <sup>1</sup> Samuel also said unto Saul, The LORD sent me to anoint thee *to be* king over his people, over Israel: now therefore hearken thou unto the voice of the words of the LORD.  
-> <sup>2</sup> Thus saith the LORD of hosts, I remember *that* which Amalek did to Israel, how he laid *wait* for him in the way, when he came up from Egypt.  
-> <sup>3</sup> Now go and smite Amalek, and utterly destroy all that they have, and spare them not; but slay both man and woman, infant and suckling, ox and sheep, camel and ass.  
-> <sup>4</sup> And Saul gathered the people together, and numbered them in Telaim, two hundred thousand footmen, and ten thousand men of Judah.  
-> <sup>5</sup> And Saul came to a city of Amalek, and laid wait in the valley.  
-> <sup>6</sup> And Saul said unto the Kenites, Go, depart, get you down from among the Amalekites, lest I destroy you with them: for ye shewed kindness to all the children of Israel, when they came up out of Egypt. So the Kenites departed from among the Amalekites.  
-> <sup>7</sup> And Saul smote the Amalekites from Havilah *until* thou comest to Shur, that *is* over against Egypt.  
-> <sup>8</sup> And he took Agag the king of the Amalekites alive, and utterly destroyed all the people with the edge of the sword.  
-> <sup>9</sup> But Saul and the people spared Agag, and the best of the sheep, and of the oxen, and of the fatlings, and the lambs, and all *that was* good, and would not utterly destroy them: but every thing *that was* vile and refuse, that they destroyed utterly.  
+> **¹** Samuel also said unto Saul, The LORD sent me to anoint thee *to be* king over his people, over Israel: now therefore hearken thou unto the voice of the words of the LORD.  
+> **²** Thus saith the LORD of hosts, I remember *that* which Amalek did to Israel, how he laid *wait* for him in the way, when he came up from Egypt.  
+> **³** Now go and smite Amalek, and utterly destroy all that they have, and spare them not; but slay both man and woman, infant and suckling, ox and sheep, camel and ass.  
+> **⁴** And Saul gathered the people together, and numbered them in Telaim, two hundred thousand footmen, and ten thousand men of Judah.  
+> **⁵** And Saul came to a city of Amalek, and laid wait in the valley.  
+> **⁶** And Saul said unto the Kenites, Go, depart, get you down from among the Amalekites, lest I destroy you with them: for ye shewed kindness to all the children of Israel, when they came up out of Egypt. So the Kenites departed from among the Amalekites.  
+> **⁷** And Saul smote the Amalekites from Havilah *until* thou comest to Shur, that *is* over against Egypt.  
+> **⁸** And he took Agag the king of the Amalekites alive, and utterly destroyed all the people with the edge of the sword.  
+> **⁹** But Saul and the people spared Agag, and the best of the sheep, and of the oxen, and of the fatlings, and the lambs, and all *that was* good, and would not utterly destroy them: but every thing *that was* vile and refuse, that they destroyed utterly.  
 
 Here, I. Samuel, in God's name, solemnly requires Saul to be obedient to the command of God, and plainly intimates that he was now about to put him upon a trial, in one particular instance, whether he would be obedient or no, 1Sa 15:1. And the making of this so expressly the trial of his obedience did very much aggravate his disobedience. 1. He reminds him of what God had done for him: "*The Lord sent me to anoint thee to be a king.* God gave thee thy power, and therefore he expects thou shouldst use thy power for him. He put honour upon thee, and now thou must study how to do him honour. He made thee king over Israel, and now thou must plead Israel's cause and avenge their quarrels. Thou art advanced to command Israel, but know that thou art a subject to the God of Israel and must be commanded by him." Men's preferment, instead of releasing them from their obedience to God, obliges them so much the more to it. Samuel had himself been employed to anoint Saul, and therefore was the fitter to be sent with these orders to him. 2. He tells him, in general, that, in consideration of this, whatever God commanded him to do he was bound to do it: *Now therefore hearken to the voice of the Lord.* Note, God's favours to us lay strong obligations upon us to be obedient to him. This we must render, Ps 116:12.
 
@@ -32,20 +32,20 @@ VI\. Yet he did his work by halves, 1Sa 15:9. 1. He *spared Agag,* because he wa
 
 ## Samuel Reproves Saul; Saul Rejected of God. (b. c. 1065.)
 
-> <sup>10</sup> Then came the word of the LORD unto Samuel, saying,  
-> <sup>11</sup> It repenteth me that I have set up Saul *to be* king: for he is turned back from following me, and hath not performed my commandments. And it grieved Samuel; and he cried unto the LORD all night.  
-> <sup>12</sup> And when Samuel rose early to meet Saul in the morning, it was told Samuel, saying, Saul came to Carmel, and, behold, he set him up a place, and is gone about, and passed on, and gone down to Gilgal.  
-> <sup>13</sup> And Samuel came to Saul: and Saul said unto him, Blessed *be* thou of the LORD: I have performed the commandment of the LORD.  
-> <sup>14</sup> And Samuel said, What *meaneth* then this bleating of the sheep in mine ears, and the lowing of the oxen which I hear?  
-> <sup>15</sup> And Saul said, They have brought them from the Amalekites: for the people spared the best of the sheep and of the oxen, to sacrifice unto the LORD thy God; and the rest we have utterly destroyed.  
-> <sup>16</sup> Then Samuel said unto Saul, Stay, and I will tell thee what the LORD hath said to me this night. And he said unto him, Say on.  
-> <sup>17</sup> And Samuel said, When thou *wast* little in thine own sight, *wast* thou not *made* the head of the tribes of Israel, and the LORD anointed thee king over Israel?  
-> <sup>18</sup> And the LORD sent thee on a journey, and said, Go and utterly destroy the sinners the Amalekites, and fight against them until they be consumed.  
-> <sup>19</sup> Wherefore then didst thou not obey the voice of the LORD, but didst fly upon the spoil, and didst evil in the sight of the LORD?  
-> <sup>20</sup> And Saul said unto Samuel, Yea, I have obeyed the voice of the LORD, and have gone the way which the LORD sent me, and have brought Agag the king of Amalek, and have utterly destroyed the Amalekites.  
-> <sup>21</sup> But the people took of the spoil, sheep and oxen, the chief of the things which should have been utterly destroyed, to sacrifice unto the LORD thy God in Gilgal.  
-> <sup>22</sup> And Samuel said, Hath the LORD *as great* delight in burnt offerings and sacrifices, as in obeying the voice of the LORD? Behold, to obey *is* better than sacrifice, *and* to hearken than the fat of rams.  
-> <sup>23</sup> For rebellion *is as* the sin of witchcraft, and stubbornness *is as* iniquity and idolatry. Because thou hast rejected the word of the LORD, he hath also rejected thee from *being* king.  
+> **¹⁰** Then came the word of the LORD unto Samuel, saying,  
+> **¹¹** It repenteth me that I have set up Saul *to be* king: for he is turned back from following me, and hath not performed my commandments. And it grieved Samuel; and he cried unto the LORD all night.  
+> **¹²** And when Samuel rose early to meet Saul in the morning, it was told Samuel, saying, Saul came to Carmel, and, behold, he set him up a place, and is gone about, and passed on, and gone down to Gilgal.  
+> **¹³** And Samuel came to Saul: and Saul said unto him, Blessed *be* thou of the LORD: I have performed the commandment of the LORD.  
+> **¹⁴** And Samuel said, What *meaneth* then this bleating of the sheep in mine ears, and the lowing of the oxen which I hear?  
+> **¹⁵** And Saul said, They have brought them from the Amalekites: for the people spared the best of the sheep and of the oxen, to sacrifice unto the LORD thy God; and the rest we have utterly destroyed.  
+> **¹⁶** Then Samuel said unto Saul, Stay, and I will tell thee what the LORD hath said to me this night. And he said unto him, Say on.  
+> **¹⁷** And Samuel said, When thou *wast* little in thine own sight, *wast* thou not *made* the head of the tribes of Israel, and the LORD anointed thee king over Israel?  
+> **¹⁸** And the LORD sent thee on a journey, and said, Go and utterly destroy the sinners the Amalekites, and fight against them until they be consumed.  
+> **¹⁹** Wherefore then didst thou not obey the voice of the LORD, but didst fly upon the spoil, and didst evil in the sight of the LORD?  
+> **²⁰** And Saul said unto Samuel, Yea, I have obeyed the voice of the LORD, and have gone the way which the LORD sent me, and have brought Agag the king of Amalek, and have utterly destroyed the Amalekites.  
+> **²¹** But the people took of the spoil, sheep and oxen, the chief of the things which should have been utterly destroyed, to sacrifice unto the LORD thy God in Gilgal.  
+> **²²** And Samuel said, Hath the LORD *as great* delight in burnt offerings and sacrifices, as in obeying the voice of the LORD? Behold, to obey *is* better than sacrifice, *and* to hearken than the fat of rams.  
+> **²³** For rebellion *is as* the sin of witchcraft, and stubbornness *is as* iniquity and idolatry. Because thou hast rejected the word of the LORD, he hath also rejected thee from *being* king.  
 
 Saul is here called to account by Samuel concerning the execution of his commission against the Amalekites; and remarkable instances we are here furnished with of the strictness of the justice of God and the treachery and deceitfulness of the heart of man. We are here told,
 
@@ -69,14 +69,14 @@ II\. What passed between Samuel and Saul in public. Samuel, being sent of God to
 
 ## Saul's Dethronement Foretold. (b. c. 1065.)
 
-> <sup>24</sup> And Saul said unto Samuel, I have sinned: for I have transgressed the commandment of the LORD, and thy words: because I feared the people, and obeyed their voice.  
-> <sup>25</sup> Now therefore, I pray thee, pardon my sin, and turn again with me, that I may worship the LORD.  
-> <sup>26</sup> And Samuel said unto Saul, I will not return with thee: for thou hast rejected the word of the LORD, and the LORD hath rejected thee from being king over Israel.  
-> <sup>27</sup> And as Samuel turned about to go away, he laid hold upon the skirt of his mantle, and it rent.  
-> <sup>28</sup> And Samuel said unto him, The LORD hath rent the kingdom of Israel from thee this day, and hath given it to a neighbour of thine, *that is* better than thou.  
-> <sup>29</sup> And also the Strength of Israel will not lie nor repent: for he *is* not a man, that he should repent.  
-> <sup>30</sup> Then he said, I have sinned: *yet* honour me now, I pray thee, before the elders of my people, and before Israel, and turn again with me, that I may worship the LORD thy God.  
-> <sup>31</sup> So Samuel turned again after Saul; and Saul worshipped the LORD.  
+> **²⁴** And Saul said unto Samuel, I have sinned: for I have transgressed the commandment of the LORD, and thy words: because I feared the people, and obeyed their voice.  
+> **²⁵** Now therefore, I pray thee, pardon my sin, and turn again with me, that I may worship the LORD.  
+> **²⁶** And Samuel said unto Saul, I will not return with thee: for thou hast rejected the word of the LORD, and the LORD hath rejected thee from being king over Israel.  
+> **²⁷** And as Samuel turned about to go away, he laid hold upon the skirt of his mantle, and it rent.  
+> **²⁸** And Samuel said unto him, The LORD hath rent the kingdom of Israel from thee this day, and hath given it to a neighbour of thine, *that is* better than thou.  
+> **²⁹** And also the Strength of Israel will not lie nor repent: for he *is* not a man, that he should repent.  
+> **³⁰** Then he said, I have sinned: *yet* honour me now, I pray thee, before the elders of my people, and before Israel, and turn again with me, that I may worship the LORD thy God.  
+> **³¹** So Samuel turned again after Saul; and Saul worshipped the LORD.  
 
 Saul is at length brought to put himself into the dress of the penitent; but it is too evident that he only acts the part of a penitent, and is not one indeed. Observe,
 
@@ -86,10 +86,10 @@ II\. How little he got by these thin shows of repentance. What point did he gain
 
 ## Agag Slain. (b. c. 1065.)
 
-> <sup>32</sup> Then said Samuel, Bring ye hither to me Agag the king of the Amalekites. And Agag came unto him delicately. And Agag said, Surely the bitterness of death is past.  
-> <sup>33</sup> And Samuel said, As thy sword hath made women childless, so shall thy mother be childless among women. And Samuel hewed Agag in pieces before the LORD in Gilgal.  
-> <sup>34</sup> Then Samuel went to Ramah; and Saul went up to his house to Gibeah of Saul.  
-> <sup>35</sup> And Samuel came no more to see Saul until the day of his death: nevertheless Samuel mourned for Saul: and the LORD repented that he had made Saul king over Israel.  
+> **³²** Then said Samuel, Bring ye hither to me Agag the king of the Amalekites. And Agag came unto him delicately. And Agag said, Surely the bitterness of death is past.  
+> **³³** And Samuel said, As thy sword hath made women childless, so shall thy mother be childless among women. And Samuel hewed Agag in pieces before the LORD in Gilgal.  
+> **³⁴** Then Samuel went to Ramah; and Saul went up to his house to Gibeah of Saul.  
+> **³⁵** And Samuel came no more to see Saul until the day of his death: nevertheless Samuel mourned for Saul: and the LORD repented that he had made Saul king over Israel.  
 
 Samuel, as a prophet, is here set over kings, Jer 1:10.
 

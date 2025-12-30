@@ -8,11 +8,11 @@ The good work of rebuilding the temple was no sooner begun than it met with oppo
 
 ## Opposition Made to the Jews. (b. c. 535.)
 
-> <sup>1</sup> Now when the adversaries of Judah and Benjamin heard that the children of the captivity builded the temple unto the LORD God of Israel;  
-> <sup>2</sup> Then they came to Zerubbabel, and to the chief of the fathers, and said unto them, Let us build with you: for we seek your God, as ye *do;* and we do sacrifice unto him since the days of Esarhaddon king of Assur, which brought us up hither.  
-> <sup>3</sup> But Zerubbabel, and Jeshua, and the rest of the chief of the fathers of Israel, said unto them, Ye have nothing to do with us to build a house unto our God; but we ourselves together will build unto the LORD God of Israel, as king Cyrus the king of Persia hath commanded us.  
-> <sup>4</sup> Then the people of the land weakened the hands of the people of Judah, and troubled them in building,  
-> <sup>5</sup> And hired counsellors against them, to frustrate their purpose, all the days of Cyrus king of Persia, even until the reign of Darius king of Persia.  
+> **¹** Now when the adversaries of Judah and Benjamin heard that the children of the captivity builded the temple unto the LORD God of Israel;  
+> **²** Then they came to Zerubbabel, and to the chief of the fathers, and said unto them, Let us build with you: for we seek your God, as ye *do;* and we do sacrifice unto him since the days of Esarhaddon king of Assur, which brought us up hither.  
+> **³** But Zerubbabel, and Jeshua, and the rest of the chief of the fathers of Israel, said unto them, Ye have nothing to do with us to build a house unto our God; but we ourselves together will build unto the LORD God of Israel, as king Cyrus the king of Persia hath commanded us.  
+> **⁴** Then the people of the land weakened the hands of the people of Judah, and troubled them in building,  
+> **⁵** And hired counsellors against them, to frustrate their purpose, all the days of Cyrus king of Persia, even until the reign of Darius king of Persia.  
 
 We have here an instance of the old enmity that was put between the seed of the woman and the seed of the serpent. God's temple cannot be built, but Satan will rage, and the *gates of hell* will *fight against it.* The gospel kingdom was, in like manner, to be set up with much struggling and contention. In this respect the glory of the latter house was greater than the glory of the former, and it was more a figure of the temple of Christ's church, in that Solomon built his temple when there was *no adversary nor evil occurrent,* (1Ki 5:4); but this second temple was built notwithstanding great opposition, in the removing and conquering of which, and the bringing of the work to perfection at last in spite of it, the wisdom, power, and goodness of God were much glorified, and the church was encouraged to trust in him.
 
@@ -28,17 +28,17 @@ III\. The opposition they gave had in it much of the subtlety of the old serpent
 
 ## The Jews Misrepresented. (b. c. 521.)
 
-> <sup>6</sup> And in the reign of Ahasuerus, in the beginning of his reign, wrote they *unto him* an accusation against the inhabitants of Judah and Jerusalem.  
-> <sup>7</sup> And in the days of Artaxerxes wrote Bishlam, Mithredath, Tabeel, and the rest of their companions, unto Artaxerxes king of Persia; and the writing of the letter *was* written in the Syrian tongue, and interpreted in the Syrian tongue.  
-> <sup>8</sup> Rehum the chancellor and Shimshai the scribe wrote a letter against Jerusalem to Artaxerxes the king in this sort:  
-> <sup>9</sup> Then *wrote* Rehum the chancellor, and Shimshai the scribe, and the rest of their companions; the Dinaites, the Apharsathchites, the Tarpelites, the Apharsites, the Archevites, the Babylonians, the Susanchites, the Dehavites, *and* the Elamites,  
-> <sup>10</sup> And the rest of the nations whom the great and noble Asnappar brought over, and set in the cities of Samaria, and the rest *that are* on this side the river, and at such a time.  
-> <sup>11</sup> This *is* the copy of the letter that they sent unto him, *even* unto Artaxerxes the king; Thy servants the men on this side the river, and at such a time.  
-> <sup>12</sup> Be it known unto the king, that the Jews which came up from thee to us are come unto Jerusalem, building the rebellious and the bad city, and have set up the walls *thereof,* and joined the foundations.  
-> <sup>13</sup> Be it known now unto the king, that, if this city be builded, and the walls set up *again, then* will they not pay toll, tribute, and custom, and *so* thou shalt endamage the revenue of the kings.  
-> <sup>14</sup> Now because we have maintenance from *the king's* palace, and it was not meet for us to see the king's dishonour, therefore have we sent and certified the king;  
-> <sup>15</sup> That search may be made in the book of the records of thy fathers: so shalt thou find in the book of the records, and know that this city *is* a rebellious city, and hurtful unto kings and provinces, and that they have moved sedition within the same of old time: for which cause was this city destroyed.  
-> <sup>16</sup> We certify the king that, if this city be builded *again,* and the walls thereof set up, by this means thou shalt have no portion on this side the river.  
+> **⁶** And in the reign of Ahasuerus, in the beginning of his reign, wrote they *unto him* an accusation against the inhabitants of Judah and Jerusalem.  
+> **⁷** And in the days of Artaxerxes wrote Bishlam, Mithredath, Tabeel, and the rest of their companions, unto Artaxerxes king of Persia; and the writing of the letter *was* written in the Syrian tongue, and interpreted in the Syrian tongue.  
+> **⁸** Rehum the chancellor and Shimshai the scribe wrote a letter against Jerusalem to Artaxerxes the king in this sort:  
+> **⁹** Then *wrote* Rehum the chancellor, and Shimshai the scribe, and the rest of their companions; the Dinaites, the Apharsathchites, the Tarpelites, the Apharsites, the Archevites, the Babylonians, the Susanchites, the Dehavites, *and* the Elamites,  
+> **¹⁰** And the rest of the nations whom the great and noble Asnappar brought over, and set in the cities of Samaria, and the rest *that are* on this side the river, and at such a time.  
+> **¹¹** This *is* the copy of the letter that they sent unto him, *even* unto Artaxerxes the king; Thy servants the men on this side the river, and at such a time.  
+> **¹²** Be it known unto the king, that the Jews which came up from thee to us are come unto Jerusalem, building the rebellious and the bad city, and have set up the walls *thereof,* and joined the foundations.  
+> **¹³** Be it known now unto the king, that, if this city be builded, and the walls set up *again, then* will they not pay toll, tribute, and custom, and *so* thou shalt endamage the revenue of the kings.  
+> **¹⁴** Now because we have maintenance from *the king's* palace, and it was not meet for us to see the king's dishonour, therefore have we sent and certified the king;  
+> **¹⁵** That search may be made in the book of the records of thy fathers: so shalt thou find in the book of the records, and know that this city *is* a rebellious city, and hurtful unto kings and provinces, and that they have moved sedition within the same of old time: for which cause was this city destroyed.  
+> **¹⁶** We certify the king that, if this city be builded *again,* and the walls thereof set up, by this means thou shalt have no portion on this side the river.  
 
 Cyrus stedfastly adhered to the Jews' interest, and supported his own grant. It was to no purpose to offer any thing to him in prejudice of it. What he did was from a good principle, and in the fear of God, and therefore he adhered to it. But, though his reign in all was thirty years, yet after the conquest of Babylon, and his decree for the release of the Jews, some think that he reigned but three years, others seven, and then either died or gave up that part of his government, in which his successor was Ahasuerus (Ezr 4:6), called also *Artaxerxes* (Ezr 4:7), supposed to be the same that in heathen authors is called *Cambyses,* who had never taken such cognizance of the despised Jews as to concern himself for them, nor had he that knowledge of the God of Israel which his predecessor had. To him these Samaritans applied by letter for an order to stop the building of the temple; and they did it in the beginning of his reign, being resolved to lose no time when they thought they had a king for their purpose. See how watchful the church's enemies are to take the first opportunity of doing it a mischief; let not its friends be less careful to do it a kindness. Here is,
 
@@ -58,14 +58,14 @@ III\. A copy of the letter itself, which Ezra inserts here out of the records of
 
 (3.) Their prognostics of the consequences were altogether groundless and absurd. They were very confident, and would have the king believe it upon their word, that if this city should be built, not only the Jews would *pay no toll, tribute, or custom* (Ezr 4:13), but (since a great lie is as soon spoken as a little one) that the king would have no portion at all on this side the river (Ezr 4:16), that all the countries on this side Euphrates would instantly revolt, drawn in to do so by their example; and, if the prince in possession should connive at this, he would wrong, not only himself, but his successors: *Thou shalt endamage the revenue of the kings.* See how every line in this letter breathes both the subtlety and malice of the old serpent.
 
-> <sup>17</sup> *Then* sent the king an answer unto Rehum the chancellor, and *to* Shimshai the scribe, and *to* the rest of their companions that dwell in Samaria, and *unto* the rest beyond the river, Peace, and at such a time.  
-> <sup>18</sup> The letter which ye sent unto us hath been plainly read before me.  
-> <sup>19</sup> And I commanded, and search hath been made, and it is found that this city of old time hath made insurrection against kings, and *that* rebellion and sedition have been made therein.  
-> <sup>20</sup> There have been mighty kings also over Jerusalem, which have ruled over all *countries* beyond the river; and toll, tribute, and custom, was paid unto them.  
-> <sup>21</sup> Give ye now commandment to cause these men to cease, and that this city be not builded, until *another* commandment shall be given from me.  
-> <sup>22</sup> Take heed now that ye fail not to do this: why should damage grow to the hurt of the kings?  
-> <sup>23</sup> Now when the copy of king Artaxerxes' letter *was* read before Rehum, and Shimshai the scribe, and their companions, they went up in haste to Jerusalem unto the Jews, and made them to cease by force and power.  
-> <sup>24</sup> Then ceased the work of the house of God which *is* at Jerusalem. So it ceased unto the second year of the reign of Darius king of Persia.  
+> **¹⁷** *Then* sent the king an answer unto Rehum the chancellor, and *to* Shimshai the scribe, and *to* the rest of their companions that dwell in Samaria, and *unto* the rest beyond the river, Peace, and at such a time.  
+> **¹⁸** The letter which ye sent unto us hath been plainly read before me.  
+> **¹⁹** And I commanded, and search hath been made, and it is found that this city of old time hath made insurrection against kings, and *that* rebellion and sedition have been made therein.  
+> **²⁰** There have been mighty kings also over Jerusalem, which have ruled over all *countries* beyond the river; and toll, tribute, and custom, was paid unto them.  
+> **²¹** Give ye now commandment to cause these men to cease, and that this city be not builded, until *another* commandment shall be given from me.  
+> **²²** Take heed now that ye fail not to do this: why should damage grow to the hurt of the kings?  
+> **²³** Now when the copy of king Artaxerxes' letter *was* read before Rehum, and Shimshai the scribe, and their companions, they went up in haste to Jerusalem unto the Jews, and made them to cease by force and power.  
+> **²⁴** Then ceased the work of the house of God which *is* at Jerusalem. So it ceased unto the second year of the reign of Darius king of Persia.  
 
 Here we have,
 

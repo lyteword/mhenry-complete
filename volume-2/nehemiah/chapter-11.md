@@ -8,25 +8,25 @@ Jerusalem was walled round, but it was not as yet fully inhabited, and therefore
 
 ## The Re-peopling of Jerusalem. (b. c. 444.)
 
-> <sup>1</sup> And the rulers of the people dwelt at Jerusalem: the rest of the people also cast lots, to bring one of ten to dwell in Jerusalem the holy city, and nine parts *to dwell* in *other* cities.  
-> <sup>2</sup> And the people blessed all the men, that willingly offered themselves to dwell at Jerusalem.  
-> <sup>3</sup> Now these *are* the chief of the province that dwelt in Jerusalem: but in the cities of Judah dwelt every one in his possession in their cities, *to wit,* Israel, the priests, and the Levites, and the Nethinims, and the children of Solomon's servants.  
-> <sup>4</sup> And at Jerusalem dwelt *certain* of the children of Judah, and of the children of Benjamin. Of the children of Judah; Athaiah the son of Uzziah, the son of Zechariah, the son of Amariah, the son of Shephatiah, the son of Mahalaleel, of the children of Perez;  
-> <sup>5</sup> And Maaseiah the son of Baruch, the son of Colhozeh, the son of Hazaiah, the son of Adaiah, the son of Joiarib, the son of Zechariah, the son of Shiloni.  
-> <sup>6</sup> All the sons of Perez that dwelt at Jerusalem *were* four hundred threescore and eight valiant men.  
-> <sup>7</sup> And these *are* the sons of Benjamin; Sallu the son of Meshullam, the son of Joed, the son of Pedaiah, the son of Kolaiah, the son of Maaseiah, the son of Ithiel, the son of Jesaiah.  
-> <sup>8</sup> And after him Gabbai, Sallai, nine hundred twenty and eight.  
-> <sup>9</sup> And Joel the son of Zichri *was* their overseer: and Judah the son of Senuah *was* second over the city.  
-> <sup>10</sup> Of the priests: Jedaiah the son of Joiarib, Jachin.  
-> <sup>11</sup> Seraiah the son of Hilkiah, the son of Meshullam, the son of Zadok, the son of Meraioth, the son of Ahitub, *was* the ruler of the house of God.  
-> <sup>12</sup> And their brethren that did the work of the house *were* eight hundred twenty and two: and Adaiah the son of Jeroham, the son of Pelaliah, the son of Amzi, the son of Zechariah, the son of Pashur, the son of Malchiah,  
-> <sup>13</sup> And his brethren, chief of the fathers, two hundred forty and two: and Amashai the son of Azareel, the son of Ahasai, the son of Meshillemoth, the son of Immer,  
-> <sup>14</sup> And their brethren, mighty men of valour, a hundred twenty and eight: and their overseer *was* Zabdiel, the son of *one of* the great men.  
-> <sup>15</sup> Also of the Levites: Shemaiah the son of Hashub, the son of Azrikam, the son of Hashabiah, the son of Bunni;  
-> <sup>16</sup> And Shabbethai and Jozabad, of the chief of the Levites, *had* the oversight of the outward business of the house of God.  
-> <sup>17</sup> And Mattaniah the son of Micha, the son of Zabdi, the son of Asaph, *was* the principal to begin the thanksgiving in prayer: and Bakbukiah the second among his brethren, and Abda the son of Shammua, the son of Galal, the son of Jeduthun.  
-> <sup>18</sup> All the Levites in the holy city *were* two hundred fourscore and four.  
-> <sup>19</sup> Moreover the porters, Akkub, Talmon, and their brethren that kept the gates, *were* a hundred seventy and two.  
+> **¹** And the rulers of the people dwelt at Jerusalem: the rest of the people also cast lots, to bring one of ten to dwell in Jerusalem the holy city, and nine parts *to dwell* in *other* cities.  
+> **²** And the people blessed all the men, that willingly offered themselves to dwell at Jerusalem.  
+> **³** Now these *are* the chief of the province that dwelt in Jerusalem: but in the cities of Judah dwelt every one in his possession in their cities, *to wit,* Israel, the priests, and the Levites, and the Nethinims, and the children of Solomon's servants.  
+> **⁴** And at Jerusalem dwelt *certain* of the children of Judah, and of the children of Benjamin. Of the children of Judah; Athaiah the son of Uzziah, the son of Zechariah, the son of Amariah, the son of Shephatiah, the son of Mahalaleel, of the children of Perez;  
+> **⁵** And Maaseiah the son of Baruch, the son of Colhozeh, the son of Hazaiah, the son of Adaiah, the son of Joiarib, the son of Zechariah, the son of Shiloni.  
+> **⁶** All the sons of Perez that dwelt at Jerusalem *were* four hundred threescore and eight valiant men.  
+> **⁷** And these *are* the sons of Benjamin; Sallu the son of Meshullam, the son of Joed, the son of Pedaiah, the son of Kolaiah, the son of Maaseiah, the son of Ithiel, the son of Jesaiah.  
+> **⁸** And after him Gabbai, Sallai, nine hundred twenty and eight.  
+> **⁹** And Joel the son of Zichri *was* their overseer: and Judah the son of Senuah *was* second over the city.  
+> **¹⁰** Of the priests: Jedaiah the son of Joiarib, Jachin.  
+> **¹¹** Seraiah the son of Hilkiah, the son of Meshullam, the son of Zadok, the son of Meraioth, the son of Ahitub, *was* the ruler of the house of God.  
+> **¹²** And their brethren that did the work of the house *were* eight hundred twenty and two: and Adaiah the son of Jeroham, the son of Pelaliah, the son of Amzi, the son of Zechariah, the son of Pashur, the son of Malchiah,  
+> **¹³** And his brethren, chief of the fathers, two hundred forty and two: and Amashai the son of Azareel, the son of Ahasai, the son of Meshillemoth, the son of Immer,  
+> **¹⁴** And their brethren, mighty men of valour, a hundred twenty and eight: and their overseer *was* Zabdiel, the son of *one of* the great men.  
+> **¹⁵** Also of the Levites: Shemaiah the son of Hashub, the son of Azrikam, the son of Hashabiah, the son of Bunni;  
+> **¹⁶** And Shabbethai and Jozabad, of the chief of the Levites, *had* the oversight of the outward business of the house of God.  
+> **¹⁷** And Mattaniah the son of Micha, the son of Zabdi, the son of Asaph, *was* the principal to begin the thanksgiving in prayer: and Bakbukiah the second among his brethren, and Abda the son of Shammua, the son of Galal, the son of Jeduthun.  
+> **¹⁸** All the Levites in the holy city *were* two hundred fourscore and four.  
+> **¹⁹** Moreover the porters, Akkub, Talmon, and their brethren that kept the gates, *were* a hundred seventy and two.  
 
 Jerusalem is called here *the holy city* (Ne 11:1), because there the temple was, and that was the place God had chosen to put his name there; upon this account, one would think, the holy seed should all have chosen to dwell there and have striven for a habitation there; but, on the contrary, it seems they declined dwelling there, 1. Because a greater strictness of conversation was expected from the inhabitants of Jerusalem than from others, which they were not willing to come up to. Those who care not for being holy themselves are shy of dwelling in a holy city; they would not dwell in the *New Jerusalem* itself for that reason, but would wish to have a continuing city here upon earth. Or, 2. Because Jerusalem, of all places, was most hated by the heathen their neighbours, and against it their malicious designs were levelled, which made that the post of danger (as the post of honour usually is) and therefore they were not willing to expose themselves there. Fear of persecution and reproach, and of running themselves into trouble, keeps many out of the holy city, and makes them backward to appear for God and religion, not considering that, as Jerusalem is with a special malice threatened and insulted by its enemies, so it is with a special care protected by its God and made a *quiet habitation,* Isa 33:20, Ps 46:4,5. Or, 3. Because it was more for their worldly advantage to dwell in the country. Jerusalem was no trading city, and therefore there was no money to be got there by merchandise, as there was in the country by corn and cattle. Note, *All seek their own, not the things that are Jesus Christ's,* Php 2:21. It is a general and just complaint that most people prefer their own wealth, credit, pleasure, ease, and safety, before the glory of God and the public good. People being thus backward to dwell at Jerusalem, now that it was poor, we are here told,
 
@@ -36,23 +36,23 @@ II\. By what persons it was replenished. A general account is here given of the 
 
 ## The Distribution of the People. (b. c. 444.)
 
-> <sup>20</sup> And the residue of Israel, of the priests, *and* the Levites, *were* in all the cities of Judah, every one in his inheritance.  
-> <sup>21</sup> But the Nethinims dwelt in Ophel: and Ziha and Gispa *were* over the Nethinims.  
-> <sup>22</sup> The overseer also of the Levites at Jerusalem *was* Uzzi the son of Bani, the son of Hashabiah, the son of Mattaniah, the son of Micha. Of the sons of Asaph, the singers *were* over the business of the house of God.  
-> <sup>23</sup> For *it was* the king's commandment concerning them, that a certain portion should be for the singers, due for every day.  
-> <sup>24</sup> And Pethahiah the son of Meshezabeel, of the children of Zerah the son of Judah, *was* at the king's hand in all matters concerning the people.  
-> <sup>25</sup> And for the villages, with their fields, *some* of the children of Judah dwelt at Kirjath-arba, and *in* the villages thereof, and at Dibon, and *in* the villages thereof, and at Jekabzeel, and *in* the villages thereof,  
-> <sup>26</sup> And at Jeshua, and at Moladah, and at Beth-phelet,  
-> <sup>27</sup> And at Hazar-shual, and at Beer-sheba, and *in* the villages thereof,  
-> <sup>28</sup> And at Ziklag, and at Mekonah, and in the villages thereof,  
-> <sup>29</sup> And at En-rimmon, and at Zareah, and at Jarmuth,  
-> <sup>30</sup> Zanoah, Adullam, and *in* their villages, at Lachish, and the fields thereof, at Azekah, and *in* the villages thereof. And they dwelt from Beer-sheba unto the valley of Hinnom.  
-> <sup>31</sup> The children also of Benjamin from Geba *dwelt* at Michmash, and Aija, and Bethel, and *in* their villages,  
-> <sup>32</sup> *And* at Anathoth, Nob, Ananiah,  
-> <sup>33</sup> Hazor, Ramah, Gittaim,  
-> <sup>34</sup> Hadid, Zeboim, Neballat,  
-> <sup>35</sup> Lod, and Ono, the valley of craftsmen.  
-> <sup>36</sup> And of the Levites *were* divisions *in* Judah, *and* in Benjamin.  
+> **²⁰** And the residue of Israel, of the priests, *and* the Levites, *were* in all the cities of Judah, every one in his inheritance.  
+> **²¹** But the Nethinims dwelt in Ophel: and Ziha and Gispa *were* over the Nethinims.  
+> **²²** The overseer also of the Levites at Jerusalem *was* Uzzi the son of Bani, the son of Hashabiah, the son of Mattaniah, the son of Micha. Of the sons of Asaph, the singers *were* over the business of the house of God.  
+> **²³** For *it was* the king's commandment concerning them, that a certain portion should be for the singers, due for every day.  
+> **²⁴** And Pethahiah the son of Meshezabeel, of the children of Zerah the son of Judah, *was* at the king's hand in all matters concerning the people.  
+> **²⁵** And for the villages, with their fields, *some* of the children of Judah dwelt at Kirjath-arba, and *in* the villages thereof, and at Dibon, and *in* the villages thereof, and at Jekabzeel, and *in* the villages thereof,  
+> **²⁶** And at Jeshua, and at Moladah, and at Beth-phelet,  
+> **²⁷** And at Hazar-shual, and at Beer-sheba, and *in* the villages thereof,  
+> **²⁸** And at Ziklag, and at Mekonah, and in the villages thereof,  
+> **²⁹** And at En-rimmon, and at Zareah, and at Jarmuth,  
+> **³⁰** Zanoah, Adullam, and *in* their villages, at Lachish, and the fields thereof, at Azekah, and *in* the villages thereof. And they dwelt from Beer-sheba unto the valley of Hinnom.  
+> **³¹** The children also of Benjamin from Geba *dwelt* at Michmash, and Aija, and Bethel, and *in* their villages,  
+> **³²** *And* at Anathoth, Nob, Ananiah,  
+> **³³** Hazor, Ramah, Gittaim,  
+> **³⁴** Hadid, Zeboim, Neballat,  
+> **³⁵** Lod, and Ono, the valley of craftsmen.  
+> **³⁶** And of the Levites *were* divisions *in* Judah, *and* in Benjamin.  
 
 Having given an account of the principal persons that dwelt in Jerusalem (a larger account of whom he had before, 1Ch 9:2-34, etc.), Nehemiah, in these verses, gives us some account of the other cities, in which dwelt *the residue of Israel,* Ne 11:20. It was requisite that Jerusalem should be replenished, yet not so as to drain the country. *The king himself is served of the field,* which will do little service if there be not hands to manage it. Let there therefore be no strife, no envy, no contempt, no ill will, between the inhabitants of the cities and those of the villages; both are needful, both useful, and neither can be spared. 1. The Nethinims, the posterity of the Gibeonites, dwelt in Ophel, which was upon the wall of Jerusalem (Ne 3:26), because they were to do the servile work of the temple, which therefore they must be posted near to, that they might be ready to attend, Ne 11:21. 2. Though the Levites were dispersed through the cities of Judah, yet they had an overseer who resided in Jerusalem, superior of their order and their provincial, to whom they applied for direction, who took care of their affairs and took cognizance of their conduct, whether they did their duty, Ne 11:22. 3. Some of the singers were appointed to look after the necessary repairs of the temple, being ingenious men, and having leisure between their hours of service; they were *over the business of the house of God,* Ne 11:22. And, it seems, the king of Persia had such a kindness for their office that he allotted a particular maintenance for them, besides what belonged to them as Levites, Ne 11:23. 4. Here is one that was the king's commissioner at Jerusalem. He was of the posterity of Zerah (Ne 11:24); for of *that* family of Judah there were some new settled in Jerusalem, and not all of Pharez, as appears by that other catalogue, 1Ch 9:6. He is said to be *at the king's hand,* or *on the king's part,* in *all matters concerning the people,* to determine controversies that arose between the king's officers and his subjects, to see that what was due to the king from the people was duly paid in and what was allowed by the king for the temple service was duly paid out, and happy it was for the Jews that one of themselves was in this post. 5. Here is an account of the villages, or country towns, which were inhabited by the residue of Israel—the towns in which the children of Judah dwelt (Ne 11:25-30), those that were inhabited by the children of Benjamin (Ne 11:31-35), and divisions for the Levites among both, Ne 11:36. We will now suppose them safe and easy, though few and poor, but by the blessing of God they were likely to increase in wealth and power, and they would have been more likely if there had not been that general profaneness among them, and lukewarmness in religion, with which they were charged in God's name by the prophet Malachi, who, it is supposed, prophesied about this time, and in whom prophecy ceased for some ages, till it revived in the great prophet and his forerunner.
 

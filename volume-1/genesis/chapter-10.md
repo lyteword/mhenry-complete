@@ -8,23 +8,23 @@ This chapter shows more particularly what was said in general (Ge 9:19), concern
 
 ## The Generations of Noah. (b. c. 2347.)
 
-> <sup>1</sup> Now these *are* the generations of the sons of Noah, Shem, Ham, and Japheth: and unto them were sons born after the flood.  
-> <sup>2</sup> The sons of Japheth; Gomer, and Magog, and Madai, and Javan, and Tubal, and Meshech, and Tiras.  
-> <sup>3</sup> And the sons of Gomer; Ashkenaz, and Riphath, and Togarmah.  
-> <sup>4</sup> And the sons of Javan; Elishah, and Tarshish, Kittim, and Dodanim.  
-> <sup>5</sup> By these were the isles of the Gentiles divided in their lands; every one after his tongue, after their families, in their nations.  
+> **¹** Now these *are* the generations of the sons of Noah, Shem, Ham, and Japheth: and unto them were sons born after the flood.  
+> **²** The sons of Japheth; Gomer, and Magog, and Madai, and Javan, and Tubal, and Meshech, and Tiras.  
+> **³** And the sons of Gomer; Ashkenaz, and Riphath, and Togarmah.  
+> **⁴** And the sons of Javan; Elishah, and Tarshish, Kittim, and Dodanim.  
+> **⁵** By these were the isles of the Gentiles divided in their lands; every one after his tongue, after their families, in their nations.  
 
 Moses begins with Japheth's family, either because he was the eldest, or because his family lay remotest from Israel and had least concern with them at the time when Moses wrote, and therefore he mentions that race very briefly, hastening to give an account of the posterity of Ham, who were Israel's enemies and of Shem, who were Israel's ancestors; for it is the church that the scripture is designed to be the history of, and of the nations of the world only as they were some way or other related to Israel and interested in the affairs of Israel. Observe, 1. Notice is taken that the sons of Noah had sons born to them after the flood, to repair and rebuild the world of mankind which the flood had ruined. He that had killed now makes alive. 2. The posterity of Japheth were allotted to the isles of the Gentiles (Ge 10:5), which were solemnly, by lot, after a survey, divided among them, and probably this island of ours among the rest; all places beyond the sea from Judea are called *isles* (Jer 25:22), and this directs us to understand that promise (Isa 42:4), *the isles shall wait for his law,* of the conversion of the Gentiles to the faith of Christ.
 
-> <sup>6</sup> And the sons of Ham; Cush, and Mizraim, and Phut, and Canaan.  
-> <sup>7</sup> And the sons of Cush; Seba, and Havilah, and Sabtah, and Raamah, and Sabtecha: and the sons of Raamah; Sheba, and Dedan.  
-> <sup>8</sup> And Cush begat Nimrod: he began to be a mighty one in the earth.  
-> <sup>9</sup> He was a mighty hunter before the LORD: wherefore it is said; Even as Nimrod the mighty hunter before the LORD.  
-> <sup>10</sup> And the beginning of his kingdom was Babel, and Erech, and Accad, and Calneh, in the land of Shinar.  
-> <sup>11</sup> Out of that land went forth Asshur, and builded Nineveh, and the city Rehoboth, and Calah,  
-> <sup>12</sup> And Resen between Nineveh and Calah: the same *is* a great city.  
-> <sup>13</sup> And Mizraim begat Ludim, and Anamim, and Lehabim, and Naphtuhim,  
-> <sup>14</sup> And Pathrusim, and Casluhim, (out of whom came Philistim,) and Caphtorim.  
+> **⁶** And the sons of Ham; Cush, and Mizraim, and Phut, and Canaan.  
+> **⁷** And the sons of Cush; Seba, and Havilah, and Sabtah, and Raamah, and Sabtecha: and the sons of Raamah; Sheba, and Dedan.  
+> **⁸** And Cush begat Nimrod: he began to be a mighty one in the earth.  
+> **⁹** He was a mighty hunter before the LORD: wherefore it is said; Even as Nimrod the mighty hunter before the LORD.  
+> **¹⁰** And the beginning of his kingdom was Babel, and Erech, and Accad, and Calneh, in the land of Shinar.  
+> **¹¹** Out of that land went forth Asshur, and builded Nineveh, and the city Rehoboth, and Calah,  
+> **¹²** And Resen between Nineveh and Calah: the same *is* a great city.  
+> **¹³** And Mizraim begat Ludim, and Anamim, and Lehabim, and Naphtuhim,  
+> **¹⁴** And Pathrusim, and Casluhim, (out of whom came Philistim,) and Caphtorim.  
 
 That which is observable and improvable in these verses is the account here given of Nimrod, Ge 10:8-10. He is here represented as a great man in his day: *He began to be a mighty one in the earth,* that is, whereas those that went before him were content to stand upon the same level with their neighbours, and though every man bore rule in his own house yet no man pretended any further, Nimrod's aspiring mind could not rest here; he was resolved to tower above his neighbours, not only to be eminent among them, but to lord it over them. The same spirit that actuated the giants before the flood (who became *mighty men, and men of renown,* Ge 6:4), now revived in him, so soon was that tremendous judgment which the pride and tyranny of those mighty men brought upon the world forgotten. Note, There are some in whom ambition and affectation of dominion seem to be bred in the bone; such there have been and will be, notwithstanding the wrath of God often revealed from heaven against them. Nothing on this side hell will humble and break the proud spirits of some men, in this like Lucifer, Isa 14:14,15. Now,
 
@@ -34,27 +34,27 @@ II\. Nimrod was a great ruler: *The beginning of his kingdom was Babel,* Ge 10:1
 
 III\. Nimrod was a great builder. Probably he was architect in the building of Babel, and there he began his kingdom; but, when his project to rule all the sons of Noah was baffled by the confusion of tongues, *out of that land he went forth into Assyria* (so the margin reads it, Ge 10:11) *and built Nineveh,* etc., that, having built these cities, he might command them and rule over them. Observe, in Nimrod, the nature of ambition. 1. It is boundless. Much would have more, and still cries, *Give, give.* 2. It is restless. Nimrod, when he had four cities under his command, could not be content till he had four more. 3. It is expensive. Nimrod will rather be at the charge of rearing cities than not have the honour of ruling them. The spirit of building is the common effect of a spirit of pride. 4. It is daring, and will stick at nothing. Nimrod's name signifies rebellion, which (if indeed he did abuse his power to the oppression of his neighbours) teaches us that tyrants to men are rebels to God, and their *rebellion is as the sin of witchcraft.*
 
-> <sup>15</sup> And Canaan begat Sidon his firstborn, and Heth,  
-> <sup>16</sup> And the Jebusite, and the Amorite, and the Girgasite,  
-> <sup>17</sup> And the Hivite, and the Arkite, and the Sinite,  
-> <sup>18</sup> And the Arvadite, and the Zemarite, and the Hamathite: and afterward were the families of the Canaanites spread abroad.  
-> <sup>19</sup> And the border of the Canaanites was from Sidon, as thou comest to Gerar, unto Gaza; as thou goest, unto Sodom, and Gomorrah, and Admah, and Zeboim, even unto Lasha.  
-> <sup>20</sup> These *are* the sons of Ham, after their families, after their tongues, in their countries, *and* in their nations.  
+> **¹⁵** And Canaan begat Sidon his firstborn, and Heth,  
+> **¹⁶** And the Jebusite, and the Amorite, and the Girgasite,  
+> **¹⁷** And the Hivite, and the Arkite, and the Sinite,  
+> **¹⁸** And the Arvadite, and the Zemarite, and the Hamathite: and afterward were the families of the Canaanites spread abroad.  
+> **¹⁹** And the border of the Canaanites was from Sidon, as thou comest to Gerar, unto Gaza; as thou goest, unto Sodom, and Gomorrah, and Admah, and Zeboim, even unto Lasha.  
+> **²⁰** These *are* the sons of Ham, after their families, after their tongues, in their countries, *and* in their nations.  
 
 Observe here, 1. The account of the posterity of Canaan, of the families and nations that descended from him, and of the land they possessed, is more particular than of any other in this chapter, because these were the nations that were to be subdued before Israel, and their land was in process of time to become the holy land, *Immanuel's land;* and this God had an eye to when, in the meantime, he cast the lot of that accursed devoted race in that spot of ground which he had selected for his own people; this Moses takes notice of, De 32:8, *When the Most High divided to the nations their inheritance, he set the bounds of the people according to the number of the children of Israel.* 2. By this account it appears that the posterity of Canaan were numerous, and rich, and very pleasantly situated; and yet Canaan was under a curse, a divine curse, and not a curse causeless. Note, Those that are under the curse of God may yet perhaps thrive and prosper greatly in this world; for we cannot know love or hatred, the blessing or the curse, by what is before us, but by what is within us, Ec 9:1. The curse of God always works really and always terribly: but perhaps it is a secret curse, a curse to the soul, and does not work visibly, or a slow curse, and does not work immediately; but sinners are by it reserved for, and bound over to, a day of wrath. Canaan here has a better land than either Shem or Japheth, and yet they have a better lot, for they inherit the blessing.
 
-> <sup>21</sup> Unto Shem also, the father of all the children of Eber, the brother of Japheth the elder, even to him were *children* born.  
-> <sup>22</sup> The children of Shem; Elam, and Asshur, and Arphaxad, and Lud, and Aram.  
-> <sup>23</sup> And the children of Aram; Uz, and Hul, and Gether, and Mash.  
-> <sup>24</sup> And Arphaxad begat Salah; and Salah begat Eber.  
-> <sup>25</sup> And unto Eber were born two sons: the name of one *was* Peleg; for in his days was the earth divided; and his brother's name *was* Joktan.  
-> <sup>26</sup> And Joktan begat Almodad, and Sheleph, and Hazarmaveth, and Jerah,  
-> <sup>27</sup> And Hadoram, and Uzal, and Diklah,  
-> <sup>28</sup> And Obal, and Abimael, and Sheba,  
-> <sup>29</sup> And Ophir, and Havilah, and Jobab: all these *were* the sons of Joktan.  
-> <sup>30</sup> And their dwelling was from Mesha, as thou goest unto Sephar a mount of the east.  
-> <sup>31</sup> These *are* the sons of Shem, after their families, after their tongues, in their lands, after their nations.  
-> <sup>32</sup> These *are* the families of the sons of Noah, after their generations, in their nations: and by these were the nations divided in the earth after the flood.  
+> **²¹** Unto Shem also, the father of all the children of Eber, the brother of Japheth the elder, even to him were *children* born.  
+> **²²** The children of Shem; Elam, and Asshur, and Arphaxad, and Lud, and Aram.  
+> **²³** And the children of Aram; Uz, and Hul, and Gether, and Mash.  
+> **²⁴** And Arphaxad begat Salah; and Salah begat Eber.  
+> **²⁵** And unto Eber were born two sons: the name of one *was* Peleg; for in his days was the earth divided; and his brother's name *was* Joktan.  
+> **²⁶** And Joktan begat Almodad, and Sheleph, and Hazarmaveth, and Jerah,  
+> **²⁷** And Hadoram, and Uzal, and Diklah,  
+> **²⁸** And Obal, and Abimael, and Sheba,  
+> **²⁹** And Ophir, and Havilah, and Jobab: all these *were* the sons of Joktan.  
+> **³⁰** And their dwelling was from Mesha, as thou goest unto Sephar a mount of the east.  
+> **³¹** These *are* the sons of Shem, after their families, after their tongues, in their lands, after their nations.  
+> **³²** These *are* the families of the sons of Noah, after their generations, in their nations: and by these were the nations divided in the earth after the flood.  
 
 Two things especially are observable in this account of the posterity of Shem:—
 

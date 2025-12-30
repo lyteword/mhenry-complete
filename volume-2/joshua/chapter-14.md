@@ -8,11 +8,11 @@ Here is, I. The general method that was taken in dividing the land, Jos 14:1-5. 
 
 ## The Distribution of Canaan. (b. c. 1444.)
 
-> <sup>1</sup> And these *are the countries* which the children of Israel inherited in the land of Canaan, which Eleazar the priest, and Joshua the son of Nun, and the heads of the fathers of the tribes of the children of Israel, distributed for inheritance to them.  
-> <sup>2</sup> By lot *was* their inheritance, as the LORD commanded by the hand of Moses, for the nine tribes, and *for* the half tribe.  
-> <sup>3</sup> For Moses had given the inheritance of two tribes and a half tribe on the other side Jordan: but unto the Levites he gave none inheritance among them.  
-> <sup>4</sup> For the children of Joseph were two tribes, Manasseh and Ephraim: therefore they gave no part unto the Levites in the land, save cities to dwell *in,* with their suburbs for their cattle and for their substance.  
-> <sup>5</sup> As the LORD commanded Moses, so the children of Israel did, and they divided the land.  
+> **¹** And these *are the countries* which the children of Israel inherited in the land of Canaan, which Eleazar the priest, and Joshua the son of Nun, and the heads of the fathers of the tribes of the children of Israel, distributed for inheritance to them.  
+> **²** By lot *was* their inheritance, as the LORD commanded by the hand of Moses, for the nine tribes, and *for* the half tribe.  
+> **³** For Moses had given the inheritance of two tribes and a half tribe on the other side Jordan: but unto the Levites he gave none inheritance among them.  
+> **⁴** For the children of Joseph were two tribes, Manasseh and Ephraim: therefore they gave no part unto the Levites in the land, save cities to dwell *in,* with their suburbs for their cattle and for their substance.  
+> **⁵** As the LORD commanded Moses, so the children of Israel did, and they divided the land.  
 
 The historian, having in the foregoing chapter given an account of the disposal of the countries on the other side Jordan, now comes to tell us what they did with the countries in the land of Canaan. They were not conquered to be left desert, *a habitation for dragons, and a court for owls,* Isa 34:13. No, the Israelites that had hitherto been closely encamped in a body, and the greatest part of them such as never knew any other way of living, must now disperse themselves to replenish these new conquests. It is said of the earth, *God created it not in vain; he formed it to be inhabited,* Isa 45:18. Canaan would have been subdued in vain if it had not been inhabited. Yet every man might not go and settle where he pleased, but as there seems to have been in the days of Peleg an orderly and regular division of the habitable earth among the sons of Noah (Ge 10:25,32), so there was now such a division of the land of Canaan among the sons of Jacob. God had given Moses directions how this distribution should be made, and those directions are here punctually observed. See Nu 26:53-56, etc.
 
@@ -24,16 +24,16 @@ III\. The rule by which they went was the lot, Jos 13:2. *The disposal* of that 
 
 ## Caleb's Request. (b. c. 1444.)
 
-> <sup>6</sup> Then the children of Judah came unto Joshua in Gilgal: and Caleb the son of Jephunneh the Kenezite said unto him, Thou knowest the thing that the LORD said unto Moses the man of God concerning me and thee in Kadeshbarnea.  
-> <sup>7</sup> Forty years old *was* I when Moses the servant of the LORD sent me from Kadeshbarnea to espy out the land; and I brought him word again as *it was* in mine heart.  
-> <sup>8</sup> Nevertheless my brethren that went up with me made the heart of the people melt: but I wholly followed the LORD my God.  
-> <sup>9</sup> And Moses sware on that day, saying, Surely the land whereon thy feet have trodden shall be thine inheritance, and thy children's for ever, because thou hast wholly followed the LORD my God.  
-> <sup>10</sup> And now, behold, the LORD hath kept me alive, as he said, these forty and five years, even since the LORD spake this word unto Moses, while *the children of* Israel wandered in the wilderness: and now, lo, I *am* this day fourscore and five years old.  
-> <sup>11</sup> As yet I *am as* strong this day as *I was* in the day that Moses sent me: as my strength *was* then, even so *is* my strength now, for war, both to go out, and to come in.  
-> <sup>12</sup> Now therefore give me this mountain, whereof the LORD spake in that day; for thou heardest in that day how the Anakims *were* there, and *that* the cities *were* great *and* fenced: if so be the LORD *will be* with me, then I shall be able to drive them out, as the LORD said.  
-> <sup>13</sup> And Joshua blessed him, and gave unto Caleb the son of Jephunneh Hebron for an inheritance.  
-> <sup>14</sup> Hebron therefore became the inheritance of Caleb the son of Jephunneh the Kenezite unto this day, because that he wholly followed the LORD God of Israel.  
-> <sup>15</sup> And the name of Hebron before *was* Kirjatharba; *which Arba was* a great man among the Anakims. And the land had rest from war.  
+> **⁶** Then the children of Judah came unto Joshua in Gilgal: and Caleb the son of Jephunneh the Kenezite said unto him, Thou knowest the thing that the LORD said unto Moses the man of God concerning me and thee in Kadeshbarnea.  
+> **⁷** Forty years old *was* I when Moses the servant of the LORD sent me from Kadeshbarnea to espy out the land; and I brought him word again as *it was* in mine heart.  
+> **⁸** Nevertheless my brethren that went up with me made the heart of the people melt: but I wholly followed the LORD my God.  
+> **⁹** And Moses sware on that day, saying, Surely the land whereon thy feet have trodden shall be thine inheritance, and thy children's for ever, because thou hast wholly followed the LORD my God.  
+> **¹⁰** And now, behold, the LORD hath kept me alive, as he said, these forty and five years, even since the LORD spake this word unto Moses, while *the children of* Israel wandered in the wilderness: and now, lo, I *am* this day fourscore and five years old.  
+> **¹¹** As yet I *am as* strong this day as *I was* in the day that Moses sent me: as my strength *was* then, even so *is* my strength now, for war, both to go out, and to come in.  
+> **¹²** Now therefore give me this mountain, whereof the LORD spake in that day; for thou heardest in that day how the Anakims *were* there, and *that* the cities *were* great *and* fenced: if so be the LORD *will be* with me, then I shall be able to drive them out, as the LORD said.  
+> **¹³** And Joshua blessed him, and gave unto Caleb the son of Jephunneh Hebron for an inheritance.  
+> **¹⁴** Hebron therefore became the inheritance of Caleb the son of Jephunneh the Kenezite unto this day, because that he wholly followed the LORD God of Israel.  
+> **¹⁵** And the name of Hebron before *was* Kirjatharba; *which Arba was* a great man among the Anakims. And the land had rest from war.  
 
 Before the lot was cast into the lap for the determining of the portions of the respective tribes, the particular portion of Caleb was assigned to him. He was now, except Joshua, not only the oldest man in all Israel, but was twenty years older than any of them, for all that were above twenty years old when he was forty were dead in the wilderness; it was fit therefore that this phoenix of his age should have some particular marks of honour put upon him in the dividing of the land. Now,
 

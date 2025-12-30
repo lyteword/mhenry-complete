@@ -8,11 +8,11 @@ The prophecy we have in this chapter concerns Baruch only, yet is intended for t
 
 ## Jeremiah's Address to Baruch. (b. c. 607.)
 
-> <sup>1</sup> The word that Jeremiah the prophet spake unto Baruch the son of Neriah, when he had written these words in a book at the mouth of Jeremiah, in the fourth year of Jehoiakim the son of Josiah king of Judah, saying,  
-> <sup>2</sup> Thus saith the LORD, the God of Israel, unto thee, O Baruch;  
-> <sup>3</sup> Thou didst say, Woe is me now! for the LORD hath added grief to my sorrow; I fainted in my sighing, and I find no rest.  
-> <sup>4</sup> Thus shalt thou say unto him, The LORD saith thus; Behold, *that* which I have built will I break down, and that which I have planted I will pluck up, even this whole land.  
-> <sup>5</sup> And seekest thou great things for thyself? seek *them* not: for, behold, I will bring evil upon all flesh, saith the LORD: but thy life will I give unto thee for a prey in all places whither thou goest.  
+> **¹** The word that Jeremiah the prophet spake unto Baruch the son of Neriah, when he had written these words in a book at the mouth of Jeremiah, in the fourth year of Jehoiakim the son of Josiah king of Judah, saying,  
+> **²** Thus saith the LORD, the God of Israel, unto thee, O Baruch;  
+> **³** Thou didst say, Woe is me now! for the LORD hath added grief to my sorrow; I fainted in my sighing, and I find no rest.  
+> **⁴** Thus shalt thou say unto him, The LORD saith thus; Behold, *that* which I have built will I break down, and that which I have planted I will pluck up, even this whole land.  
+> **⁵** And seekest thou great things for thyself? seek *them* not: for, behold, I will bring evil upon all flesh, saith the LORD: but thy life will I give unto thee for a prey in all places whither thou goest.  
 
 How Baruch was employed in writing Jeremiah's prophecies, and reading them, we had an account Jer 36:1-32, and how he was threatened for it by the king, warrants being out for him and he forced to abscond, and how narrowly he escaped under a divine protection, to which story this chapter should have been subjoined, but that, having reference to a private person, it is here thrown into the latter end of the book, as St. Paul's epistle to Philemon is put after his other epistles. Observe,
 

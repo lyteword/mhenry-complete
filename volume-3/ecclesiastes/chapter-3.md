@@ -8,16 +8,16 @@ Solomon having shown the vanity of studies, pleasures, and business, and made it
 
 ## Mutability of Human Affairs.
 
-> <sup>1</sup> To every *thing there is* a season, and a time to every purpose under the heaven:  
-> <sup>2</sup> A time to be born, and a time to die; a time to plant, and a time to pluck up *that which is* planted;  
-> <sup>3</sup> A time to kill, and a time to heal; a time to break down, and a time to build up;  
-> <sup>4</sup> A time to weep, and a time to laugh; a time to mourn, and a time to dance;  
-> <sup>5</sup> A time to cast away stones, and a time to gather stones together; a time to embrace, and a time to refrain from embracing;  
-> <sup>6</sup> A time to get, and a time to lose; a time to keep, and a time to cast away;  
-> <sup>7</sup> A time to rend, and a time to sew; a time to keep silence, and a time to speak;  
-> <sup>8</sup> A time to love, and a time to hate; a time of war, and a time of peace.  
-> <sup>9</sup> What profit hath he that worketh in that wherein he laboureth?  
-> <sup>10</sup> I have seen the travail, which God hath given to the sons of men to be exercised in it.  
+> **¹** To every *thing there is* a season, and a time to every purpose under the heaven:  
+> **²** A time to be born, and a time to die; a time to plant, and a time to pluck up *that which is* planted;  
+> **³** A time to kill, and a time to heal; a time to break down, and a time to build up;  
+> **⁴** A time to weep, and a time to laugh; a time to mourn, and a time to dance;  
+> **⁵** A time to cast away stones, and a time to gather stones together; a time to embrace, and a time to refrain from embracing;  
+> **⁶** A time to get, and a time to lose; a time to keep, and a time to cast away;  
+> **⁷** A time to rend, and a time to sew; a time to keep silence, and a time to speak;  
+> **⁸** A time to love, and a time to hate; a time of war, and a time of peace.  
+> **⁹** What profit hath he that worketh in that wherein he laboureth?  
+> **¹⁰** I have seen the travail, which God hath given to the sons of men to be exercised in it.  
 
 The scope of these verses is to show, 1. That we live in a world of changes, that the several events of time, and conditions of human life, are vastly different from one another, and yet occur promiscuously, and we are continually passing and repassing between them, as in the revolutions of every day and every year. In the *wheel of nature* (Jam 3:6) sometimes one spoke is uppermost and by and by the contrary; there is a constant ebbing and flowing, waxing and waning; from one extreme to the other does the *fashion of this world change,* ever did, and ever will. 2. That every change concerning us, with the time and season of it, is unalterably fixed and determined by a supreme power; and we must take things as they come, for it is not in our power to change what is appointed for us. And this comes in here as a reason why, when we are in prosperity, we should by easy, and yet not secure—not to be secure because we live in a world of changes and therefore have no reason to say, *To-morrow shall be as this day* (the lowest valleys join to the highest mountains), and yet to be easy, and, as he had advised (Ec 2:24), *to enjoy the good of our labour,* in a humble dependence upon God and his providence, neither lifted up with hopes, nor cast down with fears, but with evenness of mind expecting every event. Here we have,
 
@@ -29,11 +29,11 @@ III\. The inferences drawn from this observation. If our present state be subjec
 
 ## Mutability of Human Affairs.
 
-> <sup>11</sup> He hath made every *thing* beautiful in his time: also he hath set the world in their heart, so that no man can find out the work that God maketh from the beginning to the end.  
-> <sup>12</sup> I know that *there is* no good in them, but for *a man* to rejoice, and to do good in his life.  
-> <sup>13</sup> And also that every man should eat and drink, and enjoy the good of all his labour, it *is* the gift of God.  
-> <sup>14</sup> I know that, whatsoever God doeth, it shall be for ever: nothing can be put to it, nor any thing taken from it: and God doeth *it,* that *men* should fear before him.  
-> <sup>15</sup> That which hath been is now; and that which is to be hath already been; and God requireth that which is past.  
+> **¹¹** He hath made every *thing* beautiful in his time: also he hath set the world in their heart, so that no man can find out the work that God maketh from the beginning to the end.  
+> **¹²** I know that *there is* no good in them, but for *a man* to rejoice, and to do good in his life.  
+> **¹³** And also that every man should eat and drink, and enjoy the good of all his labour, it *is* the gift of God.  
+> **¹⁴** I know that, whatsoever God doeth, it shall be for ever: nothing can be put to it, nor any thing taken from it: and God doeth *it,* that *men* should fear before him.  
+> **¹⁵** That which hath been is now; and that which is to be hath already been; and God requireth that which is past.  
 
 We have seen what changes there are in the world, and must not expect to find the world more sure to us than it has been to others. Now here Solomon shows the hand of God in all those changes; it is he that has made every creature to be that to us which it is, and therefore we must have our eye always upon him.
 
@@ -51,13 +51,13 @@ VI\. Whatever changes we see or feel in this world, we must acknowledge the invi
 
 ## Immutability of God's Counsel; The Extent of Mortality.
 
-> <sup>16</sup> And moreover I saw under the sun the place of judgment, *that* wickedness *was* there; and the place of righteousness, *that* iniquity *was* there.  
-> <sup>17</sup> I said in mine heart, God shall judge the righteous and the wicked: for *there is* a time there for every purpose and for every work.  
-> <sup>18</sup> I said in mine heart concerning the estate of the sons of men, that God might manifest them, and that they might see that they themselves are beasts.  
-> <sup>19</sup> For that which befalleth the sons of men befalleth beasts; even one thing befalleth them: as the one dieth, so dieth the other; yea, they have all one breath; so that a man hath no preeminence above a beast: for all *is* vanity.  
-> <sup>20</sup> All go unto one place; all are of the dust, and all turn to dust again.  
-> <sup>21</sup> Who knoweth the spirit of man that goeth upward, and the spirit of the beast that goeth downward to the earth?  
-> <sup>22</sup> Wherefore I perceive that *there is* nothing better, than that a man should rejoice in his own works; for that *is* his portion: for who shall bring him to see what shall be after him?  
+> **¹⁶** And moreover I saw under the sun the place of judgment, *that* wickedness *was* there; and the place of righteousness, *that* iniquity *was* there.  
+> **¹⁷** I said in mine heart, God shall judge the righteous and the wicked: for *there is* a time there for every purpose and for every work.  
+> **¹⁸** I said in mine heart concerning the estate of the sons of men, that God might manifest them, and that they might see that they themselves are beasts.  
+> **¹⁹** For that which befalleth the sons of men befalleth beasts; even one thing befalleth them: as the one dieth, so dieth the other; yea, they have all one breath; so that a man hath no preeminence above a beast: for all *is* vanity.  
+> **²⁰** All go unto one place; all are of the dust, and all turn to dust again.  
+> **²¹** Who knoweth the spirit of man that goeth upward, and the spirit of the beast that goeth downward to the earth?  
+> **²²** Wherefore I perceive that *there is* nothing better, than that a man should rejoice in his own works; for that *is* his portion: for who shall bring him to see what shall be after him?  
 
 Solomon is still showing that every thing in this world, without piety and the fear of God, is vanity. Take away religion, and there is nothing valuable among men, nothing for the sake of which a wise man would think it worth while to live in this world. In these verses he shows that power (than which there is nothing men are more ambitious of) and life itself (than which there is nothing men are more fond, more jealous of) are nothing without the fear of God.
 

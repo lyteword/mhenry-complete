@@ -8,11 +8,11 @@ Still we are celebrating the glories of the kingdom of God among men, and are ca
 
 ## The Dominion of God.
 
-> <sup>1</sup> The LORD reigneth; let the people tremble: he sitteth *between* the cherubims; let the earth be moved.  
-> <sup>2</sup> The LORD *is* great in Zion; and he *is* high above all the people.  
-> <sup>3</sup> Let them praise thy great and terrible name; *for* it *is* holy.  
-> <sup>4</sup> The king's strength also loveth judgment; thou dost establish equity, thou executest judgment and righteousness in Jacob.  
-> <sup>5</sup> Exalt ye the LORD our God, and worship at his footstool; *for* he *is* holy.  
+> **¹** The LORD reigneth; let the people tremble: he sitteth *between* the cherubims; let the earth be moved.  
+> **²** The LORD *is* great in Zion; and he *is* high above all the people.  
+> **³** Let them praise thy great and terrible name; *for* it *is* holy.  
+> **⁴** The king's strength also loveth judgment; thou dost establish equity, thou executest judgment and righteousness in Jacob.  
+> **⁵** Exalt ye the LORD our God, and worship at his footstool; *for* he *is* holy.  
 
 The foundation of all religion is laid in this truth, That *the Lord reigns.* God governs the world by his providence, governs the church by his grace, and both by his Son. We are to believe not only that *the Lord lives,* but that *the Lord reigns.* This is the triumph of the Christian church, and here it was the triumph of the Jewish church, that Jehovah was their King; and hence it is inferred, *Let the people tremble,* that is, 1. Let even the subjects of this kingdom tremble; for the Old-Testament dispensation had much of terror in it. At Mount Sinai Israel, and even Moses himself, did *exceedingly fear and quake;* and then God was *terrible in his holy places.* Even when he appeared in his people's behalf, he did terrible things. But we are not now come to *that mount that burned with fire,* Heb 12:18. Now that *the Lord reigns let the earth rejoice.* Then he ruled more by the power of holy fear; now he rules by the power of holy love. 2. Much more let the enemies of this kingdom tremble; for he will either bring them into obedience to his golden sceptre or crush them with his iron rod. *The Lord reigns, though the people be stirred with indignation* at it; though they fret away all their spirits, their rage is all in vain. He will set his King upon his holy hill of Zion in spite of them (Ps 2:1-6); first, or last, he will make them *tremble,* Re 6:15, etc. *The Lord reigns, let the earth be moved.* Those that submit to him shall be established, and not *moved* (Ps 96:10); but those that oppose him will be moved. Heaven and earth shall be shaken, and all nations; but the kingdom of Christ is what cannot be moved; the *things which cannot be shaken shall remain,* Heb 12:27. *In these is continuance,* Isa 64:5.
 
@@ -24,10 +24,10 @@ II\. Putting these two things together, we see what was the happiness of Israel 
 
 ## Divine Justice and Mercy.
 
-> <sup>6</sup> Moses and Aaron among his priests, and Samuel among them that call upon his name; they called upon the LORD, and he answered them.  
-> <sup>7</sup> He spake unto them in the cloudy pillar: they kept his testimonies, and the ordinance *that* he gave them.  
-> <sup>8</sup> Thou answeredst them, O LORD our God: thou wast a God that forgavest them, though thou tookest vengeance of their inventions.  
-> <sup>9</sup> Exalt the LORD our God, and worship at his holy hill; for the LORD our God *is* holy.  
+> **⁶** Moses and Aaron among his priests, and Samuel among them that call upon his name; they called upon the LORD, and he answered them.  
+> **⁷** He spake unto them in the cloudy pillar: they kept his testimonies, and the ordinance *that* he gave them.  
+> **⁸** Thou answeredst them, O LORD our God: thou wast a God that forgavest them, though thou tookest vengeance of their inventions.  
+> **⁹** Exalt the LORD our God, and worship at his holy hill; for the LORD our God *is* holy.  
 
 The happiness of Israel in God's government is here further made out by some particular instances of his administration, especially with reference to those that were, in their day, the prime leaders and most active useful governors of that people—Moses, Aaron, and Samuel, in the two former of whom the theocracy or divine government began (for they were employed to form Israel into a people) and in the last of whom that form of government, in a great measure, ended; for when the people rejected Samuel, and urged him to resign, they are said to reject God himself, that he should not be so immediately their king as he had been (1Sa 8:7), for now they would have a king, like all the nations. Moses, as well as Aaron, is said to be *among his priests,* for he executed the priest's office till Aaron was settled in it and he consecrated Aaron and his sons; therefore the Jews call him the *priest of the priests.* Now concerning these three chief rulers observe,
 

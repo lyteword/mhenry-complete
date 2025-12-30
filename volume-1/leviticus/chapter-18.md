@@ -8,29 +8,29 @@ Here is, I. A general law against all conformity to the corrupt usages of the he
 
 ## Cautions against Idolatrous Practices. (b. c. 1490.)
 
-> <sup>1</sup> And the LORD spake unto Moses, saying,  
-> <sup>2</sup> Speak unto the children of Israel, and say unto them, I am the LORD your God.  
-> <sup>3</sup> After the doings of the land of Egypt, wherein ye dwelt, shall ye not do: and after the doings of the land of Canaan, whither I bring you, shall ye not do: neither shall ye walk in their ordinances.  
-> <sup>4</sup> Ye shall do my judgments, and keep mine ordinances, to walk therein: I *am* the LORD your God.  
-> <sup>5</sup> Ye shall therefore keep my statutes, and my judgments: which if a man do, he shall live in them: I *am* the LORD.  
+> **¹** And the LORD spake unto Moses, saying,  
+> **²** Speak unto the children of Israel, and say unto them, I am the LORD your God.  
+> **³** After the doings of the land of Egypt, wherein ye dwelt, shall ye not do: and after the doings of the land of Canaan, whither I bring you, shall ye not do: neither shall ye walk in their ordinances.  
+> **⁴** Ye shall do my judgments, and keep mine ordinances, to walk therein: I *am* the LORD your God.  
+> **⁵** Ye shall therefore keep my statutes, and my judgments: which if a man do, he shall live in them: I *am* the LORD.  
 
 After divers ceremonial institutions, God here returns to the enforcement of moral precepts. The former are still of use to us as types, the latter still binding as laws. We have here, 1. The sacred authority by which these laws are enacted: *I am the Lord your God* (Le 18:1,4,30), and *I am the Lord,* Le 18:5,6,21. "The Lord, who has a right to rule all; your God, who has a peculiar right to rule you." Jehovah is the fountain of being, and therefore the fountain of power, whose we are, whom we are bound to serve, and who is able to punish all disobedience. "Your God to whom you have consented, in whom you are happy, to whom you lie under the highest obligations imaginable, and to whom you are accountable." 2. A strict caution to take heed of retaining the relics of the idolatries of Egypt, where they had dwelt, and of receiving the infection of the idolatries of Canaan, whither they were now going, Le 18:3. Now that God was by Moses teaching them his ordinances there was *aliquid dediscendum—something to be unlearned,* which they had sucked in with their milk in Egypt, a country noted for idolatry: *You shall not do after the doings of the land of Egypt.* It would be the greatest absurdity in itself to retain such an affection for their house of bondage as to be governed in their devotions by the usages of it, and the greatest ingratitude to God, who had so wonderfully and graciously delivered them. Nay, as if governed by a spirit of contradiction, they would be in danger, even after they had received these ordinances of God, of admitting the wicked usages of the Canaanites and of inheriting their vices with their land. Of this danger they are here warned, *You shall not walk in their ordinances.* Such a tyrant is custom that their practices are called *ordinances,* and they became rivals even with God's ordinances, and God's professing people were in danger of receiving law from them. 3. A solemn charge to them to *keep God's judgments, statutes, and ordinances,* Le 18:4,5. To this charge, and many similar ones, David seems to refer in the many prayers and professions he makes relating to God's laws in the Ps 119. Observe here, (1.) The great rule of our obedience—God's statutes and judgments. These we must *keep to walk therein.* We must keep them in our books, and keep them in our hands, that we may practise them in our hearts and lives. *Remember God's commandments to do them,* Ps 103:18. We must keep in them as our way to travel in, keep to them as our rule to work by, keep them as our treasure, as the apple of our eye, with the utmost care and value. (2.) The great advantage of our obedience: *Which if a man do, he shall live in them,* that is, "he shall be happy here and hereafter." We have reason to thank God, [1.] That this is still in force as a promise, with a very favourable construction of the condition. If we keep God's commandments in sincerity, though we come short of sinless perfection, we shall find that the way of duty is the way of comfort, and will be the way to happiness. Godliness has the *promise of life,* 1Ti 4:8. Wisdom has said, *Keep my commandments and live:* and *if through the Spirit we mortify the deeds of the body* (which are to us as the usages of Egypt were to Israel) *we shall live.* [2.] That it is not so in force in the nature of a covenant as that the least transgression shall for ever exclude us from this life. The apostle quotes this twice as opposite to the faith which the gospel reveals. It is the description of the *righteousness which is by the law, the man that doeth them shall live* *en autois*—*in them* (Ro 10:5), and is urged to prove that *the law is not of faith,* Ga 3:12. The alteration which the gospel has made is in the last word: still *the man that does them shall live,* but not live *in them;* for the law could not give life, because we could not perfectly keep it; it was *weak through the flesh,* not in itself; but now *the man that does them* shall *live by the faith of the Son of God.* He shall owe his life to the grace of Christ, and not to the merit of his own works; see Ga 3:21,22. *The just shall live,* but they shall live *by faith,* by virtue of their union with Christ, who is their life.
 
 ## Incest Defined and Forbidden; Against Marrying Near Relations. (b. c. 1490.)
 
-> <sup>6</sup> None of you shall approach to any that is near of kin to him, to uncover *their* nakedness: I *am* the LORD.  
-> <sup>7</sup> The nakedness of thy father, or the nakedness of thy mother, shalt thou not uncover: she *is* thy mother; thou shalt not uncover her nakedness.  
-> <sup>8</sup> The nakedness of thy father's wife shalt thou not uncover: it *is* thy father's nakedness.  
-> <sup>9</sup> The nakedness of thy sister, the daughter of thy father, or daughter of thy mother, *whether she be* born at home, or born abroad, *even* their nakedness thou shalt not uncover.  
-> <sup>10</sup> The nakedness of thy son's daughter, or of thy daughter's daughter, *even* their nakedness thou shalt not uncover: for theirs *is* thine own nakedness.  
-> <sup>11</sup> The nakedness of thy father's wife's daughter, begotten of thy father, she *is* thy sister, thou shalt not uncover her nakedness.  
-> <sup>12</sup> Thou shalt not uncover the nakedness of thy father's sister: she *is* thy father's near kinswoman.  
-> <sup>13</sup> Thou shalt not uncover the nakedness of thy mother's sister: for she *is* thy mother's near kinswoman.  
-> <sup>14</sup> Thou shalt not uncover the nakedness of thy father's brother, thou shalt not approach to his wife: she *is* thine aunt.  
-> <sup>15</sup> Thou shalt not uncover the nakedness of thy daughter in law: she *is* thy son's wife; thou shalt not uncover her nakedness.  
-> <sup>16</sup> Thou shalt not uncover the nakedness of thy brother's wife: it *is* thy brother's nakedness.  
-> <sup>17</sup> Thou shalt not uncover the nakedness of a woman and her daughter, neither shalt thou take her son's daughter, or her daughter's daughter, to uncover her nakedness; *for* they *are* her near kinswomen: it *is* wickedness.  
-> <sup>18</sup> Neither shalt thou take a wife to her sister, to vex *her,* to uncover her nakedness, beside the other in her life *time.*  
+> **⁶** None of you shall approach to any that is near of kin to him, to uncover *their* nakedness: I *am* the LORD.  
+> **⁷** The nakedness of thy father, or the nakedness of thy mother, shalt thou not uncover: she *is* thy mother; thou shalt not uncover her nakedness.  
+> **⁸** The nakedness of thy father's wife shalt thou not uncover: it *is* thy father's nakedness.  
+> **⁹** The nakedness of thy sister, the daughter of thy father, or daughter of thy mother, *whether she be* born at home, or born abroad, *even* their nakedness thou shalt not uncover.  
+> **¹⁰** The nakedness of thy son's daughter, or of thy daughter's daughter, *even* their nakedness thou shalt not uncover: for theirs *is* thine own nakedness.  
+> **¹¹** The nakedness of thy father's wife's daughter, begotten of thy father, she *is* thy sister, thou shalt not uncover her nakedness.  
+> **¹²** Thou shalt not uncover the nakedness of thy father's sister: she *is* thy father's near kinswoman.  
+> **¹³** Thou shalt not uncover the nakedness of thy mother's sister: for she *is* thy mother's near kinswoman.  
+> **¹⁴** Thou shalt not uncover the nakedness of thy father's brother, thou shalt not approach to his wife: she *is* thine aunt.  
+> **¹⁵** Thou shalt not uncover the nakedness of thy daughter in law: she *is* thy son's wife; thou shalt not uncover her nakedness.  
+> **¹⁶** Thou shalt not uncover the nakedness of thy brother's wife: it *is* thy brother's nakedness.  
+> **¹⁷** Thou shalt not uncover the nakedness of a woman and her daughter, neither shalt thou take her son's daughter, or her daughter's daughter, to uncover her nakedness; *for* they *are* her near kinswomen: it *is* wickedness.  
+> **¹⁸** Neither shalt thou take a wife to her sister, to vex *her,* to uncover her nakedness, beside the other in her life *time.*  
 
 These laws relate to the seventh commandment, and, no doubt, are obligatory on us under the gospel, for they are consonant to the very light and law of nature: one of the articles, that of a man's having his father's wife, the apostle speaks of as a sin *not so much as named among the Gentiles,* 1Co 5:1. Though some of the incests here forbidden were practised by some particular persons among the heathen, yet they were disallowed and detested, unless among those nations who had become barbarous, and were quite given up to vile affections. Observe,
 
@@ -44,18 +44,18 @@ II\. The relations forbidden are most of them plainly described; and it is gener
 
 ## Laws against Iniquity. (b. c. 1490.)
 
-> <sup>19</sup> Also thou shalt not approach unto a woman to uncover her nakedness, as long as she is put apart for her uncleanness.  
-> <sup>20</sup> Moreover thou shalt not lie carnally with thy neighbour's wife, to defile thyself with her.  
-> <sup>21</sup> And thou shalt not let any of thy seed pass through *the fire* to Molech, neither shalt thou profane the name of thy God: I *am* the LORD.  
-> <sup>22</sup> Thou shalt not lie with mankind, as with womankind: it *is* abomination.  
-> <sup>23</sup> Neither shalt thou lie with any beast to defile thyself therewith: neither shall any woman stand before a beast to lie down thereto: it *is* confusion.  
-> <sup>24</sup> Defile not ye yourselves in any of these things: for in all these the nations are defiled which I cast out before you:  
-> <sup>25</sup> And the land is defiled: therefore I do visit the iniquity thereof upon it, and the land itself vomiteth out her inhabitants.  
-> <sup>26</sup> Ye shall therefore keep my statutes and my judgments, and shall not commit *any* of these abominations; *neither* any of your own nation, nor any stranger that sojourneth among you:  
-> <sup>27</sup> (For all these abominations have the men of the land done, which *were* before you, and the land is defiled;)  
-> <sup>28</sup> That the land spue not you out also, when ye defile it, as it spued out the nations that *were* before you.  
-> <sup>29</sup> For whosoever shall commit any of these abominations, even the souls that commit *them* shall be cut off from among their people.  
-> <sup>30</sup> Therefore shall ye keep mine ordinance, that *ye* commit not *any one* of these abominable customs, which were committed before you, and that ye defile not yourselves therein: I *am* the LORD your God.  
+> **¹⁹** Also thou shalt not approach unto a woman to uncover her nakedness, as long as she is put apart for her uncleanness.  
+> **²⁰** Moreover thou shalt not lie carnally with thy neighbour's wife, to defile thyself with her.  
+> **²¹** And thou shalt not let any of thy seed pass through *the fire* to Molech, neither shalt thou profane the name of thy God: I *am* the LORD.  
+> **²²** Thou shalt not lie with mankind, as with womankind: it *is* abomination.  
+> **²³** Neither shalt thou lie with any beast to defile thyself therewith: neither shall any woman stand before a beast to lie down thereto: it *is* confusion.  
+> **²⁴** Defile not ye yourselves in any of these things: for in all these the nations are defiled which I cast out before you:  
+> **²⁵** And the land is defiled: therefore I do visit the iniquity thereof upon it, and the land itself vomiteth out her inhabitants.  
+> **²⁶** Ye shall therefore keep my statutes and my judgments, and shall not commit *any* of these abominations; *neither* any of your own nation, nor any stranger that sojourneth among you:  
+> **²⁷** (For all these abominations have the men of the land done, which *were* before you, and the land is defiled;)  
+> **²⁸** That the land spue not you out also, when ye defile it, as it spued out the nations that *were* before you.  
+> **²⁹** For whosoever shall commit any of these abominations, even the souls that commit *them* shall be cut off from among their people.  
+> **³⁰** Therefore shall ye keep mine ordinance, that *ye* commit not *any one* of these abominable customs, which were committed before you, and that ye defile not yourselves therein: I *am* the LORD your God.  
 
 Here is, I. A law to preserve the honour of the marriage-bed, that it should not be unseasonably used (Le 18:19), nor invaded by an adulterer, Le 18:20.
 

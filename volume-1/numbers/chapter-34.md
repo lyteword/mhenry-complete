@@ -8,21 +8,21 @@ In this chapter God directs Moses, and he is to direct Israel, I. Concerning the
 
 ## The Boundaries of Canaan. (b. c. 1452.)
 
-> <sup>1</sup> And the LORD spake unto Moses, saying,  
-> <sup>2</sup> Command the children of Israel, and say unto them, When ye come into the land of Canaan; (this *is* the land that shall fall unto you for an inheritance, *even* the land of Canaan with the coasts thereof:)  
-> <sup>3</sup> Then your south quarter shall be from the wilderness of Zin along by the coast of Edom, and your south border shall be the outmost coast of the salt sea eastward:  
-> <sup>4</sup> And your border shall turn from the south to the ascent of Akrabbim, and pass on to Zin: and the going forth thereof shall be from the south to Kadesh-barnea, and shall go on to Hazar-addar, and pass on to Azmon:  
-> <sup>5</sup> And the border shall fetch a compass from Azmon unto the river of Egypt, and the goings out of it shall be at the sea.  
-> <sup>6</sup> And *as for* the western border, ye shall even have the great sea for a border: this shall be your west border.  
-> <sup>7</sup> And this shall be your north border: from the great sea ye shall point out for you mount Hor:  
-> <sup>8</sup> From mount Hor ye shall point out *your border* unto the entrance of Hamath; and the goings forth of the border shall be to Zedad:  
-> <sup>9</sup> And the border shall go on to Ziphron, and the goings out of it shall be at Hazar-enan: this shall be your north border.  
-> <sup>10</sup> And ye shall point out your east border from Hazar-enan to Shepham:  
-> <sup>11</sup> And the coast shall go down from Shepham to Riblah, on the east side of Ain; and the border shall descend, and shall reach unto the side of the sea of Chinnereth eastward:  
-> <sup>12</sup> And the border shall go down to Jordan, and the goings out of it shall be at the salt sea: this shall be your land with the coasts thereof round about.  
-> <sup>13</sup> And Moses commanded the children of Israel, saying, This *is* the land which ye shall inherit by lot, which the LORD commanded to give unto the nine tribes, and to the half tribe:  
-> <sup>14</sup> For the tribe of the children of Reuben according to the house of their fathers, and the tribe of the children of Gad according to the house of their fathers, have received *their inheritance;* and half the tribe of Manasseh have received their inheritance:  
-> <sup>15</sup> The two tribes and the half tribe have received their inheritance on this side Jordan *near* Jericho eastward, toward the sunrising.  
+> **¹** And the LORD spake unto Moses, saying,  
+> **²** Command the children of Israel, and say unto them, When ye come into the land of Canaan; (this *is* the land that shall fall unto you for an inheritance, *even* the land of Canaan with the coasts thereof:)  
+> **³** Then your south quarter shall be from the wilderness of Zin along by the coast of Edom, and your south border shall be the outmost coast of the salt sea eastward:  
+> **⁴** And your border shall turn from the south to the ascent of Akrabbim, and pass on to Zin: and the going forth thereof shall be from the south to Kadesh-barnea, and shall go on to Hazar-addar, and pass on to Azmon:  
+> **⁵** And the border shall fetch a compass from Azmon unto the river of Egypt, and the goings out of it shall be at the sea.  
+> **⁶** And *as for* the western border, ye shall even have the great sea for a border: this shall be your west border.  
+> **⁷** And this shall be your north border: from the great sea ye shall point out for you mount Hor:  
+> **⁸** From mount Hor ye shall point out *your border* unto the entrance of Hamath; and the goings forth of the border shall be to Zedad:  
+> **⁹** And the border shall go on to Ziphron, and the goings out of it shall be at Hazar-enan: this shall be your north border.  
+> **¹⁰** And ye shall point out your east border from Hazar-enan to Shepham:  
+> **¹¹** And the coast shall go down from Shepham to Riblah, on the east side of Ain; and the border shall descend, and shall reach unto the side of the sea of Chinnereth eastward:  
+> **¹²** And the border shall go down to Jordan, and the goings out of it shall be at the salt sea: this shall be your land with the coasts thereof round about.  
+> **¹³** And Moses commanded the children of Israel, saying, This *is* the land which ye shall inherit by lot, which the LORD commanded to give unto the nine tribes, and to the half tribe:  
+> **¹⁴** For the tribe of the children of Reuben according to the house of their fathers, and the tribe of the children of Gad according to the house of their fathers, have received *their inheritance;* and half the tribe of Manasseh have received their inheritance:  
+> **¹⁵** The two tribes and the half tribe have received their inheritance on this side Jordan *near* Jericho eastward, toward the sunrising.  
 
 We have here a particular draught of the line by which the land of Canaan was meted, and bounded, on all sides. God directs Moses to settle it here, not as a geographer in his map, merely to please the curious, but as a prince in his grant, that it may be certainly known what passes, and is conveyed, by the grant. There was a much larger possession promised them, which in due time they would have possessed if they had been obedient, reaching even to the river Euphrates, Da 11:24. And even so far the dominion of Israel did extend in David's time and Solomon's, 2Ch 9:26. But this which is here described is Canaan only, which was the lot of the nine tribes and a half, for the other two and a half were already settled, Nu 34:14,15. Now concerning the limits of Canaan observe,
 
@@ -32,20 +32,20 @@ II\. That it lay comparatively in a very little compass: as it is here bounded, 
 
 III\. It is observable what the bounds and limits of it were. 1. Canaan was itself a *pleasant land* (so it is called Da 8:9), and yet it bordered upon wilderness and seas, and was surrounded with divers melancholy prospects. Thus the vineyard of the church is compassed on all hands with the desert of this world, which serves as a foil to it, to make it appear the more beautiful for situation. 2. Many of its borders were its defences and natural fortifications, to render the access of enemies the more difficult, and to intimate to Israel that the God of nature was their protector, and with his favour would *compass them as with a shield.* 3. The border reached to the *river of Egypt* (Nu 34:5), that the sight of that country which they could look into out of their own might remind them of their bondage there, and their wonderful deliverance thence. 4. Their border is here made to begin at the *Salt Sea* (Nu 34:3), and there it ends, Nu 34:12. This was the remaining lasting monument of the destruction of Sodom and Gomorrah. That pleasant fruitful vale in which these cities stood became a lake, which was never stirred by any wind, bore no vessels, was replenished with no fish, no living creature of any sort being found in it, therefore called the *Dead Sea.* This was part of their border, that it might be a constant warning to them to take heed of those sins which had been the ruin of Sodom; yet the iniquity of Sodom was afterwards found in Israel (Eze 16:49), for which Canaan was made, though not a salt sea as Sodom, yet a barren soil, and continues so to this day. 5. Their western border was the *Great Sea* (Nu 34:6), which is now called the *Mediterranean.* Some consider this sea itself to have been a part of their possession, and that by virtue of this grant, they had the dominion of it, and, if they had not forfeited it by sin, might have rode masters of it.
 
-> <sup>16</sup> And the LORD spake unto Moses, saying,  
-> <sup>17</sup> These *are* the names of the men which shall divide the land unto you: Eleazar the priest, and Joshua the son of Nun.  
-> <sup>18</sup> And ye shall take one prince of every tribe, to divide the land by inheritance.  
-> <sup>19</sup> And the names of the men *are* these: Of the tribe of Judah, Caleb the son of Jephunneh.  
-> <sup>20</sup> And of the tribe of the children of Simeon, Shemuel the son of Ammihud.  
-> <sup>21</sup> Of the tribe of Benjamin, Elidad the son of Chislon.  
-> <sup>22</sup> And the prince of the tribe of the children of Dan, Bukki the son of Jogli.  
-> <sup>23</sup> The prince of the children of Joseph, for the tribe of the children of Manasseh, Hanniel the son of Ephod.  
-> <sup>24</sup> And the prince of the tribe of the children of Ephraim, Kemuel the son of Shiphtan.  
-> <sup>25</sup> And the prince of the tribe of the children of Zebulun, Elizaphan the son of Parnach.  
-> <sup>26</sup> And the prince of the tribe of the children of Issachar, Paltiel the son of Azzan.  
-> <sup>27</sup> And the prince of the tribe of the children of Asher, Ahihud the son of Shelomi.  
-> <sup>28</sup> And the prince of the tribe of the children of Naphtali, Pedahel the son of Ammihud.  
-> <sup>29</sup> These *are they* whom the LORD commanded to divide the inheritance unto the children of Israel in the land of Canaan.  
+> **¹⁶** And the LORD spake unto Moses, saying,  
+> **¹⁷** These *are* the names of the men which shall divide the land unto you: Eleazar the priest, and Joshua the son of Nun.  
+> **¹⁸** And ye shall take one prince of every tribe, to divide the land by inheritance.  
+> **¹⁹** And the names of the men *are* these: Of the tribe of Judah, Caleb the son of Jephunneh.  
+> **²⁰** And of the tribe of the children of Simeon, Shemuel the son of Ammihud.  
+> **²¹** Of the tribe of Benjamin, Elidad the son of Chislon.  
+> **²²** And the prince of the tribe of the children of Dan, Bukki the son of Jogli.  
+> **²³** The prince of the children of Joseph, for the tribe of the children of Manasseh, Hanniel the son of Ephod.  
+> **²⁴** And the prince of the tribe of the children of Ephraim, Kemuel the son of Shiphtan.  
+> **²⁵** And the prince of the tribe of the children of Zebulun, Elizaphan the son of Parnach.  
+> **²⁶** And the prince of the tribe of the children of Issachar, Paltiel the son of Azzan.  
+> **²⁷** And the prince of the tribe of the children of Asher, Ahihud the son of Shelomi.  
+> **²⁸** And the prince of the tribe of the children of Naphtali, Pedahel the son of Ammihud.  
+> **²⁹** These *are they* whom the LORD commanded to divide the inheritance unto the children of Israel in the land of Canaan.  
 
 God here appoints commissioners for the dividing of the land to them. The conquest of it is taken for granted, though as yet there was never a stroke struck towards it. Here is no nomination of the generals and commanders-in-chief that should carry on the war; for they were to get the land in possession, *not by their own sword or bow, but by the power and favour of God;* and so confident must they be of victory and success while God fought for them that the persons must now be named who should be entrusted with the dividing of the land, that is, who should preside in casting the lots, and determine controversies that might arise, and see that all was done fairly. 1. The principal commissioners, who were of the *quorum,* were Eleazar and Joshua (Nu 34:17), typifying Christ, who, as priest and king, divides the heavenly Canaan to the spiritual Israel; yet, as they were to go by the lot, so Christ acknowledges the disposal must be by the will of the Father, Mt 20:23. Compare, Eph 1:11. 2. Besides these, that there might be no suspicion of partiality, a prince of each tribe was appointed to inspect this matter, and to see that the tribe he served for was in no respect injured. Public affairs should be so managed as not only to give their right to all, but, if possible, to give satisfaction to all that they have justice done them., It is a happiness to a land to have the princes of their people meet together, some out of every tribe, to concert the affairs that are of common concern, a constitution which is the abundant honour, ease, and safety, of the nation that is blessed with it. 3. Some observe that the order of the tribes here very much differs from that in which they hitherto, upon all occasions, been named, and agrees with the neighbourhood of their lots in the division of the land. Judah, Simeon, and Benjamin, the first three here named, lay close together; the inheritance of Dan lay next them on one side, that of Ephraim and Manasseh on another side; Zebulun and Issachar lay abreast more northerly, and, lastly, Asher and Naphtali most northward of all, as is easy to observe in looking over a map of Canaan; this (says bishop Patrick) is an evidence that Moses was guided by a divine Spirit in his writings. Known unto God are all his works beforehand, and what is new and surprising to us he perfectly foresaw, without any confusion or uncertainty.
 

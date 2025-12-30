@@ -8,19 +8,19 @@ The strain of this chapter is very unlike the rest of this book. Job forgets his
 
 ## Extent of Human Discoveries. (b. c. 1520.)
 
-> <sup>1</sup> Surely there is a vein for the silver, and a place for gold *where* they fine *it.*  
-> <sup>2</sup> Iron is taken out of the earth, and brass *is* molten *out of* the stone.  
-> <sup>3</sup> He setteth an end to darkness, and searcheth out all perfection: the stones of darkness, and the shadow of death.  
-> <sup>4</sup> The flood breaketh out from the inhabitant; *even the waters* forgotten of the foot: they are dried up, they are gone away from men.  
-> <sup>5</sup> *As for* the earth, out of it cometh bread: and under it is turned up as it were fire.  
-> <sup>6</sup> The stones of it *are* the place of sapphires: and it hath dust of gold.  
-> <sup>7</sup> *There is* a path which no fowl knoweth, and which the vulture's eye hath not seen:  
-> <sup>8</sup> The lion's whelps have not trodden it, nor the fierce lion passed by it.  
-> <sup>9</sup> He putteth forth his hand upon the rock; he overturneth the mountains by the roots.  
-> <sup>10</sup> He cutteth out rivers among the rocks; and his eye seeth every precious thing.  
-> <sup>11</sup> He bindeth the floods from overflowing; and *the thing that is* hid bringeth he forth to light.  
-> <sup>12</sup> But where shall wisdom be found? and where *is* the place of understanding?  
-> <sup>13</sup> Man knoweth not the price thereof; neither is it found in the land of the living.  
+> **¹** Surely there is a vein for the silver, and a place for gold *where* they fine *it.*  
+> **²** Iron is taken out of the earth, and brass *is* molten *out of* the stone.  
+> **³** He setteth an end to darkness, and searcheth out all perfection: the stones of darkness, and the shadow of death.  
+> **⁴** The flood breaketh out from the inhabitant; *even the waters* forgotten of the foot: they are dried up, they are gone away from men.  
+> **⁵** *As for* the earth, out of it cometh bread: and under it is turned up as it were fire.  
+> **⁶** The stones of it *are* the place of sapphires: and it hath dust of gold.  
+> **⁷** *There is* a path which no fowl knoweth, and which the vulture's eye hath not seen:  
+> **⁸** The lion's whelps have not trodden it, nor the fierce lion passed by it.  
+> **⁹** He putteth forth his hand upon the rock; he overturneth the mountains by the roots.  
+> **¹⁰** He cutteth out rivers among the rocks; and his eye seeth every precious thing.  
+> **¹¹** He bindeth the floods from overflowing; and *the thing that is* hid bringeth he forth to light.  
+> **¹²** But where shall wisdom be found? and where *is* the place of understanding?  
+> **¹³** Man knoweth not the price thereof; neither is it found in the land of the living.  
 
 Here Job shows, 1. What a great way the wit of man may go in diving into the depths of nature and seizing the riches of it, what a great deal of knowledge and wealth men may, by their ingenious and industrious searches, make themselves masters of. But does it therefore follow that men may, by their wit, comprehend the reasons why some wicked people prosper and others are punished, why some good people prosper and others are afflicted? No, by no means. The caverns of the earth may be discovered, but not the counsels of heaven. 2. What a great deal of care and pains worldly men take to get riches. He had observed concerning the wicked man (Job 27:16) that he *heaped up silver as the dust;* now here he shows whence that silver came which he was so fond of and how it was obtained, to show what little reason wicked rich men have to be proud of their wealth and pomp. Observe here,
 
@@ -34,12 +34,12 @@ III\. Though the subterraneous wealth is thus hard to obtain, yet men will have 
 
 ## The Excellency of Wisdom. (b. c. 1520.)
 
-> <sup>14</sup> The depth saith, It *is* not in me: and the sea saith, *It is* not with me.  
-> <sup>15</sup> It cannot be gotten for gold, neither shall silver be weighed *for* the price thereof.  
-> <sup>16</sup> It cannot be valued with the gold of Ophir, with the precious onyx, or the sapphire.  
-> <sup>17</sup> The gold and the crystal cannot equal it: and the exchange of it *shall not be for* jewels of fine gold.  
-> <sup>18</sup> No mention shall be made of coral, or of pearls: for the price of wisdom *is* above rubies.  
-> <sup>19</sup> The topaz of Ethiopia shall not equal it, neither shall it be valued with pure gold.  
+> **¹⁴** The depth saith, It *is* not in me: and the sea saith, *It is* not with me.  
+> **¹⁵** It cannot be gotten for gold, neither shall silver be weighed *for* the price thereof.  
+> **¹⁶** It cannot be valued with the gold of Ophir, with the precious onyx, or the sapphire.  
+> **¹⁷** The gold and the crystal cannot equal it: and the exchange of it *shall not be for* jewels of fine gold.  
+> **¹⁸** No mention shall be made of coral, or of pearls: for the price of wisdom *is* above rubies.  
+> **¹⁹** The topaz of Ethiopia shall not equal it, neither shall it be valued with pure gold.  
 
 Job, having spoken of the wealth of the world, which men put such a value upon and take so much pains for, here comes to speak of another more valuable jewel, and that is, *wisdom and understanding,* the knowing and enjoying of God and ourselves. Those that found out all those ways and means to enrich themselves thought themselves very wise; but Job will not own theirs to be wisdom. He supposes them to gain their point, and to bring to light what they sought for (Job 28:11), and yet asks, "*Where is wisdom?* for it is not here." This their way is their folly. We must therefore seek it somewhere else, and it will be found nowhere but in the principles and practices of religion. There is more true knowledge, satisfaction, and happiness, in sound divinity, which shows us the way to the joys of heaven, than in natural philosophy or mathematics, which help us to find a way into the bowels of the earth. Two things cannot be found out concerning this wisdom:—
 
@@ -49,15 +49,15 @@ II\. The place of it, for that is undiscoverable. *Where shall wisdom be found?*
 
 ## The Wisdom Hidden from Man; The Wisdom Revealed to Man. (b. c. 1520.)
 
-> <sup>20</sup> Whence then cometh wisdom? and where *is* the place of understanding?  
-> <sup>21</sup> Seeing it is hid from the eyes of all living, and kept close from the fowls of the air.  
-> <sup>22</sup> Destruction and death say, We have heard the fame thereof with our ears.  
-> <sup>23</sup> God understandeth the way thereof, and he knoweth the place thereof.  
-> <sup>24</sup> For he looketh to the ends of the earth, *and* seeth under the whole heaven;  
-> <sup>25</sup> To make the weight for the winds; and he weigheth the waters by measure.  
-> <sup>26</sup> When he made a decree for the rain, and a way for the lightning of the thunder:  
-> <sup>27</sup> Then did he see it, and declare it; he prepared it, yea, and searched it out.  
-> <sup>28</sup> And unto man he said, Behold, the fear of the Lord, that *is* wisdom; and to depart from evil *is* understanding.  
+> **²⁰** Whence then cometh wisdom? and where *is* the place of understanding?  
+> **²¹** Seeing it is hid from the eyes of all living, and kept close from the fowls of the air.  
+> **²²** Destruction and death say, We have heard the fame thereof with our ears.  
+> **²³** God understandeth the way thereof, and he knoweth the place thereof.  
+> **²⁴** For he looketh to the ends of the earth, *and* seeth under the whole heaven;  
+> **²⁵** To make the weight for the winds; and he weigheth the waters by measure.  
+> **²⁶** When he made a decree for the rain, and a way for the lightning of the thunder:  
+> **²⁷** Then did he see it, and declare it; he prepared it, yea, and searched it out.  
+> **²⁸** And unto man he said, Behold, the fear of the Lord, that *is* wisdom; and to depart from evil *is* understanding.  
 
 The question which Job had asked (Job 28:12) he asks again here; for it is too worthy, too weighty, to be let fall, until we speed in the enquiry. Concerning this we must seek till we find, till we get some satisfactory account of it. By a diligent prosecution of this enquiry he brings it, at length, to this issue, that there is a twofold wisdom, one *hidden in God,* which is secret and *belongs not to us,* the other made known by him and revealed to man, which *belongs to us and to our children.*
 

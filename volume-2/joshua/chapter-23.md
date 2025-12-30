@@ -8,16 +8,16 @@ In this and the following chapter we have two farewell sermons, which Joshua pre
 
 ## Joshua's Charge to Israel. (b. c. 1427.)
 
-> <sup>1</sup> And it came to pass a long time after that the LORD had given rest unto Israel from all their enemies round about, that Joshua waxed old *and* stricken in age.  
-> <sup>2</sup> And Joshua called for all Israel, *and* for their elders, and for their heads, and for their judges, and for their officers, and said unto them, I am old *and* stricken in age:  
-> <sup>3</sup> And ye have seen all that the LORD your God hath done unto all these nations because of you; for the LORD your God *is* he that hath fought for you.  
-> <sup>4</sup> Behold, I have divided unto you by lot these nations that remain, to be an inheritance for your tribes, from Jordan, with all the nations that I have cut off, even unto the great sea westward.  
-> <sup>5</sup> And the LORD your God, he shall expel them from before you, and drive them from out of your sight; and ye shall possess their land, as the LORD your God hath promised unto you.  
-> <sup>6</sup> Be ye therefore very courageous to keep and to do all that is written in the book of the law of Moses, that ye turn not aside therefrom *to* the right hand or *to* the left;  
-> <sup>7</sup> That ye come not among these nations, these that remain among you; neither make mention of the name of their gods, nor cause to swear *by them,* neither serve them, nor bow yourselves unto them:  
-> <sup>8</sup> But cleave unto the LORD your God, as ye have done unto this day.  
-> <sup>9</sup> For the LORD hath driven out from before you great nations and strong: but *as for* you, no man hath been able to stand before you unto this day.  
-> <sup>10</sup> One man of you shall chase a thousand: for the LORD your God, he *it is* that fighteth for you, as he hath promised you.  
+> **¹** And it came to pass a long time after that the LORD had given rest unto Israel from all their enemies round about, that Joshua waxed old *and* stricken in age.  
+> **²** And Joshua called for all Israel, *and* for their elders, and for their heads, and for their judges, and for their officers, and said unto them, I am old *and* stricken in age:  
+> **³** And ye have seen all that the LORD your God hath done unto all these nations because of you; for the LORD your God *is* he that hath fought for you.  
+> **⁴** Behold, I have divided unto you by lot these nations that remain, to be an inheritance for your tribes, from Jordan, with all the nations that I have cut off, even unto the great sea westward.  
+> **⁵** And the LORD your God, he shall expel them from before you, and drive them from out of your sight; and ye shall possess their land, as the LORD your God hath promised unto you.  
+> **⁶** Be ye therefore very courageous to keep and to do all that is written in the book of the law of Moses, that ye turn not aside therefrom *to* the right hand or *to* the left;  
+> **⁷** That ye come not among these nations, these that remain among you; neither make mention of the name of their gods, nor cause to swear *by them,* neither serve them, nor bow yourselves unto them:  
+> **⁸** But cleave unto the LORD your God, as ye have done unto this day.  
+> **⁹** For the LORD hath driven out from before you great nations and strong: but *as for* you, no man hath been able to stand before you unto this day.  
+> **¹⁰** One man of you shall chase a thousand: for the LORD your God, he *it is* that fighteth for you, as he hath promised you.  
 
 As to the date of this edict of Joshua,
 
@@ -43,12 +43,12 @@ V\. The discourse itself, the scope of which is to engage them if possible, them
 
 (3.) To be very constant (Jos 23:8): *Cleave unto the Lord your God,* that is, "delight in him, depend upon him, devote yourselves to his glory, and continue to do so to the end, *as you have done unto this day,* ever since you came to Canaan;" for, being willing to make the best of them, he looks not so far back as the iniquity of Peor. There might be many things amiss among them, but they had not forsaken the Lord their God, and it is in order to insinuate his exhortation to perseverance with the more pleasing power that he praises them. "Go on and prosper, for the Lord is with you while you are with him." Those that command should commend; the way to make people better is to make the best of them. "You have cleaved to the Lord unto this day, therefore go on to do so, else you lose the praise and recompence of what you have wrought. Your righteousness will not be mentioned unto you if you turn from it."
 
-> <sup>11</sup> Take good heed therefore unto yourselves, that ye love the LORD your God.  
-> <sup>12</sup> Else if ye do in any wise go back, and cleave unto the remnant of these nations, *even* these that remain among you, and shall make marriages with them, and go in unto them, and they to you:  
-> <sup>13</sup> Know for a certainty that the LORD your God will no more drive out *any of* these nations from before you; but they shall be snares and traps unto you, and scourges in your sides, and thorns in your eyes, until ye perish from off this good land which the LORD your God hath given you.  
-> <sup>14</sup> And, behold, this day I *am* going the way of all the earth: and ye know in all your hearts and in all your souls, that not one thing hath failed of all the good things which the LORD your God spake concerning you; all are come to pass unto you, *and* not one thing hath failed thereof.  
-> <sup>15</sup> Therefore it shall come to pass, *that* as all good things are come upon you, which the LORD your God promised you; so shall the LORD bring upon you all evil things, until he have destroyed you from off this good land which the LORD your God hath given you.  
-> <sup>16</sup> When ye have transgressed the covenant of the LORD your God, which he commanded you, and have gone and served other gods, and bowed yourselves to them; then shall the anger of the LORD be kindled against you, and ye shall perish quickly from off the good land which he hath given unto you.  
+> **¹¹** Take good heed therefore unto yourselves, that ye love the LORD your God.  
+> **¹²** Else if ye do in any wise go back, and cleave unto the remnant of these nations, *even* these that remain among you, and shall make marriages with them, and go in unto them, and they to you:  
+> **¹³** Know for a certainty that the LORD your God will no more drive out *any of* these nations from before you; but they shall be snares and traps unto you, and scourges in your sides, and thorns in your eyes, until ye perish from off this good land which the LORD your God hath given you.  
+> **¹⁴** And, behold, this day I *am* going the way of all the earth: and ye know in all your hearts and in all your souls, that not one thing hath failed of all the good things which the LORD your God spake concerning you; all are come to pass unto you, *and* not one thing hath failed thereof.  
+> **¹⁵** Therefore it shall come to pass, *that* as all good things are come upon you, which the LORD your God promised you; so shall the LORD bring upon you all evil things, until he have destroyed you from off this good land which the LORD your God hath given you.  
+> **¹⁶** When ye have transgressed the covenant of the LORD your God, which he commanded you, and have gone and served other gods, and bowed yourselves to them; then shall the anger of the LORD be kindled against you, and ye shall perish quickly from off the good land which he hath given unto you.  
 
 Here, I. Joshua directs them what to do, that they might persevere in religion, Jos 23:11. Would we cleave to the Lord, and not forsake him, 1. We must always stand upon our guard, for many a precious soul is lost and ruined through carelessness: "Take heed therefore, *take good heed to yourselves,* to your *souls* (so the word is), that the inward man be kept clean from the pollutions of sin, and closely employed in the service of God." God has given us precious souls with this charge, "Take good heed to them, keep them with all diligence, above all keepings." 2. What we do in religion we must do from a principle of love, not by constraint or from a slavish fear of God, but of choice and with delight. "*Lord the Lord your God,* and you will not leave him."
 

@@ -8,9 +8,9 @@ The apostle, in this chapter, applies what he has collected in the chapter foreg
 
 ## Christ the Great Exemplar. (a. d. 62.)
 
-> <sup>1</sup> Wherefore seeing we also are compassed about with so great a cloud of witnesses, let us lay aside every weight, and the sin which doth so easily beset *us,* and let us run with patience the race that is set before us,  
-> <sup>2</sup> Looking unto Jesus the author and finisher of *our* faith; who for the joy that was set before him endured the cross, despising the shame, and is set down at the right hand of the throne of God.  
-> <sup>3</sup> For consider him that endured such contradiction of sinners against himself, lest ye be wearied and faint in your minds.  
+> **¹** Wherefore seeing we also are compassed about with so great a cloud of witnesses, let us lay aside every weight, and the sin which doth so easily beset *us,* and let us run with patience the race that is set before us,  
+> **²** Looking unto Jesus the author and finisher of *our* faith; who for the joy that was set before him endured the cross, despising the shame, and is set down at the right hand of the throne of God.  
+> **³** For consider him that endured such contradiction of sinners against himself, lest ye be wearied and faint in your minds.  
 
 Here observe what is the great duty which the apostle urges upon the Hebrews, and which he so much desires they would comply with, and that is, to *lay aside every weight, and the sin that did so easily beset them, and run with patience the race set before them.* The duty consists of two parts, the one preparatory, the other perfective.
 
@@ -40,20 +40,20 @@ II\. Perfective: *Run with patience the race that is set before us.* The apostle
 
 ## The Benefit of Afflictions; The Use of Afflictions; Cautions against Apostasy. (a. d. 62.)
 
-> <sup>4</sup> Ye have not yet resisted unto blood, striving against sin.  
-> <sup>5</sup> And ye have forgotten the exhortation which speaketh unto you as unto children, My son, despise not thou the chastening of the Lord, nor faint when thou art rebuked of him:  
-> <sup>6</sup> For whom the Lord loveth he chasteneth, and scourgeth every son whom he receiveth.  
-> <sup>7</sup> If ye endure chastening, God dealeth with you as with sons; for what son is he whom the father chasteneth not?  
-> <sup>8</sup> But if ye be without chastisement, whereof all are partakers, then are ye bastards, and not sons.  
-> <sup>9</sup> Furthermore we have had fathers of our flesh which corrected *us,* and we gave *them* reverence: shall we not much rather be in subjection unto the Father of spirits, and live?  
-> <sup>10</sup> For they verily for a few days chastened *us* after their own pleasure; but he for *our* profit, that *we* might be partakers of his holiness.  
-> <sup>11</sup> Now no chastening for the present seemeth to be joyous, but grievous: nevertheless afterward it yieldeth the peaceable fruit of righteousness unto them which are exercised thereby.  
-> <sup>12</sup> Wherefore lift up the hands which hang down, and the feeble knees;  
-> <sup>13</sup> And make straight paths for your feet, lest that which is lame be turned out of the way; but let it rather be healed.  
-> <sup>14</sup> Follow peace with all *men,* and holiness, without which no man shall see the Lord:  
-> <sup>15</sup> Looking diligently lest any man fail of the grace of God; lest any root of bitterness springing up trouble *you,* and thereby many be defiled;  
-> <sup>16</sup> Lest there *be* any fornicator, or profane person, as Esau, who for one morsel of meat sold his birthright.  
-> <sup>17</sup> For ye know how that afterward, when he would have inherited the blessing, he was rejected: for he found no place of repentance, though he sought it carefully with tears.  
+> **⁴** Ye have not yet resisted unto blood, striving against sin.  
+> **⁵** And ye have forgotten the exhortation which speaketh unto you as unto children, My son, despise not thou the chastening of the Lord, nor faint when thou art rebuked of him:  
+> **⁶** For whom the Lord loveth he chasteneth, and scourgeth every son whom he receiveth.  
+> **⁷** If ye endure chastening, God dealeth with you as with sons; for what son is he whom the father chasteneth not?  
+> **⁸** But if ye be without chastisement, whereof all are partakers, then are ye bastards, and not sons.  
+> **⁹** Furthermore we have had fathers of our flesh which corrected *us,* and we gave *them* reverence: shall we not much rather be in subjection unto the Father of spirits, and live?  
+> **¹⁰** For they verily for a few days chastened *us* after their own pleasure; but he for *our* profit, that *we* might be partakers of his holiness.  
+> **¹¹** Now no chastening for the present seemeth to be joyous, but grievous: nevertheless afterward it yieldeth the peaceable fruit of righteousness unto them which are exercised thereby.  
+> **¹²** Wherefore lift up the hands which hang down, and the feeble knees;  
+> **¹³** And make straight paths for your feet, lest that which is lame be turned out of the way; but let it rather be healed.  
+> **¹⁴** Follow peace with all *men,* and holiness, without which no man shall see the Lord:  
+> **¹⁵** Looking diligently lest any man fail of the grace of God; lest any root of bitterness springing up trouble *you,* and thereby many be defiled;  
+> **¹⁶** Lest there *be* any fornicator, or profane person, as Esau, who for one morsel of meat sold his birthright.  
+> **¹⁷** For ye know how that afterward, when he would have inherited the blessing, he was rejected: for he found no place of repentance, though he sought it carefully with tears.  
 
 Here the apostle presses the exhortation to patience and perseverance by an argument taken from the gentle measure and gracious nature of those sufferings which the believing Hebrews endured in their Christian course.
 
@@ -91,18 +91,18 @@ II\. He argues from the peculiar and gracious nature of those sufferings that be
 
 ## Nature of the Christian Economy. (a. d. 62.)
 
-> <sup>18</sup> For ye are not come unto the mount that might be touched, and that burned with fire, nor unto blackness, and darkness, and tempest,  
-> <sup>19</sup> And the sound of a trumpet, and the voice of words; which *voice* they that heard intreated that the word should not be spoken to them any more:  
-> <sup>20</sup> (For they could not endure that which was commanded, And if so much as a beast touch the mountain, it shall be stoned, or thrust through with a dart:  
-> <sup>21</sup> And so terrible was the sight, *that* Moses said, I exceedingly fear and quake:)  
-> <sup>22</sup> But ye are come unto mount Sion, and unto the city of the living God, the heavenly Jerusalem, and to an innumerable company of angels,  
-> <sup>23</sup> To the general assembly and church of the firstborn, which are written in heaven, and to God the Judge of all, and to the spirits of just men made perfect,  
-> <sup>24</sup> And to Jesus the mediator of the new covenant, and to the blood of sprinkling, that speaketh better things than *that of* Abel.  
-> <sup>25</sup> See that ye refuse not him that speaketh. For if they escaped not who refused him that spake on earth, much more *shall not* we *escape,* if we turn away from him that *speaketh* from heaven:  
-> <sup>26</sup> Whose voice then shook the earth: but now he hath promised, saying, Yet once more I shake not the earth only, but also heaven.  
-> <sup>27</sup> And this *word,* Yet once more, signifieth the removing of those things that are shaken, as of things that are made, that those things which cannot be shaken may remain.  
-> <sup>28</sup> Wherefore we receiving a kingdom which cannot be moved, let us have grace, whereby we may serve God acceptably with reverence and godly fear:  
-> <sup>29</sup> For our God *is* a consuming fire.  
+> **¹⁸** For ye are not come unto the mount that might be touched, and that burned with fire, nor unto blackness, and darkness, and tempest,  
+> **¹⁹** And the sound of a trumpet, and the voice of words; which *voice* they that heard intreated that the word should not be spoken to them any more:  
+> **²⁰** (For they could not endure that which was commanded, And if so much as a beast touch the mountain, it shall be stoned, or thrust through with a dart:  
+> **²¹** And so terrible was the sight, *that* Moses said, I exceedingly fear and quake:)  
+> **²²** But ye are come unto mount Sion, and unto the city of the living God, the heavenly Jerusalem, and to an innumerable company of angels,  
+> **²³** To the general assembly and church of the firstborn, which are written in heaven, and to God the Judge of all, and to the spirits of just men made perfect,  
+> **²⁴** And to Jesus the mediator of the new covenant, and to the blood of sprinkling, that speaketh better things than *that of* Abel.  
+> **²⁵** See that ye refuse not him that speaketh. For if they escaped not who refused him that spake on earth, much more *shall not* we *escape,* if we turn away from him that *speaketh* from heaven:  
+> **²⁶** Whose voice then shook the earth: but now he hath promised, saying, Yet once more I shake not the earth only, but also heaven.  
+> **²⁷** And this *word,* Yet once more, signifieth the removing of those things that are shaken, as of things that are made, that those things which cannot be shaken may remain.  
+> **²⁸** Wherefore we receiving a kingdom which cannot be moved, let us have grace, whereby we may serve God acceptably with reverence and godly fear:  
+> **²⁹** For our God *is* a consuming fire.  
 
 Here the apostle goes on to engage the professing Hebrews to perseverance in their Christian course and conflict, and not to relapse again into Judaism. This he does by showing them how much the state of the gospel church differs from that of the Jewish church, and how much it resembles the state of the church in heaven, and on both accounts demands and deserves our diligence, patience, and perseverance in Christianity.
 

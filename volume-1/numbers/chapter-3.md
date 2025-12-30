@@ -8,19 +8,19 @@ This chapter and the next are concerning the tribe of Levi, which was to be must
 
 ## The Separation of the Levites. (b. c. 1490.)
 
-> <sup>1</sup> These also *are* the generations of Aaron and Moses in the day *that* the LORD spake with Moses in Mount Sinai.  
-> <sup>2</sup> And these *are* the names of the sons of Aaron; Nadab the firstborn, and Abihu, Eleazar, and Ithamar.  
-> <sup>3</sup> These *are* the names of the sons of Aaron, the priests which were anointed, whom he consecrated to minister in the priest's office.  
-> <sup>4</sup> And Nadab and Abihu died before the LORD, when they offered strange fire before the LORD, in the wilderness of Sinai, and they had no children: and Eleazar and Ithamar ministered in the priest's office in the sight of Aaron their father.  
-> <sup>5</sup> And the LORD spake unto Moses, saying,  
-> <sup>6</sup> Bring the tribe of Levi near, and present them before Aaron the priest, that they may minister unto him.  
-> <sup>7</sup> And they shall keep his charge, and the charge of the whole congregation before the tabernacle of the congregation, to do the service of the tabernacle.  
-> <sup>8</sup> And they shall keep all the instruments of the tabernacle of the congregation, and the charge of the children of Israel, to do the service of the tabernacle.  
-> <sup>9</sup> And thou shalt give the Levites unto Aaron and to his sons: they *are* wholly given unto him out of the children of Israel.  
-> <sup>10</sup> And thou shalt appoint Aaron and his sons, and they shall wait on their priest's office: and the stranger that cometh nigh shall be put to death.  
-> <sup>11</sup> And the LORD spake unto Moses, saying,  
-> <sup>12</sup> And I, behold, I have taken the Levites from among the children of Israel instead of all the firstborn that openeth the matrix among the children of Israel: therefore the Levites shall be mine;  
-> <sup>13</sup> Because all the firstborn *are* mine; *for* on the day that I smote all the firstborn in the land of Egypt I hallowed unto me all the firstborn in Israel, both man and beast: mine shall they be: I *am* the LORD.  
+> **¹** These also *are* the generations of Aaron and Moses in the day *that* the LORD spake with Moses in Mount Sinai.  
+> **²** And these *are* the names of the sons of Aaron; Nadab the firstborn, and Abihu, Eleazar, and Ithamar.  
+> **³** These *are* the names of the sons of Aaron, the priests which were anointed, whom he consecrated to minister in the priest's office.  
+> **⁴** And Nadab and Abihu died before the LORD, when they offered strange fire before the LORD, in the wilderness of Sinai, and they had no children: and Eleazar and Ithamar ministered in the priest's office in the sight of Aaron their father.  
+> **⁵** And the LORD spake unto Moses, saying,  
+> **⁶** Bring the tribe of Levi near, and present them before Aaron the priest, that they may minister unto him.  
+> **⁷** And they shall keep his charge, and the charge of the whole congregation before the tabernacle of the congregation, to do the service of the tabernacle.  
+> **⁸** And they shall keep all the instruments of the tabernacle of the congregation, and the charge of the children of Israel, to do the service of the tabernacle.  
+> **⁹** And thou shalt give the Levites unto Aaron and to his sons: they *are* wholly given unto him out of the children of Israel.  
+> **¹⁰** And thou shalt appoint Aaron and his sons, and they shall wait on their priest's office: and the stranger that cometh nigh shall be put to death.  
+> **¹¹** And the LORD spake unto Moses, saying,  
+> **¹²** And I, behold, I have taken the Levites from among the children of Israel instead of all the firstborn that openeth the matrix among the children of Israel: therefore the Levites shall be mine;  
+> **¹³** Because all the firstborn *are* mine; *for* on the day that I smote all the firstborn in the land of Egypt I hallowed unto me all the firstborn in Israel, both man and beast: mine shall they be: I *am* the LORD.  
 
 Here, I. The family of Aaron is confirmed in the priests' office, Nu 3:10. They had been called to it before, and consecrated; here they are appointed to *wait on their priests' office:* the apostle uses this phrase (Ro 12:7), *Let us wait on our ministry.* The office of the ministry requires a constant attendance and great diligence; so frequent are the returns of its work, and yet so transient its favourable opportunities, that it must be waited on. Here is repeated what was said before (Nu 1:51): *The stranger that cometh nigh shall be put to death,* which forbids the invading of the priest's office by any other person whatsoever; none must come nigh to minister but Aaron and his sons only, all others are strangers. It also lays a charge on the priests, as door-keepers in God's house, to take care that none should come near who were forbidden by the law; they must keep off all intruders, whose approach would be to the profanation of the holy things, telling them that if they came near it was at their peril, they would *die by the hand of God,* as Uzza did. The Jews say that afterwards there was hung over the door of the temple a golden sword (perhaps alluding to that flaming sword at the entrance of the garden of Eden), on which was engraven, *The stranger that cometh nigh shall be put to death.*
 
@@ -28,32 +28,32 @@ II\. A particular account is given of this family of Aaron; what we have met wit
 
 III\. A grant is made of the Levites to be assistants to the priests in their work: *Give the Levites to Aaron,* Nu 3:9. Aaron was to have a greater propriety in, and power over, the tribe of Levi than any other of the prices had in and over their respective tribes. There was a great deal of work belonging to the priests' office, and there were now only three pairs of hands to do it all, Aaron's and his two sons'; for it does not appear that they had either of them any children at this time, at least not any that were of age to minister, therefore God appoints the Levites to attend upon them. Note, Those whom God finds work for his will find help for. Here is, 1. The service for which the Levites were designed: they were to *minister to the priests* in their ministration to the Lord (Nu 3:6), and to *keep Aaron's charge* (Nu 3:7), as the deacons to the bishops in the evangelical constitution, serving at tables, while the bishops waited on their ministry. The Levites killed the sacrifices, and then the priests needed only to sprinkle the blood and burn the fat: the Levites prepared the incense, the priests burnt it. They were to keep, not only Aaron's charge, but the *charge of the whole congregation.* Note, It is a great trust that is reposed in ministers, not only for the glory of Christ, but for the good of his church; so that they must not only keep the charge of the great high priest, but must also be faithful to the souls of men, in trust for whom a dispensation is committed to them. 2. The consideration upon which the Levites were demanded; they were taken instead of the first-born. The preservation of the first-born of Israel, when all the first-born of the Egyptians (with whom they were many of them mingled) were destroyed, was looked upon by him who never makes any unreasonable demands as cause sufficient of the appropriating of all the first-born thenceforward to himself (Nu 3:13): *All the first-born are mine.* That was sufficient to make them his, though he had given no reason for it, for he is the sole fountain and Lord of all beings and powers; but because all obedience must flow from love, and acts of duty must be acts of gratitude, before they were challenged into peculiar services they were crowned with peculiar favours. Note, When he that made us saves us we are thereby laid under further obligations to serve him and live to him. God's right to us by redemption corroborates the right he has to us by creation. Now because the first-born of a family are generally the favourites, and some would think it a disparagement to have their eldest sons servants to the priests, and attending before the door of the tabernacle, God took the tribe of Levi entire for his own, in lieu of the first-born, Nu 3:12. Note, God's institutions put no hardships upon men in any of their just interests or reasonable affections. It was presumed that the Israelites would rather part with the Levites than with the first-born, and therefore God graciously ordered the exchange; yet for us he *spared not his own Son.*
 
-> <sup>14</sup> And the LORD spake unto Moses in the wilderness of Sinai, saying,  
-> <sup>15</sup> Number the children of Levi after the house of their fathers, by their families: every male from a month old and upward shalt thou number them.  
-> <sup>16</sup> And Moses numbered them according to the word of the LORD, as he was commanded.  
-> <sup>17</sup> And these were the sons of Levi by their names; Gershon, and Kohath, and Merari.  
-> <sup>18</sup> And these *are* the names of the sons of Gershon by their families; Libni, and Shimei.  
-> <sup>19</sup> And the sons of Kohath by their families; Amram, and Izehar, Hebron, and Uzziel.  
-> <sup>20</sup> And the sons of Merari by their families; Mahli, and Mushi. These *are* the families of the Levites according to the house of their fathers.  
-> <sup>21</sup> Of Gershon *was* the family of the Libnites, and the family of the Shimites: these *are* the families of the Gershonites.  
-> <sup>22</sup> Those that were numbered of them, according to the number of all the males, from a month old and upward, *even* those that were numbered of them *were* seven thousand and five hundred.  
-> <sup>23</sup> The families of the Gershonites shall pitch behind the tabernacle westward.  
-> <sup>24</sup> And the chief of the house of the father of the Gershonites *shall be* Eliasaph the son of Lael.  
-> <sup>25</sup> And the charge of the sons of Gershon in the tabernacle of the congregation *shall be* the tabernacle, and the tent, the covering thereof, and the hanging for the door of the tabernacle of the congregation,  
-> <sup>26</sup> And the hangings of the court, and the curtain for the door of the court, which *is* by the tabernacle, and by the altar round about, and the cords of it for all the service thereof.  
-> <sup>27</sup> And of Kohath *was* the family of the Amramites, and the family of the Izeharites, and the family of the Hebronites, and the family of the Uzzielites: these *are* the families of the Kohathites.  
-> <sup>28</sup> In the number of all the males, from a month old and upward, *were* eight thousand and six hundred, keeping the charge of the sanctuary.  
-> <sup>29</sup> The families of the sons of Kohath shall pitch on the side of the tabernacle southward.  
-> <sup>30</sup> And the chief of the house of the father of the families of the Kohathites *shall be* Elizaphan the son of Uzziel.  
-> <sup>31</sup> And their charge *shall be* the ark, and the table, and the candlestick, and the altars, and the vessels of the sanctuary wherewith they minister, and the hanging, and all the service thereof.  
-> <sup>32</sup> And Eleazar the son of Aaron the priest *shall be* chief over the chief of the Levites, *and have* the oversight of them that keep the charge of the sanctuary.  
-> <sup>33</sup> Of Merari *was* the family of the Mahlites, and the family of the Mushites: these *are* the families of Merari.  
-> <sup>34</sup> And those that were numbered of them, according to the number of all the males, from a month old and upward, *were* six thousand and two hundred.  
-> <sup>35</sup> And the chief of the house of the father of the families of Merari *was* Zuriel the son of Abihail: *these* shall pitch on the side of the tabernacle northward.  
-> <sup>36</sup> And *under* the custody and charge of the sons of Merari *shall be* the boards of the tabernacle, and the bars thereof, and the pillars thereof, and the sockets thereof, and all the vessels thereof, and all that serveth thereto,  
-> <sup>37</sup> And the pillars of the court round about, and their sockets, and their pins, and their cords.  
-> <sup>38</sup> But those that encamp before the tabernacle toward the east, *even* before the tabernacle of the congregation eastward, *shall be* Moses, and Aaron and his sons, keeping the charge of the sanctuary for the charge of the children of Israel; and the stranger that cometh nigh shall be put to death.  
-> <sup>39</sup> All that were numbered of the Levites, which Moses and Aaron numbered at the commandment of the LORD, throughout their families, all the males from a month old and upward, *were* twenty and two thousand.  
+> **¹⁴** And the LORD spake unto Moses in the wilderness of Sinai, saying,  
+> **¹⁵** Number the children of Levi after the house of their fathers, by their families: every male from a month old and upward shalt thou number them.  
+> **¹⁶** And Moses numbered them according to the word of the LORD, as he was commanded.  
+> **¹⁷** And these were the sons of Levi by their names; Gershon, and Kohath, and Merari.  
+> **¹⁸** And these *are* the names of the sons of Gershon by their families; Libni, and Shimei.  
+> **¹⁹** And the sons of Kohath by their families; Amram, and Izehar, Hebron, and Uzziel.  
+> **²⁰** And the sons of Merari by their families; Mahli, and Mushi. These *are* the families of the Levites according to the house of their fathers.  
+> **²¹** Of Gershon *was* the family of the Libnites, and the family of the Shimites: these *are* the families of the Gershonites.  
+> **²²** Those that were numbered of them, according to the number of all the males, from a month old and upward, *even* those that were numbered of them *were* seven thousand and five hundred.  
+> **²³** The families of the Gershonites shall pitch behind the tabernacle westward.  
+> **²⁴** And the chief of the house of the father of the Gershonites *shall be* Eliasaph the son of Lael.  
+> **²⁵** And the charge of the sons of Gershon in the tabernacle of the congregation *shall be* the tabernacle, and the tent, the covering thereof, and the hanging for the door of the tabernacle of the congregation,  
+> **²⁶** And the hangings of the court, and the curtain for the door of the court, which *is* by the tabernacle, and by the altar round about, and the cords of it for all the service thereof.  
+> **²⁷** And of Kohath *was* the family of the Amramites, and the family of the Izeharites, and the family of the Hebronites, and the family of the Uzzielites: these *are* the families of the Kohathites.  
+> **²⁸** In the number of all the males, from a month old and upward, *were* eight thousand and six hundred, keeping the charge of the sanctuary.  
+> **²⁹** The families of the sons of Kohath shall pitch on the side of the tabernacle southward.  
+> **³⁰** And the chief of the house of the father of the families of the Kohathites *shall be* Elizaphan the son of Uzziel.  
+> **³¹** And their charge *shall be* the ark, and the table, and the candlestick, and the altars, and the vessels of the sanctuary wherewith they minister, and the hanging, and all the service thereof.  
+> **³²** And Eleazar the son of Aaron the priest *shall be* chief over the chief of the Levites, *and have* the oversight of them that keep the charge of the sanctuary.  
+> **³³** Of Merari *was* the family of the Mahlites, and the family of the Mushites: these *are* the families of Merari.  
+> **³⁴** And those that were numbered of them, according to the number of all the males, from a month old and upward, *were* six thousand and two hundred.  
+> **³⁵** And the chief of the house of the father of the families of Merari *was* Zuriel the son of Abihail: *these* shall pitch on the side of the tabernacle northward.  
+> **³⁶** And *under* the custody and charge of the sons of Merari *shall be* the boards of the tabernacle, and the bars thereof, and the pillars thereof, and the sockets thereof, and all the vessels thereof, and all that serveth thereto,  
+> **³⁷** And the pillars of the court round about, and their sockets, and their pins, and their cords.  
+> **³⁸** But those that encamp before the tabernacle toward the east, *even* before the tabernacle of the congregation eastward, *shall be* Moses, and Aaron and his sons, keeping the charge of the sanctuary for the charge of the children of Israel; and the stranger that cometh nigh shall be put to death.  
+> **³⁹** All that were numbered of the Levites, which Moses and Aaron numbered at the commandment of the LORD, throughout their families, all the males from a month old and upward, *were* twenty and two thousand.  
 
 The Levites being granted to Aaron to minister to him, they are here delivered to him by tale, that he might know what he had, and employ them accordingly. Observe,
 
@@ -67,18 +67,18 @@ II\. How they were distributed into three classes, according to the number of th
 
 III\. The sum total of the numbers of this tribe. They are computed in all 22,000, Nu 3:39. The sum of the particular families amounts to 300 more; if this had been added to the sum total, the Levites, instead of being 273 fewer than the first-born, as they were (Nu 3:43), would have been twenty-seven more, and so the balance would have fallen the other way; but it is supposed that the 300 which were struck off from the account when the exchange was to be made were the first-born of the Levites themselves, born since their coming out of Egypt, which could not be put into the exchange, because they were already sanctified to God. But that which is especially observable here is that the tribe of Levi was by much the least of all the tribes. Note, God's part in the world is too often the smallest part. His chosen are comparatively a little flock.
 
-> <sup>40</sup> And the LORD said unto Moses, Number all the firstborn of the males of the children of Israel from a month old and upward, and take the number of their names.  
-> <sup>41</sup> And thou shalt take the Levites for me (I *am* the LORD) instead of all the firstborn among the children of Israel; and the cattle of the Levites instead of all the firstlings among the cattle of the children of Israel.  
-> <sup>42</sup> And Moses numbered, as the LORD commanded him, all the firstborn among the children of Israel.  
-> <sup>43</sup> And all the firstborn males by the number of names, from a month old and upward, of those that were numbered of them, were twenty and two thousand two hundred and threescore and thirteen.  
-> <sup>44</sup> And the LORD spake unto Moses, saying,  
-> <sup>45</sup> Take the Levites instead of all the firstborn among the children of Israel, and the cattle of the Levites instead of their cattle; and the Levites shall be mine: I *am* the LORD.  
-> <sup>46</sup> And for those that are to be redeemed of the two hundred and threescore and thirteen of the firstborn of the children of Israel, which are more than the Levites;  
-> <sup>47</sup> Thou shalt even take five shekels apiece by the poll, after the shekel of the sanctuary shalt thou take *them:* (the shekel *is* twenty gerahs:)  
-> <sup>48</sup> And thou shalt give the money, wherewith the odd number of them is to be redeemed, unto Aaron and to his sons.  
-> <sup>49</sup> And Moses took the redemption money of them that were over and above them that were redeemed by the Levites:  
-> <sup>50</sup> Of the firstborn of the children of Israel took he the money; a thousand three hundred and threescore and five *shekels,* after the shekel of the sanctuary:  
-> <sup>51</sup> And Moses gave the money of them that were redeemed unto Aaron and to his sons, according to the word of the LORD, as the LORD commanded Moses.  
+> **⁴⁰** And the LORD said unto Moses, Number all the firstborn of the males of the children of Israel from a month old and upward, and take the number of their names.  
+> **⁴¹** And thou shalt take the Levites for me (I *am* the LORD) instead of all the firstborn among the children of Israel; and the cattle of the Levites instead of all the firstlings among the cattle of the children of Israel.  
+> **⁴²** And Moses numbered, as the LORD commanded him, all the firstborn among the children of Israel.  
+> **⁴³** And all the firstborn males by the number of names, from a month old and upward, of those that were numbered of them, were twenty and two thousand two hundred and threescore and thirteen.  
+> **⁴⁴** And the LORD spake unto Moses, saying,  
+> **⁴⁵** Take the Levites instead of all the firstborn among the children of Israel, and the cattle of the Levites instead of their cattle; and the Levites shall be mine: I *am* the LORD.  
+> **⁴⁶** And for those that are to be redeemed of the two hundred and threescore and thirteen of the firstborn of the children of Israel, which are more than the Levites;  
+> **⁴⁷** Thou shalt even take five shekels apiece by the poll, after the shekel of the sanctuary shalt thou take *them:* (the shekel *is* twenty gerahs:)  
+> **⁴⁸** And thou shalt give the money, wherewith the odd number of them is to be redeemed, unto Aaron and to his sons.  
+> **⁴⁹** And Moses took the redemption money of them that were over and above them that were redeemed by the Levites:  
+> **⁵⁰** Of the firstborn of the children of Israel took he the money; a thousand three hundred and threescore and five *shekels,* after the shekel of the sanctuary:  
+> **⁵¹** And Moses gave the money of them that were redeemed unto Aaron and to his sons, according to the word of the LORD, as the LORD commanded Moses.  
 
 Here is the exchange made of the Levites for the first-born. 1. The first-born were numbered from a month old, Nu 3:42,43. Those certainly were not reckoned who, though first-born, had become heads of families themselves, but those only that were under age; and the learned bishop Patrick is decidedly of opinion that none were numbered but those only that were born since their coming out of Egypt, when the first-born were sanctified, Ex 13:2. If there were 22,000 first-born males, we may suppose as many females, and all these brought forth in the first year after they came out of Egypt, we must hence infer that in the last year of their servitude, even when it was in the greatest extremity, there were abundance of marriages made among the Israelites; they were not discouraged by the present distress, but married in faith, expecting that God would shortly visit them with mercy, and that their children, though born in bondage, should live in liberty and honour. And it was a token of good to them, an evidence that they were blessed of the Lord, that they were not only kept alive, but greatly increased, in a barren wilderness. 2. The number of the first-born, and that of the Levites, by a special providence, came pretty near to each other; thus, when he *divided the nations, he set the bounds of the people according to the number of the children of Israel,* De 32:8. Known unto God are all his works beforehand, and there is an exact proportion between them, and so it will appear when they come to be compared. The Levites' cattle are said to be taken instead of the firstlings *of the cattle of the children of Israel,* that is, the Levites, with all their possessions, were devoted to God instead of the first-born and all theirs; for, when we give ourselves to God, all we have passes as appurtenances with the premises. 3. The small number of first-born which exceeded the number of the Levites (273 in all) were to be redeemed, at five shekels apiece, and the redemption-money given to Aaron; for it would not do well to have them added to the Levites. It is probable that in the exchange they began with the eldest of the first-born, and so downward, so that those were to be redeemed with money who were the 273 youngest of the first-born; more likely so than either that it was determined by lot or that the money was paid out of the public stock. The church is called the church of the *first-born,* which is redeemed, not as these were, with silver and gold, but, being devoted by sin to the justice of God, is ransomed with *the precious blood of the Son of God.*
 

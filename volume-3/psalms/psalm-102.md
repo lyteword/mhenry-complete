@@ -10,17 +10,17 @@ Some think that David penned this psalm at the time of Absalom's rebellion; othe
 
 A prayer of the afflicted, when he is overwhelmed, and poureth out his complaint before the Lord.
 
-> <sup>1</sup> Hear my prayer, O LORD, and let my cry come unto thee.  
-> <sup>2</sup> Hide not thy face from me in the day *when* I am in trouble; incline thine ear unto me: in the day *when* I call answer me speedily.  
-> <sup>3</sup> For my days are consumed like smoke, and my bones are burned as a hearth.  
-> <sup>4</sup> My heart is smitten, and withered like grass; so that I forget to eat my bread.  
-> <sup>5</sup> By reason of the voice of my groaning my bones cleave to my skin.  
-> <sup>6</sup> I am like a pelican of the wilderness: I am like an owl of the desert.  
-> <sup>7</sup> I watch, and am as a sparrow alone upon the house top.  
-> <sup>8</sup> Mine enemies reproach me all the day; *and* they that are mad against me are sworn against me.  
-> <sup>9</sup> For I have eaten ashes like bread, and mingled my drink with weeping,  
-> <sup>10</sup> Because of thine indignation and thy wrath: for thou hast lifted me up, and cast me down.  
-> <sup>11</sup> My days *are* like a shadow that declineth; and I am withered like grass.  
+> **¹** Hear my prayer, O LORD, and let my cry come unto thee.  
+> **²** Hide not thy face from me in the day *when* I am in trouble; incline thine ear unto me: in the day *when* I call answer me speedily.  
+> **³** For my days are consumed like smoke, and my bones are burned as a hearth.  
+> **⁴** My heart is smitten, and withered like grass; so that I forget to eat my bread.  
+> **⁵** By reason of the voice of my groaning my bones cleave to my skin.  
+> **⁶** I am like a pelican of the wilderness: I am like an owl of the desert.  
+> **⁷** I watch, and am as a sparrow alone upon the house top.  
+> **⁸** Mine enemies reproach me all the day; *and* they that are mad against me are sworn against me.  
+> **⁹** For I have eaten ashes like bread, and mingled my drink with weeping,  
+> **¹⁰** Because of thine indignation and thy wrath: for thou hast lifted me up, and cast me down.  
+> **¹¹** My days *are* like a shadow that declineth; and I am withered like grass.  
 
 The title of this psalm is very observable; it is *a prayer of the afflicted.* It was composed by one that was himself afflicted, afflicted with the church and for it; and on those that are of a public spirit afflictions of that kind lie heavier than any other. It is calculated for an afflicted state, and is intended for the use of others that may be in the like distress; for *whatsoever things were written aforetime were written* designedly *for our use.* The whole word of God is of use to direct us in prayer; but here, as often elsewhere, the Holy Ghost has drawn up our petition for us, has put words into our mouths. Ho 14:2, *Take with you words.* Here is a prayer put into the hands of the afflicted: let them set, not their hands, but their hearts to it, and present it to God. Note, 1. It is often the lot of the best saints in this world to be sorely affected. 2. Even good men may be almost overwhelmed with their afflictions, and may be ready to faint under them. 3. When our state is afflicted, and our spirits are overwhelmed, it is our duty and interest to pray, and by prayer to *pour out our complaints before the Lord,* which intimates the leave God gives us to be free with him and the liberty of speech we have before him, as well as liberty of access to him; it intimates also what an ease it is to an afflicted spirit to unburden itself by a humble representation of its grievances and griefs. Such a representation we have here, in which,
 
@@ -30,17 +30,17 @@ II\. He makes a lamentable complaint of the low condition to which he was reduce
 
 ## The Future Glory of Zion.
 
-> <sup>12</sup> But thou, O LORD, shalt endure for ever; and thy remembrance unto all generations.  
-> <sup>13</sup> Thou shalt arise, *and* have mercy upon Zion: for the time to favour her, yea, the set time, is come.  
-> <sup>14</sup> For thy servants take pleasure in her stones, and favour the dust thereof.  
-> <sup>15</sup> So the heathen shall fear the name of the LORD, and all the kings of the earth thy glory.  
-> <sup>16</sup> When the LORD shall build up Zion, he shall appear in his glory.  
-> <sup>17</sup> He will regard the prayer of the destitute, and not despise their prayer.  
-> <sup>18</sup> This shall be written for the generation to come: and the people which shall be created shall praise the LORD.  
-> <sup>19</sup> For he hath looked down from the height of his sanctuary; from heaven did the LORD behold the earth;  
-> <sup>20</sup> To hear the groaning of the prisoner; to loose those that are appointed to death;  
-> <sup>21</sup> To declare the name of the LORD in Zion, and his praise in Jerusalem;  
-> <sup>22</sup> When the people are gathered together, and the kingdoms, to serve the LORD.  
+> **¹²** But thou, O LORD, shalt endure for ever; and thy remembrance unto all generations.  
+> **¹³** Thou shalt arise, *and* have mercy upon Zion: for the time to favour her, yea, the set time, is come.  
+> **¹⁴** For thy servants take pleasure in her stones, and favour the dust thereof.  
+> **¹⁵** So the heathen shall fear the name of the LORD, and all the kings of the earth thy glory.  
+> **¹⁶** When the LORD shall build up Zion, he shall appear in his glory.  
+> **¹⁷** He will regard the prayer of the destitute, and not despise their prayer.  
+> **¹⁸** This shall be written for the generation to come: and the people which shall be created shall praise the LORD.  
+> **¹⁹** For he hath looked down from the height of his sanctuary; from heaven did the LORD behold the earth;  
+> **²⁰** To hear the groaning of the prisoner; to loose those that are appointed to death;  
+> **²¹** To declare the name of the LORD in Zion, and his praise in Jerusalem;  
+> **²²** When the people are gathered together, and the kingdoms, to serve the LORD.  
 
 Many exceedingly great and precious comforts are here thought of, and mustered up, to balance the foregoing complaints; for *unto the upright there arises light in the darkness,* so that, though they are cast down, they are not in despair. It is bad with the psalmist himself, bad with the people of God; but he has many considerations to revive himself with.
 
@@ -54,12 +54,12 @@ IV\. The prisoners under condemnation unjustly seem as sheep appointed for the s
 
 ## Hoping in God's Compassion.
 
-> <sup>23</sup> He weakened my strength in the way; he shortened my days.  
-> <sup>24</sup> I said, O my God, take me not away in the midst of my days: thy years *are* throughout all generations.  
-> <sup>25</sup> Of old hast thou laid the foundation of the earth: and the heavens *are* the work of thy hands.  
-> <sup>26</sup> They shall perish, but thou shalt endure: yea, all of them shall wax old like a garment; as a vesture shalt thou change them, and they shall be changed:  
-> <sup>27</sup> But thou *art* the same, and thy years shall have no end.  
-> <sup>28</sup> The children of thy servants shall continue, and their seed shall be established before thee.  
+> **²³** He weakened my strength in the way; he shortened my days.  
+> **²⁴** I said, O my God, take me not away in the midst of my days: thy years *are* throughout all generations.  
+> **²⁵** Of old hast thou laid the foundation of the earth: and the heavens *are* the work of thy hands.  
+> **²⁶** They shall perish, but thou shalt endure: yea, all of them shall wax old like a garment; as a vesture shalt thou change them, and they shall be changed:  
+> **²⁷** But thou *art* the same, and thy years shall have no end.  
+> **²⁸** The children of thy servants shall continue, and their seed shall be established before thee.  
 
 We may here observe,
 

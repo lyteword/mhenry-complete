@@ -8,15 +8,15 @@ Reproof for sin and threatenings of judgment are intermixed in this chapter, and
 
 ## The Universal Corruption to the Age. (b. c. 608.)
 
-> <sup>1</sup> Run ye to and fro through the streets of Jerusalem, and see now, and know, and seek in the broad places thereof, if ye can find a man, if there be *any* that executeth judgment, that seeketh the truth; and I will pardon it.  
-> <sup>2</sup> And though they say, The LORD liveth; surely they swear falsely.  
-> <sup>3</sup> O LORD, *are* not thine eyes upon the truth? thou hast stricken them, but they have not grieved; thou hast consumed them, *but* they have refused to receive correction: they have made their faces harder than a rock; they have refused to return.  
-> <sup>4</sup> Therefore I said, Surely these *are* poor; they are foolish: for they know not the way of the LORD, *nor* the judgment of their God.  
-> <sup>5</sup> I will get me unto the great men, and will speak unto them; for they have known the way of the LORD, *and* the judgment of their God: but these have altogether broken the yoke, *and* burst the bonds.  
-> <sup>6</sup> Wherefore a lion out of the forest shall slay them, *and* a wolf of the evenings shall spoil them, a leopard shall watch over their cities: every one that goeth out thence shall be torn in pieces: because their transgressions are many, *and* their backslidings are increased.  
-> <sup>7</sup> How shall I pardon thee for this? thy children have forsaken me, and sworn by *them that are* no gods: when I had fed them to the full, they then committed adultery, and assembled themselves by troops in the harlots' houses.  
-> <sup>8</sup> They were *as* fed horses in the morning: every one neighed after his neighbour's wife.  
-> <sup>9</sup> Shall I not visit for these *things?* saith the LORD: and shall not my soul be avenged on such a nation as this?  
+> **¹** Run ye to and fro through the streets of Jerusalem, and see now, and know, and seek in the broad places thereof, if ye can find a man, if there be *any* that executeth judgment, that seeketh the truth; and I will pardon it.  
+> **²** And though they say, The LORD liveth; surely they swear falsely.  
+> **³** O LORD, *are* not thine eyes upon the truth? thou hast stricken them, but they have not grieved; thou hast consumed them, *but* they have refused to receive correction: they have made their faces harder than a rock; they have refused to return.  
+> **⁴** Therefore I said, Surely these *are* poor; they are foolish: for they know not the way of the LORD, *nor* the judgment of their God.  
+> **⁵** I will get me unto the great men, and will speak unto them; for they have known the way of the LORD, *and* the judgment of their God: but these have altogether broken the yoke, *and* burst the bonds.  
+> **⁶** Wherefore a lion out of the forest shall slay them, *and* a wolf of the evenings shall spoil them, a leopard shall watch over their cities: every one that goeth out thence shall be torn in pieces: because their transgressions are many, *and* their backslidings are increased.  
+> **⁷** How shall I pardon thee for this? thy children have forsaken me, and sworn by *them that are* no gods: when I had fed them to the full, they then committed adultery, and assembled themselves by troops in the harlots' houses.  
+> **⁸** They were *as* fed horses in the morning: every one neighed after his neighbour's wife.  
+> **⁹** Shall I not visit for these *things?* saith the LORD: and shall not my soul be avenged on such a nation as this?  
 
 Here is, I. A challenge to produce any one right honest man, or at least any considerable number of such, in Jerusalem, Jer 5:1. Jerusalem had become like the old world, in which *all flesh had corrupted their way.* There were some perhaps who flattered themselves with hopes that there were yet many good men in Jerusalem, who would stand in the gap to turn away the wrath of God; and there might be others who boasted of its being the holy city and thought that this would save it. But God bids them search the town, and intimates that they should scarcely find a man in it who executed judgment and made conscience of what he said and did: "Look in *the streets,* where they make their appearance and converse together, and in *the broad places,* where they keep their markets; *see if you can find a man, a magistrate* (so some), *that executes judgment,* and administers justice impartially, that will put the laws in execution against vice and profaneness." When the faithful thus cease and fail it is time to cry *Woe is me!* (Mic 7:1,2), high time to cry, *Help Lord,* Ps 12:1. "If there be here and there a man that is truly conscientious, and does at least *speak the truth,* yet you shall not find him *in the streets and broad places;* he dares not appear publicly, lest he should be abused and run down. *Truth has fallen in the street* (Isa 59:14), and is forced to *seek for corners.*" So pleasing would it be to God to find any such that for their sake he would pardon the city; if there were but ten righteous men in Sodom, if but one of a thousand, of ten thousand, in Jerusalem, it should be spared. See how ready God is to forgive, how swift to show mercy. But it might be said, "What do you make of those in Jerusalem that continue to make profession of religion and relation to God? Are not they men for whose sakes Jerusalem may be spared?" No, for they are not sincere in their profession (Jer 5:2): *They say, The Lord liveth,* and will swear by his name only, but they *swear falsely,* that is, 1. They are not sincere in the profession they make of respect to God, but are false to him; they *honour him with their lips, but their hearts are far from him.* 2. Though they appeal to God only, they make no conscience of calling him to witness to a lie. Though they do not swear by idols, they forswear themselves, which is no less an affront to God, as the God of truth, than the other is as the only true God.
 
@@ -38,16 +38,16 @@ V\. A threatening of God's wrath against them for their wickedness and the unive
 
 ## Divine Judgments Threatened; Divine Judgments Vindicated. (b. c. 608.)
 
-> <sup>10</sup> Go ye up upon her walls, and destroy; but make not a full end: take away her battlements; for they *are* not the LORD's.  
-> <sup>11</sup> For the house of Israel and the house of Judah have dealt very treacherously against me, saith the LORD.  
-> <sup>12</sup> They have belied the LORD, and said, *It is* not he; neither shall evil come upon us; neither shall we see sword nor famine:  
-> <sup>13</sup> And the prophets shall become wind, and the word *is* not in them: thus shall it be done unto them.  
-> <sup>14</sup> Wherefore thus saith the LORD God of hosts, Because ye speak this word, behold, I will make my words in thy mouth fire, and this people wood, and it shall devour them.  
-> <sup>15</sup> Lo, I will bring a nation upon you from far, O house of Israel, saith the LORD: it *is* a mighty nation, it *is* an ancient nation, a nation whose language thou knowest not, neither understandest what they say.  
-> <sup>16</sup> Their quiver *is* as an open sepulchre, they *are* all mighty men.  
-> <sup>17</sup> And they shall eat up thine harvest, and thy bread, *which* thy sons and thy daughters should eat: they shall eat up thy flocks and thine herds: they shall eat up thy vines and thy fig trees: they shall impoverish thy fenced cities, wherein thou trustedst, with the sword.  
-> <sup>18</sup> Nevertheless in those days, saith the LORD, I will not make a full end with you.  
-> <sup>19</sup> And it shall come to pass, when ye shall say, Wherefore doeth the LORD our God all these *things* unto us? then shalt thou answer them, Like as ye have forsaken me, and served strange gods in your land, so shall ye serve strangers in a land *that is* not yours.  
+> **¹⁰** Go ye up upon her walls, and destroy; but make not a full end: take away her battlements; for they *are* not the LORD's.  
+> **¹¹** For the house of Israel and the house of Judah have dealt very treacherously against me, saith the LORD.  
+> **¹²** They have belied the LORD, and said, *It is* not he; neither shall evil come upon us; neither shall we see sword nor famine:  
+> **¹³** And the prophets shall become wind, and the word *is* not in them: thus shall it be done unto them.  
+> **¹⁴** Wherefore thus saith the LORD God of hosts, Because ye speak this word, behold, I will make my words in thy mouth fire, and this people wood, and it shall devour them.  
+> **¹⁵** Lo, I will bring a nation upon you from far, O house of Israel, saith the LORD: it *is* a mighty nation, it *is* an ancient nation, a nation whose language thou knowest not, neither understandest what they say.  
+> **¹⁶** Their quiver *is* as an open sepulchre, they *are* all mighty men.  
+> **¹⁷** And they shall eat up thine harvest, and thy bread, *which* thy sons and thy daughters should eat: they shall eat up thy flocks and thine herds: they shall eat up thy vines and thy fig trees: they shall impoverish thy fenced cities, wherein thou trustedst, with the sword.  
+> **¹⁸** Nevertheless in those days, saith the LORD, I will not make a full end with you.  
+> **¹⁹** And it shall come to pass, when ye shall say, Wherefore doeth the LORD our God all these *things* unto us? then shalt thou answer them, Like as ye have forsaken me, and served strange gods in your land, so shall ye serve strangers in a land *that is* not yours.  
 
 We may observe in these verses, as before,
 
@@ -61,11 +61,11 @@ IV\. The justification of God in these proceedings against them. As he will appe
 
 ## Expostulation with Israel. (b. c. 608.)
 
-> <sup>20</sup> Declare this in the house of Jacob, and publish it in Judah, saying,  
-> <sup>21</sup> Hear now this, O foolish people, and without understanding; which have eyes, and see not; which have ears, and hear not:  
-> <sup>22</sup> Fear ye not me? saith the LORD: will ye not tremble at my presence, which have placed the sand *for* the bound of the sea by a perpetual decree, that it cannot pass it: and though the waves thereof toss themselves, yet can they not prevail; though they roar, yet can they not pass over it?  
-> <sup>23</sup> But this people hath a revolting and a rebellious heart; they are revolted and gone.  
-> <sup>24</sup> Neither say they in their heart, Let us now fear the LORD our God, that giveth rain, both the former and the latter, in his season: he reserveth unto us the appointed weeks of the harvest.  
+> **²⁰** Declare this in the house of Jacob, and publish it in Judah, saying,  
+> **²¹** Hear now this, O foolish people, and without understanding; which have eyes, and see not; which have ears, and hear not:  
+> **²²** Fear ye not me? saith the LORD: will ye not tremble at my presence, which have placed the sand *for* the bound of the sea by a perpetual decree, that it cannot pass it: and though the waves thereof toss themselves, yet can they not prevail; though they roar, yet can they not pass over it?  
+> **²³** But this people hath a revolting and a rebellious heart; they are revolted and gone.  
+> **²⁴** Neither say they in their heart, Let us now fear the LORD our God, that giveth rain, both the former and the latter, in his season: he reserveth unto us the appointed weeks of the harvest.  
 
 The prophet, having reproved them for sin and threatened the judgments of God against them, is here sent to them again upon another errand, which he must *publish in Judah;* the purport of it is to persuade them to fear God, which would be an effectual principle of their reformation, as the want of that fear had been at the bottom of their apostasy.
 
@@ -83,13 +83,13 @@ III\. He suggests some of those things which are proper to possess us with a hol
 
 ## Expostulation with Israel. (b. c. 608.)
 
-> <sup>25</sup> Your iniquities have turned away these *things,* and your sins have withholden good *things* from you.  
-> <sup>26</sup> For among my people are found wicked *men:* they lay wait, as he that setteth snares; they set a trap, they catch men.  
-> <sup>27</sup> As a cage is full of birds, so *are* their houses full of deceit: therefore they are become great, and waxen rich.  
-> <sup>28</sup> They are waxen fat, they shine: yea, they overpass the deeds of the wicked: they judge not the cause, the cause of the fatherless, yet they prosper; and the right of the needy do they not judge.  
-> <sup>29</sup> Shall I not visit for these *things?* saith the LORD: shall not my soul be avenged on such a nation as this?  
-> <sup>30</sup> A wonderful and horrible thing is committed in the land;  
-> <sup>31</sup> The prophets prophesy falsely, and the priests bear rule by their means; and my people love *to have it* so: and what will ye do in the end thereof?  
+> **²⁵** Your iniquities have turned away these *things,* and your sins have withholden good *things* from you.  
+> **²⁶** For among my people are found wicked *men:* they lay wait, as he that setteth snares; they set a trap, they catch men.  
+> **²⁷** As a cage is full of birds, so *are* their houses full of deceit: therefore they are become great, and waxen rich.  
+> **²⁸** They are waxen fat, they shine: yea, they overpass the deeds of the wicked: they judge not the cause, the cause of the fatherless, yet they prosper; and the right of the needy do they not judge.  
+> **²⁹** Shall I not visit for these *things?* saith the LORD: shall not my soul be avenged on such a nation as this?  
+> **³⁰** A wonderful and horrible thing is committed in the land;  
+> **³¹** The prophets prophesy falsely, and the priests bear rule by their means; and my people love *to have it* so: and what will ye do in the end thereof?  
 
 Here, I. The prophet shows them what mischief their sins had done them: They *have turned away these things* (Jer 5:25), the *former and the latter rain,* which they used to have *in due season* (Jer 5:24), but which had of late been withheld (Jer 3:3), by reason of which the appointed weeks of harvest had sometimes disappointed them. "It is *your sin* that *has withholden good from you,* when God was ready to bestow it upon you." Note, It is sin that stops the current of God's favour to us, and deprives us of the blessings we used to receive. It is that which makes the heavens as brass and the earth as iron.
 

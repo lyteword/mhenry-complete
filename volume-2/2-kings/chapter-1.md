@@ -8,14 +8,14 @@ We here find Ahaziah, the genuine son and successor of Ahab, on the throne of Is
 
 ## Ahaziah's Sickness. (b. c. 896.)
 
-> <sup>1</sup> Then Moab rebelled against Israel after the death of Ahab.  
-> <sup>2</sup> And Ahaziah fell down through a lattice in his upper chamber that *was* in Samaria, and was sick: and he sent messengers, and said unto them, Go, enquire of Baal-zebub the god of Ekron whether I shall recover of this disease.  
-> <sup>3</sup> But the angel of the LORD said to Elijah the Tishbite, Arise, go up to meet the messengers of the king of Samaria, and say unto them, *Is it* not because *there is* not a God in Israel, *that* ye go to enquire of Baal-zebub the god of Ekron?  
-> <sup>4</sup> Now therefore thus saith the LORD, Thou shalt not come down from that bed on which thou art gone up, but shalt surely die. And Elijah departed.  
-> <sup>5</sup> And when the messengers turned back unto him, he said unto them, Why are ye now turned back?  
-> <sup>6</sup> And they said unto him, There came a man up to meet us, and said unto us, Go, turn again unto the king that sent you, and say unto him, Thus saith the LORD, *Is it* not because *there is* not a God in Israel, *that* thou sendest to enquire of Baal-zebub the god of Ekron? therefore thou shalt not come down from that bed on which thou art gone up, but shalt surely die.  
-> <sup>7</sup> And he said unto them, What manner of man *was he* which came up to meet you, and told you these words?  
-> <sup>8</sup> And they answered him, *He was* a hairy man, and girt with a girdle of leather about his loins. And he said, It *is* Elijah the Tishbite.  
+> **¹** Then Moab rebelled against Israel after the death of Ahab.  
+> **²** And Ahaziah fell down through a lattice in his upper chamber that *was* in Samaria, and was sick: and he sent messengers, and said unto them, Go, enquire of Baal-zebub the god of Ekron whether I shall recover of this disease.  
+> **³** But the angel of the LORD said to Elijah the Tishbite, Arise, go up to meet the messengers of the king of Samaria, and say unto them, *Is it* not because *there is* not a God in Israel, *that* ye go to enquire of Baal-zebub the god of Ekron?  
+> **⁴** Now therefore thus saith the LORD, Thou shalt not come down from that bed on which thou art gone up, but shalt surely die. And Elijah departed.  
+> **⁵** And when the messengers turned back unto him, he said unto them, Why are ye now turned back?  
+> **⁶** And they said unto him, There came a man up to meet us, and said unto us, Go, turn again unto the king that sent you, and say unto him, Thus saith the LORD, *Is it* not because *there is* not a God in Israel, *that* thou sendest to enquire of Baal-zebub the god of Ekron? therefore thou shalt not come down from that bed on which thou art gone up, but shalt surely die.  
+> **⁷** And he said unto them, What manner of man *was he* which came up to meet you, and told you these words?  
+> **⁸** And they answered him, *He was* a hairy man, and girt with a girdle of leather about his loins. And he said, It *is* Elijah the Tishbite.  
 
 We have here Ahaziah, the wicked king of Israel, under God's rebukes both by his providence and by his prophet, by his rod and by his word.
 
@@ -35,16 +35,16 @@ V\. The message being delivered to him by his servants, he enquires of them by w
 
 ## Fire Called from Heaven by Elijah. (b. c. 896.)
 
-> <sup>9</sup> Then the king sent unto him a captain of fifty with his fifty. And he went up to him: and, behold, he sat on the top of a hill. And he spake unto him, Thou man of God, the king hath said, Come down.  
-> <sup>10</sup> And Elijah answered and said to the captain of fifty, If I *be* a man of God, then let fire come down from heaven, and consume thee and thy fifty. And there came down fire from heaven, and consumed him and his fifty.  
-> <sup>11</sup> Again also he sent unto him another captain of fifty with his fifty. And he answered and said unto him, O man of God, thus hath the king said, Come down quickly.  
-> <sup>12</sup> And Elijah answered and said unto them, If I *be* a man of God, let fire come down from heaven, and consume thee and thy fifty. And the fire of God came down from heaven, and consumed him and his fifty.  
-> <sup>13</sup> And he sent again a captain of the third fifty with his fifty. And the third captain of fifty went up, and came and fell on his knees before Elijah, and besought him, and said unto him, O man of God, I pray thee, let my life, and the life of these fifty thy servants, be precious in thy sight.  
-> <sup>14</sup> Behold, there came fire down from heaven, and burnt up the two captains of the former fifties with their fifties: therefore let my life now be precious in thy sight.  
-> <sup>15</sup> And the angel of the LORD said unto Elijah, Go down with him: be not afraid of him. And he arose, and went down with him unto the king.  
-> <sup>16</sup> And he said unto him, Thus saith the LORD, Forasmuch as thou hast sent messengers to enquire of Baal-zebub the god of Ekron, *is it* not because *there is* no God in Israel to enquire of his word? therefore thou shalt not come down off that bed on which thou art gone up, but shalt surely die.  
-> <sup>17</sup> So he died according to the word of the LORD which Elijah had spoken. And Jehoram reigned in his stead in the second year of Jehoram the son of Jehoshaphat king of Judah; because he had no son.  
-> <sup>18</sup> Now the rest of the acts of Ahaziah which he did, *are* they not written in the book of the chronicles of the kings of Israel?  
+> **⁹** Then the king sent unto him a captain of fifty with his fifty. And he went up to him: and, behold, he sat on the top of a hill. And he spake unto him, Thou man of God, the king hath said, Come down.  
+> **¹⁰** And Elijah answered and said to the captain of fifty, If I *be* a man of God, then let fire come down from heaven, and consume thee and thy fifty. And there came down fire from heaven, and consumed him and his fifty.  
+> **¹¹** Again also he sent unto him another captain of fifty with his fifty. And he answered and said unto him, O man of God, thus hath the king said, Come down quickly.  
+> **¹²** And Elijah answered and said unto them, If I *be* a man of God, let fire come down from heaven, and consume thee and thy fifty. And the fire of God came down from heaven, and consumed him and his fifty.  
+> **¹³** And he sent again a captain of the third fifty with his fifty. And the third captain of fifty went up, and came and fell on his knees before Elijah, and besought him, and said unto him, O man of God, I pray thee, let my life, and the life of these fifty thy servants, be precious in thy sight.  
+> **¹⁴** Behold, there came fire down from heaven, and burnt up the two captains of the former fifties with their fifties: therefore let my life now be precious in thy sight.  
+> **¹⁵** And the angel of the LORD said unto Elijah, Go down with him: be not afraid of him. And he arose, and went down with him unto the king.  
+> **¹⁶** And he said unto him, Thus saith the LORD, Forasmuch as thou hast sent messengers to enquire of Baal-zebub the god of Ekron, *is it* not because *there is* no God in Israel to enquire of his word? therefore thou shalt not come down off that bed on which thou art gone up, but shalt surely die.  
+> **¹⁷** So he died according to the word of the LORD which Elijah had spoken. And Jehoram reigned in his stead in the second year of Jehoram the son of Jehoshaphat king of Judah; because he had no son.  
+> **¹⁸** Now the rest of the acts of Ahaziah which he did, *are* they not written in the book of the chronicles of the kings of Israel?  
 
 Here, I. The king issues out a warrant for the apprehending of Elijah. If the God of Ekron had told him he should die, it is probable he would have taken it quietly; but now that a prophet of the Lord tells him so, reproving him for his sin and reminding him of the God of Israel, he cannot bear it. So far is he from making any good improvement of the warning given him that he is enraged against the prophet; neither his sickness, nor the thoughts of death, made any good impressions upon him, nor possessed him with any fear of God. No external alarms will startle and soften secure sinners, but rather exasperate them. Did the king think Elijah a prophet, a true prophet? Why then durst he persecute him? Did he think him a common person? What occasion was there to send such a force, in order to seize him? Thus a band of men must take our Lord Jesus.
 

@@ -8,11 +8,11 @@ After the precious promises in the two foregoing chapters, relating to the Messi
 
 ## God's Expostulations with His People. (b. c. 710.)
 
-> <sup>1</sup> Hear ye now what the LORD saith; Arise, contend thou before the mountains, and let the hills hear thy voice.  
-> <sup>2</sup> Hear ye, O mountains, the LORD's controversy, and ye strong foundations of the earth: for the LORD hath a controversy with his people, and he will plead with Israel.  
-> <sup>3</sup> O my people, what have I done unto thee? and wherein have I wearied thee? testify against me.  
-> <sup>4</sup> For I brought thee up out of the land of Egypt, and redeemed thee out of the house of servants; and I sent before thee Moses, Aaron, and Miriam.  
-> <sup>5</sup> O my people, remember now what Balak king of Moab consulted, and what Balaam the son of Beor answered him from Shittim unto Gilgal; that ye may know the righteousness of the LORD.  
+> **¹** Hear ye now what the LORD saith; Arise, contend thou before the mountains, and let the hills hear thy voice.  
+> **²** Hear ye, O mountains, the LORD's controversy, and ye strong foundations of the earth: for the LORD hath a controversy with his people, and he will plead with Israel.  
+> **³** O my people, what have I done unto thee? and wherein have I wearied thee? testify against me.  
+> **⁴** For I brought thee up out of the land of Egypt, and redeemed thee out of the house of servants; and I sent before thee Moses, Aaron, and Miriam.  
+> **⁵** O my people, remember now what Balak king of Moab consulted, and what Balaam the son of Beor answered him from Shittim unto Gilgal; that ye may know the righteousness of the LORD.  
 
 Here, I. The prefaces to the message are very solemn and such as may engage our most serious attention. 1. The people are commanded to give audience: *Hear you now what the Lord says.* What the prophet speaks he speaks from God, and in his name; they are therefore bound to hear it, not as the word of a sinful dying man, but of the holy living God. *Hear now* what he saith, for, first or last, he will be heard. 2. The prophet is commanded to speak in earnest, and to put an emphasis upon what he said: *Arise, contend thou before the mountains,* or *with the mountains,* and *let the hills hear thy voice,* if it were possible; contend with the mountains and hills of Judea, that is, with the inhabitants of those mountains and hills; and, some think, reference is had to those mountains and hills on which they worshipped idols and which were thus polluted. But it is rather to be taken more generally, as appears by his call, not only to the mountains, but to the *strong foundations of the earth,* pursuant to the instructions given him. This is designed, (1.) To excite the earnestness of the prophet; he must speak as vehemently as if he designed to make even the hills and mountains hear him, must *cry aloud, and not spare;* what he had to say in God's name he must proclaim publicly before the mountains, as one that was neither ashamed nor afraid to own his message; he must speak as one concerned, as one that desired to speak to the heart, and therefore appeared to speak from the heart. (2.) To expose the stupidity of the people; "*Let the hills hear thy voice,* for this senseless careless people will not hear it, will not heed it. Let the rocks, the *foundations of the earth,* that have no ears, hear, since Israel, that has ears, will not hear." It is an appeal to the mountains and hills; let them bear witness that Israel has fair warning given them, and good counsel, if they would but take it. Thus Isaiah begins with, *Hear, O heavens! and give ear, O earth!* Let them *judge between God and his vineyard.*
 
@@ -20,9 +20,9 @@ II\. The message itself is very affecting. He is to let all the world know that 
 
 ## Anxiety Respecting the Divine Favour. (b. c. 710.)
 
-> <sup>6</sup> Wherewith shall I come before the LORD, *and* bow myself before the high God? shall I come before him with burnt offerings, with calves of a year old?  
-> <sup>7</sup> Will the LORD be pleased with thousands of rams, *or* with ten thousands of rivers of oil? shall I give my firstborn *for* my transgression, the fruit of my body *for* the sin of my soul?  
-> <sup>8</sup> He hath shewed thee, O man, what *is* good; and what doth the LORD require of thee, but to do justly, and to love mercy, and to walk humbly with thy God?  
+> **⁶** Wherewith shall I come before the LORD, *and* bow myself before the high God? shall I come before him with burnt offerings, with calves of a year old?  
+> **⁷** Will the LORD be pleased with thousands of rams, *or* with ten thousands of rivers of oil? shall I give my firstborn *for* my transgression, the fruit of my body *for* the sin of my soul?  
+> **⁸** He hath shewed thee, O man, what *is* good; and what doth the LORD require of thee, but to do justly, and to love mercy, and to walk humbly with thy God?  
 
 Here is the proposal for accommodation between God and Israel, the parties that were at variance in the beginning of the chapter. Upon the trial, judgment is given against Israel; they are convicted of injustice and ingratitude towards God, the crimes with which they stood charged. Their guilt is too plain to be denied, too great to be excused, and therefore,
 
@@ -42,14 +42,14 @@ III\. God tells them plainly what he demands, and insists upon, from those that 
 
 ## Accusations and Threatenings. (b. c. 710.)
 
-> <sup>9</sup> The LORD's voice crieth unto the city, and *the man of* wisdom shall see thy name: hear ye the rod, and who hath appointed it.  
-> <sup>10</sup> Are there yet the treasures of wickedness in the house of the wicked, and the scant measure *that is* abominable?  
-> <sup>11</sup> Shall I count *them* pure with the wicked balances, and with the bag of deceitful weights?  
-> <sup>12</sup> For the rich men thereof are full of violence, and the inhabitants thereof have spoken lies, and their tongue *is* deceitful in their mouth.  
-> <sup>13</sup> Therefore also will I make *thee* sick in smiting thee, in making *thee* desolate because of thy sins.  
-> <sup>14</sup> Thou shalt eat, but not be satisfied; and thy casting down *shall be* in the midst of thee; and thou shalt take hold, but shalt not deliver; and *that* which thou deliverest will I give up to the sword.  
-> <sup>15</sup> Thou shalt sow, but thou shalt not reap; thou shalt tread the olives, but thou shalt not anoint thee with oil; and sweet wine, but shalt not drink wine.  
-> <sup>16</sup> For the statutes of Omri are kept, and all the works of the house of Ahab, and ye walk in their counsels; that I should make thee a desolation, and the inhabitants thereof a hissing: therefore ye shall bear the reproach of my people.  
+> **⁹** The LORD's voice crieth unto the city, and *the man of* wisdom shall see thy name: hear ye the rod, and who hath appointed it.  
+> **¹⁰** Are there yet the treasures of wickedness in the house of the wicked, and the scant measure *that is* abominable?  
+> **¹¹** Shall I count *them* pure with the wicked balances, and with the bag of deceitful weights?  
+> **¹²** For the rich men thereof are full of violence, and the inhabitants thereof have spoken lies, and their tongue *is* deceitful in their mouth.  
+> **¹³** Therefore also will I make *thee* sick in smiting thee, in making *thee* desolate because of thy sins.  
+> **¹⁴** Thou shalt eat, but not be satisfied; and thy casting down *shall be* in the midst of thee; and thou shalt take hold, but shalt not deliver; and *that* which thou deliverest will I give up to the sword.  
+> **¹⁵** Thou shalt sow, but thou shalt not reap; thou shalt tread the olives, but thou shalt not anoint thee with oil; and sweet wine, but shalt not drink wine.  
+> **¹⁶** For the statutes of Omri are kept, and all the works of the house of Ahab, and ye walk in their counsels; that I should make thee a desolation, and the inhabitants thereof a hissing: therefore ye shall bear the reproach of my people.  
 
 God, having shown them how necessary it was that they should do justly, here shows them how plain it was that they had done unjustly; and since they submitted not to his controversy, nor went the right way to have it taken up, here he proceeds in it. Observe,
 

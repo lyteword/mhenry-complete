@@ -8,12 +8,12 @@ This psalm is a most solemn and earnest call to all the creatures, according to 
 
 ## An Invitation to Praise.
 
-> <sup>1</sup> Praise ye the LORD. Praise ye the LORD from the heavens: praise him in the heights.  
-> <sup>2</sup> Praise ye him, all his angels: praise ye him, all his hosts.  
-> <sup>3</sup> Praise ye him, sun and moon: praise him, all ye stars of light.  
-> <sup>4</sup> Praise him, ye heavens of heavens, and ye waters that *be* above the heavens.  
-> <sup>5</sup> Let them praise the name of the LORD: for he commanded, and they were created.  
-> <sup>6</sup> He hath also stablished them for ever and ever: he hath made a decree which shall not pass.  
+> **¹** Praise ye the LORD. Praise ye the LORD from the heavens: praise him in the heights.  
+> **²** Praise ye him, all his angels: praise ye him, all his hosts.  
+> **³** Praise ye him, sun and moon: praise him, all ye stars of light.  
+> **⁴** Praise him, ye heavens of heavens, and ye waters that *be* above the heavens.  
+> **⁵** Let them praise the name of the LORD: for he commanded, and they were created.  
+> **⁶** He hath also stablished them for ever and ever: he hath made a decree which shall not pass.  
 
 We, in this dark and depressed world, know but little of the world of light and exaltation, and, conversing within narrow confines, can scarcely admit any tolerable conceptions of the vast regions above. But this we know,
 
@@ -27,14 +27,14 @@ II\. That there is above us not only an assembly of blessed spirits, but a syste
 
 ## An Invitation to Praise.
 
-> <sup>7</sup> Praise the LORD from the earth, ye dragons, and all deeps:  
-> <sup>8</sup> Fire, and hail; snow, and vapour; stormy wind fulfilling his word:  
-> <sup>9</sup> Mountains, and all hills; fruitful trees, and all cedars:  
-> <sup>10</sup> Beasts, and all cattle; creeping things, and flying fowl:  
-> <sup>11</sup> Kings of the earth, and all people; princes, and all judges of the earth:  
-> <sup>12</sup> Both young men, and maidens; old men, and children:  
-> <sup>13</sup> Let them praise the name of the LORD: for his name alone is excellent; his glory *is* above the earth and heaven.  
-> <sup>14</sup> He also exalteth the horn of his people, the praise of all his saints; *even* of the children of Israel, a people near unto him. Praise ye the LORD.  
+> **⁷** Praise the LORD from the earth, ye dragons, and all deeps:  
+> **⁸** Fire, and hail; snow, and vapour; stormy wind fulfilling his word:  
+> **⁹** Mountains, and all hills; fruitful trees, and all cedars:  
+> **¹⁰** Beasts, and all cattle; creeping things, and flying fowl:  
+> **¹¹** Kings of the earth, and all people; princes, and all judges of the earth:  
+> **¹²** Both young men, and maidens; old men, and children:  
+> **¹³** Let them praise the name of the LORD: for his name alone is excellent; his glory *is* above the earth and heaven.  
+> **¹⁴** He also exalteth the horn of his people, the praise of all his saints; *even* of the children of Israel, a people near unto him. Praise ye the LORD.  
 
 Considering that this earth, and the atmosphere that surrounds it, are the very sediment of the universe, it concerns us to enquire after those considerations that may be of use to reconcile us to our place in it; and I know none more likely than this (next to the visit which the Son of God once made to it), that even in this world, dark and as bad as it is, God is praised: *Praise you the Lord from the earth,* Ps 148:7. As the rays of the sun, which are darted directly from heaven, reflect back (though more weakly) from the earth, so should the praises of God, with which this cold and infected world should be warmed and perfumed.
 

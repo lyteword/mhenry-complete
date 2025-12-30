@@ -8,15 +8,15 @@ The prophet has now come off his circuit, which he went as judge, in God's name,
 
 ## The Watchman's Office; The Prophet a Watchman to Israel. (b. c. 587.)
 
-> <sup>1</sup> Again the word of the LORD came unto me, saying,  
-> <sup>2</sup> Son of man, speak to the children of thy people, and say unto them, When I bring the sword upon a land, if the people of the land take a man of their coasts, and set him for their watchman:  
-> <sup>3</sup> If when he seeth the sword come upon the land, he blow the trumpet, and warn the people;  
-> <sup>4</sup> Then whosoever heareth the sound of the trumpet, and taketh not warning; if the sword come, and take him away, his blood shall be upon his own head.  
-> <sup>5</sup> He heard the sound of the trumpet, and took not warning; his blood shall be upon him. But he that taketh warning shall deliver his soul.  
-> <sup>6</sup> But if the watchman see the sword come, and blow not the trumpet, and the people be not warned; if the sword come, and take *any* person from among them, he is taken away in his iniquity; but his blood will I require at the watchman's hand.  
-> <sup>7</sup> So thou, O son of man, I have set thee a watchman unto the house of Israel; therefore thou shalt hear the word at my mouth, and warn them from me.  
-> <sup>8</sup> When I say unto the wicked, O wicked *man,* thou shalt surely die; if thou dost not speak to warn the wicked from his way, that wicked *man* shall die in his iniquity; but his blood will I require at thine hand.  
-> <sup>9</sup> Nevertheless, if thou warn the wicked of his way to turn from it; if he do not turn from his way, he shall die in his iniquity; but thou hast delivered thy soul.  
+> **¹** Again the word of the LORD came unto me, saying,  
+> **²** Son of man, speak to the children of thy people, and say unto them, When I bring the sword upon a land, if the people of the land take a man of their coasts, and set him for their watchman:  
+> **³** If when he seeth the sword come upon the land, he blow the trumpet, and warn the people;  
+> **⁴** Then whosoever heareth the sound of the trumpet, and taketh not warning; if the sword come, and take him away, his blood shall be upon his own head.  
+> **⁵** He heard the sound of the trumpet, and took not warning; his blood shall be upon him. But he that taketh warning shall deliver his soul.  
+> **⁶** But if the watchman see the sword come, and blow not the trumpet, and the people be not warned; if the sword come, and take *any* person from among them, he is taken away in his iniquity; but his blood will I require at the watchman's hand.  
+> **⁷** So thou, O son of man, I have set thee a watchman unto the house of Israel; therefore thou shalt hear the word at my mouth, and warn them from me.  
+> **⁸** When I say unto the wicked, O wicked *man,* thou shalt surely die; if thou dost not speak to warn the wicked from his way, that wicked *man* shall die in his iniquity; but his blood will I require at thine hand.  
+> **⁹** Nevertheless, if thou warn the wicked of his way to turn from it; if he do not turn from his way, he shall die in his iniquity; but thou hast delivered thy soul.  
 
 The prophet had been, by express order from God, taken off from prophesying to the Jews, just then when the news came that Jerusalem was invested, and close siege laid to it, Eze 24:27. But now that Jerusalem is taken, two years after, he is appointed again to direct his speech to them; and there his commission is renewed. If God had abandoned them quite, he would not have sent prophets to them; nor, if he had not had mercy in store for them, would he have *shown them such things as these.* In these verses we have,
 
@@ -34,17 +34,17 @@ II\. The application of this to the prophet, Eze 33:7,9.
 
 ## The Cavils of the People Answered. (b. c. 587.)
 
-> <sup>10</sup> Therefore, O thou son of man, speak unto the house of Israel; Thus ye speak, saying, If our transgressions and our sins *be* upon us, and we pine away in them, how should we then live?  
-> <sup>11</sup> Say unto them, *As* I live, saith the Lord GOD, I have no pleasure in the death of the wicked; but that the wicked turn from his way and live: turn ye, turn ye from your evil ways; for why will ye die, O house of Israel?  
-> <sup>12</sup> Therefore, thou son of man, say unto the children of thy people, The righteousness of the righteous shall not deliver him in the day of his transgression: as for the wickedness of the wicked, he shall not fall thereby in the day that he turneth from his wickedness; neither shall the righteous be able to live for his *righteousness* in the day that he sinneth.  
-> <sup>13</sup> When I shall say to the righteous, *that* he shall surely live; if he trust to his own righteousness, and commit iniquity, all his righteousnesses shall not be remembered; but for his iniquity that he hath committed, he shall die for it.  
-> <sup>14</sup> Again, when I say unto the wicked, Thou shalt surely die; if he turn from his sin, and do that which is lawful and right;  
-> <sup>15</sup> *If* the wicked restore the pledge, give again that he had robbed, walk in the statutes of life, without committing iniquity; he shall surely live, he shall not die.  
-> <sup>16</sup> None of his sins that he hath committed shall be mentioned unto him: he hath done that which is lawful and right; he shall surely live.  
-> <sup>17</sup> Yet the children of thy people say, The way of the Lord is not equal: but as for them, their way is not equal.  
-> <sup>18</sup> When the righteous turneth from his righteousness, and committeth iniquity, he shall even die thereby.  
-> <sup>19</sup> But if the wicked turn from his wickedness, and do that which is lawful and right, he shall live thereby.  
-> <sup>20</sup> Yet ye say, The way of the Lord is not equal. O ye house of Israel, I will judge you every one after his ways.  
+> **¹⁰** Therefore, O thou son of man, speak unto the house of Israel; Thus ye speak, saying, If our transgressions and our sins *be* upon us, and we pine away in them, how should we then live?  
+> **¹¹** Say unto them, *As* I live, saith the Lord GOD, I have no pleasure in the death of the wicked; but that the wicked turn from his way and live: turn ye, turn ye from your evil ways; for why will ye die, O house of Israel?  
+> **¹²** Therefore, thou son of man, say unto the children of thy people, The righteousness of the righteous shall not deliver him in the day of his transgression: as for the wickedness of the wicked, he shall not fall thereby in the day that he turneth from his wickedness; neither shall the righteous be able to live for his *righteousness* in the day that he sinneth.  
+> **¹³** When I shall say to the righteous, *that* he shall surely live; if he trust to his own righteousness, and commit iniquity, all his righteousnesses shall not be remembered; but for his iniquity that he hath committed, he shall die for it.  
+> **¹⁴** Again, when I say unto the wicked, Thou shalt surely die; if he turn from his sin, and do that which is lawful and right;  
+> **¹⁵** *If* the wicked restore the pledge, give again that he had robbed, walk in the statutes of life, without committing iniquity; he shall surely live, he shall not die.  
+> **¹⁶** None of his sins that he hath committed shall be mentioned unto him: he hath done that which is lawful and right; he shall surely live.  
+> **¹⁷** Yet the children of thy people say, The way of the Lord is not equal: but as for them, their way is not equal.  
+> **¹⁸** When the righteous turneth from his righteousness, and committeth iniquity, he shall even die thereby.  
+> **¹⁹** But if the wicked turn from his wickedness, and do that which is lawful and right, he shall live thereby.  
+> **²⁰** Yet ye say, The way of the Lord is not equal. O ye house of Israel, I will judge you every one after his ways.  
 
 These verses are the substance of what we had before (Eze 18:20, etc.) and they are so full and express a declaration of the terms on which people stand with God (as the former were of the terms on which ministers stand) that it is no wonder that they are here repeated, as those were, though we had the substance of them before. Observe here,
 
@@ -64,15 +64,15 @@ Now lay all this together, and then judge whether the *way of the Lord be not eq
 
 ## Message to Inhabitants of Judah; Rebuke to the Proud Jews. (b. c. 587.)
 
-> <sup>21</sup> And it came to pass in the twelfth year of our captivity, in the tenth *month,* in the fifth *day* of the month, *that* one that had escaped out of Jerusalem came unto me, saying, The city is smitten.  
-> <sup>22</sup> Now the hand of the LORD was upon me in the evening, afore he that was escaped came; and had opened my mouth, until he came to me in the morning; and my mouth was opened, and I was no more dumb.  
-> <sup>23</sup> Then the word of the LORD came unto me, saying,  
-> <sup>24</sup> Son of man, they that inhabit those wastes of the land of Israel speak, saying, Abraham was one, and he inherited the land: but we *are* many; the land is given us for inheritance.  
-> <sup>25</sup> Wherefore say unto them, Thus saith the Lord GOD; Ye eat with the blood, and lift up your eyes toward your idols, and shed blood: and shall ye possess the land?  
-> <sup>26</sup> Ye stand upon your sword, ye work abomination, and ye defile every one his neighbour's wife: and shall ye possess the land?  
-> <sup>27</sup> Say thou thus unto them, Thus saith the Lord GOD; *As* I live, surely they that *are* in the wastes shall fall by the sword, and him that *is* in the open field will I give to the beasts to be devoured, and they that *be* in the forts and in the caves shall die of the pestilence.  
-> <sup>28</sup> For I will lay the land most desolate, and the pomp of her strength shall cease; and the mountains of Israel shall be desolate, that none shall pass through.  
-> <sup>29</sup> Then shall they know that I *am* the LORD, when I have laid the land most desolate because of all their abominations which they have committed.  
+> **²¹** And it came to pass in the twelfth year of our captivity, in the tenth *month,* in the fifth *day* of the month, *that* one that had escaped out of Jerusalem came unto me, saying, The city is smitten.  
+> **²²** Now the hand of the LORD was upon me in the evening, afore he that was escaped came; and had opened my mouth, until he came to me in the morning; and my mouth was opened, and I was no more dumb.  
+> **²³** Then the word of the LORD came unto me, saying,  
+> **²⁴** Son of man, they that inhabit those wastes of the land of Israel speak, saying, Abraham was one, and he inherited the land: but we *are* many; the land is given us for inheritance.  
+> **²⁵** Wherefore say unto them, Thus saith the Lord GOD; Ye eat with the blood, and lift up your eyes toward your idols, and shed blood: and shall ye possess the land?  
+> **²⁶** Ye stand upon your sword, ye work abomination, and ye defile every one his neighbour's wife: and shall ye possess the land?  
+> **²⁷** Say thou thus unto them, Thus saith the Lord GOD; *As* I live, surely they that *are* in the wastes shall fall by the sword, and him that *is* in the open field will I give to the beasts to be devoured, and they that *be* in the forts and in the caves shall die of the pestilence.  
+> **²⁸** For I will lay the land most desolate, and the pomp of her strength shall cease; and the mountains of Israel shall be desolate, that none shall pass through.  
+> **²⁹** Then shall they know that I *am* the LORD, when I have laid the land most desolate because of all their abominations which they have committed.  
 
 Here we have,
 
@@ -92,10 +92,10 @@ III\. The particular message he was entrusted with, relating to these Jews that 
 
 ## Hypocritical Professions. (b. c. 587.)
 
-> <sup>30</sup> Also, thou son of man, the children of thy people still are talking against thee by the walls and in the doors of the houses, and speak one to another, every one to his brother, saying, Come, I pray you, and hear what is the word that cometh forth from the LORD.  
-> <sup>31</sup> And they come unto thee as the people cometh, and they sit before thee *as* my people, and they hear thy words, but they will not do them: for with their mouth they shew much love, *but* their heart goeth after their covetousness.  
-> <sup>32</sup> And, lo, thou *art* unto them as a very lovely song of one that hath a pleasant voice, and can play well on an instrument: for they hear thy words, but they do them not.  
-> <sup>33</sup> And when this cometh to pass, (lo, it will come,) then shall they know that a prophet hath been among them.  
+> **³⁰** Also, thou son of man, the children of thy people still are talking against thee by the walls and in the doors of the houses, and speak one to another, every one to his brother, saying, Come, I pray you, and hear what is the word that cometh forth from the LORD.  
+> **³¹** And they come unto thee as the people cometh, and they sit before thee *as* my people, and they hear thy words, but they will not do them: for with their mouth they shew much love, *but* their heart goeth after their covetousness.  
+> **³²** And, lo, thou *art* unto them as a very lovely song of one that hath a pleasant voice, and can play well on an instrument: for they hear thy words, but they do them not.  
+> **³³** And when this cometh to pass, (lo, it will come,) then shall they know that a prophet hath been among them.  
 
 The Eze 33:1-29 spoke conviction to the Jews who remained in the land of Israel, who were monuments of sparing mercy and yet returned not to the Lord; in these verses those are reproved who were now in captivity in Babylon, under divine rebukes, and yet were not reformed by them. They are not indeed charged with the same gross enormities that the others are charged with. They made some show of religion and devotion; but their hearts were not right with God. The thing they are here accused of is *mocking the messengers of the lord,* one of their measure-filling sins, which brought this ruin upon them, and yet they were not cured of it. Two ways they mocked the prophet Ezekiel:—
 

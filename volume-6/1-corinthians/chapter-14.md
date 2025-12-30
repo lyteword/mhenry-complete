@@ -8,11 +8,11 @@ In this chapter the apostle directs them about the use of their spiritual gifts,
 
 ## On Spiritual Gifts. (a. d. 57.)
 
-> <sup>1</sup> Follow after charity, and desire spiritual *gifts,* but rather that ye may prophesy.  
-> <sup>2</sup> For he that speaketh in an *unknown* tongue speaketh not unto men, but unto God: for no man understandeth *him;* howbeit in the spirit he speaketh mysteries.  
-> <sup>3</sup> But he that prophesieth speaketh unto men *to* edification, and exhortation, and comfort.  
-> <sup>4</sup> He that speaketh in an *unknown* tongue edifieth himself; but he that prophesieth edifieth the church.  
-> <sup>5</sup> I would that ye all spake with tongues, but rather that ye prophesied: for greater *is* he that prophesieth than he that speaketh with tongues, except he interpret, that the church may receive edifying.  
+> **¹** Follow after charity, and desire spiritual *gifts,* but rather that ye may prophesy.  
+> **²** For he that speaketh in an *unknown* tongue speaketh not unto men, but unto God: for no man understandeth *him;* howbeit in the spirit he speaketh mysteries.  
+> **³** But he that prophesieth speaketh unto men *to* edification, and exhortation, and comfort.  
+> **⁴** He that speaketh in an *unknown* tongue edifieth himself; but he that prophesieth edifieth the church.  
+> **⁵** I would that ye all spake with tongues, but rather that ye prophesied: for greater *is* he that prophesieth than he that speaketh with tongues, except he interpret, that the church may receive edifying.  
 
 The apostle, in the foregoing chapter, had himself preferred, and advised the Corinthians to prefer, Christian charity to all spiritual gifts. Here he teaches them, among spiritual gifts, which they should prefer, and by what rules they should make comparison. He begins the chapter,
 
@@ -24,15 +24,15 @@ III\. He assigns the reasons of this preference. And it is remarkable here that 
 
 ## On Spiritual Gifts. (a. d. 57.)
 
-> <sup>6</sup> Now, brethren, if I come unto you speaking with tongues, what shall I profit you, except I shall speak to you either by revelation, or by knowledge, or by prophesying, or by doctrine?  
-> <sup>7</sup> And even things without life giving sound, whether pipe or harp, except they give a distinction in the sounds, how shall it be known what is piped or harped?  
-> <sup>8</sup> For if the trumpet give an uncertain sound, who shall prepare himself to the battle?  
-> <sup>9</sup> So likewise ye, except ye utter by the tongue words easy to be understood, how shall it be known what is spoken? for ye shall speak into the air.  
-> <sup>10</sup> There are, it may be, so many kinds of voices in the world, and none of them *is* without signification.  
-> <sup>11</sup> Therefore if I know not the meaning of the voice, I shall be unto him that speaketh a barbarian, and he that speaketh *shall be* a barbarian unto me.  
-> <sup>12</sup> Even so ye, forasmuch as ye are zealous of spiritual *gifts,* seek that ye may excel to the edifying of the church.  
-> <sup>13</sup> Wherefore let him that speaketh in an *unknown* tongue pray that he may interpret.  
-> <sup>14</sup> For if I pray in an *unknown* tongue, my spirit prayeth, but my understanding is unfruitful.  
+> **⁶** Now, brethren, if I come unto you speaking with tongues, what shall I profit you, except I shall speak to you either by revelation, or by knowledge, or by prophesying, or by doctrine?  
+> **⁷** And even things without life giving sound, whether pipe or harp, except they give a distinction in the sounds, how shall it be known what is piped or harped?  
+> **⁸** For if the trumpet give an uncertain sound, who shall prepare himself to the battle?  
+> **⁹** So likewise ye, except ye utter by the tongue words easy to be understood, how shall it be known what is spoken? for ye shall speak into the air.  
+> **¹⁰** There are, it may be, so many kinds of voices in the world, and none of them *is* without signification.  
+> **¹¹** Therefore if I know not the meaning of the voice, I shall be unto him that speaketh a barbarian, and he that speaketh *shall be* a barbarian unto me.  
+> **¹²** Even so ye, forasmuch as ye are zealous of spiritual *gifts,* seek that ye may excel to the edifying of the church.  
+> **¹³** Wherefore let him that speaketh in an *unknown* tongue pray that he may interpret.  
+> **¹⁴** For if I pray in an *unknown* tongue, my spirit prayeth, but my understanding is unfruitful.  
 
 In this paragraph he goes on to show how vain a thing the ostentation of speaking unknown and unintelligible language must be. It was altogether unedifying and unprofitable (1Co 14:6): *If I come to you speaking with tongues, what will it profit you, unless I speak to you by revelation, or by knowledge, or by prophesying, or by doctrine?* It would signify nothing to utter any of these in an unknown tongue. An apostle, with all his furniture, could not edify, unless he spoke to the capacity of his hearers. New revelations, the most clear explications of old ones, the most instructive discourses in themselves, would be unprofitable in a language not understood. Nay, interpretations of scripture made in an unknown tongue would need to be interpreted over again, before they could be of any use.
 
@@ -44,12 +44,12 @@ II\. Having thus established his point, in the two next verses he applies, 1. By
 
 ## On Spiritual Gifts. (a. d. 57.)
 
-> <sup>15</sup> What is it then? I will pray with the spirit, and I will pray with the understanding also: I will sing with the spirit, and I will sing with the understanding also.  
-> <sup>16</sup> Else when thou shalt bless with the spirit, how shall he that occupieth the room of the unlearned say Amen at thy giving of thanks, seeing he understandeth not what thou sayest?  
-> <sup>17</sup> For thou verily givest thanks well, but the other is not edified.  
-> <sup>18</sup> I thank my God, I speak with tongues more than ye all:  
-> <sup>19</sup> Yet in the church I had rather speak five words with my understanding, that *by my voice* I might teach others also, than ten thousand words in an *unknown* tongue.  
-> <sup>20</sup> Brethren, be not children in understanding: howbeit in malice be ye children, but in understanding be men.  
+> **¹⁵** What is it then? I will pray with the spirit, and I will pray with the understanding also: I will sing with the spirit, and I will sing with the understanding also.  
+> **¹⁶** Else when thou shalt bless with the spirit, how shall he that occupieth the room of the unlearned say Amen at thy giving of thanks, seeing he understandeth not what thou sayest?  
+> **¹⁷** For thou verily givest thanks well, but the other is not edified.  
+> **¹⁸** I thank my God, I speak with tongues more than ye all:  
+> **¹⁹** Yet in the church I had rather speak five words with my understanding, that *by my voice* I might teach others also, than ten thousand words in an *unknown* tongue.  
+> **²⁰** Brethren, be not children in understanding: howbeit in malice be ye children, but in understanding be men.  
 
 The apostle here sums up the argument hitherto, and,
 
@@ -65,11 +65,11 @@ II\. He enforces the argument with several reasons.
 
 ## On Spiritual Gifts. (a. d. 57.)
 
-> <sup>21</sup> In the law it is written, With *men of* other tongues and other lips will I speak unto this people; and yet for all that will they not hear me, saith the Lord.  
-> <sup>22</sup> Wherefore tongues are for a sign, not to them that believe, but to them that believe not: but prophesying *serveth* not for them that believe not, but for them which believe.  
-> <sup>23</sup> If therefore the whole church be come together into one place, and all speak with tongues, and there come in *those that are* unlearned, or unbelievers, will they not say that ye are mad?  
-> <sup>24</sup> But if all prophesy, and there come in one that believeth not, or *one* unlearned, he is convinced of all, he is judged of all:  
-> <sup>25</sup> And thus are the secrets of his heart made manifest; and so falling down on *his* face he will worship God, and report that God is in you of a truth.  
+> **²¹** In the law it is written, With *men of* other tongues and other lips will I speak unto this people; and yet for all that will they not hear me, saith the Lord.  
+> **²²** Wherefore tongues are for a sign, not to them that believe, but to them that believe not: but prophesying *serveth* not for them that believe not, but for them which believe.  
+> **²³** If therefore the whole church be come together into one place, and all speak with tongues, and there come in *those that are* unlearned, or unbelievers, will they not say that ye are mad?  
+> **²⁴** But if all prophesy, and there come in one that believeth not, or *one* unlearned, he is convinced of all, he is judged of all:  
+> **²⁵** And thus are the secrets of his heart made manifest; and so falling down on *his* face he will worship God, and report that God is in you of a truth.  
 
 In this passage the apostle pursues the argument, and reasons from other topics; as,
 
@@ -81,14 +81,14 @@ III\. The credit and reputation of their assemblies among unbelievers required t
 
 ## On Spiritual Gifts. (a. d. 57.)
 
-> <sup>26</sup> How is it then, brethren? when ye come together, every one of you hath a psalm, hath a doctrine, hath a tongue, hath a revelation, hath an interpretation. Let all things be done unto edifying.  
-> <sup>27</sup> If any man speak in an *unknown* tongue, *let it be* by two, or at the most *by* three, and *that* by course; and let one interpret.  
-> <sup>28</sup> But if there be no interpreter, let him keep silence in the church; and let him speak to himself, and to God.  
-> <sup>29</sup> Let the prophets speak two or three, and let the other judge.  
-> <sup>30</sup> If *any thing* be revealed to another that sitteth by, let the first hold his peace.  
-> <sup>31</sup> For ye may all prophesy one by one, that all may learn, and all may be comforted.  
-> <sup>32</sup> And the spirits of the prophets are subject to the prophets.  
-> <sup>33</sup> For God is not *the author* of confusion, but of peace, as in all churches of the saints.  
+> **²⁶** How is it then, brethren? when ye come together, every one of you hath a psalm, hath a doctrine, hath a tongue, hath a revelation, hath an interpretation. Let all things be done unto edifying.  
+> **²⁷** If any man speak in an *unknown* tongue, *let it be* by two, or at the most *by* three, and *that* by course; and let one interpret.  
+> **²⁸** But if there be no interpreter, let him keep silence in the church; and let him speak to himself, and to God.  
+> **²⁹** Let the prophets speak two or three, and let the other judge.  
+> **³⁰** If *any thing* be revealed to another that sitteth by, let the first hold his peace.  
+> **³¹** For ye may all prophesy one by one, that all may learn, and all may be comforted.  
+> **³²** And the spirits of the prophets are subject to the prophets.  
+> **³³** For God is not *the author* of confusion, but of peace, as in all churches of the saints.  
 
 In this passage the apostle reproves them for their disorder, and endeavours to correct and regulate their conduct for the future.
 
@@ -100,18 +100,18 @@ III\. The apostle gives the reasons of these regulations. As, 1. That they would
 
 ## On Spiritual Gifts. (a. d. 57.)
 
-> <sup>34</sup> Let your women keep silence in the churches: for it is not permitted unto them to speak; but *they are commanded* to be under obedience, as also saith the law.  
-> <sup>35</sup> And if they will learn any thing, let them ask their husbands at home: for it is a shame for women to speak in the church.  
+> **³⁴** Let your women keep silence in the churches: for it is not permitted unto them to speak; but *they are commanded* to be under obedience, as also saith the law.  
+> **³⁵** And if they will learn any thing, let them ask their husbands at home: for it is a shame for women to speak in the church.  
 
 Here the apostle, 1. Enjoins silence on their women in public assemblies, and to such a degree that they must not ask questions for their own information in the church, but ask their husbands at home. *They are to learn in silence with all subjection; but,* says the apostle, *I suffer them not to teach,* 1Ti 2:11,12. There is indeed an intimation (1Co 11:5) as if the women sometimes did pray and prophecy in their assemblies, which the apostle, in that passage, does not simply condemn, but the manner of performance, that is, praying or prophesying with the head uncovered, which, in that age and country, was throwing off the distinction of sexes, and setting themselves on a level with the men. But here he seems to forbid all public performances of theirs. They are not permitted to speak (1Co 14:34) in the church, neither in praying nor prophesying. The connection seems plainly to include the latter, in the limited sense in which it is taken in this chapter, namely, for preaching, or interpreting scripture by inspiration. And, indeed, for a woman to prophesy in this sense were to teach, which does not so well befit her state of subjection. A teacher of others has in that respect a superiority over them, which is not allowed the woman over the man, nor must she therefore be allowed to teach in a congregation: *I suffer them not to teach.* But praying, and uttering hymns inspired, were not teaching. And seeing there were women who had spiritual gifts of this sort in that age of the church (see Ac 22:9), and might be under this impulse in the assembly, must they altogether suppress it? Or why should they have this gift, if it must never be publicly exercised? For these reasons, some think that these general prohibitions are only to be understood in common cases; but that upon extraordinary occasions, when women were under a divine *afflatus,* and known to be so, they might have liberty of speech. They were not ordinarily to teach, nor so much as to debate and ask questions in the church, but learn in silence there; and, if difficulties occurred, *ask their own husbands at home.* Note, As it is the woman's duty to learn in subjection, it is the man's duty to keep up his superiority, by being able to instruct her; if it be her duty to ask her husband at home, it is his concern and duty to endeavour at lest to be able to answer her enquiries; if it be a shame for her to speak in the church, where she should be silent, it is a shame for him to be silent when he should speak, and not be able to give an answer, when she asks him at home. 2. We have here the reason of this injunction: It is God's law and commandment that they should be under obedience (1Co 14:34); they are placed in subordination to the man, and it is a shame for them to do any thing that looks like an affectation of changing ranks, which speaking in public seemed to imply, at least in that age, and among that people, as would public teaching much more: so that the apostle concludes it was a shame for women to speak in the church, in the assembly. Shame is the mind's uneasy reflection on having done an indecent thing. And what more indecent than for a woman to quit her rank, renounce the subordination of her sex, or do what in common account had such aspect and appearance? Note, Our spirit and conduct should be suitable to our rank. The natural distinctions God has made, we should observe. Those he has placed in subjection to others should not set themselves on a level, nor affect or assume superiority. The woman was made subject to the man, and she should keep her station and be content with it. For this reason women must be silent in the churches, not set up for teachers; for this is setting up for superiority over the man.
 
 ## On Spiritual Gifts. (a. d. 57.)
 
-> <sup>36</sup> What? came the word of God out from you? or came it unto you only?  
-> <sup>37</sup> If any man think himself to be a prophet, or spiritual, let him acknowledge that the things that I write unto you are the commandments of the Lord.  
-> <sup>38</sup> But if any man be ignorant, let him be ignorant.  
-> <sup>39</sup> Wherefore, brethren, covet to prophesy, and forbid not to speak with tongues.  
-> <sup>40</sup> Let all things be done decently and in order.  
+> **³⁶** What? came the word of God out from you? or came it unto you only?  
+> **³⁷** If any man think himself to be a prophet, or spiritual, let him acknowledge that the things that I write unto you are the commandments of the Lord.  
+> **³⁸** But if any man be ignorant, let him be ignorant.  
+> **³⁹** Wherefore, brethren, covet to prophesy, and forbid not to speak with tongues.  
+> **⁴⁰** Let all things be done decently and in order.  
 
 In these verses the apostle closes his argument, 1. With a just rebuke of the Corinthians for their extravagant pride and self-conceit: they so managed with their spiritual gifts as no church did like them; they behaved in a manner by themselves, and would not easily endure control nor regulation. Now, says the apostle, to beat down this arrogant humour, "*Came the gospel out from you? Or came it to you only?* 1Co 14:36. Did Christianity come our of Corinth? was its original among you? Or, if not, is it now limited and confined to you? are you the only church favoured with divine revelations, that you will depart from the decent usages of all other churches, and, to make ostentation of your spiritual gifts, bring confusion into Christian assemblies? How intolerably assuming is this behaviour! Pray bethink yourselves." When it was needful or proper the apostle could rebuke with all authority; and surely his rebukes, if ever, were proper here. Note, Those must be reproved and humbled whose spiritual pride and self-conceit throw Christian churches and assemblies into confusion, though such men will hardly bear even the rebukes of an apostle. 2. He lets them know that what he said to them was the command of God; nor durst any true prophet, any one really inspired, deny it (1Co 14:37): "*If any man think himself a prophet, or spiritual, let him acknowledge,* etc., nay, let him be tried by this very rule. If he will not own what I deliver on this head to be the will of Christ, he himself never had the Spirit of Christ. The Spirit of Christ can never contradict itself; if it speak in me, and in them, it must speak the same things in both. If their revelations contradict mine, they do not come from the same Spirit; either I or they must be false prophets. *By this therefore you may know them.* If they say that my directions in this matter are no divine commandments, you may depend upon it they are not divinely inspired. But if any continue after all, through prejudice or obstinacy, uncertain or ignorant whether they or I speak by the Spirit of God, they must be left under the power of this ignorance. If their pretences to inspiration can stand in competition with the apostolical character and powers which I have, I have lost all my authority and influence; and the persons who allow of this competition against me are out of the reach of conviction, and must be left to themselves." Note, It is just with God to leave those to the blindness of their own minds who wilfully shut out the light. Those who would be ignorant in so plain a case were justly left under the power of their mistake. 3. He sums up all in two general advices:—(1.) That though they should not despise the gift of tongues, nor altogether disuse it, under the regulations mentioned, yet they should prefer prophesying. This is indeed the scope of the whole argument. It was to be preferred to the other, because it was the more useful gift. (2.) He charges them to let all things be done decently and in order (1Co 14:40), that is, that they should avoid every thing that was manifestly indecent and disorderly. Not that they should hence take occasion to bring into the Christian church and worship any thing that a vain mind might think ornamental to it, or that would help to set it off. Such indecencies and disorders as he had remarked upon were especially to be shunned. They must do nothing that was manifestly childish (1Co 14:20), or that would give occasion to say they were mad (1Co 14:23), nor must they act so as to breed confusion, 1Co 14:33. This would be utterly indecent; it would make a tumult and mob of a Christian assembly. But they were to do things in order; they were to speak one after another, and not all at once; take their turns, and not interrupt one another. To do otherwise was to destroy the end of a Christians ministry, and all assemblies for Christian worship. Note, Manifest indecencies and disorders are to be carefully kept out of all Christian churches, and every part of divine worship. They should have nothing in them that is childish, absurd, ridiculous, wild, or tumultuous; but all parts of divine worship should be carried on in a manly, grave, rational, composed, and orderly manner. God is not to be dishonoured, nor his worship disgraced, by our unbecoming and disorderly performance of it and attendance at it.
 

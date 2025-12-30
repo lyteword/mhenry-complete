@@ -10,7 +10,7 @@ The foregoing psalm was penned by David when he was old, and, it should seem, so
 
 *A psalm* for Solomon.
 
-> <sup>1</sup> Give the king thy judgments, O God, and thy righteousness unto the king's son.  
+> **¹** Give the king thy judgments, O God, and thy righteousness unto the king's son.  
 
 This verse is a prayer for the king, even the king's son.
 
@@ -20,22 +20,22 @@ II\. We may apply it to Christ; not that he who intercedes for us needs us to in
 
 ## The Kingdom of Messiah.
 
-> <sup>2</sup> He shall judge thy people with righteousness, and thy poor with judgment.  
-> <sup>3</sup> The mountains shall bring peace to the people, and the little hills, by righteousness.  
-> <sup>4</sup> He shall judge the poor of the people, he shall save the children of the needy, and shall break in pieces the oppressor.  
-> <sup>5</sup> They shall fear thee as long as the sun and moon endure, throughout all generations.  
-> <sup>6</sup> He shall come down like rain upon the mown grass: as showers *that* water the earth.  
-> <sup>7</sup> In his days shall the righteous flourish; and abundance of peace so long as the moon endureth.  
-> <sup>8</sup> He shall have dominion also from sea to sea, and from the river unto the ends of the earth.  
-> <sup>9</sup> They that dwell in the wilderness shall bow before him; and his enemies shall lick the dust.  
-> <sup>10</sup> The kings of Tarshish and of the isles shall bring presents: the kings of Sheba and Seba shall offer gifts.  
-> <sup>11</sup> Yea, all kings shall fall down before him: all nations shall serve him.  
-> <sup>12</sup> For he shall deliver the needy when he crieth; the poor also, and *him* that hath no helper.  
-> <sup>13</sup> He shall spare the poor and needy, and shall save the souls of the needy.  
-> <sup>14</sup> He shall redeem their soul from deceit and violence: and precious shall their blood be in his sight.  
-> <sup>15</sup> And he shall live, and to him shall be given of the gold of Sheba: prayer also shall be made for him continually; *and* daily shall he be praised.  
-> <sup>16</sup> There shall be a handful of corn in the earth upon the top of the mountains; the fruit thereof shall shake like Lebanon: and *they* of the city shall flourish like grass of the earth.  
-> <sup>17</sup> His name shall endure for ever: his name shall be continued as long as the sun: and *men* shall be blessed in him: all nations shall call him blessed.  
+> **²** He shall judge thy people with righteousness, and thy poor with judgment.  
+> **³** The mountains shall bring peace to the people, and the little hills, by righteousness.  
+> **⁴** He shall judge the poor of the people, he shall save the children of the needy, and shall break in pieces the oppressor.  
+> **⁵** They shall fear thee as long as the sun and moon endure, throughout all generations.  
+> **⁶** He shall come down like rain upon the mown grass: as showers *that* water the earth.  
+> **⁷** In his days shall the righteous flourish; and abundance of peace so long as the moon endureth.  
+> **⁸** He shall have dominion also from sea to sea, and from the river unto the ends of the earth.  
+> **⁹** They that dwell in the wilderness shall bow before him; and his enemies shall lick the dust.  
+> **¹⁰** The kings of Tarshish and of the isles shall bring presents: the kings of Sheba and Seba shall offer gifts.  
+> **¹¹** Yea, all kings shall fall down before him: all nations shall serve him.  
+> **¹²** For he shall deliver the needy when he crieth; the poor also, and *him* that hath no helper.  
+> **¹³** He shall spare the poor and needy, and shall save the souls of the needy.  
+> **¹⁴** He shall redeem their soul from deceit and violence: and precious shall their blood be in his sight.  
+> **¹⁵** And he shall live, and to him shall be given of the gold of Sheba: prayer also shall be made for him continually; *and* daily shall he be praised.  
+> **¹⁶** There shall be a handful of corn in the earth upon the top of the mountains; the fruit thereof shall shake like Lebanon: and *they* of the city shall flourish like grass of the earth.  
+> **¹⁷** His name shall endure for ever: his name shall be continued as long as the sun: and *men* shall be blessed in him: all nations shall call him blessed.  
 
 This is a prophecy of the prosperity and perpetuity of the kingdom of Christ under the shadow of the reign of Solomon. It comes in, 1. As a plea to enforce the prayer: "Lord, *give him thy judgments and thy righteousness,* and then *he shall judge thy people with righteousness,* and so shall answer the end of his elevation, Ps 72:2. Give him thy grace, and then thy people, committed to his charge, will have the benefit of it." *Because God loved Israel, he made him king over them to do judgment and justice,* 2Ch 9:8. We may in faith wrestle with God for that grace which we have reason to think will be of common advantage to his church. 2. As an answer of peace to the prayer. As by the prayer of faith we return answers to God's promises of mercy, so by the promises of mercy God returns answers to our prayers of faith. That this prophecy must refer to the kingdom of the Messiah is plain, because there are many passages in it which cannot be applied to the reign of Solomon. There was indeed a great deal of righteousness and peace, at first, in the administration of his government; but, before the end of his reign, there were both trouble and unrighteousness. The kingdom here spoken of is to last as long as the sun, but Solomon's was soon extinct. Therefore even the Jewish expositors understand it of the kingdom of the Messiah.
 
@@ -67,9 +67,9 @@ X\. That his government shall be perpetual, both to his honour and to the happin
 
 ## Thanksgiving and Prayer.
 
-> <sup>18</sup> Blessed *be* the LORD God, the God of Israel, who only doeth wondrous things.  
-> <sup>19</sup> And blessed *be* his glorious name for ever: and let the whole earth be filled *with* his glory; Amen, and Amen.  
-> <sup>20</sup> The prayers of David the son of Jesse are ended.  
+> **¹⁸** Blessed *be* the LORD God, the God of Israel, who only doeth wondrous things.  
+> **¹⁹** And blessed *be* his glorious name for ever: and let the whole earth be filled *with* his glory; Amen, and Amen.  
+> **²⁰** The prayers of David the son of Jesse are ended.  
 
 Such an illustrious prophecy as is in the foregoing verses of the Messiah and his kingdom may fitly be concluded, as it is here, with hearty prayers and praises.
 

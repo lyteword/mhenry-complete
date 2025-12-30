@@ -8,14 +8,14 @@ The great gospel doctrine of justification by faith without the works of the law
 
 ## The Case of Abraham. (a. d. 58.)
 
-> <sup>1</sup> What shall we say then that Abraham our father, as pertaining to the flesh, hath found?  
-> <sup>2</sup> For if Abraham were justified by works, he hath *whereof* to glory; but not before God.  
-> <sup>3</sup> For what saith the scripture? Abraham believed God, and it was counted unto him for righteousness.  
-> <sup>4</sup> Now to him that worketh is the reward not reckoned of grace, but of debt.  
-> <sup>5</sup> But to him that worketh not, but believeth on him that justifieth the ungodly, his faith is counted for righteousness.  
-> <sup>6</sup> Even as David also describeth the blessedness of the man, unto whom God imputeth righteousness without works,  
-> <sup>7</sup> *Saying,* Blessed *are* they whose iniquities are forgiven, and whose sins are covered.  
-> <sup>8</sup> Blessed *is* the man to whom the Lord will not impute sin.  
+> **¹** What shall we say then that Abraham our father, as pertaining to the flesh, hath found?  
+> **²** For if Abraham were justified by works, he hath *whereof* to glory; but not before God.  
+> **³** For what saith the scripture? Abraham believed God, and it was counted unto him for righteousness.  
+> **⁴** Now to him that worketh is the reward not reckoned of grace, but of debt.  
+> **⁵** But to him that worketh not, but believeth on him that justifieth the ungodly, his faith is counted for righteousness.  
+> **⁶** Even as David also describeth the blessedness of the man, unto whom God imputeth righteousness without works,  
+> **⁷** *Saying,* Blessed *are* they whose iniquities are forgiven, and whose sins are covered.  
+> **⁸** Blessed *is* the man to whom the Lord will not impute sin.  
 
 Here the apostle proves that Abraham was justified not by works, but by faith. Those that of all men contended most vigorously for a share in righteousness by the privileges they enjoyed, and the works they performed, were the Jews, and therefore he appeals to the case of Abraham their father, and puts his own name to the relation, being a Hebrew of the Hebrews: *Abraham our father.* Now surely his prerogative must needs be as great as theirs who claim it as his seed according to the flesh. Now *what has he found?* All the world is seeking; but, while the most are wearying themselves for very vanity, none can be truly reckoned to have found, but those who are justified before God; and thus Abraham, like a wise merchant, seeking goodly pearls, found this one pearl of great price. What has he found, *kata sarka*—*as pertaining to the flesh,* that is, by circumcision and his external privileges and performances? These the apostle calls *flesh,* Php 3:3. Now what did he get by these? Was he justified by them? Was it the merit of his works that recommended him to God's acceptance? No, by no means, which he proves by several arguments.
 
@@ -29,15 +29,15 @@ IV\. He further illustrates this by a passage out of the Psalms, where David spe
 
 ## The Case of Abraham. (a. d. 58.)
 
-> <sup>9</sup> *Cometh* this blessedness then upon the circumcision *only,* or upon the uncircumcision also? for we say that faith was reckoned to Abraham for righteousness.  
-> <sup>10</sup> How was it then reckoned? when he was in circumcision, or in uncircumcision? Not in circumcision, but in uncircumcision.  
-> <sup>11</sup> And he received the sign of circumcision, a seal of the righteousness of the faith which *he had yet* being uncircumcised: that he might be the father of all them that believe, though they be not circumcised; that righteousness might be imputed unto them also:  
-> <sup>12</sup> And the father of circumcision to them who are not of the circumcision only, but who also walk in the steps of that faith of our father Abraham, which *he had* being *yet* uncircumcised.  
-> <sup>13</sup> For the promise, that he should be the heir of the world, *was* not to Abraham, or to his seed, through the law, but through the righteousness of faith.  
-> <sup>14</sup> For if they which are of the law *be* heirs, faith is made void, and the promise made of none effect:  
-> <sup>15</sup> Because the law worketh wrath: for where no law is, *there is* no transgression.  
-> <sup>16</sup> Therefore *it is* of faith, that *it might be* by grace; to the end the promise might be sure to all the seed; not to that only which is of the law, but to that also which is of the faith of Abraham; who is the father of us all,  
-> <sup>17</sup> a (As it is written, I have made thee a father of many nations,)  
+> **⁹** *Cometh* this blessedness then upon the circumcision *only,* or upon the uncircumcision also? for we say that faith was reckoned to Abraham for righteousness.  
+> **¹⁰** How was it then reckoned? when he was in circumcision, or in uncircumcision? Not in circumcision, but in uncircumcision.  
+> **¹¹** And he received the sign of circumcision, a seal of the righteousness of the faith which *he had yet* being uncircumcised: that he might be the father of all them that believe, though they be not circumcised; that righteousness might be imputed unto them also:  
+> **¹²** And the father of circumcision to them who are not of the circumcision only, but who also walk in the steps of that faith of our father Abraham, which *he had* being *yet* uncircumcised.  
+> **¹³** For the promise, that he should be the heir of the world, *was* not to Abraham, or to his seed, through the law, but through the righteousness of faith.  
+> **¹⁴** For if they which are of the law *be* heirs, faith is made void, and the promise made of none effect:  
+> **¹⁵** Because the law worketh wrath: for where no law is, *there is* no transgression.  
+> **¹⁶** Therefore *it is* of faith, that *it might be* by grace; to the end the promise might be sure to all the seed; not to that only which is of the law, but to that also which is of the faith of Abraham; who is the father of us all,  
+> **¹⁷** a (As it is written, I have made thee a father of many nations,)  
 
 St. Paul observes in this paragraph when and why Abraham was thus justified; for he has several things to remark upon that. It was before he was circumcised, and before the giving of the law; and there was a reason for both.
 
@@ -57,12 +57,12 @@ II\. It was before the giving of the law, Ro 4:13-16. The former observation is 
 
 ## The Case of Abraham. (a. d. 58.)
 
-> <sup>17</sup> b—Before him whom he believed, *even* God, who quickeneth the dead, and calleth those things which be not as though they were.  
-> <sup>18</sup> Who against hope believed in hope, that he might become the father of many nations, according to that which was spoken, So shall thy seed be.  
-> <sup>19</sup> And being not weak in faith, he considered not his own body now dead, when he was about a hundred years old, neither yet the deadness of Sara's womb:  
-> <sup>20</sup> He staggered not at the promise of God through unbelief; but was strong in faith, giving glory to God;  
-> <sup>21</sup> And being fully persuaded that, what he had promised, he was able also to perform.  
-> <sup>22</sup> And therefore it was imputed to him for righteousness.  
+> **¹⁷** b—Before him whom he believed, *even* God, who quickeneth the dead, and calleth those things which be not as though they were.  
+> **¹⁸** Who against hope believed in hope, that he might become the father of many nations, according to that which was spoken, So shall thy seed be.  
+> **¹⁹** And being not weak in faith, he considered not his own body now dead, when he was about a hundred years old, neither yet the deadness of Sara's womb:  
+> **²⁰** He staggered not at the promise of God through unbelief; but was strong in faith, giving glory to God;  
+> **²¹** And being fully persuaded that, what he had promised, he was able also to perform.  
+> **²²** And therefore it was imputed to him for righteousness.  
 
 Having observed when Abraham was justified by faith, and why, for the honour of Abraham and for example to us who call him father, the apostle here describes and commends the faith of Abraham, where observe,
 
@@ -72,9 +72,9 @@ II\. How he believed. He here greatly magnifies the strength of Abraham's faith,
 
 ## The Case of Abraham. (a. d. 58.)
 
-> <sup>23</sup> Now it was not written for his sake alone, that it was imputed to him;  
-> <sup>24</sup> But for us also, to whom it shall be imputed, if we believe on him that raised up Jesus our Lord from the dead;  
-> <sup>25</sup> Who was delivered for our offences, and was raised again for our justification.  
+> **²³** Now it was not written for his sake alone, that it was imputed to him;  
+> **²⁴** But for us also, to whom it shall be imputed, if we believe on him that raised up Jesus our Lord from the dead;  
+> **²⁵** Who was delivered for our offences, and was raised again for our justification.  
 
 In the close of the chapter, he applies all to us; and, having abundantly proved that Abraham was justified by faith, he here concludes that his justification was to be the pattern or sampler of ours: *It was not written for his sake alone.* It was not intended only for an historical commendation of Abraham, or a relation of something peculiar to him (as some antipædobaptists will needs understand that circumcision was a *seal of the righteousness of the faith,* Ro 4:11, only to Abraham himself, and no other); no, the scripture did not intend hereby to describe some singular way of justification that belonged to Abraham as his prerogative. The accounts we have of the Old-Testament saints were not intended for histories only, barely to inform and divert us, but for precedents to direct us, for ensamples (1Co 10:11) for *our learning,* Ro 15:4. And this particularly concerning Abraham was written *for us also,* to assure us what that righteousness is which God requireth and accepteth to our salvation,—for us also, that are man and vile, that come so far short of Abraham in privileges and performances, us Gentiles as well as the Jews, for the blessing of Abraham comes upon the Gentiles through Christ,—for us on whom the ends of the world are come, as well as for the patriarchs; for the grace of God is the same yesterday, to-day, and for ever. His application of it is but short. Only we may observe,
 

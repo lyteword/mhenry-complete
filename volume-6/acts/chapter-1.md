@@ -8,11 +8,11 @@ The inspired historian begins his narrative of the Acts of the Apostles, I. With
 
 ## Proofs of Christ's Resurrection; Christ's Address to His Apostles.
 
-> <sup>1</sup> The former treatise have I made, O Theophilus, of all that Jesus began both to do and teach,  
-> <sup>2</sup> Until the day in which he was taken up, after that he through the Holy Ghost had given commandments unto the apostles whom he had chosen:  
-> <sup>3</sup> To whom also he showed himself alive after his passion by many infallible proofs, being seen of them forty days, and speaking of the things pertaining to the kingdom of God:  
-> <sup>4</sup> And, being assembled together with *them,* commanded them that they should not depart from Jerusalem, but wait for the promise of the Father, which, *saith he,* ye have heard of me.  
-> <sup>5</sup> For John truly baptized with water; but ye shall be baptized with the Holy Ghost not many days hence.  
+> **¹** The former treatise have I made, O Theophilus, of all that Jesus began both to do and teach,  
+> **²** Until the day in which he was taken up, after that he through the Holy Ghost had given commandments unto the apostles whom he had chosen:  
+> **³** To whom also he showed himself alive after his passion by many infallible proofs, being seen of them forty days, and speaking of the things pertaining to the kingdom of God:  
+> **⁴** And, being assembled together with *them,* commanded them that they should not depart from Jerusalem, but wait for the promise of the Father, which, *saith he,* ye have heard of me.  
+> **⁵** For John truly baptized with water; but ye shall be baptized with the Holy Ghost not many days hence.  
 
 In these verses, I. Theophilus is put in mind, and we in him, of St. Luke's gospel, which it will be of use for us to cast an eye upon before we enter upon the study of this book, that we may not only see how this begins where that breaks off, but that, *as in water face answers to face,* so do the acts of the apostles to the acts of their Master, the acts of his grace.
 
@@ -46,12 +46,12 @@ IV\. A particular assurance given them that they should now shortly receive the 
 
 ## Christ's Address to His Apostles; Christ's Ascension into Heaven.
 
-> <sup>6</sup> When they therefore were come together, they asked of him, saying, Lord, wilt thou at this time restore again the kingdom to Israel?  
-> <sup>7</sup> And he said unto them, It is not for you to know the times or the seasons, which the Father hath put in his own power.  
-> <sup>8</sup> But ye shall receive power, after that the Holy Ghost is come upon you: and ye shall be witnesses unto me both in Jerusalem, and in all Judæa, and in Samaria, and unto the uttermost part of the earth.  
-> <sup>9</sup> And when he had spoken these things, while they beheld, he was taken up; and a cloud received him out of their sight.  
-> <sup>10</sup> And while they looked stedfastly toward heaven as he went up, behold, two men stood by them in white apparel;  
-> <sup>11</sup> Which also said, Ye men of Galilee, why stand ye gazing up into heaven? this same Jesus, which is taken up from you into heaven, shall so come in like manner as ye have seen him go into heaven.  
+> **⁶** When they therefore were come together, they asked of him, saying, Lord, wilt thou at this time restore again the kingdom to Israel?  
+> **⁷** And he said unto them, It is not for you to know the times or the seasons, which the Father hath put in his own power.  
+> **⁸** But ye shall receive power, after that the Holy Ghost is come upon you: and ye shall be witnesses unto me both in Jerusalem, and in all Judæa, and in Samaria, and unto the uttermost part of the earth.  
+> **⁹** And when he had spoken these things, while they beheld, he was taken up; and a cloud received him out of their sight.  
+> **¹⁰** And while they looked stedfastly toward heaven as he went up, behold, two men stood by them in white apparel;  
+> **¹¹** Which also said, Ye men of Galilee, why stand ye gazing up into heaven? this same Jesus, which is taken up from you into heaven, shall so come in like manner as ye have seen him go into heaven.  
 
 In Jerusalem Christ, by his angel, had appointed his disciples to meet him in Galilee; there he appointed them to meet him in Jerusalem again, such a day. Thus he would try their obedience, and it was found ready and cheerful; *they came together,* as he appointed them, to be *the witnesses* of his ascension, of which we have here an account. Observe,
 
@@ -89,9 +89,9 @@ VI\. Two angels appeared to them, and delivered them a seasonable message from G
 
 ## The Apostles in Jerusalem.
 
-> <sup>12</sup> Then returned they unto Jerusalem from the mount called Olivet, which is from Jerusalem a sabbath day's journey.  
-> <sup>13</sup> And when they were come in, they went up into an upper room, where abode both Peter, and James, and John, and Andrew, Philip, and Thomas, Bartholomew, and Matthew, James *the son* of Alphæus, and Simon Zelotes, and Judas *the brother* of James.  
-> <sup>14</sup> These all continued with one accord in prayer and supplication, with the women, and Mary the mother of Jesus, and with his brethren.  
+> **¹²** Then returned they unto Jerusalem from the mount called Olivet, which is from Jerusalem a sabbath day's journey.  
+> **¹³** And when they were come in, they went up into an upper room, where abode both Peter, and James, and John, and Andrew, Philip, and Thomas, Bartholomew, and Matthew, James *the son* of Alphæus, and Simon Zelotes, and Judas *the brother* of James.  
+> **¹⁴** These all continued with one accord in prayer and supplication, with the women, and Mary the mother of Jesus, and with his brethren.  
 
 We are here told, I. Whence Christ ascended—*from the mount of Olives* (Ac 1:12), from that part of it where the town of Bethany stood, Lu 24:50. There he began his sufferings (Lu 22:39), and therefore there he rolled away the reproach of them by his glorious ascension, and thus showed that his passion and his ascension had the same reference and tendency. Thus would he enter upon his kingdom in the sight of Jerusalem, and of those undutiful ungrateful citizens of his that would not have him to reign over them. It was prophesied of him (Zec 14:4), *That his feet should stand upon the mount of Olives, which is before Jerusalem,* should stand last there; and presently it follows, *The mount of Olives shall cleave in two. From the mount of Olives he* ascended who is *the good olive-tree,* whence we receive *the unction,* Zec 4:12, Ro 11:24. This mount is here said to be near Jerusalem, *a sabbath day's journey* from it, that is, a little way; no further than devout people used to walk out on a sabbath evening, after the public worship was over, for meditation. Some reckon it a thousand paces, others two thousand cubits; some seven furlongs, others eight. Bethany indeed was *fifteen furlongs from Jerusalem* (Joh 11:18), but that part of the mount of Olives which was next to Jerusalem, whence Christ began to ride in triumph, was but seven or eight furlongs off. The Chaldee paraphrast on Ruth 1 says, *We are commanded to keep the sabbaths and the holy days, so as not to go above two thousand cubits,* which they build upon Jos 3:4, where, in their march through Jordan, the space between them and the ark was to be *two thousand cubits.* God had not then thus limited them, but they limited themselves; and thus far it is a rule to us, not to journey on the sabbath any more than in order to the sabbath work; and as far as is necessary to this we are not only allowed, but enjoined, 2Ki 4:23.
 
@@ -103,18 +103,18 @@ IV\. How they spent their time: *They all continued with one accord in prayer an
 
 ## The Death of Judas; Matthias Elected to Be an Apostle.
 
-> <sup>15</sup> And in those days Peter stood up in the midst of the disciples, and said, (the number of names together were about an hundred and twenty,)  
-> <sup>16</sup> Men *and* brethren, this scripture must needs have been fulfilled, which the Holy Ghost by the mouth of David spake before concerning Judas, which was guide to them that took Jesus.  
-> <sup>17</sup> For he was numbered with us, and had obtained part of this ministry.  
-> <sup>18</sup> Now this man purchased a field with the reward of iniquity; and falling headlong, he burst asunder in the midst, and all his bowels gushed out.  
-> <sup>19</sup> And it was known unto all the dwellers at Jerusalem; insomuch as that field is called in their proper tongue, Aceldama, that is to say, The field of blood.  
-> <sup>20</sup> For it is written in the book of Psalms, Let his habitation be desolate, and let no man dwell therein: and his bishopric let another take.  
-> <sup>21</sup> Wherefore of these men which have companied with us all the time that the Lord Jesus went in and out among us,  
-> <sup>22</sup> Beginning from the baptism of John, unto that same day that he was taken up from us, must one be ordained to be a witness with us of his resurrection.  
-> <sup>23</sup> And they appointed two, Joseph called Barsabas, who was surnamed Justus, and Matthias.  
-> <sup>24</sup> And they prayed, and said, Thou, Lord, which knowest the hearts of all *men,* show whether of these two thou hast chosen,  
-> <sup>25</sup> That he may take part of this ministry and apostleship, from which Judas by transgression fell, that he might go to his own place.  
-> <sup>26</sup> And they gave forth their lots; and the lot fell upon Matthias; and he was numbered with the eleven apostles.  
+> **¹⁵** And in those days Peter stood up in the midst of the disciples, and said, (the number of names together were about an hundred and twenty,)  
+> **¹⁶** Men *and* brethren, this scripture must needs have been fulfilled, which the Holy Ghost by the mouth of David spake before concerning Judas, which was guide to them that took Jesus.  
+> **¹⁷** For he was numbered with us, and had obtained part of this ministry.  
+> **¹⁸** Now this man purchased a field with the reward of iniquity; and falling headlong, he burst asunder in the midst, and all his bowels gushed out.  
+> **¹⁹** And it was known unto all the dwellers at Jerusalem; insomuch as that field is called in their proper tongue, Aceldama, that is to say, The field of blood.  
+> **²⁰** For it is written in the book of Psalms, Let his habitation be desolate, and let no man dwell therein: and his bishopric let another take.  
+> **²¹** Wherefore of these men which have companied with us all the time that the Lord Jesus went in and out among us,  
+> **²²** Beginning from the baptism of John, unto that same day that he was taken up from us, must one be ordained to be a witness with us of his resurrection.  
+> **²³** And they appointed two, Joseph called Barsabas, who was surnamed Justus, and Matthias.  
+> **²⁴** And they prayed, and said, Thou, Lord, which knowest the hearts of all *men,* show whether of these two thou hast chosen,  
+> **²⁵** That he may take part of this ministry and apostleship, from which Judas by transgression fell, that he might go to his own place.  
+> **²⁶** And they gave forth their lots; and the lot fell upon Matthias; and he was numbered with the eleven apostles.  
 
 The sin of Judas was not only his shame and ruin, but it made a vacancy in the college of the apostles. They were ordained twelve, with an eye *to the twelve tribes of Israel,* descended from the twelve patriarchs; they were *the twelve stars* that make up the church's crown (Re 12:1), and for them *twelve thrones* were designated, Mt 19:28. Now being twelve when they were learners, if they were but eleven when they were to be teachers, it would occasion every one to enquire what had become of the twelfth, and so revive the remembrance of the scandal of their society; and therefore care was taken, before the descent of the Spirit, to fill up the vacancy, of the doing of which we now have an account, our Lord Jesus, probably, having given directions about it, among other things which he spoke *pertaining to the kingdom of God.* Observe,
 

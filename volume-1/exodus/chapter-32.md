@@ -8,12 +8,12 @@ It is a very lamentable interruption which the story of this chapter gives to th
 
 ## The Golden Calf. (b. c. 1491.)
 
-> <sup>1</sup> And when the people saw that Moses delayed to come down out of the mount, the people gathered themselves together unto Aaron, and said unto him, Up, make us gods, which shall go before us; for *as for* this Moses, the man that brought us up out of the land of Egypt, we wot not what is become of him.  
-> <sup>2</sup> And Aaron said unto them, Break off the golden earrings, which *are* in the ears of your wives, of your sons, and of your daughters, and bring *them* unto me.  
-> <sup>3</sup> And all the people brake off the golden earrings which *were* in their ears, and brought *them* unto Aaron.  
-> <sup>4</sup> And he received *them* at their hand, and fashioned it with a graving tool, after he had made it a molten calf: and they said, These *be* thy gods, O Israel, which brought thee up out of the land of Egypt.  
-> <sup>5</sup> And when Aaron saw *it,* he built an altar before it; and Aaron made proclamation, and said, To morrow *is* a feast to the LORD.  
-> <sup>6</sup> And they rose up early on the morrow, and offered burnt offerings, and brought peace offerings; and the people sat down to eat and to drink, and rose up to play.  
+> **¹** And when the people saw that Moses delayed to come down out of the mount, the people gathered themselves together unto Aaron, and said unto him, Up, make us gods, which shall go before us; for *as for* this Moses, the man that brought us up out of the land of Egypt, we wot not what is become of him.  
+> **²** And Aaron said unto them, Break off the golden earrings, which *are* in the ears of your wives, of your sons, and of your daughters, and bring *them* unto me.  
+> **³** And all the people brake off the golden earrings which *were* in their ears, and brought *them* unto Aaron.  
+> **⁴** And he received *them* at their hand, and fashioned it with a graving tool, after he had made it a molten calf: and they said, These *be* thy gods, O Israel, which brought thee up out of the land of Egypt.  
+> **⁵** And when Aaron saw *it,* he built an altar before it; and Aaron made proclamation, and said, To morrow *is* a feast to the LORD.  
+> **⁶** And they rose up early on the morrow, and offered burnt offerings, and brought peace offerings; and the people sat down to eat and to drink, and rose up to play.  
 
 While Moses was in the mount, receiving the law from God, the people had time to meditate upon what had been delivered, and prepare themselves for what was further to be revealed, and forty days was little enough for that work; but, instead of that, there were those among them that were contriving how to break the laws they had already received, and to anticipate those which they were in expectation of. On the thirty-ninth day of the forty, the plot broke out of rebellion against the Lord. Here is,
 
@@ -37,14 +37,14 @@ IV\. Having made the calf in Horeb, they *worshipped the graven image,* Ps 106:1
 
 ## The Intercession of Moses. (b. c. 1491.)
 
-> <sup>7</sup> And the LORD said unto Moses, Go, get thee down; for thy people, which thou broughtest out of the land of Egypt, have corrupted *themselves:*  
-> <sup>8</sup> They have turned aside quickly out of the way which I commanded them: they have made them a molten calf, and have worshipped it, and have sacrificed thereunto, and said, These *be* thy gods, O Israel, which have brought thee up out of the land of Egypt.  
-> <sup>9</sup> And the LORD said unto Moses, I have seen this people, and, behold, it *is* a stiffnecked people:  
-> <sup>10</sup> Now therefore let me alone, that my wrath may wax hot against them, and that I may consume them: and I will make of thee a great nation.  
-> <sup>11</sup> And Moses besought the LORD his God, and said, LORD, why doth thy wrath wax hot against thy people, which thou hast brought forth out of the land of Egypt with great power, and with a mighty hand?  
-> <sup>12</sup> Wherefore should the Egyptians speak, and say, For mischief did he bring them out, to slay them in the mountains, and to consume them from the face of the earth? Turn from thy fierce wrath, and repent of this evil against thy people.  
-> <sup>13</sup> Remember Abraham, Isaac, and Israel, thy servants, to whom thou swarest by thine own self, and saidst unto them, I will multiply your seed as the stars of heaven, and all this land that I have spoken of will I give unto your seed, and they shall inherit *it* for ever.  
-> <sup>14</sup> And the LORD repented of the evil which he thought to do unto his people.  
+> **⁷** And the LORD said unto Moses, Go, get thee down; for thy people, which thou broughtest out of the land of Egypt, have corrupted *themselves:*  
+> **⁸** They have turned aside quickly out of the way which I commanded them: they have made them a molten calf, and have worshipped it, and have sacrificed thereunto, and said, These *be* thy gods, O Israel, which have brought thee up out of the land of Egypt.  
+> **⁹** And the LORD said unto Moses, I have seen this people, and, behold, it *is* a stiffnecked people:  
+> **¹⁰** Now therefore let me alone, that my wrath may wax hot against them, and that I may consume them: and I will make of thee a great nation.  
+> **¹¹** And Moses besought the LORD his God, and said, LORD, why doth thy wrath wax hot against thy people, which thou hast brought forth out of the land of Egypt with great power, and with a mighty hand?  
+> **¹²** Wherefore should the Egyptians speak, and say, For mischief did he bring them out, to slay them in the mountains, and to consume them from the face of the earth? Turn from thy fierce wrath, and repent of this evil against thy people.  
+> **¹³** Remember Abraham, Isaac, and Israel, thy servants, to whom thou swarest by thine own self, and saidst unto them, I will multiply your seed as the stars of heaven, and all this land that I have spoken of will I give unto your seed, and they shall inherit *it* for ever.  
+> **¹⁴** And the LORD repented of the evil which he thought to do unto his people.  
 
 Here, I. God acquaints Moses with what was doing in the camp while he was absent, Ex 32:7,8. He could have told him sooner, as soon as the first step was taken towards it, and have hastened him down to prevent it; but he suffered it to come to this height, for wise and holy ends, and then sent him down to punish it. Note, It is no reproach to the holiness of God that he suffers sin to be committed, since he knows, not only how to restrain it when he pleases, but how to make it serviceable to the designs of his own glory. Observe what God here says to Moses concerning this sin. 1. That they had *corrupted themselves.* Sin is the corruption or depravation of the sinner, and it is a self-corruption; *every man is tempted when he is drawn aside of his own lust.* 2. That they had *turned aside out of the way.* Sin is a deviation from the way of our duty into a by-path. When they promised to do all that God should command them, they set out as fair as could be; but now they missed their way, and turned aside. 3. That they had turned aside quickly, quickly after the law was given them and they had promised to obey it, quickly after God had done such great things for them and declared his kind intentions to do greater. *They soon forgot his works.* To fall into sin quickly after we have renewed our covenants with God, or received special mercy from him, is very provoking. 4. He tells him particularly what they had done: *They have made a calf, and worshipped it.* Note, Those sins which are concealed from our governors are naked and open before God. He sees that which they cannot discover, nor is any of the wickedness in the world hidden from him. We could not bear to see the thousandth part of that provocation which God sees every day and yet keeps silence. 5. He seems to disown them, in saying to Moses, They are *thy people whom thou broughtest up out of the land of Egypt;* as if he had said, "I will not own any relation to them, or concern for them; let it never be said that they are my people, or that I brought them out of Egypt." Note, Those that corrupt themselves not only shame themselves, but even make God himself ashamed of them and of his kindness to them. 6. He sends him down to them with all speed: *Go, get thee down.* He must break off even his communion with God to go and do his duty as a magistrate among the people; so must Joshua, Ex 7:10. Every thing is beautiful in its season.
 
@@ -56,12 +56,12 @@ IV\. God graciously abated the rigour of the sentence, and *repented of the evil
 
 ## Moses Breaks the Tablets of the Law. (b. c. 1491.)
 
-> <sup>15</sup> And Moses turned, and went down from the mount, and the two tables of the testimony *were* in his hand: the tables *were* written on both their sides; on the one side and on the other *were* they written.  
-> <sup>16</sup> And the tables *were* the work of God, and the writing *was* the writing of God, graven upon the tables.  
-> <sup>17</sup> And when Joshua heard the noise of the people as they shouted, he said unto Moses, *There is* a noise of war in the camp.  
-> <sup>18</sup> And he said, *It is* not the voice of *them that* shout for mastery, neither *is it* the voice of *them that* cry for being overcome: *but* the noise of *them that* sing do I hear.  
-> <sup>19</sup> And it came to pass, as soon as he came nigh unto the camp, that he saw the calf, and the dancing: and Moses' anger waxed hot, and he cast the tables out of his hands, and brake them beneath the mount.  
-> <sup>20</sup> And he took the calf which they had made, and burnt *it* in the fire, and ground *it* to powder, and strawed *it* upon the water, and made the children of Israel drink *of it.*  
+> **¹⁵** And Moses turned, and went down from the mount, and the two tables of the testimony *were* in his hand: the tables *were* written on both their sides; on the one side and on the other *were* they written.  
+> **¹⁶** And the tables *were* the work of God, and the writing *was* the writing of God, graven upon the tables.  
+> **¹⁷** And when Joshua heard the noise of the people as they shouted, he said unto Moses, *There is* a noise of war in the camp.  
+> **¹⁸** And he said, *It is* not the voice of *them that* shout for mastery, neither *is it* the voice of *them that* cry for being overcome: *but* the noise of *them that* sing do I hear.  
+> **¹⁹** And it came to pass, as soon as he came nigh unto the camp, that he saw the calf, and the dancing: and Moses' anger waxed hot, and he cast the tables out of his hands, and brake them beneath the mount.  
+> **²⁰** And he took the calf which they had made, and burnt *it* in the fire, and ground *it* to powder, and strawed *it* upon the water, and made the children of Israel drink *of it.*  
 
 Here is, I. The favour of God to Moses, in trusting him with the two tables of the testimony, which, though of common stone, were far more valuable than all the precious stones that adorned the breast-plate of Aaron. The topaz of Ethiopia could not equal them, Ex 32:15,16. God himself, without the ministry either of man or angel (for aught that appears), wrote the ten commandments on these tables, *on both their sides,* some on one table and some on the other, so that they were folded together like a book, to be deposited in the ark.
 
@@ -71,15 +71,15 @@ III\. The great and just displeasure of Moses against Israel, for their idolatry
 
 ## Moses Reproves Aaron; Destruction of the Idolaters. (b. c. 1491.)
 
-> <sup>21</sup> And Moses said unto Aaron, What did this people unto thee, that thou hast brought so great a sin upon them?  
-> <sup>22</sup> And Aaron said, Let not the anger of my lord wax hot: thou knowest the people, that they *are set* on mischief.  
-> <sup>23</sup> For they said unto me, Make us gods, which shall go before us: for *as for* this Moses, the man that brought us up out of the land of Egypt, we wot not what is become of him.  
-> <sup>24</sup> And I said unto them, Whosoever hath any gold, let them break *it* off. So they gave *it* me: then I cast it into the fire, and there came out this calf.  
-> <sup>25</sup> And when Moses saw that the people *were* naked; (for Aaron had made them naked unto *their* shame among their enemies:)  
-> <sup>26</sup> Then Moses stood in the gate of the camp, and said, Who *is* on the LORD's side? *let him come* unto me. And all the sons of Levi gathered themselves together unto him.  
-> <sup>27</sup> And he said unto them, Thus saith the LORD God of Israel, Put every man his sword by his side, *and* go in and out from gate to gate throughout the camp, and slay every man his brother, and every man his companion, and every man his neighbour.  
-> <sup>28</sup> And the children of Levi did according to the word of Moses: and there fell of the people that day about three thousand men.  
-> <sup>29</sup> For Moses had said, Consecrate yourselves to day to the LORD, even every man upon his son, and upon his brother; that he may bestow upon you a blessing this day.  
+> **²¹** And Moses said unto Aaron, What did this people unto thee, that thou hast brought so great a sin upon them?  
+> **²²** And Aaron said, Let not the anger of my lord wax hot: thou knowest the people, that they *are set* on mischief.  
+> **²³** For they said unto me, Make us gods, which shall go before us: for *as for* this Moses, the man that brought us up out of the land of Egypt, we wot not what is become of him.  
+> **²⁴** And I said unto them, Whosoever hath any gold, let them break *it* off. So they gave *it* me: then I cast it into the fire, and there came out this calf.  
+> **²⁵** And when Moses saw that the people *were* naked; (for Aaron had made them naked unto *their* shame among their enemies:)  
+> **²⁶** Then Moses stood in the gate of the camp, and said, Who *is* on the LORD's side? *let him come* unto me. And all the sons of Levi gathered themselves together unto him.  
+> **²⁷** And he said unto them, Thus saith the LORD God of Israel, Put every man his sword by his side, *and* go in and out from gate to gate throughout the camp, and slay every man his brother, and every man his companion, and every man his neighbour.  
+> **²⁸** And the children of Levi did according to the word of Moses: and there fell of the people that day about three thousand men.  
+> **²⁹** For Moses had said, Consecrate yourselves to day to the LORD, even every man upon his son, and upon his brother; that he may bestow upon you a blessing this day.  
 
 Moses, having shown his just indignation against the sin of Israel by breaking the tables and burning the calf, now proceeds to reckon with the sinners and to call them to an account, herein acting as the representative of God, who is not only a holy God, and hates sin, but a just God, and is engaged in honour to punish it, Isa 59:18. Now,
 
@@ -101,12 +101,12 @@ II\. The people are next to be judged for this sin. The approach of Moses soon s
 
 ## The Intercession of Moses. (b. c. 1491.)
 
-> <sup>30</sup> And it came to pass on the morrow, that Moses said unto the people, Ye have sinned a great sin: and now I will go up unto the LORD; peradventure I shall make an atonement for your sin.  
-> <sup>31</sup> And Moses returned unto the LORD, and said, Oh, this people have sinned a great sin, and have made them gods of gold.  
-> <sup>32</sup> Yet now, if thou wilt forgive their sin—; and if not, blot me, I pray thee, out of thy book which thou hast written.  
-> <sup>33</sup> And the LORD said unto Moses, Whosoever hath sinned against me, him will I blot out of my book.  
-> <sup>34</sup> Therefore now go, lead the people unto *the place* of which I have spoken unto thee: behold, mine Angel shall go before thee: nevertheless in the day when I visit I will visit their sin upon them.  
-> <sup>35</sup> And the LORD plagued the people, because they made the calf, which Aaron made.  
+> **³⁰** And it came to pass on the morrow, that Moses said unto the people, Ye have sinned a great sin: and now I will go up unto the LORD; peradventure I shall make an atonement for your sin.  
+> **³¹** And Moses returned unto the LORD, and said, Oh, this people have sinned a great sin, and have made them gods of gold.  
+> **³²** Yet now, if thou wilt forgive their sin—; and if not, blot me, I pray thee, out of thy book which thou hast written.  
+> **³³** And the LORD said unto Moses, Whosoever hath sinned against me, him will I blot out of my book.  
+> **³⁴** Therefore now go, lead the people unto *the place* of which I have spoken unto thee: behold, mine Angel shall go before thee: nevertheless in the day when I visit I will visit their sin upon them.  
+> **³⁵** And the LORD plagued the people, because they made the calf, which Aaron made.  
 
 Moses, having executed justice upon the principal offenders, is here dealing both with the people and with God.
 

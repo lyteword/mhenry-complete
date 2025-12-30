@@ -10,12 +10,12 @@ Many of David's psalms are full of complaints, but this is full of comforts, and
 
 A psalm of David.
 
-> <sup>1</sup> The LORD *is* my shepherd; I shall not want.  
-> <sup>2</sup> He maketh me to lie down in green pastures: he leadeth me beside the still waters.  
-> <sup>3</sup> He restoreth my soul: he leadeth me in the paths of righteousness for his name's sake.  
-> <sup>4</sup> Yea, though I walk through the valley of the shadow of death, I will fear no evil: for thou *art* with me; thy rod and thy staff they comfort me.  
-> <sup>5</sup> Thou preparest a table before me in the presence of mine enemies: thou anointest my head with oil; my cup runneth over.  
-> <sup>6</sup> Surely goodness and mercy shall follow me all the days of my life: and I will dwell in the house of the LORD for ever.  
+> **¹** The LORD *is* my shepherd; I shall not want.  
+> **²** He maketh me to lie down in green pastures: he leadeth me beside the still waters.  
+> **³** He restoreth my soul: he leadeth me in the paths of righteousness for his name's sake.  
+> **⁴** Yea, though I walk through the valley of the shadow of death, I will fear no evil: for thou *art* with me; thy rod and thy staff they comfort me.  
+> **⁵** Thou preparest a table before me in the presence of mine enemies: thou anointest my head with oil; my cup runneth over.  
+> **⁶** Surely goodness and mercy shall follow me all the days of my life: and I will dwell in the house of the LORD for ever.  
 
 From three very comfortable premises David, in this psalm, draws three very comfortable conclusions, and teaches us to do so too. We are saved by hope, and that hope will not make us ashamed, because it is well grounded. It is the duty of Christians to encourage themselves in the Lord their God; and we are here directed to take that encouragement both from the relation wherein he stands to us and from the experience we have had of his goodness according to that relation.
 

@@ -8,9 +8,9 @@ This is a psalm of instruction concerning good and evil, setting before us life 
 
 ## The Happy Man.
 
-> <sup>1</sup> Blessed *is* the man that walketh not in the counsel of the ungodly, nor standeth in the way of sinners, nor sitteth in the seat of the scornful.  
-> <sup>2</sup> But his delight *is* in the law of the LORD; and in his law doth he meditate day and night.  
-> <sup>3</sup> And he shall be like a tree planted by the rivers of water, that bringeth forth his fruit in his season; his leaf also shall not wither; and whatsoever he doeth shall prosper.  
+> **¹** Blessed *is* the man that walketh not in the counsel of the ungodly, nor standeth in the way of sinners, nor sitteth in the seat of the scornful.  
+> **²** But his delight *is* in the law of the LORD; and in his law doth he meditate day and night.  
+> **³** And he shall be like a tree planted by the rivers of water, that bringeth forth his fruit in his season; his leaf also shall not wither; and whatsoever he doeth shall prosper.  
 
 The psalmist begins with the character and condition of a godly man, that those may first take the comfort of that to whom it belongs. Here is,
 
@@ -26,9 +26,9 @@ In singing Ps 1:1-3, being duly affected with the malignant and dangerous nature
 
 ## Description and Doom of the Ungodly.
 
-> <sup>4</sup> The ungodly *are* not so: but *are* like the chaff which the wind driveth away.  
-> <sup>5</sup> Therefore the ungodly shall not stand in the judgment, nor sinners in the congregation of the righteous.  
-> <sup>6</sup> For the LORD knoweth the way of the righteous: but the way of the ungodly shall perish.  
+> **⁴** The ungodly *are* not so: but *are* like the chaff which the wind driveth away.  
+> **⁵** Therefore the ungodly shall not stand in the judgment, nor sinners in the congregation of the righteous.  
+> **⁶** For the LORD knoweth the way of the righteous: but the way of the ungodly shall perish.  
 
 Here is, I. The description of the ungodly given, Ps 1:4. 1. In general, they are the reverse of the righteous, both in character and condition: *They are not so.* The LXX. emphatically repeats this: *Not so the ungodly; they are not so;* they are led by the counsel of the wicked, in the way of sinners, to the seat of the scornful; they have no delight in the law of God, nor ever think of it; they bring forth no fruit but grapes of Sodom; they cumber the ground. 2. In particular, whereas the righteous are like valuable, useful, fruitful trees, *they are like the chaff which the wind drives away,* the very lightest of the chaff, the dust which the owner of the floor desires to have driven away, as not capable of being put to any use. Would you value them? Would you weigh them? They are like chaff, of no worth at all in God's account, how highly soever they may value themselves. Would you know the temper of their minds? They are light and vain; they have no substance in them, no solidity; they are easily driven to and fro by every wind and temptation, and have no stedfastness. Would you know their end? The wrath of God will drive them away in their wickedness, as the wind does the chaff, which is never gathered nor looked after more. The chaff may be, for a while, among the wheat; but he is coming *whose fan is in his hand* and who will *thoroughly purge his floor.* Those that by their own sin and folly make themselves as chaff will be found so before the whirlwind and fire of divine wrath (Ps 35:5), so unable to stand before it or to escape it, Isa 17:13.
 

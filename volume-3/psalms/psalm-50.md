@@ -10,12 +10,12 @@ This psalm, as the former, is a psalm of instruction, not of prayer or praise; i
 
 A psalm of Asaph.
 
-> <sup>1</sup> The mighty God, *even* the LORD, hath spoken, and called the earth from the rising of the sun unto the going down thereof.  
-> <sup>2</sup> Out of Zion, the perfection of beauty, God hath shined.  
-> <sup>3</sup> Our God shall come, and shall not keep silence: a fire shall devour before him, and it shall be very tempestuous round about him.  
-> <sup>4</sup> He shall call to the heavens from above, and to the earth, that he may judge his people.  
-> <sup>5</sup> Gather my saints together unto me; those that have made a covenant with me by sacrifice.  
-> <sup>6</sup> And the heavens shall declare his righteousness: for God *is* judge himself. Selah.  
+> **¹** The mighty God, *even* the LORD, hath spoken, and called the earth from the rising of the sun unto the going down thereof.  
+> **²** Out of Zion, the perfection of beauty, God hath shined.  
+> **³** Our God shall come, and shall not keep silence: a fire shall devour before him, and it shall be very tempestuous round about him.  
+> **⁴** He shall call to the heavens from above, and to the earth, that he may judge his people.  
+> **⁵** Gather my saints together unto me; those that have made a covenant with me by sacrifice.  
+> **⁶** And the heavens shall declare his righteousness: for God *is* judge himself. Selah.  
 
 It is probable that Asaph was not only the chief musician, who was to put a tune to this psalm, but that he was himself the penman of it; for we read that in Hezekiah's time they praised God *in the words of David and of Asaph the seer,* 2Ch 29:30. Here is,
 
@@ -29,15 +29,15 @@ IV\. The issue of this solemn trial foretold (Ps 50:6): *The heavens shall decla
 
 ## The Inefficacy of Legal Sacrifices.
 
-> <sup>7</sup> Hear, O my people, and I will speak; O Israel, and I will testify against thee: I *am* God, *even* thy God.  
-> <sup>8</sup> I will not reprove thee for thy sacrifices or thy burnt offerings, *to have been* continually before me.  
-> <sup>9</sup> I will take no bullock out of thy house, *nor* he goats out of thy folds.  
-> <sup>10</sup> For every beast of the forest *is* mine, *and* the cattle upon a thousand hills.  
-> <sup>11</sup> I know all the fowls of the mountains: and the wild beasts of the field *are* mine.  
-> <sup>12</sup> If I were hungry, I would not tell thee: for the world *is* mine, and the fulness thereof.  
-> <sup>13</sup> Will I eat the flesh of bulls, or drink the blood of goats?  
-> <sup>14</sup> Offer unto God thanksgiving; and pay thy vows unto the most High:  
-> <sup>15</sup> And call upon me in the day of trouble: I will deliver thee, and thou shalt glorify me.  
+> **⁷** Hear, O my people, and I will speak; O Israel, and I will testify against thee: I *am* God, *even* thy God.  
+> **⁸** I will not reprove thee for thy sacrifices or thy burnt offerings, *to have been* continually before me.  
+> **⁹** I will take no bullock out of thy house, *nor* he goats out of thy folds.  
+> **¹⁰** For every beast of the forest *is* mine, *and* the cattle upon a thousand hills.  
+> **¹¹** I know all the fowls of the mountains: and the wild beasts of the field *are* mine.  
+> **¹²** If I were hungry, I would not tell thee: for the world *is* mine, and the fulness thereof.  
+> **¹³** Will I eat the flesh of bulls, or drink the blood of goats?  
+> **¹⁴** Offer unto God thanksgiving; and pay thy vows unto the most High:  
+> **¹⁵** And call upon me in the day of trouble: I will deliver thee, and thou shalt glorify me.  
 
 God is here dealing with those that placed all their religion in the observances of the ceremonial law, and thought those sufficient.
 
@@ -53,14 +53,14 @@ III\. He directs to the best sacrifices of prayer and praise as those which, und
 
 ## The Character of the Wicked.
 
-> <sup>16</sup> But unto the wicked God saith, What hast thou to do to declare my statutes, or *that* thou shouldest take my covenant in thy mouth?  
-> <sup>17</sup> Seeing thou hatest instruction, and castest my words behind thee.  
-> <sup>18</sup> When thou sawest a thief, then thou consentedst with him, and hast been partaker with adulterers.  
-> <sup>19</sup> Thou givest thy mouth to evil, and thy tongue frameth deceit.  
-> <sup>20</sup> Thou sittest *and* speakest against thy brother; thou slanderest thine own mother's son.  
-> <sup>21</sup> These *things* hast thou done, and I kept silence; thou thoughtest that I was altogether *such an one* as thyself: *but* I will reprove thee, and set *them* in order before thine eyes.  
-> <sup>22</sup> Now consider this, ye that forget God, lest I tear *you* in pieces, and *there be* none to deliver.  
-> <sup>23</sup> Whoso offereth praise glorifieth me: and to him that ordereth *his* conversation *aright* will I show the salvation of God.  
+> **¹⁶** But unto the wicked God saith, What hast thou to do to declare my statutes, or *that* thou shouldest take my covenant in thy mouth?  
+> **¹⁷** Seeing thou hatest instruction, and castest my words behind thee.  
+> **¹⁸** When thou sawest a thief, then thou consentedst with him, and hast been partaker with adulterers.  
+> **¹⁹** Thou givest thy mouth to evil, and thy tongue frameth deceit.  
+> **²⁰** Thou sittest *and* speakest against thy brother; thou slanderest thine own mother's son.  
+> **²¹** These *things* hast thou done, and I kept silence; thou thoughtest that I was altogether *such an one* as thyself: *but* I will reprove thee, and set *them* in order before thine eyes.  
+> **²²** Now consider this, ye that forget God, lest I tear *you* in pieces, and *there be* none to deliver.  
+> **²³** Whoso offereth praise glorifieth me: and to him that ordereth *his* conversation *aright* will I show the salvation of God.  
 
 God, by the psalmist, having instructed his people in the right way of worshipping him and keeping up their communion with him, here directs his speech to the wicked, to hypocrites, whether they were such as professed the Jewish or the Christian religion: hypocrisy is wickedness for which God will judge. Observe here,
 

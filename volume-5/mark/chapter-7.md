@@ -8,29 +8,29 @@ In this chapter we have, I. Christ's dispute with the scribes and Pharisees abou
 
 ## The Traditions of the Elders; The Worst Defilement from Within.
 
-> <sup>1</sup> Then came together unto him the Pharisees, and certain of the scribes, which came from Jerusalem.  
-> <sup>2</sup> And when they saw some of his disciples eat bread with defiled, that is to say, with unwashen, hands, they found fault.  
-> <sup>3</sup> For the Pharisees, and all the Jews, except they wash *their* hands oft, eat not, holding the tradition of the elders.  
-> <sup>4</sup> And *when they come* from the market, except they wash, they eat not. And many other things there be, which they have received to hold, *as* the washing of cups, and pots, brasen vessels, and of tables.  
-> <sup>5</sup> Then the Pharisees and scribes asked him, Why walk not thy disciples according to the tradition of the elders, but eat bread with unwashen hands?  
-> <sup>6</sup> He answered and said unto them, Well hath Esaias prophesied of you hypocrites, as it is written, This people honoureth me with *their* lips, but their heart is far from me.  
-> <sup>7</sup> Howbeit in vain do they worship me, teaching *for* doctrines the commandments of men.  
-> <sup>8</sup> For laying aside the commandment of God, ye hold the tradition of men, *as* the washing of pots and cups: and many other such like things ye do.  
-> <sup>9</sup> And he said unto them, Full well ye reject the commandment of God, that ye may keep your own tradition.  
-> <sup>10</sup> For Moses said, Honour thy father and thy mother; and, Whoso curseth father or mother, let him die the death:  
-> <sup>11</sup> But ye say, If a man shall say to his father or mother, *It is* Corban, that is to say, a gift, by whatsoever thou mightest be profited by me; *he shall be free.*  
-> <sup>12</sup> And ye suffer him no more to do ought for his father or his mother;  
-> <sup>13</sup> Making the word of God of none effect through your tradition, which ye have delivered: and many such like things do ye.  
-> <sup>14</sup> And when he had called all the people *unto him,* he said unto them, Hearken unto me every one *of you,* and understand:  
-> <sup>15</sup> There is nothing from without a man, that entering into him can defile him: but the things which come out of him, those are they that defile the man.  
-> <sup>16</sup> If any man have ears to hear, let him hear.  
-> <sup>17</sup> And when he was entered into the house from the people, his disciples asked him concerning the parable.  
-> <sup>18</sup> And he saith unto them, Are ye so without understanding also? Do ye not perceive, that whatsoever thing from without entereth into the man, *it* cannot defile him;  
-> <sup>19</sup> Because it entereth not into his heart, but into the belly, and goeth out into the draught, purging all meats?  
-> <sup>20</sup> And he said, That which cometh out of the man, that defileth the man.  
-> <sup>21</sup> For from within, out of the heart of men, proceed evil thoughts, adulteries, fornications, murders,  
-> <sup>22</sup> Thefts, covetousness, wickedness, deceit, lasciviousness, an evil eye, blasphemy, pride, foolishness:  
-> <sup>23</sup> All these evil things come from within, and defile the man.  
+> **¹** Then came together unto him the Pharisees, and certain of the scribes, which came from Jerusalem.  
+> **²** And when they saw some of his disciples eat bread with defiled, that is to say, with unwashen, hands, they found fault.  
+> **³** For the Pharisees, and all the Jews, except they wash *their* hands oft, eat not, holding the tradition of the elders.  
+> **⁴** And *when they come* from the market, except they wash, they eat not. And many other things there be, which they have received to hold, *as* the washing of cups, and pots, brasen vessels, and of tables.  
+> **⁵** Then the Pharisees and scribes asked him, Why walk not thy disciples according to the tradition of the elders, but eat bread with unwashen hands?  
+> **⁶** He answered and said unto them, Well hath Esaias prophesied of you hypocrites, as it is written, This people honoureth me with *their* lips, but their heart is far from me.  
+> **⁷** Howbeit in vain do they worship me, teaching *for* doctrines the commandments of men.  
+> **⁸** For laying aside the commandment of God, ye hold the tradition of men, *as* the washing of pots and cups: and many other such like things ye do.  
+> **⁹** And he said unto them, Full well ye reject the commandment of God, that ye may keep your own tradition.  
+> **¹⁰** For Moses said, Honour thy father and thy mother; and, Whoso curseth father or mother, let him die the death:  
+> **¹¹** But ye say, If a man shall say to his father or mother, *It is* Corban, that is to say, a gift, by whatsoever thou mightest be profited by me; *he shall be free.*  
+> **¹²** And ye suffer him no more to do ought for his father or his mother;  
+> **¹³** Making the word of God of none effect through your tradition, which ye have delivered: and many such like things do ye.  
+> **¹⁴** And when he had called all the people *unto him,* he said unto them, Hearken unto me every one *of you,* and understand:  
+> **¹⁵** There is nothing from without a man, that entering into him can defile him: but the things which come out of him, those are they that defile the man.  
+> **¹⁶** If any man have ears to hear, let him hear.  
+> **¹⁷** And when he was entered into the house from the people, his disciples asked him concerning the parable.  
+> **¹⁸** And he saith unto them, Are ye so without understanding also? Do ye not perceive, that whatsoever thing from without entereth into the man, *it* cannot defile him;  
+> **¹⁹** Because it entereth not into his heart, but into the belly, and goeth out into the draught, purging all meats?  
+> **²⁰** And he said, That which cometh out of the man, that defileth the man.  
+> **²¹** For from within, out of the heart of men, proceed evil thoughts, adulteries, fornications, murders,  
+> **²²** Thefts, covetousness, wickedness, deceit, lasciviousness, an evil eye, blasphemy, pride, foolishness:  
+> **²³** All these evil things come from within, and defile the man.  
 
 One great design of Christ's coming, was, to set aside the ceremonial law which God made, and to put an end to it; to make way for which he begins with the ceremonial law which men had made, and added to the law of God's making, and discharges his disciples from the obligation of that; which here he doth fully, upon occasion of the offence which the Pharisees took at them for the violation of it. These Pharisees and scribes with whom he had this argument, are said to *come from Jerusalem* down to Galilee—fourscore or a hundred miles, to pick quarrels with our Saviour there, where they supposed him to have the greatest interest and reputation. Had they come so far to be taught by him, their zeal had been commendable; but to come so far to oppose him, and to check the progress of his gospel, was great wickedness. It should seem that the scribes and Pharisees at Jerusalem pretended not only to a pre-eminence above, but to an authority over, the country clergy, and therefore kept up their visitations and sent inquisitors among them, as they did to John when he appeared, Joh 1:19.
 
@@ -64,13 +64,13 @@ Now that which he goes about to set them right in, is, what the pollution is, wh
 
 ## The Syrophenician Woman.
 
-> <sup>24</sup> And from thence he arose, and went into the borders of Tyre and Sidon, and entered into a house, and would have no man know *it:* but he could not be hid.  
-> <sup>25</sup> For a *certain* woman, whose young daughter had an unclean spirit, heard of him, and came and fell at his feet:  
-> <sup>26</sup> The woman was a Greek, a Syrophenician by nation; and she besought him that he would cast forth the devil out of her daughter.  
-> <sup>27</sup> But Jesus said unto her, Let the children first be filled: for it is not meet to take the children's bread, and to cast *it* unto the dogs.  
-> <sup>28</sup> And she answered and said unto him, Yes, Lord: yet the dogs under the table eat of the children's crumbs.  
-> <sup>29</sup> And he said unto her, For this saying go thy way; the devil is gone out of thy daughter.  
-> <sup>30</sup> And when she was come to her house, she found the devil gone out, and her daughter laid upon the bed.  
+> **²⁴** And from thence he arose, and went into the borders of Tyre and Sidon, and entered into a house, and would have no man know *it:* but he could not be hid.  
+> **²⁵** For a *certain* woman, whose young daughter had an unclean spirit, heard of him, and came and fell at his feet:  
+> **²⁶** The woman was a Greek, a Syrophenician by nation; and she besought him that he would cast forth the devil out of her daughter.  
+> **²⁷** But Jesus said unto her, Let the children first be filled: for it is not meet to take the children's bread, and to cast *it* unto the dogs.  
+> **²⁸** And she answered and said unto him, Yes, Lord: yet the dogs under the table eat of the children's crumbs.  
+> **²⁹** And he said unto her, For this saying go thy way; the devil is gone out of thy daughter.  
+> **³⁰** And when she was come to her house, she found the devil gone out, and her daughter laid upon the bed.  
 
 See here, I. How *humbly* Christ was pleased to *conceal himself.* Never man was so cried up as he was in Galilee, and therefore, to teach us, though not to decline any opportunity of doing good, yet not to be fond of popular applause, he arose from thence, and *went into the borders* of Tyre and Sidon, where he was little known; and there he entered, not into a synagogue, or place of concourse, but *into a* private *house,* and he *would have no man to know it;* because it was foretold concerning him, *He shall not strive nor cry, neither shall his voice be heard in the streets.* Not but that he was willing to preach and heal here as well as in other places, but for this he would be sought unto. Note, As there is a time to *appear,* so there is a time to *retire.* Or, he would not be known, because he was upon the borders of Tyre and Sidon, among Gentiles, to whom he would not be so forward to show himself as to the tribes of Israel, whose glory he was to be.
 
@@ -86,13 +86,13 @@ II\. How *graciously* he was pleased to *manifest himself,* notwithstanding. Tho
 
 ## The Cure of a Deaf and Dumb Person.
 
-> <sup>31</sup> And again, departing from the coasts of Tyre and Sidon, he came unto the sea of Galilee, through the midst of the coasts of Decapolis.  
-> <sup>32</sup> And they bring unto him one that was deaf, and had an impediment in his speech; and they beseech him to put his hand upon him.  
-> <sup>33</sup> And he took him aside from the multitude, and put his fingers into his ears, and he spit, and touched his tongue;  
-> <sup>34</sup> And looking up to heaven, he sighed, and saith unto him, Ephphatha, that is, Be opened.  
-> <sup>35</sup> And straightway his ears were opened, and the string of his tongue was loosed, and he spake plain.  
-> <sup>36</sup> And he charged them that they should tell no man: but the more he charged them, so much the more a great deal they published *it;*  
-> <sup>37</sup> And were beyond measure astonished, saying, He hath done all things well: he maketh both the deaf to hear, and the dumb to speak.  
+> **³¹** And again, departing from the coasts of Tyre and Sidon, he came unto the sea of Galilee, through the midst of the coasts of Decapolis.  
+> **³²** And they bring unto him one that was deaf, and had an impediment in his speech; and they beseech him to put his hand upon him.  
+> **³³** And he took him aside from the multitude, and put his fingers into his ears, and he spit, and touched his tongue;  
+> **³⁴** And looking up to heaven, he sighed, and saith unto him, Ephphatha, that is, Be opened.  
+> **³⁵** And straightway his ears were opened, and the string of his tongue was loosed, and he spake plain.  
+> **³⁶** And he charged them that they should tell no man: but the more he charged them, so much the more a great deal they published *it;*  
+> **³⁷** And were beyond measure astonished, saying, He hath done all things well: he maketh both the deaf to hear, and the dumb to speak.  
 
 Our Lord Jesus seldom staid long in a place, for he knew where his work lay, and attended the changes of it. When he had cured the woman of Canaan's daughter, he had done what he had to do in that place, and therefore presently left those parts, and returned *to the sea of Galilee,* whereabout his usual residence was; yet he did not come directly thither, but fetched a compass *through the midst of the coasts of Decapolis,* which lay mostly on the other side Jordan; such long walks did our Lord Jesus take, when he *went about doing good.*
 

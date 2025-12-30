@@ -8,10 +8,10 @@ We read, with a great deal of pleasure, in the close of the foregoing chapter, c
 
 ## The Prophet's Discontent. (b. c. 840.)
 
-> <sup>1</sup> But it displeased Jonah exceedingly, and he was very angry.  
-> <sup>2</sup> And he prayed unto the LORD, and said, I pray thee, O LORD, *was* not this my saying, when I was yet in my country? Therefore I fled before unto Tarshish: for I knew that thou *art* a gracious God, and merciful, slow to anger, and of great kindness, and repentest thee of the evil.  
-> <sup>3</sup> Therefore now, O LORD, take, I beseech thee, my life from me; for *it is* better for me to die than to live.  
-> <sup>4</sup> Then said the LORD, Doest thou well to be angry?  
+> **¹** But it displeased Jonah exceedingly, and he was very angry.  
+> **²** And he prayed unto the LORD, and said, I pray thee, O LORD, *was* not this my saying, when I was yet in my country? Therefore I fled before unto Tarshish: for I knew that thou *art* a gracious God, and merciful, slow to anger, and of great kindness, and repentest thee of the evil.  
+> **³** Therefore now, O LORD, take, I beseech thee, my life from me; for *it is* better for me to die than to live.  
+> **⁴** Then said the LORD, Doest thou well to be angry?  
 
 See here, I. How unjustly Jonah quarrelled with God for his mercy to Nineveh, upon their repentance. This gives us occasion to suspect that Jonah had only delivered the message of wrath against the Ninevites, and had not at all assisted or encouraged them in their repentance, as one would think he should have done; for when they did repent, and found mercy,
 
@@ -23,13 +23,13 @@ II\. See how justly God reproved Jonah for this heat that he was in (Jon 4:4): T
 
 ## The Prophet's Discontent; The Withering of the Prophet's Gourd; God's Remonstrance with Jonah. (b. c. 840.)
 
-> <sup>5</sup> So Jonah went out of the city, and sat on the east side of the city, and there made him a booth, and sat under it in the shadow, till he might see what would become of the city.  
-> <sup>6</sup> And the LORD God prepared a gourd, and made *it* to come up over Jonah, that it might be a shadow over his head, to deliver him from his grief. So Jonah was exceeding glad of the gourd.  
-> <sup>7</sup> But God prepared a worm when the morning rose the next day, and it smote the gourd that it withered.  
-> <sup>8</sup> And it came to pass, when the sun did arise, that God prepared a vehement east wind; and the sun beat upon the head of Jonah, that he fainted, and wished in himself to die, and said, *It is* better for me to die than to live.  
-> <sup>9</sup> And God said to Jonah, Doest thou well to be angry for the gourd? And he said, I do well to be angry, *even* unto death.  
-> <sup>10</sup> Then said the LORD, Thou hast had pity on the gourd, for the which thou hast not laboured, neither madest it grow; which came up in a night, and perished in a night:  
-> <sup>11</sup> And should not I spare Nineveh, that great city, wherein are more than sixscore thousand persons that cannot discern between their right hand and their left hand; and *also* much cattle?  
+> **⁵** So Jonah went out of the city, and sat on the east side of the city, and there made him a booth, and sat under it in the shadow, till he might see what would become of the city.  
+> **⁶** And the LORD God prepared a gourd, and made *it* to come up over Jonah, that it might be a shadow over his head, to deliver him from his grief. So Jonah was exceeding glad of the gourd.  
+> **⁷** But God prepared a worm when the morning rose the next day, and it smote the gourd that it withered.  
+> **⁸** And it came to pass, when the sun did arise, that God prepared a vehement east wind; and the sun beat upon the head of Jonah, that he fainted, and wished in himself to die, and said, *It is* better for me to die than to live.  
+> **⁹** And God said to Jonah, Doest thou well to be angry for the gourd? And he said, I do well to be angry, *even* unto death.  
+> **¹⁰** Then said the LORD, Thou hast had pity on the gourd, for the which thou hast not laboured, neither madest it grow; which came up in a night, and perished in a night:  
+> **¹¹** And should not I spare Nineveh, that great city, wherein are more than sixscore thousand persons that cannot discern between their right hand and their left hand; and *also* much cattle?  
 
 Jonah persists here in his discontent; for the *beginning of strife* both with God and man *is as the letting forth of waters,* the breach grows wider and wider, and, when passion gets head, bad is made worse; it should therefore be silenced and suppressed at first. We have here,
 

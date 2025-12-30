@@ -8,10 +8,10 @@ After the introduction (2Th 1:1,2) the apostle begins this epistle with an accou
 
 ## Introduction. (a. d. 52.)
 
-> <sup>1</sup> Paul, and Silvanus, and Timotheus, unto the church of the Thessalonians in God our Father and the Lord Jesus Christ:  
-> <sup>2</sup> Grace unto you, and peace, from God our Father and the Lord Jesus Christ.  
-> <sup>3</sup> We are bound to thank God always for you, brethren, as it is meet, because that your faith groweth exceedingly, and the charity of every one of you all toward each other aboundeth;  
-> <sup>4</sup> So that we ourselves glory in you in the churches of God for your patience and faith in all your persecutions and tribulations that ye endure:  
+> **¹** Paul, and Silvanus, and Timotheus, unto the church of the Thessalonians in God our Father and the Lord Jesus Christ:  
+> **²** Grace unto you, and peace, from God our Father and the Lord Jesus Christ.  
+> **³** We are bound to thank God always for you, brethren, as it is meet, because that your faith groweth exceedingly, and the charity of every one of you all toward each other aboundeth;  
+> **⁴** So that we ourselves glory in you in the churches of God for your patience and faith in all your persecutions and tribulations that ye endure:  
 
 Here we have,
 
@@ -25,12 +25,12 @@ II\. The apostle's expression of the high esteem he had for them. He not only ha
 
 ## Prospect of Persecuted Saints. (a. d. 52.)
 
-> <sup>5</sup> *Which is* a manifest token of the righteous judgment of God, that ye may be counted worthy of the kingdom of God, for which ye also suffer:  
-> <sup>6</sup> Seeing *it is* a righteous thing with God to recompense tribulation to them that trouble you;  
-> <sup>7</sup> And to you who are troubled rest with us, when the Lord Jesus shall be revealed from heaven with his mighty angels,  
-> <sup>8</sup> In flaming fire taking vengeance on them that know not God, and that obey not the gospel of our Lord Jesus Christ:  
-> <sup>9</sup> Who shall be punished with everlasting destruction from the presence of the Lord, and from the glory of his power;  
-> <sup>10</sup> When he shall come to be glorified in his saints, and to be admired in all them that believe (because our testimony among you was believed) in that day.  
+> **⁵** *Which is* a manifest token of the righteous judgment of God, that ye may be counted worthy of the kingdom of God, for which ye also suffer:  
+> **⁶** Seeing *it is* a righteous thing with God to recompense tribulation to them that trouble you;  
+> **⁷** And to you who are troubled rest with us, when the Lord Jesus shall be revealed from heaven with his mighty angels,  
+> **⁸** In flaming fire taking vengeance on them that know not God, and that obey not the gospel of our Lord Jesus Christ:  
+> **⁹** Who shall be punished with everlasting destruction from the presence of the Lord, and from the glory of his power;  
+> **¹⁰** When he shall come to be glorified in his saints, and to be admired in all them that believe (because our testimony among you was believed) in that day.  
 
 Having mentioned their persecutions and tribulations, which they endured principally for the cause of Christ, the apostle proceeds to offer several things for their comfort under them; as,
 
@@ -60,8 +60,8 @@ II\. He tells them next of the future recompence that shall be given to persecut
 
 ## The Apostle Prayer. (a. d. 52.)
 
-> <sup>11</sup> Wherefore also we pray always for you, that our God would count you worthy of *this* calling, and fulfil all the good pleasure of *his* goodness, and the work of faith with power:  
-> <sup>12</sup> That the name of our Lord Jesus Christ may be glorified in you, and ye in him, according to the grace of our God and the Lord Jesus Christ.  
+> **¹¹** Wherefore also we pray always for you, that our God would count you worthy of *this* calling, and fulfil all the good pleasure of *his* goodness, and the work of faith with power:  
+> **¹²** That the name of our Lord Jesus Christ may be glorified in you, and ye in him, according to the grace of our God and the Lord Jesus Christ.  
 
 In these verses the apostle again tells the Thessalonians of his earnest and constant prayer for them. He could not be present with them, yet he had a constant remembrance of them; they were much upon his thoughts; he wished them well, and could not express his good-will and good wishes to them better than in earnest constant prayer to God for them: *Wherefore also we pray,* etc. Note, The believing thoughts and expectation of the second coming of Christ should put us upon prayer to God for ourselves and others. We should watch and pray, so our Saviour directs his disciples (Lu 21:36), *Watch therefore, and pray always, that you may be counted worthy to stand before the Son of man.* Observe,
 

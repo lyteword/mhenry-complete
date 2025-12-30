@@ -8,15 +8,15 @@ In this chapter, I. The apostle proceeds in the exhortation to relative duties w
 
 ## Duties of Children to Parents; Duties of Servants to Masters. (a. d. 61.)
 
-> <sup>1</sup> Children, obey your parents in the Lord: for this is right.  
-> <sup>2</sup> Honour thy father and mother; (which is the first commandment with promise;)  
-> <sup>3</sup> That it may be well with thee, and thou mayest live long on the earth.  
-> <sup>4</sup> And, ye fathers, provoke not your children to wrath: but bring them up in the nurture and admonition of the Lord.  
-> <sup>5</sup> Servants, be obedient to them that are *your* masters according to the flesh, with fear and trembling, in singleness of your heart, as unto Christ;  
-> <sup>6</sup> Not with eyeservice, as menpleasers; but as the servants of Christ, doing the will of God from the heart;  
-> <sup>7</sup> With good will doing service, as to the Lord, and not to men:  
-> <sup>8</sup> Knowing that whatsoever good thing any man doeth, the same shall he receive of the Lord, whether *he be* bond or free.  
-> <sup>9</sup> And, ye masters, do the same things unto them, forbearing threatening: knowing that your Master also is in heaven; neither is there respect of persons with him.  
+> **¹** Children, obey your parents in the Lord: for this is right.  
+> **²** Honour thy father and mother; (which is the first commandment with promise;)  
+> **³** That it may be well with thee, and thou mayest live long on the earth.  
+> **⁴** And, ye fathers, provoke not your children to wrath: but bring them up in the nurture and admonition of the Lord.  
+> **⁵** Servants, be obedient to them that are *your* masters according to the flesh, with fear and trembling, in singleness of your heart, as unto Christ;  
+> **⁶** Not with eyeservice, as menpleasers; but as the servants of Christ, doing the will of God from the heart;  
+> **⁷** With good will doing service, as to the Lord, and not to men:  
+> **⁸** Knowing that whatsoever good thing any man doeth, the same shall he receive of the Lord, whether *he be* bond or free.  
+> **⁹** And, ye masters, do the same things unto them, forbearing threatening: knowing that your Master also is in heaven; neither is there respect of persons with him.  
 
 Here we have further directions concerning relative duties, in which the apostle is very particular.
 
@@ -30,15 +30,15 @@ IV\. The duty of masters: "*And you masters, do the same things unto them* (Eph 
 
 ## The Spiritual Warfare. (a. d. 61.)
 
-> <sup>10</sup> Finally, my brethren, be strong in the Lord, and in the power of his might.  
-> <sup>11</sup> Put on the whole armour of God, that ye may be able to stand against the wiles of the devil.  
-> <sup>12</sup> For we wrestle not against flesh and blood, but against principalities, against powers, against the rulers of the darkness of this world, against spiritual wickedness in high *places.*  
-> <sup>13</sup> Wherefore take unto you the whole armour of God, that ye may be able to withstand in the evil day, and having done all, to stand.  
-> <sup>14</sup> Stand therefore, having your loins girt about with truth, and having on the breastplate of righteousness;  
-> <sup>15</sup> And your feet shod with the preparation of the gospel of peace;  
-> <sup>16</sup> Above all, taking the shield of faith, wherewith ye shall be able to quench all the fiery darts of the wicked.  
-> <sup>17</sup> And take the helmet of salvation, and the sword of the Spirit, which is the word of God:  
-> <sup>18</sup> Praying always with all prayer and supplication in the Spirit, and watching thereunto with all perseverance and supplication for all saints;  
+> **¹⁰** Finally, my brethren, be strong in the Lord, and in the power of his might.  
+> **¹¹** Put on the whole armour of God, that ye may be able to stand against the wiles of the devil.  
+> **¹²** For we wrestle not against flesh and blood, but against principalities, against powers, against the rulers of the darkness of this world, against spiritual wickedness in high *places.*  
+> **¹³** Wherefore take unto you the whole armour of God, that ye may be able to withstand in the evil day, and having done all, to stand.  
+> **¹⁴** Stand therefore, having your loins girt about with truth, and having on the breastplate of righteousness;  
+> **¹⁵** And your feet shod with the preparation of the gospel of peace;  
+> **¹⁶** Above all, taking the shield of faith, wherewith ye shall be able to quench all the fiery darts of the wicked.  
+> **¹⁷** And take the helmet of salvation, and the sword of the Spirit, which is the word of God:  
+> **¹⁸** Praying always with all prayer and supplication in the Spirit, and watching thereunto with all perseverance and supplication for all saints;  
 
 Here is a general exhortation to constancy in our Christian course, and to encourage in our Christian warfare. Is not our life a warfare? It is so; for we struggle with the common calamities of human life. Is not our religion much more a warfare? It is so; for we struggle with the opposition of the powers of darkness, and with many enemies who would keep us from God and heaven. We have enemies to fight against, a captain to fight for, a banner to fight under, and certain rules of war by which we are to govern ourselves. "*Finally, my brethren* (Eph 6:10), it yet remains that you apply yourselves to your work and duty as Christian soldiers." Now it is requisite that a soldier be both stout-hearted and well armed. If Christians be soldiers of Jesus Christ,
 
@@ -58,12 +58,12 @@ II\. They must be well armed: "*Put on the whole armour of God* (Eph 6:11), make
 
 ## The Conclusion. (a. d. 61.)
 
-> <sup>19</sup> And for me, that utterance may be given unto me, that I may open my mouth boldly, to make known the mystery of the gospel,  
-> <sup>20</sup> For which I am an ambassador in bonds: that therein I may speak boldly, as I ought to speak.  
-> <sup>21</sup> But that ye also may know my affairs, *and* how I do, Tychicus, a beloved brother and faithful minister in the Lord, shall make known to you all things:  
-> <sup>22</sup> Whom I have sent unto you for the same purpose, that ye might know our affairs, and *that* he might comfort your hearts.  
-> <sup>23</sup> Peace *be* to the brethren, and love with faith, from God the Father and the Lord Jesus Christ.  
-> <sup>24</sup> Grace *be* with all them that love our Lord Jesus Christ in sincerity. Amen.  
+> **¹⁹** And for me, that utterance may be given unto me, that I may open my mouth boldly, to make known the mystery of the gospel,  
+> **²⁰** For which I am an ambassador in bonds: that therein I may speak boldly, as I ought to speak.  
+> **²¹** But that ye also may know my affairs, *and* how I do, Tychicus, a beloved brother and faithful minister in the Lord, shall make known to you all things:  
+> **²²** Whom I have sent unto you for the same purpose, that ye might know our affairs, and *that* he might comfort your hearts.  
+> **²³** Peace *be* to the brethren, and love with faith, from God the Father and the Lord Jesus Christ.  
+> **²⁴** Grace *be* with all them that love our Lord Jesus Christ in sincerity. Amen.  
 
 Here, I. He desires their prayers for him, Eph 6:19. Having mentioned *supplication for all saints,* he puts himself into the number. We must pray for all saints, and particularly for God's faithful ministers. *Brethren, pray for us, that the word of the Lord may run and be glorified.* Observe what it is he would have them pray for in his behalf: "*That utterance may be given unto me;* that I may be enlarged from my present restraints, and so have liberty to propagate the faith of Christ; that I may have ability to express myself in a suitable and becoming manner; *and that I may open my mouth boldly,* that is, that I may deliver the whole counsel of God, without any base fear, shame, or partiality." *To make known the mystery of the gospel;* some understand it of that part of the gospel which concerns the calling of the Gentiles, which had hitherto, as a mystery, been concealed. But the whole gospel was a mystery, till made known by divine revelation; and it is the work of Christ's ministers to publish it. Observe, Paul had a great command of language; they called him Mercury, because he was the chief speaker (Ac 14:12), and yet he would have his friends ask of God the gift of utterance for him. He was a man of great courage, and often signalized himself for it; yet he would have them pray that God would give him boldness. He knew as well what to say as any man; yet he desires them to pray for him, that he may *speak as he ought to speak.* The argument with which he enforces his request is that for the sake of the gospel he was *an ambassador in bonds,* Eph 6:20. He was persecuted and imprisoned for preaching the gospel; though, notwithstanding, he continued in the embassy committed to him by Christ, and persisted in preaching it. Observe, 1. It is no new thing for Christ's ministers to be in bonds. 2. It is a hard thing for them to speak boldly when that is their case. 3. The best and most eminent ministers have need of, and may receive advantage by, the prayers of good Christians; and therefore should earnestly desire them. Having thus desired their prayers,
 

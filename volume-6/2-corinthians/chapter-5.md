@@ -8,17 +8,17 @@ The apostle proceeds in showing the reasons why they did not faint under their a
 
 ## The Believer's Prospect beyond Death. (a. d. 57.)
 
-> <sup>1</sup> For we know that if our earthly house of *this* tabernacle were dissolved, we have a building of God, a house not made with hands, eternal in the heavens.  
-> <sup>2</sup> For in this we groan, earnestly desiring to be clothed upon with our house which is from heaven:  
-> <sup>3</sup> If so be that being clothed we shall not be found naked.  
-> <sup>4</sup> For we that are in *this* tabernacle do groan, being burdened: not for that we would be unclothed, but clothed upon, that mortality might be swallowed up of life.  
-> <sup>5</sup> Now he that hath wrought us for the selfsame thing *is* God, who also hath given unto us the earnest of the Spirit.  
-> <sup>6</sup> Therefore *we are* always confident, knowing that, whilst we are at home in the body, we are absent from the Lord:  
-> <sup>7</sup> (For we walk by faith, not by sight:)  
-> <sup>8</sup> We are confident, *I say,* and willing rather to be absent from the body, and to be present with the Lord.  
-> <sup>9</sup> Wherefore we labour, that, whether present or absent, we may be accepted of him.  
-> <sup>10</sup> For we must all appear before the judgment seat of Christ; that every one may receive the things *done* in *his* body, according to that he hath done, whether *it be* good or bad.  
-> <sup>11</sup> Knowing therefore the terror of the Lord, we persuade men; but we are made manifest unto God; and I trust also are made manifest in your consciences.  
+> **¹** For we know that if our earthly house of *this* tabernacle were dissolved, we have a building of God, a house not made with hands, eternal in the heavens.  
+> **²** For in this we groan, earnestly desiring to be clothed upon with our house which is from heaven:  
+> **³** If so be that being clothed we shall not be found naked.  
+> **⁴** For we that are in *this* tabernacle do groan, being burdened: not for that we would be unclothed, but clothed upon, that mortality might be swallowed up of life.  
+> **⁵** Now he that hath wrought us for the selfsame thing *is* God, who also hath given unto us the earnest of the Spirit.  
+> **⁶** Therefore *we are* always confident, knowing that, whilst we are at home in the body, we are absent from the Lord:  
+> **⁷** (For we walk by faith, not by sight:)  
+> **⁸** We are confident, *I say,* and willing rather to be absent from the body, and to be present with the Lord.  
+> **⁹** Wherefore we labour, that, whether present or absent, we may be accepted of him.  
+> **¹⁰** For we must all appear before the judgment seat of Christ; that every one may receive the things *done* in *his* body, according to that he hath done, whether *it be* good or bad.  
+> **¹¹** Knowing therefore the terror of the Lord, we persuade men; but we are made manifest unto God; and I trust also are made manifest in your consciences.  
 
 The apostle in these verses pursues the argument of the former chapter, concerning the grounds of their courage and patience under afflictions. And,
 
@@ -36,10 +36,10 @@ III\. He proceeds to deduce an inference to excite and quicken himself and other
 
 ## Apology for Seeming Self-Commendation. (a. d. 57.)
 
-> <sup>12</sup> For we commend not ourselves again unto you, but give you occasion to glory on our behalf, that ye may have somewhat to *answer* them which glory in appearance, and not in heart.  
-> <sup>13</sup> For whether we be beside ourselves, *it is* to God: or whether we be sober, *it is* for your cause.  
-> <sup>14</sup> For the love of Christ constraineth us; because we thus judge, that if one died for all, then were all dead:  
-> <sup>15</sup> And *that* he died for all, that they which live should not henceforth live unto themselves, but unto him which died for them, and rose again.  
+> **¹²** For we commend not ourselves again unto you, but give you occasion to glory on our behalf, that ye may have somewhat to *answer* them which glory in appearance, and not in heart.  
+> **¹³** For whether we be beside ourselves, *it is* to God: or whether we be sober, *it is* for your cause.  
+> **¹⁴** For the love of Christ constraineth us; because we thus judge, that if one died for all, then were all dead:  
+> **¹⁵** And *that* he died for all, that they which live should not henceforth live unto themselves, but unto him which died for them, and rose again.  
 
 Here observe, I. The apostle makes an apology for seeming to commend himself and his fellow-labourers (2Co 5:13), and tells them, 1. It was not to commend themselves, nor for their own sakes, that he had spoken of their fidelity and diligence in the 2Co 5:1-11; nor was he willing to suspect their good opinion of him. But, 2. The true reason was this, to put an argument in their mouths wherewith to answer his accusers, who made vain boastings, and gloried in appearances only; that he might give them *an occasion to glory on their behalf,* or to defend them against the reproaches of their adversaries. And if the people can say that the word has been manifested to their consciences, and been effectual to their conversion and edification, this is the best defence they can make for the ministry of the word, when they are vilified and reproached.
 
@@ -47,12 +47,12 @@ II\. He gives good reasons for their great zeal and diligence. Some of Paul's ad
 
 ## Ministry of the Apostles. (a. d. 57.)
 
-> <sup>16</sup> Wherefore henceforth know we no man after the flesh: yea, though we have known Christ after the flesh, yet now henceforth know we *him* no more.  
-> <sup>17</sup> Therefore if any man *be* in Christ, *he is* a new creature: old things are passed away; behold, all things are become new.  
-> <sup>18</sup> And all things *are* of God, who hath reconciled us to himself by Jesus Christ, and hath given to us the ministry of reconciliation;  
-> <sup>19</sup> To wit, that God was in Christ, reconciling the world unto himself, not imputing their trespasses unto them; and hath committed unto us the word of reconciliation.  
-> <sup>20</sup> Now then we are ambassadors for Christ, as though God did beseech *you* by us: we pray *you* in Christ's stead, be ye reconciled to God.  
-> <sup>21</sup> For he hath made him *to be* sin for us, who knew no sin; that we might be made the righteousness of God in him.  
+> **¹⁶** Wherefore henceforth know we no man after the flesh: yea, though we have known Christ after the flesh, yet now henceforth know we *him* no more.  
+> **¹⁷** Therefore if any man *be* in Christ, *he is* a new creature: old things are passed away; behold, all things are become new.  
+> **¹⁸** And all things *are* of God, who hath reconciled us to himself by Jesus Christ, and hath given to us the ministry of reconciliation;  
+> **¹⁹** To wit, that God was in Christ, reconciling the world unto himself, not imputing their trespasses unto them; and hath committed unto us the word of reconciliation.  
+> **²⁰** Now then we are ambassadors for Christ, as though God did beseech *you* by us: we pray *you* in Christ's stead, be ye reconciled to God.  
+> **²¹** For he hath made him *to be* sin for us, who knew no sin; that we might be made the righteousness of God in him.  
 
 In these verses the apostle mentions two things that are necessary in order to our living to Christ, both of which are the consequences of Christ's dying for us; namely, regeneration and reconciliation.
 

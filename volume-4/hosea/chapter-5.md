@@ -8,13 +8,13 @@ The scope of this chapter is the same with that of the foregoing chapter, to dis
 
 ## Charge against Israel and Judah; Judgments Threatened. (b. c. 758.)
 
-> <sup>1</sup> Hear ye this, O priests; and hearken, ye house of Israel; and give ye ear, O house of the king; for judgment *is* toward you, because ye have been a snare on Mizpah, and a net spread upon Tabor.  
-> <sup>2</sup> And the revolters are profound to make slaughter, though I *have been* a rebuker of them all.  
-> <sup>3</sup> I know Ephraim, and Israel is not hid from me: for now, O Ephraim, thou committest whoredom, *and* Israel is defiled.  
-> <sup>4</sup> They will not frame their doings to turn unto their God: for the spirit of whoredoms *is* in the midst of them, and they have not known the LORD.  
-> <sup>5</sup> And the pride of Israel doth testify to his face: therefore shall Israel and Ephraim fall in their iniquity; Judah also shall fall with them.  
-> <sup>6</sup> They shall go with their flocks and with their herds to seek the LORD; but they shall not find *him;* he hath withdrawn himself from them.  
-> <sup>7</sup> They have dealt treacherously against the LORD: for they have begotten strange children: now shall a month devour them with their portions.  
+> **¹** Hear ye this, O priests; and hearken, ye house of Israel; and give ye ear, O house of the king; for judgment *is* toward you, because ye have been a snare on Mizpah, and a net spread upon Tabor.  
+> **²** And the revolters are profound to make slaughter, though I *have been* a rebuker of them all.  
+> **³** I know Ephraim, and Israel is not hid from me: for now, O Ephraim, thou committest whoredom, *and* Israel is defiled.  
+> **⁴** They will not frame their doings to turn unto their God: for the spirit of whoredoms *is* in the midst of them, and they have not known the LORD.  
+> **⁵** And the pride of Israel doth testify to his face: therefore shall Israel and Ephraim fall in their iniquity; Judah also shall fall with them.  
+> **⁶** They shall go with their flocks and with their herds to seek the LORD; but they shall not find *him;* he hath withdrawn himself from them.  
+> **⁷** They have dealt treacherously against the LORD: for they have begotten strange children: now shall a month devour them with their portions.  
 
 Here, I. All orders and degrees of men are cited to appear and answer to such things as shall be laid to their charge (Ho 5:1): *Hear you this, O priests!* whether *in holy orders* (as those in Judah, and perhaps many in Israel too, for in the ten tribes there were divers cities of priests and Levites, who, it is probable, staid in their own lot after the revolt of the ten tribes and did so much of their office as might be done at a distance from the temple) or *pretending holy orders,* as the priests of the calves, who, some think, are included here. "Hearken, *you house of Israel,* the common people, and *give ear, O house of the king!*" let them all take notice, for they have all contributed to the national guilt, and they shall all share in the national judgments. Note, If neither the sanctity of the priesthood nor the dignity of the royal family will prevail to keep out sin, it cannot be expected that they should avail to keep out wrath. If the priests, and the house of the king, though they bear such noble characters, sin like others, their noble characters will not excuse them, but they must smart like others. Nor shall it be any plea for *the house of Israel* that they were misled by their priests and princes, but they shall receive their doom with them, and neither their meanness nor their multitude shall be their exemption.
 
@@ -32,14 +32,14 @@ IV\. Very sad things are made to be their doom. In general (Ho 5:1), "*Judgment 
 
 ## Threatenings of Judgment. (b. c. 758.)
 
-> <sup>8</sup> Blow ye the cornet in Gibeah, *and* the trumpet in Ramah: cry aloud *at* Beth-aven, after thee, O Benjamin.  
-> <sup>9</sup> Ephraim shall be desolate in the day of rebuke: among the tribes of Israel have I made known that which shall surely be.  
-> <sup>10</sup> The princes of Judah were like them that remove the bound: *therefore* I will pour out my wrath upon them like water.  
-> <sup>11</sup> Ephraim *is* oppressed *and* broken in judgment, because he willingly walked after the commandment.  
-> <sup>12</sup> Therefore *will* I *be* unto Ephraim as a moth, and to the house of Judah as rottenness.  
-> <sup>13</sup> When Ephraim saw his sickness, and Judah *saw* his wound, then went Ephraim to the Assyrian, and sent to king Jareb: yet could he not heal you, nor cure you of your wound.  
-> <sup>14</sup> For I *will be* unto Ephraim as a lion, and as a young lion to the house of Judah: I, *even* I, will tear and go away; I will take away, and none shall rescue *him.*  
-> <sup>15</sup> I will go *and* return to my place, till they acknowledge their offence, and seek my face: in their affliction they will seek me early.  
+> **⁸** Blow ye the cornet in Gibeah, *and* the trumpet in Ramah: cry aloud *at* Beth-aven, after thee, O Benjamin.  
+> **⁹** Ephraim shall be desolate in the day of rebuke: among the tribes of Israel have I made known that which shall surely be.  
+> **¹⁰** The princes of Judah were like them that remove the bound: *therefore* I will pour out my wrath upon them like water.  
+> **¹¹** Ephraim *is* oppressed *and* broken in judgment, because he willingly walked after the commandment.  
+> **¹²** Therefore *will* I *be* unto Ephraim as a moth, and to the house of Judah as rottenness.  
+> **¹³** When Ephraim saw his sickness, and Judah *saw* his wound, then went Ephraim to the Assyrian, and sent to king Jareb: yet could he not heal you, nor cure you of your wound.  
+> **¹⁴** For I *will be* unto Ephraim as a lion, and as a young lion to the house of Judah: I, *even* I, will tear and go away; I will take away, and none shall rescue *him.*  
+> **¹⁵** I will go *and* return to my place, till they acknowledge their offence, and seek my face: in their affliction they will seek me early.  
 
 Here is, I. A loud alarm sounded, giving notice of judgments coming (Ho 5:8): *Blow you the cornet in Gibeah* and *in Ramah,* two cities near together in the confines of the two kingdoms of Judah and Israel, Gibeah a frontier-town of the kingdom of Judah, Ramah of Israel; so that the warning is hereby sent into both kingdoms. "*Cry aloud at Beth-aven,* or Bethel, which place seems to be already seized upon by the enemy, and therefore the trumpet is not sounded there, but you hear the outcries of those that shout for mastery, mixed with theirs that are overcome." Let them *cry aloud, "After thee, O Benjamin!* comes the enemy. The tribe of Ephraim is already vanquished, and the enemy will be upon thy back, O Benjamin! in a little time; thy turn comes next. The cup of trembling shall go round." The prophet had described God's controversy with them as a trial at law (Ho 4:1); here he describes it as a trial by battle; and here also *when he judges he will overcome.* Let all therefore prepare to meet their God. He had before spoken of the judgments as certain; here he speaks of them as near; and, when they are apprehended as just at the door, they are very startling and awakening. The blowing of this cornet is explained, Ho 5:9. *Among the tribes of Israel have I made known that which shall surely be,* that which is *true* or *certain,* so the word is. Note, The destruction of impenitent sinners is a thing which shall surely be; it is not mere talk, to frighten them, but it is an irrevocable sentence. And it is a mercy to us that it is *made known* to us, that we have timely warning given us of it, that we may *flee from the wrath to come.* It is the privilege of the tribes of Israel that, as they are told their duty, so they are told their danger, by the oracles of God committed to them.
 

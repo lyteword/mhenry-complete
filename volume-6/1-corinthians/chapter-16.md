@@ -8,10 +8,10 @@ In this chapter the apostle, I. Gives directions about some charitable collectio
 
 ## Contributions for the Poor. (a. d. 57.)
 
-> <sup>1</sup> Now concerning the collection for the saints, as I have given order to the churches of Galatia, even so do ye.  
-> <sup>2</sup> Upon the first *day* of the week let every one of you lay by him in store, as *God* hath prospered him, that there be no gatherings when I come.  
-> <sup>3</sup> And when I come, whomsoever ye shall approve by *your* letters, them will I send to bring your liberality unto Jerusalem.  
-> <sup>4</sup> And if it be meet that I go also, they shall go with me.  
+> **¹** Now concerning the collection for the saints, as I have given order to the churches of Galatia, even so do ye.  
+> **²** Upon the first *day* of the week let every one of you lay by him in store, as *God* hath prospered him, that there be no gatherings when I come.  
+> **³** And when I come, whomsoever ye shall approve by *your* letters, them will I send to bring your liberality unto Jerusalem.  
+> **⁴** And if it be meet that I go also, they shall go with me.  
 
 In this chapter Paul closes this long epistle with some particular matters of less moment; but, as all was written by divine inspiration, it is all profitable for our instruction. He begins with directing them about a charitable collection on a particular occasion, the distresses and poverty of Christians in Judea, which at this time were extraordinary, partly through the general calamities of that nation and partly through the particular sufferings to which they were exposed. Now concerning this observe,
 
@@ -29,19 +29,19 @@ II\. The direction itself, concerning which observe,
 
 ## Paul Promises to Visit Corinth. (a. d. 57.)
 
-> <sup>5</sup> Now I will come unto you, when I shall pass through Macedonia: for I do pass through Macedonia.  
-> <sup>6</sup> And it may be that I will abide, yea, and winter with you, that ye may bring me on my journey whithersoever I go.  
-> <sup>7</sup> For I will not see you now by the way; but I trust to tarry a while with you, if the Lord permit.  
-> <sup>8</sup> But I will tarry at Ephesus until Pentecost.  
-> <sup>9</sup> For a great door and effectual is opened unto me, and *there are* many adversaries.  
+> **⁵** Now I will come unto you, when I shall pass through Macedonia: for I do pass through Macedonia.  
+> **⁶** And it may be that I will abide, yea, and winter with you, that ye may bring me on my journey whithersoever I go.  
+> **⁷** For I will not see you now by the way; but I trust to tarry a while with you, if the Lord permit.  
+> **⁸** But I will tarry at Ephesus until Pentecost.  
+> **⁹** For a great door and effectual is opened unto me, and *there are* many adversaries.  
 
 In this passage the apostle notifies and explains his purpose of visiting them, concerning which, observe, 1. His purpose: he intended to pass out of Asia, where he now was (*vide* 1Co 16:8,19) and to go through Macedonia into Achaia, where Corinth was, and to stay some time with them, and perhaps the winter, 1Co 16:5,6. He had long laboured in this church, and done much good among them, and had his heart set upon doing much more (if God saw fit), and therefore he had it in his thoughts to see them, and stay with them. Note, The heart of a truly Christian minister must be much towards that people among whom he has long laboured, and with remarkable success. No wonder that Paul was willing to see Corinth and stay with them as long as the other duties of his office would permit. Though some among this people despised him, and made a faction against him, doubtless there were many who loved him tenderly, and paid him all the respect due to an apostle and their spiritual father. And is it any wonder that he should be willing to visit them, and stay with them? And as to the rest, who now manifested great disrespect, he might hope to reduce them to a better temper, and thereby rectify what was out of order in the church, by staying among them for some time. It is plain that he hoped for some good effect, because he says he intended to stay, *that they might bring him on his journey whithersoever he went* (1Co 16:6); not that they might accompany him a little way on the road, but expedite and furnish him for his journey, help and encourage him to it, and provide him for it. He is to be understood of being brought forward in his journey after a godly sort (as it is expressed, 3Jo 1:6), so that nothing might be wanting to him, as he himself speaks, Tit 3:13. His stay among them, he hoped, would cure their factious humour, and reconcile them to himself and their duty. Note, It was a just reason for an apostle to make his abode in a place that he had a prospect of doing good. 2. His excuse for not seeing them now, because it would be *only by the way* (1Co 16:7), *en parodo*—*in transitu*—*en passant: it would only be a transient visit.* He would not see them because he could not stay with them. Such a visit would give neither him nor them any satisfaction or advantage; it would rather raise the appetite than regale it, rather heighten their desires of being together than satisfy them. He loved them so much that he longed for an opportunity to stay with them, take up his abode among them for some length of time. This would be more pleasing to himself, and more serviceable to them, than a cursory visit in his way; and therefore he would not see them now, but another time, when he could tarry longer. 3. We have the limitation of this purpose: *I trust to tarry awhile with you, if the Lord permit,* 1Co 16:7. Though the apostles wrote under inspiration, they did not know thereby how God would dispose of them. Paul had a purpose of coming to Corinth, and staying there, and hoped to do good thereby. This was not a purpose proceeding from any extraordinary motion or impulse of the Spirit of God; it was not the effect of inspiration; for had it been such he could not have spoken of it in this manner. A purpose formed thus in him must have been the purpose of God, signified to him by his Spirit; and could he say he would come to Corinth upon this view only, if God permit, that is, that he would execute God's own purpose concerning himself, with God's permission? It is to be understood then of a common purpose, formed in his own spirit. And concerning all our purposes it is fit we should say, "We will execute them if the Lord permit." Note, All our purposes must be made with submission to the divine providence. We should say, *If the Lord will, we shall live, and do this and that,* Jam 4:15. It is not in us to effect our own designs, without the divine leave. It is by God's power and permission, and under his direction, that we must do every thing. Heathens have concurred in acknowledging this concern of Providence in all our actions and concerns; surely we should readily own it, and frequently and seriously attend to it. 4. We have his purpose expressed of staying at Ephesus for the present. He says he would stay there till pentecost, 1Co 16:8. It is very probable that at the time of writing this epistle he was in Ephesus, from this passage, compared with 1Co 16:19, where he says, *The churches of Asia salute you.* A proper salutation from Ephesus, but hardly so proper had he been at Philippi, as the subscription to this epistle in our common copies has it. "*The churches of Macedonia salute you*" had been much more properly inserted in the close of a letter from Philippi, than the other. But, 5. We have the reason given for his staying at Ephesus for the present: *Because a great door, and effectual, was opened to him, and there were many adversaries,* 1Co 16:9. A great door and effectual was opened to him; many were prepared to receive the gospel at Ephesus, and God gave him great success among them; he had brought over many to Christ, and he had great hope of bringing over many more. For this reason he determined to stay awhile at Ephesus. Note, Success, and a fair prospect of more, was a just reason to determine an apostle to stay and labour in a particular place. And there were many adversaries, because a great door, and an effectual, was opened. Note, Great success in the work of the gospel commonly creates many enemies. The devil opposes those most, and makes them most trouble, who most heartily and successfully set themselves to destroy his kingdom. There were many adversaries; and therefore the apostle determined to stay. Some think he alludes in this passage to the custom of the Roman Circus, and the doors of it, at which the charioteers were to enter, as their antagonists did at the opposite doors. True courage is whetted by opposition; and it is no wonder that the Christian courage of the apostle should be animated by the zeal of his adversaries. They were bent to ruin him, and prevent the effect of his ministry at Ephesus; and should he at this time desert his station, and disgrace his character and doctrine? No, the opposition of adversaries only animated his zeal. He was in nothing daunted by his adversaries; but the more they raged and opposed the more he exerted himself. Should such a man as he flee? Note, Adversaries and opposition do not break the spirits of faithful and successful ministers, but only enkindle their zeal, and inspire them with fresh courage. Indeed, to labour in vain is heartless and discouraging. This damps the spirits, and breaks the heart. But success will give life and vigour to a minister, though enemies rage, and blaspheme, and persecute. It is not the opposition of enemies, but the hardness and obstinacy of his hearers, and the backslidings and revolt of professors, that damp a faithful minister, and break his heart.
 
 ## The Apostle Recommends Timothy; General Directions. (a. d. 57.)
 
-> <sup>10</sup> Now if Timotheus come, see that he may be with you without fear: for he worketh the work of the Lord, as I also *do.*  
-> <sup>11</sup> Let no man therefore despise him: but conduct him forth in peace, that he may come unto me: for I look for him with the brethren.  
-> <sup>12</sup> As touching *our* brother Apollos, I greatly desired him to come unto you with the brethren: but his will was not at all to come at this time; but he will come when he shall have convenient time.  
+> **¹⁰** Now if Timotheus come, see that he may be with you without fear: for he worketh the work of the Lord, as I also *do.*  
+> **¹¹** Let no man therefore despise him: but conduct him forth in peace, that he may come unto me: for I look for him with the brethren.  
+> **¹²** As touching *our* brother Apollos, I greatly desired him to come unto you with the brethren: but his will was not at all to come at this time; but he will come when he shall have convenient time.  
 
 In this passage,
 
@@ -53,12 +53,12 @@ III\. He informs them of Apollos's purpose to see them. 1. He himself had greatl
 
 ## Particular Directions. (a. d. 57.)
 
-> <sup>13</sup> Watch ye, stand fast in the faith, quit you like men, be strong.  
-> <sup>14</sup> Let all your things be done with charity.  
-> <sup>15</sup> I beseech you, brethren, (ye know the house of Stephanas, that it is the firstfruits of Achaia, and *that* they have addicted themselves to the ministry of the saints,)  
-> <sup>16</sup> That ye submit yourselves unto such, and to every one that helpeth with *us,* and laboureth.  
-> <sup>17</sup> I am glad of the coming of Stephanas and Fortunatus and Achaicus: for that which was lacking on your part they have supplied.  
-> <sup>18</sup> For they have refreshed my spirit and yours: therefore acknowledge ye them that are such.  
+> **¹³** Watch ye, stand fast in the faith, quit you like men, be strong.  
+> **¹⁴** Let all your things be done with charity.  
+> **¹⁵** I beseech you, brethren, (ye know the house of Stephanas, that it is the firstfruits of Achaia, and *that* they have addicted themselves to the ministry of the saints,)  
+> **¹⁶** That ye submit yourselves unto such, and to every one that helpeth with *us,* and laboureth.  
+> **¹⁷** I am glad of the coming of Stephanas and Fortunatus and Achaicus: for that which was lacking on your part they have supplied.  
+> **¹⁸** For they have refreshed my spirit and yours: therefore acknowledge ye them that are such.  
 
 In this passage the apostle gives,
 
@@ -72,12 +72,12 @@ II\. Some particular directions how they should behave towards some that had bee
 
 ## Commendations and Salutations. (a. d. 57.)
 
-> <sup>19</sup> The churches of Asia salute you. Aquila and Priscilla salute you much in the Lord, with the church that is in their house.  
-> <sup>20</sup> All the brethren greet you. Greet ye one another with an holy kiss.  
-> <sup>21</sup> The salutation of *me* Paul with mine own hand.  
-> <sup>22</sup> If any man love not the Lord Jesus Christ, let him be Anathema Maranatha.  
-> <sup>23</sup> The grace of our Lord Jesus Christ *be* with you.  
-> <sup>24</sup> My love *be* with you all in Christ Jesus. Amen. &lt;&lt;*The first* epistle *to the Corinthians was written from Philippi by Stephanas and Fortunatus and Achaicus and Timotheus.*&gt;&gt;  
+> **¹⁹** The churches of Asia salute you. Aquila and Priscilla salute you much in the Lord, with the church that is in their house.  
+> **²⁰** All the brethren greet you. Greet ye one another with an holy kiss.  
+> **²¹** The salutation of *me* Paul with mine own hand.  
+> **²²** If any man love not the Lord Jesus Christ, let him be Anathema Maranatha.  
+> **²³** The grace of our Lord Jesus Christ *be* with you.  
+> **²⁴** My love *be* with you all in Christ Jesus. Amen. &lt;&lt;*The first* epistle *to the Corinthians was written from Philippi by Stephanas and Fortunatus and Achaicus and Timotheus.*&gt;&gt;  
 
 The apostle closes his epistle,
 

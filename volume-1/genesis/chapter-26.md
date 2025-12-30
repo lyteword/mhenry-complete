@@ -8,11 +8,11 @@ In this chapter we have, I. Isaac in adversity, by reason of a famine in the lan
 
 ## Removal of Isaac to Gerar. (b. c. 1804.)
 
-> <sup>1</sup> And there was a famine in the land, beside the first famine that was in the days of Abraham. And Isaac went unto Abimelech king of the Philistines unto Gerar.  
-> <sup>2</sup> And the LORD appeared unto him, and said, Go not down into Egypt; dwell in the land which I shall tell thee of:  
-> <sup>3</sup> Sojourn in this land, and I will be with thee, and will bless thee; for unto thee, and unto thy seed, I will give all these countries, and I will perform the oath which I sware unto Abraham thy father;  
-> <sup>4</sup> And I will make thy seed to multiply as the stars of heaven, and will give unto thy seed all these countries; and in thy seed shall all the nations of the earth be blessed;  
-> <sup>5</sup> Because that Abraham obeyed my voice, and kept my charge, my commandments, my statutes, and my laws.  
+> **¹** And there was a famine in the land, beside the first famine that was in the days of Abraham. And Isaac went unto Abimelech king of the Philistines unto Gerar.  
+> **²** And the LORD appeared unto him, and said, Go not down into Egypt; dwell in the land which I shall tell thee of:  
+> **³** Sojourn in this land, and I will be with thee, and will bless thee; for unto thee, and unto thy seed, I will give all these countries, and I will perform the oath which I sware unto Abraham thy father;  
+> **⁴** And I will make thy seed to multiply as the stars of heaven, and will give unto thy seed all these countries; and in thy seed shall all the nations of the earth be blessed;  
+> **⁵** Because that Abraham obeyed my voice, and kept my charge, my commandments, my statutes, and my laws.  
 
 Here, I. God tried Isaac by his providence. Isaac had been trained up in a believing dependence upon the divine grant of the land of Canaan to him and his heirs; yet now there is *a famine in the land,* Ge 26:1. What shall he think of the promise when the promised land will not find him bread? Is such a grant worth accepting, upon such terms, and after so long a time? Yes, Isaac will still cleave to the covenant; and the less valuable Canaan in itself seems to be the better he is taught to value it, 1. As a token of God's everlasting kindness to him; and, 2. As a type of heaven's everlasting blessedness. Note, The intrinsic worth of God's promises cannot be lessened in a believer's eye by any cross providences.
 
@@ -20,12 +20,12 @@ II\. He directed him under this trial by his word. Isaac finds himself straitene
 
 ## Isaac's Denial of His Wife. (b. c. 1840.)
 
-> <sup>6</sup> And Isaac dwelt in Gerar:  
-> <sup>7</sup> And the men of the place asked *him* of his wife; and he said, She *is* my sister: for he feared to say, *She is* my wife; lest, *said he,* the men of the place should kill me for Rebekah; because she *was* fair to look upon.  
-> <sup>8</sup> And it came to pass, when he had been there a long time, that Abimelech king of the Philistines looked out at a window, and saw, and, behold, Isaac *was* sporting with Rebekah his wife.  
-> <sup>9</sup> And Abimelech called Isaac, and said, Behold, of a surety she *is* thy wife: and how saidst thou, She *is* my sister? And Isaac said unto him, Because I said, Lest I die for her.  
-> <sup>10</sup> And Abimelech said, What *is* this thou hast done unto us? one of the people might lightly have lain with thy wife, and thou shouldest have brought guiltiness upon us.  
-> <sup>11</sup> And Abimelech charged all *his* people, saying, He that toucheth this man or his wife shall surely be put to death.  
+> **⁶** And Isaac dwelt in Gerar:  
+> **⁷** And the men of the place asked *him* of his wife; and he said, She *is* my sister: for he feared to say, *She is* my wife; lest, *said he,* the men of the place should kill me for Rebekah; because she *was* fair to look upon.  
+> **⁸** And it came to pass, when he had been there a long time, that Abimelech king of the Philistines looked out at a window, and saw, and, behold, Isaac *was* sporting with Rebekah his wife.  
+> **⁹** And Abimelech called Isaac, and said, Behold, of a surety she *is* thy wife: and how saidst thou, She *is* my sister? And Isaac said unto him, Because I said, Lest I die for her.  
+> **¹⁰** And Abimelech said, What *is* this thou hast done unto us? one of the people might lightly have lain with thy wife, and thou shouldest have brought guiltiness upon us.  
+> **¹¹** And Abimelech charged all *his* people, saying, He that toucheth this man or his wife shall surely be put to death.  
 
 Isaac had now laid aside all thoughts of going to Egypt, and, in obedience to the heavenly vision, sets up his staff in Gerar, the country in which he was born (Ge 26:6), yet there he enters into temptation, the same temptation that his good father had been once and again surprised and overcome by, namely, to deny his wife, and to give out that she was his sister. Observe,
 
@@ -35,20 +35,20 @@ II\. How he was detected, and the cheat discovered, by the king himself. Abimele
 
 ## Isaac's Removal to Beersheba. (b. c. 1804.)
 
-> <sup>12</sup> Then Isaac sowed in that land, and received in the same year an hundredfold: and the LORD blessed him:  
-> <sup>13</sup> And the man waxed great, and went forward, and grew until he became very great:  
-> <sup>14</sup> For he had possession of flocks, and possession of herds, and great store of servants: and the Philistines envied him.  
-> <sup>15</sup> For all the wells which his father's servants had digged in the days of Abraham his father, the Philistines had stopped them, and filled them with earth.  
-> <sup>16</sup> And Abimelech said unto Isaac, Go from us; for thou art much mightier than we.  
-> <sup>17</sup> And Isaac departed thence, and pitched his tent in the valley of Gerar, and dwelt there.  
-> <sup>18</sup> And Isaac digged again the wells of water, which they had digged in the days of Abraham his father; for the Philistines had stopped them after the death of Abraham: and he called their names after the names by which his father had called them.  
-> <sup>19</sup> And Isaac's servants digged in the valley, and found there a well of springing water.  
-> <sup>20</sup> And the herdmen of Gerar did strive with Isaac's herdmen, saying, The water *is* ours: and he called the name of the well Esek; because they strove with him.  
-> <sup>21</sup> And they digged another well, and strove for that also: and he called the name of it Sitnah.  
-> <sup>22</sup> And he removed from thence, and digged another well; and for that they strove not: and he called the name of it Rehoboth; and he said, For now the LORD hath made room for us, and we shall be fruitful in the land.  
-> <sup>23</sup> And he went up from thence to Beer-sheba.  
-> <sup>24</sup> And the LORD appeared unto him the same night, and said, I *am* the God of Abraham thy father: fear not, for I *am* with thee, and will bless thee, and multiply thy seed for my servant Abraham's sake.  
-> <sup>25</sup> And he builded an altar there, and called upon the name of the LORD, and pitched his tent there: and there Isaac's servants digged a well.  
+> **¹²** Then Isaac sowed in that land, and received in the same year an hundredfold: and the LORD blessed him:  
+> **¹³** And the man waxed great, and went forward, and grew until he became very great:  
+> **¹⁴** For he had possession of flocks, and possession of herds, and great store of servants: and the Philistines envied him.  
+> **¹⁵** For all the wells which his father's servants had digged in the days of Abraham his father, the Philistines had stopped them, and filled them with earth.  
+> **¹⁶** And Abimelech said unto Isaac, Go from us; for thou art much mightier than we.  
+> **¹⁷** And Isaac departed thence, and pitched his tent in the valley of Gerar, and dwelt there.  
+> **¹⁸** And Isaac digged again the wells of water, which they had digged in the days of Abraham his father; for the Philistines had stopped them after the death of Abraham: and he called their names after the names by which his father had called them.  
+> **¹⁹** And Isaac's servants digged in the valley, and found there a well of springing water.  
+> **²⁰** And the herdmen of Gerar did strive with Isaac's herdmen, saying, The water *is* ours: and he called the name of the well Esek; because they strove with him.  
+> **²¹** And they digged another well, and strove for that also: and he called the name of it Sitnah.  
+> **²²** And he removed from thence, and digged another well; and for that they strove not: and he called the name of it Rehoboth; and he said, For now the LORD hath made room for us, and we shall be fruitful in the land.  
+> **²³** And he went up from thence to Beer-sheba.  
+> **²⁴** And the LORD appeared unto him the same night, and said, I *am* the God of Abraham thy father: fear not, for I *am* with thee, and will bless thee, and multiply thy seed for my servant Abraham's sake.  
+> **²⁵** And he builded an altar there, and called upon the name of the LORD, and pitched his tent there: and there Isaac's servants digged a well.  
 
 Here we have,
 
@@ -72,14 +72,14 @@ III\. His constancy and continuance in his business still.
 
 ## Isaac's Covenant with Abimelech. (b. c. 1760.)
 
-> <sup>26</sup> Then Abimelech went to him from Gerar, and Ahuzzath one of his friends, and Phichol the chief captain of his army.  
-> <sup>27</sup> And Isaac said unto them, Wherefore come ye to me, seeing ye hate me, and have sent me away from you?  
-> <sup>28</sup> And they said, We saw certainly that the LORD was with thee: and we said, Let there be now an oath betwixt us, *even* betwixt us and thee, and let us make a covenant with thee;  
-> <sup>29</sup> That thou wilt do us no hurt, as we have not touched thee, and as we have done unto thee nothing but good, and have sent thee away in peace: thou *art* now the blessed of the LORD.  
-> <sup>30</sup> And he made them a feast, and they did eat and drink.  
-> <sup>31</sup> And they rose up betimes in the morning, and sware one to another: and Isaac sent them away, and they departed from him in peace.  
-> <sup>32</sup> And it came to pass the same day, that Isaac's servants came, and told him concerning the well which they had digged, and said unto him, We have found water.  
-> <sup>33</sup> And he called it Shebah: therefore the name of the city *is* Beer-sheba unto this day.  
+> **²⁶** Then Abimelech went to him from Gerar, and Ahuzzath one of his friends, and Phichol the chief captain of his army.  
+> **²⁷** And Isaac said unto them, Wherefore come ye to me, seeing ye hate me, and have sent me away from you?  
+> **²⁸** And they said, We saw certainly that the LORD was with thee: and we said, Let there be now an oath betwixt us, *even* betwixt us and thee, and let us make a covenant with thee;  
+> **²⁹** That thou wilt do us no hurt, as we have not touched thee, and as we have done unto thee nothing but good, and have sent thee away in peace: thou *art* now the blessed of the LORD.  
+> **³⁰** And he made them a feast, and they did eat and drink.  
+> **³¹** And they rose up betimes in the morning, and sware one to another: and Isaac sent them away, and they departed from him in peace.  
+> **³²** And it came to pass the same day, that Isaac's servants came, and told him concerning the well which they had digged, and said unto him, We have found water.  
+> **³³** And he called it Shebah: therefore the name of the city *is* Beer-sheba unto this day.  
 
 We have here the contests that had been between Isaac and the Philistines issuing in a happy peace and reconciliation.
 
@@ -95,8 +95,8 @@ V\. Providence smiled upon what Isaac did; for the same day that he made this co
 
 ## Esau's Foolish Marriage. (b. c. 1760.)
 
-> <sup>34</sup> And Esau was forty years old when he took to wife Judith the daughter of Beeri the Hittite, and Bashemath the daughter of Elon the Hittite:  
-> <sup>35</sup> Which were a grief of mind unto Isaac and to Rebekah.  
+> **³⁴** And Esau was forty years old when he took to wife Judith the daughter of Beeri the Hittite, and Bashemath the daughter of Elon the Hittite:  
+> **³⁵** Which were a grief of mind unto Isaac and to Rebekah.  
 
 Here is, 1. Esau's foolish marriage—foolish, some think, in marrying two wives together, for which perhaps he is called a *fornicator* (Heb 12:16), or rather in marrying Canaanites, who were strangers to the blessing of Abraham, and subject to the curse of Noah, for which he is called *profane;* for hereby he intimated that he neither desired the blessing nor dreaded the curse of God. 2. The grief and trouble it created to his tender parents. (1.) It grieved them that he married without asking, or at least without taking, their advice and consent: see whose steps those children tread in who either contemn or contradict their parents in disposing of themselves. (2.) It grieved them that he married the daughters of Hittites, who had no religion among them; for Isaac remembered his father's care concerning him, that he should by no means marry a Canaanite. (3.) It should seem, the wives he married were provoking in their conduct towards Isaac and Rebekah; those children have little reason to expect the blessing of God who do that which is a grief of mind to their good parents.
 

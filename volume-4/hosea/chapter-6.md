@@ -8,9 +8,9 @@ The closing words of the foregoing chapter gave us some hopes that God and his I
 
 ## Penitential Resolutions; Promises. (b. c. 758.)
 
-> <sup>1</sup> Come, and let us return unto the LORD: for he hath torn, and he will heal us; he hath smitten, and he will bind us up.  
-> <sup>2</sup> After two days will he revive us: in the third day he will raise us up, and we shall live in his sight.  
-> <sup>3</sup> Then shall we know, *if* we follow on to know the LORD: his going forth is prepared as the morning; and he shall come unto us as the rain, as the latter *and* former rain unto the earth.  
+> **¹** Come, and let us return unto the LORD: for he hath torn, and he will heal us; he hath smitten, and he will bind us up.  
+> **²** After two days will he revive us: in the third day he will raise us up, and we shall live in his sight.  
+> **³** Then shall we know, *if* we follow on to know the LORD: his going forth is prepared as the morning; and he shall come unto us as the rain, as the latter *and* former rain unto the earth.  
 
 These may be taken either as the words of the prophet to the people, calling them to repentance, or as the words of the people to one another, exciting and encouraging one another to *seek the Lord,* and to humble themselves before him, in hopes of finding mercy with him. God had said, *In their affliction they will seek me;* now the prophet, and the good people his friends, would strike while the iron was hot, and set in with the convictions their neighbours seemed to be under. Note, Those who are disposed to turn to God themselves should do all they can to excite, and engage, and encourage others to return to him. Observe,
 
@@ -30,14 +30,14 @@ II\. What inducements and encouragements to do this they fasten upon, to stir up
 
 ## Promises and Expostulations; The Crimes of the People. (b. c. 758.)
 
-> <sup>4</sup> O Ephraim, what shall I do unto thee? O Judah, what shall I do unto thee? for your goodness *is* as a morning cloud, and as the early dew it goeth away.  
-> <sup>5</sup> Therefore have I hewed *them* by the prophets; I have slain them by the words of my mouth: and thy judgments *are as* the light *that* goeth forth.  
-> <sup>6</sup> For I desired mercy, and not sacrifice; and the knowledge of God more than burnt offerings.  
-> <sup>7</sup> But they like men have transgressed the covenant: there have they dealt treacherously against me.  
-> <sup>8</sup> Gilead *is* a city of them that work iniquity, *and is* polluted with blood.  
-> <sup>9</sup> And as troops of robbers wait for a man, *so* the company of priests murder in the way by consent: for they commit lewdness.  
-> <sup>10</sup> I have seen a horrible thing in the house of Israel: there *is* the whoredom of Ephraim, Israel is defiled.  
-> <sup>11</sup> Also, O Judah, he hath set a harvest for thee, when I returned the captivity of my people.  
+> **⁴** O Ephraim, what shall I do unto thee? O Judah, what shall I do unto thee? for your goodness *is* as a morning cloud, and as the early dew it goeth away.  
+> **⁵** Therefore have I hewed *them* by the prophets; I have slain them by the words of my mouth: and thy judgments *are as* the light *that* goeth forth.  
+> **⁶** For I desired mercy, and not sacrifice; and the knowledge of God more than burnt offerings.  
+> **⁷** But they like men have transgressed the covenant: there have they dealt treacherously against me.  
+> **⁸** Gilead *is* a city of them that work iniquity, *and is* polluted with blood.  
+> **⁹** And as troops of robbers wait for a man, *so* the company of priests murder in the way by consent: for they commit lewdness.  
+> **¹⁰** I have seen a horrible thing in the house of Israel: there *is* the whoredom of Ephraim, Israel is defiled.  
+> **¹¹** Also, O Judah, he hath set a harvest for thee, when I returned the captivity of my people.  
 
 Two things, two evil things, both Judah and Ephraim are here charged with, and justly accused of:—
 

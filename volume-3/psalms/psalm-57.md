@@ -10,12 +10,12 @@ This psalm is very much like that which goes next before it; it was penned upon 
 
 To the chief musician, Al-taschith, Michtam of David, when he fled from Saul in the cave.
 
-> <sup>1</sup> Be merciful unto me, O God, be merciful unto me: for my soul trusteth in thee: yea, in the shadow of thy wings will I make my refuge, until *these* calamities be overpast.  
-> <sup>2</sup> I will cry unto God most high; unto God that performeth *all things* for me.  
-> <sup>3</sup> He shall send from heaven, and save me *from* the reproach of him that would swallow me up. Selah. God shall send forth his mercy and his truth.  
-> <sup>4</sup> My soul *is* among lions: *and* I lie *even among* them that are set on fire, *even* the sons of men, whose teeth *are* spears and arrows, and their tongue a sharp sword.  
-> <sup>5</sup> Be thou exalted, O God, above the heavens; *let* thy glory *be* above all the earth.  
-> <sup>6</sup> They have prepared a net for my steps; my soul is bowed down: they have digged a pit before me, into the midst whereof they are fallen *themselves.* Selah.  
+> **¹** Be merciful unto me, O God, be merciful unto me: for my soul trusteth in thee: yea, in the shadow of thy wings will I make my refuge, until *these* calamities be overpast.  
+> **²** I will cry unto God most high; unto God that performeth *all things* for me.  
+> **³** He shall send from heaven, and save me *from* the reproach of him that would swallow me up. Selah. God shall send forth his mercy and his truth.  
+> **⁴** My soul *is* among lions: *and* I lie *even among* them that are set on fire, *even* the sons of men, whose teeth *are* spears and arrows, and their tongue a sharp sword.  
+> **⁵** Be thou exalted, O God, above the heavens; *let* thy glory *be* above all the earth.  
+> **⁶** They have prepared a net for my steps; my soul is bowed down: they have digged a pit before me, into the midst whereof they are fallen *themselves.* Selah.  
 
 The title of this psalm has one word new in it, *Al-taschith—Destroy not.* Some make it to be only some known tune to which this psalm was set; others apply it to the occasion and matter of the psalm. *Destroy not;* that is, David would not let Saul be destroyed, when now in the cave there was a fair opportunity of killing him, and his servants would fain have done so. No, says David, *destroy him not,* 1Sa 24:4,6. Or, rather, God would not let David be destroyed by Saul; he suffered him to persecute David, but still under this limitation, *Destroy him hot;* as he permitted Satan to afflict Job, *Only save his life.* David must not be destroyed, for *a blessing is in him* (Isa 65:8), even Christ, the best of blessings. When David was in the cave, in imminent peril, he here tells us what were the workings of his heart towards God; and happy are those that have such good thoughts as these in their minds when they are in danger!
 
@@ -33,11 +33,11 @@ III\. He prays to God to glorify himself and his own great name (Ps 57:5): "What
 
 ## Prayer Turned to Praise.
 
-> <sup>7</sup> My heart is fixed, O God, my heart is fixed: I will sing and give praise.  
-> <sup>8</sup> Awake up, my glory; awake, psaltery and harp: I *myself* will awake early.  
-> <sup>9</sup> I will praise thee, O Lord, among the people: I will sing unto thee among the nations.  
-> <sup>10</sup> For thy mercy *is* great unto the heavens, and thy truth unto the clouds.  
-> <sup>11</sup> Be thou exalted, O God, above the heavens: *let* thy glory *be* above all the earth.  
+> **⁷** My heart is fixed, O God, my heart is fixed: I will sing and give praise.  
+> **⁸** Awake up, my glory; awake, psaltery and harp: I *myself* will awake early.  
+> **⁹** I will praise thee, O Lord, among the people: I will sing unto thee among the nations.  
+> **¹⁰** For thy mercy *is* great unto the heavens, and thy truth unto the clouds.  
+> **¹¹** Be thou exalted, O God, above the heavens: *let* thy glory *be* above all the earth.  
 
 How strangely is the tune altered here! David's prayers and complaints, by the lively actings of faith, are here, all of a sudden, turned into praises and thanksgivings; his sackcloth is loosed, he is girded with gladness, and his hallelujahs are as fervent as his hosannas. This should make us in love with prayer, that, sooner or later, it will be swallowed up in praise. Observe,
 

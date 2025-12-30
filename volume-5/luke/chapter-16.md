@@ -8,24 +8,24 @@ The scope of Christ's discourse in this chapter is to awaken and quicken us all 
 
 ## The Unjust Steward.
 
-> <sup>1</sup> And he said also unto his disciples, There was a certain rich man, which had a steward; and the same was accused unto him that he had wasted his goods.  
-> <sup>2</sup> And he called him, and said unto him, How is it that I hear this of thee? give an account of thy stewardship; for thou mayest be no longer steward.  
-> <sup>3</sup> Then the steward said within himself, What shall I do? for my lord taketh away from me the stewardship: I cannot dig; to beg I am ashamed.  
-> <sup>4</sup> I am resolved what to do, that, when I am put out of the stewardship, they may receive me into their houses.  
-> <sup>5</sup> So he called every one of his lord's debtors *unto him,* and said unto the first, How much owest thou unto my lord?  
-> <sup>6</sup> And he said, A hundred measures of oil. And he said unto him, Take thy bill, and sit down quickly, and write fifty.  
-> <sup>7</sup> Then said he to another, And how much owest thou? And he said, A hundred measures of wheat. And he said unto him, Take thy bill, and write fourscore.  
-> <sup>8</sup> And the lord commended the unjust steward, because he had done wisely: for the children of this world are in their generation wiser than the children of light.  
-> <sup>9</sup> And I say unto you, Make to yourselves friends of the mammon of unrighteousness; that, when ye fail, they may receive you into everlasting habitations.  
-> <sup>10</sup> He that is faithful in that which is least is faithful also in much: and he that is unjust in the least is unjust also in much.  
-> <sup>11</sup> If therefore ye have not been faithful in the unrighteous mammon, who will commit to your trust the true *riches?*  
-> <sup>12</sup> And if ye have not been faithful in that which is another man's, who shall give you that which is your own?  
-> <sup>13</sup> No servant can serve two masters: for either he will hate the one, and love the other; or else he will hold to the one, and despise the other. Ye cannot serve God and mammon.  
-> <sup>14</sup> And the Pharisees also, who were covetous, heard all these things: and they derided him.  
-> <sup>15</sup> And he said unto them, Ye are they which justify yourselves before men; but God knoweth your hearts: for that which is highly esteemed among men is abomination in the sight of God.  
-> <sup>16</sup> The law and the prophets *were* until John: since that time the kingdom of God is preached, and every man presseth into it.  
-> <sup>17</sup> And it is easier for heaven and earth to pass, than one tittle of the law to fail.  
-> <sup>18</sup> Whosoever putteth away his wife, and marrieth another, committeth adultery: and whosoever marrieth her that is put away from *her* husband committeth adultery.  
+> **¹** And he said also unto his disciples, There was a certain rich man, which had a steward; and the same was accused unto him that he had wasted his goods.  
+> **²** And he called him, and said unto him, How is it that I hear this of thee? give an account of thy stewardship; for thou mayest be no longer steward.  
+> **³** Then the steward said within himself, What shall I do? for my lord taketh away from me the stewardship: I cannot dig; to beg I am ashamed.  
+> **⁴** I am resolved what to do, that, when I am put out of the stewardship, they may receive me into their houses.  
+> **⁵** So he called every one of his lord's debtors *unto him,* and said unto the first, How much owest thou unto my lord?  
+> **⁶** And he said, A hundred measures of oil. And he said unto him, Take thy bill, and sit down quickly, and write fifty.  
+> **⁷** Then said he to another, And how much owest thou? And he said, A hundred measures of wheat. And he said unto him, Take thy bill, and write fourscore.  
+> **⁸** And the lord commended the unjust steward, because he had done wisely: for the children of this world are in their generation wiser than the children of light.  
+> **⁹** And I say unto you, Make to yourselves friends of the mammon of unrighteousness; that, when ye fail, they may receive you into everlasting habitations.  
+> **¹⁰** He that is faithful in that which is least is faithful also in much: and he that is unjust in the least is unjust also in much.  
+> **¹¹** If therefore ye have not been faithful in the unrighteous mammon, who will commit to your trust the true *riches?*  
+> **¹²** And if ye have not been faithful in that which is another man's, who shall give you that which is your own?  
+> **¹³** No servant can serve two masters: for either he will hate the one, and love the other; or else he will hold to the one, and despise the other. Ye cannot serve God and mammon.  
+> **¹⁴** And the Pharisees also, who were covetous, heard all these things: and they derided him.  
+> **¹⁵** And he said unto them, Ye are they which justify yourselves before men; but God knoweth your hearts: for that which is highly esteemed among men is abomination in the sight of God.  
+> **¹⁶** The law and the prophets *were* until John: since that time the kingdom of God is preached, and every man presseth into it.  
+> **¹⁷** And it is easier for heaven and earth to pass, than one tittle of the law to fail.  
+> **¹⁸** Whosoever putteth away his wife, and marrieth another, committeth adultery: and whosoever marrieth her that is put away from *her* husband committeth adultery.  
 
 We mistake if we imagine that the design of Christ's doctrine and holy religion was either to amuse us with notions of divine mysteries or to entertain us with notions of divine mercies. No, the divine revelation of both these in the gospel is intended to engage and quicken us to the practice of Christian duties, and, as much as any one thing, to the duty of beneficence and doing good to those who stand in need of any thing that either we have or can do for them. This our Saviour is here pressing us to, by reminding us that we are but *stewards of the manifold grace of God;* and since we have in divers instances been unfaithful, and have forfeited the favour of our Lord, it is our wisdom to think how we may, some other way, make what we have in the world turn to a good account. Parables must not be forced beyond their primary intention, and therefore we must not hence infer that any one can befriend us if we lie under the displeasure of our Lord, but that, in the general, we must so lay out what we have in works of piety and charity as that we may meet it again with comfort on the other side death and the grave. If we would act wisely, we must be diligent and industrious to employ our riches in the acts of piety and charity, in order to promote our future and eternal welfare, as worldly men are in laying them out to the greatest temporal profit, in making to themselves friends with them, and securing other secular interests. So *Dr. Clarke.* Now let us consider,
 
@@ -67,19 +67,19 @@ II\. The application of this parable, and the inferences drawn from it (Lu 16:9)
 
 ## The Rich Man and Lazarus.
 
-> <sup>19</sup> There was a certain rich man, which was clothed in purple and fine linen, and fared sumptuously every day:  
-> <sup>20</sup> And there was a certain beggar named Lazarus, which was laid at his gate, full of sores,  
-> <sup>21</sup> And desiring to be fed with the crumbs which fell from the rich man's table: moreover the dogs came and licked his sores.  
-> <sup>22</sup> And it came to pass, that the beggar died, and was carried by the angels into Abraham's bosom: the rich man also died, and was buried;  
-> <sup>23</sup> And in hell he lift up his eyes, being in torments, and seeth Abraham afar off, and Lazarus in his bosom.  
-> <sup>24</sup> And he cried and said, Father Abraham, have mercy on me, and send Lazarus, that he may dip the tip of his finger in water, and cool my tongue; for I am tormented in this flame.  
-> <sup>25</sup> But Abraham said, Son, remember that thou in thy lifetime receivedst thy good things, and likewise Lazarus evil things: but now he is comforted, and thou art tormented.  
-> <sup>26</sup> And beside all this, between us and you there is a great gulf fixed: so that they which would pass from hence to you cannot; neither can they pass to us, that *would come* from thence.  
-> <sup>27</sup> Then he said, I pray thee therefore, father, that thou wouldest send him to my father's house:  
-> <sup>28</sup> For I have five brethren; that he may testify unto them, lest they also come into this place of torment.  
-> <sup>29</sup> Abraham saith unto him, They have Moses and the prophets; let them hear them.  
-> <sup>30</sup> And he said, Nay, father Abraham: but if one went unto them from the dead, they will repent.  
-> <sup>31</sup> And he said unto him, If they hear not Moses and the prophets, neither will they be persuaded, though one rose from the dead.  
+> **¹⁹** There was a certain rich man, which was clothed in purple and fine linen, and fared sumptuously every day:  
+> **²⁰** And there was a certain beggar named Lazarus, which was laid at his gate, full of sores,  
+> **²¹** And desiring to be fed with the crumbs which fell from the rich man's table: moreover the dogs came and licked his sores.  
+> **²²** And it came to pass, that the beggar died, and was carried by the angels into Abraham's bosom: the rich man also died, and was buried;  
+> **²³** And in hell he lift up his eyes, being in torments, and seeth Abraham afar off, and Lazarus in his bosom.  
+> **²⁴** And he cried and said, Father Abraham, have mercy on me, and send Lazarus, that he may dip the tip of his finger in water, and cool my tongue; for I am tormented in this flame.  
+> **²⁵** But Abraham said, Son, remember that thou in thy lifetime receivedst thy good things, and likewise Lazarus evil things: but now he is comforted, and thou art tormented.  
+> **²⁶** And beside all this, between us and you there is a great gulf fixed: so that they which would pass from hence to you cannot; neither can they pass to us, that *would come* from thence.  
+> **²⁷** Then he said, I pray thee therefore, father, that thou wouldest send him to my father's house:  
+> **²⁸** For I have five brethren; that he may testify unto them, lest they also come into this place of torment.  
+> **²⁹** Abraham saith unto him, They have Moses and the prophets; let them hear them.  
+> **³⁰** And he said, Nay, father Abraham: but if one went unto them from the dead, they will repent.  
+> **³¹** And he said unto him, If they hear not Moses and the prophets, neither will they be persuaded, though one rose from the dead.  
 
 As the parable of the prodigal son set before us the grace of the gospel, which is encouraging to us all, so this sets before us the *wrath to come,* and is designed for our awakening; and very fast asleep those are in sin that will not be awakened by it. The Pharisees made a jest of Christ's sermon against worldliness; now this parable was intended to make those mockers serious. The tendency of the gospel of Christ is both to reconcile us to poverty and affliction and to arm us against temptations to worldliness and sensuality. Now this parable, by drawing the curtain, and letting us see what will be the end of both in the other world, goes very far in prosecuting those two great intentions. This parable is not like Christ's other parables, in which spiritual things are represented by similitudes borrowed from worldly things, as those of the sower and the seed (except that of the sheep and goats), the prodigal son, and indeed all the rest but this. But here the *spiritual things themselves* are represented in a narrative or description of the different state of good and bad in this world and the other. Yet we need not call it a history of a particular occurrence, but it is *matter of fact* that is true every day, that poor godly people, whom men neglect and trample upon, die away out of their miseries, and go to heavenly bliss and joy, which is made the more pleasant to them by their preceding sorrows; and that rich epicures, who live in luxury, and are unmerciful to the poor, die, and go into a state of insupportable torment, which is the more grievous and terrible to them because of the sensual lives they lived: and that there is no gaining any relief from their torments. Is this a parable? What similitude is there in this? The discourse indeed between Abraham and the rich man is only an illustration of the description, to make it the more affecting, like that between God and Satan in the story of Job. Our Saviour came to bring us acquainted with another world, and to show us the reference which *this* world has to *that;* and here is does it. In this description (for so I shall choose to call it) we may observe,
 

@@ -8,10 +8,10 @@ We have here a further account of the good reign of Jehoshaphat, I. His return i
 
 ## Jehoshaphat's Piety. (b. c. 897.)
 
-> <sup>1</sup> And Jehoshaphat the king of Judah returned to his house in peace to Jerusalem.  
-> <sup>2</sup> And Jehu the son of Hanani the seer went out to meet him, and said to king Jehoshaphat, Shouldest thou help the ungodly, and love them that hate the LORD? therefore *is* wrath upon thee from before the LORD.  
-> <sup>3</sup> Nevertheless there are good things found in thee, in that thou hast taken away the groves out of the land, and hast prepared thine heart to seek God.  
-> <sup>4</sup> And Jehoshaphat dwelt at Jerusalem: and he went out again through the people from Beer-sheba to mount Ephraim, and brought them back unto the LORD God of their fathers.  
+> **¹** And Jehoshaphat the king of Judah returned to his house in peace to Jerusalem.  
+> **²** And Jehu the son of Hanani the seer went out to meet him, and said to king Jehoshaphat, Shouldest thou help the ungodly, and love them that hate the LORD? therefore *is* wrath upon thee from before the LORD.  
+> **³** Nevertheless there are good things found in thee, in that thou hast taken away the groves out of the land, and hast prepared thine heart to seek God.  
+> **⁴** And Jehoshaphat dwelt at Jerusalem: and he went out again through the people from Beer-sheba to mount Ephraim, and brought them back unto the LORD God of their fathers.  
 
 Here is, I. The great favour God showed to Jehoshaphat,
 
@@ -21,13 +21,13 @@ Here is, I. The great favour God showed to Jehoshaphat,
 
 II\. The return of duty which Jehoshaphat made to God for this favour. He took the reproof well, was not wroth with the seer as his father was, but submitted. *Let the righteous smite me, it shall be a kindness.* See what effect the reproof had upon him. 1. He *dwelt at Jerusalem* (2Ch 19:4), minded his own business at home, and would not expose himself by paying any more such visits to Ahab. *Rebuke a wise man, and he will be yet wiser,* and will take warning, Pr 9:8,9. 2. To atone (as I may say) for the visit he had paid to Ahab, he made a pious profitable visitation of his own kingdom: He *went out through the people* in his own person from Beersheba in the south to Mount Ephraim in the north, and *brought them back to the Lord God of their fathers,* that is, did all he could towards recovering them. (1.) By what the prophet said he perceived that his former attempts for reformation were well pleasing to God, and therefore he revived them, and did what was then left undone. It is good when commendations thus quicken us to our duty, and when the more we are praised for doing well the more vigorous we are in well-doing. (2.) Perhaps he found that his late affinity with the idolatrous house of Ahab and kingdom of Israel had had a bad influence upon his own kingdom. Many, we may suppose, were emboldened to revolt to idolatry when they saw even their reforming king so intimate with idolaters; and therefore he thought himself doubly obliged to do all he could to restore them. If we truly repent of our sin, we shall do our utmost to repair the damage we have any way done by it to religion or the souls of others. We are particularly concerned to recover those that have fallen into sin, or been hardened in it, by our example.
 
-> <sup>5</sup> And he set judges in the land throughout all the fenced cities of Judah, city by city,  
-> <sup>6</sup> And said to the judges, Take heed what ye do: for ye judge not for man, but for the LORD, who *is* with you in the judgment.  
-> <sup>7</sup> Wherefore now let the fear of the LORD be upon you; take heed and do *it:* for *there is* no iniquity with the LORD our God, nor respect of persons, nor taking of gifts.  
-> <sup>8</sup> Moreover in Jerusalem did Jehoshaphat set of the Levites, and *of* the priests, and of the chief of the fathers of Israel, for the judgment of the LORD, and for controversies, when they returned to Jerusalem.  
-> <sup>9</sup> And he charged them, saying, Thus shall ye do in the fear of the LORD, faithfully, and with a perfect heart.  
-> <sup>10</sup> And what cause soever shall come to you of your brethren that dwell in their cities, between blood and blood, between law and commandment, statutes and judgments, ye shall even warn them that they trespass not against the LORD, and *so* wrath come upon you, and upon your brethren: this do, and ye shall not trespass.  
-> <sup>11</sup> And, behold, Amariah the chief priest *is* over you in all matters of the LORD; and Zebadiah the son of Ishmael, the ruler of the house of Judah, for all the king's matters: also the Levites *shall be* officers before you. Deal courageously, and the LORD shall be with the good.  
+> **⁵** And he set judges in the land throughout all the fenced cities of Judah, city by city,  
+> **⁶** And said to the judges, Take heed what ye do: for ye judge not for man, but for the LORD, who *is* with you in the judgment.  
+> **⁷** Wherefore now let the fear of the LORD be upon you; take heed and do *it:* for *there is* no iniquity with the LORD our God, nor respect of persons, nor taking of gifts.  
+> **⁸** Moreover in Jerusalem did Jehoshaphat set of the Levites, and *of* the priests, and of the chief of the fathers of Israel, for the judgment of the LORD, and for controversies, when they returned to Jerusalem.  
+> **⁹** And he charged them, saying, Thus shall ye do in the fear of the LORD, faithfully, and with a perfect heart.  
+> **¹⁰** And what cause soever shall come to you of your brethren that dwell in their cities, between blood and blood, between law and commandment, statutes and judgments, ye shall even warn them that they trespass not against the LORD, and *so* wrath come upon you, and upon your brethren: this do, and ye shall not trespass.  
+> **¹¹** And, behold, Amariah the chief priest *is* over you in all matters of the LORD; and Zebadiah the son of Ishmael, the ruler of the house of Judah, for all the king's matters: also the Levites *shall be* officers before you. Deal courageously, and the LORD shall be with the good.  
 
 Jehoshaphat, having done what he could to make his people good, is here providing, if possible, to keep them so by the influence of a settled magistracy. He had sent preachers among them, to instruct them (2Ch 17:7-9), and that provision did well; but now he saw it further requisite to send judges among them, to see the laws put in execution, and to be a terror to evil-doers. It is probable that there were judges up and down the country before, but either they neglected their business or the people slighted them, so that the end of the institution was not answered; and therefore it was necessary it should be new-modelled, new men employed, and a new charge given them. That is it which is here done.
 

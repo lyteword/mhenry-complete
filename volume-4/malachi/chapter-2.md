@@ -8,15 +8,15 @@ There are two great ordinances which divine wisdom has instituted, the wretched 
 
 ## The Office of the Priesthood; Charge against the Priests; The Priests Censured and Threatened. (b. c. 400.)
 
-> <sup>1</sup> And now, O ye priests, this commandment *is* for you.  
-> <sup>2</sup> If ye will not hear, and if ye will not lay *it* to heart, to give glory unto my name, saith the LORD of hosts, I will even send a curse upon you, and I will curse your blessings: yea, I have cursed them already, because ye do not lay *it* to heart.  
-> <sup>3</sup> Behold, I will corrupt your seed, and spread dung upon your faces, *even* the dung of your solemn feasts; and *one* shall take you away with it.  
-> <sup>4</sup> And ye shall know that I have sent this commandment unto you, that my covenant might be with Levi, saith the LORD of hosts.  
-> <sup>5</sup> My covenant was with him of life and peace; and I gave them to him *for* the fear wherewith he feared me, and was afraid before my name.  
-> <sup>6</sup> The law of truth was in his mouth, and iniquity was not found in his lips: he walked with me in peace and equity, and did turn many away from iniquity.  
-> <sup>7</sup> For the priest's lips should keep knowledge, and they should seek the law at his mouth: for he *is* the messenger of the LORD of hosts.  
-> <sup>8</sup> But ye are departed out of the way; ye have caused many to stumble at the law; ye have corrupted the covenant of Levi, saith the LORD of hosts.  
-> <sup>9</sup> Therefore have I also made you contemptible and base before all the people, according as ye have not kept my ways, but have been partial in the law.  
+> **¹** And now, O ye priests, this commandment *is* for you.  
+> **²** If ye will not hear, and if ye will not lay *it* to heart, to give glory unto my name, saith the LORD of hosts, I will even send a curse upon you, and I will curse your blessings: yea, I have cursed them already, because ye do not lay *it* to heart.  
+> **³** Behold, I will corrupt your seed, and spread dung upon your faces, *even* the dung of your solemn feasts; and *one* shall take you away with it.  
+> **⁴** And ye shall know that I have sent this commandment unto you, that my covenant might be with Levi, saith the LORD of hosts.  
+> **⁵** My covenant was with him of life and peace; and I gave them to him *for* the fear wherewith he feared me, and was afraid before my name.  
+> **⁶** The law of truth was in his mouth, and iniquity was not found in his lips: he walked with me in peace and equity, and did turn many away from iniquity.  
+> **⁷** For the priest's lips should keep knowledge, and they should seek the law at his mouth: for he *is* the messenger of the LORD of hosts.  
+> **⁸** But ye are departed out of the way; ye have caused many to stumble at the law; ye have corrupted the covenant of Levi, saith the LORD of hosts.  
+> **⁹** Therefore have I also made you contemptible and base before all the people, according as ye have not kept my ways, but have been partial in the law.  
 
 What was said in the foregoing chapter was directed to the priests (Mal 1:6): *Thus saith the Lord of hosts to you, O priests! that despise my name.* But the crimes there charged upon them they were guilty of as sacrificers, and for those they might think it some excuse that they offered what the people brought, and therefore that, if they were not so good as they should be, it was not their fault, but the people's; and therefore here the corruptions there complained of are traced to the source and spring of them—the faults the priests were guilty of as teachers of the people, as expositors of the law and the lively oracles; and this is a part of their office which still remains in the hands of gospel-ministers (who are appointed to be pastors and teachers, like the priests under the law, though not sacrificers, like them), and therefore by them the admonition here is to be particularly regarded. If the priests had given the people better instructions, the people would have brought better offerings; and therefore the blame returns upon the priests: "*And now, O you priests! this commandment is* purely *for you* (Mal 2:1), who should have taught the people the good knowledge of the Lord, and how to worship him aright." Note, The governors of the churches are under God's government, and to him they are accountable. Even for those who command God has commandments. Nay (Mal 2:4), *you shall know that I have sent these commandments for you.* They should know it either, 1. By the power of the Spirit working with the word for their conviction and reformation: "You shall know its original by its efficacy, whence it comes by what it does." When the word of God to us brings about, and carries on, the work of God in us, then we cannot but know that he sent it to us, that it is not the word of *Malachi—God's messenger,* but it is indeed the word of God, and is sent, not only in general to all, but in particular to us. Or, 2. By the accomplishment of the threatenings denounced against them: "*You shall know,* to your cost, *that I have sent this commandment to you,* and it shall not return void."
 
@@ -34,14 +34,14 @@ V\. Here is a sentence of wrath passed upon them; and this the prophet begins wi
 
 ## Unlawful Marriages; Breach of the Marriage-covenant; Charge of Corrupt Principles. (b. c. 400.)
 
-> <sup>10</sup> Have we not all one father? hath not one God created us? why do we deal treacherously every man against his brother, by profaning the covenant of our fathers?  
-> <sup>11</sup> Judah hath dealt treacherously, and an abomination is committed in Israel and in Jerusalem; for Judah hath profaned the holiness of the LORD which he loved, and hath married the daughter of a strange god.  
-> <sup>12</sup> The LORD will cut off the man that doeth this, the master and the scholar, out of the tabernacles of Jacob, and him that offereth an offering unto the LORD of hosts.  
-> <sup>13</sup> And this have ye done again, covering the altar of the LORD with tears, with weeping, and with crying out, insomuch that he regardeth not the offering any more, or receiveth *it* with good will at your hand.  
-> <sup>14</sup> Yet ye say, Wherefore? Because the LORD hath been witness between thee and the wife of thy youth, against whom thou hast dealt treacherously: yet *is* she thy companion, and the wife of thy covenant.  
-> <sup>15</sup> And did not he make one? Yet had he the residue of the spirit. And wherefore one? That he might seek a godly seed. Therefore take heed to your spirit, and let none deal treacherously against the wife of his youth.  
-> <sup>16</sup> For the LORD, the God of Israel, saith that he hateth putting away: for *one* covereth violence with his garment, saith the LORD of hosts: therefore take heed to your spirit, that ye deal not treacherously.  
-> <sup>17</sup> Ye have wearied the LORD with your words. Yet ye say, Wherein have we wearied *him?* When ye say, Every one that doeth evil *is* good in the sight of the LORD, and he delighteth in them; or, Where *is* the God of judgment?  
+> **¹⁰** Have we not all one father? hath not one God created us? why do we deal treacherously every man against his brother, by profaning the covenant of our fathers?  
+> **¹¹** Judah hath dealt treacherously, and an abomination is committed in Israel and in Jerusalem; for Judah hath profaned the holiness of the LORD which he loved, and hath married the daughter of a strange god.  
+> **¹²** The LORD will cut off the man that doeth this, the master and the scholar, out of the tabernacles of Jacob, and him that offereth an offering unto the LORD of hosts.  
+> **¹³** And this have ye done again, covering the altar of the LORD with tears, with weeping, and with crying out, insomuch that he regardeth not the offering any more, or receiveth *it* with good will at your hand.  
+> **¹⁴** Yet ye say, Wherefore? Because the LORD hath been witness between thee and the wife of thy youth, against whom thou hast dealt treacherously: yet *is* she thy companion, and the wife of thy covenant.  
+> **¹⁵** And did not he make one? Yet had he the residue of the spirit. And wherefore one? That he might seek a godly seed. Therefore take heed to your spirit, and let none deal treacherously against the wife of his youth.  
+> **¹⁶** For the LORD, the God of Israel, saith that he hateth putting away: for *one* covereth violence with his garment, saith the LORD of hosts: therefore take heed to your spirit, that ye deal not treacherously.  
+> **¹⁷** Ye have wearied the LORD with your words. Yet ye say, Wherein have we wearied *him?* When ye say, Every one that doeth evil *is* good in the sight of the LORD, and he delighteth in them; or, Where *is* the God of judgment?  
 
 Corrupt practices are the genuine fruit and product of corrupt principles; and the badness of men's hearts and lives is owing to some loose atheistical notions which they have got and which they govern themselves by. Now, in these verses, we have an instance of this; we here find men dealing falsely with one another, and it is because they think falsely of their God. Observe,
 

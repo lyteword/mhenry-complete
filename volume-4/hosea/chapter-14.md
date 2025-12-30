@@ -8,9 +8,9 @@ The strain of this chapter differs from that of the foregoing chapters. Those we
 
 ## Penitents Encouraged. (b. c. 720.)
 
-> <sup>1</sup> O Israel, return unto the LORD thy God; for thou hast fallen by thine iniquity.  
-> <sup>2</sup> Take with you words, and turn to the LORD: say unto him, Take away all iniquity, and receive *us* graciously: so will we render the calves of our lips.  
-> <sup>3</sup> Asshur shall not save us; we will not ride upon horses: neither will we say any more to the work of our hands, *Ye are* our gods: for in thee the fatherless findeth mercy.  
+> **¹** O Israel, return unto the LORD thy God; for thou hast fallen by thine iniquity.  
+> **²** Take with you words, and turn to the LORD: say unto him, Take away all iniquity, and receive *us* graciously: so will we render the calves of our lips.  
+> **³** Asshur shall not save us; we will not ride upon horses: neither will we say any more to the work of our hands, *Ye are* our gods: for in thee the fatherless findeth mercy.  
 
 Here we have,
 
@@ -28,10 +28,10 @@ III\. For their assistance herein, and encouragement, God is pleased to put word
 
 ## Assurance of Mercy; Repentance of Ephraim. (b. c. 720.)
 
-> <sup>4</sup> I will heal their backsliding, I will love them freely: for mine anger is turned away from him.  
-> <sup>5</sup> I will be as the dew unto Israel: he shall grow as the lily, and cast forth his roots as Lebanon.  
-> <sup>6</sup> His branches shall spread, and his beauty shall be as the olive tree, and his smell as Lebanon.  
-> <sup>7</sup> They that dwell under his shadow shall return; they shall revive *as* the corn, and grow as the vine: the scent thereof *shall be* as the wine of Lebanon.  
+> **⁴** I will heal their backsliding, I will love them freely: for mine anger is turned away from him.  
+> **⁵** I will be as the dew unto Israel: he shall grow as the lily, and cast forth his roots as Lebanon.  
+> **⁶** His branches shall spread, and his beauty shall be as the olive tree, and his smell as Lebanon.  
+> **⁷** They that dwell under his shadow shall return; they shall revive *as* the corn, and grow as the vine: the scent thereof *shall be* as the wine of Lebanon.  
 
 We have here an answer of peace to the prayers of returning Israel. They seek God's face, and they shall not *seek in vain.* God will be sure to meet those in a way of mercy who return to him in a way of duty. If we speak to God in good prayers, God will speak to us in good promises, as he *answered the angel with good words and comfortable words,* Zec 1:13. If we take with us the foregoing words in our coming to God, we may take home with us these following words for our faith to feast upon; and see how these answer those.
 
@@ -55,8 +55,8 @@ IV\. Do they pray that God will *give good,* will make them good? In answer to t
 
 ## Assurances of Mercy. (b. c. 720.)
 
-> <sup>8</sup> Ephraim *shall say,* What have I to do any more with idols? I have heard *him,* and observed him: I *am* like a green fir tree. From me is thy fruit found.  
-> <sup>9</sup> Who *is* wise, and he shall understand these *things?* prudent, and he shall know them? for the ways of the LORD *are* right, and the just shall walk in them: but the transgressors shall fall therein.  
+> **⁸** Ephraim *shall say,* What have I to do any more with idols? I have heard *him,* and observed him: I *am* like a green fir tree. From me is thy fruit found.  
+> **⁹** Who *is* wise, and he shall understand these *things?* prudent, and he shall know them? for the ways of the LORD *are* right, and the just shall walk in them: but the transgressors shall fall therein.  
 
 Let us now hear the conclusion of the whole matter.
 

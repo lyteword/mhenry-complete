@@ -8,10 +8,10 @@ In this chapter we have the first-fruits of Saul's government, in the glorious r
 
 ## Extremity of Jabesh-Gilead. (b. c. 1069.)
 
-> <sup>1</sup> Then Nahash the Ammonite came up, and encamped against Jabesh-gilead: and all the men of Jabesh said unto Nahash, Make a covenant with us, and we will serve thee.  
-> <sup>2</sup> And Nahash the Ammonite answered them, On this *condition* will I make *a covenant* with you, that I may thrust out all your right eyes, and lay it *for* a reproach upon all Israel.  
-> <sup>3</sup> And the elders of Jabesh said unto him, Give us seven days' respite, that we may send messengers unto all the coasts of Israel: and then, if *there be* no man to save us, we will come out to thee.  
-> <sup>4</sup> Then came the messengers to Gibeah of Saul, and told the tidings in the ears of the people: and all the people lifted up their voices, and wept.  
+> **¹** Then Nahash the Ammonite came up, and encamped against Jabesh-gilead: and all the men of Jabesh said unto Nahash, Make a covenant with us, and we will serve thee.  
+> **²** And Nahash the Ammonite answered them, On this *condition* will I make *a covenant* with you, that I may thrust out all your right eyes, and lay it *for* a reproach upon all Israel.  
+> **³** And the elders of Jabesh said unto him, Give us seven days' respite, that we may send messengers unto all the coasts of Israel: and then, if *there be* no man to save us, we will come out to thee.  
+> **⁴** Then came the messengers to Gibeah of Saul, and told the tidings in the ears of the people: and all the people lifted up their voices, and wept.  
 
 The Ammonites were bad neighbours to those tribes of Israel that lay next them, though descendants from just Lot, and, for that reason, dealt civilly with by Israel. See De 2:19. Jephthah, in his time, had humbled them, but now the sin of Israel had put them into a capacity to make head again, and avenge that quarrel. The city of Jabesh-Gilead had been, some ages ago, destroyed by Israel's sword of justice, for not appearing against the wickedness of Gibeah (Jdg 21:10); and now being replenished again, probably by the posterity of those that then escaped the sword, it is in danger of being destroyed by the Ammonites, as if some bad fate attended the place. Nahash, king of Ammon (1Ch 19:1) laid siege to it. Now here,
 
@@ -25,13 +25,13 @@ IV\. Notice is sent of this to Gibeah. They said they would send messengers *to 
 
 ## The Distress of Jabesh-Gilead; Saul Succours Jabesh-Gilead. (b. c. 1069.)
 
-> <sup>5</sup> And, behold, Saul came after the herd out of the field; and Saul said, What *aileth* the people that they weep? And they told him the tidings of the men of Jabesh.  
-> <sup>6</sup> And the Spirit of God came upon Saul when he heard those tidings, and his anger was kindled greatly.  
-> <sup>7</sup> And he took a yoke of oxen, and hewed them in pieces, and sent *them* throughout all the coasts of Israel by the hands of messengers, saying, Whosoever cometh not forth after Saul and after Samuel, so shall it be done unto his oxen. And the fear of the LORD fell on the people, and they came out with one consent.  
-> <sup>8</sup> And when he numbered them in Bezek, the children of Israel were three hundred thousand, and the men of Judah thirty thousand.  
-> <sup>9</sup> And they said unto the messengers that came, Thus shall ye say unto the men of Jabesh-gilead, To morrow, by *that time* the sun be hot, ye shall have help. And the messengers came and shewed *it* to the men of Jabesh; and they were glad.  
-> <sup>10</sup> Therefore the men of Jabesh said, To morrow we will come out unto you, and ye shall do with us all that seemeth good unto you.  
-> <sup>11</sup> And it was *so* on the morrow, that Saul put the people in three companies; and they came into the midst of the host in the morning watch, and slew the Ammonites until the heat of the day: and it came to pass, that they which remained were scattered, so that two of them were not left together.  
+> **⁵** And, behold, Saul came after the herd out of the field; and Saul said, What *aileth* the people that they weep? And they told him the tidings of the men of Jabesh.  
+> **⁶** And the Spirit of God came upon Saul when he heard those tidings, and his anger was kindled greatly.  
+> **⁷** And he took a yoke of oxen, and hewed them in pieces, and sent *them* throughout all the coasts of Israel by the hands of messengers, saying, Whosoever cometh not forth after Saul and after Samuel, so shall it be done unto his oxen. And the fear of the LORD fell on the people, and they came out with one consent.  
+> **⁸** And when he numbered them in Bezek, the children of Israel were three hundred thousand, and the men of Judah thirty thousand.  
+> **⁹** And they said unto the messengers that came, Thus shall ye say unto the men of Jabesh-gilead, To morrow, by *that time* the sun be hot, ye shall have help. And the messengers came and shewed *it* to the men of Jabesh; and they were glad.  
+> **¹⁰** Therefore the men of Jabesh said, To morrow we will come out unto you, and ye shall do with us all that seemeth good unto you.  
+> **¹¹** And it was *so* on the morrow, that Saul put the people in three companies; and they came into the midst of the host in the morning watch, and slew the Ammonites until the heat of the day: and it came to pass, that they which remained were scattered, so that two of them were not left together.  
 
 What is here related turns very much to the honour of Saul, and shows the happy fruits of that other spirit with which he was endued. Observe here,
 
@@ -53,10 +53,10 @@ VII\. His industry and close application to this business. If he had been bred u
 
 ## Sacrifices Offered to God. (b. c. 1069.)
 
-> <sup>12</sup> And the people said unto Samuel, Who *is* he that said, Shall Saul reign over us? bring the men, that we may put them to death.  
-> <sup>13</sup> And Saul said, There shall not a man be put to death this day: for to day the LORD hath wrought salvation in Israel.  
-> <sup>14</sup> Then said Samuel to the people, Come, and let us go to Gilgal, and renew the kingdom there.  
-> <sup>15</sup> And all the people went to Gilgal; and there they made Saul king before the LORD in Gilgal; and there they sacrificed sacrifices of peace offerings before the LORD; and there Saul and all the men of Israel rejoiced greatly.  
+> **¹²** And the people said unto Samuel, Who *is* he that said, Shall Saul reign over us? bring the men, that we may put them to death.  
+> **¹³** And Saul said, There shall not a man be put to death this day: for to day the LORD hath wrought salvation in Israel.  
+> **¹⁴** Then said Samuel to the people, Come, and let us go to Gilgal, and renew the kingdom there.  
+> **¹⁵** And all the people went to Gilgal; and there they made Saul king before the LORD in Gilgal; and there they sacrificed sacrifices of peace offerings before the LORD; and there Saul and all the men of Israel rejoiced greatly.  
 
 We have here the improvement of the glorious victory which Saul had obtained, not the improvement of it abroad, though we take it for granted that the men of Jabesh-Gilead, having so narrowly saved their right eyes, would with them now discern the opportunity they had of avenging themselves upon these cruel enemies and disabling them from ever straitening them in like manner again; now shall they be avenged on the Ammonites for their right eyes condemned, as Samson on the Philistines for his two eyes put out, Jdg 16:28. But the account here given is of the improvement of this victory at home.
 

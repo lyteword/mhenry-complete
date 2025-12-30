@@ -8,14 +8,14 @@ We have an account in this chapter of another interview between God and Abraham,
 
 ## Abraham's Interview with the Angels. (b. c. 1898.)
 
-> <sup>1</sup> And the LORD appeared unto him in the plains of Mamre: and he sat in the tent door in the heat of the day;  
-> <sup>2</sup> And he lift up his eyes and looked, and, lo, three men stood by him: and when he saw *them,* he ran to meet them from the tent-door, and bowed himself toward the ground,  
-> <sup>3</sup> And said, My Lord, if now I have found favour in thy sight, pass not away, I pray thee, from thy servant:  
-> <sup>4</sup> Let a little water, I pray you, be fetched, and wash your feet, and rest yourselves under the tree:  
-> <sup>5</sup> And I will fetch a morsel of bread, and comfort ye your hearts; after that ye shall pass on: for therefore are ye come to your servant. And they said, So do, as thou hast said.  
-> <sup>6</sup> And Abraham hastened into the tent unto Sarah, and said, Make ready quickly three measures of fine meal, knead *it,* and make cakes upon the hearth.  
-> <sup>7</sup> And Abraham ran unto the herd, and fetched a calf tender and good, and gave *it* unto a young man; and he hasted to dress it.  
-> <sup>8</sup> And he took butter, and milk, and the calf which he had dressed, and set *it* before them; and he stood by them under the tree, and they did eat.  
+> **¹** And the LORD appeared unto him in the plains of Mamre: and he sat in the tent door in the heat of the day;  
+> **²** And he lift up his eyes and looked, and, lo, three men stood by him: and when he saw *them,* he ran to meet them from the tent-door, and bowed himself toward the ground,  
+> **³** And said, My Lord, if now I have found favour in thy sight, pass not away, I pray thee, from thy servant:  
+> **⁴** Let a little water, I pray you, be fetched, and wash your feet, and rest yourselves under the tree:  
+> **⁵** And I will fetch a morsel of bread, and comfort ye your hearts; after that ye shall pass on: for therefore are ye come to your servant. And they said, So do, as thou hast said.  
+> **⁶** And Abraham hastened into the tent unto Sarah, and said, Make ready quickly three measures of fine meal, knead *it,* and make cakes upon the hearth.  
+> **⁷** And Abraham ran unto the herd, and fetched a calf tender and good, and gave *it* unto a young man; and he hasted to dress it.  
+> **⁸** And he took butter, and milk, and the calf which he had dressed, and set *it* before them; and he stood by them under the tree, and they did eat.  
 
 The appearance of God to Abraham seems to have had in it more of freedom and familiarity, and less of grandeur and majesty, than those we have hitherto read of; and therefore more resembles that great visit which, in the fullness of time, the Son of God was to make to the world, when the Word would be flesh, and appear as one of us. Observe here,
 
@@ -23,13 +23,13 @@ I\. How Abraham expected strangers, and how richly his expectations were answere
 
 II\. How Abraham entertained those strangers, and how kindly his entertainment was accepted. The Holy Ghost takes particular notice of the very free and affectionate welcome Abraham gave to the strangers. 1. He was very complaisant and respectful to them. Forgetting his age and gravity, he *ran to meet them* in the most obliging manner, and with all due courtesy *bowed himself towards the ground,* though as yet he knew nothing of them but that they appeared graceful respectable men. Note, Religion does not destroy, but improve, good manners, and teaches us to honour all men. Decent civility is a great ornament to piety. 2. He was very earnest and importunate for their stay, and took it as a great favour, Ge 18:3,4. Note, (1.) It becomes those whom God has blessed with plenty to be liberal and open-hearted in their entertainments, according to their ability, and (not in compliment, but cordially) to bid their friends welcome. We should take a pleasure in showing kindness to any; for both God and man love a cheerful giver. Who would *eat the bread of him that has an evil eye?* Pr 23:6,7. (2.) Those that would have communion with God must earnestly desire it and pray for it. God is a guest worth entertaining. 3. His entertainment, though it was very free, was yet plain and homely, and there was nothing in it of the gaiety and niceness of our times. His dining-room was an arbour under a tree; no rich table-linen, no side-board set with plate. His feast was a joint or two of veal, and some cakes baked on the hearth, and both hastily dressed up. Here were no dainties, no varieties, no forced-meats, no sweet-meats, but good, plain, wholesome food, though Abraham was very rich and his guests were very honourable. Note, We ought not to be curious in our diet. Let us be thankful for food convenient, though it be homely and common; and not be desirous of dainties, for they are deceitful meat to those that love them and set their hearts upon them. 4. He and his wife were both of them very attentive and busy, in accommodating their guests with the best they had. Sarah herself is cook and baker; Abraham runs to fetch the calf, brings out the milk and butter, and thinks it not below him to wait at table, that he might show how heartily welcome his guests were. Note, (1.) Those that have real merit need not take state upon them, nor are their prudent condescensions any disparagement to them. (2.) Hearty friendship will stoop to any thing but sin. Christ himself has taught us to wash one another's feet, in humble love. Those that thus abase themselves shall be exalted. Here Abraham's faith showed itself in good works; and so must ours, else it is dead, Jam 2:21,26. The father of the faithful was famous for charity, and generosity, and good house-keeping; and we must learn of him to *do good and to communicate.* Job did not eat his morsel alone, Job 31:17.
 
-> <sup>9</sup> And they said unto him, Where *is* Sarah thy wife? And he said, Behold, in the tent.  
-> <sup>10</sup> And he said, I will certainly return unto thee according to the time of life; and, lo, Sarah thy wife shall have a son. And Sarah heard *it* in the tent-door, which *was* behind him.  
-> <sup>11</sup> Now Abraham and Sarah *were* old *and* well stricken in age; *and* it ceased to be with Sarah after the manner of women.  
-> <sup>12</sup> Therefore Sarah laughed within herself, saying, After I am waxed old shall I have pleasure, my lord being old also?  
-> <sup>13</sup> And the LORD said unto Abraham, Wherefore did Sarah laugh, saying, Shall I of a surety bear a child, which am old?  
-> <sup>14</sup> Is any thing too hard for the LORD? At the time appointed I will return unto thee, according to the time of life, and Sarah shall have a son.  
-> <sup>15</sup> Then Sarah denied, saying, I laughed not; for she was afraid. And he said, Nay; but thou didst laugh.  
+> **⁹** And they said unto him, Where *is* Sarah thy wife? And he said, Behold, in the tent.  
+> **¹⁰** And he said, I will certainly return unto thee according to the time of life; and, lo, Sarah thy wife shall have a son. And Sarah heard *it* in the tent-door, which *was* behind him.  
+> **¹¹** Now Abraham and Sarah *were* old *and* well stricken in age; *and* it ceased to be with Sarah after the manner of women.  
+> **¹²** Therefore Sarah laughed within herself, saying, After I am waxed old shall I have pleasure, my lord being old also?  
+> **¹³** And the LORD said unto Abraham, Wherefore did Sarah laugh, saying, Shall I of a surety bear a child, which am old?  
+> **¹⁴** Is any thing too hard for the LORD? At the time appointed I will return unto thee, according to the time of life, and Sarah shall have a son.  
+> **¹⁵** Then Sarah denied, saying, I laughed not; for she was afraid. And he said, Nay; but thou didst laugh.  
 
 These heavenly guests (being sent to confirm the promise lately made to Abraham, that he should have a son by Sarah), while they are receiving Abraham's kind entertainment, they return his kindness. He receives angels, and has angels' rewards, a gracious message from heaven, Mt 10:41.
 
@@ -45,13 +45,13 @@ V\. Sarah foolishly endeavours to conceal her fault (Ge 18:15): *She denied, say
 
 ## Abraham's Interview with God. (b. c. 1898.)
 
-> <sup>16</sup> And the men rose up from thence, and looked toward Sodom: and Abraham went with them to bring them on the way.  
-> <sup>17</sup> And the LORD said, Shall I hide from Abraham that thing which I do;  
-> <sup>18</sup> Seeing that Abraham shall surely become a great and mighty nation, and all the nations of the earth shall be blessed in him?  
-> <sup>19</sup> For I know him, that he will command his children and his household after him, and they shall keep the way of the LORD, to do justice and judgment; that the LORD may bring upon Abraham that which he hath spoken of him.  
-> <sup>20</sup> And the LORD said, Because the cry of Sodom and Gomorrah is great, and because their sin is very grievous;  
-> <sup>21</sup> I will go down now, and see whether they have done altogether according to the cry of it, which is come unto me; and if not, I will know.  
-> <sup>22</sup> And the men turned their faces from thence, and went toward Sodom: but Abraham stood yet before the LORD.  
+> **¹⁶** And the men rose up from thence, and looked toward Sodom: and Abraham went with them to bring them on the way.  
+> **¹⁷** And the LORD said, Shall I hide from Abraham that thing which I do;  
+> **¹⁸** Seeing that Abraham shall surely become a great and mighty nation, and all the nations of the earth shall be blessed in him?  
+> **¹⁹** For I know him, that he will command his children and his household after him, and they shall keep the way of the LORD, to do justice and judgment; that the LORD may bring upon Abraham that which he hath spoken of him.  
+> **²⁰** And the LORD said, Because the cry of Sodom and Gomorrah is great, and because their sin is very grievous;  
+> **²¹** I will go down now, and see whether they have done altogether according to the cry of it, which is come unto me; and if not, I will know.  
+> **²²** And the men turned their faces from thence, and went toward Sodom: but Abraham stood yet before the LORD.  
 
 The messengers from heaven had now despatched one part of their business, which was an errand of grace to Abraham and Sarah, and which they delivered first; but now they have before them work of another nature. Sodom is to be destroyed, and they must do it, Ge 19:13. Note, As with the Lord there is mercy, so he is the God to whom vengeance belongs. Pursuant to their commission, we here find, 1. That *they looked towards Sodom* (Ge 18:16); they set their faces against it in wrath, as God is said to look unto the host of the Egyptians, Ex 14:24. Note, Though God has long seemed to connive at sinners, from which they have inferred that the Lord does not see, does not regard, yet, when the day of his wrath comes, he will look towards them. 2. That they *went towards Sodom* (Ge 18:22), and accordingly we find two of them at Sodom, Ge 19:1. Whether the third was the Lord, before whom Abraham yet stood, and to whom he drew near (Ge 18:23), as most think, or whether the third left them before they came to Sodom, and the Lord before whom Abraham stood was the *shechinah,* or that appearance of the divine glory which Abraham had formerly seen and conversed with, is uncertain. However, we have here,
 
@@ -69,17 +69,17 @@ II\. The honour they did to him; for those that honour God he will honour. God c
 
 ## Abraham's Intercession for Sodom. (b. c. 1898.)
 
-> <sup>23</sup> And Abraham drew near, and said, Wilt thou also destroy the righteous with the wicked?  
-> <sup>24</sup> Peradventure there be fifty righteous within the city: wilt thou also destroy and not spare the place for the fifty righteous that *are* therein?  
-> <sup>25</sup> That be far from thee to do after this manner, to slay the righteous with the wicked: and that the righteous should be as the wicked, that be far from thee: Shall not the Judge of all the earth do right?  
-> <sup>26</sup> And the LORD said, If I find in Sodom fifty righteous within the city, then I will spare all the place for their sakes.  
-> <sup>27</sup> And Abraham answered and said, Behold now, I have taken upon me to speak unto the Lord, which *am but* dust and ashes:  
-> <sup>28</sup> Peradventure there shall lack five of the fifty righteous: wilt thou destroy all the city for *lack of* five? And he said, If I find there forty and five, I will not destroy *it.*  
-> <sup>29</sup> And he spake unto him yet again, and said, Peradventure there shall be forty found there. And he said, I will not do *it* for forty's sake.  
-> <sup>30</sup> And he said *unto him,* Oh let not the Lord be angry, and I will speak: Peradventure there shall thirty be found there. And he said, I will not do *it,* if I find thirty there.  
-> <sup>31</sup> And he said, Behold now, I have taken upon me to speak unto the Lord: Peradventure there shall be twenty found there. And he said, I will not destroy *it* for twenty's sake.  
-> <sup>32</sup> And he said, Oh let not the Lord be angry, and I will speak yet but this once: Peradventure ten shall be found there. And he said, I will not destroy *it* for ten's sake.  
-> <sup>33</sup> And the LORD went his way, as soon as he had left communing with Abraham: and Abraham returned unto his place.  
+> **²³** And Abraham drew near, and said, Wilt thou also destroy the righteous with the wicked?  
+> **²⁴** Peradventure there be fifty righteous within the city: wilt thou also destroy and not spare the place for the fifty righteous that *are* therein?  
+> **²⁵** That be far from thee to do after this manner, to slay the righteous with the wicked: and that the righteous should be as the wicked, that be far from thee: Shall not the Judge of all the earth do right?  
+> **²⁶** And the LORD said, If I find in Sodom fifty righteous within the city, then I will spare all the place for their sakes.  
+> **²⁷** And Abraham answered and said, Behold now, I have taken upon me to speak unto the Lord, which *am but* dust and ashes:  
+> **²⁸** Peradventure there shall lack five of the fifty righteous: wilt thou destroy all the city for *lack of* five? And he said, If I find there forty and five, I will not destroy *it.*  
+> **²⁹** And he spake unto him yet again, and said, Peradventure there shall be forty found there. And he said, I will not do *it* for forty's sake.  
+> **³⁰** And he said *unto him,* Oh let not the Lord be angry, and I will speak: Peradventure there shall thirty be found there. And he said, I will not do *it,* if I find thirty there.  
+> **³¹** And he said, Behold now, I have taken upon me to speak unto the Lord: Peradventure there shall be twenty found there. And he said, I will not destroy *it* for twenty's sake.  
+> **³²** And he said, Oh let not the Lord be angry, and I will speak yet but this once: Peradventure ten shall be found there. And he said, I will not destroy *it* for ten's sake.  
+> **³³** And the LORD went his way, as soon as he had left communing with Abraham: and Abraham returned unto his place.  
 
 Communion with God is kept up by the word and by prayer. In the word God speaks to us; in prayer we speak to him. God had revealed to Abraham his purposes concerning Sodom; now from this Abraham takes occasion to speak to God on Sodom's behalf. Note, God's word then does us good when it furnishes us with matter for prayer and excites us to it. When God has spoken to us, we must consider what we have to say to him upon it. Observe,
 

@@ -8,8 +8,8 @@ In this epistle the apostle congratulates Gaius upon the prosperity of his soul 
 
 ## Salutation and Prayer. (a. d. 90.)
 
-> <sup>1</sup> The elder unto the wellbeloved Gaius, whom I love in the truth.  
-> <sup>2</sup> Beloved, I wish above all things that thou mayest prosper and be in health, even as thy soul prospereth.  
+> **¹** The elder unto the wellbeloved Gaius, whom I love in the truth.  
+> **²** Beloved, I wish above all things that thou mayest prosper and be in health, even as thy soul prospereth.  
 
 Here we see, I. The sacred penman who writes and sends the letter; not here indeed notified by his name, but a more general character: *The elder,* he that is so by years and by office; honour and deference are due to both. Some have questioned whether this were John the apostle or no; but his style and spirit seem to shine in the epistle. Those that are beloved of Christ will love the brethren for his sake. Gaius could not question from whom the letter came. The apostle might have assumed many more illustrious characters, but it becomes not Christ's ministers to affect swelling pompous titles. He almost levels himself with the more ordinary pastors of the church, while he styles himself the elder. Or, possibly, most of the extraordinary ministers, the apostles, were now dead, and this holy survivor would countenance the continued standing ministry, by assuming the more common title—the elder. *The elders I exhort, who am also an elder,* 1Pe 5:1.
 
@@ -19,12 +19,12 @@ III\. The salutation or greeting, containing a prayer, introduced by an affectio
 
 ## The Character of Gaius. (a. d. 90.)
 
-> <sup>3</sup> For I rejoiced greatly, when the brethren came and testified of the truth that is in thee, even as thou walkest in the truth.  
-> <sup>4</sup> I have no greater joy than to hear that my children walk in truth.  
-> <sup>5</sup> Beloved, thou doest faithfully whatsoever thou doest to the brethren, and to strangers;  
-> <sup>6</sup> Which have borne witness of thy charity before the church: whom if thou bring forward on their journey after a godly sort, thou shalt do well:  
-> <sup>7</sup> Because that for his name's sake they went forth, taking nothing of the Gentiles.  
-> <sup>8</sup> We therefore ought to receive such, that we might be fellowhelpers to the truth.  
+> **³** For I rejoiced greatly, when the brethren came and testified of the truth that is in thee, even as thou walkest in the truth.  
+> **⁴** I have no greater joy than to hear that my children walk in truth.  
+> **⁵** Beloved, thou doest faithfully whatsoever thou doest to the brethren, and to strangers;  
+> **⁶** Which have borne witness of thy charity before the church: whom if thou bring forward on their journey after a godly sort, thou shalt do well:  
+> **⁷** Because that for his name's sake they went forth, taking nothing of the Gentiles.  
+> **⁸** We therefore ought to receive such, that we might be fellowhelpers to the truth.  
 
 In these verses we have,
 
@@ -40,9 +40,9 @@ V\. The reasons of this directed conduct; these are two:—1. *Because that for 
 
 ## The Character of Diotrephes. (a. d. 90.)
 
-> <sup>9</sup> I wrote unto the church: but Diotrephes, who loveth to have the preeminence among them, receiveth us not.  
-> <sup>10</sup> Wherefore, if I come, I will remember his deeds which he doeth, prating against us with malicious words: and not content therewith, neither doth he himself receive the brethren, and forbiddeth them that would, and casteth *them* out of the church.  
-> <sup>11</sup> Beloved, follow not that which is evil, but that which is good. He that doeth good is of God: but he that doeth evil hath not seen God.  
+> **⁹** I wrote unto the church: but Diotrephes, who loveth to have the preeminence among them, receiveth us not.  
+> **¹⁰** Wherefore, if I come, I will remember his deeds which he doeth, prating against us with malicious words: and not content therewith, neither doth he himself receive the brethren, and forbiddeth them that would, and casteth *them* out of the church.  
+> **¹¹** Beloved, follow not that which is evil, but that which is good. He that doeth good is of God: but he that doeth evil hath not seen God.  
 
 I\. Here is a very different example and character, an officer, a minister in the church, less generous, catholic, and communicative than the private Christians. Ministers may sometimes be out-shone, out-done. In reference to this minister, we see,
 
@@ -58,9 +58,9 @@ II\. Here is counsel upon that different character, dissuasion from copying such
 
 ## The Character of Demetrius; Conclusion and Salutation. (a. d. 90.)
 
-> <sup>12</sup> Demetrius hath good report of all *men,* and of the truth itself: yea, and we *also* bear record; and ye know that our record is true.  
-> <sup>13</sup> I had many things to write, but I will not with ink and pen write unto thee:  
-> <sup>14</sup> But I trust I shall shortly see thee, and we shall speak face to face. Peace *be* to thee. *Our* friends salute thee. Greet the friends by name.  
+> **¹²** Demetrius hath good report of all *men,* and of the truth itself: yea, and we *also* bear record; and ye know that our record is true.  
+> **¹³** I had many things to write, but I will not with ink and pen write unto thee:  
+> **¹⁴** But I trust I shall shortly see thee, and we shall speak face to face. Peace *be* to thee. *Our* friends salute thee. Greet the friends by name.  
 
 Here we have, I. The character of another person, one *Demetrius,* not much known otherwise. But here his name will live. A name in the gospel, a fame in the churches, is better than that of sons and daughters. His character was his commendation. His commendation was, 1. General: *Demetrius has a good report of all men.* Few are well spoken of by all; and sometimes it is ill to be so. But universal integrity and goodness are the way to (and sometimes obtain) universal applause. 2. Deserved and well founded: *And of the truth itself,* 3Jo 1:12. Some have a good report, but not of the truth itself. Happy are those whose spirit and conduct commend them before God and men. 3. Confirmed by the apostle's and his friends' testimony: *Yea, and we also bear record;* and that with an appeal to Gaius's own knowledge: *And you* (you and your friends) *know that our record is true.* Probably this Demetrius was known to the church where the apostle now resided, and to that where Gaius was. It is good to be well known, or known for good. We must be ready to bear our testimony to those who are good: it is well for those who are commended when those who commend them can appeal to the consciences of those who know them most.
 

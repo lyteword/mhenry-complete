@@ -8,8 +8,8 @@ Moses and Aaron are here dealing with Pharaoh, to get leave of him to go and wor
 
 ## Sufferings of the Israelites Increased. (b. c. 1491.)
 
-> <sup>1</sup> And afterward Moses and Aaron went in, and told Pharaoh, Thus saith the LORD God of Israel, Let my people go, that they may hold a feast unto me in the wilderness.  
-> <sup>2</sup> And Pharaoh said, Who *is* the LORD, that I should obey his voice to let Israel go? I know not the LORD, neither will I let Israel go.  
+> **¹** And afterward Moses and Aaron went in, and told Pharaoh, Thus saith the LORD God of Israel, Let my people go, that they may hold a feast unto me in the wilderness.  
+> **²** And Pharaoh said, Who *is* the LORD, that I should obey his voice to let Israel go? I know not the LORD, neither will I let Israel go.  
 
 Moses and Aaron, having delivered their message to the elders of Israel, with whom they found good acceptance, are now to deal with Pharaoh, to whom they come in peril of their lives—*Moses* particularly, who perhaps was out-lawed for killing the Egyptian forty years before, so that if any of the old courtiers should happen to remember that against him now it might cost him his head. Their message itself was displeasing, and touch Pharaoh both in his honour and in his profit, two tender points; yet these faithful ambassadors boldly deliver it, whether he will hear or whether he will forbear.
 
@@ -17,13 +17,13 @@ I\. Their demand is piously bold: *Thus saith the Lord God of Israel, Let my peo
 
 II\. Pharaoh's answer is impiously bold: *Who is the Lord, that I should obey his voice?* Ex 5:2. Being summoned to surrender, he thus hangs out the flag of defiance, hectors Moses and the God that sends him, and peremptorily refuses to let Israel go; he will not treat about it, nor so much as bear the mention of it. Observe, 1. How scornfully he speaks of the God of Israel: "*Who is Jehovah?* I neither know him nor care for him, neither value him nor fear him:" it is a hard name that he never heard of before, but he resolves it shall be no bug-bear to him. Israel was now a despised oppressed people, looked on as the tail of the nation, and, by the character they bore, Pharaoh makes his estimate of their God, and concludes that he made no better a figure among the gods than his people did among the nations. Note, Hardened persecutors are more malicious against God himself than they are against his people. See Isa 37:23. Again, Ignorance and contempt of God are at the bottom of all the wickedness that is in the world. Men know not the Lord, or have very low and mean thoughts of him, and therefore they obey not his voice, nor will let any thing go for him. 2. How proudly he speaks of himself: "*That I should obey his voice;* I, the king of Egypt, a great people, obey the God of Israel, a poor enslaved people? Shall I, that rule the Israel of God, obey the God of Israel? No, it is below me; I scorn to answer his summons." Note, Those are the children of pride that are the *children of disobedience,* Job 41:34, Eph 5:6. Proud men think themselves too good to stoop even to God himself, and would not be under control, Jer 43:2. Here is the core of the controversy: God must rule, but man will not be ruled. "I will have my will done," says God: "But I will do my own will," says the sinner. 3. How resolutely he denies the demand: *Neither will I let Israel go.* Note, Of all sinners none are so obstinate, nor so hardly persuaded to leave their sin, as persecutors are.
 
-> <sup>3</sup> And they said, The God of the Hebrews hath met with us: let us go, we pray thee, three days' journey into the desert, and sacrifice unto the LORD our God; lest he fall upon us with pestilence, or with the sword.  
-> <sup>4</sup> And the king of Egypt said unto them, Wherefore do ye, Moses and Aaron, let the people from their works? get you unto your burdens.  
-> <sup>5</sup> And Pharaoh said, Behold, the people of the land now *are* many, and ye make them rest from their burdens.  
-> <sup>6</sup> And Pharaoh commanded the same day the taskmasters of the people, and their officers, saying,  
-> <sup>7</sup> Ye shall no more give the people straw to make brick, as heretofore: let them go and gather straw for themselves.  
-> <sup>8</sup> And the tale of the bricks, which they did make heretofore, ye shall lay upon them; ye shall not diminish *ought* thereof: for they *be* idle; therefore they cry, saying, Let us go *and* sacrifice to our God.  
-> <sup>9</sup> Let there more work be laid upon the men, that they may labour therein; and let them not regard vain words.  
+> **³** And they said, The God of the Hebrews hath met with us: let us go, we pray thee, three days' journey into the desert, and sacrifice unto the LORD our God; lest he fall upon us with pestilence, or with the sword.  
+> **⁴** And the king of Egypt said unto them, Wherefore do ye, Moses and Aaron, let the people from their works? get you unto your burdens.  
+> **⁵** And Pharaoh said, Behold, the people of the land now *are* many, and ye make them rest from their burdens.  
+> **⁶** And Pharaoh commanded the same day the taskmasters of the people, and their officers, saying,  
+> **⁷** Ye shall no more give the people straw to make brick, as heretofore: let them go and gather straw for themselves.  
+> **⁸** And the tale of the bricks, which they did make heretofore, ye shall lay upon them; ye shall not diminish *ought* thereof: for they *be* idle; therefore they cry, saying, Let us go *and* sacrifice to our God.  
+> **⁹** Let there more work be laid upon the men, that they may labour therein; and let them not regard vain words.  
 
 Finding that Pharaoh had no veneration at all for God, Moses and Aaron next try whether he had any compassion for Israel, and become humble suitors to him for leave to go and sacrifice, but in vain.
 
@@ -35,23 +35,23 @@ II\. Pharaoh's denial of their request is very barbarous and unreasonable, Ex 5:
 
 2\. His resolutions hereupon were most barbarous. (1.) Moses and Aaron themselves must get to *their burdens* (Ex 5:4); they are Israelites, and, however God had distinguished them from the rest, Pharaoh makes no difference: they must share in the common slavery of their nation. Persecutors have always taken a particular pleasure in putting contempt and hardship upon the ministers of the churches. (2.) The usual tale of bricks must be exacted, without the usual allowance of straw to mix with the clay, or to burn the bricks with, that thus more work might be laid upon the men, which if they performed, they would be broken with labour; and, if not, they would be exposed to punishment.
 
-> <sup>10</sup> And the taskmasters of the people went out, and their officers, and they spake to the people, saying, Thus saith Pharaoh, I will not give you straw.  
-> <sup>11</sup> Go ye, get you straw where ye can find it: yet not ought of your work shall be diminished.  
-> <sup>12</sup> So the people were scattered abroad throughout all the land of Egypt to gather stubble instead of straw.  
-> <sup>13</sup> And the taskmasters hasted *them,* saying, Fulfil your works, *your* daily tasks, as when there was straw.  
-> <sup>14</sup> And the officers of the children of Israel, which Pharaoh's taskmasters had set over them, were beaten, *and* demanded, Wherefore have ye not fulfilled your task in making brick both yesterday and to day, as heretofore?  
+> **¹⁰** And the taskmasters of the people went out, and their officers, and they spake to the people, saying, Thus saith Pharaoh, I will not give you straw.  
+> **¹¹** Go ye, get you straw where ye can find it: yet not ought of your work shall be diminished.  
+> **¹²** So the people were scattered abroad throughout all the land of Egypt to gather stubble instead of straw.  
+> **¹³** And the taskmasters hasted *them,* saying, Fulfil your works, *your* daily tasks, as when there was straw.  
+> **¹⁴** And the officers of the children of Israel, which Pharaoh's taskmasters had set over them, were beaten, *and* demanded, Wherefore have ye not fulfilled your task in making brick both yesterday and to day, as heretofore?  
 
 Pharaoh's orders are here put in execution; straw is denied, and yet the work not diminished. 1. The Egyptian task-masters were very severe. Pharaoh having decreed unrighteous decrees, the task-masters were ready to write the grievousness that he had prescribed, Isa 10:1. Cruel princes will never want cruel instruments to be employed under them, who will justify them in that which is most unreasonable. These task-masters insisted upon the daily tasks, as when there was straw, Ex 5:13. See what need we have to pray that *we may be delivered from unreasonable and wicked men,* 2Th 3:2. The enmity of the serpent's seed against the seed of the woman is such as breaks through all the laws of reason, honour, humanity, and common justice. 2. The people hereby were dispersed throughout all the land of Egypt, to gather stubble, Ex 5:12. By this means Pharaoh's unjust and barbarous usage of them came to be known to all the kingdom, and perhaps caused them to be pitied by their neighbours, and made Pharaoh's government less acceptable even to his own subjects: good-will is never got by persecution. 3. The Israelite-officers were used with particular harshness, Ex 5:14. Those that were the fathers of the houses of Israel paid dearly for their honour; for from them immediately the service was exacted, and they were beaten when it was not performed. See here, (1.) What a miserable thing slavery is, and what reason we have to be thankful to God that we are a free people, and not oppressed. Liberty and property are valuable jewels in the eyes of those whose services and possessions lie at the mercy of an arbitrary power. (2.) What disappointments we often meet with after the raising of our expectations. The Israelites were now lately encouraged to hope for enlargement, but behold greater distresses. This teaches us always to rejoice with trembling. (3.) What strange steps God sometimes takes in delivering his people; he often brings them to the utmost straits when he is just ready to appear for them. The lowest ebbs go before the highest tides; and very cloudy mornings commonly introduce the fairest days, De 32:36. God's time to help is when things are at the worst; and Providence verifies the paradox, *The worse the better.*
 
-> <sup>15</sup> Then the officers of the children of Israel came and cried unto Pharaoh, saying, Wherefore dealest thou thus with thy servants?  
-> <sup>16</sup> There is no straw given unto thy servants, and they say to us, Make brick: and, behold, thy servants *are* beaten; but the fault *is* in thine own people.  
-> <sup>17</sup> But he said, Ye *are* idle, *ye are* idle: therefore ye say, Let us go *and* do sacrifice to the LORD.  
-> <sup>18</sup> Go therefore now, *and* work; for there shall no straw be given you, yet shall ye deliver the tale of bricks.  
-> <sup>19</sup> And the officers of the children of Israel did see *that* they *were* in evil *case,* after it was said, Ye shall not minish *ought* from your bricks of your daily task.  
-> <sup>20</sup> And they met Moses and Aaron, who stood in the way, as they came forth from Pharaoh:  
-> <sup>21</sup> And they said unto them, The LORD look upon you, and judge; because ye have made our savour to be abhorred in the eyes of Pharaoh, and in the eyes of his servants, to put a sword in their hand to slay us.  
-> <sup>22</sup> And Moses returned unto the LORD, and said, Lord, wherefore hast thou *so* evil entreated this people? why *is* it *that* thou hast sent me?  
-> <sup>23</sup> For since I came to Pharaoh to speak in thy name, he hath done evil to this people; neither hast thou delivered thy people at all.  
+> **¹⁵** Then the officers of the children of Israel came and cried unto Pharaoh, saying, Wherefore dealest thou thus with thy servants?  
+> **¹⁶** There is no straw given unto thy servants, and they say to us, Make brick: and, behold, thy servants *are* beaten; but the fault *is* in thine own people.  
+> **¹⁷** But he said, Ye *are* idle, *ye are* idle: therefore ye say, Let us go *and* do sacrifice to the LORD.  
+> **¹⁸** Go therefore now, *and* work; for there shall no straw be given you, yet shall ye deliver the tale of bricks.  
+> **¹⁹** And the officers of the children of Israel did see *that* they *were* in evil *case,* after it was said, Ye shall not minish *ought* from your bricks of your daily task.  
+> **²⁰** And they met Moses and Aaron, who stood in the way, as they came forth from Pharaoh:  
+> **²¹** And they said unto them, The LORD look upon you, and judge; because ye have made our savour to be abhorred in the eyes of Pharaoh, and in the eyes of his servants, to put a sword in their hand to slay us.  
+> **²²** And Moses returned unto the LORD, and said, Lord, wherefore hast thou *so* evil entreated this people? why *is* it *that* thou hast sent me?  
+> **²³** For since I came to Pharaoh to speak in thy name, he hath done evil to this people; neither hast thou delivered thy people at all.  
 
 It was a great strait that the head-workmen were in, when they must either abuse those that were under them or be abused by those that were over them; yet, it should seem, rather than they would tyrannize, they would be tyrannized over; and they were so. In this evil case (Ex 5:19), observe,
 

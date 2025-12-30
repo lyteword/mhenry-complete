@@ -10,15 +10,15 @@ It appears by the title that this psalm was penned with a particular reference t
 
 Shiggaion of David, which he sang unto the Lord, concerning the words of Cush the Benjamite.
 
-> <sup>1</sup> O LORD my God, in thee do I put my trust: save me from all them that persecute me, and deliver me:  
-> <sup>2</sup> Lest he tear my soul like a lion, rending *it* in pieces, while *there is* none to deliver.  
-> <sup>3</sup> O LORD my God, if I have done this; if there be iniquity in my hands;  
-> <sup>4</sup> If I have rewarded evil unto him that was at peace with me; (yea, I have delivered him that without cause is mine enemy:)  
-> <sup>5</sup> Let the enemy persecute my soul, and take *it;* yea, let him tread down my life upon the earth, and lay mine honour in the dust. Selah.  
-> <sup>6</sup> Arise, O LORD, in thine anger, lift up thyself because of the rage of mine enemies: and awake for me *to* the judgment *that* thou hast commanded.  
-> <sup>7</sup> So shall the congregation of the people compass thee about: for their sakes therefore return thou on high.  
-> <sup>8</sup> The LORD shall judge the people: judge me, O LORD, according to my righteousness, and according to mine integrity *that is* in me.  
-> <sup>9</sup> Oh let the wickedness of the wicked come to an end; but establish the just: for the righteous God trieth the hearts and reins.  
+> **¹** O LORD my God, in thee do I put my trust: save me from all them that persecute me, and deliver me:  
+> **²** Lest he tear my soul like a lion, rending *it* in pieces, while *there is* none to deliver.  
+> **³** O LORD my God, if I have done this; if there be iniquity in my hands;  
+> **⁴** If I have rewarded evil unto him that was at peace with me; (yea, I have delivered him that without cause is mine enemy:)  
+> **⁵** Let the enemy persecute my soul, and take *it;* yea, let him tread down my life upon the earth, and lay mine honour in the dust. Selah.  
+> **⁶** Arise, O LORD, in thine anger, lift up thyself because of the rage of mine enemies: and awake for me *to* the judgment *that* thou hast commanded.  
+> **⁷** So shall the congregation of the people compass thee about: for their sakes therefore return thou on high.  
+> **⁸** The LORD shall judge the people: judge me, O LORD, according to my righteousness, and according to mine integrity *that is* in me.  
+> **⁹** Oh let the wickedness of the wicked come to an end; but establish the just: for the righteous God trieth the hearts and reins.  
 
 *Shiggaion* is a *song* or *psalm* (the word is used so only here and Hab 3:1)—a *wandering* song (so some), the matter and composition of the several parts being different, but artificially put together—a *charming* song (so others), very delightful. David not only penned it, but sang it himself in a devout religious manner unto the Lord, *concerning the words* or affairs *of Cush the Benjamite,* that is, of Saul himself, whose barbarous usage of David bespoke him rather a Cushite, or Ethiopian, than a true-born Israelite. Or, more likely, it was some kinsman of Saul named *Cush,* who was an inveterate enemy to David, misrepresented him to Saul as a traitor, and (which was very needless) exasperated Saul against him, one of those children of men, children of Belial indeed, whom David complains of (1Sa 26:19), that made mischief between him and Saul. David, thus basely abused, has recourse to the Lord. The injuries men do us should drive us to God, for to him we may commit our cause. Nay, he sings to the Lord; his spirit was not ruffled by it, nor cast down, but so composed and cheerful that he was still in tune for sacred songs and it did not occasion one jarring string in his harp. Thus let the injuries we receive from men, instead of provoking our passions, kindle and excite our devotions. In Ps 7:1-9,
 
@@ -46,14 +46,14 @@ As far as we have the testimony of an unbiased conscience for us that in any ins
 
 ## The Persecutor's Doom.
 
-> <sup>10</sup> My defence *is* of God, which saveth the upright in heart.  
-> <sup>11</sup> God judgeth the righteous, and God is angry *with the wicked* every day.  
-> <sup>12</sup> If he turn not, he will whet his sword; he hath bent his bow, and made it ready.  
-> <sup>13</sup> He hath also prepared for him the instruments of death; he ordaineth his arrows against the persecutors.  
-> <sup>14</sup> Behold, he travaileth with iniquity, and hath conceived mischief, and brought forth falsehood.  
-> <sup>15</sup> He made a pit, and digged it, and is fallen into the ditch *which* he made.  
-> <sup>16</sup> His mischief shall return upon his own head, and his violent dealing shall come down upon his own pate.  
-> <sup>17</sup> I will praise the LORD according to his righteousness: and will sing praise to the name of the LORD most high.  
+> **¹⁰** My defence *is* of God, which saveth the upright in heart.  
+> **¹¹** God judgeth the righteous, and God is angry *with the wicked* every day.  
+> **¹²** If he turn not, he will whet his sword; he hath bent his bow, and made it ready.  
+> **¹³** He hath also prepared for him the instruments of death; he ordaineth his arrows against the persecutors.  
+> **¹⁴** Behold, he travaileth with iniquity, and hath conceived mischief, and brought forth falsehood.  
+> **¹⁵** He made a pit, and digged it, and is fallen into the ditch *which* he made.  
+> **¹⁶** His mischief shall return upon his own head, and his violent dealing shall come down upon his own pate.  
+> **¹⁷** I will praise the LORD according to his righteousness: and will sing praise to the name of the LORD most high.  
 
 David having lodged his appeal with God by prayer and a solemn profession of his integrity, in the former part of the psalm, in this latter part does, as it were, take out judgment upon the appeal, by faith in the word of God, and the assurance it gives of the happiness and safety of the righteous and the certain destruction of wicked people that continue impenitent.
 

@@ -8,11 +8,11 @@ This psalm is composed alphabetically, as the former is, and is (like the former
 
 ## The Character of the Righteous.
 
-> <sup>1</sup> Praise ye the LORD. Blessed *is* the man *that* feareth the LORD, *that* delighteth greatly in his commandments.  
-> <sup>2</sup> His seed shall be mighty upon earth: the generation of the upright shall be blessed.  
-> <sup>3</sup> Wealth and riches *shall be* in his house: and his righteousness endureth for ever.  
-> <sup>4</sup> Unto the upright there ariseth light in the darkness: *he is* gracious, and full of compassion, and righteous.  
-> <sup>5</sup> A good man showeth favour, and lendeth: he will guide his affairs with discretion.  
+> **¹** Praise ye the LORD. Blessed *is* the man *that* feareth the LORD, *that* delighteth greatly in his commandments.  
+> **²** His seed shall be mighty upon earth: the generation of the upright shall be blessed.  
+> **³** Wealth and riches *shall be* in his house: and his righteousness endureth for ever.  
+> **⁴** Unto the upright there ariseth light in the darkness: *he is* gracious, and full of compassion, and righteous.  
+> **⁵** A good man showeth favour, and lendeth: he will guide his affairs with discretion.  
 
 The psalmist begins with a call to us to praise God, but immediately applies himself to praise the people of God; for whatever glory is acknowledged to be on them it comes from God, and must return to him; as he is their praise, so they are his. We have reason to praise the Lord that there are a people in the world who fear him and serve him, and that they are a happy people, both which are owing entirely to the grace of God. Now here we have,
 
@@ -36,11 +36,11 @@ II\. The blessedness that is here entailed upon those that answer to these chara
 
 ## The Blessedness of the Righteous; The Misery of the Wicked.
 
-> <sup>6</sup> Surely he shall not be moved for ever: the righteous shall be in everlasting remembrance.  
-> <sup>7</sup> He shall not be afraid of evil tidings: his heart is fixed, trusting in the LORD.  
-> <sup>8</sup> His heart *is* established, he shall not be afraid, until he see *his desire* upon his enemies.  
-> <sup>9</sup> He hath dispersed, he hath given to the poor; his righteousness endureth for ever; his horn shall be exalted with honour.  
-> <sup>10</sup> The wicked shall see *it,* and be grieved; he shall gnash with his teeth, and melt away: the desire of the wicked shall perish.  
+> **⁶** Surely he shall not be moved for ever: the righteous shall be in everlasting remembrance.  
+> **⁷** He shall not be afraid of evil tidings: his heart is fixed, trusting in the LORD.  
+> **⁸** His heart *is* established, he shall not be afraid, until he see *his desire* upon his enemies.  
+> **⁹** He hath dispersed, he hath given to the poor; his righteousness endureth for ever; his horn shall be exalted with honour.  
+> **¹⁰** The wicked shall see *it,* and be grieved; he shall gnash with his teeth, and melt away: the desire of the wicked shall perish.  
 
 In these verses we have,
 

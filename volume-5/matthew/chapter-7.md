@@ -8,12 +8,12 @@ This chapter continues and concludes Christ's sermon on the mount, which is pure
 
 ## The Sermon on the Mount.
 
-> <sup>1</sup> Judge not, that ye be not judged.  
-> <sup>2</sup> For with what judgment ye judge, ye shall be judged: and with what measure ye mete, it shall be measured to you again.  
-> <sup>3</sup> And why beholdest thou the mote that is in thy brother's eye, but considerest not the beam that is in thine own eye?  
-> <sup>4</sup> Or how wilt thou say to thy brother, Let me pull out the mote out of thine eye; and, behold, a beam *is* in thine own eye?  
-> <sup>5</sup> Thou hypocrite, first cast out the beam out of thine own eye; and then shalt thou see clearly to cast out the mote out of thy brother's eye.  
-> <sup>6</sup> Give not that which is holy unto the dogs, neither cast ye your pearls before swine, lest they trample them under their feet, and turn again and rend you.  
+> **¹** Judge not, that ye be not judged.  
+> **²** For with what judgment ye judge, ye shall be judged: and with what measure ye mete, it shall be measured to you again.  
+> **³** And why beholdest thou the mote that is in thy brother's eye, but considerest not the beam that is in thine own eye?  
+> **⁴** Or how wilt thou say to thy brother, Let me pull out the mote out of thine eye; and, behold, a beam *is* in thine own eye?  
+> **⁵** Thou hypocrite, first cast out the beam out of thine own eye; and then shalt thou see clearly to cast out the mote out of thy brother's eye.  
+> **⁶** Give not that which is holy unto the dogs, neither cast ye your pearls before swine, lest they trample them under their feet, and turn again and rend you.  
 
 Our Saviour is here directing us how to conduct ourselves in reference to the faults of others; and his expressions seem intended as a reproof to the scribes and Pharisees, who were very rigid and severe, very magisterial and supercilious, in condemning all about them, as those commonly are, that are proud and conceited in justifying themselves. We have here,
 
@@ -37,11 +37,11 @@ II\. Some cautions *about reproving.* Because we must not judge others, which is
 
 ## The Sermon on the Mount.
 
-> <sup>7</sup> Ask, and it shall be given you; seek, and ye shall find; knock, and it shall be opened unto you:  
-> <sup>8</sup> For every one that asketh receiveth; and he that seeketh findeth; and to him that knocketh it shall be opened.  
-> <sup>9</sup> Or what man is there of you, whom if his son ask bread, will he give him a stone?  
-> <sup>10</sup> Or if he ask a fish, will he give him a serpent?  
-> <sup>11</sup> If ye then, being evil, know how to give good gifts unto your children, how much more shall your Father which is in heaven give good things to them that ask him?  
+> **⁷** Ask, and it shall be given you; seek, and ye shall find; knock, and it shall be opened unto you:  
+> **⁸** For every one that asketh receiveth; and he that seeketh findeth; and to him that knocketh it shall be opened.  
+> **⁹** Or what man is there of you, whom if his son ask bread, will he give him a stone?  
+> **¹⁰** Or if he ask a fish, will he give him a serpent?  
+> **¹¹** If ye then, being evil, know how to give good gifts unto your children, how much more shall your Father which is in heaven give good things to them that ask him?  
 
 Our Saviour, in the foregoing chapter, had spoken of prayer as a commanded duty, by which God is honoured, and which, if done aright, shall be rewarded; here he speaks of it as the appointed means of obtaining what we need, especially grace to obey the precepts he had given, some of which are so displeasing to flesh and blood.
 
@@ -61,9 +61,9 @@ II\. Here is a promised annexed: *our labour* in prayer, if indeed we do labour 
 
 ## The Sermon on the Mount.
 
-> <sup>12</sup> Therefore all things whatsoever ye would that men should do to you, do ye even so to them: for this is the law and the prophets.  
-> <sup>13</sup> Enter ye in at the strait gate: for wide *is* the gate, and broad *is* the way, that leadeth to destruction, and many there be which go in thereat:  
-> <sup>14</sup> Because strait *is* the gate, and narrow *is* the way, which leadeth unto life, and few there be that find it.  
+> **¹²** Therefore all things whatsoever ye would that men should do to you, do ye even so to them: for this is the law and the prophets.  
+> **¹³** Enter ye in at the strait gate: for wide *is* the gate, and broad *is* the way, that leadeth to destruction, and many there be which go in thereat:  
+> **¹⁴** Because strait *is* the gate, and narrow *is* the way, which leadeth unto life, and few there be that find it.  
 
 Our Lord Jesus here presses upon us that righteousness towards men which is an essential branch of true religion, and that religion towards God which is an essential branch of universal righteousness.
 
@@ -99,12 +99,12 @@ Here is, (1.) An account given us of the way of sin and sinners; both what is th
 
 ## The Sermon on the Mount.
 
-> <sup>15</sup> Beware of false prophets, which come to you in sheep's clothing, but inwardly they are ravening wolves.  
-> <sup>16</sup> Ye shall know them by their fruits. Do men gather grapes of thorns, or figs of thistles?  
-> <sup>17</sup> Even so every good tree bringeth forth good fruit; but a corrupt tree bringeth forth evil fruit.  
-> <sup>18</sup> A good tree cannot bring forth evil fruit, neither *can* a corrupt tree bring forth good fruit.  
-> <sup>19</sup> Every tree that bringeth not forth good fruit is hewn down, and cast into the fire.  
-> <sup>20</sup> Wherefore by their fruits ye shall know them.  
+> **¹⁵** Beware of false prophets, which come to you in sheep's clothing, but inwardly they are ravening wolves.  
+> **¹⁶** Ye shall know them by their fruits. Do men gather grapes of thorns, or figs of thistles?  
+> **¹⁷** Even so every good tree bringeth forth good fruit; but a corrupt tree bringeth forth evil fruit.  
+> **¹⁸** A good tree cannot bring forth evil fruit, neither *can* a corrupt tree bring forth good fruit.  
+> **¹⁹** Every tree that bringeth not forth good fruit is hewn down, and cast into the fire.  
+> **²⁰** Wherefore by their fruits ye shall know them.  
 
 We have here a caution against *false prophets,* to take heed that we be not deceived and imposed upon by them. *Prophets* are properly such as foretel things to come; there are some mentioned in the Old Testament, who pretended to that without warrant, and the event disproved their pretensions, as Zedekiah, 1Ki 22:11, and another Zedekiah, Jer 29:21. But *prophets* did also teach the people their duty, so that *false prophets* here are false teachers. Christ being a Prophet and *a Teacher come from God,* and designing to send abroad teachers under him, gives warning to all to take heed of counterfeits, who, instead of healing souls with wholesome doctrine, as they pretend, would poison them.
 
@@ -132,15 +132,15 @@ II\. Here is a good rule to go by in this caution; we must *prove all things* (1
 
 ## The Sermon on the Mount.
 
-> <sup>21</sup> Not every one that saith unto me, Lord, Lord, shall enter into the kingdom of heaven; but he that doeth the will of my Father which is in heaven.  
-> <sup>22</sup> Many will say to me in that day, Lord, Lord, have we not prophesied in thy name? and in thy name have cast out devils? and in thy name done many wonderful works?  
-> <sup>23</sup> And then will I profess unto them, I never knew you: depart from me, ye that work iniquity.  
-> <sup>24</sup> Therefore whosoever heareth these sayings of mine, and doeth them, I will liken him unto a wise man, which built his house upon a rock:  
-> <sup>25</sup> And the rain descended, and the floods came, and the winds blew, and beat upon that house; and it fell not: for it was founded upon a rock.  
-> <sup>26</sup> And every one that heareth these sayings of mine, and doeth them not, shall be likened unto a foolish man, which built his house upon the sand:  
-> <sup>27</sup> And the rain descended, and the floods came, and the winds blew, and beat upon that house; and it fell: and great was the fall of it.  
-> <sup>28</sup> And it came to pass, when Jesus had ended these sayings, the people were astonished at his doctrine:  
-> <sup>29</sup> For he taught them as *one* having authority, and not as the scribes.  
+> **²¹** Not every one that saith unto me, Lord, Lord, shall enter into the kingdom of heaven; but he that doeth the will of my Father which is in heaven.  
+> **²²** Many will say to me in that day, Lord, Lord, have we not prophesied in thy name? and in thy name have cast out devils? and in thy name done many wonderful works?  
+> **²³** And then will I profess unto them, I never knew you: depart from me, ye that work iniquity.  
+> **²⁴** Therefore whosoever heareth these sayings of mine, and doeth them, I will liken him unto a wise man, which built his house upon a rock:  
+> **²⁵** And the rain descended, and the floods came, and the winds blew, and beat upon that house; and it fell not: for it was founded upon a rock.  
+> **²⁶** And every one that heareth these sayings of mine, and doeth them not, shall be likened unto a foolish man, which built his house upon the sand:  
+> **²⁷** And the rain descended, and the floods came, and the winds blew, and beat upon that house; and it fell: and great was the fall of it.  
+> **²⁸** And it came to pass, when Jesus had ended these sayings, the people were astonished at his doctrine:  
+> **²⁹** For he taught them as *one* having authority, and not as the scribes.  
 
 We have here the conclusion of this long and excellent sermon, the scope of which is to show the indispensable necessity of obedience to the commands of Christ; this is designed to clench the nail, that it might fix in a sure place: he speaks this to his disciples, that sat at his feet whenever he preached, and followed him wherever he went. Had he sought his own praise among men, he would have said, that was enough; but the religion he came to establish is in power, not in word only (1Co 4:20), and therefore something more is necessary.
 

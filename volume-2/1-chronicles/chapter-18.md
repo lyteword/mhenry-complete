@@ -8,28 +8,28 @@ David's piety and his prayer we had an account of in the foregoing chapter; here
 
 ## David's Victories. (b. c. 1042.)
 
-> <sup>1</sup> Now after this it came to pass, that David smote the Philistines, and subdued them, and took Gath and her towns out of the hand of the Philistines.  
-> <sup>2</sup> And he smote Moab; and the Moabites became David's servants, *and* brought gifts.  
-> <sup>3</sup> And David smote Hadarezer king of Zobah unto Hamath, as he went to stablish his dominion by the river Euphrates.  
-> <sup>4</sup> And David took from him a thousand chariots, and seven thousand horsemen, and twenty thousand footmen: David also houghed all the chariot *horses,* but reserved of them a hundred chariots.  
-> <sup>5</sup> And when the Syrians of Damascus came to help Hadarezer king of Zobah, David slew of the Syrians two and twenty thousand men.  
-> <sup>6</sup> Then David put *garrisons* in Syria-damascus; and the Syrians became David's servants, *and* brought gifts. Thus the LORD preserved David whithersoever he went.  
-> <sup>7</sup> And David took the shields of gold that were on the servants of Hadarezer, and brought them to Jerusalem.  
-> <sup>8</sup> Likewise from Tibhath, and from Chun, cities of Hadarezer, brought David very much brass, wherewith Solomon made the brasen sea, and the pillars, and the vessels of brass.  
+> **¹** Now after this it came to pass, that David smote the Philistines, and subdued them, and took Gath and her towns out of the hand of the Philistines.  
+> **²** And he smote Moab; and the Moabites became David's servants, *and* brought gifts.  
+> **³** And David smote Hadarezer king of Zobah unto Hamath, as he went to stablish his dominion by the river Euphrates.  
+> **⁴** And David took from him a thousand chariots, and seven thousand horsemen, and twenty thousand footmen: David also houghed all the chariot *horses,* but reserved of them a hundred chariots.  
+> **⁵** And when the Syrians of Damascus came to help Hadarezer king of Zobah, David slew of the Syrians two and twenty thousand men.  
+> **⁶** Then David put *garrisons* in Syria-damascus; and the Syrians became David's servants, *and* brought gifts. Thus the LORD preserved David whithersoever he went.  
+> **⁷** And David took the shields of gold that were on the servants of Hadarezer, and brought them to Jerusalem.  
+> **⁸** Likewise from Tibhath, and from Chun, cities of Hadarezer, brought David very much brass, wherewith Solomon made the brasen sea, and the pillars, and the vessels of brass.  
 
 *After this,* it is said (1Ch 18:1), David did those great exploits. After the sweet communion he had had with God by the word and prayer, as mentioned in the foregoing chapter, he went on his work with extraordinary vigour and courage, *conquering and to conquer.* Thus Jacob, after his vision, lifted up his feet, Ge 29:1.
 
 We have taken a view of these victories before, and shall now only observe, 1. Those that have been long enemies to the Israel of God will be brought down at last. The Philistines had, for several generations, been vexatious to Israel, but now *David subdued them,* 1Ch 18:1. Thus shall all opposing *rule, principality, and power,* be, at the end of time, put down by the Son of David, and the most inveterate enemies shall fall before him. 2. Such is the uncertainty of this world that frequently men lose their wealth and power when they think to confirm it. Hadarezer was smitten *as he went to establish his dominion,* 1Ch 18:3. 3. *A horse is a vain thing for safety,* so David said (Ps 33:17), and it seems he believed what he said, for he *houghed the chariot-horses,* 1Ch 18:4. Being resolved not to trust to them (Ps 20:7), he would not use them. 4. The enemies of God's church are often made to ruin themselves by helping one another, 1Ch 18:5. The Syrians of Damascus were smitten when they came to help Hadarezer. When hand thus joins in hand they shall not only not go unpunished, but thereby they shall be gathered *as the sheaves into the floor,* Mic 4:11,12. 5. The *wealth of the sinner* sometimes proves to have been *laid up for the just.* The *Syrians brought gifts,* 1Ch 18:6. Their shields of gold and their brass were brought to Jerusalem, 1Ch 18:7,8. As the tabernacle was built of the spoils of the Egyptians, so the temple of the spoils of other Gentile nations, a happy presage of the interest the Gentiles should have in the gospel church.
 
-> <sup>9</sup> Now when Tou king of Hamath heard how David had smitten all the host of Hadarezer king of Zobah;  
-> <sup>10</sup> He sent Hadoram his son to king David, to enquire of his welfare, and to congratulate him, because he had fought against Hadarezer, and smitten him; (for Hadarezer had war with Tou;) and *with him* all manner of vessels of gold and silver and brass.  
-> <sup>11</sup> Them also king David dedicated unto the LORD, with the silver and the gold that he brought from all *these* nations; from Edom, and from Moab, and from the children of Ammon, and from the Philistines, and from Amalek.  
-> <sup>12</sup> Moreover Abishai the son of Zeruiah slew of the Edomites in the valley of salt eighteen thousand.  
-> <sup>13</sup> And he put garrisons in Edom; and all the Edomites became David's servants. Thus the LORD preserved David whithersoever he went.  
-> <sup>14</sup> So David reigned over all Israel, and executed judgment and justice among all his people.  
-> <sup>15</sup> And Joab the son of Zeruiah *was* over the host; and Jehoshaphat the son of Ahilud, recorder.  
-> <sup>16</sup> And Zadok the son of Ahitub, and Abimelech the son of Abiathar, *were* the priests; and Shavsha was scribe;  
-> <sup>17</sup> And Benaiah the son of Jehoiada *was* over the Cherethites and the Pelethites; and the sons of David *were* chief about the king.  
+> **⁹** Now when Tou king of Hamath heard how David had smitten all the host of Hadarezer king of Zobah;  
+> **¹⁰** He sent Hadoram his son to king David, to enquire of his welfare, and to congratulate him, because he had fought against Hadarezer, and smitten him; (for Hadarezer had war with Tou;) and *with him* all manner of vessels of gold and silver and brass.  
+> **¹¹** Them also king David dedicated unto the LORD, with the silver and the gold that he brought from all *these* nations; from Edom, and from Moab, and from the children of Ammon, and from the Philistines, and from Amalek.  
+> **¹²** Moreover Abishai the son of Zeruiah slew of the Edomites in the valley of salt eighteen thousand.  
+> **¹³** And he put garrisons in Edom; and all the Edomites became David's servants. Thus the LORD preserved David whithersoever he went.  
+> **¹⁴** So David reigned over all Israel, and executed judgment and justice among all his people.  
+> **¹⁵** And Joab the son of Zeruiah *was* over the host; and Jehoshaphat the son of Ahilud, recorder.  
+> **¹⁶** And Zadok the son of Ahitub, and Abimelech the son of Abiathar, *were* the priests; and Shavsha was scribe;  
+> **¹⁷** And Benaiah the son of Jehoiada *was* over the Cherethites and the Pelethites; and the sons of David *were* chief about the king.  
 
 Here let us learn, 1. That it is our interest to make those our friends who have the presence of God with them. The king of Hamath, hearing of David's great success, sent to congratulate him and to court his favour with a noble present, 1Ch 18:9,10. It is in vain to contend with the Son of David. *Kiss the Son,* therefore, *lest he be angry;* let the kings and judges of the earth, and all inferior people too, be thus wise, thus instructed. The presents we are to bring him are not *vessels of gold and silver,* as here (those shall be welcomed to him who have no such presents to bring), but our hearts and sincere affections, our whole selves, we must present to him as living sacrifices. 2. That what God blesses us with we must honour him with. The presents of his friends, as well as the spoils of his enemies, *David dedicated unto the Lord* (1Ch 18:11), that is, he laid them up towards the building and enriching of the temple. That is most truly and most comfortably our own which we have consecrated unto the Lord, and which we use for his glory. Let our *merchandise and our hire be holiness to the Lord,* Isa 23:18. 3. That those who take God along with them whithersoever they go may expect to prosper, and be preserved, whithersoever they go. It was said before (1Ch 18:6) and here it is repeated (1Ch 18:13) that *the Lord preserved David whithersoever he went.* Those are always under the eye of God that have God always in their eye. 4. God gives men power, not that they may look great with it, but that they may do good with it. When David reigned over all Israel he *executed judgment and justice among all his people,* and so answered the end of his elevation. He was not so intent on his conquests abroad as to neglect the administration of justice at home. Herein he served the purposes of the kingdom of providence, and of that God who *sits in the throne judging right;* and he was an eminent type of the Messiah, the *sceptre of whose kingdom is a right sceptre.*
 

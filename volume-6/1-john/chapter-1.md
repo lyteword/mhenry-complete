@@ -8,10 +8,10 @@ Evidence given concerning Christ's person and excellency, 1Jo 1:1,2. The knowled
 
 ## The Apostolic Testimony. (a. d. 80.)
 
-> <sup>1</sup> That which was from the beginning, which we have heard, which we have seen with our eyes, which we have looked upon, and our hands have handled, of the Word of life;  
-> <sup>2</sup> (For the life was manifested, and we have seen *it,* and bear witness, and show unto you that eternal life, which was with the Father, and was manifested unto us;)  
-> <sup>3</sup> That which we have seen and heard declare we unto you, that ye also may have fellowship with us: and truly our fellowship *is* with the Father, and with his Son Jesus Christ.  
-> <sup>4</sup> And these things write we unto you, that your joy may be full.  
+> **¹** That which was from the beginning, which we have heard, which we have seen with our eyes, which we have looked upon, and our hands have handled, of the Word of life;  
+> **²** (For the life was manifested, and we have seen *it,* and bear witness, and show unto you that eternal life, which was with the Father, and was manifested unto us;)  
+> **³** That which we have seen and heard declare we unto you, that ye also may have fellowship with us: and truly our fellowship *is* with the Father, and with his Son Jesus Christ.  
+> **⁴** And these things write we unto you, that your joy may be full.  
 
 The apostle omits his name and character (as also the author to the Hebrews does) either out of humility, or as being willing that the Christian reader should be swayed by the light and weight of the things written rather than by the name that might recommend them. And so he begins,
 
@@ -29,9 +29,9 @@ IV\. With the reason of the apostle's exhibiting and asserting this summary of s
 
 ## The Apostolic Testimony. (a. d. 80.)
 
-> <sup>5</sup> This then is the message which we have heard of him, and declare unto you, that God is light, and in him is no darkness at all.  
-> <sup>6</sup> If we say that we have fellowship with him, and walk in darkness, we lie, and do not the truth:  
-> <sup>7</sup> But if we walk in the light, as he is in the light, we have fellowship one with another, and the blood of Jesus Christ his Son cleanseth us from all sin.  
+> **⁵** This then is the message which we have heard of him, and declare unto you, that God is light, and in him is no darkness at all.  
+> **⁶** If we say that we have fellowship with him, and walk in darkness, we lie, and do not the truth:  
+> **⁷** But if we walk in the light, as he is in the light, we have fellowship one with another, and the blood of Jesus Christ his Son cleanseth us from all sin.  
 
 The apostle, having declared the truth and dignity of the author of the gospel, brings a message or report from him, from which a just conclusion is to be drawn for the consideration and conviction of the professors of religion, or professed entertainers of this glorious gospel.
 
@@ -41,9 +41,9 @@ II\. There is a just conclusion to be drawn from this message and report, and th
 
 ## Confession and Forgiveness. (a. d. 80.)
 
-> <sup>8</sup> If we say that we have no sin, we deceive ourselves, and the truth is not in us.  
-> <sup>9</sup> If we confess our sins, he is faithful and just to forgive us *our* sins, and to cleanse us from all unrighteousness.  
-> <sup>10</sup> If we say that we have not sinned, we make him a liar, and his word is not in us.  
+> **⁸** If we say that we have no sin, we deceive ourselves, and the truth is not in us.  
+> **⁹** If we confess our sins, he is faithful and just to forgive us *our* sins, and to cleanse us from all unrighteousness.  
+> **¹⁰** If we say that we have not sinned, we make him a liar, and his word is not in us.  
 
 Here, I. The apostle, having supposed that even those of this heavenly communion have yet their sin, proceeds here to justify that supposition, and this he does by showing the dreadful consequences of denying it, and that in two particulars:— 1. *If we say, We have no sin, we deceive ourselves, and the truth is not in us,* 1Jo 1:8. We must beware of deceiving ourselves in denying or excusing our sins. The more we see them the more we shall esteem and value the remedy. *If we deny them, the truth is not in us,* either the truth that is contrary to such denial (we lie in denying our sin), or the truth of religion, is not in us. The Christian religion is the religion of sinners, of such as have sinned, and in whom sin in some measure still dwells. The Christian life is a life of continued repentance, humiliation for and mortification of sin, of continual faith in, thankfulness for, and love to the Redeemer, and hopeful joyful expectation of a day of glorious redemption, in which the believer shall be fully and finally acquitted, and sin abolished for ever. 2. *If we say, We have not sinned, we make him a liar, and his word is not in us,* 1Jo 1:10. The denial of our sin not only deceives ourselves, but reflects dishonour upon God. It challenges his veracity. He has abundantly testified of, and testified against, the sin of the world. *And the Lord said in his heart* (determined thus with himself), *I will not again curse the ground* (as he had then lately done) *for man's sake; for* (or, with the learned bishop Patrick, *though) the imagination of man's heart is evil from his youth,* Ge 8:21. But God has given his testimony to the continued sin and sinfulness of the world, by providing a sufficient effectual sacrifice for sin, that will be needed in all ages, and to the continued sinfulness of believers themselves by requiring them continually to confess their sins, and apply themselves by faith to the blood of that sacrifice. And therefore, if we say either that we have not sinned or do not yet sin, *the word of God is not in us,* neither in our minds, as to the acquaintance we should have with it, nor in our hearts, as to the practical influence it should have upon us.
 

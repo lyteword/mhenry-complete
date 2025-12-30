@@ -8,12 +8,12 @@ We have in this chapter an account of the conquest of the kings and kingdoms of 
 
 ## The Combination Against Gibeon. (b. c. 1450.)
 
-> <sup>1</sup> Now it came to pass, when Adoni-zedec king of Jerusalem had heard how Joshua had taken Ai, and had utterly destroyed it; as he had done to Jericho and her king, so he had done to Ai and her king; and how the inhabitants of Gibeon had made peace with Israel, and were among them;  
-> <sup>2</sup> That they feared greatly, because Gibeon *was* a great city, as one of the royal cities, and because it *was* greater than Ai, and all the men thereof *were* mighty.  
-> <sup>3</sup> Wherefore Adoni-zedec king of Jerusalem sent unto Hoham king of Hebron, and unto Piram king of Jarmuth, and unto Japhia king of Lachish, and unto Debir king of Eglon, saying,  
-> <sup>4</sup> Come up unto me, and help me, that we may smite Gibeon: for it hath made peace with Joshua and with the children of Israel.  
-> <sup>5</sup> Therefore the five kings of the Amorites, the king of Jerusalem, the king of Hebron, the king of Jarmuth, the king of Lachish, the king of Eglon, gathered themselves together, and went up, they and all their hosts, and encamped before Gibeon, and made war against it.  
-> <sup>6</sup> And the men of Gibeon sent unto Joshua to the camp to Gilgal, saying, Slack not thy hand from thy servants; come up to us quickly, and save us, and help us: for all the kings of the Amorites that dwell in the mountains are gathered together against us.  
+> **¹** Now it came to pass, when Adoni-zedec king of Jerusalem had heard how Joshua had taken Ai, and had utterly destroyed it; as he had done to Jericho and her king, so he had done to Ai and her king; and how the inhabitants of Gibeon had made peace with Israel, and were among them;  
+> **²** That they feared greatly, because Gibeon *was* a great city, as one of the royal cities, and because it *was* greater than Ai, and all the men thereof *were* mighty.  
+> **³** Wherefore Adoni-zedec king of Jerusalem sent unto Hoham king of Hebron, and unto Piram king of Jarmuth, and unto Japhia king of Lachish, and unto Debir king of Eglon, saying,  
+> **⁴** Come up unto me, and help me, that we may smite Gibeon: for it hath made peace with Joshua and with the children of Israel.  
+> **⁵** Therefore the five kings of the Amorites, the king of Jerusalem, the king of Hebron, the king of Jarmuth, the king of Lachish, the king of Eglon, gathered themselves together, and went up, they and all their hosts, and encamped before Gibeon, and made war against it.  
+> **⁶** And the men of Gibeon sent unto Joshua to the camp to Gilgal, saying, Slack not thy hand from thy servants; come up to us quickly, and save us, and help us: for all the kings of the Amorites that dwell in the mountains are gathered together against us.  
 
 Joshua and the hosts of Israel had now been a good while in the land of Canaan, and no great matters were effected; they were made masters of Jericho by a miracle, of Ai by stratagem, and of Gibeon by surrender, and that was all; hitherto the progress of their victories had not seemed proportionable to the magnificence of their entry and the glory of their beginnings. Those among them that were impatient of delays, it is probable, complained of Joshua's slowness, and asked why they did not immediately penetrate into the heart of the country, before the enemy could rally their forces to make head against them, why they stood trifling, while they were so confident both of their title and of their success. Thus Joshua's prudence, perhaps, was censured as slothfulness, cowardice, and want of spirit. But, 1. Canaan was not to be conquered in a day. God had said that *by little and little* he would drive out the Canaanites, Ex 23:30. He that believeth will not make haste, or conclude that the promise will never be performed because it is not performed so soon as he expected. 2. Joshua waited for the Canaanites to be the aggressors; let them first make an onset upon Israel, or the allies of Israel, and then their destruction will be, or at least will appear to be, the more just and more justifiable. Joshua had warrant sufficient to set upon them, yet he stays till they strike the first stroke, that he might provide for honest things in the sight, not only of God, but of men; and they would be the more inexcusable in their resistance, now that they had seen what favour the Gibeonites found with Israel. 3. It was for the advantage of Israel to sit still awhile, that the forces of these little kings might unite in one body, and so might the more easily be cut off at one blow. This God had in his eye when he put it into their hearts to combine against Israel; though they designed thereby to strengthen one another, that which he intended was to gather them as sheaves into the floor, to fall together under the flail, Mic 4:12. Thus oftentimes that seeming paradox proves wholesome counsel, *Stay awhile, and we shall have done the sooner.*
 
@@ -21,14 +21,14 @@ After Israel had waited awhile for an occasion to make war upon the Canaanites, 
 
 ## The Sun and Moon Stand Still. (b. c. 1450.)
 
-> <sup>7</sup> So Joshua ascended from Gilgal, he, and all the people of war with him, and all the mighty men of valour.  
-> <sup>8</sup> And the LORD said unto Joshua, Fear them not: for I have delivered them into thine hand; there shall not a man of them stand before thee.  
-> <sup>9</sup> Joshua therefore came unto them suddenly, *and* went up from Gilgal all night.  
-> <sup>10</sup> And the LORD discomfited them before Israel, and slew them with a great slaughter at Gibeon, and chased them along the way that goeth up to Beth-horon, and smote them to Azekah, and unto Makkedah.  
-> <sup>11</sup> And it came to pass, as they fled from before Israel, *and* were in the going down to Beth-horon, that the LORD cast down great stones from heaven upon them unto Azekah, and they died: *they were* more which died with hailstones than *they* whom the children of Israel slew with the sword.  
-> <sup>12</sup> Then spake Joshua to the LORD in the day when the LORD delivered up the Amorites before the children of Israel, and he said in the sight of Israel, Sun, stand thou still upon Gibeon; and thou, Moon, in the valley of Ajalon.  
-> <sup>13</sup> And the sun stood still, and the moon stayed, until the people had avenged themselves upon their enemies. *Is* not this written in the book of Jasher? So the sun stood still in the midst of heaven, and hasted not to go down about a whole day.  
-> <sup>14</sup> And there was no day like that before it or after it, that the LORD hearkened unto the voice of a man: for the LORD fought for Israel.  
+> **⁷** So Joshua ascended from Gilgal, he, and all the people of war with him, and all the mighty men of valour.  
+> **⁸** And the LORD said unto Joshua, Fear them not: for I have delivered them into thine hand; there shall not a man of them stand before thee.  
+> **⁹** Joshua therefore came unto them suddenly, *and* went up from Gilgal all night.  
+> **¹⁰** And the LORD discomfited them before Israel, and slew them with a great slaughter at Gibeon, and chased them along the way that goeth up to Beth-horon, and smote them to Azekah, and unto Makkedah.  
+> **¹¹** And it came to pass, as they fled from before Israel, *and* were in the going down to Beth-horon, that the LORD cast down great stones from heaven upon them unto Azekah, and they died: *they were* more which died with hailstones than *they* whom the children of Israel slew with the sword.  
+> **¹²** Then spake Joshua to the LORD in the day when the LORD delivered up the Amorites before the children of Israel, and he said in the sight of Israel, Sun, stand thou still upon Gibeon; and thou, Moon, in the valley of Ajalon.  
+> **¹³** And the sun stood still, and the moon stayed, until the people had avenged themselves upon their enemies. *Is* not this written in the book of Jasher? So the sun stood still in the midst of heaven, and hasted not to go down about a whole day.  
+> **¹⁴** And there was no day like that before it or after it, that the LORD hearkened unto the voice of a man: for the LORD fought for Israel.  
 
 Here, I. Joshua resolves to assist the Gibeonites, and God encourages him in this resolve. 1. He ascended from Gilgal (Jos 10:7), that is, he designed, determined, and prepared for, this expedition to relieve Gibeon, for it is probable it was before he stirred a step that God spoke to him to encourage him. It was generous and just in Joshua to help his new allies, though perhaps the king of Jerusalem, when he attacked them, little thought that Joshua would be so ready to help them, but expected he would abandon them as Canaanites, the rather because they had obtained their league with him by fraud; therefore he speaks with assurance (Jos 10:4) of smiting Gibeon. But Joshua knew that his promise to let them live obliged him, not only not to slay them himself, but not to stand by and see them slain when it was in the power of his hand to prevent it, Pr 24:11,12. He knew that when they embraced the faith and worship of the God of Israel they came to trust under the shadow of his wings (Ru 2:12), and therefore, as his servants, he was bound to protect them. 2. God animated him for his undertaking, (Jos 10:8): *Fear not,* that is, (1.) "Doubt not of the goodness of thy cause and the clearness of thy call; though it be to assist Gibeonites, thou art in the way of duty, and God is with thee of a truth." (2.) "Dread not the power of the enemy; though so many kings are confederate against thee, and are resolved to make their utmost efforts for the reduction of Gibeon, and it may be will fight desperately in a desperate cause, yet let not this discourage thee, *I have delivered them into thy hand;*" and those can make neither resistance nor escape whom God has marked for destruction.
 
@@ -44,19 +44,19 @@ II\. Joshua applies himself to execute this resolve, and God assists him in the 
 
 ## The Five Kings Slain. (b. c. 1450.)
 
-> <sup>15</sup> And Joshua returned, and all Israel with him, unto the camp to Gilgal.  
-> <sup>16</sup> But these five kings fled, and hid themselves in a cave at Makkedah.  
-> <sup>17</sup> And it was told Joshua, saying, The five kings are found hid in a cave at Makkedah.  
-> <sup>18</sup> And Joshua said, Roll great stones upon the mouth of the cave, and set men by it for to keep them:  
-> <sup>19</sup> And stay ye not, *but* pursue after your enemies, and smite the hindmost of them; suffer them not to enter into their cities: for the LORD your God hath delivered them into your hand.  
-> <sup>20</sup> And it came to pass, when Joshua and the children of Israel had made an end of slaying them with a very great slaughter, till they were consumed, that the rest *which* remained of them entered into fenced cities.  
-> <sup>21</sup> And all the people returned to the camp to Joshua at Makkedah in peace: none moved his tongue against any of the children of Israel.  
-> <sup>22</sup> Then said Joshua, Open the mouth of the cave, and bring out those five kings unto me out of the cave.  
-> <sup>23</sup> And they did so, and brought forth those five kings unto him out of the cave, the king of Jerusalem, the king of Hebron, the king of Jarmuth, the king of Lachish, *and* the king of Eglon.  
-> <sup>24</sup> And it came to pass, when they brought out those kings unto Joshua, that Joshua called for all the men of Israel, and said unto the captains of the men of war which went with him, Come near, put your feet upon the necks of these kings. And they came near, and put their feet upon the necks of them.  
-> <sup>25</sup> And Joshua said unto them, Fear not, nor be dismayed, be strong and of good courage: for thus shall the LORD do to all your enemies against whom ye fight.  
-> <sup>26</sup> And afterward Joshua smote them, and slew them, and hanged them on five trees: and they were hanging upon the trees until the evening.  
-> <sup>27</sup> And it came to pass at the time of the going down of the sun, *that* Joshua commanded, and they took them down off the trees, and cast them into the cave wherein they had been hid, and laid great stones in the cave's mouth, *which remain* until this very day.  
+> **¹⁵** And Joshua returned, and all Israel with him, unto the camp to Gilgal.  
+> **¹⁶** But these five kings fled, and hid themselves in a cave at Makkedah.  
+> **¹⁷** And it was told Joshua, saying, The five kings are found hid in a cave at Makkedah.  
+> **¹⁸** And Joshua said, Roll great stones upon the mouth of the cave, and set men by it for to keep them:  
+> **¹⁹** And stay ye not, *but* pursue after your enemies, and smite the hindmost of them; suffer them not to enter into their cities: for the LORD your God hath delivered them into your hand.  
+> **²⁰** And it came to pass, when Joshua and the children of Israel had made an end of slaying them with a very great slaughter, till they were consumed, that the rest *which* remained of them entered into fenced cities.  
+> **²¹** And all the people returned to the camp to Joshua at Makkedah in peace: none moved his tongue against any of the children of Israel.  
+> **²²** Then said Joshua, Open the mouth of the cave, and bring out those five kings unto me out of the cave.  
+> **²³** And they did so, and brought forth those five kings unto him out of the cave, the king of Jerusalem, the king of Hebron, the king of Jarmuth, the king of Lachish, *and* the king of Eglon.  
+> **²⁴** And it came to pass, when they brought out those kings unto Joshua, that Joshua called for all the men of Israel, and said unto the captains of the men of war which went with him, Come near, put your feet upon the necks of these kings. And they came near, and put their feet upon the necks of them.  
+> **²⁵** And Joshua said unto them, Fear not, nor be dismayed, be strong and of good courage: for thus shall the LORD do to all your enemies against whom ye fight.  
+> **²⁶** And afterward Joshua smote them, and slew them, and hanged them on five trees: and they were hanging upon the trees until the evening.  
+> **²⁷** And it came to pass at the time of the going down of the sun, *that* Joshua commanded, and they took them down off the trees, and cast them into the cave wherein they had been hid, and laid great stones in the cave's mouth, *which remain* until this very day.  
 
 It was a brave appearance, no doubt, which the five kings made when they took the field for the reducing of Gibeon, and a brave army they had following them; but they were all routed, put into disorder first, and then brought to destruction by the hail-stones. And now Joshua thought, his work being done, he might go with his army into quarters of refreshment. Accordingly it was resolved, perhaps in a council of war, that they should presently return *to the camp at Gilgal* (Jos 10:15), till they should receive orders from God to take possession of the country they had now conquered; but he soon finds he has more work cut out for him. The victory must be pursued, that the spoils might be divided. Accordingly he applies himself to it with renewed vigour.
 
@@ -72,22 +72,22 @@ II\. The kings that had hidden themselves must now be called to an account, as r
 
 ## Seven Kings Defeated and Slain. (b. c. 1450.)
 
-> <sup>28</sup> And that day Joshua took Makkedah, and smote it with the edge of the sword, and the king thereof he utterly destroyed, them, and all the souls that *were* therein; he let none remain: and he did to the king of Makkedah as he did unto the king of Jericho.  
-> <sup>29</sup> Then Joshua passed from Makkedah, and all Israel with him, unto Libnah, and fought against Libnah:  
-> <sup>30</sup> And the LORD delivered it also, and the king thereof, into the hand of Israel; and he smote it with the edge of the sword, and all the souls that *were* therein; he let none remain in it; but did unto the king thereof as he did unto the king of Jericho.  
-> <sup>31</sup> And Joshua passed from Libnah, and all Israel with him, unto Lachish, and encamped against it, and fought against it:  
-> <sup>32</sup> And the LORD delivered Lachish into the hand of Israel, which took it on the second day, and smote it with the edge of the sword, and all the souls that *were* therein, according to all that he had done to Libnah.  
-> <sup>33</sup> Then Horam king of Gezer came up to help Lachish; and Joshua smote him and his people, until he had left him none remaining.  
-> <sup>34</sup> And from Lachish Joshua passed unto Eglon, and all Israel with him; and they encamped against it, and fought against it:  
-> <sup>35</sup> And they took it on that day, and smote it with the edge of the sword, and all the souls that *were* therein he utterly destroyed that day, according to all that he had done to Lachish.  
-> <sup>36</sup> And Joshua went up from Eglon, and all Israel with him, unto Hebron; and they fought against it:  
-> <sup>37</sup> And they took it, and smote it with the edge of the sword, and the king thereof, and all the cities thereof, and all the souls that *were* therein; he left none remaining, according to all that he had done to Eglon; but destroyed it utterly, and all the souls that *were* therein.  
-> <sup>38</sup> And Joshua returned, and all Israel with him, to Debir; and fought against it:  
-> <sup>39</sup> And he took it, and the king thereof, and all the cities thereof; and they smote them with the edge of the sword, and utterly destroyed all the souls that *were* therein; he left none remaining: as he had done to Hebron, so he did to Debir, and to the king thereof; as he had done also to Libnah, and to her king.  
-> <sup>40</sup> So Joshua smote all the country of the hills, and of the south, and of the vale, and of the springs, and all their kings: he left none remaining, but utterly destroyed all that breathed, as the LORD God of Israel commanded.  
-> <sup>41</sup> And Joshua smote them from Kadesh-barnea even unto Gaza, and all the country of Goshen, even unto Gibeon.  
-> <sup>42</sup> And all these kings and their land did Joshua take at one time, because the LORD God of Israel fought for Israel.  
-> <sup>43</sup> And Joshua returned, and all Israel with him, unto the camp to Gilgal.  
+> **²⁸** And that day Joshua took Makkedah, and smote it with the edge of the sword, and the king thereof he utterly destroyed, them, and all the souls that *were* therein; he let none remain: and he did to the king of Makkedah as he did unto the king of Jericho.  
+> **²⁹** Then Joshua passed from Makkedah, and all Israel with him, unto Libnah, and fought against Libnah:  
+> **³⁰** And the LORD delivered it also, and the king thereof, into the hand of Israel; and he smote it with the edge of the sword, and all the souls that *were* therein; he let none remain in it; but did unto the king thereof as he did unto the king of Jericho.  
+> **³¹** And Joshua passed from Libnah, and all Israel with him, unto Lachish, and encamped against it, and fought against it:  
+> **³²** And the LORD delivered Lachish into the hand of Israel, which took it on the second day, and smote it with the edge of the sword, and all the souls that *were* therein, according to all that he had done to Libnah.  
+> **³³** Then Horam king of Gezer came up to help Lachish; and Joshua smote him and his people, until he had left him none remaining.  
+> **³⁴** And from Lachish Joshua passed unto Eglon, and all Israel with him; and they encamped against it, and fought against it:  
+> **³⁵** And they took it on that day, and smote it with the edge of the sword, and all the souls that *were* therein he utterly destroyed that day, according to all that he had done to Lachish.  
+> **³⁶** And Joshua went up from Eglon, and all Israel with him, unto Hebron; and they fought against it:  
+> **³⁷** And they took it, and smote it with the edge of the sword, and the king thereof, and all the cities thereof, and all the souls that *were* therein; he left none remaining, according to all that he had done to Eglon; but destroyed it utterly, and all the souls that *were* therein.  
+> **³⁸** And Joshua returned, and all Israel with him, to Debir; and fought against it:  
+> **³⁹** And he took it, and the king thereof, and all the cities thereof; and they smote them with the edge of the sword, and utterly destroyed all the souls that *were* therein; he left none remaining: as he had done to Hebron, so he did to Debir, and to the king thereof; as he had done also to Libnah, and to her king.  
+> **⁴⁰** So Joshua smote all the country of the hills, and of the south, and of the vale, and of the springs, and all their kings: he left none remaining, but utterly destroyed all that breathed, as the LORD God of Israel commanded.  
+> **⁴¹** And Joshua smote them from Kadesh-barnea even unto Gaza, and all the country of Goshen, even unto Gibeon.  
+> **⁴²** And all these kings and their land did Joshua take at one time, because the LORD God of Israel fought for Israel.  
+> **⁴³** And Joshua returned, and all Israel with him, unto the camp to Gilgal.  
 
 We are here informed how Joshua improved the late glorious victory he had obtained and the advantages he had gained by it, and to do this well is a general's praise.
 

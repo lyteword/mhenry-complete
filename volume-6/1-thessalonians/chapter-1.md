@@ -8,7 +8,7 @@ After the introduction (1Th 1:1) the apostle begins with a thanksgiving to God f
 
 ## Inscription and Apostolical Salutation. (a. d. 51.)
 
-> <sup>1</sup> Paul, and Silvanus, and Timotheus, unto the church of the Thessalonians *which is* in God the Father and *in* the Lord Jesus Christ: Grace *be* unto you, and peace, from God our Father, and the Lord Jesus Christ.  
+> **¹** Paul, and Silvanus, and Timotheus, unto the church of the Thessalonians *which is* in God the Father and *in* the Lord Jesus Christ: Grace *be* unto you, and peace, from God our Father, and the Lord Jesus Christ.  
 
 In this introduction we have,
 
@@ -18,10 +18,10 @@ II\. The salutation or apostolical benediction: *Grace be with you, and peace fr
 
 ## Thanksgiving to God. (a. d. 51.)
 
-> <sup>2</sup> We give thanks to God always for you all, making mention of you in our prayers;  
-> <sup>3</sup> Remembering without ceasing your work of faith, and labour of love, and patience of hope in our Lord Jesus Christ, in the sight of God and our Father;  
-> <sup>4</sup> Knowing, brethren beloved, your election of God.  
-> <sup>5</sup> For our gospel came not unto you in word only, but also in power, and in the Holy Ghost, and in much assurance; as ye know what manner of men we were among you for your sake.  
+> **²** We give thanks to God always for you all, making mention of you in our prayers;  
+> **³** Remembering without ceasing your work of faith, and labour of love, and patience of hope in our Lord Jesus Christ, in the sight of God and our Father;  
+> **⁴** Knowing, brethren beloved, your election of God.  
+> **⁵** For our gospel came not unto you in word only, but also in power, and in the Holy Ghost, and in much assurance; as ye know what manner of men we were among you for your sake.  
 
 I\. The apostle begins with thanksgiving to God. Being about to mention the things that were matter of joy to him, and highly praiseworthy in them, and greatly for their advantage, he chooses to do this by way of thanksgiving to God, who is the author of all that good that comes to us, or is done by us, at any time. God is the object of all religious worship, of prayer and praise. And thanksgiving to God is a great duty, to be performed always or constantly; even when we do not actually give thanks to God by our words, we should have a grateful sense of God's goodness upon our minds. Thanksgiving should be often repeated; and not only should we be thankful for the favours we ourselves receive, but for the benefits bestowed on others also, upon our fellow-creatures and fellow-christians. The apostle gave thanks not only for those who were his most intimate friends, or most eminently favoured of God, but for them all.
 
@@ -37,11 +37,11 @@ III\. He mentions the particulars for which he was so thankful to God; namely,
 
 ## Evidence of the Apostle's Success. (a. d. 51.)
 
-> <sup>6</sup> And ye became followers of us, and of the Lord, having received the word in much affliction, with joy of the Holy Ghost:  
-> <sup>7</sup> So that ye were ensamples to all that believe in Macedonia and Achaia.  
-> <sup>8</sup> For from you sounded out the word of the Lord not only in Macedonia and Achaia, but also in every place your faith to God-ward is spread abroad; so that we need not to speak any thing.  
-> <sup>9</sup> For they themselves show of us what manner of entering in we had unto you, and how ye turned to God from idols to serve the living and true God;  
-> <sup>10</sup> And to wait for his Son from heaven, whom he raised from the dead, *even* Jesus, which delivered us from the wrath to come.  
+> **⁶** And ye became followers of us, and of the Lord, having received the word in much affliction, with joy of the Holy Ghost:  
+> **⁷** So that ye were ensamples to all that believe in Macedonia and Achaia.  
+> **⁸** For from you sounded out the word of the Lord not only in Macedonia and Achaia, but also in every place your faith to God-ward is spread abroad; so that we need not to speak any thing.  
+> **⁹** For they themselves show of us what manner of entering in we had unto you, and how ye turned to God from idols to serve the living and true God;  
+> **¹⁰** And to wait for his Son from heaven, whom he raised from the dead, *even* Jesus, which delivered us from the wrath to come.  
 
 In these words we have the evidence of the apostle's success among the Thessalonians, which was notorious and famous in several places. For,
 

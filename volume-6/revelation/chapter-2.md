@@ -8,13 +8,13 @@ The apostle John, having in the foregoing chapter written the things which he ha
 
 ## The Church in Ephesus. (a. d. 95.)
 
-> <sup>1</sup> Unto the angel of the church of Ephesus write; These things saith he that holdeth the seven stars in his right hand, who walketh in the midst of the seven golden candlesticks;  
-> <sup>2</sup> I know thy works, and thy labour, and thy patience, and how thou canst not bear them which are evil: and thou hast tried them which say they are apostles, and are not, and hast found them liars:  
-> <sup>3</sup> And hast borne, and hast patience, and for my name's sake hast laboured, and hast not fainted.  
-> <sup>4</sup> Nevertheless I have *somewhat* against thee, because thou hast left thy first love.  
-> <sup>5</sup> Remember therefore from whence thou art fallen, and repent, and do the first works; or else I will come unto thee quickly, and will remove thy candlestick out of his place, except thou repent.  
-> <sup>6</sup> But this thou hast, that thou hatest the deeds of the Nicolaitans, which I also hate.  
-> <sup>7</sup> He that hath an ear, let him hear what the Spirit saith unto the churches; To him that overcometh will I give to eat of the tree of life, which is in the midst of the paradise of God.  
+> **¹** Unto the angel of the church of Ephesus write; These things saith he that holdeth the seven stars in his right hand, who walketh in the midst of the seven golden candlesticks;  
+> **²** I know thy works, and thy labour, and thy patience, and how thou canst not bear them which are evil: and thou hast tried them which say they are apostles, and are not, and hast found them liars:  
+> **³** And hast borne, and hast patience, and for my name's sake hast laboured, and hast not fainted.  
+> **⁴** Nevertheless I have *somewhat* against thee, because thou hast left thy first love.  
+> **⁵** Remember therefore from whence thou art fallen, and repent, and do the first works; or else I will come unto thee quickly, and will remove thy candlestick out of his place, except thou repent.  
+> **⁶** But this thou hast, that thou hatest the deeds of the Nicolaitans, which I also hate.  
+> **⁷** He that hath an ear, let him hear what the Spirit saith unto the churches; To him that overcometh will I give to eat of the tree of life, which is in the midst of the paradise of God.  
 
 We have here,
 
@@ -38,10 +38,10 @@ III\. We have the conclusion of this epistle, in which, as in those that follow,
 
 ## The Church in Smyrna. (a. d. 95.)
 
-> <sup>8</sup> And unto the angel of the church in Smyrna write; These things saith the first and the last, which was dead, and is alive;  
-> <sup>9</sup> I know thy works, and tribulation, and poverty, (but thou art rich) and *I know* the blasphemy of them which say they are Jews, and are not, but *are* the synagogue of Satan.  
-> <sup>10</sup> Fear none of those things which thou shalt suffer: behold, the devil shall cast *some* of you into prison, that ye may be tried; and ye shall have tribulation ten days: be thou faithful unto death, and I will give thee a crown of life.  
-> <sup>11</sup> He that hath an ear, let him hear what the Spirit saith unto the churches; He that overcometh shall not be hurt of the second death.  
+> **⁸** And unto the angel of the church in Smyrna write; These things saith the first and the last, which was dead, and is alive;  
+> **⁹** I know thy works, and tribulation, and poverty, (but thou art rich) and *I know* the blasphemy of them which say they are Jews, and are not, but *are* the synagogue of Satan.  
+> **¹⁰** Fear none of those things which thou shalt suffer: behold, the devil shall cast *some* of you into prison, that ye may be tried; and ye shall have tribulation ten days: be thou faithful unto death, and I will give thee a crown of life.  
+> **¹¹** He that hath an ear, let him hear what the Spirit saith unto the churches; He that overcometh shall not be hurt of the second death.  
 
 We now proceed to the second epistle sent to another of the Asian churches, where, as before, observe,
 
@@ -61,12 +61,12 @@ III\. The conclusion of this message, and that, as before, 1. With a call to uni
 
 ## The Church in Pergamos. (a. d. 95.)
 
-> <sup>12</sup> And to the angel of the church in Pergamos write; These things saith he which hath the sharp sword with two edges;  
-> <sup>13</sup> I know thy works, and where thou dwellest, *even* where Satan's seat *is:* and thou holdest fast my name, and hast not denied my faith, even in those days wherein Antipas *was* my faithful martyr, who was slain among you, where Satan dwelleth.  
-> <sup>14</sup> But I have a few things against thee, because thou hast there them that hold the doctrine of Balaam, who taught Balac to cast a stumblingblock before the children of Israel, to eat things sacrificed unto idols, and to commit fornication.  
-> <sup>15</sup> So hast thou also them that hold the doctrine of the Nicolaitans, which thing I hate.  
-> <sup>16</sup> Repent; or else I will come unto thee quickly, and will fight against them with the sword of my mouth.  
-> <sup>17</sup> He that hath an ear, let him hear what the Spirit saith unto the churches; To him that overcometh will I give to eat of the hidden manna, and will give him a white stone, and in the stone a new name written, which no man knoweth saving he that receiveth *it.*  
+> **¹²** And to the angel of the church in Pergamos write; These things saith he which hath the sharp sword with two edges;  
+> **¹³** I know thy works, and where thou dwellest, *even* where Satan's seat *is:* and thou holdest fast my name, and hast not denied my faith, even in those days wherein Antipas *was* my faithful martyr, who was slain among you, where Satan dwelleth.  
+> **¹⁴** But I have a few things against thee, because thou hast there them that hold the doctrine of Balaam, who taught Balac to cast a stumblingblock before the children of Israel, to eat things sacrificed unto idols, and to commit fornication.  
+> **¹⁵** So hast thou also them that hold the doctrine of the Nicolaitans, which thing I hate.  
+> **¹⁶** Repent; or else I will come unto thee quickly, and will fight against them with the sword of my mouth.  
+> **¹⁷** He that hath an ear, let him hear what the Spirit saith unto the churches; To him that overcometh will I give to eat of the hidden manna, and will give him a white stone, and in the stone a new name written, which no man knoweth saving he that receiveth *it.*  
 
 Here also we are to consider,
 
@@ -86,18 +86,18 @@ III\. We have the conclusion of this epistle, where, after the usual demand of u
 
 ## The Church in Thyatira. (a. d. 95.)
 
-> <sup>18</sup> And unto the angel of the church in Thyatira write; These things saith the Son of God, who hath his eyes like unto a flame of fire, and his feet *are* like fine brass;  
-> <sup>19</sup> I know thy works, and charity, and service, and faith, and thy patience, and thy works; and the last *to be* more than the first.  
-> <sup>20</sup> Notwithstanding I have a few things against thee, because thou sufferest that woman Jezebel, which calleth herself a prophetess, to teach and to seduce my servants to commit fornication, and to eat things sacrificed unto idols.  
-> <sup>21</sup> And I gave her space to repent of her fornication; and she repented not.  
-> <sup>22</sup> Behold, I will cast her into a bed, and them that commit adultery with her into great tribulation, except they repent of their deeds.  
-> <sup>23</sup> And I will kill her children with death; and all the churches shall know that I am he which searcheth the reins and hearts: and I will give unto every one of you according to your works.  
-> <sup>24</sup> But unto you I say, and unto the rest in Thyatira, as many as have not this doctrine, and which have not known the depths of Satan, as they speak; I will put upon you none other burden.  
-> <sup>25</sup> But that which ye have *already* hold fast till I come.  
-> <sup>26</sup> And he that overcometh, and keepeth my works unto the end, to him will I give power over the nations:  
-> <sup>27</sup> And he shall rule them with a rod of iron; as the vessels of a potter shall they be broken to shivers: even as I received of my Father.  
-> <sup>28</sup> And I will give him the morning star.  
-> <sup>29</sup> He that hath an ear, let him hear what the Spirit saith unto the churches.  
+> **¹⁸** And unto the angel of the church in Thyatira write; These things saith the Son of God, who hath his eyes like unto a flame of fire, and his feet *are* like fine brass;  
+> **¹⁹** I know thy works, and charity, and service, and faith, and thy patience, and thy works; and the last *to be* more than the first.  
+> **²⁰** Notwithstanding I have a few things against thee, because thou sufferest that woman Jezebel, which calleth herself a prophetess, to teach and to seduce my servants to commit fornication, and to eat things sacrificed unto idols.  
+> **²¹** And I gave her space to repent of her fornication; and she repented not.  
+> **²²** Behold, I will cast her into a bed, and them that commit adultery with her into great tribulation, except they repent of their deeds.  
+> **²³** And I will kill her children with death; and all the churches shall know that I am he which searcheth the reins and hearts: and I will give unto every one of you according to your works.  
+> **²⁴** But unto you I say, and unto the rest in Thyatira, as many as have not this doctrine, and which have not known the depths of Satan, as they speak; I will put upon you none other burden.  
+> **²⁵** But that which ye have *already* hold fast till I come.  
+> **²⁶** And he that overcometh, and keepeth my works unto the end, to him will I give power over the nations:  
+> **²⁷** And he shall rule them with a rod of iron; as the vessels of a potter shall they be broken to shivers: even as I received of my Father.  
+> **²⁸** And I will give him the morning star.  
+> **²⁹** He that hath an ear, let him hear what the Spirit saith unto the churches.  
 
 The form of each epistle is very much the same; and in this, as the rest, we have to consider the inscription, contents, and conclusion.
 

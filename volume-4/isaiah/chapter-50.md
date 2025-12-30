@@ -8,9 +8,9 @@ In this chapter, I. Those to whom God sends are justly charged with bringing all
 
 ## Expostulations with Israel. (b. c. 706.)
 
-> <sup>1</sup> Thus saith the LORD, Where *is* the bill of your mother's divorcement, whom I have put away? or which of my creditors *is it* to whom I have sold you? Behold, for your iniquities have ye sold yourselves, and for your transgressions is your mother put away.  
-> <sup>2</sup> Wherefore, when I came, *was there* no man? when I called, *was there* none to answer? Is my hand shortened at all, that it cannot redeem? or have I no power to deliver? behold, at my rebuke I dry up the sea, I make the rivers a wilderness: their fish stinketh, because *there is* no water, and dieth for thirst.  
-> <sup>3</sup> I clothe the heavens with blackness, and I make sackcloth their covering.  
+> **¹** Thus saith the LORD, Where *is* the bill of your mother's divorcement, whom I have put away? or which of my creditors *is it* to whom I have sold you? Behold, for your iniquities have ye sold yourselves, and for your transgressions is your mother put away.  
+> **²** Wherefore, when I came, *was there* no man? when I called, *was there* none to answer? Is my hand shortened at all, that it cannot redeem? or have I no power to deliver? behold, at my rebuke I dry up the sea, I make the rivers a wilderness: their fish stinketh, because *there is* no water, and dieth for thirst.  
+> **³** I clothe the heavens with blackness, and I make sackcloth their covering.  
 
 Those who have professed to be the people of God, and yet seem to be dealt severely with, are apt to complain of God, and to lay the fault upon him, as if he had been hard with them. But, in answer to their murmurings, we have here,
 
@@ -22,12 +22,12 @@ III\. The confirmation of this challenge and this charge. 1. It is plain that it
 
 ## Work and Sufferings of the Messiah. (b. c. 706.)
 
-> <sup>4</sup> The Lord GOD hath given me the tongue of the learned, that I should know how to speak a word in season to *him that is* weary: he wakeneth morning by morning, he wakeneth mine ear to hear as the learned.  
-> <sup>5</sup> The Lord GOD hath opened mine ear, and I was not rebellious, neither turned away back.  
-> <sup>6</sup> I gave my back to the smiters, and my cheeks to them that plucked off the hair: I hid not my face from shame and spitting.  
-> <sup>7</sup> For the Lord GOD will help me; therefore shall I not be confounded: therefore have I set my face like a flint, and I know that I shall not be ashamed.  
-> <sup>8</sup> *He is* near that justifieth me; who will contend with me? let us stand together: who *is* mine adversary? let him come near to me.  
-> <sup>9</sup> Behold, the Lord GOD will help me; who *is* he *that* shall condemn me? lo, they all shall wax old as a garment; the moth shall eat them up.  
+> **⁴** The Lord GOD hath given me the tongue of the learned, that I should know how to speak a word in season to *him that is* weary: he wakeneth morning by morning, he wakeneth mine ear to hear as the learned.  
+> **⁵** The Lord GOD hath opened mine ear, and I was not rebellious, neither turned away back.  
+> **⁶** I gave my back to the smiters, and my cheeks to them that plucked off the hair: I hid not my face from shame and spitting.  
+> **⁷** For the Lord GOD will help me; therefore shall I not be confounded: therefore have I set my face like a flint, and I know that I shall not be ashamed.  
+> **⁸** *He is* near that justifieth me; who will contend with me? let us stand together: who *is* mine adversary? let him come near to me.  
+> **⁹** Behold, the Lord GOD will help me; who *is* he *that* shall condemn me? lo, they all shall wax old as a garment; the moth shall eat them up.  
 
 Our Lord Jesus, having proved himself able to save, here shows himself as willing as he is able. We suppose the prophet Isaiah to say something of himself in these verses, engaging and encouraging himself to go on in his work as a prophet, notwithstanding the many hardships he met with, not doubting but that God would stand by him and strengthen him; but, like David, he speaks of himself as a type of Christ, who is here prophesied of and promised to be the Saviour.
 
@@ -39,8 +39,8 @@ III\. As a courageous champion, Isa 50:7-9. The Redeemer is as famous for his bo
 
 ## The Disconsolate Encouraged. (b. c. 706.)
 
-> <sup>10</sup> Who *is* among you that feareth the LORD, that obeyeth the voice of his servant, that walketh *in* darkness, and hath no light? let him trust in the name of the LORD, and stay upon his God.  
-> <sup>11</sup> Behold, all ye that kindle a fire, that compass *yourselves* about with sparks: walk in the light of your fire, and in the sparks *that* ye have kindled. This shall ye have of mine hand; ye shall lie down in sorrow.  
+> **¹⁰** Who *is* among you that feareth the LORD, that obeyeth the voice of his servant, that walketh *in* darkness, and hath no light? let him trust in the name of the LORD, and stay upon his God.  
+> **¹¹** Behold, all ye that kindle a fire, that compass *yourselves* about with sparks: walk in the light of your fire, and in the sparks *that* ye have kindled. This shall ye have of mine hand; ye shall lie down in sorrow.  
 
 The prophet, having the tongue of the learned given him, that he might give to every one his portion, here makes use of it, rightly dividing the word of truth. It is the summary of the gospel. *He that believes shall be saved* (he that trusts in the name of the Lord shall be comforted, though for a while he walk in darkness and have no light), but *he that believes not shall be damned;* though for a while he walk in the light of his own fire, yet he shall lie down in sorrow.
 

@@ -8,14 +8,14 @@ David, having several times narrowly escaped Saul's fury, begins to consider at 
 
 ## David Consults Jonathan. (b. c. 1058.)
 
-> <sup>1</sup> And David fled from Naioth in Ramah, and came and said before Jonathan, What have I done? what *is* mine iniquity? and what *is* my sin before thy father, that he seeketh my life?  
-> <sup>2</sup> And he said unto him, God forbid; thou shalt not die: behold, my father will do nothing either great or small, but that he will shew it me: and why should my father hide this thing from me? it *is* not *so.*  
-> <sup>3</sup> And David sware moreover, and said, Thy father certainly knoweth that I have found grace in thine eyes; and he saith, Let not Jonathan know this, lest he be grieved: but truly *as* the LORD liveth, and *as* thy soul liveth, *there is* but a step between me and death.  
-> <sup>4</sup> Then said Jonathan unto David, Whatsoever thy soul desireth, I will even do *it* for thee.  
-> <sup>5</sup> And David said unto Jonathan, Behold, to morrow *is* the new moon, and I should not fail to sit with the king at meat: but let me go, that I may hide myself in the field unto the third *day* at even.  
-> <sup>6</sup> If thy father at all miss me, then say, David earnestly asked *leave* of me that he might run to Bethlehem his city: for *there is* a yearly sacrifice there for all the family.  
-> <sup>7</sup> If he say thus, *It is* well; thy servant shall have peace: but if he be very wroth, *then* be sure that evil is determined by him.  
-> <sup>8</sup> Therefore thou shalt deal kindly with thy servant; for thou hast brought thy servant into a covenant of the LORD with thee: notwithstanding, if there be in me iniquity, slay me thyself; for why shouldest thou bring me to thy father?  
+> **¹** And David fled from Naioth in Ramah, and came and said before Jonathan, What have I done? what *is* mine iniquity? and what *is* my sin before thy father, that he seeketh my life?  
+> **²** And he said unto him, God forbid; thou shalt not die: behold, my father will do nothing either great or small, but that he will shew it me: and why should my father hide this thing from me? it *is* not *so.*  
+> **³** And David sware moreover, and said, Thy father certainly knoweth that I have found grace in thine eyes; and he saith, Let not Jonathan know this, lest he be grieved: but truly *as* the LORD liveth, and *as* thy soul liveth, *there is* but a step between me and death.  
+> **⁴** Then said Jonathan unto David, Whatsoever thy soul desireth, I will even do *it* for thee.  
+> **⁵** And David said unto Jonathan, Behold, to morrow *is* the new moon, and I should not fail to sit with the king at meat: but let me go, that I may hide myself in the field unto the third *day* at even.  
+> **⁶** If thy father at all miss me, then say, David earnestly asked *leave* of me that he might run to Bethlehem his city: for *there is* a yearly sacrifice there for all the family.  
+> **⁷** If he say thus, *It is* well; thy servant shall have peace: but if he be very wroth, *then* be sure that evil is determined by him.  
+> **⁸** Therefore thou shalt deal kindly with thy servant; for thou hast brought thy servant into a covenant of the LORD with thee: notwithstanding, if there be in me iniquity, slay me thyself; for why shouldest thou bring me to thy father?  
 
 Here, I. David makes a representation to Jonathan of his present troubles. While Saul lay bound by his trance at Naioth David escaped to the court, and got to speak with Jonathan. And it was happy for him that he had such a friend at court, when he had such an enemy on the throne. If there be those that hate and despise us, let us not be disturbed at that, for there are those also that love and respect us. God hath set the one over against the other, and so must we. Jonathan was a friend that loved at all times, loved David as well now in his distress, and bade him as welcome into his arms, as he had done when he was in his triumph (1Sa 18:1), and he was *a brother that was born for adversity,* Pr 17:17. Now, 1. David appeals to Jonathan himself concerning his innocency, and he needed not say much to him for the proof of it, only he desired him that if he knew of any just offence he had given his father he would tell him, that he might humble himself and beg his pardon: *What have I done?* 1Sa 20:1. 2. He endeavors to convince him that, notwithstanding his innocency, Saul sought his life. Jonathan, from a principal of filial respect to his father, was very loth to believe that he designed or would ever do so wicked a thing, 1Sa 20:2. He the rather hoped so because he knew nothing of any such design, and he had usually been made privy to all his counsels. Jonathan, as became a dutiful son, endeavored to cover his father's shame, as far as was consistent with justice and fidelity to David. Charity is not forward to think evil of any, especially of a parent, 1Co 13:5. David therefore gives him the assurance of an oath concerning his own danger, swears the peace upon Saul, that he was in fear of his life by him: "*As the Lord liveth,* than which nothing more sure in itself, and as *thy soul liveth,* than which nothing more certain to thee, whatever thou thinkest, *there is but a step between me and death,*" 1Sa 20:3. And, as for Saul's concealing it from Jonathan, it was easy to account for that; he knew the friendship between him and David, and therefore, though in other things he advised with him, yet not in that. None more fit than Jonathan to serve him in every design that was just and honourable, but he knew him to be a man of more virtue than to be his confidant in so base a design as the murder of David.
 
@@ -25,21 +25,21 @@ III\. David only desires him to satisfy himself, and then to satisfy him whether
 
 ## Jonathan's Covenant with David. (b. c. 1058.)
 
-> <sup>9</sup> And Jonathan said, Far be it from thee: for if I knew certainly that evil were determined by my father to come upon thee, then would not I tell it thee?  
-> <sup>10</sup> Then said David to Jonathan, Who shall tell me? or what *if* thy father answer thee roughly?  
-> <sup>11</sup> And Jonathan said unto David, Come, and let us go out into the field. And they went out both of them into the field.  
-> <sup>12</sup> And Jonathan said unto David, O LORD God of Israel, when I have sounded my father about to morrow any time, *or* the third *day,* and, behold, *if there be* good toward David, and I then send not unto thee, and shew it thee;  
-> <sup>13</sup> The LORD do so and much more to Jonathan: but if it please my father *to do* thee evil, then I will shew it thee, and send thee away, that thou mayest go in peace: and the LORD be with thee, as he hath been with my father.  
-> <sup>14</sup> And thou shalt not only while yet I live shew me the kindness of the LORD, that I die not:  
-> <sup>15</sup> But *also* thou shalt not cut off thy kindness from my house for ever: no, not when the LORD hath cut off the enemies of David every one from the face of the earth.  
-> <sup>16</sup> So Jonathan made *a covenant* with the house of David, *saying,* Let the LORD even require *it* at the hand of David's enemies.  
-> <sup>17</sup> And Jonathan caused David to swear again, because he loved him: for he loved him as he loved his own soul.  
-> <sup>18</sup> Then Jonathan said to David, To morrow *is* the new moon: and thou shalt be missed, because thy seat will be empty.  
-> <sup>19</sup> And *when* thou hast stayed three days, *then* thou shalt go down quickly, and come to the place where thou didst hide thyself when the business was *in hand,* and shalt remain by the stone Ezel.  
-> <sup>20</sup> And I will shoot three arrows on the side *thereof,* as though I shot at a mark.  
-> <sup>21</sup> And, behold, I will send a lad, *saying,* Go, find out the arrows. If I expressly say unto the lad, Behold, the arrows *are* on this side of thee, take them; then come thou: for *there is* peace to thee, and no hurt; *as* the LORD liveth.  
-> <sup>22</sup> But if I say thus unto the young man, Behold, the arrows *are* beyond thee; go thy way: for the LORD hath sent thee away.  
-> <sup>23</sup> And *as touching* the matter which thou and I have spoken of, behold, the LORD *be* between thee and me for ever.  
+> **⁹** And Jonathan said, Far be it from thee: for if I knew certainly that evil were determined by my father to come upon thee, then would not I tell it thee?  
+> **¹⁰** Then said David to Jonathan, Who shall tell me? or what *if* thy father answer thee roughly?  
+> **¹¹** And Jonathan said unto David, Come, and let us go out into the field. And they went out both of them into the field.  
+> **¹²** And Jonathan said unto David, O LORD God of Israel, when I have sounded my father about to morrow any time, *or* the third *day,* and, behold, *if there be* good toward David, and I then send not unto thee, and shew it thee;  
+> **¹³** The LORD do so and much more to Jonathan: but if it please my father *to do* thee evil, then I will shew it thee, and send thee away, that thou mayest go in peace: and the LORD be with thee, as he hath been with my father.  
+> **¹⁴** And thou shalt not only while yet I live shew me the kindness of the LORD, that I die not:  
+> **¹⁵** But *also* thou shalt not cut off thy kindness from my house for ever: no, not when the LORD hath cut off the enemies of David every one from the face of the earth.  
+> **¹⁶** So Jonathan made *a covenant* with the house of David, *saying,* Let the LORD even require *it* at the hand of David's enemies.  
+> **¹⁷** And Jonathan caused David to swear again, because he loved him: for he loved him as he loved his own soul.  
+> **¹⁸** Then Jonathan said to David, To morrow *is* the new moon: and thou shalt be missed, because thy seat will be empty.  
+> **¹⁹** And *when* thou hast stayed three days, *then* thou shalt go down quickly, and come to the place where thou didst hide thyself when the business was *in hand,* and shalt remain by the stone Ezel.  
+> **²⁰** And I will shoot three arrows on the side *thereof,* as though I shot at a mark.  
+> **²¹** And, behold, I will send a lad, *saying,* Go, find out the arrows. If I expressly say unto the lad, Behold, the arrows *are* on this side of thee, take them; then come thou: for *there is* peace to thee, and no hurt; *as* the LORD liveth.  
+> **²²** But if I say thus unto the young man, Behold, the arrows *are* beyond thee; go thy way: for the LORD hath sent thee away.  
+> **²³** And *as touching* the matter which thou and I have spoken of, behold, the LORD *be* between thee and me for ever.  
 
 Here, I. Jonathan protests his fidelity to David in his distress. Notwithstanding the strong confidence David had in Jonathan, yet, because he might have some reason to fear that his father's influence, and his own interest, should make him warp, or grow cool towards him, Jonathan thought it requisite solemnly to renew the professions of his friendship to him (1Sa 20:9): "*Far be it from thee* to think that I suspect thee of any crime for which I should either slay thee myself or deliver thee to my father; no, if thou hast any jealousy of that, *Come let us go into the field* (1Sa 20:11), and talk it over more fully." He did not challenge him to the field to fight him for an affront, but to fix him in his friendship. He faithfully promised him that he would let him know how, upon trial, he found his father affected towards him, and would make the matter neither better nor worse than it was. "If there be *good towards thee,* I will *show it thee,* that thou mayest be easy (1Sa 20:12), if evil, I will *send thee away,* that thou mayest be safe" (1Sa 20:13); and thus he would help to deliver him from the evil if it were real and from the fear of evil if it were but imaginary. For the confirmation of his promise he appeals to God, 1. As a witness (1Sa 20:12): "*O Lord God of Israel,* thou knowest I mean sincerely, and think as I speak." The strength of his passion made the manner of his speaking concise and abrupt. 2. As a judge: "*The Lord do so and much more to Jonathan* (1Sa 20:13), if I speak deceitfully, or break my word with my friend." He expressed himself thus solemnly that David might be abundantly assured of his sincerity. And thus God has confirmed his promises to us, that we might have *strong consolation,* Heb 6:17,18. Jonathan adds to his protestations his hearty prayers: "*The Lord be with thee,* to protect and prosper thee, *as he has been* formerly *with my father,* though now he has withdrawn." Thus he imitates his belief that David would be in his father's place, and his good wishes that he might prosper in it better than his father now did.
 
@@ -49,17 +49,17 @@ III\. He settles the method of intelligence, and by what signs and tokens he wou
 
 ## Jonathan Excuses David to Saul. (b. c. 1058.)
 
-> <sup>24</sup> So David hid himself in the field: and when the new moon was come, the king sat him down to eat meat.  
-> <sup>25</sup> And the king sat upon his seat, as at other times, *even* upon a seat by the wall: and Jonathan arose, and Abner sat by Saul's side, and David's place was empty.  
-> <sup>26</sup> Nevertheless Saul spake not any thing that day: for he thought, Something hath befallen him, he *is* not clean; surely he *is* not clean.  
-> <sup>27</sup> And it came to pass on the morrow, *which was* the second *day* of the month, that David's place was empty: and Saul said unto Jonathan his son, Wherefore cometh not the son of Jesse to meat, neither yesterday, nor to day?  
-> <sup>28</sup> And Jonathan answered Saul, David earnestly asked *leave* of me *to go* to Bethlehem:  
-> <sup>29</sup> And he said, Let me go, I pray thee; for our family hath a sacrifice in the city; and my brother, he hath commanded me *to be there:* and now, if I have found favour in thine eyes, let me get away, I pray thee, and see my brethren. Therefore he cometh not unto the king's table.  
-> <sup>30</sup> Then Saul's anger was kindled against Jonathan, and he said unto him, Thou son of the perverse rebellious *woman,* do not I know that thou hast chosen the son of Jesse to thine own confusion, and unto the confusion of thy mother's nakedness?  
-> <sup>31</sup> For as long as the son of Jesse liveth upon the ground, thou shalt not be established, nor thy kingdom. Wherefore now send and fetch him unto me, for he shall surely die.  
-> <sup>32</sup> And Jonathan answered Saul his father, and said unto him, Wherefore shall he be slain? what hath he done?  
-> <sup>33</sup> And Saul cast a javelin at him to smite him: whereby Jonathan knew that it was determined of his father to slay David.  
-> <sup>34</sup> So Jonathan arose from the table in fierce anger, and did eat no meat the second day of the month: for he was grieved for David, because his father had done him shame.  
+> **²⁴** So David hid himself in the field: and when the new moon was come, the king sat him down to eat meat.  
+> **²⁵** And the king sat upon his seat, as at other times, *even* upon a seat by the wall: and Jonathan arose, and Abner sat by Saul's side, and David's place was empty.  
+> **²⁶** Nevertheless Saul spake not any thing that day: for he thought, Something hath befallen him, he *is* not clean; surely he *is* not clean.  
+> **²⁷** And it came to pass on the morrow, *which was* the second *day* of the month, that David's place was empty: and Saul said unto Jonathan his son, Wherefore cometh not the son of Jesse to meat, neither yesterday, nor to day?  
+> **²⁸** And Jonathan answered Saul, David earnestly asked *leave* of me *to go* to Bethlehem:  
+> **²⁹** And he said, Let me go, I pray thee; for our family hath a sacrifice in the city; and my brother, he hath commanded me *to be there:* and now, if I have found favour in thine eyes, let me get away, I pray thee, and see my brethren. Therefore he cometh not unto the king's table.  
+> **³⁰** Then Saul's anger was kindled against Jonathan, and he said unto him, Thou son of the perverse rebellious *woman,* do not I know that thou hast chosen the son of Jesse to thine own confusion, and unto the confusion of thy mother's nakedness?  
+> **³¹** For as long as the son of Jesse liveth upon the ground, thou shalt not be established, nor thy kingdom. Wherefore now send and fetch him unto me, for he shall surely die.  
+> **³²** And Jonathan answered Saul his father, and said unto him, Wherefore shall he be slain? what hath he done?  
+> **³³** And Saul cast a javelin at him to smite him: whereby Jonathan knew that it was determined of his father to slay David.  
+> **³⁴** So Jonathan arose from the table in fierce anger, and did eat no meat the second day of the month: for he was grieved for David, because his father had done him shame.  
 
 Jonathan is here effectually convinced of that which he was so loth to believe, that his father had an implacable enmity to David, and would certainly be the death of him if it were in his power; and he had like to have paid very dearly himself for the conviction.
 
@@ -75,14 +75,14 @@ V\. Jonathan is sorely grieved and put into disorder by his father's barbarous p
 
 ## David Informed of His Danger. (b. c. 1058.)
 
-> <sup>35</sup> And it came to pass in the morning, that Jonathan went out into the field at the time appointed with David, and a little lad with him.  
-> <sup>36</sup> And he said unto his lad, Run, find out now the arrows which I shoot. *And* as the lad ran, he shot an arrow beyond him.  
-> <sup>37</sup> And when the lad was come to the place of the arrow which Jonathan had shot, Jonathan cried after the lad, and said, *Is* not the arrow beyond thee?  
-> <sup>38</sup> And Jonathan cried after the lad, Make speed, haste, stay not. And Jonathan's lad gathered up the arrows, and came to his master.  
-> <sup>39</sup> But the lad knew not any thing: only Jonathan and David knew the matter.  
-> <sup>40</sup> And Jonathan gave his artillery unto his lad, and said unto him, Go, carry *them* to the city.  
-> <sup>41</sup> *And* as soon as the lad was gone, David arose out of *a place* toward the south, and fell on his face to the ground, and bowed himself three times: and they kissed one another, and wept one with another, until David exceeded.  
-> <sup>42</sup> And Jonathan said to David, Go in peace, forasmuch as we have sworn both of us in the name of the LORD, saying, The LORD be between me and thee, and between my seed and thy seed for ever. And he arose and departed: and Jonathan went into the city.  
+> **³⁵** And it came to pass in the morning, that Jonathan went out into the field at the time appointed with David, and a little lad with him.  
+> **³⁶** And he said unto his lad, Run, find out now the arrows which I shoot. *And* as the lad ran, he shot an arrow beyond him.  
+> **³⁷** And when the lad was come to the place of the arrow which Jonathan had shot, Jonathan cried after the lad, and said, *Is* not the arrow beyond thee?  
+> **³⁸** And Jonathan cried after the lad, Make speed, haste, stay not. And Jonathan's lad gathered up the arrows, and came to his master.  
+> **³⁹** But the lad knew not any thing: only Jonathan and David knew the matter.  
+> **⁴⁰** And Jonathan gave his artillery unto his lad, and said unto him, Go, carry *them* to the city.  
+> **⁴¹** *And* as soon as the lad was gone, David arose out of *a place* toward the south, and fell on his face to the ground, and bowed himself three times: and they kissed one another, and wept one with another, until David exceeded.  
+> **⁴²** And Jonathan said to David, Go in peace, forasmuch as we have sworn both of us in the name of the LORD, saying, The LORD be between me and thee, and between my seed and thy seed for ever. And he arose and departed: and Jonathan went into the city.  
 
 Here is, 1. Jonathan's faithful performance of his promise to give David notice of the success of his dangerous experiment. He went at the time and to the place appointed (1Sa 20:35), within sight of which he knew David lay hid, sent his footboy to fetch his arrows, which he would shoot at random (1Sa 20:36), and gave David the fatal signal by shooting an arrow beyond the lad (1Sa 20:37): *Is not the arrow beyond thee?* That word [*beyond*] David knew the meaning of better than the lad. Jonathan dismissed the lad, who knew nothing of the matter, and, finding the coast clear and no danger of a discovery, he presumed upon one minute's personal conversation with David after he had bidden him flee for his life. 2. The most sorrowful parting of these two friends, who, for aught that appears, never came together again but once, and that was by stealth *in a wood,* 1Sa 23:16. (1.) David addressed himself to Jonathan with the reverence of a servant rather than the freedom of a friend: *He fell on his face to the ground, and bowed himself three times,* as one deeply sensible of his obligations to him for the good services he had done him. (2.) They took leave of each other with the greatest affection imaginable, with kisses and tears; they wept on each other's neck *till David exceeded,* 1Sa 20:41. The separation of two such faithful friends was equally grievous to them both, but David's case was the more deplorable; for, when Jonathan was returning to his family and friends, David was leaving all his comforts, even those of God's sanctuary, and therefore his grief exceeded Jonathan's, or perhaps it was because his temper was more tender and his passions were stronger. (3.) They referred themselves to the covenant of friendship that was between them, both of them comforting themselves with this in this mournful separation: "*We have sworn both of us in the name of the Lord,* for ourselves and our heirs, that we and they will be faithful and kind to each other from generation to generation." Thus, while we are at home in the body and absent from the Lord, this is our comfort, that he has *made with us an everlasting covenant.*
 

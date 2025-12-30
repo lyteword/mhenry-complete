@@ -8,12 +8,12 @@ All agree that what is related in this and the rest of the chapters to the end o
 
 ## Micah and His Gods. (b. c. 1406.)
 
-> <sup>1</sup> And there was a man of mount Ephraim, whose name *was* Micah.  
-> <sup>2</sup> And he said unto his mother, The eleven hundred *shekels* of silver that were taken from thee, about which thou cursedst, and spakest of also in mine ears, behold, the silver *is* with me; I took it. And his mother said, Blessed *be thou* of the LORD, my son.  
-> <sup>3</sup> And when he had restored the eleven hundred *shekels* of silver to his mother, his mother said, I had wholly dedicated the silver unto the LORD from my hand for my son, to make a graven image and a molten image: now therefore I will restore it unto thee.  
-> <sup>4</sup> Yet he restored the money unto his mother; and his mother took two hundred *shekels* of silver, and gave them to the founder, who made thereof a graven image and a molten image: and they were in the house of Micah.  
-> <sup>5</sup> And the man Micah had a house of gods, and made an ephod, and teraphim, and consecrated one of his sons, who became his priest.  
-> <sup>6</sup> In those days *there was* no king in Israel, *but* every man did *that which was* right in his own eyes.  
+> **¹** And there was a man of mount Ephraim, whose name *was* Micah.  
+> **²** And he said unto his mother, The eleven hundred *shekels* of silver that were taken from thee, about which thou cursedst, and spakest of also in mine ears, behold, the silver *is* with me; I took it. And his mother said, Blessed *be thou* of the LORD, my son.  
+> **³** And when he had restored the eleven hundred *shekels* of silver to his mother, his mother said, I had wholly dedicated the silver unto the LORD from my hand for my son, to make a graven image and a molten image: now therefore I will restore it unto thee.  
+> **⁴** Yet he restored the money unto his mother; and his mother took two hundred *shekels* of silver, and gave them to the founder, who made thereof a graven image and a molten image: and they were in the house of Micah.  
+> **⁵** And the man Micah had a house of gods, and made an ephod, and teraphim, and consecrated one of his sons, who became his priest.  
+> **⁶** In those days *there was* no king in Israel, *but* every man did *that which was* right in his own eyes.  
 
 Here we have, I. Micah and his mother quarrelling. 1. The son robs the mother. The old woman had hoarded, with long scraping and saving, a great sum of money, 1100 pieces of silver. It is likely she intended, when she died, to leave it to her son: in the mean time it did her good to look upon it, and to count it over. The young man had a family of children grown up, for he had one of age to be a priest, Jdg 17:5. He knows where to find his mother's cash, thinks he has more need of it than she has, cannot stay till she dies, and so takes it away privately for his own use. Though it is a fault in parents to withhold from their children that which is meet, and lead them into temptation to wish them in their graves, yet even this will by no means excuse the wickedness of those children that steal from their parents, and think all their own that they can get from them, though by the most indirect methods. 2. The mother curses the son, or whoever had taken her money. It should seem she suspected her son; for, when she cursed, she spoke in his ears so loud, and with so much passion and vehemence, as made both his ears to tingle. See what mischief the love of money makes, how it destroys the duty and comfort of every relation. It was the love of money that made Micah so undutiful to his mother as to rob her, and made her so unkind and void of natural affection to her son as to curse him if he had it and concealed it. Outward losses drive good people to their prayers, but bad people to their curses. This woman's silver was her god before it was made thither into a graven or a molten image, else the loss of it would not have put her into such a passion as caused her quite to forget and break through all the laws of decency and piety. It is a very foolish thing for those that are provoked to throw their curses about *as a madman that casteth fire-brands, arrows, and death,* since they know not but they may light upon those that are most dear to them.
 
@@ -29,13 +29,13 @@ III\. Micah and his mother agreeing to turn their money into a god, and set up i
 
 (2.) What was the cause of this corruption (Jdg 17:6): *There was no king in Israel,* no judge or sovereign prince to take cognizance of the setting up of these images (which, doubtless, the country about soon resorted to), and to give orders for the destroying of them, none to convince Micah of his error and to restrain and punish him, to take this disease in time, by which the spreading of the infection might have been happily prevented. Every man did that which was *right in his own eyes,* and then they soon did that which was *evil in the sight of the Lord.* When they were without a king to keep good order among them, God's house was forsaken, his priests were neglected, and all went to ruin among them. See what a mercy government is, and what reason there is that not only *prayers and intercessions, but giving of thanks,* should *be made for kings and all in authority,* 1Ti 2:1,2. Nothing contributes more, under God, to the support of religion in the world, than the due administration of those two great ordinances, magistracy and ministry.
 
-> <sup>7</sup> And there was a young man out of Beth-lehem-judah of the family of Judah, who *was* a Levite, and he sojourned there.  
-> <sup>8</sup> And the man departed out of the city from Beth-lehem-judah to sojourn where he could find *a place:* and he came to mount Ephraim to the house of Micah, as he journeyed.  
-> <sup>9</sup> And Micah said unto him, Whence comest thou? And he said unto him, I *am* a Levite of Beth-lehem-judah, and I go to sojourn where I may find *a place.*  
-> <sup>10</sup> And Micah said unto him, Dwell with me, and be unto me a father and a priest, and I will give thee ten *shekels* of silver by the year, and a suit of apparel, and thy victuals. So the Levite went in.  
-> <sup>11</sup> And the Levite was content to dwell with the man; and the young man was unto him as one of his sons.  
-> <sup>12</sup> And Micah consecrated the Levite; and the young man became his priest, and was in the house of Micah.  
-> <sup>13</sup> Then said Micah, Now know I that the LORD will do me good, seeing I have a Levite to *my* priest.  
+> **⁷** And there was a young man out of Beth-lehem-judah of the family of Judah, who *was* a Levite, and he sojourned there.  
+> **⁸** And the man departed out of the city from Beth-lehem-judah to sojourn where he could find *a place:* and he came to mount Ephraim to the house of Micah, as he journeyed.  
+> **⁹** And Micah said unto him, Whence comest thou? And he said unto him, I *am* a Levite of Beth-lehem-judah, and I go to sojourn where I may find *a place.*  
+> **¹⁰** And Micah said unto him, Dwell with me, and be unto me a father and a priest, and I will give thee ten *shekels* of silver by the year, and a suit of apparel, and thy victuals. So the Levite went in.  
+> **¹¹** And the Levite was content to dwell with the man; and the young man was unto him as one of his sons.  
+> **¹²** And Micah consecrated the Levite; and the young man became his priest, and was in the house of Micah.  
+> **¹³** Then said Micah, Now know I that the LORD will do me good, seeing I have a Levite to *my* priest.  
 
 We have here an account of Micah's furnishing himself with a Levite for his chaplain, either thinking his son, because the heir of his estate, too good to officiate, or rather, because not of God's tribe, not good enough. Observe,
 

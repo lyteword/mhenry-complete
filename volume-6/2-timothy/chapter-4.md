@@ -8,14 +8,14 @@ In this chapter, I. Paul with great solemnity and earnestness presses Timothy to
 
 ## Ministerial Duties; The Apostle's Joyful Expectation. (a. d. 66.)
 
-> <sup>1</sup> I charge *thee* therefore before God, and the Lord Jesus Christ, who shall judge the quick and the dead at his appearing and his kingdom;  
-> <sup>2</sup> Preach the word; be instant in season, out of season; reprove, rebuke, exhort with all longsuffering and doctrine.  
-> <sup>3</sup> For the time will come when they will not endure sound doctrine; but after their own lusts shall they heap to themselves teachers, having itching ears;  
-> <sup>4</sup> And they shall turn away *their* ears from the truth, and shall be turned unto fables.  
-> <sup>5</sup> But watch thou in all things, endure afflictions, do the work of an evangelist, make full proof of thy ministry.  
-> <sup>6</sup> For I am now ready to be offered, and the time of my departure is at hand.  
-> <sup>7</sup> I have fought a good fight, I have finished *my* course, I have kept the faith:  
-> <sup>8</sup> Henceforth there is laid up for me a crown of righteousness, which the Lord, the righteous judge, shall give me at that day: and not to me only, but unto all them also that love his appearing.  
+> **¹** I charge *thee* therefore before God, and the Lord Jesus Christ, who shall judge the quick and the dead at his appearing and his kingdom;  
+> **²** Preach the word; be instant in season, out of season; reprove, rebuke, exhort with all longsuffering and doctrine.  
+> **³** For the time will come when they will not endure sound doctrine; but after their own lusts shall they heap to themselves teachers, having itching ears;  
+> **⁴** And they shall turn away *their* ears from the truth, and shall be turned unto fables.  
+> **⁵** But watch thou in all things, endure afflictions, do the work of an evangelist, make full proof of thy ministry.  
+> **⁶** For I am now ready to be offered, and the time of my departure is at hand.  
+> **⁷** I have fought a good fight, I have finished *my* course, I have kept the faith:  
+> **⁸** Henceforth there is laid up for me a crown of righteousness, which the Lord, the righteous judge, shall give me at that day: and not to me only, but unto all them also that love his appearing.  
 
 Observe, I. How awfully this charge is introduced (2Ti 4:1): *I charge thee before God, and the Lord Jesus Christ, who shall judge the quick and the dead at his appearing and his kingdom.* Observe, The best of men have need to be awed into the discharge of their duty. The work of a minister is not an indifferent thing, but absolutely necessary. Woe be to him if he preach not the gospel, 1Co 9:16. To induce him to faithfulness, he must consider, 1. That the eye of God and Jesus Christ was upon him: *I charge thee before God and the Lord Jesus Christ;* that is, "as thou tenderest the favour of God and Jesus Christ; as thou wilt approve thyself to God and Jesus Christ, by the obligations both of natural and revealed religion; as thou wilt make due returns to the God who made thee and the Lord Jesus Christ who redeemed thee." 2. He charges him as he will answer it at the great day, reminding him of the judgment to come, which is committed to the Lord Jesus. He shall judge the quick and the dead *at his appearing and his kingdom,* that is, when he appears in his kingdom. It concerns all, both ministers and people, seriously to consider the account that they must shortly give to Jesus Christ of all the trusts reposed in them. Christ shall *judge the quick and the dead,* that is, those that at the last day shall be found alive, and those who shall be raised to life out of the grave. Note, (1.) The Lord Jesus Christ shall judge the quick and the dead. *God hath committed all judgment unto the Son,* and hath appointed him the Judge of quick and dead, Ac 10:42. (2.) He will appear; he will come the second time, and it will be a glorious appearance, as the word *epiphaneia* signifies. (3.) Then his kingdom shall appear in its glory: *At his appearing and kingdom;* for he will then appear in his kingdom, sitting on a throne, to judge the world.
 
@@ -57,25 +57,25 @@ III\. The reasons to enforce the charge.
 
 ## The Apostle's Directions to Timothy. (a. d. 66.)
 
-> <sup>9</sup> Do thy diligence to come shortly unto me:  
-> <sup>10</sup> For Demas hath forsaken me, having loved this present world, and is departed unto Thessalonica; Crescens to Galatia, Titus unto Dalmatia.  
-> <sup>11</sup> Only Luke is with me. Take Mark, and bring him with thee: for he is profitable to me for the ministry.  
-> <sup>12</sup> And Tychicus have I sent to Ephesus.  
-> <sup>13</sup> The cloak that I left at Troas with Carpus, when thou comest, bring *with thee,* and the books, *but* especially the parchments.  
-> <sup>14</sup> Alexander the coppersmith did me much evil: the Lord reward him according to his works:  
-> <sup>15</sup> Of whom be thou ware also; for he hath greatly withstood our words.  
+> **⁹** Do thy diligence to come shortly unto me:  
+> **¹⁰** For Demas hath forsaken me, having loved this present world, and is departed unto Thessalonica; Crescens to Galatia, Titus unto Dalmatia.  
+> **¹¹** Only Luke is with me. Take Mark, and bring him with thee: for he is profitable to me for the ministry.  
+> **¹²** And Tychicus have I sent to Ephesus.  
+> **¹³** The cloak that I left at Troas with Carpus, when thou comest, bring *with thee,* and the books, *but* especially the parchments.  
+> **¹⁴** Alexander the coppersmith did me much evil: the Lord reward him according to his works:  
+> **¹⁵** Of whom be thou ware also; for he hath greatly withstood our words.  
 
 Here are divers particular matters which Paul mentions to Timothy, now at the closing of the epistle. 1. He bids him hasten to him, if possible (2Ti 4:9): *So thy diligence to come shortly to me.* For Timothy was an evangelist, one who was not a fixed pastor of any one place, but attended the motions of the apostles, to build upon their foundation. Paul wanted Timothy's company and help; and the reason he gives is because several had left him (2Ti 4:10); one from an ill principle, namely, *Demas,* who abides under an ill name for it: *Demas hath forsaken me, having loved this present world.* He quitted Paul and his interest, either for fear of suffering (because Paul was now a prisoner, and he was afraid of coming into trouble upon his account) or being called off from his ministry by secular affairs, in which he entangled himself; his first love to Christ and his gospel was forsaken and forgotten, and he fell in love with the world. Note, Love to this present world is often the cause of apostasy from the truths and ways of Jesus Christ. He has gone off, has *departed to Thessalonica,* called thither perhaps by trade, or by some other worldly business. *Crescens* had gone one way and *Titus* another way. *Luke* however remained with Paul (2Ti 4:11,12), and was not this enough? Paul did not think it so; he loved the company of his friends. 2. He speaks respectfully concerning *Mark: He is profitable to me for the ministry.* It is supposed that this Mark was he about whom Paul and Barnabas had contended, Ac 15:39. Paul would not take him with him to the work, because he had once flinched and drawn back: but now, says he, *Take Mark, and bring him with thee.* By this it appears that Paul was now reconciled to Mark, and had a better opinion of him than he had had formerly. This teaches us to be of a forgiving spirit; we must not therefore disclaim for ever making use of those that are profitable and useful, though they may have done amiss. 3. Paul orders Timothy to come to him, bids him as he came through Troas to bring with him thence those things which he had left behind him there (2Ti 4:13), the cloak he had left there, which, it may be, Paul had the more occasion for in a cold prison. It is probable that it was the habit Paul usually wore, a plain dress. Some read it, the *roll of parchment I left at Troas;* others, the *desk* that I left. Paul was guided by divine inspiration, and yet he would have his books with him. Whereas he had exhorted Timothy to give attendance to reading, so he did himself, though he was now ready to be offered. As long as we live, we must be still learning. *But especially the parchments,* which some think were the originals of his epistles; others think they were the skins of which he made his tents, whereby he obtained a livelihood, working with his own hands. 4. He mentions *Alexander,* and the mischief that he had done him, 2Ti 4:14,15. This is he who is spoken of Ac 19:33. It should seem, he had been a professor of the Christian religion, a forward professor, for he was there particularly maligned by the worshippers of Diana, and yet he did Paul much evil. Paul was in as much danger from false brethren (2Co 11:26) as from open enemies. Paul foretels that God would reckon with him. It is a prophetical denunciation of the just judgment of God that would befal him: The Lord *will reward him according to his works.* He cautions Timothy to take heed of him: "*Of whom be thou aware also,* that he do not, under pretence of friendship, betray thee to mischief." It is dangerous having any thing to do with those who would be enemies to such a man as Paul. Observe, (1.) Some who were once Paul's hearers and admirers did not give him reason to remember them with much pleasure; for one forsook him, and another did him much evil, and greatly withstood his words. Yet, (2.) At the same time he mentions some with pleasure; the badness of some did not make him forget the goodness of others; such as *Timothy, Titus, Mark,* and *Luke.* (3.) The apostle has left a brand on the names and memory of two persons; the one is *Demas,* who forsook him, having loved the present world, and the other is *Alexander,* who greatly withstood his words. (4.) God will reward evil-doers, particularly apostates, according to their works. (5.) Of such as are of Alexander's spirit and temper we should beware; for they will do us no good, but all the mischief that is in their power.
 
 ## The Apostle's Directions to Timothy; Salutations and Benedictions. (a. d. 66.)
 
-> <sup>16</sup> At my first answer no man stood with me, but all *men* forsook me: *I pray God* that it may not be laid to their charge.  
-> <sup>17</sup> Notwithstanding the Lord stood with me, and strengthened me; that by me the preaching might be fully known, and *that* all the Gentiles might hear: and I was delivered out of the mouth of the lion.  
-> <sup>18</sup> And the Lord shall deliver me from every evil work, and will preserve *me* unto his heavenly kingdom: to whom *be* glory for ever and ever. Amen.  
-> <sup>19</sup> Salute Prisca and Aquila, and the household of Onesiphorus.  
-> <sup>20</sup> Erastus abode at Corinth: but Trophimus have I left at Miletum sick.  
-> <sup>21</sup> Do thy diligence to come before winter. Eubulus greeteth thee, and Pudens, and Linus, and Claudia, and all the brethren.  
-> <sup>22</sup> The Lord Jesus Christ *be* with thy spirit. Grace *be* with you. Amen.  
+> **¹⁶** At my first answer no man stood with me, but all *men* forsook me: *I pray God* that it may not be laid to their charge.  
+> **¹⁷** Notwithstanding the Lord stood with me, and strengthened me; that by me the preaching might be fully known, and *that* all the Gentiles might hear: and I was delivered out of the mouth of the lion.  
+> **¹⁸** And the Lord shall deliver me from every evil work, and will preserve *me* unto his heavenly kingdom: to whom *be* glory for ever and ever. Amen.  
+> **¹⁹** Salute Prisca and Aquila, and the household of Onesiphorus.  
+> **²⁰** Erastus abode at Corinth: but Trophimus have I left at Miletum sick.  
+> **²¹** Do thy diligence to come before winter. Eubulus greeteth thee, and Pudens, and Linus, and Claudia, and all the brethren.  
+> **²²** The Lord Jesus Christ *be* with thy spirit. Grace *be* with you. Amen.  
 
 Here, I. He gives Timothy an account of his own present circumstances.
 

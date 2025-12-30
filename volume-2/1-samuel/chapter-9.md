@@ -8,21 +8,21 @@ Samuel had promised Israel, from God, that they should have a king; it is strang
 
 ## The Parentage of Saul. (b. c. 1075.)
 
-> <sup>1</sup> Now there was a man of Benjamin, whose name *was* Kish, the son of Abiel, the son of Zeror, the son of Bechorath, the son of Aphiah, a Benjamite, a mighty man of power.  
-> <sup>2</sup> And he had a son, whose name *was* Saul, a choice young man, and a goodly: and *there was* not among the children of Israel a goodlier person than he: from his shoulders and upward *he was* higher than any of the people.  
+> **¹** Now there was a man of Benjamin, whose name *was* Kish, the son of Abiel, the son of Zeror, the son of Bechorath, the son of Aphiah, a Benjamite, a mighty man of power.  
+> **²** And he had a son, whose name *was* Saul, a choice young man, and a goodly: and *there was* not among the children of Israel a goodlier person than he: from his shoulders and upward *he was* higher than any of the people.  
 
 We are here told, 1. What a good family Saul was of, 1Sa 9:1. He was of the tribe of Benjamin; so was the New-Testament Saul, who also was called *Paul,* and he mentions it as his honour, for Benjamin was a favourite, Ro 11:1, Php 3:5. That tribe had been reduced to a very small number by the fatal war with Gibeah, and much ado there was to provide wives for those 600 men that were the poor remains of it out of that diminished tribe, which is here called, with good reason, *the smallest of the tribes of Israel,* 1Sa 9:21. Saul sprang as a root out of a dry ground. That tribe, though fewest in number, was first in dignity, *God giving more abundant honour to that part which lacked,* 1Co 12:24. His father was *Kish, a mighty man of power,* or, as the margin reads it, *in substance;* in spirit bold, in body strong, in estate wealthy. The whole lot of the tribe of Benjamin coming to be distributed among 600 men, we may suppose their inheritances were much larger than theirs who were of other tribes, an advantage which somewhat helped to balance the disadvantage of the smallness of their number. 2. What a good figure Saul made, 1Sa 9:2. No mention is here made of his wisdom or virtue, his learning or piety, or any of the accomplishments of his mind, but that he was a tall, proper, handsome man, that had a good face, a good shape, and a good presence, graceful and well proportioned: *Among all the children of Israel there was not a goodlier person than he;* and, as if nature had marked him for pre-eminence and superiority, he was taller by the head and shoulders than any of the people, the fitter to be a match for the giants of Gath, the champions of the Philistines. When God chose a king after his own heart he pitched upon one that was not at all remarkable for the height of his stature, nor any thing in his countenance but the innocence and sweetness that appeared there, 1Sa 16:7,12. But when he chose a king after the people's heart, who aimed at nothing so much as stateliness and grandeur, he pitched upon this huge tall man, who, if he had no other good qualities, yet would look great. It does not appear that he excelled in strength so much as he did in stature; Samson did, and him they slighted, bound, and betrayed into the hands of the Philistines; justly therefore are they now put off with one who, though of uncommon height, is weak as other men. They would have a king like the nations, and the nations commonly chose portly men for their kings.
 
 ## Saul Seeks His Father's Asses; Saul Goes to Seek Samuel. (b. c. 1075.)
 
-> <sup>3</sup> And the asses of Kish Saul's father were lost. And Kish said to Saul his son, Take now one of the servants with thee, and arise, go seek the asses.  
-> <sup>4</sup> And he passed through mount Ephraim, and passed through the land of Shalisha, but they found *them* not: then they passed through the land of Shalim, and *there they were* not: and he passed through the land of the Benjamites, but they found *them* not.  
-> <sup>5</sup> *And* when they were come to the land of Zuph, Saul said to his servant that *was* with him, Come, and let us return; lest my father leave *caring* for the asses, and take thought for us.  
-> <sup>6</sup> And he said unto him, Behold now, *there is* in this city a man of God, and *he is* a honourable man; all that he saith cometh surely to pass: now let us go thither; peradventure he can shew us our way that we should go.  
-> <sup>7</sup> Then said Saul to his servant, But, behold, *if* we go, what shall we bring the man? for the bread is spent in our vessels, and *there is* not a present to bring to the man of God: what have we?  
-> <sup>8</sup> And the servant answered Saul again, and said, Behold, I have here at hand the fourth part of a shekel of silver: *that* will I give to the man of God, to tell us our way.  
-> <sup>9</sup> (Beforetime in Israel, when a man went to enquire of God, thus he spake, Come, and let us go to the seer: for *he that is* now *called* a Prophet was beforetime called a Seer.)  
-> <sup>10</sup> Then said Saul to his servant, Well said; come, let us go. So they went unto the city where the man of God *was.*  
+> **³** And the asses of Kish Saul's father were lost. And Kish said to Saul his son, Take now one of the servants with thee, and arise, go seek the asses.  
+> **⁴** And he passed through mount Ephraim, and passed through the land of Shalisha, but they found *them* not: then they passed through the land of Shalim, and *there they were* not: and he passed through the land of the Benjamites, but they found *them* not.  
+> **⁵** *And* when they were come to the land of Zuph, Saul said to his servant that *was* with him, Come, and let us return; lest my father leave *caring* for the asses, and take thought for us.  
+> **⁶** And he said unto him, Behold now, *there is* in this city a man of God, and *he is* a honourable man; all that he saith cometh surely to pass: now let us go thither; peradventure he can shew us our way that we should go.  
+> **⁷** Then said Saul to his servant, But, behold, *if* we go, what shall we bring the man? for the bread is spent in our vessels, and *there is* not a present to bring to the man of God: what have we?  
+> **⁸** And the servant answered Saul again, and said, Behold, I have here at hand the fourth part of a shekel of silver: *that* will I give to the man of God, to tell us our way.  
+> **⁹** (Beforetime in Israel, when a man went to enquire of God, thus he spake, Come, and let us go to the seer: for *he that is* now *called* a Prophet was beforetime called a Seer.)  
+> **¹⁰** Then said Saul to his servant, Well said; come, let us go. So they went unto the city where the man of God *was.*  
 
 Here is, I. A great man rising from small beginnings. It does not appear that Saul had any preferment at all, or was in any post of honour or trust, till he was chosen king of Israel. Most that are advanced rise gradually, but Saul, from the level with his neighbours, stepped at once into the throne, according to that of Hannah, He *raiseth up the poor out of the dust, to set them among princes,* 1Sa 2:8. Saul, it should seem, though he was himself married and had children grown up, yet lived in his father's house, and was subject to him. Promotion comes not by chance nor human probabilities, but God is the Judge.
 
@@ -36,13 +36,13 @@ II\. A great event arising from small occurrences. How low does the history begi
 
 ## Saul Introduced to Samuel. (b. c. 1070.)
 
-> <sup>11</sup> *And* as they went up the hill to the city, they found young maidens going out to draw water, and said unto them, Is the seer here?  
-> <sup>12</sup> And they answered them, and said, He is; behold, *he is* before you: make haste now, for he came to day to the city; for *there is* a sacrifice of the people to day in the high place:  
-> <sup>13</sup> As soon as ye be come into the city, ye shall straightway find him, before he go up to the high place to eat: for the people will not eat until he come, because he doth bless the sacrifice; *and* afterwards they eat that be bidden. Now therefore get you up; for about this time ye shall find him.  
-> <sup>14</sup> And they went up into the city: *and* when they were come into the city, behold, Samuel came out against them, for to go up to the high place.  
-> <sup>15</sup> Now the LORD had told Samuel in his ear a day before Saul came, saying,  
-> <sup>16</sup> To morrow about this time I will send thee a man out of the land of Benjamin, and thou shalt anoint him *to be* captain over my people Israel, that he may save my people out of the hand of the Philistines: for I have looked upon my people, because their cry is come unto me.  
-> <sup>17</sup> And when Samuel saw Saul, the LORD said unto him, Behold the man whom I spake to thee of! this same shall reign over my people.  
+> **¹¹** *And* as they went up the hill to the city, they found young maidens going out to draw water, and said unto them, Is the seer here?  
+> **¹²** And they answered them, and said, He is; behold, *he is* before you: make haste now, for he came to day to the city; for *there is* a sacrifice of the people to day in the high place:  
+> **¹³** As soon as ye be come into the city, ye shall straightway find him, before he go up to the high place to eat: for the people will not eat until he come, because he doth bless the sacrifice; *and* afterwards they eat that be bidden. Now therefore get you up; for about this time ye shall find him.  
+> **¹⁴** And they went up into the city: *and* when they were come into the city, behold, Samuel came out against them, for to go up to the high place.  
+> **¹⁵** Now the LORD had told Samuel in his ear a day before Saul came, saying,  
+> **¹⁶** To morrow about this time I will send thee a man out of the land of Benjamin, and thou shalt anoint him *to be* captain over my people Israel, that he may save my people out of the hand of the Philistines: for I have looked upon my people, because their cry is come unto me.  
+> **¹⁷** And when Samuel saw Saul, the LORD said unto him, Behold the man whom I spake to thee of! this same shall reign over my people.  
 
 Here, I. Saul, by an ordinary enquiry, is directed to Samuel, 1Sa 9:11-14. Gibeah of Saul was not twenty miles from Ramah where Samuel dwelt, and was near to Mizpeh where he often judged Israel, and yet, it seems, Saul had lived so very privately, and had taken so little notice of public affairs, that he had never seen Samuel, for when he met him (1Sa 9:18) he did not know him, so that there was no cause to suspect any secret compact or collusion between them in this matter. *I knew him not,* says John Baptist concerning Christ, Joh 1:31. Yet I do not think it any commendation to Saul that he was a stranger to Samuel. However,
 
@@ -58,16 +58,16 @@ II\. Samuel, by an extraordinary revelation, is informed concerning Saul. He was
 
 ## Saul Entertained by Samuel. (b. c. 1070.)
 
-> <sup>18</sup> Then Saul drew near to Samuel in the gate, and said, Tell me, I pray thee, where the seer's house *is.*  
-> <sup>19</sup> And Samuel answered Saul, and said, I *am* the seer: go up before me unto the high place; for ye shall eat with me to day, and to morrow I will let thee go, and will tell thee all that *is* in thine heart.  
-> <sup>20</sup> And as for thine asses that were lost three days ago, set not thy mind on them; for they are found. And on whom *is* all the desire of Israel? *Is it* not on thee, and on all thy father's house?  
-> <sup>21</sup> And Saul answered and said, *Am* not I a Benjamite, of the smallest of the tribes of Israel? and my family the least of all the families of the tribe of Benjamin? wherefore then speakest thou so to me?  
-> <sup>22</sup> And Samuel took Saul and his servant, and brought them into the parlour, and made them sit in the chiefest place among them that were bidden, which *were* about thirty persons.  
-> <sup>23</sup> And Samuel said unto the cook, Bring the portion which I gave thee, of which I said unto thee, Set it by thee.  
-> <sup>24</sup> And the cook took up the shoulder, and *that* which *was* upon it, and set *it* before Saul. And *Samuel* said, Behold that which is left! set *it* before thee, *and* eat: for unto this time hath it been kept for thee since I said, I have invited the people. So Saul did eat with Samuel that day.  
-> <sup>25</sup> And when they were come down from the high place into the city, *Samuel* communed with Saul upon the top of the house.  
-> <sup>26</sup> And they arose early: and it came to pass about the spring of the day, that Samuel called Saul to the top of the house, saying, Up, that I may send thee away. And Saul arose, and they went out both of them, he and Samuel, abroad.  
-> <sup>27</sup> *And* as they were going down to the end of the city, Samuel said to Saul, Bid the servant pass on before us, (and he passed on,) but stand thou still a while, that I may shew thee the word of God.  
+> **¹⁸** Then Saul drew near to Samuel in the gate, and said, Tell me, I pray thee, where the seer's house *is.*  
+> **¹⁹** And Samuel answered Saul, and said, I *am* the seer: go up before me unto the high place; for ye shall eat with me to day, and to morrow I will let thee go, and will tell thee all that *is* in thine heart.  
+> **²⁰** And as for thine asses that were lost three days ago, set not thy mind on them; for they are found. And on whom *is* all the desire of Israel? *Is it* not on thee, and on all thy father's house?  
+> **²¹** And Saul answered and said, *Am* not I a Benjamite, of the smallest of the tribes of Israel? and my family the least of all the families of the tribe of Benjamin? wherefore then speakest thou so to me?  
+> **²²** And Samuel took Saul and his servant, and brought them into the parlour, and made them sit in the chiefest place among them that were bidden, which *were* about thirty persons.  
+> **²³** And Samuel said unto the cook, Bring the portion which I gave thee, of which I said unto thee, Set it by thee.  
+> **²⁴** And the cook took up the shoulder, and *that* which *was* upon it, and set *it* before Saul. And *Samuel* said, Behold that which is left! set *it* before thee, *and* eat: for unto this time hath it been kept for thee since I said, I have invited the people. So Saul did eat with Samuel that day.  
+> **²⁵** And when they were come down from the high place into the city, *Samuel* communed with Saul upon the top of the house.  
+> **²⁶** And they arose early: and it came to pass about the spring of the day, that Samuel called Saul to the top of the house, saying, Up, that I may send thee away. And Saul arose, and they went out both of them, he and Samuel, abroad.  
+> **²⁷** *And* as they were going down to the end of the city, Samuel said to Saul, Bid the servant pass on before us, (and he passed on,) but stand thou still a while, that I may shew thee the word of God.  
 
 Providence having at length brought Samuel and Saul together, we have here an account of what passed between them in the gate, at the feast, and in private.
 

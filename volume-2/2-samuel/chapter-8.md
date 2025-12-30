@@ -8,14 +8,14 @@ David having sought first the kingdom of God and the righteousness thereof, sett
 
 ## David's Conquests. (b. c. 1042.)
 
-> <sup>1</sup> And after this it came to pass, that David smote the Philistines, and subdued them: and David took Metheg-ammah out of the hand of the Philistines.  
-> <sup>2</sup> And he smote Moab, and measured them with a line, casting them down to the ground; even with two lines measured he to put to death, and with one full line to keep alive. And *so* the Moabites became David's servants, *and* brought gifts.  
-> <sup>3</sup> David smote also Hadadezer, the son of Rehob, king of Zobah, as he went to recover his border at the river Euphrates.  
-> <sup>4</sup> And David took from him a thousand *chariots,* and seven hundred horsemen, and twenty thousand footmen: and David houghed all the chariot *horses,* but reserved of them *for* a hundred chariots.  
-> <sup>5</sup> And when the Syrians of Damascus came to succour Hadadezer king of Zobah, David slew of the Syrians two and twenty thousand men.  
-> <sup>6</sup> Then David put garrisons in Syria of Damascus: and the Syrians became servants to David, *and* brought gifts. And the LORD preserved David whithersoever he went.  
-> <sup>7</sup> And David took the shields of gold that were on the servants of Hadadezer, and brought them to Jerusalem.  
-> <sup>8</sup> And from Betah, and from Berothai, cities of Hadadezer, king David took exceeding much brass.  
+> **¹** And after this it came to pass, that David smote the Philistines, and subdued them: and David took Metheg-ammah out of the hand of the Philistines.  
+> **²** And he smote Moab, and measured them with a line, casting them down to the ground; even with two lines measured he to put to death, and with one full line to keep alive. And *so* the Moabites became David's servants, *and* brought gifts.  
+> **³** David smote also Hadadezer, the son of Rehob, king of Zobah, as he went to recover his border at the river Euphrates.  
+> **⁴** And David took from him a thousand *chariots,* and seven hundred horsemen, and twenty thousand footmen: and David houghed all the chariot *horses,* but reserved of them *for* a hundred chariots.  
+> **⁵** And when the Syrians of Damascus came to succour Hadadezer king of Zobah, David slew of the Syrians two and twenty thousand men.  
+> **⁶** Then David put garrisons in Syria of Damascus: and the Syrians became servants to David, *and* brought gifts. And the LORD preserved David whithersoever he went.  
+> **⁷** And David took the shields of gold that were on the servants of Hadadezer, and brought them to Jerusalem.  
+> **⁸** And from Betah, and from Berothai, cities of Hadadezer, king David took exceeding much brass.  
 
 God had given David rest from all his enemies that opposed him and made head against him; and he having made a good use of that rest, has now commission given him to make war upon them, and to act offensively for the avenging of Israel's quarrels and the recovery of their rights; for as yet they were not in full possession of that country to which by the promise of God they were entitled.
 
@@ -29,21 +29,21 @@ IV\. In all these wars, 1. David was protected: *The Lord preserved him whithers
 
 ## David Conquers Edom. (b. c. 1042.)
 
-> <sup>9</sup> When Toi king of Hamath heard that David had smitten all the host of Hadadezer,  
-> <sup>10</sup> Then Toi sent Joram his son unto king David, to salute him, and to bless him, because he had fought against Hadadezer, and smitten him: for Hadadezer had wars with Toi. And *Joram* brought with him vessels of silver, and vessels of gold, and vessels of brass:  
-> <sup>11</sup> Which also king David did dedicate unto the LORD, with the silver and gold that he had dedicated of all nations which he subdued;  
-> <sup>12</sup> Of Syria, and of Moab, and of the children of Ammon, and of the Philistines, and of Amalek, and of the spoil of Hadadezer, son of Rehob, king of Zobah.  
-> <sup>13</sup> And David gat *him* a name when he returned from smiting of the Syrians in the valley of salt, *being* eighteen thousand *men.*  
-> <sup>14</sup> And he put garrisons in Edom; throughout all Edom put he garrisons, and all they of Edom became David's servants. And the LORD preserved David whithersoever he went.  
+> **⁹** When Toi king of Hamath heard that David had smitten all the host of Hadadezer,  
+> **¹⁰** Then Toi sent Joram his son unto king David, to salute him, and to bless him, because he had fought against Hadadezer, and smitten him: for Hadadezer had wars with Toi. And *Joram* brought with him vessels of silver, and vessels of gold, and vessels of brass:  
+> **¹¹** Which also king David did dedicate unto the LORD, with the silver and gold that he had dedicated of all nations which he subdued;  
+> **¹²** Of Syria, and of Moab, and of the children of Ammon, and of the Philistines, and of Amalek, and of the spoil of Hadadezer, son of Rehob, king of Zobah.  
+> **¹³** And David gat *him* a name when he returned from smiting of the Syrians in the valley of salt, *being* eighteen thousand *men.*  
+> **¹⁴** And he put garrisons in Edom; throughout all Edom put he garrisons, and all they of Edom became David's servants. And the LORD preserved David whithersoever he went.  
 
 Here is, 1. The court made to David by the king of Hamath, who, it seems was at this time at war with the king of Zobah. He hearing of David's success against his enemy, sent his own son ambassador to him (2Sa 8:9,10), to congratulate him on his victory, to return him thanks for the favour he had done him in breaking the power of one he was in fear of, and to beg his friendship. Thus he not only secured but strengthened himself. And David lost nothing by taking this little prince under his protection, any more than the old Romans did by the like policy; for the wealth he had from the countries he conquered by way of spoil he had from this by way of present or gratuity: *Vessels of silver and gold.* Better get by composition than by compulsion. 2. The offering David made to God of the spoils of the nations and all the rich things that were brought him. He dedicated all to the Lord, 2Sa 8:11,12. This crowned all his victories, and made them far to out-shine Alexander's or Caesar's, that they sought their own glory, but he aimed at the glory of God. All the precious things he was master of were dedicated things, that is, they were designed for the building of the temple; and a good omen it was of kindness to the Gentiles in the fulness of time, and of the making of God's house a house of prayer for all people, that the temple was built of the spoils and presents of Gentile nations, in allusion to which we find *the kings of the earth* bringing *their glory and honour into the new Jerusalem,* Re 21:24. Their gods of gold David burnt (2Sa 5:21), but their vessels of gold he dedicated. Thus in the conquest of a soul, by the grace of the Son of David, what stands in opposition to God must be destroyed, every lust mortified and crucified, but what may glorify him must be dedicated and the property of it altered. Even the merchandise and the hire must be *holiness to the Lord* (Isa 23:18), the gain *consecrated to the Lord of the whole earth* (Mic 4:13), and then it is truly our own and that most comfortably. 3. The reputation he got, in a particular manner, by his victory over the Syrians and their allies the Edomites, who acted in conjunction with them, as appears by comparing the title of the 60th Psalm, which was penned on this occasion, with 2Sa 8:13. *He got himself a name* for all that conduct and courage which are the praise of a great and distinguished general. Something extraordinary, it is likely, there was in that action, which turned very much to his honour, yet he is careful to transfer the honour to God, as appears by the psalm he penned on this occasion, 2Sa 8:12. It is through God that we do valiantly. 4. His success against the Edomites. They all became David's servants, 2Sa 8:14. Now, and not till now, Isaac's blessing was accomplished, by which Jacob was made Esau's Lord (Ge 27:37-40) and the Edomites continued long tributary to the kings of Judah, as the Moabites were to the kings of Israel, till, in Joram's time, they revolted (2Ch 21:8) as Isaac had there foretold that Esau should, in process of time, break the yoke from off his neck. Thus David by his conquests, (1.) Secured peace to his son, that he might have time to build the temple. And, (2.) Procured wealth for his son, that he might have wherewith to build it. God employs his servants variously, some in one employment, others in another, some in the spiritual battles, others in the spiritual buildings; and one prepares work for the other, that God may have the glory of all. All David's victories were typical of the success of the gospel against the kingdom of Satan, in which the Son of David rode forth, conquering and to conquer, and he shall reign till he has brought down all opposing rule, principality, and power: and he has, as David had (2Sa 8:2), a line to kill and a line to save; for the same gospel is to some a savour of life unto life, to others a savour of death unto death.
 
 ## David's Administration of the Government of Israel. (b. c. 1042.)
 
-> <sup>15</sup> And David reigned over all Israel; and David executed judgment and justice unto all his people.  
-> <sup>16</sup> And Joab the son of Zeruiah *was* over the host; and Jehoshaphat the son of Ahilud *was* recorder;  
-> <sup>17</sup> And Zadok the son of Ahitub, and Ahimelech the son of Abiathar, *were* the priests; and Seraiah *was* the scribe;  
-> <sup>18</sup> And Benaiah the son of Jehoiada *was over* both the Cherethites and the Pelethites; and David's sons were chief rulers.  
+> **¹⁵** And David reigned over all Israel; and David executed judgment and justice unto all his people.  
+> **¹⁶** And Joab the son of Zeruiah *was* over the host; and Jehoshaphat the son of Ahilud *was* recorder;  
+> **¹⁷** And Zadok the son of Ahitub, and Ahimelech the son of Abiathar, *were* the priests; and Seraiah *was* the scribe;  
+> **¹⁸** And Benaiah the son of Jehoiada *was over* both the Cherethites and the Pelethites; and David's sons were chief rulers.  
 
 David was not so engaged in his wars abroad as to neglect the administration of the government at home.
 

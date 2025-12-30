@@ -8,10 +8,10 @@ After the prediction of the troubles of the Jews under Antiochus, prefiguring th
 
 ## The Promised Appearance of Michael; The Prophecy Sealed Up. (b. c. 534.)
 
-> <sup>1</sup> And at that time shall Michael stand up, the great prince which standeth for the children of thy people: and there shall be a time of trouble, such as never was since there was a nation *even* to that same time: and at that time thy people shall be delivered, every one that shall be found written in the book.  
-> <sup>2</sup> And many of them that sleep in the dust of the earth shall awake, some to everlasting life, and some to shame *and* everlasting contempt.  
-> <sup>3</sup> And they that be wise shall shine as the brightness of the firmament; and they that turn many to righteousness as the stars for ever and ever.  
-> <sup>4</sup> But thou, O Daniel, shut up the words, and seal the book, *even* to the time of the end: many shall run to and fro, and knowledge shall be increased.  
+> **¹** And at that time shall Michael stand up, the great prince which standeth for the children of thy people: and there shall be a time of trouble, such as never was since there was a nation *even* to that same time: and at that time thy people shall be delivered, every one that shall be found written in the book.  
+> **²** And many of them that sleep in the dust of the earth shall awake, some to everlasting life, and some to shame *and* everlasting contempt.  
+> **³** And they that be wise shall shine as the brightness of the firmament; and they that turn many to righteousness as the stars for ever and ever.  
+> **⁴** But thou, O Daniel, shut up the words, and seal the book, *even* to the time of the end: many shall run to and fro, and knowledge shall be increased.  
 
 It is usual with the prophets, when they foretel the grievances of the church, to furnish it at the same time with proper antidotes, a remedy for every malady. And no relief is so sovereign, of such general application, so easily accommodated to every case, and of such powerful efficacy, as those that are fetched from Christ and the future state; thence the comforts here are fetched.
 
@@ -29,15 +29,15 @@ VI\. That this prophecy of those times, though sealed up now, would be of great 
 
 ## Daniel's Solicitude to Know the Times; Period of Prophecy; Daniel Comforted. (b. c. 534.)
 
-> <sup>5</sup> Then I Daniel looked, and, behold, there stood other two, the one on this side of the bank of the river, and the other on that side of the bank of the river.  
-> <sup>6</sup> And *one* said to the man clothed in linen, which *was* upon the waters of the river, How long *shall it be to* the end of these wonders?  
-> <sup>7</sup> And I heard the man clothed in linen, which *was* upon the waters of the river, when he held up his right hand and his left hand unto heaven, and sware by him that liveth for ever that *it shall be* for a time, times, and a half; and when he shall have accomplished to scatter the power of the holy people, all these *things* shall be finished.  
-> <sup>8</sup> And I heard, but I understood not: then said I, O my Lord, what *shall be* the end of these *things?*  
-> <sup>9</sup> And he said, Go thy way, Daniel: for the words *are* closed up and sealed till the time of the end.  
-> <sup>10</sup> Many shall be purified, and made white, and tried; but the wicked shall do wickedly: and none of the wicked shall understand; but the wise shall understand.  
-> <sup>11</sup> And from the time *that* the daily *sacrifice* shall be taken away, and the abomination that maketh desolate set up, *there shall be* a thousand two hundred and ninety days.  
-> <sup>12</sup> Blessed *is* he that waiteth, and cometh to the thousand three hundred and five and thirty days.  
-> <sup>13</sup> But go thou thy way till the end *be:* for thou shalt rest, and stand in thy lot at the end of the days.  
+> **⁵** Then I Daniel looked, and, behold, there stood other two, the one on this side of the bank of the river, and the other on that side of the bank of the river.  
+> **⁶** And *one* said to the man clothed in linen, which *was* upon the waters of the river, How long *shall it be to* the end of these wonders?  
+> **⁷** And I heard the man clothed in linen, which *was* upon the waters of the river, when he held up his right hand and his left hand unto heaven, and sware by him that liveth for ever that *it shall be* for a time, times, and a half; and when he shall have accomplished to scatter the power of the holy people, all these *things* shall be finished.  
+> **⁸** And I heard, but I understood not: then said I, O my Lord, what *shall be* the end of these *things?*  
+> **⁹** And he said, Go thy way, Daniel: for the words *are* closed up and sealed till the time of the end.  
+> **¹⁰** Many shall be purified, and made white, and tried; but the wicked shall do wickedly: and none of the wicked shall understand; but the wise shall understand.  
+> **¹¹** And from the time *that* the daily *sacrifice* shall be taken away, and the abomination that maketh desolate set up, *there shall be* a thousand two hundred and ninety days.  
+> **¹²** Blessed *is* he that waiteth, and cometh to the thousand three hundred and five and thirty days.  
+> **¹³** But go thou thy way till the end *be:* for thou shalt rest, and stand in thy lot at the end of the days.  
 
 Daniel had been made to foresee the amazing revolutions of states and kingdoms, as far as the Israel of God was concerned in them; in them he foresaw troublous times to the church, suffering trying times, the prospect of which much affected him and filled him with concern. Now there were two questions proper to be asked upon this head:—*When* shall the *end be?* And, *What* shall the *end be?* These two questions are asked and answered here, in the close of the book; and though the comforts prescribed in the Da 12:1-4, one would think, were satisfactory enough, yet, for more abundant satisfaction, this is added.
 

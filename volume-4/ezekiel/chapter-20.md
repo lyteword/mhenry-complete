@@ -8,20 +8,20 @@ In this chapter, I. The prophet is consulted by some of the elders of Israel, Ez
 
 ## The Prophet Consulted by the Elders. (b. c. 592.)
 
-> <sup>1</sup> And it came to pass in the seventh year, in the fifth *month,* the tenth *day* of the month, *that* certain of the elders of Israel came to enquire of the LORD, and sat before me.  
-> <sup>2</sup> Then came the word of the LORD unto me, saying,  
-> <sup>3</sup> Son of man, speak unto the elders of Israel, and say unto them, Thus saith the Lord GOD; Are ye come to enquire of me? *As* I live, saith the Lord GOD, I will not be enquired of by you.  
-> <sup>4</sup> Wilt thou judge them, son of man, wilt thou judge *them?* cause them to know the abominations of their fathers:  
+> **¹** And it came to pass in the seventh year, in the fifth *month,* the tenth *day* of the month, *that* certain of the elders of Israel came to enquire of the LORD, and sat before me.  
+> **²** Then came the word of the LORD unto me, saying,  
+> **³** Son of man, speak unto the elders of Israel, and say unto them, Thus saith the Lord GOD; Are ye come to enquire of me? *As* I live, saith the Lord GOD, I will not be enquired of by you.  
+> **⁴** Wilt thou judge them, son of man, wilt thou judge *them?* cause them to know the abominations of their fathers:  
 
 Here is, 1. The occasion of the message which we have in this chapter. That sermon which we had Eze 18:1-32 was occasioned by their presumptuous reflections upon God; this was occasioned by their hypocritical enquiries after him. Each shall have his own. This prophecy is exactly dated, in the *seventh year of the* captivity, about two years after Ezekiel began to prophesy. God would have them to keep account how long their captivity lasted, that they might see how the years went on towards their deliverance, though very slowly. *Certain of the elders of Israel came to enquire of the Lord,* not statedly (as those Eze 8:1), but, as it should seem, occasionally, and upon a particular emergency. Whether they were of those that were now in captivity, or elders lately come from Jerusalem upon business to Babylon, is not certain; but, by what the prophet says to them (Eze 20:32), it should seem, their enquiry was whether now that they were captives in Babylon, at a distance from their own country, where they had not only no temple, but no synagogue, for the worship of God, it was not lawful for them, that they might ingratiate themselves with their lords and masters, to join with them in their worship and do *as the families of these countries* do, that *serve wood and stone.* This matter was palliated as well as it would bear, like Naaman's pleading with Elisha for leave to bow in the house of Rimmon, in compliment to the king; but we have reason to suspect that their enquiry drove at this. Note, Those hearts are wretchedly hardened which ask God leave to go on in sin, and that when they are suffering for it. They came and *sat* very demurely and with a show of devotion *before the prophet,* Eze 33:31. 2. The purport of this message. (1.) They must be made to know that *God is angry with them;* he takes it as an affront that they come to enquire of him when they are resolved to go on still in their trespasses: *As I live, saith the Lord God, I will not be enquired of by you,* Eze 20:3. Their shows of devotion shall be neither acceptable to God nor advantageous to themselves. God will not take notice of their enquiries, nor give them any satisfactory answers. Note, A hypocritical attendance on God and his ordinances is so far from being pleasing to him that it is provoking. (2.) They must be made to know that God is justly angry with them (Eze 20:4): "*Wilt thou judge them, son of man, wilt thou judge them?* Thou art a prophet, surely thou wilt not *plead for them,* as an intercessor with God; but surely thou wilt *pass sentence* on them as a judge for God. *See, I have set thee over the nation;* wilt thou not declare to them the judgments of the Lord? Cause them therefore *to know the abominations of their fathers.*" So the orders run now, as before (Eze 16:2) he must cause them to *know their own abominations.* Though their own abominations were sufficient to justify God in the severest of his proceedings against them, yet it would be of use for them to know the *abominations of their fathers,* that they might see what a righteous thing it was with God now at last to cut them off from being a people, who from the first were such a provoking people.
 
 ## God's Gracious Dealings with Israel. (b. c. 592.)
 
-> <sup>5</sup> And say unto them, Thus saith the Lord GOD; In the day when I chose Israel, and lifted up mine hand unto the seed of the house of Jacob, and made myself known unto them in the land of Egypt, when I lifted up mine hand unto them, saying, I *am* the LORD your God;  
-> <sup>6</sup> In the day *that* I lifted up mine hand unto them, to bring them forth of the land of Egypt into a land that I had espied for them, flowing with milk and honey, which *is* the glory of all lands:  
-> <sup>7</sup> Then said I unto them, Cast ye away every man the abominations of his eyes, and defile not yourselves with the idols of Egypt: I *am* the LORD your God.  
-> <sup>8</sup> But they rebelled against me, and would not hearken unto me: they did not every man cast away the abominations of their eyes, neither did they forsake the idols of Egypt: then I said, I will pour out my fury upon them, to accomplish my anger against them in the midst of the land of Egypt.  
-> <sup>9</sup> But I wrought for my name's sake, that it should not be polluted before the heathen, among whom they *were,* in whose sight I made myself known unto them, in bringing them forth out of the land of Egypt.  
+> **⁵** And say unto them, Thus saith the Lord GOD; In the day when I chose Israel, and lifted up mine hand unto the seed of the house of Jacob, and made myself known unto them in the land of Egypt, when I lifted up mine hand unto them, saying, I *am* the LORD your God;  
+> **⁶** In the day *that* I lifted up mine hand unto them, to bring them forth of the land of Egypt into a land that I had espied for them, flowing with milk and honey, which *is* the glory of all lands:  
+> **⁷** Then said I unto them, Cast ye away every man the abominations of his eyes, and defile not yourselves with the idols of Egypt: I *am* the LORD your God.  
+> **⁸** But they rebelled against me, and would not hearken unto me: they did not every man cast away the abominations of their eyes, neither did they forsake the idols of Egypt: then I said, I will pour out my fury upon them, to accomplish my anger against them in the midst of the land of Egypt.  
+> **⁹** But I wrought for my name's sake, that it should not be polluted before the heathen, among whom they *were,* in whose sight I made myself known unto them, in bringing them forth out of the land of Egypt.  
 
 The history of the ingratitude and rebellion of the people of Israel here begins as early as their beginning; so does the history of man's apostasy from his Maker. No sooner have we read the story of our first parents' creation than we immediately meet with that of their rebellion; so we see here it was with Israel, a people designed to represent the body of mankind both in their dealings with God and in his with them. Here is,
 
@@ -35,23 +35,23 @@ IV\. The wonderful deliverance which God wrought for them, notwithstanding. Thou
 
 ## The Privileges and Sins of Israel. (b. c. 592.)
 
-> <sup>10</sup> Wherefore I caused them to go forth out of the land of Egypt, and brought them into the wilderness.  
-> <sup>11</sup> And I gave them my statutes, and shewed them my judgments, which *if* a man do, he shall even live in them.  
-> <sup>12</sup> Moreover also I gave them my sabbaths, to be a sign between me and them, that they might know that I *am* the LORD that sanctify them.  
-> <sup>13</sup> But the house of Israel rebelled against me in the wilderness: they walked not in my statutes, and they despised my judgments, which *if* a man do, he shall even live in them; and my sabbaths they greatly polluted: then I said, I would pour out my fury upon them in the wilderness, to consume them.  
-> <sup>14</sup> But I wrought for my name's sake, that it should not be polluted before the heathen, in whose sight I brought them out.  
-> <sup>15</sup> Yet also I lifted up my hand unto them in the wilderness, that I would not bring them into the land which I had given *them,* flowing with milk and honey, which *is* the glory of all lands;  
-> <sup>16</sup> Because they despised my judgments, and walked not in my statutes, but polluted my sabbaths: for their heart went after their idols.  
-> <sup>17</sup> Nevertheless mine eye spared them from destroying them, neither did I make an end of them in the wilderness.  
-> <sup>18</sup> But I said unto their children in the wilderness, Walk ye not in the statutes of your fathers, neither observe their judgments, nor defile yourselves with their idols:  
-> <sup>19</sup> I *am* the LORD your God; walk in my statutes, and keep my judgments, and do them;  
-> <sup>20</sup> And hallow my sabbaths; and they shall be a sign between me and you, that ye may know that I *am* the LORD your God.  
-> <sup>21</sup> Notwithstanding the children rebelled against me: they walked not in my statutes, neither kept my judgments to do them, which *if* a man do, he shall even live in them; they polluted my sabbaths: then I said, I would pour out my fury upon them, to accomplish my anger against them in the wilderness.  
-> <sup>22</sup> Nevertheless I withdrew mine hand, and wrought for my name's sake, that it should not be polluted in the sight of the heathen, in whose sight I brought them forth.  
-> <sup>23</sup> I lifted up mine hand unto them also in the wilderness, that I would scatter them among the heathen, and disperse them through the countries;  
-> <sup>24</sup> Because they had not executed my judgments, but had despised my statutes, and had polluted my sabbaths, and their eyes were after their fathers' idols.  
-> <sup>25</sup> Wherefore I gave them also statutes *that were* not good, and judgments whereby they should not live;  
-> <sup>26</sup> And I polluted them in their own gifts, in that they caused to pass through *the fire* all that openeth the womb, that I might make them desolate, to the end that they might know that I *am* the LORD.  
+> **¹⁰** Wherefore I caused them to go forth out of the land of Egypt, and brought them into the wilderness.  
+> **¹¹** And I gave them my statutes, and shewed them my judgments, which *if* a man do, he shall even live in them.  
+> **¹²** Moreover also I gave them my sabbaths, to be a sign between me and them, that they might know that I *am* the LORD that sanctify them.  
+> **¹³** But the house of Israel rebelled against me in the wilderness: they walked not in my statutes, and they despised my judgments, which *if* a man do, he shall even live in them; and my sabbaths they greatly polluted: then I said, I would pour out my fury upon them in the wilderness, to consume them.  
+> **¹⁴** But I wrought for my name's sake, that it should not be polluted before the heathen, in whose sight I brought them out.  
+> **¹⁵** Yet also I lifted up my hand unto them in the wilderness, that I would not bring them into the land which I had given *them,* flowing with milk and honey, which *is* the glory of all lands;  
+> **¹⁶** Because they despised my judgments, and walked not in my statutes, but polluted my sabbaths: for their heart went after their idols.  
+> **¹⁷** Nevertheless mine eye spared them from destroying them, neither did I make an end of them in the wilderness.  
+> **¹⁸** But I said unto their children in the wilderness, Walk ye not in the statutes of your fathers, neither observe their judgments, nor defile yourselves with their idols:  
+> **¹⁹** I *am* the LORD your God; walk in my statutes, and keep my judgments, and do them;  
+> **²⁰** And hallow my sabbaths; and they shall be a sign between me and you, that ye may know that I *am* the LORD your God.  
+> **²¹** Notwithstanding the children rebelled against me: they walked not in my statutes, neither kept my judgments to do them, which *if* a man do, he shall even live in them; they polluted my sabbaths: then I said, I would pour out my fury upon them, to accomplish my anger against them in the wilderness.  
+> **²²** Nevertheless I withdrew mine hand, and wrought for my name's sake, that it should not be polluted in the sight of the heathen, in whose sight I brought them forth.  
+> **²³** I lifted up mine hand unto them also in the wilderness, that I would scatter them among the heathen, and disperse them through the countries;  
+> **²⁴** Because they had not executed my judgments, but had despised my statutes, and had polluted my sabbaths, and their eyes were after their fathers' idols.  
+> **²⁵** Wherefore I gave them also statutes *that were* not good, and judgments whereby they should not live;  
+> **²⁶** And I polluted them in their own gifts, in that they caused to pass through *the fire* all that openeth the womb, that I might make them desolate, to the end that they might know that I *am* the LORD.  
 
 The history of the struggle between the sins of Israel, by which they endeavoured to ruin themselves, and the mercies of God, by which he endeavoured to save them and make them happy, is here continued: and the instances of that struggle in these verses have reference to what passed between God and them in the wilderness, in which God honoured himself and they shamed themselves. The story of Israel in the wilderness is referred to in the New Testament (1Co 10:1-33, Heb 3:1-19), as well as often in the Old, for warning to us Christians; and therefore we are particularly concerned in these verses. Observe,
 
@@ -69,12 +69,12 @@ VI\. The judgments of God upon them for their rebellion. They would not regard t
 
 ## The Rebellions of Israel. (b. c. 592.)
 
-> <sup>27</sup> Therefore, son of man, speak unto the house of Israel, and say unto them, Thus saith the Lord GOD; Yet in this your fathers have blasphemed me, in that they have committed a trespass against me.  
-> <sup>28</sup> *For* when I had brought them into the land, *for* the which I lifted up mine hand to give it to them, then they saw every high hill, and all the thick trees, and they offered there their sacrifices, and there they presented the provocation of their offering: there also they made their sweet savour, and poured out there their drink offerings.  
-> <sup>29</sup> Then I said unto them, What *is* the high place whereunto ye go? And the name thereof is called Bamah unto this day.  
-> <sup>30</sup> Wherefore say unto the house of Israel, Thus saith the Lord GOD; Are ye polluted after the manner of your fathers? and commit ye whoredom after their abominations?  
-> <sup>31</sup> For when ye offer your gifts, when ye make your sons to pass through the fire, ye pollute yourselves with all your idols, even unto this day: and shall I be enquired of by you, O house of Israel? *As* I live, saith the Lord GOD, I will not be enquired of by you.  
-> <sup>32</sup> And that which cometh into your mind shall not be at all, that ye say, We will be as the heathen, as the families of the countries, to serve wood and stone.  
+> **²⁷** Therefore, son of man, speak unto the house of Israel, and say unto them, Thus saith the Lord GOD; Yet in this your fathers have blasphemed me, in that they have committed a trespass against me.  
+> **²⁸** *For* when I had brought them into the land, *for* the which I lifted up mine hand to give it to them, then they saw every high hill, and all the thick trees, and they offered there their sacrifices, and there they presented the provocation of their offering: there also they made their sweet savour, and poured out there their drink offerings.  
+> **²⁹** Then I said unto them, What *is* the high place whereunto ye go? And the name thereof is called Bamah unto this day.  
+> **³⁰** Wherefore say unto the house of Israel, Thus saith the Lord GOD; Are ye polluted after the manner of your fathers? and commit ye whoredom after their abominations?  
+> **³¹** For when ye offer your gifts, when ye make your sons to pass through the fire, ye pollute yourselves with all your idols, even unto this day: and shall I be enquired of by you, O house of Israel? *As* I live, saith the Lord GOD, I will not be enquired of by you.  
+> **³²** And that which cometh into your mind shall not be at all, that ye say, We will be as the heathen, as the families of the countries, to serve wood and stone.  
 
 Here the prophet goes on with the story of their rebellions, for their further humiliation, and shows,
 
@@ -84,18 +84,18 @@ II\. That this generation, after they were unsettled, continued under the domini
 
 ## The Sins of Israel. (b. c. 592.)
 
-> <sup>33</sup> *As* I live, saith the Lord GOD, surely with a mighty hand, and with a stretched out arm, and with fury poured out, will I rule over you:  
-> <sup>34</sup> And I will bring you out from the people, and will gather you out of the countries wherein ye are scattered, with a mighty hand, and with a stretched out arm, and with fury poured out.  
-> <sup>35</sup> And I will bring you into the wilderness of the people, and there will I plead with you face to face.  
-> <sup>36</sup> Like as I pleaded with your fathers in the wilderness of the land of Egypt, so will I plead with you, saith the Lord GOD.  
-> <sup>37</sup> And I will cause you to pass under the rod, and I will bring you into the bond of the covenant:  
-> <sup>38</sup> And I will purge out from among you the rebels, and them that transgress against me: I will bring them forth out of the country where they sojourn, and they shall not enter into the land of Israel: and ye shall know that I *am* the LORD.  
-> <sup>39</sup> As for you, O house of Israel, thus saith the Lord GOD; Go ye, serve ye every one his idols, and hereafter *also,* if ye will not hearken unto me: but pollute ye my holy name no more with your gifts, and with your idols.  
-> <sup>40</sup> For in mine holy mountain, in the mountain of the height of Israel, saith the Lord GOD, there shall all the house of Israel, all of them in the land, serve me: there will I accept them, and there will I require your offerings, and the first-fruits of your oblations, with all your holy things.  
-> <sup>41</sup> I will accept you with your sweet savour, when I bring you out from the people, and gather you out of the countries wherein ye have been scattered; and I will be sanctified in you before the heathen.  
-> <sup>42</sup> And ye shall know that I *am* the LORD, when I shall bring you into the land of Israel, into the country *for* the which I lifted up mine hand to give it to your fathers.  
-> <sup>43</sup> And there shall ye remember your ways, and all your doings, wherein ye have been defiled; and ye shall loathe yourselves in your own sight for all your evils that ye have committed.  
-> <sup>44</sup> And ye shall know that I *am* the LORD, when I have wrought with you for my name's sake, not according to your wicked ways, nor according to your corrupt doings, O ye house of Israel, saith the Lord GOD.  
+> **³³** *As* I live, saith the Lord GOD, surely with a mighty hand, and with a stretched out arm, and with fury poured out, will I rule over you:  
+> **³⁴** And I will bring you out from the people, and will gather you out of the countries wherein ye are scattered, with a mighty hand, and with a stretched out arm, and with fury poured out.  
+> **³⁵** And I will bring you into the wilderness of the people, and there will I plead with you face to face.  
+> **³⁶** Like as I pleaded with your fathers in the wilderness of the land of Egypt, so will I plead with you, saith the Lord GOD.  
+> **³⁷** And I will cause you to pass under the rod, and I will bring you into the bond of the covenant:  
+> **³⁸** And I will purge out from among you the rebels, and them that transgress against me: I will bring them forth out of the country where they sojourn, and they shall not enter into the land of Israel: and ye shall know that I *am* the LORD.  
+> **³⁹** As for you, O house of Israel, thus saith the Lord GOD; Go ye, serve ye every one his idols, and hereafter *also,* if ye will not hearken unto me: but pollute ye my holy name no more with your gifts, and with your idols.  
+> **⁴⁰** For in mine holy mountain, in the mountain of the height of Israel, saith the Lord GOD, there shall all the house of Israel, all of them in the land, serve me: there will I accept them, and there will I require your offerings, and the first-fruits of your oblations, with all your holy things.  
+> **⁴¹** I will accept you with your sweet savour, when I bring you out from the people, and gather you out of the countries wherein ye have been scattered; and I will be sanctified in you before the heathen.  
+> **⁴²** And ye shall know that I *am* the LORD, when I shall bring you into the land of Israel, into the country *for* the which I lifted up mine hand to give it to your fathers.  
+> **⁴³** And there shall ye remember your ways, and all your doings, wherein ye have been defiled; and ye shall loathe yourselves in your own sight for all your evils that ye have committed.  
+> **⁴⁴** And ye shall know that I *am* the LORD, when I have wrought with you for my name's sake, not according to your wicked ways, nor according to your corrupt doings, O ye house of Israel, saith the Lord GOD.  
 
 The design which was now on foot among the elders of Israel was that the people of Israel, being scattered among the nations, should lay aside all their peculiarities and conform to those among whom they lived; but God had told them that the design should not take effect, Eze 20:32. Now, in these verses, he shows particularly how it should be frustrated. They aimed at the *mingling* of the families of *Israel with the families of the countries;* but it will prove in the issue that the wicked Israelites, notwithstanding their compliances, shall not mingle with them in their prosperity, but shall be distinguished from them for destruction; for idolatrous Israelites, that are apostates from God, shall be sooner and more sorely punished than idolatrous Babylonians that never knew the way of righteousness. Read and tremble at the doom here passed upon them; it is backed with an oath not to be reversed: *As I live, saith the Lord God,* thus and thus will I deal with you. They think to make both Jerusalem and Babylon their friends by halting between two; but God threatens that neither of them shall serve for a rest or refuge for them.
 
@@ -109,11 +109,11 @@ II\. Israel shall be no more able to protect them than Babylon could; nor shall 
 
 ## Judgment and Mercy. (b. c. 592.)
 
-> <sup>45</sup> Moreover the word of the LORD came unto me, saying,  
-> <sup>46</sup> Son of man, set thy face toward the south, and drop *thy word* toward the south, and prophesy against the forest of the south field;  
-> <sup>47</sup> And say to the forest of the south, Hear the word of the LORD; Thus saith the Lord GOD; Behold, I will kindle a fire in thee, and it shall devour every green tree in thee, and every dry tree: the flaming flame shall not be quenched, and all faces from the south to the north shall be burned therein.  
-> <sup>48</sup> And all flesh shall see that I the LORD have kindled it: it shall not be quenched.  
-> <sup>49</sup> Then said I, Ah Lord GOD! they say of me, Doth he not speak parables?  
+> **⁴⁵** Moreover the word of the LORD came unto me, saying,  
+> **⁴⁶** Son of man, set thy face toward the south, and drop *thy word* toward the south, and prophesy against the forest of the south field;  
+> **⁴⁷** And say to the forest of the south, Hear the word of the LORD; Thus saith the Lord GOD; Behold, I will kindle a fire in thee, and it shall devour every green tree in thee, and every dry tree: the flaming flame shall not be quenched, and all faces from the south to the north shall be burned therein.  
+> **⁴⁸** And all flesh shall see that I the LORD have kindled it: it shall not be quenched.  
+> **⁴⁹** Then said I, Ah Lord GOD! they say of me, Doth he not speak parables?  
 
 We have here a prophecy of wrath against Judah and Jerusalem, which would more fitly have begun the next chapter than conclude this; for it has no dependence on what goes before, but that which follows in the beginning of the next chapter is the explication of it, when the people complained that this was a parable which they understood not. In this parable, 1. It is a forest that is prophesied against, *the forest of the south field,* Judah and Jerusalem. These lay south from Babylon, where Ezekiel now was, and therefore he is directed to *set his face towards the south* (Eze 20:46), to intimate to them that God had set his face against them, was displeased with them, and determined to destroy them. But, though it be a message of wrath which he has to deliver, he must deliver it with mildness and tenderness; he must *drop his word towards the south;* his doctrine must *distil as the rain* (De 32:2), that people's hearts might be softened by it, as the earth by the *river of God,* which *drops upon the pastures of the wilderness* (Ps 65:12) and which a south land more especially calls for, Jos 15:19. Judah and Jerusalem are called *forests,* not only because they had been full of people, as a wood of trees, but because they had been empty of fruit, for fruit-trees grow not in a forest; and a forest is put in opposition to a fruitful field, Isa 32:15. Those that should have been as the garden of the Lord, and his vineyard, had become like a forest, all overgrown with *briers and thorns;* and those that are so, that bring not forth the fruits of righteousness, God's word prophesies against. 2. It is a fire kindled in his forest that is prophesied of, Eze 20:47. All those judgments which wasted and consumed both the city and the country-sword, famine, pestilence, and captivity, are signified by this fire. (1.) It is a fire of God's own kindling: *I will kindle a fire in thee;* the *breath of the Lord* is not as a drop, but *as a stream, of brimstone* to set it on fire, Isa 30:33. He that had been himself a protecting fire about Jerusalem is now a consuming fire in it. *All flesh shall see* by the fury of this fire, and the desolations it shall make, especially when they compare it with the sins which had made them fuel for this fire, that it is *the Lord* that *has kindled it* (Eze 20:48), as a just avenger of his own injured honour. (2.) This conflagration shall be general: all orders and degrees of men shall be devoured by it—young and old, rich and poor, high and low. Even *green trees,* which the fire does not easily fasten upon, shall be devoured by this fire; even good people shall some of them be involved in these calamities; and *if this be done in the green trees, what shall be done in the dry?* The dry trees shall be as tinder and touch-wood to this fire. *All faces* (that is, all that covers the face of the earth) *from the south* of Canaan to the north, from Beer-sheba to Dan, shall be *burnt therein.* (3.) The fire *shall not be quenched;* no attempts to give check to the dissolution shall prevail. When God will ruin a nation, who or what can save it?
 

@@ -8,8 +8,8 @@ After the introduction (2Co 1:1,2) the apostle begins with the narrative of his 
 
 ## Grateful Acknowledgments. (a. d. 57.)
 
-> <sup>1</sup> Paul, an apostle of Jesus Christ by the will of God, and Timothy *our* brother, unto the church of God which is at Corinth, with all the saints which are in all Achaia:  
-> <sup>2</sup> Grace *be* to you and peace from God our Father, and *from* the Lord Jesus Christ.  
+> **¹** Paul, an apostle of Jesus Christ by the will of God, and Timothy *our* brother, unto the church of God which is at Corinth, with all the saints which are in all Achaia:  
+> **²** Grace *be* to you and peace from God our Father, and *from* the Lord Jesus Christ.  
 
 This is the introduction to this epistle, in which we have,
 
@@ -19,10 +19,10 @@ II\. The salutation or apostolical benediction, which is the same as in his form
 
 ## Paul's Sufferings and Consolations. (a. d. 57.)
 
-> <sup>3</sup> Blessed *be* God, even the Father of our Lord Jesus Christ, the Father of mercies, and the God of all comfort;  
-> <sup>4</sup> Who comforteth us in all our tribulation, that we may be able to comfort them which are in any trouble, by the comfort wherewith we ourselves are comforted of God.  
-> <sup>5</sup> For as the sufferings of Christ abound in us, so our consolation also aboundeth by Christ.  
-> <sup>6</sup> And whether we be afflicted, *it is* for your consolation and salvation, which is effectual in the enduring of the same sufferings which we also suffer: or whether we be comforted, *it is* for your consolation and salvation.  
+> **³** Blessed *be* God, even the Father of our Lord Jesus Christ, the Father of mercies, and the God of all comfort;  
+> **⁴** Who comforteth us in all our tribulation, that we may be able to comfort them which are in any trouble, by the comfort wherewith we ourselves are comforted of God.  
+> **⁵** For as the sufferings of Christ abound in us, so our consolation also aboundeth by Christ.  
+> **⁶** And whether we be afflicted, *it is* for your consolation and salvation, which is effectual in the enduring of the same sufferings which we also suffer: or whether we be comforted, *it is* for your consolation and salvation.  
 
 After the foregoing preface, the apostle begins with the narrative of God's goodness to him and his fellow-labourers in their manifold tribulations, which he speaks of by way of thanksgiving to God, and to advance the divine glory (2Co 1:3-6); and it is fit that in all things, and in the first place, God be glorified. Observe,
 
@@ -36,19 +36,19 @@ II\. The reasons of the apostle's thanksgivings, which are these:—
 
 ## Paul's Sincerity and Affliction. (a. d. 57.)
 
-> <sup>7</sup> And our hope of you *is* stedfast, knowing, that as ye are partakers of the sufferings, so *shall ye be* also of the consolation.  
-> <sup>8</sup> For we would not, brethren, have you ignorant of our trouble which came to us in Asia, that we were pressed out of measure, above strength, insomuch that we despaired even of life:  
-> <sup>9</sup> But we had the sentence of death in ourselves, that we should not trust in ourselves, but in God which raiseth the dead:  
-> <sup>10</sup> Who delivered us from so great a death, and doth deliver: in whom we trust that he will yet deliver *us;*  
-> <sup>11</sup> Ye also helping together by prayer for us, that for the gift *bestowed* upon us by the means of many persons thanks may be given by many on our behalf.  
+> **⁷** And our hope of you *is* stedfast, knowing, that as ye are partakers of the sufferings, so *shall ye be* also of the consolation.  
+> **⁸** For we would not, brethren, have you ignorant of our trouble which came to us in Asia, that we were pressed out of measure, above strength, insomuch that we despaired even of life:  
+> **⁹** But we had the sentence of death in ourselves, that we should not trust in ourselves, but in God which raiseth the dead:  
+> **¹⁰** Who delivered us from so great a death, and doth deliver: in whom we trust that he will yet deliver *us;*  
+> **¹¹** Ye also helping together by prayer for us, that for the gift *bestowed* upon us by the means of many persons thanks may be given by many on our behalf.  
 
 In these verses the apostle speaks for the encouragement and edification of the Corinthians; and tells them (2Co 1:7) of his persuasion or stedfast hope that they should receive benefit by the troubles he and his companions in labour and travel had met with, that their faith should not be weakened, but their consolations increased. In order to this he tells them, 1. What their sufferings had been (2Co 1:8): *We would not have you ignorant of our trouble.* It was convenient for the churches to know what were the sufferings of their ministers. It is not certain what particular troubles in Asia are here referred to; whether the tumult raised by Demetrius at Ephesus, mentioned Ac 19:24-41, or the fight with beasts at Ephesus, mentioned in the former epistle (1Co 15:32), or some other trouble; for the apostle was in deaths often. This however is evident, that they were great tribulations. They *were pushed out of measure,* to a very extraordinary degree, above the common strength of men, or of ordinary Christians, to bear up under them, insomuch that they *despaired even of life* (2Co 1:8), and thought they should have been killed, or have fainted away and expired. 2. What they did in their distress: *They trusted in God.* And they were brought to this extremity in order *that they should not trust in themselves but in God,* 2Co 1:9. Note, God often brings his people into great straits, that they may apprehend their own insufficiency to help themselves, and may be induced to place their trust and hope in his all-sufficiency. Our extremity is God's opportunity. *In the mount will the Lord be seen;* and we may safely trust in *God, who raiseth the dead,* 2Co 1:9. God's raising the dead is a proof of his almighty power. He that can do this can do any thing, can do all things, and is worthy to be trusted in at all times. Abraham's faith fastened upon this instance of the divine power: *He believed God who quickeneth the dead,* Ro 4:17. If we should be brought so low as to despair even of life, yet we may then trust in God, who can bring back not only from the gates, but from the jaws, of death. 3. What the deliverance was that they had obtained; and this was seasonable and continued. Their hope and trust were not in vain, nor shall any who trust in him be ashamed. God had delivered them, and did still deliver them, 2Co 1:10. *Having obtained help of God, they continued to that day,* Ac 26:22. 4. What use they made of this deliverance: *We trust that he will yet deliver us* (2Co 1:10), that God will deliver to the end, and *preserve to his heavenly kingdom.* Note, Past experiences are great encouragements to faith and hope, and they lay great obligations to trust in God for time to come. We reproach our experiences if we distrust God in future straits, who hath delivered as in former troubles. David, even when a young man, and when he had but a small stock of experiences, argued after the manner of the apostle here, 1Sa 17:37. 5. What was desired of the Corinthians upon this account: *That they would help together by prayer for them* (2Co 1:11), by social prayer, agreeing and joining together in prayer on their behalf. Note, our trusting in God must not supersede the use of any proper and appointed means; and prayer is one of those means. We should pray for ourselves and for one another. The apostle had himself a great interest in the throne of grace, yet he desires the help of others' prayers. If we thus help one another by our prayers, we may hope for an occasion of *giving thanks by many* for answer of prayer. And it is our duty not only to help one another with prayer, but in praise and thanksgiving, and thereby to make suitable returns for benefits received.
 
 ## Paul's Sincerity and Affliction. (a. d. 57.)
 
-> <sup>12</sup> For our rejoicing is this, the testimony of our conscience, that in simplicity and godly sincerity, not with fleshly wisdom, but by the grace of God, we have had our conversation in the world, and more abundantly to you-ward.  
-> <sup>13</sup> For we write none other things unto you, than what ye read or acknowledge; and I trust ye shall acknowledge even to the end;  
-> <sup>14</sup> As also ye have acknowledged us in part, that we are your rejoicing, even as ye also *are* ours in the day of the Lord Jesus.  
+> **¹²** For our rejoicing is this, the testimony of our conscience, that in simplicity and godly sincerity, not with fleshly wisdom, but by the grace of God, we have had our conversation in the world, and more abundantly to you-ward.  
+> **¹³** For we write none other things unto you, than what ye read or acknowledge; and I trust ye shall acknowledge even to the end;  
+> **¹⁴** As also ye have acknowledged us in part, that we are your rejoicing, even as ye also *are* ours in the day of the Lord Jesus.  
 
 The apostle in these verses attests their integrity by the sincerity of their conversation. This he does not in a way of boasting and vain-glory, but as one good reason for desiring the help of prayer, as well as for the more comfortably trusting in God (Heb 13:18), and for the necessary vindication of himself from the aspersions of some persons at Corinth, who reproached his person and questioned his apostleship. Here,
 
@@ -58,16 +58,16 @@ II\. He appeals to the knowledge of the Corinthians with hope and confidence, 2C
 
 ## Paul's Sincerity and Affliction. (a. d. 57.)
 
-> <sup>15</sup> And in this confidence I was minded to come unto you before, that ye might have a second benefit;  
-> <sup>16</sup> And to pass by you into Macedonia, and to come again out of Macedonia unto you, and of you to be brought on my way toward Judæa.  
-> <sup>17</sup> When I therefore was thus minded, did I use lightness? or the things that I purpose, do I purpose according to the flesh, that with me there should be yea yea, and nay nay?  
-> <sup>18</sup> But *as* God *is* true, our word toward you was not yea and nay.  
-> <sup>19</sup> For the Son of God, Jesus Christ, who was preached among you by us, *even* by me and Silvanus and Timotheus, was not yea and nay, but in him was yea.  
-> <sup>20</sup> For all the promises of God in him *are* yea, and in him Amen, unto the glory of God by us.  
-> <sup>21</sup> Now he which stablisheth us with you in Christ, and hath anointed us, *is* God;  
-> <sup>22</sup> Who hath also sealed us, and given the earnest of the Spirit in our hearts.  
-> <sup>23</sup> Moreover I call God for a record upon my soul, that to spare you I came not as yet unto Corinth.  
-> <sup>24</sup> Not for that we have dominion over your faith, but are helpers of your joy: for by faith ye stand.  
+> **¹⁵** And in this confidence I was minded to come unto you before, that ye might have a second benefit;  
+> **¹⁶** And to pass by you into Macedonia, and to come again out of Macedonia unto you, and of you to be brought on my way toward Judæa.  
+> **¹⁷** When I therefore was thus minded, did I use lightness? or the things that I purpose, do I purpose according to the flesh, that with me there should be yea yea, and nay nay?  
+> **¹⁸** But *as* God *is* true, our word toward you was not yea and nay.  
+> **¹⁹** For the Son of God, Jesus Christ, who was preached among you by us, *even* by me and Silvanus and Timotheus, was not yea and nay, but in him was yea.  
+> **²⁰** For all the promises of God in him *are* yea, and in him Amen, unto the glory of God by us.  
+> **²¹** Now he which stablisheth us with you in Christ, and hath anointed us, *is* God;  
+> **²²** Who hath also sealed us, and given the earnest of the Spirit in our hearts.  
+> **²³** Moreover I call God for a record upon my soul, that to spare you I came not as yet unto Corinth.  
+> **²⁴** Not for that we have dominion over your faith, but are helpers of your joy: for by faith ye stand.  
 
 The apostle here vindicates himself from the imputation of levity and inconstancy, in that he did not hold his purpose of coming to them at Corinth. His adversaries there sought all occasions to blemish his character, and reflect upon his conduct; and, it seemed, they took hold of this handle to reproach his person and discredit his ministry. Now, for his justification,
 

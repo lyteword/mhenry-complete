@@ -8,26 +8,26 @@ It is a memorable and very melancholy story which is related in this and the fol
 
 ## Missions of the Twelve Spies. (b. c. 1490.)
 
-> <sup>1</sup> And the LORD spake unto Moses, saying,  
-> <sup>2</sup> Send thou men, that they may search the land of Canaan, which I give unto the children of Israel: of every tribe of their fathers shall ye send a man, every one a ruler among them.  
-> <sup>3</sup> And Moses by the commandment of the LORD sent them from the wilderness of Paran: all those men *were* heads of the children of Israel.  
-> <sup>4</sup> And these *were* their names: of the tribe of Reuben, Shammua the son of Zaccur.  
-> <sup>5</sup> Of the tribe of Simeon, Shaphat the son of Hori.  
-> <sup>6</sup> Of the tribe of Judah, Caleb the son of Jephunneh.  
-> <sup>7</sup> Of the tribe of Issachar, Igal the son of Joseph.  
-> <sup>8</sup> Of the tribe of Ephraim, Oshea the son of Nun.  
-> <sup>9</sup> Of the tribe of Benjamin, Palti the son of Raphu.  
-> <sup>10</sup> Of the tribe of Zebulun, Gaddiel the son of Sodi.  
-> <sup>11</sup> Of the tribe of Joseph, *namely,* of the tribe of Manasseh, Gaddi the son of Susi.  
-> <sup>12</sup> Of the tribe of Dan, Ammiel the son of Gemalli.  
-> <sup>13</sup> Of the tribe of Asher, Sethur the son of Michael.  
-> <sup>14</sup> Of the tribe of Naphtali, Nahbi the son of Vophsi.  
-> <sup>15</sup> Of the tribe of Gad, Geuel the son of Machi.  
-> <sup>16</sup> These *are* the names of the men which Moses sent to spy out the land. And Moses called Oshea the son of Nun Jehoshua.  
-> <sup>17</sup> And Moses sent them to spy out the land of Canaan, and said unto them, Get you up this *way* southward, and go up into the mountain:  
-> <sup>18</sup> And see the land, what it *is;* and the people that dwelleth therein, whether they *be* strong or weak, few or many;  
-> <sup>19</sup> And what the land *is* that they dwell in, whether it *be* good or bad; and what cities *they be* that they dwell in, whether in tents, or in strong holds;  
-> <sup>20</sup> And what the land *is,* whether it *be* fat or lean, whether there be wood therein, or not. And be ye of good courage, and bring of the fruit of the land. Now the time *was* the time of the firstripe grapes.  
+> **¹** And the LORD spake unto Moses, saying,  
+> **²** Send thou men, that they may search the land of Canaan, which I give unto the children of Israel: of every tribe of their fathers shall ye send a man, every one a ruler among them.  
+> **³** And Moses by the commandment of the LORD sent them from the wilderness of Paran: all those men *were* heads of the children of Israel.  
+> **⁴** And these *were* their names: of the tribe of Reuben, Shammua the son of Zaccur.  
+> **⁵** Of the tribe of Simeon, Shaphat the son of Hori.  
+> **⁶** Of the tribe of Judah, Caleb the son of Jephunneh.  
+> **⁷** Of the tribe of Issachar, Igal the son of Joseph.  
+> **⁸** Of the tribe of Ephraim, Oshea the son of Nun.  
+> **⁹** Of the tribe of Benjamin, Palti the son of Raphu.  
+> **¹⁰** Of the tribe of Zebulun, Gaddiel the son of Sodi.  
+> **¹¹** Of the tribe of Joseph, *namely,* of the tribe of Manasseh, Gaddi the son of Susi.  
+> **¹²** Of the tribe of Dan, Ammiel the son of Gemalli.  
+> **¹³** Of the tribe of Asher, Sethur the son of Michael.  
+> **¹⁴** Of the tribe of Naphtali, Nahbi the son of Vophsi.  
+> **¹⁵** Of the tribe of Gad, Geuel the son of Machi.  
+> **¹⁶** These *are* the names of the men which Moses sent to spy out the land. And Moses called Oshea the son of Nun Jehoshua.  
+> **¹⁷** And Moses sent them to spy out the land of Canaan, and said unto them, Get you up this *way* southward, and go up into the mountain:  
+> **¹⁸** And see the land, what it *is;* and the people that dwelleth therein, whether they *be* strong or weak, few or many;  
+> **¹⁹** And what the land *is* that they dwell in, whether it *be* good or bad; and what cities *they be* that they dwell in, whether in tents, or in strong holds;  
+> **²⁰** And what the land *is,* whether it *be* fat or lean, whether there be wood therein, or not. And be ye of good courage, and bring of the fruit of the land. Now the time *was* the time of the firstripe grapes.  
 
 Here we have, I. Orders given to send spies to search out the land of Canaan. It is here said, God directed Moses to send them (Nu 13:1,2), but it appears by the repetition of the story afterwards (De 1:22) that the motion came originally from the people; they came to Moses, and said, *We will send men before us;* and it was the fruit of their unbelief. They would not take God's word that it was a good land, and that he would, without fail, put them in possession of it. They could not trust the pillar of cloud and fire to show them the way to it, but had a better opinion of their own politics than of God's wisdom. How absurd was it for them to send to spy out a land which God himself had spied out for them, to enquire the way into it when God himself had undertaken to show them the way! But thus we ruin ourselves by giving more credit to the reports and representations of sense than to divine revelation; we walk by sight, not by faith; whereas, *if we* will *receive the witness of men,* without doubt *the witness of God is greater.* The people making this motion to Moses, he (perhaps not aware of the unbelief at the bottom of it) consulted God in the case, who bade him gratify the people in this matter, and send spies before them: "Let them walk in their own counsels." Yet God was no way accessory to the sin that followed, for the sending of these spies was so far from being the cause of the sin that if the spies had done their duty, and the people theirs, it might have been the confirmation of their faith, and of good service to them.
 
@@ -37,22 +37,22 @@ III\. The instructions given to those spies. They were sent into the land of Can
 
 IV\. Moses dismisses the spies with this charge, *Be of good courage,* intimating, not only that they should be themselves encouraged against the difficulties of this expedition, but that they should bring an encouraging account to the people and make the best of every thing. It was not only a great undertaking they were put upon, which required good management and resolution, but it was a great trust that was reposed in them, which required that they should be faithful.
 
-> <sup>21</sup> So they went up, and searched the land from the wilderness of Zin unto Rehob, as men come to Hamath.  
-> <sup>22</sup> And they ascended by the south, and came unto Hebron; where Ahiman, Sheshai, and Talmai, the children of Anak, *were.* (Now Hebron was built seven years before Zoan in Egypt.)  
-> <sup>23</sup> And they came unto the brook of Eshcol, and cut down from thence a branch with one cluster of grapes, and they bare it between two upon a staff; and *they brought* of the pomegranates, and of the figs.  
-> <sup>24</sup> The place was called the brook Eshcol, because of the cluster of grapes which the children of Israel cut down from thence.  
-> <sup>25</sup> And they returned from searching of the land after forty days.  
+> **²¹** So they went up, and searched the land from the wilderness of Zin unto Rehob, as men come to Hamath.  
+> **²²** And they ascended by the south, and came unto Hebron; where Ahiman, Sheshai, and Talmai, the children of Anak, *were.* (Now Hebron was built seven years before Zoan in Egypt.)  
+> **²³** And they came unto the brook of Eshcol, and cut down from thence a branch with one cluster of grapes, and they bare it between two upon a staff; and *they brought* of the pomegranates, and of the figs.  
+> **²⁴** The place was called the brook Eshcol, because of the cluster of grapes which the children of Israel cut down from thence.  
+> **²⁵** And they returned from searching of the land after forty days.  
 
 We have here a short account of the survey which the spies made of the promised land. 1. They went quite through it, from Zin in the south, to Rehob, near Hamath, in the north, Nu 13:21. See Nu 34:3,8. It is probable that they did not go altogether in a body, lest they should be suspected and taken up, which there would be the more danger of if the Canaanites knew (and one would think they could not but know) how near the Israelites were to them; but they divided themselves into several companies, and so passed unsuspected, as way-faring men. 2. They took particular notice of Hebron (Nu 13:22), probably because near there was the field of Machpelah, where the patriarchs were buried (Ge 23:2), whose dead bodies did, as it were, keep possession of that land for their posterity. To this sepulchre they made a particular visit, and found the adjoining city in the possession of the sons of Anak, who are here named. In that place where they expected the greatest encouragements they met with the greatest discouragements. Where the bodies of their ancestors kept possession for them the giants kept possession against them. *They ascended by the south, and came to Hebron,* that is, "Caleb," say the Jews, "in particular," for to his being there we find express reference, Jos 14:9,12,13. But that others of the spies were there too appears by their description of the Anakim, Nu 13:33. 3. They brought a bunch of grapes with them, and some other of the fruits of the land, as a proof of the extraordinary goodness of the country. Probably they furnished themselves with these fruits when they were leaving the country and returning. The cluster of grapes was so large and so heavy that they hung it upon a bar, and carried it between two of them, Nu 13:23,24. The place whence they took it was, from this circumstance, called the *valley of the cluster,* that famous cluster which was to Israel both the earnest and the specimen of all the fruits of Canaan. Such are the present comforts which we have in communion with God, foretastes of the fulness of joy we expect in the heavenly Canaan. We may see by them what heaven is.
 
-> <sup>26</sup> And they went and came to Moses, and to Aaron, and to all the congregation of the children of Israel, unto the wilderness of Paran, to Kadesh; and brought back word unto them, and unto all the congregation, and showed them the fruit of the land.  
-> <sup>27</sup> And they told him, and said, We came unto the land whither thou sentest us, and surely it floweth with milk and honey; and this *is* the fruit of it.  
-> <sup>28</sup> Nevertheless the people *be* strong that dwell in the land, and the cities *are* walled, *and* very great: and moreover we saw the children of Anak there.  
-> <sup>29</sup> The Amalekites dwell in the land of the south: and the Hittites, and the Jebusites, and the Amorites, dwell in the mountains: and the Canaanites dwell by the sea, and by the coast of Jordan.  
-> <sup>30</sup> And Caleb stilled the people before Moses, and said, Let us go up at once, and possess it; for we are well able to overcome it.  
-> <sup>31</sup> But the men that went up with him said, We be not able to go up against the people; for they *are* stronger than we.  
-> <sup>32</sup> And they brought up an evil report of the land which they had searched unto the children of Israel, saying, The land, through which we have gone to search it, *is* a land that eateth up the inhabitants thereof; and all the people that we saw in it *are* men of a great stature.  
-> <sup>33</sup> And there we saw the giants, the sons of Anak, *which come* of the giants: and we were in our own sight as grasshoppers, and so we were in their sight.  
+> **²⁶** And they went and came to Moses, and to Aaron, and to all the congregation of the children of Israel, unto the wilderness of Paran, to Kadesh; and brought back word unto them, and unto all the congregation, and showed them the fruit of the land.  
+> **²⁷** And they told him, and said, We came unto the land whither thou sentest us, and surely it floweth with milk and honey; and this *is* the fruit of it.  
+> **²⁸** Nevertheless the people *be* strong that dwell in the land, and the cities *are* walled, *and* very great: and moreover we saw the children of Anak there.  
+> **²⁹** The Amalekites dwell in the land of the south: and the Hittites, and the Jebusites, and the Amorites, dwell in the mountains: and the Canaanites dwell by the sea, and by the coast of Jordan.  
+> **³⁰** And Caleb stilled the people before Moses, and said, Let us go up at once, and possess it; for we are well able to overcome it.  
+> **³¹** But the men that went up with him said, We be not able to go up against the people; for they *are* stronger than we.  
+> **³²** And they brought up an evil report of the land which they had searched unto the children of Israel, saying, The land, through which we have gone to search it, *is* a land that eateth up the inhabitants thereof; and all the people that we saw in it *are* men of a great stature.  
+> **³³** And there we saw the giants, the sons of Anak, *which come* of the giants: and we were in our own sight as grasshoppers, and so we were in their sight.  
 
 It is a wonder how the people of Israel had patience to stay forty days for the return of their spies, when they were just ready to enter Canaan, under all the assurances of success they could have from the divine power, and a constant series of miracles that had hitherto attended them; but they distrusted God's power and promise, and were willing to be held in suspense by their own counsels, rather than be brought to a certainty by God's covenant. How much do we stand in our own light by our unbelief! Well, at length the messengers return, but they agree not in their report.
 

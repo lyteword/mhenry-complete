@@ -8,14 +8,14 @@ The two kingdoms of providence and grace are what we are all very nearly interes
 
 ## The Vision of the Four Chariots. (b. c. 520.)
 
-> <sup>1</sup> And I turned, and lifted up mine eyes, and looked, and, behold, there came four chariots out from between two mountains; and the mountains *were* mountains of brass.  
-> <sup>2</sup> In the first chariot *were* red horses; and in the second chariot black horses;  
-> <sup>3</sup> And in the third chariot white horses; and in the fourth chariot grisled and bay horses.  
-> <sup>4</sup> Then I answered and said unto the angel that talked with me, What *are* these, my lord?  
-> <sup>5</sup> And the angel answered and said unto me, These *are* the four spirits of the heavens, which go forth from standing before the Lord of all the earth.  
-> <sup>6</sup> The black horses which *are* therein go forth into the north country; and the white go forth after them; and the grisled go forth toward the south country.  
-> <sup>7</sup> And the bay went forth, and sought to go that they might walk to and fro through the earth: and he said, Get you hence, walk to and fro through the earth. So they walked to and fro through the earth.  
-> <sup>8</sup> Then cried he upon me, and spake unto me, saying, Behold, these that go toward the north country have quieted my spirit in the north country.  
+> **¹** And I turned, and lifted up mine eyes, and looked, and, behold, there came four chariots out from between two mountains; and the mountains *were* mountains of brass.  
+> **²** In the first chariot *were* red horses; and in the second chariot black horses;  
+> **³** And in the third chariot white horses; and in the fourth chariot grisled and bay horses.  
+> **⁴** Then I answered and said unto the angel that talked with me, What *are* these, my lord?  
+> **⁵** And the angel answered and said unto me, These *are* the four spirits of the heavens, which go forth from standing before the Lord of all the earth.  
+> **⁶** The black horses which *are* therein go forth into the north country; and the white go forth after them; and the grisled go forth toward the south country.  
+> **⁷** And the bay went forth, and sought to go that they might walk to and fro through the earth: and he said, Get you hence, walk to and fro through the earth. So they walked to and fro through the earth.  
+> **⁸** Then cried he upon me, and spake unto me, saying, Behold, these that go toward the north country have quieted my spirit in the north country.  
 
 The prophet is forward to receive this vision, and, as if he expected it, he *turned and lifted up his eyes and looked.* Though this was the seventh vision he had had, yet he did not think he had had enough; for the more we know of God and his will, if we know it aright, the more desirous we shall be to get a further acquaintance with God. Now observe here the sight that the prophet had of*four chariots* drawn by horses of divers colours, together with the explication of the sight, Zec 6:1-5. He did not look long before he discovered that which was worth seeing, and which would serve very much for the encouraging of himself and his friends in this dark day. We are very much in the dark concerning the meaning of this vision. Some by the *four chariots* understand the four monarchies; and then they read (Zec 6:5), *These are the four winds of the heavens,* and suppose that therein reference is had to Da 7:2, where Daniel saw, in vision, the *four winds of the heavens striving upon the great sea,* representing the four monarchies. The Babylonian monarchy, they think, is here represented by the *red horses,* which are not afterwards mentioned, because that monarchy was now extinct. The second chariot with the *black horses* is the Persian monarchy, which went forth northward against the Babylonians, and *quieted God's Spirit in the north country,* by executing his judgments on Babylon and freeing the Jews from their captivity. The *white,* the Grecians, go *forth after them* in the north, for they overthrow the Persians. The *grizzled,* the Romans, who conquered the Grecian empire, are said to *go forth towards the south country,* because Egypt, which lay southward, was the last branch of the Grecian empire that was subdued by the Romans. The *bay horses* had been with the *grizzled,* but afterwards went forth by themselves; and by these they understand the Goths and Vandals, who with their victorious arms walked to and fro through the earth, or the Seleucidæ and Lagidæ, the two branches of the Grecian empire. Thus Grotius and others.
 
@@ -23,13 +23,13 @@ But I incline rather to understand this vision more generally, as designing to r
 
 ## The Coronation of Joshua; Prediction of the Messiah. (b. c. 520.)
 
-> <sup>9</sup> And the word of the LORD came unto me, saying,  
-> <sup>10</sup> Take of *them of* the captivity, *even* of Heldai, of Tobijah, and of Jedaiah, which are come from Babylon, and come thou the same day, and go into the house of Josiah the son of Zephaniah;  
-> <sup>11</sup> Then take silver and gold, and make crowns, and set *them* upon the head of Joshua the son of Josedech, the high priest;  
-> <sup>12</sup> And speak unto him, saying, Thus speaketh the LORD of hosts, saying, Behold the man whose name *is* The BRANCH; and he shall grow up out of his place, and he shall build the temple of the LORD:  
-> <sup>13</sup> Even he shall build the temple of the LORD; and he shall bear the glory, and shall sit and rule upon his throne; and he shall be a priest upon his throne: and the counsel of peace shall be between them both.  
-> <sup>14</sup> And the crowns shall be to Helem, and to Tobijah, and to Jedaiah, and to Hen the son of Zephaniah, for a memorial in the temple of the LORD.  
-> <sup>15</sup> And they *that are* far off shall come and build in the temple of the LORD, and ye shall know that the LORD of hosts hath sent me unto you. And *this* shall come to pass, if ye will diligently obey the voice of the LORD your God.  
+> **⁹** And the word of the LORD came unto me, saying,  
+> **¹⁰** Take of *them of* the captivity, *even* of Heldai, of Tobijah, and of Jedaiah, which are come from Babylon, and come thou the same day, and go into the house of Josiah the son of Zephaniah;  
+> **¹¹** Then take silver and gold, and make crowns, and set *them* upon the head of Joshua the son of Josedech, the high priest;  
+> **¹²** And speak unto him, saying, Thus speaketh the LORD of hosts, saying, Behold the man whose name *is* The BRANCH; and he shall grow up out of his place, and he shall build the temple of the LORD:  
+> **¹³** Even he shall build the temple of the LORD; and he shall bear the glory, and shall sit and rule upon his throne; and he shall be a priest upon his throne: and the counsel of peace shall be between them both.  
+> **¹⁴** And the crowns shall be to Helem, and to Tobijah, and to Jedaiah, and to Hen the son of Zephaniah, for a memorial in the temple of the LORD.  
+> **¹⁵** And they *that are* far off shall come and build in the temple of the LORD, and ye shall know that the LORD of hosts hath sent me unto you. And *this* shall come to pass, if ye will diligently obey the voice of the LORD your God.  
 
 God did not only at *sundry times,* but *in divers manners,* speak in time past by the prophets to his church. In the former part of this chapter he spoke by a vision, which only the prophet himself saw; here, in this latter part, he speaks by a sign, or type, which many saw, and which, as it was explained, was an illustrious prediction of the Messiah as the priest and king of his church. Here is,
 

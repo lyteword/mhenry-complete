@@ -8,27 +8,27 @@ In this chapter, I. Israel looks back upon Egypt with a song of praise for their
 
 ## Triumphant Song of the Israelites. (b. c. 1491.)
 
-> <sup>1</sup> Then sang Moses and the children of Israel this song unto the LORD, and spake, saying, I will sing unto the LORD, for he hath triumphed gloriously: the horse and his rider hath he thrown into the sea.  
-> <sup>2</sup> The LORD *is* my strength and song, and he is become my salvation: he *is* my God, and I will prepare him an habitation; my father's God, and I will exalt him.  
-> <sup>3</sup> The LORD *is* a man of war: the LORD *is* his name.  
-> <sup>4</sup> Pharaoh's chariots and his host hath he cast into the sea: his chosen captains also are drowned in the Red sea.  
-> <sup>5</sup> The depths have covered them: they sank into the bottom as a stone.  
-> <sup>6</sup> Thy right hand, O LORD, is become glorious in power: thy right hand, O LORD, hath dashed in pieces the enemy.  
-> <sup>7</sup> And in the greatness of thine excellency thou hast overthrown them that rose up against thee: thou sentest forth thy wrath, *which* consumed them as stubble.  
-> <sup>8</sup> And with the blast of thy nostrils the waters were gathered together, the floods stood upright as an heap, *and* the depths were congealed in the heart of the sea.  
-> <sup>9</sup> The enemy said, I will pursue, I will overtake, I will divide the spoil; my lust shall be satisfied upon them; I will draw my sword, my hand shall destroy them.  
-> <sup>10</sup> Thou didst blow with thy wind, the sea covered them: they sank as lead in the mighty waters.  
-> <sup>11</sup> Who *is* like unto thee, O LORD, among the gods? who *is* like thee, glorious in holiness, fearful *in* praises, doing wonders?  
-> <sup>12</sup> Thou stretchedst out thy right hand, the earth swallowed them.  
-> <sup>13</sup> Thou in thy mercy hast led forth the people *which* thou hast redeemed: thou hast guided *them* in thy strength unto thy holy habitation.  
-> <sup>14</sup> The people shall hear, *and* be afraid: sorrow shall take hold on the inhabitants of Palestina.  
-> <sup>15</sup> Then the dukes of Edom shall be amazed; the mighty men of Moab, trembling shall take hold upon them; all the inhabitants of Canaan shall melt away.  
-> <sup>16</sup> Fear and dread shall fall upon them; by the greatness of thine arm they shall be *as* still as a stone; till thy people pass over, O LORD, till the people pass over, *which* thou hast purchased.  
-> <sup>17</sup> Thou shalt bring them in, and plant them in the mountain of thine inheritance, *in* the place, O LORD, *which* thou hast made for thee to dwell in, *in* the Sanctuary, O Lord, *which* thy hands have established.  
-> <sup>18</sup> The LORD shall reign for ever and ever.  
-> <sup>19</sup> For the horse of Pharaoh went in with his chariots and with his horsemen into the sea, and the LORD brought again the waters of the sea upon them; but the children of Israel went on dry *land* in the midst of the sea.  
-> <sup>20</sup> And Miriam the prophetess, the sister of Aaron, took a timbrel in her hand; and all the women went out after her with timbrels and with dances.  
-> <sup>21</sup> And Miriam answered them, Sing ye to the LORD, for he hath triumphed gloriously; the horse and his rider hath he thrown into the sea.  
+> **¹** Then sang Moses and the children of Israel this song unto the LORD, and spake, saying, I will sing unto the LORD, for he hath triumphed gloriously: the horse and his rider hath he thrown into the sea.  
+> **²** The LORD *is* my strength and song, and he is become my salvation: he *is* my God, and I will prepare him an habitation; my father's God, and I will exalt him.  
+> **³** The LORD *is* a man of war: the LORD *is* his name.  
+> **⁴** Pharaoh's chariots and his host hath he cast into the sea: his chosen captains also are drowned in the Red sea.  
+> **⁵** The depths have covered them: they sank into the bottom as a stone.  
+> **⁶** Thy right hand, O LORD, is become glorious in power: thy right hand, O LORD, hath dashed in pieces the enemy.  
+> **⁷** And in the greatness of thine excellency thou hast overthrown them that rose up against thee: thou sentest forth thy wrath, *which* consumed them as stubble.  
+> **⁸** And with the blast of thy nostrils the waters were gathered together, the floods stood upright as an heap, *and* the depths were congealed in the heart of the sea.  
+> **⁹** The enemy said, I will pursue, I will overtake, I will divide the spoil; my lust shall be satisfied upon them; I will draw my sword, my hand shall destroy them.  
+> **¹⁰** Thou didst blow with thy wind, the sea covered them: they sank as lead in the mighty waters.  
+> **¹¹** Who *is* like unto thee, O LORD, among the gods? who *is* like thee, glorious in holiness, fearful *in* praises, doing wonders?  
+> **¹²** Thou stretchedst out thy right hand, the earth swallowed them.  
+> **¹³** Thou in thy mercy hast led forth the people *which* thou hast redeemed: thou hast guided *them* in thy strength unto thy holy habitation.  
+> **¹⁴** The people shall hear, *and* be afraid: sorrow shall take hold on the inhabitants of Palestina.  
+> **¹⁵** Then the dukes of Edom shall be amazed; the mighty men of Moab, trembling shall take hold upon them; all the inhabitants of Canaan shall melt away.  
+> **¹⁶** Fear and dread shall fall upon them; by the greatness of thine arm they shall be *as* still as a stone; till thy people pass over, O LORD, till the people pass over, *which* thou hast purchased.  
+> **¹⁷** Thou shalt bring them in, and plant them in the mountain of thine inheritance, *in* the place, O LORD, *which* thou hast made for thee to dwell in, *in* the Sanctuary, O Lord, *which* thy hands have established.  
+> **¹⁸** The LORD shall reign for ever and ever.  
+> **¹⁹** For the horse of Pharaoh went in with his chariots and with his horsemen into the sea, and the LORD brought again the waters of the sea upon them; but the children of Israel went on dry *land* in the midst of the sea.  
+> **²⁰** And Miriam the prophetess, the sister of Aaron, took a timbrel in her hand; and all the women went out after her with timbrels and with dances.  
+> **²¹** And Miriam answered them, Sing ye to the LORD, for he hath triumphed gloriously; the horse and his rider hath he thrown into the sea.  
 
 Having read how that complete victory of Israel over the Egyptians was obtained, here we are told how it was celebrated; those that were to hold their peace while the deliverance was in working (Ex 14:14) must not hold their peace now that it was wrought; the less they had to do then the more they had to do now. If God accomplishes deliverance by his own immediate power, it redounds so much the more to his glory. Moses, no doubt by divine inspiration, indited this song, and delivered it to the children of Israel, to be sung before they stirred from the place where they saw the Egyptians dead upon the shore. Observe, 1. They expressed their joy in God, and thankfulness to him, by singing; it is almost natural to us thus to give vent to our joy and the exultations of our spirit. By this instance it appears that the singing of psalms, as an act of religious worship, was used in the church of Christ before the giving of the ceremonial law, and therefore was no part of it, nor abolished with it. Singing is as much the language of holy joy as praying is of holy desire. 2. Moses, who had gone before them through the sea, goes before them in the song, and composes it for them. Note, Those that are active in public services should not be neuters in public praises. 3. When the mercy was fresh, and they were much affected with it, then they sang this song. Note, When we have received special mercy from God, we ought to be quick and speedy in our returns of praise to him, before time and the deceitfulness of our own hearts efface the good impressions that have been made. David sang his triumphant song in the day that the Lord delivered him, 2Sa 22:1. *Bis dat qui cito dat—He gives twice who gives quickly.* 4. When they *believed the Lord* (Ex 14:31) then they sang this song: it was a song of faith; this connection is observed (Ps 106:12): *Then believed they his words, they sang his praise.* If with the heart man believes, thus confession must be made. Here is,
 
@@ -52,12 +52,12 @@ II\. The solemn singing of this song, Ex 15:20,21. Miriam (or Mary, it is the sa
 
 ## The Waters of Marah. (b. c. 1491.)
 
-> <sup>22</sup> So Moses brought Israel from the Red sea, and they went out into the wilderness of Shur; and they went three days in the wilderness, and found no water.  
-> <sup>23</sup> And when they came to Marah, they could not drink of the waters of Marah, for they *were* bitter: therefore the name of it was called Marah.  
-> <sup>24</sup> And the people murmured against Moses, saying, What shall we drink?  
-> <sup>25</sup> And he cried unto the LORD; and the LORD showed him a tree, *which* when he had cast into the waters, the waters were made sweet: there he made for them a statute and an ordinance, and there he proved them,  
-> <sup>26</sup> And said, If thou wilt diligently hearken to the voice of the LORD thy God, and wilt do that which is right in his sight, and wilt give ear to his commandments, and keep all his statutes, I will put none of these diseases upon thee, which I have brought upon the Egyptians: for I *am* the LORD that healeth thee.  
-> <sup>27</sup> And they came to Elim, where *were* twelve wells of water, and threescore and ten palm trees: and they encamped there by the waters.  
+> **²²** So Moses brought Israel from the Red sea, and they went out into the wilderness of Shur; and they went three days in the wilderness, and found no water.  
+> **²³** And when they came to Marah, they could not drink of the waters of Marah, for they *were* bitter: therefore the name of it was called Marah.  
+> **²⁴** And the people murmured against Moses, saying, What shall we drink?  
+> **²⁵** And he cried unto the LORD; and the LORD showed him a tree, *which* when he had cast into the waters, the waters were made sweet: there he made for them a statute and an ordinance, and there he proved them,  
+> **²⁶** And said, If thou wilt diligently hearken to the voice of the LORD thy God, and wilt do that which is right in his sight, and wilt give ear to his commandments, and keep all his statutes, I will put none of these diseases upon thee, which I have brought upon the Egyptians: for I *am* the LORD that healeth thee.  
+> **²⁷** And they came to Elim, where *were* twelve wells of water, and threescore and ten palm trees: and they encamped there by the waters.  
 
 It should seem, it was with some difficulty that Moses prevailed with Israel to leave that triumphant shore on which they sang the foregoing song. They were so taken up with the sight, or with the song, or with the spoiling of the dead bodies, that they cared not to go forward, but Moses with much ado brought them from the Red Sea into a wilderness. The pleasures of our way to Canaan must not retard our progress, but quicken it, though we have a wilderness before us. Now here we are told,
 

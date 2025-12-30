@@ -8,16 +8,16 @@ The apostle, having in the foregoing chapter set forth the sin and punishment of
 
 ## Gospel Privileges; Cautions against Apostasy. (a. d. 62.)
 
-> <sup>1</sup> Let us therefore fear, lest, a promise being left *us* of entering into his rest, any of you should seem to come short of it.  
-> <sup>2</sup> For unto us was the gospel preached, as well as unto them: but the word preached did not profit them, not being mixed with faith in them that heard *it.*  
-> <sup>3</sup> For we which have believed do enter into rest, as he said, As I have sworn in my wrath, if they shall enter into my rest: although the works were finished from the foundation of the world.  
-> <sup>4</sup> For he spake in a certain place of the seventh *day* on this wise, And God did rest the seventh day from all his works.  
-> <sup>5</sup> And in this *place* again, If they shall enter into my rest.  
-> <sup>6</sup> Seeing therefore it remaineth that some must enter therein, and they to whom it was first preached entered not in because of unbelief:  
-> <sup>7</sup> Again, he limiteth a certain day, saying in David, To day, after so long a time; as it is said, To day if ye will hear his voice, harden not your hearts.  
-> <sup>8</sup> For if Jesus had given them rest, then would he not afterward have spoken of another day.  
-> <sup>9</sup> There remaineth therefore a rest to the people of God.  
-> <sup>10</sup> For he that is entered into his rest, he also hath ceased from his own works, as God *did* from his.  
+> **¹** Let us therefore fear, lest, a promise being left *us* of entering into his rest, any of you should seem to come short of it.  
+> **²** For unto us was the gospel preached, as well as unto them: but the word preached did not profit them, not being mixed with faith in them that heard *it.*  
+> **³** For we which have believed do enter into rest, as he said, As I have sworn in my wrath, if they shall enter into my rest: although the works were finished from the foundation of the world.  
+> **⁴** For he spake in a certain place of the seventh *day* on this wise, And God did rest the seventh day from all his works.  
+> **⁵** And in this *place* again, If they shall enter into my rest.  
+> **⁶** Seeing therefore it remaineth that some must enter therein, and they to whom it was first preached entered not in because of unbelief:  
+> **⁷** Again, he limiteth a certain day, saying in David, To day, after so long a time; as it is said, To day if ye will hear his voice, harden not your hearts.  
+> **⁸** For if Jesus had given them rest, then would he not afterward have spoken of another day.  
+> **⁹** There remaineth therefore a rest to the people of God.  
+> **¹⁰** For he that is entered into his rest, he also hath ceased from his own works, as God *did* from his.  
 
 Here, I. The apostle declares that our privileges by Christ under the gospel are not only as great, but greater than those enjoyed under the Mosaic law. He specifies this, that we have a promise left us of entering into his rest; that is, of entering into a covenant-relation to Christ, and a state of communion with God through Christ, and of growing up therein, till we are made perfect in glory. We have discoveries of this rest, and proposals, and the best directions how we may attain unto it. This promise of spiritual rest is a promise left us by the Lord Jesus Christ in his last will and testament, as a precious legacy. Our business is to see to it that we be the legatees, that we lay our claim to that rest and freedom from the dominion of sin, Satan, and the flesh, by which the souls of men are kept in servitude and deprived of the true rest of the soul, and may be also set free from the yoke of the law and all the toilsome ceremonies and services of it, and may enjoy peace with God in his ordinances and providences, and in our own consciences, and so have the prospect and earnest of perfect and everlasting rest in heaven.
 
@@ -37,12 +37,12 @@ VI\. The apostle confirms the misery of those who do not believe; they shall nev
 
 ## Serious Exhortation; The Priesthood of Christ. (a. d. 62.)
 
-> <sup>11</sup> Let us labour therefore to enter into that rest, lest any man fall after the same example of unbelief.  
-> <sup>12</sup> For the word of God *is* quick, and powerful, and sharper than any two-edged sword, piercing even to the dividing asunder of soul and spirit, and of the joints and marrow, and *is* a discerner of the thoughts and intents of the heart.  
-> <sup>13</sup> Neither is there any creature that is not manifest in his sight: but all things *are* naked and opened unto the eyes of him with whom we have to do.  
-> <sup>14</sup> Seeing then that we have a great high priest, that is passed into the heavens, Jesus the Son of God, let us hold fast *our* profession.  
-> <sup>15</sup> For we have not a high priest which cannot be touched with the feeling of our infirmities; but was in all points tempted like as *we are, yet* without sin.  
-> <sup>16</sup> Let us therefore come boldly unto the throne of grace, that we may obtain mercy, and find grace to help in time of need.  
+> **¹¹** Let us labour therefore to enter into that rest, lest any man fall after the same example of unbelief.  
+> **¹²** For the word of God *is* quick, and powerful, and sharper than any two-edged sword, piercing even to the dividing asunder of soul and spirit, and of the joints and marrow, and *is* a discerner of the thoughts and intents of the heart.  
+> **¹³** Neither is there any creature that is not manifest in his sight: but all things *are* naked and opened unto the eyes of him with whom we have to do.  
+> **¹⁴** Seeing then that we have a great high priest, that is passed into the heavens, Jesus the Son of God, let us hold fast *our* profession.  
+> **¹⁵** For we have not a high priest which cannot be touched with the feeling of our infirmities; but was in all points tempted like as *we are, yet* without sin.  
+> **¹⁶** Let us therefore come boldly unto the throne of grace, that we may obtain mercy, and find grace to help in time of need.  
 
 In this latter part of the chapter the apostle concludes, first, with a serious repeated exhortation, and then with proper and powerful motives.
 

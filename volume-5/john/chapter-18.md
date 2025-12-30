@@ -8,18 +8,18 @@ Hitherto this evangelist has recorded little of the history of Christ, only so f
 
 ## Christ in the Garden; The Treachery of Judas; The Ear of Malachus Cut Off; Christ Yields Himself a Prisoner.
 
-> <sup>1</sup> When Jesus had spoken these words, he went forth with his disciples over the brook Cedron, where was a garden, into the which he entered, and his disciples.  
-> <sup>2</sup> And Judas also, which betrayed him, knew the place: for Jesus ofttimes resorted thither with his disciples.  
-> <sup>3</sup> Judas then, having received a band *of men* and officers from the chief priests and Pharisees, cometh thither with lanterns and torches and weapons.  
-> <sup>4</sup> Jesus therefore, knowing all things that should come upon him, went forth, and said unto them, Whom seek ye?  
-> <sup>5</sup> They answered him, Jesus of Nazareth. Jesus saith unto them, I am *he.* And Judas also, which betrayed him, stood with them.  
-> <sup>6</sup> As soon then as he had said unto them, I am *he,* they went backward, and fell to the ground.  
-> <sup>7</sup> Then asked he them again, Whom seek ye? And they said, Jesus of Nazareth.  
-> <sup>8</sup> Jesus answered, I have told you that I am *he:* if therefore ye seek me, let these go their way:  
-> <sup>9</sup> That the saying might be fulfilled, which he spake, Of them which thou gavest me have I lost none.  
-> <sup>10</sup> Then Simon Peter having a sword drew it, and smote the high priest's servant, and cut off his right ear. The servant's name was Malchus.  
-> <sup>11</sup> Then said Jesus unto Peter, Put up thy sword into the sheath: the cup which my Father hath given me, shall I not drink it?  
-> <sup>12</sup> Then the band and the captain and officers of the Jews took Jesus, and bound him,  
+> **¹** When Jesus had spoken these words, he went forth with his disciples over the brook Cedron, where was a garden, into the which he entered, and his disciples.  
+> **²** And Judas also, which betrayed him, knew the place: for Jesus ofttimes resorted thither with his disciples.  
+> **³** Judas then, having received a band *of men* and officers from the chief priests and Pharisees, cometh thither with lanterns and torches and weapons.  
+> **⁴** Jesus therefore, knowing all things that should come upon him, went forth, and said unto them, Whom seek ye?  
+> **⁵** They answered him, Jesus of Nazareth. Jesus saith unto them, I am *he.* And Judas also, which betrayed him, stood with them.  
+> **⁶** As soon then as he had said unto them, I am *he,* they went backward, and fell to the ground.  
+> **⁷** Then asked he them again, Whom seek ye? And they said, Jesus of Nazareth.  
+> **⁸** Jesus answered, I have told you that I am *he:* if therefore ye seek me, let these go their way:  
+> **⁹** That the saying might be fulfilled, which he spake, Of them which thou gavest me have I lost none.  
+> **¹⁰** Then Simon Peter having a sword drew it, and smote the high priest's servant, and cut off his right ear. The servant's name was Malchus.  
+> **¹¹** Then said Jesus unto Peter, Put up thy sword into the sheath: the cup which my Father hath given me, shall I not drink it?  
+> **¹²** Then the band and the captain and officers of the Jews took Jesus, and bound him,  
 
 The hour was now come that *the captain of our salvation,* who was to be *made perfect by sufferings,* should engage the enemy. We have here his entrance upon the encounter. The day of recompence is in his heart, and *the year of his redeemed is come, and his own arm works the salvation,* for he has no second. *Let us turn aside now, and see this great sight.*
 
@@ -93,21 +93,21 @@ VI\. Having entirely reconciled himself to the dispensation, he calmly surrender
 
 ## Christ before Annas and Caiaphas; The Fall of Peter; Christ Arraigned; Peter Again Denies Christ.
 
-> <sup>13</sup> And led him away to Annas first; for he was father in law to Caiaphas, which was the high priest that same year.  
-> <sup>14</sup> Now Caiaphas was he, which gave counsel to the Jews, that it was expedient that one man should die for the people.  
-> <sup>15</sup> And Simon Peter followed Jesus, and *so did* another disciple: that disciple was known unto the high priest, and went in with Jesus into the palace of the high priest.  
-> <sup>16</sup> But Peter stood at the door without. Then went out that other disciple, which was known unto the high priest, and spake unto her that kept the door, and brought in Peter.  
-> <sup>17</sup> Then saith the damsel that kept the door unto Peter, Art not thou also *one* of this man's disciples? He saith, I am not.  
-> <sup>18</sup> And the servants and officers stood there, who had made a fire of coals; for it was cold: and they warmed themselves: and Peter stood with them, and warmed himself.  
-> <sup>19</sup> The high priest then asked Jesus of his disciples, and of his doctrine.  
-> <sup>20</sup> Jesus answered him, I spake openly to the world; I ever taught in the synagogue, and in the temple, whither the Jews always resort; and in secret have I said nothing.  
-> <sup>21</sup> Why askest thou me? ask them which heard me, what I have said unto them: behold, they know what I said.  
-> <sup>22</sup> And when he had thus spoken, one of the officers which stood by struck Jesus with the palm of his hand, saying, Answerest thou the high priest so?  
-> <sup>23</sup> Jesus answered him, If I have spoken evil, bear witness of the evil: but if well, why smitest thou me?  
-> <sup>24</sup> Now Annas had sent him bound unto Caiaphas the high priest.  
-> <sup>25</sup> And Simon Peter stood and warmed himself. They said therefore unto him, Art not thou also *one* of his disciples? He denied *it,* and said, I am not.  
-> <sup>26</sup> One of the servants of the high priest, being *his* kinsman whose ear Peter cut off, saith, Did not I see thee in the garden with him?  
-> <sup>27</sup> Peter then denied again: and immediately the cock crew.  
+> **¹³** And led him away to Annas first; for he was father in law to Caiaphas, which was the high priest that same year.  
+> **¹⁴** Now Caiaphas was he, which gave counsel to the Jews, that it was expedient that one man should die for the people.  
+> **¹⁵** And Simon Peter followed Jesus, and *so did* another disciple: that disciple was known unto the high priest, and went in with Jesus into the palace of the high priest.  
+> **¹⁶** But Peter stood at the door without. Then went out that other disciple, which was known unto the high priest, and spake unto her that kept the door, and brought in Peter.  
+> **¹⁷** Then saith the damsel that kept the door unto Peter, Art not thou also *one* of this man's disciples? He saith, I am not.  
+> **¹⁸** And the servants and officers stood there, who had made a fire of coals; for it was cold: and they warmed themselves: and Peter stood with them, and warmed himself.  
+> **¹⁹** The high priest then asked Jesus of his disciples, and of his doctrine.  
+> **²⁰** Jesus answered him, I spake openly to the world; I ever taught in the synagogue, and in the temple, whither the Jews always resort; and in secret have I said nothing.  
+> **²¹** Why askest thou me? ask them which heard me, what I have said unto them: behold, they know what I said.  
+> **²²** And when he had thus spoken, one of the officers which stood by struck Jesus with the palm of his hand, saying, Answerest thou the high priest so?  
+> **²³** Jesus answered him, If I have spoken evil, bear witness of the evil: but if well, why smitest thou me?  
+> **²⁴** Now Annas had sent him bound unto Caiaphas the high priest.  
+> **²⁵** And Simon Peter stood and warmed himself. They said therefore unto him, Art not thou also *one* of his disciples? He denied *it,* and said, I am not.  
+> **²⁶** One of the servants of the high priest, being *his* kinsman whose ear Peter cut off, saith, Did not I see thee in the garden with him?  
+> **²⁷** Peter then denied again: and immediately the cock crew.  
 
 We have here an account of Christ's arraignment before the high priest, and some circumstances that occurred therein which were omitted by the other evangelists; and Peter's denying him, which the other evangelists had given the story of entire by itself, is interwoven with the other passages. The crime laid to his charge having relation to religion, the judges of the spiritual court took it to fall directly under their cognizance. Both Jews and Gentiles seized him, and so both Jews and Gentiles tried and condemned him, for he died for the sins of both. Let us go over the story in order.
 
@@ -187,19 +187,19 @@ VI\. While the servants were thus abusing him, Peter was proceeding to deny him,
 
 ## Christ in the Judgment-Hall; Christ Arraigned before Pilate.
 
-> <sup>28</sup> Then led they Jesus from Caiaphas unto the hall of judgment: and it was early; and they themselves went not into the judgment hall, lest they should be defiled; but that they might eat the passover.  
-> <sup>29</sup> Pilate then went out unto them, and said, What accusation bring ye against this man?  
-> <sup>30</sup> They answered and said unto him, If he were not a malefactor, we would not have delivered him up unto thee.  
-> <sup>31</sup> Then said Pilate unto them, Take ye him, and judge him according to your law. The Jews therefore said unto him, It is not lawful for us to put any man to death:  
-> <sup>32</sup> That the saying of Jesus might be fulfilled, which he spake, signifying what death he should die.  
-> <sup>33</sup> Then Pilate entered into the judgment hall again, and called Jesus, and said unto him, Art thou the King of the Jews?  
-> <sup>34</sup> Jesus answered him, Sayest thou this thing of thyself, or did others tell it thee of me?  
-> <sup>35</sup> Pilate answered, Am I a Jew? Thine own nation and the chief priests have delivered thee unto me: what hast thou done?  
-> <sup>36</sup> Jesus answered, My kingdom is not of this world: if my kingdom were of this world, then would my servants fight, that I should not be delivered to the Jews: but now is my kingdom not from hence.  
-> <sup>37</sup> Pilate therefore said unto him, Art thou a king then? Jesus answered, Thou sayest that I am a king. To this end was I born, and for this cause came I into the world, that I should bear witness unto the truth. Every one that is of the truth heareth my voice.  
-> <sup>38</sup> Pilate saith unto him, What is truth? And when he had said this, he went out again unto the Jews, and saith unto them, I find in him no fault *at all.*  
-> <sup>39</sup> But ye have a custom, that I should release unto you one at the passover: will ye therefore that I release unto you the King of the Jews?  
-> <sup>40</sup> Then cried they all again, saying, Not this man, but Barabbas. Now Barabbas was a robber.  
+> **²⁸** Then led they Jesus from Caiaphas unto the hall of judgment: and it was early; and they themselves went not into the judgment hall, lest they should be defiled; but that they might eat the passover.  
+> **²⁹** Pilate then went out unto them, and said, What accusation bring ye against this man?  
+> **³⁰** They answered and said unto him, If he were not a malefactor, we would not have delivered him up unto thee.  
+> **³¹** Then said Pilate unto them, Take ye him, and judge him according to your law. The Jews therefore said unto him, It is not lawful for us to put any man to death:  
+> **³²** That the saying of Jesus might be fulfilled, which he spake, signifying what death he should die.  
+> **³³** Then Pilate entered into the judgment hall again, and called Jesus, and said unto him, Art thou the King of the Jews?  
+> **³⁴** Jesus answered him, Sayest thou this thing of thyself, or did others tell it thee of me?  
+> **³⁵** Pilate answered, Am I a Jew? Thine own nation and the chief priests have delivered thee unto me: what hast thou done?  
+> **³⁶** Jesus answered, My kingdom is not of this world: if my kingdom were of this world, then would my servants fight, that I should not be delivered to the Jews: but now is my kingdom not from hence.  
+> **³⁷** Pilate therefore said unto him, Art thou a king then? Jesus answered, Thou sayest that I am a king. To this end was I born, and for this cause came I into the world, that I should bear witness unto the truth. Every one that is of the truth heareth my voice.  
+> **³⁸** Pilate saith unto him, What is truth? And when he had said this, he went out again unto the Jews, and saith unto them, I find in him no fault *at all.*  
+> **³⁹** But ye have a custom, that I should release unto you one at the passover: will ye therefore that I release unto you the King of the Jews?  
+> **⁴⁰** Then cried they all again, saying, Not this man, but Barabbas. Now Barabbas was a robber.  
 
 We have here an account of Christ's arraignment before Pilate, the Roman governor, in the *prætorium* (a Latin word made Greek), the prætor's house, or *hall of judgment;* thither they hurried him, to get him condemned in the Roman court, and executed by the Roman power. Being resolved on his death, they took this course, 1. That he might be put to death the more legally and regularly, according to the present constitution of their government, since they became a province of the empire; not stoned in a popular tumult, as Stephen, but put to death with the present formalities of justice. Thus he was treated as a malefactor, *being made sin for us.* 2. That he might be put to death the more safely. If they could engage the Roman government in the matter, which the people stood in awe of, there would be little danger of an uproar. 3. That he might be put to death with more reproach to himself. *The death of the cross,* which the Romans commonly used, being of all deaths the most ignominious, they were desirous by it to put an indelible mark of infamy upon him, and so to sink his reputation for ever. This therefore they harped upon, *Crucify him.* 4. That he might be put to death with less reproach to them. It was an invidious thing to put one to death that had done so much good in the world, and therefore they were willing to throw the odium upon the Roman government, to make that the less acceptable to the people, and save themselves from the reproach. Thus many are more afraid of the scandal of a bad action than of the sin of it. See Ac 5:28. Two things are here observed concerning the prosecution:—(1.) Their policy and industry in the prosecution: *It was early;* some think about two or three in the morning, others about five or six, when most people were in their beds; and so there would be the less danger of opposition from the people that were for Christ; while, at the same time, they had their agents about, to call those together whom they could influence to cry out against him. See how much their heart was upon it, and how violent they were in the prosecution. Now that they had him in their hands, they would lose no time till they had him upon the cross, but denied themselves their natural rest, to push on this matter. See Mic 2:1. (2.) Their superstition and vile hypocrisy: *The chief priests and elders,* though they came along with the prisoner, that the thing might be done effectually, *went not into the judgment-hall,* because it was the house of an uncircumcised Gentile, *lest they should be defiled,* but kept out of doors, *that they might eat the passover,* not the paschal lamb (that was eaten the night before) but the passover-feast, upon the sacrifices which were offered on the fifteenth day, *the Chagigah,* as they called it, the passover-bullocks spoken of De 16:2,2Ch 30:24.35:8,9. These they were to eat of, and therefore would not go into the court, for fear of touching a Gentile, and thereby contracting, not a legal, but only a traditional pollution. This they scrupled, but made no scruple of breaking through all the laws of equity to persecute Christ to the death. *They strained at a gnat, and swallowed a camel.* Let us now see what passed at *the judgment-hall.* Here is,
 

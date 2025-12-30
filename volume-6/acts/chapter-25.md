@@ -8,18 +8,18 @@ Some think that Felix was turned out, and Festus succeeded him, quickly after Pa
 
 ## Paul Arraigned before Festus; Paul's Fourth Defence; Paul Appeals to Cæsar.
 
-> <sup>1</sup> Now when Festus was come into the province, after three days he ascended from Cæsarea to Jerusalem.  
-> <sup>2</sup> Then the high priest and the chief of the Jews informed him against Paul, and besought him,  
-> <sup>3</sup> And desired favour against him, that he would send for him to Jerusalem, laying wait in the way to kill him.  
-> <sup>4</sup> But Festus answered, that Paul should be kept at Cæsarea, and that he himself would depart shortly *thither.*  
-> <sup>5</sup> Let them therefore, said he, which among you are able, go down with *me,* and accuse this man, if there be any wickedness in him.  
-> <sup>6</sup> And when he had tarried among them more than ten days, he went down unto Cæsarea; and the next day sitting on the judgment seat commanded Paul to be brought.  
-> <sup>7</sup> And when he was come, the Jews which came down from Jerusalem stood round about, and laid many and grievous complaints against Paul, which they could not prove.  
-> <sup>8</sup> While he answered for himself, Neither against the law of the Jews, neither against the temple, nor yet against Cæsar, have I offended any thing at all.  
-> <sup>9</sup> But Festus, willing to do the Jews a pleasure, answered Paul, and said, Wilt thou go up to Jerusalem, and there be judged of these things before me?  
-> <sup>10</sup> Then said Paul, I stand at Cæsar's judgment seat, where I ought to be judged: to the Jews have I done no wrong, as thou very well knowest.  
-> <sup>11</sup> For if I be an offender, or have committed any thing worthy of death, I refuse not to die: but if there be none of these things whereof these accuse me, no man may deliver me unto them. I appeal unto Cæsar.  
-> <sup>12</sup> Then Festus, when he had conferred with the council, answered, Hast thou appealed unto Cæsar? unto Cæsar shalt thou go.  
+> **¹** Now when Festus was come into the province, after three days he ascended from Cæsarea to Jerusalem.  
+> **²** Then the high priest and the chief of the Jews informed him against Paul, and besought him,  
+> **³** And desired favour against him, that he would send for him to Jerusalem, laying wait in the way to kill him.  
+> **⁴** But Festus answered, that Paul should be kept at Cæsarea, and that he himself would depart shortly *thither.*  
+> **⁵** Let them therefore, said he, which among you are able, go down with *me,* and accuse this man, if there be any wickedness in him.  
+> **⁶** And when he had tarried among them more than ten days, he went down unto Cæsarea; and the next day sitting on the judgment seat commanded Paul to be brought.  
+> **⁷** And when he was come, the Jews which came down from Jerusalem stood round about, and laid many and grievous complaints against Paul, which they could not prove.  
+> **⁸** While he answered for himself, Neither against the law of the Jews, neither against the temple, nor yet against Cæsar, have I offended any thing at all.  
+> **⁹** But Festus, willing to do the Jews a pleasure, answered Paul, and said, Wilt thou go up to Jerusalem, and there be judged of these things before me?  
+> **¹⁰** Then said Paul, I stand at Cæsar's judgment seat, where I ought to be judged: to the Jews have I done no wrong, as thou very well knowest.  
+> **¹¹** For if I be an offender, or have committed any thing worthy of death, I refuse not to die: but if there be none of these things whereof these accuse me, no man may deliver me unto them. I appeal unto Cæsar.  
+> **¹²** Then Festus, when he had conferred with the council, answered, Hast thou appealed unto Cæsar? unto Cæsar shalt thou go.  
 
 We commonly say, "New lords, new laws, new customs;" but here was a new governor, and yet Paul had the same treatment from him that he had from the former, and no better. Festus, like Felix, is not so just to him as he should have been, for he does not release him; and yet not so unjust to him as the Jews would have had him to be, for he will not condemn him to die, nor expose him to their rage. Here is,
 
@@ -41,21 +41,21 @@ V\. The judgment given upon the whole matter. Paul is neither released nor conde
 
 ## Agrippa's Visit to Festus; Paul Arraigned before Agrippa.
 
-> <sup>13</sup> And after certain days king Agrippa and Bernice came unto Cæsarea to salute Festus.  
-> <sup>14</sup> And when they had been there many days, Festus declared Paul's cause unto the king, saying, There is a certain man left in bonds by Felix:  
-> <sup>15</sup> About whom, when I was at Jerusalem, the chief priests and the elders of the Jews informed *me,* desiring *to have* judgment against him.  
-> <sup>16</sup> To whom I answered, It is not the manner of the Romans to deliver any man to die, before that he which is accused have the accusers face to face, and have licence to answer for himself concerning the crime laid against him.  
-> <sup>17</sup> Therefore, when they were come hither, without any delay on the morrow I sat on the judgment seat, and commanded the man to be brought forth.  
-> <sup>18</sup> Against whom when the accusers stood up, they brought none accusation of such things as I supposed:  
-> <sup>19</sup> But had certain questions against him of their own superstition, and of one Jesus, which was dead, whom Paul affirmed to be alive.  
-> <sup>20</sup> And because I doubted of such manner of questions, I asked *him* whether he would go to Jerusalem, and there be judged of these matters.  
-> <sup>21</sup> But when Paul had appealed to be reserved unto the hearing of Augustus, I commanded him to be kept till I might send him to Cæsar.  
-> <sup>22</sup> Then Agrippa said unto Festus, I would also hear the man myself. To morrow, said he, thou shalt hear him.  
-> <sup>23</sup> And on the morrow, when Agrippa was come, and Bernice, with great pomp, and was entered into the place of hearing, with the chief captains, and principal men of the city, at Festus' commandment Paul was brought forth.  
-> <sup>24</sup> And Festus said, King Agrippa, and all men which are here present with us, ye see this man, about whom all the multitude of the Jews have dealt with me, both at Jerusalem, and *also* here, crying that he ought not to live any longer.  
-> <sup>25</sup> But when I found that he had committed nothing worthy of death, and that he himself hath appealed to Augustus, I have determined to send him.  
-> <sup>26</sup> Of whom I have no certain thing to write unto my lord. Wherefore I have brought him forth before you, and specially before thee, O king Agrippa, that, after examination had, I might have somewhat to write.  
-> <sup>27</sup> For it seemeth to me unreasonable to send a prisoner, and not withal to signify the crimes *laid* against him.  
+> **¹³** And after certain days king Agrippa and Bernice came unto Cæsarea to salute Festus.  
+> **¹⁴** And when they had been there many days, Festus declared Paul's cause unto the king, saying, There is a certain man left in bonds by Felix:  
+> **¹⁵** About whom, when I was at Jerusalem, the chief priests and the elders of the Jews informed *me,* desiring *to have* judgment against him.  
+> **¹⁶** To whom I answered, It is not the manner of the Romans to deliver any man to die, before that he which is accused have the accusers face to face, and have licence to answer for himself concerning the crime laid against him.  
+> **¹⁷** Therefore, when they were come hither, without any delay on the morrow I sat on the judgment seat, and commanded the man to be brought forth.  
+> **¹⁸** Against whom when the accusers stood up, they brought none accusation of such things as I supposed:  
+> **¹⁹** But had certain questions against him of their own superstition, and of one Jesus, which was dead, whom Paul affirmed to be alive.  
+> **²⁰** And because I doubted of such manner of questions, I asked *him* whether he would go to Jerusalem, and there be judged of these matters.  
+> **²¹** But when Paul had appealed to be reserved unto the hearing of Augustus, I commanded him to be kept till I might send him to Cæsar.  
+> **²²** Then Agrippa said unto Festus, I would also hear the man myself. To morrow, said he, thou shalt hear him.  
+> **²³** And on the morrow, when Agrippa was come, and Bernice, with great pomp, and was entered into the place of hearing, with the chief captains, and principal men of the city, at Festus' commandment Paul was brought forth.  
+> **²⁴** And Festus said, King Agrippa, and all men which are here present with us, ye see this man, about whom all the multitude of the Jews have dealt with me, both at Jerusalem, and *also* here, crying that he ought not to live any longer.  
+> **²⁵** But when I found that he had committed nothing worthy of death, and that he himself hath appealed to Augustus, I have determined to send him.  
+> **²⁶** Of whom I have no certain thing to write unto my lord. Wherefore I have brought him forth before you, and specially before thee, O king Agrippa, that, after examination had, I might have somewhat to write.  
+> **²⁷** For it seemeth to me unreasonable to send a prisoner, and not withal to signify the crimes *laid* against him.  
 
 We have here the preparation that was made for another hearing of Paul before King Agrippa, not in order to his giving judgment upon him, but in order to his giving advice concerning him, or rather only to gratify his curiosity. Christ had said, concerning his followers, *that they should be brought before governors and kings.* In the former part of this chapter Paul was brought before Festus the governor, here before Agrippa the king, for a testimony to both. Here is,
 

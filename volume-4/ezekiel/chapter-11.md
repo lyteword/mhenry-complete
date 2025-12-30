@@ -8,19 +8,19 @@ This chapter concludes the vision which Ezekiel saw, and this part of it furnish
 
 ## Message of Wrath to Jerusalem; Presumption of the Princes; Awakening Predictions. (b. c. 593.)
 
-> <sup>1</sup> Moreover the spirit lifted me up, and brought me unto the east gate of the LORD's house, which looketh eastward: and behold at the door of the gate five and twenty men; among whom I saw Jaazaniah the son of Azur, and Pelatiah the son of Benaiah, princes of the people.  
-> <sup>2</sup> Then said he unto me, Son of man, these *are* the men that devise mischief, and give wicked counsel in this city:  
-> <sup>3</sup> Which say, *It is* not near; let us build houses: this *city is* the caldron, and we *be* the flesh.  
-> <sup>4</sup> Therefore prophesy against them, prophesy, O son of man.  
-> <sup>5</sup> And the Spirit of the LORD fell upon me, and said unto me, Speak; Thus saith the LORD; Thus have ye said, O house of Israel: for I know the things that come into your mind, *every one of* them.  
-> <sup>6</sup> Ye have multiplied your slain in this city, and ye have filled the streets thereof with the slain.  
-> <sup>7</sup> Therefore thus saith the Lord GOD; Your slain whom ye have laid in the midst of it, they *are* the flesh, and this *city is* the caldron: but I will bring you forth out of the midst of it.  
-> <sup>8</sup> Ye have feared the sword; and I will bring a sword upon you, saith the Lord GOD.  
-> <sup>9</sup> And I will bring you out of the midst thereof, and deliver you into the hands of strangers, and will execute judgments among you.  
-> <sup>10</sup> Ye shall fall by the sword; I will judge you in the border of Israel; and ye shall know that I *am* the LORD.  
-> <sup>11</sup> This *city* shall not be your caldron, neither shall ye be the flesh in the midst thereof; *but* I will judge you in the border of Israel:  
-> <sup>12</sup> And ye shall know that I *am* the LORD: for ye have not walked in my statutes, neither executed my judgments, but have done after the manners of the heathen that *are* round about you.  
-> <sup>13</sup> And it came to pass, when I prophesied, that Pelatiah the son of Benaiah died. Then fell I down upon my face, and cried with a loud voice, and said, Ah Lord GOD! wilt thou make a full end of the remnant of Israel?  
+> **¹** Moreover the spirit lifted me up, and brought me unto the east gate of the LORD's house, which looketh eastward: and behold at the door of the gate five and twenty men; among whom I saw Jaazaniah the son of Azur, and Pelatiah the son of Benaiah, princes of the people.  
+> **²** Then said he unto me, Son of man, these *are* the men that devise mischief, and give wicked counsel in this city:  
+> **³** Which say, *It is* not near; let us build houses: this *city is* the caldron, and we *be* the flesh.  
+> **⁴** Therefore prophesy against them, prophesy, O son of man.  
+> **⁵** And the Spirit of the LORD fell upon me, and said unto me, Speak; Thus saith the LORD; Thus have ye said, O house of Israel: for I know the things that come into your mind, *every one of* them.  
+> **⁶** Ye have multiplied your slain in this city, and ye have filled the streets thereof with the slain.  
+> **⁷** Therefore thus saith the Lord GOD; Your slain whom ye have laid in the midst of it, they *are* the flesh, and this *city is* the caldron: but I will bring you forth out of the midst of it.  
+> **⁸** Ye have feared the sword; and I will bring a sword upon you, saith the Lord GOD.  
+> **⁹** And I will bring you out of the midst thereof, and deliver you into the hands of strangers, and will execute judgments among you.  
+> **¹⁰** Ye shall fall by the sword; I will judge you in the border of Israel; and ye shall know that I *am* the LORD.  
+> **¹¹** This *city* shall not be your caldron, neither shall ye be the flesh in the midst thereof; *but* I will judge you in the border of Israel:  
+> **¹²** And ye shall know that I *am* the LORD: for ye have not walked in my statutes, neither executed my judgments, but have done after the manners of the heathen that *are* round about you.  
+> **¹³** And it came to pass, when I prophesied, that Pelatiah the son of Benaiah died. Then fell I down upon my face, and cried with a loud voice, and said, Ah Lord GOD! wilt thou make a full end of the remnant of Israel?  
 
 We have here,
 
@@ -32,14 +32,14 @@ III\. This awakening word is here immediately followed by an awakening providenc
 
 ## Judgments Predicted; Sufferings and Hopes of Pious Captives. (b. c. 593.)
 
-> <sup>14</sup> Again the word of the LORD came unto me, saying,  
-> <sup>15</sup> Son of man, thy brethren, *even* thy brethren, the men of thy kindred, and all the house of Israel wholly, *are* they unto whom the inhabitants of Jerusalem have said, Get you far from the LORD: unto us is this land given in possession.  
-> <sup>16</sup> Therefore say, Thus saith the Lord GOD; Although I have cast them far off among the heathen, and although I have scattered them among the countries, yet will I be to them as a little sanctuary in the countries where they shall come.  
-> <sup>17</sup> Therefore say, Thus saith the Lord GOD; I will even gather you from the people, and assemble you out of the countries where ye have been scattered, and I will give you the land of Israel.  
-> <sup>18</sup> And they shall come thither, and they shall take away all the detestable things thereof and all the abominations thereof from thence.  
-> <sup>19</sup> And I will give them one heart, and I will put a new spirit within you; and I will take the stony heart out of their flesh, and will give them a heart of flesh:  
-> <sup>20</sup> That they may walk in my statutes, and keep mine ordinances, and do them: and they shall be my people, and I will be their God.  
-> <sup>21</sup> But *as for them* whose heart walketh after the heart of their detestable things and their abominations, I will recompense their way upon their own heads, saith the Lord GOD.  
+> **¹⁴** Again the word of the LORD came unto me, saying,  
+> **¹⁵** Son of man, thy brethren, *even* thy brethren, the men of thy kindred, and all the house of Israel wholly, *are* they unto whom the inhabitants of Jerusalem have said, Get you far from the LORD: unto us is this land given in possession.  
+> **¹⁶** Therefore say, Thus saith the Lord GOD; Although I have cast them far off among the heathen, and although I have scattered them among the countries, yet will I be to them as a little sanctuary in the countries where they shall come.  
+> **¹⁷** Therefore say, Thus saith the Lord GOD; I will even gather you from the people, and assemble you out of the countries where ye have been scattered, and I will give you the land of Israel.  
+> **¹⁸** And they shall come thither, and they shall take away all the detestable things thereof and all the abominations thereof from thence.  
+> **¹⁹** And I will give them one heart, and I will put a new spirit within you; and I will take the stony heart out of their flesh, and will give them a heart of flesh:  
+> **²⁰** That they may walk in my statutes, and keep mine ordinances, and do them: and they shall be my people, and I will be their God.  
+> **²¹** But *as for them* whose heart walketh after the heart of their detestable things and their abominations, I will recompense their way upon their own heads, saith the Lord GOD.  
 
 Prophecy was designed to exalt *every valley* as well as to bring low *every mountain and hill* (Isa 40:4), and prophets were to speak not only conviction to the presumptuous and secure, but comfort to the despised and desponding that trembled at God's word. The prophet Ezekiel, having in the former part of this chapter received instructions for the awakening of those that were *at ease in Zion,* is in these verses furnished with comfortable words for those that mourned in Babylon and *by the rivers* there sat *weeping* when they *remembered Zion.* Observe,
 
@@ -63,10 +63,10 @@ III\. Here is a threatening of wrath against those who hated to be reformed. As,
 
 ## The Visions of the Divine Glory. (b. c. 593.)
 
-> <sup>22</sup> Then did the cherubims lift up their wings, and the wheels beside them; and the glory of the God of Israel *was* over them above.  
-> <sup>23</sup> And the glory of the LORD went up from the midst of the city, and stood upon the mountain which *is* on the east side of the city.  
-> <sup>24</sup> Afterwards the spirit took me up, and brought me in a vision by the Spirit of God into Chaldea, to them of the captivity. So the vision that I had seen went up from me.  
-> <sup>25</sup> Then I spake unto them of the captivity all the things that the LORD had shewed me.  
+> **²²** Then did the cherubims lift up their wings, and the wheels beside them; and the glory of the God of Israel *was* over them above.  
+> **²³** And the glory of the LORD went up from the midst of the city, and stood upon the mountain which *is* on the east side of the city.  
+> **²⁴** Afterwards the spirit took me up, and brought me in a vision by the Spirit of God into Chaldea, to them of the captivity. So the vision that I had seen went up from me.  
+> **²⁵** Then I spake unto them of the captivity all the things that the LORD had shewed me.  
 
 Here is, 1. The departure of God's presence from the city and temple. When the message was committed to the prophet, and he was fully apprized of it, fully instructed how to separate between *the precious and the vile, then the cherubim lifted up their wings and the wheels beside them* (Eze 11:22) as before, Eze 10:19. Angels, when they have done their errands in this lower world, are upon the wing to be gone, for they lose no time. We left *the glory of the Lord* last at *the east gate of the temple* (Eze 10:19), which is here said to be in the *midst of the city.* Now here we are told that, finding and wondering that there was none to intercede, none to uphold, none to invite its return, it removed next to *the mountain which is on the east side of the city* (Eze 11:23); that was the *mount of Olives.* On this mountain they had set up their idols, to confront God in his temple, when he dwelt there (1Ki 11:7), and thence it was called *the mount of corruption* (2Ki 23:13); therefore there God does as it were set up his standard, his tribunal, as it were to confront those who thought to keep possession of the temple for themselves now that God had left it. From that mountain there was a full prospect of the city; thither God removed, to make good what he had said (De 32:20), *I will hide my face from them, I will see what their end shall be.* It was from this mountain that Christ *beheld the city and wept over it,* in the foresight of its last destruction by the Romans. *The glory of the Lord* removed thither, to be as it were yet within call, and ready to return if now at length, *in this their day,* they would have *understood the things that belonged to their peace.* Loth to depart bids oft farewell. God, by going away thus slowly, thus gradually, intimated that he left them with reluctance, and would not have gone if they had not perfectly forced him from them. He did now, in effect, say, *How shall I give thee up, Ephraim? How shall I deliver thee, Israel?* But, though he bear long, he will not bear always, but will at length forsake those, and cast them off for ever, who have forsaken him and cast him off. 2. The departure of this vision from the prophet. At length it *went up from him* (Eze 11:24); he saw it mount upwards, till it went out of sight, which would be a confirmation to his faith that it was a heavenly vision, that it descended from above, for thitherward it returned. Note, The visions which the saints have of the glory of God will not be constant till they come to heaven. They have glimpses of that glory, which they soon lose again, visions which go up from them, tastes of divine pleasures, but not a continual feast. It was from the mount of Olives that the vision went up, typifying the ascension of Christ to heaven from that very mountain, when those that had seen him *manifested in the flesh* saw him no more. It was foretold (Zec 14:4) that *his feet should stand upon the mount of Olives,* stand last there. 3. The prophet's return to those of the captivity. The same spirit that had carried him in a trance or ecstasy to Jerusalem brought him back to Chaldea; for there the bounds of his habitation are at present appointed, and that is the place of his service. The Spirit came to him, not to deliver him out of captivity, but (which was equivalent) to support and comfort him in his captivity. 4. The account which he gave to his hearers of all he had seen and heard, Eze 11:25. He received that he might give, and he was *faithful to him that appointed him;* he delivered his message very honestly: he *spoke all that,* and that only, which God *had shown* him. He told them of the great wickedness he had seen at Jerusalem, and the ruin that was hastening towards that city, that they might not repent of their surrendering themselves to the king of Babylon as Jeremiah advised them, and blame themselves for it, nor envy those that staid behind, and laughed at them for going when they did, nor wish themselves there again, but be content in their captivity. Who would covet to be in a city so full of sin and so near to ruin? It is better to be in Babylon under the favour of God than in Jerusalem under his wrath and curse. But, though this was delivered immediately to those of the captivity, yet we may suppose that they sent the contents of it to those at Jerusalem, with whom they kept up a correspondence; and well would it have been for Jerusalem if she had taken the warning hereby given.
 

@@ -8,17 +8,17 @@ We left Paul at the bar, and Festus, and Agrippa, and Bernice, and all the great
 
 ## Paul's Fifth Defence.
 
-> <sup>1</sup> Then Agrippa said unto Paul, Thou art permitted to speak for thyself. Then Paul stretched forth the hand, and answered for himself:  
-> <sup>2</sup> I think myself happy, king Agrippa, because I shall answer for myself this day before thee touching all the things whereof I am accused of the Jews:  
-> <sup>3</sup> Especially *because I know* thee to be expert in all customs and questions which are among the Jews: wherefore I beseech thee to hear me patiently.  
-> <sup>4</sup> My manner of life from my youth, which was at the first among mine own nation at Jerusalem, know all the Jews;  
-> <sup>5</sup> Which knew me from the beginning, if they would testify, that after the most straitest sect of our religion I lived a Pharisee.  
-> <sup>6</sup> And now I stand and am judged for the hope of the promise made of God unto our fathers:  
-> <sup>7</sup> Unto which *promise* our twelve tribes, instantly serving *God* day and night, hope to come. For which hope's sake, king Agrippa, I am accused of the Jews.  
-> <sup>8</sup> Why should it be thought a thing incredible with you, that God should raise the dead?  
-> <sup>9</sup> I verily thought with myself, that I ought to do many things contrary to the name of Jesus of Nazareth.  
-> <sup>10</sup> Which thing I also did in Jerusalem: and many of the saints did I shut up in prison, having received authority from the chief priests; and when they were put to death, I gave my voice against *them.*  
-> <sup>11</sup> And I punished them oft in every synagogue, and compelled *them* to blaspheme; and being exceedingly mad against them, I persecuted *them* even unto strange cities.  
+> **¹** Then Agrippa said unto Paul, Thou art permitted to speak for thyself. Then Paul stretched forth the hand, and answered for himself:  
+> **²** I think myself happy, king Agrippa, because I shall answer for myself this day before thee touching all the things whereof I am accused of the Jews:  
+> **³** Especially *because I know* thee to be expert in all customs and questions which are among the Jews: wherefore I beseech thee to hear me patiently.  
+> **⁴** My manner of life from my youth, which was at the first among mine own nation at Jerusalem, know all the Jews;  
+> **⁵** Which knew me from the beginning, if they would testify, that after the most straitest sect of our religion I lived a Pharisee.  
+> **⁶** And now I stand and am judged for the hope of the promise made of God unto our fathers:  
+> **⁷** Unto which *promise* our twelve tribes, instantly serving *God* day and night, hope to come. For which hope's sake, king Agrippa, I am accused of the Jews.  
+> **⁸** Why should it be thought a thing incredible with you, that God should raise the dead?  
+> **⁹** I verily thought with myself, that I ought to do many things contrary to the name of Jesus of Nazareth.  
+> **¹⁰** Which thing I also did in Jerusalem: and many of the saints did I shut up in prison, having received authority from the chief priests; and when they were put to death, I gave my voice against *them.*  
+> **¹¹** And I punished them oft in every synagogue, and compelled *them* to blaspheme; and being exceedingly mad against them, I persecuted *them* even unto strange cities.  
 
 Agrippa was the most honourable person in the assembly, having the title of king bestowed upon him, though otherwise having only the power of other governors under the emperor, and, though not here superior, yet senior, to Festus; and therefore, Festus having opened the cause, Agrippa, as the mouth of the court, intimates to Paul a licence given him to *speak for himself,* Ac 26:1. Paul was silent till he had this liberty allowed him; for those are not the most forward to speak that are best prepared to speak and speak best. This was a favour which the Jews would not allow him, or not without difficulty; but Agrippa freely gives it to him. And Paul's cause was so good that he desired no more than to have liberty to speak for himself; he needed no advocate, no Tertullus, to speak for him. Notice is taken of his gesture: He *stretched forth his hand,* as one that was under no consternation at all, but had perfect freedom and command of himself; it also intimates that he was in earnest, and expected their attention while he answered for himself. Observe, He did not insist upon his having appealed to Cæsar as an excuse for being silent, did not say, "I will be examined no more till I come to the emperor himself;" but cheerfully embraced the opportunity of doing honour to the cause he suffered for. If we must be ready to give *a reason of the hope that is in us to every man that asketh us,* much more to every man in authority, 1Pe 3:15. Now in this former part of the speech,
 
@@ -56,18 +56,18 @@ This was Paul's character, and this his manner of life in the beginning of his t
 
 ## Paul's Fifth Defence.
 
-> <sup>12</sup> Whereupon as I went to Damascus with authority and commission from the chief priests,  
-> <sup>13</sup> At midday, O king, I saw in the way a light from heaven, above the brightness of the sun, shining round about me and them which journeyed with me.  
-> <sup>14</sup> And when we were all fallen to the earth, I heard a voice speaking unto me, and saying in the Hebrew tongue, Saul, Saul, why persecutest thou me? *it is* hard for thee to kick against the pricks.  
-> <sup>15</sup> And I said, Who art thou, Lord? And he said, I am Jesus whom thou persecutest.  
-> <sup>16</sup> But rise, and stand upon thy feet: for I have appeared unto thee for this purpose, to make thee a minister and a witness both of these things which thou hast seen, and of those things in the which I will appear unto thee;  
-> <sup>17</sup> Delivering thee from the people, and *from* the Gentiles, unto whom now I send thee,  
-> <sup>18</sup> To open their eyes, *and* to turn *them* from darkness to light, and *from* the power of Satan unto God, that they may receive forgiveness of sins, and inheritance among them which are sanctified by faith that is in me.  
-> <sup>19</sup> Whereupon, O king Agrippa, I was not disobedient unto the heavenly vision:  
-> <sup>20</sup> But showed first unto them of Damascus, and at Jerusalem, and throughout all the coasts of Judæa, and *then* to the Gentiles, that they should repent and turn to God, and do works meet for repentance.  
-> <sup>21</sup> For these causes the Jews caught me in the temple, and went about to kill *me.*  
-> <sup>22</sup> Having therefore obtained help of God, I continue unto this day, witnessing both to small and great, saying none other things than those which the prophets and Moses did say should come:  
-> <sup>23</sup> That Christ should suffer, *and* that he should be the first that should rise from the dead, and should show light unto the people, and to the Gentiles.  
+> **¹²** Whereupon as I went to Damascus with authority and commission from the chief priests,  
+> **¹³** At midday, O king, I saw in the way a light from heaven, above the brightness of the sun, shining round about me and them which journeyed with me.  
+> **¹⁴** And when we were all fallen to the earth, I heard a voice speaking unto me, and saying in the Hebrew tongue, Saul, Saul, why persecutest thou me? *it is* hard for thee to kick against the pricks.  
+> **¹⁵** And I said, Who art thou, Lord? And he said, I am Jesus whom thou persecutest.  
+> **¹⁶** But rise, and stand upon thy feet: for I have appeared unto thee for this purpose, to make thee a minister and a witness both of these things which thou hast seen, and of those things in the which I will appear unto thee;  
+> **¹⁷** Delivering thee from the people, and *from* the Gentiles, unto whom now I send thee,  
+> **¹⁸** To open their eyes, *and* to turn *them* from darkness to light, and *from* the power of Satan unto God, that they may receive forgiveness of sins, and inheritance among them which are sanctified by faith that is in me.  
+> **¹⁹** Whereupon, O king Agrippa, I was not disobedient unto the heavenly vision:  
+> **²⁰** But showed first unto them of Damascus, and at Jerusalem, and throughout all the coasts of Judæa, and *then* to the Gentiles, that they should repent and turn to God, and do works meet for repentance.  
+> **²¹** For these causes the Jews caught me in the temple, and went about to kill *me.*  
+> **²²** Having therefore obtained help of God, I continue unto this day, witnessing both to small and great, saying none other things than those which the prophets and Moses did say should come:  
+> **²³** That Christ should suffer, *and* that he should be the first that should rise from the dead, and should show light unto the people, and to the Gentiles.  
 
 All who believe a God, and have a reverence for his sovereignty, must acknowledge that those who speak and act by his direction, and by warrant from him, are not to be opposed; for that *is fighting against God.* Now Paul here, by a plain and faithful narrative of matters of fact, makes it out to this august assembly that he had an immediate call from heaven to preach the gospel of Christ to the Gentile world, which was the thing that exasperated the Jews against him. He here shows,
 
@@ -107,15 +107,15 @@ III\. That he had discharged his ministry, pursuant to his commission, by divine
 
 ## Paul's Fifth Defence.
 
-> <sup>24</sup> And as he thus spake for himself, Festus said with a loud voice, Paul, thou art beside thyself; much learning doth make thee mad.  
-> <sup>25</sup> But he said, I am not mad, most noble Festus; but speak forth the words of truth and soberness.  
-> <sup>26</sup> For the king knoweth of these things, before whom also I speak freely: for I am persuaded that none of these things are hidden from him; for this thing was not done in a corner.  
-> <sup>27</sup> King Agrippa, believest thou the prophets? I know that thou believest.  
-> <sup>28</sup> Then Agrippa said unto Paul, Almost thou persuadest me to be a Christian.  
-> <sup>29</sup> And Paul said, I would to God, that not only thou, but also all that hear me this day, were both almost, and altogether such as I am, except these bonds.  
-> <sup>30</sup> And when he had thus spoken, the king rose up, and the governor, and Bernice, and they that sat with them:  
-> <sup>31</sup> And when they were gone aside, they talked between themselves, saying, This man doeth nothing worthy of death or of bonds.  
-> <sup>32</sup> Then said Agrippa unto Festus, This man might have been set at liberty, if he had not appealed unto Cæsar.  
+> **²⁴** And as he thus spake for himself, Festus said with a loud voice, Paul, thou art beside thyself; much learning doth make thee mad.  
+> **²⁵** But he said, I am not mad, most noble Festus; but speak forth the words of truth and soberness.  
+> **²⁶** For the king knoweth of these things, before whom also I speak freely: for I am persuaded that none of these things are hidden from him; for this thing was not done in a corner.  
+> **²⁷** King Agrippa, believest thou the prophets? I know that thou believest.  
+> **²⁸** Then Agrippa said unto Paul, Almost thou persuadest me to be a Christian.  
+> **²⁹** And Paul said, I would to God, that not only thou, but also all that hear me this day, were both almost, and altogether such as I am, except these bonds.  
+> **³⁰** And when he had thus spoken, the king rose up, and the governor, and Bernice, and they that sat with them:  
+> **³¹** And when they were gone aside, they talked between themselves, saying, This man doeth nothing worthy of death or of bonds.  
+> **³²** Then said Agrippa unto Festus, This man might have been set at liberty, if he had not appealed unto Cæsar.  
 
 We have reason to think that Paul had a great deal more to say in defence of the gospel he preached, and for the honour of it, and to recommend it to the good opinion of this noble audience; he had just fallen upon that which was the life of the cause—the death and resurrection of Jesus Christ, and here he is in his element; now he warms more than before, his mouth is opened towards them, his heart is enlarged. Lead him but to this subject, and let him have leave to go on, and he will never know when to conclude; for the power of Christ's death, and the fellowship of his sufferings, are with him inexhaustible subjects. It was a thousand pities then that he should be interrupted, as he is here, and that, being permitted to speak for himself (Ac 26:1), he should not be permitted to say all he designed. But it was a hardship often put upon him, and is a disappointment to us too, who read his discourse with so much pleasure. But there is no remedy, the court thinks it is time to proceed to give in their judgment upon his case.
 

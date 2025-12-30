@@ -8,19 +8,19 @@ In this chapter, we have, I. Christ's transfiguration upon the mount, Mk 10:1-13
 
 ## The Transfiguration.
 
-> <sup>1</sup> And he said unto them, Verily I say unto you, That there be some of them that stand here, which shall not taste of death, till they have seen the kingdom of God come with power.  
-> <sup>2</sup> And after six days Jesus taketh *with him* Peter, and James, and John, and leadeth them up into a high mountain apart by themselves: and he was transfigured before them.  
-> <sup>3</sup> And his raiment became shining, exceeding white as snow; so as no fuller on earth can white them.  
-> <sup>4</sup> And there appeared unto them Elias with Moses: and they were talking with Jesus.  
-> <sup>5</sup> And Peter answered and said to Jesus, Master, it is good for us to be here: and let us make three tabernacles; one for thee, and one for Moses, and one for Elias.  
-> <sup>6</sup> For he wist not what to say; for they were sore afraid.  
-> <sup>7</sup> And there was a cloud that overshadowed them: and a voice came out of the cloud, saying, This is my beloved Son: hear him.  
-> <sup>8</sup> And suddenly, when they had looked round about, they saw no man any more, save Jesus only with themselves.  
-> <sup>9</sup> And as they came down from the mountain, he charged them that they should tell no man what things they had seen, till the Son of man were risen from the dead.  
-> <sup>10</sup> And they kept that saying with themselves, questioning one with another what the rising from the dead should mean.  
-> <sup>11</sup> And they asked him, saying, Why say the scribes that Elias must first come?  
-> <sup>12</sup> And he answered and told them, Elias verily cometh first, and restoreth all things; and how it is written of the Son of man, that he must suffer many things, and be set at nought.  
-> <sup>13</sup> But I say unto you, That Elias is indeed come, and they have done unto him whatsoever they listed, as it is written of him.  
+> **¹** And he said unto them, Verily I say unto you, That there be some of them that stand here, which shall not taste of death, till they have seen the kingdom of God come with power.  
+> **²** And after six days Jesus taketh *with him* Peter, and James, and John, and leadeth them up into a high mountain apart by themselves: and he was transfigured before them.  
+> **³** And his raiment became shining, exceeding white as snow; so as no fuller on earth can white them.  
+> **⁴** And there appeared unto them Elias with Moses: and they were talking with Jesus.  
+> **⁵** And Peter answered and said to Jesus, Master, it is good for us to be here: and let us make three tabernacles; one for thee, and one for Moses, and one for Elias.  
+> **⁶** For he wist not what to say; for they were sore afraid.  
+> **⁷** And there was a cloud that overshadowed them: and a voice came out of the cloud, saying, This is my beloved Son: hear him.  
+> **⁸** And suddenly, when they had looked round about, they saw no man any more, save Jesus only with themselves.  
+> **⁹** And as they came down from the mountain, he charged them that they should tell no man what things they had seen, till the Son of man were risen from the dead.  
+> **¹⁰** And they kept that saying with themselves, questioning one with another what the rising from the dead should mean.  
+> **¹¹** And they asked him, saying, Why say the scribes that Elias must first come?  
+> **¹²** And he answered and told them, Elias verily cometh first, and restoreth all things; and how it is written of the Son of man, that he must suffer many things, and be set at nought.  
+> **¹³** But I say unto you, That Elias is indeed come, and they have done unto him whatsoever they listed, as it is written of him.  
 
 Here is, I. A prediction of Christ's kingdom now near approaching, Mk 9:1. That which is foretold, is, 1. That the *kingdom of God* would *come,* and would come so as to be *seen:* the kingdom of the Messiah shall be set up in the world by the utter destruction of the Jewish polity, which stood in the way of it; this was the restoring of the kingdom of God among men, which had been in a manner lost by the woeful degeneracy both of Jews and Gentiles. 2. That it would come *with power,* so as to make its own way, and bear down the opposition that was given to it. It came *with power,* when vengeance was taken on the Jews for crucifying Christ, and when it conquered the idolatry of the Gentile world. 3. That it would come while some now *present were alive;* There are some *standing here, that shall not taste of death,* till they *see* it; this speaks the same with Mt 24:34, This *generation shall not pass, till all these things be fulfilled.* Those that were standing here with Christ, should see it, when the others could not discern it to be the kingdom of God, for it came not with observation.
 
@@ -50,22 +50,22 @@ II\. A specimen of that kingdom in the transfiguration of Christ, *six days* aft
 
 ## The Expulsion of an Evil Spirit.
 
-> <sup>14</sup> And when he came to *his* disciples, he saw a great multitude about them, and the scribes questioning with them.  
-> <sup>15</sup> And straightway all the people, when they beheld him, were greatly amazed, and running to *him* saluted him.  
-> <sup>16</sup> And he asked the scribes, What question ye with them?  
-> <sup>17</sup> And one of the multitude answered and said, Master, I have brought unto thee my son, which hath a dumb spirit;  
-> <sup>18</sup> And wheresoever he taketh him, he teareth him: and he foameth, and gnasheth with his teeth, and pineth away: and I spake to thy disciples that they should cast him out; and they could not.  
-> <sup>19</sup> He answereth him, and saith, O faithless generation, how long shall I be with you? how long shall I suffer you? bring him unto me.  
-> <sup>20</sup> And they brought him unto him: and when he saw him, straightway the spirit tare him; and he fell on the ground, and wallowed foaming.  
-> <sup>21</sup> And he asked his father, How long is it ago since this came unto him? And he said, Of a child.  
-> <sup>22</sup> And ofttimes it hath cast him into the fire, and into the waters, to destroy him: but if thou canst do any thing, have compassion on us, and help us.  
-> <sup>23</sup> Jesus said unto him, If thou canst believe, all things *are* possible to him that believeth.  
-> <sup>24</sup> And straightway the father of the child cried out, and said with tears, Lord, I believe; help thou mine unbelief.  
-> <sup>25</sup> When Jesus saw that the people came running together, he rebuked the foul spirit, saying unto him, *Thou* dumb and deaf spirit, I charge thee, come out of him, and enter no more into him.  
-> <sup>26</sup> And *the spirit* cried, and rent him sore, and came out of him: and he was as one dead; insomuch that many said, He is dead.  
-> <sup>27</sup> But Jesus took him by the hand, and lifted him up; and he arose.  
-> <sup>28</sup> And when he was come into the house, his disciples asked him privately, Why could not we cast him out?  
-> <sup>29</sup> And he said unto them, This kind can come forth by nothing, but by prayer and fasting.  
+> **¹⁴** And when he came to *his* disciples, he saw a great multitude about them, and the scribes questioning with them.  
+> **¹⁵** And straightway all the people, when they beheld him, were greatly amazed, and running to *him* saluted him.  
+> **¹⁶** And he asked the scribes, What question ye with them?  
+> **¹⁷** And one of the multitude answered and said, Master, I have brought unto thee my son, which hath a dumb spirit;  
+> **¹⁸** And wheresoever he taketh him, he teareth him: and he foameth, and gnasheth with his teeth, and pineth away: and I spake to thy disciples that they should cast him out; and they could not.  
+> **¹⁹** He answereth him, and saith, O faithless generation, how long shall I be with you? how long shall I suffer you? bring him unto me.  
+> **²⁰** And they brought him unto him: and when he saw him, straightway the spirit tare him; and he fell on the ground, and wallowed foaming.  
+> **²¹** And he asked his father, How long is it ago since this came unto him? And he said, Of a child.  
+> **²²** And ofttimes it hath cast him into the fire, and into the waters, to destroy him: but if thou canst do any thing, have compassion on us, and help us.  
+> **²³** Jesus said unto him, If thou canst believe, all things *are* possible to him that believeth.  
+> **²⁴** And straightway the father of the child cried out, and said with tears, Lord, I believe; help thou mine unbelief.  
+> **²⁵** When Jesus saw that the people came running together, he rebuked the foul spirit, saying unto him, *Thou* dumb and deaf spirit, I charge thee, come out of him, and enter no more into him.  
+> **²⁶** And *the spirit* cried, and rent him sore, and came out of him: and he was as one dead; insomuch that many said, He is dead.  
+> **²⁷** But Jesus took him by the hand, and lifted him up; and he arose.  
+> **²⁸** And when he was come into the house, his disciples asked him privately, Why could not we cast him out?  
+> **²⁹** And he said unto them, This kind can come forth by nothing, but by prayer and fasting.  
 
 We have here the story of Christ casting the devil out of a child, somewhat more fully related than it was in Mt 17:14, etc. Observe here,
 
@@ -89,17 +89,17 @@ IX\. The reason he gave to the disciples why they could not cast out this devil.
 
 ## The Apostles Reproved.
 
-> <sup>30</sup> And they departed thence, and passed through Galilee; and he would not that any man should know *it.*  
-> <sup>31</sup> For he taught his disciples, and said unto them, The Son of man is delivered into the hands of men, and they shall kill him; and after that he is killed, he shall rise the third day.  
-> <sup>32</sup> But they understood not that saying, and were afraid to ask him.  
-> <sup>33</sup> And he came to Capernaum: and being in the house he asked them, What was it that ye disputed among yourselves by the way?  
-> <sup>34</sup> But they held their peace: for by the way they had disputed among themselves, who *should be* the greatest.  
-> <sup>35</sup> And he sat down, and called the twelve, and saith unto them, If any man desire to be first, *the same* shall be last of all, and servant of all.  
-> <sup>36</sup> And he took a child, and set him in the midst of them: and when he had taken him in his arms, he said unto them,  
-> <sup>37</sup> Whosoever shall receive one of such children in my name, receiveth me: and whosoever shall receive me, receiveth not me, but him that sent me.  
-> <sup>38</sup> And John answered him, saying, Master, we saw one casting out devils in thy name, and he followeth not us: and we forbad him, because he followeth not us.  
-> <sup>39</sup> But Jesus said, Forbid him not: for there is no man which shall do a miracle in my name, that can lightly speak evil of me.  
-> <sup>40</sup> For he that is not against us is on our part.  
+> **³⁰** And they departed thence, and passed through Galilee; and he would not that any man should know *it.*  
+> **³¹** For he taught his disciples, and said unto them, The Son of man is delivered into the hands of men, and they shall kill him; and after that he is killed, he shall rise the third day.  
+> **³²** But they understood not that saying, and were afraid to ask him.  
+> **³³** And he came to Capernaum: and being in the house he asked them, What was it that ye disputed among yourselves by the way?  
+> **³⁴** But they held their peace: for by the way they had disputed among themselves, who *should be* the greatest.  
+> **³⁵** And he sat down, and called the twelve, and saith unto them, If any man desire to be first, *the same* shall be last of all, and servant of all.  
+> **³⁶** And he took a child, and set him in the midst of them: and when he had taken him in his arms, he said unto them,  
+> **³⁷** Whosoever shall receive one of such children in my name, receiveth me: and whosoever shall receive me, receiveth not me, but him that sent me.  
+> **³⁸** And John answered him, saying, Master, we saw one casting out devils in thy name, and he followeth not us: and we forbad him, because he followeth not us.  
+> **³⁹** But Jesus said, Forbid him not: for there is no man which shall do a miracle in my name, that can lightly speak evil of me.  
+> **⁴⁰** For he that is not against us is on our part.  
 
 Here, I. Christ foretels his own approaching sufferings. He *passed through Galilee* with more expedition than usual, and *would not that any man should know of it* (Mk 9:30); because he had done many mighty and good works among them in vain, they shall not be invited to see them and have the benefit of them, as they have been. The time of his sufferings drew nigh, and therefore he was willing to be private awhile, and to converse only with his disciples, to prepare them for the approaching trial, Mk 9:31. He said to them, *The Son of man is delivered* by the determinate council and fore-knowledge of God *into the hands of men* (Mk 9:31), and *they shall kill him.* He had been delivered into the hands of devils, and they had worried him, it had not been so strange; but that *men,* who have *reason,* and should have *love,* that they should be thus spiteful to the *Son of man,* who came to redeem and save them, is unaccountable. But still it is observable that when Christ spoke of his death, he alway spoke of his resurrection, which took away the reproach of it from himself, and should have taken away the grief of it from his disciples. But they *understood not that saying,* Mk 9:32. The words were plain enough, but they could not be reconciled to the thing, and therefore would suppose them to have some mystical meaning which they did not understand, and they were *afraid to ask him;* not because he was difficult of access, or stern to those who consulted him, but either because they were loth to know the truth, or because they expected to be chidden for their backwardness to receive it. Many remain ignorant because they are ashamed to enquire.
 
@@ -115,16 +115,16 @@ III\. He rebukes them for *vilifying all but themselves;* while they are strivin
 
 ## Pain to Be Preferred to Sin.
 
-> <sup>41</sup> For whosoever shall give you a cup of water to drink in my name, because ye belong to Christ, verily I say unto you, he shall not lose his reward.  
-> <sup>42</sup> And whosoever shall offend one of *these* little ones that believe in me, it is better for him that a millstone were hanged about his neck, and he were cast into the sea.  
-> <sup>43</sup> And if thy hand offend thee, cut it off: it is better for thee to enter into life maimed, than having two hands to go into hell, into the fire that never shall be quenched:  
-> <sup>44</sup> Where their worm dieth not, and the fire is not quenched.  
-> <sup>45</sup> And if thy foot offend thee, cut it off: it is better for thee to enter halt into life, than having two feet to be cast into hell, into the fire that never shall be quenched:  
-> <sup>46</sup> Where their worm dieth not, and the fire is not quenched.  
-> <sup>47</sup> And if thine eye offend thee, pluck it out: it is better for thee to enter into the kingdom of God with one eye, than having two eyes to be cast into hell fire:  
-> <sup>48</sup> Where their worm dieth not, and the fire is not quenched.  
-> <sup>49</sup> For every one shall be salted with fire, and every sacrifice shall be salted with salt.  
-> <sup>50</sup> Salt *is* good: but if the salt have lost his saltness, wherewith will ye season it? Have salt in yourselves, and have peace one with another.  
+> **⁴¹** For whosoever shall give you a cup of water to drink in my name, because ye belong to Christ, verily I say unto you, he shall not lose his reward.  
+> **⁴²** And whosoever shall offend one of *these* little ones that believe in me, it is better for him that a millstone were hanged about his neck, and he were cast into the sea.  
+> **⁴³** And if thy hand offend thee, cut it off: it is better for thee to enter into life maimed, than having two hands to go into hell, into the fire that never shall be quenched:  
+> **⁴⁴** Where their worm dieth not, and the fire is not quenched.  
+> **⁴⁵** And if thy foot offend thee, cut it off: it is better for thee to enter halt into life, than having two feet to be cast into hell, into the fire that never shall be quenched:  
+> **⁴⁶** Where their worm dieth not, and the fire is not quenched.  
+> **⁴⁷** And if thine eye offend thee, pluck it out: it is better for thee to enter into the kingdom of God with one eye, than having two eyes to be cast into hell fire:  
+> **⁴⁸** Where their worm dieth not, and the fire is not quenched.  
+> **⁴⁹** For every one shall be salted with fire, and every sacrifice shall be salted with salt.  
+> **⁵⁰** Salt *is* good: but if the salt have lost his saltness, wherewith will ye season it? Have salt in yourselves, and have peace one with another.  
 
 Here, I. Christ promiseth a reward to all those that are any way kind to his disciples (Mk 9:41); "*Whosoever shall give you a cup of water,* when you need it, and will be a refreshment to you, *because ye belong to Christ,* and are of his family, *he shall not lose his reward.*" Note, 1. It is the honour and happiness of Christians, that they *belong to Christ,* they have joined themselves to him, and are owned by him; they wear his livery and retainers to his family; nay, they are more nearly related, they are *members of his body.* 2. They who belong to Christ, may sometimes be reduced to such straits as to be glad of a *cup of cold water.* 3. The relieving of Christ's poor in their distresses, is a good deed, and will turn a good account; he accepts it, and will reward it. 4. What kindness is done to Christ's poor, must be done them *for his sake,* and *because they belong to him;* for that is it that sanctifies the kindness, and puts a value upon it in the sight of God. 5. This is a reason why we must not discountenance and discourage those who are serving the interests of Christ's kingdom, though they are not in every thing of our mind and way. It comes in here as a reason why those must not be hindered, that cast out devils in Christ's name, though they did not follow him; for (as Dr. Hammond paraphrases it) "It is not only the great eminent performances which are done by you my constant attendants and disciples, that are accepted by me, but every the least degree of sincere faith and Christian performance, proportionable but to the expressing the least kindness, as giving a cup of water to a disciple of mine for being such, shall be accepted and rewarded." If Christ reckons *kindness to us* services to *him,* we ought to reckon *services to him* kindnesses to us, and to encourage them, though done by those that follow not with us.
 

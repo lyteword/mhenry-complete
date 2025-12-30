@@ -8,9 +8,9 @@ In this chapter the apostle exhorts to try spirits (1Jo 4:1), gives a note to tr
 
 ## Concerning Antichrist. (a. d. 80.)
 
-> <sup>1</sup> Beloved, believe not every spirit, but try the spirits whether they are of God: because many false prophets are gone out into the world.  
-> <sup>2</sup> Hereby know ye the Spirit of God: Every spirit that confesseth that Jesus Christ is come in the flesh is of God:  
-> <sup>3</sup> And every spirit that confesseth not that Jesus Christ is come in the flesh is not of God: and this is that *spirit* of antichrist, whereof ye have heard that it should come; and even now already is it in the world.  
+> **¹** Beloved, believe not every spirit, but try the spirits whether they are of God: because many false prophets are gone out into the world.  
+> **²** Hereby know ye the Spirit of God: Every spirit that confesseth that Jesus Christ is come in the flesh is of God:  
+> **³** And every spirit that confesseth not that Jesus Christ is come in the flesh is not of God: and this is that *spirit* of antichrist, whereof ye have heard that it should come; and even now already is it in the world.  
 
 The apostle, having said that God's dwelling in and with us may be known by *the Spirit that he hath given us,* intimates that that Spirit may be discerned and distinguished from other spirits that appear in the world; and so here,
 
@@ -20,21 +20,21 @@ II\. He gives a test whereby the disciples may try these pretending spirits. The
 
 ## Danger of Antichristian Spirit. (a. d. 80.)
 
-> <sup>4</sup> Ye are of God, little children, and have overcome them: because greater is he that is in you, than he that is in the world.  
-> <sup>5</sup> They are of the world: therefore speak they of the world, and the world heareth them.  
-> <sup>6</sup> We are of God: he that knoweth God heareth us; he that is not of God heareth not us. Hereby know we the spirit of truth, and the spirit of error.  
+> **⁴** Ye are of God, little children, and have overcome them: because greater is he that is in you, than he that is in the world.  
+> **⁵** They are of the world: therefore speak they of the world, and the world heareth them.  
+> **⁶** We are of God: he that knoweth God heareth us; he that is not of God heareth not us. Hereby know we the spirit of truth, and the spirit of error.  
 
 In these verses the apostle encourages the disciples against the fear and danger of this seducing antichristian spirit, and that by such methods as these:—1. He assures them of a more divine principle in them: "*You are of God, little children,* 1Jo 4:4. *You are God's little children. We are of God,* 1Jo 4:6. *We are born of God,* taught of God, anointed of God, and so secured against infectious fatal delusions. God has his chosen, who shall not be mortally seduced." 2. He gives them hope of victory: "*And have overcome them,* 1Jo 4:4. You have hitherto overcome these deceivers and their temptations, and there is good ground of hope that you will do so still, and that upon these two accounts:"—(1.) "There is a strong preserver within you: *Because greater is he that is in you than he that is in the world,* 1Jo 4:4. The Spirit of God dwells in you, and that Spirit is more mighty than men of devils." It is a great happiness to be under the influence of the Holy Ghost. (2.) "You are not of the same temper with these deceivers. The Spirit of God hath framed your mind for God and heaven; *but they are of the world.* The spirit that prevails in them leads them to this world; their heart is addicted thereto; they study the pomp, the pleasure, and interest of the world: *and therefore speak they of the world;* they profess a worldly messiah and saviour; they project a worldly kingdom and dominion; the possessions and treasures of the world would they engross to themselves, forgetting that the true Redeemer's *kingdom is not of this world.* This worldly design procures them proselytes: *The world heareth them,* 1Jo 4:5. They are followed by such as themselves: the world will love its own, and its own will love it. But those are in a fair way to conquer pernicious seductions who have conquered the love of this seducing world." Then, 3. He represents to them that though their company might be the smaller, yet it was the better; they had more divine and holy knowledge: "*He that knoweth God heareth us.* He who knows the purity and holiness of God, the love and grace of God, the truth and faithfulness of God, the ancient word and prophecies of God, the signals and testimonials of God, must know that he is with us; and he who knows this will attend to us, and abide with us." He that is well furnished with natural religion will the more faithfully cleave to Christianity. *He that knoweth God* (in his natural and moral excellences, revelations, and works) *heareth us,* 1Jo 4:6. As, on the contrary, "*He that is not of God heareth not us.* He who knows not God regards not us. He that is not *born of God* (walking according to his natural disposition) walks not with us. The further any are from God (as appears in all ages) the further they are from Christ and his faithful servants; and the more addicted persons are to this world the more remote they are from the spirit of Christianity. Thus you have a distinction between us and others: *Hereby know we the Spirit of truth and the spirit of error,* 1Jo 4:6. This doctrine concerning the Saviour's person leading you from the world to God is a signature of *the Spirit of truth,* in opposition to *the spirit of error.* The more pure and holy any doctrine is the more likely is it to be of God."
 
 ## Brotherly Love. (a. d. 80.)
 
-> <sup>7</sup> Beloved, let us love one another: for love is of God; and every one that loveth is born of God, and knoweth God.  
-> <sup>8</sup> He that loveth not knoweth not God; for God is love.  
-> <sup>9</sup> In this was manifested the love of God toward us, because that God sent his only begotten Son into the world, that we might live through him.  
-> <sup>10</sup> Herein is love, not that we loved God, but that he loved us, and sent his Son *to be* the propitiation for our sins.  
-> <sup>11</sup> Beloved, if God so loved us, we ought also to love one another.  
-> <sup>12</sup> No man hath seen God at any time. If we love one another, God dwelleth in us, and his love is perfected in us.  
-> <sup>13</sup> Hereby know we that we dwell in him, and he in us, because he hath given us of his Spirit.  
+> **⁷** Beloved, let us love one another: for love is of God; and every one that loveth is born of God, and knoweth God.  
+> **⁸** He that loveth not knoweth not God; for God is love.  
+> **⁹** In this was manifested the love of God toward us, because that God sent his only begotten Son into the world, that we might live through him.  
+> **¹⁰** Herein is love, not that we loved God, but that he loved us, and sent his Son *to be* the propitiation for our sins.  
+> **¹¹** Beloved, if God so loved us, we ought also to love one another.  
+> **¹²** No man hath seen God at any time. If we love one another, God dwelleth in us, and his love is perfected in us.  
+> **¹³** Hereby know we that we dwell in him, and he in us, because he hath given us of his Spirit.  
 
 As *the Spirit of truth* is known by doctrine (thus spirits are to be tried), it is known by love likewise; and so here follows a strong fervent exhortation to holy Christian love: *Beloved, let us love one another,* 1Jo 4:7. The apostle would unite them in his love, that he might unite them in love to each other: "*Beloved,* I beseech you, by the love I bear to you, that you put on unfeigned mutual love." This exhortation is pressed and urged with variety of argument: as,
 
@@ -50,9 +50,9 @@ V\. Herein the divine love attains a considerable end and accomplishment in us: 
 
 ## The Divine Love. (a. d. 80.)
 
-> <sup>14</sup> And we have seen and do testify that the Father sent the Son *to be* the Saviour of the world.  
-> <sup>15</sup> Whosoever shall confess that Jesus is the Son of God, God dwelleth in him, and he in God.  
-> <sup>16</sup> And we have known and believed the love that God hath to us. God is love; and he that dwelleth in love dwelleth in God, and God in him.  
+> **¹⁴** And we have seen and do testify that the Father sent the Son *to be* the Saviour of the world.  
+> **¹⁵** Whosoever shall confess that Jesus is the Son of God, God dwelleth in him, and he in God.  
+> **¹⁶** And we have known and believed the love that God hath to us. God is love; and he that dwelleth in love dwelleth in God, and God in him.  
 
 Since faith in Christ works love to God, and love to God must kindle love to the brethren, the apostle here confirms the prime article of the Christian faith as the foundation of such love. Here,
 
@@ -68,11 +68,11 @@ III\. The apostle applies this in order to the excitation of holy love. God's lo
 
 ## The Divine Love. (a. d. 80.)
 
-> <sup>17</sup> Herein is our love made perfect, that we may have boldness in the day of judgment: because as he is, so are we in this world.  
-> <sup>18</sup> There is no fear in love; but perfect love casteth out fear: because fear hath torment. He that feareth is not made perfect in love.  
-> <sup>19</sup> We love him, because he first loved us.  
-> <sup>20</sup> If a man say, I love God, and hateth his brother, he is a liar: for he that loveth not his brother whom he hath seen, how can he love God whom he hath not seen?  
-> <sup>21</sup> And this commandment have we from him, That he who loveth God love his brother also.  
+> **¹⁷** Herein is our love made perfect, that we may have boldness in the day of judgment: because as he is, so are we in this world.  
+> **¹⁸** There is no fear in love; but perfect love casteth out fear: because fear hath torment. He that feareth is not made perfect in love.  
+> **¹⁹** We love him, because he first loved us.  
+> **²⁰** If a man say, I love God, and hateth his brother, he is a liar: for he that loveth not his brother whom he hath seen, how can he love God whom he hath not seen?  
+> **²¹** And this commandment have we from him, That he who loveth God love his brother also.  
 
 The apostle, having thus excited and enforced sacred love from the great pattern and motive of it, the love that is and dwells in God himself, proceeds to recommend it further by other considerations; and he recommends it in both the branches of it, both as love to God, and love to our brother or Christian neighbour.
 

@@ -8,9 +8,9 @@ Solomon, having shown the vanity of this world in the temptation which those in 
 
 ## The Prevalence of Oppression.
 
-> <sup>1</sup> So I returned, and considered all the oppressions that are done under the sun: and behold the tears of *such as were* oppressed, and they had no comforter; and on the side of their oppressors *there was* power; but they had no comforter.  
-> <sup>2</sup> Wherefore I praised the dead which are already dead more than the living which are yet alive.  
-> <sup>3</sup> Yea, better *is he* than both they, which hath not yet been, who hath not seen the evil work that is done under the sun.  
+> **¹** So I returned, and considered all the oppressions that are done under the sun: and behold the tears of *such as were* oppressed, and they had no comforter; and on the side of their oppressors *there was* power; but they had no comforter.  
+> **²** Wherefore I praised the dead which are already dead more than the living which are yet alive.  
+> **³** Yea, better *is he* than both they, which hath not yet been, who hath not seen the evil work that is done under the sun.  
 
 Solomon had a large soul (1Ki 4:29) and it appeared by this, among other things, that he had a very tender concern for the miserable part of mankind and took cognizance of the afflictions of the afflicted. He had taken the oppressors to task (Ec 3:16,17) and put them in mind of the judgment to come, to be a curb to their insolence; now here he observes the oppressed. This he did, no doubt, as a prince, to do them justice and *avenge them of their adversaries,* for he both *feared God and regarded men;* but here he does it as a preacher, and shows,
 
@@ -20,9 +20,9 @@ II\. The temptations of their condition. Being thus hardly used, they are tempte
 
 ## The Prevalence of Oppression.
 
-> <sup>4</sup> Again, I considered all travail, and every right work, that for this a man is envied of his neighbour. This *is* also vanity and vexation of spirit.  
-> <sup>5</sup> The fool foldeth his hands together, and eateth his own flesh.  
-> <sup>6</sup> Better *is* a handful *with* quietness, than both the hands full *with* travail and vexation of spirit.  
+> **⁴** Again, I considered all travail, and every right work, that for this a man is envied of his neighbour. This *is* also vanity and vexation of spirit.  
+> **⁵** The fool foldeth his hands together, and eateth his own flesh.  
+> **⁶** Better *is* a handful *with* quietness, than both the hands full *with* travail and vexation of spirit.  
 
 Here Solomon returns to the observation and consideration of the vanity and vexation of spirit that attend the business of this world, which he had spoken of before, Ec 2:11.
 
@@ -32,12 +32,12 @@ II\. If a man be stupid, and dull, and blundering in his business, he does ill f
 
 ## The Vanity of Human Wishes.
 
-> <sup>7</sup> Then I returned, and I saw vanity under the sun.  
-> <sup>8</sup> There is one *alone,* and *there is* not a second; yea, he hath neither child nor brother: yet *is there* no end of all his labour; neither is his eye satisfied with riches; neither *saith he,* For whom do I labour, and bereave my soul of good? This *is* also vanity, yea, it *is* a sore travail.  
-> <sup>9</sup> Two *are* better than one; because they have a good reward for their labour.  
-> <sup>10</sup> For if they fall, the one will lift up his fellow: but woe to him *that is* alone when he falleth; for *he hath* not another to help him up.  
-> <sup>11</sup> Again, if two lie together, then they have heat: but how can one be warm *alone?*  
-> <sup>12</sup> And if one prevail against him, two shall withstand him; and a threefold cord is not quickly broken.  
+> **⁷** Then I returned, and I saw vanity under the sun.  
+> **⁸** There is one *alone,* and *there is* not a second; yea, he hath neither child nor brother: yet *is there* no end of all his labour; neither is his eye satisfied with riches; neither *saith he,* For whom do I labour, and bereave my soul of good? This *is* also vanity, yea, it *is* a sore travail.  
+> **⁹** Two *are* better than one; because they have a good reward for their labour.  
+> **¹⁰** For if they fall, the one will lift up his fellow: but woe to him *that is* alone when he falleth; for *he hath* not another to help him up.  
+> **¹¹** Again, if two lie together, then they have heat: but how can one be warm *alone?*  
+> **¹²** And if one prevail against him, two shall withstand him; and a threefold cord is not quickly broken.  
 
 Here Solomon fastens upon another instance of the vanity of this world, that frequently the more men have of it the more they would have; and on this they are so intent that they have no enjoyment of what they have. Now Solomon here shows,
 
@@ -47,10 +47,10 @@ II\. That sociableness is the cure of this evil. Men are thus sordid because the
 
 ## The Advantages of Society.
 
-> <sup>13</sup> Better *is* a poor and a wise child than an old and foolish king, who will no more be admonished.  
-> <sup>14</sup> For out of prison he cometh to reign; whereas also *he that is* born in his kingdom becometh poor.  
-> <sup>15</sup> I considered all the living which walk under the sun, with the second child that shall stand up in his stead.  
-> <sup>16</sup> *There is* no end of all the people, *even* of all that have been before them: they also that come after shall not rejoice in him. Surely this also *is* vanity and vexation of spirit.  
+> **¹³** Better *is* a poor and a wise child than an old and foolish king, who will no more be admonished.  
+> **¹⁴** For out of prison he cometh to reign; whereas also *he that is* born in his kingdom becometh poor.  
+> **¹⁵** I considered all the living which walk under the sun, with the second child that shall stand up in his stead.  
+> **¹⁶** *There is* no end of all the people, *even* of all that have been before them: they also that come after shall not rejoice in him. Surely this also *is* vanity and vexation of spirit.  
 
 Solomon was himself a king, and therefore may be allowed to speak more freely than another concerning the vanity of kingly state and dignity, which he shows here to be an uncertain thing; he had before said so (Pr 27:24, *The crown doth not endure to every generation*), and his son found it so. Nothing is more slippery than the highest post of honour without wisdom and the people's love.
 

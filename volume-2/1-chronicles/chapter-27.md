@@ -8,45 +8,45 @@ In this chapter we have the civil list, including the military, I. The twelve ca
 
 ## The Officers of the Army. (b. c. 1015.)
 
-> <sup>1</sup> Now the children of Israel after their number, *to wit,* the chief fathers and captains of thousands and hundreds, and their officers that served the king in any matter of the courses, which came in and went out month by month throughout all the months of the year, of every course *were* twenty and four thousand.  
-> <sup>2</sup> Over the first course for the first month *was* Jashobeam the son of Zabdiel: and in his course *were* twenty and four thousand.  
-> <sup>3</sup> Of the children of Perez *was* the chief of all the captains of the host for the first month.  
-> <sup>4</sup> And over the course of the second month *was* Dodai an Ahohite, and of his course *was* Mikloth also the ruler: in his course likewise *were* twenty and four thousand.  
-> <sup>5</sup> The third captain of the host for the third month *was* Benaiah the son of Jehoiada, a chief priest: and in his course *were* twenty and four thousand.  
-> <sup>6</sup> This *is that* Benaiah, *who was* mighty *among* the thirty, and above the thirty: and in his course *was* Ammizabad his son.  
-> <sup>7</sup> The fourth *captain* for the fourth month *was* Asahel the brother of Joab, and Zebadiah his son after him: and in his course *were* twenty and four thousand.  
-> <sup>8</sup> The fifth captain for the fifth month *was* Shamhuth the Izrahite: and in his course *were* twenty and four thousand.  
-> <sup>9</sup> The sixth *captain* for the sixth month *was* Ira the son of Ikkesh the Tekoite: and in his course *were* twenty and four thousand.  
-> <sup>10</sup> The seventh *captain* for the seventh month *was* Helez the Pelonite, of the children of Ephraim: and in his course *were* twenty and four thousand.  
-> <sup>11</sup> The eighth *captain* for the eighth month *was* Sibbecai the Hushathite, of the Zarhites: and in his course *were* twenty and four thousand.  
-> <sup>12</sup> The ninth *captain* for the ninth month *was* Abiezer the Anetothite, of the Benjamites: and in his course *were* twenty and four thousand.  
-> <sup>13</sup> The tenth *captain* for the tenth month *was* Maharai the Netophathite, of the Zarhites: and in his course *were* twenty and four thousand.  
-> <sup>14</sup> The eleventh *captain* for the eleventh month *was* Benaiah the Pirathonite, of the children of Ephraim: and in his course *were* twenty and four thousand.  
-> <sup>15</sup> The twelfth *captain* for the twelfth month *was* Heldai the Netophathite, of Othniel: and in his course *were* twenty and four thousand.  
+> **¹** Now the children of Israel after their number, *to wit,* the chief fathers and captains of thousands and hundreds, and their officers that served the king in any matter of the courses, which came in and went out month by month throughout all the months of the year, of every course *were* twenty and four thousand.  
+> **²** Over the first course for the first month *was* Jashobeam the son of Zabdiel: and in his course *were* twenty and four thousand.  
+> **³** Of the children of Perez *was* the chief of all the captains of the host for the first month.  
+> **⁴** And over the course of the second month *was* Dodai an Ahohite, and of his course *was* Mikloth also the ruler: in his course likewise *were* twenty and four thousand.  
+> **⁵** The third captain of the host for the third month *was* Benaiah the son of Jehoiada, a chief priest: and in his course *were* twenty and four thousand.  
+> **⁶** This *is that* Benaiah, *who was* mighty *among* the thirty, and above the thirty: and in his course *was* Ammizabad his son.  
+> **⁷** The fourth *captain* for the fourth month *was* Asahel the brother of Joab, and Zebadiah his son after him: and in his course *were* twenty and four thousand.  
+> **⁸** The fifth captain for the fifth month *was* Shamhuth the Izrahite: and in his course *were* twenty and four thousand.  
+> **⁹** The sixth *captain* for the sixth month *was* Ira the son of Ikkesh the Tekoite: and in his course *were* twenty and four thousand.  
+> **¹⁰** The seventh *captain* for the seventh month *was* Helez the Pelonite, of the children of Ephraim: and in his course *were* twenty and four thousand.  
+> **¹¹** The eighth *captain* for the eighth month *was* Sibbecai the Hushathite, of the Zarhites: and in his course *were* twenty and four thousand.  
+> **¹²** The ninth *captain* for the ninth month *was* Abiezer the Anetothite, of the Benjamites: and in his course *were* twenty and four thousand.  
+> **¹³** The tenth *captain* for the tenth month *was* Maharai the Netophathite, of the Zarhites: and in his course *were* twenty and four thousand.  
+> **¹⁴** The eleventh *captain* for the eleventh month *was* Benaiah the Pirathonite, of the children of Ephraim: and in his course *were* twenty and four thousand.  
+> **¹⁵** The twelfth *captain* for the twelfth month *was* Heldai the Netophathite, of Othniel: and in his course *were* twenty and four thousand.  
 
 We have here an account of the regulation of the militia of the kingdom. David was himself a man of war, and had done great things with the sword; he had brought into the field great armies. Now here we are told how he marshalled them when God had given him rest from all his enemies. He did not keep them all together, for that would have been a hardship on them and the country; yet he did not disband and disperse them all, for then he would have left his kingdom naked, and his people would have forgotten the arts of war, wherein they had been instructed. He therefore contrived to keep up a constant force, and yet not a standing army. The model is very prudent. 1. He kept up 24,000 constantly in arms, I suppose in a body, and disciplined, in one part or other of the kingdom, the freeholders carrying their own arms and bearing their own charges while they were up. This was a sufficient strength for the securing of the public peace and safety. Those that are Israelites indeed must learn war; for we have enemies to grapple with, whom we are concerned constantly to stand upon our guard against. 2. He changed them every month; so that the whole number of the militia amounted to 288,000, perhaps about a fifth part of the able men of the kingdom. By being thus distributed into twelve courses, they were all instructed in, and accustomed to, military exercises; and yet none were compelled to be in service, and at expenses, above one month in the year (which they might very well afford), unless upon extraordinary occasions, and then they might all be got together quickly. It is the wisdom of governors, and much their praise, while they provide for the public safety, to contrive how to make it effectual and yet easy, and as little as possible burdensome to the people. 3. Every course had a commander in chief over it. Besides the subaltern officers that were rulers over thousands, and hundreds, and fifties, there was one general officer to each course or legion. All these twelve great commanders are mentioned among David's worthies and champions, 2Sa 23:8-39,1Ch 11:10-47 They had first signalized themselves by their great actions and then they were advanced to those great preferments. It is well with a kingdom when honour thus attends merit. Benaiah is here called *a chief priest,* 1Ch 27:5. But, *cohen* signifying both a *priest* and a *prince,* it might better be translated here *a chief ruler,* or (as in the margin) *a principal officer.* Dodai had Mikloth (1Ch 27:4) either for his substitute when he was absent or infirm, or for his successor when he was dead. Benaiah had his son under him, 1Ch 27:6. Asahel had his son after him (1Ch 27:7), and by this it seems that this plan of the militia was laid in the beginning of David's reign; for Asahel was killed by Abner while David reigned in Hebron. When his wars were over he revived this method, and left the military affairs in this posture, for the peaceable reign of his son Solomon. When we think ourselves most safe, yet, while we are here in the body, we must keep in a readiness for spiritual conflicts. *Let not him that girdeth on the harness boast as he that puts it off.*
 
 ## The Military Force. (b. c. 1015.)
 
-> <sup>16</sup> Furthermore over the tribes of Israel: the ruler of the Reubenites *was* Eliezer the son of Zichri: of the Simeonites, Shephatiah the son of Maachah:  
-> <sup>17</sup> Of the Levites, Hashabiah the son of Kemuel: of the Aaronites, Zadok:  
-> <sup>18</sup> Of Judah, Elihu, *one* of the brethren of David: of Issachar, Omri the son of Michael:  
-> <sup>19</sup> Of Zebulun, Ishmaiah the son of Obadiah: of Naphtali, Jerimoth the son of Azriel:  
-> <sup>20</sup> Of the children of Ephraim, Hoshea the son of Azaziah: of the half tribe of Manasseh, Joel the son of Pedaiah:  
-> <sup>21</sup> Of the half *tribe* of Manasseh in Gilead, Iddo the son of Zechariah: of Benjamin, Jaasiel the son of Abner:  
-> <sup>22</sup> Of Dan, Azareel the son of Jeroham. These *were* the princes of the tribes of Israel.  
-> <sup>23</sup> But David took not the number of them from twenty years old and under: because the LORD had said he would increase Israel like to the stars of the heavens.  
-> <sup>24</sup> Joab the son of Zeruiah began to number, but he finished not, because there fell wrath for it against Israel; neither was the number put in the account of the chronicles of king David.  
-> <sup>25</sup> And over the king's treasures *was* Azmaveth the son of Adiel: and over the storehouses in the fields, in the cities, and in the villages, and in the castles, *was* Jehonathan the son of Uzziah:  
-> <sup>26</sup> And over them that did the work of the field for tillage of the ground *was* Ezri the son of Chelub:  
-> <sup>27</sup> And over the vineyards *was* Shimei the Ramathite: over the increase of the vineyards for the wine cellars *was* Zabdi the Shiphmite:  
-> <sup>28</sup> And over the olive trees and the sycamore trees that *were* in the low plains *was* Baal-hanan the Gederite: and over the cellars of oil *was* Joash:  
-> <sup>29</sup> And over the herds that fed in Sharon *was* Shitrai the Sharonite: and over the herds *that were* in the valleys *was* Shaphat the son of Adlai:  
-> <sup>30</sup> Over the camels also *was* Obil the Ishmaelite: and over the asses *was* Jehdeiah the Meronothite:  
-> <sup>31</sup> And over the flocks *was* Jaziz the Hagerite. All these *were* the rulers of the substance which *was* king David's.  
-> <sup>32</sup> Also Jonathan David's uncle was a counsellor, a wise man, and a scribe: and Jehiel the son of Hachmoni *was* with the king's sons:  
-> <sup>33</sup> And Ahithophel *was* the king's counsellor: and Hushai the Archite *was* the king's companion:  
-> <sup>34</sup> And after Ahithophel *was* Jehoiada the son of Benaiah, and Abiathar: and the general of the king's army *was* Joab.  
+> **¹⁶** Furthermore over the tribes of Israel: the ruler of the Reubenites *was* Eliezer the son of Zichri: of the Simeonites, Shephatiah the son of Maachah:  
+> **¹⁷** Of the Levites, Hashabiah the son of Kemuel: of the Aaronites, Zadok:  
+> **¹⁸** Of Judah, Elihu, *one* of the brethren of David: of Issachar, Omri the son of Michael:  
+> **¹⁹** Of Zebulun, Ishmaiah the son of Obadiah: of Naphtali, Jerimoth the son of Azriel:  
+> **²⁰** Of the children of Ephraim, Hoshea the son of Azaziah: of the half tribe of Manasseh, Joel the son of Pedaiah:  
+> **²¹** Of the half *tribe* of Manasseh in Gilead, Iddo the son of Zechariah: of Benjamin, Jaasiel the son of Abner:  
+> **²²** Of Dan, Azareel the son of Jeroham. These *were* the princes of the tribes of Israel.  
+> **²³** But David took not the number of them from twenty years old and under: because the LORD had said he would increase Israel like to the stars of the heavens.  
+> **²⁴** Joab the son of Zeruiah began to number, but he finished not, because there fell wrath for it against Israel; neither was the number put in the account of the chronicles of king David.  
+> **²⁵** And over the king's treasures *was* Azmaveth the son of Adiel: and over the storehouses in the fields, in the cities, and in the villages, and in the castles, *was* Jehonathan the son of Uzziah:  
+> **²⁶** And over them that did the work of the field for tillage of the ground *was* Ezri the son of Chelub:  
+> **²⁷** And over the vineyards *was* Shimei the Ramathite: over the increase of the vineyards for the wine cellars *was* Zabdi the Shiphmite:  
+> **²⁸** And over the olive trees and the sycamore trees that *were* in the low plains *was* Baal-hanan the Gederite: and over the cellars of oil *was* Joash:  
+> **²⁹** And over the herds that fed in Sharon *was* Shitrai the Sharonite: and over the herds *that were* in the valleys *was* Shaphat the son of Adlai:  
+> **³⁰** Over the camels also *was* Obil the Ishmaelite: and over the asses *was* Jehdeiah the Meronothite:  
+> **³¹** And over the flocks *was* Jaziz the Hagerite. All these *were* the rulers of the substance which *was* king David's.  
+> **³²** Also Jonathan David's uncle was a counsellor, a wise man, and a scribe: and Jehiel the son of Hachmoni *was* with the king's sons:  
+> **³³** And Ahithophel *was* the king's counsellor: and Hushai the Archite *was* the king's companion:  
+> **³⁴** And after Ahithophel *was* Jehoiada the son of Benaiah, and Abiathar: and the general of the king's army *was* Joab.  
 
 We have here an account,
 

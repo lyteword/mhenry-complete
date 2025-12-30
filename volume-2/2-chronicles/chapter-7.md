@@ -8,17 +8,17 @@ In this chapter we have God's answer to Solomon's prayer. I. His public answer b
 
 ## God's Gracious Answer to Solomon. (b. c. 1004.)
 
-> <sup>1</sup> Now when Solomon had made an end of praying, the fire came down from heaven, and consumed the burnt offering and the sacrifices; and the glory of the LORD filled the house.  
-> <sup>2</sup> And the priests could not enter into the house of the LORD, because the glory of the LORD had filled the LORD's house.  
-> <sup>3</sup> And when all the children of Israel saw how the fire came down, and the glory of the LORD upon the house, they bowed themselves with their faces to the ground upon the pavement, and worshipped, and praised the LORD, *saying,* For *he is* good; for his mercy *endureth* for ever.  
-> <sup>4</sup> Then the king and all the people offered sacrifices before the LORD.  
-> <sup>5</sup> And king Solomon offered a sacrifice of twenty and two thousand oxen, and a hundred and twenty thousand sheep: so the king and all the people dedicated the house of God.  
-> <sup>6</sup> And the priests waited on their offices: the Levites also with instruments of music of the LORD, which David the king had made to praise the LORD, because his mercy *endureth* for ever, when David praised by their ministry; and the priests sounded trumpets before them, and all Israel stood.  
-> <sup>7</sup> Moreover Solomon hallowed the middle of the court that *was* before the house of the LORD: for there he offered burnt offerings, and the fat of the peace offerings, because the brasen altar which Solomon had made was not able to receive the burnt offerings, and the meat offerings, and the fat.  
-> <sup>8</sup> Also at the same time Solomon kept the feast seven days, and all Israel with him, a very great congregation, from the entering in of Hamath unto the river of Egypt.  
-> <sup>9</sup> And in the eighth day they made a solemn assembly: for they kept the dedication of the altar seven days, and the feast seven days.  
-> <sup>10</sup> And on the three and twentieth day of the seventh month he sent the people away into their tents, glad and merry in heart for the goodness that the LORD had showed unto David, and to Solomon, and to Israel his people.  
-> <sup>11</sup> Thus Solomon finished the house of the LORD, and the king's house: and all that came into Solomon's heart to make in the house of the LORD, and in his own house, he prosperously effected.  
+> **¹** Now when Solomon had made an end of praying, the fire came down from heaven, and consumed the burnt offering and the sacrifices; and the glory of the LORD filled the house.  
+> **²** And the priests could not enter into the house of the LORD, because the glory of the LORD had filled the LORD's house.  
+> **³** And when all the children of Israel saw how the fire came down, and the glory of the LORD upon the house, they bowed themselves with their faces to the ground upon the pavement, and worshipped, and praised the LORD, *saying,* For *he is* good; for his mercy *endureth* for ever.  
+> **⁴** Then the king and all the people offered sacrifices before the LORD.  
+> **⁵** And king Solomon offered a sacrifice of twenty and two thousand oxen, and a hundred and twenty thousand sheep: so the king and all the people dedicated the house of God.  
+> **⁶** And the priests waited on their offices: the Levites also with instruments of music of the LORD, which David the king had made to praise the LORD, because his mercy *endureth* for ever, when David praised by their ministry; and the priests sounded trumpets before them, and all Israel stood.  
+> **⁷** Moreover Solomon hallowed the middle of the court that *was* before the house of the LORD: for there he offered burnt offerings, and the fat of the peace offerings, because the brasen altar which Solomon had made was not able to receive the burnt offerings, and the meat offerings, and the fat.  
+> **⁸** Also at the same time Solomon kept the feast seven days, and all Israel with him, a very great congregation, from the entering in of Hamath unto the river of Egypt.  
+> **⁹** And in the eighth day they made a solemn assembly: for they kept the dedication of the altar seven days, and the feast seven days.  
+> **¹⁰** And on the three and twentieth day of the seventh month he sent the people away into their tents, glad and merry in heart for the goodness that the LORD had showed unto David, and to Solomon, and to Israel his people.  
+> **¹¹** Thus Solomon finished the house of the LORD, and the king's house: and all that came into Solomon's heart to make in the house of the LORD, and in his own house, he prosperously effected.  
 
 Here is, I. The gracious answer which God immediately made to Solomon's prayer: The *fire came down from heaven and consumed the sacrifice,* 2Ch 7:1. In this way God testified his acceptance of Moses (Le 9:24), of Gideon (Jdg 6:21), of David (1Ch 21:26), of Elijah (1Ki 18:38); and, in general, to accept the burnt-sacrifice is, in the Hebrew phrase, to turn it to ashes, Ps 20:3. The fire came down here, not upon the killing of the sacrifices, but the praying of the prayer.
 
@@ -40,17 +40,17 @@ II\. The grateful return made to God for this gracious token of his favour.
 
 ## God's Promises to Solomon. (b. c. 1004.)
 
-> <sup>12</sup> And the LORD appeared to Solomon by night, and said unto him, I have heard thy prayer, and have chosen this place to myself for a house of sacrifice.  
-> <sup>13</sup> If I shut up heaven that there be no rain, or if I command the locusts to devour the land, or if I send pestilence among my people;  
-> <sup>14</sup> If my people, which are called by my name, shall humble themselves, and pray, and seek my face, and turn from their wicked ways; then will I hear from heaven, and will forgive their sin, and will heal their land.  
-> <sup>15</sup> Now mine eyes shall be open, and mine ears attent unto the prayer *that is made* in this place.  
-> <sup>16</sup> For now have I chosen and sanctified this house, that my name may be there for ever: and mine eyes and mine heart shall be there perpetually.  
-> <sup>17</sup> And as for thee, if thou wilt walk before me, as David thy father walked, and do according to all that I have commanded thee, and shalt observe my statutes and my judgments;  
-> <sup>18</sup> Then will I stablish the throne of thy kingdom, according as I have covenanted with David thy father, saying, There shall not fail thee a man *to be* ruler in Israel.  
-> <sup>19</sup> But if ye turn away, and forsake my statutes and my commandments, which I have set before you, and shall go and serve other gods, and worship them;  
-> <sup>20</sup> Then will I pluck them up by the roots out of my land which I have given them; and this house, which I have sanctified for my name, will I cast out of my sight, and will make it *to be* a proverb and a byword among all nations.  
-> <sup>21</sup> And this house, which is high, shall be an astonishment to every one that passeth by it; so that he shall say, Why hath the LORD done thus unto this land, and unto this house?  
-> <sup>22</sup> And it shall be answered, Because they forsook the LORD God of their fathers, which brought them forth out of the land of Egypt, and laid hold on other gods, and worshipped them, and served them: therefore hath he brought all this evil upon them.  
+> **¹²** And the LORD appeared to Solomon by night, and said unto him, I have heard thy prayer, and have chosen this place to myself for a house of sacrifice.  
+> **¹³** If I shut up heaven that there be no rain, or if I command the locusts to devour the land, or if I send pestilence among my people;  
+> **¹⁴** If my people, which are called by my name, shall humble themselves, and pray, and seek my face, and turn from their wicked ways; then will I hear from heaven, and will forgive their sin, and will heal their land.  
+> **¹⁵** Now mine eyes shall be open, and mine ears attent unto the prayer *that is made* in this place.  
+> **¹⁶** For now have I chosen and sanctified this house, that my name may be there for ever: and mine eyes and mine heart shall be there perpetually.  
+> **¹⁷** And as for thee, if thou wilt walk before me, as David thy father walked, and do according to all that I have commanded thee, and shalt observe my statutes and my judgments;  
+> **¹⁸** Then will I stablish the throne of thy kingdom, according as I have covenanted with David thy father, saying, There shall not fail thee a man *to be* ruler in Israel.  
+> **¹⁹** But if ye turn away, and forsake my statutes and my commandments, which I have set before you, and shall go and serve other gods, and worship them;  
+> **²⁰** Then will I pluck them up by the roots out of my land which I have given them; and this house, which I have sanctified for my name, will I cast out of my sight, and will make it *to be* a proverb and a byword among all nations.  
+> **²¹** And this house, which is high, shall be an astonishment to every one that passeth by it; so that he shall say, Why hath the LORD done thus unto this land, and unto this house?  
+> **²²** And it shall be answered, Because they forsook the LORD God of their fathers, which brought them forth out of the land of Egypt, and laid hold on other gods, and worshipped them, and served them: therefore hath he brought all this evil upon them.  
 
 That God accepted Solomon's prayer appeared by the fire from heaven. But a prayer may be accepted and yet not answered in the letter of it; and therefore God appeared to him in the night, as he did once before (2Ch 1:7), and after a day of sacrifice too, as then, and gave him a peculiar answer to his prayer. We had the substance of it before, 1Ki 9:2-9.
 

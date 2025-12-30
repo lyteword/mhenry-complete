@@ -8,11 +8,11 @@ The stage is clear, for Job and his three friends have sat down, and neither he 
 
 ## The Address of Elihu. (b. c. 1520.)
 
-> <sup>1</sup> So these three men ceased to answer Job, because he *was* righteous in his own eyes.  
-> <sup>2</sup> Then was kindled the wrath of Elihu the son of Barachel the Buzite, of the kindred of Ram: against Job was his wrath kindled, because he justified himself rather than God.  
-> <sup>3</sup> Also against his three friends was his wrath kindled, because they had found no answer, and *yet* had condemned Job.  
-> <sup>4</sup> Now Elihu had waited till Job had spoken, because they *were* elder than he.  
-> <sup>5</sup> When Elihu saw that *there was* no answer in the mouth of *these* three men, then his wrath was kindled.  
+> **¹** So these three men ceased to answer Job, because he *was* righteous in his own eyes.  
+> **²** Then was kindled the wrath of Elihu the son of Barachel the Buzite, of the kindred of Ram: against Job was his wrath kindled, because he justified himself rather than God.  
+> **³** Also against his three friends was his wrath kindled, because they had found no answer, and *yet* had condemned Job.  
+> **⁴** Now Elihu had waited till Job had spoken, because they *were* elder than he.  
+> **⁵** When Elihu saw that *there was* no answer in the mouth of *these* three men, then his wrath was kindled.  
 
 Usually young men are the disputants and old men the moderators; but here, when old men were the disputants, as a rebuke to them for their unbecoming heat, a young man is raised up to be the moderator. Divers of Job's friends were present, that came to visit him and to receive instruction. Now here we have,
 
@@ -24,15 +24,15 @@ II\. The reasons why Elihu, the fourth, now spoke. His name *Elihu* signifies *M
 
 2\. Elihu spoke because he thought that it was time to speak, and that now, at length, it had come to his turn, Job 32:4,5. (1.) He had waited on Job's speeches, had patiently heard him out, until the words of Job were ended. (2.) He had waited on his friends' silence, so that, as he would not interrupt him, so he would not prevent them, not because they were wiser than he, but because they were older than he, and therefore it was expected by the company that they should speak first; and Elihu was very modest, and would by no means offer to abridge them of their privilege. Some certain rules of precedency must be observed, for the keeping of order. Though inward real honour will attend true wisdom and worth, yet, since every man will think himself or his friend the wisest and worthiest, this can afford no certain rule for the outward ceremonial honour, which therefore must attend seniority either of age or office; and this respect the seniors may the better require because they paid it when they were juniors, and the juniors may the better pay because they shall have it when they come to be seniors.
 
-> <sup>6</sup> And Elihu the son of Barachel the Buzite answered and said, I *am* young, and ye *are* very old; wherefore I was afraid, and durst not show you mine opinion.  
-> <sup>7</sup> I said, Days should speak, and multitude of years should teach wisdom.  
-> <sup>8</sup> But *there is* a spirit in man: and the inspiration of the Almighty giveth them understanding.  
-> <sup>9</sup> Great men are not *always* wise: neither do the aged understand judgment.  
-> <sup>10</sup> Therefore I said, Hearken to me; I also will show mine opinion.  
-> <sup>11</sup> Behold, I waited for your words; I gave ear to your reasons, whilst ye searched out what to say.  
-> <sup>12</sup> Yea, I attended unto you, and, behold, *there was* none of you that convinced Job, *or* that answered his words:  
-> <sup>13</sup> Lest ye should say, We have found out wisdom: God thrusteth him down, not man.  
-> <sup>14</sup> Now he hath not directed *his* words against me: neither will I answer him with your speeches.  
+> **⁶** And Elihu the son of Barachel the Buzite answered and said, I *am* young, and ye *are* very old; wherefore I was afraid, and durst not show you mine opinion.  
+> **⁷** I said, Days should speak, and multitude of years should teach wisdom.  
+> **⁸** But *there is* a spirit in man: and the inspiration of the Almighty giveth them understanding.  
+> **⁹** Great men are not *always* wise: neither do the aged understand judgment.  
+> **¹⁰** Therefore I said, Hearken to me; I also will show mine opinion.  
+> **¹¹** Behold, I waited for your words; I gave ear to your reasons, whilst ye searched out what to say.  
+> **¹²** Yea, I attended unto you, and, behold, *there was* none of you that convinced Job, *or* that answered his words:  
+> **¹³** Lest ye should say, We have found out wisdom: God thrusteth him down, not man.  
+> **¹⁴** Now he hath not directed *his* words against me: neither will I answer him with your speeches.  
 
 Elihu here appears to have been,
 
@@ -48,14 +48,14 @@ II\. A man of great sense and courage, and one that knew as well when and how to
 
 4\. That he had something new to offer, and would endeavour to manage the dispute in a better manner than it had hitherto been managed, Job 32:14. He thinks he may expect a favourable hearing; for, (1.) He will not reply to Job's protestations of his integrity, but allows the truth of them, and therefore does not interpose as his enemy: "*He hath not directed his words against me.* I have nothing to say against the main scope of his discourse, nor do I differ from his principles. I have only a gentle reproof to give him for his passionate expressions." (2.) He will not repeat their arguments, nor go upon their principles: "*Neither will I answer him with your speeches*—not with the same matter, for should I only say what has been said I might justly be silenced as impertinent,—nor in the same manner; I will not be guilty of that peevishness towards him myself which I dislike in you." The controversy that has already been fully handled a wise man will let alone, unless he can amend and improve what has been done; why should he *actum agere—do that which has been done already?*
 
-> <sup>15</sup> They were amazed, they answered no more: they left off speaking.  
-> <sup>16</sup> When I had waited, (for they spake not, but stood still, *and* answered no more;)  
-> <sup>17</sup> *I said,* I will answer also my part, I also will show mine opinion.  
-> <sup>18</sup> For I am full of matter, the spirit within me constraineth me.  
-> <sup>19</sup> Behold, my belly *is* as wine *which* hath no vent; it is ready to burst like new bottles.  
-> <sup>20</sup> I will speak, that I may be refreshed: I will open my lips and answer.  
-> <sup>21</sup> Let me not, I pray you, accept any man's person, neither let me give flattering titles unto man.  
-> <sup>22</sup> For I know not to give flattering titles; *in so doing* my maker would soon take me away.  
+> **¹⁵** They were amazed, they answered no more: they left off speaking.  
+> **¹⁶** When I had waited, (for they spake not, but stood still, *and* answered no more;)  
+> **¹⁷** *I said,* I will answer also my part, I also will show mine opinion.  
+> **¹⁸** For I am full of matter, the spirit within me constraineth me.  
+> **¹⁹** Behold, my belly *is* as wine *which* hath no vent; it is ready to burst like new bottles.  
+> **²⁰** I will speak, that I may be refreshed: I will open my lips and answer.  
+> **²¹** Let me not, I pray you, accept any man's person, neither let me give flattering titles unto man.  
+> **²²** For I know not to give flattering titles; *in so doing* my maker would soon take me away.  
 
 Three things here apologize for Elihu's interposing as he does in this controversy which had already been canvassed by such acute and learned disputants:—
 

@@ -8,16 +8,16 @@ In this chapter we have, I. The commands God gave to Israel, 1. To sanctify all 
 
 ## The Sanctification of the Firstborn. (b. c. 1491.)
 
-> <sup>1</sup> And the LORD spake unto Moses, saying,  
-> <sup>2</sup> Sanctify unto me all the firstborn, whatsoever openeth the womb among the children of Israel, *both* of man and of beast: it *is* mine.  
-> <sup>3</sup> And Moses said unto the people, Remember this day, in which ye came out from Egypt, out of the house of bondage; for by strength of hand the LORD brought you out from this *place:* there shall no leavened bread be eaten.  
-> <sup>4</sup> This day came ye out in the month Abib.  
-> <sup>5</sup> And it shall be when the LORD shall bring thee into the land of the Canaanites, and the Hittites, and the Amorites, and the Hivites, and the Jebusites, which he sware unto thy fathers to give thee, a land flowing with milk and honey, that thou shalt keep this service in this month.  
-> <sup>6</sup> Seven days thou shalt eat unleavened bread, and in the seventh day *shall be* a feast to the LORD.  
-> <sup>7</sup> Unleavened bread shall be eaten seven days; and there shall no leavened bread be seen with thee, neither shall there be leaven seen with thee in all thy quarters.  
-> <sup>8</sup> And thou shalt show thy son in that day, saying, *This is done* because of that *which* the LORD did unto me when I came forth out of Egypt.  
-> <sup>9</sup> And it shall be for a sign unto thee upon thine hand, and for a memorial between thine eyes, that the LORD's law may be in thy mouth: for with a strong hand hath the LORD brought thee out of Egypt.  
-> <sup>10</sup> Thou shalt therefore keep this ordinance in his season from year to year.  
+> **¹** And the LORD spake unto Moses, saying,  
+> **²** Sanctify unto me all the firstborn, whatsoever openeth the womb among the children of Israel, *both* of man and of beast: it *is* mine.  
+> **³** And Moses said unto the people, Remember this day, in which ye came out from Egypt, out of the house of bondage; for by strength of hand the LORD brought you out from this *place:* there shall no leavened bread be eaten.  
+> **⁴** This day came ye out in the month Abib.  
+> **⁵** And it shall be when the LORD shall bring thee into the land of the Canaanites, and the Hittites, and the Amorites, and the Hivites, and the Jebusites, which he sware unto thy fathers to give thee, a land flowing with milk and honey, that thou shalt keep this service in this month.  
+> **⁶** Seven days thou shalt eat unleavened bread, and in the seventh day *shall be* a feast to the LORD.  
+> **⁷** Unleavened bread shall be eaten seven days; and there shall no leavened bread be seen with thee, neither shall there be leaven seen with thee in all thy quarters.  
+> **⁸** And thou shalt show thy son in that day, saying, *This is done* because of that *which* the LORD did unto me when I came forth out of Egypt.  
+> **⁹** And it shall be for a sign unto thee upon thine hand, and for a memorial between thine eyes, that the LORD's law may be in thy mouth: for with a strong hand hath the LORD brought thee out of Egypt.  
+> **¹⁰** Thou shalt therefore keep this ordinance in his season from year to year.  
 
 Care is here taken to perpetuate the remembrance,
 
@@ -31,12 +31,12 @@ II\. The remembrance of their coming out of Egypt must also be perpetuated: "*Re
 
 ## God's Claim upon the Firstborn. (b. c. 1491.)
 
-> <sup>11</sup> And it shall be when the LORD shall bring thee into the land of the Canaanites, as he sware unto thee and to thy fathers, and shall give it thee,  
-> <sup>12</sup> That thou shalt set apart unto the LORD all that openeth the matrix, and every firstling that cometh of a beast which thou hast; the males *shall be* the LORD's.  
-> <sup>13</sup> And every firstling of an ass thou shalt redeem with a lamb; and if thou wilt not redeem it, then thou shalt break his neck: and all the firstborn of man among thy children shalt thou redeem.  
-> <sup>14</sup> And it shall be when thy son asketh thee in time to come, saying, What *is* this? that thou shalt say unto him, By strength of hand the LORD brought us out from Egypt, from the house of bondage:  
-> <sup>15</sup> And it came to pass, when Pharaoh would hardly let us go, that the LORD slew all the firstborn in the land of Egypt, both the firstborn of man, and the firstborn of beast: therefore I sacrifice to the LORD all that openeth the matrix, being males; but all the firstborn of my children I redeem.  
-> <sup>16</sup> And it shall be for a token upon thine hand, and for frontlets between thine eyes: for by strength of hand the LORD brought us forth out of Egypt.  
+> **¹¹** And it shall be when the LORD shall bring thee into the land of the Canaanites, as he sware unto thee and to thy fathers, and shall give it thee,  
+> **¹²** That thou shalt set apart unto the LORD all that openeth the matrix, and every firstling that cometh of a beast which thou hast; the males *shall be* the LORD's.  
+> **¹³** And every firstling of an ass thou shalt redeem with a lamb; and if thou wilt not redeem it, then thou shalt break his neck: and all the firstborn of man among thy children shalt thou redeem.  
+> **¹⁴** And it shall be when thy son asketh thee in time to come, saying, What *is* this? that thou shalt say unto him, By strength of hand the LORD brought us out from Egypt, from the house of bondage:  
+> **¹⁵** And it came to pass, when Pharaoh would hardly let us go, that the LORD slew all the firstborn in the land of Egypt, both the firstborn of man, and the firstborn of beast: therefore I sacrifice to the LORD all that openeth the matrix, being males; but all the firstborn of my children I redeem.  
+> **¹⁶** And it shall be for a token upon thine hand, and for frontlets between thine eyes: for by strength of hand the LORD brought us forth out of Egypt.  
 
 Here we have,
 
@@ -46,12 +46,12 @@ II\. Further directions concerning the catechising of their children, and all th
 
 ## The Pillar of Fire and Fire. (b. c. 1491.)
 
-> <sup>17</sup> And it came to pass, when Pharaoh had let the people go, that God led them not *through* the way of the land of the Philistines, although that *was* near; for God said, Lest peradventure the people repent when they see war, and they return to Egypt:  
-> <sup>18</sup> But God led the people about, *through* the way of the wilderness of the Red sea: and the children of Israel went up harnessed out of the land of Egypt.  
-> <sup>19</sup> And Moses took the bones of Joseph with him: for he had straitly sworn the children of Israel, saying, God will surely visit you; and ye shall carry up my bones away hence with you.  
-> <sup>20</sup> And they took their journey from Succoth, and encamped in Etham, in the edge of the wilderness.  
-> <sup>21</sup> And the LORD went before them by day in a pillar of a cloud, to lead them the way; and by night in a pillar of fire, to give them light; to go by day and night:  
-> <sup>22</sup> He took not away the pillar of the cloud by day, nor the pillar of fire by night, *from* before the people.  
+> **¹⁷** And it came to pass, when Pharaoh had let the people go, that God led them not *through* the way of the land of the Philistines, although that *was* near; for God said, Lest peradventure the people repent when they see war, and they return to Egypt:  
+> **¹⁸** But God led the people about, *through* the way of the wilderness of the Red sea: and the children of Israel went up harnessed out of the land of Egypt.  
+> **¹⁹** And Moses took the bones of Joseph with him: for he had straitly sworn the children of Israel, saying, God will surely visit you; and ye shall carry up my bones away hence with you.  
+> **²⁰** And they took their journey from Succoth, and encamped in Etham, in the edge of the wilderness.  
+> **²¹** And the LORD went before them by day in a pillar of a cloud, to lead them the way; and by night in a pillar of fire, to give them light; to go by day and night:  
+> **²²** He took not away the pillar of the cloud by day, nor the pillar of fire by night, *from* before the people.  
 
 Here is, I. The choice God made of their way, Ex 13:17,18. He was their guide. Moses gave them direction but as he received it from the Lord. Note, The way of man is not in himself, Jer 10:23. He may *devise his way,* and design it; but, after all, it is God that *directs his steps,* Pr 16:9. Man proposes, but God disposes, and in his disposal we must acquiesce, and set ourselves to follow providence. There were two ways from Egypt to Canaan. One was a short cut from the north of Egypt to the south of Canaan, perhaps about four or five days' journey; the other was much further about, through the wilderness, and that was the way in which God chose to lead his people Israel, Ex 13:18. 1. There were many reasons why God led them *through the way of the wilderness of the Red Sea.* The Egyptians were to be drowned in the Red Sea. The Israelites were to be humbled and proved in the wilderness, De 8:2. God had given it to Moses for a sign (Ex 3:12), *You shall serve God in this mountain.* They had again and again told Pharaoh that they must go *three days' journey into the wilderness to do sacrifice,* and therefore it was requisite that they should bend their march that way, else they would justly have been exclaimed against as notorious dissemblers. Before they entered the lists with their enemies, matters must be settled between them and their God, laws must be given, ordinances instituted, covenants sealed, and the original contract ratified, for the doing of which it was necessary that they should retire into the solitudes of a wilderness, the only closet for such a crowd; the high road would be no proper place for these transactions. It is said (De 32:10), *He led them about,* some hundreds of miles about, and yet (Ps 107:7), *He led them forth by the right way.* God's way is the right way, though it seem *about.* If we think he leads not his people the nearest way, yet we may be sure he leads them the best way, and so it will appear when we come to our journey's end. *Judge nothing before the time.* 2. There was one reason why God did not lead them the nearest way, which would have brought them after a few days' march to *the land of the Philistines* (for it was that part of Canaan that lay next to Egypt), namely, because they were not as yet fit for war, much less for war with the Philistines, Ex 13:17. Their spirits were broken with slavery; it was not easy for them to turn their hands of a sudden from the trowel to the sword. The Philistines were formidable enemies, too fierce to be encountered by raw recruits; it was more suitable that they should begin with the Amalekites, and be prepared for the wars of Canaan by experiencing the difficulties of the wilderness. Note, God proportions his people's trials to their strength, and will *not suffer them to be tempted above what they are able,* 1Co 10:13. That promise, if compared with the foregoing verses, will seem to refer to this event, as an instance of it. *God knows our frame,* and considers our weakness and faintheartedness, and by less trials will prepare us for greater. God is said to bring Israel out of Egypt as the eagle *brings up her young ones* (De 32:11), teaching them by degrees to fly. Orders being thus given which way they should go, we are told, (1.) That they went up themselves, not as a confused rout, but in good order, rank and file: they *went up harnessed,* Ex 13:18. They went up by *five in a rank* (so some), in *five squadrons,* so others. They marched like an army with banners, which added much to their strength and honour. (2.) That they took the *bones of Joseph* along with them (Ex 13:19), and probably the bones of the rest of Jacob's sons, unless (as some think) they had been privately carried to Canaan (Ac 7:16), severally as they died. Joseph had particularly appointed that his bones should be carried up when God should visit the (Ge 50:25,26), so that their carrying up his bones was not only a performance of the oath their fathers had sworn to Joseph, but an acknowledgment of the performance of God's promise to them by Joseph that he would visit them and bring them out of the land of Egypt, and an encouragement to their faith and hope that he would fulfil the other part of the promise, which was to bring them to Canaan, in expectation of which they carried these bones with them while they wandered in the desert. They might think, "Joseph's bones must rest at last, and then we shall." Moses is said to take these bones with him. Moses was now a very great man; so had Joseph been in his day, yet he was now but a box full of dry bones; this was all that remained of him in this world, which might serve for a monitor to Moses to remember his mortality. *I have said, You are gods;* it was said so to Moses expressly (Ex 7:1); *but you shall die like men.*
 

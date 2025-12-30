@@ -10,11 +10,11 @@ It is the will of God that prayers, intercessions, and thanksgivings, should be 
 
 To the chief musician. A psalm of David.
 
-> <sup>1</sup> The LORD hear thee in the day of trouble; the name of the God of Jacob defend thee;  
-> <sup>2</sup> Send thee help from the sanctuary, and strengthen thee out of Zion;  
-> <sup>3</sup> Remember all thy offerings, and accept thy burnt sacrifice; Selah.  
-> <sup>4</sup> Grant thee according to thine own heart, and fulfil all thy counsel.  
-> <sup>5</sup> We will rejoice in thy salvation, and in the name of our God we will set up *our* banners: the LORD fulfil all thy petitions.  
+> **¹** The LORD hear thee in the day of trouble; the name of the God of Jacob defend thee;  
+> **²** Send thee help from the sanctuary, and strengthen thee out of Zion;  
+> **³** Remember all thy offerings, and accept thy burnt sacrifice; Selah.  
+> **⁴** Grant thee according to thine own heart, and fulfil all thy counsel.  
+> **⁵** We will rejoice in thy salvation, and in the name of our God we will set up *our* banners: the LORD fulfil all thy petitions.  
 
 This prayer for David is entitled *a psalm of David;* nor was it any absurdity at all for him who was divinely inspired to draw up a directory, or form of prayer, to be used in the congregation for himself and those in authority under him; nay it is very proper for those who desire the prayers of their friends to tell them particularly what they would have to be asked of God for them. Note, Even great and good men, and those that know ever so well how to pray for themselves, must not despise, but earnestly desire, the prayers of others for them, even those that are their inferiors in all respects. Paul often begged of his friends to pray for him. Magistrates and those in power ought to esteem and encourage praying people, to reckon them their strength (Zec 12:5,10), and to do what they can for them, that they may have an interest in their prayers and may do nothing to forfeit it. Now observe here,
 
@@ -36,10 +36,10 @@ In singing this we ought to offer up to God our hearty good wishes to the good g
 
 ## The Subject's Prayer for the Sovereign.
 
-> <sup>6</sup> Now know I that the LORD saveth his anointed; he will hear him from his holy heaven with the saving strength of his right hand.  
-> <sup>7</sup> Some *trust* in chariots, and some in horses: but we will remember the name of the LORD our God.  
-> <sup>8</sup> They are brought down and fallen: but we are risen, and stand upright.  
-> <sup>9</sup> Save, LORD: let the king hear us when we call.  
+> **⁶** Now know I that the LORD saveth his anointed; he will hear him from his holy heaven with the saving strength of his right hand.  
+> **⁷** Some *trust* in chariots, and some in horses: but we will remember the name of the LORD our God.  
+> **⁸** They are brought down and fallen: but we are risen, and stand upright.  
+> **⁹** Save, LORD: let the king hear us when we call.  
 
 Here is, I. Holy David himself triumphing in the interest he had in the prayers of good people (Ps 20:6): "*Now know I* (I that pen the psalm know it) *that the Lord saveth his anointed,* because he hath stirred up the hearts of the seed of Jacob to pray for him." Note, It bodes well to any prince and people, and may justly be taken as a happy presage, when God pours upon them a spirit of prayer. If he see us seeking him, he will be found of us; if he cause us to hope in his word, he will establish his word to us. Now that so many who have an interest in heaven are praying for him he doubts not but that God will hear him, and grant him an answer of peace, which will, 1. Take its rise from above: *He will hear him from his holy heaven,* of which the sanctuary was a type (Heb 9:23), from the throne he hath prepared in heaven, of which the mercy-seat was a type. 2. It shall take its effect here below: He will hear him *with the saving strength of his right hand;* he will give a real answer to his prayers, and the prayers of his friends for him, not by letter, nor by word of mouth, but, which is much better, by his right hand, by the saving strength of his right hand. He will make it to appear that he hears him by what he does for him.
 

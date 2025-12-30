@@ -8,13 +8,13 @@ This chapter is Job's answer to Bildad's discourse in the foregoing chapter. Tho
 
 ## The Reply of Job to Bildad. (b. c. 1520.)
 
-> <sup>1</sup> Then Job answered and said,  
-> <sup>2</sup> How long will ye vex my soul, and break me in pieces with words?  
-> <sup>3</sup> These ten times have ye reproached me: ye are not ashamed *that* ye make yourselves strange to me.  
-> <sup>4</sup> And be it indeed *that* I have erred, mine error remaineth with myself.  
-> <sup>5</sup> If indeed ye will magnify *yourselves* against me, and plead against me my reproach:  
-> <sup>6</sup> Know now that God hath overthrown me, and hath compassed me with his net.  
-> <sup>7</sup> Behold, I cry out of wrong, but I am not heard: I cry aloud, but *there is* no judgment.  
+> **¹** Then Job answered and said,  
+> **²** How long will ye vex my soul, and break me in pieces with words?  
+> **³** These ten times have ye reproached me: ye are not ashamed *that* ye make yourselves strange to me.  
+> **⁴** And be it indeed *that* I have erred, mine error remaineth with myself.  
+> **⁵** If indeed ye will magnify *yourselves* against me, and plead against me my reproach:  
+> **⁶** Know now that God hath overthrown me, and hath compassed me with his net.  
+> **⁷** Behold, I cry out of wrong, but I am not heard: I cry aloud, but *there is* no judgment.  
 
 Job's friends had passed a very severe censure upon him as a wicked man because he was so grievously afflicted; now here he tells them how ill he took it to be so censured. Bildad had twice begun with a *How long* (Job 8:2,18:2), and therefore Job, being now to answer him particularly, begins with a *How long* too, Job 19:2. What is not liked is commonly thought long; but Job had more reason to think those long who assaulted him than they had to think him long who only vindicated himself. Better cause may be shown for defending ourselves, if we have right on our side, than for offending our brethren, though we have right on our side. Now observe here,
 
@@ -26,21 +26,21 @@ III\. How he answers their harsh censures, by showing them that what they condem
 
 ## Job Complains of God's Displeasure; Job Complains of His Friends. (b. c. 1520.)
 
-> <sup>8</sup> He hath fenced up my way that I cannot pass, and he hath set darkness in my paths.  
-> <sup>9</sup> He hath stripped me of my glory, and taken the crown *from* my head.  
-> <sup>10</sup> He hath destroyed me on every side, and I am gone: and mine hope hath he removed like a tree.  
-> <sup>11</sup> He hath also kindled his wrath against me, and he counteth me unto him as *one of* his enemies.  
-> <sup>12</sup> His troops come together, and raise up their way against me, and encamp round about my tabernacle.  
-> <sup>13</sup> He hath put my brethren far from me, and mine acquaintance are verily estranged from me.  
-> <sup>14</sup> My kinsfolk have failed, and my familiar friends have forgotten me.  
-> <sup>15</sup> They that dwell in mine house, and my maids, count me for a stranger: I am an alien in their sight.  
-> <sup>16</sup> I called my servant, and he gave *me* no answer; I intreated him with my mouth.  
-> <sup>17</sup> My breath is strange to my wife, though I intreated for the children's *sake* of mine own body.  
-> <sup>18</sup> Yea, young children despised me; I arose, and they spake against me.  
-> <sup>19</sup> All my inward friends abhorred me: and they whom I loved are turned against me.  
-> <sup>20</sup> My bone cleaveth to my skin and to my flesh, and I am escaped with the skin of my teeth.  
-> <sup>21</sup> Have pity upon me, have pity upon me, O ye my friends; for the hand of God hath touched me.  
-> <sup>22</sup> Why do ye persecute me as God, and are not satisfied with my flesh?  
+> **⁸** He hath fenced up my way that I cannot pass, and he hath set darkness in my paths.  
+> **⁹** He hath stripped me of my glory, and taken the crown *from* my head.  
+> **¹⁰** He hath destroyed me on every side, and I am gone: and mine hope hath he removed like a tree.  
+> **¹¹** He hath also kindled his wrath against me, and he counteth me unto him as *one of* his enemies.  
+> **¹²** His troops come together, and raise up their way against me, and encamp round about my tabernacle.  
+> **¹³** He hath put my brethren far from me, and mine acquaintance are verily estranged from me.  
+> **¹⁴** My kinsfolk have failed, and my familiar friends have forgotten me.  
+> **¹⁵** They that dwell in mine house, and my maids, count me for a stranger: I am an alien in their sight.  
+> **¹⁶** I called my servant, and he gave *me* no answer; I intreated him with my mouth.  
+> **¹⁷** My breath is strange to my wife, though I intreated for the children's *sake* of mine own body.  
+> **¹⁸** Yea, young children despised me; I arose, and they spake against me.  
+> **¹⁹** All my inward friends abhorred me: and they whom I loved are turned against me.  
+> **²⁰** My bone cleaveth to my skin and to my flesh, and I am escaped with the skin of my teeth.  
+> **²¹** Have pity upon me, have pity upon me, O ye my friends; for the hand of God hath touched me.  
+> **²²** Why do ye persecute me as God, and are not satisfied with my flesh?  
 
 Bildad had very disingenuously perverted Job's complaints by making them the description of the miserable condition of a wicked man; and yet he repeats them here, to move their pity, and to work upon their good nature, if they had any left in them.
 
@@ -54,13 +54,13 @@ IV\. Upon all these accounts he recommends himself to the compassion of his frie
 
 ## Job's Confession of Faith; Happiness of the Redeemed. (b. c. 1520.)
 
-> <sup>23</sup> Oh that my words were now written! oh that they were printed in a book!  
-> <sup>24</sup> That they were graven with an iron pen and lead in the rock for ever!  
-> <sup>25</sup> For I know *that* my redeemer liveth, and *that* he shall stand at the latter *day* upon the earth:  
-> <sup>26</sup> And *though* after my skin *worms* destroy this *body,* yet in my flesh shall I see God:  
-> <sup>27</sup> Whom I shall see for myself, and mine eyes shall behold, and not another; *though* my reins be consumed within me.  
-> <sup>28</sup> But ye should say, Why persecute we him, seeing the root of the matter is found in me?  
-> <sup>29</sup> Be ye afraid of the sword: for wrath *bringeth* the punishments of the sword, that ye may know *there is* a judgment.  
+> **²³** Oh that my words were now written! oh that they were printed in a book!  
+> **²⁴** That they were graven with an iron pen and lead in the rock for ever!  
+> **²⁵** For I know *that* my redeemer liveth, and *that* he shall stand at the latter *day* upon the earth:  
+> **²⁶** And *though* after my skin *worms* destroy this *body,* yet in my flesh shall I see God:  
+> **²⁷** Whom I shall see for myself, and mine eyes shall behold, and not another; *though* my reins be consumed within me.  
+> **²⁸** But ye should say, Why persecute we him, seeing the root of the matter is found in me?  
+> **²⁹** Be ye afraid of the sword: for wrath *bringeth* the punishments of the sword, that ye may know *there is* a judgment.  
 
 In all the conferences between Job and his friends we do not find any more weighty and considerable lines than these; would one have expected it? Here is much both of Christ and heaven in these verses: and he that said such things as these *declared plainly that he sought the better country, that is, the heavenly;* as the patriarchs of that age did, Heb 11:14. We have here Job's creed, or confession of faith. His belief in God the Father Almighty, the Maker of heaven and earth, and the principles of natural religion, he had often professed: but here we find him no stranger to revealed religion; though the revelation of the promised Seed, and the promised inheritance, was then discerned only like the dawning of the day, yet Job was taught of God to believe in a living Redeemer, and to *look for the resurrection of the dead and the life of the world to come,* for of these, doubtless, he must be understood to speak. These were the things he comforted himself with the expectation of, and not a deliverance from his trouble or a revival of his happiness in this world, as some would understand him; for besides that the expressions he here uses, of the Redeemer's *standing at the latter day upon the earth,* of his seeing God, and *seeing him for himself,* are wretchedly forced if they be understood of any temporal deliverance, it is very plain that he had no expectation at all of his return to a prosperous condition in this world. He had just now said that *his way was fenced up,* (Job 19:8) and his *hope removed like a tree,* Job 19:10. Nay, and after this he expressed his despair of any comfort in this life, Job 23:8,9,30:23. So that we must necessarily understand him of the redemption of his soul from the power of the grave, and his reception to glory, which is spoken of, Ps 49:15. We have reason to think that Job was just now under an extraordinary impulse of the blessed Spirit, which raised him above himself, gave him light, and gave him utterance, even to his own surprise. And some observe that, after this, we do not find Job's discourses such passionate, peevish, unbecoming, complaints of God and his providence as we have before met with: this hope quieted his spirit, stilled the storm and, having here cast anchor within the veil, his mind was kept steady from this time forward. Let us observe,
 

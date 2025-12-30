@@ -8,11 +8,11 @@ How bravely Nehemiah, as a wise and faithful governor, stood upon his guard agai
 
 ## The Complaints of the Poor. (b. c. 445.)
 
-> <sup>1</sup> And there was a great cry of the people and of their wives against their brethren the Jews.  
-> <sup>2</sup> For there were that said, We, our sons, and our daughters, *are* many: therefore we take up corn *for them,* that we may eat, and live.  
-> <sup>3</sup> *Some* also there were that said, We have mortgaged our lands, vineyards, and houses, that we might buy corn, because of the dearth.  
-> <sup>4</sup> There were also that said, We have borrowed money for the king's tribute, *and that upon* our lands and vineyards.  
-> <sup>5</sup> Yet now our flesh *is* as the flesh of our brethren, our children as their children: and, lo, we bring into bondage our sons and our daughters to be servants, and *some* of our daughters are brought unto bondage *already:* neither *is it* in our power *to redeem them;* for other men have our lands and vineyards.  
+> **¹** And there was a great cry of the people and of their wives against their brethren the Jews.  
+> **²** For there were that said, We, our sons, and our daughters, *are* many: therefore we take up corn *for them,* that we may eat, and live.  
+> **³** *Some* also there were that said, We have mortgaged our lands, vineyards, and houses, that we might buy corn, because of the dearth.  
+> **⁴** There were also that said, We have borrowed money for the king's tribute, *and that upon* our lands and vineyards.  
+> **⁵** Yet now our flesh *is* as the flesh of our brethren, our children as their children: and, lo, we bring into bondage our sons and our daughters to be servants, and *some* of our daughters are brought unto bondage *already:* neither *is it* in our power *to redeem them;* for other men have our lands and vineyards.  
 
 We have here the tears of the oppressed, which Solomon considered, Ec 4:1. Let us consider them as here they are dropped before Nehemiah, whose office it was, as governor, to *deliver the poor and needy, and rid them out of the hand of the wicked* oppressors, Ps 82:4. Hard times and hard hearts made the poor miserable.
 
@@ -24,14 +24,14 @@ Lastly, We will leave Nehemiah hearing the complaint, and enquiring into the tru
 
 ## Grievances of the Poor Redressed. (b. c. 445.)
 
-> <sup>6</sup> And I was very angry when I heard their cry and these words.  
-> <sup>7</sup> Then I consulted with myself, and I rebuked the nobles, and the rulers, and said unto them, Ye exact usury, every one of his brother. And I set a great assembly against them.  
-> <sup>8</sup> And I said unto them, We after our ability have redeemed our brethren the Jews, which were sold unto the heathen; and will ye even sell your brethren? or shall they be sold unto us? Then held they their peace, and found nothing *to answer.*  
-> <sup>9</sup> Also I said, It *is* not good that ye do: ought ye not to walk in the fear of our God because of the reproach of the heathen our enemies?  
-> <sup>10</sup> I likewise, *and* my brethren, and my servants, might exact of them money and corn: I pray you, let us leave off this usury.  
-> <sup>11</sup> Restore, I pray you, to them, even this day, their lands, their vineyards, their oliveyards, and their houses, also the hundredth *part* of the money, and of the corn, the wine, and the oil, that ye exact of them.  
-> <sup>12</sup> Then said they, We will restore *them,* and will require nothing of them; so will we do as thou sayest. Then I called the priests, and took an oath of them, that they should do according to this promise.  
-> <sup>13</sup> Also I shook my lap, and said, So God shake out every man from his house, and from his labour, that performeth not this promise, even thus be he shaken out, and emptied. And all the congregation said, Amen, and praised the LORD. And the people did according to this promise.  
+> **⁶** And I was very angry when I heard their cry and these words.  
+> **⁷** Then I consulted with myself, and I rebuked the nobles, and the rulers, and said unto them, Ye exact usury, every one of his brother. And I set a great assembly against them.  
+> **⁸** And I said unto them, We after our ability have redeemed our brethren the Jews, which were sold unto the heathen; and will ye even sell your brethren? or shall they be sold unto us? Then held they their peace, and found nothing *to answer.*  
+> **⁹** Also I said, It *is* not good that ye do: ought ye not to walk in the fear of our God because of the reproach of the heathen our enemies?  
+> **¹⁰** I likewise, *and* my brethren, and my servants, might exact of them money and corn: I pray you, let us leave off this usury.  
+> **¹¹** Restore, I pray you, to them, even this day, their lands, their vineyards, their oliveyards, and their houses, also the hundredth *part* of the money, and of the corn, the wine, and the oil, that ye exact of them.  
+> **¹²** Then said they, We will restore *them,* and will require nothing of them; so will we do as thou sayest. Then I called the priests, and took an oath of them, that they should do according to this promise.  
+> **¹³** Also I shook my lap, and said, So God shake out every man from his house, and from his labour, that performeth not this promise, even thus be he shaken out, and emptied. And all the congregation said, Amen, and praised the LORD. And the people did according to this promise.  
 
 It should seem the foregoing complaint was made to Nehemiah at the time when he had his head and hands as full as possible of the public business about building the wall; yet, perceiving it to be just, he did not reject it because it was unseasonable; he did not chide the petitioners, nor fall into a passion with them, for disturbing him when they saw how much he had to do, a fault which men of business are too often guilty of; nor did he so much as adjourn the hearing of the cause or proceedings upon it till he had more leisure. The case called for speedy interposition, and therefore he applied himself immediately to the consideration of it, knowing that, let him build Jerusalem's walls ever so high, so thick, so strong, the city could not be safe while such abuses as these were tolerated. Now observe, What method he took for the redress of this grievance which was so threatening to the public.
 
@@ -51,12 +51,12 @@ VII\. He laid them under all the obligations possible to do what he pressed them
 
 ## The Generosity of Nehemiah. (b. c. 445.)
 
-> <sup>14</sup> Moreover from the time that I was appointed to be their governor in the land of Judah, from the twentieth year even unto the two and thirtieth year of Artaxerxes the king, *that is,* twelve years, I and my brethren have not eaten the bread of the governor.  
-> <sup>15</sup> But the former governors that *had been* before me were chargeable unto the people, and had taken of them bread and wine, beside forty shekels of silver; yea, even their servants bare rule over the people: but so did not I, because of the fear of God.  
-> <sup>16</sup> Yea, also I continued in the work of this wall, neither bought we any land: and all my servants *were* gathered thither unto the work.  
-> <sup>17</sup> Moreover *there were* at my table a hundred and fifty of the Jews and rulers, beside those that came unto us from among the heathen that *are* about us.  
-> <sup>18</sup> Now *that* which was prepared *for me* daily *was* one ox *and* six choice sheep; also fowls were prepared for me, and once in ten days store of all sorts of wine: yet for all this required not I the bread of the governor, because the bondage was heavy upon this people.  
-> <sup>19</sup> Think upon me, my God, for good, *according* to all that I have done for this people.  
+> **¹⁴** Moreover from the time that I was appointed to be their governor in the land of Judah, from the twentieth year even unto the two and thirtieth year of Artaxerxes the king, *that is,* twelve years, I and my brethren have not eaten the bread of the governor.  
+> **¹⁵** But the former governors that *had been* before me were chargeable unto the people, and had taken of them bread and wine, beside forty shekels of silver; yea, even their servants bare rule over the people: but so did not I, because of the fear of God.  
+> **¹⁶** Yea, also I continued in the work of this wall, neither bought we any land: and all my servants *were* gathered thither unto the work.  
+> **¹⁷** Moreover *there were* at my table a hundred and fifty of the Jews and rulers, beside those that came unto us from among the heathen that *are* about us.  
+> **¹⁸** Now *that* which was prepared *for me* daily *was* one ox *and* six choice sheep; also fowls were prepared for me, and once in ten days store of all sorts of wine: yet for all this required not I the bread of the governor, because the bondage was heavy upon this people.  
+> **¹⁹** Think upon me, my God, for good, *according* to all that I have done for this people.  
 
 Nehemiah had mentioned his own practice, as an inducement to the nobles not to burden the poor, no, not with just demands; here he relates more particularly what his practice was, not in pride or vain-glory, nor to pass a compliment upon himself, but as an inducement both to his successors and to the inferior magistrates to be as tender as might be of the people's ease.
 

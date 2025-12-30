@@ -8,14 +8,14 @@ We have hitherto had Saul seeking an opportunity to destroy David, and, to his s
 
 ## David Spares Saul in the Cave. (b. c. 1057.)
 
-> <sup>1</sup> And it came to pass, when Saul was returned from following the Philistines, that it was told him, saying, Behold, David *is* in the wilderness of Engedi.  
-> <sup>2</sup> Then Saul took three thousand chosen men out of all Israel, and went to seek David and his men upon the rocks of the wild goats.  
-> <sup>3</sup> And he came to the sheepcotes by the way, where *was* a cave; and Saul went in to cover his feet: and David and his men remained in the sides of the cave.  
-> <sup>4</sup> And the men of David said unto him, Behold the day of which the LORD said unto thee, Behold, I will deliver thine enemy into thine hand, that thou mayest do to him as it shall seem good unto thee. Then David arose, and cut off the skirt of Saul's robe privily.  
-> <sup>5</sup> And it came to pass afterward, that David's heart smote him, because he had cut off Saul's skirt.  
-> <sup>6</sup> And he said unto his men, The LORD forbid that I should do this thing unto my master, the LORD's anointed, to stretch forth mine hand against him, seeing he *is* the anointed of the LORD.  
-> <sup>7</sup> So David stayed his servants with these words, and suffered them not to rise against Saul. But Saul rose up out of the cave, and went on *his* way.  
-> <sup>8</sup> David also arose afterward, and went out of the cave, and cried after Saul, saying, My lord the king. And when Saul looked behind him, David stooped with his face to the earth, and bowed himself.  
+> **¹** And it came to pass, when Saul was returned from following the Philistines, that it was told him, saying, Behold, David *is* in the wilderness of Engedi.  
+> **²** Then Saul took three thousand chosen men out of all Israel, and went to seek David and his men upon the rocks of the wild goats.  
+> **³** And he came to the sheepcotes by the way, where *was* a cave; and Saul went in to cover his feet: and David and his men remained in the sides of the cave.  
+> **⁴** And the men of David said unto him, Behold the day of which the LORD said unto thee, Behold, I will deliver thine enemy into thine hand, that thou mayest do to him as it shall seem good unto thee. Then David arose, and cut off the skirt of Saul's robe privily.  
+> **⁵** And it came to pass afterward, that David's heart smote him, because he had cut off Saul's skirt.  
+> **⁶** And he said unto his men, The LORD forbid that I should do this thing unto my master, the LORD's anointed, to stretch forth mine hand against him, seeing he *is* the anointed of the LORD.  
+> **⁷** So David stayed his servants with these words, and suffered them not to rise against Saul. But Saul rose up out of the cave, and went on *his* way.  
+> **⁸** David also arose afterward, and went out of the cave, and cried after Saul, saying, My lord the king. And when Saul looked behind him, David stooped with his face to the earth, and bowed himself.  
 
 Here, I. Saul renews his pursuit of David, 1Sa 24:1,2. No sooner had he come home safely from chasing the Philistines, in which it should seem he had good success, than he enquired after David to do him a mischief, and resolved to have another thrust at him, *as if he had been delivered to do all these abominations,* Jer 7:10. By the frequent incursions of the Philistines, he might have seen how necessary it was to recall David from his banishment and restore him to his place in the army again; but so far is he from doing this that now more than ever he is exasperated against him, and, hearing that he is *in the wilderness of En-gedi,* he draws out 3000 choice men, and goes with them at his feet in pursuit of him *upon the rocks of the wild goats,* where, one would think, David should not have been envied a habitation nor Saul desirous of disturbing him; for what harm could he fear from one who was no better accommodated? But it is not enough for Saul that David is thus cooped up; he cannot be easy while he is alive.
 
@@ -31,13 +31,13 @@ VI\. He followed Saul out of the cave, and, though he would not take the opportu
 
 ## David Expostulates with Saul. (b. c. 1057.)
 
-> <sup>9</sup> And David said to Saul, Wherefore hearest thou men's words, saying, Behold, David seeketh thy hurt?  
-> <sup>10</sup> Behold, this day thine eyes have seen how that the LORD had delivered thee to day into mine hand in the cave: and *some* bade *me* kill thee: but *mine eye* spared thee; and I said, I will not put forth mine hand against my lord; for he *is* the LORD's anointed.  
-> <sup>11</sup> Moreover, my father, see, yea, see the skirt of thy robe in my hand: for in that I cut off the skirt of thy robe, and killed thee not, know thou and see that *there is* neither evil nor transgression in mine hand, and I have not sinned against thee; yet thou huntest my soul to take it.  
-> <sup>12</sup> The LORD judge between me and thee, and the LORD avenge me of thee: but mine hand shall not be upon thee.  
-> <sup>13</sup> As saith the proverb of the ancients, Wickedness proceedeth from the wicked: but mine hand shall not be upon thee.  
-> <sup>14</sup> After whom is the king of Israel come out? after whom dost thou pursue? after a dead dog, after a flea.  
-> <sup>15</sup> The LORD therefore be judge, and judge between me and thee, and see, and plead my cause, and deliver me out of thine hand.  
+> **⁹** And David said to Saul, Wherefore hearest thou men's words, saying, Behold, David seeketh thy hurt?  
+> **¹⁰** Behold, this day thine eyes have seen how that the LORD had delivered thee to day into mine hand in the cave: and *some* bade *me* kill thee: but *mine eye* spared thee; and I said, I will not put forth mine hand against my lord; for he *is* the LORD's anointed.  
+> **¹¹** Moreover, my father, see, yea, see the skirt of thy robe in my hand: for in that I cut off the skirt of thy robe, and killed thee not, know thou and see that *there is* neither evil nor transgression in mine hand, and I have not sinned against thee; yet thou huntest my soul to take it.  
+> **¹²** The LORD judge between me and thee, and the LORD avenge me of thee: but mine hand shall not be upon thee.  
+> **¹³** As saith the proverb of the ancients, Wickedness proceedeth from the wicked: but mine hand shall not be upon thee.  
+> **¹⁴** After whom is the king of Israel come out? after whom dost thou pursue? after a dead dog, after a flea.  
+> **¹⁵** The LORD therefore be judge, and judge between me and thee, and see, and plead my cause, and deliver me out of thine hand.  
 
 We have here David's warm and pathetic speech to Saul, wherein he endeavours to convince him that he did him a great deal of wrong in persecuting him thus and to persuade him therefore to be reconciled.
 
@@ -57,13 +57,13 @@ VII\. He once and again appeals to God as the righteous Judge (1Sa 24:12,15): *T
 
 ## Saul Relents at David's Reproof. (b. c. 1057.)
 
-> <sup>16</sup> And it came to pass, when David had made an end of speaking these words unto Saul, that Saul said, *Is* this thy voice, my son David? And Saul lifted up his voice, and wept.  
-> <sup>17</sup> And he said to David, Thou *art* more righteous than I: for thou hast rewarded me good, whereas I have rewarded thee evil.  
-> <sup>18</sup> And thou hast shewed this day how that thou hast dealt well with me: forasmuch as when the LORD had delivered me into thine hand, thou killedst me not.  
-> <sup>19</sup> For if a man find his enemy, will he let him go well away? wherefore the LORD reward thee good for that thou hast done unto me this day.  
-> <sup>20</sup> And now, behold, I know well that thou shalt surely be king, and that the kingdom of Israel shall be established in thine hand.  
-> <sup>21</sup> Swear now therefore unto me by the LORD, that thou wilt not cut off my seed after me, and that thou wilt not destroy my name out of my father's house.  
-> <sup>22</sup> And David sware unto Saul. And Saul went home; but David and his men gat them up unto the hold.  
+> **¹⁶** And it came to pass, when David had made an end of speaking these words unto Saul, that Saul said, *Is* this thy voice, my son David? And Saul lifted up his voice, and wept.  
+> **¹⁷** And he said to David, Thou *art* more righteous than I: for thou hast rewarded me good, whereas I have rewarded thee evil.  
+> **¹⁸** And thou hast shewed this day how that thou hast dealt well with me: forasmuch as when the LORD had delivered me into thine hand, thou killedst me not.  
+> **¹⁹** For if a man find his enemy, will he let him go well away? wherefore the LORD reward thee good for that thou hast done unto me this day.  
+> **²⁰** And now, behold, I know well that thou shalt surely be king, and that the kingdom of Israel shall be established in thine hand.  
+> **²¹** Swear now therefore unto me by the LORD, that thou wilt not cut off my seed after me, and that thou wilt not destroy my name out of my father's house.  
+> **²²** And David sware unto Saul. And Saul went home; but David and his men gat them up unto the hold.  
 
 Here we have,
 

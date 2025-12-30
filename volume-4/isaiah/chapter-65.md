@@ -8,13 +8,13 @@ We are now drawing towards the conclusion of this evangelical prophecy, the last
 
 ## The Conversion of the Gentiles; The Wickedness of the Jews; The Rejection of the Jews. (b. c. 706.)
 
-> <sup>1</sup> I am sought of *them that* asked not *for me;* I am found of *them that* sought me not: I said, Behold me, behold me, unto a nation *that* was not called by my name.  
-> <sup>2</sup> I have spread out my hands all the day unto a rebellious people, which walketh in a way *that was* not good, after their own thoughts;  
-> <sup>3</sup> A people that provoketh me to anger continually to my face; that sacrificeth in gardens, and burneth incense upon altars of brick;  
-> <sup>4</sup> Which remain among the graves, and lodge in the monuments, which eat swine's flesh, and broth of abominable *things is in* their vessels;  
-> <sup>5</sup> Which say, Stand by thyself, come not near to me; for I am holier than thou. These *are* a smoke in my nose, a fire that burneth all the day.  
-> <sup>6</sup> Behold, *it is* written before me: I will not keep silence, but will recompense, even recompense into their bosom,  
-> <sup>7</sup> Your iniquities, and the iniquities of your fathers together, saith the LORD, which have burned incense upon the mountains, and blasphemed me upon the hills: therefore will I measure their former work into their bosom.  
+> **¹** I am sought of *them that* asked not *for me;* I am found of *them that* sought me not: I said, Behold me, behold me, unto a nation *that* was not called by my name.  
+> **²** I have spread out my hands all the day unto a rebellious people, which walketh in a way *that was* not good, after their own thoughts;  
+> **³** A people that provoketh me to anger continually to my face; that sacrificeth in gardens, and burneth incense upon altars of brick;  
+> **⁴** Which remain among the graves, and lodge in the monuments, which eat swine's flesh, and broth of abominable *things is in* their vessels;  
+> **⁵** Which say, Stand by thyself, come not near to me; for I am holier than thou. These *are* a smoke in my nose, a fire that burneth all the day.  
+> **⁶** Behold, *it is* written before me: I will not keep silence, but will recompense, even recompense into their bosom,  
+> **⁷** Your iniquities, and the iniquities of your fathers together, saith the LORD, which have burned incense upon the mountains, and blasphemed me upon the hills: therefore will I measure their former work into their bosom.  
 
 The apostle Paul (an expositor we may depend upon) has given us the true sense of these verses, and told us what was the event they pointed at and were fulfilled in, namely, the calling in of the Gentiles and the rejection of the Jews, by the preaching of the gospel, Ro 10:20,21. And he observes that herein *Esaias is very bold,* not only in foretelling a thing so improbable ever to be brought about, but in foretelling it to the Jews, who would take it as a gross affront to their nation, and therein Moses's words would be made good (De 32:21), *I will provoke you to jealousy by those that are no people.*
 
@@ -40,9 +40,9 @@ II\. It is here foretold that the Jews, who had long been a people near to God, 
 
 ## Promises of Mercy. (b. c. 706.)
 
-> <sup>8</sup> Thus saith the LORD, As the new wine is found in the cluster, and *one* saith, Destroy it not; for a blessing *is* in it: so will I do for my servants' sakes, that I may not destroy them all.  
-> <sup>9</sup> And I will bring forth a seed out of Jacob, and out of Judah an inheritor of my mountains: and mine elect shall inherit it, and my servants shall dwell there.  
-> <sup>10</sup> And Sharon shall be a fold of flocks, and the valley of Achor a place for the herds to lie down in, for my people that have sought me.  
+> **⁸** Thus saith the LORD, As the new wine is found in the cluster, and *one* saith, Destroy it not; for a blessing *is* in it: so will I do for my servants' sakes, that I may not destroy them all.  
+> **⁹** And I will bring forth a seed out of Jacob, and out of Judah an inheritor of my mountains: and mine elect shall inherit it, and my servants shall dwell there.  
+> **¹⁰** And Sharon shall be a fold of flocks, and the valley of Achor a place for the herds to lie down in, for my people that have sought me.  
 
 This is expounded by St. *Paul,* Ro 11:1-5, where, when, upon occasion of the rejection of the Jews, it is asked, *Hath God then cast away his people?* he answers, No; for *at this time there is a remnant according to the election of grace.* This prophecy has reference to that distinguished remnant. When that hypocritical nation is to be destroyed God will separate and secure to himself some from among them; some of the Jews shall be brought to embrace the Christian faith, shall be added to the church, and so be saved. And our Saviour has told us that *for the sake of these elect* the days of the destruction of the Jews should be shortened, and a stop put to the desolation, which otherwise would have proceeded to such a degree that *no flesh should be saved,* Mt 24:22. Now,
 
@@ -54,12 +54,12 @@ III\. Here is an account of the mercy God has in store for them. The remnant tha
 
 ## Predictions of Punishment. (b. c. 706.)
 
-> <sup>11</sup> But ye *are* they that forsake the LORD, that forget my holy mountain, that prepare a table for that troop, and that furnish the drink offering unto that number.  
-> <sup>12</sup> Therefore will I number you to the sword, and ye shall all bow down to the slaughter: because when I called, ye did not answer; when I spake, ye did not hear; but did evil before mine eyes, and did choose *that* wherein I delighted not.  
-> <sup>13</sup> Therefore thus saith the Lord GOD, Behold, my servants shall eat, but ye shall be hungry: behold, my servants shall drink, but ye shall be thirsty: behold, my servants shall rejoice, but ye shall be ashamed:  
-> <sup>14</sup> Behold, my servants shall sing for joy of heart, but ye shall cry for sorrow of heart, and shall howl for vexation of spirit.  
-> <sup>15</sup> And ye shall leave your name for a curse unto my chosen: for the Lord GOD shall slay thee, and call his servants by another name:  
-> <sup>16</sup> That he who blesseth himself in the earth shall bless himself in the God of truth; and he that sweareth in the earth shall swear by the God of truth; because the former troubles are forgotten, and because they are hid from mine eyes.  
+> **¹¹** But ye *are* they that forsake the LORD, that forget my holy mountain, that prepare a table for that troop, and that furnish the drink offering unto that number.  
+> **¹²** Therefore will I number you to the sword, and ye shall all bow down to the slaughter: because when I called, ye did not answer; when I spake, ye did not hear; but did evil before mine eyes, and did choose *that* wherein I delighted not.  
+> **¹³** Therefore thus saith the Lord GOD, Behold, my servants shall eat, but ye shall be hungry: behold, my servants shall drink, but ye shall be thirsty: behold, my servants shall rejoice, but ye shall be ashamed:  
+> **¹⁴** Behold, my servants shall sing for joy of heart, but ye shall cry for sorrow of heart, and shall howl for vexation of spirit.  
+> **¹⁵** And ye shall leave your name for a curse unto my chosen: for the Lord GOD shall slay thee, and call his servants by another name:  
+> **¹⁶** That he who blesseth himself in the earth shall bless himself in the God of truth; and he that sweareth in the earth shall swear by the God of truth; because the former troubles are forgotten, and because they are hid from mine eyes.  
 
 Here the different states of the godly and wicked, of the Jews that believed and of those that still persisted in unbelief, are set the one over—against the other, as life and death, good and evil, the blessing and the curse.
 
@@ -81,15 +81,15 @@ II\. The aggravation of this doom, from the consideration of the happy state of 
 
 ## Predictions of Happiness. (b. c. 706.)
 
-> <sup>17</sup> For, behold, I create new heavens and a new earth: and the former shall not be remembered, nor come into mind.  
-> <sup>18</sup> But be ye glad and rejoice for ever *in that* which I create: for, behold, I create Jerusalem a rejoicing, and her people a joy.  
-> <sup>19</sup> And I will rejoice in Jerusalem, and joy in my people: and the voice of weeping shall be no more heard in her, nor the voice of crying.  
-> <sup>20</sup> There shall be no more thence an infant of days, nor an old man that hath not filled his days: for the child shall die an hundred years old; but the sinner *being* a hundred years old shall be accursed.  
-> <sup>21</sup> And they shall build houses, and inhabit *them;* and they shall plant vineyards, and eat the fruit of them.  
-> <sup>22</sup> They shall not build, and another inhabit; they shall not plant, and another eat: for as the days of a tree *are* the days of my people, and mine elect shall long enjoy the work of their hands.  
-> <sup>23</sup> They shall not labour in vain, nor bring forth for trouble; for they *are* the seed of the blessed of the LORD, and their offspring with them.  
-> <sup>24</sup> And it shall come to pass, that before they call, I will answer; and while they are yet speaking, I will hear.  
-> <sup>25</sup> The wolf and the lamb shall feed together, and the lion shall eat straw like the bullock: and dust *shall be* the serpent's meat. They shall not hurt nor destroy in all my holy mountain, saith the LORD.  
+> **¹⁷** For, behold, I create new heavens and a new earth: and the former shall not be remembered, nor come into mind.  
+> **¹⁸** But be ye glad and rejoice for ever *in that* which I create: for, behold, I create Jerusalem a rejoicing, and her people a joy.  
+> **¹⁹** And I will rejoice in Jerusalem, and joy in my people: and the voice of weeping shall be no more heard in her, nor the voice of crying.  
+> **²⁰** There shall be no more thence an infant of days, nor an old man that hath not filled his days: for the child shall die an hundred years old; but the sinner *being* a hundred years old shall be accursed.  
+> **²¹** And they shall build houses, and inhabit *them;* and they shall plant vineyards, and eat the fruit of them.  
+> **²²** They shall not build, and another inhabit; they shall not plant, and another eat: for as the days of a tree *are* the days of my people, and mine elect shall long enjoy the work of their hands.  
+> **²³** They shall not labour in vain, nor bring forth for trouble; for they *are* the seed of the blessed of the LORD, and their offspring with them.  
+> **²⁴** And it shall come to pass, that before they call, I will answer; and while they are yet speaking, I will hear.  
+> **²⁵** The wolf and the lamb shall feed together, and the lion shall eat straw like the bullock: and dust *shall be* the serpent's meat. They shall not hurt nor destroy in all my holy mountain, saith the LORD.  
 
 If these promises were in part fulfilled when the Jews, after their return out of captivity, were settled in peace in their own land and brought as it were into a new world, yet they were to have their full accomplishment in the gospel church, militant first and at length triumphant. *The Jerusalem that is from above is free and is the mother of us all.* In the graces and comforts which believers have in and from Christ we are to look for this new heaven and new earth. It is in the gospel that *old things have passed away and all things have become new,* and by it that those who are in Christ are *new creatures,* 2Co 5:17. It was a mighty and happy change that was described Isa 65:16, that *the former troubles were forgotten;* but here it rises much higher: even the *former world* shall be *forgotten* and *shall no more come into mind.* Those that were converted to the Christian faith were so transported with the comforts of it that all the comforts they were before acquainted with became as nothing to them; not only their foregoing griefs, but their foregoing joys, were lost and swallowed up in this. The glorified saints will *therefore* have forgotten this world, because they will be entirely taken up with the other: *For, behold, I create new heavens and a new earth.* See how inexhaustible the divine power is; the same God that created one heaven and earth can create another. See how entire the happiness of the saints is; it shall be all of a piece; with the new heavens God will create them (if they have occasion for it to make them happy) a new earth too. *The world is yours* if you be Christ's, 1Co 3:22. When God is reconciled to us, which gives us a new heaven, the creatures too are reconciled to us, which gives us a new earth. The future glory of the saints will be so entirely different from what they ever knew before that it may well be called *new heavens and a new earth,* 2Pe 3:13. *Behold, I make all things new,* Re 21:5.
 

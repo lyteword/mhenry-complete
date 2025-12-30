@@ -8,27 +8,27 @@ This is Job's reply to Zophar's discourse, in which he complains less of his own
 
 ## The Reply of Job to Zophar. (b. c. 1520.)
 
-> <sup>1</sup> But Job answered and said,  
-> <sup>2</sup> Hear diligently my speech, and let this be your consolations.  
-> <sup>3</sup> Suffer me that I may speak; and after that I have spoken, mock on.  
-> <sup>4</sup> As for me, *is* my complaint to man? and if *it were so,* why should not my spirit be troubled?  
-> <sup>5</sup> Mark me, and be astonished, and lay *your* hand upon *your* mouth.  
-> <sup>6</sup> Even when I remember I am afraid, and trembling taketh hold on my flesh.  
+> **¹** But Job answered and said,  
+> **²** Hear diligently my speech, and let this be your consolations.  
+> **³** Suffer me that I may speak; and after that I have spoken, mock on.  
+> **⁴** As for me, *is* my complaint to man? and if *it were so,* why should not my spirit be troubled?  
+> **⁵** Mark me, and be astonished, and lay *your* hand upon *your* mouth.  
+> **⁶** Even when I remember I am afraid, and trembling taketh hold on my flesh.  
 
 Job here recommends himself, both his case and his discourse, both what he suffered and what he said, to the compassionate consideration of his friends. 1. That which he entreats of them is very fair, that they would suffer him to speak (Job 21:3) and not break in upon him, as Zophar had done, in the midst of his discourse. Losers, of all men, may have leave to speak; and, if those that are accused and censured are not allowed to speak for themselves, they are wronged without remedy, and have no way to come at their right. He entreats that they would hear diligently his speech (Job 21:2) as those that were willing to understand him, and, if they were under a mistake, to have it rectified; and that they would *mark him* (Job 21:5), for we may as well not hear as not heed and observe what we hear. 2. That which he urges for this is very reasonable. (1.) They came to comfort him. "No," says he, "*let this be your consolations* (Job 21:2); if you have no other comforts to administer to me, yet deny me not this; be so kind, so just, as to give me a patient hearing, and that shall pass for your consolations of me." Nay, they could not know how to comfort him if they would not give him leave to open his case and tell his own story. Or, "It will be a consolation to yourselves, in reflection, to have dealt tenderly with your afflicted friend, and not harshly." (2.) He would hear them speak when it came to their turn. "After I have spoken you may go on with what you have to say, and I will not hinder you, no, though you go on to mock me." Those that engage in controversy must reckon upon having hard words given them, and resolve to bear reproach patiently; for, generally, those that mock will mock on, whatever is said to them. (3.) He hoped to convince them. "If you will but give me a fair hearing, mock on if you can, but I believe I shall say that which will change your note and make you pity me rather than mock me." (4.) They were not his judges (Job 21:4): "*Is my complaint to man?* No, if it were I see it would be to little purpose to complain. But my complaint is to God, and to him do I appeal. Let him be Judge between you and me. Before him we stand upon even terms, and therefore I have the privilege of being heard as well as you. If my complaint were to men, my spirit would be troubled, for they would not regard me, nor rightly understand me; but my complaint is to God, who will suffer me to speak, though you will not." It would be sad if God should deal as unkindly with us as our friends sometimes do. (5.) There was that in his case which was very surprising and astonishing, and therefore both needed and deserved their most serious consideration. It was not a common case, but a very extraordinary one. [1.] He himself was amazed at it, at the troubles God had laid upon him and the censures of his friends concerning him (Job 21:6): "*When I remember* that terrible day in which I was on a sudden stripped of all my comforts, that day in which I was stricken with sore boils,—when I remember all the hard speeches with which you have grieved me,—I confess *I am afraid, and trembling takes hold of my flesh,* especially when I compare this with the prosperous condition of many wicked people, and the applauses of their neighbours, with which they pass through the world." Note, The providences of God, in the government of the world, are sometimes very astonishing even to wise and good men, and bring them to their wits' end. [2.] He would have them wonder at it (Job 21:5): "*Mark me, and be astonished.* Instead of expounding my troubles, you should awfully adore the unsearchable mysteries of Providence in afflicting one thus of whom you know no evil; you should therefore *lay your hand upon your mouth,* silently wait the issue, and judge nothing before the time. *God's way is in the sea, and his path in the great waters.* When we cannot account for what he does, in suffering the wicked to prosper and the godly to be afflicted, nor fathom the depth of those proceedings, it becomes us to sit down and admire them. *Upright men shall be astonished at this,* Job 17:8. Be you so."
 
 ## Prosperity of the Wicked; Abuse of Earthly Prosperity. (b. c. 1520.)
 
-> <sup>7</sup> Wherefore do the wicked live, become old, yea, are mighty in power?  
-> <sup>8</sup> Their seed is established in their sight with them, and their offspring before their eyes.  
-> <sup>9</sup> Their houses *are* safe from fear, neither *is* the rod of God upon them.  
-> <sup>10</sup> Their bull gendereth, and faileth not; their cow calveth, and casteth not her calf.  
-> <sup>11</sup> They send forth their little ones like a flock, and their children dance.  
-> <sup>12</sup> They take the timbrel and harp, and rejoice at the sound of the organ.  
-> <sup>13</sup> They spend their days in wealth, and in a moment go down to the grave.  
-> <sup>14</sup> Therefore they say unto God, Depart from us; for we desire not the knowledge of thy ways.  
-> <sup>15</sup> What *is* the Almighty, that we should serve him? and what profit should we have, if we pray unto him?  
-> <sup>16</sup> Lo, their good *is* not in their hand: the counsel of the wicked is far from me.  
+> **⁷** Wherefore do the wicked live, become old, yea, are mighty in power?  
+> **⁸** Their seed is established in their sight with them, and their offspring before their eyes.  
+> **⁹** Their houses *are* safe from fear, neither *is* the rod of God upon them.  
+> **¹⁰** Their bull gendereth, and faileth not; their cow calveth, and casteth not her calf.  
+> **¹¹** They send forth their little ones like a flock, and their children dance.  
+> **¹²** They take the timbrel and harp, and rejoice at the sound of the organ.  
+> **¹³** They spend their days in wealth, and in a moment go down to the grave.  
+> **¹⁴** Therefore they say unto God, Depart from us; for we desire not the knowledge of thy ways.  
+> **¹⁵** What *is* the Almighty, that we should serve him? and what profit should we have, if we pray unto him?  
+> **¹⁶** Lo, their good *is* not in their hand: the counsel of the wicked is far from me.  
 
 All Job's three friends, in their last discourses, had been very copious in describing the miserable condition of a wicked man in this world. "It is true," says Job, "remarkable judgments are sometimes brought upon notorious sinners, but not always; for we have many instances of the great and long prosperity of those that are openly and avowedly wicked; though they are hardened in their wickedness by their prosperity, yet they are still suffered to prosper."
 
@@ -56,16 +56,16 @@ III\. He shows their folly herein, and utterly disclaims all concurrence with th
 
 ## Certain Punishments of the Wicked; Divine Sovereignty. (b. c. 1520.)
 
-> <sup>17</sup> How oft is the candle of the wicked put out! and *how oft* cometh their destruction upon them! *God* distributeth sorrows in his anger.  
-> <sup>18</sup> They are as stubble before the wind, and as chaff that the storm carrieth away.  
-> <sup>19</sup> God layeth up his iniquity for his children: he rewardeth him, and he shall know *it.*  
-> <sup>20</sup> His eyes shall see his destruction, and he shall drink of the wrath of the Almighty.  
-> <sup>21</sup> For what pleasure *hath* he in his house after him, when the number of his months is cut off in the midst?  
-> <sup>22</sup> Shall *any* teach God knowledge? seeing he judgeth those that are high.  
-> <sup>23</sup> One dieth in his full strength, being wholly at ease and quiet.  
-> <sup>24</sup> His breasts are full of milk, and his bones are moistened with marrow.  
-> <sup>25</sup> And another dieth in the bitterness of his soul, and never eateth with pleasure.  
-> <sup>26</sup> They shall lie down alike in the dust, and the worms shall cover them.  
+> **¹⁷** How oft is the candle of the wicked put out! and *how oft* cometh their destruction upon them! *God* distributeth sorrows in his anger.  
+> **¹⁸** They are as stubble before the wind, and as chaff that the storm carrieth away.  
+> **¹⁹** God layeth up his iniquity for his children: he rewardeth him, and he shall know *it.*  
+> **²⁰** His eyes shall see his destruction, and he shall drink of the wrath of the Almighty.  
+> **²¹** For what pleasure *hath* he in his house after him, when the number of his months is cut off in the midst?  
+> **²²** Shall *any* teach God knowledge? seeing he judgeth those that are high.  
+> **²³** One dieth in his full strength, being wholly at ease and quiet.  
+> **²⁴** His breasts are full of milk, and his bones are moistened with marrow.  
+> **²⁵** And another dieth in the bitterness of his soul, and never eateth with pleasure.  
+> **²⁶** They shall lie down alike in the dust, and the worms shall cover them.  
 
 Job had largely described the prosperity of wicked people; now, in these verses,
 
@@ -81,14 +81,14 @@ III\. He resolves this difference which Providence makes between one wicked man 
 
 ## Punishment of the Wicked. (b. c. 1520.)
 
-> <sup>27</sup> Behold, I know your thoughts, and the devices *which* ye wrongfully imagine against me.  
-> <sup>28</sup> For ye say, Where *is* the house of the prince? and where *are* the dwelling places of the wicked?  
-> <sup>29</sup> Have ye not asked them that go by the way? and do ye not know their tokens,  
-> <sup>30</sup> That the wicked is reserved to the day of destruction? they shall be brought forth to the day of wrath.  
-> <sup>31</sup> Who shall declare his way to his face? and who shall repay him *what* he hath done?  
-> <sup>32</sup> Yet shall he be brought to the grave, and shall remain in the tomb.  
-> <sup>33</sup> The clods of the valley shall be sweet unto him, and every man shall draw after him, as *there are* innumerable before him.  
-> <sup>34</sup> How then comfort ye me in vain, seeing in your answers there remaineth falsehood?  
+> **²⁷** Behold, I know your thoughts, and the devices *which* ye wrongfully imagine against me.  
+> **²⁸** For ye say, Where *is* the house of the prince? and where *are* the dwelling places of the wicked?  
+> **²⁹** Have ye not asked them that go by the way? and do ye not know their tokens,  
+> **³⁰** That the wicked is reserved to the day of destruction? they shall be brought forth to the day of wrath.  
+> **³¹** Who shall declare his way to his face? and who shall repay him *what* he hath done?  
+> **³²** Yet shall he be brought to the grave, and shall remain in the tomb.  
+> **³³** The clods of the valley shall be sweet unto him, and every man shall draw after him, as *there are* innumerable before him.  
+> **³⁴** How then comfort ye me in vain, seeing in your answers there remaineth falsehood?  
 
 In these verses,
 

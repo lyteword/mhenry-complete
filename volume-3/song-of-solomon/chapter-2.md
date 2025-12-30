@@ -8,8 +8,8 @@ In this chapter, I. Christ speaks both concerning himself and concerning his chu
 
 ## Christ the Rose of Sharon.
 
-> <sup>1</sup> I *am* the rose of Sharon, *and* the lily of the valleys.  
-> <sup>2</sup> As the lily among thorns, so *is* my love among the daughters.  
+> **¹** I *am* the rose of Sharon, *and* the lily of the valleys.  
+> **²** As the lily among thorns, so *is* my love among the daughters.  
 
 See here, I. What Christ is pleased to compare himself to; and he condescends very much in the comparison. He that is the Son of the Highest, the bright and morning star, calls and owns himself *the rose of Sharon, and the lily of the valleys,* to express his presence with his people in this world, the easiness of their access to him, and the beauty and sweetness which they find in him, and to teach them to adorn themselves with him, as shepherds and shepherdesses, when they appeared gay, were decked with roses and lilies, garlands and chaplets of flowers. *The rose,* for beauty and fragrance, is the chief of flowers, and our Saviour prefers the clothing of *the lily* before that of *Solomon in all his glory.* Christ is *the rose of Sharon,* where probably the best roses grew and in most plenty, *the rose of the field* (so some), denoting that the gospel salvation is a common salvation; it lies open to all; whoever will may come and gather the rose-buds of privileges and comforts that grow in the covenant of grace. He is not a rose locked up in a garden, but all may come and receive benefit by him and comfort in him. He is a *lily* for whiteness, a *lily of the valleys* for sweetness, for those which we call so yield a strong perfume. He is a *lily of the valleys,* or *low places,* in his humiliation, exposed to injury. Humble souls see most beauty in him. Whatever he is to others, to those that are in the *valleys* he is a *lily.* He is the *rose, the lily;* there is none besides. Whatever excellence is in Christ, it is in him singularly and in the highest degree.
 
@@ -17,11 +17,11 @@ II\. What he is pleased to compare his church to, So 2:2. 1. She is *as a lily;*
 
 ## The Love of the Church to Christ.
 
-> <sup>3</sup> As the apple tree among the trees of the wood, so *is* my beloved among the sons. I sat down under his shadow with great delight, and his fruit *was* sweet to my taste.  
-> <sup>4</sup> He brought me to the banqueting house, and his banner over me *was* love.  
-> <sup>5</sup> Stay me with flagons, comfort me with apples: for I *am* sick of love.  
-> <sup>6</sup> His left hand *is* under my head, and his right hand doth embrace me.  
-> <sup>7</sup> I charge you, O ye daughters of Jerusalem, by the roes, and by the hinds of the field, that ye stir not up, nor awake *my* love, till he please.  
+> **³** As the apple tree among the trees of the wood, so *is* my beloved among the sons. I sat down under his shadow with great delight, and his fruit *was* sweet to my taste.  
+> **⁴** He brought me to the banqueting house, and his banner over me *was* love.  
+> **⁵** Stay me with flagons, comfort me with apples: for I *am* sick of love.  
+> **⁶** His left hand *is* under my head, and his right hand doth embrace me.  
+> **⁷** I charge you, O ye daughters of Jerusalem, by the roes, and by the hinds of the field, that ye stir not up, nor awake *my* love, till he please.  
 
 Here, I. The spouse commends her beloved and prefers him before all others: *As the apple-tree among the trees of the wood,* which perhaps does not grow so high, nor spread so wide, as some other trees, yet is useful and serviceable to man, yielding pleasant and profitable fruit, while the other trees are of little use, no, not the cedars themselves, till they are cut down, *so is my beloved among the sons,* so far does he excel them all,—all *the sons* of God, the angels (that honour was put upon him which was never designed for them, Heb 1:4),—all *the sons* of men; he is *fairer* than them all, fairer than the choicest of them, Ps 45:2. Name what creature you will, and you will find Christ has the pre-eminence above them all. The world is a barren tree to a soul; Christ is a fruitful one.
 
@@ -37,12 +37,12 @@ VI\. Finding her beloved thus nigh unto her she is in great care that her commun
 
 ## Mutual Love of Christ and the Church.
 
-> <sup>8</sup> The voice of my beloved! behold, he cometh leaping upon the mountains, skipping upon the hills.  
-> <sup>9</sup> My beloved is like a roe or a young hart: behold, he standeth behind our wall, he looketh forth at the windows, showing himself through the lattice.  
-> <sup>10</sup> My beloved spake, and said unto me, Rise up, my love, my fair one, and come away.  
-> <sup>11</sup> For, lo, the winter is past, the rain is over *and* gone;  
-> <sup>12</sup> The flowers appear on the earth; the time of the singing *of birds* is come, and the voice of the turtle is heard in our land;  
-> <sup>13</sup> The fig tree putteth forth her green figs, and the vines *with* the tender grape give a *good* smell. Arise, my love, my fair one, and come away.  
+> **⁸** The voice of my beloved! behold, he cometh leaping upon the mountains, skipping upon the hills.  
+> **⁹** My beloved is like a roe or a young hart: behold, he standeth behind our wall, he looketh forth at the windows, showing himself through the lattice.  
+> **¹⁰** My beloved spake, and said unto me, Rise up, my love, my fair one, and come away.  
+> **¹¹** For, lo, the winter is past, the rain is over *and* gone;  
+> **¹²** The flowers appear on the earth; the time of the singing *of birds* is come, and the voice of the turtle is heard in our land;  
+> **¹³** The fig tree putteth forth her green figs, and the vines *with* the tender grape give a *good* smell. Arise, my love, my fair one, and come away.  
 
 The church is here pleasing herself exceedingly with the thoughts of her further communion with Christ after she has recovered from her fainting fit.
 
@@ -64,10 +64,10 @@ III\. She repeats the gracious invitation he had given her to come a walking wit
 
 ## The Love of the Church to Christ.
 
-> <sup>14</sup> O my dove, *that art* in the clefts of the rock, in the secret *places* of the stairs, let me see thy countenance, let me hear thy voice; for sweet *is* thy voice, and thy countenance *is* comely.  
-> <sup>15</sup> Take us the foxes, the little foxes, that spoil the vines: for our vines *have* tender grapes.  
-> <sup>16</sup> My beloved *is* mine, and I *am* his: he feedeth among the lilies.  
-> <sup>17</sup> Until the day break, and the shadows flee away, turn, my beloved, and be thou like a roe or a young hart upon the mountains of Bether.  
+> **¹⁴** O my dove, *that art* in the clefts of the rock, in the secret *places* of the stairs, let me see thy countenance, let me hear thy voice; for sweet *is* thy voice, and thy countenance *is* comely.  
+> **¹⁵** Take us the foxes, the little foxes, that spoil the vines: for our vines *have* tender grapes.  
+> **¹⁶** My beloved *is* mine, and I *am* his: he feedeth among the lilies.  
+> **¹⁷** Until the day break, and the shadows flee away, turn, my beloved, and be thou like a roe or a young hart upon the mountains of Bether.  
 
 Here is, I. The encouraging invitation which Christ gives to the church, and every believing soul, to come into communion with him, So 2:14.
 

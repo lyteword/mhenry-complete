@@ -8,14 +8,14 @@ In this chapter we have, I. That extraordinary event, the translation of Elijah.
 
 ## Elijah's Translation. (b. c. 895.)
 
-> <sup>1</sup> And it came to pass, when the LORD would take up Elijah into heaven by a whirlwind, that Elijah went with Elisha from Gilgal.  
-> <sup>2</sup> And Elijah said unto Elisha, Tarry here, I pray thee; for the LORD hath sent me to Beth-el. And Elisha said *unto him, As* the LORD liveth, and *as* thy soul liveth, I will not leave thee. So they went down to Beth-el.  
-> <sup>3</sup> And the sons of the prophets that *were* at Beth-el came forth to Elisha, and said unto him, Knowest thou that the LORD will take away thy master from thy head to day? And he said, Yea, I know *it;* hold ye your peace.  
-> <sup>4</sup> And Elijah said unto him, Elisha, tarry here, I pray thee; for the LORD hath sent me to Jericho. And he said, *As* the LORD liveth, and *as* thy soul liveth, I will not leave thee. So they came to Jericho.  
-> <sup>5</sup> And the sons of the prophets that *were* at Jericho came to Elisha, and said unto him, Knowest thou that the LORD will take away thy master from thy head to day? And he answered, Yea, I know *it;* hold ye your peace.  
-> <sup>6</sup> And Elijah said unto him, Tarry, I pray thee, here; for the LORD hath sent me to Jordan. And he said, *As* the LORD liveth, and *as* thy soul liveth, I will not leave thee. And they two went on.  
-> <sup>7</sup> And fifty men of the sons of the prophets went, and stood to view afar off: and they two stood by Jordan.  
-> <sup>8</sup> And Elijah took his mantle, and wrapped *it* together, and smote the waters, and they were divided hither and thither, so that they two went over on dry ground.  
+> **¹** And it came to pass, when the LORD would take up Elijah into heaven by a whirlwind, that Elijah went with Elisha from Gilgal.  
+> **²** And Elijah said unto Elisha, Tarry here, I pray thee; for the LORD hath sent me to Beth-el. And Elisha said *unto him, As* the LORD liveth, and *as* thy soul liveth, I will not leave thee. So they went down to Beth-el.  
+> **³** And the sons of the prophets that *were* at Beth-el came forth to Elisha, and said unto him, Knowest thou that the LORD will take away thy master from thy head to day? And he said, Yea, I know *it;* hold ye your peace.  
+> **⁴** And Elijah said unto him, Elisha, tarry here, I pray thee; for the LORD hath sent me to Jericho. And he said, *As* the LORD liveth, and *as* thy soul liveth, I will not leave thee. So they came to Jericho.  
+> **⁵** And the sons of the prophets that *were* at Jericho came to Elisha, and said unto him, Knowest thou that the LORD will take away thy master from thy head to day? And he answered, Yea, I know *it;* hold ye your peace.  
+> **⁶** And Elijah said unto him, Tarry, I pray thee, here; for the LORD hath sent me to Jordan. And he said, *As* the LORD liveth, and *as* thy soul liveth, I will not leave thee. And they two went on.  
+> **⁷** And fifty men of the sons of the prophets went, and stood to view afar off: and they two stood by Jordan.  
+> **⁸** And Elijah took his mantle, and wrapped *it* together, and smote the waters, and they were divided hither and thither, so that they two went over on dry ground.  
 
 Elijah's times, and the events concerning him, are as little dated as those of any great man in scripture; we are not told of his age, nor in what year of Ahab's reign he first appeared, nor in what year of Joram's he disappeared, and therefore cannot conjecture how long he flourished; it is supposed about twenty years in all. Here we are told,
 
@@ -29,10 +29,10 @@ IV\. That the sons of the prophets had intelligence (either from Elijah himself,
 
 V\. That the miraculous dividing of the river Jordan was the preface to Elijah's translation into the heavenly Canaan, as it had been to the entrance of Israel into the earthly Canaan, 2Ki 2:8. He must go on to the other side Jordan to be translated, because it was his native country, and that he might be near the place where Moses died, and that thus honour might be put on that part of the country which was most despised. He and Elisha might have gone over Jordan by a ferry, as other passengers did, but God would magnify Elijah in his exit, as he did Joshua in his entrance, by the dividing of this river, Jos 3:7. As Moses with his rod divided the sea, so Elijah with his mantle divided Jordan, both being the *insignia—the badges* of their office. These waters of old yielded to the ark, now to the prophet's mantle, which, to those that wanted the ark was an equivalent token of God's presence. When God will take up his faithful ones to heaven death is the Jordan which, immediately before their translation, they must pass through, and they find a way through it, as safe and comfortable way; the death of Christ has divided those waters, that the ransomed of the Lord may pass over. *O death! where is thy sting,* thy hurt, thy terror?
 
-> <sup>9</sup> And it came to pass, when they were gone over, that Elijah said unto Elisha, Ask what I shall do for thee, before I be taken away from thee. And Elisha said, I pray thee, let a double portion of thy spirit be upon me.  
-> <sup>10</sup> And he said, Thou hast asked a hard thing: *nevertheless,* if thou see me *when I am* taken from thee, it shall be so unto thee; but if not, it shall not be *so.*  
-> <sup>11</sup> And it came to pass, as they still went on, and talked, that, behold, *there appeared* a chariot of fire, and horses of fire, and parted them both asunder; and Elijah went up by a whirlwind into heaven.  
-> <sup>12</sup> And Elisha saw *it,* and he cried, My father, my father, the chariot of Israel, and the horsemen thereof. And he saw him no more: and he took hold of his own clothes, and rent them in two pieces.  
+> **⁹** And it came to pass, when they were gone over, that Elijah said unto Elisha, Ask what I shall do for thee, before I be taken away from thee. And Elisha said, I pray thee, let a double portion of thy spirit be upon me.  
+> **¹⁰** And he said, Thou hast asked a hard thing: *nevertheless,* if thou see me *when I am* taken from thee, it shall be so unto thee; but if not, it shall not be *so.*  
+> **¹¹** And it came to pass, as they still went on, and talked, that, behold, *there appeared* a chariot of fire, and horses of fire, and parted them both asunder; and Elijah went up by a whirlwind into heaven.  
+> **¹²** And Elisha saw *it,* and he cried, My father, my father, the chariot of Israel, and the horsemen thereof. And he saw him no more: and he took hold of his own clothes, and rent them in two pieces.  
 
 Here, I. Elijah makes his will, and leaves Elisha his heir, now anointing him to be prophet in his room, more than when he *cast his mantle upon him,* 1Ki 19:19.
 
@@ -58,12 +58,12 @@ III\. Elisha pathetically laments the loss of that great prophet, but attends hi
 
 ## Elijah's Mantle on Elisha. (b. c. 895.)
 
-> <sup>13</sup> He took up also the mantle of Elijah that fell from him, and went back, and stood by the bank of Jordan;  
-> <sup>14</sup> And he took the mantle of Elijah that fell from him, and smote the waters, and said, Where *is* the LORD God of Elijah? and when he also had smitten the waters, they parted hither and thither: and Elisha went over.  
-> <sup>15</sup> And when the sons of the prophets which *were* to view at Jericho saw him, they said, The spirit of Elijah doth rest on Elisha. And they came to meet him, and bowed themselves to the ground before him.  
-> <sup>16</sup> And they said unto him, Behold now, there be with thy servants fifty strong men; let them go, we pray thee, and seek thy master: lest peradventure the Spirit of the LORD hath taken him up, and cast him upon some mountain, or into some valley. And he said, Ye shall not send.  
-> <sup>17</sup> And when they urged him till he was ashamed, he said, Send. They sent therefore fifty men; and they sought three days, but found him not.  
-> <sup>18</sup> And when they came again to him, (for he tarried at Jericho,) he said unto them, Did I not say unto you, Go not?  
+> **¹³** He took up also the mantle of Elijah that fell from him, and went back, and stood by the bank of Jordan;  
+> **¹⁴** And he took the mantle of Elijah that fell from him, and smote the waters, and said, Where *is* the LORD God of Elijah? and when he also had smitten the waters, they parted hither and thither: and Elisha went over.  
+> **¹⁵** And when the sons of the prophets which *were* to view at Jericho saw him, they said, The spirit of Elijah doth rest on Elisha. And they came to meet him, and bowed themselves to the ground before him.  
+> **¹⁶** And they said unto him, Behold now, there be with thy servants fifty strong men; let them go, we pray thee, and seek thy master: lest peradventure the Spirit of the LORD hath taken him up, and cast him upon some mountain, or into some valley. And he said, Ye shall not send.  
+> **¹⁷** And when they urged him till he was ashamed, he said, Send. They sent therefore fifty men; and they sought three days, but found him not.  
+> **¹⁸** And when they came again to him, (for he tarried at Jericho,) he said unto them, Did I not say unto you, Go not?  
 
 We have here an account of what followed immediately after the translation of Elijah.
 
@@ -79,13 +79,13 @@ II\. The needless search which the sons of the prophets made for Elijah. 1. They
 
 ## The Waters of Jericho Healed; the Death of the Mocking Children. (b. c. 895.)
 
-> <sup>19</sup> And the men of the city said unto Elisha, Behold, I pray thee, the situation of this city *is* pleasant, as my lord seeth: but the water *is* naught, and the ground barren.  
-> <sup>20</sup> And he said, Bring me a new cruse, and put salt therein. And they brought *it* to him.  
-> <sup>21</sup> And he went forth unto the spring of the waters, and cast the salt in there, and said, Thus saith the LORD, I have healed these waters; there shall not be from thence any more death or barren *land.*  
-> <sup>22</sup> So the waters were healed unto this day, according to the saying of Elisha which he spake.  
-> <sup>23</sup> And he went up from thence unto Beth-el: and as he was going up by the way, there came forth little children out of the city, and mocked him, and said unto him, Go up, thou bald head; go up, thou bald head.  
-> <sup>24</sup> And he turned back, and looked on them, and cursed them in the name of the LORD. And there came forth two she bears out of the wood, and tare forty and two children of them.  
-> <sup>25</sup> And he went from thence to mount Carmel, and from thence he returned to Samaria.  
+> **¹⁹** And the men of the city said unto Elisha, Behold, I pray thee, the situation of this city *is* pleasant, as my lord seeth: but the water *is* naught, and the ground barren.  
+> **²⁰** And he said, Bring me a new cruse, and put salt therein. And they brought *it* to him.  
+> **²¹** And he went forth unto the spring of the waters, and cast the salt in there, and said, Thus saith the LORD, I have healed these waters; there shall not be from thence any more death or barren *land.*  
+> **²²** So the waters were healed unto this day, according to the saying of Elisha which he spake.  
+> **²³** And he went up from thence unto Beth-el: and as he was going up by the way, there came forth little children out of the city, and mocked him, and said unto him, Go up, thou bald head; go up, thou bald head.  
+> **²⁴** And he turned back, and looked on them, and cursed them in the name of the LORD. And there came forth two she bears out of the wood, and tare forty and two children of them.  
+> **²⁵** And he went from thence to mount Carmel, and from thence he returned to Samaria.  
 
 Elisha had, in this respect, a double portion of Elijah's spirit, that he wrought more miracles than Elijah. Some reckon them in number just double. Two are recorded in these verses—a miracle of mercy to Jericho and a miracle of judgment to Bethel, Ps 101:1.
 

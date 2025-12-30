@@ -10,13 +10,13 @@ Though David's name be not in the title of this psalm, yet we have reason to thi
 
 To the chief musician upon Gittith. A psalm for the sons of Korah.
 
-> <sup>1</sup> How amiable *are* thy tabernacles, O LORD of hosts!  
-> <sup>2</sup> My soul longeth, yea, even fainteth for the courts of the LORD: my heart and my flesh crieth out for the living God.  
-> <sup>3</sup> Yea, the sparrow hath found a house, and the swallow a nest for herself, where she may lay her young, *even* thine altars, O LORD of hosts, my King, and my God.  
-> <sup>4</sup> Blessed *are* they that dwell in thy house: they will be still praising thee. Selah.  
-> <sup>5</sup> Blessed *is* the man whose strength *is* in thee; in whose heart *are* the ways *of them.*  
-> <sup>6</sup> *Who* passing through the valley of Baca make it a well; the rain also filleth the pools.  
-> <sup>7</sup> They go from strength to strength, *every one of them* in Zion appeareth before God.  
+> **¹** How amiable *are* thy tabernacles, O LORD of hosts!  
+> **²** My soul longeth, yea, even fainteth for the courts of the LORD: my heart and my flesh crieth out for the living God.  
+> **³** Yea, the sparrow hath found a house, and the swallow a nest for herself, where she may lay her young, *even* thine altars, O LORD of hosts, my King, and my God.  
+> **⁴** Blessed *are* they that dwell in thy house: they will be still praising thee. Selah.  
+> **⁵** Blessed *is* the man whose strength *is* in thee; in whose heart *are* the ways *of them.*  
+> **⁶** *Who* passing through the valley of Baca make it a well; the rain also filleth the pools.  
+> **⁷** They go from strength to strength, *every one of them* in Zion appeareth before God.  
 
 The psalmist here, being by force restrained from waiting upon God in public ordinances, by the want of them is brought under a more sensible conviction than ever of the worth of them. Observe,
 
@@ -30,11 +30,11 @@ IV\. His acknowledgment of the happiness both of the ministers and of the people
 
 ## Delight in God's Ordinances.
 
-> <sup>8</sup> O LORD God of hosts, hear my prayer: give ear, O God of Jacob. Selah.  
-> <sup>9</sup> Behold, O God our shield, and look upon the face of thine anointed.  
-> <sup>10</sup> For a day in thy courts *is* better than a thousand. I had rather be a doorkeeper in the house of my God, than to dwell in the tents of wickedness.  
-> <sup>11</sup> For the LORD God *is* a sun and shield: the LORD will give grace and glory: no good *thing* will he withhold from them that walk uprightly.  
-> <sup>12</sup> O LORD of hosts, blessed *is* the man that trusteth in thee.  
+> **⁸** O LORD God of hosts, hear my prayer: give ear, O God of Jacob. Selah.  
+> **⁹** Behold, O God our shield, and look upon the face of thine anointed.  
+> **¹⁰** For a day in thy courts *is* better than a thousand. I had rather be a doorkeeper in the house of my God, than to dwell in the tents of wickedness.  
+> **¹¹** For the LORD God *is* a sun and shield: the LORD will give grace and glory: no good *thing* will he withhold from them that walk uprightly.  
+> **¹²** O LORD of hosts, blessed *is* the man that trusteth in thee.  
 
 Here, I. The psalmist prays for audience and acceptance with God, not mentioning particularly what he desired God would do for him. He needed to say no more when he had professed such an affectionate esteem for the ordinances of God, which now he was restrained and banished from. All his desire was, in that profession, plainly before God, and his longing, his groaning, was not hidden from him; therefore he prays (Ps 84:8,9) only that God would hear his prayer and give ear, that he would behold his condition, behold his good affection, and look upon his face, which way it was set, and how his countenance discovered the longing desire he had towards God's courts. He calls himself (as many think) *God's anointed,* for David was anointed by him and anointed for him. In this petition, 1. He has an eye to God under several of his glorious titles—as *the Lord God of hosts,* who has all the creatures at his command, and therefore has all power both in heaven and in earth,—as the *God of Jacob,* a God in covenant with his own people, a God who never said to the praying seed of Jacob, *Seek you me in vain,*—and as *God our shield,* who takes his people under his special protection, pursuant to his covenant with Abraham their father. Ge 15:1, *Fear not, Abraham, I am thy shield.* When David could not be hidden in the secret of God's tabernacle (Ps 27:5), being at a distance from it, yet he hoped to find God his shield ready to him wherever he was. 2. He has an eye to the Mediator; for of him I rather understand those words, *Look upon the face of thy Messiah,* thy anointed one, for of his anointing David spoke, Ps 45:7. In all our addresses to God we must desire that he would look upon the face of Christ, accept us for his sake, and be well-pleased with us in him. We must look with an eye of faith, and then God will with an eye of favour look *upon the face of the anointed,* who does show his face when we without him dare not show ours.
 

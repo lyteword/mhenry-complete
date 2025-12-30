@@ -8,9 +8,9 @@ In this chapter we have, I. An earnest exhortation to the nation of the Jews to 
 
 ## The People Exhorted to Repent. (b. c. 612.)
 
-> <sup>1</sup> Gather yourselves together, yea, gather together, O nation not desired;  
-> <sup>2</sup> Before the decree bring forth, *before* the day pass as the chaff, before the fierce anger of the LORD come upon you, before the day of the LORD's anger come upon you.  
-> <sup>3</sup> Seek ye the LORD, all ye meek of the earth, which have wrought his judgment; seek righteousness, seek meekness: it may be ye shall be hid in the day of the LORD's anger.  
+> **¹** Gather yourselves together, yea, gather together, O nation not desired;  
+> **²** Before the decree bring forth, *before* the day pass as the chaff, before the fierce anger of the LORD come upon you, before the day of the LORD's anger come upon you.  
+> **³** Seek ye the LORD, all ye meek of the earth, which have wrought his judgment; seek righteousness, seek meekness: it may be ye shall be hid in the day of the LORD's anger.  
 
 Here we see what the prophet meant in that terrible description of the approaching judgments which we had in the foregoing chapter. From first to last his design was, not to drive the people to despair, but to drive them to God and to their duty—not to frighten them out of their wits, but to frighten them out of their sins. In pursuance of that he here calls them to repentance, national repentance, as the only way to prevent national ruin. Observe,
 
@@ -24,10 +24,10 @@ IV\. Encouragements given to take these directions: *It may be, you shall be hid
 
 ## The Punishment of the Philistines. (b. c. 612.)
 
-> <sup>4</sup> For Gaza shall be forsaken, and Ashkelon a desolation: they shall drive out Ashdod at the noon day, and Ekron shall be rooted up.  
-> <sup>5</sup> Woe unto the inhabitants of the sea coast, the nation of the Cherethites! the word of the LORD *is* against you; O Canaan, the land of the Philistines, I will even destroy thee, that there shall be no inhabitant.  
-> <sup>6</sup> And the sea coast shall be dwellings *and* cottages for shepherds, and folds for flocks.  
-> <sup>7</sup> And the coast shall be for the remnant of the house of Judah; they shall feed thereupon: in the houses of Ashkelon shall they lie down in the evening: for the LORD their God shall visit them, and turn away their captivity.  
+> **⁴** For Gaza shall be forsaken, and Ashkelon a desolation: they shall drive out Ashdod at the noon day, and Ekron shall be rooted up.  
+> **⁵** Woe unto the inhabitants of the sea coast, the nation of the Cherethites! the word of the LORD *is* against you; O Canaan, the land of the Philistines, I will even destroy thee, that there shall be no inhabitant.  
+> **⁶** And the sea coast shall be dwellings *and* cottages for shepherds, and folds for flocks.  
+> **⁷** And the coast shall be for the remnant of the house of Judah; they shall feed thereupon: in the houses of Ashkelon shall they lie down in the evening: for the LORD their God shall visit them, and turn away their captivity.  
 
 The prophet here comes to foretel what share the neighbouring nations should have in the destruction made upon those parts of the world by Nebuchadnezzar and his victorious Chaldees, as others of the prophets did at that time, which is designed, 1. To awaken the people of the Jews, by making them sensible how strong, how deep, how large, the inundation of calamities should be, that the *day of the Lord,* which was near, might appear the more dreadful, and they might thereby be quickened to prepare for it as for a general deluge. 2. To comfort them with this thought, that their case, though sad, should not be singular (*Solamen miseris socios habuisse doloris*—*The wretched find it consolatory to have companions of their woe*), and much more with this, that though God had seemed to be their enemy, and to fight against them, yet he was still so far their friend, and an enemy to their enemies, that he resented, and would revenge, the indignities done them.
 
@@ -39,10 +39,10 @@ II\. It is here foretold that the house of Judah, the rightful owners, shall rec
 
 ## The Punishment of Various Nations. (b. c. 612.)
 
-> <sup>8</sup> I have heard the reproach of Moab, and the revilings of the children of Ammon, whereby they have reproached my people, and magnified *themselves* against their border.  
-> <sup>9</sup> Therefore *as* I live, saith the LORD of hosts, the God of Israel, Surely Moab shall be as Sodom, and the children of Ammon as Gomorrah, *even* the breeding of nettles, and salt-pits, and a perpetual desolation: the residue of my people shall spoil them, and the remnant of my people shall possess them.  
-> <sup>10</sup> This shall they have for their pride, because they have reproached and magnified *themselves* against the people of the LORD of hosts.  
-> <sup>11</sup> The LORD *will be* terrible unto them: for he will famish all the gods of the earth; and *men* shall worship him, every one from his place, *even* all the isles of the heathen.  
+> **⁸** I have heard the reproach of Moab, and the revilings of the children of Ammon, whereby they have reproached my people, and magnified *themselves* against their border.  
+> **⁹** Therefore *as* I live, saith the LORD of hosts, the God of Israel, Surely Moab shall be as Sodom, and the children of Ammon as Gomorrah, *even* the breeding of nettles, and salt-pits, and a perpetual desolation: the residue of my people shall spoil them, and the remnant of my people shall possess them.  
+> **¹⁰** This shall they have for their pride, because they have reproached and magnified *themselves* against the people of the LORD of hosts.  
+> **¹¹** The LORD *will be* terrible unto them: for he will famish all the gods of the earth; and *men* shall worship him, every one from his place, *even* all the isles of the heathen.  
 
 The Moabites and Ammonites were both of the posterity of Lot; their countries joined, and, both adjoining to Israel, they are here put together in the prophecy against them.
 
@@ -54,10 +54,10 @@ III\. Other nations shall in like manner be humbled, that the Lord alone may be 
 
 ## Ethiopia and Assyria Threatened. (b. c. 612.)
 
-> <sup>12</sup> Ye Ethiopians also, ye *shall be* slain by my sword.  
-> <sup>13</sup> And he will stretch out his hand against the north, and destroy Assyria; and will make Nineveh a desolation, *and* dry like a wilderness.  
-> <sup>14</sup> And flocks shall lie down in the midst of her, all the beasts of the nations: both the cormorant and the bittern shall lodge in the upper lintels of it; *their* voice shall sing in the windows; desolation *shall be* in the thresholds: for he shall uncover the cedar work.  
-> <sup>15</sup> This *is* the rejoicing city that dwelt carelessly, that said in her heart, I *am,* and *there is* none beside me: how is she become a desolation, a place for beasts to lie down in! every one that passeth by her shall hiss, *and* wag his hand.  
+> **¹²** Ye Ethiopians also, ye *shall be* slain by my sword.  
+> **¹³** And he will stretch out his hand against the north, and destroy Assyria; and will make Nineveh a desolation, *and* dry like a wilderness.  
+> **¹⁴** And flocks shall lie down in the midst of her, all the beasts of the nations: both the cormorant and the bittern shall lodge in the upper lintels of it; *their* voice shall sing in the windows; desolation *shall be* in the thresholds: for he shall uncover the cedar work.  
+> **¹⁵** This *is* the rejoicing city that dwelt carelessly, that said in her heart, I *am,* and *there is* none beside me: how is she become a desolation, a place for beasts to lie down in! every one that passeth by her shall hiss, *and* wag his hand.  
 
 The cup is *going round,* when Nebuchadnezzar is going on conquering and to conquer; and not only Israel's near neighbours, but those that lay more remote, must be reckoned with for the wrongs they have done to God's people; the Ethiopians and the Assyrians are here taken to task. 1. The Ethiopians, or Arabians, that had sometimes been a terror to Israel (as in Asa's time, 2Ch 14:9), must now be reckoned with: They *shall be slain by my sword,* Zep 2:12. Nebuchadnezzar was God's sword, the instrument in his hand with which these and other enemies were subdued and punished, Ps 17:14. 2. The Assyrians, and Nineveh the head city of their monarchy, are next set to the bar, to receive their doom: *He* that is God's sword *will stretch out his hand against the north, and destroy Assyria,* and make himself master of it. Assyria had been the rod of God's anger against Israel, and now Babylon is the rod of God's anger against Assyria, Isa 10:5. He *will make Nineveh a desolation,* as was lately and largely foretold by the prophet Nahum. Observe, (1.) How flourishing Nineveh's state had formerly been (Zep 2:15): *This is the rejoicing city that dwelt carelessly.* Nineveh was so strong that she feared no evil, and therefore dwelt carelessly and set danger at defiance; she was so rich that she thought herself sure of all good, and therefore was a rejoicing city, full of mirth and gaiety; and she had such a dominion that she admitted no rival, but said in her heart, "*I am, and there is none besides me* that can compare with me, no city in the world that can pretend to be equal with me." God can with his judgments frighten the most secure, humble the most haughty, and mar the mirth of those that most laugh now. (2.) How complete Nineveh's ruin shall now be; it shall be made *a desolation,* Zep 2:13. Such a heap of ruins shall this once pompous city be that it shall be, [1.] A receptacle for beasts, such a wilderness that *flocks shall lie down in it;* nay, such a waste, desolate, frightful place, that wild beasts, shall take up their abode there; the melancholy birds, as the *cormorant and bittern,* shall make their nests in what remains of the houses, as they sometimes do in old ruinous buildings that are uninhabited and unfrequented. The *lintels,* or chapiters of the pillars, the *windows* and *thresholds,* and all the fine *cedar-work* curiously engraven, shall lie exposed; and on them these rueful ominous birds shall perch, and their *voice shall sing.* How are the songs of mirth turned into hideous horrid noises! What little reason have men to be proud of stately buildings, and rich furniture, when they know not what all the pomp of them may come to at last! [2.] A derision to travellers. Those that had come from far, to gratify their curiosity with the sight of Nineveh's splendour, shall now look on her with as much contempt as ever they looked upon her with admiration (Zep 2:15): *Every one that passes by shall hiss* at her, and *wag his hand,* making light of her desolations, nay, and making sport with them—"There is an end of proud Nineveh." They shall not weep, and wring their hands (the adversities of those are unpitied and unlamented who were insolent and haughty in their prosperity), but they shall *hiss and wag their hands,* forgetting that perhaps their own ruin is not far off.
 

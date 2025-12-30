@@ -10,11 +10,11 @@ After many psalms which David penned in a day of distress this comes which was c
 
 To the chief musician upon Shushan-eduth, Michtam of David, to teach, when he strove with Aram-naharaim, and with Aramzobah, when Joab returned, and smote of Edom in the valley of salt 12,000.
 
-> <sup>1</sup> O God, thou hast cast us off, thou hast scattered us, thou hast been displeased; O turn thyself to us again.  
-> <sup>2</sup> Thou hast made the earth to tremble; thou hast broken it: heal the breaches thereof; for it shaketh.  
-> <sup>3</sup> Thou hast showed thy people hard things: thou hast made us to drink the wine of astonishment.  
-> <sup>4</sup> Thou hast given a banner to them that fear thee, that it may be displayed because of the truth. Selah.  
-> <sup>5</sup> That thy beloved may be delivered; save *with* thy right hand, and hear me.  
+> **¹** O God, thou hast cast us off, thou hast scattered us, thou hast been displeased; O turn thyself to us again.  
+> **²** Thou hast made the earth to tremble; thou hast broken it: heal the breaches thereof; for it shaketh.  
+> **³** Thou hast showed thy people hard things: thou hast made us to drink the wine of astonishment.  
+> **⁴** Thou hast given a banner to them that fear thee, that it may be displayed because of the truth. Selah.  
+> **⁵** That thy beloved may be delivered; save *with* thy right hand, and hear me.  
 
 The title gives us an account, 1. Of the general design of the psalm. It is *Michtam—David's jewel,* and it is *to teach.* The Levites must teach it to the people, and by it teach them both to trust in God and to triumph in him; we must, in it, teach ourselves and one another. In a day of public rejoicing we have need to be taught to direct our joy to God and to terminate it in him, to give none of that praise to the instruments of our deliverance which is due to him only, and to encourage our hopes with our joys. 2. Of the particular occasion of it. It was at a time, (1.) When he was at war with the Syrians, and still had a conflict with them, both those of Mesopotamia and those of Zobah. (2.) When he had gained a great victory over the Edomites, by his forces, under the command of Joab, who had left 12,000 of the enemy dead upon the spot. David has an eye to both these concerns in this psalm: he is in care about his strife with the Assyrians, and in reference to that he prays; he is rejoicing in his success against the Edomites, and in reference to that he triumphs with a holy confidence in God that he would complete the victory. We have our cares at the same time that we have our joys, and they may serve for a balance to each other, that neither may exceed. They may likewise furnish us with matter both for prayer and praise, for both must be laid before God with suitable affections and emotions. If one point be gained, yet in another we are still striving: the Edomites are vanquished, but the Syrians are not; therefore *let not him that girds on the harness boast as if he had put it off.*
 
@@ -28,13 +28,13 @@ III\. A humble petition for seasonable mercy. 1. That God would be reconciled to
 
 ## Rejoicing in Hope.
 
-> <sup>6</sup> God hath spoken in his holiness; I will rejoice, I will divide Shechem, and mete out the valley of Succoth.  
-> <sup>7</sup> Gilead *is* mine, and Manasseh *is* mine; Ephraim also *is* the strength of mine head; Judah *is* my lawgiver;  
-> <sup>8</sup> Moab *is* my washpot; over Edom will I cast out my shoe: Philistia, triumph thou because of me.  
-> <sup>9</sup> Who will bring me *into* the strong city? who will lead me into Edom?  
-> <sup>10</sup> *Wilt* not thou, O God, *which* hadst cast us off? and *thou,* O God, *which* didst not go out with our armies?  
-> <sup>11</sup> Give us help from trouble: for vain *is* the help of man.  
-> <sup>12</sup> Through God we shall do valiantly: for he *it is that* shall tread down our enemies.  
+> **⁶** God hath spoken in his holiness; I will rejoice, I will divide Shechem, and mete out the valley of Succoth.  
+> **⁷** Gilead *is* mine, and Manasseh *is* mine; Ephraim also *is* the strength of mine head; Judah *is* my lawgiver;  
+> **⁸** Moab *is* my washpot; over Edom will I cast out my shoe: Philistia, triumph thou because of me.  
+> **⁹** Who will bring me *into* the strong city? who will lead me into Edom?  
+> **¹⁰** *Wilt* not thou, O God, *which* hadst cast us off? and *thou,* O God, *which* didst not go out with our armies?  
+> **¹¹** Give us help from trouble: for vain *is* the help of man.  
+> **¹²** Through God we shall do valiantly: for he *it is that* shall tread down our enemies.  
 
 David is here rejoicing in hope and praying in hope; such are the triumphs of the saints, not so much upon the account of what they have in possession as of what they have in prospect (Ps 60:6): "*God has spoken in his holiness* (that is, he has given me his word of promise, has *sworn by his holiness, and he will not lie unto David,* Ps 89:35), therefore *I will rejoice,* and please myself with the hopes of the performance of the promise, which was intended for more than a pleasing promise," Note, God's word of promise, being a firm foundation of hope, is a full fountain of joy to all believers.
 

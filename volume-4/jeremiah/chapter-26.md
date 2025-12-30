@@ -8,12 +8,12 @@ As in the history of the Acts of the Apostles that of their preaching and that o
 
 ## Jeremiah's Solemn Address. (b. c. 608.)
 
-> <sup>1</sup> In the beginning of the reign of Jehoiakim the son of Josiah king of Judah came this word from the LORD, saying,  
-> <sup>2</sup> Thus saith the LORD; Stand in the court of the LORD's house, and speak unto all the cities of Judah, which come to worship in the LORD's house, all the words that I command thee to speak unto them; diminish not a word:  
-> <sup>3</sup> If so be they will hearken, and turn every man from his evil way, that I may repent me of the evil, which I purpose to do unto them because of the evil of their doings.  
-> <sup>4</sup> And thou shalt say unto them, Thus saith the LORD; If ye will not hearken to me, to walk in my law, which I have set before you,  
-> <sup>5</sup> To hearken to the words of my servants the prophets, whom I sent unto you, both rising up early, and sending *them,* but ye have not hearkened;  
-> <sup>6</sup> Then will I make this house like Shiloh, and will make this city a curse to all the nations of the earth.  
+> **¹** In the beginning of the reign of Jehoiakim the son of Josiah king of Judah came this word from the LORD, saying,  
+> **²** Thus saith the LORD; Stand in the court of the LORD's house, and speak unto all the cities of Judah, which come to worship in the LORD's house, all the words that I command thee to speak unto them; diminish not a word:  
+> **³** If so be they will hearken, and turn every man from his evil way, that I may repent me of the evil, which I purpose to do unto them because of the evil of their doings.  
+> **⁴** And thou shalt say unto them, Thus saith the LORD; If ye will not hearken to me, to walk in my law, which I have set before you,  
+> **⁵** To hearken to the words of my servants the prophets, whom I sent unto you, both rising up early, and sending *them,* but ye have not hearkened;  
+> **⁶** Then will I make this house like Shiloh, and will make this city a curse to all the nations of the earth.  
 
 We have here the sermon that Jeremiah preached, which gave such offence that he was in danger of losing his life for it. It is here left upon record, as it were, by way of appeal to the judgment of impartial men in all ages, whether Jeremiah was worthy to die for delivering such a message as this from God, and whether his persecutors were not very wicked and unreasonable men.
 
@@ -23,15 +23,15 @@ II\. God directed him what to preach, and it is that which could not give offenc
 
 ## Jeremiah Prosecuted for His Preaching; Jeremiah's Defence. (b. c. 608.)
 
-> <sup>7</sup> So the priests and the prophets and all the people heard Jeremiah speaking these words in the house of the LORD.  
-> <sup>8</sup> Now it came to pass, when Jeremiah had made an end of speaking all that the LORD had commanded *him* to speak unto all the people, that the priests and the prophets and all the people took him, saying, Thou shalt surely die.  
-> <sup>9</sup> Why hast thou prophesied in the name of the LORD, saying, This house shall be like Shiloh, and this city shall be desolate without an inhabitant? And all the people were gathered against Jeremiah in the house of the LORD.  
-> <sup>10</sup> When the princes of Judah heard these things, then they came up from the king's house unto the house of the LORD, and sat down in the entry of the new gate of the LORD's *house.*  
-> <sup>11</sup> Then spake the priests and the prophets unto the princes and to all the people, saying, This man *is* worthy to die; for he hath prophesied against this city, as ye have heard with your ears.  
-> <sup>12</sup> Then spake Jeremiah unto all the princes and to all the people, saying, The LORD sent me to prophesy against this house and against this city all the words that ye have heard.  
-> <sup>13</sup> Therefore now amend your ways and your doings, and obey the voice of the LORD your God; and the LORD will repent him of the evil that he hath pronounced against you.  
-> <sup>14</sup> As for me, behold, I *am* in your hand: do with me as seemeth good and meet unto you.  
-> <sup>15</sup> But know ye for certain, that if ye put me to death, ye shall surely bring innocent blood upon yourselves, and upon this city, and upon the inhabitants thereof: for of a truth the LORD hath sent me unto you to speak all these words in your ears.  
+> **⁷** So the priests and the prophets and all the people heard Jeremiah speaking these words in the house of the LORD.  
+> **⁸** Now it came to pass, when Jeremiah had made an end of speaking all that the LORD had commanded *him* to speak unto all the people, that the priests and the prophets and all the people took him, saying, Thou shalt surely die.  
+> **⁹** Why hast thou prophesied in the name of the LORD, saying, This house shall be like Shiloh, and this city shall be desolate without an inhabitant? And all the people were gathered against Jeremiah in the house of the LORD.  
+> **¹⁰** When the princes of Judah heard these things, then they came up from the king's house unto the house of the LORD, and sat down in the entry of the new gate of the LORD's *house.*  
+> **¹¹** Then spake the priests and the prophets unto the princes and to all the people, saying, This man *is* worthy to die; for he hath prophesied against this city, as ye have heard with your ears.  
+> **¹²** Then spake Jeremiah unto all the princes and to all the people, saying, The LORD sent me to prophesy against this house and against this city all the words that ye have heard.  
+> **¹³** Therefore now amend your ways and your doings, and obey the voice of the LORD your God; and the LORD will repent him of the evil that he hath pronounced against you.  
+> **¹⁴** As for me, behold, I *am* in your hand: do with me as seemeth good and meet unto you.  
+> **¹⁵** But know ye for certain, that if ye put me to death, ye shall surely bring innocent blood upon yourselves, and upon this city, and upon the inhabitants thereof: for of a truth the LORD hath sent me unto you to speak all these words in your ears.  
 
 One would have hoped that such a sermon as that in the Jer 26:1-6, so plain and practical, so rational and pathetic, and delivered in God's name, would work upon even this people, especially meeting them now at their devotions, and would prevail with them to repent and reform; but, instead of awakening their convictions, it did but exasperate their corruptions, as appears by this account of the effect of it.
 
@@ -43,15 +43,15 @@ III\. Jeremiah makes his defence before the princes and the people. He does not 
 
 ## Jeremiah's Acquittal; Jeremiah's Deliverance. (b. c. 608.)
 
-> <sup>16</sup> Then said the princes and all the people unto the priests and to the prophets; This man *is* not worthy to die: for he hath spoken to us in the name of the LORD our God.  
-> <sup>17</sup> Then rose up certain of the elders of the land, and spake to all the assembly of the people, saying,  
-> <sup>18</sup> Micah the Morasthite prophesied in the days of Hezekiah king of Judah, and spake to all the people of Judah, saying, Thus saith the LORD of hosts; Zion shall be plowed *like* a field, and Jerusalem shall become heaps, and the mountain of the house as the high places of a forest.  
-> <sup>19</sup> Did Hezekiah king of Judah and all Judah put him at all to death? did he not fear the LORD, and besought the LORD, and the LORD repented him of the evil which he had pronounced against them? Thus might we procure great evil against our souls.  
-> <sup>20</sup> And there was also a man that prophesied in the name of the LORD, Urijah the son of Shemaiah of Kirjath-jearim, who prophesied against this city and against this land according to all the words of Jeremiah:  
-> <sup>21</sup> And when Jehoiakim the king, with all his mighty men, and all the princes, heard his words, the king sought to put him to death: but when Urijah heard it, he was afraid, and fled, and went into Egypt;  
-> <sup>22</sup> And Jehoiakim the king sent men into Egypt, *namely,* Elnathan the son of Achbor, and *certain* men with him into Egypt.  
-> <sup>23</sup> And they fetched forth Urijah out of Egypt, and brought him unto Jehoiakim the king; who slew him with the sword, and cast his dead body into the graves of the common people.  
-> <sup>24</sup> Nevertheless the hand of Ahikam the son of Shaphan was with Jeremiah, that they should not give him into the hand of the people to put him to death.  
+> **¹⁶** Then said the princes and all the people unto the priests and to the prophets; This man *is* not worthy to die: for he hath spoken to us in the name of the LORD our God.  
+> **¹⁷** Then rose up certain of the elders of the land, and spake to all the assembly of the people, saying,  
+> **¹⁸** Micah the Morasthite prophesied in the days of Hezekiah king of Judah, and spake to all the people of Judah, saying, Thus saith the LORD of hosts; Zion shall be plowed *like* a field, and Jerusalem shall become heaps, and the mountain of the house as the high places of a forest.  
+> **¹⁹** Did Hezekiah king of Judah and all Judah put him at all to death? did he not fear the LORD, and besought the LORD, and the LORD repented him of the evil which he had pronounced against them? Thus might we procure great evil against our souls.  
+> **²⁰** And there was also a man that prophesied in the name of the LORD, Urijah the son of Shemaiah of Kirjath-jearim, who prophesied against this city and against this land according to all the words of Jeremiah:  
+> **²¹** And when Jehoiakim the king, with all his mighty men, and all the princes, heard his words, the king sought to put him to death: but when Urijah heard it, he was afraid, and fled, and went into Egypt;  
+> **²²** And Jehoiakim the king sent men into Egypt, *namely,* Elnathan the son of Achbor, and *certain* men with him into Egypt.  
+> **²³** And they fetched forth Urijah out of Egypt, and brought him unto Jehoiakim the king; who slew him with the sword, and cast his dead body into the graves of the common people.  
+> **²⁴** Nevertheless the hand of Ahikam the son of Shaphan was with Jeremiah, that they should not give him into the hand of the people to put him to death.  
 
 Here is, I. The acquitting of Jeremiah from the charge exhibited against him. He had indeed spoken the words as they were laid in the indictment, but they are not looked upon to be seditious or treasonable, ill-intended or of any bad tendency, and therefore the court and country agree to find him not guilty. The priests and prophets, notwithstanding his rational plea for himself, continued to demand judgment against him; but the princes, and all the people, are clear in it that *this man is not worthy to die* (Jer 26:16); for (say they) *he hath spoken to us,* not of himself, but *in the name of the Lord our God.* And are they willing to own that he did indeed speak to them *in the name of the Lord* and that that Lord is their God? Why then did they not amend their ways and doings, and take the method he prescribed to prevent the ruin of their country? If they say, His prophecy is *from heaven,* it may justly be asked, *Why did you not then believe him?* Mt 21:25. Note, It is a pity that those who are so far convinced of the divine original of gospel preaching as to protect it from the malice of others do not submit to the power and influence of it themselves.
 

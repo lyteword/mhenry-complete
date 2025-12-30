@@ -8,15 +8,15 @@ Nehemiah, having finished what he undertook for the fencing and filling of the h
 
 ## The People's Attention to Their Duty. (b. c. 444.)
 
-> <sup>1</sup> On that day they read in the book of Moses in the audience of the people; and therein was found written, that the Ammonite and the Moabite should not come into the congregation of God for ever;  
-> <sup>2</sup> Because they met not the children of Israel with bread and with water, but hired Balaam against them, that he should curse them: howbeit our God turned the curse into a blessing.  
-> <sup>3</sup> Now it came to pass, when they had heard the law, that they separated from Israel all the mixed multitude.  
-> <sup>4</sup> And before this, Eliashib the priest, having the oversight of the chamber of the house of our God, *was* allied unto Tobiah:  
-> <sup>5</sup> And he had prepared for him a great chamber, where aforetime they laid the meat offerings, the frankincense, and the vessels, and the tithes of the corn, the new wine, and the oil, which was commanded *to be given* to the Levites, and the singers, and the porters; and the offerings of the priests.  
-> <sup>6</sup> But in all this *time* was not I at Jerusalem: for in the two and thirtieth year of Artaxerxes king of Babylon came I unto the king, and after certain days obtained I leave of the king:  
-> <sup>7</sup> And I came to Jerusalem, and understood of the evil that Eliashib did for Tobiah, in preparing him a chamber in the courts of the house of God.  
-> <sup>8</sup> And it grieved me sore: therefore I cast forth all the household stuff of Tobiah out of the chamber.  
-> <sup>9</sup> Then I commanded, and they cleansed the chambers: and thither brought I again the vessels of the house of God, with the meat offering and the frankincense.  
+> **¹** On that day they read in the book of Moses in the audience of the people; and therein was found written, that the Ammonite and the Moabite should not come into the congregation of God for ever;  
+> **²** Because they met not the children of Israel with bread and with water, but hired Balaam against them, that he should curse them: howbeit our God turned the curse into a blessing.  
+> **³** Now it came to pass, when they had heard the law, that they separated from Israel all the mixed multitude.  
+> **⁴** And before this, Eliashib the priest, having the oversight of the chamber of the house of our God, *was* allied unto Tobiah:  
+> **⁵** And he had prepared for him a great chamber, where aforetime they laid the meat offerings, the frankincense, and the vessels, and the tithes of the corn, the new wine, and the oil, which was commanded *to be given* to the Levites, and the singers, and the porters; and the offerings of the priests.  
+> **⁶** But in all this *time* was not I at Jerusalem: for in the two and thirtieth year of Artaxerxes king of Babylon came I unto the king, and after certain days obtained I leave of the king:  
+> **⁷** And I came to Jerusalem, and understood of the evil that Eliashib did for Tobiah, in preparing him a chamber in the courts of the house of God.  
+> **⁸** And it grieved me sore: therefore I cast forth all the household stuff of Tobiah out of the chamber.  
+> **⁹** Then I commanded, and they cleansed the chambers: and thither brought I again the vessels of the house of God, with the meat offering and the frankincense.  
 
 It was the honour of Israel, and the greatest preservation of their holiness, that they were a peculiar people, and were so to keep themselves, and not to mingle with the nations, nor suffer any of them to incorporate with them. Now here we have,
 
@@ -32,11 +32,11 @@ III\. The particular case of Tobiah, who was an Ammonite, and to whom, it is lik
 
 ## Abuses Rectified. (b. c. 434.)
 
-> <sup>10</sup> And I perceived that the portions of the Levites had not been given *them:* for the Levites and the singers, that did the work, were fled every one to his field.  
-> <sup>11</sup> Then contended I with the rulers, and said, Why is the house of God forsaken? And I gathered them together, and set them in their place.  
-> <sup>12</sup> Then brought all Judah the tithe of the corn and the new wine and the oil unto the treasuries.  
-> <sup>13</sup> And I made treasurers over the treasuries, Shelemiah the priest, and Zadok the scribe, and of the Levites, Pedaiah: and next to them *was* Hanan the son of Zaccur, the son of Mattaniah: for they were counted faithful, and their office *was* to distribute unto their brethren.  
-> <sup>14</sup> Remember me, O my God, concerning this, and wipe not out my good deeds that I have done for the house of my God, and for the offices thereof.  
+> **¹⁰** And I perceived that the portions of the Levites had not been given *them:* for the Levites and the singers, that did the work, were fled every one to his field.  
+> **¹¹** Then contended I with the rulers, and said, Why is the house of God forsaken? And I gathered them together, and set them in their place.  
+> **¹²** Then brought all Judah the tithe of the corn and the new wine and the oil unto the treasuries.  
+> **¹³** And I made treasurers over the treasuries, Shelemiah the priest, and Zadok the scribe, and of the Levites, Pedaiah: and next to them *was* Hanan the son of Zaccur, the son of Mattaniah: for they were counted faithful, and their office *was* to distribute unto their brethren.  
+> **¹⁴** Remember me, O my God, concerning this, and wipe not out my good deeds that I have done for the house of my God, and for the offices thereof.  
 
 Here is another grievance redressed by Nehemiah.
 
@@ -54,14 +54,14 @@ VI\. Having no recompence (it is a question whether he had thanks) from those fo
 
 ## The Charge Respecting the Sabbath. (b. c. 434.)
 
-> <sup>15</sup> In those days saw I in Judah *some* treading wine presses on the sabbath, and bringing in sheaves, and lading asses; as also wine, grapes, and figs, and all *manner of* burdens, which they brought into Jerusalem on the sabbath day: and I testified *against them* in the day wherein they sold victuals.  
-> <sup>16</sup> There dwelt men of Tyre also therein, which brought fish, and all manner of ware, and sold on the sabbath unto the children of Judah, and in Jerusalem.  
-> <sup>17</sup> Then I contended with the nobles of Judah, and said unto them, What evil thing *is* this that ye do, and profane the sabbath day?  
-> <sup>18</sup> Did not your fathers thus, and did not our God bring all this evil upon us, and upon this city? yet ye bring more wrath upon Israel by profaning the sabbath.  
-> <sup>19</sup> And it came to pass, that when the gates of Jerusalem began to be dark before the sabbath, I commanded that the gates should be shut, and charged that they should not be opened till after the sabbath: and *some* of my servants set I at the gates, *that* there should no burden be brought in on the sabbath day.  
-> <sup>20</sup> So the merchants and sellers of all kind of ware lodged without Jerusalem once or twice.  
-> <sup>21</sup> Then I testified against them, and said unto them, Why lodge ye about the wall? if ye do *so* again, I will lay hands on you. From that time forth came they no *more* on the sabbath.  
-> <sup>22</sup> And I commanded the Levites that they should cleanse themselves, and *that* they should come *and* keep the gates, to sanctify the sabbath day. Remember me, O my God, *concerning* this also, and spare me according to the greatness of thy mercy.  
+> **¹⁵** In those days saw I in Judah *some* treading wine presses on the sabbath, and bringing in sheaves, and lading asses; as also wine, grapes, and figs, and all *manner of* burdens, which they brought into Jerusalem on the sabbath day: and I testified *against them* in the day wherein they sold victuals.  
+> **¹⁶** There dwelt men of Tyre also therein, which brought fish, and all manner of ware, and sold on the sabbath unto the children of Judah, and in Jerusalem.  
+> **¹⁷** Then I contended with the nobles of Judah, and said unto them, What evil thing *is* this that ye do, and profane the sabbath day?  
+> **¹⁸** Did not your fathers thus, and did not our God bring all this evil upon us, and upon this city? yet ye bring more wrath upon Israel by profaning the sabbath.  
+> **¹⁹** And it came to pass, that when the gates of Jerusalem began to be dark before the sabbath, I commanded that the gates should be shut, and charged that they should not be opened till after the sabbath: and *some* of my servants set I at the gates, *that* there should no burden be brought in on the sabbath day.  
+> **²⁰** So the merchants and sellers of all kind of ware lodged without Jerusalem once or twice.  
+> **²¹** Then I testified against them, and said unto them, Why lodge ye about the wall? if ye do *so* again, I will lay hands on you. From that time forth came they no *more* on the sabbath.  
+> **²²** And I commanded the Levites that they should cleanse themselves, and *that* they should come *and* keep the gates, to sanctify the sabbath day. Remember me, O my God, *concerning* this also, and spare me according to the greatness of thy mercy.  
 
 Here is another instance of that blessed reformation in which Nehemiah was so active. He revived sabbath-sanctification, and maintained the authority of the fourth commandment; and a very good deed this was for the house of God and the offices thereof, for, where holy time is over-looked and made nothing of, it is not strange if all holy duties be neglected. Here is,
 
@@ -85,15 +85,15 @@ II\. The reformation of it. Those that are jealous for the honour of God cannot 
 
 ## The Dismissal of Strange Wives. (b. c. 434.)
 
-> <sup>23</sup> In those days also saw I Jews *that* had married wives of Ashdod, of Ammon, *and* of Moab:  
-> <sup>24</sup> And their children spake half in the speech of Ashdod, and could not speak in the Jews' language, but according to the language of each people.  
-> <sup>25</sup> And I contended with them, and cursed them, and smote certain of them, and plucked off their hair, and made them swear by God, *saying,* Ye shall not give your daughters unto their sons, nor take their daughters unto your sons, or for yourselves.  
-> <sup>26</sup> Did not Solomon king of Israel sin by these things? yet among many nations was there no king like him, who was beloved of his God, and God made him king over all Israel: nevertheless even him did outlandish women cause to sin.  
-> <sup>27</sup> Shall we then hearken unto you to do all this great evil, to transgress against our God in marrying strange wives?  
-> <sup>28</sup> And *one* of the sons of Joiada, the son of Eliashib the high priest, *was* son in law to Sanballat the Horonite: therefore I chased him from me.  
-> <sup>29</sup> Remember them, O my God, because they have defiled the priesthood, and the covenant of the priesthood, and of the Levites.  
-> <sup>30</sup> Thus cleansed I them from all strangers, and appointed the wards of the priests and the Levites, every one in his business;  
-> <sup>31</sup> And for the wood offering, at times appointed, and for the firstfruits. Remember me, O my God, for good.  
+> **²³** In those days also saw I Jews *that* had married wives of Ashdod, of Ammon, *and* of Moab:  
+> **²⁴** And their children spake half in the speech of Ashdod, and could not speak in the Jews' language, but according to the language of each people.  
+> **²⁵** And I contended with them, and cursed them, and smote certain of them, and plucked off their hair, and made them swear by God, *saying,* Ye shall not give your daughters unto their sons, nor take their daughters unto your sons, or for yourselves.  
+> **²⁶** Did not Solomon king of Israel sin by these things? yet among many nations was there no king like him, who was beloved of his God, and God made him king over all Israel: nevertheless even him did outlandish women cause to sin.  
+> **²⁷** Shall we then hearken unto you to do all this great evil, to transgress against our God in marrying strange wives?  
+> **²⁸** And *one* of the sons of Joiada, the son of Eliashib the high priest, *was* son in law to Sanballat the Horonite: therefore I chased him from me.  
+> **²⁹** Remember them, O my God, because they have defiled the priesthood, and the covenant of the priesthood, and of the Levites.  
+> **³⁰** Thus cleansed I them from all strangers, and appointed the wards of the priests and the Levites, every one in his business;  
+> **³¹** And for the wood offering, at times appointed, and for the firstfruits. Remember me, O my God, for good.  
 
 We have here one instance more of Nehemiah's pious zeal for the purifying of his countrymen as a peculiar people to God; that was the thing he aimed at in the use of his power, not the enriching of himself. See here,
 

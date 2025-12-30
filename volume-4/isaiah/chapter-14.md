@@ -8,9 +8,9 @@ In this chapter, I. More weight is added to the burden of Babylon, enough to sin
 
 ## Promises to Israel. (b. c. 739.)
 
-> <sup>1</sup> For the LORD will have mercy on Jacob, and will yet choose Israel, and set them in their own land: and the strangers shall be joined with them, and they shall cleave to the house of Jacob.  
-> <sup>2</sup> And the people shall take them, and bring them to their place: and the house of Israel shall possess them in the land of the LORD for servants and handmaids: and they shall take them captives, whose captives they were; and they shall rule over their oppressors.  
-> <sup>3</sup> And it shall come to pass in the day that the LORD shall give thee rest from thy sorrow, and from thy fear, and from the hard bondage wherein thou wast made to serve,  
+> **¹** For the LORD will have mercy on Jacob, and will yet choose Israel, and set them in their own land: and the strangers shall be joined with them, and they shall cleave to the house of Jacob.  
+> **²** And the people shall take them, and bring them to their place: and the house of Israel shall possess them in the land of the LORD for servants and handmaids: and they shall take them captives, whose captives they were; and they shall rule over their oppressors.  
+> **³** And it shall come to pass in the day that the LORD shall give thee rest from thy sorrow, and from thy fear, and from the hard bondage wherein thou wast made to serve,  
 
 This comes in here as the reason why Babylon must be overthrown and ruined, because God has mercy in store for his people, and therefore, 1. The injuries done to them must be reckoned for and revenged upon their persecutors. Mercy to Jacob will be wrath and ruin to Jacob's impenitent implacable adversaries, such as Babylon was. 2. The yoke of oppression which Babylon had long laid on their necks must be broken off, and they must be set at liberty; and, in order to this, the destruction of Babylon is as necessary as the destruction of Egypt and Pharaoh was to their deliverance out of that house of bondage. The same prediction is a promise to God's people and a threatening to their enemies, as the same providence has a bright side towards Israel and a black or dark side towards the Egyptians. Observe,
 
@@ -20,26 +20,26 @@ II\. The particular favours he designed them. 1. He would bring them back to the
 
 ## The Doom of the King of Babylon. (b. c. 739.)
 
-> <sup>4</sup> That thou shalt take up this proverb against the king of Babylon, and say, How hath the oppressor ceased! the golden city ceased!  
-> <sup>5</sup> The LORD hath broken the staff of the wicked, *and* the sceptre of the rulers.  
-> <sup>6</sup> He who smote the people in wrath with a continual stroke, he that ruled the nations in anger, is persecuted, *and* none hindereth.  
-> <sup>7</sup> The whole earth is at rest, *and* is quiet: they break forth into singing.  
-> <sup>8</sup> Yea, the fir trees rejoice at thee, *and* the cedars of Lebanon, *saying,* Since thou art laid down, no feller is come up against us.  
-> <sup>9</sup> Hell from beneath is moved for thee to meet *thee* at thy coming: it stirreth up the dead for thee, *even* all the chief ones of the earth; it hath raised up from their thrones all the kings of the nations.  
-> <sup>10</sup> All they shall speak and say unto thee, Art thou also become weak as we? art thou become like unto us?  
-> <sup>11</sup> Thy pomp is brought down to the grave, *and* the noise of thy viols: the worm is spread under thee, and the worms cover thee.  
-> <sup>12</sup> How art thou fallen from heaven, O Lucifer, son of the morning! *how* art thou cut down to the ground, which didst weaken the nations!  
-> <sup>13</sup> For thou hast said in thine heart, I will ascend into heaven, I will exalt my throne above the stars of God: I will sit also upon the mount of the congregation, in the sides of the north:  
-> <sup>14</sup> I will ascend above the heights of the clouds; I will be like the most High.  
-> <sup>15</sup> Yet thou shalt be brought down to hell, to the sides of the pit.  
-> <sup>16</sup> They that see thee shall narrowly look upon thee, *and* consider thee, *saying, Is* this the man that made the earth to tremble, that did shake kingdoms;  
-> <sup>17</sup> *That* made the world as a wilderness, and destroyed the cities thereof; *that* opened not the house of his prisoners?  
-> <sup>18</sup> All the kings of the nations, *even* all of them, lie in glory, every one in his own house.  
-> <sup>19</sup> But thou art cast out of thy grave like an abominable branch, *and as* the raiment of those that are slain, thrust through with a sword, that go down to the stones of the pit; as a carcase trodden under feet.  
-> <sup>20</sup> Thou shalt not be joined with them in burial, because thou hast destroyed thy land, *and* slain thy people: the seed of evildoers shall never be renowned.  
-> <sup>21</sup> Prepare slaughter for his children for the iniquity of their fathers; that they do not rise, nor possess the land, nor fill the face of the world with cities.  
-> <sup>22</sup> For I will rise up against them, saith the LORD of hosts, and cut off from Babylon the name, and remnant, and son, and nephew, saith the LORD.  
-> <sup>23</sup> I will also make it a possession for the bittern, and pools of water: and I will sweep it with the besom of destruction, saith the LORD of hosts.  
+> **⁴** That thou shalt take up this proverb against the king of Babylon, and say, How hath the oppressor ceased! the golden city ceased!  
+> **⁵** The LORD hath broken the staff of the wicked, *and* the sceptre of the rulers.  
+> **⁶** He who smote the people in wrath with a continual stroke, he that ruled the nations in anger, is persecuted, *and* none hindereth.  
+> **⁷** The whole earth is at rest, *and* is quiet: they break forth into singing.  
+> **⁸** Yea, the fir trees rejoice at thee, *and* the cedars of Lebanon, *saying,* Since thou art laid down, no feller is come up against us.  
+> **⁹** Hell from beneath is moved for thee to meet *thee* at thy coming: it stirreth up the dead for thee, *even* all the chief ones of the earth; it hath raised up from their thrones all the kings of the nations.  
+> **¹⁰** All they shall speak and say unto thee, Art thou also become weak as we? art thou become like unto us?  
+> **¹¹** Thy pomp is brought down to the grave, *and* the noise of thy viols: the worm is spread under thee, and the worms cover thee.  
+> **¹²** How art thou fallen from heaven, O Lucifer, son of the morning! *how* art thou cut down to the ground, which didst weaken the nations!  
+> **¹³** For thou hast said in thine heart, I will ascend into heaven, I will exalt my throne above the stars of God: I will sit also upon the mount of the congregation, in the sides of the north:  
+> **¹⁴** I will ascend above the heights of the clouds; I will be like the most High.  
+> **¹⁵** Yet thou shalt be brought down to hell, to the sides of the pit.  
+> **¹⁶** They that see thee shall narrowly look upon thee, *and* consider thee, *saying, Is* this the man that made the earth to tremble, that did shake kingdoms;  
+> **¹⁷** *That* made the world as a wilderness, and destroyed the cities thereof; *that* opened not the house of his prisoners?  
+> **¹⁸** All the kings of the nations, *even* all of them, lie in glory, every one in his own house.  
+> **¹⁹** But thou art cast out of thy grave like an abominable branch, *and as* the raiment of those that are slain, thrust through with a sword, that go down to the stones of the pit; as a carcase trodden under feet.  
+> **²⁰** Thou shalt not be joined with them in burial, because thou hast destroyed thy land, *and* slain thy people: the seed of evildoers shall never be renowned.  
+> **²¹** Prepare slaughter for his children for the iniquity of their fathers; that they do not rise, nor possess the land, nor fill the face of the world with cities.  
+> **²²** For I will rise up against them, saith the LORD of hosts, and cut off from Babylon the name, and remnant, and son, and nephew, saith the LORD.  
+> **²³** I will also make it a possession for the bittern, and pools of water: and I will sweep it with the besom of destruction, saith the LORD of hosts.  
 
 The kings of Babylon, successively, were the great enemies and oppressors of God's people, and therefore the destruction of Babylon, the fall of the king, and the ruin of his family, are here particularly taken notice of and triumphed in. In the day that God has given Israel rest they shall *take up this proverb against the king of Babylon.* We must not rejoice when our enemy falls, as ours; but when Babylon, the common enemy of God and his Israel, sinks, then *rejoice over her, thou heaven, and you holy apostles and prophets,* Re 18:20. The Babylonian monarchy bade fair to be an absolute, universal, and perpetual one, and, in these pretensions, vied with the Almighty; it is therefore very justly, not only brought down, but insulted over when it is down; and it is not only the last monarch, Belshazzar, who *was slain on that night* that Babylon was taken (Da 5:30), who is here triumphed over, but the whole monarchy, which sunk in him; not without special reference to Nebuchadnezzar, in whom that monarchy was at its height. Now here,
 
@@ -73,15 +73,15 @@ II\. The utter ruin of the royal family is here foretold, together with the deso
 
 ## The Doom of the Assyrians; The Doom of the Philistines. (b. c. 726.)
 
-> <sup>24</sup> The LORD of hosts hath sworn, saying, Surely as I have thought, so shall it come to pass; and as I have purposed, *so* shall it stand:  
-> <sup>25</sup> That I will break the Assyrian in my land, and upon my mountains tread him under foot: then shall his yoke depart from off them, and his burden depart from off their shoulders.  
-> <sup>26</sup> This *is* the purpose that is purposed upon the whole earth: and this *is* the hand that is stretched out upon all the nations.  
-> <sup>27</sup> For the LORD of hosts hath purposed, and who shall disannul *it?* and his hand *is* stretched out, and who shall turn it back?  
-> <sup>28</sup> In the year that king Ahaz died was this burden.  
-> <sup>29</sup> Rejoice not thou, whole Palestina, because the rod of him that smote thee is broken: for out of the serpent's root shall come forth a cockatrice, and his fruit *shall be* a fiery flying serpent.  
-> <sup>30</sup> And the firstborn of the poor shall feed, and the needy shall lie down in safety: and I will kill thy root with famine, and he shall slay thy remnant.  
-> <sup>31</sup> Howl, O gate; cry, O city; thou, whole Palestina, *art* dissolved: for there shall come from the north a smoke, and none *shall be* alone in his appointed times.  
-> <sup>32</sup> What shall *one* then answer the messengers of the nation? That the LORD hath founded Zion, and the poor of his people shall trust in it.  
+> **²⁴** The LORD of hosts hath sworn, saying, Surely as I have thought, so shall it come to pass; and as I have purposed, *so* shall it stand:  
+> **²⁵** That I will break the Assyrian in my land, and upon my mountains tread him under foot: then shall his yoke depart from off them, and his burden depart from off their shoulders.  
+> **²⁶** This *is* the purpose that is purposed upon the whole earth: and this *is* the hand that is stretched out upon all the nations.  
+> **²⁷** For the LORD of hosts hath purposed, and who shall disannul *it?* and his hand *is* stretched out, and who shall turn it back?  
+> **²⁸** In the year that king Ahaz died was this burden.  
+> **²⁹** Rejoice not thou, whole Palestina, because the rod of him that smote thee is broken: for out of the serpent's root shall come forth a cockatrice, and his fruit *shall be* a fiery flying serpent.  
+> **³⁰** And the firstborn of the poor shall feed, and the needy shall lie down in safety: and I will kill thy root with famine, and he shall slay thy remnant.  
+> **³¹** Howl, O gate; cry, O city; thou, whole Palestina, *art* dissolved: for there shall come from the north a smoke, and none *shall be* alone in his appointed times.  
+> **³²** What shall *one* then answer the messengers of the nation? That the LORD hath founded Zion, and the poor of his people shall trust in it.  
 
 The destruction of Babylon and the Chaldean empire was a thing at a great distance; the empire had not risen to any considerable height when its fall was here foretold: it was almost 200 years from this prediction of Babylon's fall to the accomplishment of it. Now the people to whom Isaiah prophesied might ask, "What is this to us, or what shall we be the better for it, and what assurance shall we have of it?" To both questions he answers in these verses, by a prediction of the ruin both of the Assyrians and of the Philistines, the present enemies that infested them, which they should shortly be eye-witnesses of and have benefit by. These would be a present comfort to them, and a pledge of future deliverance, for the confirming of the faith of their posterity. God is to his people the same to day that he was yesterday and will be hereafter; and he will for ever be the same that he has been and is. Here is,
 

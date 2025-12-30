@@ -8,13 +8,13 @@ This chapter, as that before, divides itself into the sins and punishments of Is
 
 ## Sin and Punishment of Israel; Crimes Charged against Israel; Sottish Idolatry of Israel. (b. c. 745.)
 
-> <sup>1</sup> *Set* the trumpet to thy mouth. *He shall come* as an eagle against the house of the LORD, because they have transgressed my covenant, and trespassed against my law.  
-> <sup>2</sup> Israel shall cry unto me, My God, we know thee.  
-> <sup>3</sup> Israel hath cast off *the thing that is* good: the enemy shall pursue him.  
-> <sup>4</sup> They have set up kings, but not by me: they have made princes, and I knew *it* not: of their silver and their gold have they made them idols, that they may be cut off.  
-> <sup>5</sup> Thy calf, O Samaria, hath cast *thee* off; mine anger is kindled against them: how long *will it be* ere they attain to innocency?  
-> <sup>6</sup> For from Israel *was* it also: the workman made it; therefore it *is* not God: but the calf of Samaria shall be broken in pieces.  
-> <sup>7</sup> For they have sown the wind, and they shall reap the whirlwind: it hath no stalk: the bud shall yield no meal: if so be it yield, the strangers shall swallow it up.  
+> **¹** *Set* the trumpet to thy mouth. *He shall come* as an eagle against the house of the LORD, because they have transgressed my covenant, and trespassed against my law.  
+> **²** Israel shall cry unto me, My God, we know thee.  
+> **³** Israel hath cast off *the thing that is* good: the enemy shall pursue him.  
+> **⁴** They have set up kings, but not by me: they have made princes, and I knew *it* not: of their silver and their gold have they made them idols, that they may be cut off.  
+> **⁵** Thy calf, O Samaria, hath cast *thee* off; mine anger is kindled against them: how long *will it be* ere they attain to innocency?  
+> **⁶** For from Israel *was* it also: the workman made it; therefore it *is* not God: but the calf of Samaria shall be broken in pieces.  
+> **⁷** For they have sown the wind, and they shall reap the whirlwind: it hath no stalk: the bud shall yield no meal: if so be it yield, the strangers shall swallow it up.  
 
 The reproofs and threatenings here are introduced with an order to the prophet to *set the trumpet to his mouth* (Ho 8:1), thus to call a solemn assembly, that all might take notice of what he had to deliver and take warning by it. He must sound an alarm, must, in God's name, proclaim war with this rebellious nation. An enemy is coming with speed and fury to seize their land, and he must awaken them to expect it. Thus the prophet must do the part of a watchman, that was by sound of trumpet to call the besieged to stand to their arms, when he saw the besiegers making their attack, Eze 33:3. The prophet must *lift up his voice like a trumpet* (Isa 58:1), and the people must hearken to the sound of the trumpet, Jer 6:17. Now,
 
@@ -40,13 +40,13 @@ V\. Here are some particular sins which they are charged with, are convicted of 
 
 ## The Sins of Israel; The Crimes of the People. (b. c. 745.)
 
-> <sup>8</sup> Israel is swallowed up: now shall they be among the Gentiles as a vessel wherein *is* no pleasure.  
-> <sup>9</sup> For they are gone up to Assyria, a wild ass alone by himself: Ephraim hath hired lovers.  
-> <sup>10</sup> Yea, though they have hired among the nations, now will I gather them, and they shall sorrow a little for the burden of the king of princes.  
-> <sup>11</sup> Because Ephraim hath made many altars to sin, altars shall be unto him to sin.  
-> <sup>12</sup> I have written to him the great things of my law, *but* they were counted as a strange thing.  
-> <sup>13</sup> They sacrifice flesh *for* the sacrifices of mine offerings, and eat *it; but* the LORD accepteth them not; now will he remember their iniquity, and visit their sins: they shall return to Egypt.  
-> <sup>14</sup> For Israel hath forgotten his Maker, and buildeth temples; and Judah hath multiplied fenced cities: but I will send a fire upon his cities, and it shall devour the palaces thereof.  
+> **⁸** Israel is swallowed up: now shall they be among the Gentiles as a vessel wherein *is* no pleasure.  
+> **⁹** For they are gone up to Assyria, a wild ass alone by himself: Ephraim hath hired lovers.  
+> **¹⁰** Yea, though they have hired among the nations, now will I gather them, and they shall sorrow a little for the burden of the king of princes.  
+> **¹¹** Because Ephraim hath made many altars to sin, altars shall be unto him to sin.  
+> **¹²** I have written to him the great things of my law, *but* they were counted as a strange thing.  
+> **¹³** They sacrifice flesh *for* the sacrifices of mine offerings, and eat *it; but* the LORD accepteth them not; now will he remember their iniquity, and visit their sins: they shall return to Egypt.  
+> **¹⁴** For Israel hath forgotten his Maker, and buildeth temples; and Judah hath multiplied fenced cities: but I will send a fire upon his cities, and it shall devour the palaces thereof.  
 
 It was the honour and happiness of Israel that they had but one God to trust to and he all-sufficient in every strait, and but one God to serve, and he well worthy of all their devotions. But it was their sin, and folly, and shame, that they knew not when they were well off, that they forsook their own mercies for lying vanities; for,
 

@@ -8,15 +8,15 @@ The departure of the children of Israel out of Egypt (which was indeed the birth
 
 ## The Israelites Pursued by Pharaoh. (b. c. 1491.)
 
-> <sup>1</sup> And the LORD spake unto Moses, saying,  
-> <sup>2</sup> Speak unto the children of Israel, that they turn and encamp before Pi-hahiroth, between Migdol and the sea, over against Baal-zephon: before it shall ye encamp by the sea.  
-> <sup>3</sup> For Pharaoh will say of the children of Israel, They *are* entangled in the land, the wilderness hath shut them in.  
-> <sup>4</sup> And I will harden Pharaoh's heart, that he shall follow after them; and I will be honoured upon Pharaoh, and upon all his host; that the Egyptians may know that I *am* the LORD. And they did so.  
-> <sup>5</sup> And it was told the king of Egypt that the people fled: and the heart of Pharaoh and of his servants was turned against the people, and they said, Why have we done this, that we have let Israel go from serving us?  
-> <sup>6</sup> And he made ready his chariot, and took his people with him:  
-> <sup>7</sup> And he took six hundred chosen chariots, and all the chariots of Egypt, and captains over every one of them.  
-> <sup>8</sup> And the LORD hardened the heart of Pharaoh king of Egypt, and he pursued after the children of Israel: and the children of Israel went out with an high hand.  
-> <sup>9</sup> But the Egyptians pursued after them, all the horses *and* chariots of Pharaoh, and his horsemen, and his army, and overtook them encamping by the sea, beside Pi-hahiroth, before Baal-zephon.  
+> **¹** And the LORD spake unto Moses, saying,  
+> **²** Speak unto the children of Israel, that they turn and encamp before Pi-hahiroth, between Migdol and the sea, over against Baal-zephon: before it shall ye encamp by the sea.  
+> **³** For Pharaoh will say of the children of Israel, They *are* entangled in the land, the wilderness hath shut them in.  
+> **⁴** And I will harden Pharaoh's heart, that he shall follow after them; and I will be honoured upon Pharaoh, and upon all his host; that the Egyptians may know that I *am* the LORD. And they did so.  
+> **⁵** And it was told the king of Egypt that the people fled: and the heart of Pharaoh and of his servants was turned against the people, and they said, Why have we done this, that we have let Israel go from serving us?  
+> **⁶** And he made ready his chariot, and took his people with him:  
+> **⁷** And he took six hundred chosen chariots, and all the chariots of Egypt, and captains over every one of them.  
+> **⁸** And the LORD hardened the heart of Pharaoh king of Egypt, and he pursued after the children of Israel: and the children of Israel went out with an high hand.  
+> **⁹** But the Egyptians pursued after them, all the horses *and* chariots of Pharaoh, and his horsemen, and his army, and overtook them encamping by the sea, beside Pi-hahiroth, before Baal-zephon.  
 
 We have here,
 
@@ -28,11 +28,11 @@ II\. Pharaoh's pursuit of Israel, in which, while he gratifies his own malice an
 
 2\. He resolves, if possible, either to reduce them or to be revenged on them; in order to this, he levies an army, musters all his force of chariots and horsemen, Ex 14:17,18 (for, it should seem, he took no foot with him, because the king's business required haste), and thus he doubts not but he shall re-enslave them, Ex 14:6,7. It is easy to imagine what a rage Pharaoh was now in, roaring like a lion disappointed of his prey, how his proud heart aggravated the affront, swelled with indignation, scorned to be baffled, longed to be revenged: and now all the plagues are as if they had never been. He has quite forgotten the sorrowful funerals of his firstborn, and can think of nothing but making Israel feel his resentments; now he thinks he can be too hard for God himself; for, otherwise, could he have hoped to conquer a people so dear to him? God gave him up to these passions of his own heart, and so hardened it. It is said (Ex 14:8), The children of Israel went out with *a high hand,* that is, with a great deal of courage and bravery, triumphing in their release, and resolved to break through the difficulties that lay in their way. *But the Egyptians* (Ex 14:9) *pursued after them.* Note, Those that in good earnest set their faces heaven-ward, and will live godly in Christ Jesus, must expect to be set upon by Satan's temptations and terrors. He will not tamely part with any out of his service, nor go out without raging, Mk 9:26.
 
-> <sup>10</sup> And when Pharaoh drew nigh, the children of Israel lifted up their eyes, and, behold, the Egyptians marched after them; and they were sore afraid: and the children of Israel cried out unto the LORD.  
-> <sup>11</sup> And they said unto Moses, Because *there were* no graves in Egypt, hast thou taken us away to die in the wilderness? wherefore hast thou dealt thus with us, to carry us forth out of Egypt?  
-> <sup>12</sup> *Is* not this the word that we did tell thee in Egypt, saying, Let us alone, that we may serve the Egyptians? For *it had been* better for us to serve the Egyptians, than that we should die in the wilderness.  
-> <sup>13</sup> And Moses said unto the people, Fear ye not, stand still, and see the salvation of the LORD, which he will show to you to day: for the Egyptians whom ye have seen to day, ye shall see them again no more for ever.  
-> <sup>14</sup> The LORD shall fight for you, and ye shall hold your peace.  
+> **¹⁰** And when Pharaoh drew nigh, the children of Israel lifted up their eyes, and, behold, the Egyptians marched after them; and they were sore afraid: and the children of Israel cried out unto the LORD.  
+> **¹¹** And they said unto Moses, Because *there were* no graves in Egypt, hast thou taken us away to die in the wilderness? wherefore hast thou dealt thus with us, to carry us forth out of Egypt?  
+> **¹²** *Is* not this the word that we did tell thee in Egypt, saying, Let us alone, that we may serve the Egyptians? For *it had been* better for us to serve the Egyptians, than that we should die in the wilderness.  
+> **¹³** And Moses said unto the people, Fear ye not, stand still, and see the salvation of the LORD, which he will show to you to day: for the Egyptians whom ye have seen to day, ye shall see them again no more for ever.  
+> **¹⁴** The LORD shall fight for you, and ye shall hold your peace.  
 
 We have here, I. The fright that the children of Israel were in when they perceived that Pharaoh pursued them, Ex 14:10. They knew very well the strength and rage of the enemy, and their own weakness; numerous indeed they were, but all on foot, unarmed, undisciplined, disquieted by long servitude, and (which was worst of all) now penned up by the situation of their camp, so that they could not make their escape. On the one hand was Pi-hahiroth, a range of craggy rocks impassable; on the other hand were Migdol and Baalzephon, which, some think were forts and garrisons upon the frontiers of Egypt; before them was the sea; behind them were the Egyptians: so that there was no way open for them but upwards, and thence their deliverance came. Note, We may be in the way of our duty, following God and hastening towards heaven, and yet may be in great straits, *troubled on every side,* 2Co 4:8. In this distress, no marvel that the children of Israel were sorely afraid; their father Jacob was so in a like case (Ge 32:7); when without are fightings, it cannot be otherwise but that within are fears: what therefore was the fruit of this fear? According as that was, the fear was good or evil. 1. Some of them cried out unto the Lord; their fear set them a praying, and that was a good effect of it. God brings us into straits that he may bring us to our knees. 2. Others of them cried out against Moses; their fear set them a murmuring, Ex 14:11,12. They give up themselves for lost; and as if God's arm were shortened all of a sudden, and he were not as able to work miracles to-day as he was yesterday, they despair of deliverance, and can count upon nothing but *dying in the wilderness.* How inexcusable was their distrust! Did they not see themselves under the guidance and protection of a pillar from heaven? And can almighty power fail them, or infinite goodness be false to them? Yet this was not the worst; they quarrel with Moses for bringing them out of Egypt, and, in quarrelling with him, fly in the face of God himself, and provoke him to wrath whose favour was now the only succour they had to flee to. As the Egyptians were angry with themselves for the best deed they ever did, so the Israelites were angry with God for the greatest kindness that was ever done them; so gross are the absurdities of unbelief. They here express, (1.) A sordid contempt of liberty, preferring servitude before it, only because it was attended with some difficulties. A generous spirit would have said, "If the worst come to the worst," as we say, "It is better to die in the field of honour than to live in the chains of slavery;" nay, under God's conduct, they could not miscarry, and therefore they might say, "Better live God's freemen in the open air of a wilderness than the Egyptians' bondmen in the smoke of the brick-kilns." But because, for the present, they are a little embarrassed, they are angry that they were not left buried alive in their house of bondage. (2.) Base ingratitude to Moses, who had been the faithful instrument of their deliverance. They condemn him, as if he had dealt hardly and unkindly with them, whereas it was evident, beyond dispute, that whatever he did, and however it issued, it was by direction from their God, and with design for their good. What they had said in a former ferment (when they hearkened not to Moses for anguish of spirit), they repeat and justify in this: *We said in Egypt, Let us alone;* and it was ill-said, yet more excusable, because then they had not had so much experience as they had now of God's wonderful appearances in their favour. But they had as soon forgotten the miracles of mercy as the Egyptians had forgotten the miracles of wrath; and they, as well as the Egyptians, hardened their hearts, at last, to their own ruin; as Egypt after ten plagues, so Israel after ten provocations, of which this was the first (Nu 14:22), were sentenced to die in the wilderness.
 
@@ -40,12 +40,12 @@ II\. The seasonable encouragement that Moses gave them in this distress, Ex 14:1
 
 ## The Pillar of Cloud. (b. c. 1491.)
 
-> <sup>15</sup> And the LORD said unto Moses, Wherefore criest thou unto me? speak unto the children of Israel, that they go forward:  
-> <sup>16</sup> But lift thou up thy rod, and stretch out thine hand over the sea, and divide it: and the children of Israel shall go on dry *ground* through the midst of the sea.  
-> <sup>17</sup> And I, behold, I will harden the hearts of the Egyptians, and they shall follow them: and I will get me honour upon Pharaoh, and upon all his host, upon his chariots, and upon his horsemen.  
-> <sup>18</sup> And the Egyptians shall know that I *am* the LORD, when I have gotten me honour upon Pharaoh, upon his chariots, and upon his horsemen.  
-> <sup>19</sup> And the angel of God, which went before the camp of Israel, removed and went behind them; and the pillar of the cloud went from before their face, and stood behind them:  
-> <sup>20</sup> And it came between the camp of the Egyptians and the camp of Israel; and it was a cloud and darkness *to them,* but it gave light by night *to these:* so that the one came not near the other all the night.  
+> **¹⁵** And the LORD said unto Moses, Wherefore criest thou unto me? speak unto the children of Israel, that they go forward:  
+> **¹⁶** But lift thou up thy rod, and stretch out thine hand over the sea, and divide it: and the children of Israel shall go on dry *ground* through the midst of the sea.  
+> **¹⁷** And I, behold, I will harden the hearts of the Egyptians, and they shall follow them: and I will get me honour upon Pharaoh, and upon all his host, upon his chariots, and upon his horsemen.  
+> **¹⁸** And the Egyptians shall know that I *am* the LORD, when I have gotten me honour upon Pharaoh, upon his chariots, and upon his horsemen.  
+> **¹⁹** And the angel of God, which went before the camp of Israel, removed and went behind them; and the pillar of the cloud went from before their face, and stood behind them:  
+> **²⁰** And it came between the camp of the Egyptians and the camp of Israel; and it was a cloud and darkness *to them,* but it gave light by night *to these:* so that the one came not near the other all the night.  
 
 We have here,
 
@@ -61,17 +61,17 @@ II\. A guard set upon Israel's camp where it now lay most exposed, which was *in
 
 ## The Destruction of the Egyptians. (b. c. 1491.)
 
-> <sup>21</sup> And Moses stretched out his hand over the sea; and the LORD caused the sea to go *back* by a strong east wind all that night, and made the sea dry *land,* and the waters were divided.  
-> <sup>22</sup> And the children of Israel went into the midst of the sea upon the dry *ground:* and the waters *were* a wall unto them on their right hand, and on their left.  
-> <sup>23</sup> And the Egyptians pursued, and went in after them to the midst of the sea, *even* all Pharaoh's horses, his chariots, and his horsemen.  
-> <sup>24</sup> And it came to pass, that in the morning watch the LORD looked unto the host of the Egyptians through the pillar of fire and of the cloud, and troubled the host of the Egyptians,  
-> <sup>25</sup> And took off their chariot wheels, that they drave them heavily: so that the Egyptians said, Let us flee from the face of Israel; for the LORD fighteth for them against the Egyptians.  
-> <sup>26</sup> And the LORD said unto Moses, Stretch out thine hand over the sea, that the waters may come again upon the Egyptians, upon their chariots, and upon their horsemen.  
-> <sup>27</sup> And Moses stretched forth his hand over the sea, and the sea returned to his strength when the morning appeared; and the Egyptians fled against it; and the LORD overthrew the Egyptians in the midst of the sea.  
-> <sup>28</sup> And the waters returned, and covered the chariots, and the horsemen, *and* all the host of Pharaoh that came into the sea after them; there remained not so much as one of them.  
-> <sup>29</sup> But the children of Israel walked upon dry *land* in the midst of the sea; and the waters *were* a wall unto them on their right hand, and on their left.  
-> <sup>30</sup> Thus the LORD saved Israel that day out of the hand of the Egyptians; and Israel saw the Egyptians dead upon the sea shore.  
-> <sup>31</sup> And Israel saw that great work which the LORD did upon the Egyptians: and the people feared the LORD, and believed the LORD, and his servant Moses.  
+> **²¹** And Moses stretched out his hand over the sea; and the LORD caused the sea to go *back* by a strong east wind all that night, and made the sea dry *land,* and the waters were divided.  
+> **²²** And the children of Israel went into the midst of the sea upon the dry *ground:* and the waters *were* a wall unto them on their right hand, and on their left.  
+> **²³** And the Egyptians pursued, and went in after them to the midst of the sea, *even* all Pharaoh's horses, his chariots, and his horsemen.  
+> **²⁴** And it came to pass, that in the morning watch the LORD looked unto the host of the Egyptians through the pillar of fire and of the cloud, and troubled the host of the Egyptians,  
+> **²⁵** And took off their chariot wheels, that they drave them heavily: so that the Egyptians said, Let us flee from the face of Israel; for the LORD fighteth for them against the Egyptians.  
+> **²⁶** And the LORD said unto Moses, Stretch out thine hand over the sea, that the waters may come again upon the Egyptians, upon their chariots, and upon their horsemen.  
+> **²⁷** And Moses stretched forth his hand over the sea, and the sea returned to his strength when the morning appeared; and the Egyptians fled against it; and the LORD overthrew the Egyptians in the midst of the sea.  
+> **²⁸** And the waters returned, and covered the chariots, and the horsemen, *and* all the host of Pharaoh that came into the sea after them; there remained not so much as one of them.  
+> **²⁹** But the children of Israel walked upon dry *land* in the midst of the sea; and the waters *were* a wall unto them on their right hand, and on their left.  
+> **³⁰** Thus the LORD saved Israel that day out of the hand of the Egyptians; and Israel saw the Egyptians dead upon the sea shore.  
+> **³¹** And Israel saw that great work which the LORD did upon the Egyptians: and the people feared the LORD, and believed the LORD, and his servant Moses.  
 
 We have here the history of that work of wonder which is so often mentioned both in the Old and New Testament, the dividing of the Red Sea before the children of Israel. It was the terror of the Canaanites (Jos 2:9,10), the praise and triumph of the Israelites, Ps 114:3, Ps 106:9,136:13,14. It was a type of baptism, 1Co 10:1,2. Israel's passage through it was typical of the conversion of souls (Isa 11:15), and the Egyptians' perdition in it was typical of the final ruin of all impenitent sinners, Re 20:14. Here we have,
 

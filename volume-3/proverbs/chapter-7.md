@@ -8,34 +8,34 @@ The scope of this chapter is, as of several before, to warn young men against th
 
 ## The Word of God Recommended.
 
-> <sup>1</sup> My son, keep my words, and lay up my commandments with thee.  
-> <sup>2</sup> Keep my commandments, and live; and my law as the apple of thine eye.  
-> <sup>3</sup> Bind them upon thy fingers, write them upon the table of thine heart.  
-> <sup>4</sup> Say unto wisdom, Thou *art* my sister; and call understanding *thy* kinswoman:  
-> <sup>5</sup> That they may keep thee from the strange woman, from the stranger *which* flattereth with her words.  
+> **¹** My son, keep my words, and lay up my commandments with thee.  
+> **²** Keep my commandments, and live; and my law as the apple of thine eye.  
+> **³** Bind them upon thy fingers, write them upon the table of thine heart.  
+> **⁴** Say unto wisdom, Thou *art* my sister; and call understanding *thy* kinswoman:  
+> **⁵** That they may keep thee from the strange woman, from the stranger *which* flattereth with her words.  
 
 These verses are an introduction to his warning against fleshly lusts, much the same with that, Pr 6:20, etc., and ending (Ps 7:5) as that did (Ps 7:24), *To keep thee from the strange woman;* that is it he aims at; only there he had said, *Keep thy father's commandment,* here (which comes all to one), *Keep my commandments,* for he speaks to us as unto sons. He speaks in God's name; for it is God's *commandments* that we are to *keep,* his *words,* his *law.* The word of God must be to us, 1. As that which we are most careful of. We must keep it as our treasure; we must *lay up God's* commandments with us, lay them up safely, that we may not be robbed of them by the wicked one, Ps 7:1. We must keep it as our life: *Keep my commandments and live* (Ps 7:2), not only, "Keep them, and you shall live;" but, "Keep them as you would your life, as those that cannot live without them." It would be death to a good man to be deprived of the word of God, for by it he lives, and not *by bread alone.* 2. As that which we are most tender of: Keep *my law as the apple of thy eye.* A little thing offends the eye, and therefore nature has so well guarded it. We pray, with David, that God would keep us as the apple of his eye (Ps 17:8), that our lives and comforts may be precious in his sight; and they shall be so (Zec 2:8) if we be in like manner tender of his law and afraid of the least violation of it. Those who reproach strict and circumspect walking, as needless preciseness, consider not that the law is to be kept as the apple of the eye, for indeed it is the *apple of our eye;* the law is light; the law in the heart is the eye of the soul. 3. As that which we are proud of and would be ever mindful of (Prov 7:3): "*Bind them upon thy fingers;* let them be precious to thee; look upon them as an ornament, as a diamond-ring, as the *signet on thy right hand;* wear them continually as thy wedding-ring, the badge of thy espousals to God. Look upon the word of God as putting an honour upon thee, as an ensign of thy dignity. *Bind them on thy fingers,* that they may be constant memorandums to thee of thy duty, that thou mayest have them always in view, as that which is *graven upon the palms of thy hands.*" 4. As that which we are fond of and are ever thinking of: *Write them upon the table of thy heart,* as the names of the friends we dearly love, we say, are written in our hearts. *let the word of God dwell richly in us,* and be written there where it will be always at hand to be read. Where sin was written (Jer 17:1) let the word of God be written. It is the matter of a promise (Heb 8:10, *I will write my law in their hearts*), which makes the precept practicable and easy. 5. As that which we are intimately acquainted and conversant with (Prov 7:4): "*Say unto wisdom, Thou art my sister,* whom I dearly love and take delight in; *and call understanding thy kinswoman,* to whom thou art nearly allied, and for whom thou hast a pure affection; call her thy friend, whom thou courtest." We must make the word of God familiar to us, consult it, and consult its honour, and take a pleasure in conversing with it. 6. As that which we make use of for our defence and armour, to keep us *from the strange woman,* from sin, that flattering but destroying thing, that adulteress; particularly from the sin of uncleanness, Prov 7:5. Let the word of God confirm our dread of that sin and our resolutions against it; let it discover to us its fallacies and suggest to us answers to all its flatteries.
 
 ## The Foolish Young Man; Enticements of the Adulteress.
 
-> <sup>6</sup> For at the window of my house I looked through my casement,  
-> <sup>7</sup> And beheld among the simple ones, I discerned among the youths, a young man void of understanding,  
-> <sup>8</sup> Passing through the street near her corner; and he went the way to her house,  
-> <sup>9</sup> In the twilight, in the evening, in the black and dark night:  
-> <sup>10</sup> And, behold, there met him a woman *with* the attire of an harlot, and subtil of heart.  
-> <sup>11</sup> (She *is* loud and stubborn; her feet abide not in her house:  
-> <sup>12</sup> Now *is she* without, now in the streets, and lieth in wait at every corner.)  
-> <sup>13</sup> So she caught him, and kissed him, *and* with an impudent face said unto him,  
-> <sup>14</sup> *I have* peace offerings with me; this day have I paid my vows.  
-> <sup>15</sup> Therefore came I forth to meet thee, diligently to seek thy face, and I have found thee.  
-> <sup>16</sup> I have decked my bed with coverings of tapestry, with carved *works,* with fine linen of Egypt.  
-> <sup>17</sup> I have perfumed my bed with myrrh, aloes, and cinnamon.  
-> <sup>18</sup> Come, let us take our fill of love until the morning: let us solace ourselves with loves.  
-> <sup>19</sup> For the goodman *is* not at home, he is gone a long journey:  
-> <sup>20</sup> He hath taken a bag of money with him, *and* will come home at the day appointed.  
-> <sup>21</sup> With her much fair speech she caused him to yield, with the flattering of her lips she forced him.  
-> <sup>22</sup> He goeth after her straightway, as an ox goeth to the slaughter, or as a fool to the correction of the stocks;  
-> <sup>23</sup> Till a dart strike through his liver; as a bird hasteth to the snare, and knoweth not that it *is* for his life.  
+> **⁶** For at the window of my house I looked through my casement,  
+> **⁷** And beheld among the simple ones, I discerned among the youths, a young man void of understanding,  
+> **⁸** Passing through the street near her corner; and he went the way to her house,  
+> **⁹** In the twilight, in the evening, in the black and dark night:  
+> **¹⁰** And, behold, there met him a woman *with* the attire of an harlot, and subtil of heart.  
+> **¹¹** (She *is* loud and stubborn; her feet abide not in her house:  
+> **¹²** Now *is she* without, now in the streets, and lieth in wait at every corner.)  
+> **¹³** So she caught him, and kissed him, *and* with an impudent face said unto him,  
+> **¹⁴** *I have* peace offerings with me; this day have I paid my vows.  
+> **¹⁵** Therefore came I forth to meet thee, diligently to seek thy face, and I have found thee.  
+> **¹⁶** I have decked my bed with coverings of tapestry, with carved *works,* with fine linen of Egypt.  
+> **¹⁷** I have perfumed my bed with myrrh, aloes, and cinnamon.  
+> **¹⁸** Come, let us take our fill of love until the morning: let us solace ourselves with loves.  
+> **¹⁹** For the goodman *is* not at home, he is gone a long journey:  
+> **²⁰** He hath taken a bag of money with him, *and* will come home at the day appointed.  
+> **²¹** With her much fair speech she caused him to yield, with the flattering of her lips she forced him.  
+> **²²** He goeth after her straightway, as an ox goeth to the slaughter, or as a fool to the correction of the stocks;  
+> **²³** Till a dart strike through his liver; as a bird hasteth to the snare, and knoweth not that it *is* for his life.  
 
 Solomon here, to enforce the caution he had given against the sin of whoredom, tells a story of a young man that was ruined to all intents and purposes by the enticements of an adulterous woman. Such a story as this would serve the lewd profane poets of our age to make a play of, and the harlot with them would be a heroine; nothing would be so entertaining to the audience, nor give them so much diversion, as her arts of beguiling the young gentleman and drawing in the country squire; her conquests would be celebrated as the triumphs of wit and love, and the comedy would conclude very pleasantly; and every young man that saw it acted would covet to be so picked up. Thus *fools make a mock at sin.* But Solomon here relates it, and all wise and good men read it, as a very melancholy story. The impudence of the adulterous woman is very justly looked upon, by all that have any sparks of virtue in them, with the highest indignation, and the easiness of the young man with the tenderest compassion; and the story concludes with sad reflections, enough to make all that read and hear it afraid of the snares of fleshly lusts and careful to keep at the utmost distance from them. It is supposed to be a parable, or imagined case, but I doubt it was too true, and, which is worse, that notwithstanding the warning it gives of the fatal consequences of such wicked courses it is still too often true, and the agents for hell are still playing the same game and with similar success.
 
@@ -57,10 +57,10 @@ IV\. Of the success of the temptation. Promising the young man every thing that 
 
 ## The Seduction of a Youth.
 
-> <sup>24</sup> Hearken unto me now therefore, O ye children, and attend to the words of my mouth.  
-> <sup>25</sup> Let not thine heart decline to her ways, go not astray in her paths.  
-> <sup>26</sup> For she hath cast down many wounded: yea, many strong *men* have been slain by her.  
-> <sup>27</sup> Her house *is* the way to hell, going down to the chambers of death.  
+> **²⁴** Hearken unto me now therefore, O ye children, and attend to the words of my mouth.  
+> **²⁵** Let not thine heart decline to her ways, go not astray in her paths.  
+> **²⁶** For she hath cast down many wounded: yea, many strong *men* have been slain by her.  
+> **²⁷** Her house *is* the way to hell, going down to the chambers of death.  
 
 We have here the application of the foregoing story: "*Hearken to me therefore,* and not to such seducers (Prov 7:24); give ear to a father, and not to an enemy." 1. "Take good counsel when it is given you. *Let not thy heart decline to her ways* (Prov 7:25); never leave the paths of virtue, though strait and narrow, solitary and up-hill, for the way of the adulteress, though green, and broad, and crowded with company. Do not only keep thy feet from those ways, but let not so much as thy heart incline to them; never harbour a disposition this way, nor think otherwise than with abhorrence of such wicked practices as these. Let reason, and conscience, and the fear of God ruling in the heart, check the inclinations of the sensual appetite. If thou goest in her paths, in any of the paths that lead to this sin, thou goest astray, thou art out of the right way, the safe way; therefore take heed, *go not astray,* lest thou wander endlessly." 2. "Take fair warning when it is given you." (1.) "Look back, and see what mischief this sin has done. The adulteress has been the ruin not of here and there one, but she has *cast down many wounded.*" Thousands have been undone, now and for ever, by this sin; and those not only the weak and simple youths, such as he was of whom he had now spoken, but *many strong men have been slain by her,* Prov 7:26. Herein, perhaps, he has an eye especially to Samson, who was slain by this sin, and perhaps to David too, who by this sin entailed a sword upon his house, though so far the Lord took it away that he himself should not die. These were men not only of great bodily strength, but of eminent wisdom and courage, and yet their fleshly lusts prevailed over them. *Howl, fir-trees, if the cedars be shaken. Let him that thinks he stands take heed lest he fall.* (2.) "Look forward with an eye of faith, and see what will be in the end of it," Prov 7:27. Her house, though richly decked and furnished, and called a *house of pleasure,* is the *way to hell;* and her chambers are the stair-case that goes down to the *chambers of death* and everlasting darkness. The cup of fornication must shortly be exchanged for the cup of trembling; and the flames of lust, if not quenched by repentance and mortification, will burn to the lowest hell. Therefore *stand in awe and sin not.*
 

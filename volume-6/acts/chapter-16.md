@@ -8,11 +8,11 @@ It is some rebuke to Barnabas that after he left Paul we hear no more of him, of
 
 ## Paul's Adoption of Timothy.
 
-> <sup>1</sup> Then came he to Derbe and Lystra: and, behold, a certain disciple was there, named Timotheus, the son of a certain woman, which was a Jewess, and believed; but his father *was* a Greek:  
-> <sup>2</sup> Which was well reported of by the brethren that were at Lystra and Iconium.  
-> <sup>3</sup> Him would Paul have to go forth with him; and took and circumcised him because of the Jews which were in those quarters: for they knew all that his father was a Greek.  
-> <sup>4</sup> And as they went through the cities, they delivered them the decrees for to keep, that were ordained of the apostles and elders which were at Jerusalem.  
-> <sup>5</sup> And so were the churches established in the faith, and increased in number daily.  
+> **¹** Then came he to Derbe and Lystra: and, behold, a certain disciple was there, named Timotheus, the son of a certain woman, which was a Jewess, and believed; but his father *was* a Greek:  
+> **²** Which was well reported of by the brethren that were at Lystra and Iconium.  
+> **³** Him would Paul have to go forth with him; and took and circumcised him because of the Jews which were in those quarters: for they knew all that his father was a Greek.  
+> **⁴** And as they went through the cities, they delivered them the decrees for to keep, that were ordained of the apostles and elders which were at Jerusalem.  
+> **⁵** And so were the churches established in the faith, and increased in number daily.  
 
 Paul was a spiritual father, and as such a one we have him here adopting Timothy, and taking care of the education of many others who had been begotten to Christ by his ministry: and in all he appears to have been a wise and tender father. Here is,
 
@@ -26,16 +26,16 @@ II\. His confirming the churches which he had planted (Ac 16:4,5): *He went thro
 
 ## Paul Invited into Macedonia; The Conversion of Lydia.
 
-> <sup>6</sup> Now when they had gone throughout Phrygia and the region of Galatia, and were forbidden of the Holy Ghost to preach the word in Asia,  
-> <sup>7</sup> After they were come to Mysia, they assayed to go into Bithynia: but the Spirit suffered them not.  
-> <sup>8</sup> And they passing by Mysia came down to Troas.  
-> <sup>9</sup> And a vision appeared to Paul in the night; There stood a man of Macedonia, and prayed him, saying, Come over into Macedonia, and help us.  
-> <sup>10</sup> And after he had seen the vision, immediately we endeavoured to go into Macedonia, assuredly gathering that the Lord had called us for to preach the gospel unto them.  
-> <sup>11</sup> Therefore loosing from Troas, we came with a straight course to Samothracia, and the next *day* to Neapolis;  
-> <sup>12</sup> And from thence to Philippi, which is the chief city of that part of Macedonia, *and* a colony: and we were in that city abiding certain days.  
-> <sup>13</sup> And on the sabbath we went out of the city by a river side, where prayer was wont to be made; and we sat down, and spake unto the women which resorted *thither.*  
-> <sup>14</sup> And a certain woman named Lydia, a seller of purple, of the city of Thyatira, which worshipped God, heard *us:* whose heart the Lord opened, that she attended unto the things which were spoken of Paul.  
-> <sup>15</sup> And when she was baptized, and her household, she besought *us,* saying, If ye have judged me to be faithful to the Lord, come into my house, and abide *there.* And she constrained us.  
+> **⁶** Now when they had gone throughout Phrygia and the region of Galatia, and were forbidden of the Holy Ghost to preach the word in Asia,  
+> **⁷** After they were come to Mysia, they assayed to go into Bithynia: but the Spirit suffered them not.  
+> **⁸** And they passing by Mysia came down to Troas.  
+> **⁹** And a vision appeared to Paul in the night; There stood a man of Macedonia, and prayed him, saying, Come over into Macedonia, and help us.  
+> **¹⁰** And after he had seen the vision, immediately we endeavoured to go into Macedonia, assuredly gathering that the Lord had called us for to preach the gospel unto them.  
+> **¹¹** Therefore loosing from Troas, we came with a straight course to Samothracia, and the next *day* to Neapolis;  
+> **¹²** And from thence to Philippi, which is the chief city of that part of Macedonia, *and* a colony: and we were in that city abiding certain days.  
+> **¹³** And on the sabbath we went out of the city by a river side, where prayer was wont to be made; and we sat down, and spake unto the women which resorted *thither.*  
+> **¹⁴** And a certain woman named Lydia, a seller of purple, of the city of Thyatira, which worshipped God, heard *us:* whose heart the Lord opened, that she attended unto the things which were spoken of Paul.  
+> **¹⁵** And when she was baptized, and her household, she besought *us,* saying, If ye have judged me to be faithful to the Lord, come into my house, and abide *there.* And she constrained us.  
 
 In these verses we have,
 
@@ -69,15 +69,15 @@ V\. The conversion of *Lydia,* who probably was the first that was wrought upon 
 
 ## The Expulsion of an Evil Spirit; Persecution of Philippi.
 
-> <sup>16</sup> And it came to pass, as we went to prayer, a certain damsel possessed with a spirit of divination met us, which brought her masters much gain by soothsaying:  
-> <sup>17</sup> The same followed Paul and us, and cried, saying, These men are the servants of the most high God, which show unto us the way of salvation.  
-> <sup>18</sup> And this did she many days. But Paul, being grieved, turned and said to the spirit, I command thee in the name of Jesus Christ to come out of her. And he came out the same hour.  
-> <sup>19</sup> And when her masters saw that the hope of their gains was gone, they caught Paul and Silas, and drew *them* into the marketplace unto the rulers,  
-> <sup>20</sup> And brought them to the magistrates, saying, These men, being Jews, do exceedingly trouble our city,  
-> <sup>21</sup> And teach customs, which are not lawful for us to receive, neither to observe, being Romans.  
-> <sup>22</sup> And the multitude rose up together against them: and the magistrates rent off their clothes, and commanded to beat *them.*  
-> <sup>23</sup> And when they had laid many stripes upon them, they cast *them* into prison, charging the jailor to keep them safely:  
-> <sup>24</sup> Who, having received such a charge, thrust them into the inner prison, and made their feet fast in the stocks.  
+> **¹⁶** And it came to pass, as we went to prayer, a certain damsel possessed with a spirit of divination met us, which brought her masters much gain by soothsaying:  
+> **¹⁷** The same followed Paul and us, and cried, saying, These men are the servants of the most high God, which show unto us the way of salvation.  
+> **¹⁸** And this did she many days. But Paul, being grieved, turned and said to the spirit, I command thee in the name of Jesus Christ to come out of her. And he came out the same hour.  
+> **¹⁹** And when her masters saw that the hope of their gains was gone, they caught Paul and Silas, and drew *them* into the marketplace unto the rulers,  
+> **²⁰** And brought them to the magistrates, saying, These men, being Jews, do exceedingly trouble our city,  
+> **²¹** And teach customs, which are not lawful for us to receive, neither to observe, being Romans.  
+> **²²** And the multitude rose up together against them: and the magistrates rent off their clothes, and commanded to beat *them.*  
+> **²³** And when they had laid many stripes upon them, they cast *them* into prison, charging the jailor to keep them safely:  
+> **²⁴** Who, having received such a charge, thrust them into the inner prison, and made their feet fast in the stocks.  
 
 Paul and his companions, though they were for some time buried in obscurity at Philippi, yet now begin to be taken notice of.
 
@@ -109,16 +109,16 @@ IV\. The magistrates, by their proceedings against them, caused them to be taken
 
 ## Paul and Silas in Prison; Conversion of the Philippian Jailer.
 
-> <sup>25</sup> And at midnight Paul and Silas prayed, and sang praises unto God: and the prisoners heard them.  
-> <sup>26</sup> And suddenly there was a great earthquake, so that the foundations of the prison were shaken: and immediately all the doors were opened, and every one's bands were loosed.  
-> <sup>27</sup> And the keeper of the prison awaking out of his sleep, and seeing the prison doors open, he drew out his sword, and would have killed himself, supposing that the prisoners had been fled.  
-> <sup>28</sup> But Paul cried with a loud voice, saying, Do thyself no harm: for we are all here.  
-> <sup>29</sup> Then he called for a light, and sprang in, and came trembling, and fell down before Paul and Silas,  
-> <sup>30</sup> And brought them out, and said, Sirs, what must I do to be saved?  
-> <sup>31</sup> And they said, Believe on the Lord Jesus Christ, and thou shalt be saved, and thy house.  
-> <sup>32</sup> And they spake unto him the word of the Lord, and to all that were in his house.  
-> <sup>33</sup> And he took them the same hour of the night, and washed *their* stripes; and was baptized, he and all his, straightway.  
-> <sup>34</sup> And when he had brought them into his house, he set meat before them, and rejoiced, believing in God with all his house.  
+> **²⁵** And at midnight Paul and Silas prayed, and sang praises unto God: and the prisoners heard them.  
+> **²⁶** And suddenly there was a great earthquake, so that the foundations of the prison were shaken: and immediately all the doors were opened, and every one's bands were loosed.  
+> **²⁷** And the keeper of the prison awaking out of his sleep, and seeing the prison doors open, he drew out his sword, and would have killed himself, supposing that the prisoners had been fled.  
+> **²⁸** But Paul cried with a loud voice, saying, Do thyself no harm: for we are all here.  
+> **²⁹** Then he called for a light, and sprang in, and came trembling, and fell down before Paul and Silas,  
+> **³⁰** And brought them out, and said, Sirs, what must I do to be saved?  
+> **³¹** And they said, Believe on the Lord Jesus Christ, and thou shalt be saved, and thy house.  
+> **³²** And they spake unto him the word of the Lord, and to all that were in his house.  
+> **³³** And he took them the same hour of the night, and washed *their* stripes; and was baptized, he and all his, straightway.  
+> **³⁴** And when he had brought them into his house, he set meat before them, and rejoiced, believing in God with all his house.  
 
 We have here the designs of the persecutors of Paul and Silas baffled and broken.
 
@@ -150,12 +150,12 @@ II\. The persecutors designed to stop the progress of the gospel, that no more m
 
 ## Paul and Silas Released.
 
-> <sup>35</sup> And when it was day, the magistrates sent the serjeants, saying, Let those men go.  
-> <sup>36</sup> And the keeper of the prison told this saying to Paul, The magistrates have sent to let you go: now therefore depart, and go in peace.  
-> <sup>37</sup> But Paul said unto them, They have beaten us openly uncondemned, being Romans, and have cast *us* into prison; and now do they thrust us out privily? nay verily; but let them come themselves and fetch us out.  
-> <sup>38</sup> And the serjeants told these words unto the magistrates: and they feared, when they heard that they were Romans.  
-> <sup>39</sup> And they came and besought them, and brought *them* out, and desired *them* to depart out of the city.  
-> <sup>40</sup> And they went out of the prison, and entered into *the house of* Lydia: and when they had seen the brethren, they comforted them, and departed.  
+> **³⁵** And when it was day, the magistrates sent the serjeants, saying, Let those men go.  
+> **³⁶** And the keeper of the prison told this saying to Paul, The magistrates have sent to let you go: now therefore depart, and go in peace.  
+> **³⁷** But Paul said unto them, They have beaten us openly uncondemned, being Romans, and have cast *us* into prison; and now do they thrust us out privily? nay verily; but let them come themselves and fetch us out.  
+> **³⁸** And the serjeants told these words unto the magistrates: and they feared, when they heard that they were Romans.  
+> **³⁹** And they came and besought them, and brought *them* out, and desired *them* to depart out of the city.  
+> **⁴⁰** And they went out of the prison, and entered into *the house of* Lydia: and when they had seen the brethren, they comforted them, and departed.  
 
 In these verses we have,
 

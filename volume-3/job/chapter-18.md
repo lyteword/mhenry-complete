@@ -8,10 +8,10 @@ In this chapter Bildad makes a second assault upon Job. In his first discourse (
 
 ## Second Address of Eliphaz. (b. c. 1520.)
 
-> <sup>1</sup> Then answered Bildad the Shuhite, and said,  
-> <sup>2</sup> How long *will it be ere* ye make an end of words? mark, and afterwards we will speak.  
-> <sup>3</sup> Wherefore are we counted as beasts, *and* reputed vile in your sight?  
-> <sup>4</sup> He teareth himself in his anger: shall the earth be forsaken for thee? and shall the rock be removed out of his place?  
+> **¹** Then answered Bildad the Shuhite, and said,  
+> **²** How long *will it be ere* ye make an end of words? mark, and afterwards we will speak.  
+> **³** Wherefore are we counted as beasts, *and* reputed vile in your sight?  
+> **⁴** He teareth himself in his anger: shall the earth be forsaken for thee? and shall the rock be removed out of his place?  
 
 Bildad here shoots his arrows, even bitter words, against poor Job, little thinking that, though he was a wise and good man, in this instance he was serving Satan's design in adding to Job's affliction.
 
@@ -27,12 +27,12 @@ V\. With a proud and arrogant expectation to give law even to Providence itself:
 
 ## Miserable Condition of the Wicked. (b. c. 1520.)
 
-> <sup>5</sup> Yea, the light of the wicked shall be put out, and the spark of his fire shall not shine.  
-> <sup>6</sup> The light shall be dark in his tabernacle, and his candle shall be put out with him.  
-> <sup>7</sup> The steps of his strength shall be straitened, and his own counsel shall cast him down.  
-> <sup>8</sup> For he is cast into a net by his own feet, and he walketh upon a snare.  
-> <sup>9</sup> The gin shall take *him* by the heel, *and* the robber shall prevail against him.  
-> <sup>10</sup> The snare *is* laid for him in the ground, and a trap for him in the way.  
+> **⁵** Yea, the light of the wicked shall be put out, and the spark of his fire shall not shine.  
+> **⁶** The light shall be dark in his tabernacle, and his candle shall be put out with him.  
+> **⁷** The steps of his strength shall be straitened, and his own counsel shall cast him down.  
+> **⁸** For he is cast into a net by his own feet, and he walketh upon a snare.  
+> **⁹** The gin shall take *him* by the heel, *and* the robber shall prevail against him.  
+> **¹⁰** The snare *is* laid for him in the ground, and a trap for him in the way.  
 
 The rest of Bildad's discourse is entirely taken up in an elegant description of the miserable condition of a wicked man, in which there is a great deal of certain truth, and which will be of excellent use if duly considered—that a sinful condition is a sad condition, and that iniquity will be men's ruin if they do not repent of it. But it is not true that all wicked people are visibly and openly made thus miserable in this world; nor is it true that all who are brought into great distress and trouble in this world are *therefore* to be deemed and adjudged wicked men, when no other proof appears against them; and therefore, though Bildad thought the application of it to Job was easy, yet it was not safe nor just. In these verses we have,
 
@@ -40,17 +40,17 @@ I\. The destruction of the wicked foreseen and foretold, under the similitude of
 
 II\. The preparatives for that destruction represented under the similitude of a beast or bird caught in a snare, or a malefactor arrested and taken into custody in order to his punishment, Job 18:7-10. 1. Satan is preparing for his destruction. He is *the robber that shall prevail against him* (Job 18:9); for, as he was a murderer, so he was a robber, from the beginning. He, as the tempter, lays snares for sinners in the way, wherever they go, and he shall prevail. If he make them sinful like himself, he will make them miserable like himself. He *hunts for the precious life.* 2. He is himself preparing for his own destruction by going on in sin, and so *treasuring up wrath against the day of wrath.* God gives him up, as he deserves and desires, to his own counsels, and then *his own counsels cast him down,* Job 18:7. His sinful projects and pursuits bring him into mischief. He is *cast into a net by his own feet* (Job 18:8), runs upon his own destruction, is *snared in the work of his own hands* (Ps 9:16); his *own tongue falls upon him,* Ps 64:8. *In the transgression of an evil man there is a snare.* 3. God is preparing for his destruction. The sinner by his sin is preparing the fuel and then God by his wrath is preparing the fire. See here, (1.) How the sinner is infatuated, to run himself into the snare; and whom God will destroy he infatuates. (2.) How he is embarrassed: *The steps of his strength,* his mighty designs and efforts, *shall be straitened,* so that he shall not compass what he intended; and the more he strives to extricate himself the more will he be entangled. Evil men wax worse and worse. (3.) How he is secured and kept from escaping the judgments of God that are in pursuit of him. *The gin shall take him by the heel.* He can no more escape the divine wrath that is in pursuit of him than a man, so held, can flee from the pursuer. God *knows how to reserve the wicked for the day of judgment,* 2Pe 2:9.
 
-> <sup>11</sup> Terrors shall make him afraid on every side, and shall drive him to his feet.  
-> <sup>12</sup> His strength shall be hungerbitten, and destruction *shall be* ready at his side.  
-> <sup>13</sup> It shall devour the strength of his skin: *even* the firstborn of death shall devour his strength.  
-> <sup>14</sup> His confidence shall be rooted out of his tabernacle, and it shall bring him to the king of terrors.  
-> <sup>15</sup> It shall dwell in his tabernacle, because *it is* none of his: brimstone shall be scattered upon his habitation.  
-> <sup>16</sup> His roots shall be dried up beneath, and above shall his branch be cut off.  
-> <sup>17</sup> His remembrance shall perish from the earth, and he shall have no name in the street.  
-> <sup>18</sup> He shall be driven from light into darkness, and chased out of the world.  
-> <sup>19</sup> He shall neither have son nor nephew among his people, nor any remaining in his dwellings.  
-> <sup>20</sup> They that come after *him* shall be astonied at his day, as they that went before were affrighted.  
-> <sup>21</sup> Surely such *are* the dwellings of the wicked, and this *is* the place *of him that* knoweth not God.  
+> **¹¹** Terrors shall make him afraid on every side, and shall drive him to his feet.  
+> **¹²** His strength shall be hungerbitten, and destruction *shall be* ready at his side.  
+> **¹³** It shall devour the strength of his skin: *even* the firstborn of death shall devour his strength.  
+> **¹⁴** His confidence shall be rooted out of his tabernacle, and it shall bring him to the king of terrors.  
+> **¹⁵** It shall dwell in his tabernacle, because *it is* none of his: brimstone shall be scattered upon his habitation.  
+> **¹⁶** His roots shall be dried up beneath, and above shall his branch be cut off.  
+> **¹⁷** His remembrance shall perish from the earth, and he shall have no name in the street.  
+> **¹⁸** He shall be driven from light into darkness, and chased out of the world.  
+> **¹⁹** He shall neither have son nor nephew among his people, nor any remaining in his dwellings.  
+> **²⁰** They that come after *him* shall be astonied at his day, as they that went before were affrighted.  
+> **²¹** Surely such *are* the dwellings of the wicked, and this *is* the place *of him that* knoweth not God.  
 
 Bildad here describes the destruction itself which wicked people are reserved for in the other world, and which, in some degree, often seizes them in this world. Come, and see what a miserable condition the sinner is in when his day comes to fall.
 

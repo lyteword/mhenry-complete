@@ -8,16 +8,16 @@ It is a very affecting story which is recorded in this chapter concerning the su
 
 ## The Repentance of Judas; The Confession of Judas; The Death of Judas; Disposal of the Thirty Pieces of Silver.
 
-> <sup>1</sup> When the morning was come, all the chief priests and elders of the people took counsel against Jesus to put him to death:  
-> <sup>2</sup> And when they had bound him, they led *him* away, and delivered him to Pontius Pilate the governor.  
-> <sup>3</sup> Then Judas, which had betrayed him, when he saw that he was condemned, repented himself, and brought again the thirty pieces of silver to the chief priests and elders,  
-> <sup>4</sup> Saying, I have sinned in that I have betrayed the innocent blood. And they said, What *is that* to us? see thou *to that.*  
-> <sup>5</sup> And he cast down the pieces of silver in the temple, and departed, and went and hanged himself.  
-> <sup>6</sup> And the chief priests took the silver pieces, and said, It is not lawful for to put them into the treasury, because it is the price of blood.  
-> <sup>7</sup> And they took counsel, and bought with them the potter's field, to bury strangers in.  
-> <sup>8</sup> Wherefore that field was called, The field of blood, unto this day.  
-> <sup>9</sup> Then was fulfilled that which was spoken by Jeremy the prophet, saying, And they took the thirty pieces of silver, the price of him that was valued, whom they of the children of Israel did value;  
-> <sup>10</sup> And gave them for the potter's field, as the Lord appointed me.  
+> **¹** When the morning was come, all the chief priests and elders of the people took counsel against Jesus to put him to death:  
+> **²** And when they had bound him, they led *him* away, and delivered him to Pontius Pilate the governor.  
+> **³** Then Judas, which had betrayed him, when he saw that he was condemned, repented himself, and brought again the thirty pieces of silver to the chief priests and elders,  
+> **⁴** Saying, I have sinned in that I have betrayed the innocent blood. And they said, What *is that* to us? see thou *to that.*  
+> **⁵** And he cast down the pieces of silver in the temple, and departed, and went and hanged himself.  
+> **⁶** And the chief priests took the silver pieces, and said, It is not lawful for to put them into the treasury, because it is the price of blood.  
+> **⁷** And they took counsel, and bought with them the potter's field, to bury strangers in.  
+> **⁸** Wherefore that field was called, The field of blood, unto this day.  
+> **⁹** Then was fulfilled that which was spoken by Jeremy the prophet, saying, And they took the thirty pieces of silver, the price of him that was valued, whom they of the children of Israel did value;  
+> **¹⁰** And gave them for the potter's field, as the Lord appointed me.  
 
 We left Christ in the hands of the chief priests and elders, condemned to die, but they could only show their teeth; about two years before this the Romans had taken from the Jews the power of capital punishment; they could put no man to death, and therefore early in the morning another council is held, to consider what is to be done. And here we are told what was done in that morning-council, after they had been for two or three hours consulting with their pillows.
 
@@ -77,21 +77,21 @@ The giving of the price of him that was valued, not for him, but for the *potter
 
 ## Christ at the Bar of Pilate.
 
-> <sup>11</sup> And Jesus stood before the governor: and the governor asked him, saying, Art thou the King of the Jews? And Jesus said unto him, Thou sayest.  
-> <sup>12</sup> And when he was accused of the chief priests and elders, he answered nothing.  
-> <sup>13</sup> Then said Pilate unto him, Hearest thou not how many things they witness against thee?  
-> <sup>14</sup> And he answered him to never a word; insomuch that the governor marvelled greatly.  
-> <sup>15</sup> Now at *that* feast the governor was wont to release unto the people a prisoner, whom they would.  
-> <sup>16</sup> And they had then a notable prisoner, called Barabbas.  
-> <sup>17</sup> Therefore when they were gathered together, Pilate said unto them, Whom will ye that I release unto you? Barabbas, or Jesus which is called Christ?  
-> <sup>18</sup> For he knew that for envy they had delivered him.  
-> <sup>19</sup> When he was set down on the judgment seat, his wife sent unto him, saying, Have thou nothing to do with that just man: for I have suffered many things this day in a dream because of him.  
-> <sup>20</sup> But the chief priests and elders persuaded the multitude that they should ask Barabbas, and destroy Jesus.  
-> <sup>21</sup> The governor answered and said unto them, Whether of the twain will ye that I release unto you? They said, Barabbas.  
-> <sup>22</sup> Pilate saith unto them, What shall I do then with Jesus which is called Christ? *They* all say unto him, Let him be crucified.  
-> <sup>23</sup> And the governor said, Why, what evil hath he done? But they cried out the more, saying, Let him be crucified.  
-> <sup>24</sup> When Pilate saw that he could prevail nothing, but *that* rather a tumult was made, he took water, and washed *his* hands before the multitude, saying, I am innocent of the blood of this just person: see ye *to it.*  
-> <sup>25</sup> Then answered all the people, and said, His blood *be* on us, and on our children.  
+> **¹¹** And Jesus stood before the governor: and the governor asked him, saying, Art thou the King of the Jews? And Jesus said unto him, Thou sayest.  
+> **¹²** And when he was accused of the chief priests and elders, he answered nothing.  
+> **¹³** Then said Pilate unto him, Hearest thou not how many things they witness against thee?  
+> **¹⁴** And he answered him to never a word; insomuch that the governor marvelled greatly.  
+> **¹⁵** Now at *that* feast the governor was wont to release unto the people a prisoner, whom they would.  
+> **¹⁶** And they had then a notable prisoner, called Barabbas.  
+> **¹⁷** Therefore when they were gathered together, Pilate said unto them, Whom will ye that I release unto you? Barabbas, or Jesus which is called Christ?  
+> **¹⁸** For he knew that for envy they had delivered him.  
+> **¹⁹** When he was set down on the judgment seat, his wife sent unto him, saying, Have thou nothing to do with that just man: for I have suffered many things this day in a dream because of him.  
+> **²⁰** But the chief priests and elders persuaded the multitude that they should ask Barabbas, and destroy Jesus.  
+> **²¹** The governor answered and said unto them, Whether of the twain will ye that I release unto you? They said, Barabbas.  
+> **²²** Pilate saith unto them, What shall I do then with Jesus which is called Christ? *They* all say unto him, Let him be crucified.  
+> **²³** And the governor said, Why, what evil hath he done? But they cried out the more, saying, Let him be crucified.  
+> **²⁴** When Pilate saw that he could prevail nothing, but *that* rather a tumult was made, he took water, and washed *his* hands before the multitude, saying, I am innocent of the blood of this just person: see ye *to it.*  
+> **²⁵** Then answered all the people, and said, His blood *be* on us, and on our children.  
 
 We have here an account of what passed in Pilate's judgment-hall, when the blessed Jesus was brought thither betimes in the morning. Though it was no court-day, Pilate immediately took his case before him. We have there,
 
@@ -169,13 +169,13 @@ Now Pilate endeavours to clear himself from the guilt,
 
 ## Christ Scourged and Derided; Christ Mocked by the Soldiers.
 
-> <sup>26</sup> Then released he Barabbas unto them: and when he had scourged Jesus, he delivered *him* to be crucified.  
-> <sup>27</sup> Then the soldiers of the governor took Jesus into the common hall, and gathered unto him the whole band *of soldiers.*  
-> <sup>28</sup> And they stripped him, and put on him a scarlet robe.  
-> <sup>29</sup> And when they had platted a crown of thorns, they put *it* upon his head, and a reed in his right hand: and they bowed the knee before him, and mocked him, saying, Hail, King of the Jews!  
-> <sup>30</sup> And they spit upon him, and took the reed, and smote him on the head.  
-> <sup>31</sup> And after that they had mocked him, they took the robe off from him, and put his own raiment on him, and led him away to crucify *him.*  
-> <sup>32</sup> And as they came out, they found a man of Cyrene, Simon by name: him they compelled to bear his cross.  
+> **²⁶** Then released he Barabbas unto them: and when he had scourged Jesus, he delivered *him* to be crucified.  
+> **²⁷** Then the soldiers of the governor took Jesus into the common hall, and gathered unto him the whole band *of soldiers.*  
+> **²⁸** And they stripped him, and put on him a scarlet robe.  
+> **²⁹** And when they had platted a crown of thorns, they put *it* upon his head, and a reed in his right hand: and they bowed the knee before him, and mocked him, saying, Hail, King of the Jews!  
+> **³⁰** And they spit upon him, and took the reed, and smote him on the head.  
+> **³¹** And after that they had mocked him, they took the robe off from him, and put his own raiment on him, and led him away to crucify *him.*  
+> **³²** And as they came out, they found a man of Cyrene, Simon by name: him they compelled to bear his cross.  
 
 In these verses we have the *preparatives* for, and *prefaces* to, the crucifixion of our Lord Jesus. Here is,
 
@@ -219,23 +219,23 @@ III\. The conveying of him to the place of execution. After they had mocked and 
 
 ## The Crucifixion.
 
-> <sup>33</sup> And when they were come unto a place called Golgotha, that is to say, a place of a skull,  
-> <sup>34</sup> They gave him vinegar to drink mingled with gall: and when he had tasted *thereof,* he would not drink.  
-> <sup>35</sup> And they crucified him, and parted his garments, casting lots: that it might be fulfilled which was spoken by the prophet, They parted my garments among them, and upon my vesture did they cast lots.  
-> <sup>36</sup> And sitting down they watched him there;  
-> <sup>37</sup> And set up over his head his accusation written, THIS IS JESUS THE KING OF THE JEWS.  
-> <sup>38</sup> Then were there two thieves crucified with him, one on the right hand, and another on the left.  
-> <sup>39</sup> And they that passed by reviled him, wagging their heads,  
-> <sup>40</sup> And saying, Thou that destroyest the temple, and buildest *it* in three days, save thyself. If thou be the Son of God, come down from the cross.  
-> <sup>41</sup> Likewise also the chief priests mocking *him,* with the scribes and elders, said,  
-> <sup>42</sup> He saved others; himself he cannot save. If he be the King of Israel, let him now come down from the cross, and we will believe him.  
-> <sup>43</sup> He trusted in God; let him deliver him now, if he will have him: for he said, I am the Son of God.  
-> <sup>44</sup> The thieves also, which were crucified with him, cast the same in his teeth.  
-> <sup>45</sup> Now from the sixth hour there was darkness over all the land unto the ninth hour.  
-> <sup>46</sup> And about the ninth hour Jesus cried with a loud voice, saying, Eli, Eli, lama sabachthani? that is to say, My God, my God, why hast thou forsaken me?  
-> <sup>47</sup> Some of them that stood there, when they heard *that,* said, This *man* calleth for Elias.  
-> <sup>48</sup> And straightway one of them ran, and took a sponge, and filled *it* with vinegar, and put *it* on a reed, and gave him to drink.  
-> <sup>49</sup> The rest said, Let be, let us see whether Elias will come to save him.  
+> **³³** And when they were come unto a place called Golgotha, that is to say, a place of a skull,  
+> **³⁴** They gave him vinegar to drink mingled with gall: and when he had tasted *thereof,* he would not drink.  
+> **³⁵** And they crucified him, and parted his garments, casting lots: that it might be fulfilled which was spoken by the prophet, They parted my garments among them, and upon my vesture did they cast lots.  
+> **³⁶** And sitting down they watched him there;  
+> **³⁷** And set up over his head his accusation written, THIS IS JESUS THE KING OF THE JEWS.  
+> **³⁸** Then were there two thieves crucified with him, one on the right hand, and another on the left.  
+> **³⁹** And they that passed by reviled him, wagging their heads,  
+> **⁴⁰** And saying, Thou that destroyest the temple, and buildest *it* in three days, save thyself. If thou be the Son of God, come down from the cross.  
+> **⁴¹** Likewise also the chief priests mocking *him,* with the scribes and elders, said,  
+> **⁴²** He saved others; himself he cannot save. If he be the King of Israel, let him now come down from the cross, and we will believe him.  
+> **⁴³** He trusted in God; let him deliver him now, if he will have him: for he said, I am the Son of God.  
+> **⁴⁴** The thieves also, which were crucified with him, cast the same in his teeth.  
+> **⁴⁵** Now from the sixth hour there was darkness over all the land unto the ninth hour.  
+> **⁴⁶** And about the ninth hour Jesus cried with a loud voice, saying, Eli, Eli, lama sabachthani? that is to say, My God, my God, why hast thou forsaken me?  
+> **⁴⁷** Some of them that stood there, when they heard *that,* said, This *man* calleth for Elias.  
+> **⁴⁸** And straightway one of them ran, and took a sponge, and filled *it* with vinegar, and put *it* on a reed, and gave him to drink.  
+> **⁴⁹** The rest said, Let be, let us see whether Elias will come to save him.  
 
 We have here the crucifixion of our Lord Jesus.
 
@@ -315,13 +315,13 @@ IV\. The cold comfort which his enemies ministered to him in this agony, which w
 
 ## The Crucifixion; The Death of Christ.
 
-> <sup>50</sup> Jesus, when he had cried again with a loud voice, yielded up the ghost.  
-> <sup>51</sup> And, behold, the veil of the temple was rent in twain from the top to the bottom; and the earth did quake, and the rocks rent;  
-> <sup>52</sup> And the graves were opened; and many bodies of the saints which slept arose,  
-> <sup>53</sup> And came out of the graves after his resurrection, and went into the holy city, and appeared unto many.  
-> <sup>54</sup> Now when the centurion, and they that were with him, watching Jesus, saw the earthquake, and those things that were done, they feared greatly, saying, Truly this was the Son of God.  
-> <sup>55</sup> And many women were there beholding afar off, which followed Jesus from Galilee, ministering unto him:  
-> <sup>56</sup> Among which was Mary Magdalene, and Mary the mother of James and Joses, and the mother of Zebedee's children.  
+> **⁵⁰** Jesus, when he had cried again with a loud voice, yielded up the ghost.  
+> **⁵¹** And, behold, the veil of the temple was rent in twain from the top to the bottom; and the earth did quake, and the rocks rent;  
+> **⁵²** And the graves were opened; and many bodies of the saints which slept arose,  
+> **⁵³** And came out of the graves after his resurrection, and went into the holy city, and appeared unto many.  
+> **⁵⁴** Now when the centurion, and they that were with him, watching Jesus, saw the earthquake, and those things that were done, they feared greatly, saying, Truly this was the Son of God.  
+> **⁵⁵** And many women were there beholding afar off, which followed Jesus from Galilee, ministering unto him:  
+> **⁵⁶** Among which was Mary Magdalene, and Mary the mother of James and Joses, and the mother of Zebedee's children.  
 
 We have here, at length, an account of the death of Christ, and several remarkable passages that attended it.
 
@@ -387,16 +387,16 @@ IV\. The attendance of his friends, that were witnesses of his death, Mt 27:55,5
 
 ## The Burial of Christ.
 
-> <sup>57</sup> When the even was come, there came a rich man of Arimathæa, named Joseph, who also himself was Jesus' disciple:  
-> <sup>58</sup> He went to Pilate, and begged the body of Jesus. Then Pilate commanded the body to be delivered.  
-> <sup>59</sup> And when Joseph had taken the body, he wrapped it in a clean linen cloth,  
-> <sup>60</sup> And laid it in his own new tomb, which he had hewn out in the rock: and he rolled a great stone to the door of the sepulchre, and departed.  
-> <sup>61</sup> And there was Mary Magdalene, and the other Mary, sitting over against the sepulchre.  
-> <sup>62</sup> Now the next day, that followed the day of the preparation, the chief priests and Pharisees came together unto Pilate,  
-> <sup>63</sup> Saying, Sir, we remember that that deceiver said, while he was yet alive, After three days I will rise again.  
-> <sup>64</sup> Command therefore that the sepulchre be made sure until the third day, lest his disciples come by night, and steal him away, and say unto the people, He is risen from the dead: so the last error shall be worse than the first.  
-> <sup>65</sup> Pilate said unto them, Ye have a watch: go your way, make *it* as sure as ye can.  
-> <sup>66</sup> So they went, and made the sepulchre sure, sealing the stone, and setting a watch.  
+> **⁵⁷** When the even was come, there came a rich man of Arimathæa, named Joseph, who also himself was Jesus' disciple:  
+> **⁵⁸** He went to Pilate, and begged the body of Jesus. Then Pilate commanded the body to be delivered.  
+> **⁵⁹** And when Joseph had taken the body, he wrapped it in a clean linen cloth,  
+> **⁶⁰** And laid it in his own new tomb, which he had hewn out in the rock: and he rolled a great stone to the door of the sepulchre, and departed.  
+> **⁶¹** And there was Mary Magdalene, and the other Mary, sitting over against the sepulchre.  
+> **⁶²** Now the next day, that followed the day of the preparation, the chief priests and Pharisees came together unto Pilate,  
+> **⁶³** Saying, Sir, we remember that that deceiver said, while he was yet alive, After three days I will rise again.  
+> **⁶⁴** Command therefore that the sepulchre be made sure until the third day, lest his disciples come by night, and steal him away, and say unto the people, He is risen from the dead: so the last error shall be worse than the first.  
+> **⁶⁵** Pilate said unto them, Ye have a watch: go your way, make *it* as sure as ye can.  
+> **⁶⁶** So they went, and made the sepulchre sure, sealing the stone, and setting a watch.  
 
 We have here an account of Christ's *burial,* and the manner and circumstances of it, concerning which observe, 1. The *kindness* and *good will* of his friends that *laid him in the grave.* 2. The *malice* and *ill will* of his enemies that were very solicitous to keep him there.
 

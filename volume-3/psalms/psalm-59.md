@@ -10,13 +10,13 @@ This psalm is of the same nature and scope with six or seven foregoing psalms; t
 
 To the chief musician, Al-taschith, Michtam of David, when Saul sent and they watched the house to kill him.
 
-> <sup>1</sup> Deliver me from mine enemies, O my God: defend me from them that rise up against me.  
-> <sup>2</sup> Deliver me from the workers of iniquity, and save me from bloody men.  
-> <sup>3</sup> For, lo, they lie in wait for my soul: the mighty are gathered against me; not *for* my transgression, nor *for* my sin, O LORD.  
-> <sup>4</sup> They run and prepare themselves without *my* fault: awake to help me, and behold.  
-> <sup>5</sup> Thou therefore, O LORD God of hosts, the God of Israel, awake to visit all the heathen: be not merciful to any wicked transgressors. Selah.  
-> <sup>6</sup> They return at evening: they make a noise like a dog, and go round about the city.  
-> <sup>7</sup> Behold, they belch out with their mouth: swords *are* in their lips: for who, *say they,* doth hear?  
+> **¹** Deliver me from mine enemies, O my God: defend me from them that rise up against me.  
+> **²** Deliver me from the workers of iniquity, and save me from bloody men.  
+> **³** For, lo, they lie in wait for my soul: the mighty are gathered against me; not *for* my transgression, nor *for* my sin, O LORD.  
+> **⁴** They run and prepare themselves without *my* fault: awake to help me, and behold.  
+> **⁵** Thou therefore, O LORD God of hosts, the God of Israel, awake to visit all the heathen: be not merciful to any wicked transgressors. Selah.  
+> **⁶** They return at evening: they make a noise like a dog, and go round about the city.  
+> **⁷** Behold, they belch out with their mouth: swords *are* in their lips: for who, *say they,* doth hear?  
 
 The title of this psalm acquaints us particularly with the occasion on which it was penned; it was when Saul sent a party of his guards to beset David's house in the night, that they might seize him and kill him; we have the story 1Sa 19:11. It was when his hostilities against David were newly begun, and he had but just before narrowly escaped Saul's javelin. These first eruptions of Saul's malice could not but put David into disorder and be both grievous and terrifying, and yet he kept up his communion with God, and such a composure of mind as that he was never out of frame for prayer and praises; happy are those whose intercourse with heaven is not intercepted nor broken in upon by their cares, or griefs, or fears, or any of the hurries (whether outward or inward) of an afflicted state. In these verses,
 
@@ -36,16 +36,16 @@ III\. He refers himself and his cause to the just judgment of God, Ps 59:5. "The
 
 ## Confidence in God.
 
-> <sup>8</sup> But thou, O LORD, shalt laugh at them; thou shalt have all the heathen in derision.  
-> <sup>9</sup> *Because of* his strength will I wait upon thee: for God *is* my defence.  
-> <sup>10</sup> The God of my mercy shall prevent me: God shall let me see *my desire* upon mine enemies.  
-> <sup>11</sup> Slay them not, lest my people forget: scatter them by thy power; and bring them down, O Lord our shield.  
-> <sup>12</sup> *For* the sin of their mouth *and* the words of their lips let them even be taken in their pride: and for cursing and lying *which* they speak.  
-> <sup>13</sup> Consume *them* in wrath, consume *them,* that they *may* not *be:* and let them know that God ruleth in Jacob unto the ends of the earth. Selah.  
-> <sup>14</sup> And at evening let them return; *and* let them make a noise like a dog, and go round about the city.  
-> <sup>15</sup> Let them wander up and down for meat, and grudge if they be not satisfied.  
-> <sup>16</sup> But I will sing of thy power; yea, I will sing aloud of thy mercy in the morning: for thou hast been my defence and refuge in the day of my trouble.  
-> <sup>17</sup> Unto thee, O my strength, will I sing: for God *is* my defence, *and* the God of my mercy.  
+> **⁸** But thou, O LORD, shalt laugh at them; thou shalt have all the heathen in derision.  
+> **⁹** *Because of* his strength will I wait upon thee: for God *is* my defence.  
+> **¹⁰** The God of my mercy shall prevent me: God shall let me see *my desire* upon mine enemies.  
+> **¹¹** Slay them not, lest my people forget: scatter them by thy power; and bring them down, O Lord our shield.  
+> **¹²** *For* the sin of their mouth *and* the words of their lips let them even be taken in their pride: and for cursing and lying *which* they speak.  
+> **¹³** Consume *them* in wrath, consume *them,* that they *may* not *be:* and let them know that God ruleth in Jacob unto the ends of the earth. Selah.  
+> **¹⁴** And at evening let them return; *and* let them make a noise like a dog, and go round about the city.  
+> **¹⁵** Let them wander up and down for meat, and grudge if they be not satisfied.  
+> **¹⁶** But I will sing of thy power; yea, I will sing aloud of thy mercy in the morning: for thou hast been my defence and refuge in the day of my trouble.  
+> **¹⁷** Unto thee, O my strength, will I sing: for God *is* my defence, *and* the God of my mercy.  
 
 David here encourages himself, in reference to the threatening power of his enemies, with a pious resolution to wait upon God and a believing expectation that he should yet praise him.
 

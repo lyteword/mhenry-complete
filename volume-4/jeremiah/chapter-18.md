@@ -8,16 +8,16 @@ In this chapter we have, I. A general declaration of God's ways in dealing with 
 
 ## The Sovereign Prerogative of God; Divine Goodness and Equity. (b. c. 600.)
 
-> <sup>1</sup> The word which came to Jeremiah from the LORD, saying,  
-> <sup>2</sup> Arise, and go down to the potter's house, and there I will cause thee to hear my words.  
-> <sup>3</sup> Then I went down to the potter's house, and, behold, he wrought a work on the wheels.  
-> <sup>4</sup> And the vessel that he made of clay was marred in the hand of the potter: so he made it again another vessel, as seemed good to the potter to make *it.*  
-> <sup>5</sup> Then the word of the LORD came to me, saying,  
-> <sup>6</sup> O house of Israel, cannot I do with you as this potter? saith the LORD. Behold, as the clay *is* in the potter's hand, so *are* ye in mine hand, O house of Israel.  
-> <sup>7</sup> *At what* instant I shall speak concerning a nation, and concerning a kingdom, to pluck up, and to pull down, and to destroy *it;*  
-> <sup>8</sup> If that nation, against whom I have pronounced, turn from their evil, I will repent of the evil that I thought to do unto them.  
-> <sup>9</sup> And *at what* instant I shall speak concerning a nation, and concerning a kingdom, to build and to plant *it;*  
-> <sup>10</sup> If it do evil in my sight, that it obey not my voice, then I will repent of the good, wherewith I said I would benefit them.  
+> **¹** The word which came to Jeremiah from the LORD, saying,  
+> **²** Arise, and go down to the potter's house, and there I will cause thee to hear my words.  
+> **³** Then I went down to the potter's house, and, behold, he wrought a work on the wheels.  
+> **⁴** And the vessel that he made of clay was marred in the hand of the potter: so he made it again another vessel, as seemed good to the potter to make *it.*  
+> **⁵** Then the word of the LORD came to me, saying,  
+> **⁶** O house of Israel, cannot I do with you as this potter? saith the LORD. Behold, as the clay *is* in the potter's hand, so *are* ye in mine hand, O house of Israel.  
+> **⁷** *At what* instant I shall speak concerning a nation, and concerning a kingdom, to pluck up, and to pull down, and to destroy *it;*  
+> **⁸** If that nation, against whom I have pronounced, turn from their evil, I will repent of the evil that I thought to do unto them.  
+> **⁹** And *at what* instant I shall speak concerning a nation, and concerning a kingdom, to build and to plant *it;*  
+> **¹⁰** If it do evil in my sight, that it obey not my voice, then I will repent of the good, wherewith I said I would benefit them.  
 
 The prophet is here sent to *the potter's house* (he knew where to find it), not to preach a sermon as before to the gates of Jerusalem, but to prepare a sermon, or rather to receive it ready prepared. Those needed not to study their sermons that had them, as he had this, by immediate inspiration. "*Go to the potter's house,* and observe how he manages his work, and there *I will cause thee,* by silent whispers, *to hear my words.* There thou shalt receive a message, to be delivered to the people." Note, Those that would know God's mind must observe his appointments, and attend where they may hear his words. The prophet was never *disobedient to the heavenly vision,* and therefore went to the potter's house (Jer 18:3) and took notice how he *wrought his work upon the wheels,* just as he pleased, with a great deal of ease, and in a little time. And (Jer 18:4) when a lump of clay that he designed to form into one shape either proved too stiff, or had a stone in it, or some way or other came to be *marred in his hand,* he presently turned it into another shape; if it will not serve for a vessel of honour, it will serve for a vessel of dishonour, just *as seems good to the potter.* It is probable that Jeremiah knew well enough how the potter wrought his work, and how easily he threw it into what form he pleased; but he must go and observe it *now,* that, having the idea of it fresh in his mind, he might the more readily and distinctly apprehend that truth which God designed thereby to represent to him, and might the more intelligently explain it to the people. God *used similitudes by his servants the prophets* (Ho 12:10), and it was requisite that they should themselves understand the similitudes they used. Ministers will make a good use of their converse with the business and affairs of this life if they learn thereby to speak more plainly and familiarly to people about the things of God, and to expound scripture comparisons. For they ought to make all their knowledge some way or other serviceable to their profession.
 
@@ -29,13 +29,13 @@ II\. That, in the exercise of this authority and ability, he always goes by fixe
 
 ## People of God Accused and Threatened; Folly of Idolatry. (b. c. 600.)
 
-> <sup>11</sup> Now therefore go to, speak to the men of Judah, and to the inhabitants of Jerusalem, saying, Thus saith the LORD; Behold, I frame evil against you, and devise a device against you: return ye now every one from his evil way, and make your ways and your doings good.  
-> <sup>12</sup> And they said, There is no hope: but we will walk after our own devices, and we will every one do the imagination of his evil heart.  
-> <sup>13</sup> Therefore thus saith the LORD; Ask ye now among the heathen, who hath heard such things: the virgin of Israel hath done a very horrible thing.  
-> <sup>14</sup> Will *a man* leave the snow of Lebanon *which cometh* from the rock of the field? *or* shall the cold flowing waters that come from another place be forsaken?  
-> <sup>15</sup> Because my people hath forgotten me, they have burned incense to vanity, and they have caused them to stumble in their ways *from* the ancient paths, to walk in paths, *in* a way not cast up;  
-> <sup>16</sup> To make their land desolate, *and* a perpetual hissing; every one that passeth thereby shall be astonished, and wag his head.  
-> <sup>17</sup> I will scatter them as with an east wind before the enemy; I will shew them the back, and not the face, in the day of their calamity.  
+> **¹¹** Now therefore go to, speak to the men of Judah, and to the inhabitants of Jerusalem, saying, Thus saith the LORD; Behold, I frame evil against you, and devise a device against you: return ye now every one from his evil way, and make your ways and your doings good.  
+> **¹²** And they said, There is no hope: but we will walk after our own devices, and we will every one do the imagination of his evil heart.  
+> **¹³** Therefore thus saith the LORD; Ask ye now among the heathen, who hath heard such things: the virgin of Israel hath done a very horrible thing.  
+> **¹⁴** Will *a man* leave the snow of Lebanon *which cometh* from the rock of the field? *or* shall the cold flowing waters that come from another place be forsaken?  
+> **¹⁵** Because my people hath forgotten me, they have burned incense to vanity, and they have caused them to stumble in their ways *from* the ancient paths, to walk in paths, *in* a way not cast up;  
+> **¹⁶** To make their land desolate, *and* a perpetual hissing; every one that passeth thereby shall be astonished, and wag his head.  
+> **¹⁷** I will scatter them as with an east wind before the enemy; I will shew them the back, and not the face, in the day of their calamity.  
 
 These verses seem to be the application of the general truths laid down in the foregoing part of the chapter to the nation of the Jews and their present state.
 
@@ -55,12 +55,12 @@ V\. He shows their folly in two things:—
 
 ## Conduct of Persecutors; Prophetic Imprecations. (b. c. 600.)
 
-> <sup>18</sup> Then said they, Come, and let us devise devices against Jeremiah; for the law shall not perish from the priest, nor counsel from the wise, nor the word from the prophet. Come, and let us smite him with the tongue, and let us not give heed to any of his words.  
-> <sup>19</sup> Give heed to me, O LORD, and hearken to the voice of them that contend with me.  
-> <sup>20</sup> Shall evil be recompensed for good? for they have digged a pit for my soul. Remember that I stood before thee to speak good for them, *and* to turn away thy wrath from them.  
-> <sup>21</sup> Therefore deliver up their children to the famine, and pour out their *blood* by the force of the sword; and let their wives be bereaved of their children, and *be* widows; and let their men be put to death; *let* their young men *be* slain by the sword in battle.  
-> <sup>22</sup> Let a cry be heard from their houses, when thou shalt bring a troop suddenly upon them: for they have digged a pit to take me, and hid snares for my feet.  
-> <sup>23</sup> Yet, LORD, thou knowest all their counsel against me to slay *me:* forgive not their iniquity, neither blot out their sin from thy sight, but let them be overthrown before thee; deal *thus* with them in the time of thine anger.  
+> **¹⁸** Then said they, Come, and let us devise devices against Jeremiah; for the law shall not perish from the priest, nor counsel from the wise, nor the word from the prophet. Come, and let us smite him with the tongue, and let us not give heed to any of his words.  
+> **¹⁹** Give heed to me, O LORD, and hearken to the voice of them that contend with me.  
+> **²⁰** Shall evil be recompensed for good? for they have digged a pit for my soul. Remember that I stood before thee to speak good for them, *and* to turn away thy wrath from them.  
+> **²¹** Therefore deliver up their children to the famine, and pour out their *blood* by the force of the sword; and let their wives be bereaved of their children, and *be* widows; and let their men be put to death; *let* their young men *be* slain by the sword in battle.  
+> **²²** Let a cry be heard from their houses, when thou shalt bring a troop suddenly upon them: for they have digged a pit to take me, and hid snares for my feet.  
+> **²³** Yet, LORD, thou knowest all their counsel against me to slay *me:* forgive not their iniquity, neither blot out their sin from thy sight, but let them be overthrown before thee; deal *thus* with them in the time of thine anger.  
 
 The prophet here, as sometimes before, brings in his own affairs, but very much for instruction to us.
 

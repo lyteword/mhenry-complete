@@ -8,18 +8,18 @@ In this chapter we have Balak and Balaam busy at work to do Israel a mischief, a
 
 ## Balaam Constrained to Bless Israel; The Blessing Pronounced on Israel. (b. c. 1452.)
 
-> <sup>1</sup> And Balaam said unto Balak, Build me here seven altars, and prepare me here seven oxen and seven rams.  
-> <sup>2</sup> And Balak did as Balaam had spoken; and Balak and Balaam offered on *every* altar a bullock and a ram.  
-> <sup>3</sup> And Balaam said unto Balak, Stand by thy burnt offering, and I will go: peradventure the LORD will come to meet me: and whatsoever he showeth me I will tell thee. And he went to an high place.  
-> <sup>4</sup> And God met Balaam: and he said unto him, I have prepared seven altars, and I have offered upon *every* altar a bullock and a ram.  
-> <sup>5</sup> And the LORD put a word in Balaam's mouth, and said, Return unto Balak, and thus thou shalt speak.  
-> <sup>6</sup> And he returned unto him, and, lo, he stood by his burnt sacrifice, he, and all the princes of Moab.  
-> <sup>7</sup> And he took up his parable, and said, Balak the king of Moab hath brought me from Aram, out of the mountains of the east, *saying,* Come, curse me Jacob, and come, defy Israel.  
-> <sup>8</sup> How shall I curse, whom God hath not cursed? or how shall I defy, *whom* the LORD hath not defied?  
-> <sup>9</sup> For from the top of the rocks I see him, and from the hills I behold him: lo, the people shall dwell alone, and shall not be reckoned among the nations.  
-> <sup>10</sup> Who can count the dust of Jacob, and the number of the fourth *part* of Israel? Let me die the death of the righteous, and let my last end be like his!  
-> <sup>11</sup> And Balak said unto Balaam, What hast thou done unto me? I took thee to curse mine enemies, and, behold, thou hast blessed *them* altogether.  
-> <sup>12</sup> And he answered and said, Must I not take heed to speak that which the LORD hath put in my mouth?  
+> **¹** And Balaam said unto Balak, Build me here seven altars, and prepare me here seven oxen and seven rams.  
+> **²** And Balak did as Balaam had spoken; and Balak and Balaam offered on *every* altar a bullock and a ram.  
+> **³** And Balaam said unto Balak, Stand by thy burnt offering, and I will go: peradventure the LORD will come to meet me: and whatsoever he showeth me I will tell thee. And he went to an high place.  
+> **⁴** And God met Balaam: and he said unto him, I have prepared seven altars, and I have offered upon *every* altar a bullock and a ram.  
+> **⁵** And the LORD put a word in Balaam's mouth, and said, Return unto Balak, and thus thou shalt speak.  
+> **⁶** And he returned unto him, and, lo, he stood by his burnt sacrifice, he, and all the princes of Moab.  
+> **⁷** And he took up his parable, and said, Balak the king of Moab hath brought me from Aram, out of the mountains of the east, *saying,* Come, curse me Jacob, and come, defy Israel.  
+> **⁸** How shall I curse, whom God hath not cursed? or how shall I defy, *whom* the LORD hath not defied?  
+> **⁹** For from the top of the rocks I see him, and from the hills I behold him: lo, the people shall dwell alone, and shall not be reckoned among the nations.  
+> **¹⁰** Who can count the dust of Jacob, and the number of the fourth *part* of Israel? Let me die the death of the righteous, and let my last end be like his!  
+> **¹¹** And Balak said unto Balaam, What hast thou done unto me? I took thee to curse mine enemies, and, behold, thou hast blessed *them* altogether.  
+> **¹²** And he answered and said, Must I not take heed to speak that which the LORD hath put in my mouth?  
 
 Here is, I. Great preparation made for the cursing of Israel. That which was aimed at was to engage the God of Israel to forsake them, and either to be on Moab's side or to stand neuter. O the sottishness of superstition, to imagine that God will be at men's beck! Balaam and Balak think to bribe him with altars and sacrifices, offered without any warrant or institution of his: as if he would *eat the flesh of bulls or drink the blood of goats.* Ridiculous nonsense, to think that these would please God, and gain his favour, when there could be in them no exercise either of faith or obedience! Yet, it should seem, they offered these sacrifices to the God of heaven the supreme *Numen—Divinity,* and not to any of their local deities. But the multiplying of altars was an instance of their degeneracy from the religion of their ancestors, and their apostasy to idolatry; for those that multiplied altars multiplied gods. *Ephraim made many altars to sin,* Ho 8:11. *Thus they liked not to retain God in their knowledge, but became vain in their imaginations;* and yet presumptuously expected hereby to gain God over to them from Israel, who had his sanctuary among them, and his anointed altar. Observe here, 1. How very imperious Balaam was, proud to have the command of a king and to give law to princes. Such is the spirit of that wicked one who exalts himself above all that is called God, or that is worshipped. With what authority does Balaam give orders! *Build me here* (in the place I have pitched upon) *seven altars,* of stone or turf. Thus he covers his malice against Israel with a show of devotion, but his sacrifice was an abomination, being brought with such a *wicked mind,* Pr 21:27. That which he aimed at was not to honour God with the sacrifices of righteousness, but to enrich himself with the wages of unrighteousness. 2. How very obsequious Balak was. The altars were presently built, and the sacrifices prepared, the best of the sort, *seven bullocks and seven rams.* Balak makes no objection to the charge, nor does he snuff at it, or think it either a weariness or a disparagement to *stand by his burnt-offering* as Balaam ordered him.
 
@@ -43,24 +43,24 @@ III\. We are told, 1. How Balak fretted at it, Nu 23:11. He pretended to honour 
 
 ## Balaam Again Blesses Israel. (b. c. 1452.)
 
-> <sup>13</sup> And Balak said unto him, Come, I pray thee, with me unto another place, from whence thou mayest see them: thou shalt see but the utmost part of them, and shalt not see them all: and curse me them from thence.  
-> <sup>14</sup> And he brought him into the field of Zophim, to the top of Pisgah, and built seven altars, and offered a bullock and a ram on *every* altar.  
-> <sup>15</sup> And he said unto Balak, Stand here by thy burnt offering, while I meet *the LORD* yonder.  
-> <sup>16</sup> And the LORD met Balaam, and put a word in his mouth, and said, Go again unto Balak, and say thus.  
-> <sup>17</sup> And when he came to him, behold, he stood by his burnt offering, and the princes of Moab with him. And Balak said unto him, What hath the LORD spoken?  
-> <sup>18</sup> And he took up his parable, and said, Rise up, Balak, and hear; hearken unto me, thou son of Zippor:  
-> <sup>19</sup> God *is* not a man, that he should lie; neither the son of man, that he should repent: hath he said, and shall he not do *it?* or hath he spoken, and shall he not make it good?  
-> <sup>20</sup> Behold, I have received *commandment* to bless: and he hath blessed; and I cannot reverse it.  
-> <sup>21</sup> He hath not beheld iniquity in Jacob, neither hath he seen perverseness in Israel: the LORD his God *is* with him, and the shout of a king *is* among them.  
-> <sup>22</sup> God brought them out of Egypt; he hath as it were the strength of an unicorn.  
-> <sup>23</sup> Surely *there is* no enchantment against Jacob, neither *is there* any divination against Israel: according to this time it shall be said of Jacob and of Israel, What hath God wrought!  
-> <sup>24</sup> Behold, the people shall rise up as a great lion, and lift up himself as a young lion: he shall not lie down until he eat *of* the prey, and drink the blood of the slain.  
-> <sup>25</sup> And Balak said unto Balaam, Neither curse them at all, nor bless them at all.  
-> <sup>26</sup> But Balaam answered and said unto Balak, Told not I thee, saying, All that the LORD speaketh, that I must do?  
-> <sup>27</sup> And Balak said unto Balaam, Come, I pray thee, I will bring thee unto another place; peradventure it will please God that thou mayest curse me them from thence.  
-> <sup>28</sup> And Balak brought Balaam unto the top of Peor, that looketh toward Jeshimon.  
-> <sup>29</sup> And Balaam said unto Balak, Build me here seven altars, and prepare me here seven bullocks and seven rams.  
-> <sup>30</sup> And Balak did as Balaam had said, and offered a bullock and a ram on *every* altar.  
+> **¹³** And Balak said unto him, Come, I pray thee, with me unto another place, from whence thou mayest see them: thou shalt see but the utmost part of them, and shalt not see them all: and curse me them from thence.  
+> **¹⁴** And he brought him into the field of Zophim, to the top of Pisgah, and built seven altars, and offered a bullock and a ram on *every* altar.  
+> **¹⁵** And he said unto Balak, Stand here by thy burnt offering, while I meet *the LORD* yonder.  
+> **¹⁶** And the LORD met Balaam, and put a word in his mouth, and said, Go again unto Balak, and say thus.  
+> **¹⁷** And when he came to him, behold, he stood by his burnt offering, and the princes of Moab with him. And Balak said unto him, What hath the LORD spoken?  
+> **¹⁸** And he took up his parable, and said, Rise up, Balak, and hear; hearken unto me, thou son of Zippor:  
+> **¹⁹** God *is* not a man, that he should lie; neither the son of man, that he should repent: hath he said, and shall he not do *it?* or hath he spoken, and shall he not make it good?  
+> **²⁰** Behold, I have received *commandment* to bless: and he hath blessed; and I cannot reverse it.  
+> **²¹** He hath not beheld iniquity in Jacob, neither hath he seen perverseness in Israel: the LORD his God *is* with him, and the shout of a king *is* among them.  
+> **²²** God brought them out of Egypt; he hath as it were the strength of an unicorn.  
+> **²³** Surely *there is* no enchantment against Jacob, neither *is there* any divination against Israel: according to this time it shall be said of Jacob and of Israel, What hath God wrought!  
+> **²⁴** Behold, the people shall rise up as a great lion, and lift up himself as a young lion: he shall not lie down until he eat *of* the prey, and drink the blood of the slain.  
+> **²⁵** And Balak said unto Balaam, Neither curse them at all, nor bless them at all.  
+> **²⁶** But Balaam answered and said unto Balak, Told not I thee, saying, All that the LORD speaketh, that I must do?  
+> **²⁷** And Balak said unto Balaam, Come, I pray thee, I will bring thee unto another place; peradventure it will please God that thou mayest curse me them from thence.  
+> **²⁸** And Balak brought Balaam unto the top of Peor, that looketh toward Jeshimon.  
+> **²⁹** And Balaam said unto Balak, Build me here seven altars, and prepare me here seven bullocks and seven rams.  
+> **³⁰** And Balak did as Balaam had said, and offered a bullock and a ram on *every* altar.  
 
 Here is, I. Preparation made the second time, as before, for the cursing of Israel. 1. The place is changed, Nu 23:13. Balak fancied that Balaam, having so full a prospect of the whole camp of Israel, *from the top of the rocks* (Nu 23:9), was either so enamoured with the beauty of it that he would not curse them or so affrighted with the terror of it that he durst not; and therefore he would bring him to another place, form which he might see only some part of them, which would appear more despicable, and that part at least which would lie in view he hoped he might obtain leave to curse, and so by degrees he should get ground against them, intending, no doubt, if he had gained this point, to make his attack on that part of the camp of Israel which Balaam now had in his eye, and into which he was to throw the fireballs of his curses. See how restless and unwearied the church's enemies are in their malicious attempts to ruin it; they leave no stone unturned, no project untried, to compass it. O that we were as full of contrivance and resolution in prosecuting good designs for the glory of God! 2. The sacrifices are repeated, new altars are built, a bullock and a ram offered on every altar, and Balak attends his sacrifice as closely as ever, Nu 23:14,15. Were we thus earnest to obtain the blessing as Balak was to procure a curse (designedly upon Israel, but really upon himself and his people), we should not grudge the return both of the charge and of the labour of religious exercises. 3. Balaam renews his attendance on God, and God meets him the second time, and puts another word into his mouth, not to reverse the former, but to ratify it, Nu 23:16,17. If God said not to Balaam, *Seek in vain,* much less will he say so to *any of the seed of Jacob,* who shall surely find him, not only as Balaam, their instructor and oracle, but their bountiful rewarder. When Balaam returned Balak was impatient to know what message he had: "*What hath the Lord spoken?* Are there any better tidings yet, any hopes of speeding?" This should be our enquiry when we come to hear the word of God. See Jer 23:35.
 

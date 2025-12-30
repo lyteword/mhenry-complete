@@ -8,7 +8,7 @@ After the inscription and salutation (Jam 1:1) Christians are taught how to cond
 
 ## Inscription. (a. d. 61.)
 
-> <sup>1</sup> James, a servant of God and of the Lord Jesus Christ, to the twelve tribes which are scattered abroad, greeting.  
+> **¹** James, a servant of God and of the Lord Jesus Christ, to the twelve tribes which are scattered abroad, greeting.  
 
 We have here the inscription of this epistle, which consists of three principal parts.
 
@@ -20,17 +20,17 @@ III\. James here shows the respect he had even for the dispersed: *greeting,* sa
 
 ## Necessity of Faith and Patience; Evil of Indecision. (a. d. 61.)
 
-> <sup>2</sup> My brethren, count it all joy when ye fall into divers temptations;  
-> <sup>3</sup> Knowing *this,* that the trying of your faith worketh patience.  
-> <sup>4</sup> But let patience have *her* perfect work, that ye may be perfect and entire, wanting nothing.  
-> <sup>5</sup> If any of you lack wisdom, let him ask of God, that giveth to all *men* liberally, and upbraideth not; and it shall be given him.  
-> <sup>6</sup> But let him ask in faith, nothing wavering. For he that wavereth is like a wave of the sea driven with the wind and tossed.  
-> <sup>7</sup> For let not that man think that he shall receive any thing of the Lord.  
-> <sup>8</sup> A double minded man *is* unstable in all his ways.  
-> <sup>9</sup> Let the brother of low degree rejoice in that he is exalted:  
-> <sup>10</sup> But the rich, in that he is made low: because as the flower of the grass he shall pass away.  
-> <sup>11</sup> For the sun is no sooner risen with a burning heat, but it withereth the grass, and the flower thereof falleth, and the grace of the fashion of it perisheth: so also shall the rich man fade away in his ways.  
-> <sup>12</sup> Blessed *is* the man that endureth temptation: for when he is tried, he shall receive the crown of life, which the Lord hath promised to them that love him.  
+> **²** My brethren, count it all joy when ye fall into divers temptations;  
+> **³** Knowing *this,* that the trying of your faith worketh patience.  
+> **⁴** But let patience have *her* perfect work, that ye may be perfect and entire, wanting nothing.  
+> **⁵** If any of you lack wisdom, let him ask of God, that giveth to all *men* liberally, and upbraideth not; and it shall be given him.  
+> **⁶** But let him ask in faith, nothing wavering. For he that wavereth is like a wave of the sea driven with the wind and tossed.  
+> **⁷** For let not that man think that he shall receive any thing of the Lord.  
+> **⁸** A double minded man *is* unstable in all his ways.  
+> **⁹** Let the brother of low degree rejoice in that he is exalted:  
+> **¹⁰** But the rich, in that he is made low: because as the flower of the grass he shall pass away.  
+> **¹¹** For the sun is no sooner risen with a burning heat, but it withereth the grass, and the flower thereof falleth, and the grace of the fashion of it perisheth: so also shall the rich man fade away in his ways.  
+> **¹²** Blessed *is* the man that endureth temptation: for when he is tried, he shall receive the crown of life, which the Lord hath promised to them that love him.  
 
 We now come to consider the matter of this epistle. In this paragraph we have the following things to be observed:—
 
@@ -54,12 +54,12 @@ IV\. A blessing is pronounced on those who endure their exercises and trials, as
 
 ## Procedure and Results of Sin. (a. d. 61.)
 
-> <sup>13</sup> Let no man say when he is tempted, I am tempted of God: for God cannot be tempted with evil, neither tempteth he any man:  
-> <sup>14</sup> But every man is tempted, when he is drawn away of his own lust, and enticed.  
-> <sup>15</sup> Then when lust hath conceived, it bringeth forth sin: and sin, when it is finished, bringeth forth death.  
-> <sup>16</sup> Do not err, my beloved brethren.  
-> <sup>17</sup> Every good gift and every perfect gift is from above, and cometh down from the Father of lights, with whom is no variableness, neither shadow of turning.  
-> <sup>18</sup> Of his own will begat he us with the word of truth, that we should be a kind of firstfruits of his creatures.  
+> **¹³** Let no man say when he is tempted, I am tempted of God: for God cannot be tempted with evil, neither tempteth he any man:  
+> **¹⁴** But every man is tempted, when he is drawn away of his own lust, and enticed.  
+> **¹⁵** Then when lust hath conceived, it bringeth forth sin: and sin, when it is finished, bringeth forth death.  
+> **¹⁶** Do not err, my beloved brethren.  
+> **¹⁷** Every good gift and every perfect gift is from above, and cometh down from the Father of lights, with whom is no variableness, neither shadow of turning.  
+> **¹⁸** Of his own will begat he us with the word of truth, that we should be a kind of firstfruits of his creatures.  
 
 I\. We are here taught that God is not the author of any man's sin. Whoever they are who raise persecutions against men, and whatever injustice and sin they may be guilty of in proceeding against them, God is not to be charged with it. And, whatever sins good men may themselves be provoked to by their exercises and afflictions, God is not the cause of them. It seems to be here supposed that some professors might fall in the hour of temptation, that the rod resting upon them might carry some into ill courses, and make them put forth their hands unto iniquity. But though this should be the case, and though such delinquents should attempt to lay their fault on God, yet the blame of their misconduct must lie entirely upon themselves. For, 1. There is nothing in the nature of God that they can lay the blame upon: *Let no man say, when he is tempted* to take any evil course, or do any evil thing, *I am tempted of God; for God cannot be tempted with evil.* All moral evil is owing to some disorder in the being that is chargeable with it, to a want of wisdom, or of power, or of decorum and purity in the will. But who can impeach the holy God with the want of these, which are his very essence? No exigence of affairs can ever tempt him to dishonour or deny himself, and therefore he cannot be tempted with evil. 2. There is nothing in the providential dispensations of God that the blame of any man's sin can be laid upon (Jam 1:13): *Neither tempteth he any man.* As God cannot be tempted with evil himself, so neither can he be a tempter of others. He cannot be a promoter of what is repugnant to his nature. The carnal mind is willing to charge its own sins on God. There is something hereditary in this. Our first father Adam tells God, *The woman thou gavest me* tempted me, thereby, in effect, throwing the blame upon God, for giving him the tempter. Let no man speak thus. It is very bad to sin; but is much worse, when we have done amiss, to charge it upon God, and say it was owing to him. Those who lay the blame of their sins either upon their constitution or upon their condition in the world, or who pretend they are under a fatal necessity of sinning, wrong God, as if he were the author of sin. Afflictions, as sent by God, are designed to draw out our graces, but not our corruptions.
 
@@ -69,15 +69,15 @@ III\. We are taught yet further that, while we are the authors and procurers of 
 
 ## On Suppressing Corrupt Affections; The Duty of Hearers; Practical Religion. (a. d. 61.)
 
-> <sup>19</sup> Wherefore, my beloved brethren, let every man be swift to hear, slow to speak, slow to wrath:  
-> <sup>20</sup> For the wrath of man worketh not the righteousness of God.  
-> <sup>21</sup> Wherefore lay apart all filthiness and superfluity of naughtiness, and receive with meekness the engrafted word, which is able to save your souls.  
-> <sup>22</sup> But be ye doers of the word, and not hearers only, deceiving your own selves.  
-> <sup>23</sup> For if any be a hearer of the word, and not a doer, he is like unto a man beholding his natural face in a glass:  
-> <sup>24</sup> For he beholdeth himself, and goeth his way, and straightway forgetteth what manner of man he was.  
-> <sup>25</sup> But whoso looketh into the perfect law of liberty, and continueth *therein,* he being not a forgetful hearer, but a doer of the work, this man shall be blessed in his deed.  
-> <sup>26</sup> If any man among you seem to be religious, and bridleth not his tongue, but deceiveth his own heart, this man's religion *is* vain.  
-> <sup>27</sup> Pure religion and undefiled before God and the Father is this, To visit the fatherless and widows in their affliction, *and* to keep himself unspotted from the world.  
+> **¹⁹** Wherefore, my beloved brethren, let every man be swift to hear, slow to speak, slow to wrath:  
+> **²⁰** For the wrath of man worketh not the righteousness of God.  
+> **²¹** Wherefore lay apart all filthiness and superfluity of naughtiness, and receive with meekness the engrafted word, which is able to save your souls.  
+> **²²** But be ye doers of the word, and not hearers only, deceiving your own selves.  
+> **²³** For if any be a hearer of the word, and not a doer, he is like unto a man beholding his natural face in a glass:  
+> **²⁴** For he beholdeth himself, and goeth his way, and straightway forgetteth what manner of man he was.  
+> **²⁵** But whoso looketh into the perfect law of liberty, and continueth *therein,* he being not a forgetful hearer, but a doer of the work, this man shall be blessed in his deed.  
+> **²⁶** If any man among you seem to be religious, and bridleth not his tongue, but deceiveth his own heart, this man's religion *is* vain.  
+> **²⁷** Pure religion and undefiled before God and the Father is this, To visit the fatherless and widows in their affliction, *and* to keep himself unspotted from the world.  
 
 In this part of the chapter we are required,
 

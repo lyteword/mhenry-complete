@@ -10,13 +10,13 @@ It seems by this, and many other psalms, that even in times of the greatest trou
 
 To the chief musician upon Jonath-elem-rechokim, Michtam of David, when the Philistines took him in Gath.
 
-> <sup>1</sup> Be merciful unto me, O God: for man would swallow me up; he fighting daily oppresseth me.  
-> <sup>2</sup> Mine enemies would daily swallow *me* up: for *they be* many that fight against me, O thou most High.  
-> <sup>3</sup> What time I am afraid, I will trust in thee.  
-> <sup>4</sup> In God I will praise his word, in God I have put my trust; I will not fear what flesh can do unto me.  
-> <sup>5</sup> Every day they wrest my words: all their thoughts *are* against me for evil.  
-> <sup>6</sup> They gather themselves together, they hide themselves, they mark my steps, when they wait for my soul.  
-> <sup>7</sup> Shall they escape by iniquity? in *thine* anger cast down the people, O God.  
+> **¹** Be merciful unto me, O God: for man would swallow me up; he fighting daily oppresseth me.  
+> **²** Mine enemies would daily swallow *me* up: for *they be* many that fight against me, O thou most High.  
+> **³** What time I am afraid, I will trust in thee.  
+> **⁴** In God I will praise his word, in God I have put my trust; I will not fear what flesh can do unto me.  
+> **⁵** Every day they wrest my words: all their thoughts *are* against me for evil.  
+> **⁶** They gather themselves together, they hide themselves, they mark my steps, when they wait for my soul.  
+> **⁷** Shall they escape by iniquity? in *thine* anger cast down the people, O God.  
 
 David, in this psalm, by his faith throws himself into the hands of God, even when he had by his fear and folly thrown himself into the hands of the Philistines; it was when they took him in Gath, whither he fled for fear of Saul, forgetting the quarrel they had with him for killing Goliath; but they soon put him in mind of it, 1Sa 21:10,11. Upon that occasion he changed his behaviour, but with so little ruffle to his temper that then he penned both this psalm and Ps 34:1-22. This is called *Michtam—a golden psalm.* So some other psalms are entitled, but this has something peculiar in the title; it is upon *Jonath-elem-rechokim,* which signifies *the silent dove afar off.* Some apply this to David himself, who wished for the wings of a dove on which to fly away. He was innocent and inoffensive, mild and patient, as a dove, was at this time driven from his nest, from the sanctuary (Ps 84:3), was forced to wander afar off, to seek for shelter in distant countries; there he was like the doves of the valleys, mourning and melancholy; but silent, neither murmuring against God nor railing at the instruments of his trouble; herein a type of Christ, who was as a sheep, dumb before the shearers, and a pattern to Christians, who, wherever they are and whatever injuries are done them, ought to be as silent doves. In this former part of the psalm,
 
@@ -28,12 +28,12 @@ III\. He foresees and foretels the fall of those that fought against him, and of
 
 ## Comfort under Affliction; Confidence in God.
 
-> <sup>8</sup> Thou tellest my wanderings: put thou my tears into thy bottle: *are they* not in thy book?  
-> <sup>9</sup> When I cry *unto thee,* then shall mine enemies turn back: this I know; for God *is* for me.  
-> <sup>10</sup> In God will I praise *his* word: in the LORD will I praise *his* word.  
-> <sup>11</sup> In God have I put my trust: I will not be afraid what man can do unto me.  
-> <sup>12</sup> Thy vows *are* upon me, O God: I will render praises unto thee.  
-> <sup>13</sup> For thou hast delivered my soul from death: *wilt* not *thou deliver* my feet from falling, that I may walk before God in the light of the living?  
+> **⁸** Thou tellest my wanderings: put thou my tears into thy bottle: *are they* not in thy book?  
+> **⁹** When I cry *unto thee,* then shall mine enemies turn back: this I know; for God *is* for me.  
+> **¹⁰** In God will I praise *his* word: in the LORD will I praise *his* word.  
+> **¹¹** In God have I put my trust: I will not be afraid what man can do unto me.  
+> **¹²** Thy vows *are* upon me, O God: I will render praises unto thee.  
+> **¹³** For thou hast delivered my soul from death: *wilt* not *thou deliver* my feet from falling, that I may walk before God in the light of the living?  
 
 Several things David here comforts himself with in the day of his distress and fear.
 

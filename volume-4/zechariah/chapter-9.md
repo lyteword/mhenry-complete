@@ -8,14 +8,14 @@ At this chapter begins another sermon, which is continued to the end of Zec 11:1
 
 ## Prophecy against Syria; Prophecy against the Enemies of Israel; Judgments and Mercies. (b. c. 510.)
 
-> <sup>1</sup> The burden of the word of the LORD in the land of Hadrach, and Damascus *shall be* the rest thereof: when the eyes of man, as of all the tribes of Israel, *shall be* toward the LORD.  
-> <sup>2</sup> And Hamath also shall border thereby; Tyrus, and Zidon, though it be very wise.  
-> <sup>3</sup> And Tyrus did build herself a strong hold, and heaped up silver as the dust, and fine gold as the mire of the streets.  
-> <sup>4</sup> Behold, the Lord will cast her out, and he will smite her power in the sea; and she shall be devoured with fire.  
-> <sup>5</sup> Ashkelon shall see *it,* and fear; Gaza also *shall see it,* and be very sorrowful, and Ekron; for her expectation shall be ashamed; and the king shall perish from Gaza, and Ashkelon shall not be inhabited.  
-> <sup>6</sup> And a bastard shall dwell in Ashdod, and I will cut off the pride of the Philistines.  
-> <sup>7</sup> And I will take away his blood out of his mouth, and his abominations from between his teeth: but he that remaineth, even he, *shall be* for our God, and he shall be as a governor in Judah, and Ekron as a Jebusite.  
-> <sup>8</sup> And I will encamp about mine house because of the army, because of him that passeth by, and because of him that returneth: and no oppressor shall pass through them any more: for now have I seen with mine eyes.  
+> **¹** The burden of the word of the LORD in the land of Hadrach, and Damascus *shall be* the rest thereof: when the eyes of man, as of all the tribes of Israel, *shall be* toward the LORD.  
+> **²** And Hamath also shall border thereby; Tyrus, and Zidon, though it be very wise.  
+> **³** And Tyrus did build herself a strong hold, and heaped up silver as the dust, and fine gold as the mire of the streets.  
+> **⁴** Behold, the Lord will cast her out, and he will smite her power in the sea; and she shall be devoured with fire.  
+> **⁵** Ashkelon shall see *it,* and fear; Gaza also *shall see it,* and be very sorrowful, and Ekron; for her expectation shall be ashamed; and the king shall perish from Gaza, and Ashkelon shall not be inhabited.  
+> **⁶** And a bastard shall dwell in Ashdod, and I will cut off the pride of the Philistines.  
+> **⁷** And I will take away his blood out of his mouth, and his abominations from between his teeth: but he that remaineth, even he, *shall be* for our God, and he shall be as a governor in Judah, and Ekron as a Jebusite.  
+> **⁸** And I will encamp about mine house because of the army, because of him that passeth by, and because of him that returneth: and no oppressor shall pass through them any more: for now have I seen with mine eyes.  
 
 After the precious promises we had in the foregoing chapter of favour to God's people, their persecutors, who hated them, come to be reckoned with, those particularly that bordered close upon them.
 
@@ -43,9 +43,9 @@ IV\. In all this God intends mercy for Israel, and it is in kindness to them tha
 
 ## Predictions Relating to Messiah. (b. c. 510.)
 
-> <sup>9</sup> Rejoice greatly, O daughter of Zion; shout, O daughter of Jerusalem: behold, thy King cometh unto thee: he *is* just, and having salvation; lowly, and riding upon an ass, and upon a colt the foal of an ass.  
-> <sup>10</sup> And I will cut off the chariot from Ephraim, and the horse from Jerusalem, and the battle bow shall be cut off: and he shall speak peace unto the heathen: and his dominion *shall be* from sea *even* to sea, and from the river *even* to the ends of the earth.  
-> <sup>11</sup> As for thee also, by the blood of thy covenant I have sent forth thy prisoners out of the pit wherein *is* no water.  
+> **⁹** Rejoice greatly, O daughter of Zion; shout, O daughter of Jerusalem: behold, thy King cometh unto thee: he *is* just, and having salvation; lowly, and riding upon an ass, and upon a colt the foal of an ass.  
+> **¹⁰** And I will cut off the chariot from Ephraim, and the horse from Jerusalem, and the battle bow shall be cut off: and he shall speak peace unto the heathen: and his dominion *shall be* from sea *even* to sea, and from the river *even* to the ends of the earth.  
+> **¹¹** As for thee also, by the blood of thy covenant I have sent forth thy prisoners out of the pit wherein *is* no water.  
 
 That here begins a prophecy of the Messiah and his kingdom is plain from the literal accomplishment of the Zec 9:9 in, and its express application to, Christ's riding in triumph into *Jerusalem,* Mt 21:5, Joh 12:15.
 
@@ -59,12 +59,12 @@ IV\. Here is an account of the great benefit procured for mankind by the Messiah
 
 ## Gospel Invitations; Promises of God's Favour to Israel. (b. c. 510.)
 
-> <sup>12</sup> Turn you to the strong hold, ye prisoners of hope: even to day do I declare *that* I will render double unto thee;  
-> <sup>13</sup> When I have bent Judah for me, filled the bow with Ephraim, and raised up thy sons, O Zion, against thy sons, O Greece, and made thee as the sword of a mighty man.  
-> <sup>14</sup> And the LORD shall be seen over them, and his arrow shall go forth as the lightning: and the Lord GOD shall blow the trumpet, and shall go with whirlwinds of the south.  
-> <sup>15</sup> The LORD of hosts shall defend them; and they shall devour, and subdue with sling stones; and they shall drink, *and* make a noise as through wine; and they shall be filled like bowls, *and* as the corners of the altar.  
-> <sup>16</sup> And the LORD their God shall save them in that day as the flock of his people: for they *shall be as* the stones of a crown, lifted up as an ensign upon his land.  
-> <sup>17</sup> For how great *is* his goodness, and how great *is* his beauty! corn shall make the young men cheerful, and new wine the maids.  
+> **¹²** Turn you to the strong hold, ye prisoners of hope: even to day do I declare *that* I will render double unto thee;  
+> **¹³** When I have bent Judah for me, filled the bow with Ephraim, and raised up thy sons, O Zion, against thy sons, O Greece, and made thee as the sword of a mighty man.  
+> **¹⁴** And the LORD shall be seen over them, and his arrow shall go forth as the lightning: and the Lord GOD shall blow the trumpet, and shall go with whirlwinds of the south.  
+> **¹⁵** The LORD of hosts shall defend them; and they shall devour, and subdue with sling stones; and they shall drink, *and* make a noise as through wine; and they shall be filled like bowls, *and* as the corners of the altar.  
+> **¹⁶** And the LORD their God shall save them in that day as the flock of his people: for they *shall be as* the stones of a crown, lifted up as an ensign upon his land.  
+> **¹⁷** For how great *is* his goodness, and how great *is* his beauty! corn shall make the young men cheerful, and new wine the maids.  
 
 The prophet, having taught those that had returned out of captivity to attribute their deliverance to the *blood of the covenant* and to the promise of the Messiah (for they were so wonderfully helped because that blessing was in them, was yet in the womb of their nation), now comes to encourage them with the prospect of a joyful and happy settlement, and of glorious times before them; and such a happiness they did enjoy, in a great measure, for some time; but these promises have their full accomplishment in the spiritual blessings of the gospel which we enjoy by Jesus Christ.
 

@@ -8,17 +8,17 @@ In this chapter we have David setting and Solomon at the same time rising. I. Th
 
 ## David's Dying Charge; David's Death and Burial. (b. c. 1015.)
 
-> <sup>1</sup> Now the days of David drew nigh that he should die; and he charged Solomon his son, saying,  
-> <sup>2</sup> I go the way of all the earth: be thou strong therefore, and show thyself a man;  
-> <sup>3</sup> And keep the charge of the LORD thy God, to walk in his ways, to keep his statutes, and his commandments, and his judgments, and his testimonies, as it is written in the law of Moses, that thou mayest prosper in all that thou doest, and whithersoever thou turnest thyself:  
-> <sup>4</sup> That the LORD may continue his word which he spake concerning me, saying, If thy children take heed to their way, to walk before me in truth with all their heart and with all their soul, there shall not fail thee (said he) a man on the throne of Israel.  
-> <sup>5</sup> Moreover thou knowest also what Joab the son of Zeruiah did to me, *and* what he did to the two captains of the hosts of Israel, unto Abner the son of Ner, and unto Amasa the son of Jether, whom he slew, and shed the blood of war in peace, and put the blood of war upon his girdle that *was* about his loins, and in his shoes that *were* on his feet.  
-> <sup>6</sup> Do therefore according to thy wisdom, and let not his hoar head go down to the grave in peace.  
-> <sup>7</sup> But show kindness unto the sons of Barzillai the Gileadite, and let them be of those that eat at thy table: for so they came to me when I fled because of Absalom thy brother.  
-> <sup>8</sup> And, behold, *thou hast* with thee Shimei the son of Gera, a Benjamite of Bahurim, which cursed me with a grievous curse in the day when I went to Mahanaim: but he came down to meet me at Jordan, and I sware to him by the LORD, saying, I will not put thee to death with the sword.  
-> <sup>9</sup> Now therefore hold him not guiltless: for thou *art* a wise man, and knowest what thou oughtest to do unto him; but his hoar head bring thou down to the grave with blood.  
-> <sup>10</sup> So David slept with his fathers, and was buried in the city of David.  
-> <sup>11</sup> And the days that David reigned over Israel *were* forty years: seven years reigned he in Hebron, and thirty and three years reigned he in Jerusalem.  
+> **¹** Now the days of David drew nigh that he should die; and he charged Solomon his son, saying,  
+> **²** I go the way of all the earth: be thou strong therefore, and show thyself a man;  
+> **³** And keep the charge of the LORD thy God, to walk in his ways, to keep his statutes, and his commandments, and his judgments, and his testimonies, as it is written in the law of Moses, that thou mayest prosper in all that thou doest, and whithersoever thou turnest thyself:  
+> **⁴** That the LORD may continue his word which he spake concerning me, saying, If thy children take heed to their way, to walk before me in truth with all their heart and with all their soul, there shall not fail thee (said he) a man on the throne of Israel.  
+> **⁵** Moreover thou knowest also what Joab the son of Zeruiah did to me, *and* what he did to the two captains of the hosts of Israel, unto Abner the son of Ner, and unto Amasa the son of Jether, whom he slew, and shed the blood of war in peace, and put the blood of war upon his girdle that *was* about his loins, and in his shoes that *were* on his feet.  
+> **⁶** Do therefore according to thy wisdom, and let not his hoar head go down to the grave in peace.  
+> **⁷** But show kindness unto the sons of Barzillai the Gileadite, and let them be of those that eat at thy table: for so they came to me when I fled because of Absalom thy brother.  
+> **⁸** And, behold, *thou hast* with thee Shimei the son of Gera, a Benjamite of Bahurim, which cursed me with a grievous curse in the day when I went to Mahanaim: but he came down to meet me at Jordan, and I sware to him by the LORD, saying, I will not put thee to death with the sword.  
+> **⁹** Now therefore hold him not guiltless: for thou *art* a wise man, and knowest what thou oughtest to do unto him; but his hoar head bring thou down to the grave with blood.  
+> **¹⁰** So David slept with his fathers, and was buried in the city of David.  
+> **¹¹** And the days that David reigned over Israel *were* forty years: seven years reigned he in Hebron, and thirty and three years reigned he in Jerusalem.  
 
 David, that great and good man, is here a dying man (1Ki 2:1), and a dead man, 1Ki 2:10. It is well there is another life after this, for death stains all the glory of this, and lays it in the dust. We have here,
 
@@ -32,20 +32,20 @@ II\. David's death and burial (1Ki 2:10): He *was buried in the city of David,* 
 
 ## Adonijah's Impudent Request; Adonijah Put to Death. (b. c. 1015.)
 
-> <sup>12</sup> Then sat Solomon upon the throne of David his father; and his kingdom was established greatly.  
-> <sup>13</sup> And Adonijah the son of Haggith came to Bathsheba the mother of Solomon. And she said, Comest thou peaceably? And he said, Peaceably.  
-> <sup>14</sup> He said moreover, I have somewhat to say unto thee. And she said, Say on.  
-> <sup>15</sup> And he said, Thou knowest that the kingdom was mine, and *that* all Israel set their faces on me, that I should reign: howbeit the kingdom is turned about, and is become my brother's: for it was his from the LORD.  
-> <sup>16</sup> And now I ask one petition of thee, deny me not. And she said unto him, Say on.  
-> <sup>17</sup> And he said, Speak, I pray thee, unto Solomon the king, (for he will not say thee nay,) that he give me Abishag the Shunammite to wife.  
-> <sup>18</sup> And Bathsheba said, Well; I will speak for thee unto the king.  
-> <sup>19</sup> Bathsheba therefore went unto king Solomon, to speak unto him for Adonijah. And the king rose up to meet her, and bowed himself unto her, and sat down on his throne, and caused a seat to be set for the king's mother; and she sat on his right hand.  
-> <sup>20</sup> Then she said, I desire one small petition of thee; *I pray thee,* say me not nay. And the king said unto her, Ask on, my mother: for I will not say thee nay.  
-> <sup>21</sup> And she said, Let Abishag the Shunammite be given to Adonijah thy brother to wife.  
-> <sup>22</sup> And king Solomon answered and said unto his mother, And why dost thou ask Abishag the Shunammite for Adonijah? ask for him the kingdom also; for he *is* mine elder brother; even for him, and for Abiathar the priest, and for Joab the son of Zeruiah.  
-> <sup>23</sup> Then king Solomon sware by the LORD, saying, God do so to me, and more also, if Adonijah have not spoken this word against his own life.  
-> <sup>24</sup> Now therefore, *as* the LORD liveth, which hath established me, and set me on the throne of David my father, and who hath made me a house, as he promised, Adonijah shall be put to death this day.  
-> <sup>25</sup> And king Solomon sent by the hand of Benaiah the son of Jehoiada; and he fell upon him that he died.  
+> **¹²** Then sat Solomon upon the throne of David his father; and his kingdom was established greatly.  
+> **¹³** And Adonijah the son of Haggith came to Bathsheba the mother of Solomon. And she said, Comest thou peaceably? And he said, Peaceably.  
+> **¹⁴** He said moreover, I have somewhat to say unto thee. And she said, Say on.  
+> **¹⁵** And he said, Thou knowest that the kingdom was mine, and *that* all Israel set their faces on me, that I should reign: howbeit the kingdom is turned about, and is become my brother's: for it was his from the LORD.  
+> **¹⁶** And now I ask one petition of thee, deny me not. And she said unto him, Say on.  
+> **¹⁷** And he said, Speak, I pray thee, unto Solomon the king, (for he will not say thee nay,) that he give me Abishag the Shunammite to wife.  
+> **¹⁸** And Bathsheba said, Well; I will speak for thee unto the king.  
+> **¹⁹** Bathsheba therefore went unto king Solomon, to speak unto him for Adonijah. And the king rose up to meet her, and bowed himself unto her, and sat down on his throne, and caused a seat to be set for the king's mother; and she sat on his right hand.  
+> **²⁰** Then she said, I desire one small petition of thee; *I pray thee,* say me not nay. And the king said unto her, Ask on, my mother: for I will not say thee nay.  
+> **²¹** And she said, Let Abishag the Shunammite be given to Adonijah thy brother to wife.  
+> **²²** And king Solomon answered and said unto his mother, And why dost thou ask Abishag the Shunammite for Adonijah? ask for him the kingdom also; for he *is* mine elder brother; even for him, and for Abiathar the priest, and for Joab the son of Zeruiah.  
+> **²³** Then king Solomon sware by the LORD, saying, God do so to me, and more also, if Adonijah have not spoken this word against his own life.  
+> **²⁴** Now therefore, *as* the LORD liveth, which hath established me, and set me on the throne of David my father, and who hath made me a house, as he promised, Adonijah shall be put to death this day.  
+> **²⁵** And king Solomon sent by the hand of Benaiah the son of Jehoiada; and he fell upon him that he died.  
 
 Here is, I. Solomon's accession to the throne, 1Ki 2:12. He came to it much more easily and peaceably than David did, and much sooner saw his government established. It is happy for a kingdom when the end of one good reign is the beginning of another, as it was here.
 
@@ -61,15 +61,15 @@ II\. His just and necessary removal of Adonijah his rival, in order to the estab
 
 ## Joab Put to Death. (b. c. 1015.)
 
-> <sup>26</sup> And unto Abiathar the priest said the king, Get thee to Anathoth, unto thine own fields; for thou *art* worthy of death: but I will not at this time put thee to death, because thou barest the ark of the Lord GOD before David my father, and because thou hast been afflicted in all wherein my father was afflicted.  
-> <sup>27</sup> So Solomon thrust out Abiathar from being priest unto the LORD; that he might fulfil the word of the LORD, which he spake concerning the house of Eli in Shiloh.  
-> <sup>28</sup> Then tidings came to Joab: for Joab had turned after Adonijah, though he turned not after Absalom. And Joab fled unto the tabernacle of the LORD, and caught hold on the horns of the altar.  
-> <sup>29</sup> And it was told king Solomon that Joab was fled unto the tabernacle of the LORD; and, behold, *he is* by the altar. Then Solomon sent Benaiah the son of Jehoiada, saying, Go, fall upon him.  
-> <sup>30</sup> And Benaiah came to the tabernacle of the LORD, and said unto him, Thus saith the king, Come forth. And he said, Nay; but I will die here. And Benaiah brought the king word again, saying, Thus said Joab, and thus he answered me.  
-> <sup>31</sup> And the king said unto him, Do as he hath said, and fall upon him, and bury him; that thou mayest take away the innocent blood, which Joab shed, from me, and from the house of my father.  
-> <sup>32</sup> And the LORD shall return his blood upon his own head, who fell upon two men more righteous and better than he, and slew them with the sword, my father David not knowing *thereof, to wit,* Abner the son of Ner, captain of the host of Israel, and Amasa the son of Jether, captain of the host of Judah.  
-> <sup>33</sup> Their blood shall therefore return upon the head of Joab, and upon the head of his seed for ever: but upon David, and upon his seed, and upon his house, and upon his throne, shall there be peace for ever from the LORD.  
-> <sup>34</sup> So Benaiah the son of Jehoiada went up, and fell upon him, and slew him: and he was buried in his own house in the wilderness.  
+> **²⁶** And unto Abiathar the priest said the king, Get thee to Anathoth, unto thine own fields; for thou *art* worthy of death: but I will not at this time put thee to death, because thou barest the ark of the Lord GOD before David my father, and because thou hast been afflicted in all wherein my father was afflicted.  
+> **²⁷** So Solomon thrust out Abiathar from being priest unto the LORD; that he might fulfil the word of the LORD, which he spake concerning the house of Eli in Shiloh.  
+> **²⁸** Then tidings came to Joab: for Joab had turned after Adonijah, though he turned not after Absalom. And Joab fled unto the tabernacle of the LORD, and caught hold on the horns of the altar.  
+> **²⁹** And it was told king Solomon that Joab was fled unto the tabernacle of the LORD; and, behold, *he is* by the altar. Then Solomon sent Benaiah the son of Jehoiada, saying, Go, fall upon him.  
+> **³⁰** And Benaiah came to the tabernacle of the LORD, and said unto him, Thus saith the king, Come forth. And he said, Nay; but I will die here. And Benaiah brought the king word again, saying, Thus said Joab, and thus he answered me.  
+> **³¹** And the king said unto him, Do as he hath said, and fall upon him, and bury him; that thou mayest take away the innocent blood, which Joab shed, from me, and from the house of my father.  
+> **³²** And the LORD shall return his blood upon his own head, who fell upon two men more righteous and better than he, and slew them with the sword, my father David not knowing *thereof, to wit,* Abner the son of Ner, captain of the host of Israel, and Amasa the son of Jether, captain of the host of Judah.  
+> **³³** Their blood shall therefore return upon the head of Joab, and upon the head of his seed for ever: but upon David, and upon his seed, and upon his house, and upon his throne, shall there be peace for ever from the LORD.  
+> **³⁴** So Benaiah the son of Jehoiada went up, and fell upon him, and slew him: and he was buried in his own house in the wilderness.  
 
 Abiathar and Joab were both aiding and abetting in Adonijah's rebellious attempt, and it is probable were at the bottom of this new motion made of Adonijah for Abishag, and it should seem Solomon knew it, 1Ki 2:22. This was, in both, an intolerable affront both to God and to the government, and the worse because of their high station and the great influence their examples might have upon many. They therefore come next to be reckoned with. They are both equally guilty of the treason, but, in the judgment passed upon them, a difference is made and with good reason.
 
@@ -85,18 +85,18 @@ II\. Joab, in consideration of his old sins, is put to death.
 
 ## Shimei's Punishment. (b. c. 1014.)
 
-> <sup>35</sup> And the king put Benaiah the son of Jehoiada in his room over the host: and Zadok the priest did the king put in the room of Abiathar.  
-> <sup>36</sup> And the king sent and called for Shimei, and said unto him, Build thee a house in Jerusalem, and dwell there, and go not forth thence any whither.  
-> <sup>37</sup> For it shall be, *that* on the day thou goest out, and passest over the brook Kidron, thou shalt know for certain that thou shalt surely die: thy blood shall be upon thine own head.  
-> <sup>38</sup> And Shimei said unto the king, The saying *is* good: as my lord the king hath said, so will thy servant do. And Shimei dwelt in Jerusalem many days.  
-> <sup>39</sup> And it came to pass at the end of three years, that two of the servants of Shimei ran away unto Achish son of Maachah king of Gath. And they told Shimei, saying, Behold, thy servants *be* in Gath.  
-> <sup>40</sup> And Shimei arose, and saddled his ass, and went to Gath to Achish to seek his servants: and Shimei went, and brought his servants from Gath.  
-> <sup>41</sup> And it was told Solomon that Shimei had gone from Jerusalem to Gath, and was come again.  
-> <sup>42</sup> And the king sent and called for Shimei, and said unto him, Did I not make thee to swear by the LORD, and protested unto thee, saying, Know for a certain, on the day thou goest out, and walkest abroad any whither, that thou shalt surely die? and thou saidst unto me, The word *that* I have heard *is* good.  
-> <sup>43</sup> Why then hast thou not kept the oath of the LORD, and the commandment that I have charged thee with?  
-> <sup>44</sup> The king said moreover to Shimei, Thou knowest all the wickedness which thine heart is privy to, that thou didst to David my father: therefore the LORD shall return thy wickedness upon thine own head;  
-> <sup>45</sup> And king Solomon *shall be* blessed, and the throne of David shall be established before the LORD for ever.  
-> <sup>46</sup> So the king commanded Benaiah the son of Jehoiada; which went out, and fell upon him, that he died. And the kingdom was established in the hand of Solomon.  
+> **³⁵** And the king put Benaiah the son of Jehoiada in his room over the host: and Zadok the priest did the king put in the room of Abiathar.  
+> **³⁶** And the king sent and called for Shimei, and said unto him, Build thee a house in Jerusalem, and dwell there, and go not forth thence any whither.  
+> **³⁷** For it shall be, *that* on the day thou goest out, and passest over the brook Kidron, thou shalt know for certain that thou shalt surely die: thy blood shall be upon thine own head.  
+> **³⁸** And Shimei said unto the king, The saying *is* good: as my lord the king hath said, so will thy servant do. And Shimei dwelt in Jerusalem many days.  
+> **³⁹** And it came to pass at the end of three years, that two of the servants of Shimei ran away unto Achish son of Maachah king of Gath. And they told Shimei, saying, Behold, thy servants *be* in Gath.  
+> **⁴⁰** And Shimei arose, and saddled his ass, and went to Gath to Achish to seek his servants: and Shimei went, and brought his servants from Gath.  
+> **⁴¹** And it was told Solomon that Shimei had gone from Jerusalem to Gath, and was come again.  
+> **⁴²** And the king sent and called for Shimei, and said unto him, Did I not make thee to swear by the LORD, and protested unto thee, saying, Know for a certain, on the day thou goest out, and walkest abroad any whither, that thou shalt surely die? and thou saidst unto me, The word *that* I have heard *is* good.  
+> **⁴³** Why then hast thou not kept the oath of the LORD, and the commandment that I have charged thee with?  
+> **⁴⁴** The king said moreover to Shimei, Thou knowest all the wickedness which thine heart is privy to, that thou didst to David my father: therefore the LORD shall return thy wickedness upon thine own head;  
+> **⁴⁵** And king Solomon *shall be* blessed, and the throne of David shall be established before the LORD for ever.  
+> **⁴⁶** So the king commanded Benaiah the son of Jehoiada; which went out, and fell upon him, that he died. And the kingdom was established in the hand of Solomon.  
 
 Here is, I. The preferment of Benaiah and Zadok, two faithful friends to Solomon and his government, 1Ki 2:35. Joab being put to death, Benaiah was advanced to be general of the forces in his room, and, Abiathar being deposed, Zadok was made high priest in his room, and therein was fulfilled the word of God, when he threatened to cut off the house of Eli (1Sa 2:35), *I will raise me up a faithful priest, and will build him a sure house.* Though sacred offices may be disgraced, they shall not be destroyed, by the mal-administration of those that are entrusted with them, nor shall God's work ever stand still for want of hands to carry it on. No wonder that he who was a king so immediately of God's making was empowered to make whom he though fit high priest; and he exercised this power with equity, for the ancient right was in Zadok, he being of the family of Eleazar, whereas Eli and his house were of Ithamar.
 

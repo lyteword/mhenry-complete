@@ -8,11 +8,11 @@ In this chapter the apostle prosecutes the argument at the close of the last, an
 
 ## Admonitions and Warnings. (a. d. 57.)
 
-> <sup>1</sup> Moreover, brethren, I would not that ye should be ignorant, how that all our fathers were under the cloud, and all passed through the sea;  
-> <sup>2</sup> And were all baptized unto Moses in the cloud and in the sea;  
-> <sup>3</sup> And did all eat the same spiritual meat;  
-> <sup>4</sup> And did all drink the same spiritual drink: for they drank of that spiritual Rock that followed them: and that Rock was Christ.  
-> <sup>5</sup> But with many of them God was not well pleased: for they were overthrown in the wilderness.  
+> **¹** Moreover, brethren, I would not that ye should be ignorant, how that all our fathers were under the cloud, and all passed through the sea;  
+> **²** And were all baptized unto Moses in the cloud and in the sea;  
+> **³** And did all eat the same spiritual meat;  
+> **⁴** And did all drink the same spiritual drink: for they drank of that spiritual Rock that followed them: and that Rock was Christ.  
+> **⁵** But with many of them God was not well pleased: for they were overthrown in the wilderness.  
 
 In order to dissuade the Corinthians from communion with idolaters, and security in any sinful course, he sets before them the example of the Jews, the church under the Old Testament. They enjoyed great privileges, but, having been guilty of heinous provocations, they fell under very grievous punishments. In these verses he reckons up their privileges, which, in the main, were the same with ours.
 
@@ -22,15 +22,15 @@ II\. He specifies some of their privileges. He begins, 1. With their deliverance
 
 ## Admonitions and Warnings. (a. d. 57.)
 
-> <sup>6</sup> Now these things were our examples, to the intent we should not lust after evil things, as they also lusted.  
-> <sup>7</sup> Neither be ye idolaters, as *were* some of them; as it is written, The people sat down to eat and drink, and rose up to play.  
-> <sup>8</sup> Neither let us commit fornication, as some of them committed, and fell in one day three and twenty thousand.  
-> <sup>9</sup> Neither let us tempt Christ, as some of them also tempted, and were destroyed of serpents.  
-> <sup>10</sup> Neither murmur ye, as some of them also murmured, and were destroyed of the destroyer.  
-> <sup>11</sup> Now all these things happened unto them for ensamples: and they are written for our admonition, upon whom the ends of the world are come.  
-> <sup>12</sup> Wherefore let him that thinketh he standeth take heed lest he fall.  
-> <sup>13</sup> There hath no temptation taken you but such as is common to man: but God *is* faithful, who will not suffer you to be tempted above that ye are able; but will with the temptation also make a way to escape, that ye may be able to bear *it.*  
-> <sup>14</sup> Wherefore, my dearly beloved, flee from idolatry.  
+> **⁶** Now these things were our examples, to the intent we should not lust after evil things, as they also lusted.  
+> **⁷** Neither be ye idolaters, as *were* some of them; as it is written, The people sat down to eat and drink, and rose up to play.  
+> **⁸** Neither let us commit fornication, as some of them committed, and fell in one day three and twenty thousand.  
+> **⁹** Neither let us tempt Christ, as some of them also tempted, and were destroyed of serpents.  
+> **¹⁰** Neither murmur ye, as some of them also murmured, and were destroyed of the destroyer.  
+> **¹¹** Now all these things happened unto them for ensamples: and they are written for our admonition, upon whom the ends of the world are come.  
+> **¹²** Wherefore let him that thinketh he standeth take heed lest he fall.  
+> **¹³** There hath no temptation taken you but such as is common to man: but God *is* faithful, who will not suffer you to be tempted above that ye are able; but will with the temptation also make a way to escape, that ye may be able to bear *it.*  
+> **¹⁴** Wherefore, my dearly beloved, flee from idolatry.  
 
 The apostle, having recited their privileges, proceeds here to an account of their faults and punishments, their sins and plagues, which are left upon record for an example to us, a warning against the like sins, if we would escape the like punishments. We must not do as they did, lest we suffer as they suffered.
 
@@ -44,14 +44,14 @@ IV\. And upon this argument he grounds another caution against idolatry: *Wheref
 
 ## Against Countenancing Idolatry. (a. d. 57.)
 
-> <sup>15</sup> I speak as to wise men; judge ye what I say.  
-> <sup>16</sup> The cup of blessing which we bless, is it not the communion of the blood of Christ? The bread which we break, is it not the communion of the body of Christ?  
-> <sup>17</sup> For we *being* many are one bread, *and* one body: for we are all partakers of that one bread.  
-> <sup>18</sup> Behold Israel after the flesh: are not they which eat of the sacrifices partakers of the altar?  
-> <sup>19</sup> What say I then? that the idol is any thing, or that which is offered in sacrifice to idols is any thing?  
-> <sup>20</sup> But I *say,* that the things which the Gentiles sacrifice, they sacrifice to devils, and not to God: and I would not that ye should have fellowship with devils.  
-> <sup>21</sup> Ye cannot drink the cup of the Lord, and the cup of devils: ye cannot be partakers of the Lord's table, and of the table of devils.  
-> <sup>22</sup> Do we provoke the Lord to jealousy? are we stronger than he?  
+> **¹⁵** I speak as to wise men; judge ye what I say.  
+> **¹⁶** The cup of blessing which we bless, is it not the communion of the blood of Christ? The bread which we break, is it not the communion of the body of Christ?  
+> **¹⁷** For we *being* many are one bread, *and* one body: for we are all partakers of that one bread.  
+> **¹⁸** Behold Israel after the flesh: are not they which eat of the sacrifices partakers of the altar?  
+> **¹⁹** What say I then? that the idol is any thing, or that which is offered in sacrifice to idols is any thing?  
+> **²⁰** But I *say,* that the things which the Gentiles sacrifice, they sacrifice to devils, and not to God: and I would not that ye should have fellowship with devils.  
+> **²¹** Ye cannot drink the cup of the Lord, and the cup of devils: ye cannot be partakers of the Lord's table, and of the table of devils.  
+> **²²** Do we provoke the Lord to jealousy? are we stronger than he?  
 
 In this passage the apostle urges the general caution against idolatry, in the particular case of eating the heathen sacrifices as such, and out of any religious respect to the idol to whom they were sacrificed.
 
@@ -67,17 +67,17 @@ V\. He warns them, upon the whole, against such idolatry, by signifying to them 
 
 ## Christian Liberty. (a. d. 57.)
 
-> <sup>23</sup> All things are lawful for me, but all things are not expedient: all things are lawful for me, but all things edify not.  
-> <sup>24</sup> Let no man seek his own, but every man another's *wealth.*  
-> <sup>25</sup> Whatsoever is sold in the shambles, *that* eat, asking no question for conscience sake:  
-> <sup>26</sup> For the earth *is* the Lord's, and the fulness thereof.  
-> <sup>27</sup> If any of them that believe not bid you *to a feast,* and ye be disposed to go; whatsoever is set before you, eat, asking no question for conscience sake.  
-> <sup>28</sup> But if any man say unto you, This is offered in sacrifice unto idols, eat not for his sake that showed it, and for conscience sake: for the earth *is* the Lord's, and the fulness thereof:  
-> <sup>29</sup> Conscience, I say, not thine own, but of the other: for why is my liberty judged of another *man's* conscience?  
-> <sup>30</sup> For if I by grace be a partaker, why am I evil spoken of for that for which I give thanks?  
-> <sup>31</sup> Whether therefore ye eat, or drink, or whatsoever ye do, do all to the glory of God.  
-> <sup>32</sup> Give none offence, neither to the Jews, nor to the Gentiles, nor to the church of God:  
-> <sup>33</sup> Even as I please all *men* in all *things,* not seeking mine own profit, but the *profit* of many, that they may be saved.  
+> **²³** All things are lawful for me, but all things are not expedient: all things are lawful for me, but all things edify not.  
+> **²⁴** Let no man seek his own, but every man another's *wealth.*  
+> **²⁵** Whatsoever is sold in the shambles, *that* eat, asking no question for conscience sake:  
+> **²⁶** For the earth *is* the Lord's, and the fulness thereof.  
+> **²⁷** If any of them that believe not bid you *to a feast,* and ye be disposed to go; whatsoever is set before you, eat, asking no question for conscience sake.  
+> **²⁸** But if any man say unto you, This is offered in sacrifice unto idols, eat not for his sake that showed it, and for conscience sake: for the earth *is* the Lord's, and the fulness thereof:  
+> **²⁹** Conscience, I say, not thine own, but of the other: for why is my liberty judged of another *man's* conscience?  
+> **³⁰** For if I by grace be a partaker, why am I evil spoken of for that for which I give thanks?  
+> **³¹** Whether therefore ye eat, or drink, or whatsoever ye do, do all to the glory of God.  
+> **³²** Give none offence, neither to the Jews, nor to the Gentiles, nor to the church of God:  
+> **³³** Even as I please all *men* in all *things,* not seeking mine own profit, but the *profit* of many, that they may be saved.  
 
 In this passage the apostle shows in what instances, notwithstanding, Christians might lawfully eat what had been sacrificed to idols. They must not eat it out of religious respect to the idol, nor go into his temple, and hold a feast there, upon what they knew was an idol-sacrifice; nor perhaps out of the temple, if they knew it was a feast held upon a sacrifice, but there were cases wherein they might without sin eat what had been offered. Some such the apostle here enumerates.—But,
 

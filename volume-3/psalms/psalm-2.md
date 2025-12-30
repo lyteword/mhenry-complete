@@ -8,12 +8,12 @@ As the foregoing psalm was moral, and showed us our duty, so this is evangelical
 
 ## The Enemies of Messiah.
 
-> <sup>1</sup> Why do the heathen rage, and the people imagine a vain thing?  
-> <sup>2</sup> The kings of the earth set themselves, and the rulers take counsel together, against the LORD, and against his anointed, *saying,*  
-> <sup>3</sup> Let us break their bands asunder, and cast away their cords from us.  
-> <sup>4</sup> He that sitteth in the heavens shall laugh: the Lord shall have them in derision.  
-> <sup>5</sup> Then shall he speak unto them in his wrath, and vex them in his sore displeasure.  
-> <sup>6</sup> Yet have I set my king upon my holy hill of Zion.  
+> **¹** Why do the heathen rage, and the people imagine a vain thing?  
+> **²** The kings of the earth set themselves, and the rulers take counsel together, against the LORD, and against his anointed, *saying,*  
+> **³** Let us break their bands asunder, and cast away their cords from us.  
+> **⁴** He that sitteth in the heavens shall laugh: the Lord shall have them in derision.  
+> **⁵** Then shall he speak unto them in his wrath, and vex them in his sore displeasure.  
+> **⁶** Yet have I set my king upon my holy hill of Zion.  
 
 We have here a very great struggle about the kingdom of Christ, hell and heaven contesting it; the seat of the war is this earth, where Satan has long had a usurped kingdom and exercised dominion to such a degree that he has been called *the prince of the power of the* very *air* we breathe in and *the god of the world* we live in. He knows very well that, as the Messiah's kingdom rises and gets ground, his falls and loses ground; and therefore, though it will be set up certainly, it shall not be set up tamely. Observe here,
 
@@ -41,9 +41,9 @@ We are to sing Ps 2:1-6 with a holy exultation, triumphing over all the enemies 
 
 ## The Triumphs of Messiah.
 
-> <sup>7</sup> I will declare the decree: the LORD hath said unto me, Thou *art* my Son; this day have I begotten thee.  
-> <sup>8</sup> Ask of me, and I shall give *thee* the heathen *for* thine inheritance, and the uttermost parts of the earth *for* thy possession.  
-> <sup>9</sup> Thou shalt break them with a rod of iron; thou shalt dash them in pieces like a potter's vessel.  
+> **⁷** I will declare the decree: the LORD hath said unto me, Thou *art* my Son; this day have I begotten thee.  
+> **⁸** Ask of me, and I shall give *thee* the heathen *for* thine inheritance, and the uttermost parts of the earth *for* thy possession.  
+> **⁹** Thou shalt break them with a rod of iron; thou shalt dash them in pieces like a potter's vessel.  
 
 We have heard what the kings of the earth have to say against Christ's kingdom, and have heard it gainsaid by him that sits in heaven; let us now hear what the Messiah himself has to say for his kingdom, to make good his claims, and it is what all the powers on earth cannot gainsay.
 
@@ -55,9 +55,9 @@ In singing this, and praying it over, we must give glory to Christ as the eterna
 
 ## Warning to the Enemies of Messiah.
 
-> <sup>10</sup> Be wise now therefore, O ye kings: be instructed, ye judges of the earth.  
-> <sup>11</sup> Serve the LORD with fear, and rejoice with trembling.  
-> <sup>12</sup> Kiss the Son, lest he be angry, and ye perish *from* the way, when his wrath is kindled but a little. Blessed *are* all they that put their trust in him.  
+> **¹⁰** Be wise now therefore, O ye kings: be instructed, ye judges of the earth.  
+> **¹¹** Serve the LORD with fear, and rejoice with trembling.  
+> **¹²** Kiss the Son, lest he be angry, and ye perish *from* the way, when his wrath is kindled but a little. Blessed *are* all they that put their trust in him.  
 
 We have here the practical application of this gospel doctrine concerning the kingdom of the Messiah, by way of exhortation to the kings and judges of the earth. They hear that it is in vain to oppose Christ's government; let them therefore be so wise for themselves as to submit to it. He that has power to destroy them shows that he has no pleasure in their destruction, for he puts them into a way to make themselves happy, Ps 2:10. Those that would be wise must be instructed; and those are truly wise that receive instruction from the word of God. Kings and judges stand upon a level with common persons before God; and it is as necessary for them to be religious as for any others. Those that give law and judgment to others must receive law from Christ, and it will be their wisdom to do so. What is said to them is said to all, and is required of every one of us, only it is directed to kings and judges because of the influence which their example will have upon their inferiors, and because they were men of rank and power that opposed the setting up of Christ's kingdom, Ps 2:2. We are exhorted,
 

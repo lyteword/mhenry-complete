@@ -8,19 +8,19 @@ In this chapter we have, I. Christ in his pomp and glory transfigured, Mt 17:1-3
 
 ## The Transfiguration of Christ.
 
-> <sup>1</sup> And after six days Jesus taketh Peter, James, and John his brother, and bringeth them up into a high mountain apart,  
-> <sup>2</sup> And was transfigured before them: and his face did shine as the sun, and his raiment was white as the light.  
-> <sup>3</sup> And, behold, there appeared unto them Moses and Elias talking with him.  
-> <sup>4</sup> Then answered Peter, and said unto Jesus, Lord, it is good for us to be here: if thou wilt, let us make here three tabernacles; one for thee, and one for Moses, and one for Elias.  
-> <sup>5</sup> While he yet spake, behold, a bright cloud overshadowed them: and behold a voice out of the cloud, which said, This is my beloved Son, in whom I am well pleased; hear ye him.  
-> <sup>6</sup> And when the disciples heard *it,* they fell on their face, and were sore afraid.  
-> <sup>7</sup> And Jesus came and touched them, and said, Arise, and be not afraid.  
-> <sup>8</sup> And when they had lifted up their eyes, they saw no man, save Jesus only.  
-> <sup>9</sup> And as they came down from the mountain, Jesus charged them, saying, Tell the vision to no man, until the Son of man be risen again from the dead.  
-> <sup>10</sup> And his disciples asked him, saying, Why then say the scribes that Elias must first come?  
-> <sup>11</sup> And Jesus answered and said unto them, Elias truly shall first come, and restore all things.  
-> <sup>12</sup> But I say unto you, That Elias is come already, and they knew him not, but have done unto him whatsoever they listed. Likewise shall also the Son of man suffer of them.  
-> <sup>13</sup> Then the disciples understood that he spake unto them of John the Baptist.  
+> **¹** And after six days Jesus taketh Peter, James, and John his brother, and bringeth them up into a high mountain apart,  
+> **²** And was transfigured before them: and his face did shine as the sun, and his raiment was white as the light.  
+> **³** And, behold, there appeared unto them Moses and Elias talking with him.  
+> **⁴** Then answered Peter, and said unto Jesus, Lord, it is good for us to be here: if thou wilt, let us make here three tabernacles; one for thee, and one for Moses, and one for Elias.  
+> **⁵** While he yet spake, behold, a bright cloud overshadowed them: and behold a voice out of the cloud, which said, This is my beloved Son, in whom I am well pleased; hear ye him.  
+> **⁶** And when the disciples heard *it,* they fell on their face, and were sore afraid.  
+> **⁷** And Jesus came and touched them, and said, Arise, and be not afraid.  
+> **⁸** And when they had lifted up their eyes, they saw no man, save Jesus only.  
+> **⁹** And as they came down from the mountain, Jesus charged them, saying, Tell the vision to no man, until the Son of man be risen again from the dead.  
+> **¹⁰** And his disciples asked him, saying, Why then say the scribes that Elias must first come?  
+> **¹¹** And Jesus answered and said unto them, Elias truly shall first come, and restore all things.  
+> **¹²** But I say unto you, That Elias is come already, and they knew him not, but have done unto him whatsoever they listed. Likewise shall also the Son of man suffer of them.  
+> **¹³** Then the disciples understood that he spake unto them of John the Baptist.  
 
 We have here the story of Christ's transfiguration; he had said that the *Son of man should* shortly *come in his kingdom,* with which promise all the three evangelists industriously connect this story; as if Christ's transfiguration were intended for a specimen and an earnest of the kingdom of Christ, and of that light and love of his, which therein appears to his select and sanctified ones. Peter speaks of this as *the power and coming of our Lord Jesus* (2Pe 1:16); because it was an emanation of his power, and a previous notice of his coming, which was fitly introduced by such prefaces.
 
@@ -120,14 +120,14 @@ Because they knew him not, *they have done to him whatsoever they listed;* if th
 
 ## The Expulsion of a Demon.
 
-> <sup>14</sup> And when they were come to the multitude, there came to him a *certain* man, kneeling down to him, and saying,  
-> <sup>15</sup> Lord, have mercy on my son: for he is lunatic, and sore vexed: for ofttimes he falleth into the fire, and oft into the water.  
-> <sup>16</sup> And I brought him to thy disciples, and they could not cure him.  
-> <sup>17</sup> Then Jesus answered and said, O faithless and perverse generation, how long shall I be with you? how long shall I suffer you? bring him hither to me.  
-> <sup>18</sup> And Jesus rebuked the devil; and he departed out of him: and the child was cured from that very hour.  
-> <sup>19</sup> Then came the disciples to Jesus apart, and said, Why could not we cast him out?  
-> <sup>20</sup> And Jesus said unto them, Because of your unbelief: for verily I say unto you, If ye have faith as a grain of mustard seed, ye shall say unto this mountain, Remove hence to yonder place; and it shall remove; and nothing shall be impossible unto you.  
-> <sup>21</sup> Howbeit this kind goeth not out but by prayer and fasting.  
+> **¹⁴** And when they were come to the multitude, there came to him a *certain* man, kneeling down to him, and saying,  
+> **¹⁵** Lord, have mercy on my son: for he is lunatic, and sore vexed: for ofttimes he falleth into the fire, and oft into the water.  
+> **¹⁶** And I brought him to thy disciples, and they could not cure him.  
+> **¹⁷** Then Jesus answered and said, O faithless and perverse generation, how long shall I be with you? how long shall I suffer you? bring him hither to me.  
+> **¹⁸** And Jesus rebuked the devil; and he departed out of him: and the child was cured from that very hour.  
+> **¹⁹** Then came the disciples to Jesus apart, and said, Why could not we cast him out?  
+> **²⁰** And Jesus said unto them, Because of your unbelief: for verily I say unto you, If ye have faith as a grain of mustard seed, ye shall say unto this mountain, Remove hence to yonder place; and it shall remove; and nothing shall be impossible unto you.  
+> **²¹** Howbeit this kind goeth not out but by prayer and fasting.  
 
 We have here the miraculous cure of a child that was lunatic and vexed with a devil. Observe,
 
@@ -169,8 +169,8 @@ If ye have ever so little of this faith in sincerity, if ye truly rely upon the 
 
 ## Christ's Sufferings Foretold.
 
-> <sup>22</sup> And while they abode in Galilee, Jesus said unto them, The Son of man shall be betrayed into the hands of men:  
-> <sup>23</sup> And they shall kill him, and the third day he shall be raised again. And they were exceeding sorry.  
+> **²²** And while they abode in Galilee, Jesus said unto them, The Son of man shall be betrayed into the hands of men:  
+> **²³** And they shall kill him, and the third day he shall be raised again. And they were exceeding sorry.  
 
 Christ here foretels his own sufferings; he began to do it before (Mt 16:21); and, finding that it was to his disciples a hard saying, he saw it necessary to repeat it. There are some things which *God speaketh once, yea twice, and yet man perceiveth it not.* Observe here,
 
@@ -186,10 +186,10 @@ Christ here foretels his own sufferings; he began to do it before (Mt 16:21); an
 
 ## Our Lord's Payment of Tribute.
 
-> <sup>24</sup> And when they were come to Capernaum, they that received tribute *money* came to Peter, and said, Doth not your master pay tribute?  
-> <sup>25</sup> He saith, Yes. And when he was come into the house, Jesus prevented him, saying, What thinkest thou, Simon? of whom do the kings of the earth take custom or tribute? of their own children, or of strangers?  
-> <sup>26</sup> Peter saith unto him, Of strangers. Jesus saith unto him, Then are the children free.  
-> <sup>27</sup> Notwithstanding, lest we should offend them, go thou to the sea, and cast a hook, and take up the fish that first cometh up; and when thou hast opened his mouth, thou shalt find a piece of money: that take, and give unto them for me and thee.  
+> **²⁴** And when they were come to Capernaum, they that received tribute *money* came to Peter, and said, Doth not your master pay tribute?  
+> **²⁵** He saith, Yes. And when he was come into the house, Jesus prevented him, saying, What thinkest thou, Simon? of whom do the kings of the earth take custom or tribute? of their own children, or of strangers?  
+> **²⁶** Peter saith unto him, Of strangers. Jesus saith unto him, Then are the children free.  
+> **²⁷** Notwithstanding, lest we should offend them, go thou to the sea, and cast a hook, and take up the fish that first cometh up; and when thou hast opened his mouth, thou shalt find a piece of money: that take, and give unto them for me and thee.  
 
 We have here an account of Christ's paying tribute.
 

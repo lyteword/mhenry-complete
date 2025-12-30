@@ -8,15 +8,15 @@ We have here a further account of the travels of Paul, and his services and suff
 
 ## Paul and Silas at Thessalonica.
 
-> <sup>1</sup> Now when they had passed through Amphipolis and Apollonia, they came to Thessalonica, where was a synagogue of the Jews:  
-> <sup>2</sup> And Paul, as his manner was, went in unto them, and three sabbath days reasoned with them out of the scriptures,  
-> <sup>3</sup> Opening and alleging, that Christ must needs have suffered, and risen again from the dead; and that this Jesus, whom I preach unto you, is Christ.  
-> <sup>4</sup> And some of them believed, and consorted with Paul and Silas; and of the devout Greeks a great multitude, and of the chief women not a few.  
-> <sup>5</sup> But the Jews which believed not, moved with envy, took unto them certain lewd fellows of the baser sort, and gathered a company, and set all the city on an uproar, and assaulted the house of Jason, and sought to bring them out to the people.  
-> <sup>6</sup> And when they found them not, they drew Jason and certain brethren unto the rulers of the city, crying, These that have turned the world upside down are come hither also;  
-> <sup>7</sup> Whom Jason hath received: and these all do contrary to the decrees of Cæsar, saying that there is another king, *one* Jesus.  
-> <sup>8</sup> And they troubled the people and the rulers of the city, when they heard these things.  
-> <sup>9</sup> And when they had taken security of Jason, and of the other, they let them go.  
+> **¹** Now when they had passed through Amphipolis and Apollonia, they came to Thessalonica, where was a synagogue of the Jews:  
+> **²** And Paul, as his manner was, went in unto them, and three sabbath days reasoned with them out of the scriptures,  
+> **³** Opening and alleging, that Christ must needs have suffered, and risen again from the dead; and that this Jesus, whom I preach unto you, is Christ.  
+> **⁴** And some of them believed, and consorted with Paul and Silas; and of the devout Greeks a great multitude, and of the chief women not a few.  
+> **⁵** But the Jews which believed not, moved with envy, took unto them certain lewd fellows of the baser sort, and gathered a company, and set all the city on an uproar, and assaulted the house of Jason, and sought to bring them out to the people.  
+> **⁶** And when they found them not, they drew Jason and certain brethren unto the rulers of the city, crying, These that have turned the world upside down are come hither also;  
+> **⁷** Whom Jason hath received: and these all do contrary to the decrees of Cæsar, saying that there is another king, *one* Jesus.  
+> **⁸** And they troubled the people and the rulers of the city, when they heard these things.  
+> **⁹** And when they had taken security of Jason, and of the other, they let them go.  
 
 Paul's two epistles to the Thessalonians, the first two he wrote by inspiration, give such a shining character of that church, that we cannot but be glad here in the history to meet with an account of the first founding of the church there.
 
@@ -40,12 +40,12 @@ IV\. The trouble that was given to Paul and Silas at Thessalonica. Wherever they
 
 ## The Noble Bereans; Paul and Silas at Berea.
 
-> <sup>10</sup> And the brethren immediately sent away Paul and Silas by night unto Berea: who coming *thither* went into the synagogue of the Jews.  
-> <sup>11</sup> These were more noble than those in Thessalonica, in that they received the word with all readiness of mind, and searched the scriptures daily, whether those things were so.  
-> <sup>12</sup> Therefore many of them believed; also of honourable women which were Greeks, and of men, not a few.  
-> <sup>13</sup> But when the Jews of Thessalonica had knowledge that the word of God was preached of Paul at Berea, they came thither also, and stirred up the people.  
-> <sup>14</sup> And then immediately the brethren sent away Paul to go as it were to the sea: but Silas and Timotheus abode there still.  
-> <sup>15</sup> And they that conducted Paul brought him unto Athens: and receiving a commandment unto Silas and Timotheus for to come to him with all speed, they departed.  
+> **¹⁰** And the brethren immediately sent away Paul and Silas by night unto Berea: who coming *thither* went into the synagogue of the Jews.  
+> **¹¹** These were more noble than those in Thessalonica, in that they received the word with all readiness of mind, and searched the scriptures daily, whether those things were so.  
+> **¹²** Therefore many of them believed; also of honourable women which were Greeks, and of men, not a few.  
+> **¹³** But when the Jews of Thessalonica had knowledge that the word of God was preached of Paul at Berea, they came thither also, and stirred up the people.  
+> **¹⁴** And then immediately the brethren sent away Paul to go as it were to the sea: but Silas and Timotheus abode there still.  
+> **¹⁵** And they that conducted Paul brought him unto Athens: and receiving a commandment unto Silas and Timotheus for to come to him with all speed, they departed.  
 
 In these verses we have,
 
@@ -63,12 +63,12 @@ IV\. The persecution that was raised against Paul and Silas at Berea, which forc
 
 ## Paul at Athens.
 
-> <sup>16</sup> Now while Paul waited for them at Athens, his spirit was stirred in him, when he saw the city wholly given to idolatry.  
-> <sup>17</sup> Therefore disputed he in the synagogue with the Jews, and with the devout persons, and in the market daily with them that met with him.  
-> <sup>18</sup> Then certain philosophers of the Epicureans, and of the Stoics, encountered him. And some said, What will this babbler say? other some, He seemeth to be a setter forth of strange gods: because he preached unto them Jesus, and the resurrection.  
-> <sup>19</sup> And they took him, and brought him unto Areopagus, saying, May we know what this new doctrine, whereof thou speakest, *is?*  
-> <sup>20</sup> For thou bringest certain strange things to our ears: we would know therefore what these things mean.  
-> <sup>21</sup> (For all the Athenians and strangers which were there spent their time in nothing else, but either to tell, or to hear some new thing.)  
+> **¹⁶** Now while Paul waited for them at Athens, his spirit was stirred in him, when he saw the city wholly given to idolatry.  
+> **¹⁷** Therefore disputed he in the synagogue with the Jews, and with the devout persons, and in the market daily with them that met with him.  
+> **¹⁸** Then certain philosophers of the Epicureans, and of the Stoics, encountered him. And some said, What will this babbler say? other some, He seemeth to be a setter forth of strange gods: because he preached unto them Jesus, and the resurrection.  
+> **¹⁹** And they took him, and brought him unto Areopagus, saying, May we know what this new doctrine, whereof thou speakest, *is?*  
+> **²⁰** For thou bringest certain strange things to our ears: we would know therefore what these things mean.  
+> **²¹** (For all the Athenians and strangers which were there spent their time in nothing else, but either to tell, or to hear some new thing.)  
 
 A scholar that has acquaintance, and is in love, with the learning of the ancients, would think he should be very happy if he were where Paul now was, at Athens, in the midst of the various sects of philosophers, and would have a great many curious questions to ask them, for the explication of the remains we have of the Athenian learning; but Paul, though bred a scholar, and an ingenious active man, does not make this any of his business at Athens. He has other work to mind: it is not the improving of himself in their philosophy that he aims at, he has learned to call it a vain thing, and is above it (Col 2:8); his business is, in God's name, to correct their disorders in religion, and *to turn them from the service of idols,* and of Satan in them, to the *service of the true and living God* in Christ.
 
@@ -88,16 +88,16 @@ III\. The enquiries which some of the philosophers made concerning Paul's doctri
 
 ## Paul at Athens.
 
-> <sup>22</sup> Then Paul stood in the midst of Mars' hill, and said, *Ye* men of Athens, I perceive that in all things ye are too superstitious.  
-> <sup>23</sup> For as I passed by, and beheld your devotions, I found an altar with this inscription, TO THE UNKNOWN GOD. Whom therefore ye ignorantly worship, him declare I unto you.  
-> <sup>24</sup> God that made the world and all things therein, seeing that he is Lord of heaven and earth, dwelleth not in temples made with hands;  
-> <sup>25</sup> Neither is worshipped with men's hands, as though he needed any thing, seeing he giveth to all life, and breath, and all things;  
-> <sup>26</sup> And hath made of one blood all nations of men for to dwell on all the face of the earth, and hath determined the times before appointed, and the bounds of their habitation;  
-> <sup>27</sup> That they should seek the Lord, if haply they might feel after him, and find him, though he be not far from every one of us:  
-> <sup>28</sup> For in him we live, and move, and have our being; as certain also of your own poets have said, For we are also his offspring.  
-> <sup>29</sup> Forasmuch then as we are the offspring of God, we ought not to think that the Godhead is like unto gold, or silver, or stone, graven by art and man's device.  
-> <sup>30</sup> And the times of this ignorance God winked at; but now commandeth all men every where to repent:  
-> <sup>31</sup> Because he hath appointed a day, in the which he will judge the world in righteousness by *that* man whom he hath ordained; *whereof* he hath given assurance unto all *men,* in that he hath raised him from the dead.  
+> **²²** Then Paul stood in the midst of Mars' hill, and said, *Ye* men of Athens, I perceive that in all things ye are too superstitious.  
+> **²³** For as I passed by, and beheld your devotions, I found an altar with this inscription, TO THE UNKNOWN GOD. Whom therefore ye ignorantly worship, him declare I unto you.  
+> **²⁴** God that made the world and all things therein, seeing that he is Lord of heaven and earth, dwelleth not in temples made with hands;  
+> **²⁵** Neither is worshipped with men's hands, as though he needed any thing, seeing he giveth to all life, and breath, and all things;  
+> **²⁶** And hath made of one blood all nations of men for to dwell on all the face of the earth, and hath determined the times before appointed, and the bounds of their habitation;  
+> **²⁷** That they should seek the Lord, if haply they might feel after him, and find him, though he be not far from every one of us:  
+> **²⁸** For in him we live, and move, and have our being; as certain also of your own poets have said, For we are also his offspring.  
+> **²⁹** Forasmuch then as we are the offspring of God, we ought not to think that the Godhead is like unto gold, or silver, or stone, graven by art and man's device.  
+> **³⁰** And the times of this ignorance God winked at; but now commandeth all men every where to repent:  
+> **³¹** Because he hath appointed a day, in the which he will judge the world in righteousness by *that* man whom he hath ordained; *whereof* he hath given assurance unto all *men,* in that he hath raised him from the dead.  
 
 We have here St. Paul's sermon at Athens. Divers sermons we have had, which the apostles preached to the Jews, or such Gentiles as had an acquaintance with and veneration for the Old Testament, and were worshippers of the true and living God; and all they had to do with them was to open and allege *that Jesus is the Christ;* but here we have a sermon to heathens, that worshipped false gods, and were without the true God in the world, and to them the scope of their discourse was quite different from what it was to the other. In the former case their business was to lead their hearers by prophecies and miracles to the knowledge of the Redeemer, and faith in him; in the latter it was to lead them by the common works of providence to the knowledge of the Creator, and the worship of him. One discourse of this kind we had before to the rude idolaters of Lystra that deified the apostles (Ac 14:15); this recorded here is to the more polite and refined idolaters at Athens, and an admirable discourse it is, and every way suited to his auditory and the design he had upon them.
 
@@ -143,9 +143,9 @@ IV\. He proceeds to call them all to repent of their idolatries, and to turn fro
 
 ## Paul at Athens.
 
-> <sup>32</sup> And when they heard of the resurrection of the dead, some mocked: and others said, We will hear thee again of this *matter.*  
-> <sup>33</sup> So Paul departed from among them.  
-> <sup>34</sup> Howbeit certain men clave unto him, and believed: among the which *was* Dionysius the Areopagite, and a woman named Damaris, and others with them.  
+> **³²** And when they heard of the resurrection of the dead, some mocked: and others said, We will hear thee again of this *matter.*  
+> **³³** So Paul departed from among them.  
+> **³⁴** Howbeit certain men clave unto him, and believed: among the which *was* Dionysius the Areopagite, and a woman named Damaris, and others with them.  
 
 We have here a short account of the issue of Paul's preaching at Athens.
 

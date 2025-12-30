@@ -8,14 +8,14 @@ In this chapter, I. The people of Israel are charged with gross corruptions in t
 
 ## Degeneracy of Israel; Threatenings of Judgment. (b. c. 730.)
 
-> <sup>1</sup> Israel *is* an empty vine, he bringeth forth fruit unto himself: according to the multitude of his fruit he hath increased the altars; according to the goodness of his land they have made goodly images.  
-> <sup>2</sup> Their heart is divided; now shall they be found faulty: he shall break down their altars, he shall spoil their images.  
-> <sup>3</sup> For now they shall say, We have no king, because we feared not the LORD; what then should a king do to us?  
-> <sup>4</sup> They have spoken words, swearing falsely in making a covenant: thus judgment springeth up as hemlock in the furrows of the field.  
-> <sup>5</sup> The inhabitants of Samaria shall fear because of the calves of Beth-aven: for the people thereof shall mourn over it, and the priests thereof *that* rejoiced on it, for the glory thereof, because it is departed from it.  
-> <sup>6</sup> It shall be also carried unto Assyria *for* a present to king Jareb: Ephraim shall receive shame, and Israel shall be ashamed of his own counsel.  
-> <sup>7</sup> *As for* Samaria, her king is cut off as the foam upon the water.  
-> <sup>8</sup> The high places also of Aven, the sin of Israel, shall be destroyed: the thorn and the thistle shall come up on their altars; and they shall say to the mountains, Cover us; and to the hills, Fall on us.  
+> **¹** Israel *is* an empty vine, he bringeth forth fruit unto himself: according to the multitude of his fruit he hath increased the altars; according to the goodness of his land they have made goodly images.  
+> **²** Their heart is divided; now shall they be found faulty: he shall break down their altars, he shall spoil their images.  
+> **³** For now they shall say, We have no king, because we feared not the LORD; what then should a king do to us?  
+> **⁴** They have spoken words, swearing falsely in making a covenant: thus judgment springeth up as hemlock in the furrows of the field.  
+> **⁵** The inhabitants of Samaria shall fear because of the calves of Beth-aven: for the people thereof shall mourn over it, and the priests thereof *that* rejoiced on it, for the glory thereof, because it is departed from it.  
+> **⁶** It shall be also carried unto Assyria *for* a present to king Jareb: Ephraim shall receive shame, and Israel shall be ashamed of his own counsel.  
+> **⁷** *As for* Samaria, her king is cut off as the foam upon the water.  
+> **⁸** The high places also of Aven, the sin of Israel, shall be destroyed: the thorn and the thistle shall come up on their altars; and they shall say to the mountains, Cover us; and to the hills, Fall on us.  
 
 Observe, I. What the sins are which are here laid to Israel's charge, the national sins which bring down national judgment. The prophet deals plainly with them; for what good would it do them to be flattered?
 
@@ -31,13 +31,13 @@ II\. What the judgments are with which Israel should be punished for these sins;
 
 ## Threatenings of Judgment. (b. c. 730.)
 
-> <sup>9</sup> O Israel, thou hast sinned from the days of Gibeah: there they stood: the battle in Gibeah against the children of iniquity did not overtake them.  
-> <sup>10</sup> *It is* in my desire that I should chastise them; and the people shall be gathered against them, when they shall bind themselves in their two furrows.  
-> <sup>11</sup> And Ephraim *is as* a heifer *that is* taught, *and* loveth to tread out *the corn;* but I passed over upon her fair neck: I will make Ephraim to ride; Judah shall plow, *and* Jacob shall break his clods.  
-> <sup>12</sup> Sow to yourselves in righteousness, reap in mercy; break up your fallow ground: for *it is* time to seek the LORD, till he come and rain righteousness upon you.  
-> <sup>13</sup> Ye have plowed wickedness, ye have reaped iniquity; ye have eaten the fruit of lies: because thou didst trust in thy way, in the multitude of thy mighty men.  
-> <sup>14</sup> Therefore shall a tumult arise among thy people, and all thy fortresses shall be spoiled, as Shalman spoiled Beth-arbel in the day of battle: the mother was dashed in pieces upon *her* children.  
-> <sup>15</sup> So shall Bethel do unto you because of your great wickedness: in a morning shall the king of Israel utterly be cut off.  
+> **⁹** O Israel, thou hast sinned from the days of Gibeah: there they stood: the battle in Gibeah against the children of iniquity did not overtake them.  
+> **¹⁰** *It is* in my desire that I should chastise them; and the people shall be gathered against them, when they shall bind themselves in their two furrows.  
+> **¹¹** And Ephraim *is as* a heifer *that is* taught, *and* loveth to tread out *the corn;* but I passed over upon her fair neck: I will make Ephraim to ride; Judah shall plow, *and* Jacob shall break his clods.  
+> **¹²** Sow to yourselves in righteousness, reap in mercy; break up your fallow ground: for *it is* time to seek the LORD, till he come and rain righteousness upon you.  
+> **¹³** Ye have plowed wickedness, ye have reaped iniquity; ye have eaten the fruit of lies: because thou didst trust in thy way, in the multitude of thy mighty men.  
+> **¹⁴** Therefore shall a tumult arise among thy people, and all thy fortresses shall be spoiled, as Shalman spoiled Beth-arbel in the day of battle: the mother was dashed in pieces upon *her* children.  
+> **¹⁵** So shall Bethel do unto you because of your great wickedness: in a morning shall the king of Israel utterly be cut off.  
 
 Here, I. They are put in mind of the sins of their fathers and predecessors, for which God would now reckon with them. It was told them (Ho 9:9) that they had *corrupted themselves, as in the days of Gibeah,* and here (Ho 10:9), *O Israel! thou hast sinned from the days of Gibeah.* Not only the wickedness that was committed in that age is revived in this, and reacted, a copy from that original, but the wickedness that was committed in that age has been continued in a constant series and succession through all the intervening ages down to this; so that the measure of iniquity had been long in filling; and still there had been made additions to it. Or, "*Thou has sinned more than in the days of Gibeah*" (so it may be read); "the sins of this age exceed those of the worst of former ages. The case was bad then, for *there they stood;* the criminals stood in their own defence, and the tribes of Israel, who undertook to chastise them for their wickedness, were *at a stand,* when both in the first and in the second battle the malefactors were the victors; and *the battle in Gibeah against the children of iniquity did not overtake them* till the third engagement, and then did not overtake them all, for 600 made their escape. But thy sin is worse than theirs, and therefore thou canst not expect but that the battle against the children of iniquity should overtake thee, and overcome thee."
 

@@ -8,12 +8,12 @@ The iniquities and calamities of God's Israel had been largely and pathetically 
 
 ## The Shepherds Reproved. (b. c. 587.)
 
-> <sup>1</sup> And the word of the LORD came unto me, saying,  
-> <sup>2</sup> Son of man, prophesy against the shepherds of Israel, prophesy, and say unto them, Thus saith the Lord GOD unto the shepherds; Woe *be* to the shepherds of Israel that do feed themselves! should not the shepherds feed the flocks?  
-> <sup>3</sup> Ye eat the fat, and ye clothe you with the wool, ye kill them that are fed: *but* ye feed not the flock.  
-> <sup>4</sup> The diseased have ye not strengthened, neither have ye healed that which was sick, neither have ye bound up *that which was* broken, neither have ye brought again that which was driven away, neither have ye sought that which was lost; but with force and with cruelty have ye ruled them.  
-> <sup>5</sup> And they were scattered, because *there is* no shepherd: and they became meat to all the beasts of the field, when they were scattered.  
-> <sup>6</sup> My sheep wandered through all the mountains, and upon every high hill: yea, my flock was scattered upon all the face of the earth, and none did search or seek *after them.*  
+> **¹** And the word of the LORD came unto me, saying,  
+> **²** Son of man, prophesy against the shepherds of Israel, prophesy, and say unto them, Thus saith the Lord GOD unto the shepherds; Woe *be* to the shepherds of Israel that do feed themselves! should not the shepherds feed the flocks?  
+> **³** Ye eat the fat, and ye clothe you with the wool, ye kill them that are fed: *but* ye feed not the flock.  
+> **⁴** The diseased have ye not strengthened, neither have ye healed that which was sick, neither have ye bound up *that which was* broken, neither have ye brought again that which was driven away, neither have ye sought that which was lost; but with force and with cruelty have ye ruled them.  
+> **⁵** And they were scattered, because *there is* no shepherd: and they became meat to all the beasts of the field, when they were scattered.  
+> **⁶** My sheep wandered through all the mountains, and upon every high hill: yea, my flock was scattered upon all the face of the earth, and none did search or seek *after them.*  
 
 The prophecy of this chapter is not dated, nor any of those that follow it, till Eze 40:1-49 It is most probable that it was delivered after the completing of Jerusalem's destruction, when it would be very seasonable to enquire into the causes of it.
 
@@ -23,16 +23,16 @@ II\. He is here directed what to charge the shepherds with, in God's name, as th
 
 ## The Shepherds Reproved. (b. c. 587.)
 
-> <sup>7</sup> Therefore, ye shepherds, hear the word of the LORD;  
-> <sup>8</sup> *As* I live, saith the Lord GOD, surely because my flock became a prey, and my flock became meat to every beast of the field, because *there was* no shepherd, neither did my shepherds search for my flock, but the shepherds fed themselves, and fed not my flock;  
-> <sup>9</sup> Therefore, O ye shepherds, hear the word of the LORD;  
-> <sup>10</sup> Thus saith the Lord GOD; Behold, I *am* against the shepherds; and I will require my flock at their hand, and cause them to cease from feeding the flock; neither shall the shepherds feed themselves any more; for I will deliver my flock from their mouth, that they may not be meat for them.  
-> <sup>11</sup> For thus saith the Lord GOD; Behold, I, *even* I, will both search my sheep, and seek them out.  
-> <sup>12</sup> As a shepherd seeketh out his flock in the day that he is among his sheep *that are* scattered; so will I seek out my sheep, and will deliver them out of all places where they have been scattered in the cloudy and dark day.  
-> <sup>13</sup> And I will bring them out from the people, and gather them from the countries, and will bring them to their own land, and feed them upon the mountains of Israel by the rivers, and in all the inhabited places of the country.  
-> <sup>14</sup> I will feed them in a good pasture, and upon the high mountains of Israel shall their fold be: there shall they lie in a good fold, and *in* a fat pasture shall they feed upon the mountains of Israel.  
-> <sup>15</sup> I will feed my flock, and I will cause them to lie down, saith the Lord GOD.  
-> <sup>16</sup> I will seek that which was lost, and bring again that which was driven away, and will bind up *that which was* broken, and will strengthen that which was sick: but I will destroy the fat and the strong; I will feed them with judgment.  
+> **⁷** Therefore, ye shepherds, hear the word of the LORD;  
+> **⁸** *As* I live, saith the Lord GOD, surely because my flock became a prey, and my flock became meat to every beast of the field, because *there was* no shepherd, neither did my shepherds search for my flock, but the shepherds fed themselves, and fed not my flock;  
+> **⁹** Therefore, O ye shepherds, hear the word of the LORD;  
+> **¹⁰** Thus saith the Lord GOD; Behold, I *am* against the shepherds; and I will require my flock at their hand, and cause them to cease from feeding the flock; neither shall the shepherds feed themselves any more; for I will deliver my flock from their mouth, that they may not be meat for them.  
+> **¹¹** For thus saith the Lord GOD; Behold, I, *even* I, will both search my sheep, and seek them out.  
+> **¹²** As a shepherd seeketh out his flock in the day that he is among his sheep *that are* scattered; so will I seek out my sheep, and will deliver them out of all places where they have been scattered in the cloudy and dark day.  
+> **¹³** And I will bring them out from the people, and gather them from the countries, and will bring them to their own land, and feed them upon the mountains of Israel by the rivers, and in all the inhabited places of the country.  
+> **¹⁴** I will feed them in a good pasture, and upon the high mountains of Israel shall their fold be: there shall they lie in a good fold, and *in* a fat pasture shall they feed upon the mountains of Israel.  
+> **¹⁵** I will feed my flock, and I will cause them to lie down, saith the Lord GOD.  
+> **¹⁶** I will seek that which was lost, and bring again that which was driven away, and will bind up *that which was* broken, and will strengthen that which was sick: but I will destroy the fat and the strong; I will feed them with judgment.  
 
 Upon reading the foregoing articles of impeachment drawn up, in God's name, against the shepherds of Israel, we cannot but look upon the shepherds with a just indignation, and upon the flock with a tender compassion. God, by the prophet, here expresses both in a high degree; and the shepherds are called upon (Eze 34:7,9) to *hear the word of the Lord,* to hear this word. Let them hear how little he regards them, who made much of themselves, and how much he regards the flock, which they made nothing of; both will be humbling to them. Those that will not *hear the word of the Lord* giving them their direction shall be made to hear the word of the Lord reading them their doom. Now see here,
 
@@ -48,21 +48,21 @@ II\. How much concerned God is for the flock; he speaks as if he were the more c
 
 ## God's Care of His Flock; Prediction of Messiah's Kingdom. (b. c. 587.)
 
-> <sup>17</sup> And *as for* you, O my flock, thus saith the Lord GOD; Behold, I judge between cattle and cattle, between the rams and the he goats.  
-> <sup>18</sup> *Seemeth it* a small thing unto you to have eaten up the good pasture, but ye must tread down with your feet the residue of your pastures? and to have drunk of the deep waters, but ye must foul the residue with your feet?  
-> <sup>19</sup> And *as for* my flock, they eat that which ye have trodden with your feet; and they drink that which ye have fouled with your feet.  
-> <sup>20</sup> Therefore thus saith the Lord GOD unto them; Behold, I, *even* I, will judge between the fat cattle and between the lean cattle.  
-> <sup>21</sup> Because ye have thrust with side and with shoulder, and pushed all the diseased with your horns, till ye have scattered them abroad;  
-> <sup>22</sup> Therefore will I save my flock, and they shall no more be a prey; and I will judge between cattle and cattle.  
-> <sup>23</sup> And I will set up one shepherd over them, and he shall feed them, *even* my servant David; he shall feed them, and he shall be their shepherd.  
-> <sup>24</sup> And I the LORD will be their God, and my servant David a prince among them; I the LORD have spoken *it.*  
-> <sup>25</sup> And I will make with them a covenant of peace, and will cause the evil beasts to cease out of the land: and they shall dwell safely in the wilderness, and sleep in the woods.  
-> <sup>26</sup> And I will make them and the places round about my hill a blessing; and I will cause the shower to come down in his season; there shall be showers of blessing.  
-> <sup>27</sup> And the tree of the field shall yield her fruit, and the earth shall yield her increase, and they shall be safe in their land, and shall know that I *am* the LORD, when I have broken the bands of their yoke, and delivered them out of the hand of those that served themselves of them.  
-> <sup>28</sup> And they shall no more be a prey to the heathen, neither shall the beast of the land devour them; but they shall dwell safely, and none shall make *them* afraid.  
-> <sup>29</sup> And I will raise up for them a plant of renown, and they shall be no more consumed with hunger in the land, neither bear the shame of the heathen any more.  
-> <sup>30</sup> Thus shall they know that I the LORD their God *am* with them, and *that* they, *even* the house of Israel, *are* my people, saith the Lord GOD.  
-> <sup>31</sup> And ye my flock, the flock of my pasture, *are* men, *and* I *am* your God, saith the Lord GOD.  
+> **¹⁷** And *as for* you, O my flock, thus saith the Lord GOD; Behold, I judge between cattle and cattle, between the rams and the he goats.  
+> **¹⁸** *Seemeth it* a small thing unto you to have eaten up the good pasture, but ye must tread down with your feet the residue of your pastures? and to have drunk of the deep waters, but ye must foul the residue with your feet?  
+> **¹⁹** And *as for* my flock, they eat that which ye have trodden with your feet; and they drink that which ye have fouled with your feet.  
+> **²⁰** Therefore thus saith the Lord GOD unto them; Behold, I, *even* I, will judge between the fat cattle and between the lean cattle.  
+> **²¹** Because ye have thrust with side and with shoulder, and pushed all the diseased with your horns, till ye have scattered them abroad;  
+> **²²** Therefore will I save my flock, and they shall no more be a prey; and I will judge between cattle and cattle.  
+> **²³** And I will set up one shepherd over them, and he shall feed them, *even* my servant David; he shall feed them, and he shall be their shepherd.  
+> **²⁴** And I the LORD will be their God, and my servant David a prince among them; I the LORD have spoken *it.*  
+> **²⁵** And I will make with them a covenant of peace, and will cause the evil beasts to cease out of the land: and they shall dwell safely in the wilderness, and sleep in the woods.  
+> **²⁶** And I will make them and the places round about my hill a blessing; and I will cause the shower to come down in his season; there shall be showers of blessing.  
+> **²⁷** And the tree of the field shall yield her fruit, and the earth shall yield her increase, and they shall be safe in their land, and shall know that I *am* the LORD, when I have broken the bands of their yoke, and delivered them out of the hand of those that served themselves of them.  
+> **²⁸** And they shall no more be a prey to the heathen, neither shall the beast of the land devour them; but they shall dwell safely, and none shall make *them* afraid.  
+> **²⁹** And I will raise up for them a plant of renown, and they shall be no more consumed with hunger in the land, neither bear the shame of the heathen any more.  
+> **³⁰** Thus shall they know that I the LORD their God *am* with them, and *that* they, *even* the house of Israel, *are* my people, saith the Lord GOD.  
+> **³¹** And ye my flock, the flock of my pasture, *are* men, *and* I *am* your God, saith the Lord GOD.  
 
 The prophet has no more to say to the shepherds, but he has now a message to deliver to the flock. God had ordered him to speak tenderly to them, and to assure them of the mercy he had in store for them. But here he is ordered to make a difference between some and others of them, to separate between the precious and the vile and then to give them a promise of the Messiah, by whom this distinction should be effectually made, partly at his first coming (for *for judgment he came into this world,* Joh 9:39, to *fill the hungry with good things and to send the rich empty away,* Lu 1:53), but completely at his second coming, when he shall, as it is here said, *judge between cattle and cattle, as a shepherd divides between the sheep and the goats, and shall set the sheep on his right hand and the goats on his left* (Mt 25:32,33), which seems to have reference to this. We have here,
 

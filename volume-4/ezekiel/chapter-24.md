@@ -8,20 +8,20 @@ Here are two sermons in this chapter, preached on a particular occasion, and the
 
 ## The Parable of the Boiling Pot; The Explanation of the Parable. (b. c. 590.)
 
-> <sup>1</sup> Again in the ninth year, in the tenth month, in the tenth *day* of the month, the word of the LORD came unto me, saying,  
-> <sup>2</sup> Son of man, write thee the name of the day, *even* of this same day: the king of Babylon set himself against Jerusalem this same day.  
-> <sup>3</sup> And utter a parable unto the rebellious house, and say unto them, Thus saith the Lord GOD; Set on a pot, set *it* on, and also pour water into it:  
-> <sup>4</sup> Gather the pieces thereof into it, *even* every good piece, the thigh, and the shoulder; fill *it* with the choice bones.  
-> <sup>5</sup> Take the choice of the flock, and burn also the bones under it, *and* make it boil well, and let them seethe the bones of it therein.  
-> <sup>6</sup> Wherefore thus saith the Lord GOD; Woe to the bloody city, to the pot whose scum *is* therein, and whose scum is not gone out of it! bring it out piece by piece; let no lot fall upon it.  
-> <sup>7</sup> For her blood is in the midst of her; she set it upon the top of a rock; she poured it not upon the ground, to cover it with dust;  
-> <sup>8</sup> That it might cause fury to come up to take vengeance; I have set her blood upon the top of a rock, that it should not be covered.  
-> <sup>9</sup> Therefore thus saith the Lord GOD; Woe to the bloody city! I will even make the pile for fire great.  
-> <sup>10</sup> Heap on wood, kindle the fire, consume the flesh, and spice it well, and let the bones be burned.  
-> <sup>11</sup> Then set it empty upon the coals thereof, that the brass of it may be hot, and may burn, and *that* the filthiness of it may be molten in it, *that* the scum of it may be consumed.  
-> <sup>12</sup> She hath wearied *herself* with lies, and her great scum went not forth out of her: her scum *shall be* in the fire.  
-> <sup>13</sup> In thy filthiness *is* lewdness: because I have purged thee, and thou wast not purged, thou shalt not be purged from thy filthiness any more, till I have caused my fury to rest upon thee.  
-> <sup>14</sup> I the LORD have spoken *it:* it shall come to pass, and I will do *it;* I will not go back, neither will I spare, neither will I repent; according to thy ways, and according to thy doings, shall they judge thee, saith the Lord GOD.  
+> **¹** Again in the ninth year, in the tenth month, in the tenth *day* of the month, the word of the LORD came unto me, saying,  
+> **²** Son of man, write thee the name of the day, *even* of this same day: the king of Babylon set himself against Jerusalem this same day.  
+> **³** And utter a parable unto the rebellious house, and say unto them, Thus saith the Lord GOD; Set on a pot, set *it* on, and also pour water into it:  
+> **⁴** Gather the pieces thereof into it, *even* every good piece, the thigh, and the shoulder; fill *it* with the choice bones.  
+> **⁵** Take the choice of the flock, and burn also the bones under it, *and* make it boil well, and let them seethe the bones of it therein.  
+> **⁶** Wherefore thus saith the Lord GOD; Woe to the bloody city, to the pot whose scum *is* therein, and whose scum is not gone out of it! bring it out piece by piece; let no lot fall upon it.  
+> **⁷** For her blood is in the midst of her; she set it upon the top of a rock; she poured it not upon the ground, to cover it with dust;  
+> **⁸** That it might cause fury to come up to take vengeance; I have set her blood upon the top of a rock, that it should not be covered.  
+> **⁹** Therefore thus saith the Lord GOD; Woe to the bloody city! I will even make the pile for fire great.  
+> **¹⁰** Heap on wood, kindle the fire, consume the flesh, and spice it well, and let the bones be burned.  
+> **¹¹** Then set it empty upon the coals thereof, that the brass of it may be hot, and may burn, and *that* the filthiness of it may be molten in it, *that* the scum of it may be consumed.  
+> **¹²** She hath wearied *herself* with lies, and her great scum went not forth out of her: her scum *shall be* in the fire.  
+> **¹³** In thy filthiness *is* lewdness: because I have purged thee, and thou wast not purged, thou shalt not be purged from thy filthiness any more, till I have caused my fury to rest upon thee.  
+> **¹⁴** I the LORD have spoken *it:* it shall come to pass, and I will do *it;* I will not go back, neither will I spare, neither will I repent; according to thy ways, and according to thy doings, shall they judge thee, saith the Lord GOD.  
 
 We have here,
 
@@ -41,19 +41,19 @@ III\. The notice which he orders him to give to the people thereupon, the purpor
 
 ## The Death of the Prophet's Wife; A Sign of Jerusalem's Ruin. (b. c. 590.)
 
-> <sup>15</sup> Also the word of the LORD came unto me, saying,  
-> <sup>16</sup> Son of man, behold, I take away from thee the desire of thine eyes with a stroke: yet neither shalt thou mourn nor weep, neither shall thy tears run down.  
-> <sup>17</sup> Forbear to cry, make no mourning for the dead, bind the tire of thine head upon thee, and put on thy shoes upon thy feet, and cover not *thy* lips, and eat not the bread of men.  
-> <sup>18</sup> So I spake unto the people in the morning: and at even my wife died; and I did in the morning as I was commanded.  
-> <sup>19</sup> And the people said unto me, Wilt thou not tell us what these *things are* to us, that thou doest *so?*  
-> <sup>20</sup> Then I answered them, The word of the LORD came unto me, saying,  
-> <sup>21</sup> Speak unto the house of Israel, Thus saith the Lord GOD; Behold, I will profane my sanctuary, the excellency of your strength, the desire of your eyes, and that which your soul pitieth; and your sons and your daughters whom ye have left shall fall by the sword.  
-> <sup>22</sup> And ye shall do as I have done: ye shall not cover *your* lips, nor eat the bread of men.  
-> <sup>23</sup> And your tires *shall be* upon your heads, and your shoes upon your feet: ye shall not mourn nor weep; but ye shall pine away for your iniquities, and mourn one toward another.  
-> <sup>24</sup> Thus Ezekiel is unto you a sign: according to all that he hath done shall ye do: and when this cometh, ye shall know that I *am* the Lord GOD.  
-> <sup>25</sup> Also, thou son of man, *shall it* not *be* in the day when I take from them their strength, the joy of their glory, the desire of their eyes, and that whereupon they set their minds, their sons and their daughters,  
-> <sup>26</sup> *That* he that escapeth in that day shall come unto thee, to cause *thee* to hear *it* with *thine* ears?  
-> <sup>27</sup> In that day shall thy mouth be opened to him which is escaped, and thou shalt speak, and be no more dumb: and thou shalt be a sign unto them; and they shall know that I *am* the LORD.  
+> **¹⁵** Also the word of the LORD came unto me, saying,  
+> **¹⁶** Son of man, behold, I take away from thee the desire of thine eyes with a stroke: yet neither shalt thou mourn nor weep, neither shall thy tears run down.  
+> **¹⁷** Forbear to cry, make no mourning for the dead, bind the tire of thine head upon thee, and put on thy shoes upon thy feet, and cover not *thy* lips, and eat not the bread of men.  
+> **¹⁸** So I spake unto the people in the morning: and at even my wife died; and I did in the morning as I was commanded.  
+> **¹⁹** And the people said unto me, Wilt thou not tell us what these *things are* to us, that thou doest *so?*  
+> **²⁰** Then I answered them, The word of the LORD came unto me, saying,  
+> **²¹** Speak unto the house of Israel, Thus saith the Lord GOD; Behold, I will profane my sanctuary, the excellency of your strength, the desire of your eyes, and that which your soul pitieth; and your sons and your daughters whom ye have left shall fall by the sword.  
+> **²²** And ye shall do as I have done: ye shall not cover *your* lips, nor eat the bread of men.  
+> **²³** And your tires *shall be* upon your heads, and your shoes upon your feet: ye shall not mourn nor weep; but ye shall pine away for your iniquities, and mourn one toward another.  
+> **²⁴** Thus Ezekiel is unto you a sign: according to all that he hath done shall ye do: and when this cometh, ye shall know that I *am* the Lord GOD.  
+> **²⁵** Also, thou son of man, *shall it* not *be* in the day when I take from them their strength, the joy of their glory, the desire of their eyes, and that whereupon they set their minds, their sons and their daughters,  
+> **²⁶** *That* he that escapeth in that day shall come unto thee, to cause *thee* to hear *it* with *thine* ears?  
+> **²⁷** In that day shall thy mouth be opened to him which is escaped, and thou shalt speak, and be no more dumb: and thou shalt be a sign unto them; and they shall know that I *am* the LORD.  
 
 These verses conclude what we have been upon all along from the beginning of this book, to wit, Ezekiel's prophecies of the destruction of Jerusalem; for after this, though he prophesied much concerning other nations, he said no more concerning Jerusalem, till he heard of the destruction of it, almost three years after, Eze 33:21. He had assured them, in the former part of this chapter, that there was no hope at all of the preventing of the trouble; here he assures them that they should not have the ease of weeping for it. Observe here,
 

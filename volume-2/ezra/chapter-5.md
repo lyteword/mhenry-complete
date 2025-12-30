@@ -8,8 +8,8 @@ We left the temple-work at a full stop; but, being God's work, it shall be reviv
 
 ## The Jews Encouraged by Their Prophets. (b. c. 520.)
 
-> <sup>1</sup> Then the prophets, Haggai the prophet, and Zechariah the son of Iddo, prophesied unto the Jews that *were* in Judah and Jerusalem in the name of the God of Israel, *even* unto them.  
-> <sup>2</sup> Then rose up Zerubbabel the son of Shealtiel, and Jeshua the son of Jozadak, and began to build the house of God which *is* at Jerusalem: and with them *were* the prophets of God helping them.  
+> **¹** Then the prophets, Haggai the prophet, and Zechariah the son of Iddo, prophesied unto the Jews that *were* in Judah and Jerusalem in the name of the God of Israel, *even* unto them.  
+> **²** Then rose up Zerubbabel the son of Shealtiel, and Jeshua the son of Jozadak, and began to build the house of God which *is* at Jerusalem: and with them *were* the prophets of God helping them.  
 
 Some reckon that the building of the temple was suspended for only nine years; I am willing to believe that fifteen years were the utmost. During this time they had an altar and a tabernacle, which no doubt they made use of. When we cannot do what we would we must do what we can in the service of God, and be sorry we can do no better. But the counsellors that were hired to hinder the work (Ezr 4:5) told them, and perhaps with a pretence to inspiration, that the time had not come for the building of the temple (Hag 1:2), urging that it was long ere the time came for the building of Solomon's temple; and thus the people were made easy in their own *ceiled houses,* while *God's house lay waste.* Now here we are told how life was put into that good cause which seemed to lie dead.
 
@@ -25,21 +25,21 @@ II\. They had two good magistrates, who were forward and active in this work. Ze
 
 ## The Case Represented to Darius. (b. c. 519.)
 
-> <sup>3</sup> At the same time came to them Tatnai, governor on this side the river, and Shethar-boznai, and their companions, and said thus unto them, Who hath commanded you to build this house, and to make up this wall?  
-> <sup>4</sup> Then said we unto them after this manner, What are the names of the men that make this building?  
-> <sup>5</sup> But the eye of their God was upon the elders of the Jews, that they could not cause them to cease, till the matter came to Darius: and then they returned answer by letter concerning this *matter.*  
-> <sup>6</sup> The copy of the letter that Tatnai, governor on this side the river, and Shethar-boznai, and his companions the Apharsachites, which *were* on this side the river, sent unto Darius the king:  
-> <sup>7</sup> They sent a letter unto him, wherein was written thus; Unto Darius the king, all peace.  
-> <sup>8</sup> Be it known unto the king, that we went into the province of Judea, to the house of the great God, which is builded with great stones, and timber is laid in the walls, and this work goeth fast on, and prospereth in their hands.  
-> <sup>9</sup> Then asked we those elders, *and* said unto them thus, Who commanded you to build this house, and to make up these walls?  
-> <sup>10</sup> We asked their names also, to certify thee, that we might write the names of the men that *were* the chief of them.  
-> <sup>11</sup> And thus they returned us answer, saying, We are the servants of the God of heaven and earth, and build the house that was builded these many years ago, which a great king of Israel builded and set up.  
-> <sup>12</sup> But after that our fathers had provoked the God of heaven unto wrath, he gave them into the hand of Nebuchadnezzar the king of Babylon, the Chaldean, who destroyed this house, and carried the people away into Babylon.  
-> <sup>13</sup> But in the first year of Cyrus the king of Babylon *the same* king Cyrus made a decree to build this house of God.  
-> <sup>14</sup> And the vessels also of gold and silver of the house of God, which Nebuchadnezzar took out of the temple that *was* in Jerusalem, and brought them into the temple of Babylon, those did Cyrus the king take out of the temple of Babylon, and they were delivered unto *one,* whose name *was* Sheshbazzar, whom he had made governor;  
-> <sup>15</sup> And said unto him, Take these vessels, go, carry them into the temple that *is* in Jerusalem, and let the house of God be builded in his place.  
-> <sup>16</sup> Then came the same Sheshbazzar, *and* laid the foundation of the house of God which *is* in Jerusalem: and since that time even until now hath it been in building, and *yet* it is not finished.  
-> <sup>17</sup> Now therefore, if *it seem* good to the king, let there be search made in the king's treasure house, which *is* there at Babylon, whether it be *so,* that a decree was made of Cyrus the king to build this house of God at Jerusalem, and let the king send his pleasure to us concerning this matter.  
+> **³** At the same time came to them Tatnai, governor on this side the river, and Shethar-boznai, and their companions, and said thus unto them, Who hath commanded you to build this house, and to make up this wall?  
+> **⁴** Then said we unto them after this manner, What are the names of the men that make this building?  
+> **⁵** But the eye of their God was upon the elders of the Jews, that they could not cause them to cease, till the matter came to Darius: and then they returned answer by letter concerning this *matter.*  
+> **⁶** The copy of the letter that Tatnai, governor on this side the river, and Shethar-boznai, and his companions the Apharsachites, which *were* on this side the river, sent unto Darius the king:  
+> **⁷** They sent a letter unto him, wherein was written thus; Unto Darius the king, all peace.  
+> **⁸** Be it known unto the king, that we went into the province of Judea, to the house of the great God, which is builded with great stones, and timber is laid in the walls, and this work goeth fast on, and prospereth in their hands.  
+> **⁹** Then asked we those elders, *and* said unto them thus, Who commanded you to build this house, and to make up these walls?  
+> **¹⁰** We asked their names also, to certify thee, that we might write the names of the men that *were* the chief of them.  
+> **¹¹** And thus they returned us answer, saying, We are the servants of the God of heaven and earth, and build the house that was builded these many years ago, which a great king of Israel builded and set up.  
+> **¹²** But after that our fathers had provoked the God of heaven unto wrath, he gave them into the hand of Nebuchadnezzar the king of Babylon, the Chaldean, who destroyed this house, and carried the people away into Babylon.  
+> **¹³** But in the first year of Cyrus the king of Babylon *the same* king Cyrus made a decree to build this house of God.  
+> **¹⁴** And the vessels also of gold and silver of the house of God, which Nebuchadnezzar took out of the temple that *was* in Jerusalem, and brought them into the temple of Babylon, those did Cyrus the king take out of the temple of Babylon, and they were delivered unto *one,* whose name *was* Sheshbazzar, whom he had made governor;  
+> **¹⁵** And said unto him, Take these vessels, go, carry them into the temple that *is* in Jerusalem, and let the house of God be builded in his place.  
+> **¹⁶** Then came the same Sheshbazzar, *and* laid the foundation of the house of God which *is* in Jerusalem: and since that time even until now hath it been in building, and *yet* it is not finished.  
+> **¹⁷** Now therefore, if *it seem* good to the king, let there be search made in the king's treasure house, which *is* there at Babylon, whether it be *so,* that a decree was made of Cyrus the king to build this house of God at Jerusalem, and let the king send his pleasure to us concerning this matter.  
 
 We have here, I. The cognizance which their neighbours soon took of the reviving of this good work. A jealous eye, it seems, they had upon them, and no sooner did the Spirit of God stir up the friends of the temple to appear for it than the evil spirit stirred up its enemies to appear against it. While the people built and ceiled their own houses their enemies gave them no molestation (Hag 1:4), though the king's order was to put a stop to the building of the city (Ezr 4:21); but when they fell to work again at the temple then the alarm was taken, and all heads were at work to hinder them, Ezr 5:3,4. The adversaries are here named: *Tatnai* and *Shethar-boznai.* The governors we read of (Ezr 4:1-24) were, it is probable, displaced at the beginning of this reign, as is usual. It is the policy of princes often to change their deputies, proconsuls, and rulers of provinces. These, though real enemies to the building of the temple, were men of better temper than the other, and made some conscience of telling truth. If *all men have not faith* (2Th 3:2), it is well some have, and a sense of honour. The church's enemies are not all equally wicked and unreasonable. The historian begins to relate what passed between the builders and those inquisitors (Ezr 5:3,4), but breaks off his account, and refers to the ensuing copy of the letter they sent to the king, where the same appears more fully and at large, which he began to abridge (Ezr 5:4), or make an extract out of, though, upon second thoughts, he inserted the whole.
 

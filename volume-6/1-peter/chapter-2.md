@@ -8,9 +8,9 @@ The general exhortation to holiness is continued, and enforced by several reason
 
 ## Against Malice and Hypocrisy. (a. d. 66.)
 
-> <sup>1</sup> Wherefore laying aside all malice, and all guile, and hypocrisies, and envies, and all evil speakings,  
-> <sup>2</sup> As newborn babes, desire the sincere milk of the word, that ye may grow thereby:  
-> <sup>3</sup> If so be ye have tasted that the Lord *is* gracious.  
+> **¹** Wherefore laying aside all malice, and all guile, and hypocrisies, and envies, and all evil speakings,  
+> **²** As newborn babes, desire the sincere milk of the word, that ye may grow thereby:  
+> **³** If so be ye have tasted that the Lord *is* gracious.  
 
 The holy apostle has been recommending mutual charity, and setting forth the excellences of the word of God, calling it an *incorruptible seed,* and saying that it *liveth and abideth for ever.* He pursues his discourse, and very properly comes in with this necessary advice, *Wherefore laying aside all malice,* etc. These are such sins as both destroy charity and hinder the efficacy of the word, and consequently they prevent our regeneration.
 
@@ -26,15 +26,15 @@ III\. He adds an argument from their own experience: *If so be,* or *since that,
 
 ## The Living Stone; Cautions against Sensuality. (a. d. 66.)
 
-> <sup>4</sup> To whom coming, *as unto* a living stone, disallowed indeed of men, but chosen of God, *and* precious,  
-> <sup>5</sup> Ye also, as lively stones, are built up a spiritual house, an holy priesthood, to offer up spiritual sacrifices, acceptable to God by Jesus Christ.  
-> <sup>6</sup> Wherefore also it is contained in the scripture, Behold, I lay in Sion a chief corner stone, elect, precious: and he that believeth on him shall not be confounded.  
-> <sup>7</sup> Unto you therefore which believe *he is* precious: but unto them which be disobedient, the stone which the builders disallowed, the same is made the head of the corner,  
-> <sup>8</sup> And a stone of stumbling, and a rock of offence, *even to them* which stumble at the word, being disobedient: whereunto also they were appointed.  
-> <sup>9</sup> But ye *are* a chosen generation, a royal priesthood, a holy nation, a peculiar people; that ye should show forth the praises of him who hath called you out of darkness into his marvellous light:  
-> <sup>10</sup> Which in time past *were* not a people, but *are* now the people of God: which had not obtained mercy, but now have obtained mercy.  
-> <sup>11</sup> Dearly beloved, I beseech *you* as strangers and pilgrims, abstain from fleshly lusts, which war against the soul;  
-> <sup>12</sup> Having your conversation honest among the Gentiles: that, whereas they speak against you as evildoers, they may by *your* good works, which they shall behold, glorify God in the day of visitation.  
+> **⁴** To whom coming, *as unto* a living stone, disallowed indeed of men, but chosen of God, *and* precious,  
+> **⁵** Ye also, as lively stones, are built up a spiritual house, an holy priesthood, to offer up spiritual sacrifices, acceptable to God by Jesus Christ.  
+> **⁶** Wherefore also it is contained in the scripture, Behold, I lay in Sion a chief corner stone, elect, precious: and he that believeth on him shall not be confounded.  
+> **⁷** Unto you therefore which believe *he is* precious: but unto them which be disobedient, the stone which the builders disallowed, the same is made the head of the corner,  
+> **⁸** And a stone of stumbling, and a rock of offence, *even to them* which stumble at the word, being disobedient: whereunto also they were appointed.  
+> **⁹** But ye *are* a chosen generation, a royal priesthood, a holy nation, a peculiar people; that ye should show forth the praises of him who hath called you out of darkness into his marvellous light:  
+> **¹⁰** Which in time past *were* not a people, but *are* now the people of God: which had not obtained mercy, but now have obtained mercy.  
+> **¹¹** Dearly beloved, I beseech *you* as strangers and pilgrims, abstain from fleshly lusts, which war against the soul;  
+> **¹²** Having your conversation honest among the Gentiles: that, whereas they speak against you as evildoers, they may by *your* good works, which they shall behold, glorify God in the day of visitation.  
 
 I\. The apostle here gives us a description of Jesus Christ as a living stone; and though to a capricious wit, or an infidel, this description may seem rough and harsh, yet to the Jews, who placed much of their religion in their magnificent temple, and who understood the prophetical style, which calls the Messiah *a stone* (Isa 8:14,28:16), it would appear very elegant and proper.
 
@@ -62,19 +62,19 @@ VI\. He exhorts them further to adorn their profession by an honest conversation
 
 ## Submission to Magistrates; Various Exhortations; Christ's Example as a Sufferer. (a. d. 66.)
 
-> <sup>13</sup> Submit yourselves to every ordinance of man for the Lord's sake: whether it be to the king, as supreme;  
-> <sup>14</sup> Or unto governors, as unto them that are sent by him for the punishment of evildoers, and for the praise of them that do well.  
-> <sup>15</sup> For so is the will of God, that with well doing ye may put to silence the ignorance of foolish men:  
-> <sup>16</sup> As free, and not using *your* liberty for a cloak of maliciousness, but as the servants of God.  
-> <sup>17</sup> Honour all *men.* Love the brotherhood. Fear God. Honour the king.  
-> <sup>18</sup> Servants, *be* subject to *your* masters with all fear; not only to the good and gentle, but also to the froward.  
-> <sup>19</sup> For this *is* thankworthy, if a man for conscience toward God endure grief, suffering wrongfully.  
-> <sup>20</sup> For what glory *is it,* if, when ye be buffeted for your faults, ye shall take it patiently? but if, when ye do well, and suffer *for it,* ye take it patiently, this *is* acceptable with God.  
-> <sup>21</sup> For even hereunto were ye called: because Christ also suffered for us, leaving us an example, that ye should follow his steps:  
-> <sup>22</sup> Who did no sin, neither was guile found in his mouth:  
-> <sup>23</sup> Who, when he was reviled, reviled not again; when he suffered, he threatened not; but committed *himself* to him that judgeth righteously:  
-> <sup>24</sup> Who his own self bare our sins in his own body on the tree, that we, being dead to sins, should live unto righteousness: by whose stripes ye were healed.  
-> <sup>25</sup> For ye were as sheep going astray; but are now returned unto the Shepherd and Bishop of your souls.  
+> **¹³** Submit yourselves to every ordinance of man for the Lord's sake: whether it be to the king, as supreme;  
+> **¹⁴** Or unto governors, as unto them that are sent by him for the punishment of evildoers, and for the praise of them that do well.  
+> **¹⁵** For so is the will of God, that with well doing ye may put to silence the ignorance of foolish men:  
+> **¹⁶** As free, and not using *your* liberty for a cloak of maliciousness, but as the servants of God.  
+> **¹⁷** Honour all *men.* Love the brotherhood. Fear God. Honour the king.  
+> **¹⁸** Servants, *be* subject to *your* masters with all fear; not only to the good and gentle, but also to the froward.  
+> **¹⁹** For this *is* thankworthy, if a man for conscience toward God endure grief, suffering wrongfully.  
+> **²⁰** For what glory *is it,* if, when ye be buffeted for your faults, ye shall take it patiently? but if, when ye do well, and suffer *for it,* ye take it patiently, this *is* acceptable with God.  
+> **²¹** For even hereunto were ye called: because Christ also suffered for us, leaving us an example, that ye should follow his steps:  
+> **²²** Who did no sin, neither was guile found in his mouth:  
+> **²³** Who, when he was reviled, reviled not again; when he suffered, he threatened not; but committed *himself* to him that judgeth righteously:  
+> **²⁴** Who his own self bare our sins in his own body on the tree, that we, being dead to sins, should live unto righteousness: by whose stripes ye were healed.  
+> **²⁵** For ye were as sheep going astray; but are now returned unto the Shepherd and Bishop of your souls.  
 
 The general rule of a Christian conversation is this, it must be honest, which it cannot be if there be not a conscientious discharge of all relative duties. The apostle here particularly treats of these distinctly.
 

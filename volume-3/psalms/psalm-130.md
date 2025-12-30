@@ -10,10 +10,10 @@ This psalm relates not to any temporal concern, either personal or public, but i
 
 A song of degrees.
 
-> <sup>1</sup> Out of the depths have I cried unto thee, O LORD.  
-> <sup>2</sup> Lord, hear my voice: let thine ears be attentive to the voice of my supplications.  
-> <sup>3</sup> If thou, LORD, shouldest mark iniquities, O Lord, who shall stand?  
-> <sup>4</sup> But *there is* forgiveness with thee, that thou mayest be feared.  
+> **¹** Out of the depths have I cried unto thee, O LORD.  
+> **²** Lord, hear my voice: let thine ears be attentive to the voice of my supplications.  
+> **³** If thou, LORD, shouldest mark iniquities, O Lord, who shall stand?  
+> **⁴** But *there is* forgiveness with thee, that thou mayest be feared.  
 
 In these verses we are taught,
 
@@ -27,10 +27,10 @@ IV\. We are taught to cast ourselves upon the pardoning mercy of God, and to com
 
 ## Encouragement to Trust in and Depend upon God.
 
-> <sup>5</sup> I wait for the LORD, my soul doth wait, and in his word do I hope.  
-> <sup>6</sup> My soul *waiteth* for the Lord more than they that watch for the morning: *I say, more than* they that watch for the morning.  
-> <sup>7</sup> Let Israel hope in the LORD: for with the LORD *there is* mercy, and with him *is* plenteous redemption.  
-> <sup>8</sup> And he shall redeem Israel from all his iniquities.  
+> **⁵** I wait for the LORD, my soul doth wait, and in his word do I hope.  
+> **⁶** My soul *waiteth* for the Lord more than they that watch for the morning: *I say, more than* they that watch for the morning.  
+> **⁷** Let Israel hope in the LORD: for with the LORD *there is* mercy, and with him *is* plenteous redemption.  
+> **⁸** And he shall redeem Israel from all his iniquities.  
 
 Here, I. The psalmist engages himself to trust in God and to wait for him, Ps 130:5,6. Observe, 1. His dependence upon God, expressed in a climax, it being a a song of degrees, or ascents: "*I wait for the Lord;* from him I expect relief and comfort, believing it will come, longing till it does come, but patiently bearing the delay of it, and resolving to look for it from no other hand. *My soul doth wait;* I wait for him in sincerity, and not in profession only. I am an expectant, and it is *for the Lord* that *my soul waits,* for the gifts of his grace and the operations of his power." 2. The ground of that dependence: *In his word do I hope.* We must hope for that only which he has promised in his word, and not for the creatures of our own fancy and imagination; we must hope for it because he has promised it, and not from any opinion of our own merit. 3. The degree of that dependence—"*more than those that watch for the morning,* who are, (1.) Well-assured that the morning will come; and so am I that God will return in mercy to me, according to his promise; for God's covenant is more firm than the ordinances of day and night, for they shall come to an end, but that is everlasting." (2.) Very desirous that it would come. Sentinels that keep guard upon the walls, those that watch with sick people, and travellers that are abroad upon their journey, long before day wish to see the dawning of the day; but more earnestly does this good man long for the tokens of God's favour and the visits of his grace, and more readily will he be aware of his first appearances than they are of day. Dr. Hammond reads it thus, *My soul hastens to the Lord, from the guards in the morning, the guards in the morning,* and gives this sense of it, "To thee I daily betake myself, early in the morning, addressing my prayers, and my very soul, before thee, at the time that the priests offer their morning sacrifice."
 

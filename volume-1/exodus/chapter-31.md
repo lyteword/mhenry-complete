@@ -8,17 +8,17 @@ God is here drawing towards a conclusion of what he had to say to Moses upon the
 
 ## Appointment of Bezaleel and Aholiab. (b. c. 1491.)
 
-> <sup>1</sup> And the LORD spake unto Moses, saying,  
-> <sup>2</sup> See, I have called by name Bezaleel the son of Uri, the son of Hur, of the tribe of Judah:  
-> <sup>3</sup> And I have filled him with the spirit of God, in wisdom, and in understanding, and in knowledge, and in all manner of workmanship,  
-> <sup>4</sup> To devise cunning works, to work in gold, and in silver, and in brass,  
-> <sup>5</sup> And in cutting of stones, to set *them,* and in carving of timber, to work in all manner of workmanship.  
-> <sup>6</sup> And I, behold, I have given with him Aholiab, the son of Ahisamach, of the tribe of Dan: and in the hearts of all that are wise hearted I have put wisdom, that they may make all that I have commanded thee;  
-> <sup>7</sup> The tabernacle of the congregation, and the ark of the testimony, and the mercy seat that *is* thereupon, and all the furniture of the tabernacle,  
-> <sup>8</sup> And the table and his furniture, and the pure candlestick with all his furniture, and the altar of incense,  
-> <sup>9</sup> And the altar of burnt offering with all his furniture, and the laver and his foot,  
-> <sup>10</sup> And the cloths of service, and the holy garments for Aaron the priest, and the garments of his sons, to minister in the priest's office,  
-> <sup>11</sup> And the anointing oil, and sweet incense for the holy *place:* according to all that I have commanded thee shall they do.  
+> **¹** And the LORD spake unto Moses, saying,  
+> **²** See, I have called by name Bezaleel the son of Uri, the son of Hur, of the tribe of Judah:  
+> **³** And I have filled him with the spirit of God, in wisdom, and in understanding, and in knowledge, and in all manner of workmanship,  
+> **⁴** To devise cunning works, to work in gold, and in silver, and in brass,  
+> **⁵** And in cutting of stones, to set *them,* and in carving of timber, to work in all manner of workmanship.  
+> **⁶** And I, behold, I have given with him Aholiab, the son of Ahisamach, of the tribe of Dan: and in the hearts of all that are wise hearted I have put wisdom, that they may make all that I have commanded thee;  
+> **⁷** The tabernacle of the congregation, and the ark of the testimony, and the mercy seat that *is* thereupon, and all the furniture of the tabernacle,  
+> **⁸** And the table and his furniture, and the pure candlestick with all his furniture, and the altar of incense,  
+> **⁹** And the altar of burnt offering with all his furniture, and the laver and his foot,  
+> **¹⁰** And the cloths of service, and the holy garments for Aaron the priest, and the garments of his sons, to minister in the priest's office,  
+> **¹¹** And the anointing oil, and sweet incense for the holy *place:* according to all that I have commanded thee shall they do.  
 
 A great deal of fine work God had ordered to be done about the tabernacle; the materials the people were to provide, but who must put them into form? Moses himself was learned in all the learning of the Egyptians, nay, he was well acquainted with the words of God, and the visions of the Almighty; but he knew not how to engrave or embroider. We may suppose that there were some very ingenious men among the Israelites; but, having lived all their days in bondage in Egypt, we cannot think they were any of them instructed in these curious arts. They knew how to make brick and work in clay, but to work in gold and in cutting diamonds was what they had never been brought up to. How should the work be done with the neatness and exactness that were required when they had no goldsmiths or jewellers but what must be made out of masons and bricklayers? We may suppose that there were a sufficient number who would gladly be employed, and would do their best; but it would be hard to find out a proper person to preside in this work. *Who was sufficient for these things?* But God takes care of this matter also.
 
@@ -28,13 +28,13 @@ II\. He qualifies these persons for the service (Ex 31:3): *I have filled him wi
 
 ## The Observance of the Sabbath. (b. c. 1491.)
 
-> <sup>12</sup> And the LORD spake unto Moses, saying,  
-> <sup>13</sup> Speak thou also unto the children of Israel, saying, Verily my sabbaths ye shall keep: for it *is* a sign between me and you throughout your generations; that *ye* may know that I *am* the LORD that doth sanctify you.  
-> <sup>14</sup> Ye shall keep the sabbath therefore; for it *is* holy unto you: every one that defileth it shall surely be put to death: for whosoever doeth *any* work therein, that soul shall be cut off from among his people.  
-> <sup>15</sup> Six days may work be done; but in the seventh *is* the sabbath of rest, holy to the LORD: whosoever doeth *any* work in the sabbath day, he shall surely be put to death.  
-> <sup>16</sup> Wherefore the children of Israel shall keep the sabbath, to observe the sabbath throughout their generations, *for* a perpetual covenant.  
-> <sup>17</sup> It *is* a sign between me and the children of Israel for ever: for *in* six days the LORD made heaven and earth, and on the seventh day he rested, and was refreshed.  
-> <sup>18</sup> And he gave unto Moses, when he had made an end of communing with him upon Mount Sinai, two tables of testimony, tables of stone, written with the finger of God.  
+> **¹²** And the LORD spake unto Moses, saying,  
+> **¹³** Speak thou also unto the children of Israel, saying, Verily my sabbaths ye shall keep: for it *is* a sign between me and you throughout your generations; that *ye* may know that I *am* the LORD that doth sanctify you.  
+> **¹⁴** Ye shall keep the sabbath therefore; for it *is* holy unto you: every one that defileth it shall surely be put to death: for whosoever doeth *any* work therein, that soul shall be cut off from among his people.  
+> **¹⁵** Six days may work be done; but in the seventh *is* the sabbath of rest, holy to the LORD: whosoever doeth *any* work in the sabbath day, he shall surely be put to death.  
+> **¹⁶** Wherefore the children of Israel shall keep the sabbath, to observe the sabbath throughout their generations, *for* a perpetual covenant.  
+> **¹⁷** It *is* a sign between me and the children of Israel for ever: for *in* six days the LORD made heaven and earth, and on the seventh day he rested, and was refreshed.  
+> **¹⁸** And he gave unto Moses, when he had made an end of communing with him upon Mount Sinai, two tables of testimony, tables of stone, written with the finger of God.  
 
 Here is, I. A strict command for the sanctification of the sabbath day, Ex 31:13-17. The law of the sabbath had been given them before any other law, by was of preparation (Ex 16:23); it had been inserted in the body of the moral law, in the fourth commandment; it had been annexed to the judicial law (Ex 23:12); and here it is added to the first part of the ceremonial law, because the observance of the sabbath is indeed the hem and hedge of the whole law; where no conscience is made of that, farewell both godliness and honesty; for, in the moral law, it stands in the midst between the two tables. Some suggest that it comes in here upon another account. Orders were now given that a tabernacle should be set up and furnished for the service of God with all possible expedition; but lest they should think that the nature of the work, and the haste that was required, would justify them in working at it on sabbath days, that they might get it done the sooner, this caution is seasonably inserted, *Verily,* or *nevertheless, my sabbaths you shall keep.* Though they must hasten the work, yet they must not make more haste than good speed; they must not break the law of the sabbath in their haste: even tabernacle-work must give way to the sabbath-rest; so jealous is God for the honour of his sabbaths. Observe what is here said concerning the sabbath day.
 

@@ -8,8 +8,8 @@ This psalm is short and sweet; I doubt the reason why we sing it so often as we 
 
 ## All Nations Admonished to Praise God.
 
-> <sup>1</sup> O praise the LORD, all ye nations: praise him, all ye people.  
-> <sup>2</sup> For his merciful kindness is great toward us: and the truth of the LORD *endureth* for ever. Praise ye the LORD.  
+> **¹** O praise the LORD, all ye nations: praise him, all ye people.  
+> **²** For his merciful kindness is great toward us: and the truth of the LORD *endureth* for ever. Praise ye the LORD.  
 
 There is a great deal of gospel in this psalm. The apostle has furnished us with a key to it (Ro 15:11), where he quotes it as a proof that the gospel was to be preached to, and would be entertained by, the Gentile nations, which yet was so great a stumbling-block to the Jews. Why should that offend them when it is said, and they themselves had often sung it, *Praise the Lord, all you Gentiles, and laud him, all you people.* Some of the Jewish writers confess that this psalm refers to the kingdom of the Messiah; nay, one of them has a fancy that it consists of two verses to signify that in the days of the Messiah God should be glorified by two sorts of people, by the Jews, according to the law of Moses, and by the Gentiles, according to the seven precepts of the sons of Noah, which yet should make one church, as these two verses make one psalm. We have here,
 

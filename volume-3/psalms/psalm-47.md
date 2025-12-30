@@ -10,10 +10,10 @@ The scope of this psalm is to stir us up to praise God, to stir up all people to
 
 To the chief musician. A psalm for the sons of Korah.
 
-> <sup>1</sup> O clap your hands, all ye people; shout unto God with the voice of triumph.  
-> <sup>2</sup> For the LORD most high *is* terrible; *he is* a great King over all the earth.  
-> <sup>3</sup> He shall subdue the people under us, and the nations under our feet.  
-> <sup>4</sup> He shall choose our inheritance for us, the excellency of Jacob whom he loved. Selah.  
+> **¹** O clap your hands, all ye people; shout unto God with the voice of triumph.  
+> **²** For the LORD most high *is* terrible; *he is* a great King over all the earth.  
+> **³** He shall subdue the people under us, and the nations under our feet.  
+> **⁴** He shall choose our inheritance for us, the excellency of Jacob whom he loved. Selah.  
 
 The psalmist, having his own heart filled with great and good thoughts of God, endeavours to engage all about him in the blessed work of praise, as one convinced that God is worthy of all blessing and praise, and as one grieved at his own and others' backwardness to and barrenness in this work. Observe, in these verses,
 
@@ -25,11 +25,11 @@ III\. What is suggested to us as matter for our praise. 1. That the God with who
 
 ## Exhortation to Praise God.
 
-> <sup>5</sup> God is gone up with a shout, the LORD with the sound of a trumpet.  
-> <sup>6</sup> Sing praises to God, sing praises: sing praises unto our King, sing praises.  
-> <sup>7</sup> For God *is* the King of all the earth: sing ye praises with understanding.  
-> <sup>8</sup> God reigneth over the heathen: God sitteth upon the throne of his holiness.  
-> <sup>9</sup> The princes of the people are gathered together, *even* the people of the God of Abraham: for the shields of the earth *belong* unto God: he is greatly exalted.  
+> **⁵** God is gone up with a shout, the LORD with the sound of a trumpet.  
+> **⁶** Sing praises to God, sing praises: sing praises unto our King, sing praises.  
+> **⁷** For God *is* the King of all the earth: sing ye praises with understanding.  
+> **⁸** God reigneth over the heathen: God sitteth upon the throne of his holiness.  
+> **⁹** The princes of the people are gathered together, *even* the people of the God of Abraham: for the shields of the earth *belong* unto God: he is greatly exalted.  
 
 We are here most earnestly pressed to praise God, and to sing his praises; so backward are we to this duty that we have need to be urged to it by precept upon precept, and line upon line; so we are here (Ps 47:6): *Sing praises to God,* and again, *Sing praises, Sing praises to our King,* and again, *Sing praises.* This intimates that it is a very necessary and excellent duty, that it is a duty we ought to be frequent and abundant in; we may sing praises again and again in the same words, and it is no vain repetition if it be done with new affections. Should not a people praise their God? Da 5:4. Should not subjects praise their king? God is our God, our King, and therefore we must praise him; we must sing his praises, as those that are pleased with them and that are not ashamed of them. But here is a needful rule subjoined (Ps 47:7): *Sing you praises with understanding,* with *Maschil.* 1. "Intelligently; as those that do yourselves understand why and for what reasons you praise God and what is the meaning of the service." This is the gospel-rule (1Co 14:15), *to sing with the spirit and with the understanding also;* it is only with the heart that we make melody to the Lord, Eph 5:19. It is not an acceptable service if it be not a reasonable service. 2. "Instructively, as those that desire to make others understand God's glorious perfections, and to teach them to praise him." Three things are mentioned in these verses as just matter for our praises, and each of them will admit of a double sense:—
 

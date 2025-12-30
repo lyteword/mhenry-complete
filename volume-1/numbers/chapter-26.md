@@ -8,60 +8,60 @@ This book is called Numbers, from the numberings of the children of Israel, of w
 
 ## The Numbering of the People. (b. c. 1452.)
 
-> <sup>1</sup> And it came to pass after the plague, that the LORD spake unto Moses and unto Eleazar the son of Aaron the priest, saying,  
-> <sup>2</sup> Take the sum of all the congregation of the children of Israel, from twenty years old and upward, throughout their fathers' house, all that are able to go to war in Israel.  
-> <sup>3</sup> And Moses and Eleazar the priest spake with them in the plains of Moab by Jordan *near* Jericho, saying,  
-> <sup>4</sup> *Take the sum of the people,* from twenty years old and upward; as the LORD commanded Moses and the children of Israel, which went forth out of the land of Egypt.  
+> **¹** And it came to pass after the plague, that the LORD spake unto Moses and unto Eleazar the son of Aaron the priest, saying,  
+> **²** Take the sum of all the congregation of the children of Israel, from twenty years old and upward, throughout their fathers' house, all that are able to go to war in Israel.  
+> **³** And Moses and Eleazar the priest spake with them in the plains of Moab by Jordan *near* Jericho, saying,  
+> **⁴** *Take the sum of the people,* from twenty years old and upward; as the LORD commanded Moses and the children of Israel, which went forth out of the land of Egypt.  
 
 Observe here, 1. That Moses did not number the people but when God commanded him. David in his time did it without a command, and paid dearly for it. God was Israel's king, and he would not have this act of authority done but by his express orders. Moses, perhaps, by this time, had heard of the blessing with which Balaam was constrained, sorely against his will, to bless Israel, and particularly the notice he took of their numbers; and he was sufficiently pleased with that general testimony borne to this instance of their strength and honour by an adversary, though he knew not their numbers exactly, till God now appointed him to take the sum of them. 2. Eleazar was joined in commission with him, as Aaron had been before, by which God honoured Eleazar before the elders of his people, and confirmed his succession. 3. It was presently after the plague that this account was ordered to be taken, to show that though God had in justice contended with them by that sweeping pestilence, yet he had not made a full end, nor would he utterly cast them off. God's Israel shall not be ruined, though it be severely rebuked. 4. They were now to go by the same rule that they had gone by in the former numbering, counting those only that were able to go forth to war, for this was the service now before them.
 
-> <sup>5</sup> Reuben, the eldest son of Israel: the children of Reuben; Hanoch, *of whom cometh* the family of the Hanochites: of Pallu, the family of the Palluites:  
-> <sup>6</sup> Of Hezron, the family of the Hezronites: of Carmi, the family of the Carmites.  
-> <sup>7</sup> These *are* the families of the Reubenites: and they that were numbered of them were forty and three thousand and seven hundred and thirty.  
-> <sup>8</sup> And the sons of Pallu; Eliab.  
-> <sup>9</sup> And the sons of Eliab; Nemuel, and Dathan, and Abiram. This *is that* Dathan and Abiram, *which were* famous in the congregation, who strove against Moses and against Aaron in the company of Korah, when they strove against the LORD:  
-> <sup>10</sup> And the earth opened her mouth, and swallowed them up together with Korah, when that company died, what time the fire devoured two hundred and fifty men: and they became a sign.  
-> <sup>11</sup> Notwithstanding the children of Korah died not.  
-> <sup>12</sup> The sons of Simeon after their families: of Nemuel, the family of the Nemuelites: of Jamin, the family of the Jaminites: of Jachin, the family of the Jachinites:  
-> <sup>13</sup> Of Zerah, the family of the Zarhites: of Shaul, the family of the Shaulites.  
-> <sup>14</sup> These *are* the families of the Simeonites, twenty and two thousand and two hundred.  
-> <sup>15</sup> The children of Gad after their families: of Zephon, the family of the Zephonites: of Haggi, the family of the Haggites: of Shuni, the family of the Shunites:  
-> <sup>16</sup> Of Ozni, the family of the Oznites: of Eri, the family of the Erites:  
-> <sup>17</sup> Of Arod, the family of the Arodites: of Areli, the family of the Arelites.  
-> <sup>18</sup> These *are* the families of the children of Gad according to those that were numbered of them, forty thousand and five hundred.  
-> <sup>19</sup> The sons of Judah *were* Er and Onan: and Er and Onan died in the land of Canaan.  
-> <sup>20</sup> And the sons of Judah after their families were; of Shelah, the family of the Shelanites: of Pharez, the family of the Pharzites: of Zerah, the family of the Zarhites.  
-> <sup>21</sup> And the sons of Pharez were; of Hezron, the family of the Hezronites: of Hamul, the family of the Hamulites.  
-> <sup>22</sup> These *are* the families of Judah according to those that were numbered of them, threescore and sixteen thousand and five hundred.  
-> <sup>23</sup> *Of* the sons of Issachar after their families: *of* Tola, the family of the Tolaites: of Pua, the family of the Punites:  
-> <sup>24</sup> Of Jashub, the family of the Jashubites: of Shimron, the family of the Shimronites.  
-> <sup>25</sup> These *are* the families of Issachar according to those that were numbered of them, threescore and four thousand and three hundred.  
-> <sup>26</sup> *Of* the sons of Zebulun after their families: of Sered, the family of the Sardites: of Elon, the family of the Elonites: of Jahleel, the family of the Jahleelites.  
-> <sup>27</sup> These *are* the families of the Zebulunites according to those that were numbered of them, threescore thousand and five hundred.  
-> <sup>28</sup> The sons of Joseph after their families *were* Manasseh and Ephraim.  
-> <sup>29</sup> Of the sons of Manasseh: of Machir, the family of the Machirites: and Machir begat Gilead: of Gilead *come* the family of the Gileadites.  
-> <sup>30</sup> These *are* the sons of Gilead: *of* Jeezer, the family of the Jeezerites: of Helek, the family of the Helekites:  
-> <sup>31</sup> And *of* Asriel, the family of the Asrielites: and *of* Shechem, the family of the Shechemites:  
-> <sup>32</sup> And *of* Shemida, the family of the Shemidaites: and *of* Hepher, the family of the Hepherites.  
-> <sup>33</sup> And Zelophehad the son of Hepher had no sons, but daughters: and the names of the daughters of Zelophehad *were* Mahlah, and Noah, Hoglah, Milcah, and Tirzah.  
-> <sup>34</sup> These *are* the families of Manasseh, and those that were numbered of them, fifty and two thousand and seven hundred.  
-> <sup>35</sup> These *are* the sons of Ephraim after their families: of Shuthelah, the family of the Shuthalhites: of Becher, the family of the Bachrites: of Tahan, the family of the Tahanites.  
-> <sup>36</sup> And these *are* the sons of Shuthelah: of Eran, the family of the Eranites.  
-> <sup>37</sup> These *are* the families of the sons of Ephraim according to those that were numbered of them, thirty and two thousand and five hundred. These *are* the sons of Joseph after their families.  
-> <sup>38</sup> The sons of Benjamin after their families: of Bela, the family of the Belaites: of Ashbel, the family of the Ashbelites: of Ahiram, the family of the Ahiramites:  
-> <sup>39</sup> Of Shupham, the family of the Shuphamites: of Hupham, the family of the Huphamites.  
-> <sup>40</sup> And the sons of Bela were Ard and Naaman: *of Ard,* the family of the Ardites: *and* of Naaman, the family of the Naamites.  
-> <sup>41</sup> These *are* the sons of Benjamin after their families: and they that were numbered of them *were* forty and five thousand and six hundred.  
-> <sup>42</sup> These *are* the sons of Dan after their families: of Shuham, the family of the Shuhamites. These *are* the families of Dan after their families.  
-> <sup>43</sup> All the families of the Shuhamites, according to those that were numbered of them, *were* threescore and four thousand and four hundred.  
-> <sup>44</sup> *Of* the children of Asher after their families: of Jimna, the family of the Jimnites: of Jesui, the family of the Jesuites: of Beriah, the family of the Beriites.  
-> <sup>45</sup> Of the sons of Beriah: of Heber, the family of the Heberites: of Malchiel, the family of the Malchielites.  
-> <sup>46</sup> And the name of the daughter of Asher *was* Sarah.  
-> <sup>47</sup> These *are* the families of the sons of Asher according to those that were numbered of them; *who were* fifty and three thousand and four hundred.  
-> <sup>48</sup> *Of* the sons of Naphtali after their families: of Jahzeel, the family of the Jahzeelites: of Guni, the family of the Gunites:  
-> <sup>49</sup> Of Jezer, the family of the Jezerites: of Shillem, the family of the Shillemites.  
-> <sup>50</sup> These *are* the families of Naphtali according to their families: and they that were numbered of them *were* forty and five thousand and four hundred.  
-> <sup>51</sup> These *were* the numbered of the children of Israel, six hundred thousand and a thousand seven hundred and thirty.  
+> **⁵** Reuben, the eldest son of Israel: the children of Reuben; Hanoch, *of whom cometh* the family of the Hanochites: of Pallu, the family of the Palluites:  
+> **⁶** Of Hezron, the family of the Hezronites: of Carmi, the family of the Carmites.  
+> **⁷** These *are* the families of the Reubenites: and they that were numbered of them were forty and three thousand and seven hundred and thirty.  
+> **⁸** And the sons of Pallu; Eliab.  
+> **⁹** And the sons of Eliab; Nemuel, and Dathan, and Abiram. This *is that* Dathan and Abiram, *which were* famous in the congregation, who strove against Moses and against Aaron in the company of Korah, when they strove against the LORD:  
+> **¹⁰** And the earth opened her mouth, and swallowed them up together with Korah, when that company died, what time the fire devoured two hundred and fifty men: and they became a sign.  
+> **¹¹** Notwithstanding the children of Korah died not.  
+> **¹²** The sons of Simeon after their families: of Nemuel, the family of the Nemuelites: of Jamin, the family of the Jaminites: of Jachin, the family of the Jachinites:  
+> **¹³** Of Zerah, the family of the Zarhites: of Shaul, the family of the Shaulites.  
+> **¹⁴** These *are* the families of the Simeonites, twenty and two thousand and two hundred.  
+> **¹⁵** The children of Gad after their families: of Zephon, the family of the Zephonites: of Haggi, the family of the Haggites: of Shuni, the family of the Shunites:  
+> **¹⁶** Of Ozni, the family of the Oznites: of Eri, the family of the Erites:  
+> **¹⁷** Of Arod, the family of the Arodites: of Areli, the family of the Arelites.  
+> **¹⁸** These *are* the families of the children of Gad according to those that were numbered of them, forty thousand and five hundred.  
+> **¹⁹** The sons of Judah *were* Er and Onan: and Er and Onan died in the land of Canaan.  
+> **²⁰** And the sons of Judah after their families were; of Shelah, the family of the Shelanites: of Pharez, the family of the Pharzites: of Zerah, the family of the Zarhites.  
+> **²¹** And the sons of Pharez were; of Hezron, the family of the Hezronites: of Hamul, the family of the Hamulites.  
+> **²²** These *are* the families of Judah according to those that were numbered of them, threescore and sixteen thousand and five hundred.  
+> **²³** *Of* the sons of Issachar after their families: *of* Tola, the family of the Tolaites: of Pua, the family of the Punites:  
+> **²⁴** Of Jashub, the family of the Jashubites: of Shimron, the family of the Shimronites.  
+> **²⁵** These *are* the families of Issachar according to those that were numbered of them, threescore and four thousand and three hundred.  
+> **²⁶** *Of* the sons of Zebulun after their families: of Sered, the family of the Sardites: of Elon, the family of the Elonites: of Jahleel, the family of the Jahleelites.  
+> **²⁷** These *are* the families of the Zebulunites according to those that were numbered of them, threescore thousand and five hundred.  
+> **²⁸** The sons of Joseph after their families *were* Manasseh and Ephraim.  
+> **²⁹** Of the sons of Manasseh: of Machir, the family of the Machirites: and Machir begat Gilead: of Gilead *come* the family of the Gileadites.  
+> **³⁰** These *are* the sons of Gilead: *of* Jeezer, the family of the Jeezerites: of Helek, the family of the Helekites:  
+> **³¹** And *of* Asriel, the family of the Asrielites: and *of* Shechem, the family of the Shechemites:  
+> **³²** And *of* Shemida, the family of the Shemidaites: and *of* Hepher, the family of the Hepherites.  
+> **³³** And Zelophehad the son of Hepher had no sons, but daughters: and the names of the daughters of Zelophehad *were* Mahlah, and Noah, Hoglah, Milcah, and Tirzah.  
+> **³⁴** These *are* the families of Manasseh, and those that were numbered of them, fifty and two thousand and seven hundred.  
+> **³⁵** These *are* the sons of Ephraim after their families: of Shuthelah, the family of the Shuthalhites: of Becher, the family of the Bachrites: of Tahan, the family of the Tahanites.  
+> **³⁶** And these *are* the sons of Shuthelah: of Eran, the family of the Eranites.  
+> **³⁷** These *are* the families of the sons of Ephraim according to those that were numbered of them, thirty and two thousand and five hundred. These *are* the sons of Joseph after their families.  
+> **³⁸** The sons of Benjamin after their families: of Bela, the family of the Belaites: of Ashbel, the family of the Ashbelites: of Ahiram, the family of the Ahiramites:  
+> **³⁹** Of Shupham, the family of the Shuphamites: of Hupham, the family of the Huphamites.  
+> **⁴⁰** And the sons of Bela were Ard and Naaman: *of Ard,* the family of the Ardites: *and* of Naaman, the family of the Naamites.  
+> **⁴¹** These *are* the sons of Benjamin after their families: and they that were numbered of them *were* forty and five thousand and six hundred.  
+> **⁴²** These *are* the sons of Dan after their families: of Shuham, the family of the Shuhamites. These *are* the families of Dan after their families.  
+> **⁴³** All the families of the Shuhamites, according to those that were numbered of them, *were* threescore and four thousand and four hundred.  
+> **⁴⁴** *Of* the children of Asher after their families: of Jimna, the family of the Jimnites: of Jesui, the family of the Jesuites: of Beriah, the family of the Beriites.  
+> **⁴⁵** Of the sons of Beriah: of Heber, the family of the Heberites: of Malchiel, the family of the Malchielites.  
+> **⁴⁶** And the name of the daughter of Asher *was* Sarah.  
+> **⁴⁷** These *are* the families of the sons of Asher according to those that were numbered of them; *who were* fifty and three thousand and four hundred.  
+> **⁴⁸** *Of* the sons of Naphtali after their families: of Jahzeel, the family of the Jahzeelites: of Guni, the family of the Gunites:  
+> **⁴⁹** Of Jezer, the family of the Jezerites: of Shillem, the family of the Shillemites.  
+> **⁵⁰** These *are* the families of Naphtali according to their families: and they that were numbered of them *were* forty and five thousand and four hundred.  
+> **⁵¹** These *were* the numbered of the children of Israel, six hundred thousand and a thousand seven hundred and thirty.  
 
 This is the register of the tribes as they were now enrolled, in the same order that they were numbered in Nu 1:1-54. Observe,
 
@@ -71,26 +71,26 @@ II\. The numbers of each tribe. And here our best entertainment will be to compa
 
 III\. In the account of the tribe of Reuben mention is made of the rebellion of Dathan and Abiram, who were of that tribe, in confederacy with Korah a Levite, Nu 26:9-11. Though the story had been largely related but a few chapters before, yet here it comes in again, as fit to be had in remembrance and thought of by posterity, whenever they looked into their pedigree and pleased themselves with the antiquity of their families and the glory of their ancestors, that they might call themselves a seed of evil doers. Two things are here said of them:—1. That they had been *famous in the congregation,* Nu 26:9. Probably they were remarkable for their ingenuity, activity, and fitness for business:—*That Dathan and Abiram* that might have been advanced in due time under God and Moses; but their ambitious spirits put them upon striving against God and Moses, and when they quarrelled with the one they quarrelled with the other. And what was the issue? 2. Those that might have been famous were made infamous: they *became a sign,* Nu 26:10. They were made monuments of divine justice; God, in their ruin, showed himself glorious in holiness, and so they were set up for a warning to all others, in all ages, to take heed of treading in the steps of their pride and rebellion. Notice is here taken of the preservation of the *children of Korah* (Nu 26:11); they *died not,* as the children of Dathan and Abiram did, doubtless because they kept themselves pure from the infection, and would not join, no, not with their own father, in rebellion. If we partake not of the sins of sinners, we shall not partake of their plagues. These sons of Korah were afterwards, in their posterity, eminently serviceable to the church, being employed by David as singers in the house of the Lord; hence many psalms are said to be for *the sons of Korah:* and perhaps they were made to bear his name so long after, rather than the name of any other of their ancestors, for warning to themselves, and as an instance of the power of God, which brought those choice fruits even out of that bitter root. The children of families that have been stigmatized should endeavour, by their eminent virtues, to roll away the reproach of their fathers.
 
-> <sup>52</sup> And the LORD spake unto Moses, saying,  
-> <sup>53</sup> Unto these the land shall be divided for an inheritance according to the number of names.  
-> <sup>54</sup> To many thou shalt give the more inheritance, and to few thou shalt give the less inheritance: to every one shall his inheritance be given according to those that were numbered of him.  
-> <sup>55</sup> Notwithstanding the land shall be divided by lot: according to the names of the tribes of their fathers they shall inherit.  
-> <sup>56</sup> According to the lot shall the possession thereof be divided between many and few.  
+> **⁵²** And the LORD spake unto Moses, saying,  
+> **⁵³** Unto these the land shall be divided for an inheritance according to the number of names.  
+> **⁵⁴** To many thou shalt give the more inheritance, and to few thou shalt give the less inheritance: to every one shall his inheritance be given according to those that were numbered of him.  
+> **⁵⁵** Notwithstanding the land shall be divided by lot: according to the names of the tribes of their fathers they shall inherit.  
+> **⁵⁶** According to the lot shall the possession thereof be divided between many and few.  
 
 If any ask why such a particular account is kept of the tribes, and families, and numbers, of the people of Israel, here is an answer for them; as they were multiplied, so they were portioned, not by common providence, but by promise; and, for the support of the honour of divine revelation, God will have the fulfilling of the promise taken notice of both in their increase and in their inheritance. When Moses had numbered the people God did not say, *By these shall the land be conquered;* but, taking that for granted, he tells him, *Unto these shall the land be divided.* "These that are now registered as the sons of Israel shall be admitted (as it were by copy of court-roll) heirs of the land of Canaan." Now, in the distributing, or quartering, of these tribes, 1. The general rule of equity is here prescribed to Moses, that to many he should give more, and to few he should give less (Nu 26:54); yet, alas! *he* was so far from giving any to others that he must not have any himself, but this direction given to him was intended for Joshua his successor. 2. The application of this general rule was to be determined *by lot* (Nu 26:55); notwithstanding it seems thus to be left to the prudence of their prince, yet the matter must be finally reserved to the providence of their God, in which they must all acquiesce, how much soever it contradicted their policies or inclination: *According to the lot shall the possession be divided.* As the God of nations, so the God of Israel in particular, reserves it to himself to *appoint the bounds of our habitation.* And thus Christ, our Joshua, when he was urged to appoint one of his disciples *to his right hand,* another *to his left* in his kingdom, acknowledged the sovereignty of his Father in the disposal: *It is not mine to give.* Joshua must not dispose of inheritances in Canaan according to his own mind. *But it shall be given to those for whom it is prepared of my Father.*
 
-> <sup>57</sup> And these *are* they that were numbered of the Levites after their families: of Gershon, the family of the Gershonites: of Kohath, the family of the Kohathites: of Merari, the family of the Merarites.  
-> <sup>58</sup> These *are* the families of the Levites: the family of the Libnites, the family of the Hebronites, the family of the Mahlites, the family of the Mushites, the family of the Korathites. And Kohath begat Amram.  
-> <sup>59</sup> And the name of Amram's wife *was* Jochebed, the daughter of Levi, whom *her mother* bare to Levi in Egypt: and she bare unto Amram Aaron and Moses, and Miriam their sister.  
-> <sup>60</sup> And unto Aaron was born Nadab, and Abihu, Eleazar, and Ithamar.  
-> <sup>61</sup> And Nadab and Abihu died, when they offered strange fire before the LORD.  
-> <sup>62</sup> And those that were numbered of them were twenty and three thousand, all males from a month old and upward: for they were not numbered among the children of Israel, because there was no inheritance given them among the children of Israel.  
+> **⁵⁷** And these *are* they that were numbered of the Levites after their families: of Gershon, the family of the Gershonites: of Kohath, the family of the Kohathites: of Merari, the family of the Merarites.  
+> **⁵⁸** These *are* the families of the Levites: the family of the Libnites, the family of the Hebronites, the family of the Mahlites, the family of the Mushites, the family of the Korathites. And Kohath begat Amram.  
+> **⁵⁹** And the name of Amram's wife *was* Jochebed, the daughter of Levi, whom *her mother* bare to Levi in Egypt: and she bare unto Amram Aaron and Moses, and Miriam their sister.  
+> **⁶⁰** And unto Aaron was born Nadab, and Abihu, Eleazar, and Ithamar.  
+> **⁶¹** And Nadab and Abihu died, when they offered strange fire before the LORD.  
+> **⁶²** And those that were numbered of them were twenty and three thousand, all males from a month old and upward: for they were not numbered among the children of Israel, because there was no inheritance given them among the children of Israel.  
 
 Levi was God's tribe, a tribe that was to have no inheritance with the rest in the land of Canaan, and therefore was not numbered with the rest, but by itself; so it had been numbered in the beginning of this book at Mount Sinai, and therefore came not under the sentence passed upon all that were then numbered, that none of them should enter Canaan but Caleb and Joshua; for of the Levites that were not numbered with them, nor were to go forth to war, Eleazar and Ithamar, and perhaps others who were above twenty years old then (as appears, Nu 4:16,28), entered Canaan; and yet this tribe, now at its second numbering, had increased but 1000, and was still one of the smallest tribes. Mention is made here of the death of Nadab and Abihu for offering strange fire, as before of the sin and punishment of Korah, because *these things happened to them for ensamples.*
 
-> <sup>63</sup> These *are* they that were numbered by Moses and Eleazar the priest, who numbered the children of Israel in the plains of Moab by Jordan *near* Jericho.  
-> <sup>64</sup> But among these there was not a man of them whom Moses and Aaron the priest numbered, when they numbered the children of Israel in the wilderness of Sinai.  
-> <sup>65</sup> For the LORD had said of them, They shall surely die in the wilderness. And there was not left a man of them, save Caleb the son of Jephunneh, and Joshua the son of Nun.  
+> **⁶³** These *are* they that were numbered by Moses and Eleazar the priest, who numbered the children of Israel in the plains of Moab by Jordan *near* Jericho.  
+> **⁶⁴** But among these there was not a man of them whom Moses and Aaron the priest numbered, when they numbered the children of Israel in the wilderness of Sinai.  
+> **⁶⁵** For the LORD had said of them, They shall surely die in the wilderness. And there was not left a man of them, save Caleb the son of Jephunneh, and Joshua the son of Nun.  
 
 That which is observable in this conclusion of the account is the execution of the sentence passed upon the murmurers (Nu 14:29), that not one of those who *were numbered from twenty years old and upwards* (and that the Levites were not, but either from a month old or from thirty years old to fifty) should enter Canaan, except Caleb and Joshua. In the muster now made particular directions, no doubt, were given to those of each tribe that were employed in taking the account, to compare these rolls with the former, and to observe whether there were any now left of those that were numbered at Mount Sinai, and it appeared that there was not one man numbered now that was numbered then except Caleb and Joshua, Nu 26:64,65. Herein appeared, 1. The righteousness of God, and his faithfulness to his threatenings, when once the *decree has gone forth.* He *swore in his wrath,* and what he had sworn he performed. Better all those carcasses, had they been ten times as many, should fall to the ground, than the word of God. Though the rising generation was mixed with them, and many of the guilty and condemned criminals long survived the sentence, even to the last year of the forty, yet they were cut off by some means or other before this muster was made. Those whom God has condemned cannot escape either by losing themselves in a crowd or by the delay of execution. 2. The goodness of God to this people, notwithstanding their provocations. Though that murmuring race was cut off, yet God raised up another generation, which was as numerous as they, that, though they perished, yet the name of Israel might not be cut off, lest the inheritance of the promise should be lost for want of heirs. And, though the number fell a little short what it was at Mount Sinai, yet those now numbered had this advantage, that they were all middle-aged men, between twenty and sixty, in the prime of their time for service; and during the thirty-eight years of their wandering and wasting in the wilderness they had an opportunity of acquainting themselves with the laws and ordinances of God, having no business, civil or military, to divert them from those sacred studies, and having Moses and Aaron to instruct them, and God's good Spirit, Ne 9:20. 3. The truth of God, in performing his promise made to Caleb and Joshua. They were to be preserved from falling in this common ruin, and they were so. The arrows of death, though they fly in the dark, do not fly at random, even when they fly thickest, but are directed to the mark intended, and no other. All that are written among the living shall have their lives given them for a prey, in the most dangerous times. Thousands may fall on their right hand, and ten thousands on their left, but they shall escape.
 

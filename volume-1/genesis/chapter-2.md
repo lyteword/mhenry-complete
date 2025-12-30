@@ -8,9 +8,9 @@ This chapter is an appendix to the history of the creation, more particularly ex
 
 ## The Creation. (b. c. 4004.)
 
-> <sup>1</sup> Thus the heavens and the earth were finished, and all the host of them.  
-> <sup>2</sup> And on the seventh day God ended his work which he had made; and he rested on the seventh day from all his work which he had made.  
-> <sup>3</sup> And God blessed the seventh day, and sanctified it: because that in it he had rested from all his work which God created and made.  
+> **¹** Thus the heavens and the earth were finished, and all the host of them.  
+> **²** And on the seventh day God ended his work which he had made; and he rested on the seventh day from all his work which he had made.  
+> **³** And God blessed the seventh day, and sanctified it: because that in it he had rested from all his work which God created and made.  
 
 We have here, I. The settlement of the kingdom of nature, in God's resting from the work of creation, Ge 2:1,2. Here observe, 1. The creatures made both in heaven and earth are the *hosts* or *armies* of them, which denotes them to be numerous, but marshalled, disciplined, and under command. How great is the sum of them! And yet every one knows and keeps his place. God uses them as his hosts for the defence of his people and the destruction of his enemies; for he is the Lord of hosts, of all these hosts, Da 4:35. 2. The heavens and the earth are finished pieces, and so are all the creatures in them. So perfect is God's work that nothing can be added to it nor taken from it, Ec 3:14. God that began to build showed himself well able to finish. 3. After the end of the first six days God ceased from all works of creation. He has so ended his work as that though, in his providence, he worketh hitherto (Joh 5:17), preserving and governing all the creatures, and particularly forming the spirit of man within him, yet he does not make any new species of creatures. In miracles, he has controlled and overruled nature, but never changed its settled course, nor repealed nor added to any of its establishments. 4. The eternal God, though infinitely happy in the enjoyment of himself, yet took a satisfaction in the work of his own hands. He did not rest, as one weary, but as one well-pleased with the instances of his own goodness and the manifestations of his own glory.
 
@@ -18,10 +18,10 @@ II\. The commencement of the kingdom of grace, in the sanctification of the sabb
 
 ## The Creation. (b. c. 4004.)
 
-> <sup>4</sup> These *are* the generations of the heavens and of the earth when they were created, in the day that the LORD God made the earth and the heavens,  
-> <sup>5</sup> And every plant of the field before it was in the earth, and every herb of the field before it grew: for the LORD God had not caused it to rain upon the earth, and *there was* not a man to till the ground.  
-> <sup>6</sup> But there went up a mist from the earth, and watered the whole face of the ground.  
-> <sup>7</sup> And the LORD God formed man *of* the dust of the ground, and breathed into his nostrils the breath of life; and man became a living soul.  
+> **⁴** These *are* the generations of the heavens and of the earth when they were created, in the day that the LORD God made the earth and the heavens,  
+> **⁵** And every plant of the field before it was in the earth, and every herb of the field before it grew: for the LORD God had not caused it to rain upon the earth, and *there was* not a man to till the ground.  
+> **⁶** But there went up a mist from the earth, and watered the whole face of the ground.  
+> **⁷** And the LORD God formed man *of* the dust of the ground, and breathed into his nostrils the breath of life; and man became a living soul.  
 
 In these verses, I. Here is a name given to the Creator which we have not yet met with, and that is *Jehovah*—the LORD, in capital letters, which are constantly used in our English translation to intimate that in the original it is *Jehovah.* All along, in the first chapter, he was called *Elohim—a God of power;* but now *Jehovah Elohim—a God of power and perfection,* a finishing God. As we find him known by his name Jehovah when he appeared to perform what he had promised (Ex 6:3), so now we have him known by that name, when he had perfected what he had begun. *Jehovah* is that great and incommunicable name of God which denotes his having his being of himself, and his giving being to all things; fitly therefore is he called by that name now that heaven and earth are finished.
 
@@ -35,14 +35,14 @@ III\. A more particular account of the creation of man, Ge 2:7. Man is a little 
 
 ## The Garden of Eden. (b. c. 4004.)
 
-> <sup>8</sup> And the LORD God planted a garden eastward in Eden; and there he put the man whom he had formed.  
-> <sup>9</sup> And out of the ground made the LORD God to grow every tree that is pleasant to the sight, and good for food; the tree of life also in the midst of the garden, and the tree of knowledge of good and evil.  
-> <sup>10</sup> And a river went out of Eden to water the garden; and from thence it was parted, and became into four heads.  
-> <sup>11</sup> The name of the first *is* Pison: that *is* it which compasseth the whole land of Havilah, where *there is* gold;  
-> <sup>12</sup> And the gold of that land *is* good; there *is* bdellium and the onyx stone.  
-> <sup>13</sup> And the name of the second river *is* Gihon: the same *is* it that compasseth the whole land of Ethiopia.  
-> <sup>14</sup> And the name of the third river *is* Hiddekel: that *is* it which goeth toward the east of Assyria. And the fourth river *is* Euphrates.  
-> <sup>15</sup> And the LORD God took the man, and put him into the garden of Eden to dress it and to keep it.  
+> **⁸** And the LORD God planted a garden eastward in Eden; and there he put the man whom he had formed.  
+> **⁹** And out of the ground made the LORD God to grow every tree that is pleasant to the sight, and good for food; the tree of life also in the midst of the garden, and the tree of knowledge of good and evil.  
+> **¹⁰** And a river went out of Eden to water the garden; and from thence it was parted, and became into four heads.  
+> **¹¹** The name of the first *is* Pison: that *is* it which compasseth the whole land of Havilah, where *there is* gold;  
+> **¹²** And the gold of that land *is* good; there *is* bdellium and the onyx stone.  
+> **¹³** And the name of the second river *is* Gihon: the same *is* it that compasseth the whole land of Ethiopia.  
+> **¹⁴** And the name of the third river *is* Hiddekel: that *is* it which goeth toward the east of Assyria. And the fourth river *is* Euphrates.  
+> **¹⁵** And the LORD God took the man, and put him into the garden of Eden to dress it and to keep it.  
 
 Man consisting of body and soul, a body made out of the earth and a rational immortal soul the breath of heaven, we have, in these verses, the provision that was made for the happiness of both; he that made him took care to make him happy, if he could but have kept himself so and known when he was well off. That part of man by which he is allied to the world of sense was made happy; for he was put in the paradise of God: that part by which he is allied to the world of spirits was well provided for; for he was taken into covenant with God. Lord, what is man that he should be thus dignified—man that is a worm! Here we have,
 
@@ -68,8 +68,8 @@ III\. The command which God gave to man in innocency, and the covenant he then t
 
 ## The Tree of Knowledge Prohibited. (b. c. 4004.)
 
-> <sup>16</sup> And the LORD God commanded the man, saying, Of every tree of the garden thou mayest freely eat:  
-> <sup>17</sup> But of the tree of the knowledge of good and evil, thou shalt not eat of it: for in the day that thou eatest thereof thou shalt surely die.  
+> **¹⁶** And the LORD God commanded the man, saying, Of every tree of the garden thou mayest freely eat:  
+> **¹⁷** But of the tree of the knowledge of good and evil, thou shalt not eat of it: for in the day that thou eatest thereof thou shalt surely die.  
 
 Observe here, I. God's authority over man, as a creature that had reason and freedom of will. The Lord God commanded the man, who stood now as a public person, the father and representative of all mankind, to receive law, as he had lately received a nature, for himself and all his. God commanded all the creatures, according to their capacity; the settled course of nature is a law, Ps 148:6, Ps 104:9. The brute-creatures have their respective instincts; but man was made capable of performing reasonable service, and therefore received, not only the command of a Creator, but the command of a Prince and Master. Though Adam was a very great man, a very good man, and a very happy man, yet the Lord God commanded him; and the command was no disparagement to his greatness, no reproach to his goodness, nor any diminution at all to his happiness. Let us acknowledge God's right to rule us, and our own obligations to be ruled by him; and never allow any will of our own in contradiction to, or competition with, the holy will of God.
 
@@ -87,9 +87,9 @@ Thus easy, thus happy, was man in a state of innocency, having all that heart co
 
 ## Adam's Dominion. (b. c. 4004.)
 
-> <sup>18</sup> And the LORD God said, *It is* not good that the man should be alone; I will make him an help meet for him.  
-> <sup>19</sup> And out of the ground the LORD God formed every beast of the field, and every fowl of the air; and brought *them* unto Adam to see what he would call them: and whatsoever Adam called every living creature, that *was* the name thereof.  
-> <sup>20</sup> And Adam gave names to all cattle, and to the fowl of the air, and to every beast of the field; but for Adam there was not found an help meet for him.  
+> **¹⁸** And the LORD God said, *It is* not good that the man should be alone; I will make him an help meet for him.  
+> **¹⁹** And out of the ground the LORD God formed every beast of the field, and every fowl of the air; and brought *them* unto Adam to see what he would call them: and whatsoever Adam called every living creature, that *was* the name thereof.  
+> **²⁰** And Adam gave names to all cattle, and to the fowl of the air, and to every beast of the field; but for Adam there was not found an help meet for him.  
 
 Here we have, I. An instance of the Creator's care of man and his fatherly concern for his comfort, Ge 2:18. Though God had let him know that he was a subject, by giving him a command, (Ge 2:16,17), yet here he lets him know also, for his encouragement in his obedience, that he was a friend, and a favourite, and one whose satisfaction he was tender of. Observe,
 
@@ -103,11 +103,11 @@ III\. An instance of the creatures' insufficiency to be a happiness for man: *Bu
 
 ## The Formation of Eve; Marriage Instituted. (b. c. 4004.)
 
-> <sup>21</sup> And the LORD God caused a deep sleep to fall upon Adam, and he slept: and he took one of his ribs, and closed up the flesh instead thereof;  
-> <sup>22</sup> And the rib, which the LORD God had taken from man, made he a woman, and brought her unto the man.  
-> <sup>23</sup> And Adam said, This *is* now bone of my bones, and flesh of my flesh: she shall be called Woman, because she was taken out of Man.  
-> <sup>24</sup> Therefore shall a man leave his father and his mother, and shall cleave unto his wife: and they shall be one flesh.  
-> <sup>25</sup> And they were both naked, the man and his wife, and were not ashamed.  
+> **²¹** And the LORD God caused a deep sleep to fall upon Adam, and he slept: and he took one of his ribs, and closed up the flesh instead thereof;  
+> **²²** And the rib, which the LORD God had taken from man, made he a woman, and brought her unto the man.  
+> **²³** And Adam said, This *is* now bone of my bones, and flesh of my flesh: she shall be called Woman, because she was taken out of Man.  
+> **²⁴** Therefore shall a man leave his father and his mother, and shall cleave unto his wife: and they shall be one flesh.  
+> **²⁵** And they were both naked, the man and his wife, and were not ashamed.  
 
 Here we have, I. The making of the woman, to be a help-meet for Adam. This was done upon the sixth day, as was also the placing of Adam in paradise, though it is here mentioned after an account of the seventh day's rest; but what was said in general (Ge 1:27), that God made man male and female, is more distinctly related here. Observe, 1. That Adam was first formed, then Eve (1Ti 2:13), and she was made of the man, and for the man (1Co 11:8,9), all which are urged there as reasons for the humility, modesty, silence, and submissiveness, of that sex in general, and particularly the subjection and reverence which wives owe to their own husbands. Yet man being made last of the creatures, as the best and most excellent of all, Eve's being made after Adam, and out of him, puts an honour upon that sex, as the glory of the man, 1Co 11:7. If man is the head, she is the crown, a crown to her husband, the crown of the visible creation. The man was dust refined, but the woman was dust double-refined, one remove further from the earth. 2. That Adam slept while his wife was in making, that no room might be left to imagine that he had herein *directed the Spirit of the Lord, or been his counsellor,* Isa 40:13. He had been made sensible of his want of a meet help; but, God having undertaken to provide him one, he does not afflict himself with any care about it, but lies down and sleeps sweetly, as one that had cast all his care on God, with a cheerful resignation of himself and all his affairs to his Maker's will and wisdom. Jehovah-jireh, let the Lord provide when and whom he pleases. If we graciously rest in God, God will graciously work for us and work all for good. 3. That *God caused a sleep to fall on Adam,* and made it a deep sleep, that so the opening of his side might be no grievance to him; while he knows no sin, God will take care he shall feel no pain. When God, by his providence, does that to his people which is grievous to flesh and blood, he not only consults their happiness in the issue, but by his grace he can so quiet and compose their spirits as to make them easy under the sharpest operations. 4. That the woman was *made of a rib out of the side of Adam;* not made out of his head to rule over him, nor out of his feet to be trampled upon by him, but out of his side to be equal with him, under his arm to be protected, and near his heart to be beloved. Adam lost a rib, and without any diminution to his strength or comeliness (for, doubtless, the flesh was closed without a scar); but in lieu thereof he had a help meet for him, which abundantly made up his loss: what God takes away from his people he will, one way or other, restore with advantage. In this (as in many other things) Adam was a figure of him that was to come; for out of the side of Christ, the second Adam, his spouse the church was formed, when he slept the sleep, the deep sleep, of death upon the cross, in order to which his side was opened, and there came out blood and water, blood to purchase his church and water to purify it to himself. See Eph 5:25,26.
 

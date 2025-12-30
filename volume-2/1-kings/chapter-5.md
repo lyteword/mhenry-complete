@@ -8,15 +8,15 @@ The great work which Solomon was raised up to do was the building of the temple;
 
 ## Solomon's Agreement with Hiram. (b. c. 1014.)
 
-> <sup>1</sup> And Hiram king of Tyre sent his servants unto Solomon; for he had heard that they had anointed him king in the room of his father: for Hiram was ever a lover of David.  
-> <sup>2</sup> And Solomon sent to Hiram, saying,  
-> <sup>3</sup> Thou knowest how that David my father could not build an house unto the name of the LORD his God for the wars which were about him on every side, until the LORD put them under the soles of his feet.  
-> <sup>4</sup> But now the LORD my God hath given me rest on every side, *so that there is* neither adversary nor evil occurrent.  
-> <sup>5</sup> And, behold, I purpose to build a house unto the name of the LORD my God, as the LORD spake unto David my father, saying, Thy son, whom I will set upon thy throne in thy room, he shall build a house unto my name.  
-> <sup>6</sup> Now therefore command thou that they hew me cedar trees out of Lebanon; and my servants shall be with thy servants: and unto thee will I give hire for thy servants according to all that thou shalt appoint: for thou knowest that *there is* not among us any that can skill to hew timber like unto the Sidonians.  
-> <sup>7</sup> And it came to pass, when Hiram heard the words of Solomon, that he rejoiced greatly, and said, Blessed *be* the LORD this day, which hath given unto David a wise son over this great people.  
-> <sup>8</sup> And Hiram sent to Solomon, saying, I have considered the things which thou sentest to me for: *and* I will do all thy desire concerning timber of cedar, and concerning timber of fir.  
-> <sup>9</sup> My servants shall bring *them* down from Lebanon unto the sea: and I will convey them by sea in floats unto the place that thou shalt appoint me, and will cause them to be discharged there, and thou shalt receive *them:* and thou shalt accomplish my desire, in giving food for my household.  
+> **¹** And Hiram king of Tyre sent his servants unto Solomon; for he had heard that they had anointed him king in the room of his father: for Hiram was ever a lover of David.  
+> **²** And Solomon sent to Hiram, saying,  
+> **³** Thou knowest how that David my father could not build an house unto the name of the LORD his God for the wars which were about him on every side, until the LORD put them under the soles of his feet.  
+> **⁴** But now the LORD my God hath given me rest on every side, *so that there is* neither adversary nor evil occurrent.  
+> **⁵** And, behold, I purpose to build a house unto the name of the LORD my God, as the LORD spake unto David my father, saying, Thy son, whom I will set upon thy throne in thy room, he shall build a house unto my name.  
+> **⁶** Now therefore command thou that they hew me cedar trees out of Lebanon; and my servants shall be with thy servants: and unto thee will I give hire for thy servants according to all that thou shalt appoint: for thou knowest that *there is* not among us any that can skill to hew timber like unto the Sidonians.  
+> **⁷** And it came to pass, when Hiram heard the words of Solomon, that he rejoiced greatly, and said, Blessed *be* the LORD this day, which hath given unto David a wise son over this great people.  
+> **⁸** And Hiram sent to Solomon, saying, I have considered the things which thou sentest to me for: *and* I will do all thy desire concerning timber of cedar, and concerning timber of fir.  
+> **⁹** My servants shall bring *them* down from Lebanon unto the sea: and I will convey them by sea in floats unto the place that thou shalt appoint me, and will cause them to be discharged there, and thou shalt receive *them:* and thou shalt accomplish my desire, in giving food for my household.  
 
 We have here an account of the amicable correspondence between Solomon and Hiram. Tyre was a famous trading city, that lay close upon the sea, in the border of Israel; its inhabitants (as should seem) were none of the devoted nations, nor ever at enmity with Israel, and therefore David never offered to destroy them, but lived in friendship with them. It is here said of Hiram their king that he was *ever a lover of David;* and we have reason to think he was a worshipper of the true God, and had himself renounced, though he could not reform, the idolatry of his city. David's character will win the affections even of those that are without. Here is,
 
@@ -34,15 +34,15 @@ II\. Solomon's embassy of business to Hiram, sent, it is likely, by messengers o
 
 (2.) He answered it with great satisfaction to Solomon, granting him what he desired, and showing himself very forward to assist him in this great and good work to which he was laying his hand. We have here his articles of agreement with Solomon concerning this affair, in which we may observe Hiram's prudence. [1.] He deliberated upon the proposal, before he returned an answer (1Ki 5:8): *I have considered the things.* It is common for those that make bargains rashly afterwards to wish them unmade again. The virtuous woman *considers a field* and then *buys it,* Pr 31:16. Those do not lose time who take time to consider. [2.] He descended to particulars in the articles, that there might be no misunderstanding afterwards, to occasion a quarrel. Solomon had spoken of hewing the trees (1Ki 5:6), and Hiram agrees to what he desired concerning that (1Ki 5:8); but nothing had been said concerning carriage, and this matter therefore must be settled. Land-carriage would be very troublesome and chargeable; he therefore undertakes to bring all the timber down from Lebanon by sea, a coasting voyage. Conveyance by water is a great convenience to trade, for which God is to have praise, who taught man that discretion. Observe what a definite bargain Hiram made. Solomon must appoint the place where the timber shall be delivered, and thither Hiram will undertake to bring it and be responsible for its safety. As the Sidonians excelled the Israelites in timber-work, so they did in sailing; for Tyre and Sidon were *situate at the entry of the sea* (Eze 27:3): they therefore were fittest to take care of the water-carriage. *Tractant fabrilia fabri—Every artist has his trade assigned.* And, [3.] If Hiram undertake for the work, and *do all Solomon's desire concerning the timber* (1Ki 5:8), he justly expects that Solomon shall undertake for the wages: "*Thou shalt accomplish my desire in giving food for my household* (1Ki 5:9), not only for the workmen, but for my own family." If Tyre supply Israel with craftsmen, Israel will supply Tyre with corn, Eze 27:17. Thus, by the wise disposal of Providence, one country has need of another and is benefited by another, that there may be mutual correspondence and dependence, to the glory of God our common parent.
 
-> <sup>10</sup> So Hiram gave Solomon cedar trees and fir trees *according to* all his desire.  
-> <sup>11</sup> And Solomon gave Hiram twenty thousand measures of wheat *for* food to his household, and twenty measures of pure oil: thus gave Solomon to Hiram year by year.  
-> <sup>12</sup> And the LORD gave Solomon wisdom, as he promised him: and there was peace between Hiram and Solomon; and they two made a league together.  
-> <sup>13</sup> And king Solomon raised a levy out of all Israel; and the levy was thirty thousand men.  
-> <sup>14</sup> And he sent them to Lebanon, ten thousand a month by courses: a month they were in Lebanon, *and* two months at home: and Adoniram *was* over the levy.  
-> <sup>15</sup> And Solomon had threescore and ten thousand that bare burdens, and fourscore thousand hewers in the mountains;  
-> <sup>16</sup> Beside the chief of Solomon's officers which *were* over the work, three thousand and three hundred, which ruled over the people that wrought in the work.  
-> <sup>17</sup> And the king commanded, and they brought great stones, costly stones, *and* hewed stones, to lay the foundation of the house.  
-> <sup>18</sup> And Solomon's builders and Hiram's builders did hew *them,* and the stonesquarers: so they prepared timber and stones to build the house.  
+> **¹⁰** So Hiram gave Solomon cedar trees and fir trees *according to* all his desire.  
+> **¹¹** And Solomon gave Hiram twenty thousand measures of wheat *for* food to his household, and twenty measures of pure oil: thus gave Solomon to Hiram year by year.  
+> **¹²** And the LORD gave Solomon wisdom, as he promised him: and there was peace between Hiram and Solomon; and they two made a league together.  
+> **¹³** And king Solomon raised a levy out of all Israel; and the levy was thirty thousand men.  
+> **¹⁴** And he sent them to Lebanon, ten thousand a month by courses: a month they were in Lebanon, *and* two months at home: and Adoniram *was* over the levy.  
+> **¹⁵** And Solomon had threescore and ten thousand that bare burdens, and fourscore thousand hewers in the mountains;  
+> **¹⁶** Beside the chief of Solomon's officers which *were* over the work, three thousand and three hundred, which ruled over the people that wrought in the work.  
+> **¹⁷** And the king commanded, and they brought great stones, costly stones, *and* hewed stones, to lay the foundation of the house.  
+> **¹⁸** And Solomon's builders and Hiram's builders did hew *them,* and the stonesquarers: so they prepared timber and stones to build the house.  
 
 Here is, I. The performance of the agreement between Solomon and Hiram. Each of the parties made good his engagement. 1. Hiram delivered Solomon the timber, according to his bargain, 1Ki 5:10. The trees were Solomon's, but perhaps—*Materiam superabat opus—The workmanship was of more value than the article.* Hiram is therefore said to deliver the trees. 2. Solomon conveyed to Hiram the corn which he had promised him, 1Ki 5:11. Thus let justice be followed (as the expression is, De 16:20), justice on both sides, in every bargain.
 

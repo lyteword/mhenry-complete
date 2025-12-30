@@ -10,12 +10,12 @@ Though David penned this psalm upon a very particular occasion, yet, it is of as
 
 To the chief musician. A psalm of David, when Nathan the prophet came unto him, after he had gone in to Bath-sheba.
 
-> <sup>1</sup> Have mercy upon me, O God, according to thy lovingkindness: according unto the multitude of thy tender mercies blot out my transgressions.  
-> <sup>2</sup> Wash me throughly from mine iniquity, and cleanse me from my sin.  
-> <sup>3</sup> For I acknowledge my transgressions: and my sin *is* ever before me.  
-> <sup>4</sup> Against thee, thee only, have I sinned, and done *this* evil in thy sight: that thou mightest be justified when thou speakest, *and* be clear when thou judgest.  
-> <sup>5</sup> Behold, I was shapen in iniquity; and in sin did my mother conceive me.  
-> <sup>6</sup> Behold, thou desirest truth in the inward parts: and in the hidden *part* thou shalt make me to know wisdom.  
+> **¹** Have mercy upon me, O God, according to thy lovingkindness: according unto the multitude of thy tender mercies blot out my transgressions.  
+> **²** Wash me throughly from mine iniquity, and cleanse me from my sin.  
+> **³** For I acknowledge my transgressions: and my sin *is* ever before me.  
+> **⁴** Against thee, thee only, have I sinned, and done *this* evil in thy sight: that thou mightest be justified when thou speakest, *and* be clear when thou judgest.  
+> **⁵** Behold, I was shapen in iniquity; and in sin did my mother conceive me.  
+> **⁶** Behold, thou desirest truth in the inward parts: and in the hidden *part* thou shalt make me to know wisdom.  
 
 The title has reference to a very sad story, that of David's fall. But, though he fell, he was not utterly cast down, for God graciously upheld him and raised him up. 1. The sin which, in this psalm, he laments, was the folly and wickedness he committed with his neighbour's wife, a sin not to be spoken of, nor thought of, without detestation. His debauching of Bathsheba was the inlet to all the other sins that followed; it was as the letting forth of water. This sin of David's is recorded for warning to all, that he who thinks he stands may take heed lest he fall. 2. The repentance which, in this psalm, he expresses, he was brought to by the ministry of Nathan, who was sent of God to convince him of his sin, after he had continued above nine months (for aught that appears) without any particular expressions of remorse and sorrow for it. But though God may suffer his people to fall into sin, and to lie a great while in it, yet he will, by some means or other, recover them to repentance, bring them to himself and to their right mind again. Herein, generally, he uses the ministry of the word, which yet he is not tied to. But those that have been overtaken in any fault ought to reckon a faithful reproof the greatest kindness that can be done them and a wise reprover their best friend. *Let the righteous smite me, and it shall be excellent oil.* 3. David, being convinced of his sin, poured out his soul to God in prayer for mercy and grace. Whither should backsliding children return, but to the Lord their God, from whom they have backslidden, and who alone can heal their backslidings? 4. He drew up, by divine inspiration, the workings of his heart towards God, upon this occasion, into a psalm, that it might be often repeated, and long after reviewed; and this he committed to the chief musician, to be sung in the public service of the church. (1.) As a profession of his own repentance, which he would have to be generally taken notice of, his sin having been notorious, that the plaster might be as wide as the wound. Those that truly repent of their sins will not be ashamed to own their repentance; but, having lost the honour of innocents, they will rather covet the honour of penitents. (2.) As a pattern to others, both to bring them to repentance by his example and to instruct them in their repentance what to do and what to say. Being converted himself, he thus *strengthens his brethren* (Lu 22:32), and *for this cause he obtained mercy,* 1Ti 1:16.
 
@@ -41,13 +41,13 @@ III\. David's acknowledgment of the grace of God (Ps 51:6), both his good-will t
 
 ## Penitential Petitions.
 
-> <sup>7</sup> Purge me with hyssop, and I shall be clean: wash me, and I shall be whiter than snow.  
-> <sup>8</sup> Make me to hear joy and gladness; *that* the bones *which* thou hast broken may rejoice.  
-> <sup>9</sup> Hide thy face from my sins, and blot out all mine iniquities.  
-> <sup>10</sup> Create in me a clean heart, O God; and renew a right spirit within me.  
-> <sup>11</sup> Cast me not away from thy presence; and take not thy holy spirit from me.  
-> <sup>12</sup> Restore unto me the joy of thy salvation; and uphold me *with thy* free spirit.  
-> <sup>13</sup> *Then* will I teach transgressors thy ways; and sinners shall be converted unto thee.  
+> **⁷** Purge me with hyssop, and I shall be clean: wash me, and I shall be whiter than snow.  
+> **⁸** Make me to hear joy and gladness; *that* the bones *which* thou hast broken may rejoice.  
+> **⁹** Hide thy face from my sins, and blot out all mine iniquities.  
+> **¹⁰** Create in me a clean heart, O God; and renew a right spirit within me.  
+> **¹¹** Cast me not away from thy presence; and take not thy holy spirit from me.  
+> **¹²** Restore unto me the joy of thy salvation; and uphold me *with thy* free spirit.  
+> **¹³** *Then* will I teach transgressors thy ways; and sinners shall be converted unto thee.  
 
 I\. See here what David prays for. Many excellent petitions he here puts up, to which if we do but add, "for Christ's sake," they are as evangelical as any other.
 
@@ -71,12 +71,12 @@ II\. See what David here promises, Ps 51:13. Observe,
 
 ## Penitential Petitions.
 
-> <sup>14</sup> Deliver me from bloodguiltiness, O God, thou God of my salvation: *and* my tongue shall sing aloud of thy righteousness.  
-> <sup>15</sup> O Lord, open thou my lips; and my mouth shall show forth thy praise.  
-> <sup>16</sup> For thou desirest not sacrifice; else would I give *it:* thou delightest not in burnt offering.  
-> <sup>17</sup> The sacrifices of God *are* a broken spirit: a broken and a contrite heart, O God, thou wilt not despise.  
-> <sup>18</sup> Do good in thy good pleasure unto Zion: build thou the walls of Jerusalem.  
-> <sup>19</sup> Then shalt thou be pleased with the sacrifices of righteousness, with burnt offering and whole burnt offering: then shall they offer bullocks upon thine altar.  
+> **¹⁴** Deliver me from bloodguiltiness, O God, thou God of my salvation: *and* my tongue shall sing aloud of thy righteousness.  
+> **¹⁵** O Lord, open thou my lips; and my mouth shall show forth thy praise.  
+> **¹⁶** For thou desirest not sacrifice; else would I give *it:* thou delightest not in burnt offering.  
+> **¹⁷** The sacrifices of God *are* a broken spirit: a broken and a contrite heart, O God, thou wilt not despise.  
+> **¹⁸** Do good in thy good pleasure unto Zion: build thou the walls of Jerusalem.  
+> **¹⁹** Then shalt thou be pleased with the sacrifices of righteousness, with burnt offering and whole burnt offering: then shall they offer bullocks upon thine altar.  
 
 I\. David prays against the guilt of sin, and prays for the grace of God, enforcing both petitions from a plea taken from the glory of God, which he promises with thankfulness to show forth. 1. He prays against the guilt of sin, that he might be delivered from that, and promises that then he would praise God, Ps 51:14. The particular sin he prays against is blood-guiltiness, the sin he had now been guilty of, having slain Uriah with the sword of the children of Ammon. Hitherto perhaps he had stopped the mouth of conscience with that frivolous excuse, that he did not kill him himself; but now he was convinced that he was the murderer, and, hearing the blood cry to God for vengeance, he cries to God for mercy: "*Deliver me from blood-guiltiness;* let me not lie under the guilt of this kind which I have contracted, but let it be pardoned to me, and let me never be left to myself to contract the like guilt again." Note, It concerns us all to pray earnestly against the guilt of blood. In this prayer he eyes God as the God of salvation. Note, Those to whom God is the God of salvation he will deliver from guilt; for the salvation he is the God of is salvation from sin. We may therefore plead this with him, "Lord, thou art the God of my salvation, therefore deliver me from the dominion of sin." He promises that, if God would deliver him, *his tongue should sing aloud of his righteousness;* God should have the glory both of pardoning mercy and of preventing grace. God's righteousness is often put for his grace, especially in the great business of justification and sanctification. This he would comfort himself in and therefore sing of; and this he would endeavour both to acquaint and to affect others with; he would *sing aloud* of it. This all those should do that have had the benefit of it, and owe their all to it. 2. He prays for the grace of God and promises to improve that grace to his glory (Ps 51:15): "*O Lord! open thou my lips,* not only that I may teach and instruct sinners" (which the best preacher cannot do to any purpose unless God give him the opening of the mouth, and the tongue of the learned), "but *that my mouth may show forth thy praise,* not only that I may have abundant matter for praise, but a heart enlarged in praise." Guilt had closed his lips, had gone near to stop the mouth of prayer; he could not for shame, he could not for fear, come into the presence of that God whom he knew he had offended, much less speak to him; his heart condemned him, and therefore he had little confidence towards God. It cast a damp particularly upon his praises; when he had lost the joys of his salvation his harp was hung upon the willow-trees; therefore he prays, "*Lord, open my life,* put my heart in tune for praise again." To those that are tongue-tied by reason of guilt the assurance of the forgiveness of their sins says effectually, *Ephphatha—Be opened;* and, when the lips are opened, what should they speak but the praises of God, as Zacharias did? Lu 1:64.
 

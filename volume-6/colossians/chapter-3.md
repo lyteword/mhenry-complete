@@ -8,10 +8,10 @@ I\. The apostle exhorts us to set our hearts upon heaven and take them off from 
 
 ## The Spiritual Life. (a. d. 62.)
 
-> <sup>1</sup> If ye then be risen with Christ, seek those things which are above, where Christ sitteth on the right hand of God.  
-> <sup>2</sup> Set your affection on things above, not on things on the earth.  
-> <sup>3</sup> For ye are dead, and your life is hid with Christ in God.  
-> <sup>4</sup> When Christ, *who is* our life, shall appear, then shall ye also appear with him in glory.  
+> **¹** If ye then be risen with Christ, seek those things which are above, where Christ sitteth on the right hand of God.  
+> **²** Set your affection on things above, not on things on the earth.  
+> **³** For ye are dead, and your life is hid with Christ in God.  
+> **⁴** When Christ, *who is* our life, shall appear, then shall ye also appear with him in glory.  
 
 The apostle, having described our privileges by Christ in the former part of the epistle, and our discharge from the yoke of the ceremonial law, comes here to press upon us our duty as inferred thence. Though we are made free from the obligation of the ceremonial law, it does not therefore follow that we may live as we list. We must walk the more closely with God in all the instances of evangelical obedience. He begins with exhorting them to set their hearts on heaven, and take them off from this world: *If you then have risen with Christ.* It is our privilege that we have risen with Christ; that is, have benefit by the resurrection of Christ, and by virtue of our union and communion with him are justified and sanctified, and shall be glorified. Hence he infers that we must *seek those things which are above.* We must mind the concerns of another world more than the concerns of this. We must make heaven our scope and aim, seek the favour of God above, keep up our communion with the upper world by faith, and hope, and holy love, and make it our constant care and business to secure our title to and qualifications for the heavenly bliss. And the reason is because *Christ sits at the right hand of God.* He who is our best friend and our head is advanced to the highest dignity and honour in heaven, and has gone before to secure to us the heavenly happiness; and therefore we should seek and secure what he has purchased at so vast an expense, and is taking so much care about. We must live such a life as Christ lived here on earth and lives now in heaven, according to our capacities.
 
@@ -27,9 +27,9 @@ II\. He assigns three reasons for this, Col 3:3,4.
 
 ## Necessity of Mortifying Sin. (a. d. 62.)
 
-> <sup>5</sup> Mortify therefore your members which are upon the earth; fornication, uncleanness, inordinate affection, evil concupiscence, and covetousness, which is idolatry:  
-> <sup>6</sup> For which things' sake the wrath of God cometh on the children of disobedience:  
-> <sup>7</sup> In the which ye also walked some time, when ye lived in them.  
+> **⁵** Mortify therefore your members which are upon the earth; fornication, uncleanness, inordinate affection, evil concupiscence, and covetousness, which is idolatry:  
+> **⁶** For which things' sake the wrath of God cometh on the children of disobedience:  
+> **⁷** In the which ye also walked some time, when ye lived in them.  
 
 The apostle exhorts the Colossians to the mortification of sin, the great hindrance to seeking the things which are above. Since it is our duty to set our affections upon heavenly things, it is our duty to mortify our *members which are upon the earth,* and which naturally incline us to the things of the world: "Mortify them, that is, subdue the vicious habits of mind which prevailed in your Gentile state. Kill them, suppress them, as you do weeds or vermin which spread and destroy all about them, or as you kill an enemy who fights against you and wounds you."—*Your members which are upon the earth;* either the members of the body, which are the earthly part of us, and were *curiously wrought in the lower parts of the earth* (Ps 139:15), or the corrupt affections of the mind, which lead us to earthly things, the members of the body of death, Ro 7:24. He specifies,
 
@@ -39,21 +39,21 @@ II\. The love of the world: *And covetousness, which is idolatry;* that is, an i
 
 ## Necessity of Mortifying Sin. (a. d. 62.)
 
-> <sup>8</sup> But now ye also put off all these; anger, wrath, malice, blasphemy, filthy communication out of your mouth.  
-> <sup>9</sup> Lie not one to another, seeing that ye have put off the old man with his deeds;  
-> <sup>10</sup> And have put on the new *man,* which is renewed in knowledge after the image of him that created him:  
-> <sup>11</sup> Where there is neither Greek nor Jew, circumcision nor uncircumcision, Barbarian, Scythian, bond *nor* free: but Christ *is* all, and in all.  
+> **⁸** But now ye also put off all these; anger, wrath, malice, blasphemy, filthy communication out of your mouth.  
+> **⁹** Lie not one to another, seeing that ye have put off the old man with his deeds;  
+> **¹⁰** And have put on the new *man,* which is renewed in knowledge after the image of him that created him:  
+> **¹¹** Where there is neither Greek nor Jew, circumcision nor uncircumcision, Barbarian, Scythian, bond *nor* free: but Christ *is* all, and in all.  
 
 As we are to mortify inordinate appetites, so we are to mortify inordinate passions (Col 3:8): *But now you also put off all these, anger wrath, malice;* for these are contrary to the design of the gospel, as well as grosser impurities; and, though they are more spiritual wickedness, have not less malignity in them. The gospel religion introduces a change of the higher as well as the lower powers of the soul, and supports the dominion of right reason and conscience over appetite and passion. Anger and wrath are bad, but malice is worse, because it is more rooted and deliberate; it is anger heightened and settled. And, as the corrupt principles in the heart must be cut off, so the product of them in the tongue; as *blasphemy,* which seems there to mean, not so much speaking ill of God as speaking ill of men, giving ill language to them, or raising ill reports of them, and injuring their good name by any evil arts,—*filthy communication,* that is, all lewd and wanton discourse, which comes from a polluted mind in the speaker and propagates the same defilements in the hearers,—and lying: *Lie not one to another* (Col 3:9), for it is contrary both to the law of truth and the law of love, it is both unjust and unkind, and naturally tends to destroy all faith and friendship among mankind. Lying makes us like the devil (who is the *father of lies*), and is a prime part of the devil's image upon our souls; and therefore we are cautioned against this sin by this general reason: Seeing *you have put off the old man with his deeds, and have put on the new man,* Col 3:10. The consideration that we have by profession put away sin and espoused the cause and interest of Christ, that we have renounced all sin and stand engaged to Christ, should fortify us against this sin of lying. Those who have put off the old man have put it off with its deeds; and those who have put on the new man must put on all its deeds—not only espouse good principles but act them in a good conversation. The new man is said to be *renewed in knowledge,* because an ignorant soul cannot be a good soul. Without knowledge the heart cannot be good, Pr 19:2. The grace of God works upon the will and affections by renewing the understanding. Light is the first thing in the new creation, as it was in the first: *after the image of him who created him.* It was the honour of man in innocence that he was made after the image of God; but that image was defaced and lost by sin, and is renewed by sanctifying grace: so that a renewed soul is something like what Adam was in the day he was created. In the privilege and duty of sanctification *there is neither Greek nor Jew, circumcision nor uncircumcision, Barbarian, Scythian, bond nor free,* Col 3:11. There is now no difference arising from different country or different condition and circumstance of life: it is as much the duty of the one as of the other to be holy, and as much the privilege of the one as of the other to receive from God the grace to be so. Christ came to take down all partition-walls, that all might stand on the same level before God, both in duty and privilege. And for this reason, because *Christ is all in all.* Christ is a Christian's all, his only Lord and Saviour, and all his hope and happiness. And to those who are sanctified, one as well as another and whatever they are in other respects, he is *all in all,* the *Alpha* and *Omega,* the *beginning and the end:* he is all in all things to them.
 
 ## Love Recommended. (a. d. 62.)
 
-> <sup>12</sup> Put on therefore, as the elect of God, holy and beloved, bowels of mercies, kindness, humbleness of mind, meekness, longsuffering;  
-> <sup>13</sup> Forbearing one another, and forgiving one another, if any man have a quarrel against any: even as Christ forgave you, so also *do* ye.  
-> <sup>14</sup> And above all these things *put on* charity, which is the bond of perfectness.  
-> <sup>15</sup> And let the peace of God rule in your hearts, to the which also ye are called in one body; and be ye thankful.  
-> <sup>16</sup> Let the word of Christ dwell in you richly in all wisdom; teaching and admonishing one another in psalms and hymns and spiritual songs, singing with grace in your hearts to the Lord.  
-> <sup>17</sup> And whatsoever ye do in word or deed, *do* all in the name of the Lord Jesus, giving thanks to God and the Father by him.  
+> **¹²** Put on therefore, as the elect of God, holy and beloved, bowels of mercies, kindness, humbleness of mind, meekness, longsuffering;  
+> **¹³** Forbearing one another, and forgiving one another, if any man have a quarrel against any: even as Christ forgave you, so also *do* ye.  
+> **¹⁴** And above all these things *put on* charity, which is the bond of perfectness.  
+> **¹⁵** And let the peace of God rule in your hearts, to the which also ye are called in one body; and be ye thankful.  
+> **¹⁶** Let the word of Christ dwell in you richly in all wisdom; teaching and admonishing one another in psalms and hymns and spiritual songs, singing with grace in your hearts to the Lord.  
+> **¹⁷** And whatsoever ye do in word or deed, *do* all in the name of the Lord Jesus, giving thanks to God and the Father by him.  
 
 The apostle proceeds to exhort to mutual love and compassion: *Put on therefore bowels of mercy,* Col 3:12. We must not only put off anger and wrath (as Col 3:8), but we must put on compassion and kindness; not only cease to do evil, but learn to do well; not only not do hurt to any, but do what good we can to all.
 
@@ -63,14 +63,14 @@ II\. In order to all this, we are exhorted here to several things:—1. To cloth
 
 ## Relative Duties. (a. d. 62.)
 
-> <sup>18</sup> Wives, submit yourselves unto your own husbands, as it is fit in the Lord.  
-> <sup>19</sup> Husbands, love *your* wives, and be not bitter against them.  
-> <sup>20</sup> Children, obey *your* parents in all things: for this is well pleasing unto the Lord.  
-> <sup>21</sup> Fathers, provoke not your children *to anger,* lest they be discouraged.  
-> <sup>22</sup> Servants, obey in all things *your* masters according to the flesh; not with eyeservice, as menpleasers; but in singleness of heart, fearing God:  
-> <sup>23</sup> And whatsoever ye do, do *it* heartily, as to the Lord, and not unto men;  
-> <sup>24</sup> Knowing that of the Lord ye shall receive the reward of the inheritance: for ye serve the Lord Christ.  
-> <sup>25</sup> But he that doeth wrong shall receive for the wrong which he hath done: and there is no respect of persons.  
+> **¹⁸** Wives, submit yourselves unto your own husbands, as it is fit in the Lord.  
+> **¹⁹** Husbands, love *your* wives, and be not bitter against them.  
+> **²⁰** Children, obey *your* parents in all things: for this is well pleasing unto the Lord.  
+> **²¹** Fathers, provoke not your children *to anger,* lest they be discouraged.  
+> **²²** Servants, obey in all things *your* masters according to the flesh; not with eyeservice, as menpleasers; but in singleness of heart, fearing God:  
+> **²³** And whatsoever ye do, do *it* heartily, as to the Lord, and not unto men;  
+> **²⁴** Knowing that of the Lord ye shall receive the reward of the inheritance: for ye serve the Lord Christ.  
+> **²⁵** But he that doeth wrong shall receive for the wrong which he hath done: and there is no respect of persons.  
 
 The apostle concludes the chapter with exhortations to relative duties, as before in the epistle to the Ephesians. The epistles which are most taken up in displaying the glory of divine grace, and magnifying the Lord Jesus, are the most particular and distinct in pressing the duties of the several relations. We must never separate the privileges and duties of the gospel religion.
 

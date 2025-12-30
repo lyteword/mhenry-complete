@@ -8,12 +8,12 @@ This chapter is a prediction of the carrying away of multitudes both of the Egyp
 
 ## Threatenings against Egypt. (b. c. 713.)
 
-> <sup>1</sup> In the year that Tartan came unto Ashdod, (when Sargon the king of Assyria sent him,) and fought against Ashdod, and took it;  
-> <sup>2</sup> At the same time spake the LORD by Isaiah the son of Amoz, saying, Go and loose the sackcloth from off thy loins, and put off thy shoe from thy foot. And he did so, walking naked and barefoot.  
-> <sup>3</sup> And the LORD said, Like as my servant Isaiah hath walked naked and barefoot three years *for* a sign and wonder upon Egypt and upon Ethiopia;  
-> <sup>4</sup> So shall the king of Assyria lead away the Egyptians prisoners, and the Ethiopians captives, young and old, naked and barefoot, even with *their* buttocks uncovered, to the shame of Egypt.  
-> <sup>5</sup> And they shall be afraid and ashamed of Ethiopia their expectation, and of Egypt their glory.  
-> <sup>6</sup> And the inhabitant of this isle shall say in that day, Behold, such *is* our expectation, whither we flee for help to be delivered from the king of Assyria: and how shall we escape?  
+> **¹** In the year that Tartan came unto Ashdod, (when Sargon the king of Assyria sent him,) and fought against Ashdod, and took it;  
+> **²** At the same time spake the LORD by Isaiah the son of Amoz, saying, Go and loose the sackcloth from off thy loins, and put off thy shoe from thy foot. And he did so, walking naked and barefoot.  
+> **³** And the LORD said, Like as my servant Isaiah hath walked naked and barefoot three years *for* a sign and wonder upon Egypt and upon Ethiopia;  
+> **⁴** So shall the king of Assyria lead away the Egyptians prisoners, and the Ethiopians captives, young and old, naked and barefoot, even with *their* buttocks uncovered, to the shame of Egypt.  
+> **⁵** And they shall be afraid and ashamed of Ethiopia their expectation, and of Egypt their glory.  
+> **⁶** And the inhabitant of this isle shall say in that day, Behold, such *is* our expectation, whither we flee for help to be delivered from the king of Assyria: and how shall we escape?  
 
 God here, as King of nations, brings a sore calamity upon Egypt and Ethiopia, but, as King of saints, brings good to his people out of it. Observe,
 

@@ -8,26 +8,26 @@ The righteous God had lately told David, by Nathan the prophet, that, to chastis
 
 ## Amnon's Incest. (b. c. 1032.)
 
-> <sup>1</sup> And it came to pass after this, that Absalom the son of David had a fair sister, whose name *was* Tamar; and Amnon the son of David loved her.  
-> <sup>2</sup> And Amnon was so vexed, that he fell sick for his sister Tamar; for she *was* a virgin; and Amnon thought it hard for him to do any thing to her.  
-> <sup>3</sup> But Amnon had a friend, whose name *was* Jonadab, the son of Shimeah David's brother: and Jonadab *was* a very subtle man.  
-> <sup>4</sup> And he said unto him, Why *art* thou, *being* the king's son, lean from day to day? wilt thou not tell me? And Amnon said unto him, I love Tamar, my brother Absalom's sister.  
-> <sup>5</sup> And Jonadab said unto him, Lay thee down on thy bed, and make thyself sick: and when thy father cometh to see thee, say unto him, I pray thee, let my sister Tamar come, and give me meat, and dress the meat in my sight, that I may see *it,* and eat *it* at her hand.  
-> <sup>6</sup> So Amnon lay down, and made himself sick: and when the king was come to see him, Amnon said unto the king, I pray thee, let Tamar my sister come, and make me a couple of cakes in my sight, that I may eat at her hand.  
-> <sup>7</sup> Then David sent home to Tamar, saying, Go now to thy brother Amnon's house, and dress him meat.  
-> <sup>8</sup> So Tamar went to her brother Amnon's house; and he was laid down. And she took flour, and kneaded *it,* and made cakes in his sight, and did bake the cakes.  
-> <sup>9</sup> And she took a pan, and poured *them* out before him; but he refused to eat. And Amnon said, Have out all men from me. And they went out every man from him.  
-> <sup>10</sup> And Amnon said unto Tamar, Bring the meat into the chamber, that I may eat of thine hand. And Tamar took the cakes which she had made, and brought *them* into the chamber to Amnon her brother.  
-> <sup>11</sup> And when she had brought *them* unto him to eat, he took hold of her, and said unto her, Come lie with me, my sister.  
-> <sup>12</sup> And she answered him, Nay, my brother, do not force me; for no such thing ought to be done in Israel: do not thou this folly.  
-> <sup>13</sup> And I, whither shall I cause my shame to go? and as for thee, thou shalt be as one of the fools in Israel. Now therefore, I pray thee, speak unto the king; for he will not withhold me from thee.  
-> <sup>14</sup> Howbeit he would not hearken unto her voice: but, being stronger than she, forced her, and lay with her.  
-> <sup>15</sup> Then Amnon hated her exceedingly; so that the hatred wherewith he hated her *was* greater than the love wherewith he had loved her. And Amnon said unto her, Arise, be gone.  
-> <sup>16</sup> And she said unto him, *There is* no cause: this evil in sending me away *is* greater than the other that thou didst unto me. But he would not hearken unto her.  
-> <sup>17</sup> Then he called his servant that ministered unto him, and said, Put now this *woman* out from me, and bolt the door after her.  
-> <sup>18</sup> And *she had* a garment of divers colours upon her: for with such robes were the king's daughters *that were* virgins apparelled. Then his servant brought her out, and bolted the door after her.  
-> <sup>19</sup> And Tamar put ashes on her head, and rent her garment of divers colours that *was* on her, and laid her hand on her head, and went on crying.  
-> <sup>20</sup> And Absalom her brother said unto her, Hath Amnon thy brother been with thee? but hold now thy peace, my sister: he *is* thy brother; regard not this thing. So Tamar remained desolate in her brother Absalom's house.  
+> **¹** And it came to pass after this, that Absalom the son of David had a fair sister, whose name *was* Tamar; and Amnon the son of David loved her.  
+> **²** And Amnon was so vexed, that he fell sick for his sister Tamar; for she *was* a virgin; and Amnon thought it hard for him to do any thing to her.  
+> **³** But Amnon had a friend, whose name *was* Jonadab, the son of Shimeah David's brother: and Jonadab *was* a very subtle man.  
+> **⁴** And he said unto him, Why *art* thou, *being* the king's son, lean from day to day? wilt thou not tell me? And Amnon said unto him, I love Tamar, my brother Absalom's sister.  
+> **⁵** And Jonadab said unto him, Lay thee down on thy bed, and make thyself sick: and when thy father cometh to see thee, say unto him, I pray thee, let my sister Tamar come, and give me meat, and dress the meat in my sight, that I may see *it,* and eat *it* at her hand.  
+> **⁶** So Amnon lay down, and made himself sick: and when the king was come to see him, Amnon said unto the king, I pray thee, let Tamar my sister come, and make me a couple of cakes in my sight, that I may eat at her hand.  
+> **⁷** Then David sent home to Tamar, saying, Go now to thy brother Amnon's house, and dress him meat.  
+> **⁸** So Tamar went to her brother Amnon's house; and he was laid down. And she took flour, and kneaded *it,* and made cakes in his sight, and did bake the cakes.  
+> **⁹** And she took a pan, and poured *them* out before him; but he refused to eat. And Amnon said, Have out all men from me. And they went out every man from him.  
+> **¹⁰** And Amnon said unto Tamar, Bring the meat into the chamber, that I may eat of thine hand. And Tamar took the cakes which she had made, and brought *them* into the chamber to Amnon her brother.  
+> **¹¹** And when she had brought *them* unto him to eat, he took hold of her, and said unto her, Come lie with me, my sister.  
+> **¹²** And she answered him, Nay, my brother, do not force me; for no such thing ought to be done in Israel: do not thou this folly.  
+> **¹³** And I, whither shall I cause my shame to go? and as for thee, thou shalt be as one of the fools in Israel. Now therefore, I pray thee, speak unto the king; for he will not withhold me from thee.  
+> **¹⁴** Howbeit he would not hearken unto her voice: but, being stronger than she, forced her, and lay with her.  
+> **¹⁵** Then Amnon hated her exceedingly; so that the hatred wherewith he hated her *was* greater than the love wherewith he had loved her. And Amnon said unto her, Arise, be gone.  
+> **¹⁶** And she said unto him, *There is* no cause: this evil in sending me away *is* greater than the other that thou didst unto me. But he would not hearken unto her.  
+> **¹⁷** Then he called his servant that ministered unto him, and said, Put now this *woman* out from me, and bolt the door after her.  
+> **¹⁸** And *she had* a garment of divers colours upon her: for with such robes were the king's daughters *that were* virgins apparelled. Then his servant brought her out, and bolted the door after her.  
+> **¹⁹** And Tamar put ashes on her head, and rent her garment of divers colours that *was* on her, and laid her hand on her head, and went on crying.  
+> **²⁰** And Absalom her brother said unto her, Hath Amnon thy brother been with thee? but hold now thy peace, my sister: he *is* thy brother; regard not this thing. So Tamar remained desolate in her brother Absalom's house.  
 
 We have here a particular account of the abominable wickedness of Amnon in ravishing his sister, a subject not fit to be enlarged upon nor indeed to be mentioned without blushing, that ever any man should be so vile, especially that a son of David should be so. Amnon's character, we have reason to think, was bad in other things; if he had not forsaken God, he would never have been given up to these vile affections. Godly parents have often been afflicted with wicked children; grace does not run in the blood, but corruption does. We do not find that David's children imitated him in his devotion; but his false steps they trod in, and in those did much worse, and repented not. Parents know not how fatal the consequences may be if in any instance they give their children bad examples. Observe the steps of Amnon's sin.
 
@@ -53,15 +53,15 @@ IV\. The devil, as a tormentor and betrayer, immediately turns his love of her i
 
 ## The Plot Against Amnon. (b. c. 1032.)
 
-> <sup>21</sup> But when king David heard of all these things, he was very wroth.  
-> <sup>22</sup> And Absalom spake unto his brother Amnon neither good nor bad: for Absalom hated Amnon, because he had forced his sister Tamar.  
-> <sup>23</sup> And it came to pass after two full years, that Absalom had sheepshearers in Baal-hazor, which *is* beside Ephraim: and Absalom invited all the king's sons.  
-> <sup>24</sup> And Absalom came to the king, and said, Behold now, thy servant hath sheepshearers; let the king, I beseech thee, and his servants go with thy servant.  
-> <sup>25</sup> And the king said to Absalom, Nay, my son, let us not all now go, lest we be chargeable unto thee. And he pressed him: howbeit he would not go, but blessed him.  
-> <sup>26</sup> Then said Absalom, If not, I pray thee, let my brother Amnon go with us. And the king said unto him, Why should he go with thee?  
-> <sup>27</sup> But Absalom pressed him, that he let Amnon and all the king's sons go with him.  
-> <sup>28</sup> Now Absalom had commanded his servants, saying, Mark ye now when Amnon's heart is merry with wine, and when I say unto you, Smite Amnon; then kill him, fear not: have not I commanded you? be courageous, and be valiant.  
-> <sup>29</sup> And the servants of Absalom did unto Amnon as Absalom had commanded. Then all the king's sons arose, and every man gat him up upon his mule, and fled.  
+> **²¹** But when king David heard of all these things, he was very wroth.  
+> **²²** And Absalom spake unto his brother Amnon neither good nor bad: for Absalom hated Amnon, because he had forced his sister Tamar.  
+> **²³** And it came to pass after two full years, that Absalom had sheepshearers in Baal-hazor, which *is* beside Ephraim: and Absalom invited all the king's sons.  
+> **²⁴** And Absalom came to the king, and said, Behold now, thy servant hath sheepshearers; let the king, I beseech thee, and his servants go with thy servant.  
+> **²⁵** And the king said to Absalom, Nay, my son, let us not all now go, lest we be chargeable unto thee. And he pressed him: howbeit he would not go, but blessed him.  
+> **²⁶** Then said Absalom, If not, I pray thee, let my brother Amnon go with us. And the king said unto him, Why should he go with thee?  
+> **²⁷** But Absalom pressed him, that he let Amnon and all the king's sons go with him.  
+> **²⁸** Now Absalom had commanded his servants, saying, Mark ye now when Amnon's heart is merry with wine, and when I say unto you, Smite Amnon; then kill him, fear not: have not I commanded you? be courageous, and be valiant.  
+> **²⁹** And the servants of Absalom did unto Amnon as Absalom had commanded. Then all the king's sons arose, and every man gat him up upon his mule, and fled.  
 
 What Solomon says of the beginning of strife is as true of the beginning of all sin, it is as the letting forth of water; when once the flood-gates are plucked up, an inundation follows; one mischief begets another, and it is hard to say what shall be in the end thereof.
 
@@ -79,16 +79,16 @@ II\. How Absalom resented it. He resolves already to do the part of a judge in I
 
 ## Amnon's Death; Absalom's Flight. (b. c. 1032.)
 
-> <sup>30</sup> And it came to pass, while they were in the way, that tidings came to David, saying, Absalom hath slain all the king's sons, and there is not one of them left.  
-> <sup>31</sup> Then the king arose, and tare his garments, and lay on the earth; and all his servants stood by with their clothes rent.  
-> <sup>32</sup> And Jonadab, the son of Shimeah David's brother, answered and said, Let not my lord suppose *that* they have slain all the young men the king's sons; for Amnon only is dead: for by the appointment of Absalom this hath been determined from the day that he forced his sister Tamar.  
-> <sup>33</sup> Now therefore let not my lord the king take the thing to his heart, to think that all the king's sons are dead: for Amnon only is dead.  
-> <sup>34</sup> But Absalom fled. And the young man that kept the watch lifted up his eyes, and looked, and, behold, there came much people by the way of the hill side behind him.  
-> <sup>35</sup> And Jonadab said unto the king, Behold, the king's sons come: as thy servant said, so it is.  
-> <sup>36</sup> And it came to pass, as soon as he had made an end of speaking, that, behold, the king's sons came, and lifted up their voice and wept: and the king also and all his servants wept very sore.  
-> <sup>37</sup> But Absalom fled, and went to Talmai, the son of Ammihud, king of Geshur. And *David* mourned for his son every day.  
-> <sup>38</sup> So Absalom fled, and went to Geshur, and was there three years.  
-> <sup>39</sup> And *the soul of* king David longed to go forth unto Absalom: for he was comforted concerning Amnon, seeing he was dead.  
+> **³⁰** And it came to pass, while they were in the way, that tidings came to David, saying, Absalom hath slain all the king's sons, and there is not one of them left.  
+> **³¹** Then the king arose, and tare his garments, and lay on the earth; and all his servants stood by with their clothes rent.  
+> **³²** And Jonadab, the son of Shimeah David's brother, answered and said, Let not my lord suppose *that* they have slain all the young men the king's sons; for Amnon only is dead: for by the appointment of Absalom this hath been determined from the day that he forced his sister Tamar.  
+> **³³** Now therefore let not my lord the king take the thing to his heart, to think that all the king's sons are dead: for Amnon only is dead.  
+> **³⁴** But Absalom fled. And the young man that kept the watch lifted up his eyes, and looked, and, behold, there came much people by the way of the hill side behind him.  
+> **³⁵** And Jonadab said unto the king, Behold, the king's sons come: as thy servant said, so it is.  
+> **³⁶** And it came to pass, as soon as he had made an end of speaking, that, behold, the king's sons came, and lifted up their voice and wept: and the king also and all his servants wept very sore.  
+> **³⁷** But Absalom fled, and went to Talmai, the son of Ammihud, king of Geshur. And *David* mourned for his son every day.  
+> **³⁸** So Absalom fled, and went to Geshur, and was there three years.  
+> **³⁹** And *the soul of* king David longed to go forth unto Absalom: for he was comforted concerning Amnon, seeing he was dead.  
 
 Here is, I. The fright that David was put into by a false report brought to Jerusalem that Absalom had *slain all the king's sons,* 2Sa 13:30. It is common for fame to make bad worse; and the first news of such a thing as this represents it as more dreadful than afterwards it proves. Let us not therefore be afraid of evil tidings, while they want confirmation, but, when we hear the worst, hope the best, at least hope better. However, this false news gave as much affliction to David, for the present, as if it had been true; he *tore his garments, and lay on the earth,* while as yet it was only a flying story, 2Sa 13:31. It was well that David had grace; he had need enough of it, for he had strong passions.
 

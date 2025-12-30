@@ -8,14 +8,14 @@ This chapter introduces the solemnity of the giving of the law upon Mount Sinai,
 
 ## The Covenant of Sinai. (b. c. 1491.)
 
-> <sup>1</sup> In the third month, when the children of Israel were gone forth out of the land of Egypt, the same day came they *into* the wilderness of Sinai.  
-> <sup>2</sup> For they were departed from Rephidim, and were come *to* the desert of Sinai, and had pitched in the wilderness; and there Israel camped before the mount.  
-> <sup>3</sup> And Moses went up unto God, and the LORD called unto him out of the mountain, saying, Thus shalt thou say to the house of Jacob, and tell the children of Israel;  
-> <sup>4</sup> Ye have seen what I did unto the Egyptians, and *how* I bare you on eagles' wings, and brought you unto myself.  
-> <sup>5</sup> Now therefore, if ye will obey my voice indeed, and keep my covenant, then ye shall be a peculiar treasure unto me above all people: for all the earth *is* mine:  
-> <sup>6</sup> And ye shall be unto me a kingdom of priests, and an holy nation. These *are* the words which thou shalt speak unto the children of Israel.  
-> <sup>7</sup> And Moses came and called for the elders of the people, and laid before their faces all these words which the LORD commanded him.  
-> <sup>8</sup> And all the people answered together, and said, All that the LORD hath spoken we will do. And Moses returned the words of the people unto the LORD.  
+> **¹** In the third month, when the children of Israel were gone forth out of the land of Egypt, the same day came they *into* the wilderness of Sinai.  
+> **²** For they were departed from Rephidim, and were come *to* the desert of Sinai, and had pitched in the wilderness; and there Israel camped before the mount.  
+> **³** And Moses went up unto God, and the LORD called unto him out of the mountain, saying, Thus shalt thou say to the house of Jacob, and tell the children of Israel;  
+> **⁴** Ye have seen what I did unto the Egyptians, and *how* I bare you on eagles' wings, and brought you unto myself.  
+> **⁵** Now therefore, if ye will obey my voice indeed, and keep my covenant, then ye shall be a peculiar treasure unto me above all people: for all the earth *is* mine:  
+> **⁶** And ye shall be unto me a kingdom of priests, and an holy nation. These *are* the words which thou shalt speak unto the children of Israel.  
+> **⁷** And Moses came and called for the elders of the people, and laid before their faces all these words which the LORD commanded him.  
+> **⁸** And all the people answered together, and said, All that the LORD hath spoken we will do. And Moses returned the words of the people unto the LORD.  
 
 Here is, I. The date of that great charter by which Israel was incorporated. 1. The time when it bears date (Ex 19:1)—*in the third month* after they came out of Egypt. It is computed that the law was given just fifty days after their coming out of Egypt, in remembrance of which the feast of Pentecost was observed the fiftieth day after the passover, and in compliance with which the Spirit was poured out upon the apostles at the feast of pentecost, fifty days after the death of Christ. In Egypt they had spoken of a three days' journey into the wilderness to the place of their sacrifice (Ex 5:3), but it proved to be almost a two months' journey; so often are we out in the calculation of times, and things prove longer in the doing than we expected. 2. The place whence it bears date—from *Mount Sinai,* a place which nature, not art, had made eminent and conspicuous, for it was the highest in all that range of mountains. Thus God put contempt upon cities, and palaces, and magnificent structures, setting up his pavilion on the top of a high mountain, in a waste and barren desert, there to carry on this treaty. It is called *Sinai,* from the multitude of thorny bushes that overspread it.
 
@@ -25,13 +25,13 @@ III\. Israel's acceptance of this charter, and consent to the conditions of it. 
 
 ## The Approach of God Announced. (b. c. 1491.)
 
-> <sup>9</sup> And the LORD said unto Moses, Lo, I come unto thee in a thick cloud, that the people may hear when I speak with thee, and believe thee for ever. And Moses told the words of the people unto the LORD.  
-> <sup>10</sup> And the LORD said unto Moses, Go unto the people, and sanctify them to day and to morrow, and let them wash their clothes,  
-> <sup>11</sup> And be ready against the third day: for the third day the LORD will come down in the sight of all the people upon Mount Sinai.  
-> <sup>12</sup> And thou shalt set bounds unto the people round about, saying, Take heed to yourselves, *that ye* go *not* up into the mount, or touch the border of it: whosoever toucheth the mount shall be surely put to death:  
-> <sup>13</sup> There shall not an hand touch it, but he shall surely be stoned, or shot through; whether *it be* beast or man, it shall not live: when the trumpet soundeth long, they shall come up to the mount.  
-> <sup>14</sup> And Moses went down from the mount unto the people, and sanctified the people; and they washed their clothes.  
-> <sup>15</sup> And he said unto the people, Be ready against the third day: come not at *your* wives.  
+> **⁹** And the LORD said unto Moses, Lo, I come unto thee in a thick cloud, that the people may hear when I speak with thee, and believe thee for ever. And Moses told the words of the people unto the LORD.  
+> **¹⁰** And the LORD said unto Moses, Go unto the people, and sanctify them to day and to morrow, and let them wash their clothes,  
+> **¹¹** And be ready against the third day: for the third day the LORD will come down in the sight of all the people upon Mount Sinai.  
+> **¹²** And thou shalt set bounds unto the people round about, saying, Take heed to yourselves, *that ye* go *not* up into the mount, or touch the border of it: whosoever toucheth the mount shall be surely put to death:  
+> **¹³** There shall not an hand touch it, but he shall surely be stoned, or shot through; whether *it be* beast or man, it shall not live: when the trumpet soundeth long, they shall come up to the mount.  
+> **¹⁴** And Moses went down from the mount unto the people, and sanctified the people; and they washed their clothes.  
+> **¹⁵** And he said unto the people, Be ready against the third day: come not at *your* wives.  
 
 Here, I. God intimates to Moses his purpose of coming down upon Mount Sinai, in some visible appearance of his glory, in *a thick cloud* (Ex 19:9); for he said that he would *dwell in the thick darkness* (2Ch 6:1), and make this his pavilion (Ps 18:11), *holding back the face of his throne* when he set it upon *Mount Sinai, and spreading a cloud upon it,* Job 26:9. This thick cloud was to prohibit curious enquiries into things secret, and to command an awful adoration of that which was revealed. God would come down *in the sight of all the people* (Ex 19:11); though they should see no manner of similitude, yet they should see so much as would convince them that God was among them of a truth. And so high was the top of Mount Sinai that it is supposed that not only the camp of Israel, but even the countries about, might discern some extraordinary appearance of glory upon it, which would strike a terror upon them. It seems also to have been particularly intended to put an honour upon Moses: *That they may hear when I speak with thee, and believe thee for ever,* Ex 19:9. Thus the correspondence was to be first settled by a sensible appearance of the divine glory, which was afterwards to be carried on more silently by the ministry of Moses. In like manner, the Holy Ghost descended visibly upon Christ at his baptism, and all that were present heard God speak to him (Mt 3:17), that afterwards, without the repetition of such visible tokens, they might believe him. So likewise the Spirit descended in cloven tongues upon the apostles (Ac 2:3), that they might be believed. Observe, When the people had declared themselves willing to obey the voice of God, then God promised they should hear his voice; for, if any man be resolved to *do his will, he shall know it,* Joh 7:17.
 
@@ -45,16 +45,16 @@ II\. He orders Moses to make preparation for this great solemnity, giving him tw
 
 ## The Divine Presence on Mount Sinai. (b. c. 1491.)
 
-> <sup>16</sup> And it came to pass on the third day in the morning, that there were thunders and lightnings, and a thick cloud upon the mount, and the voice of the trumpet exceeding loud; so that all the people that *was* in the camp trembled.  
-> <sup>17</sup> And Moses brought forth the people out of the camp to meet with God; and they stood at the nether part of the mount.  
-> <sup>18</sup> And Mount Sinai was altogether on a smoke, because the LORD descended upon it in fire: and the smoke thereof ascended as the smoke of a furnace, and the whole mount quaked greatly.  
-> <sup>19</sup> And when the voice of the trumpet sounded long, and waxed louder and louder, Moses spake, and God answered him by a voice.  
-> <sup>20</sup> And the LORD came down upon Mount Sinai, on the top of the mount: and the LORD called Moses *up* to the top of the mount; and Moses went up.  
-> <sup>21</sup> And the LORD said unto Moses, Go down, charge the people, lest they break through unto the LORD to gaze, and many of them perish.  
-> <sup>22</sup> And let the priests also, which come near to the LORD, sanctify themselves, lest the LORD break forth upon them.  
-> <sup>23</sup> And Moses said unto the LORD, The people cannot come up to Mount Sinai: for thou chargedst us, saying, Set bounds about the mount, and sanctify it.  
-> <sup>24</sup> And the LORD said unto him, Away, get thee down, and thou shalt come up, thou, and Aaron with thee: but let not the priests and the people break through to come up unto the LORD, lest he break forth upon them.  
-> <sup>25</sup> So Moses went down unto the people, and spake unto them.  
+> **¹⁶** And it came to pass on the third day in the morning, that there were thunders and lightnings, and a thick cloud upon the mount, and the voice of the trumpet exceeding loud; so that all the people that *was* in the camp trembled.  
+> **¹⁷** And Moses brought forth the people out of the camp to meet with God; and they stood at the nether part of the mount.  
+> **¹⁸** And Mount Sinai was altogether on a smoke, because the LORD descended upon it in fire: and the smoke thereof ascended as the smoke of a furnace, and the whole mount quaked greatly.  
+> **¹⁹** And when the voice of the trumpet sounded long, and waxed louder and louder, Moses spake, and God answered him by a voice.  
+> **²⁰** And the LORD came down upon Mount Sinai, on the top of the mount: and the LORD called Moses *up* to the top of the mount; and Moses went up.  
+> **²¹** And the LORD said unto Moses, Go down, charge the people, lest they break through unto the LORD to gaze, and many of them perish.  
+> **²²** And let the priests also, which come near to the LORD, sanctify themselves, lest the LORD break forth upon them.  
+> **²³** And Moses said unto the LORD, The people cannot come up to Mount Sinai: for thou chargedst us, saying, Set bounds about the mount, and sanctify it.  
+> **²⁴** And the LORD said unto him, Away, get thee down, and thou shalt come up, thou, and Aaron with thee: but let not the priests and the people break through to come up unto the LORD, lest he break forth upon them.  
+> **²⁵** So Moses went down unto the people, and spake unto them.  
 
 Now, at length, comes that memorable day, that terrible day of the Lord, that day of judgment, in which *Israel heard the voice of the Lord God* speaking to them *out of the midst of the fire, and lived,* De 4:33. Never was there such a sermon preached, before nor since, as this which was here preached to the church in the wilderness. For,
 

@@ -8,13 +8,13 @@ In this chapter we have, I. A threatening of the destruction of Israel for their
 
 ## The Destruction of Idolatry. (b. c. 594.)
 
-> <sup>1</sup> And the word of the LORD came unto me, saying,  
-> <sup>2</sup> Son of man, set thy face toward the mountains of Israel, and prophesy against them,  
-> <sup>3</sup> And say, Ye mountains of Israel, hear the word of the Lord GOD; Thus saith the Lord GOD to the mountains, and to the hills, to the rivers, and to the valleys; Behold, I, *even* I, will bring a sword upon you, and I will destroy your high places.  
-> <sup>4</sup> And your altars shall be desolate, and your images shall be broken: and I will cast down your slain *men* before your idols.  
-> <sup>5</sup> And I will lay the dead carcases of the children of Israel before their idols; and I will scatter your bones round about your altars.  
-> <sup>6</sup> In all your dwelling-places the cities shall be laid waste, and the high places shall be desolate; that your altars may be laid waste and made desolate, and your idols may be broken and cease, and your images may be cut down, and your works may be abolished.  
-> <sup>7</sup> And the slain shall fall in the midst of you, and ye shall know that I *am* the LORD.  
+> **¹** And the word of the LORD came unto me, saying,  
+> **²** Son of man, set thy face toward the mountains of Israel, and prophesy against them,  
+> **³** And say, Ye mountains of Israel, hear the word of the Lord GOD; Thus saith the Lord GOD to the mountains, and to the hills, to the rivers, and to the valleys; Behold, I, *even* I, will bring a sword upon you, and I will destroy your high places.  
+> **⁴** And your altars shall be desolate, and your images shall be broken: and I will cast down your slain *men* before your idols.  
+> **⁵** And I will lay the dead carcases of the children of Israel before their idols; and I will scatter your bones round about your altars.  
+> **⁶** In all your dwelling-places the cities shall be laid waste, and the high places shall be desolate; that your altars may be laid waste and made desolate, and your idols may be broken and cease, and your images may be cut down, and your works may be abolished.  
+> **⁷** And the slain shall fall in the midst of you, and ye shall know that I *am* the LORD.  
 
 Here, I. The prophecy is directed to *the mountains of Israel* (Eze 6:1,2); the prophet must *set his face towards* them. If he could see so far off as the land of Israel, *the mountains* of that land would be first and furthest seen; towards them therefore he must look, and look boldly and stedfastly, as the judge looks at the prisoner, and directs his speech to him, when he passes sentence upon him. Though *the mountains of Israel* be ever so high and ever so strong, he must *set his face against* them, as having judgments to denounce that should shake their foundation. *The mountains of Israel* had been *holy mountains,* but now that they had polluted them with their high places God set his face against them and therefore the prophet must. Israel is here put, not, as sometimes, for the ten tribes, but for the whole land. *The mountains* are called upon to *hear the word of the Lord,* to shame the inhabitants that would not hear. The prophets might as soon gain attention from the *mountains* as from that *rebellious and gainsaying people,* to whom they all day long *stretched out their hands in vain. Hear, O mountains! the Lord's controversy* (Mic 6:1,2), for God's cause will have a hearing, whether we hear it or no. But from *the mountains the word of the Lord* echoes *to the hills, to the rivers, and to the valleys;* for to them also *the Lord God* speaks, intimating that the whole land is concerned in what is now to be delivered and shall be witnesses against this people that they had fair warning given them of the judgments coming, but they would not take it; nay, they contradicted the message and persecuted the messengers, so that God's prophets might more safely and comfortably speak to *the hills and mountains* than to them.
 
@@ -26,9 +26,9 @@ II\. That which is threatened in this prophecy is the utter destruction of the i
 
 ## Mercy Promised to the Penitent; Effect of Repentance. (b. c. 594.)
 
-> <sup>8</sup> Yet will I leave a remnant, that ye may have *some* that shall escape the sword among the nations, when ye shall be scattered through the countries.  
-> <sup>9</sup> And they that escape of you shall remember me among the nations whither they shall be carried captives, because I am broken with their whorish heart, which hath departed from me, and with their eyes, which go a whoring after their idols: and they shall loathe themselves for the evils which they have committed in all their abominations.  
-> <sup>10</sup> And they shall know that I *am* the LORD, *and that* I have not said in vain that I would do this evil unto them.  
+> **⁸** Yet will I leave a remnant, that ye may have *some* that shall escape the sword among the nations, when ye shall be scattered through the countries.  
+> **⁹** And they that escape of you shall remember me among the nations whither they shall be carried captives, because I am broken with their whorish heart, which hath departed from me, and with their eyes, which go a whoring after their idols: and they shall loathe themselves for the evils which they have committed in all their abominations.  
+> **¹⁰** And they shall know that I *am* the LORD, *and that* I have not said in vain that I would do this evil unto them.  
 
 Judgment had hitherto triumphed, but in these verses mercy rejoices against judgment. A sad end is made of this provoking people, but not a full end. The ruin seems to be universal, and *yet will I leave a remnant,* a little remnant, distinguished from the body of the people, a few of many, such as are left when the rest perish; and it is God that leaves them. This intimates that they deserved to be cut off with the rest, and would have been cut off if God had not left them. See Isa 1:9. And it is God who by his grace works that in them which he has an eye to in sparing them. Now,
 
@@ -46,10 +46,10 @@ II\. It is a penitent remnant (Eze 6:9): *Those who escape of you shall remember
 
 ## The Prophet's Lamentation. (b. c. 594.)
 
-> <sup>11</sup> Thus saith the Lord GOD; Smite with thine hand, and stamp with thy foot, and say, Alas for all the evil abominations of the house of Israel! for they shall fall by the sword, by the famine, and by the pestilence.  
-> <sup>12</sup> He that is far off shall die of the pestilence; and he that is near shall fall by the sword; and he that remaineth and is besieged shall die by the famine: thus will I accomplish my fury upon them.  
-> <sup>13</sup> Then shall ye know that I *am* the LORD, when their slain *men* shall be among their idols round about their altars, upon every high hill, in all the tops of the mountains, and under every green tree, and under every thick oak, the place where they did offer sweet savour to all their idols.  
-> <sup>14</sup> So will I stretch out my hand upon them, and make the land desolate, yea, more desolate than the wilderness toward Diblath, in all their habitations: and they shall know that I *am* the LORD.  
+> **¹¹** Thus saith the Lord GOD; Smite with thine hand, and stamp with thy foot, and say, Alas for all the evil abominations of the house of Israel! for they shall fall by the sword, by the famine, and by the pestilence.  
+> **¹²** He that is far off shall die of the pestilence; and he that is near shall fall by the sword; and he that remaineth and is besieged shall die by the famine: thus will I accomplish my fury upon them.  
+> **¹³** Then shall ye know that I *am* the LORD, when their slain *men* shall be among their idols round about their altars, upon every high hill, in all the tops of the mountains, and under every green tree, and under every thick oak, the place where they did offer sweet savour to all their idols.  
+> **¹⁴** So will I stretch out my hand upon them, and make the land desolate, yea, more desolate than the wilderness toward Diblath, in all their habitations: and they shall know that I *am* the LORD.  
 
 The same threatenings which we had before in the foregoing chapter, and in the former part of this, are here repeated, with a direction to the prophet to lament them, that those he prophesied to might be the more affected with the foresight of them.
 

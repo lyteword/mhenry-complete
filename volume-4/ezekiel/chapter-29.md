@@ -8,13 +8,13 @@ Three chapters we had concerning Tyre and its king; next follow four chapters co
 
 ## Pride of Pharaoh; The Ruin of Pharaoh. (b. c. 589.)
 
-> <sup>1</sup> In the tenth year, in the tenth *month,* in the twelfth *day* of the month, the word of the LORD came unto me, saying,  
-> <sup>2</sup> Son of man, set thy face against Pharaoh king of Egypt, and prophesy against him, and against all Egypt:  
-> <sup>3</sup> Speak, and say, Thus saith the Lord GOD; Behold, I *am* against thee, Pharaoh king of Egypt, the great dragon that lieth in the midst of his rivers, which hath said, My river *is* mine own, and I have made *it* for myself.  
-> <sup>4</sup> But I will put hooks in thy jaws, and I will cause the fish of thy rivers to stick unto thy scales, and I will bring thee up out of the midst of thy rivers, and all the fish of thy rivers shall stick unto thy scales.  
-> <sup>5</sup> And I will leave thee *thrown* into the wilderness, thee and all the fish of thy rivers: thou shalt fall upon the open fields; thou shalt not be brought together, nor gathered: I have given thee for meat to the beasts of the field and to the fowls of the heaven.  
-> <sup>6</sup> And all the inhabitants of Egypt shall know that I *am* the LORD, because they have been a staff of reed to the house of Israel.  
-> <sup>7</sup> When they took hold of thee by thy hand, thou didst break, and rend all their shoulder: and when they leaned upon thee, thou brakest, and madest all their loins to be at a stand.  
+> **¹** In the tenth year, in the tenth *month,* in the twelfth *day* of the month, the word of the LORD came unto me, saying,  
+> **²** Son of man, set thy face against Pharaoh king of Egypt, and prophesy against him, and against all Egypt:  
+> **³** Speak, and say, Thus saith the Lord GOD; Behold, I *am* against thee, Pharaoh king of Egypt, the great dragon that lieth in the midst of his rivers, which hath said, My river *is* mine own, and I have made *it* for myself.  
+> **⁴** But I will put hooks in thy jaws, and I will cause the fish of thy rivers to stick unto thy scales, and I will bring thee up out of the midst of thy rivers, and all the fish of thy rivers shall stick unto thy scales.  
+> **⁵** And I will leave thee *thrown* into the wilderness, thee and all the fish of thy rivers: thou shalt fall upon the open fields; thou shalt not be brought together, nor gathered: I have given thee for meat to the beasts of the field and to the fowls of the heaven.  
+> **⁶** And all the inhabitants of Egypt shall know that I *am* the LORD, because they have been a staff of reed to the house of Israel.  
+> **⁷** When they took hold of thee by thy hand, thou didst break, and rend all their shoulder: and when they leaned upon thee, thou brakest, and madest all their loins to be at a stand.  
 
 Here is, I. The date of this prophecy against Egypt. It was in the *tenth year of the captivity,* and yet it is placed after the prophecy against Tyre, which was delivered in the eleventh year, because, in the accomplishment of the prophecies, the destruction of Tyre happened before the destruction of Egypt, and Nebuchadnezzar's gaining Egypt was the reward of his service against Tyre; and *therefore* the prophecy against Tyre is put first, that we may the better observe that. But particular notice must be taken of this, that the first prophecy against Egypt was just at the time when the king of Egypt was coming to relieve Jerusalem and raise the siege (Jer 37:5), but did not answer the expectations of the Jews from them. Note, It is good to foresee the failing of all our creature-confidences, then when we are most in temptation to depend upon them, that we may *cease from man.*
 
@@ -30,15 +30,15 @@ III\. The prophecy itself. Pharaoh Hophrah (for so was the reigning Pharaoh surn
 
 ## Fall and Restoration of Egypt. (b. c. 589.)
 
-> <sup>8</sup> Therefore thus saith the Lord GOD; Behold, I will bring a sword upon thee, and cut off man and beast out of thee.  
-> <sup>9</sup> And the land of Egypt shall be desolate and waste; and they shall know that I *am* the LORD: because he hath said, The river *is* mine, and I have made *it.*  
-> <sup>10</sup> Behold, therefore I *am* against thee, and against thy rivers, and I will make the land of Egypt utterly waste *and* desolate, from the tower of Syene even unto the border of Ethiopia.  
-> <sup>11</sup> No foot of man shall pass through it, nor foot of beast shall pass through it, neither shall it be inhabited forty years.  
-> <sup>12</sup> And I will make the land of Egypt desolate in the midst of the countries *that are* desolate, and her cities among the cities *that are* laid waste shall be desolate forty years: and I will scatter the Egyptians among the nations, and will disperse them through the countries.  
-> <sup>13</sup> Yet thus saith the Lord GOD; At the end of forty years will I gather the Egyptians from the people whither they were scattered:  
-> <sup>14</sup> And I will bring again the captivity of Egypt, and will cause them to return *into* the land of Pathros, into the land of their habitation; and they shall be there a base kingdom.  
-> <sup>15</sup> It shall be the basest of the kingdoms; neither shall it exalt itself any more above the nations: for I will diminish them, that they shall no more rule over the nations.  
-> <sup>16</sup> And it shall be no more the confidence of the house of Israel, which bringeth *their* iniquity to remembrance, when they shall look after them: but they shall know that I *am* the Lord GOD.  
+> **⁸** Therefore thus saith the Lord GOD; Behold, I will bring a sword upon thee, and cut off man and beast out of thee.  
+> **⁹** And the land of Egypt shall be desolate and waste; and they shall know that I *am* the LORD: because he hath said, The river *is* mine, and I have made *it.*  
+> **¹⁰** Behold, therefore I *am* against thee, and against thy rivers, and I will make the land of Egypt utterly waste *and* desolate, from the tower of Syene even unto the border of Ethiopia.  
+> **¹¹** No foot of man shall pass through it, nor foot of beast shall pass through it, neither shall it be inhabited forty years.  
+> **¹²** And I will make the land of Egypt desolate in the midst of the countries *that are* desolate, and her cities among the cities *that are* laid waste shall be desolate forty years: and I will scatter the Egyptians among the nations, and will disperse them through the countries.  
+> **¹³** Yet thus saith the Lord GOD; At the end of forty years will I gather the Egyptians from the people whither they were scattered:  
+> **¹⁴** And I will bring again the captivity of Egypt, and will cause them to return *into* the land of Pathros, into the land of their habitation; and they shall be there a base kingdom.  
+> **¹⁵** It shall be the basest of the kingdoms; neither shall it exalt itself any more above the nations: for I will diminish them, that they shall no more rule over the nations.  
+> **¹⁶** And it shall be no more the confidence of the house of Israel, which bringeth *their* iniquity to remembrance, when they shall look after them: but they shall know that I *am* the Lord GOD.  
 
 This explains the foregoing prediction, which was figurative, and looks something further. Here is a prophecy,
 
@@ -48,11 +48,11 @@ II\. Of the restoration of Egypt after awhile, Eze 29:13. Egypt shall lie *desol
 
 ## A Promise to Nebuchadnezzar. (b. c. 589.)
 
-> <sup>17</sup> And it came to pass in the seven and twentieth year, in the first *month,* in the first *day* of the month, the word of the LORD came unto me, saying,  
-> <sup>18</sup> Son of man, Nebuchadrezzar king of Babylon caused his army to serve a great service against Tyrus: every head *was* made bald, and every shoulder *was* peeled: yet had he no wages, nor his army, for Tyrus, for the service that he had served against it:  
-> <sup>19</sup> Therefore thus saith the Lord GOD; Behold, I will give the land of Egypt unto Nebuchadrezzar king of Babylon; and he shall take her multitude, and take her spoil, and take her prey; and it shall be the wages for his army.  
-> <sup>20</sup> I have given him the land of Egypt *for* his labour wherewith he served against it, because they wrought for me, saith the Lord GOD.  
-> <sup>21</sup> In that day will I cause the horn of the house of Israel to bud forth, and I will give thee the opening of the mouth in the midst of them; and they shall know that I *am* the LORD.  
+> **¹⁷** And it came to pass in the seven and twentieth year, in the first *month,* in the first *day* of the month, the word of the LORD came unto me, saying,  
+> **¹⁸** Son of man, Nebuchadrezzar king of Babylon caused his army to serve a great service against Tyrus: every head *was* made bald, and every shoulder *was* peeled: yet had he no wages, nor his army, for Tyrus, for the service that he had served against it:  
+> **¹⁹** Therefore thus saith the Lord GOD; Behold, I will give the land of Egypt unto Nebuchadrezzar king of Babylon; and he shall take her multitude, and take her spoil, and take her prey; and it shall be the wages for his army.  
+> **²⁰** I have given him the land of Egypt *for* his labour wherewith he served against it, because they wrought for me, saith the Lord GOD.  
+> **²¹** In that day will I cause the horn of the house of Israel to bud forth, and I will give thee the opening of the mouth in the midst of them; and they shall know that I *am* the LORD.  
 
 The date of this prophecy is observable; it was in the twenty-seventh year of Ezekiel's captivity, sixteen years after the prophecy in the former part of the chapter, and almost as long after those which follow in the next chapters; but it comes in here for the explication of all that was said against Egypt. After the destruction of Jerusalem Nebuchadnezzar spent two or three campaigns in the conquest of the Ammonites and Moabites and making himself master of their countries. Then he spent thirteen years in the siege of Tyre. During all that time the Egyptians were embroiled in war with the Cyrenians and one with another, by which they were very much weakened and impoverished; and just at the end of the siege of Tyre God delivers this prophecy to Ezekiel, to signify to him that that utter destruction of Egypt which he had foretold fifteen or sixteen years before, which had been but in part accomplished hitherto, should now be completed by Nebuchadnezzar. The prophecy which begins here, it should seem, is continued to the Eze 30:20 of the next chapter. And Dr. Lightfoot observes that it is the last prophecy we have of this prophet, and should have been last in the book, but is laid here, that all the prophecies against Egypt might come together. The particular destruction of Pharaoh-Hophrah, foretold in the former part of this chapter, was likewise foretold Jer 44:30. This general devastation of Egypt by Nebuchadnezzar was foretold Jer 43:10. Observe,
 

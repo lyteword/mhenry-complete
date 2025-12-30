@@ -8,19 +8,19 @@ In this chapter, we have, I. Christ's clearing of the law of the fourth commandm
 
 ## Christ Vindicates His Disciples.
 
-> <sup>1</sup> At that time Jesus went on the sabbath day through the corn; and his disciples were an hungred, and began to pluck the ears of corn, and to eat.  
-> <sup>2</sup> But when the Pharisees saw *it,* they said unto him, Behold, thy disciples do that which is not lawful to do upon the sabbath day.  
-> <sup>3</sup> But he said unto them, Have ye not read what David did, when he was an hungred, and they that were with him;  
-> <sup>4</sup> How he entered into the house of God, and did eat the showbread, which was not lawful for him to eat, neither for them which were with him, but only for the priests?  
-> <sup>5</sup> Or have ye not read in the law, how that on the sabbath days the priests in the temple profane the sabbath, and are blameless?  
-> <sup>6</sup> But I say unto you, That in this place is *one* greater than the temple.  
-> <sup>7</sup> But if ye had known what *this* meaneth, I will have mercy, and not sacrifice, ye would not have condemned the guiltless.  
-> <sup>8</sup> For the Son of man is Lord even of the sabbath day.  
-> <sup>9</sup> And when he was departed thence, he went into their synagogue:  
-> <sup>10</sup> And, behold, there was a man which had *his* hand withered. And they asked him, saying, Is it lawful to heal on the sabbath days? that they might accuse him.  
-> <sup>11</sup> And he said unto them, What man shall there be among you, that shall have one sheep, and if it fall into a pit on the sabbath day, will he not lay hold on it, and lift *it* out?  
-> <sup>12</sup> How much then is a man better than a sheep? Wherefore it is lawful to do well on the sabbath days.  
-> <sup>13</sup> Then saith he to the man, Stretch forth thine hand. And he stretched *it* forth; and it was restored whole, like as the other.  
+> **¹** At that time Jesus went on the sabbath day through the corn; and his disciples were an hungred, and began to pluck the ears of corn, and to eat.  
+> **²** But when the Pharisees saw *it,* they said unto him, Behold, thy disciples do that which is not lawful to do upon the sabbath day.  
+> **³** But he said unto them, Have ye not read what David did, when he was an hungred, and they that were with him;  
+> **⁴** How he entered into the house of God, and did eat the showbread, which was not lawful for him to eat, neither for them which were with him, but only for the priests?  
+> **⁵** Or have ye not read in the law, how that on the sabbath days the priests in the temple profane the sabbath, and are blameless?  
+> **⁶** But I say unto you, That in this place is *one* greater than the temple.  
+> **⁷** But if ye had known what *this* meaneth, I will have mercy, and not sacrifice, ye would not have condemned the guiltless.  
+> **⁸** For the Son of man is Lord even of the sabbath day.  
+> **⁹** And when he was departed thence, he went into their synagogue:  
+> **¹⁰** And, behold, there was a man which had *his* hand withered. And they asked him, saying, Is it lawful to heal on the sabbath days? that they might accuse him.  
+> **¹¹** And he said unto them, What man shall there be among you, that shall have one sheep, and if it fall into a pit on the sabbath day, will he not lay hold on it, and lift *it* out?  
+> **¹²** How much then is a man better than a sheep? Wherefore it is lawful to do well on the sabbath days.  
+> **¹³** Then saith he to the man, Stretch forth thine hand. And he stretched *it* forth; and it was restored whole, like as the other.  
 
 The Jewish teachers had corrupted many of the commandments, by interpreting them more loosely than they were intended; a mistake which Christ discovered and rectified (Mt 5:1-48) in his sermon on the mount: but concerning the fourth commandment, they had erred in the other extreme, and interpreted it too strictly. Note, it is common for men of corrupt minds, by their zeal in rituals, and the external services of religion, to think to atone for the looseness of their morals. But they are cursed who *add to,* as well as they who *take from, the words of this book,* Re 22:16,19, Pr 30:6.
 
@@ -68,14 +68,14 @@ Hence Christ infers a truth, which, even at first sight, appears very reasonable
 
 ## The Malice of the Pharisees; Christ Withdraws Himself.
 
-> <sup>14</sup> Then the Pharisees went out, and held a council against him, how they might destroy him.  
-> <sup>15</sup> But when Jesus knew *it,* he withdrew himself from thence: and great multitudes followed him, and he healed them all;  
-> <sup>16</sup> And charged them that they should not make him known:  
-> <sup>17</sup> That it might be fulfilled which was spoken by Esaias the prophet, saying,  
-> <sup>18</sup> Behold my servant, whom I have chosen; my beloved, in whom my soul is well pleased: I will put my spirit upon him, and he shall show judgment to the Gentiles.  
-> <sup>19</sup> He shall not strive, nor cry; neither shall any man hear his voice in the streets.  
-> <sup>20</sup> A bruised reed shall he not break, and smoking flax shall he not quench, till he send forth judgment unto victory.  
-> <sup>21</sup> And in his name shall the Gentiles trust.  
+> **¹⁴** Then the Pharisees went out, and held a council against him, how they might destroy him.  
+> **¹⁵** But when Jesus knew *it,* he withdrew himself from thence: and great multitudes followed him, and he healed them all;  
+> **¹⁶** And charged them that they should not make him known:  
+> **¹⁷** That it might be fulfilled which was spoken by Esaias the prophet, saying,  
+> **¹⁸** Behold my servant, whom I have chosen; my beloved, in whom my soul is well pleased: I will put my spirit upon him, and he shall show judgment to the Gentiles.  
+> **¹⁹** He shall not strive, nor cry; neither shall any man hear his voice in the streets.  
+> **²⁰** A bruised reed shall he not break, and smoking flax shall he not quench, till he send forth judgment unto victory.  
+> **²¹** And in his name shall the Gentiles trust.  
 
 As in the midst of Christ's greatest humiliations, there were proofs of his dignity, so in the midst of his greatest honours, he gave proofs of his humility; and when the mighty works he did gave him an opportunity of making a figure, yet he made it appear that *he emptied himself,* and *made himself of no reputation.* Here we have,
 
@@ -117,22 +117,22 @@ III\. The fulfilling of the scriptures in all this, Mt 12:17. Christ retired int
 
 ## The Sin against the Holy Ghost.
 
-> <sup>22</sup> Then was brought unto him one possessed with a devil, blind, and dumb: and he healed him, insomuch that the blind and dumb both spake and saw.  
-> <sup>23</sup> And all the people were amazed, and said, Is not this the son of David?  
-> <sup>24</sup> But when the Pharisees heard *it,* they said, This *fellow* doth not cast out devils, but by Beelzebub the prince of the devils.  
-> <sup>25</sup> And Jesus knew their thoughts, and said unto them, Every kingdom divided against itself is brought to desolation; and every city or house divided against itself shall not stand:  
-> <sup>26</sup> And if Satan cast out Satan, he is divided against himself; how shall then his kingdom stand?  
-> <sup>27</sup> And if I by Beelzebub cast out devils, by whom do your children cast *them* out? therefore they shall be your judges.  
-> <sup>28</sup> But if I cast out devils by the Spirit of God, then the kingdom of God is come unto you.  
-> <sup>29</sup> Or else how can one enter into a strong man's house, and spoil his goods, except he first bind the strong man? and then he will spoil his house.  
-> <sup>30</sup> He that is not with me is against me; and he that gathereth not with me scattereth abroad.  
-> <sup>31</sup> Wherefore I say unto you, All manner of sin and blasphemy shall be forgiven unto men: but the blasphemy *against* the *Holy* Ghost shall not be forgiven unto men.  
-> <sup>32</sup> And whosoever speaketh a word against the Son of man, it shall be forgiven him: but whosoever speaketh against the Holy Ghost, it shall not be forgiven him, neither in this world, neither in the *world* to come.  
-> <sup>33</sup> Either make the tree good, and his fruit good; or else make the tree corrupt, and his fruit corrupt: for the tree is known by *his* fruit.  
-> <sup>34</sup> O generation of vipers, how can ye, being evil, speak good things? for out of the abundance of the heart the mouth speaketh.  
-> <sup>35</sup> A good man out of the good treasure of the heart bringeth forth good things: and an evil man out of the evil treasure bringeth forth evil things.  
-> <sup>36</sup> But I say unto you, That every idle word that men shall speak, they shall give account thereof in the day of judgment.  
-> <sup>37</sup> For by thy words thou shalt be justified, and by thy words thou shalt be condemned.  
+> **²²** Then was brought unto him one possessed with a devil, blind, and dumb: and he healed him, insomuch that the blind and dumb both spake and saw.  
+> **²³** And all the people were amazed, and said, Is not this the son of David?  
+> **²⁴** But when the Pharisees heard *it,* they said, This *fellow* doth not cast out devils, but by Beelzebub the prince of the devils.  
+> **²⁵** And Jesus knew their thoughts, and said unto them, Every kingdom divided against itself is brought to desolation; and every city or house divided against itself shall not stand:  
+> **²⁶** And if Satan cast out Satan, he is divided against himself; how shall then his kingdom stand?  
+> **²⁷** And if I by Beelzebub cast out devils, by whom do your children cast *them* out? therefore they shall be your judges.  
+> **²⁸** But if I cast out devils by the Spirit of God, then the kingdom of God is come unto you.  
+> **²⁹** Or else how can one enter into a strong man's house, and spoil his goods, except he first bind the strong man? and then he will spoil his house.  
+> **³⁰** He that is not with me is against me; and he that gathereth not with me scattereth abroad.  
+> **³¹** Wherefore I say unto you, All manner of sin and blasphemy shall be forgiven unto men: but the blasphemy *against* the *Holy* Ghost shall not be forgiven unto men.  
+> **³²** And whosoever speaketh a word against the Son of man, it shall be forgiven him: but whosoever speaketh against the Holy Ghost, it shall not be forgiven him, neither in this world, neither in the *world* to come.  
+> **³³** Either make the tree good, and his fruit good; or else make the tree corrupt, and his fruit corrupt: for the tree is known by *his* fruit.  
+> **³⁴** O generation of vipers, how can ye, being evil, speak good things? for out of the abundance of the heart the mouth speaketh.  
+> **³⁵** A good man out of the good treasure of the heart bringeth forth good things: and an evil man out of the evil treasure bringeth forth evil things.  
+> **³⁶** But I say unto you, That every idle word that men shall speak, they shall give account thereof in the day of judgment.  
+> **³⁷** For by thy words thou shalt be justified, and by thy words thou shalt be condemned.  
 
 In these verses we have,
 
@@ -204,14 +204,14 @@ V\. Here is a discourse of Christ's upon this occasion, concerning tongue-sins; 
 
 ## The Pharisees Ask a Sign.
 
-> <sup>38</sup> Then certain of the scribes and of the Pharisees answered, saying, Master, we would see a sign from thee.  
-> <sup>39</sup> But he answered and said unto them, An evil and adulterous generation seeketh after a sign; and there shall no sign be given to it, but the sign of the prophet Jonas:  
-> <sup>40</sup> For as Jonas was three days and three nights in the whale's belly; so shall the Son of man be three days and three nights in the heart of the earth.  
-> <sup>41</sup> The men of Nineveh shall rise in judgment with this generation, and shall condemn it: because they repented at the preaching of Jonas; and, behold, a greater than Jonas *is* here.  
-> <sup>42</sup> The queen of the south shall rise up in the judgment with this generation, and shall condemn it: for she came from the uttermost parts of the earth to hear the wisdom of Solomon; and, behold, a greater than Solomon *is* here.  
-> <sup>43</sup> When the unclean spirit is gone out of a man, he walketh through dry places, seeking rest, and findeth none.  
-> <sup>44</sup> Then he saith, I will return into my house from whence I came out; and when he is come, he findeth *it* empty, swept, and garnished.  
-> <sup>45</sup> Then goeth he, and taketh with himself seven other spirits more wicked than himself, and they enter in and dwell there: and the last *state* of that man is worse than the first. Even so shall it be also unto this wicked generation.  
+> **³⁸** Then certain of the scribes and of the Pharisees answered, saying, Master, we would see a sign from thee.  
+> **³⁹** But he answered and said unto them, An evil and adulterous generation seeketh after a sign; and there shall no sign be given to it, but the sign of the prophet Jonas:  
+> **⁴⁰** For as Jonas was three days and three nights in the whale's belly; so shall the Son of man be three days and three nights in the heart of the earth.  
+> **⁴¹** The men of Nineveh shall rise in judgment with this generation, and shall condemn it: because they repented at the preaching of Jonas; and, behold, a greater than Jonas *is* here.  
+> **⁴²** The queen of the south shall rise up in the judgment with this generation, and shall condemn it: for she came from the uttermost parts of the earth to hear the wisdom of Solomon; and, behold, a greater than Solomon *is* here.  
+> **⁴³** When the unclean spirit is gone out of a man, he walketh through dry places, seeking rest, and findeth none.  
+> **⁴⁴** Then he saith, I will return into my house from whence I came out; and when he is come, he findeth *it* empty, swept, and garnished.  
+> **⁴⁵** Then goeth he, and taketh with himself seven other spirits more wicked than himself, and they enter in and dwell there: and the last *state* of that man is worse than the first. Even so shall it be also unto this wicked generation.  
 
 It is probable that these Pharisees with whom Christ is here in discourse were not the same that cavilled at him (Mt 12:24), and would not credit the signs he gave; but another set of them, who saw that there was no reason to discredit them, but would not content themselves with the signs he gave, nor admit the evidence of them, unless he would give them such further proof as they should demand. Here is,
 
@@ -245,11 +245,11 @@ The body of that nation is here represented, *First,* As an apostate people. Aft
 
 ## Who Are Christ's Relations.
 
-> <sup>46</sup> While he yet talked to the people, behold, *his* mother and his brethren stood without, desiring to speak with him.  
-> <sup>47</sup> Then one said unto him, Behold, thy mother and thy brethren stand without, desiring to speak with thee.  
-> <sup>48</sup> But he answered and said unto him that told him, Who is my mother? and who are my brethren?  
-> <sup>49</sup> And he stretched forth his hand toward his disciples, and said, Behold my mother and my brethren!  
-> <sup>50</sup> For whosoever shall do the will of my Father which is in heaven, the same is my brother, and sister, and mother.  
+> **⁴⁶** While he yet talked to the people, behold, *his* mother and his brethren stood without, desiring to speak with him.  
+> **⁴⁷** Then one said unto him, Behold, thy mother and thy brethren stand without, desiring to speak with thee.  
+> **⁴⁸** But he answered and said unto him that told him, Who is my mother? and who are my brethren?  
+> **⁴⁹** And he stretched forth his hand toward his disciples, and said, Behold my mother and my brethren!  
+> **⁵⁰** For whosoever shall do the will of my Father which is in heaven, the same is my brother, and sister, and mother.  
 
 Many excellent, useful sayings came from the mouth of our Lord Jesus upon particular occasions; even his digressions were instructive, as well as his set discourses: as here,
 

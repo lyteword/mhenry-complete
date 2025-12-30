@@ -8,11 +8,11 @@ In this chapter we have, I. The good improvement Christ made of a piece of news 
 
 ## The Murdered Galileans.
 
-> <sup>1</sup> There were present at that season some that told him of the Galilæans, whose blood Pilate had mingled with their sacrifices.  
-> <sup>2</sup> And Jesus answering said unto them, Suppose ye that these Galilæans were sinners above all the Galilæans, because they suffered such things?  
-> <sup>3</sup> I tell you, Nay: but, except ye repent, ye shall all likewise perish.  
-> <sup>4</sup> Or those eighteen, upon whom the tower in Siloam fell, and slew them, think ye that they were sinners above all men that dwelt in Jerusalem?  
-> <sup>5</sup> I tell you, Nay: but, except ye repent, ye shall all likewise perish.  
+> **¹** There were present at that season some that told him of the Galilæans, whose blood Pilate had mingled with their sacrifices.  
+> **²** And Jesus answering said unto them, Suppose ye that these Galilæans were sinners above all the Galilæans, because they suffered such things?  
+> **³** I tell you, Nay: but, except ye repent, ye shall all likewise perish.  
+> **⁴** Or those eighteen, upon whom the tower in Siloam fell, and slew them, think ye that they were sinners above all men that dwelt in Jerusalem?  
+> **⁵** I tell you, Nay: but, except ye repent, ye shall all likewise perish.  
 
 We have here, I. Tidings brought to Christ of the death of some Galileans lately, whose blood *Pilate had mingled with their sacrifices,* Lu 13:1. Let us consider,
 
@@ -30,10 +30,10 @@ II\. Christ's reply to this report, in which,
 
 ## The Barren Fig-Tree.
 
-> <sup>6</sup> He spake also this parable; A certain *man* had a fig tree planted in his vineyard; and he came and sought fruit thereon, and found none.  
-> <sup>7</sup> Then said he unto the dresser of his vineyard, Behold, these three years I come seeking fruit on this fig tree, and find none: cut it down; why cumbereth it the ground?  
-> <sup>8</sup> And he answering said unto him, Lord, let it alone this year also, till I shall dig about it, and dung *it:*  
-> <sup>9</sup> And if it bear fruit, *well:* and if not, *then* after that thou shalt cut it down.  
+> **⁶** He spake also this parable; A certain *man* had a fig tree planted in his vineyard; and he came and sought fruit thereon, and found none.  
+> **⁷** Then said he unto the dresser of his vineyard, Behold, these three years I come seeking fruit on this fig tree, and find none: cut it down; why cumbereth it the ground?  
+> **⁸** And he answering said unto him, Lord, let it alone this year also, till I shall dig about it, and dung *it:*  
+> **⁹** And if it bear fruit, *well:* and if not, *then* after that thou shalt cut it down.  
 
 This parable is intended to enforce that word of warning immediately going before, "*Except ye repent, ye shall all likewise perish;* except you be reformed, you will be ruined, as the barren tree, except it bring forth fruit, will be cut down."
 
@@ -65,14 +65,14 @@ But he adds, *If not, then after that thou shalt cut it down.* Observe here, [1.
 
 ## The Infirm Woman Healed.
 
-> <sup>10</sup> And he was teaching in one of the synagogues on the sabbath.  
-> <sup>11</sup> And, behold, there was a woman which had a spirit of infirmity eighteen years, and was bowed together, and could in no wise lift up *herself.*  
-> <sup>12</sup> And when Jesus saw her, he called *her to him,* and said unto her, Woman, thou art loosed from thine infirmity.  
-> <sup>13</sup> And he laid *his* hands on her: and immediately she was made straight, and glorified God.  
-> <sup>14</sup> And the ruler of the synagogue answered with indignation, because that Jesus had healed on the sabbath day, and said unto the people, There are six days in which men ought to work: in them therefore come and be healed, and not on the sabbath day.  
-> <sup>15</sup> The Lord then answered him, and said, *Thou* hypocrite, doth not each one of you on the sabbath loose his ox or *his* ass from the stall, and lead *him* away to watering?  
-> <sup>16</sup> And ought not this woman, being a daughter of Abraham, whom Satan hath bound, lo, these eighteen years, be loosed from this bond on the sabbath day?  
-> <sup>17</sup> And when he had said these things, all his adversaries were ashamed: and all the people rejoiced for all the glorious things that were done by him.  
+> **¹⁰** And he was teaching in one of the synagogues on the sabbath.  
+> **¹¹** And, behold, there was a woman which had a spirit of infirmity eighteen years, and was bowed together, and could in no wise lift up *herself.*  
+> **¹²** And when Jesus saw her, he called *her to him,* and said unto her, Woman, thou art loosed from thine infirmity.  
+> **¹³** And he laid *his* hands on her: and immediately she was made straight, and glorified God.  
+> **¹⁴** And the ruler of the synagogue answered with indignation, because that Jesus had healed on the sabbath day, and said unto the people, There are six days in which men ought to work: in them therefore come and be healed, and not on the sabbath day.  
+> **¹⁵** The Lord then answered him, and said, *Thou* hypocrite, doth not each one of you on the sabbath loose his ox or *his* ass from the stall, and lead *him* away to watering?  
+> **¹⁶** And ought not this woman, being a daughter of Abraham, whom Satan hath bound, lo, these eighteen years, be loosed from this bond on the sabbath day?  
+> **¹⁷** And when he had said these things, all his adversaries were ashamed: and all the people rejoiced for all the glorious things that were done by him.  
 
 Here is, I. The miraculous cure of a woman that had been long under a spirit of infirmity. Our Lord Jesus spent his *Sabbaths* in the *synagogues,* Lu 13:10. We should make conscience of doing so, as we have opportunity, and not think we can spend the sabbath as well at home reading a good book; for religious assemblies are a divine institution, which we must bear our testimony to, though but of two or three. And, when he was in the synagogues on the sabbath day, *he was teaching there*—*en didaskon*. It denotes a continued act; he *still taught the people knowledge.* He was in his element when he was teaching. Now to confirm the doctrine he preached, and recommend it as faithful, and well worthy of all acceptation, he wrought a miracle, a miracle of mercy.
 
@@ -100,11 +100,11 @@ IV\. The different effect that this had upon those that heard him. He had suffic
 
 ## The Widow of Nain.
 
-> <sup>18</sup> Then said he, Unto what is the kingdom of God like? and whereunto shall I resemble it?  
-> <sup>19</sup> It is like a grain of mustard seed, which a man took, and cast into his garden; and it grew, and waxed a great tree; and the fowls of the air lodged in the branches of it.  
-> <sup>20</sup> And again he said, Whereunto shall I liken the kingdom of God?  
-> <sup>21</sup> It is like leaven, which a woman took and hid in three measures of meal, till the whole was leavened.  
-> <sup>22</sup> And he went through the cities and villages, teaching, and journeying toward Jerusalem.  
+> **¹⁸** Then said he, Unto what is the kingdom of God like? and whereunto shall I resemble it?  
+> **¹⁹** It is like a grain of mustard seed, which a man took, and cast into his garden; and it grew, and waxed a great tree; and the fowls of the air lodged in the branches of it.  
+> **²⁰** And again he said, Whereunto shall I liken the kingdom of God?  
+> **²¹** It is like leaven, which a woman took and hid in three measures of meal, till the whole was leavened.  
+> **²²** And he went through the cities and villages, teaching, and journeying toward Jerusalem.  
 
 Here is, I. The gospel's progress foretold in two parables, which we had before, Mt 13:31-33. The *kingdom of the Messiah* is the *kingdom of God,* for it advances his glory; this kingdom was yet a mystery, and people were generally in the dark, and under mistakes, about it. Now, when we would describe a thing to those that are strangers to it, we choose to do it by similitudes. "Such a person you know not, but I will tell you whom he is like;" so Christ undertakes here to show *what the kingdom of God is like* (Lu 13:18): "*Whereunto shall I liken the kingdom of God?* Lu 13:20. It will be quite another thing from what you expect, and will operate, and gain its point, in quite another manner." 1. "You expect it will appear *great,* and will arrive at its perfection all of a sudden; but you are mistaken, *it is like a grain of mustard-seed,* a little thing, takes up but little room, makes but a little figure, and promises but little; yet, when sown in soil proper to receive it, it *waxes a great tree,*" Lu 13:19. Many perhaps were prejudiced against the gospel, and loth to come in *to the obedience* of it, because its beginning was so small; they were ready to say of Christ, *Can this man save us?* And of his gospel, *Is this likely ever to come to any thing?* Now Christ would remove this prejudice, by assuring them that though *its beginning was small its latter end should greatly increase;* so that many should come, should come upon the wing, should *fly like a cloud,* to lodge in the branches of it with more safety and satisfaction than in the branches of Nebuchadnezzar's tree, Da 4:21. 2. "You expect it will make its way by *external* means, by subduing nations and vanquishing armies, though it shall work *like leaven,* silently and insensibly, and without any force or violence, Lu 13:21. A little leaven leaveneth the whole lump; so the doctrine of Christ will strangely *diffuse* its relish into the world of mankind: in this it triumphs, that *the savour of the knowledge of it* is unaccountably made manifest *in every place,* beyond what one could have expected, 2Co 2:14. But you must *give it time,* wait for the issue of the preaching of the gospel to the world, and you will find it does wonders, and alters the property of the souls of men. By degrees *the whole will be leavened,* even as many as are, like *the meal* to the *leaven,* prepared to receive the savour of it."
 
@@ -112,14 +112,14 @@ II\. Christ's progress towards Jerusalem recorded: *He went through the cities a
 
 ## Curiosity Checked; The Doom of Sinful Professors.
 
-> <sup>23</sup> Then said one unto him, Lord, are there few that be saved? And he said unto them,  
-> <sup>24</sup> Strive to enter in at the strait gate: for many, I say unto you, will seek to enter in, and shall not be able.  
-> <sup>25</sup> When once the master of the house is risen up, and hath shut to the door, and ye begin to stand without, and to knock at the door, saying, Lord, Lord, open unto us; and he shall answer and say unto you, I know you not whence ye are:  
-> <sup>26</sup> Then shall ye begin to say, We have eaten and drunk in thy presence, and thou hast taught in our streets.  
-> <sup>27</sup> But he shall say, I tell you, I know you not whence ye are; depart from me, all *ye* workers of iniquity.  
-> <sup>28</sup> There shall be weeping and gnashing of teeth, when ye shall see Abraham, and Isaac, and Jacob, and all the prophets, in the kingdom of God, and you *yourselves* thrust out.  
-> <sup>29</sup> And they shall come from the east, and *from* the west, and from the north, and *from* the south, and shall sit down in the kingdom of God.  
-> <sup>30</sup> And, behold, there are last which shall be first, and there are first which shall be last.  
+> **²³** Then said one unto him, Lord, are there few that be saved? And he said unto them,  
+> **²⁴** Strive to enter in at the strait gate: for many, I say unto you, will seek to enter in, and shall not be able.  
+> **²⁵** When once the master of the house is risen up, and hath shut to the door, and ye begin to stand without, and to knock at the door, saying, Lord, Lord, open unto us; and he shall answer and say unto you, I know you not whence ye are:  
+> **²⁶** Then shall ye begin to say, We have eaten and drunk in thy presence, and thou hast taught in our streets.  
+> **²⁷** But he shall say, I tell you, I know you not whence ye are; depart from me, all *ye* workers of iniquity.  
+> **²⁸** There shall be weeping and gnashing of teeth, when ye shall see Abraham, and Isaac, and Jacob, and all the prophets, in the kingdom of God, and you *yourselves* thrust out.  
+> **²⁹** And they shall come from the east, and *from* the west, and from the north, and *from* the south, and shall sit down in the kingdom of God.  
+> **³⁰** And, behold, there are last which shall be first, and there are first which shall be last.  
 
 We have here,
 
@@ -149,11 +149,11 @@ II\. Christ's answer to this question, which directs us what use to make of this
 
 ## Christ's Message to Herod.
 
-> <sup>31</sup> The same day there came certain of the Pharisees, saying unto him, Get thee out, and depart hence: for Herod will kill thee.  
-> <sup>32</sup> And he said unto them, Go ye, and tell that fox, Behold, I cast out devils, and I do cures to day and to morrow, and the third *day* I shall be perfected.  
-> <sup>33</sup> Nevertheless I must walk to day, and to morrow, and the *day* following: for it cannot be that a prophet perish out of Jerusalem.  
-> <sup>34</sup> O Jerusalem, Jerusalem, which killest the prophets, and stonest them that are sent unto thee; how often would I have gathered thy children together, as a hen *doth gather* her brood under *her* wings, and ye would not!  
-> <sup>35</sup> Behold, your house is left unto you desolate: and verily I say unto you, Ye shall not see me, until *the time* come when ye shall say, Blessed *is* he that cometh in the name of the Lord.  
+> **³¹** The same day there came certain of the Pharisees, saying unto him, Get thee out, and depart hence: for Herod will kill thee.  
+> **³²** And he said unto them, Go ye, and tell that fox, Behold, I cast out devils, and I do cures to day and to morrow, and the third *day* I shall be perfected.  
+> **³³** Nevertheless I must walk to day, and to morrow, and the *day* following: for it cannot be that a prophet perish out of Jerusalem.  
+> **³⁴** O Jerusalem, Jerusalem, which killest the prophets, and stonest them that are sent unto thee; how often would I have gathered thy children together, as a hen *doth gather* her brood under *her* wings, and ye would not!  
+> **³⁵** Behold, your house is left unto you desolate: and verily I say unto you, Ye shall not see me, until *the time* come when ye shall say, Blessed *is* he that cometh in the name of the Lord.  
 
 Here is, I. A suggestion to Christ of his danger from Herod, now that he was in Galilee, within Herod's jurisdiction (Lu 13:31): *Certain of the Pharisees* (for there were those of that sect dispersed all the nation over) *came* to Christ, pretending friendship and a concern for his safety, and said, *Get thee* out of this country, and *depart hence,* for otherwise *Herod will kill thee,* as he did John. Some think that these Pharisees had no ground at all for this, that Herod had not given out any words to this purport, but that they framed this lie, to drive him out of Galilee, where he had a great and growing interest, and to drive him into Judea, where they knew there were those that really sought his life. But, Christ's answer being directed to Herod himself, it should seem that the Pharisees had ground for what they said, and that Herod was enraged against Christ, and designed him a mischief, for the honourable testimony he had borne to John Baptist, and to the doctrine of repentance which John preached. Herod was willing to get rid of Christ out of his dominions; and, when he durst not put him to death, he hoped to *frighten him away* by sending him this threatening message.
 

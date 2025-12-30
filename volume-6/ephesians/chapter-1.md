@@ -8,8 +8,8 @@ In this chapter we have, I. The introduction to the whole epistle, which is much
 
 ## Introduction. (a. d. 61.)
 
-> <sup>1</sup> Paul, an apostle of Jesus Christ by the will of God, to the saints which are at Ephesus, and to the faithful in Christ Jesus:  
-> <sup>2</sup> Grace *be* to you, and peace, from God our Father, and *from* the Lord Jesus Christ.  
+> **¹** Paul, an apostle of Jesus Christ by the will of God, to the saints which are at Ephesus, and to the faithful in Christ Jesus:  
+> **²** Grace *be* to you, and peace, from God our Father, and *from* the Lord Jesus Christ.  
 
 Here is, 1. The title St. Paul takes to himself, as belonging to him—*Paul, an apostle of Jesus Christ,* etc. He reckoned it a great honour to be employed by Christ, as one of his messengers to the sons of men. The apostles were prime officers in the Christian church, being extraordinary ministers appointed for a time only. They were furnished by their great Lord with extraordinary gifts and the immediate assistance of the Spirit, that they might be fitted for publishing and spreading the gospel and for governing the church in its infant state. Such a one Paul was, and that not *by the will* of man conferring that office upon him, nor by his own intrusion into it; but *by the will of God,* very expressly and plainly intimated to him, he being immediately called (as the other apostles were) by Christ himself to the work. Every faithful minister of Christ (though his call and office are not of so extraordinary a nature) may, with our apostle, reflect on it as an honour and comfort to himself that he is what he is *by the will of God.* 2. The persons to whom this epistle is sent: *To the saints who are at Ephesus,* that is, to the Christians who were members of the church at Ephesus, the metropolis of Asia. He calls them saints, for such they were in profession, such they were bound to be in truth and reality, and many of them were such. All Christians must be saints; and, if they come not under that character on earth, they will never be saints in glory. He calls them *the faithful in Christ Jesus,* believers in him, and firm and constant in their adherence to him and to his truths and ways. Those are not saints who are not faithful, believing in Christ, firmly adhering to him, and true to the profession they make of relation to their Lord. Note, It is the honour not only of ministers, but of private Christians too, to have obtained mercy of the Lord to be faithful.—*In Christ Jesus,* from whom they derive all their grace and spiritual strength, and in whom their persons, and all that they perform, are made accepted. 3. The apostolical benediction: *Grace be to you,* etc. This is the token in every epistle; and it expresses the apostle's good-will to his friends, and a real desire of their welfare. By *grace* we are to understand the free and undeserved love and favour of God, and those graces of the Spirit which proceed from it; by *peace* all other blessings, spiritual and temporal, the fruits and product of the former. No peace without grace. No peace, nor grace, but *from God the Father, and from the Lord Jesus Christ.* These peculiar blessings proceed from God, not as a Creator, but as a Father by special relation: and they come from our Lord Jesus Christ, who, having purchased them for his people, has a right to bestow them upon them. Indeed the saints, and the faithful in Christ Jesus, had already received grace and peace; but the increase of these is very desirable, and the best saints stand in need of fresh supplies of the graces of the Spirit, and cannot but desire to improve and grow: and therefore they should pray, each one for himself and all for one another, that such blessings may still abound unto them.
 
@@ -17,18 +17,18 @@ After this short introduction he comes to the matter and body of the epistle; an
 
 ## Praise for Spiritual Blessings. (a. d. 61.)
 
-> <sup>3</sup> Blessed *be* the God and Father of our Lord Jesus Christ, who hath blessed us with all spiritual blessings in heavenly *places* in Christ:  
-> <sup>4</sup> According as he hath chosen us in him before the foundation of the world, that we should be holy and without blame before him in love:  
-> <sup>5</sup> Having predestinated us unto the adoption of children by Jesus Christ to himself, according to the good pleasure of his will,  
-> <sup>6</sup> To the praise of the glory of his grace, wherein he hath made us accepted in the beloved.  
-> <sup>7</sup> In whom we have redemption through his blood, the forgiveness of sins, according to the riches of his grace;  
-> <sup>8</sup> Wherein he hath abounded toward us in all wisdom and prudence;  
-> <sup>9</sup> Having made known unto us the mystery of his will, according to his good pleasure which he hath purposed in himself:  
-> <sup>10</sup> That in the dispensation of the fulness of times he might gather together in one all things in Christ, both which are in heaven, and which are on earth; *even* in him:  
-> <sup>11</sup> In whom also we have obtained an inheritance, being predestinated according to the purpose of him who worketh all things after the counsel of his own will:  
-> <sup>12</sup> That we should be to the praise of his glory, who first trusted in Christ.  
-> <sup>13</sup> In whom ye also *trusted,* after that ye heard the word of truth, the gospel of your salvation: in whom also after that ye believed, ye were sealed with that holy Spirit of promise,  
-> <sup>14</sup> Which is the earnest of our inheritance until the redemption of the purchased possession, unto the praise of his glory.  
+> **³** Blessed *be* the God and Father of our Lord Jesus Christ, who hath blessed us with all spiritual blessings in heavenly *places* in Christ:  
+> **⁴** According as he hath chosen us in him before the foundation of the world, that we should be holy and without blame before him in love:  
+> **⁵** Having predestinated us unto the adoption of children by Jesus Christ to himself, according to the good pleasure of his will,  
+> **⁶** To the praise of the glory of his grace, wherein he hath made us accepted in the beloved.  
+> **⁷** In whom we have redemption through his blood, the forgiveness of sins, according to the riches of his grace;  
+> **⁸** Wherein he hath abounded toward us in all wisdom and prudence;  
+> **⁹** Having made known unto us the mystery of his will, according to his good pleasure which he hath purposed in himself:  
+> **¹⁰** That in the dispensation of the fulness of times he might gather together in one all things in Christ, both which are in heaven, and which are on earth; *even* in him:  
+> **¹¹** In whom also we have obtained an inheritance, being predestinated according to the purpose of him who worketh all things after the counsel of his own will:  
+> **¹²** That we should be to the praise of his glory, who first trusted in Christ.  
+> **¹³** In whom ye also *trusted,* after that ye heard the word of truth, the gospel of your salvation: in whom also after that ye believed, ye were sealed with that holy Spirit of promise,  
+> **¹⁴** Which is the earnest of our inheritance until the redemption of the purchased possession, unto the praise of his glory.  
 
 He begins with thanksgivings and praise, and enlarges with a great deal of fluency and copiousness of affection upon the exceedingly great and precious benefits which we enjoy by Jesus Christ. For the great privileges of our religion are very aptly recounted and enlarged upon in our praises to God.
 
@@ -40,15 +40,15 @@ The apostle mentions the great end and design of God in bestowing all these spir
 
 ## The Apostle's Prayer. (a. d. 61.)
 
-> <sup>15</sup> Wherefore I also, after I heard of your faith in the Lord Jesus, and love unto all the saints,  
-> <sup>16</sup> Cease not to give thanks for you, making mention of you in my prayers;  
-> <sup>17</sup> That the God of our Lord Jesus Christ, the Father of glory, may give unto you the spirit of wisdom and revelation in the knowledge of him:  
-> <sup>18</sup> The eyes of your understanding being enlightened; that ye may know what is the hope of his calling, and what the riches of the glory of his inheritance in the saints,  
-> <sup>19</sup> And what *is* the exceeding greatness of his power to us-ward who believe, according to the working of his mighty power,  
-> <sup>20</sup> Which he wrought in Christ, when he raised him from the dead, and set *him* at his own right hand in the heavenly *places,*  
-> <sup>21</sup> Far above all principality, and power, and might, and dominion, and every name that is named, not only in this world, but also in that which is to come:  
-> <sup>22</sup> And hath put all *things* under his feet, and gave him *to be* the head over all *things* to the church,  
-> <sup>23</sup> Which is his body, the fulness of him that filleth all in all.  
+> **¹⁵** Wherefore I also, after I heard of your faith in the Lord Jesus, and love unto all the saints,  
+> **¹⁶** Cease not to give thanks for you, making mention of you in my prayers;  
+> **¹⁷** That the God of our Lord Jesus Christ, the Father of glory, may give unto you the spirit of wisdom and revelation in the knowledge of him:  
+> **¹⁸** The eyes of your understanding being enlightened; that ye may know what is the hope of his calling, and what the riches of the glory of his inheritance in the saints,  
+> **¹⁹** And what *is* the exceeding greatness of his power to us-ward who believe, according to the working of his mighty power,  
+> **²⁰** Which he wrought in Christ, when he raised him from the dead, and set *him* at his own right hand in the heavenly *places,*  
+> **²¹** Far above all principality, and power, and might, and dominion, and every name that is named, not only in this world, but also in that which is to come:  
+> **²²** And hath put all *things* under his feet, and gave him *to be* the head over all *things* to the church,  
+> **²³** Which is his body, the fulness of him that filleth all in all.  
 
 We have come to the last part of this chapter, which consists of Paul's earnest prayer to God in behalf of these Ephesians. We should pray for the persons for whom we give thanks. Our apostle blesses God for what he had done for them, and then he prays that he would do more for them. He gives thanks for spiritual blessings, and prays for further supplies of them; for God *will for this be enquired of by the house of Israel, to do it for them.* He has laid up these spiritual blessings for us in the hands of his Son, the Lord Jesus; but then he has appointed us to draw them out, and fetch them in, by prayer. We have no part nor lot in the matter, any further than we claim it by faith and prayer. One inducement to pray for them was the good account he had of them, *of their faith in the Lord Jesus and love to all the saints,* Eph 1:15. Faith in Christ, and love to the saints, will be attended with all other graces. Love to the saints, as such, and because they are such, must include love to God. Those who love saints, as such, love all saints, how weak in grace, how mean in the world, how fretful and peevish soever, some of them may be. Another inducement to pray for them was because they had received the earnest of the inheritance: this we may observe from the words being connected with the preceding ones by the particle *wherefore.* "Perhaps you will think that, having received the earnest, it should follow, therefore you are happy enough, and need take no further care: you need not pray for yourselves, nor I for you." No, quite the contrary. *Wherefore—I cease not to give thanks for you, making mention of you in my prayers,* Eph 1:16. While he blesses God for giving them the Spirit, he ceases not to pray that he would give unto them the Spirit (Eph 1:17), that he would give greater measures of the Spirit. Observe, Even the best of Christians need to be prayed for: and, while we hear well of our Christian friends, we should think ourselves obliged to intercede with God for them, that they may abound and increase yet more and more. Now what is it that Paul prays for in behalf of the Ephesians? Not that they might be freed from persecution; nor that they might possess the riches, honours, or pleasures of the world; but the great thing he prays for is the illumination of their understandings, and that their knowledge might increase and abound: he means it of a practical and experimental knowledge. The graces and comforts of the Spirit are communicated to the soul by the enlightening of the understanding. In this way he gains and keeps possession. Satan takes a contrary way: he gets possession by the senses and passions, Christ by the understanding. Observe,
 

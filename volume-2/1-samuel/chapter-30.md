@@ -8,12 +8,12 @@ When David was dismissed from the army of the Philistines he did not go over to 
 
 ## Ziklag Burnt. (b. c. 1055.)
 
-> <sup>1</sup> And it came to pass, when David and his men were come to Ziklag on the third day, that the Amalekites had invaded the south, and Ziklag, and smitten Ziklag, and burned it with fire;  
-> <sup>2</sup> And had taken the women captives, that *were* therein: they slew not any, either great or small, but carried *them* away, and went on their way.  
-> <sup>3</sup> So David and his men came to the city, and, behold, *it was* burned with fire; and their wives, and their sons, and their daughters, were taken captives.  
-> <sup>4</sup> Then David and the people that *were* with him lifted up their voice and wept, until they had no more power to weep.  
-> <sup>5</sup> And David's two wives were taken captives, Ahinoam the Jezreelitess, and Abigail the wife of Nabal the Carmelite.  
-> <sup>6</sup> And David was greatly distressed; for the people spake of stoning him, because the soul of all the people was grieved, every man for his sons and for his daughters: but David encouraged himself in the LORD his God.  
+> **¹** And it came to pass, when David and his men were come to Ziklag on the third day, that the Amalekites had invaded the south, and Ziklag, and smitten Ziklag, and burned it with fire;  
+> **²** And had taken the women captives, that *were* therein: they slew not any, either great or small, but carried *them* away, and went on their way.  
+> **³** So David and his men came to the city, and, behold, *it was* burned with fire; and their wives, and their sons, and their daughters, were taken captives.  
+> **⁴** Then David and the people that *were* with him lifted up their voice and wept, until they had no more power to weep.  
+> **⁵** And David's two wives were taken captives, Ahinoam the Jezreelitess, and Abigail the wife of Nabal the Carmelite.  
+> **⁶** And David was greatly distressed; for the people spake of stoning him, because the soul of all the people was grieved, every man for his sons and for his daughters: but David encouraged himself in the LORD his God.  
 
 Here we have, I. The descent which the Amalekites made upon Ziklag in David's absence, and the desolations they made there. They surprised the city when it was left unguarded, plundered it, burnt it, and carried all the women and children captives, 1Sa 30:1,2. They intended, by this to revenge the like havoc that David had lately made of them and their country, 1Sa 27:8. He that had made so many enemies ought not to have left his own concerns so naked and defenceless. Those that make bold with others must expect that others will make as bold with them and provide accordingly. Now observe in this, 1. The cruelty of Saul's pity (as it proved) in sparing the Amalekites; if he had utterly destroyed them, as he ought to have done, these would not have been in being to do this mischief. 2. How David was corrected for being so forward to go with the Philistines against Israel. God showed him that he had better have staid at home and looked after his own business. When we go abroad in the way of our duty we may comfortably hope that God will take care of our families in our absence, but not otherwise. 3. How wonderfully God inclined the hearts of these Amalekites to carry the women and children away captives, and not to kill them. When David invaded them he put all to the sword (1Sa 27:9), and no reason can be given why they did not retaliate upon this city, but that God restrained them; for he has all hearts in his hands, and says to the fury of the most cruel men, *Hitherto thou shalt come, and no further.* Whether they spared them to lead them in triumph, or to sell them, or to use them for slaves, God's hand must be acknowledged, who designed to make use of the Amalekites for the correction, not for the destruction, of the house of David.
 
@@ -25,20 +25,20 @@ IV\. David's pious dependence upon the divine providence and grace in this distr
 
 ## David Recovers the Spoil. (b. c. 1055.)
 
-> <sup>7</sup> And David said to Abiathar the priest, Ahimelech's son, I pray thee, bring me hither the ephod. And Abiathar brought thither the ephod to David.  
-> <sup>8</sup> And David enquired at the LORD, saying, Shall I pursue after this troop? shall I overtake them? And he answered him, Pursue: for thou shalt surely overtake *them,* and without fail recover *all.*  
-> <sup>9</sup> So David went, he and the six hundred men that *were* with him, and came to the brook Besor, where those that were left behind stayed.  
-> <sup>10</sup> But David pursued, he and four hundred men: for two hundred abode behind, which were so faint that they could not go over the brook Besor.  
-> <sup>11</sup> And they found an Egyptian in the field, and brought him to David, and gave him bread, and he did eat; and they made him drink water;  
-> <sup>12</sup> And they gave him a piece of a cake of figs, and two clusters of raisins: and when he had eaten, his spirit came again to him: for he had eaten no bread, nor drunk *any* water, three days and three nights.  
-> <sup>13</sup> And David said unto him, To whom *belongest* thou? and whence *art* thou? And he said, I *am* a young man of Egypt, servant to an Amalekite; and my master left me, because three days agone I fell sick.  
-> <sup>14</sup> We made an invasion *upon* the south of the Cherethites, and upon *the coast* which *belongeth* to Judah, and upon the south of Caleb; and we burned Ziklag with fire.  
-> <sup>15</sup> And David said to him, Canst thou bring me down to this company? And he said, Swear unto me by God, that thou wilt neither kill me, nor deliver me into the hands of my master, and I will bring thee down to this company.  
-> <sup>16</sup> And when he had brought him down, behold, *they were* spread abroad upon all the earth, eating and drinking, and dancing, because of all the great spoil that they had taken out of the land of the Philistines, and out of the land of Judah.  
-> <sup>17</sup> And David smote them from the twilight even unto the evening of the next day: and there escaped not a man of them, save four hundred young men, which rode upon camels, and fled.  
-> <sup>18</sup> And David recovered all that the Amalekites had carried away: and David rescued his two wives.  
-> <sup>19</sup> And there was nothing lacking to them, neither small nor great, neither sons nor daughters, neither spoil, nor any *thing* that they had taken to them: David recovered all.  
-> <sup>20</sup> And David took all the flocks and the herds, *which* they drave before those *other* cattle, and said, This *is* David's spoil.  
+> **⁷** And David said to Abiathar the priest, Ahimelech's son, I pray thee, bring me hither the ephod. And Abiathar brought thither the ephod to David.  
+> **⁸** And David enquired at the LORD, saying, Shall I pursue after this troop? shall I overtake them? And he answered him, Pursue: for thou shalt surely overtake *them,* and without fail recover *all.*  
+> **⁹** So David went, he and the six hundred men that *were* with him, and came to the brook Besor, where those that were left behind stayed.  
+> **¹⁰** But David pursued, he and four hundred men: for two hundred abode behind, which were so faint that they could not go over the brook Besor.  
+> **¹¹** And they found an Egyptian in the field, and brought him to David, and gave him bread, and he did eat; and they made him drink water;  
+> **¹²** And they gave him a piece of a cake of figs, and two clusters of raisins: and when he had eaten, his spirit came again to him: for he had eaten no bread, nor drunk *any* water, three days and three nights.  
+> **¹³** And David said unto him, To whom *belongest* thou? and whence *art* thou? And he said, I *am* a young man of Egypt, servant to an Amalekite; and my master left me, because three days agone I fell sick.  
+> **¹⁴** We made an invasion *upon* the south of the Cherethites, and upon *the coast* which *belongeth* to Judah, and upon the south of Caleb; and we burned Ziklag with fire.  
+> **¹⁵** And David said to him, Canst thou bring me down to this company? And he said, Swear unto me by God, that thou wilt neither kill me, nor deliver me into the hands of my master, and I will bring thee down to this company.  
+> **¹⁶** And when he had brought him down, behold, *they were* spread abroad upon all the earth, eating and drinking, and dancing, because of all the great spoil that they had taken out of the land of the Philistines, and out of the land of Judah.  
+> **¹⁷** And David smote them from the twilight even unto the evening of the next day: and there escaped not a man of them, save four hundred young men, which rode upon camels, and fled.  
+> **¹⁸** And David recovered all that the Amalekites had carried away: and David rescued his two wives.  
+> **¹⁹** And there was nothing lacking to them, neither small nor great, neither sons nor daughters, neither spoil, nor any *thing* that they had taken to them: David recovered all.  
+> **²⁰** And David took all the flocks and the herds, *which* they drave before those *other* cattle, and said, This *is* David's spoil.  
 
 Solomon observes that *the righteous is delivered out of trouble* and *the wicked cometh in his stead,* that *the just falleth seven times a-day and riseth again;* so it was with David. Many were his troubles, but *the Lord delivered him out of them all,* and particularly out of this of which we have here an account.
 
@@ -52,17 +52,17 @@ IV\. David, being directed to the place where they lay, securely celebrating the
 
 ## David's Division of the Spoil. (b. c. 1055.)
 
-> <sup>21</sup> And David came to the two hundred men, which were so faint that they could not follow David, whom they had made also to abide at the brook Besor: and they went forth to meet David, and to meet the people that *were* with him: and when David came near to the people, he saluted them.  
-> <sup>22</sup> Then answered all the wicked men and *men* of Belial, of those that went with David, and said, Because they went not with us, we will not give them *ought* of the spoil that we have recovered, save to every man his wife and his children, that they may lead *them* away, and depart.  
-> <sup>23</sup> Then said David, Ye shall not do so, my brethren, with that which the LORD hath given us, who hath preserved us, and delivered the company that came against us into our hand.  
-> <sup>24</sup> For who will hearken unto you in this matter? but as his part *is* that goeth down to the battle, so *shall* his part *be* that tarrieth by the stuff: they shall part alike.  
-> <sup>25</sup> And it was *so* from that day forward, that he made it a statute and an ordinance for Israel unto this day.  
-> <sup>26</sup> And when David came to Ziklag, he sent of the spoil unto the elders of Judah, *even* to his friends, saying, Behold a present for you of the spoil of the enemies of the LORD;  
-> <sup>27</sup> To *them* which *were* in Bethel, and to *them* which *were* in south Ramoth, and to *them* which *were* in Jattir,  
-> <sup>28</sup> And to *them* which *were* in Aroer, and to *them* which *were* in Siphmoth, and to *them* which *were* in Eshtemoa,  
-> <sup>29</sup> And to *them* which *were* in Rachal, and to *them* which *were* in the cities of the Jerahmeelites, and to *them* which *were* in the cities of the Kenites,  
-> <sup>30</sup> And to *them* which *were* in Hormah, and to *them* which *were* in Chorashan, and to *them* which *were* in Athach,  
-> <sup>31</sup> And to *them* which *were* in Hebron, and to all the places where David himself and his men were wont to haunt.  
+> **²¹** And David came to the two hundred men, which were so faint that they could not follow David, whom they had made also to abide at the brook Besor: and they went forth to meet David, and to meet the people that *were* with him: and when David came near to the people, he saluted them.  
+> **²²** Then answered all the wicked men and *men* of Belial, of those that went with David, and said, Because they went not with us, we will not give them *ought* of the spoil that we have recovered, save to every man his wife and his children, that they may lead *them* away, and depart.  
+> **²³** Then said David, Ye shall not do so, my brethren, with that which the LORD hath given us, who hath preserved us, and delivered the company that came against us into our hand.  
+> **²⁴** For who will hearken unto you in this matter? but as his part *is* that goeth down to the battle, so *shall* his part *be* that tarrieth by the stuff: they shall part alike.  
+> **²⁵** And it was *so* from that day forward, that he made it a statute and an ordinance for Israel unto this day.  
+> **²⁶** And when David came to Ziklag, he sent of the spoil unto the elders of Judah, *even* to his friends, saying, Behold a present for you of the spoil of the enemies of the LORD;  
+> **²⁷** To *them* which *were* in Bethel, and to *them* which *were* in south Ramoth, and to *them* which *were* in Jattir,  
+> **²⁸** And to *them* which *were* in Aroer, and to *them* which *were* in Siphmoth, and to *them* which *were* in Eshtemoa,  
+> **²⁹** And to *them* which *were* in Rachal, and to *them* which *were* in the cities of the Jerahmeelites, and to *them* which *were* in the cities of the Kenites,  
+> **³⁰** And to *them* which *were* in Hormah, and to *them* which *were* in Chorashan, and to *them* which *were* in Athach,  
+> **³¹** And to *them* which *were* in Hebron, and to all the places where David himself and his men were wont to haunt.  
 
 We have here an account of the distribution of the spoil which as taken from the Amalekites. When the Amalekites had carried away a rich booty from the land of Judah and the Philistines they spent it in sensuality, in eating, and drinking, and making merry with it; but David disposed of the spoil taken after another manner, as one that knew that justice and charity must govern us in the use we make of whatever we have in this world. What God gives us he designs we should do good with, not serve our lusts with. In the distribution of the spoil,
 

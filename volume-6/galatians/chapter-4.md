@@ -8,13 +8,13 @@ The apostle, in this chapter, is still carrying on the same general design as in
 
 ## The Redemption by Christ. (a. d. 56.)
 
-> <sup>1</sup> Now I say, *That* the heir, as long as he is a child, differeth nothing from a servant, though he be lord of all;  
-> <sup>2</sup> But is under tutors and governors until the time appointed of the father.  
-> <sup>3</sup> Even so we, when we were children, were in bondage under the elements of the world:  
-> <sup>4</sup> But when the fulness of the time was come, God sent forth his Son, made of a woman, made under the law,  
-> <sup>5</sup> To redeem them that were under the law, that we might receive the adoption of sons.  
-> <sup>6</sup> And because ye are sons, God hath sent forth the Spirit of his Son into your hearts, crying, Abba, Father.  
-> <sup>7</sup> Wherefore thou art no more a servant, but a son; and if a son, then a heir of God through Christ.  
+> **¹** Now I say, *That* the heir, as long as he is a child, differeth nothing from a servant, though he be lord of all;  
+> **²** But is under tutors and governors until the time appointed of the father.  
+> **³** Even so we, when we were children, were in bondage under the elements of the world:  
+> **⁴** But when the fulness of the time was come, God sent forth his Son, made of a woman, made under the law,  
+> **⁵** To redeem them that were under the law, that we might receive the adoption of sons.  
+> **⁶** And because ye are sons, God hath sent forth the Spirit of his Son into your hearts, crying, Abba, Father.  
+> **⁷** Wherefore thou art no more a servant, but a son; and if a son, then a heir of God through Christ.  
 
 In this chapter the apostle deals plainly with those who hearkened to the judaizing teachers, who cried up the law of Moses in competition with the gospel of Christ, and endeavored to bring them under the bondage of it. To convince them of their folly, and to rectify their mistake herein, in these verses he prosecutes the comparison of a child under age, which he had touched upon in the foregoing chapter, and thence shows what great advantages we have now, under the gospel, above what they had under the law. And here.
 
@@ -28,10 +28,10 @@ II\. He acquaints us with the much happier state of Christians under the gospel-
 
 ## Affectionate Remonstrance. (a. d. 56.)
 
-> <sup>8</sup> Howbeit then, when ye knew not God, ye did service unto them which by nature are no gods.  
-> <sup>9</sup> But now, after that ye have known God, or rather are known of God, how turn ye again to the weak and beggarly elements, whereunto ye desire again to be in bondage?  
-> <sup>10</sup> Ye observe days, and months, and times, and years.  
-> <sup>11</sup> I am afraid of you, lest I have bestowed upon you labour in vain.  
+> **⁸** Howbeit then, when ye knew not God, ye did service unto them which by nature are no gods.  
+> **⁹** But now, after that ye have known God, or rather are known of God, how turn ye again to the weak and beggarly elements, whereunto ye desire again to be in bondage?  
+> **¹⁰** Ye observe days, and months, and times, and years.  
+> **¹¹** I am afraid of you, lest I have bestowed upon you labour in vain.  
 
 In these verses the apostle puts them in mind of what they were before their conversion to the faith of Christ, and what a blessed change their conversion had made upon them; and thence endeavours to convince them of their great weakness in hearkening to those who would bring them under the bondage of the law of Moses.
 
@@ -45,11 +45,11 @@ IV\. Hereupon he expresses his fears concerning them, *lest he had bestowed on t
 
 ## Affectionate Remonstrance. (a. d. 56.)
 
-> <sup>12</sup> Brethren, I beseech you, be as I *am;* for I *am* as ye *are:* ye have not injured me at all.  
-> <sup>13</sup> Ye know how through infirmity of the flesh I preached the gospel unto you at the first.  
-> <sup>14</sup> And my temptation which was in my flesh ye despised not, nor rejected; but received me as an angel of God, *even* as Christ Jesus.  
-> <sup>15</sup> Where is then the blessedness ye spake of? for I bear you record, that, if *it had been* possible, ye would have plucked out your own eyes, and have given them to me.  
-> <sup>16</sup> Am I therefore become your enemy, because I tell you the truth?  
+> **¹²** Brethren, I beseech you, be as I *am;* for I *am* as ye *are:* ye have not injured me at all.  
+> **¹³** Ye know how through infirmity of the flesh I preached the gospel unto you at the first.  
+> **¹⁴** And my temptation which was in my flesh ye despised not, nor rejected; but received me as an angel of God, *even* as Christ Jesus.  
+> **¹⁵** Where is then the blessedness ye spake of? for I bear you record, that, if *it had been* possible, ye would have plucked out your own eyes, and have given them to me.  
+> **¹⁶** Am I therefore become your enemy, because I tell you the truth?  
 
 That these Christians might be the more ashamed of their defection from the truth of the gospel which Paul had preached to them, he here reminds them of the great affection they formerly had for him and his ministry, and puts them upon considering how very unsuitable their present behaviour was to what they then professed. And here we may observe,
 
@@ -61,15 +61,15 @@ III\. How earnestly he expostulates with them hereupon: *Where is then,* says he
 
 ## Affectionate Remonstrance. (a. d. 56.)
 
-> <sup>17</sup> They zealously affect you, *but* not well; yea, they would exclude you, that ye might affect them.  
-> <sup>18</sup> But *it is* good to be zealously affected always in *a* good *thing,* and not only when I am present with you.  
+> **¹⁷** They zealously affect you, *but* not well; yea, they would exclude you, that ye might affect them.  
+> **¹⁸** But *it is* good to be zealously affected always in *a* good *thing,* and not only when I am present with you.  
 
 The apostle is still carrying on the same design as in the Ga 4:12-16, which was, to convince the Galatians of their sin and folly in departing from the truth of the gospel: having just before been expostulating with them about the change of their behaviour towards him who endeavoured to establish them in it, he here gives them the character of those false teachers who made it their business to draw them away from it, which if they would attend to, they might soon see how little reason they had to hearken to them: whatever opinion they might have of them, he tells them they were designing men, who were aiming to set up themselves, and who, under their specious pretences, were more consulting their own interest than theirs: "*They zealously affect you,*" says he; "they show a mighty respect for you, and pretend a great deal of affection to you, *but not well;* they do it not with any good design, they are not sincere and upright in it, for *they would exclude you, that you might affect them.* That which they are chiefly aiming at is to engage your affections to them; and, in order to this, they are doing all they can to draw off your affections from me and from the truth, that so they may engross you to themselves." This, he assures them, was their design, and therefore they must needs be very unwise in hearkening to them. Note, 1. There may appear to be a great deal of zeal where yet there is but little truth and sincerity. 2. It is the usual way of seducers to insinuate themselves into people's affections, and by that means to draw them into their opinions. 3. Whatever pretences such may make, they have usually more regard to their own interest than that of others, and will not stick at ruining the reputation of others, if by that means they can raise their own. On this occasion the apostle gives us that excellent rule which we have, Ga 4:18, *It is good to be zealously affected always in a good thing.* What our translation renders *in a good man,* and so consider the apostle as pointing to himself; this sense, they think, is favoured both by the preceding context and also by the words immediately following, *and not only when I am present with you,* which may be as if he had said, "Time was when you were zealously affected towards me; you once took me for a good man, and have now no reason to think otherwise of me; surely then it would become you to show the same regard to me, now that I am absent from you, which you did when I was present with you." But, if we adhere to our own translation, the apostle here furnishes us with a very good rule to direct and regulate us in the exercise of our zeal: there are two things which to this purpose he more especially recommends to us:— (1.) That it be exercised only upon that which is good; for zeal is then only good when it is in a good thing: those who are zealously affected to that which is evil will thereby only to do so much the more hurt. And, (2.) That herein it be constant and steady: it is good to be zealous always in a good thing; not for a time only, or now and then, like the heat of an ague-fit, but, like the natural heat of the body, constant. Happy would it be for the church of Christ if this rule were better observed among Christians!
 
 ## Affectionate Remonstrance. (a. d. 56.)
 
-> <sup>19</sup> My little children, of whom I travail in birth again until Christ be formed in you,  
-> <sup>20</sup> I desire to be present with you now, and to change my voice; for I stand in doubt of you.  
+> **¹⁹** My little children, of whom I travail in birth again until Christ be formed in you,  
+> **²⁰** I desire to be present with you now, and to change my voice; for I stand in doubt of you.  
 
 That the apostle might the better dispose these Christians to bear with him in the reproofs which he was obliged to give them, he here expresses his great affection to them, and the very tender concern he had for their welfare: he was not like them—one thing when among them and another when absent from them. Their disaffection to him had not removed his affection from them; but he still bore the same respect to them which he had formerly done, nor was he like their false teachers, who pretended a great deal of affection to them, when at the same time they were only consulting their own interest; but he had a sincere concern for their truest advantage; he sought not theirs, but them. They were too ready to account him their enemy, but he assures them that he was their friend; nay, not only so, but that he had the bowels of a parent towards them. He calls them *his children,* as he justly might, since he had been the instrument of their conversion to the Christian faith; yea, he styles them his *little children,* which, as it denotes a greater degree of tenderness and affection to them, so it may possibly have a respect to their present behaviour, whereby they showed themselves too much like little children, who are easily wrought upon by the arts and insinuations of others. He expresses his concern for them, and earnest desire of their welfare and soul-prosperity, by the pangs of a travailing woman: *He travailed in birth for them:* and the great thing which he was in so much pain about, and which he was so earnestly desirous of, was not so much that they might affect him as *that Christ might be formed in them,* that they might become Christians indeed, and be more confirmed and established in the faith of the gospel. From this we may note, 1. The very tender affection which faithful ministers bear towards those among whom they are employed; it is like that of the most affectionate parents to their little children. 2. That the chief thing they are longing and even travailing in birth for, on their account, is that Christ may be formed in them; not so much that they may gain their affections, much less that they may make a prey of them, but that they may be renewed in the spirit of their minds, wrought into the image of Christ, and more fully settled and confirmed in the Christian faith and life: and how unreasonably must those people act who suffer themselves to be prevailed upon to desert or dislike such ministers! 3. That Christ is not fully formed in men till they are brought off from trusting in their own righteousness, and made to rely only upon him and his righteousness.
 
@@ -77,17 +77,17 @@ As further evidence of the affection and concern which the apostle had for these
 
 ## Affectionate Remonstrance. (a. d. 56.)
 
-> <sup>21</sup> Tell me, ye that desire to be under the law, do ye not hear the law?  
-> <sup>22</sup> For it is written, that Abraham had two sons, the one by a bondmaid, the other by a freewoman.  
-> <sup>23</sup> But he *who was* of the bondwoman was born after the flesh; but he of the freewoman *was* by promise.  
-> <sup>24</sup> Which things are an allegory: for these are the two covenants; the one from the mount Sinai, which gendereth to bondage, which is Agar.  
-> <sup>25</sup> For this Agar is mount Sinai in Arabia, and answereth to Jerusalem which now is, and is in bondage with her children.  
-> <sup>26</sup> But Jerusalem which is above is free, which is the mother of us all.  
-> <sup>27</sup> For it is written, Rejoice, *thou* barren that bearest not; break forth and cry, thou that travailest not: for the desolate hath many more children than she which hath a husband.  
-> <sup>28</sup> Now we, brethren, as Isaac was, are the children of promise.  
-> <sup>29</sup> But as then he that was born after the flesh persecuted him *that was born* after the Spirit, even so *it is* now.  
-> <sup>30</sup> Nevertheless what saith the scripture? Cast out the bondwoman and her son: for the son of the bondwoman shall not be heir with the son of the freewoman.  
-> <sup>31</sup> So then, brethren, we are not children of the bondwoman, but of the free.  
+> **²¹** Tell me, ye that desire to be under the law, do ye not hear the law?  
+> **²²** For it is written, that Abraham had two sons, the one by a bondmaid, the other by a freewoman.  
+> **²³** But he *who was* of the bondwoman was born after the flesh; but he of the freewoman *was* by promise.  
+> **²⁴** Which things are an allegory: for these are the two covenants; the one from the mount Sinai, which gendereth to bondage, which is Agar.  
+> **²⁵** For this Agar is mount Sinai in Arabia, and answereth to Jerusalem which now is, and is in bondage with her children.  
+> **²⁶** But Jerusalem which is above is free, which is the mother of us all.  
+> **²⁷** For it is written, Rejoice, *thou* barren that bearest not; break forth and cry, thou that travailest not: for the desolate hath many more children than she which hath a husband.  
+> **²⁸** Now we, brethren, as Isaac was, are the children of promise.  
+> **²⁹** But as then he that was born after the flesh persecuted him *that was born* after the Spirit, even so *it is* now.  
+> **³⁰** Nevertheless what saith the scripture? Cast out the bondwoman and her son: for the son of the bondwoman shall not be heir with the son of the freewoman.  
+> **³¹** So then, brethren, we are not children of the bondwoman, but of the free.  
 
 In these verses the apostle illustrates the difference between believers who rested in Christ only and those judaizers who trusted in the law, by a comparison taken from the story of Isaac and Ishmael. This he introduces in such a manner as was proper to strike and impress their minds, and to convince them of their great weakness in departing from the truth, and suffering themselves to be deprived of the liberty of the gospel: *Tell me,* says he, *you that desire to be under the law, do you not hear the law?* He takes it for granted that they did hear the law, for among the Jews it was wont to be read in their public assemblies every sabbath day; and, since they were so very fond of being under it, he would have them duly to consider what is written therein (referring to what is recorded Ge 16:1-16,21:1-34), for, if they would do this, they might soon see how little reason they had to trust in it. And here, 1. He sets before them the history itself (Ga 4:22,23): *For it is written, Abraham had two sons,* etc. Here he represents the different state and condition of these two sons of Abraham—that the one, Ishmael, *was by a bond-maid,* and the other, Isaac, *by a free-woman;* and that whereas the former *was born after the flesh,* or by the ordinary course of nature, the other *was by promise,* when in the course of nature there was no reason to expect that Sarah should have a son. 2. He acquaints them with the meaning and design of this history, or the use which he intended to make of it (Ga 4:24-27): *These things,* says he, *are an allegory,* wherein, besides the literal and historical sense of the words, the Spirit of God might design to signify something further to us, and that was, That these two, Agar and Sarah, *are the two covenants,* or were intended to typify and prefigure the two different dispensations of the covenant. The former, Agar, represented that which was given from mount Sinai, and *which gendereth to bondage,* which, though it was a dispensation of grace, yet, in comparison of the gospel state, was a dispensation of bondage, and became more so to the Jews, through their mistake of the design of it, and expecting to be justified by the works of it. *For this Agar is mount Sinai in Arabia* (mount Sinai was then called Agar by the Arabians), *and it answereth to Jerusalem which now is, and is in bondage with her children;* that is, it justly represents the present state of the Jews, who, continuing in their infidelity and adhering to that covenant, are still in bondage with their children. But the other, Sarah, was intended to prefigure Jerusalem which is above, or the state of Christians under the new and better dispensation of the covenant, which is free both from the curse of the moral and the bondage of the ceremonial law, and *is the mother of us all*—a state into which all, both Jews and Gentiles, are admitted, upon their believing in Christ. And to this greater freedom and enlargement of the church under the gospel dispensation, which was typified by Sarah the mother of the promised seed, the apostle refers that of the prophet, Isa 54:1, where it is written, *Rejoice, thou barren that bearest not; break forth and cry, thou that travailest not; for the desolate hath many more children than she who hath a husband.* 3. He applies the history thus explained to the present case (Ga 4:28); *Now we, brethren,* says he, *as Isaac was, are the children of the promise.* We Christians, who have accepted Christ, and rely upon him, and look for justification and salvation by him alone, as hereby we become the spiritual, though we are not the natural, seed of Abraham, so we are entitled to the promised inheritance and interested in the blessings of it. But lest these Christians should be stumbled at the opposition they might meet with from the Jews, who were so tenacious of their law as to be ready to persecute those who would not submit to it, he tells them that this was no more than what was pointed to in the type; for *as then he that was born after the flesh persecuted him that was born after the Spirit,* they must expect it would be *so now.* But, for their comfort in this case, he desires them to consider what the scripture saith (Ge 21:10), *Cast out the bond-woman and her son, for the son of the bond-woman shall not be heir with the son of the free-woman.* Though the judaizers should persecute and hate them, yet the issue would be that Judaism would sink, and wither, and perish; but true Christianity should flourish and last for ever. And then, as a general inference from the whole of the sum of what he had said, he concludes (Ga 4:31), *So then, brethren, we are not children of the bond-woman, but of the free.*
 

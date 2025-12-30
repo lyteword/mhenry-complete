@@ -8,22 +8,22 @@ We left the prophet Elijah wrapt up in obscurity. It does not appear that either
 
 ## The Character of Obadiah; Elijah's Interview with Obadiah. (b. c. 906.)
 
-> <sup>1</sup> And it came to pass *after* many days, that the word of the LORD came to Elijah in the third year, saying, Go, show thyself unto Ahab; and I will send rain upon the earth.  
-> <sup>2</sup> And Elijah went to show himself unto Ahab. And *there was* a sore famine in Samaria.  
-> <sup>3</sup> And Ahab called Obadiah, which *was* the governor of *his* house. (Now Obadiah feared the LORD greatly:  
-> <sup>4</sup> For it was *so,* when Jezebel cut off the prophets of the LORD, that Obadiah took a hundred prophets, and hid them by fifty in a cave, and fed them with bread and water.)  
-> <sup>5</sup> And Ahab said unto Obadiah, Go into the land, unto all fountains of water, and unto all brooks: peradventure we may find grass to save the horses and mules alive, that we lose not all the beasts.  
-> <sup>6</sup> So they divided the land between them to pass throughout it: Ahab went one way by himself, and Obadiah went another way by himself.  
-> <sup>7</sup> And as Obadiah was in the way, behold, Elijah met him: and he knew him, and fell on his face, and said, *Art* thou that my lord Elijah?  
-> <sup>8</sup> And he answered him, I *am:* go, tell thy lord, Behold, Elijah *is here.*  
-> <sup>9</sup> And he said, What have I sinned, that thou wouldest deliver thy servant into the hand of Ahab, to slay me?  
-> <sup>10</sup> *As* the LORD thy God liveth, there is no nation or kingdom, whither my lord hath not sent to seek thee: and when they said, *He is* not *there;* he took an oath of the kingdom and nation, that they found thee not.  
-> <sup>11</sup> And now thou sayest, Go, tell thy lord, Behold, Elijah *is here.*  
-> <sup>12</sup> And it shall come to pass, *as soon as* I am gone from thee, that the Spirit of the LORD shall carry thee whither I know not; and *so* when I come and tell Ahab, and he cannot find thee, he shall slay me: but I thy servant fear the LORD from my youth.  
-> <sup>13</sup> Was it not told my lord what I did when Jezebel slew the prophets of the LORD, how I hid a hundred men of the LORD's prophets by fifty in a cave, and fed them with bread and water?  
-> <sup>14</sup> And now thou sayest, Go, tell thy lord, Behold, Elijah *is here:* and he shall slay me.  
-> <sup>15</sup> And Elijah said, *As* the LORD of hosts liveth, before whom I stand, I will surely show myself unto him to day.  
-> <sup>16</sup> So Obadiah went to meet Ahab, and told him: and Ahab went to meet Elijah.  
+> **¹** And it came to pass *after* many days, that the word of the LORD came to Elijah in the third year, saying, Go, show thyself unto Ahab; and I will send rain upon the earth.  
+> **²** And Elijah went to show himself unto Ahab. And *there was* a sore famine in Samaria.  
+> **³** And Ahab called Obadiah, which *was* the governor of *his* house. (Now Obadiah feared the LORD greatly:  
+> **⁴** For it was *so,* when Jezebel cut off the prophets of the LORD, that Obadiah took a hundred prophets, and hid them by fifty in a cave, and fed them with bread and water.)  
+> **⁵** And Ahab said unto Obadiah, Go into the land, unto all fountains of water, and unto all brooks: peradventure we may find grass to save the horses and mules alive, that we lose not all the beasts.  
+> **⁶** So they divided the land between them to pass throughout it: Ahab went one way by himself, and Obadiah went another way by himself.  
+> **⁷** And as Obadiah was in the way, behold, Elijah met him: and he knew him, and fell on his face, and said, *Art* thou that my lord Elijah?  
+> **⁸** And he answered him, I *am:* go, tell thy lord, Behold, Elijah *is here.*  
+> **⁹** And he said, What have I sinned, that thou wouldest deliver thy servant into the hand of Ahab, to slay me?  
+> **¹⁰** *As* the LORD thy God liveth, there is no nation or kingdom, whither my lord hath not sent to seek thee: and when they said, *He is* not *there;* he took an oath of the kingdom and nation, that they found thee not.  
+> **¹¹** And now thou sayest, Go, tell thy lord, Behold, Elijah *is here.*  
+> **¹²** And it shall come to pass, *as soon as* I am gone from thee, that the Spirit of the LORD shall carry thee whither I know not; and *so* when I come and tell Ahab, and he cannot find thee, he shall slay me: but I thy servant fear the LORD from my youth.  
+> **¹³** Was it not told my lord what I did when Jezebel slew the prophets of the LORD, how I hid a hundred men of the LORD's prophets by fifty in a cave, and fed them with bread and water?  
+> **¹⁴** And now thou sayest, Go, tell thy lord, Behold, Elijah *is here:* and he shall slay me.  
+> **¹⁵** And Elijah said, *As* the LORD of hosts liveth, before whom I stand, I will surely show myself unto him to day.  
+> **¹⁶** So Obadiah went to meet Ahab, and told him: and Ahab went to meet Elijah.  
 
 In these verses we find,
 
@@ -57,35 +57,35 @@ II\. The steps taken towards redressing the grievance, by Elijah's appearing aga
 
 ## Elijah's Interview with Ahab. (b. c. 906.)
 
-> <sup>17</sup> And it came to pass, when Ahab saw Elijah, that Ahab said unto him, *Art* thou he that troubleth Israel?  
-> <sup>18</sup> And he answered, I have not troubled Israel; but thou, and thy father's house, in that ye have forsaken the commandments of the LORD, and thou hast followed Baalim.  
-> <sup>19</sup> Now therefore send, *and* gather to me all Israel unto mount Carmel, and the prophets of Baal four hundred and fifty, and the prophets of the groves four hundred, which eat at Jezebel's table.  
-> <sup>20</sup> So Ahab sent unto all the children of Israel, and gathered the prophets together unto mount Carmel.  
+> **¹⁷** And it came to pass, when Ahab saw Elijah, that Ahab said unto him, *Art* thou he that troubleth Israel?  
+> **¹⁸** And he answered, I have not troubled Israel; but thou, and thy father's house, in that ye have forsaken the commandments of the LORD, and thou hast followed Baalim.  
+> **¹⁹** Now therefore send, *and* gather to me all Israel unto mount Carmel, and the prophets of Baal four hundred and fifty, and the prophets of the groves four hundred, which eat at Jezebel's table.  
+> **²⁰** So Ahab sent unto all the children of Israel, and gathered the prophets together unto mount Carmel.  
 
 We have here the meeting between Ahab and Elijah, as bad a king as ever the world was plagued with and as good a prophet as ever the church was blessed with. 1. Ahab, like himself, basely accused Elijah. He durst not strike him, remembering that Jeroboam's hand withered when it was stretched out against a prophet, but gave him bad language, which was no less an affront to him that sent him. It was a very coarse compliment with which he accosted him at the first word: *Art thou he that troubleth Israel?* 1Ki 18:17. How unlike was this to that with which his servant Obadiah saluted him (1Ki 18:7): *Art thou that my lord Elijah?* Obadiah feared God greatly; Ahab had sold himself to work wickedness; and both discovered their character by the manner of their address to the prophet. One may guess how people stand affected to God by observing how they stand affected to his people and ministers. Elijah now came to bring blessings to Israel, tidings of the return of the rain; yet he was thus affronted. Had it been true that he was the *troubler of Israel,* Ahab, as king, would have been bound to animadvert upon him. There are those who trouble Israel by their wickedness, whom the conservators of the public peace are concerned to enquire after. But it was utterly false concerning Elijah; so far was he from being an enemy to Israel's welfare that he as the stay of it, *the chariots and horsemen of Israel.* Note, It has been the lot of the best and most useful men to be called and counted *the troublers of the land,* and to be run down as public grievances. Even Christ and his apostles were thus misrepresented, Ac 17:6. 2. Elijah, like himself, boldly returned the charge upon the king, and proved it upon him, that he was *the troubler of Israel,* 1Ki 18:18. Elijah is not the Achan: "*I have not troubled Israel,* have neither done them any wrong nor designed them any hurt." Those that procure God's judgments do the mischief, not he that merely foretels them and gives warning of them, that the nation may repent and prevent them. *I would have healed Israel, but they would not be healed.* Ahab is the Achan, the troubler, who follows Baalim, those accursed things. Nothing creates more trouble to a land than the impiety and profaneness of princes and their families. 3. As one having authority immediately from the King of kings, he ordered a convention of the states to be forthwith summoned to meet at Mount Carmel, where there had been an altar built to God, 1Ki 18:30. Probably on that mountain they had an eminent high place, where formerly the pure worship of God had been kept up as well as it could be any where but at Jerusalem. Thither all Israel must come, to give Elijah the meeting; and the prophets of Baal who were dispersed all the country over, with those of the groves who were Jezebel's domestic chaplains, must there make their personal appearance. 4. Ahab issued out writs accordingly, for the convening of this great assembly (1Ki 18:20), either because he feared Elijah and durst not oppose him (Saul stood in awe of Samuel more than of God), or because he hoped Elijah would bless the land, and speak the word that they might have rain, and upon those terms they would be all at his beck. Those that slighted and hated his counsels would gladly be beholden to him for his prayers. Now God *made those who said they were Jews and were not, but were of the synagogue of Satan, to come, and, in effect, to worship at his feet, and to know that God had loved him,* Re 3:9.
 
 ## Elijah's Trial of the False Prophets; the Destruction of Baal's Prophets. (b. c. 906.)
 
-> <sup>21</sup> And Elijah came unto all the people, and said, How long halt ye between two opinions? if the LORD *be* God, follow him: but if Baal, *then* follow him. And the people answered him not a word.  
-> <sup>22</sup> Then said Elijah unto the people, I, *even* I only, remain a prophet of the LORD; but Baal's prophets *are* four hundred and fifty men.  
-> <sup>23</sup> Let them therefore give us two bullocks; and let them choose one bullock for themselves, and cut it in pieces, and lay *it* on wood, and put no fire *under:* and I will dress the other bullock, and lay *it* on wood, and put no fire *under:*  
-> <sup>24</sup> And call ye on the name of your gods, and I will call on the name of the LORD: and the God that answereth by fire, let him be God. And all the people answered and said, It is well spoken.  
-> <sup>25</sup> And Elijah said unto the prophets of Baal, Choose you one bullock for yourselves, and dress *it* first; for ye *are* many; and call on the name of your gods, but put no fire *under.*  
-> <sup>26</sup> And they took the bullock which was given them, and they dressed *it,* and called on the name of Baal from morning even until noon, saying, O Baal, hear us. But *there was* no voice, nor any that answered. And they leaped upon the altar which was made.  
-> <sup>27</sup> And it came to pass at noon, that Elijah mocked them, and said, Cry aloud: for he *is* a god; either he is talking, or he is pursuing, or he is in a journey, *or* peradventure he sleepeth, and must be awaked.  
-> <sup>28</sup> And they cried aloud, and cut themselves after their manner with knives and lancets, till the blood gushed out upon them.  
-> <sup>29</sup> And it came to pass, when midday was past, and they prophesied until the *time* of the offering of the *evening* sacrifice, that *there was* neither voice, nor any to answer, nor any that regarded.  
-> <sup>30</sup> And Elijah said unto all the people, Come near unto me. And all the people came near unto him. And he repaired the altar of the LORD *that was* broken down.  
-> <sup>31</sup> And Elijah took twelve stones, according to the number of the tribes of the sons of Jacob, unto whom the word of the LORD came, saying, Israel shall be thy name:  
-> <sup>32</sup> And with the stones he built an altar in the name of the LORD: and he made a trench about the altar, as great as would contain two measures of seed.  
-> <sup>33</sup> And he put the wood in order, and cut the bullock in pieces, and laid *him* on the wood, and said, Fill four barrels with water, and pour *it* on the burnt sacrifice, and on the wood.  
-> <sup>34</sup> And he said, Do *it* the second time. And they did *it* the second time. And he said, Do *it* the third time. And they did *it* the third time.  
-> <sup>35</sup> And the water ran round about the altar; and he filled the trench also with water.  
-> <sup>36</sup> And it came to pass at *the time of* the offering of the *evening* sacrifice, that Elijah the prophet came near, and said, LORD God of Abraham, Isaac, and of Israel, let it be known this day that thou *art* God in Israel, and *that* I *am* thy servant, and *that* I have done all these things at thy word.  
-> <sup>37</sup> Hear me, O LORD, hear me, that this people may know that thou *art* the LORD God, and *that* thou hast turned their heart back again.  
-> <sup>38</sup> Then the fire of the LORD fell, and consumed the burnt sacrifice, and the wood, and the stones, and the dust, and licked up the water that *was* in the trench.  
-> <sup>39</sup> And when all the people saw *it,* they fell on their faces: and they said, The LORD, he *is* the God; the LORD, he *is* the God.  
-> <sup>40</sup> And Elijah said unto them, Take the prophets of Baal; let not one of them escape. And they took them: and Elijah brought them down to the brook Kishon, and slew them there.  
+> **²¹** And Elijah came unto all the people, and said, How long halt ye between two opinions? if the LORD *be* God, follow him: but if Baal, *then* follow him. And the people answered him not a word.  
+> **²²** Then said Elijah unto the people, I, *even* I only, remain a prophet of the LORD; but Baal's prophets *are* four hundred and fifty men.  
+> **²³** Let them therefore give us two bullocks; and let them choose one bullock for themselves, and cut it in pieces, and lay *it* on wood, and put no fire *under:* and I will dress the other bullock, and lay *it* on wood, and put no fire *under:*  
+> **²⁴** And call ye on the name of your gods, and I will call on the name of the LORD: and the God that answereth by fire, let him be God. And all the people answered and said, It is well spoken.  
+> **²⁵** And Elijah said unto the prophets of Baal, Choose you one bullock for yourselves, and dress *it* first; for ye *are* many; and call on the name of your gods, but put no fire *under.*  
+> **²⁶** And they took the bullock which was given them, and they dressed *it,* and called on the name of Baal from morning even until noon, saying, O Baal, hear us. But *there was* no voice, nor any that answered. And they leaped upon the altar which was made.  
+> **²⁷** And it came to pass at noon, that Elijah mocked them, and said, Cry aloud: for he *is* a god; either he is talking, or he is pursuing, or he is in a journey, *or* peradventure he sleepeth, and must be awaked.  
+> **²⁸** And they cried aloud, and cut themselves after their manner with knives and lancets, till the blood gushed out upon them.  
+> **²⁹** And it came to pass, when midday was past, and they prophesied until the *time* of the offering of the *evening* sacrifice, that *there was* neither voice, nor any to answer, nor any that regarded.  
+> **³⁰** And Elijah said unto all the people, Come near unto me. And all the people came near unto him. And he repaired the altar of the LORD *that was* broken down.  
+> **³¹** And Elijah took twelve stones, according to the number of the tribes of the sons of Jacob, unto whom the word of the LORD came, saying, Israel shall be thy name:  
+> **³²** And with the stones he built an altar in the name of the LORD: and he made a trench about the altar, as great as would contain two measures of seed.  
+> **³³** And he put the wood in order, and cut the bullock in pieces, and laid *him* on the wood, and said, Fill four barrels with water, and pour *it* on the burnt sacrifice, and on the wood.  
+> **³⁴** And he said, Do *it* the second time. And they did *it* the second time. And he said, Do *it* the third time. And they did *it* the third time.  
+> **³⁵** And the water ran round about the altar; and he filled the trench also with water.  
+> **³⁶** And it came to pass at *the time of* the offering of the *evening* sacrifice, that Elijah the prophet came near, and said, LORD God of Abraham, Isaac, and of Israel, let it be known this day that thou *art* God in Israel, and *that* I *am* thy servant, and *that* I have done all these things at thy word.  
+> **³⁷** Hear me, O LORD, hear me, that this people may know that thou *art* the LORD God, and *that* thou hast turned their heart back again.  
+> **³⁸** Then the fire of the LORD fell, and consumed the burnt sacrifice, and the wood, and the stones, and the dust, and licked up the water that *was* in the trench.  
+> **³⁹** And when all the people saw *it,* they fell on their faces: and they said, The LORD, he *is* the God; the LORD, he *is* the God.  
+> **⁴⁰** And Elijah said unto them, Take the prophets of Baal; let not one of them escape. And they took them: and Elijah brought them down to the brook Kishon, and slew them there.  
 
 Ahab and the people expected that Elijah would, in this solemn assembly, *bless the land,* and pray for rain; but he had other work to do first. The people must be brought to repent and reform, and then they may look for the removal of the judgment, but not till then. This is the right method. God will first *prepare our heart,* and then *cause his ear to hear,* will first *turn us to him,* and then *turn to us,* Ps 10:17,80:3. Deserters must not look for God's favour till they return to their allegiance. Elijah might have looked for rain seventy times seven times, and not have seen it, if he had not thus begun his work at the right end. Three years and a half's famine would not bring them back to God. Elijah would endeavour to convince their judgments, and no doubt it was by special warrant and direction from heaven that he put the controversy between God and Baal upon a public trial. It was great condescension in God that he would suffer so plain a case to be disputed, and would permit Baal to be a competitor with him; but thus God would have every mouth to be stopped and all flesh to become silent before him. God's cause is so incontestably just that it needs not fear to have the evidences of its equity searched into and weighed.
 
@@ -119,12 +119,12 @@ VI\. What was the result of this fair trial. The prophets of Baal had failed in 
 
 ## Rain Sent on the Land. (b. c. 906.)
 
-> <sup>41</sup> And Elijah said unto Ahab, Get thee up, eat and drink; for *there is* a sound of abundance of rain.  
-> <sup>42</sup> So Ahab went up to eat and to drink. And Elijah went up to the top of Carmel; and he cast himself down upon the earth, and put his face between his knees,  
-> <sup>43</sup> And said to his servant, Go up now, look toward the sea. And he went up, and looked, and said, *There is* nothing. And he said, Go again seven times.  
-> <sup>44</sup> And it came to pass at the seventh time, that he said, Behold, there ariseth a little cloud out of the sea, like a man's hand. And he said, Go up, say unto Ahab, Prepare *thy chariot,* and get thee down, that the rain stop thee not.  
-> <sup>45</sup> And it came to pass in the mean while, that the heaven was black with clouds and wind, and there was a great rain. And Ahab rode, and went to Jezreel.  
-> <sup>46</sup> And the hand of the LORD was on Elijah; and he girded up his loins, and ran before Ahab to the entrance of Jezreel.  
+> **⁴¹** And Elijah said unto Ahab, Get thee up, eat and drink; for *there is* a sound of abundance of rain.  
+> **⁴²** So Ahab went up to eat and to drink. And Elijah went up to the top of Carmel; and he cast himself down upon the earth, and put his face between his knees,  
+> **⁴³** And said to his servant, Go up now, look toward the sea. And he went up, and looked, and said, *There is* nothing. And he said, Go again seven times.  
+> **⁴⁴** And it came to pass at the seventh time, that he said, Behold, there ariseth a little cloud out of the sea, like a man's hand. And he said, Go up, say unto Ahab, Prepare *thy chariot,* and get thee down, that the rain stop thee not.  
+> **⁴⁵** And it came to pass in the mean while, that the heaven was black with clouds and wind, and there was a great rain. And Ahab rode, and went to Jezreel.  
+> **⁴⁶** And the hand of the LORD was on Elijah; and he girded up his loins, and ran before Ahab to the entrance of Jezreel.  
 
 Israel being thus far reformed that they had acknowledged the Lord to be God, and had consented to the execution of Baal's prophets, that they might not seduce them any more, though this was far short of a thorough reformation, yet it was so far accepted that God thereupon opened the bottles of heaven, and poured out blessings upon his land, that very evening (as it should seem) on which they did this good work, which should have confirmed them in their reformation; see Hag 2:18,19.
 

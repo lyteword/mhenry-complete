@@ -8,26 +8,26 @@ In this chapter the apostle goes on with his discourse, in opposition to the fal
 
 ## The Apostle Asserts His Claims. (a. d. 57.)
 
-> <sup>1</sup> Would to God ye could bear with me a little in *my* folly: and indeed bear with me.  
-> <sup>2</sup> For I am jealous over you with godly jealousy: for I have espoused you to one husband, that I may present *you as* a chaste virgin to Christ.  
-> <sup>3</sup> But I fear, lest by any means, as the serpent beguiled Eve through his subtilty, so your minds should be corrupted from the simplicity that is in Christ.  
-> <sup>4</sup> For if he that cometh preacheth another Jesus, whom we have not preached, or *if* ye receive another spirit, which ye have not received, or another gospel, which ye have not accepted, ye might well bear with *him.*  
+> **¹** Would to God ye could bear with me a little in *my* folly: and indeed bear with me.  
+> **²** For I am jealous over you with godly jealousy: for I have espoused you to one husband, that I may present *you as* a chaste virgin to Christ.  
+> **³** But I fear, lest by any means, as the serpent beguiled Eve through his subtilty, so your minds should be corrupted from the simplicity that is in Christ.  
+> **⁴** For if he that cometh preacheth another Jesus, whom we have not preached, or *if* ye receive another spirit, which ye have not received, or another gospel, which ye have not accepted, ye might well bear with *him.*  
 
 Here we may observe, 1. The apology the apostle makes for going about to commend himself. He is loth to enter upon this subject of self-commendation: *Would to God you could bear with me a little in my folly,* 2Co 11:1. He calls this folly, because too often it is really no better. In his case it was necessary; yet, seeing others might apprehend it to be folly in him, he desires them to bear with it. Note, As much against the grain as it is with a proud man to acknowledge his infirmities, so much is it against the grain with a humble man to speak in his own praise. It is no pleasure to a good man to speak well of himself, yet in some cases it is lawful, namely, when it is for the advantage of others, or for our own necessary vindication; as thus it was here. For, 2. We have the reasons for what the apostle did. (1.) To preserve the Corinthians from being corrupted by the insinuations of the false apostles, 2Co 11:2,3. He tells them *he was jealous over them with godly jealousy;* he was afraid lest their faith should be weakened by hearkening to such suggestions as tended to lessen their regard to his ministry, by which they were brought to the Christian faith. He had *espoused them to one husband,* that is, converted them to Christianity (and the conversion of a soul is its marriage to the Lord Jesus); and he was desirous to *present them as a chaste virgin*—pure, and spotless, and faithful, not having *their minds corrupted* with false doctrines by false teachers, as *Eve was beguiled by the subtlety of the serpent.* This godly jealousy in the apostle was a mixture of love and fear; and faithful ministers cannot but be afraid and concerned for their people, lest they should lose that which they have received, and turn from what they have embraced, especially when *deceivers have gone abroad,* or have *crept in among them.* (2.) To vindicate himself against the false apostles, forasmuch as they could not pretend they had another Jesus, or another Spirit, or another gospel, to preach to them, 2Co 11:4. If this had been the case, there would have been some colour of reason to bear with them, or to hearken to them. But seeing there is but one Jesus, one Spirit, and one gospel, that is, or at least that ought to be, preached to them and received by them, what reason could there be why the Corinthians should be prejudiced against him, who first converted them to the faith, by the artifices of any adversary? It was a just occasion of jealousy that such persons designed to preach another Jesus, another Spirit, and another gospel.
 
 ## The Apostle Asserts His Claims. (a. d. 57.)
 
-> <sup>5</sup> For I suppose I was not a whit behind the very chiefest apostles.  
-> <sup>6</sup> But though *I be* rude in speech, yet not in knowledge; but we have been thoroughly made manifest among you in all things.  
-> <sup>7</sup> Have I committed an offence in abasing myself that ye might be exalted, because I have preached to you the gospel of God freely?  
-> <sup>8</sup> I robbed other churches, taking wages *of them,* to do you service.  
-> <sup>9</sup> And when I was present with you, and wanted, I was chargeable to no man: for that which was lacking to me the brethren which came from Macedonia supplied: and in all *things* I have kept myself from being burdensome unto you, and *so* will I keep *myself.*  
-> <sup>10</sup> As the truth of Christ is in me, no man shall stop me of this boasting in the regions of Achaia.  
-> <sup>11</sup> Wherefore? because I love you not? God knoweth.  
-> <sup>12</sup> But what I do, that I will do, that I may cut off occasion from them which desire occasion; that wherein they glory, they may be found even as we.  
-> <sup>13</sup> For such *are* false apostles, deceitful workers, transforming themselves into the apostles of Christ.  
-> <sup>14</sup> And no marvel; for Satan himself is transformed into an angel of light.  
-> <sup>15</sup> Therefore *it is* no great thing if his ministers also be transformed as the ministers of righteousness; whose end shall be according to their works.  
+> **⁵** For I suppose I was not a whit behind the very chiefest apostles.  
+> **⁶** But though *I be* rude in speech, yet not in knowledge; but we have been thoroughly made manifest among you in all things.  
+> **⁷** Have I committed an offence in abasing myself that ye might be exalted, because I have preached to you the gospel of God freely?  
+> **⁸** I robbed other churches, taking wages *of them,* to do you service.  
+> **⁹** And when I was present with you, and wanted, I was chargeable to no man: for that which was lacking to me the brethren which came from Macedonia supplied: and in all *things* I have kept myself from being burdensome unto you, and *so* will I keep *myself.*  
+> **¹⁰** As the truth of Christ is in me, no man shall stop me of this boasting in the regions of Achaia.  
+> **¹¹** Wherefore? because I love you not? God knoweth.  
+> **¹²** But what I do, that I will do, that I may cut off occasion from them which desire occasion; that wherein they glory, they may be found even as we.  
+> **¹³** For such *are* false apostles, deceitful workers, transforming themselves into the apostles of Christ.  
+> **¹⁴** And no marvel; for Satan himself is transformed into an angel of light.  
+> **¹⁵** Therefore *it is* no great thing if his ministers also be transformed as the ministers of righteousness; whose end shall be according to their works.  
 
 After the foregoing preface to what he was about to say, the apostle in these verses mentions,
 
@@ -39,29 +39,29 @@ III\. The false apostles are charged *as deceitful workers* (2Co 11:13), and tha
 
 ## The Apostle Asserts His Claims. (a. d. 57.)
 
-> <sup>16</sup> I say again, Let no man think me a fool; if otherwise, yet as a fool receive me, that I may boast myself a little.  
-> <sup>17</sup> That which I speak, I speak *it* not after the Lord, but as it were foolishly, in this confidence of boasting.  
-> <sup>18</sup> Seeing that many glory after the flesh, I will glory also.  
-> <sup>19</sup> For ye suffer fools gladly, seeing ye *yourselves* are wise.  
-> <sup>20</sup> For ye suffer, if a man bring you into bondage, if a man devour *you,* if a man take *of you,* if a man exalt himself, if a man smite you on the face.  
-> <sup>21</sup> I speak as concerning reproach, as though we had been weak. Howbeit whereinsoever any is bold, (I speak foolishly,) I am bold also.  
+> **¹⁶** I say again, Let no man think me a fool; if otherwise, yet as a fool receive me, that I may boast myself a little.  
+> **¹⁷** That which I speak, I speak *it* not after the Lord, but as it were foolishly, in this confidence of boasting.  
+> **¹⁸** Seeing that many glory after the flesh, I will glory also.  
+> **¹⁹** For ye suffer fools gladly, seeing ye *yourselves* are wise.  
+> **²⁰** For ye suffer, if a man bring you into bondage, if a man devour *you,* if a man take *of you,* if a man exalt himself, if a man smite you on the face.  
+> **²¹** I speak as concerning reproach, as though we had been weak. Howbeit whereinsoever any is bold, (I speak foolishly,) I am bold also.  
 
 Here we have a further excuse that the apostle makes for what he was about to say in his own vindication. 1. He would not have them think he was guilty of folly, in saying what he said to vindicate himself: *Let no man think me a fool,* 2Co 11:16. Ordinarily, indeed, it is unbecoming a wise man to be much and often speaking in his own praise. Boasting of ourselves is usually not only a sign of a proud mind, but a mark of folly also. However, says the apostle, yet *as a fool receive me;* that is, if you count it folly in me to *boast a little,* yet give due regard to what I shall say. 2. He mentions a caution, to prevent the abuse of what he should say, telling them that what he spoke, *he did not speak after the Lord,* 2Co 11:17. He would not have them think that boasting of ourselves, or glorying in what we have, is a thing commanded by the Lord in general unto Christians, nor yet that this is always necessary in our own vindication; though it may be lawfully used, because not contrary to the Lord, when, strictly speaking, it is not after the Lord. It is the duty and practice of Christians, in obedience to the command and example of the Lord, rather to humble and abase themselves; yet prudence must direct in what circumstances it is needful to do that which we may do lawfully, even speak of what God has wrought for us, and in us, and by us too. 3. He gives a good reason why they should suffer him to boast a little; namely, because they suffered others to do so who had less reason. *Seeing many glory after the flesh* (of carnal privileges, or outward advantages and attainments), *I will glory also,* 2Co 11:18. But he would not glory in those things, though he had as much or more reason than others to do so. But he gloried in his infirmities, as he tells them afterwards. The Corinthians thought themselves wise, and might think it an instance of wisdom to bear with the weakness of others, and therefore suffered others to do what might seem folly; therefore the apostle would have them bear with him. Or these words, *You suffer fools gladly, seeing you yourselves are wise* (2Co 11:19), may be ironical, and then the meaning is this: "Notwithstanding all your wisdom, you willingly suffer yourselves to be *brought into bondage* under the Jewish yoke, or suffer others to tyrannize over you; nay, to *devour you,* or make a prey of you, and *take of you* hire for their own advantage, and to *exalt themselves* above you, and lord it over you; nay, even to *smite you on the face,* or impose upon you to your very faces (2Co 11:20), upbraiding you while they reproach me, as if you had been very weak in showing regard to me," 2Co 11:21. Seeing this was the case, that the Corinthians, or some among them, could so easily bear all this from the false apostles, it was reasonable for the apostle to desire, and expect, they should bear with what might seem to them an indiscretion in him, seeing the circumstances of the case were such as made it needful that *whereinsoever any were bold* he should be *bold also,* 2Co 11:21.
 
 ## The Apostle Recounts His Sufferings. (a. d. 57.)
 
-> <sup>22</sup> Are they Hebrews? so *am* I. Are they Israelites? so *am* I. Are they the seed of Abraham? so *am* I.  
-> <sup>23</sup> Are they ministers of Christ? (I speak as a fool) I *am* more; in labours more abundant, in stripes above measure, in prisons more frequent, in deaths oft.  
-> <sup>24</sup> Of the Jews five times received I forty *stripes* save one.  
-> <sup>25</sup> Thrice was I beaten with rods, once was I stoned, thrice I suffered shipwreck, a night and a day I have been in the deep;  
-> <sup>26</sup> *In* journeyings often, *in* perils of waters, *in* perils of robbers, *in* perils by *mine own* countrymen, *in* perils by the heathen, *in* perils in the city, *in* perils in the wilderness, *in* perils in the sea, *in* perils among false brethren;  
-> <sup>27</sup> In weariness and painfulness, in watchings often, in hunger and thirst, in fastings often, in cold and nakedness.  
-> <sup>28</sup> Beside those things that are without, that which cometh upon me daily, the care of all the churches.  
-> <sup>29</sup> Who is weak, and I am not weak? who is offended, and I burn not?  
-> <sup>30</sup> If I must needs glory, I will glory of the things which concern mine infirmities.  
-> <sup>31</sup> The God and Father of our Lord Jesus Christ, which is blessed for evermore, knoweth that I lie not.  
-> <sup>32</sup> In Damascus the governor under Aretas the king kept the city of the Damascenes with a garrison, desirous to apprehend me:  
-> <sup>33</sup> And through a window in a basket was I let down by the wall, and escaped his hands.  
+> **²²** Are they Hebrews? so *am* I. Are they Israelites? so *am* I. Are they the seed of Abraham? so *am* I.  
+> **²³** Are they ministers of Christ? (I speak as a fool) I *am* more; in labours more abundant, in stripes above measure, in prisons more frequent, in deaths oft.  
+> **²⁴** Of the Jews five times received I forty *stripes* save one.  
+> **²⁵** Thrice was I beaten with rods, once was I stoned, thrice I suffered shipwreck, a night and a day I have been in the deep;  
+> **²⁶** *In* journeyings often, *in* perils of waters, *in* perils of robbers, *in* perils by *mine own* countrymen, *in* perils by the heathen, *in* perils in the city, *in* perils in the wilderness, *in* perils in the sea, *in* perils among false brethren;  
+> **²⁷** In weariness and painfulness, in watchings often, in hunger and thirst, in fastings often, in cold and nakedness.  
+> **²⁸** Beside those things that are without, that which cometh upon me daily, the care of all the churches.  
+> **²⁹** Who is weak, and I am not weak? who is offended, and I burn not?  
+> **³⁰** If I must needs glory, I will glory of the things which concern mine infirmities.  
+> **³¹** The God and Father of our Lord Jesus Christ, which is blessed for evermore, knoweth that I lie not.  
+> **³²** In Damascus the governor under Aretas the king kept the city of the Damascenes with a garrison, desirous to apprehend me:  
+> **³³** And through a window in a basket was I let down by the wall, and escaped his hands.  
 
 Here the apostle gives a large account of his own qualifications, labours, and sufferings (not out of pride or vain-glory, but to the honour of God, who had enabled him to do and suffer so much for the cause of Christ), and wherein he excelled the false apostles, who would lessen his character and usefulness among the Corinthians. Observe,
 

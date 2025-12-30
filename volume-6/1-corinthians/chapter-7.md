@@ -8,15 +8,15 @@ In this chapter the apostle answers some cases proposed to him by the Corinthian
 
 ## Against Fornication. (a. d. 57.)
 
-> <sup>1</sup> Now concerning the things whereof ye wrote unto me: *It is* good for a man not to touch a woman.  
-> <sup>2</sup> Nevertheless, *to avoid* fornication, let every man have his own wife, and let every woman have her own husband.  
-> <sup>3</sup> Let the husband render unto the wife due benevolence: and likewise also the wife unto the husband.  
-> <sup>4</sup> The wife hath not power of her own body, but the husband: and likewise also the husband hath not power of his own body, but the wife.  
-> <sup>5</sup> Defraud ye not one the other, except *it be* with consent for a time, that ye may give yourselves to fasting and prayer; and come together again, that Satan tempt you not for your incontinency.  
-> <sup>6</sup> But I speak this by permission, *and* not of commandment.  
-> <sup>7</sup> For I would that all men were even as I myself. But every man hath his proper gift of God, one after this manner, and another after that.  
-> <sup>8</sup> I say therefore to the unmarried and widows, It is good for them if they abide even as I.  
-> <sup>9</sup> But if they cannot contain, let them marry: for it is better to marry than to burn.  
+> **¹** Now concerning the things whereof ye wrote unto me: *It is* good for a man not to touch a woman.  
+> **²** Nevertheless, *to avoid* fornication, let every man have his own wife, and let every woman have her own husband.  
+> **³** Let the husband render unto the wife due benevolence: and likewise also the wife unto the husband.  
+> **⁴** The wife hath not power of her own body, but the husband: and likewise also the husband hath not power of his own body, but the wife.  
+> **⁵** Defraud ye not one the other, except *it be* with consent for a time, that ye may give yourselves to fasting and prayer; and come together again, that Satan tempt you not for your incontinency.  
+> **⁶** But I speak this by permission, *and* not of commandment.  
+> **⁷** For I would that all men were even as I myself. But every man hath his proper gift of God, one after this manner, and another after that.  
+> **⁸** I say therefore to the unmarried and widows, It is good for them if they abide even as I.  
+> **⁹** But if they cannot contain, let them marry: for it is better to marry than to burn.  
 
 The apostle comes now, as a faithful and skilful casuist, to answer some cases of conscience which the Corinthians had proposed to him. Those were *things whereof they wrote to him,* 1Co 7:1. As the lips of ministers should *keep knowledge,* so the people should *ask the law at their mouths.* The apostle was as ready to resolve as they were to propose their doubts. In the former chapter, he warns them to avoid fornication; here he gives some directions about marriage, the remedy God had appointed for it. He tells them in general,
 
@@ -30,13 +30,13 @@ IV\. He sums up his sense on this head (1Co 7:9,10): *I say therefore to the unm
 
 ## Inviolability of the Marriage Bond. (a. d. 57.)
 
-> <sup>10</sup> And unto the married I command, *yet* not I, but the Lord, Let not the wife depart from *her* husband:  
-> <sup>11</sup> But and if she depart, let her remain unmarried, or be reconciled to *her* husband: and let not the husband put away *his* wife.  
-> <sup>12</sup> But to the rest speak I, not the Lord: If any brother hath a wife that believeth not, and she be pleased to dwell with him, let him not put her away.  
-> <sup>13</sup> And the woman which hath a husband that believeth not, and if he be pleased to dwell with her, let her not leave him.  
-> <sup>14</sup> For the unbelieving husband is sanctified by the wife, and the unbelieving wife is sanctified by the husband: else were your children unclean; but now are they holy.  
-> <sup>15</sup> But if the unbelieving depart, let him depart. A brother or a sister is not under bondage in such *cases:* but God hath called us to peace.  
-> <sup>16</sup> For what knowest thou, O wife, whether thou shalt save *thy* husband? or how knowest thou, O man, whether thou shalt save *thy* wife?  
+> **¹⁰** And unto the married I command, *yet* not I, but the Lord, Let not the wife depart from *her* husband:  
+> **¹¹** But and if she depart, let her remain unmarried, or be reconciled to *her* husband: and let not the husband put away *his* wife.  
+> **¹²** But to the rest speak I, not the Lord: If any brother hath a wife that believeth not, and she be pleased to dwell with him, let him not put her away.  
+> **¹³** And the woman which hath a husband that believeth not, and if he be pleased to dwell with her, let her not leave him.  
+> **¹⁴** For the unbelieving husband is sanctified by the wife, and the unbelieving wife is sanctified by the husband: else were your children unclean; but now are they holy.  
+> **¹⁵** But if the unbelieving depart, let him depart. A brother or a sister is not under bondage in such *cases:* but God hath called us to peace.  
+> **¹⁶** For what knowest thou, O wife, whether thou shalt save *thy* husband? or how knowest thou, O man, whether thou shalt save *thy* wife?  
 
 In this paragraph the apostle gives them direction in a case which must be very frequent in that age of the world, especially among the Jewish converts; I mean whether they were to live with heathen relatives in a married state. Moses's law permitted divorce; and there was a famous instance in the Jewish state, when the people were obliged to put away their idolatrous wives, Ezr 10:3. This might move a scruple in many minds, whether converts to Christianity were not bound to put away or desert their mates, continuing infidels. Concerning this matter the apostle here gives direction. And,
 
@@ -50,14 +50,14 @@ II\. He brings the general advice home to the case of such as had an unbelieving
 
 ## Christian Contentment. (a. d. 57.)
 
-> <sup>17</sup> But as God hath distributed to every man, as the Lord hath called every one, so let him walk. And so ordain I in all churches.  
-> <sup>18</sup> Is any man called being circumcised? let him not become uncircumcised. Is any called in uncircumcision? let him not be circumcised.  
-> <sup>19</sup> Circumcision is nothing, and uncircumcision is nothing, but the keeping of the commandments of God.  
-> <sup>20</sup> Let every man abide in the same calling wherein he was called.  
-> <sup>21</sup> Art thou called *being* a servant? care not for it: but if thou mayest be made free, use *it* rather.  
-> <sup>22</sup> For he that is called in the Lord, *being* a servant, is the Lord's freeman: likewise also he that is called, *being* free, is Christ's servant.  
-> <sup>23</sup> Ye are bought with a price; be not ye the servants of men.  
-> <sup>24</sup> Brethren, let every man, wherein he is called, therein abide with God.  
+> **¹⁷** But as God hath distributed to every man, as the Lord hath called every one, so let him walk. And so ordain I in all churches.  
+> **¹⁸** Is any man called being circumcised? let him not become uncircumcised. Is any called in uncircumcision? let him not be circumcised.  
+> **¹⁹** Circumcision is nothing, and uncircumcision is nothing, but the keeping of the commandments of God.  
+> **²⁰** Let every man abide in the same calling wherein he was called.  
+> **²¹** Art thou called *being* a servant? care not for it: but if thou mayest be made free, use *it* rather.  
+> **²²** For he that is called in the Lord, *being* a servant, is the Lord's freeman: likewise also he that is called, *being* free, is Christ's servant.  
+> **²³** Ye are bought with a price; be not ye the servants of men.  
+> **²⁴** Brethren, let every man, wherein he is called, therein abide with God.  
 
 Here the apostle takes occasion to advise them to continue in the state and condition in which Christianity found them, and in which they became converts to it. And here,
 
@@ -69,17 +69,17 @@ III\. He sums up his advice: *Let every man wherein he is called abide therein w
 
 ## Prudential Directions to Virgins. (a. d. 57.)
 
-> <sup>25</sup> Now concerning virgins I have no commandment of the Lord: yet I give my judgment, as one that hath obtained mercy of the Lord to be faithful.  
-> <sup>26</sup> I suppose therefore that this is good for the present distress, *I say,* that *it is* good for a man so to be.  
-> <sup>27</sup> Art thou bound unto a wife? seek not to be loosed. Art thou loosed from a wife? seek not a wife.  
-> <sup>28</sup> But and if thou marry, thou hast not sinned; and if a virgin marry, she hath not sinned. Nevertheless such shall have trouble in the flesh: but I spare you.  
-> <sup>29</sup> But this I say, brethren, the time *is* short: it remaineth, that both they that have wives be as though they had none;  
-> <sup>30</sup> And they that weep, as though they wept not; and they that rejoice, as though they rejoiced not; and they that buy, as though they possessed not;  
-> <sup>31</sup> And they that use this world, as not abusing *it:* for the fashion of this world passeth away.  
-> <sup>32</sup> But I would have you without carefulness. He that is unmarried careth for the things that belong to the Lord, how he may please the Lord:  
-> <sup>33</sup> But he that is married careth for the things that are of the world, how he may please *his* wife.  
-> <sup>34</sup> There is difference *also* between a wife and a virgin. The unmarried woman careth for the things of the Lord, that she may be holy both in body and in spirit: but she that is married careth for the things of the world, how she may please *her* husband.  
-> <sup>35</sup> And this I speak for your own profit; not that I may cast a snare upon you, but for that which is comely, and that ye may attend upon the Lord without distraction.  
+> **²⁵** Now concerning virgins I have no commandment of the Lord: yet I give my judgment, as one that hath obtained mercy of the Lord to be faithful.  
+> **²⁶** I suppose therefore that this is good for the present distress, *I say,* that *it is* good for a man so to be.  
+> **²⁷** Art thou bound unto a wife? seek not to be loosed. Art thou loosed from a wife? seek not a wife.  
+> **²⁸** But and if thou marry, thou hast not sinned; and if a virgin marry, she hath not sinned. Nevertheless such shall have trouble in the flesh: but I spare you.  
+> **²⁹** But this I say, brethren, the time *is* short: it remaineth, that both they that have wives be as though they had none;  
+> **³⁰** And they that weep, as though they wept not; and they that rejoice, as though they rejoiced not; and they that buy, as though they possessed not;  
+> **³¹** And they that use this world, as not abusing *it:* for the fashion of this world passeth away.  
+> **³²** But I would have you without carefulness. He that is unmarried careth for the things that belong to the Lord, how he may please the Lord:  
+> **³³** But he that is married careth for the things that are of the world, how he may please *his* wife.  
+> **³⁴** There is difference *also* between a wife and a virgin. The unmarried woman careth for the things of the Lord, that she may be holy both in body and in spirit: but she that is married careth for the things of the world, how she may please *her* husband.  
+> **³⁵** And this I speak for your own profit; not that I may cast a snare upon you, but for that which is comely, and that ye may attend upon the Lord without distraction.  
 
 The apostle here resumes his discourse, and gives directions to virgins how to act, concerning which we may take notice,
 
@@ -97,9 +97,9 @@ VI\. He presses his general advice by warning them against the embarrassment of 
 
 ## Prudential Directions to the Unmarried. (a. d. 57.)
 
-> <sup>36</sup> But if any man think that he behaveth himself uncomely toward his virgin, if she pass the flower of *her* age, and need so require, let him do what he will, he sinneth not: let them marry.  
-> <sup>37</sup> Nevertheless he that standeth stedfast in his heart, having no necessity, but hath power over his own will, and hath so decreed in his heart that he will keep his virgin, doeth well.  
-> <sup>38</sup> So then he that giveth *her* in marriage doeth well; but he that giveth *her* not in marriage doeth better.  
+> **³⁶** But if any man think that he behaveth himself uncomely toward his virgin, if she pass the flower of *her* age, and need so require, let him do what he will, he sinneth not: let them marry.  
+> **³⁷** Nevertheless he that standeth stedfast in his heart, having no necessity, but hath power over his own will, and hath so decreed in his heart that he will keep his virgin, doeth well.  
+> **³⁸** So then he that giveth *her* in marriage doeth well; but he that giveth *her* not in marriage doeth better.  
 
 In this passage the apostle is commonly supposed to give advice about the disposal of children in marriage, upon the principle of his former determination. In this view the general meaning is plain. It was in that age, and those parts of the world, and especially among the Jews, reckoned a disgrace for a woman to remain unmarried past a certain number of years: it gave a suspicion of somewhat that was not for her reputation. "Now," says the apostle, "if any man thinks he behaves unhandsomely towards his daughter, and that it is not for her credit to remain unmarried, when she is of full age, and that upon this principle it is needful to dispose of her in marriage, he may use his pleasure. It is no sin in him to dispose of her to a suitable mate. But if a man has determined in himself to keep her a virgin, and stands to this determination, and is under no necessity to dispose of her in marriage, but is at liberty, with her consent, to pursue his purpose, he does well in keeping her a virgin. In short, he that gives her in marriage does well; but he that keeps her single, if she can be easy and innocent in such a state, does what is better; that is, more convenient for her in the present state of things, if not at all times and seasons." Note, 1. Children should be at the disposal of their parents, and not dispose of themselves in marriage. Yet, 2. Parents should consult their children's inclinations, both to marriage in general and to the person in particular, and not reckon they have uncontrollable power to do with them, and dictate to them, as they please. 3. It is our duty not only to consider what is lawful, but in many cases, at least, what is fit to be done, before we do it.
 
@@ -107,8 +107,8 @@ But I think the apostle is here continuing his former discourse, and advising un
 
 ## Prudential Directions to Widows. (a. d. 57.)
 
-> <sup>39</sup> The wife is bound by the law as long as her husband liveth; but if her husband be dead, she is at liberty to be married to whom she will; only in the Lord.  
-> <sup>40</sup> But she is happier if she so abide, after my judgment: and I think also that I have the Spirit of God.  
+> **³⁹** The wife is bound by the law as long as her husband liveth; but if her husband be dead, she is at liberty to be married to whom she will; only in the Lord.  
+> **⁴⁰** But she is happier if she so abide, after my judgment: and I think also that I have the Spirit of God.  
 
 The whole is here closed up with advice to widows: *As long as the husband liveth the wife is bound by the law,* confined to one husband, and bound to continue and cohabit with him. Note, The marriage-contract is for life; death only can annul the bond. *But, the husband being dead, she is at liberty to marry whom she will.* There is no limitation by God's law to be married only for such a number of times. It is certain, from this passage, that second marriages are not unlawful; for then the widow could not be at liberty to marry whom she pleased, nor to marry a second time at all. But the apostle asserts she has such a liberty, when her husband is dead, only with a limitation that *she marry in the Lord.* In our choice of relations, and change of conditions, we should always have an eye to God. Note, Marriages are likely to have God's blessing only when they are made in the Lord, when persons are guided by the fear of God, and the laws of God, and act in dependence on the providence of God, in the change and choice of a mate—when they can look up to God, and sincerely seek his direction, and humbly hope for his blessing upon their conduct. *But she is happier,* says the apostle, *if she so abide* (that is, continue a widow) *in my judgment; and I think I have the Spirit of God,* 1Co 7:40. At this juncture, at least, if not ordinarily, it will be much more for the peace and quiet of such, and give them less hindrance in the service of God, to continue unmarried. And this, he tells them, was by inspiration of the Spirit. "Whatever your false apostles may think of me, I think, and have reason to know, that I have the Spirit of God." Note, Change of condition in marriage is so important a matter that it ought not to be made but upon due deliberation, after careful consideration of circumstances, and upon very probable grounds, at least, that it will be a change to advantage in our spiritual concerns.
 

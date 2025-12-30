@@ -8,14 +8,14 @@ In this chapter we have, I. Isaac, the child of promise born into Abraham's fami
 
 ## The Birth of Isaac. (b. c. 1897.)
 
-> <sup>1</sup> And the LORD visited Sarah as he had said, and the LORD did unto Sarah as he had spoken.  
-> <sup>2</sup> For Sarah conceived, and bare Abraham a son in his old age, at the set time of which God had spoken to him.  
-> <sup>3</sup> And Abraham called the name of his son that was born unto him, whom Sarah bare to him, Isaac.  
-> <sup>4</sup> And Abraham circumcised his son Isaac being eight days old, as God had commanded him.  
-> <sup>5</sup> And Abraham was an hundred years old, when his son Isaac was born unto him.  
-> <sup>6</sup> And Sarah said, God hath made me to laugh, *so that* all that hear will laugh with me.  
-> <sup>7</sup> And she said, Who would have said unto Abraham, that Sarah should have given children suck? for I have borne *him* a son in his old age.  
-> <sup>8</sup> And the child grew, and was weaned: and Abraham made a great feast the *same* day that Isaac was weaned.  
+> **¹** And the LORD visited Sarah as he had said, and the LORD did unto Sarah as he had spoken.  
+> **²** For Sarah conceived, and bare Abraham a son in his old age, at the set time of which God had spoken to him.  
+> **³** And Abraham called the name of his son that was born unto him, whom Sarah bare to him, Isaac.  
+> **⁴** And Abraham circumcised his son Isaac being eight days old, as God had commanded him.  
+> **⁵** And Abraham was an hundred years old, when his son Isaac was born unto him.  
+> **⁶** And Sarah said, God hath made me to laugh, *so that* all that hear will laugh with me.  
+> **⁷** And she said, Who would have said unto Abraham, that Sarah should have given children suck? for I have borne *him* a son in his old age.  
+> **⁸** And the child grew, and was weaned: and Abraham made a great feast the *same* day that Isaac was weaned.  
 
 Long-looked-for comes at last. The vision concerning the promised seed is for an appointed time, and now, at the end, it speaks, and does not lie; few under the Old Testament were brought into the world with such expectation as Isaac was, not for the sake of any great person eminence at which he was to arrive, but because he was to be, in this very thing, a type of Christ, that seed which the holy God had so long promised and holy men so long expected. In this account of the first days of Isaac we may observe,
 
@@ -37,11 +37,11 @@ IV\. A short account of Isaac's infancy: *The child grew,* Ge 21:8. Special noti
 
 ## Hagar and Ishmael Expelled. (b. c. 1892.)
 
-> <sup>9</sup> And Sarah saw the son of Hagar the Egyptian, which she had borne unto Abraham, mocking.  
-> <sup>10</sup> Wherefore she said unto Abraham, Cast out this bondwoman and her son: for the son of this bondwoman shall not be heir with my son, *even* with Isaac.  
-> <sup>11</sup> And the thing was very grievous in Abraham's sight because of his son.  
-> <sup>12</sup> And God said unto Abraham, Let it not be grievous in thy sight because of the lad, and because of thy bondwoman; in all that Sarah hath said unto thee, hearken unto her voice; for in Isaac shall thy seed be called.  
-> <sup>13</sup> And also of the son of the bondwoman will I make a nation, because he *is* thy seed.  
+> **⁹** And Sarah saw the son of Hagar the Egyptian, which she had borne unto Abraham, mocking.  
+> **¹⁰** Wherefore she said unto Abraham, Cast out this bondwoman and her son: for the son of this bondwoman shall not be heir with my son, *even* with Isaac.  
+> **¹¹** And the thing was very grievous in Abraham's sight because of his son.  
+> **¹²** And God said unto Abraham, Let it not be grievous in thy sight because of the lad, and because of thy bondwoman; in all that Sarah hath said unto thee, hearken unto her voice; for in Isaac shall thy seed be called.  
+> **¹³** And also of the son of the bondwoman will I make a nation, because he *is* thy seed.  
 
 The casting out of Ishmael is here considered of, and resolved on.
 
@@ -55,14 +55,14 @@ IV\. God determined it, Ge 21:12,13. We may well suppose Abraham to be greatly a
 
 ## God's Mercy to Hagar and Ishmael. (b. c. 1892.)
 
-> <sup>14</sup> And Abraham rose up early in the morning, and took bread, and a bottle of water, and gave *it* unto Hagar, putting *it* on her shoulder, and the child, and sent her away: and she departed, and wandered in the wilderness of Beer-sheba.  
-> <sup>15</sup> And the water was spent in the bottle, and she cast the child under one of the shrubs.  
-> <sup>16</sup> And she went, and sat her down over against *him* a good way off, as it were a bowshot: for she said, Let me not see the death of the child. And she sat over against *him,* and lift up her voice, and wept.  
-> <sup>17</sup> And God heard the voice of the lad; and the angel of God called to Hagar out of heaven, and said unto her, What aileth thee, Hagar? fear not; for God hath heard the voice of the lad where he *is.*  
-> <sup>18</sup> Arise, lift up the lad, and hold him in thine hand; for I will make him a great nation.  
-> <sup>19</sup> And God opened her eyes, and she saw a well of water; and she went, and filled the bottle with water, and gave the lad drink.  
-> <sup>20</sup> And God was with the lad; and he grew, and dwelt in the wilderness, and became an archer.  
-> <sup>21</sup> And he dwelt in the wilderness of Paran: and his mother took him a wife out of the land of Egypt.  
+> **¹⁴** And Abraham rose up early in the morning, and took bread, and a bottle of water, and gave *it* unto Hagar, putting *it* on her shoulder, and the child, and sent her away: and she departed, and wandered in the wilderness of Beer-sheba.  
+> **¹⁵** And the water was spent in the bottle, and she cast the child under one of the shrubs.  
+> **¹⁶** And she went, and sat her down over against *him* a good way off, as it were a bowshot: for she said, Let me not see the death of the child. And she sat over against *him,* and lift up her voice, and wept.  
+> **¹⁷** And God heard the voice of the lad; and the angel of God called to Hagar out of heaven, and said unto her, What aileth thee, Hagar? fear not; for God hath heard the voice of the lad where he *is.*  
+> **¹⁸** Arise, lift up the lad, and hold him in thine hand; for I will make him a great nation.  
+> **¹⁹** And God opened her eyes, and she saw a well of water; and she went, and filled the bottle with water, and gave the lad drink.  
+> **²⁰** And God was with the lad; and he grew, and dwelt in the wilderness, and became an archer.  
+> **²¹** And he dwelt in the wilderness of Paran: and his mother took him a wife out of the land of Egypt.  
 
 Here is, I. The casting out of the bond-woman, and her son from the family of Abraham, Ge 21:14. Abraham's obedience to the divine command in this matter was speedy—*early in the morning,* we may suppose immediately after he had, in the night's visions, received orders to do this. It was also submissive; it was contrary to his judgment, at least to his own inclination, to do it; yet as soon as he perceives that it is the mind of God he makes no objections, but silently does as he is bidden, as one trained up to an implicit obedience. In sending them away without any attendants, on foot, and slenderly provided for, it is probable that he observed the directions given him. If Hagar and Ishmael had conducted themselves well in Abraham's family, they might have continued there; but they threw themselves out by their own pride and insolence, which were thus justly chastised. Note, By abusing our privileges we forfeit them. Those that know not when they are well off, in such a desirable place as Abraham's family, deserve to be cashiered, and to be made to know the worth of mercies by the want of them.
 
@@ -76,17 +76,17 @@ III\. The settlement of Ishmael, at last, in the wilderness of Paran (Ge 21:20,2
 
 ## Abimelech's Covenant with Abraham. (b. c. 1892.)
 
-> <sup>22</sup> And it came to pass at that time, that Abimelech and Phichol the chief captain of his host spake unto Abraham, saying, God *is* with thee in all that thou doest:  
-> <sup>23</sup> Now therefore swear unto me here by God that thou wilt not deal falsely with me, nor with my son, nor with my son's son: *but* according to the kindness that I have done unto thee, thou shalt do unto me, and to the land wherein thou hast sojourned.  
-> <sup>24</sup> And Abraham said, I will swear.  
-> <sup>25</sup> And Abraham reproved Abimelech because of a well of water, which Abimelech's servants had violently taken away.  
-> <sup>26</sup> And Abimelech said, I wot not who hath done this thing: neither didst thou tell me, neither yet heard I *of it,* but to day.  
-> <sup>27</sup> And Abraham took sheep and oxen, and gave them unto Abimelech; and both of them made a covenant.  
-> <sup>28</sup> And Abraham set seven ewe lambs of the flock by themselves.  
-> <sup>29</sup> And Abimelech said unto Abraham, What *mean* these seven ewe lambs which thou hast set by themselves?  
-> <sup>30</sup> And he said, For *these* seven ewe lambs shalt thou take of my hand, that they may be a witness unto me, that I have digged this well.  
-> <sup>31</sup> Wherefore he called that place Beer-sheba; because there they sware both of them.  
-> <sup>32</sup> Thus they made a covenant at Beer-sheba: then Abimelech rose up, and Phichol the chief captain of his host, and they returned into the land of the Philistines.  
+> **²²** And it came to pass at that time, that Abimelech and Phichol the chief captain of his host spake unto Abraham, saying, God *is* with thee in all that thou doest:  
+> **²³** Now therefore swear unto me here by God that thou wilt not deal falsely with me, nor with my son, nor with my son's son: *but* according to the kindness that I have done unto thee, thou shalt do unto me, and to the land wherein thou hast sojourned.  
+> **²⁴** And Abraham said, I will swear.  
+> **²⁵** And Abraham reproved Abimelech because of a well of water, which Abimelech's servants had violently taken away.  
+> **²⁶** And Abimelech said, I wot not who hath done this thing: neither didst thou tell me, neither yet heard I *of it,* but to day.  
+> **²⁷** And Abraham took sheep and oxen, and gave them unto Abimelech; and both of them made a covenant.  
+> **²⁸** And Abraham set seven ewe lambs of the flock by themselves.  
+> **²⁹** And Abimelech said unto Abraham, What *mean* these seven ewe lambs which thou hast set by themselves?  
+> **³⁰** And he said, For *these* seven ewe lambs shalt thou take of my hand, that they may be a witness unto me, that I have digged this well.  
+> **³¹** Wherefore he called that place Beer-sheba; because there they sware both of them.  
+> **³²** Thus they made a covenant at Beer-sheba: then Abimelech rose up, and Phichol the chief captain of his host, and they returned into the land of the Philistines.  
 
 We have here an account of the treaty between Abimelech and Abraham, in which appears the accomplishment of that promise (Ge 12:2) that God would *make his name great.* His friendship is valued, is courted, though a stranger, though a tenant at will to the Canaanites and Perizzites.
 
@@ -106,8 +106,8 @@ II\. It is consented to by Abraham, with a particular clause inserted about a we
 
 4\. He ratified the covenant by an oath, and registered it by giving a new name to the place (Ge 21:31), *Beer-sheba,* the *well of the oath,* in remembrance of the covenant they swore to, that they might be ever mindful of it; or *the well of seven,* in remembrance of the seven lambs given to Abimelech, as a consideration for his confirming Abraham's title to that well. Note, Bargains made must be remembered, that we may make them good, and may not break our word through oversight.
 
-> <sup>33</sup> And *Abraham* planted a grove in Beer-sheba, and called there on the name of the LORD, the everlasting God.  
-> <sup>34</sup> And Abraham sojourned in the Philistines' land many days.  
+> **³³** And *Abraham* planted a grove in Beer-sheba, and called there on the name of the LORD, the everlasting God.  
+> **³⁴** And Abraham sojourned in the Philistines' land many days.  
 
 Observe, 1. Abraham, having got into a good neighbourhood, knew when he was well off, and continued a great while there. There he planted a grove for a shade to his tent, or perhaps an orchard of fruit-trees; and there, though we cannot say he settled, for God would have him, while he lived, to be a stranger and a pilgrim, yet he sojourned many days, as many as would consist with his character, as Abraham the *Hebrew,* or *passenger.* 2. There he made, not only a constant practice, but an open profession, of his religion: *There he called on the name of the Lord, the everlasting God,* probably in the grove he planted, which was his oratory or house of prayer. Christ prayed in a garden, on a mountain. (1.) Abraham kept up public worship, to which, probably, his neighbours resorted, that they might join with him. Note, Good men should not only retain their goodness wherever they go, but do all they can to propagate it, and make others good. (2.) In calling on the Lord, we must eye him as *the everlasting God, the God of the world,* so some. Though God had made himself known to Abraham as his God in particular, and in covenant with him, yet he forgets not to give glory to him as the Lord of all: *The everlasting God,* who was, before all worlds, and will be, when time and days shall be no more. See Isa 40:28.
 

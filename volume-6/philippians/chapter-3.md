@@ -8,9 +8,9 @@ He cautions them against judaizing seducers (Php 3:1-3) and proposes his own exa
 
 ## Description of True Christians. (a. d. 62.)
 
-> <sup>1</sup> Finally, my brethren, rejoice in the Lord. To write the same things to you, to me indeed *is* not grievous, but for you *it is* safe.  
-> <sup>2</sup> Beware of dogs, beware of evil workers, beware of the concision.  
-> <sup>3</sup> For we are the circumcision, which worship God in the spirit, and rejoice in Christ Jesus, and have no confidence in the flesh.  
+> **¹** Finally, my brethren, rejoice in the Lord. To write the same things to you, to me indeed *is* not grievous, but for you *it is* safe.  
+> **²** Beware of dogs, beware of evil workers, beware of the concision.  
+> **³** For we are the circumcision, which worship God in the spirit, and rejoice in Christ Jesus, and have no confidence in the flesh.  
 
 It seems the church of the Philippians, though a faithful and flourishing church, was disturbed by the judaizing teachers, who endeavoured to keep up the law of Moses, and mix the observances of it with the doctrine of Christ and his institutions. He begins the chapter with warnings against these seducers.
 
@@ -22,11 +22,11 @@ III\. He describes true Christians, who are indeed the circumcision, the spiritu
 
 ## False Confidence Renounced. (a. d. 62.)
 
-> <sup>4</sup> Though I might also have confidence in the flesh. If any other man thinketh that he hath whereof he might trust in the flesh, I more:  
-> <sup>5</sup> Circumcised the eighth day, of the stock of Israel, *of* the tribe of Benjamin, a hebrew of the Hebrews; as touching the law, a Pharisee;  
-> <sup>6</sup> Concerning zeal, persecuting the church; touching the righteousness which is in the law, blameless.  
-> <sup>7</sup> But what things were gain to me, those I counted loss for Christ.  
-> <sup>8</sup> Yea doubtless, and I count all things *but* loss for the excellency of the knowledge of Christ Jesus my Lord: for whom I have suffered the loss of all things, and do count them *but* dung, that I may win Christ,  
+> **⁴** Though I might also have confidence in the flesh. If any other man thinketh that he hath whereof he might trust in the flesh, I more:  
+> **⁵** Circumcised the eighth day, of the stock of Israel, *of* the tribe of Benjamin, a hebrew of the Hebrews; as touching the law, a Pharisee;  
+> **⁶** Concerning zeal, persecuting the church; touching the righteousness which is in the law, blameless.  
+> **⁷** But what things were gain to me, those I counted loss for Christ.  
+> **⁸** Yea doubtless, and I count all things *but* loss for the excellency of the knowledge of Christ Jesus my Lord: for whom I have suffered the loss of all things, and do count them *but* dung, that I may win Christ,  
 
 The apostle here proposes himself for an example of trusting in Christ only, and not in his privileges as an Israelite.
 
@@ -36,12 +36,12 @@ II\. The apostle tells us here how little account he made of these, in compariso
 
 ## The Apostle's Concern, Hope, and Aim. (a. d. 62.)
 
-> <sup>9</sup> And be found in him, not having mine own righteousness, which is of the law, but that which is through the faith of Christ, the righteousness which is of God by faith:  
-> <sup>10</sup> That I may know him, and the power of his resurrection, and the fellowship of his sufferings, being made conformable unto his death;  
-> <sup>11</sup> If by any means I might attain unto the resurrection of the dead.  
-> <sup>12</sup> Not as though I had already attained, either were already perfect: but I follow after, if that I may apprehend that for which also I am apprehended of Christ Jesus.  
-> <sup>13</sup> Brethren, I count not myself to have apprehended: but *this* one thing *I do,* forgetting those things which are behind, and reaching forth unto those things which are before,  
-> <sup>14</sup> I press toward the mark for the prize of the high calling of God in Christ Jesus.  
+> **⁹** And be found in him, not having mine own righteousness, which is of the law, but that which is through the faith of Christ, the righteousness which is of God by faith:  
+> **¹⁰** That I may know him, and the power of his resurrection, and the fellowship of his sufferings, being made conformable unto his death;  
+> **¹¹** If by any means I might attain unto the resurrection of the dead.  
+> **¹²** Not as though I had already attained, either were already perfect: but I follow after, if that I may apprehend that for which also I am apprehended of Christ Jesus.  
+> **¹³** Brethren, I count not myself to have apprehended: but *this* one thing *I do,* forgetting those things which are behind, and reaching forth unto those things which are before,  
+> **¹⁴** I press toward the mark for the prize of the high calling of God in Christ Jesus.  
 
 We now heard what the apostle renounced; let us now see what he laid hold on, and resolved to cleave to, namely, Christ and heaven. He had his heart on these two great peculiarities of the Christian religion.
 
@@ -61,18 +61,18 @@ II\. The apostle had his heart upon heaven as his happiness: *If by any means I 
 
 ## Warnings and Exhortations. (a. d. 62.)
 
-> <sup>15</sup> Let us therefore, as many as be perfect, be thus minded: and if in any thing ye be otherwise minded, God shall reveal even this unto you.  
-> <sup>16</sup> Nevertheless, whereto we have already attained, let us walk by the same rule, let us mind the same thing.  
+> **¹⁵** Let us therefore, as many as be perfect, be thus minded: and if in any thing ye be otherwise minded, God shall reveal even this unto you.  
+> **¹⁶** Nevertheless, whereto we have already attained, let us walk by the same rule, let us mind the same thing.  
 
 The apostle, having proposed himself as an example, urges the Philippians to follow it. Let the same mind be in us which was in blessed Paul. We see here how he was minded; let us be like-minded, and set our hearts upon Christ and heaven, as he did. 1. He shows that this was the thing wherein all good Christians were agreed, to make Christ all in all, and set their hearts upon another world. This is that whereto we have all attained. However good Christians may differ in their sentiments about other things, this is what they are agreed in, that Christ is a Christian's all, that to win Christ and to be found in him involve our happiness both here and hereafter. And therefore let us walk by the same rule, and mind the same thing. Having made Christ our all, *to us to live must be Christ.* Let us agree to press towards the mark, and make heaven our end. 2. That this is a good reason why Christians who differ in smaller matters should yet bear with one another, because they are agreed in the main matter: "*If in any thing you be otherwise minded*—if you differ from one another, and are not of the same judgment as to meats and days, and other matters of the Jewish law—yet you must not judge one another, while you all meet now in Christ as your centre, and hope to meet shortly in heaven as your home. As for other matters of difference, lay no great stress upon them, *God shall reveal even this unto you.* Whatever it is wherein you differ, you must wait till God give you a better understanding, which he will do in his due time. In the mean time, *as far as you have attained,* you must go together in the ways of God, join together in all the great things in which you are agreed, and wait for further light in the minor things wherein you differ."
 
 ## The Apostle Urges His Own Example. (a. d. 62.)
 
-> <sup>17</sup> Brethren, be followers together of me, and mark them which walk so as ye have us for an ensample.  
-> <sup>18</sup> (For many walk, of whom I have told you often, and now tell you even weeping, *that they are* the enemies of the cross of Christ:  
-> <sup>19</sup> Whose end *is* destruction, whose God *is their* belly, and *whose* glory *is* in their shame, who mind earthly things.)  
-> <sup>20</sup> For our conversation is in heaven; from whence also we look for the Saviour, the Lord Jesus Christ:  
-> <sup>21</sup> Who shall change our vile body, that it may be fashioned like unto his glorious body, according to the working whereby he is able even to subdue all things unto himself.  
+> **¹⁷** Brethren, be followers together of me, and mark them which walk so as ye have us for an ensample.  
+> **¹⁸** (For many walk, of whom I have told you often, and now tell you even weeping, *that they are* the enemies of the cross of Christ:  
+> **¹⁹** Whose end *is* destruction, whose God *is their* belly, and *whose* glory *is* in their shame, who mind earthly things.)  
+> **²⁰** For our conversation is in heaven; from whence also we look for the Saviour, the Lord Jesus Christ:  
+> **²¹** Who shall change our vile body, that it may be fashioned like unto his glorious body, according to the working whereby he is able even to subdue all things unto himself.  
 
 He closes the chapter with warnings and exhortations.
 

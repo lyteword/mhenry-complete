@@ -8,11 +8,11 @@ This chapter is the only authentic history extant of the first age of the world 
 
 ## Genealogies. (b. c. 3852.)
 
-> <sup>1</sup> This *is* the book of the generations of Adam. In the day that God created man, in the likeness of God made he him;  
-> <sup>2</sup> Male and female created he them; and blessed them, and called their name Adam, in the day when they were created.  
-> <sup>3</sup> And Adam lived a hundred and thirty years, and begat *a son* in his own likeness, after his image; and called his name Seth:  
-> <sup>4</sup> And the days of Adam after he had begotten Seth were eight hundred years: and he begat sons and daughters:  
-> <sup>5</sup> And all the days that Adam lived were nine hundred and thirty years: and he died.  
+> **¹** This *is* the book of the generations of Adam. In the day that God created man, in the likeness of God made he him;  
+> **²** Male and female created he them; and blessed them, and called their name Adam, in the day when they were created.  
+> **³** And Adam lived a hundred and thirty years, and begat *a son* in his own likeness, after his image; and called his name Seth:  
+> **⁴** And the days of Adam after he had begotten Seth were eight hundred years: and he begat sons and daughters:  
+> **⁵** And all the days that Adam lived were nine hundred and thirty years: and he died.  
 
 The first words of the chapter are the title or argument of the whole chapter: it is *the book of the generations of Adam;* it is the list or catalogue of the posterity of Adam, not of all, but only of the *holy seed who were the substance thereof* (Isa 6:13), and *of whom, as concerning the flesh, Christ came* (Ro 9:5), the names, ages, and deaths, of those that were the successors of the first Adam in the custody of the promise, and the ancestors of the second Adam. The genealogy begins with Adam himself. Here is,
 
@@ -22,21 +22,21 @@ II\. The birth of his son *Seth,* Ge 5:3. He was born in the hundred and thirtie
 
 III\. His age and death. He lived, in all, nine hundred and thirty years, and then he died, according to the sentence passed upon him, *To dust thou shalt return.* Though he did not die in the day he ate forbidden fruit, yet in that very day he became mortal. Then he began to die; his whole life afterwards was but a reprieve, a forfeited condemned life; nay, it was a wasting dying life: he was not only like a criminal sentenced, but as one already crucified, that dies slowly and by degrees.
 
-> <sup>6</sup> And Seth lived a hundred and five years, and begat Enos:  
-> <sup>7</sup> And Seth lived after he begat Enos eight hundred and seven years, and begat sons and daughters:  
-> <sup>8</sup> And all the days of Seth were nine hundred and twelve years: and he died.  
-> <sup>9</sup> And Enos lived ninety years, and begat Cainan:  
-> <sup>10</sup> And Enos lived after he begat Cainan eight hundred and fifteen years, and begat sons and daughters:  
-> <sup>11</sup> And all the days of Enos were nine hundred and five years: and he died.  
-> <sup>12</sup> And Cainan lived seventy years, and begat Mahalaleel:  
-> <sup>13</sup> And Cainan lived after he begat Mahalaleel eight hundred and forty years, and begat sons and daughters:  
-> <sup>14</sup> And all the days of Cainan were nine hundred and ten years: and he died.  
-> <sup>15</sup> And Mahalaleel lived sixty and five years, and begat Jared:  
-> <sup>16</sup> And Mahalaleel lived after he begat Jared eight hundred and thirty years, and begat sons and daughters:  
-> <sup>17</sup> And all the days of Mahalaleel were eight hundred ninety and five years: and he died.  
-> <sup>18</sup> And Jared lived a hundred sixty and two years, and he begat Enoch:  
-> <sup>19</sup> And Jared lived after he begat Enoch eight hundred years, and begat sons and daughters:  
-> <sup>20</sup> And all the days of Jared were nine hundred sixty and two years: and he died.  
+> **⁶** And Seth lived a hundred and five years, and begat Enos:  
+> **⁷** And Seth lived after he begat Enos eight hundred and seven years, and begat sons and daughters:  
+> **⁸** And all the days of Seth were nine hundred and twelve years: and he died.  
+> **⁹** And Enos lived ninety years, and begat Cainan:  
+> **¹⁰** And Enos lived after he begat Cainan eight hundred and fifteen years, and begat sons and daughters:  
+> **¹¹** And all the days of Enos were nine hundred and five years: and he died.  
+> **¹²** And Cainan lived seventy years, and begat Mahalaleel:  
+> **¹³** And Cainan lived after he begat Mahalaleel eight hundred and forty years, and begat sons and daughters:  
+> **¹⁴** And all the days of Cainan were nine hundred and ten years: and he died.  
+> **¹⁵** And Mahalaleel lived sixty and five years, and begat Jared:  
+> **¹⁶** And Mahalaleel lived after he begat Jared eight hundred and thirty years, and begat sons and daughters:  
+> **¹⁷** And all the days of Mahalaleel were eight hundred ninety and five years: and he died.  
+> **¹⁸** And Jared lived a hundred sixty and two years, and he begat Enoch:  
+> **¹⁹** And Jared lived after he begat Enoch eight hundred years, and begat sons and daughters:  
+> **²⁰** And all the days of Jared were nine hundred sixty and two years: and he died.  
 
 We have here all that the Holy Ghost thought fit to leave upon record concerning five of the patriarchs before the flood, Seth, Enos, Cainan, Mahalaleel, and Jared. There is nothing observable concerning any of these particularly, though we have reason to think they were men of eminence, both for prudence and piety, in their day: but in general,
 
@@ -50,10 +50,10 @@ IV\. That which is especially observable is that they all lived very long; not o
 
 ## Translation of Enoch. (b. c. 3017.)
 
-> <sup>21</sup> And Enoch lived sixty and five years, and begat Methuselah:  
-> <sup>22</sup> And Enoch walked with God after he begat Methuselah three hundred years, and begat sons and daughters:  
-> <sup>23</sup> And all the days of Enoch were three hundred sixty and five years:  
-> <sup>24</sup> And Enoch walked with God: and he *was* not; for God took him.  
+> **²¹** And Enoch lived sixty and five years, and begat Methuselah:  
+> **²²** And Enoch walked with God after he begat Methuselah three hundred years, and begat sons and daughters:  
+> **²³** And all the days of Enoch were three hundred sixty and five years:  
+> **²⁴** And Enoch walked with God: and he *was* not; for God took him.  
 
 The accounts here run on for several generations without any thing remarkable, or any variation but of the names and numbers; but at length there comes in one that must not be passed over so, of whom special notice must be taken, and that is *Enoch,* the seventh from Adam: the rest, we may suppose, did virtuously, but he excelled them all, and was the brightest star of the patriarchal age. It is but little that is recorded concerning him; but this little is enough to make his name great, greater than the name of the other Enoch, who had a city called by his name. Here are two things concerning him:—
 
@@ -71,19 +71,19 @@ II\. His glorious removal to a better world. As he did not live like the rest, s
 
 2\. How his removal is expressed: *He was not, for God took him.* (1.) He was not any longer in this world; it was not the period of his being, but of his being here: he was *not found,* so the apostle explains it from the LXX.; not found by his friends, who sought him as the sons of the prophets sought Elijah (2Ki 2:17); not found by his enemies, who, some think, were in quest of him, to put him to death in their rage against him for his eminent piety. It appears by his prophecy that there were then many ungodly sinners, who spoke hard speeches, and probably did hard things too, against God's people (Jude 1:15), but God hid Enoch from them, not under heaven, but in heaven. (2.) God took him body and soul to himself in the heavenly paradise, by the ministry of angels, as afterwards he took Elijah. He was changed, as those saints will be that shall be found alive at Christ's second coming. Whenever a good man dies God takes him, fetches him hence, and receives him to himself. The apostle adds concerning Enoch that, *before his translation, he had this testimony, that he pleased God,* and this was the good report he obtained. Note, [1.] Walking with God pleases God. [2.] We cannot walk with God so as to please him, but by faith. [3.] God himself will put an honour upon those that by faith walk with him so as to please him. He will own them now, and witness for them before angels and men at the great day. Those that have not this testimony before the translation, yet shall have it afterwards. [4.] Those whose conversation in the world is truly holy shall find their removal out of it truly happy. Enoch's translation was not only an evidence to faith of the reality of a future state, and of the possibility of the body's existing in glory in that state; but it was an encouragement to the hope of all that walk with God that they shall be for ever with him: signal piety shall be crowned with signal honours.
 
-> <sup>25</sup> And Methuselah lived a hundred eighty and seven years, and begat Lamech:  
-> <sup>26</sup> And Methuselah lived after he begat Lamech seven hundred eighty and two years, and begat sons and daughters:  
-> <sup>27</sup> And all the days of Methuselah were nine hundred sixty and nine years: and he died.  
+> **²⁵** And Methuselah lived a hundred eighty and seven years, and begat Lamech:  
+> **²⁶** And Methuselah lived after he begat Lamech seven hundred eighty and two years, and begat sons and daughters:  
+> **²⁷** And all the days of Methuselah were nine hundred sixty and nine years: and he died.  
 
 Concerning Methuselah observe, 1. The signification of his name, which some think was prophetical, his father Enoch being a prophet. *Methuselah* signifies, *he dies,* or *there is a dart,* or, *a sending forth,* namely, of the deluge, which came the very year that Methuselah died. If indeed his name was so intended and so explained, it was fair warning to a careless world, a long time before the judgment came. However, this is observable, that the longest liver that ever was carried death in his name, that he might be reminded of its coming surely, though it came slowly. 2. His age: he lived nine hundred and sixty-nine years, the longest we read of that ever any man lived on earth; and yet he died. The longest liver must die at last. Neither youth nor age will discharge from that war, for that is the end of all men: none can challenge life by long prescription, nor make that a plea against the arrests of death. It is commonly supposed that Methuselah died a little before the flood; the Jewish writers say, "seven days before," referring to Ge 7:10, and that he was taken away from the evil to come, which goes upon this presumption, which is generally received, that all the patriarchs mentioned in this chapter were holy good men. I am loth to offer any surmise to the contrary; and yet I see not that this can be any more inferred from their enrollment here among the ancestors of Christ than that all those kings of Judah were so whose names are recorded in his genealogy, many of whom, we are sure, were much otherwise: and, if this be questioned, it may be suggested as probable that Methuselah was himself drowned with the rest of the world; for it is certain that he died that year.
 
 ## Account of Noah. (b. c. 2448.)
 
-> <sup>28</sup> And Lamech lived a hundred eighty and two years, and begat a son:  
-> <sup>29</sup> And he called his name Noah, saying, This *same* shall comfort us concerning our work and toil of our hands, because of the ground which the LORD hath cursed.  
-> <sup>30</sup> And Lamech lived after he begat Noah five hundred ninety and five years, and begat sons and daughters:  
-> <sup>31</sup> And all the days of Lamech were seven hundred seventy and seven years: and he died.  
-> <sup>32</sup> And Noah was five hundred years old: and Noah begat Shem, Ham, and Japheth.  
+> **²⁸** And Lamech lived a hundred eighty and two years, and begat a son:  
+> **²⁹** And he called his name Noah, saying, This *same* shall comfort us concerning our work and toil of our hands, because of the ground which the LORD hath cursed.  
+> **³⁰** And Lamech lived after he begat Noah five hundred ninety and five years, and begat sons and daughters:  
+> **³¹** And all the days of Lamech were seven hundred seventy and seven years: and he died.  
+> **³²** And Noah was five hundred years old: and Noah begat Shem, Ham, and Japheth.  
 
 Here we have the first mention of Noah, of whom we shall read much in the following chapters. Observe,
 

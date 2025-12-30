@@ -8,16 +8,16 @@ Some ceremonial precepts there are in this chapter, but most of them are moral. 
 
 ## Ceremonial and Moral Laws. (b. c. 1490.)
 
-> <sup>1</sup> And the LORD spake unto Moses, saying,  
-> <sup>2</sup> Speak unto all the congregation of the children of Israel, and say unto them, Ye shall be holy: for I the LORD your God *am* holy.  
-> <sup>3</sup> Ye shall fear every man his mother, and his father, and keep my sabbaths: I *am* the LORD your God.  
-> <sup>4</sup> Turn ye not unto idols, nor make to yourselves molten gods: I *am* the LORD your God.  
-> <sup>5</sup> And if ye offer a sacrifice of peace offerings unto the LORD, ye shall offer it at your own will.  
-> <sup>6</sup> It shall be eaten the same day ye offer it, and on the morrow: and if ought remain until the third day, it shall be burnt in the fire.  
-> <sup>7</sup> And if it be eaten at all on the third day, it *is* abominable; it shall not be accepted.  
-> <sup>8</sup> Therefore *every one* that eateth it shall bear his iniquity, because he hath profaned the hallowed thing of the LORD: and that soul shall be cut off from among his people.  
-> <sup>9</sup> And when ye reap the harvest of your land, thou shalt not wholly reap the corners of thy field, neither shalt thou gather the gleanings of thy harvest.  
-> <sup>10</sup> And thou shalt not glean thy vineyard, neither shalt thou gather *every* grape of thy vineyard; thou shalt leave them for the poor and stranger: I *am* the LORD your God.  
+> **¹** And the LORD spake unto Moses, saying,  
+> **²** Speak unto all the congregation of the children of Israel, and say unto them, Ye shall be holy: for I the LORD your God *am* holy.  
+> **³** Ye shall fear every man his mother, and his father, and keep my sabbaths: I *am* the LORD your God.  
+> **⁴** Turn ye not unto idols, nor make to yourselves molten gods: I *am* the LORD your God.  
+> **⁵** And if ye offer a sacrifice of peace offerings unto the LORD, ye shall offer it at your own will.  
+> **⁶** It shall be eaten the same day ye offer it, and on the morrow: and if ought remain until the third day, it shall be burnt in the fire.  
+> **⁷** And if it be eaten at all on the third day, it *is* abominable; it shall not be accepted.  
+> **⁸** Therefore *every one* that eateth it shall bear his iniquity, because he hath profaned the hallowed thing of the LORD: and that soul shall be cut off from among his people.  
+> **⁹** And when ye reap the harvest of your land, thou shalt not wholly reap the corners of thy field, neither shalt thou gather the gleanings of thy harvest.  
+> **¹⁰** And thou shalt not glean thy vineyard, neither shalt thou gather *every* grape of thy vineyard; thou shalt leave them for the poor and stranger: I *am* the LORD your God.  
 
 Moses is ordered to deliver the summary of the laws *to all the congregation of the children of Israel* (Le 19:2); not to Aaron and his sons only, but to all the people, for they were all concerned to know their duty. Even in the darker ages of the law, that religion could not be of God which boasted of ignorance as its mother. Moses must make known God's statutes to all the congregation, and proclaim them through the camp. These laws, it is probable, he delivered himself to as many of the people as could be within hearing at once, and so by degrees at several times to them all. Many of the precepts here given they had received before, but it was requisite that they should be repeated, that they might be remembered. Precept must be upon precept, and line upon line, and all little enough. In these verses,
 
@@ -31,14 +31,14 @@ IV\. That the sacrifices of their peace-offerings should always be offered, and 
 
 V\. That they should leave the gleanings of their harvest and vintage for the poor, Le 19:9,10. Note, Works of piety must be always attended with works of charity, according as our ability is. When they gathered in their corn, they must leave some standing in the corner of the field; the Jewish doctors say, "It should be a sixtieth part of the field;" and they must also leave the gleanings and the small clusters of their grapes, which at first were overlooked. This law, though not binding now in the letter of it, yet teaches us, 1. That we must not be covetous and griping, and greedy of every thing we can lay any claim to; nor insist upon our right in things small and trivial. 2. That we must be well pleased to see the poor supplied and refreshed with the fruit of our labours. We must not think every thing lost that goes beside ourselves, nor any thing wasted that goes to the poor. 3. That times of joy, such as harvest-time is, are proper times for charity; that, when we rejoice, the poor may rejoice with us, and when our hearts are blessing God their loins may bless us.
 
-> <sup>11</sup> Ye shall not steal, neither deal falsely, neither lie one to another.  
-> <sup>12</sup> And ye shall not swear by my name falsely, neither shalt thou profane the name of thy God: I *am* the LORD.  
-> <sup>13</sup> Thou shalt not defraud thy neighbour, neither rob *him*: the wages of him that is hired shall not abide with thee all night until the morning.  
-> <sup>14</sup> Thou shalt not curse the deaf, nor put a stumbling block before the blind, but shalt fear thy God: I *am* the LORD.  
-> <sup>15</sup> Ye shall do no unrighteousness in judgment: thou shalt not respect the person of the poor, nor honour the person of the mighty: *but* in righteousness shalt thou judge thy neighbour.  
-> <sup>16</sup> Thou shalt not go up and down *as* a talebearer among thy people: neither shalt thou stand against the blood of thy neighbour: I *am* the LORD.  
-> <sup>17</sup> Thou shalt not hate thy brother in thine heart: thou shalt in any wise rebuke thy neighbour, and not suffer sin upon him.  
-> <sup>18</sup> Thou shalt not avenge, nor bear any grudge against the children of thy people, but thou shalt love thy neighbour as thyself: I *am* the LORD.  
+> **¹¹** Ye shall not steal, neither deal falsely, neither lie one to another.  
+> **¹²** And ye shall not swear by my name falsely, neither shalt thou profane the name of thy God: I *am* the LORD.  
+> **¹³** Thou shalt not defraud thy neighbour, neither rob *him*: the wages of him that is hired shall not abide with thee all night until the morning.  
+> **¹⁴** Thou shalt not curse the deaf, nor put a stumbling block before the blind, but shalt fear thy God: I *am* the LORD.  
+> **¹⁵** Ye shall do no unrighteousness in judgment: thou shalt not respect the person of the poor, nor honour the person of the mighty: *but* in righteousness shalt thou judge thy neighbour.  
+> **¹⁶** Thou shalt not go up and down *as* a talebearer among thy people: neither shalt thou stand against the blood of thy neighbour: I *am* the LORD.  
+> **¹⁷** Thou shalt not hate thy brother in thine heart: thou shalt in any wise rebuke thy neighbour, and not suffer sin upon him.  
+> **¹⁸** Thou shalt not avenge, nor bear any grudge against the children of thy people, but thou shalt love thy neighbour as thyself: I *am* the LORD.  
 
 We are taught here,
 
@@ -58,17 +58,17 @@ VII\. We are commanded to rebuke our neighbour in love (Le 19:17): *Thou shalt i
 
 VIII\. We are here required to put off all malice, and to put on brotherly love, Le 19:18. 1. We must be ill-affected to none: *Thou shalt not avenge, nor bear any grudge;* to the same purport with that Le 19:17, *Thou shalt not hate thy brother in thy heart;* for malice is murder begun. If our brother has done us an injury, we must not return it upon him, that is avenging; we must not upon every occasion upbraid him with it, that is bearing a grudge; but we must both forgive it and forget it, for thus we are forgiven of God. It is a most ill-natured thing, and the bane of friendship, to retain the resentment of affronts and injuries, and to let that *word devour for ever.* 2. We must be well-affected to all: *Thou shalt love thy neighbour as thyself.* We often wrong ourselves, but we soon forgive ourselves those wrongs, and they do not at all lessen our love to ourselves; and in like manner we should love our neighbour. Our Saviour has made this the second great commandment of the law (Mt 22:39), and the apostle shows how it is the summary of all the laws of the second table, Ro 13:9,10, Ga 5:14. We must love our neighbour as truly as we love ourselves, and without dissimulation; we must evidence our love to our neighbour in the same way as that by which we evidence our love to ourselves, preventing his hurt, and procuring his good, to the utmost of our power. We must do to our neighbour as we would be done to ourselves (Mt 7:12), putting *our souls into his soul's stead,* Job 16:4,5. Nay, we must in many cases deny ourselves for the good of our neighbour, as Paul, 1Co 9:19, etc. Herein the gospel goes beyond even that excellent precept of the law; for Christ, by laying down his life for us, has taught us even to *lay down our lives for the brethren,* in some cases (1Jo 3:16), and so to love our neighbour better than ourselves.
 
-> <sup>19</sup> Ye shall keep my statutes. Thou shalt not let thy cattle gender with a diverse kind: thou shalt not sow thy field with mingled seed: neither shall a garment mingled of linen and woollen come upon thee.  
-> <sup>20</sup> And whosoever lieth carnally with a woman, that *is* a bondmaid, betrothed to an husband, and not at all redeemed, nor freedom given her; she shall be scourged; they shall not be put to death, because she was not free.  
-> <sup>21</sup> And he shall bring his trespass offering unto the LORD, unto the door of the tabernacle of the congregation, *even* a ram for a trespass offering.  
-> <sup>22</sup> And the priest shall make an atonement for him with the ram of the trespass offering before the LORD for his sin which he hath done: and the sin which he hath done shall be forgiven him.  
-> <sup>23</sup> And when ye shall come into the land, and shall have planted all manner of trees for food, then ye shall count the fruit thereof as uncircumcised: three years shall it be as uncircumcised unto you: it shall not be eaten of.  
-> <sup>24</sup> But in the fourth year all the fruit thereof shall be holy to praise the LORD *withal.*  
-> <sup>25</sup> And in the fifth year shall ye eat of the fruit thereof, that it may yield unto you the increase thereof: I *am* the LORD your God.  
-> <sup>26</sup> Ye shall not eat *any thing* with the blood: neither shall ye use enchantment, nor observe times.  
-> <sup>27</sup> Ye shall not round the corners of your heads, neither shalt thou mar the corners of thy beard.  
-> <sup>28</sup> Ye shall not make any cuttings in your flesh for the dead, nor print any marks upon you: I *am* the LORD.  
-> <sup>29</sup> Do not prostitute thy daughter, to cause her to be a whore; lest the land fall to whoredom, and the land become full of wickedness.  
+> **¹⁹** Ye shall keep my statutes. Thou shalt not let thy cattle gender with a diverse kind: thou shalt not sow thy field with mingled seed: neither shall a garment mingled of linen and woollen come upon thee.  
+> **²⁰** And whosoever lieth carnally with a woman, that *is* a bondmaid, betrothed to an husband, and not at all redeemed, nor freedom given her; she shall be scourged; they shall not be put to death, because she was not free.  
+> **²¹** And he shall bring his trespass offering unto the LORD, unto the door of the tabernacle of the congregation, *even* a ram for a trespass offering.  
+> **²²** And the priest shall make an atonement for him with the ram of the trespass offering before the LORD for his sin which he hath done: and the sin which he hath done shall be forgiven him.  
+> **²³** And when ye shall come into the land, and shall have planted all manner of trees for food, then ye shall count the fruit thereof as uncircumcised: three years shall it be as uncircumcised unto you: it shall not be eaten of.  
+> **²⁴** But in the fourth year all the fruit thereof shall be holy to praise the LORD *withal.*  
+> **²⁵** And in the fifth year shall ye eat of the fruit thereof, that it may yield unto you the increase thereof: I *am* the LORD your God.  
+> **²⁶** Ye shall not eat *any thing* with the blood: neither shall ye use enchantment, nor observe times.  
+> **²⁷** Ye shall not round the corners of your heads, neither shalt thou mar the corners of thy beard.  
+> **²⁸** Ye shall not make any cuttings in your flesh for the dead, nor print any marks upon you: I *am* the LORD.  
+> **²⁹** Do not prostitute thy daughter, to cause her to be a whore; lest the land fall to whoredom, and the land become full of wickedness.  
 
 Here is, I. A law against mixtures, Le 19:19. God in the beginning made the cattle *after their kind* (Ge 1:25), and we must acquiesce in the order of nature God hath established, believing that is best and sufficient, and not covet monsters. *Add thou not unto his works, lest he reprove thee;* for it is the excellency of the work of God that nothing can, without making it worse, be either put to it or taken from it, Ec 3:14. As what God has joined we must not separate, so what he has separated we must not join. The sowing of mingled corn and the wearing of linsey-woolsey garments are forbidden, either as superstitious customs of the heathen or to intimate how careful they should be not to mingle themselves with the heathen nor to weave any of the usages of the Gentiles into God's ordinances. Ainsworth suggests that it was to lead Israel to the simplicity and sincerity of religion, and to all the parts and doctrines of the law and gospel in their distinct kinds. As faith is necessary, good works are necessary, but to mingle these together in the cause of our justification before God is forbidden, Ga 2:16.
 
@@ -80,14 +80,14 @@ IV\. A law against the superstitious usages of the heathen, Le 19:26-28. 1. Eati
 
 ## Moral Laws. (b. c. 1490.)
 
-> <sup>30</sup> Ye shall keep my sabbaths, and reverence my sanctuary: I *am* the LORD.  
-> <sup>31</sup> Regard not them that have familiar spirits, neither seek after wizards, to be defiled by them: I *am* the LORD your God.  
-> <sup>32</sup> Thou shalt rise up before the hoary head, and honour the face of the old man, and fear thy God: I *am* the LORD.  
-> <sup>33</sup> And if a stranger sojourn with thee in your land, ye shall not vex him.  
-> <sup>34</sup> *But* the stranger that dwelleth with you shall be unto you as one born among you, and thou shalt love him as thyself; for ye were strangers in the land of Egypt: I *am* the LORD your God.  
-> <sup>35</sup> Ye shall do no unrighteousness in judgment, in meteyard, in weight, or in measure.  
-> <sup>36</sup> Just balances, just weights, a just ephah, and a just hin, shall ye have: I *am* the LORD your God, which brought you out of the land of Egypt.  
-> <sup>37</sup> Therefore shall ye observe all my statutes, and all my judgments, and do them: I *am* the LORD.  
+> **³⁰** Ye shall keep my sabbaths, and reverence my sanctuary: I *am* the LORD.  
+> **³¹** Regard not them that have familiar spirits, neither seek after wizards, to be defiled by them: I *am* the LORD your God.  
+> **³²** Thou shalt rise up before the hoary head, and honour the face of the old man, and fear thy God: I *am* the LORD.  
+> **³³** And if a stranger sojourn with thee in your land, ye shall not vex him.  
+> **³⁴** *But* the stranger that dwelleth with you shall be unto you as one born among you, and thou shalt love him as thyself; for ye were strangers in the land of Egypt: I *am* the LORD your God.  
+> **³⁵** Ye shall do no unrighteousness in judgment, in meteyard, in weight, or in measure.  
+> **³⁶** Just balances, just weights, a just ephah, and a just hin, shall ye have: I *am* the LORD your God, which brought you out of the land of Egypt.  
+> **³⁷** Therefore shall ye observe all my statutes, and all my judgments, and do them: I *am* the LORD.  
 
 Here is, I. A law for the preserving of the honour of the time and place appropriated to the service of God, Le 19:30. This would be a means to secure them both from the idolatries and superstitions of the heathen and from all immoralities in conversation. 1. Sabbaths must be religiously observed, and not those times mentioned (Le 19:26) to which the heathen had a superstitious regard. 2. The sanctuary must be reverenced: great care must be taken to approach the tabernacle with that purity and preparation which the law required, and to attend there with that humility, decency, and closeness of application which became them in the immediate presence of such an awful majesty. Though now there is no place holy by divine institution, as the tabernacle and temple then were, yet this law obliges us to respect the solemn assemblies of Christians for religious worship, as being held under a promise of Christ's special presence in them, and to carry ourselves with a due decorum while in those assemblies we attend the administration of holy ordinances, Ec 5:1.
 

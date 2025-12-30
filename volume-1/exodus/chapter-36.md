@@ -8,13 +8,13 @@ In this chapter, I. The work of the tabernacle is begun, Ex 36:1-4. II. A stop i
 
 ## Appointment of Bezaleel and Aholiab. (b. c. 1491.)
 
-> <sup>1</sup> Then wrought Bezaleel and Aholiab, and every wise hearted man, in whom the LORD put wisdom and understanding to know how to work all manner of work for the service of the sanctuary, according to all that the LORD had commanded.  
-> <sup>2</sup> And Moses called Bezaleel and Aholiab, and every wise hearted man, in whose heart the LORD had put wisdom, *even* every one whose heart stirred him up to come unto the work to do it:  
-> <sup>3</sup> And they received of Moses all the offering, which the children of Israel had brought for the work of the service of the sanctuary, to make it *withal.* And they brought yet unto him free offerings every morning.  
-> <sup>4</sup> And all the wise men, that wrought all the work of the sanctuary, came every man from his work which they made;  
-> <sup>5</sup> And they spake unto Moses, saying, The people bring much more than enough for the service of the work, which the LORD commanded to make.  
-> <sup>6</sup> And Moses gave commandment, and they caused it to be proclaimed throughout the camp, saying, Let neither man nor woman make any more work for the offering of the sanctuary. So the people were restrained from bringing.  
-> <sup>7</sup> For the stuff they had was sufficient for all the work to make it, and too much.  
+> **¹** Then wrought Bezaleel and Aholiab, and every wise hearted man, in whom the LORD put wisdom and understanding to know how to work all manner of work for the service of the sanctuary, according to all that the LORD had commanded.  
+> **²** And Moses called Bezaleel and Aholiab, and every wise hearted man, in whose heart the LORD had put wisdom, *even* every one whose heart stirred him up to come unto the work to do it:  
+> **³** And they received of Moses all the offering, which the children of Israel had brought for the work of the service of the sanctuary, to make it *withal.* And they brought yet unto him free offerings every morning.  
+> **⁴** And all the wise men, that wrought all the work of the sanctuary, came every man from his work which they made;  
+> **⁵** And they spake unto Moses, saying, The people bring much more than enough for the service of the work, which the LORD commanded to make.  
+> **⁶** And Moses gave commandment, and they caused it to be proclaimed throughout the camp, saying, Let neither man nor woman make any more work for the offering of the sanctuary. So the people were restrained from bringing.  
+> **⁷** For the stuff they had was sufficient for all the work to make it, and too much.  
 
 I\. The workmen set in without delay. Then they wrought, Ex 36:1. When God had qualified them for the work, then they applied themselves to it. Note, The talents we are entrusted with must not be laid up, but laid out; not hid in a napkin, but traded with. What have we all our gifts for, but to do good with them? They began when Moses called them, Ex 36:2. Even those whom God has qualified for, and inclined to, the service of the tabernacle, yet must wait for a regular call to it, either extraordinary, as that of prophets and apostles, or ordinary, as that of pastors and teachers. And observe who they were that Moses called: Those *in whose heart God had put wisdom* for this purpose, beyond their natural capacity, and *whose heart stirred them up to come to the work* in good earnest. Note, Those are to be called to the building of the gospel tabernacle whom God has by his grace made in some measure fit for the work and free to engage in it. Ability and willingness (with resolution) are the two things to be regarded in the call of ministers. Has God given them not only knowledge, but wisdom? (for those that would win souls must be wise, and have their hearts stirred up to come to the work, and not to the honour only; to do it, and not to talk of it only), let them come to it with full purpose of heart to go through with it. The materials which the people had contributed were delivered by Moses to the workmen, Ex 36:3. They could not create a tabernacle, that is, make it out of nothing, nor work, unless they had something to work upon; the people therefore brought the materials and Moses put them into their hands. Precious souls are the materials of the gospel tabernacle; they are *built up a spiritual house,* 1Pe 2:5. To this end they are to offer themselves a free-will offering to the Lord, for his service (Ro 15:16), and they are then committed to the care of his ministers, as builders, to be framed and wrought upon by their edification and increase in holiness, till they all come, like the curtains of the tabernacle, *in the unity of the faith, to be a holy temple,* Eph 2:21,22,4:12,13.
 
@@ -22,43 +22,43 @@ II\. The contributions restrained. The people continued to bring *free offerings
 
 ## Construction of the Tabernacle. (b. c. 1491.)
 
-> <sup>8</sup> And every wise hearted man among them that wrought the work of the tabernacle made ten curtains *of* fine twined linen, and blue, and purple, and scarlet: *with* cherubims of cunning work made he them.  
-> <sup>9</sup> The length of one curtain *was* twenty and eight cubits, and the breadth of one curtain four cubits: the curtains *were* all of one size.  
-> <sup>10</sup> And he coupled the five curtains one unto another: and *the other* five curtains he coupled one unto another.  
-> <sup>11</sup> And he made loops of blue on the edge of one curtain from the selvedge in the coupling: likewise he made in the uttermost side of *another* curtain, in the coupling of the second.  
-> <sup>12</sup> Fifty loops made he in one curtain, and fifty loops made he in the edge of the curtain which *was* in the coupling of the second: the loops held one *curtain* to another.  
-> <sup>13</sup> And he made fifty taches of gold, and coupled the curtains one unto another with the taches: so it became one tabernacle.  
+> **⁸** And every wise hearted man among them that wrought the work of the tabernacle made ten curtains *of* fine twined linen, and blue, and purple, and scarlet: *with* cherubims of cunning work made he them.  
+> **⁹** The length of one curtain *was* twenty and eight cubits, and the breadth of one curtain four cubits: the curtains *were* all of one size.  
+> **¹⁰** And he coupled the five curtains one unto another: and *the other* five curtains he coupled one unto another.  
+> **¹¹** And he made loops of blue on the edge of one curtain from the selvedge in the coupling: likewise he made in the uttermost side of *another* curtain, in the coupling of the second.  
+> **¹²** Fifty loops made he in one curtain, and fifty loops made he in the edge of the curtain which *was* in the coupling of the second: the loops held one *curtain* to another.  
+> **¹³** And he made fifty taches of gold, and coupled the curtains one unto another with the taches: so it became one tabernacle.  
 
 The first work they set about was the framing of the house, which must be done before the furniture of it was prepared. This house was not made of timber or stone, but of curtains curiously embroidered and coupled together. This served to typify the state of the church in this world, the palace of God's kingdom among men. 1. Though it is upon the earth, yet its foundation is not in the earth, as that of a house is; no, Christ's kingdom is not of this world, nor founded in it. 2. It is mean and mutable, and in a militant state; shepherds dwelt in tents, and God is the Shepherd of Israel; soldiers dwelt in tents, and the Lord is a man of war, and his church marches through an enemy's country, and must fight its way. The kings of the earth enclose themselves in cedar (Jer 22:15), but the ark of God was lodged in curtains only. 3. Yet there is a beauty in holiness; the curtains were embroidered, so is the church adorned with the gifts and graces of the Spirit, that *raiment of needle-work,* Ps 45:14. 4. The several societies of believers are united in one, and, as here, all *become one tabernacle; for there is one Lord, one faith, and one baptism.*
 
-> <sup>14</sup> And he made curtains *of* goats' *hair* for the tent over the tabernacle: eleven curtains he made them.  
-> <sup>15</sup> The length of one curtain *was* thirty cubits, and four cubits *was* the breadth of one curtain: the eleven curtains *were* of one size.  
-> <sup>16</sup> And he coupled five curtains by themselves, and six curtains by themselves.  
-> <sup>17</sup> And he made fifty loops upon the uttermost edge of the curtain in the coupling, and fifty loops made he upon the edge of the curtain which coupleth the second.  
-> <sup>18</sup> And he made fifty taches *of* brass to couple the tent together, that it might be one.  
-> <sup>19</sup> And he made a covering for the tent *of* rams' skins dyed red, and a covering *of* badgers' skins above *that.*  
-> <sup>20</sup> And he made boards for the tabernacle *of* shittim wood, standing up.  
-> <sup>21</sup> The length of a board *was* ten cubits, and the breadth of a board one cubit and a half.  
-> <sup>22</sup> One board had two tenons, equally distant one from another: thus did he make for all the boards of the tabernacle.  
-> <sup>23</sup> And he made boards for the tabernacle; twenty boards for the south side southward:  
-> <sup>24</sup> And forty sockets of silver he made under the twenty boards; two sockets under one board for his two tenons, and two sockets under another board for his two tenons.  
-> <sup>25</sup> And for the other side of the tabernacle, *which is* toward the north corner, he made twenty boards,  
-> <sup>26</sup> And their forty sockets of silver; two sockets under one board, and two sockets under another board.  
-> <sup>27</sup> And for the sides of the tabernacle westward he made six boards.  
-> <sup>28</sup> And two boards made he for the corners of the tabernacle in the two sides.  
-> <sup>29</sup> And they were coupled beneath, and coupled together at the head thereof, to one ring: thus he did to both of them in both the corners.  
-> <sup>30</sup> And there were eight boards; and their sockets *were* sixteen sockets of silver, under every board two sockets.  
-> <sup>31</sup> And he made bars of shittim wood; five for the boards of the one side of the tabernacle,  
-> <sup>32</sup> And five bars for the boards of the other side of the tabernacle, and five bars for the boards of the tabernacle for the sides westward.  
-> <sup>33</sup> And he made the middle bar to shoot through the boards from the one end to the other.  
-> <sup>34</sup> And he overlaid the boards with gold, and made their rings *of* gold *to be* places for the bars, and overlaid the bars with gold.  
+> **¹⁴** And he made curtains *of* goats' *hair* for the tent over the tabernacle: eleven curtains he made them.  
+> **¹⁵** The length of one curtain *was* thirty cubits, and four cubits *was* the breadth of one curtain: the eleven curtains *were* of one size.  
+> **¹⁶** And he coupled five curtains by themselves, and six curtains by themselves.  
+> **¹⁷** And he made fifty loops upon the uttermost edge of the curtain in the coupling, and fifty loops made he upon the edge of the curtain which coupleth the second.  
+> **¹⁸** And he made fifty taches *of* brass to couple the tent together, that it might be one.  
+> **¹⁹** And he made a covering for the tent *of* rams' skins dyed red, and a covering *of* badgers' skins above *that.*  
+> **²⁰** And he made boards for the tabernacle *of* shittim wood, standing up.  
+> **²¹** The length of a board *was* ten cubits, and the breadth of a board one cubit and a half.  
+> **²²** One board had two tenons, equally distant one from another: thus did he make for all the boards of the tabernacle.  
+> **²³** And he made boards for the tabernacle; twenty boards for the south side southward:  
+> **²⁴** And forty sockets of silver he made under the twenty boards; two sockets under one board for his two tenons, and two sockets under another board for his two tenons.  
+> **²⁵** And for the other side of the tabernacle, *which is* toward the north corner, he made twenty boards,  
+> **²⁶** And their forty sockets of silver; two sockets under one board, and two sockets under another board.  
+> **²⁷** And for the sides of the tabernacle westward he made six boards.  
+> **²⁸** And two boards made he for the corners of the tabernacle in the two sides.  
+> **²⁹** And they were coupled beneath, and coupled together at the head thereof, to one ring: thus he did to both of them in both the corners.  
+> **³⁰** And there were eight boards; and their sockets *were* sixteen sockets of silver, under every board two sockets.  
+> **³¹** And he made bars of shittim wood; five for the boards of the one side of the tabernacle,  
+> **³²** And five bars for the boards of the other side of the tabernacle, and five bars for the boards of the tabernacle for the sides westward.  
+> **³³** And he made the middle bar to shoot through the boards from the one end to the other.  
+> **³⁴** And he overlaid the boards with gold, and made their rings *of* gold *to be* places for the bars, and overlaid the bars with gold.  
 
 Here, 1. The shelter and special protection that the church is under are signified by the curtains of hair-cloth, which were spread over the tabernacle, and the covering of rams' skins and badgers' skins over them, Ex 36:14-19. God has provided for his people a *shadow from the heat, and a covert from storm and rain,* Isa 4:6. They are armed against all weathers; the sun and the moon shall not smite them: and they are protected from the storms of divine wrath, that hail which will *sweep away the refuge of lies,* Isa 28:17. Those that dwell in God's house shall find, be the tempest ever so violent, or the dropping ever so continual, it does not rain in. 2. The strength and stability of the church, though it is but a tabernacle, are signified by the boards and bars with which the curtains were borne up, Ex 36:20-34. The boards were coupled together and joined by the bars which shot through them; for the union of the church, and the hearty agreement of those that are its stays and supporters, contribute abundantly to its strength and establishment.
 
-> <sup>35</sup> And he made a vail *of* blue, and purple, and scarlet, and fine twined linen: *with* cherubims made he it of cunning work.  
-> <sup>36</sup> And he made thereunto four pillars *of* shittim *wood,* and overlaid them with gold: their hooks *were of* gold; and he cast for them four sockets of silver.  
-> <sup>37</sup> And he made an hanging for the tabernacle door *of* blue, and purple, and scarlet, and fine twined linen, of needlework;  
-> <sup>38</sup> And the five pillars of it with their hooks: and he overlaid their chapiters and their fillets with gold: but their five sockets *were of* brass.  
+> **³⁵** And he made a vail *of* blue, and purple, and scarlet, and fine twined linen: *with* cherubims made he it of cunning work.  
+> **³⁶** And he made thereunto four pillars *of* shittim *wood,* and overlaid them with gold: their hooks *were of* gold; and he cast for them four sockets of silver.  
+> **³⁷** And he made an hanging for the tabernacle door *of* blue, and purple, and scarlet, and fine twined linen, of needlework;  
+> **³⁸** And the five pillars of it with their hooks: and he overlaid their chapiters and their fillets with gold: but their five sockets *were of* brass.  
 
 In the building of a house there is a great deal of work about the doors and partitions. In the tabernacle these were answerable to the rest of the fabric; there were curtains for doors, and veils for partitions. 1. There was a veil made for a partition between the holy place, and the most holy, Ex 36:35,36. This signified the darkness and distance of that dispensation, compared with the New Testament, which shows us the glory of God more clearly and invites us to draw near to it; and the darkness and distance of our present state, in comparison with heaven, where we shall be *ever with the Lord* and *see him as he is.* 2. There was a veil made for the door of the tabernacle, Ex 36:37,38. At this door the people assembled, though forbidden to enter; for, while we are in this present state, we must get as near to God as we can.
 

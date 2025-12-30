@@ -10,9 +10,9 @@ As the foregoing psalm, in the type of David in preferment, showed us the royal 
 
 A psalm of David, when he fled from Absalom his son.
 
-> <sup>1</sup> LORD, how are they increased that trouble me! many *are* they that rise up against me.  
-> <sup>2</sup> Many *there be* which say of my soul, *There is* no help for him in God. Selah.  
-> <sup>3</sup> But thou, O LORD, *art* a shield for me; my glory, and the lifter up of mine head.  
+> **¹** LORD, how are they increased that trouble me! many *are* they that rise up against me.  
+> **²** Many *there be* which say of my soul, *There is* no help for him in God. Selah.  
+> **³** But thou, O LORD, *art* a shield for me; my glory, and the lifter up of mine head.  
 
 The title of this psalm and many others is as a key hung ready at the door, to open it, and let us into the entertainments of it; when we know upon what occasion a psalm was penned we know the better how to expound it. This was composed, or at least the substance of it was meditated and digested in David's thought, and offered up to God, when he fled from Absalom his son, who formed a conspiracy against him, to take away, not his crown only, but his life; we have the story, 2Sa 15:1-16:14, etc. 1. David was now in great grief; when, in his flight, he went up the Mount of Olives, he wept greatly, with his head covered, and marching bare-foot; yet *then* he composed this comfortable psalm. He wept and prayed, wept and sung, wept and believed; this was sowing in tears. Is any afflicted? Let him pray; nay, let him sing psalms, let him sing this psalm. Is any afflicted with undutiful disobedient children? David was; and yet that did not hinder his joy in God, nor put him out of tune for holy songs. 2. He was now in great danger; the plot against him was laid deep, the party that sought his ruin was very formidable, and his own son at the head of them, so that his affairs seemed to be at the last extremity; yet *then* he kept hold of his interest in God and improved that. Perils and frights should drive us to God, not drive us from him. 3. He had now a great deal of provocation given him by those from whom he had reason to expect better things, from his son, whom he had been indulgent of, from his subjects, whom he had been so great a blessing to; this he could not but resent, and it was enough to break in upon any man's temper; yet he was so far from any indecent expressions of passion and indignation that he had calmness enough for those acts of devotion which require the greatest fixedness and freedom of thought. The sedateness of his mind was evinced by the Spirit's coming upon him; for the Spirit chooses to move upon the still waters. Let no unkindness, no, not of a child or a friend, ever be laid so much to heart as to disfit us for communion with God. 4. He was now suffering for his sin in the matter of Uriah; this was the evil which, for that sin, God threatened to *raise up against him out of his own house* (2Sa 12:11), which, no doubt, he observed, and took occasion thence to renew his repentance for it. Yet he did not *therefore* cast away his confidence in the divine power and goodness, nor despair of succour. Even our sorrow for sin must not hinder either our joy in God or our hope in God. 5. He seemed cowardly in fleeing from Absalom, and quitting his royal city, before he had had one struggle for it; and yet, by this psalm, it appears he was full of true courage arising from his faith in God. True Christian fortitude consists more in a gracious security and serenity of mind, in patiently bearing and patiently waiting, than in daring enterprises with sword in hand.
 
@@ -26,11 +26,11 @@ In singing this, and praying it over, we should possess ourselves with an appreh
 
 ## Confidence in God.
 
-> <sup>4</sup> I cried unto the LORD with my voice, and he heard me out of his holy hill. Selah.  
-> <sup>5</sup> I laid me down and slept; I awaked; for the LORD sustained me.  
-> <sup>6</sup> I will not be afraid of ten thousands of people, that have set *themselves* against me round about.  
-> <sup>7</sup> Arise, O LORD; save me, O my God: for thou hast smitten all mine enemies *upon* the cheek bone; thou hast broken the teeth of the ungodly.  
-> <sup>8</sup> Salvation *belongeth* unto the LORD: thy blessing *is* upon thy people. Selah.  
+> **⁴** I cried unto the LORD with my voice, and he heard me out of his holy hill. Selah.  
+> **⁵** I laid me down and slept; I awaked; for the LORD sustained me.  
+> **⁶** I will not be afraid of ten thousands of people, that have set *themselves* against me round about.  
+> **⁷** Arise, O LORD; save me, O my God: for thou hast smitten all mine enemies *upon* the cheek bone; thou hast broken the teeth of the ungodly.  
+> **⁸** Salvation *belongeth* unto the LORD: thy blessing *is* upon thy people. Selah.  
 
 David, having stirred up himself by the irritations of his enemies to take hold on God as his God, and so gained comfort in looking upward when, if he looked round about him, nothing appeared but what was discouraging, here looks back with pleasing reflections upon the benefit he had derived from trusting in God and looks forward with pleasing expectations of a very bright and happy issue to which the dark dispensation he was now under would shortly be brought.
 

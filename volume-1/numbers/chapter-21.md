@@ -8,20 +8,20 @@ The armies of Israel now begin to emerge out of the wilderness, and to come into
 
 ## Arad Subdued. (b. c. 1452.)
 
-> <sup>1</sup> And *when* king Arad the Canaanite, which dwelt in the south, heard tell that Israel came by the way of the spies; then he fought against Israel, and took *some* of them prisoners.  
-> <sup>2</sup> And Israel vowed a vow unto the LORD, and said, If thou wilt indeed deliver this people into my hand, then I will utterly destroy their cities.  
-> <sup>3</sup> And the LORD hearkened to the voice of Israel, and delivered up the Canaanites; and they utterly destroyed them and their cities: and he called the name of the place Hormah.  
+> **¹** And *when* king Arad the Canaanite, which dwelt in the south, heard tell that Israel came by the way of the spies; then he fought against Israel, and took *some* of them prisoners.  
+> **²** And Israel vowed a vow unto the LORD, and said, If thou wilt indeed deliver this people into my hand, then I will utterly destroy their cities.  
+> **³** And the LORD hearkened to the voice of Israel, and delivered up the Canaanites; and they utterly destroyed them and their cities: and he called the name of the place Hormah.  
 
 Here is, 1. The descent which Arad the Canaanite made upon the camp of Israel, hearing that they came *by the way of the spies;* for, though the spies which Moses had sent thirty-eight years before then passed and repassed unobserved, yet their coming, and their errand, it is likely, were afterwards known to the Canaanites, gave them an alarm, and induced them to keep an eye upon Israel and get intelligence of all their motions. Now, when they understood that they were facing about towards Canaan, this Arad, thinking it policy to keep the war at a distance, made an onset upon them and fought with them. But it proved that he meddled to his own hurt; had he sat still, his people might have been last destroyed of all the Canaanites, but now they were the first. Thus those that are *overmuch wicked die before their time,* Ec 7:17. 2. His success at first in this attempt. His advance-guards picked up some straggling Israelites, and took them prisoners, Nu 21:1. This, no doubt, puffed him up, and he began to think that he should have the honour of crushing this formidable body, and saving his country from the ruin which it threatened. It was likewise a trial to the faith of the Israelites and a check to them for their distrusts and discontents. 3. Israel's humble address to God upon this occasion, Nu 21:2. It was a temptation to them to murmur as their fathers did, and to despair of getting possession of Canaan; but God, who thus tried them by his providence, enabled them by his grace to quit themselves well in the trial, and to trust in him for relief against this fierce and powerful assailant. They, by their elders, in prayer for success, *vowed a vow.* Note, When we are desiring and expecting mercy from God we should bind our souls with a bond that we will faithfully do our duty to him, particularly that we will honour him with the mercy we are in the pursuit of. Thus Israel here promised to destroy the cities of these Canaanites, as devoted to God, and not to take the spoil of them to their own use. If God would give them victory, he should have all the praise, and they would not make a gain of it to themselves. When we are in this frame we are prepared to receive mercy. 4. The victory which the Israelites obtained over the Canaanites, Nu 21:3. A strong party was sent out, probably under the command of Joshua, which not only drove back these Canaanites, but followed them to their cities, which probably lay on the edge of the wilderness, and utterly destroyed them, and so returned to the camp. *Vincimur in prælie, sed non in bello—We lose a battle, but we finally triumph.* What is said of the tribe of God is true of all God's Israel, a troop may overcome them, but they shall overcome at the last. The place was called *Hormah,* as a memorial of the destruction, for the terror of the Canaanites, and probably for warning to posterity not to attempt the rebuilding of these cities, which were destroyed as devoted to God and sacrifices to divine justice. And it appears from the instance of Jericho that the law concerning such cities was that they should never be rebuilt. There seems to be an allusion to this name in the prophecy of the fall of the New Testament Babylon (Re 16:16), where its forces are said to be gathered together to a place called *Armageddon—the destruction of a troop.*
 
 ## The Brazen Serpent. (b. c. 1452.)
 
-> <sup>4</sup> And they journeyed from mount Hor by the way of the Red sea, to compass the land of Edom: and the soul of the people was much discouraged because of the way.  
-> <sup>5</sup> And the people spake against God, and against Moses, Wherefore have ye brought us up out of Egypt to die in the wilderness? for *there is* no bread, neither *is there any* water; and our soul loatheth this light bread.  
-> <sup>6</sup> And the LORD sent fiery serpents among the people, and they bit the people; and much people of Israel died.  
-> <sup>7</sup> Therefore the people came to Moses, and said, We have sinned, for we have spoken against the LORD, and against thee; pray unto the LORD, that he take away the serpents from us. And Moses prayed for the people.  
-> <sup>8</sup> And the LORD said unto Moses, Make thee a fiery serpent, and set it upon a pole: and it shall come to pass, that every one that is bitten, when he looketh upon it, shall live.  
-> <sup>9</sup> And Moses made a serpent of brass, and put it upon a pole, and it came to pass, that if a serpent had bitten any man, when he beheld the serpent of brass, he lived.  
+> **⁴** And they journeyed from mount Hor by the way of the Red sea, to compass the land of Edom: and the soul of the people was much discouraged because of the way.  
+> **⁵** And the people spake against God, and against Moses, Wherefore have ye brought us up out of Egypt to die in the wilderness? for *there is* no bread, neither *is there any* water; and our soul loatheth this light bread.  
+> **⁶** And the LORD sent fiery serpents among the people, and they bit the people; and much people of Israel died.  
+> **⁷** Therefore the people came to Moses, and said, We have sinned, for we have spoken against the LORD, and against thee; pray unto the LORD, that he take away the serpents from us. And Moses prayed for the people.  
+> **⁸** And the LORD said unto Moses, Make thee a fiery serpent, and set it upon a pole: and it shall come to pass, that every one that is bitten, when he looketh upon it, shall live.  
+> **⁹** And Moses made a serpent of brass, and put it upon a pole, and it came to pass, that if a serpent had bitten any man, when he beheld the serpent of brass, he lived.  
 
 Here is, I. The fatigue of Israel by a long march round the land of Edom, because they could not obtain passage through it the nearest way: *The soul of the people was much discouraged because of the way,* Nu 21:4. Perhaps the way was rough and uneven, or foul and dirty; or it fretted them to go far about, and that they were not permitted to force their passage through the Edomites' country. Those that are of a fretful discontented spirit will always find something or other to make them uneasy.
 
@@ -41,17 +41,17 @@ V\. The wonderful provision which God made for their relief. He did not employ M
 
 ## The Removal of the Camp. (b. c. 1452.)
 
-> <sup>10</sup> And the children of Israel set forward, and pitched in Oboth.  
-> <sup>11</sup> And they journeyed from Oboth, and pitched at Ije-abarim, in the wilderness which *is* before Moab, toward the sunrising.  
-> <sup>12</sup> From thence they removed, and pitched in the valley of Zared.  
-> <sup>13</sup> From thence they removed, and pitched on the other side of Arnon, which *is* in the wilderness that cometh out of the coasts of the Amorites: for Arnon *is* the border of Moab, between Moab and the Amorites.  
-> <sup>14</sup> Wherefore it is said in the book of the wars of the LORD, What he did in the Red sea, and in the brooks of Arnon,  
-> <sup>15</sup> And at the stream of the brooks that goeth down to the dwelling of Ar, and lieth upon the border of Moab.  
-> <sup>16</sup> And from thence *they went* to Beer: that *is* the well whereof the LORD spake unto Moses, Gather the people together, and I will give them water.  
-> <sup>17</sup> Then Israel sang this song, Spring up, O well; sing ye unto it:  
-> <sup>18</sup> The princes digged the well, the nobles of the people digged it, by *the direction of* the lawgiver, with their staves. And from the wilderness *they went* to Mattanah:  
-> <sup>19</sup> And from Mattanah to Nahaliel: and from Nahaliel to Bamoth:  
-> <sup>20</sup> And from Bamoth *in* the valley, that *is* in the country of Moab, to the top of Pisgah, which looketh toward Jeshimon.  
+> **¹⁰** And the children of Israel set forward, and pitched in Oboth.  
+> **¹¹** And they journeyed from Oboth, and pitched at Ije-abarim, in the wilderness which *is* before Moab, toward the sunrising.  
+> **¹²** From thence they removed, and pitched in the valley of Zared.  
+> **¹³** From thence they removed, and pitched on the other side of Arnon, which *is* in the wilderness that cometh out of the coasts of the Amorites: for Arnon *is* the border of Moab, between Moab and the Amorites.  
+> **¹⁴** Wherefore it is said in the book of the wars of the LORD, What he did in the Red sea, and in the brooks of Arnon,  
+> **¹⁵** And at the stream of the brooks that goeth down to the dwelling of Ar, and lieth upon the border of Moab.  
+> **¹⁶** And from thence *they went* to Beer: that *is* the well whereof the LORD spake unto Moses, Gather the people together, and I will give them water.  
+> **¹⁷** Then Israel sang this song, Spring up, O well; sing ye unto it:  
+> **¹⁸** The princes digged the well, the nobles of the people digged it, by *the direction of* the lawgiver, with their staves. And from the wilderness *they went* to Mattanah:  
+> **¹⁹** And from Mattanah to Nahaliel: and from Nahaliel to Bamoth:  
+> **²⁰** And from Bamoth *in* the valley, that *is* in the country of Moab, to the top of Pisgah, which looketh toward Jeshimon.  
 
 We have here an account of the several stages and removals of the children of Israel, till they came into the plains of Moab, out of which they at length passed over Jordan into Canaan, as we read in the beginning of Joshua. Natural motions are quicker the nearer they are to their centre. The Israelites were now drawing near to the promised rest, and now they *set forward,* as the expression is, Nu 21:10. It were well if we would do thus in our way to heaven, rid ground in the latter end of our journey, and the nearer we come to heaven be so much the more active and abundant in the work of the Lord. Two things especially are observable in the brief account here given of these removals:—
 
@@ -61,21 +61,21 @@ We have here an account of the several stages and removals of the children of Is
 
 ## Sihon and Og Overthrown. (b. c. 1452.)
 
-> <sup>21</sup> And Israel sent messengers unto Sihon king of the Amorites, saying,  
-> <sup>22</sup> Let me pass through thy land: we will not turn into the fields, or into the vineyards; we will not drink *of* the waters of the well: *but* we will go along by the king's *high* way, until we be past thy borders.  
-> <sup>23</sup> And Sihon would not suffer Israel to pass through his border: but Sihon gathered all his people together, and went out against Israel into the wilderness: and he came to Jahaz, and fought against Israel.  
-> <sup>24</sup> And Israel smote him with the edge of the sword, and possessed his land from Arnon unto Jabbok, even unto the children of Ammon: for the border of the children of Ammon *was* strong.  
-> <sup>25</sup> And Israel took all these cities: and Israel dwelt in all the cities of the Amorites, in Heshbon, and in all the villages thereof.  
-> <sup>26</sup> For Heshbon *was* the city of Sihon the king of the Amorites, who had fought against the former king of Moab, and taken all his land out of his hand, even unto Arnon.  
-> <sup>27</sup> Wherefore they that speak in proverbs say, Come into Heshbon, let the city of Sihon be built and prepared:  
-> <sup>28</sup> For there is a fire gone out of Heshbon, a flame from the city of Sihon: it hath consumed Ar of Moab, *and* the lords of the high places of Arnon.  
-> <sup>29</sup> Woe to thee, Moab! thou art undone, O people of Chemosh: he hath given his sons that escaped, and his daughters, into captivity unto Sihon king of the Amorites.  
-> <sup>30</sup> We have shot at them; Heshbon is perished even unto Dibon, and we have laid them waste even unto Nophah, which *reacheth* unto Medeba.  
-> <sup>31</sup> Thus Israel dwelt in the land of the Amorites.  
-> <sup>32</sup> And Moses sent to spy out Jaazer, and they took the villages thereof, and drove out the Amorites that *were* there.  
-> <sup>33</sup> And they turned and went up by the way of Bashan: and Og the king of Bashan went out against them, he, and all his people, to the battle at Edrei.  
-> <sup>34</sup> And the LORD said unto Moses, Fear him not: for I have delivered him into thy hand, and all his people, and his land; and thou shalt do to him as thou didst unto Sihon king of the Amorites, which dwelt at Heshbon.  
-> <sup>35</sup> So they smote him, and his sons, and all his people, until there was none left him alive: and they possessed his land.  
+> **²¹** And Israel sent messengers unto Sihon king of the Amorites, saying,  
+> **²²** Let me pass through thy land: we will not turn into the fields, or into the vineyards; we will not drink *of* the waters of the well: *but* we will go along by the king's *high* way, until we be past thy borders.  
+> **²³** And Sihon would not suffer Israel to pass through his border: but Sihon gathered all his people together, and went out against Israel into the wilderness: and he came to Jahaz, and fought against Israel.  
+> **²⁴** And Israel smote him with the edge of the sword, and possessed his land from Arnon unto Jabbok, even unto the children of Ammon: for the border of the children of Ammon *was* strong.  
+> **²⁵** And Israel took all these cities: and Israel dwelt in all the cities of the Amorites, in Heshbon, and in all the villages thereof.  
+> **²⁶** For Heshbon *was* the city of Sihon the king of the Amorites, who had fought against the former king of Moab, and taken all his land out of his hand, even unto Arnon.  
+> **²⁷** Wherefore they that speak in proverbs say, Come into Heshbon, let the city of Sihon be built and prepared:  
+> **²⁸** For there is a fire gone out of Heshbon, a flame from the city of Sihon: it hath consumed Ar of Moab, *and* the lords of the high places of Arnon.  
+> **²⁹** Woe to thee, Moab! thou art undone, O people of Chemosh: he hath given his sons that escaped, and his daughters, into captivity unto Sihon king of the Amorites.  
+> **³⁰** We have shot at them; Heshbon is perished even unto Dibon, and we have laid them waste even unto Nophah, which *reacheth* unto Medeba.  
+> **³¹** Thus Israel dwelt in the land of the Amorites.  
+> **³²** And Moses sent to spy out Jaazer, and they took the villages thereof, and drove out the Amorites that *were* there.  
+> **³³** And they turned and went up by the way of Bashan: and Og the king of Bashan went out against them, he, and all his people, to the battle at Edrei.  
+> **³⁴** And the LORD said unto Moses, Fear him not: for I have delivered him into thy hand, and all his people, and his land; and thou shalt do to him as thou didst unto Sihon king of the Amorites, which dwelt at Heshbon.  
+> **³⁵** So they smote him, and his sons, and all his people, until there was none left him alive: and they possessed his land.  
 
 We have here an account of the victories obtained by Israel over Sihon and Og, which must be distinctly considered, not only because they are here distinctly related, but because long afterwards the memorial of them is distinctly celebrated, and they are severally assigned as instances of everlasting mercy. He slew *Sihon king of the Amorites, for his mercy endureth for ever, and Og the king of Bashan, for his mercy endureth for ever,* Ps 136:19,20.
 

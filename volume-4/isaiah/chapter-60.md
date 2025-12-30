@@ -8,14 +8,14 @@ This whole chapter is all to the same purport, all in the same strain; it is a p
 
 ## The Extension of the Church. (b. c. 706.)
 
-> <sup>1</sup> Arise, shine; for thy light is come, and the glory of the LORD is risen upon thee.  
-> <sup>2</sup> For, behold, the darkness shall cover the earth, and gross darkness the people: but the LORD shall arise upon thee, and his glory shall be seen upon thee.  
-> <sup>3</sup> And the Gentiles shall come to thy light, and kings to the brightness of thy rising.  
-> <sup>4</sup> Lift up thine eyes round about, and see: all they gather themselves together, they come to thee: thy sons shall come from far, and thy daughters shall be nursed at *thy* side.  
-> <sup>5</sup> Then thou shalt see, and flow together, and thine heart shall fear, and be enlarged; because the abundance of the sea shall be converted unto thee, the forces of the Gentiles shall come unto thee.  
-> <sup>6</sup> The multitude of camels shall cover thee, the dromedaries of Midian and Ephah; all they from Sheba shall come: they shall bring gold and incense; and they shall show forth the praises of the LORD.  
-> <sup>7</sup> All the flocks of Kedar shall be gathered together unto thee, the rams of Nebaioth shall minister unto thee: they shall come up with acceptance on mine altar, and I will glorify the house of my glory.  
-> <sup>8</sup> Who *are* these *that* fly as a cloud, and as the doves to their windows?  
+> **¹** Arise, shine; for thy light is come, and the glory of the LORD is risen upon thee.  
+> **²** For, behold, the darkness shall cover the earth, and gross darkness the people: but the LORD shall arise upon thee, and his glory shall be seen upon thee.  
+> **³** And the Gentiles shall come to thy light, and kings to the brightness of thy rising.  
+> **⁴** Lift up thine eyes round about, and see: all they gather themselves together, they come to thee: thy sons shall come from far, and thy daughters shall be nursed at *thy* side.  
+> **⁵** Then thou shalt see, and flow together, and thine heart shall fear, and be enlarged; because the abundance of the sea shall be converted unto thee, the forces of the Gentiles shall come unto thee.  
+> **⁶** The multitude of camels shall cover thee, the dromedaries of Midian and Ephah; all they from Sheba shall come: they shall bring gold and incense; and they shall show forth the praises of the LORD.  
+> **⁷** All the flocks of Kedar shall be gathered together unto thee, the rams of Nebaioth shall minister unto thee: they shall come up with acceptance on mine altar, and I will glorify the house of my glory.  
+> **⁸** Who *are* these *that* fly as a cloud, and as the doves to their windows?  
 
 It is here promised that the gospel temple shall be very lightsome and very large.
 
@@ -35,12 +35,12 @@ II\. It shall be very large. When the Jews were settled again in their own land,
 
 ## The Enlargement of the Church. (b. c. 706.)
 
-> <sup>9</sup> Surely the isles shall wait for me, and the ships of Tarshish first, to bring thy sons from far, their silver and their gold with them, unto the name of the LORD thy God, and to the Holy One of Israel, because he hath glorified thee.  
-> <sup>10</sup> And the sons of strangers shall build up thy walls, and their kings shall minister unto thee: for in my wrath I smote thee, but in my favour have I had mercy on thee.  
-> <sup>11</sup> Therefore thy gates shall be open continually; they shall not be shut day nor night; that *men* may bring unto thee the forces of the Gentiles, and *that* their kings *may be* brought.  
-> <sup>12</sup> For the nation and kingdom that will not serve thee shall perish; yea, *those* nations shall be utterly wasted.  
-> <sup>13</sup> The glory of Lebanon shall come unto thee, the fir tree, the pine tree, and the box together, to beautify the place of my sanctuary; and I will make the place of my feet glorious.  
-> <sup>14</sup> The sons also of them that afflicted thee shall come bending unto thee; and all they that despised thee shall bow themselves down at the soles of thy feet; and they shall call thee, The city of the LORD, The Zion of the Holy One of Israel.  
+> **⁹** Surely the isles shall wait for me, and the ships of Tarshish first, to bring thy sons from far, their silver and their gold with them, unto the name of the LORD thy God, and to the Holy One of Israel, because he hath glorified thee.  
+> **¹⁰** And the sons of strangers shall build up thy walls, and their kings shall minister unto thee: for in my wrath I smote thee, but in my favour have I had mercy on thee.  
+> **¹¹** Therefore thy gates shall be open continually; they shall not be shut day nor night; that *men* may bring unto thee the forces of the Gentiles, and *that* their kings *may be* brought.  
+> **¹²** For the nation and kingdom that will not serve thee shall perish; yea, *those* nations shall be utterly wasted.  
+> **¹³** The glory of Lebanon shall come unto thee, the fir tree, the pine tree, and the box together, to beautify the place of my sanctuary; and I will make the place of my feet glorious.  
+> **¹⁴** The sons also of them that afflicted thee shall come bending unto thee; and all they that despised thee shall bow themselves down at the soles of thy feet; and they shall call thee, The city of the LORD, The Zion of the Holy One of Israel.  
 
 The promises made to the church in the Isa 60:1-8 are here repeated, ratified, and enlarged upon, designed still for the comfort and encouragement of the Jews after their return out of captivity, but certainly looking further, to the enlargement and advancement of the gospel church and the abundance of spiritual blessings with which it shall be enriched.
 
@@ -58,14 +58,14 @@ VI\. The church shall appear truly great and honourable, Isa 60:14. The people o
 
 ## The Glory of the Church. (b. c. 706.)
 
-> <sup>15</sup> Whereas thou hast been forsaken and hated, so that no man went through *thee,* I will make thee an eternal excellency, a joy of many generations.  
-> <sup>16</sup> Thou shalt also suck the milk of the Gentiles, and shalt suck the breast of kings: and thou shalt know that I the LORD *am* thy Saviour and thy Redeemer, the mighty One of Jacob.  
-> <sup>17</sup> For brass I will bring gold, and for iron I will bring silver, and for wood brass, and for stones iron: I will also make thy officers peace, and thine exactors righteousness.  
-> <sup>18</sup> Violence shall no more be heard in thy land, wasting nor destruction within thy borders; but thou shalt call thy walls Salvation, and thy gates Praise.  
-> <sup>19</sup> The sun shall be no more thy light by day; neither for brightness shall the moon give light unto thee: but the LORD shall be unto thee an everlasting light, and thy God thy glory.  
-> <sup>20</sup> Thy sun shall no more go down; neither shall thy moon withdraw itself: for the LORD shall be thine everlasting light, and the days of thy mourning shall be ended.  
-> <sup>21</sup> Thy people also *shall be* all righteous: they shall inherit the land for ever, the branch of my planting, the work of my hands, that I may be glorified.  
-> <sup>22</sup> A little one shall become a thousand, and a small one a strong nation: I the LORD will hasten it in his time.  
+> **¹⁵** Whereas thou hast been forsaken and hated, so that no man went through *thee,* I will make thee an eternal excellency, a joy of many generations.  
+> **¹⁶** Thou shalt also suck the milk of the Gentiles, and shalt suck the breast of kings: and thou shalt know that I the LORD *am* thy Saviour and thy Redeemer, the mighty One of Jacob.  
+> **¹⁷** For brass I will bring gold, and for iron I will bring silver, and for wood brass, and for stones iron: I will also make thy officers peace, and thine exactors righteousness.  
+> **¹⁸** Violence shall no more be heard in thy land, wasting nor destruction within thy borders; but thou shalt call thy walls Salvation, and thy gates Praise.  
+> **¹⁹** The sun shall be no more thy light by day; neither for brightness shall the moon give light unto thee: but the LORD shall be unto thee an everlasting light, and thy God thy glory.  
+> **²⁰** Thy sun shall no more go down; neither shall thy moon withdraw itself: for the LORD shall be thine everlasting light, and the days of thy mourning shall be ended.  
+> **²¹** Thy people also *shall be* all righteous: they shall inherit the land for ever, the branch of my planting, the work of my hands, that I may be glorified.  
+> **²²** A little one shall become a thousand, and a small one a strong nation: I the LORD will hasten it in his time.  
 
 The happy and glorious state of the church is here further foretold, referring principally and ultimately to the Christian church and the spiritual peace of that, but under the type of that little gleam of outward peace which the Jews sometimes enjoyed after their return out of captivity. This is here spoken of,
 

@@ -8,14 +8,14 @@ In this chapter we have an abstract of the history, I. Of two of the kings of Ju
 
 ## Abijam's Reign. (b. c. 958.)
 
-> <sup>1</sup> Now in the eighteenth year of king Jeroboam the son of Nebat reigned Abijam over Judah.  
-> <sup>2</sup> Three years reigned he in Jerusalem. And his mother's name *was* Maachah, the daughter of Abishalom.  
-> <sup>3</sup> And he walked in all the sins of his father, which he had done before him: and his heart was not perfect with the LORD his God, as the heart of David his father.  
-> <sup>4</sup> Nevertheless for David's sake did the LORD his God give him a lamp in Jerusalem, to set up his son after him, and to establish Jerusalem:  
-> <sup>5</sup> Because David did *that which was* right in the eyes of the LORD, and turned not aside from any *thing* that he commanded him all the days of his life, save only in the matter of Uriah the Hittite.  
-> <sup>6</sup> And there was war between Rehoboam and Jeroboam all the days of his life.  
-> <sup>7</sup> Now the rest of the acts of Abijam, and all that he did, *are* they not written in the book of the chronicles of the kings of Judah? And there was war between Abijam and Jeroboam.  
-> <sup>8</sup> And Abijam slept with his fathers; and they buried him in the city of David: and Asa his son reigned in his stead.  
+> **¹** Now in the eighteenth year of king Jeroboam the son of Nebat reigned Abijam over Judah.  
+> **²** Three years reigned he in Jerusalem. And his mother's name *was* Maachah, the daughter of Abishalom.  
+> **³** And he walked in all the sins of his father, which he had done before him: and his heart was not perfect with the LORD his God, as the heart of David his father.  
+> **⁴** Nevertheless for David's sake did the LORD his God give him a lamp in Jerusalem, to set up his son after him, and to establish Jerusalem:  
+> **⁵** Because David did *that which was* right in the eyes of the LORD, and turned not aside from any *thing* that he commanded him all the days of his life, save only in the matter of Uriah the Hittite.  
+> **⁶** And there was war between Rehoboam and Jeroboam all the days of his life.  
+> **⁷** Now the rest of the acts of Abijam, and all that he did, *are* they not written in the book of the chronicles of the kings of Judah? And there was war between Abijam and Jeroboam.  
+> **⁸** And Abijam slept with his fathers; and they buried him in the city of David: and Asa his son reigned in his stead.  
 
 We have here a short account of the short reign of Abijam the son of Rehoboam king of Judah. He makes a better figure, 2Ch 13:1-22, where we have an account of his war with Jeroboam, the speech which he made before the armies engaged, and the wonderful victory he obtained by the help of God. There he is called *Abijah—My father is the Lord,* because no wickedness is there laid to his charge. But here, where we are told of his faults, *Jah,* the name of God, is, in disgrace to him, taken away from his name, and he is called *Abijam.* See Jer 22:24.
 
@@ -25,22 +25,22 @@ II\. But, in general, we are told, 1. That he was not like David, had no hearty 
 
 ## Asa's Reign. (b. c. 914.)
 
-> <sup>9</sup> And in the twentieth year of Jeroboam king of Israel reigned Asa over Judah.  
-> <sup>10</sup> And forty and one years reigned he in Jerusalem. And his mother's name *was* Maachah, the daughter of Abishalom.  
-> <sup>11</sup> And Asa did *that which was* right in the eyes of the LORD, as *did* David his father.  
-> <sup>12</sup> And he took away the sodomites out of the land, and removed all the idols that his fathers had made.  
-> <sup>13</sup> And also Maachah his mother, even her he removed from *being* queen, because she had made an idol in a grove; and Asa destroyed her idol, and burnt *it* by the brook Kidron.  
-> <sup>14</sup> But the high places were not removed: nevertheless Asa's heart was perfect with the LORD all his days.  
-> <sup>15</sup> And he brought in the things which his father had dedicated, and the things which himself had dedicated, into the house of the LORD, silver, and gold, and vessels.  
-> <sup>16</sup> And there was war between Asa and Baasha king of Israel all their days.  
-> <sup>17</sup> And Baasha king of Israel went up against Judah, and built Ramah, that he might not suffer any to go out or come in to Asa king of Judah.  
-> <sup>18</sup> Then Asa took all the silver and the gold *that were* left in the treasures of the house of the LORD, and the treasures of the king's house, and delivered them into the hand of his servants: and king Asa sent them to Benhadad, the son of Tabrimon, the son of Hezion, king of Syria, that dwelt at Damascus, saying,  
-> <sup>19</sup> *There is* a league between me and thee, *and* between my father and thy father: behold, I have sent unto thee a present of silver and gold; come and break thy league with Baasha king of Israel, that he may depart from me.  
-> <sup>20</sup> So Benhadad hearkened unto king Asa, and sent the captains of the hosts which he had against the cities of Israel, and smote Ijon, and Dan, and Abel-beth-maachah, and all Cinneroth, with all the land of Naphtali.  
-> <sup>21</sup> And it came to pass, when Baasha heard *thereof,* that he left off building of Ramah, and dwelt in Tirzah.  
-> <sup>22</sup> Then king Asa made a proclamation throughout all Judah; none *was* exempted: and they took away the stones of Ramah, and the timber thereof, wherewith Baasha had builded; and king Asa built with them Geba of Benjamin, and Mizpah.  
-> <sup>23</sup> The rest of all the acts of Asa, and all his might, and all that he did, and the cities which he built, *are* they not written in the book of the chronicles of the kings of Judah? Nevertheless in the time of his old age he was diseased in his feet.  
-> <sup>24</sup> And Asa slept with his fathers, and was buried with his fathers in the city of David his father: and Jehoshaphat his son reigned in his stead.  
+> **⁹** And in the twentieth year of Jeroboam king of Israel reigned Asa over Judah.  
+> **¹⁰** And forty and one years reigned he in Jerusalem. And his mother's name *was* Maachah, the daughter of Abishalom.  
+> **¹¹** And Asa did *that which was* right in the eyes of the LORD, as *did* David his father.  
+> **¹²** And he took away the sodomites out of the land, and removed all the idols that his fathers had made.  
+> **¹³** And also Maachah his mother, even her he removed from *being* queen, because she had made an idol in a grove; and Asa destroyed her idol, and burnt *it* by the brook Kidron.  
+> **¹⁴** But the high places were not removed: nevertheless Asa's heart was perfect with the LORD all his days.  
+> **¹⁵** And he brought in the things which his father had dedicated, and the things which himself had dedicated, into the house of the LORD, silver, and gold, and vessels.  
+> **¹⁶** And there was war between Asa and Baasha king of Israel all their days.  
+> **¹⁷** And Baasha king of Israel went up against Judah, and built Ramah, that he might not suffer any to go out or come in to Asa king of Judah.  
+> **¹⁸** Then Asa took all the silver and the gold *that were* left in the treasures of the house of the LORD, and the treasures of the king's house, and delivered them into the hand of his servants: and king Asa sent them to Benhadad, the son of Tabrimon, the son of Hezion, king of Syria, that dwelt at Damascus, saying,  
+> **¹⁹** *There is* a league between me and thee, *and* between my father and thy father: behold, I have sent unto thee a present of silver and gold; come and break thy league with Baasha king of Israel, that he may depart from me.  
+> **²⁰** So Benhadad hearkened unto king Asa, and sent the captains of the hosts which he had against the cities of Israel, and smote Ijon, and Dan, and Abel-beth-maachah, and all Cinneroth, with all the land of Naphtali.  
+> **²¹** And it came to pass, when Baasha heard *thereof,* that he left off building of Ramah, and dwelt in Tirzah.  
+> **²²** Then king Asa made a proclamation throughout all Judah; none *was* exempted: and they took away the stones of Ramah, and the timber thereof, wherewith Baasha had builded; and king Asa built with them Geba of Benjamin, and Mizpah.  
+> **²³** The rest of all the acts of Asa, and all his might, and all that he did, and the cities which he built, *are* they not written in the book of the chronicles of the kings of Judah? Nevertheless in the time of his old age he was diseased in his feet.  
+> **²⁴** And Asa slept with his fathers, and was buried with his fathers in the city of David his father: and Jehoshaphat his son reigned in his stead.  
 
 We have here a short account of the reign of Asa; we shall find a more copious history of it 2Ch 14:1-16:14 Here is,
 
@@ -64,16 +64,16 @@ VII\. The conclusion of his reign. The acts of it were more largely recorded in 
 
 ## The Reign of Nadab and Baasha. (b. c. 954.)
 
-> <sup>25</sup> And Nadab the son of Jeroboam began to reign over Israel in the second year of Asa king of Judah, and reigned over Israel two years.  
-> <sup>26</sup> And he did evil in the sight of the LORD, and walked in the way of his father, and in his sin wherewith he made Israel to sin.  
-> <sup>27</sup> And Baasha the son of Ahijah, of the house of Issachar, conspired against him; and Baasha smote him at Gibbethon, which *belonged* to the Philistines; for Nadab and all Israel laid siege to Gibbethon.  
-> <sup>28</sup> Even in the third year of Asa king of Judah did Baasha slay him, and reigned in his stead.  
-> <sup>29</sup> And it came to pass, when he reigned, *that* he smote all the house of Jeroboam; he left not to Jeroboam any that breathed, until he had destroyed him, according unto the saying of the LORD, which he spake by his servant Ahijah the Shilonite:  
-> <sup>30</sup> Because of the sins of Jeroboam which he sinned, and which he made Israel sin, by his provocation wherewith he provoked the LORD God of Israel to anger.  
-> <sup>31</sup> Now the rest of the acts of Nadab, and all that he did, *are* they not written in the book of the chronicles of the kings of Israel?  
-> <sup>32</sup> And there was war between Asa and Baasha king of Israel all their days.  
-> <sup>33</sup> In the third year of Asa king of Judah began Baasha the son of Ahijah to reign over all Israel in Tirzah, twenty and four years.  
-> <sup>34</sup> And he did evil in the sight of the LORD, and walked in the way of Jeroboam, and in his sin wherewith he made Israel to sin.  
+> **²⁵** And Nadab the son of Jeroboam began to reign over Israel in the second year of Asa king of Judah, and reigned over Israel two years.  
+> **²⁶** And he did evil in the sight of the LORD, and walked in the way of his father, and in his sin wherewith he made Israel to sin.  
+> **²⁷** And Baasha the son of Ahijah, of the house of Issachar, conspired against him; and Baasha smote him at Gibbethon, which *belonged* to the Philistines; for Nadab and all Israel laid siege to Gibbethon.  
+> **²⁸** Even in the third year of Asa king of Judah did Baasha slay him, and reigned in his stead.  
+> **²⁹** And it came to pass, when he reigned, *that* he smote all the house of Jeroboam; he left not to Jeroboam any that breathed, until he had destroyed him, according unto the saying of the LORD, which he spake by his servant Ahijah the Shilonite:  
+> **³⁰** Because of the sins of Jeroboam which he sinned, and which he made Israel sin, by his provocation wherewith he provoked the LORD God of Israel to anger.  
+> **³¹** Now the rest of the acts of Nadab, and all that he did, *are* they not written in the book of the chronicles of the kings of Israel?  
+> **³²** And there was war between Asa and Baasha king of Israel all their days.  
+> **³³** In the third year of Asa king of Judah began Baasha the son of Ahijah to reign over all Israel in Tirzah, twenty and four years.  
+> **³⁴** And he did evil in the sight of the LORD, and walked in the way of Jeroboam, and in his sin wherewith he made Israel to sin.  
 
 We are now to take a view of the miserable state of Israel, while the kingdom of Judah was happy under Asa's good government. It was threatened that they should be as *a reed shaken in the water* (1Ki 14:15), and so they were, when, during the single reign of Asa, the government of their kingdom was in six or seven different hands, as we find in this and the following chapter. Jeroboam was upon the throne in the beginning of his reign and Ahab at the end of it, and between them were Nadab, Baasha, Elah, Zimri, Tibni, and Omri, undermining and destroying one another. This they got by deserting the house both of God and of David. Here we have, 1. The ruin and extirpation of the family of Jeroboam, according to the word of the Lord by Ahijah. His son Nadab succeeded him. If the death of his brother Abijah had had a due influence upon him to make him religious, and the honour done him at his death had engaged him to follow his good example, his reign might have been long and glorious; but he *walked in the way of his father* (1Ki 15:26), kept up the worship of his calves, and forbade his subjects to go up to Jerusalem to worship, *sinned and made Israel to sin,* and therefore God brought ruin upon him quickly, in the second year of his reign. He was besieging Gibbethon, a city which the Philistines had taken from the Danites, and was endeavouring to re-take it; and there, in the midst of his army, did Baasha, with others, conspire against him and kill him, (1Ki 15:27), and so little interest had he in the affections of his people that his army did not only not avenge his death, but chose his murderer for his successor. Whether Baasha did it upon a personal pique against Nadab, or to be avenged on the house of Jeroboam for some affront received from them, or whether under pretence of freeing his country from the tyranny of a bad prince, or whether merely from a principle of ambition, to make way for himself to the throne, does not appear; but he *slew him* and *reigned in his stead,* 1Ki 15:28. And the first thing he did when he came to the crown was to *cut off all the house of Jeroboam,* that he might the better secure himself and his own usurped government. He thought it not enough to imprison or banish them, but he destroyed them, left not only no males (as was foretold, 1Ki 14:10), but none that breathed. Herein he was barbarous, but God was righteous. Jeroboam's sin was punished (1Ki 15:30); for those that provoke God do it *to their own confusion;* see Jer 7:19. Ahijah's prophecy was accomplished (1Ki 15:29); for no word of God shall fall to the ground. Divine threatenings are not bugbears. 2. The elevation of Baasha. He shall be tried awhile, as Jeroboam was. Twenty-four years he reigned (1Ki 15:33), but showed that it was not from any dislike to Jeroboam's sin that he destroyed his family, but from malice and ambition; for, when he had rooted out the sinner, he himself clave to the sin, and *walked in the way of Jeroboam* (1Ki 15:34), though he had seen the end of that way; so strangely was his heart hardened with the deceitfulness of sin.
 

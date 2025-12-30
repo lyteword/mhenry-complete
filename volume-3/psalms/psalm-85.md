@@ -10,13 +10,13 @@ Interpreters are generally of the opinion that this psalm was penned after the r
 
 To the chief musician. A psalm for the sons of Korah.
 
-> <sup>1</sup> LORD, thou hast been favourable unto thy land: thou hast brought back the captivity of Jacob.  
-> <sup>2</sup> Thou hast forgiven the iniquity of thy people, thou hast covered all their sin. Selah.  
-> <sup>3</sup> Thou hast taken away all thy wrath: thou hast turned *thyself* from the fierceness of thine anger.  
-> <sup>4</sup> Turn us, O God of our salvation, and cause thine anger toward us to cease.  
-> <sup>5</sup> Wilt thou be angry with us for ever? wilt thou draw out thine anger to all generations?  
-> <sup>6</sup> Wilt thou not revive us again: that thy people may rejoice in thee?  
-> <sup>7</sup> show us thy mercy, O LORD, and grant us thy salvation.  
+> **¹** LORD, thou hast been favourable unto thy land: thou hast brought back the captivity of Jacob.  
+> **²** Thou hast forgiven the iniquity of thy people, thou hast covered all their sin. Selah.  
+> **³** Thou hast taken away all thy wrath: thou hast turned *thyself* from the fierceness of thine anger.  
+> **⁴** Turn us, O God of our salvation, and cause thine anger toward us to cease.  
+> **⁵** Wilt thou be angry with us for ever? wilt thou draw out thine anger to all generations?  
+> **⁶** Wilt thou not revive us again: that thy people may rejoice in thee?  
+> **⁷** show us thy mercy, O LORD, and grant us thy salvation.  
 
 The church, in affliction and distress, is here, by direction from God, making her application to God. So ready is God to hear and answer the prayers of his people that by his Spirit in the word, and in the heart, he indites their petitions and puts words into their mouths. The people of God, in a very low and weak condition, are here taught how to address themselves to God.
 
@@ -28,12 +28,12 @@ III\. They are taught humbly to expostulate with God concerning their present tr
 
 ## Divine Answer to Prayer; Blessings Given in Answer to Prayer.
 
-> <sup>8</sup> I will hear what God the LORD will speak: for he will speak peace unto his people, and to his saints: but let them not turn again to folly.  
-> <sup>9</sup> Surely his salvation *is* nigh them that fear him; that glory may dwell in our land.  
-> <sup>10</sup> Mercy and truth are met together; righteousness and peace have kissed *each other.*  
-> <sup>11</sup> Truth shall spring out of the earth; and righteousness shall look down from heaven.  
-> <sup>12</sup> Yea, the LORD shall give *that which is* good; and our land shall yield her increase.  
-> <sup>13</sup> Righteousness shall go before him; and shall set *us* in the way of his steps.  
+> **⁸** I will hear what God the LORD will speak: for he will speak peace unto his people, and to his saints: but let them not turn again to folly.  
+> **⁹** Surely his salvation *is* nigh them that fear him; that glory may dwell in our land.  
+> **¹⁰** Mercy and truth are met together; righteousness and peace have kissed *each other.*  
+> **¹¹** Truth shall spring out of the earth; and righteousness shall look down from heaven.  
+> **¹²** Yea, the LORD shall give *that which is* good; and our land shall yield her increase.  
+> **¹³** Righteousness shall go before him; and shall set *us* in the way of his steps.  
 
 We have here an answer to the prayers and expostulations in the Ps 85:1-7.
 

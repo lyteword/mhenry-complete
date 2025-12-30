@@ -8,13 +8,13 @@ We have now come nearer home, for this chapter is "the burden of the valley of v
 
 ## The Consternation of Jerusalem. (b. c. 718.)
 
-> <sup>1</sup> The burden of the valley of vision. What aileth thee now, that thou art wholly gone up to the housetops?  
-> <sup>2</sup> Thou that art full of stirs, a tumultuous city, a joyous city: thy slain *men are* not slain with the sword, nor dead in battle.  
-> <sup>3</sup> All thy rulers are fled together, they are bound by the archers: all that are found in thee are bound together, *which* have fled from far.  
-> <sup>4</sup> Therefore said I, Look away from me; I will weep bitterly, labour not to comfort me, because of the spoiling of the daughter of my people.  
-> <sup>5</sup> For *it is* a day of trouble, and of treading down, and of perplexity by the Lord GOD of hosts in the valley of vision, breaking down the walls, and of crying to the mountains.  
-> <sup>6</sup> And Elam bare the quiver with chariots of men *and* horsemen, and Kir uncovered the shield.  
-> <sup>7</sup> And it shall come to pass, *that* thy choicest valleys shall be full of chariots, and the horsemen shall set themselves in array at the gate.  
+> **¹** The burden of the valley of vision. What aileth thee now, that thou art wholly gone up to the housetops?  
+> **²** Thou that art full of stirs, a tumultuous city, a joyous city: thy slain *men are* not slain with the sword, nor dead in battle.  
+> **³** All thy rulers are fled together, they are bound by the archers: all that are found in thee are bound together, *which* have fled from far.  
+> **⁴** Therefore said I, Look away from me; I will weep bitterly, labour not to comfort me, because of the spoiling of the daughter of my people.  
+> **⁵** For *it is* a day of trouble, and of treading down, and of perplexity by the Lord GOD of hosts in the valley of vision, breaking down the walls, and of crying to the mountains.  
+> **⁶** And Elam bare the quiver with chariots of men *and* horsemen, and Kir uncovered the shield.  
+> **⁷** And it shall come to pass, *that* thy choicest valleys shall be full of chariots, and the horsemen shall set themselves in array at the gate.  
 
 The title of this prophecy is very observable. It is *the burden of the valley of vision,* of Judah and Jerusalem; so all agree. Fitly enough is Jerusalem called a valley, for the mountains were round about it, and the land of Judah abounded with fruitful valleys; and by the judgments of God, though they had been as a towering mountain, they should be brought low, sunk and depressed, and become dark and dirty, as a valley. But most emphatically is it called a *valley of vision* because there God was known and his name was great, there the prophets were made acquainted with his mind by visions, and there the people saw the goings of their God and King in his sanctuary. Babylon, being a stranger to God, though rich and great, was called *the desert of the sea;* but Jerusalem, being entrusted with his oracles, is *a valley of vision. Blessed are their eyes, for they see,* and they have seers by office among them. Where Bibles and ministers are there is a valley of vision, from which is expected fruit accordingly; but here is a *burden of the valley of vision,* and a heavy burden it is. Note, Church privileges, if they be not improved, will not secure men from the judgments of God. *You only have I known of all the families of the earth; therefore will I punish you.* The valley of vision has a particular burden. *Thou Capernaum,* Mt 11:23. The higher any are lifted up in means and mercies the heavier will their doom be if they abuse them.
 
@@ -30,13 +30,13 @@ IV\. The great numbers and strength of the enemy, that should invade their count
 
 ## Contempt of Divine Goodness; Contempt of Divine Judgments. (b. c. 718.)
 
-> <sup>8</sup> And he discovered the covering of Judah, and thou didst look in that day to the armour of the house of the forest.  
-> <sup>9</sup> Ye have seen also the breaches of the city of David, that they are many: and ye gathered together the waters of the lower pool.  
-> <sup>10</sup> And ye have numbered the houses of Jerusalem, and the houses have ye broken down to fortify the wall.  
-> <sup>11</sup> Ye made also a ditch between the two walls for the water of the old pool: but ye have not looked unto the maker thereof, neither had respect unto him that fashioned it long ago.  
-> <sup>12</sup> And in that day did the Lord GOD of hosts call to weeping, and to mourning, and to baldness, and to girding with sackcloth:  
-> <sup>13</sup> And behold joy and gladness, slaying oxen, and killing sheep, eating flesh, and drinking wine: let us eat and drink; for to morrow we shall die.  
-> <sup>14</sup> And it was revealed in mine ears by the LORD of hosts, Surely this iniquity shall not be purged from you till ye die, saith the Lord GOD of hosts.  
+> **⁸** And he discovered the covering of Judah, and thou didst look in that day to the armour of the house of the forest.  
+> **⁹** Ye have seen also the breaches of the city of David, that they are many: and ye gathered together the waters of the lower pool.  
+> **¹⁰** And ye have numbered the houses of Jerusalem, and the houses have ye broken down to fortify the wall.  
+> **¹¹** Ye made also a ditch between the two walls for the water of the old pool: but ye have not looked unto the maker thereof, neither had respect unto him that fashioned it long ago.  
+> **¹²** And in that day did the Lord GOD of hosts call to weeping, and to mourning, and to baldness, and to girding with sackcloth:  
+> **¹³** And behold joy and gladness, slaying oxen, and killing sheep, eating flesh, and drinking wine: let us eat and drink; for to morrow we shall die.  
+> **¹⁴** And it was revealed in mine ears by the LORD of hosts, Surely this iniquity shall not be purged from you till ye die, saith the Lord GOD of hosts.  
 
 What is meant by *the covering of Judah,* which in the beginning of this paragraph is said to be *discovered,* is not agreed. The fenced cities of Judah were a covering to the country; but these, being taken by the army of the Assyrians, ceased to be a shelter, so that the whole country lay exposed to be plundered. The weakness of Judah, its nakedness, and inability to keep itself, now appeared more than ever; and thus the covering of Judah was discovered. Its magazines and stores, which had been locked up, were now laid open for the public use. Dr. Lightfoot gives another sense of it, that by this distress into which Judah should be brought God would discover their covering (that is, uncloak their hypocrisy), would show all that was in their heart, as is said of Hezekiah upon another occasion, 2Ch 32:31. Thus, by one means or other, *the iniquity of Ephraim will be discovered and the sin of Samaria,* Ho 7:1.
 
@@ -58,17 +58,17 @@ II\. A great contempt of God's wrath and justice in contending with them, Isa 22
 
 ## The Downfall of Shebna; The Advancement of Eliakim. (b. c. 714.)
 
-> <sup>15</sup> Thus saith the Lord GOD of hosts, Go, get thee unto this treasurer, *even* unto Shebna, which *is* over the house, *and say,*  
-> <sup>16</sup> What hast thou here? and whom hast thou here, that thou hast hewed thee out a sepulchre here, *as* he that heweth him out a sepulchre on high, *and* that graveth a habitation for himself in a rock?  
-> <sup>17</sup> Behold, the LORD will carry thee away with a mighty captivity, and will surely cover thee.  
-> <sup>18</sup> He will surely violently turn and toss thee *like* a ball into a large country: there shalt thou die, and there the chariots of thy glory *shall be* the shame of thy lord's house.  
-> <sup>19</sup> And I will drive thee from thy station, and from thy state shall he pull thee down.  
-> <sup>20</sup> And it shall come to pass in that day, that I will call my servant Eliakim the son of Hilkiah:  
-> <sup>21</sup> And I will clothe him with thy robe, and strengthen him with thy girdle, and I will commit thy government into his hand: and he shall be a father to the inhabitants of Jerusalem, and to the house of Judah.  
-> <sup>22</sup> And the key of the house of David will I lay upon his shoulder; so he shall open, and none shall shut; and he shall shut, and none shall open.  
-> <sup>23</sup> And I will fasten him *as* a nail in a sure place; and he shall be for a glorious throne to his father's house.  
-> <sup>24</sup> And they shall hang upon him all the glory of his father's house, the offspring and the issue, all vessels of small quantity, from the vessels of cups, even to all the vessels of flagons.  
-> <sup>25</sup> In that day, saith the LORD of hosts, shall the nail that is fastened in the sure place be removed, and be cut down, and fall; and the burden that *was* upon it shall be cut off: for the LORD hath spoken *it.*  
+> **¹⁵** Thus saith the Lord GOD of hosts, Go, get thee unto this treasurer, *even* unto Shebna, which *is* over the house, *and say,*  
+> **¹⁶** What hast thou here? and whom hast thou here, that thou hast hewed thee out a sepulchre here, *as* he that heweth him out a sepulchre on high, *and* that graveth a habitation for himself in a rock?  
+> **¹⁷** Behold, the LORD will carry thee away with a mighty captivity, and will surely cover thee.  
+> **¹⁸** He will surely violently turn and toss thee *like* a ball into a large country: there shalt thou die, and there the chariots of thy glory *shall be* the shame of thy lord's house.  
+> **¹⁹** And I will drive thee from thy station, and from thy state shall he pull thee down.  
+> **²⁰** And it shall come to pass in that day, that I will call my servant Eliakim the son of Hilkiah:  
+> **²¹** And I will clothe him with thy robe, and strengthen him with thy girdle, and I will commit thy government into his hand: and he shall be a father to the inhabitants of Jerusalem, and to the house of Judah.  
+> **²²** And the key of the house of David will I lay upon his shoulder; so he shall open, and none shall shut; and he shall shut, and none shall open.  
+> **²³** And I will fasten him *as* a nail in a sure place; and he shall be for a glorious throne to his father's house.  
+> **²⁴** And they shall hang upon him all the glory of his father's house, the offspring and the issue, all vessels of small quantity, from the vessels of cups, even to all the vessels of flagons.  
+> **²⁵** In that day, saith the LORD of hosts, shall the nail that is fastened in the sure place be removed, and be cut down, and fall; and the burden that *was* upon it shall be cut off: for the LORD hath spoken *it.*  
 
 We have here a prophecy concerning the displacing of Shebna, a great officer at court, and the preferring of Eliakim to the post of honour and trust that he was in. Such changes are common in the courts of princes; it is therefore strange that so much notice should be taken of it by the prophet here; but by the accomplishment of what was foretold concerning these particular persons God designed to confirm his word in the mouth of Isaiah concerning other and greater events; and it is likewise to show that, as God has burdens in store for those nations and kingdoms abroad that are open enemies to his church and people, so he has for those particular persons at home that are false friends to them and betray them. It is likewise a confirmation in general of the hand of divine Providence in all events of this kind, which to us seem contingent and to depend upon the wills and fancies of princes. *Promotion comes not from the east, nor from the west, nor from the south; but God is the Judge,* Ps 25:6,7. It is probable that this prophecy was delivered at the same time with that in the former part of the chapter, and began to be fulfilled before Sennacherib's invasion; for now Shebna was *over the house,* but then Eliakim was (Isa 36:3); and Shebna, coming down gradually, was only scribe. Here is,
 

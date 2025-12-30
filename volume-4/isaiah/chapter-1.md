@@ -8,7 +8,7 @@ The first verse of this chapter is intended for a title to the whole book, and i
 
 ## The Vision of Isaiah. (b. c. 738.)
 
-> <sup>1</sup> The vision of Isaiah the son of Amoz, which he saw concerning Judah and Jerusalem in the days of Uzziah, Jotham, Ahaz, *and* Hezekiah, kings of Judah.  
+> **¹** The vision of Isaiah the son of Amoz, which he saw concerning Judah and Jerusalem in the days of Uzziah, Jotham, Ahaz, *and* Hezekiah, kings of Judah.  
 
 Here is, I. The name of the prophet, *Isaiah,* or *Jesahiahu* (for so it is in the Hebrew), which, in the New Testament is read *Esaias.* His name signifies *the salvation of the Lord*—a proper name for a prophet by whom God *gives knowledge of salvation to his people,* especially for this prophet, who prophesies so much of Jesus the Saviour and of the great salvation wrought out by him. He is said to be *the son of Amoz,* not Amos the prophet (the two names in the Hebrew differ more than in the English), but, as the Jews think, of Amoz the brother, or son, of Amaziah king of Judah, a tradition as uncertain as that rule which they give, that, where a prophet's father is named, he also was himself a prophet. The prophets' pupils and successors are indeed often called their *sons,* but we have few instances, if any, of their own sons being their successors.
 
@@ -20,14 +20,14 @@ IV\. The date of the prophecy. Isaiah prophesied *in the days of Uzziah, Jotham,
 
 ## The Degeneracy of Israel; The Sinfulness of Israel; The Sufferings of Israel. (b. c. 738.)
 
-> <sup>2</sup> Hear, O heavens, and give ear, O earth: for the LORD hath spoken, I have nourished and brought up children, and they have rebelled against me.  
-> <sup>3</sup> The ox knoweth his owner, and the ass his master's crib: *but* Israel doth not know, my people doth not consider.  
-> <sup>4</sup> Ah sinful nation, a people laden with iniquity, a seed of evildoers, children that are corrupters: they have forsaken the LORD, they have provoked the Holy One of Israel unto anger, they are gone away backward.  
-> <sup>5</sup> Why should ye be stricken any more? ye will revolt more and more: the whole head is sick, and the whole heart faint.  
-> <sup>6</sup> From the sole of the foot even unto the head *there is* no soundness in it; *but* wounds, and bruises, and putrefying sores: they have not been closed, neither bound up, neither mollified with ointment.  
-> <sup>7</sup> Your country *is* desolate, your cities *are* burned with fire: your land, strangers devour it in your presence, and *it is* desolate, as overthrown by strangers.  
-> <sup>8</sup> And the daughter of Zion is left as a cottage in a vineyard, as a lodge in a garden of cucumbers, as a besieged city.  
-> <sup>9</sup> Except the LORD of hosts had left unto us a very small remnant, we should have been as Sodom, *and* we should have been like unto Gomorrah.  
+> **²** Hear, O heavens, and give ear, O earth: for the LORD hath spoken, I have nourished and brought up children, and they have rebelled against me.  
+> **³** The ox knoweth his owner, and the ass his master's crib: *but* Israel doth not know, my people doth not consider.  
+> **⁴** Ah sinful nation, a people laden with iniquity, a seed of evildoers, children that are corrupters: they have forsaken the LORD, they have provoked the Holy One of Israel unto anger, they are gone away backward.  
+> **⁵** Why should ye be stricken any more? ye will revolt more and more: the whole head is sick, and the whole heart faint.  
+> **⁶** From the sole of the foot even unto the head *there is* no soundness in it; *but* wounds, and bruises, and putrefying sores: they have not been closed, neither bound up, neither mollified with ointment.  
+> **⁷** Your country *is* desolate, your cities *are* burned with fire: your land, strangers devour it in your presence, and *it is* desolate, as overthrown by strangers.  
+> **⁸** And the daughter of Zion is left as a cottage in a vineyard, as a lodge in a garden of cucumbers, as a besieged city.  
+> **⁹** Except the LORD of hosts had left unto us a very small remnant, we should have been as Sodom, *and* we should have been like unto Gomorrah.  
 
 We will hope to meet with a brighter and more pleasant scene before we come to the end of this book; but truly here, in the beginning of it, every thing looks very bad, very black, with Judah and Jerusalem. What is the wilderness of the world, if the church, the vineyard, has such a dismal aspect as this?
 
@@ -49,12 +49,12 @@ VI\. He comforts himself with the consideration of a remnant that should be the 
 
 ## The Vanity of Mere Ritual Obedience. (b. c. 738.)
 
-> <sup>10</sup> Hear the word of the LORD, ye rulers of Sodom; give ear unto the law of our God, ye people of Gomorrah.  
-> <sup>11</sup> To what purpose *is* the multitude of your sacrifices unto me? saith the LORD: I am full of the burnt offerings of rams, and the fat of fed beasts; and I delight not in the blood of bullocks, or of lambs, or of he goats.  
-> <sup>12</sup> When ye come to appear before me, who hath required this at your hand, to tread my courts?  
-> <sup>13</sup> Bring no more vain oblations; incense is an abomination unto me; the new moons and sabbaths, the calling of assemblies, I cannot away with; *it is* iniquity, even the solemn meeting.  
-> <sup>14</sup> Your new moons and your appointed feasts my soul hateth: they are a trouble unto me; I am weary to bear *them.*  
-> <sup>15</sup> And when ye spread forth your hands, I will hide mine eyes from you: yea, when ye make many prayers, I will not hear: your hands are full of blood.  
+> **¹⁰** Hear the word of the LORD, ye rulers of Sodom; give ear unto the law of our God, ye people of Gomorrah.  
+> **¹¹** To what purpose *is* the multitude of your sacrifices unto me? saith the LORD: I am full of the burnt offerings of rams, and the fat of fed beasts; and I delight not in the blood of bullocks, or of lambs, or of he goats.  
+> **¹²** When ye come to appear before me, who hath required this at your hand, to tread my courts?  
+> **¹³** Bring no more vain oblations; incense is an abomination unto me; the new moons and sabbaths, the calling of assemblies, I cannot away with; *it is* iniquity, even the solemn meeting.  
+> **¹⁴** Your new moons and your appointed feasts my soul hateth: they are a trouble unto me; I am weary to bear *them.*  
+> **¹⁵** And when ye spread forth your hands, I will hide mine eyes from you: yea, when ye make many prayers, I will not hear: your hands are full of blood.  
 
 Here, I. God calls to them (but calls in vain) to hear his word, Isa 1:10. 1. The title he gives them is very strange; *You rulers of Sodom,* and *people of Gomorrah.* This intimates what a righteous thing it would have been with God to make them like Sodom and Gomorrah in respect of ruin (Isa 1:9), because that had made themselves like Sodom and Gomorrah in respect of sin. The men of Sodom were *wicked, and sinners before the Lord exceedingly* (Ge 13:13), and so were the men of Judah. When the rulers were bad, no wonder the people were so. Vice overpowered virtue, for it had the rulers, the men of figure, on its side; and it out-polled it, for it had the people, the men of number, on its side. The streams being thus strong, no less a power than that of the Lord of hosts could secure a remnant, Isa 1:9. The rulers are boldly attacked here by the prophet as rulers of Sodom; for he knew not how to give flattering titles. The tradition of the Jews is that for this he was impeached long after, and put to death, as having cursed the gods and *spoken evil of the ruler of his people.* 2. His demand upon them is very reasonable: "*Hear the word of the Lord,* and *give ear to the law of our God;* attend to that which God has to say to you, and let his word be a law to you." The following declaration of dislike to their sacrifices would be a kind of new law to them, though really it was but an explication of the old law; but special regard is to be had to it, as is required to the like, Ps 50:7,8. "Hear this, and tremble; hear it, and take warning."
 
@@ -72,11 +72,11 @@ II\. He justly refuses to hear their prayers and accept their services, their sa
 
 ## A Call to Repentance; Repentance and Reformation Urged. (b. c. 738.)
 
-> <sup>16</sup> Wash you, make you clean; put away the evil of your doings from before mine eyes; cease to do evil;  
-> <sup>17</sup> Learn to do well; seek judgment, relieve the oppressed, judge the fatherless, plead for the widow.  
-> <sup>18</sup> Come now, and let us reason together, saith the LORD: though your sins be as scarlet, they shall be as white as snow; though they be red like crimson, they shall be as wool.  
-> <sup>19</sup> If ye be willing and obedient, ye shall eat the good of the land:  
-> <sup>20</sup> But if ye refuse and rebel, ye shall be devoured with the sword: for the mouth of the LORD hath spoken *it.*  
+> **¹⁶** Wash you, make you clean; put away the evil of your doings from before mine eyes; cease to do evil;  
+> **¹⁷** Learn to do well; seek judgment, relieve the oppressed, judge the fatherless, plead for the widow.  
+> **¹⁸** Come now, and let us reason together, saith the LORD: though your sins be as scarlet, they shall be as white as snow; though they be red like crimson, they shall be as wool.  
+> **¹⁹** If ye be willing and obedient, ye shall eat the good of the land:  
+> **²⁰** But if ye refuse and rebel, ye shall be devoured with the sword: for the mouth of the LORD hath spoken *it.*  
 
 Though God had rejected their services as insufficient to atone for their sins while they persisted in them, yet he does not reject them as in a hopeless condition, but here calls upon them to forsake their sins, which hindered the acceptance of their services, and then all would be well. Let them not say that God picked quarrels with them; no, he proposes a method of reconciliation. Observe here,
 
@@ -96,17 +96,17 @@ II\. A demonstration, at the bar of right reason, of the equity of God's proceed
 
 ## The Degeneracy of Jerusalem; Reformation of the Church. (b. c. 738.)
 
-> <sup>21</sup> How is the faithful city become a harlot! it was full of judgment; righteousness lodged in it; but now murderers.  
-> <sup>22</sup> Thy silver is become dross, thy wine mixed with water:  
-> <sup>23</sup> Thy princes *are* rebellious, and companions of thieves: every one loveth gifts, and followeth after rewards: they judge not the fatherless, neither doth the cause of the widow come unto them.  
-> <sup>24</sup> Therefore saith the Lord, the LORD of hosts, the mighty One of Israel, Ah, I will ease me of mine adversaries, and avenge me of mine enemies:  
-> <sup>25</sup> And I will turn my hand upon thee, and purely purge away thy dross, and take away all thy tin:  
-> <sup>26</sup> And I will restore thy judges as at the first, and thy counsellors as at the beginning: afterward thou shalt be called, The city of righteousness, the faithful city.  
-> <sup>27</sup> Zion shall be redeemed with judgment, and her converts with righteousness.  
-> <sup>28</sup> And the destruction of the transgressors and of the sinners *shall be* together, and they that forsake the LORD shall be consumed.  
-> <sup>29</sup> For they shall be ashamed of the oaks which ye have desired, and ye shall be confounded for the gardens that ye have chosen.  
-> <sup>30</sup> For ye shall be as an oak whose leaf fadeth, and as a garden that hath no water.  
-> <sup>31</sup> And the strong shall be as tow, and the maker of it as a spark, and they shall both burn together, and none shall quench *them.*  
+> **²¹** How is the faithful city become a harlot! it was full of judgment; righteousness lodged in it; but now murderers.  
+> **²²** Thy silver is become dross, thy wine mixed with water:  
+> **²³** Thy princes *are* rebellious, and companions of thieves: every one loveth gifts, and followeth after rewards: they judge not the fatherless, neither doth the cause of the widow come unto them.  
+> **²⁴** Therefore saith the Lord, the LORD of hosts, the mighty One of Israel, Ah, I will ease me of mine adversaries, and avenge me of mine enemies:  
+> **²⁵** And I will turn my hand upon thee, and purely purge away thy dross, and take away all thy tin:  
+> **²⁶** And I will restore thy judges as at the first, and thy counsellors as at the beginning: afterward thou shalt be called, The city of righteousness, the faithful city.  
+> **²⁷** Zion shall be redeemed with judgment, and her converts with righteousness.  
+> **²⁸** And the destruction of the transgressors and of the sinners *shall be* together, and they that forsake the LORD shall be consumed.  
+> **²⁹** For they shall be ashamed of the oaks which ye have desired, and ye shall be confounded for the gardens that ye have chosen.  
+> **³⁰** For ye shall be as an oak whose leaf fadeth, and as a garden that hath no water.  
+> **³¹** And the strong shall be as tow, and the maker of it as a spark, and they shall both burn together, and none shall quench *them.*  
 
 Here, I. The woeful degeneracy of Judah and Jerusalem is sadly lamented. See, 1. What the royal city had been, a faithful city, faithful to God and the interests of his kingdom among men, faithful to the nation and its public interests. *It was full of judgment;* justice was duly administered upon the thrones of judgment which were set there, the *thrones of the house of David,* Ps 122:5. Men were generally honest in their dealings, and abhorred to do an unjust thing. *Righteousness lodged in it,* was constantly resident in their palaces and in all their dwellings, not called in now and then to serve a turn, but at home there. Note, Neither holy cities nor royal ones, neither places where religion is professed nor places where government is administered, are faithful to their trust if religion do not dwell in them. 2. What it had now become. That beauteous virtuous spouse was now debauched, and become an adulteress; righteousness no longer dwelt in Jerusalem (*terras Astræa reliquit—Astrea left the earth*); even murderers were unpunished and lived undisturbed there; nay, the princes themselves were so cruel and oppressive that they had become no better than murderers; an innocent man might better guard himself against a troop of banditti or assassins than against a bench of such judges. Note, It is a great aggravation of the wickedness of any family or people that their ancestors were famed for virtue and probity; and commonly those that thus degenerate prove the most wicked of all men. *Corruptio optimi est pessima—That which was originally the best becomes when corrupted the worst,* Lu 11:26, Ec 3:16. See Jer 22:15-17. The degeneracy of Jerusalem is illustrated, (1.) By similitudes (Isa 1:22): *Thy silver has become dross.* This degeneracy of the magistrates, whose character is the reverse of that of their predecessors, is a great a reproach and injury to the kingdom as the debasing of their coin would be and the turning of their silver into dross. Righteous princes and righteous cities are as silver for the treasury, but unrighteous ones are as dross for the dunghill. *How has the gold become dim!* La 4:1. *Thy wine is mixed with water,* and so has become flat and sour. Some understand both these literally: the wine they sold was adulterated, it was half water; the money they paid was counterfeit, and so they cheated all they dealt with. But it is rather to be taken figuratively: justice was perverted by their princes, and religion and the word of God were sophisticated by their priests, and made to serve what turn they pleased. Dross may shine like silver, and the wine that is mixed with water may retain the colour of wine, but neither is worth any thing. Thus they retained a show and pretence of virtue and justice, but had no true sense of either. (2.) By some instances (Isa 1:23): "Thy princes, that should keep others in their allegiance to God and subjection to his law, are themselves rebellious, and set God and his law at defiance." Those that should restrain thieves (proud and rich oppressors, those worst of robbers, and those that designedly cheat their creditors, who are no better), are themselves companions of thieves, connive at them, do as they do, and with greater security and success, because they are princes, and have power in their hands; they share with the thieves they protect in their unlawful gain (Ps 50:18) and *cast in their lot among them,* Pr 1:13,14. [1.] The profit of their places is all their aim, to make the best hand they can of them, right or wrong. They love gifts, and follow after rewards; they set their hearts upon their salary, the fees and perquisites of their offices, and are greedy of them, and never think they can get enough; nay, they will do any thing, though ever so contrary to law and justice, for a gift in secret. Presents and gratuities will blind their eyes at any time, and make them pervert judgment. These they love and are eager in the pursuit of. [2.] The duty of their places is none of their care. They ought to protect those that are injured, and take cognizance of the appeals made to them; why else were they preferred? But *they judge not the fatherless,* take no care to guard the orphans, *nor does the cause of the widow come unto them,* because the poor widow has no bribe to give, with which to make way for her and to bring her cause on. Those will have a great deal to answer for who, when they should be the patrons of the oppressed, are their greatest oppressors.
 

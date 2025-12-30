@@ -8,11 +8,11 @@ In this and the two following chapters we have Job's answer to Zophar's discours
 
 ## Job's Reply to Zophar. (b. c. 1520.)
 
-> <sup>1</sup> And Job answered and said,  
-> <sup>2</sup> No doubt but ye *are* the people, and wisdom shall die with you.  
-> <sup>3</sup> But I have understanding as well as you; I *am* not inferior to you: yea, who knoweth not such things as these?  
-> <sup>4</sup> I am *as* one mocked of his neighbour, who calleth upon God, and he answereth him: the just upright *man is* laughed to scorn.  
-> <sup>5</sup> He that is ready to slip with *his* feet *is as* a lamp despised in the thought of him that is at ease.  
+> **¹** And Job answered and said,  
+> **²** No doubt but ye *are* the people, and wisdom shall die with you.  
+> **³** But I have understanding as well as you; I *am* not inferior to you: yea, who knoweth not such things as these?  
+> **⁴** I am *as* one mocked of his neighbour, who calleth upon God, and he answereth him: the just upright *man is* laughed to scorn.  
+> **⁵** He that is ready to slip with *his* feet *is as* a lamp despised in the thought of him that is at ease.  
 
 The reproofs Job here gives to his friends, whether they were just or no, were very sharp, and may serve for a rebuke to all that are proud and scornful, and an exposure of their folly.
 
@@ -26,12 +26,12 @@ II\. He complains of the great contempt with which they had treated him. Those t
 
 3\. What he suspected to be the true cause of it, and that was, in short, this: they were themselves rich and at ease, and therefore they despised him who had fallen into poverty. It is the way of the world; we see instances of it daily. Those that prosper are praised, but of those that are going down it is said, "Down with them." *He that is ready to slip with his feet* and fall into trouble, though he has formerly shone as a lamp, is then looked upon as a lamp going out like the snuff of a candle, which we throw to the ground and tread upon, and is accordingly *despised in the thought of him that is at ease,* Job 12:5. Even the just upright man, that is in his generation as a burning and shining light, if he enter into temptation (Ps 73:2) or come under a cloud, is looked upon with contempt. See here, (1.) What is the common fault of those that live in prosperity. Being full, and easy, and merry themselves, they look scornfully upon those that are in want, pain, and sorrow; they overlook them, take no notice of them, and study to forget them. See Ps 123:4. The chief butler drinks wine in bowls, but makes nothing of the afflictions of Joseph. Wealth without grace often makes men thus haughty, thus careless of their poor neighbours. (2.) What is the common fate of those that fall into adversity. Poverty serves to eclipse all their lustre; though they are lamps, yet, if taken out of golden candlesticks, and put, like Gideon's, into earthen pitchers, nobody values them as formerly, but those that live at ease despise them.
 
-> <sup>6</sup> The tabernacles of robbers prosper, and they that provoke God are secure; into whose hand God bringeth *abundantly.*  
-> <sup>7</sup> But ask now the beasts, and they shall teach thee; and the fowls of the air, and they shall tell thee:  
-> <sup>8</sup> Or speak to the earth, and it shall teach thee: and the fishes of the sea shall declare unto thee.  
-> <sup>9</sup> Who knoweth not in all these that the hand of the LORD hath wrought this?  
-> <sup>10</sup> In whose hand *is* the soul of every living thing, and the breath of all mankind.  
-> <sup>11</sup> Doth not the ear try words? and the mouth taste his meat?  
+> **⁶** The tabernacles of robbers prosper, and they that provoke God are secure; into whose hand God bringeth *abundantly.*  
+> **⁷** But ask now the beasts, and they shall teach thee; and the fowls of the air, and they shall tell thee:  
+> **⁸** Or speak to the earth, and it shall teach thee: and the fishes of the sea shall declare unto thee.  
+> **⁹** Who knoweth not in all these that the hand of the LORD hath wrought this?  
+> **¹⁰** In whose hand *is* the soul of every living thing, and the breath of all mankind.  
+> **¹¹** Doth not the ear try words? and the mouth taste his meat?  
 
 Job's friends all of them went upon this principle, that wicked people cannot prosper long in this world, but some remarkable judgment or other will suddenly light on them: Zophar had concluded with it, that *the eyes of the wicked shall fail,* Job 11:20. This principle Job here opposes, and maintains that God, in disposing men's outward affairs, acts as a sovereign, reserving the exact distribution of rewards and punishments for the future state.
 
@@ -47,20 +47,20 @@ III\. He resolves all into the absolute propriety which God has in all the creat
 
 IV\. Those words—(Job 12:11), *Doth not the ear try words, as the mouth tastes meat?* may be taken either as the conclusion to the foregoing discourse or the preface to what follows. The mind of man has as good a faculty of discerning between truth and error, when duly stated, as the palate has of discerning between what is sweet and what is bitter. Job therefore demands from his friends a liberty to judge for himself of what they had said, and desires them to use the same liberty in judging of what he had said; nay, he seems to appeal to any man's impartial judgment in this controversy; let the ear try the words on both sides, and it would be found that he was in the right. Note, The ear must try words before it receives them so as to subscribe to them. As by the taste we judge what food is wholesome to the body and what not, so by the spirit of discerning we must judge what doctrine is sound, and savoury, and wholesome, and what not, 1Co 10:15,11:13.
 
-> <sup>12</sup> With the ancient *is* wisdom; and in length of days understanding.  
-> <sup>13</sup> With him *is* wisdom and strength, he hath counsel and understanding.  
-> <sup>14</sup> Behold, he breaketh down, and it cannot be built again: he shutteth up a man, and there can be no opening.  
-> <sup>15</sup> Behold, he withholdeth the waters, and they dry up: also he sendeth them out, and they overturn the earth.  
-> <sup>16</sup> With him *is* strength and wisdom: the deceived and the deceiver *are* his.  
-> <sup>17</sup> He leadeth counsellors away spoiled, and maketh the judges fools.  
-> <sup>18</sup> He looseth the bond of kings, and girdeth their loins with a girdle.  
-> <sup>19</sup> He leadeth princes away spoiled, and overthroweth the mighty.  
-> <sup>20</sup> He removeth away the speech of the trusty, and taketh away the understanding of the aged.  
-> <sup>21</sup> He poureth contempt upon princes, and weakeneth the strength of the mighty.  
-> <sup>22</sup> He discovereth deep things out of darkness, and bringeth out to light the shadow of death.  
-> <sup>23</sup> He increaseth the nations, and destroyeth them: he enlargeth the nations, and straiteneth them *again.*  
-> <sup>24</sup> He taketh away the heart of the chief of the people of the earth, and causeth them to wander in a wilderness *where there is* no way.  
-> <sup>25</sup> They grope in the dark without light, and he maketh them to stagger like *a* drunken *man.*  
+> **¹²** With the ancient *is* wisdom; and in length of days understanding.  
+> **¹³** With him *is* wisdom and strength, he hath counsel and understanding.  
+> **¹⁴** Behold, he breaketh down, and it cannot be built again: he shutteth up a man, and there can be no opening.  
+> **¹⁵** Behold, he withholdeth the waters, and they dry up: also he sendeth them out, and they overturn the earth.  
+> **¹⁶** With him *is* strength and wisdom: the deceived and the deceiver *are* his.  
+> **¹⁷** He leadeth counsellors away spoiled, and maketh the judges fools.  
+> **¹⁸** He looseth the bond of kings, and girdeth their loins with a girdle.  
+> **¹⁹** He leadeth princes away spoiled, and overthroweth the mighty.  
+> **²⁰** He removeth away the speech of the trusty, and taketh away the understanding of the aged.  
+> **²¹** He poureth contempt upon princes, and weakeneth the strength of the mighty.  
+> **²²** He discovereth deep things out of darkness, and bringeth out to light the shadow of death.  
+> **²³** He increaseth the nations, and destroyeth them: he enlargeth the nations, and straiteneth them *again.*  
+> **²⁴** He taketh away the heart of the chief of the people of the earth, and causeth them to wander in a wilderness *where there is* no way.  
+> **²⁵** They grope in the dark without light, and he maketh them to stagger like *a* drunken *man.*  
 
 This is a noble discourse of Job's concerning the wisdom, power, and sovereignty of God, in ordering and disposing of all the affairs of the children of men, according to the counsel of his own will, which none dares gainsay or can resist. Take both him and them out of the controversy in which they were so warmly engaged, and they all spoke admirably well; but, in *that,* we sometimes scarcely know what to make of them. It were well if wise and good men, that differ in their apprehensions about minor things, would see it to be for their honour and comfort, and the edification of others, to dwell most upon those great things in which they are agreed. On this subject Job speaks like himself. Here are no passionate complaints, no peevish reflections, but every thing masculine and great.
 

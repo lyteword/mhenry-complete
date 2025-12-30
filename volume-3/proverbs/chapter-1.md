@@ -8,12 +8,12 @@ Those who read David's psalms, especially those towards the latter end, would be
 
 ## The Design of the Proverbs.
 
-> <sup>1</sup> The proverbs of Solomon the son of David, king of Israel;  
-> <sup>2</sup> To know wisdom and instruction; to perceive the words of understanding;  
-> <sup>3</sup> To receive the instruction of wisdom, justice, and judgment, and equity;  
-> <sup>4</sup> To give subtilty to the simple, to the young man knowledge and discretion.  
-> <sup>5</sup> A wise *man* will hear, and will increase learning; and a man of understanding shall attain unto wise counsels:  
-> <sup>6</sup> To understand a proverb, and the interpretation; the words of the wise, and their dark sayings.  
+> **¹** The proverbs of Solomon the son of David, king of Israel;  
+> **²** To know wisdom and instruction; to perceive the words of understanding;  
+> **³** To receive the instruction of wisdom, justice, and judgment, and equity;  
+> **⁴** To give subtilty to the simple, to the young man knowledge and discretion.  
+> **⁵** A wise *man* will hear, and will increase learning; and a man of understanding shall attain unto wise counsels:  
+> **⁶** To understand a proverb, and the interpretation; the words of the wise, and their dark sayings.  
 
 We have here an introduction to this book, which some think was prefixed by the collector and publisher, as Ezra; but it is rather supposed to have been penned by Solomon himself, who, in the beginning of his book, proposes his end in writing it, that he might keep to his business, and closely pursue that end. We are here told,
 
@@ -27,9 +27,9 @@ IV\. What good use may be made of them, Pr 1:5,6. Those who are young and simple
 
 ## Parental Admonitions.
 
-> <sup>7</sup> The fear of the LORD *is* the beginning of knowledge: *but* fools despise wisdom and instruction.  
-> <sup>8</sup> My son, hear the instruction of thy father, and forsake not the law of thy mother:  
-> <sup>9</sup> For they *shall be* an ornament of grace unto thy head, and chains about thy neck.  
+> **⁷** The fear of the LORD *is* the beginning of knowledge: *but* fools despise wisdom and instruction.  
+> **⁸** My son, hear the instruction of thy father, and forsake not the law of thy mother:  
+> **⁹** For they *shall be* an ornament of grace unto thy head, and chains about thy neck.  
 
 Solomon, having undertaken to *teach a young man knowledge and discretion,* here lays down two general rules to be observed in order thereunto, and those are, to fear God and honour his parents, which two fundamental laws of morality Pythagoras begins his golden verses with, but the former of them in a wretchedly corrupted state. *Primum, deos immortales cole, parentesque honora—First worship the immortal gods, and honour your parents.* To make young people such as they should be,
 
@@ -49,16 +49,16 @@ II\. Let them have regard to their parents as their superiors (Pr 1:8,9): *My so
 
 ## Parental Admonitions.
 
-> <sup>10</sup> My son, if sinners entice thee, consent thou not.  
-> <sup>11</sup> If they say, Come with us, let us lay wait for blood, let us lurk privily for the innocent without cause:  
-> <sup>12</sup> Let us swallow them up alive as the grave; and whole, as those that go down into the pit:  
-> <sup>13</sup> We shall find all precious substance, we shall fill our houses with spoil:  
-> <sup>14</sup> Cast in thy lot among us; let us all have one purse:  
-> <sup>15</sup> My son, walk not thou in the way with them; refrain thy foot from their path:  
-> <sup>16</sup> For their feet run to evil, and make haste to shed blood.  
-> <sup>17</sup> Surely in vain the net is spread in the sight of any bird.  
-> <sup>18</sup> And they lay wait for their *own* blood; they lurk privily for their *own* lives.  
-> <sup>19</sup> So *are* the ways of every one that is greedy of gain; *which* taketh away the life of the owners thereof.  
+> **¹⁰** My son, if sinners entice thee, consent thou not.  
+> **¹¹** If they say, Come with us, let us lay wait for blood, let us lurk privily for the innocent without cause:  
+> **¹²** Let us swallow them up alive as the grave; and whole, as those that go down into the pit:  
+> **¹³** We shall find all precious substance, we shall fill our houses with spoil:  
+> **¹⁴** Cast in thy lot among us; let us all have one purse:  
+> **¹⁵** My son, walk not thou in the way with them; refrain thy foot from their path:  
+> **¹⁶** For their feet run to evil, and make haste to shed blood.  
+> **¹⁷** Surely in vain the net is spread in the sight of any bird.  
+> **¹⁸** And they lay wait for their *own* blood; they lurk privily for their *own* lives.  
+> **¹⁹** So *are* the ways of every one that is greedy of gain; *which* taketh away the life of the owners thereof.  
 
 Here Solomon gives another general rule to young people, in order to their finding out, and keeping in, the paths of wisdom, and that is to take heed of the snare of bad company. David's psalms begin with this caution, and so do Solomon's proverbs; for nothing is more destructive, both to a lively devotion and to a regular conversation (Pr 1:10): "*My son,* whom I love, and have a tender concern for, *if sinners entice thee, consent thou not.*" This is good advice for parents to give their children when they send them abroad into the world; it is the same that St. Peter gave to his new converts, (Ac 2:40), *Save yourselves from this untoward generation.* Observe, 1. How industrious wicked people are to seduce others into the paths of the destroyer: they will entice. Sinners love company in sin; the angels that fell were tempters almost as soon as they were sinners. They do not threaten or argue, but entice with flattery and fair speech; with a bait they draw the unwary young man to the hook. But they mistake if they think that by bringing others to partake with them in their guilt, and to be bound, as it were, in the bond with them, they shall have the less to pay themselves; for they will have so much the more to answer for. 2. How cautious young people should be that they be not seduced by them: "*Consent thou not;* and then, though they entice thee, they cannot force thee. Do not say as they say, nor do as they do or would have thee to do; have no fellowship with them." To enforce this caution,
 
@@ -70,20 +70,20 @@ Now, though Solomon specifies only the temptation to rob on the highway, yet he 
 
 ## Wisdom's Exhortations; Doom of Obdurate Sinners.
 
-> <sup>20</sup> Wisdom crieth without; she uttereth her voice in the streets:  
-> <sup>21</sup> She crieth in the chief place of concourse, in the openings of the gates: in the city she uttereth her words, *saying,*  
-> <sup>22</sup> How long, ye simple ones, will ye love simplicity? and the scorners delight in their scorning, and fools hate knowledge?  
-> <sup>23</sup> Turn you at my reproof: behold, I will pour out my spirit unto you, I will make known my words unto you.  
-> <sup>24</sup> Because I have called, and ye refused; I have stretched out my hand, and no man regarded;  
-> <sup>25</sup> But ye have set at nought all my counsel, and would none of my reproof:  
-> <sup>26</sup> I also will laugh at your calamity; I will mock when your fear cometh;  
-> <sup>27</sup> When your fear cometh as desolation, and your destruction cometh as a whirlwind; when distress and anguish cometh upon you.  
-> <sup>28</sup> Then shall they call upon me, but I will not answer; they shall seek me early, but they shall not find me:  
-> <sup>29</sup> For that they hated knowledge, and did not choose the fear of the LORD:  
-> <sup>30</sup> They would none of my counsel: they despised all my reproof.  
-> <sup>31</sup> Therefore shall they eat of the fruit of their own way, and be filled with their own devices.  
-> <sup>32</sup> For the turning away of the simple shall slay them, and the prosperity of fools shall destroy them.  
-> <sup>33</sup> But whoso hearkeneth unto me shall dwell safely, and shall be quiet from fear of evil.  
+> **²⁰** Wisdom crieth without; she uttereth her voice in the streets:  
+> **²¹** She crieth in the chief place of concourse, in the openings of the gates: in the city she uttereth her words, *saying,*  
+> **²²** How long, ye simple ones, will ye love simplicity? and the scorners delight in their scorning, and fools hate knowledge?  
+> **²³** Turn you at my reproof: behold, I will pour out my spirit unto you, I will make known my words unto you.  
+> **²⁴** Because I have called, and ye refused; I have stretched out my hand, and no man regarded;  
+> **²⁵** But ye have set at nought all my counsel, and would none of my reproof:  
+> **²⁶** I also will laugh at your calamity; I will mock when your fear cometh;  
+> **²⁷** When your fear cometh as desolation, and your destruction cometh as a whirlwind; when distress and anguish cometh upon you.  
+> **²⁸** Then shall they call upon me, but I will not answer; they shall seek me early, but they shall not find me:  
+> **²⁹** For that they hated knowledge, and did not choose the fear of the LORD:  
+> **³⁰** They would none of my counsel: they despised all my reproof.  
+> **³¹** Therefore shall they eat of the fruit of their own way, and be filled with their own devices.  
+> **³²** For the turning away of the simple shall slay them, and the prosperity of fools shall destroy them.  
+> **³³** But whoso hearkeneth unto me shall dwell safely, and shall be quiet from fear of evil.  
 
 Solomon, having shown how dangerous it is to hearken to the temptations of Satan, here shows how dangerous it is not to hearken to the calls of God, which we shall for ever rue the neglect of. Observe,
 

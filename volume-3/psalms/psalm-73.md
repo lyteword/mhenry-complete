@@ -10,20 +10,20 @@ This psalm, and the ten that next follow it, carry the name of Asaph in the titl
 
 A psalm of Asaph.
 
-> <sup>1</sup> Truly God *is* good to Israel, *even* to such as are of a clean heart.  
-> <sup>2</sup> But as for me, my feet were almost gone; my steps had well nigh slipped.  
-> <sup>3</sup> For I was envious at the foolish, *when* I saw the prosperity of the wicked.  
-> <sup>4</sup> For *there are* no bands in their death: but their strength *is* firm.  
-> <sup>5</sup> They *are* not in trouble *as other* men; neither are they plagued like *other* men.  
-> <sup>6</sup> Therefore pride compasseth them about as a chain; violence covereth them *as* a garment.  
-> <sup>7</sup> Their eyes stand out with fatness: they have more than heart could wish.  
-> <sup>8</sup> They are corrupt, and speak wickedly *concerning* oppression: they speak loftily.  
-> <sup>9</sup> They set their mouth against the heavens, and their tongue walketh through the earth.  
-> <sup>10</sup> Therefore his people return hither: and waters of a full *cup* are wrung out to them.  
-> <sup>11</sup> And they say, How doth God know? and is there knowledge in the most High?  
-> <sup>12</sup> Behold, these *are* the ungodly, who prosper in the world; they increase *in* riches.  
-> <sup>13</sup> Verily I have cleansed my heart *in* vain, and washed my hands in innocency.  
-> <sup>14</sup> For all the day long have I been plagued, and chastened every morning.  
+> **¹** Truly God *is* good to Israel, *even* to such as are of a clean heart.  
+> **²** But as for me, my feet were almost gone; my steps had well nigh slipped.  
+> **³** For I was envious at the foolish, *when* I saw the prosperity of the wicked.  
+> **⁴** For *there are* no bands in their death: but their strength *is* firm.  
+> **⁵** They *are* not in trouble *as other* men; neither are they plagued like *other* men.  
+> **⁶** Therefore pride compasseth them about as a chain; violence covereth them *as* a garment.  
+> **⁷** Their eyes stand out with fatness: they have more than heart could wish.  
+> **⁸** They are corrupt, and speak wickedly *concerning* oppression: they speak loftily.  
+> **⁹** They set their mouth against the heavens, and their tongue walketh through the earth.  
+> **¹⁰** Therefore his people return hither: and waters of a full *cup* are wrung out to them.  
+> **¹¹** And they say, How doth God know? and is there knowledge in the most High?  
+> **¹²** Behold, these *are* the ungodly, who prosper in the world; they increase *in* riches.  
+> **¹³** Verily I have cleansed my heart *in* vain, and washed my hands in innocency.  
+> **¹⁴** For all the day long have I been plagued, and chastened every morning.  
 
 This psalm begins somewhat abruptly: *Yet God is good to Israel* (so the margin reads it); he had been thinking of the prosperity of the wicked; while he was thus musing the fire burned, and at last he spoke by way of check to himself for what he had been thinking of. "However it be, yet God is good." Though wicked people receive many of the gifts of his providential bounty, yet we must own that he is, in a peculiar manner, good to Israel; they have favours from him which others have not.
 
@@ -47,12 +47,12 @@ II\. He comes now to relate the shock that was given to his faith in God's disti
 
 ## The End of the Wicked.
 
-> <sup>15</sup> If I say, I will speak thus; behold, I should offend *against* the generation of thy children.  
-> <sup>16</sup> When I thought to know this, it *was* too painful for me;  
-> <sup>17</sup> Until I went into the sanctuary of God; *then* understood I their end.  
-> <sup>18</sup> Surely thou didst set them in slippery places: thou castedst them down into destruction.  
-> <sup>19</sup> How are they *brought* into desolation, as in a moment! they are utterly consumed with terrors.  
-> <sup>20</sup> As a dream when *one* awaketh; *so,* O Lord, when thou awakest, thou shalt despise their image.  
+> **¹⁵** If I say, I will speak thus; behold, I should offend *against* the generation of thy children.  
+> **¹⁶** When I thought to know this, it *was* too painful for me;  
+> **¹⁷** Until I went into the sanctuary of God; *then* understood I their end.  
+> **¹⁸** Surely thou didst set them in slippery places: thou castedst them down into destruction.  
+> **¹⁹** How are they *brought* into desolation, as in a moment! they are utterly consumed with terrors.  
+> **²⁰** As a dream when *one* awaketh; *so,* O Lord, when thou awakest, thou shalt despise their image.  
 
 We have seen what a strong temptation the psalmist was in to envy prospering profaneness; now here we are told how he kept his footing and got the victory.
 
@@ -68,14 +68,14 @@ II\. He foresaw the ruin of wicked people. By this he baffled the temptation, as
 
 ## Devout Confidence.
 
-> <sup>21</sup> Thus my heart was grieved, and I was pricked in my reins.  
-> <sup>22</sup> So foolish *was* I, and ignorant: I was *as* a beast before thee.  
-> <sup>23</sup> Nevertheless I *am* continually with thee: thou hast holden *me* by my right hand.  
-> <sup>24</sup> Thou shalt guide me with thy counsel, and afterward receive me *to* glory.  
-> <sup>25</sup> Whom have I in heaven *but thee?* and *there is* none upon earth *that* I desire beside thee.  
-> <sup>26</sup> My flesh and my heart faileth: *but* God *is* the strength of my heart, and my portion for ever.  
-> <sup>27</sup> For, lo, they that are far from thee shall perish: thou hast destroyed all them that go a whoring from thee.  
-> <sup>28</sup> But *it is* good for me to draw near to God: I have put my trust in the Lord GOD, that I may declare all thy works.  
+> **²¹** Thus my heart was grieved, and I was pricked in my reins.  
+> **²²** So foolish *was* I, and ignorant: I was *as* a beast before thee.  
+> **²³** Nevertheless I *am* continually with thee: thou hast holden *me* by my right hand.  
+> **²⁴** Thou shalt guide me with thy counsel, and afterward receive me *to* glory.  
+> **²⁵** Whom have I in heaven *but thee?* and *there is* none upon earth *that* I desire beside thee.  
+> **²⁶** My flesh and my heart faileth: *but* God *is* the strength of my heart, and my portion for ever.  
+> **²⁷** For, lo, they that are far from thee shall perish: thou hast destroyed all them that go a whoring from thee.  
+> **²⁸** But *it is* good for me to draw near to God: I have put my trust in the Lord GOD, that I may declare all thy works.  
 
 Behold Samson's riddle again unriddled, *Out of the eater came forth meat, and out of the strong sweetness;* for we have here an account of the good improvement which the psalmist made of that sore temptation with which he had been assaulted and by which he was almost overcome. He that stumbles and does not fall, by recovering himself takes so much the longer steps forward. It was so with the psalmist here; many good lessons he learned from his temptation, his struggles with it, and his victories over it. Nor would God suffer his people to be tempted if his grace were not sufficient for them, not only to save them from harm, but to make them gainers by it; even this shall work for good.
 

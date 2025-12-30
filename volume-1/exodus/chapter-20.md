@@ -8,17 +8,17 @@ All things being prepared for the solemn promulgation of the divine law, we have
 
 ## The Ten Commandments. (b. c. 1491.)
 
-> <sup>1</sup> And God spake all these words, saying,  
-> <sup>2</sup> I *am* the LORD thy God, which have brought thee out of the land of Egypt, out of the house of bondage.  
-> <sup>3</sup> Thou shalt have no other gods before me.  
-> <sup>4</sup> Thou shalt not make unto thee any graven image, or any likeness *of any thing* that *is* in heaven above, or that *is* in the earth beneath, or that *is* in the water under the earth:  
-> <sup>5</sup> Thou shalt not bow down thyself to them, nor serve them: for I the LORD thy God *am* a jealous God, visiting the iniquity of the fathers upon the children unto the third and fourth *generation* of them that hate me;  
-> <sup>6</sup> And showing mercy unto thousands of them that love me, and keep my commandments.  
-> <sup>7</sup> Thou shalt not take the name of the LORD thy God in vain; for the LORD will not hold him guiltless that taketh his name in vain.  
-> <sup>8</sup> Remember the sabbath day, to keep it holy.  
-> <sup>9</sup> Six days shalt thou labour, and do all thy work:  
-> <sup>10</sup> But the seventh day *is* the sabbath of the LORD thy God: *in it* thou shalt not do any work, thou, nor thy son, nor thy daughter, thy manservant, nor thy maidservant, nor thy cattle, nor thy stranger that *is* within thy gates:  
-> <sup>11</sup> For *in* six days the LORD made heaven and earth, the sea, and all that in them *is,* and rested the seventh day: wherefore the LORD blessed the sabbath day, and hallowed it.  
+> **¹** And God spake all these words, saying,  
+> **²** I *am* the LORD thy God, which have brought thee out of the land of Egypt, out of the house of bondage.  
+> **³** Thou shalt have no other gods before me.  
+> **⁴** Thou shalt not make unto thee any graven image, or any likeness *of any thing* that *is* in heaven above, or that *is* in the earth beneath, or that *is* in the water under the earth:  
+> **⁵** Thou shalt not bow down thyself to them, nor serve them: for I the LORD thy God *am* a jealous God, visiting the iniquity of the fathers upon the children unto the third and fourth *generation* of them that hate me;  
+> **⁶** And showing mercy unto thousands of them that love me, and keep my commandments.  
+> **⁷** Thou shalt not take the name of the LORD thy God in vain; for the LORD will not hold him guiltless that taketh his name in vain.  
+> **⁸** Remember the sabbath day, to keep it holy.  
+> **⁹** Six days shalt thou labour, and do all thy work:  
+> **¹⁰** But the seventh day *is* the sabbath of the LORD thy God: *in it* thou shalt not do any work, thou, nor thy son, nor thy daughter, thy manservant, nor thy maidservant, nor thy cattle, nor thy stranger that *is* within thy gates:  
+> **¹¹** For *in* six days the LORD made heaven and earth, the sea, and all that in them *is,* and rested the seventh day: wherefore the LORD blessed the sabbath day, and hallowed it.  
 
 Here is, I. The preface of the law-writer, Moses: *God spoke all these words,* Ex 20:1. The law of the ten commandments is, 1. A law of God's making. They are enjoined by the infinite eternal Majesty of heaven and earth. And *where the word of the King* of kings *is surely there is power.* 2. It is a law of his own speaking. God has many ways of speaking to the children of men (Job 33:14); *once, yea twice*—by his Spirit, by conscience, by providences, by his voice, all which we ought carefully to attend to; but he never spoke, at any time, upon any occasion, as he spoke the ten commandments, which therefore we ought to hear with the *more earnest heed.* They were not only spoken audibly (so he owned the Redeemer by a voice from heaven, Mt 3:17), but with a great deal of dreadful pomp. This law God had given to man before (it was written in his heart by nature); but sin had so defaced that writing that it was necessary, in this manner, to revive the knowledge of it.
 
@@ -46,12 +46,12 @@ III\. The law itself. The first four of the ten commandments, which concern our 
 
 (2.) The reasons of this command. [1.] We have time enough for ourselves in those six days, on the seventh day let us serve God; and time enough to tire ourselves, on the seventh it will be a kindness to us to be obliged to rest. [2.] This is God's day: it is the *sabbath of the Lord thy God,* not only instituted by him, but consecrated to him. It is sacrilege to alienate it; the sanctification of it is a debt. [3.] It is designed for a memorial of the creation of the world, and therefore to be observed to the glory of the Creator, as an engagement upon ourselves to serve him and an encouragement to us to trust in him who made heaven and earth. By the sanctification of the sabbath, the Jews declared that they worshipped the God that made the world, and so distinguished themselves from all other nations, who worshipped gods which they themselves made. [4.] God has given us an example of rest, after six days' work: he *rested the seventh day,* took a complacency in himself, and *rejoiced in the work of his hand,* to teach us, on that day, to take a complacency in him, and to give him the glory of his works, Ps 92:4. The sabbath began in the finishing of the work of creation, so will the everlasting sabbath in the finishing of the work of providence and redemption; and we observe the weekly sabbath in expectation of that, as well as in remembrance of the former, in both conforming ourselves to him we worship. [5.] He has himself *blessed the sabbath day and sanctified it.* He has put an honour upon it by setting it apart for himself; it is the holy of the Lord and honourable: and he has put blessings into it, which he has encouraged us to expect from him in the religious observance of that day. It is *the day which the Lord hath made,* let not us do what we can to unmake it. He has blessed, honoured, and sanctified it, let not us profane it, dishonour it, and level that with common time which God's blessing has thus dignified and distinguished.
 
-> <sup>12</sup> Honour thy father and thy mother: that thy days may be long upon the land which the LORD thy God giveth thee.  
-> <sup>13</sup> Thou shalt not kill.  
-> <sup>14</sup> Thou shalt not commit adultery.  
-> <sup>15</sup> Thou shalt not steal.  
-> <sup>16</sup> Thou shalt not bear false witness against thy neighbour.  
-> <sup>17</sup> Thou shalt not covet thy neighbour's house, thou shalt not covet thy neighbour's wife, nor his manservant, nor his maidservant, nor his ox, nor his ass, nor any thing that *is* thy neighbour's.  
+> **¹²** Honour thy father and thy mother: that thy days may be long upon the land which the LORD thy God giveth thee.  
+> **¹³** Thou shalt not kill.  
+> **¹⁴** Thou shalt not commit adultery.  
+> **¹⁵** Thou shalt not steal.  
+> **¹⁶** Thou shalt not bear false witness against thy neighbour.  
+> **¹⁷** Thou shalt not covet thy neighbour's house, thou shalt not covet thy neighbour's wife, nor his manservant, nor his maidservant, nor his ox, nor his ass, nor any thing that *is* thy neighbour's.  
 
 We have here the laws of the second table, as they are commonly called, the last six of the ten commandments, comprehending our duty to ourselves and to one another, and constituting a comment upon the second great commandment, *Thou shalt love thy neighbour as thyself.* As religion towards God is an essential branch of universal righteousness, so righteousness towards men is an essential branch of true religion. Godliness and honesty must go together.
 
@@ -69,10 +69,10 @@ VI\. The tenth commandment strikes at the root: *Thou shalt not covet,* Ex 20:17
 
 ## Terror with Which the Law Was Given. (b. c. 1491.)
 
-> <sup>18</sup> And all the people saw the thunderings, and the lightnings, and the noise of the trumpet, and the mountain smoking: and when the people saw *it,* they removed, and stood afar off.  
-> <sup>19</sup> And they said unto Moses, Speak thou with us, and we will hear: but let not God speak with us, lest we die.  
-> <sup>20</sup> And Moses said unto the people, Fear not: for God is come to prove you, and that his fear may be before your faces, that ye sin not.  
-> <sup>21</sup> And the people stood afar off, and Moses drew near unto the thick darkness where God *was.*  
+> **¹⁸** And all the people saw the thunderings, and the lightnings, and the noise of the trumpet, and the mountain smoking: and when the people saw *it,* they removed, and stood afar off.  
+> **¹⁹** And they said unto Moses, Speak thou with us, and we will hear: but let not God speak with us, lest we die.  
+> **²⁰** And Moses said unto the people, Fear not: for God is come to prove you, and that his fear may be before your faces, that ye sin not.  
+> **²¹** And the people stood afar off, and Moses drew near unto the thick darkness where God *was.*  
 
 I\. The extraordinary terror with which the law was given. Never was any thing delivered with such awful pomp; every word was accented, and every sentence paused, with thunder and lightning, much louder and brighter, no doubt, than ordinary. And why was the law given in this dreadful manner, and with all this tremendous ceremony? 1. It was designed (once for all) to give a sensible discovery of the glorious majesty of God, for the assistance of our faith concerning it, that, *knowing the terror of the Lord,* we may be persuaded to live in his fear. 2. It was a specimen of the terrors of the general judgment, in which sinners will be called to an account for the breach of this law: the archangel's trumpet will then sound an alarm, to give notice of the Judge's coming, and a *fire shall devour before him.* 3. It was an indication of the terror of those convictions which the law brings into conscience, to prepare the soul for the comforts of the gospel. Thus was the law given by Moses in such a way as might startle, affright, and humble men, that the *grace and truth which came by Jesus Christ* might be the more welcome. The apostle largely describes this instance of the terror of that dispensation, as a foil to set off our privileges, as Christians, in the light, liberty, and joy, of the New-Testament dispensation, Heb 12:18, etc.
 
@@ -84,11 +84,11 @@ IV\. The progress of their communion with God by the mediation of Moses, Ex 20:2
 
 ## The Law Concerning Altars. (b. c. 1491.)
 
-> <sup>22</sup> And the LORD said unto Moses, Thus thou shalt say unto the children of Israel, Ye have seen that I have talked with you from heaven.  
-> <sup>23</sup> Ye shall not make with me gods of silver, neither shall ye make unto you gods of gold.  
-> <sup>24</sup> An altar of earth thou shalt make unto me, and shalt sacrifice thereon thy burnt offerings, and thy peace offerings, thy sheep, and thine oxen: in all places where I record my name I will come unto thee, and I will bless thee.  
-> <sup>25</sup> And if thou wilt make me an altar of stone, thou shalt not build it of hewn stone: for if thou lift up thy tool upon it, thou hast polluted it.  
-> <sup>26</sup> Neither shalt thou go up by steps unto mine altar, that thy nakedness be not discovered thereon.  
+> **²²** And the LORD said unto Moses, Thus thou shalt say unto the children of Israel, Ye have seen that I have talked with you from heaven.  
+> **²³** Ye shall not make with me gods of silver, neither shall ye make unto you gods of gold.  
+> **²⁴** An altar of earth thou shalt make unto me, and shalt sacrifice thereon thy burnt offerings, and thy peace offerings, thy sheep, and thine oxen: in all places where I record my name I will come unto thee, and I will bless thee.  
+> **²⁵** And if thou wilt make me an altar of stone, thou shalt not build it of hewn stone: for if thou lift up thy tool upon it, thou hast polluted it.  
+> **²⁶** Neither shalt thou go up by steps unto mine altar, that thy nakedness be not discovered thereon.  
 
 Moses having gone into *the thick darkness, where God was,* God there spoke in his hearing only, privately and without terror, all that follows hence to the end of Ex 23:1-32, which is mostly an exposition of the ten commandments; and he was to transmit it by word of mouth first, and afterwards in writing, to the people. The laws in these verses related to God's worship.
 

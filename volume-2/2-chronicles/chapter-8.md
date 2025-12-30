@@ -8,17 +8,17 @@ In this chapter we are told, I. What cities Solomon built, 2Ch 8:1-6. II. What w
 
 ## Solomon's Buildings. (b. c. 992.)
 
-> <sup>1</sup> And it came to pass at the end of twenty years, wherein Solomon had built the house of the LORD, and his own house,  
-> <sup>2</sup> That the cities which Huram had restored to Solomon, Solomon built them, and caused the children of Israel to dwell there.  
-> <sup>3</sup> And Solomon went to Hamath-zobah, and prevailed against it.  
-> <sup>4</sup> And he built Tadmor in the wilderness, and all the store cities, which he built in Hamath.  
-> <sup>5</sup> Also he built Beth-horon the upper, and Beth-horon the nether, fenced cities, with walls, gates, and bars;  
-> <sup>6</sup> And Baalath, and all the store cities that Solomon had, and all the chariot cities, and the cities of the horsemen, and all that Solomon desired to build in Jerusalem, and in Lebanon, and throughout all the land of his dominion.  
-> <sup>7</sup> *As for* all the people *that were* left of the Hittites, and the Amorites, and the Perizzites, and the Hivites, and the Jebusites, which *were* not of Israel,  
-> <sup>8</sup> *But* of their children, who were left after them in the land, whom the children of Israel consumed not, them did Solomon make to pay tribute until this day.  
-> <sup>9</sup> But of the children of Israel did Solomon make no servants for his work; but they *were* men of war, and chief of his captains, and captains of his chariots and horsemen.  
-> <sup>10</sup> And these *were* the chief of king Solomon's officers, *even* two hundred and fifty, that bare rule over the people.  
-> <sup>11</sup> And Solomon brought up the daughter of Pharaoh out of the city of David unto the house that he had built for her: for he said, My wife shall not dwell in the house of David king of Israel, because *the places are* holy, whereunto the ark of the LORD hath come.  
+> **¹** And it came to pass at the end of twenty years, wherein Solomon had built the house of the LORD, and his own house,  
+> **²** That the cities which Huram had restored to Solomon, Solomon built them, and caused the children of Israel to dwell there.  
+> **³** And Solomon went to Hamath-zobah, and prevailed against it.  
+> **⁴** And he built Tadmor in the wilderness, and all the store cities, which he built in Hamath.  
+> **⁵** Also he built Beth-horon the upper, and Beth-horon the nether, fenced cities, with walls, gates, and bars;  
+> **⁶** And Baalath, and all the store cities that Solomon had, and all the chariot cities, and the cities of the horsemen, and all that Solomon desired to build in Jerusalem, and in Lebanon, and throughout all the land of his dominion.  
+> **⁷** *As for* all the people *that were* left of the Hittites, and the Amorites, and the Perizzites, and the Hivites, and the Jebusites, which *were* not of Israel,  
+> **⁸** *But* of their children, who were left after them in the land, whom the children of Israel consumed not, them did Solomon make to pay tribute until this day.  
+> **⁹** But of the children of Israel did Solomon make no servants for his work; but they *were* men of war, and chief of his captains, and captains of his chariots and horsemen.  
+> **¹⁰** And these *were* the chief of king Solomon's officers, *even* two hundred and fifty, that bare rule over the people.  
+> **¹¹** And Solomon brought up the daughter of Pharaoh out of the city of David unto the house that he had built for her: for he said, My wife shall not dwell in the house of David king of Israel, because *the places are* holy, whereunto the ark of the LORD hath come.  
 
 This we had 1Ki 9:10-24, and therefore shall only observe here,
 
@@ -32,13 +32,13 @@ IV\. That one reason why Solomon built a palace on purpose for the queen, and re
 
 ## Solomon's Devotion. (b. c. 992.)
 
-> <sup>12</sup> Then Solomon offered burnt offerings unto the LORD on the altar of the LORD, which he had built before the porch,  
-> <sup>13</sup> Even after a certain rate every day, offering according to the commandment of Moses, on the sabbaths, and on the new moons, and on the solemn feasts, three times in the year, *even* in the feast of unleavened bread, and in the feast of weeks, and in the feast of tabernacles.  
-> <sup>14</sup> And he appointed, according to the order of David his father, the courses of the priests to their service, and the Levites to their charges, to praise and minister before the priests, as the duty of every day required: the porters also by their courses at every gate: for so had David the man of God commanded.  
-> <sup>15</sup> And they departed not from the commandment of the king unto the priests and Levites concerning any matter, or concerning the treasures.  
-> <sup>16</sup> Now all the work of Solomon was prepared unto the day of the foundation of the house of the LORD, and until it was finished. *So* the house of the LORD was perfected.  
-> <sup>17</sup> Then went Solomon to Ezion-geber, and to Eloth, at the sea side in the land of Edom.  
-> <sup>18</sup> And Huram sent him by the hands of his servants ships, and servants that had knowledge of the sea; and they went with the servants of Solomon to Ophir, and took thence four hundred and fifty talents of gold, and brought *them* to king Solomon.  
+> **¹²** Then Solomon offered burnt offerings unto the LORD on the altar of the LORD, which he had built before the porch,  
+> **¹³** Even after a certain rate every day, offering according to the commandment of Moses, on the sabbaths, and on the new moons, and on the solemn feasts, three times in the year, *even* in the feast of unleavened bread, and in the feast of weeks, and in the feast of tabernacles.  
+> **¹⁴** And he appointed, according to the order of David his father, the courses of the priests to their service, and the Levites to their charges, to praise and minister before the priests, as the duty of every day required: the porters also by their courses at every gate: for so had David the man of God commanded.  
+> **¹⁵** And they departed not from the commandment of the king unto the priests and Levites concerning any matter, or concerning the treasures.  
+> **¹⁶** Now all the work of Solomon was prepared unto the day of the foundation of the house of the LORD, and until it was finished. *So* the house of the LORD was perfected.  
+> **¹⁷** Then went Solomon to Ezion-geber, and to Eloth, at the sea side in the land of Edom.  
+> **¹⁸** And Huram sent him by the hands of his servants ships, and servants that had knowledge of the sea; and they went with the servants of Solomon to Ophir, and took thence four hundred and fifty talents of gold, and brought *them* to king Solomon.  
 
 Here is, I. Solomon's devotion. The building of the temple was in order to the service of the temple. Whatever cost he was at in rearing the structure, if he had neglected the worship that was to be performed there, it would all have been to no purpose. Assisting the devotion of others will not atone for our own neglects. When Solomon had built the temple, 1. He kept up the holy sacrifices there, according to the law of Moses, 2Ch 8:12,13. In vain had the altar been built, and in vain had fire come down from heaven, if sacrifices had not been constantly brought as the food of the altar and the fuel of that fire. There were daily sacrifices, *a certain rate every day,* as duly as the day came, weekly sacrifices on the sabbath, double to what was offered on other days, monthly sacrifices *on the new moons,* and yearly sacrifices at the three solemn feasts. Those are spiritual sacrifices that are now required of us, which we are to bring daily and weekly; and it is good to be in a settled method of devotion. 2. He kept up the holy songs there, according to the *law of David,* who is here called the *man of God,* as Moses was, because he was both instructed and authorised of God to make these establishments; and Solomon took care to see them observed *as the duty of every day required,* 2Ch 8:14. Solomon, though a wise and great man and the builder of the temple, did not attempt to amend, alter, or add to what the man of God had, in God's name, commanded, but closely adhered to that, and used his authority to have that duly observed; and then *none departed from the commandment of the king concerning any matter,* 2Ch 8:15. He observed God's laws, and then all obeyed his orders. When the service of the temple was put into this good order, then it is said, *The house of the Lord was perfected,* 2Ch 8:16. The work was the main matter, not the place; the temple was unfinished till all this was done.
 

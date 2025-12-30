@@ -8,9 +8,9 @@ The method of the history of Deborah and Barak (the heroes in this chapter) is t
 
 ## The Israelites Enslaved by Jabin. (b. c. 1285.)
 
-> <sup>1</sup> And the children of Israel again did evil in the sight of the LORD, when Ehud was dead.  
-> <sup>2</sup> And the LORD sold them into the hand of Jabin king of Canaan, that reigned in Hazor; the captain of whose host *was* Sisera, which dwelt in Harosheth of the Gentiles.  
-> <sup>3</sup> And the children of Israel cried unto the LORD: for he had nine hundred chariots of iron; and twenty years he mightily oppressed the children of Israel.  
+> **¹** And the children of Israel again did evil in the sight of the LORD, when Ehud was dead.  
+> **²** And the LORD sold them into the hand of Jabin king of Canaan, that reigned in Hazor; the captain of whose host *was* Sisera, which dwelt in Harosheth of the Gentiles.  
+> **³** And the children of Israel cried unto the LORD: for he had nine hundred chariots of iron; and twenty years he mightily oppressed the children of Israel.  
 
 Here is, I. Israel backsliding from God: They again *did evil in his sight,* forsook his service, and worshipped idols; for this was the sin which now most easily beset them, Jdg 4:1. See in this, 1. The strange strength of corruption, which hurries men into sin notwithstanding the most frequent experience of its fatal consequences. The bent to backslide is with great difficulty restrained. 2. The common ill effects of a long peace. The land had rest eighty years, which should have confirmed them in their religion; but, on the contrary, it made them secure and wanton, and indulgent of those lusts which the worship of the false gods was calculated for the gratification of. Thus *the prosperity of fools destroys them. Jeshurun waxeth fat and kicketh.* 3. The great loss which a people sustains by the death of good governors. *The did evil, because Ehud was dead.* So it may be read. He kept a strict eye upon them, restrained and punished every thing that looked towards idolatry, and kept them close to God's service. But, when he was gone, they revolted, fearing him more than God.
 
@@ -20,12 +20,12 @@ III\. Israel returning to their God: They *cried unto the Lord,* when distress d
 
 ## The Project of Deborah and Barak. (b. c. 1258.)
 
-> <sup>4</sup> And Deborah, a prophetess, the wife of Lapidoth, she judged Israel at that time.  
-> <sup>5</sup> And she dwelt under the palm tree of Deborah between Ramah and Beth-el in mount Ephraim: and the children of Israel came up to her for judgment.  
-> <sup>6</sup> And she sent and called Barak the son of Abinoam out of Kedesh-naphtali, and said unto him, Hath not the LORD God of Israel commanded, *saying,* Go and draw toward mount Tabor, and take with thee ten thousand men of the children of Naphtali and of the children of Zebulun?  
-> <sup>7</sup> And I will draw unto thee to the river Kishon Sisera, the captain of Jabin's army, with his chariots and his multitude; and I will deliver him into thine hand.  
-> <sup>8</sup> And Barak said unto her, If thou wilt go with me, then I will go: but if thou wilt not go with me, *then* I will not go.  
-> <sup>9</sup> And she said, I will surely go with thee: notwithstanding the journey that thou takest shall not be for thine honour; for the LORD shall sell Sisera into the hand of a woman. And Deborah arose, and went with Barak to Kedesh.  
+> **⁴** And Deborah, a prophetess, the wife of Lapidoth, she judged Israel at that time.  
+> **⁵** And she dwelt under the palm tree of Deborah between Ramah and Beth-el in mount Ephraim: and the children of Israel came up to her for judgment.  
+> **⁶** And she sent and called Barak the son of Abinoam out of Kedesh-naphtali, and said unto him, Hath not the LORD God of Israel commanded, *saying,* Go and draw toward mount Tabor, and take with thee ten thousand men of the children of Naphtali and of the children of Zebulun?  
+> **⁷** And I will draw unto thee to the river Kishon Sisera, the captain of Jabin's army, with his chariots and his multitude; and I will deliver him into thine hand.  
+> **⁸** And Barak said unto her, If thou wilt go with me, then I will go: but if thou wilt not go with me, *then* I will not go.  
+> **⁹** And she said, I will surely go with thee: notwithstanding the journey that thou takest shall not be for thine honour; for the LORD shall sell Sisera into the hand of a woman. And Deborah arose, and went with Barak to Kedesh.  
 
 The year of the redeemed at length came, when Israel was to be delivered out of the hands of Jabin, and restored again to their liberty, which we may suppose the northern tribes, that lay nearest to the oppressors and felt most the effects of his fury, did in a particular manner cry to God for. *For the oppression of the poor, and the sighing of the needy, now will* God *arise.* Now here we have,
 
@@ -43,13 +43,13 @@ II\. The project laid for their deliverance. When the children of Israel *came t
 
 ## Defeat of Sisera. (b. c. 1258.)
 
-> <sup>10</sup> And Barak called Zebulun and Naphtali to Kedesh; and he went up with ten thousand men at his feet: and Deborah went up with him.  
-> <sup>11</sup> Now Heber the Kenite, *which was* of the children of Hobab the father in law of Moses, had severed himself from the Kenites, and pitched his tent unto the plain of Zaanaim, which *is* by Kedesh.  
-> <sup>12</sup> And they showed Sisera that Barak the son of Abinoam was gone up to mount Tabor.  
-> <sup>13</sup> And Sisera gathered together all his chariots, *even* nine hundred chariots of iron, and all the people that *were* with him, from Harosheth of the Gentiles unto the river of Kishon.  
-> <sup>14</sup> And Deborah said unto Barak, Up; for this *is* the day in which the LORD hath delivered Sisera into thine hand: is not the LORD gone out before thee? So Barak went down from mount Tabor, and ten thousand men after him.  
-> <sup>15</sup> And the LORD discomfited Sisera, and all *his* chariots, and all *his* host, with the edge of the sword before Barak; so that Sisera lighted down off *his* chariot, and fled away on his feet.  
-> <sup>16</sup> But Barak pursued after the chariots, and after the host, unto Harosheth of the Gentiles: and all the host of Sisera fell upon the edge of the sword; *and* there was not a man left.  
+> **¹⁰** And Barak called Zebulun and Naphtali to Kedesh; and he went up with ten thousand men at his feet: and Deborah went up with him.  
+> **¹¹** Now Heber the Kenite, *which was* of the children of Hobab the father in law of Moses, had severed himself from the Kenites, and pitched his tent unto the plain of Zaanaim, which *is* by Kedesh.  
+> **¹²** And they showed Sisera that Barak the son of Abinoam was gone up to mount Tabor.  
+> **¹³** And Sisera gathered together all his chariots, *even* nine hundred chariots of iron, and all the people that *were* with him, from Harosheth of the Gentiles unto the river of Kishon.  
+> **¹⁴** And Deborah said unto Barak, Up; for this *is* the day in which the LORD hath delivered Sisera into thine hand: is not the LORD gone out before thee? So Barak went down from mount Tabor, and ten thousand men after him.  
+> **¹⁵** And the LORD discomfited Sisera, and all *his* chariots, and all *his* host, with the edge of the sword before Barak; so that Sisera lighted down off *his* chariot, and fled away on his feet.  
+> **¹⁶** But Barak pursued after the chariots, and after the host, unto Harosheth of the Gentiles: and all the host of Sisera fell upon the edge of the sword; *and* there was not a man left.  
 
 Here, I. Barak beats up for volunteers, and soon has his quota of men ready, Jdg 4:10. Deborah had appointed him to raise an army of 10,000 men (Jdg 4:6), and so many he has presently *at his feet,* following him, and subject to his command. God is said to call us *to his feet* (Isa 41:2), that is, into obedience to him. Some think it intimates that they were all footmen, and so the armies of the Jews generally were, which made the disproportion of strength between them and the enemy (who had horses and chariots) very great, and the victory the more illustrious; but the presence of God and his prophetess was abundantly sufficient to balance that disproportion. Barak had his men *at his feet,* which intimates their cheerfulness and readiness to attend him whithersoever he went, Re 14:4. Though the tribes of Zebulun and Naphtali were chiefly depended on, yet it appears by Deborah's song that some had come in to him from other tribes (Manasseh and Issachar), and more were expected that came not, from Reuben, Dan, and Asher, Jdg 5:14-17. But these are overlooked here; and we are only told that to make his 10,000 men effective indeed *Deborah went up with him.* The Jdg 4:11, concerning the removal of Heber, one of the families of the Kenites, out of the wilderness of Judah, in the south, where those families had fixed themselves (Jdg 1:16), into the northern country, comes in for the sake of what was to follow concerning the exploit of Jael, a wife of that family.
 
@@ -61,14 +61,14 @@ IV\. God himself routs the enemy's army, Jdg 4:15. Barak, in obedience to Debora
 
 V\. Barak bravely improves his advantage, follows the blow with undaunted resolution and unwearied diligence, prosecutes the victory, pursues the scattered forces, even to their general's head-quarters at Harosheth (Jdg 4:16), and spares none whom God had delivered into his hand to be destroyed: *There was not a man left.* When God goes before us in our spiritual conflicts we must bestir ourselves; and, when by grace he gives us some success against the enemies of our souls, we must improve it by watchfulness and resolution, and carry on the holy war with vigour.
 
-> <sup>17</sup> Howbeit Sisera fled away on his feet to the tent of Jael the wife of Heber the Kenite: for *there was* peace between Jabin the king of Hazor and the house of Heber the Kenite.  
-> <sup>18</sup> And Jael went out to meet Sisera, and said unto him, Turn in, my lord, turn in to me; fear not. And when he had turned in unto her into the tent, she covered him with a mantle.  
-> <sup>19</sup> And he said unto her, Give me, I pray thee, a little water to drink; for I am thirsty. And she opened a bottle of milk, and gave him drink, and covered him.  
-> <sup>20</sup> Again he said unto her, Stand in the door of the tent, and it shall be, when any man doth come and enquire of thee, and say, Is there any man here? that thou shalt say, No.  
-> <sup>21</sup> Then Jael Heber's wife took a nail of the tent, and took an hammer in her hand, and went softly unto him, and smote the nail into his temples, and fastened it into the ground: for he was fast asleep and weary. So he died.  
-> <sup>22</sup> And, behold, as Barak pursued Sisera, Jael came out to meet him, and said unto him, Come, and I will show thee the man whom thou seekest. And when he came into her *tent,* behold, Sisera lay dead, and the nail *was* in his temples.  
-> <sup>23</sup> So God subdued on that day Jabin the king of Canaan before the children of Israel.  
-> <sup>24</sup> And the hand of the children of Israel prospered, and prevailed against Jabin the king of Canaan, until they had destroyed Jabin king of Canaan.  
+> **¹⁷** Howbeit Sisera fled away on his feet to the tent of Jael the wife of Heber the Kenite: for *there was* peace between Jabin the king of Hazor and the house of Heber the Kenite.  
+> **¹⁸** And Jael went out to meet Sisera, and said unto him, Turn in, my lord, turn in to me; fear not. And when he had turned in unto her into the tent, she covered him with a mantle.  
+> **¹⁹** And he said unto her, Give me, I pray thee, a little water to drink; for I am thirsty. And she opened a bottle of milk, and gave him drink, and covered him.  
+> **²⁰** Again he said unto her, Stand in the door of the tent, and it shall be, when any man doth come and enquire of thee, and say, Is there any man here? that thou shalt say, No.  
+> **²¹** Then Jael Heber's wife took a nail of the tent, and took an hammer in her hand, and went softly unto him, and smote the nail into his temples, and fastened it into the ground: for he was fast asleep and weary. So he died.  
+> **²²** And, behold, as Barak pursued Sisera, Jael came out to meet him, and said unto him, Come, and I will show thee the man whom thou seekest. And when he came into her *tent,* behold, Sisera lay dead, and the nail *was* in his temples.  
+> **²³** So God subdued on that day Jabin the king of Canaan before the children of Israel.  
+> **²⁴** And the hand of the children of Israel prospered, and prevailed against Jabin the king of Canaan, until they had destroyed Jabin king of Canaan.  
 
 We have seen the army of the Canaanites totally routed. It is said (Ps 83:9,10, where the defeat of this army is pleaded as a precedent for God's doing the like in after times) that they became *as dung for the earth.* Now here we have,
 

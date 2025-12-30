@@ -8,12 +8,12 @@ We have already seen what occurred upon opening six of the seals; we now come to
 
 ## The Seven Trumpets. (a. d. 95.)
 
-> <sup>1</sup> And when he had opened the seventh seal, there was silence in heaven about the space of half a hour.  
-> <sup>2</sup> And I saw the seven angels which stood before God; and to them were given seven trumpets.  
-> <sup>3</sup> And another angel came and stood at the altar, having a golden censer; and there was given unto him much incense, that he should offer *it* with the prayers of all saints upon the golden altar which was before the throne.  
-> <sup>4</sup> And the smoke of the incense, *which came* with the prayers of the saints, ascended up before God out of the angel's hand.  
-> <sup>5</sup> And the angel took the censer, and filled it with fire of the altar, and cast *it* into the earth: and there were voices, and thunderings, and lightnings, and an earthquake.  
-> <sup>6</sup> And the seven angels which had the seven trumpets prepared themselves to sound.  
+> **¹** And when he had opened the seventh seal, there was silence in heaven about the space of half a hour.  
+> **²** And I saw the seven angels which stood before God; and to them were given seven trumpets.  
+> **³** And another angel came and stood at the altar, having a golden censer; and there was given unto him much incense, that he should offer *it* with the prayers of all saints upon the golden altar which was before the throne.  
+> **⁴** And the smoke of the incense, *which came* with the prayers of the saints, ascended up before God out of the angel's hand.  
+> **⁵** And the angel took the censer, and filled it with fire of the altar, and cast *it* into the earth: and there were voices, and thunderings, and lightnings, and an earthquake.  
+> **⁶** And the seven angels which had the seven trumpets prepared themselves to sound.  
 
 In these verses we have the prelude to the sounding of the trumpets in several parts.
 
@@ -27,13 +27,13 @@ IV\. To prepare for this, another angel must first offer incense, Re 8:3. It is 
 
 ## The Seven Trumpets. (a. d. 95.)
 
-> <sup>7</sup> The first angel sounded, and there followed hail and fire mingled with blood, and they were cast upon the earth: and the third part of trees was burnt up, and all green grass was burnt up.  
-> <sup>8</sup> And the second angel sounded, and as it were a great mountain burning with fire was cast into the sea: and the third part of the sea became blood;  
-> <sup>9</sup> And the third part of the creatures which were in the sea, and had life, died; and the third part of the ships were destroyed.  
-> <sup>10</sup> And the third angel sounded, and there fell a great star from heaven, burning as it were a lamp, and it fell upon the third part of the rivers, and upon the fountains of waters;  
-> <sup>11</sup> And the name of the star is called Wormwood: and the third part of the waters became wormwood; and many men died of the waters, because they were made bitter.  
-> <sup>12</sup> And the fourth angel sounded, and the third part of the sun was smitten, and the third part of the moon, and the third part of the stars; so as the third part of them was darkened, and the day shone not for a third part of it, and the night likewise.  
-> <sup>13</sup> And I beheld, and heard an angel flying through the midst of heaven, saying with a loud voice, Woe, woe, woe, to the inhabiters of the earth by reason of the other voices of the trumpet of the three angels, which are yet to sound!  
+> **⁷** The first angel sounded, and there followed hail and fire mingled with blood, and they were cast upon the earth: and the third part of trees was burnt up, and all green grass was burnt up.  
+> **⁸** And the second angel sounded, and as it were a great mountain burning with fire was cast into the sea: and the third part of the sea became blood;  
+> **⁹** And the third part of the creatures which were in the sea, and had life, died; and the third part of the ships were destroyed.  
+> **¹⁰** And the third angel sounded, and there fell a great star from heaven, burning as it were a lamp, and it fell upon the third part of the rivers, and upon the fountains of waters;  
+> **¹¹** And the name of the star is called Wormwood: and the third part of the waters became wormwood; and many men died of the waters, because they were made bitter.  
+> **¹²** And the fourth angel sounded, and the third part of the sun was smitten, and the third part of the moon, and the third part of the stars; so as the third part of them was darkened, and the day shone not for a third part of it, and the night likewise.  
+> **¹³** And I beheld, and heard an angel flying through the midst of heaven, saying with a loud voice, Woe, woe, woe, to the inhabiters of the earth by reason of the other voices of the trumpet of the three angels, which are yet to sound!  
 
 Observe, I. *The first angel sounded* the first trumpet, and the events which followed were very dismal: *There followed hail and fire mingled with blood,* etc., Re 8:7. There was a terrible storm; but whether it is to be understood of a storm of heresies, a mixture of monstrous errors falling on the church (for in that age Arianism prevailed), or a storm or tempest of war falling on the civil state, expositors are not agreed. Mr. Mede takes it to be meant of the Gothic inundation that broke in upon the empire in the year 395, the same year that Theodosius died, when the northern nations, under Alaricus, king of the Goths, broke in upon the western parts of the empire. However, here we observe, 1. It was a very terrible storm-fire, and hail, and blood: a strange mixture! 2. The limitation of it: it fell on *the third part of the trees,* and on the third part of *the grass,* and blasted and burnt it up; that is, say some, upon *the third part of the clergy* and *the third part of the laity;* or, as others who take it to fall upon the civil state, upon *the third part of the great men,* and upon *the third part of the common people,* either upon the Roman empire itself, which was a third part of the then known world, or upon a third part of that empire. The most severe calamities have their bounds and limits set them by the great God.
 

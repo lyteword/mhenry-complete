@@ -8,13 +8,13 @@ The time drawing nigh that Israel must die, having, in the former chapter, given
 
 ## Jacob's Last Illness. (b. c. 1689.)
 
-> <sup>1</sup> And it came to pass after these things, that *one* told Joseph, Behold, thy father *is* sick: and he took with him his two sons, Manasseh and Ephraim.  
-> <sup>2</sup> And *one* told Jacob, and said, Behold, thy son Joseph cometh unto thee: and Israel strengthened himself, and sat upon the bed.  
-> <sup>3</sup> And Jacob said unto Joseph, God Almighty appeared unto me at Luz in the land of Canaan, and blessed me,  
-> <sup>4</sup> And said unto me, Behold, I will make thee fruitful, and multiply thee, and I will make of thee a multitude of people; and will give this land to thy seed after thee *for* an everlasting possession.  
-> <sup>5</sup> And now thy two sons, Ephraim and Manasseh, which were born unto thee in the land of Egypt before I came unto thee into Egypt, *are* mine; as Reuben and Simeon, they shall be mine.  
-> <sup>6</sup> And thy issue, which thou begettest after them, shall be thine, *and* shall be called after the name of their brethren in their inheritance.  
-> <sup>7</sup> And as for me, when I came from Padan, Rachel died by me in the land of Canaan in the way, when yet *there was* but a little way to come unto Ephrath: and I buried her there in the way of Ephrath; the same *is* Beth-lehem.  
+> **¹** And it came to pass after these things, that *one* told Joseph, Behold, thy father *is* sick: and he took with him his two sons, Manasseh and Ephraim.  
+> **²** And *one* told Jacob, and said, Behold, thy son Joseph cometh unto thee: and Israel strengthened himself, and sat upon the bed.  
+> **³** And Jacob said unto Joseph, God Almighty appeared unto me at Luz in the land of Canaan, and blessed me,  
+> **⁴** And said unto me, Behold, I will make thee fruitful, and multiply thee, and I will make of thee a multitude of people; and will give this land to thy seed after thee *for* an everlasting possession.  
+> **⁵** And now thy two sons, Ephraim and Manasseh, which were born unto thee in the land of Egypt before I came unto thee into Egypt, *are* mine; as Reuben and Simeon, they shall be mine.  
+> **⁶** And thy issue, which thou begettest after them, shall be thine, *and* shall be called after the name of their brethren in their inheritance.  
+> **⁷** And as for me, when I came from Padan, Rachel died by me in the land of Canaan in the way, when yet *there was* but a little way to come unto Ephrath: and I buried her there in the way of Ephrath; the same *is* Beth-lehem.  
 
 Here, I. Joseph, upon notice of his father's illness, goes to see him; though a man of honour and business, yet he will not fail to show this due respect to his aged father, Ge 48:1. Visiting the sick, to whom we lie under obligations, or may have opportunity of doing good, either for body or soul, is our duty. The sick bed is a proper place both for giving comfort and counsel to others and receiving instruction ourselves. Joseph took his two sons with him, that they might receive their dying grandfather's blessing, and that what they might see in him, and hear from him, might make an abiding impression upon them. Note, 1. It is good to acquaint young people that are coming into the world with the aged servants of God that are going out of it, whose dying testimony to the goodness of God, and the pleasantness of wisdom's ways, may be a great encouragement to the rising generation. Manasseh and Ephraim (I dare say) would never forget what passed at this time. 2. Pious parents are desirous of a blessing, not only for themselves, but for their children. "O that they may live before God!" Joseph had been, above all his brethren, kind to his father, and therefore had reason to expect particular favour from him.
 
@@ -24,21 +24,21 @@ III\. In recompence to Joseph for all his attentions to him, he adopted his two 
 
 ## Jacob Blesses the Sons of Joseph; Jacob's Dying Prophecy. (b. c. 1689.)
 
-> <sup>8</sup> And Israel beheld Joseph's sons, and said, Who *are* these?  
-> <sup>9</sup> And Joseph said unto his father, They *are* my sons, whom God hath given me in this *place.* And he said, Bring them, I pray thee, unto me, and I will bless them.  
-> <sup>10</sup> Now the eyes of Israel were dim for age, *so that* he could not see. And he brought them near unto him; and he kissed them, and embraced them.  
-> <sup>11</sup> And Israel said unto Joseph, I had not thought to see thy face: and, lo, God hath showed me also thy seed.  
-> <sup>12</sup> And Joseph brought them out from between his knees, and he bowed himself with his face to the earth.  
-> <sup>13</sup> And Joseph took them both, Ephraim in his right hand toward Israel's left hand, and Manasseh in his left hand toward Israel's right hand, and brought *them* near unto him.  
-> <sup>14</sup> And Israel stretched out his right hand, and laid *it* upon Ephraim's head, who *was* the younger, and his left hand upon Manasseh's head, guiding his hands wittingly; for Manasseh *was* the firstborn.  
-> <sup>15</sup> And he blessed Joseph, and said, God, before whom my fathers Abraham and Isaac did walk, the God which fed me all my life long unto this day,  
-> <sup>16</sup> The Angel which redeemed me from all evil, bless the lads; and let my name be named on them, and the name of my fathers Abraham and Isaac; and let them grow into a multitude in the midst of the earth.  
-> <sup>17</sup> And when Joseph saw that his father laid his right hand upon the head of Ephraim, it displeased him: and he held up his father's hand, to remove it from Ephraim's head unto Manasseh's head.  
-> <sup>18</sup> And Joseph said unto his father, Not so, my father: for this *is* the firstborn; put thy right hand upon his head.  
-> <sup>19</sup> And his father refused, and said, I know *it,* my son, I know *it:* he also shall become a people, and he also shall be great: but truly his younger brother shall be greater than he, and his seed shall become a multitude of nations.  
-> <sup>20</sup> And he blessed them that day, saying, In thee shall Israel bless, saying, God make thee as Ephraim and as Manasseh: and he set Ephraim before Manasseh.  
-> <sup>21</sup> And Israel said unto Joseph, Behold, I die: but God shall be with you, and bring you again unto the land of your fathers.  
-> <sup>22</sup> Moreover I have given to thee one portion above thy brethren, which I took out of the hand of the Amorite with my sword and with my bow.  
+> **⁸** And Israel beheld Joseph's sons, and said, Who *are* these?  
+> **⁹** And Joseph said unto his father, They *are* my sons, whom God hath given me in this *place.* And he said, Bring them, I pray thee, unto me, and I will bless them.  
+> **¹⁰** Now the eyes of Israel were dim for age, *so that* he could not see. And he brought them near unto him; and he kissed them, and embraced them.  
+> **¹¹** And Israel said unto Joseph, I had not thought to see thy face: and, lo, God hath showed me also thy seed.  
+> **¹²** And Joseph brought them out from between his knees, and he bowed himself with his face to the earth.  
+> **¹³** And Joseph took them both, Ephraim in his right hand toward Israel's left hand, and Manasseh in his left hand toward Israel's right hand, and brought *them* near unto him.  
+> **¹⁴** And Israel stretched out his right hand, and laid *it* upon Ephraim's head, who *was* the younger, and his left hand upon Manasseh's head, guiding his hands wittingly; for Manasseh *was* the firstborn.  
+> **¹⁵** And he blessed Joseph, and said, God, before whom my fathers Abraham and Isaac did walk, the God which fed me all my life long unto this day,  
+> **¹⁶** The Angel which redeemed me from all evil, bless the lads; and let my name be named on them, and the name of my fathers Abraham and Isaac; and let them grow into a multitude in the midst of the earth.  
+> **¹⁷** And when Joseph saw that his father laid his right hand upon the head of Ephraim, it displeased him: and he held up his father's hand, to remove it from Ephraim's head unto Manasseh's head.  
+> **¹⁸** And Joseph said unto his father, Not so, my father: for this *is* the firstborn; put thy right hand upon his head.  
+> **¹⁹** And his father refused, and said, I know *it,* my son, I know *it:* he also shall become a people, and he also shall be great: but truly his younger brother shall be greater than he, and his seed shall become a multitude of nations.  
+> **²⁰** And he blessed them that day, saying, In thee shall Israel bless, saying, God make thee as Ephraim and as Manasseh: and he set Ephraim before Manasseh.  
+> **²¹** And Israel said unto Joseph, Behold, I die: but God shall be with you, and bring you again unto the land of your fathers.  
+> **²²** Moreover I have given to thee one portion above thy brethren, which I took out of the hand of the Amorite with my sword and with my bow.  
 
 Here is, I. The blessing with which Jacob blessed the two sons of Joseph, which is the more remarkable because the apostle makes such particular mention of it (Heb 11:21), while he says nothing of the blessing which Jacob pronounced on the rest of his sons, though that also was done in faith. Observe here,
 

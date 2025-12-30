@@ -8,8 +8,8 @@ He begins with the inscription and benediction, Php 1:1,2. He gives thanks for t
 
 ## Apostolic Benediction. (a. d. 62.)
 
-> <sup>1</sup> Paul and Timotheus, the servants of Jesus Christ, to all the saints in Christ Jesus which are at Philippi, with the bishops and deacons:  
-> <sup>2</sup> Grace *be* unto you, and peace, from God our Father, and *from* the Lord Jesus Christ.  
+> **¹** Paul and Timotheus, the servants of Jesus Christ, to all the saints in Christ Jesus which are at Philippi, with the bishops and deacons:  
+> **²** Grace *be* unto you, and peace, from God our Father, and *from* the Lord Jesus Christ.  
 
 We have here the inscription and benediction. Observe,
 
@@ -21,10 +21,10 @@ III\. Here is the apostolical benediction: *Grace be unto you, and peace, from G
 
 ## The Apostle's Thankfulness and Joy. (a. d. 62.)
 
-> <sup>3</sup> I thank my God upon every remembrance of you,  
-> <sup>4</sup> Always in every prayer of mine for you all making request with joy,  
-> <sup>5</sup> For your fellowship in the gospel from the first day until now;  
-> <sup>6</sup> Being confident of this very thing, that he which hath begun a good work in you will perform *it* until the day of Jesus Christ:  
+> **³** I thank my God upon every remembrance of you,  
+> **⁴** Always in every prayer of mine for you all making request with joy,  
+> **⁵** For your fellowship in the gospel from the first day until now;  
+> **⁶** Being confident of this very thing, that he which hath begun a good work in you will perform *it* until the day of Jesus Christ:  
 
 The apostle proceeds after the inscription and benediction to thanksgiving for the saints at Philippi. He tells them what it was he thanked God for, upon their account. Observe here,
 
@@ -40,30 +40,30 @@ V\. As in our prayers, so in our thanksgiving, we must eye God as our God: *I th
 
 ## The Apostle's Affection and Hope. (a. d. 62.)
 
-> <sup>7</sup> Even as it is meet for me to think this of you all, because I have you in my heart; inasmuch as both in my bonds, and in the defence and confirmation of the gospel, ye all are partakers of my grace.  
-> <sup>8</sup> For God is my record, how greatly I long after you all in the bowels of Jesus Christ.  
+> **⁷** Even as it is meet for me to think this of you all, because I have you in my heart; inasmuch as both in my bonds, and in the defence and confirmation of the gospel, ye all are partakers of my grace.  
+> **⁸** For God is my record, how greatly I long after you all in the bowels of Jesus Christ.  
 
 The apostle expresses the ardent affection he had for them, and his concern for their spiritual welfare: *I have you in my heart,* Php 1:7. He loved them as his own soul, and they lay near his heart. He thought much of them, and was in care about them. Observe, 1. Why he had them in his heart: *Inasmuch as both in my bonds, and in the defence and confirmation of the gospel, you all are partakers of my grace;* that is, they had received benefit by him and by his ministry; they were partakers of that grace of God which by him, and through his hands, was communicated to them. This makes people dear to their ministers—their receiving benefit by their ministry. Or, "*You are partakers of my grace,* you have joined with me in doing and suffering." They were partakers of his affliction by sympathy and concern, and readiness to assist him. Thus he calls being partakers of his grace; for those who suffer with the saints are and shall be comforted with them; and those shall share in the reward, who bear their part of the burden. He loved them because they adhered to him in his bonds, and in the *defence and confirmation of the gospel:* they were as ready to appear in their places, and according to their capacity, for the defence of the gospel, as the apostle was in his; and therefore he had them in his heart. Fellow sufferers should be dear one to another; those who have ventured and suffered in the same good cause of God and religion should for that reason love one another dearly: or, because *you have me at heart*—*dia to echein me en te kardia hymas.* They manifested their respect for him by adhering firmly to the doctrine he preached, and readily suffering for it along with him. The truest mark of respect towards our ministers is receiving and abiding by the doctrine they preach. 2. The evidence of it: *It is meet for me to think this of you all, because I have you in my heart.* By this it appeared that he had them in his heart, because he had a good opinion of them and good hopes concerning them. Observe, It is very proper to think the best of other people, and as well as we can of them—to suppose as well of them as the matter will admit in all cases. 3. An appeal to God concerning the truth of this (Php 1:8): *For God is my record how greatly I long after you all in the bowels of Jesus Christ.* Having them in his heart, he longed after them; either he longed to see them, longed to hear from them, or he longed for their spiritual welfare and their increase and improvement in knowledge and grace. He had *joy in them* (Php 1:4), because of the good he saw and heard of among them; yet still he longed after them, to hear of more of it among them; and he *longed after them all,* not only those among them who were witty and wealthy, but even the meanest and poorest; and he *longed greatly* after them, or with strong affection and great good-will; and this *in the bowels of Jesus Christ,* with that tender concern which Christ himself has and has shown to precious souls. Paul was herein a follower of Christ, and all good ministers should aim to be so. O the bowels of compassion which are in Jesus Christ to poor souls! It was in compassion to them that he undertook their salvation, and put himself to so vast an expense to compass it. Now, in conformity to the example of Christ, Paul had a compassion for them, and longed after them all *in the bowels of Jesus Christ.* Shall not we pity and love those souls whom Christ had such a love and pity for? For this he appeals to God: *God is my record.* It was an inward disposition of mind that he expressed towards them, to the sincerity of which God only was witness, and therefore to him he appeals. "Whether you know it or not, or are sensible of it, God, who knows the heart, knows it."
 
 ## The Apostle's Affection and Hope. (a. d. 62.)
 
-> <sup>9</sup> And this I pray, that your love may abound yet more and more in knowledge and *in* all judgment;  
-> <sup>10</sup> That ye may approve things that are excellent; that ye may be sincere and without offence till the day of Christ;  
-> <sup>11</sup> Being filled with the fruits of righteousness, which are by Jesus Christ, unto the glory and praise of God.  
+> **⁹** And this I pray, that your love may abound yet more and more in knowledge and *in* all judgment;  
+> **¹⁰** That ye may approve things that are excellent; that ye may be sincere and without offence till the day of Christ;  
+> **¹¹** Being filled with the fruits of righteousness, which are by Jesus Christ, unto the glory and praise of God.  
 
 These verses contain the prayers he put up for them. Paul often let his friends know what it was he begged of God for them, that they might know what to beg for themselves and be directed in their own prayers, and that they might be encouraged to hope they should receive from God the quickening, strengthening, everlasting, comforting grace, which so powerful an intercessor as Paul asked of God for them. It is an encouragement to us to know that we are prayed for by our friends, who, we have reason to think, have an interest at the throne of grace. It was intended likewise for their direction in their walk, and that they might labour to answer his prayers for them; for by this it would appear that God had answered them. Paul, in praying thus for them, expected good concerning them. It is an inducement to us to do our duty, that we may not disappoint the expectations of praying friends and ministers. He prayed, 1. That they might be a loving people, and that good affections might abound among them; *That your love might abound yet more and more.* He means it of their love to God, and one another, and all men. Love is the fulfilling both of the law and of the gospel. Observe, Those who abound much in any grace have still need to abound more and more, because there is still something wanting in it and we are imperfect in our best attainments. 2. That they might be a knowing and judicious people: that love might abound *in knowledge and in all judgment.* It is not a blind love that will recommend us to God, but a love grounded upon knowledge and judgment. We must love God because of his infinite excellence and loveliness, and love our brethren because of what we see of the image of God upon them. Strong passions, without knowledge and a settled judgment, will not make us complete in the will of God, and sometimes do more hurt than good. The Jews had a zeal of God, but not according to knowledge, and were transported by it to violence and rage, Ro 10:2, Joh 16:2. 3. That they might be a discerning people. This would be the effect of their knowledge and judgment: *That you may approve the things which are excellent* (Php 1:10); or, as it is in the margin, *Try the things which differ;* *eis to dokimazein humas ta diapheronta,* that we may approve the things which are excellent upon the trial of them, and discern their difference from other things. Observe, The truths and laws of Christ are excellent things; and it is necessary that we every one approve them, and esteem them such. We only need to try them, to approve of them; and they will easily recommend themselves to any searching and discerning mind. 4. That they might be an honest upright-hearted people: *That you may be sincere.* Sincerity is our gospel perfection, that in which we should have our conversation in the world, and which is the glory of all our graces. When the eye is single, when we are inward with God in what we do, are really what we appear to be, and mean honestly, then we are sincere. 5. That they might be an inoffensive people: that you may be *without offence until the day of Christ;* not apt to take offence; and very careful not to give offence to God or their brethren, to *live in all good conscience before God* (Ac 23:1), and to *exercise ourselves to have always a conscience void of offence towards God and towards men,* Ac 24:16. And we must continue to the end *blameless,* that we may be presented so at the *day of Christ.* He will present the church *without spot or wrinkle* (Eph 5:27), and *present* believers *faultless before the presence of his glory with exceeding joy,* Jude 1:24. 6. That they might be a fruitful useful people (Php 1:11): *Being filled with the fruits of righteousness,* etc. From God is our fruit found, and therefore from him it must be asked. The *fruits of righteousness* are the evidences and effects of our sanctification, the duties of holiness springing from a renewed heart, the *root of the matter in us. Being filled* with them. Observe, Those who do much good should still endeavour to do more. The fruits of righteousness, brought forth for the glory of God and edification of his church, should really fill us, and wholly take us up. Fear not being emptied by bringing forth the fruits of righteousness, for you will be filled with them. These fruits are *by Jesus Christ,* by his strength and grace, for *without him we can do nothing.* He is the root of the good olive, from which it derives its fatness. We are *strong in the grace which is in Christ Jesus* (2Ti 2:1) and *strengthened with might by his Spirit* (Eph 3:16), and they are *unto the glory and praise of God.* We must not aim at our own glory in our fruitfulness, but at the *praise and glory of God,* that *God may be glorified in all things* (1Pe 4:11), and *whatsoever we do we must do all to the glory of God,* 1Co 10:31. It is much for the honour of God, when Christians not only are good, but do good, and *abound in good works.*
 
 ## The Apostle's Success and Joy. (a. d. 62.)
 
-> <sup>12</sup> But I would ye should understand, brethren, that the things *which happened* unto me have fallen out rather unto the furtherance of the gospel;  
-> <sup>13</sup> So that my bonds in Christ are manifest in all the palace, and in all other *places;*  
-> <sup>14</sup> And many of the brethren in the Lord, waxing confident by my bonds, are much more bold to speak the word without fear.  
-> <sup>15</sup> Some indeed preach Christ even of envy and strife; and some also of good will:  
-> <sup>16</sup> The one preach Christ of contention, not sincerely, supposing to add affliction to my bonds:  
-> <sup>17</sup> But the other of love, knowing that I am set for the defence of the gospel.  
-> <sup>18</sup> What then? notwithstanding, every way, whether in pretence, or in truth, Christ is preached; and I therein do rejoice, yea, and will rejoice.  
-> <sup>19</sup> For I know that this shall turn to my salvation through your prayer, and the supply of the Spirit of Jesus Christ,  
-> <sup>20</sup> According to my earnest expectation and *my* hope, that in nothing I shall be ashamed, but *that* with all boldness, as always, *so* now also Christ shall be magnified in my body, whether *it be* by life, or by death.  
+> **¹²** But I would ye should understand, brethren, that the things *which happened* unto me have fallen out rather unto the furtherance of the gospel;  
+> **¹³** So that my bonds in Christ are manifest in all the palace, and in all other *places;*  
+> **¹⁴** And many of the brethren in the Lord, waxing confident by my bonds, are much more bold to speak the word without fear.  
+> **¹⁵** Some indeed preach Christ even of envy and strife; and some also of good will:  
+> **¹⁶** The one preach Christ of contention, not sincerely, supposing to add affliction to my bonds:  
+> **¹⁷** But the other of love, knowing that I am set for the defence of the gospel.  
+> **¹⁸** What then? notwithstanding, every way, whether in pretence, or in truth, Christ is preached; and I therein do rejoice, yea, and will rejoice.  
+> **¹⁹** For I know that this shall turn to my salvation through your prayer, and the supply of the Spirit of Jesus Christ,  
+> **²⁰** According to my earnest expectation and *my* hope, that in nothing I shall be ashamed, but *that* with all boldness, as always, *so* now also Christ shall be magnified in my body, whether *it be* by life, or by death.  
 
 We see here the care the apostle takes to prevent their being offended at his sufferings. He was now a prisoner at Rome; this might be a stumbling-block to those who had received the gospel by his ministry. They might be tempted to think, If this doctrine were indeed of God, God would not suffer one who was so active and instrumental in preaching and propagating it to be thrown by as a despised broken vessel. They might be shy of owning this doctrine, lest they should be involved in the same trouble themselves. Now to take off the offence of the cross, he expounds this dark and hard chapter of his sufferings, and makes it very easy and intelligible, and reconcilable to the wisdom and goodness of God who employed him.
 
@@ -83,12 +83,12 @@ III\. It is very affecting to see how easy he was in the midst of all: *Notwiths
 
 ## The Apostle's Generous Exultation. (a. d. 62.)
 
-> <sup>21</sup> For to me to live *is* Christ, and to die *is* gain.  
-> <sup>22</sup> But if I live in the flesh, this *is* the fruit of my labour: yet what I shall choose I wot not.  
-> <sup>23</sup> For I am in a strait betwixt two, having a desire to depart, and to be with Christ; which is far better:  
-> <sup>24</sup> Nevertheless to abide in the flesh *is* more needful for you.  
-> <sup>25</sup> And having this confidence, I know that I shall abide and continue with you all for your furtherance and joy of faith;  
-> <sup>26</sup> That your rejoicing may be more abundant in Jesus Christ for me by my coming to you again.  
+> **²¹** For to me to live *is* Christ, and to die *is* gain.  
+> **²²** But if I live in the flesh, this *is* the fruit of my labour: yet what I shall choose I wot not.  
+> **²³** For I am in a strait betwixt two, having a desire to depart, and to be with Christ; which is far better:  
+> **²⁴** Nevertheless to abide in the flesh *is* more needful for you.  
+> **²⁵** And having this confidence, I know that I shall abide and continue with you all for your furtherance and joy of faith;  
+> **²⁶** That your rejoicing may be more abundant in Jesus Christ for me by my coming to you again.  
 
 We have here an account of the life and death of blessed Paul: his life was Christ, and his death was gain. Observe, 1. It is the undoubted character of every good Christian that to him to live is Christ. The glory of Christ ought to be the end of our life, the grace of Christ the principle of our life, and the word of Christ the rule of it. The Christian life is derived from Christ, and directed to him. He is the principle, rule, and end of it. 2. All those to whom to live is Christ to them to die *will be gain:* it is great gain, a present gain, everlasting gain. Death is a great loss to a carnal worldly man; for he loses all his comforts and all his hopes: but to a good Christian it is gain, for it is the end of all his weakness and misery and the perfection of his comforts and accomplishment of his hopes; it delivers him from all the evils of life, and brings him to the possession of the chief good. Or, *To me to die is gain;* that is, "to the gospel as well as to myself, which will receive a further confirmation by the seal of my blood, as it had before by the labours of my life." So Christ would be *magnified by his death,* Php 1:20. Some read the whole expression thus: *To me, living and dying, Christ is gain;* that is, "I desire no more, neither while I live nor when I die, but to win Christ and be found in him." It might be thought, if death were gain to him, he would be weary of life, and impatient for death. No, says he,
 
@@ -104,10 +104,10 @@ III\. *That your rejoicing may be more abundant in Jesus Christ for me, by my co
 
 ## The Apostle's Exhortations. (a. d. 62.)
 
-> <sup>27</sup> Only let your conversation be as it becometh the gospel of Christ: that whether I come and see you, or else be absent, I may hear of your affairs, that ye stand fast in one spirit, with one mind striving together for the faith of the gospel;  
-> <sup>28</sup> And in nothing terrified by your adversaries: which is to them an evident token of perdition, but to you of salvation, and that of God.  
-> <sup>29</sup> For unto you it is given in the behalf of Christ, not only to believe on him, but also to suffer for his sake;  
-> <sup>30</sup> Having the same conflict which ye saw in me, and now hear *to be* in me.  
+> **²⁷** Only let your conversation be as it becometh the gospel of Christ: that whether I come and see you, or else be absent, I may hear of your affairs, that ye stand fast in one spirit, with one mind striving together for the faith of the gospel;  
+> **²⁸** And in nothing terrified by your adversaries: which is to them an evident token of perdition, but to you of salvation, and that of God.  
+> **²⁹** For unto you it is given in the behalf of Christ, not only to believe on him, but also to suffer for his sake;  
+> **³⁰** Having the same conflict which ye saw in me, and now hear *to be* in me.  
 
 The apostle concludes the chapter with two exhortations:—
 

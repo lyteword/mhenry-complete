@@ -8,16 +8,16 @@ Hazael and Jehu were the men that were designed to be the instruments of God's j
 
 ## Jehu Anointed King. (b. c. 884.)
 
-> <sup>1</sup> And Elisha the prophet called one of the children of the prophets, and said unto him, Gird up thy loins, and take this box of oil in thine hand, and go to Ramoth-gilead:  
-> <sup>2</sup> And when thou comest thither, look out there Jehu the son of Jehoshaphat the son of Nimshi, and go in, and make him arise up from among his brethren, and carry him to an inner chamber;  
-> <sup>3</sup> Then take the box of oil, and pour *it* on his head, and say, Thus saith the LORD, I have anointed thee king over Israel. Then open the door, and flee, and tarry not.  
-> <sup>4</sup> So the young man, *even* the young man the prophet, went to Ramoth-gilead.  
-> <sup>5</sup> And when he came, behold, the captains of the host *were* sitting; and he said, I have an errand to thee, O captain. And Jehu said, Unto which of all us? And he said, To thee, O captain.  
-> <sup>6</sup> And he arose, and went into the house; and he poured the oil on his head, and said unto him, Thus saith the LORD God of Israel, I have anointed thee king over the people of the LORD, *even* over Israel.  
-> <sup>7</sup> And thou shalt smite the house of Ahab thy master, that I may avenge the blood of my servants the prophets, and the blood of all the servants of the LORD, at the hand of Jezebel.  
-> <sup>8</sup> For the whole house of Ahab shall perish: and I will cut off from Ahab him that pisseth against the wall, and him that is shut up and left in Israel:  
-> <sup>9</sup> And I will make the house of Ahab like the house of Jeroboam the son of Nebat, and like the house of Baasha the son of Ahijah:  
-> <sup>10</sup> And the dogs shall eat Jezebel in the portion of Jezreel, and *there shall be* none to bury *her.* And he opened the door, and fled.  
+> **¹** And Elisha the prophet called one of the children of the prophets, and said unto him, Gird up thy loins, and take this box of oil in thine hand, and go to Ramoth-gilead:  
+> **²** And when thou comest thither, look out there Jehu the son of Jehoshaphat the son of Nimshi, and go in, and make him arise up from among his brethren, and carry him to an inner chamber;  
+> **³** Then take the box of oil, and pour *it* on his head, and say, Thus saith the LORD, I have anointed thee king over Israel. Then open the door, and flee, and tarry not.  
+> **⁴** So the young man, *even* the young man the prophet, went to Ramoth-gilead.  
+> **⁵** And when he came, behold, the captains of the host *were* sitting; and he said, I have an errand to thee, O captain. And Jehu said, Unto which of all us? And he said, To thee, O captain.  
+> **⁶** And he arose, and went into the house; and he poured the oil on his head, and said unto him, Thus saith the LORD God of Israel, I have anointed thee king over the people of the LORD, *even* over Israel.  
+> **⁷** And thou shalt smite the house of Ahab thy master, that I may avenge the blood of my servants the prophets, and the blood of all the servants of the LORD, at the hand of Jezebel.  
+> **⁸** For the whole house of Ahab shall perish: and I will cut off from Ahab him that pisseth against the wall, and him that is shut up and left in Israel:  
+> **⁹** And I will make the house of Ahab like the house of Jeroboam the son of Nebat, and like the house of Baasha the son of Ahijah:  
+> **¹⁰** And the dogs shall eat Jezebel in the portion of Jezreel, and *there shall be* none to bury *her.* And he opened the door, and fled.  
 
 We have here the anointing of Jehu to be king, who was, at this time, a commander (probably commander-in-chief) of the forces employed at Ramoth-Gilead, 2Ki 9:14. There he was fighting for the king his master, but received orders from a higher king to fight against him. It does not appear that Jehu aimed at the government, or that he ever thought of it, but the commission given him was a perfect surprise to him. Some think that he had been anointed before by Elijah, whom God ordered to do it, but privately, and with an intimation that he must not act till further orders, as Samuel anointed David long before he was to come to the throne: but that it not at all probable, for then we must suppose Elijah had anointed Hazael too. No, when God bade him do these things he bade him anoint Elisha to *be prophet in his room,* to do them when he was gone, as God should direct him. Here is,
 
@@ -35,11 +35,11 @@ II\. The commission delivered. The young prophet did his business with despatch,
 
 The prophet, having done this errand, made the best of his way home again, and left Jehu alone to consider what he had to do and beg direction from God.
 
-> <sup>11</sup> Then Jehu came forth to the servants of his lord: and *one* said unto him, *Is* all well? wherefore came this mad *fellow* to thee? And he said unto them, Ye know the man, and his communication.  
-> <sup>12</sup> And they said, *It is* false; tell us now. And he said, Thus and thus spake he to me, saying, Thus saith the LORD, I have anointed thee king over Israel.  
-> <sup>13</sup> Then they hasted, and took every man his garment, and put *it* under him on the top of the stairs, and blew with trumpets, saying, Jehu is king.  
-> <sup>14</sup> So Jehu the son of Jehoshaphat the son of Nimshi conspired against Joram. (Now Joram had kept Ramoth-gilead, he and all Israel, because of Hazael king of Syria.  
-> <sup>15</sup> But king Joram was returned to be healed in Jezreel of the wounds which the Syrians had given him, when he fought with Hazael king of Syria.) And Jehu said, If it be your minds, *then* let none go forth *nor* escape out of the city to go to tell *it* in Jezreel.  
+> **¹¹** Then Jehu came forth to the servants of his lord: and *one* said unto him, *Is* all well? wherefore came this mad *fellow* to thee? And he said unto them, Ye know the man, and his communication.  
+> **¹²** And they said, *It is* false; tell us now. And he said, Thus and thus spake he to me, saying, Thus saith the LORD, I have anointed thee king over Israel.  
+> **¹³** Then they hasted, and took every man his garment, and put *it* under him on the top of the stairs, and blew with trumpets, saying, Jehu is king.  
+> **¹⁴** So Jehu the son of Jehoshaphat the son of Nimshi conspired against Joram. (Now Joram had kept Ramoth-gilead, he and all Israel, because of Hazael king of Syria.  
+> **¹⁵** But king Joram was returned to be healed in Jezreel of the wounds which the Syrians had given him, when he fought with Hazael king of Syria.) And Jehu said, If it be your minds, *then* let none go forth *nor* escape out of the city to go to tell *it* in Jezreel.  
 
 Jehu, after some pause, returned to his place at the board, taking no notice of what had passed, but, as it should seem, designing, for the present, to keep it to himself, if they had not urged him to disclose it. Let us therefore see what passed between him and the captains.
 
@@ -51,20 +51,20 @@ III\. With what caution Jehu proceeded. He had advantages against Joram, and he 
 
 ## Jehu's Approach to Jezreel. (b. c. 884.)
 
-> <sup>16</sup> So Jehu rode in a chariot, and went to Jezreel; for Joram lay there. And Ahaziah king of Judah was come down to see Joram.  
-> <sup>17</sup> And there stood a watchman on the tower in Jezreel, and he spied the company of Jehu as he came, and said, I see a company. And Joram said, Take a horseman, and send to meet them, and let him say, *Is it* peace?  
-> <sup>18</sup> So there went one on horseback to meet him, and said, Thus saith the king, *Is it* peace? And Jehu said, What hast thou to do with peace? turn thee behind me. And the watchman told, saying, The messenger came to them, but he cometh not again.  
-> <sup>19</sup> Then he sent out a second on horseback, which came to them, and said, Thus saith the king, *Is it* peace? And Jehu answered, What hast thou to do with peace? turn thee behind me.  
-> <sup>20</sup> And the watchman told, saying, He came even unto them, and cometh not again: and the driving *is* like the driving of Jehu the son of Nimshi; for he driveth furiously.  
-> <sup>21</sup> And Joram said, Make ready. And his chariot was made ready. And Joram king of Israel and Ahaziah king of Judah went out, each in his chariot, and they went out against Jehu, and met him in the portion of Naboth the Jezreelite.  
-> <sup>22</sup> And it came to pass, when Joram saw Jehu, that he said, *Is it* peace, Jehu? And he answered, What peace, so long as the whoredoms of thy mother Jezebel and her witchcrafts *are so* many?  
-> <sup>23</sup> And Joram turned his hands, and fled, and said to Ahaziah, *There is* treachery, O Ahaziah.  
-> <sup>24</sup> And Jehu drew a bow with his full strength, and smote Jehoram between his arms, and the arrow went out at his heart, and he sunk down in his chariot.  
-> <sup>25</sup> Then said *Jehu* to Bidkar his captain, Take up, *and* cast him in the portion of the field of Naboth the Jezreelite: for remember how that, when I and thou rode together after Ahab his father, the LORD laid this burden upon him;  
-> <sup>26</sup> Surely I have seen yesterday the blood of Naboth, and the blood of his sons, saith the LORD; and I will requite thee in this plat, saith the LORD. Now therefore take *and* cast him into the plat *of ground,* according to the word of the LORD.  
-> <sup>27</sup> But when Ahaziah the king of Judah saw *this,* he fled by the way of the garden house. And Jehu followed after him, and said, Smite him also in the chariot. *And they did so* at the going up to Gur, which *is* by Ibleam. And he fled to Megiddo, and died there.  
-> <sup>28</sup> And his servants carried him in a chariot to Jerusalem, and buried him in his sepulchre with his fathers in the city of David.  
-> <sup>29</sup> And in the eleventh year of Joram the son of Ahab began Ahaziah to reign over Judah.  
+> **¹⁶** So Jehu rode in a chariot, and went to Jezreel; for Joram lay there. And Ahaziah king of Judah was come down to see Joram.  
+> **¹⁷** And there stood a watchman on the tower in Jezreel, and he spied the company of Jehu as he came, and said, I see a company. And Joram said, Take a horseman, and send to meet them, and let him say, *Is it* peace?  
+> **¹⁸** So there went one on horseback to meet him, and said, Thus saith the king, *Is it* peace? And Jehu said, What hast thou to do with peace? turn thee behind me. And the watchman told, saying, The messenger came to them, but he cometh not again.  
+> **¹⁹** Then he sent out a second on horseback, which came to them, and said, Thus saith the king, *Is it* peace? And Jehu answered, What hast thou to do with peace? turn thee behind me.  
+> **²⁰** And the watchman told, saying, He came even unto them, and cometh not again: and the driving *is* like the driving of Jehu the son of Nimshi; for he driveth furiously.  
+> **²¹** And Joram said, Make ready. And his chariot was made ready. And Joram king of Israel and Ahaziah king of Judah went out, each in his chariot, and they went out against Jehu, and met him in the portion of Naboth the Jezreelite.  
+> **²²** And it came to pass, when Joram saw Jehu, that he said, *Is it* peace, Jehu? And he answered, What peace, so long as the whoredoms of thy mother Jezebel and her witchcrafts *are so* many?  
+> **²³** And Joram turned his hands, and fled, and said to Ahaziah, *There is* treachery, O Ahaziah.  
+> **²⁴** And Jehu drew a bow with his full strength, and smote Jehoram between his arms, and the arrow went out at his heart, and he sunk down in his chariot.  
+> **²⁵** Then said *Jehu* to Bidkar his captain, Take up, *and* cast him in the portion of the field of Naboth the Jezreelite: for remember how that, when I and thou rode together after Ahab his father, the LORD laid this burden upon him;  
+> **²⁶** Surely I have seen yesterday the blood of Naboth, and the blood of his sons, saith the LORD; and I will requite thee in this plat, saith the LORD. Now therefore take *and* cast him into the plat *of ground,* according to the word of the LORD.  
+> **²⁷** But when Ahaziah the king of Judah saw *this,* he fled by the way of the garden house. And Jehu followed after him, and said, Smite him also in the chariot. *And they did so* at the going up to Gur, which *is* by Ibleam. And he fled to Megiddo, and died there.  
+> **²⁸** And his servants carried him in a chariot to Jerusalem, and buried him in his sepulchre with his fathers in the city of David.  
+> **²⁹** And in the eleventh year of Joram the son of Ahab began Ahaziah to reign over Judah.  
 
 From Ramoth-Gilead to Jezreel was more than one day's march; about the mid-way between them the river Jordan must be crossed. We may suppose Jehu to have marched with all possible expedition, and to have taken the utmost precaution to prevent the tidings from getting to Jezreel before him; and, at length, we have him within sight first, and then within reach, of the devoted king.
 
@@ -82,14 +82,14 @@ II\. Joram himself goes out to meet him, and takes Ahaziah king of Judah along w
 
 ## Joram and Ahaziah Slain. (b. c. 884.)
 
-> <sup>30</sup> And when Jehu was come to Jezreel, Jezebel heard *of it;* and she painted her face, and tired her head, and looked out at a window.  
-> <sup>31</sup> And as Jehu entered in at the gate, she said, *Had* Zimri peace, who slew his master?  
-> <sup>32</sup> And he lifted up his face to the window, and said, Who *is* on my side? who? And there looked out to him two *or* three eunuchs.  
-> <sup>33</sup> And he said, Throw her down. So they threw her down: and *some* of her blood was sprinkled on the wall, and on the horses: and he trode her under foot.  
-> <sup>34</sup> And when he was come in, he did eat and drink, and said, Go, see now this cursed *woman,* and bury her: for she *is* a king's daughter.  
-> <sup>35</sup> And they went to bury her: but they found no more of her than the skull, and the feet, and the palms of *her* hands.  
-> <sup>36</sup> Wherefore they came again, and told him. And he said, This *is* the word of the LORD, which he spake by his servant Elijah the Tishbite, saying, In the portion of Jezreel shall dogs eat the flesh of Jezebel:  
-> <sup>37</sup> And the carcase of Jezebel shall be as dung upon the face of the field in the portion of Jezreel; *so* that they shall not say, This *is* Jezebel.  
+> **³⁰** And when Jehu was come to Jezreel, Jezebel heard *of it;* and she painted her face, and tired her head, and looked out at a window.  
+> **³¹** And as Jehu entered in at the gate, she said, *Had* Zimri peace, who slew his master?  
+> **³²** And he lifted up his face to the window, and said, Who *is* on my side? who? And there looked out to him two *or* three eunuchs.  
+> **³³** And he said, Throw her down. So they threw her down: and *some* of her blood was sprinkled on the wall, and on the horses: and he trode her under foot.  
+> **³⁴** And when he was come in, he did eat and drink, and said, Go, see now this cursed *woman,* and bury her: for she *is* a king's daughter.  
+> **³⁵** And they went to bury her: but they found no more of her than the skull, and the feet, and the palms of *her* hands.  
+> **³⁶** Wherefore they came again, and told him. And he said, This *is* the word of the LORD, which he spake by his servant Elijah the Tishbite, saying, In the portion of Jezreel shall dogs eat the flesh of Jezebel:  
+> **³⁷** And the carcase of Jezebel shall be as dung upon the face of the field in the portion of Jezreel; *so* that they shall not say, This *is* Jezebel.  
 
 The greatest delinquent in the house of Ahab was Jezebel: it was she that introduced Baal, slew the Lord's prophets, contrived the murder of Naboth, stirred up her husband first, and then her sons, to do wickedly; a *cursed woman* she is here called (2Ki 9:34), a curse to the country, and whom all that wished well to their country had a curse for. Three reigns her reign had lasted, but now, at length, her day had come to fall. We read of a false prophetess in the church of Thyatira that is compared to Jezebel, and called by her name (Re 2:20), her wickedness the same, seducing God's servants to idolatry, a long *space given her to repent* (2Ki 9:21) as to Jezebel, and a fearful ruin brought upon her at last (2Ki 9:22,23), as here upon Jezebel. So that Jezebel's destruction may be looked upon as typical of the destruction of idolaters and persecutors, especially that great whore, that mother of harlots, that hath made herself *drunk with the blood of saints* and the nations *drunk with the wine of her fornications,* when God shall put it into the heart of the kings of the earth to hate her, Re 17:5,6,16. Now here we have,
 

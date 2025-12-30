@@ -8,12 +8,12 @@ In this chapter we have, I. God coming towards his people in ways of mercy and d
 
 ## The Triumphs of the Messiah. (b. c. 706.)
 
-> <sup>1</sup> Who *is* this that cometh from Edom, with dyed garments from Bozrah? this *that is* glorious in his apparel, travelling in the greatness of his strength? I that speak in righteousness, mighty to save.  
-> <sup>2</sup> Wherefore *art thou* red in thine apparel, and thy garments like him that treadeth in the wine-fat?  
-> <sup>3</sup> I have trodden the winepress alone; and of the people *there was* none with me: for I will tread them in mine anger, and trample them in my fury; and their blood shall be sprinkled upon my garments, and I will stain all my raiment.  
-> <sup>4</sup> For the day of vengeance *is* in mine heart, and the year of my redeemed is come.  
-> <sup>5</sup> And I looked, and *there was* none to help; and I wondered that *there was* none to uphold: therefore mine own arm brought salvation unto me; and my fury, it upheld me.  
-> <sup>6</sup> And I will tread down the people in mine anger, and make them drunk in my fury, and I will bring down their strength to the earth.  
+> **¹** Who *is* this that cometh from Edom, with dyed garments from Bozrah? this *that is* glorious in his apparel, travelling in the greatness of his strength? I that speak in righteousness, mighty to save.  
+> **²** Wherefore *art thou* red in thine apparel, and thy garments like him that treadeth in the wine-fat?  
+> **³** I have trodden the winepress alone; and of the people *there was* none with me: for I will tread them in mine anger, and trample them in my fury; and their blood shall be sprinkled upon my garments, and I will stain all my raiment.  
+> **⁴** For the day of vengeance *is* in mine heart, and the year of my redeemed is come.  
+> **⁵** And I looked, and *there was* none to help; and I wondered that *there was* none to uphold: therefore mine own arm brought salvation unto me; and my fury, it upheld me.  
+> **⁶** And I will tread down the people in mine anger, and make them drunk in my fury, and I will bring down their strength to the earth.  
 
 It is a glorious victory that is here enquired into first and then accounted for. 1. It is a victory obtained by the providence of God over the enemies of Israel; over the Babylonians (say some), whom Cyrus conquered and God by him, and they will have the prophet to make the first discovery of him in his triumphant return when he is in the country of Edom: but this can by no means be admitted, because the country of Babylon is always spoken of as the land of the north, whereas Edom lay south from Jerusalem, so that the conqueror would not return through that country; the victory therefore is obtained over the Edomites themselves, who had triumphed in the destruction of Jerusalem by the Chaldeans (Ps 137:7) and cut off those who, making their way as far as they could from the enemy, escaped to the Edomites (Ob 1:12,13), and were therefore reckoned with when Babylon was; for no doubt that prophecy was accomplished, though we do not meet in history with the accomplishment of it (Jer 49:13), *Bozrah shall become a desolation.* Yet this victory over Edom is put as an instance or specimen of the like victories obtained over other nations that had been enemies to Israel. This over the Edomites is named for the sake of the old enmity of Esau against Jacob (Ge 27:41) and perhaps with an allusion to David's glorious triumphs over the Edomites, by which it should seem, more than by any other of his victories, he *got himself a name,* Ps 60:1,2Sa 8:13,14. But this is not all: 2. It is a victory obtained by the grace of God in Christ over our spiritual enemies. We find the garments dipped in blood adorning him whose name is called *The Word of God,* Re 19:13. And who that is we know very well; for it is through him that we are more than conquerors over those principalities and powers which on the cross he spoiled and triumphed over.
 
@@ -39,14 +39,14 @@ In the destruction of the antichristian powers we meet with abundance of blood s
 
 ## Acknowledgments of Divine Goodness. (b. c. 706.)
 
-> <sup>7</sup> I will mention the lovingkindnesses of the LORD, *and* the praises of the LORD, according to all that the LORD hath bestowed on us, and the great goodness toward the house of Israel, which he hath bestowed on them according to his mercies, and according to the multitude of his lovingkindnesses.  
-> <sup>8</sup> For he said, Surely they *are* my people, children *that* will not lie: so he was their Saviour.  
-> <sup>9</sup> In all their affliction he was afflicted, and the angel of his presence saved them: in his love and in his pity he redeemed them; and he bare them, and carried them all the days of old.  
-> <sup>10</sup> But they rebelled, and vexed his holy Spirit: therefore he was turned to be their enemy, *and* he fought against them.  
-> <sup>11</sup> Then he remembered the days of old, Moses, *and* his people, *saying,* Where *is* he that brought them up out of the sea with the shepherd of his flock? where *is* he that put his holy Spirit within him?  
-> <sup>12</sup> That led *them* by the right hand of Moses with his glorious arm, dividing the water before them, to make himself an everlasting name?  
-> <sup>13</sup> That led them through the deep, as a horse in the wilderness, *that* they should not stumble?  
-> <sup>14</sup> As a beast goeth down into the valley, the Spirit of the LORD caused him to rest: so didst thou lead thy people, to make thyself a glorious name.  
+> **⁷** I will mention the lovingkindnesses of the LORD, *and* the praises of the LORD, according to all that the LORD hath bestowed on us, and the great goodness toward the house of Israel, which he hath bestowed on them according to his mercies, and according to the multitude of his lovingkindnesses.  
+> **⁸** For he said, Surely they *are* my people, children *that* will not lie: so he was their Saviour.  
+> **⁹** In all their affliction he was afflicted, and the angel of his presence saved them: in his love and in his pity he redeemed them; and he bare them, and carried them all the days of old.  
+> **¹⁰** But they rebelled, and vexed his holy Spirit: therefore he was turned to be their enemy, *and* he fought against them.  
+> **¹¹** Then he remembered the days of old, Moses, *and* his people, *saying,* Where *is* he that brought them up out of the sea with the shepherd of his flock? where *is* he that put his holy Spirit within him?  
+> **¹²** That led *them* by the right hand of Moses with his glorious arm, dividing the water before them, to make himself an everlasting name?  
+> **¹³** That led them through the deep, as a horse in the wilderness, *that* they should not stumble?  
+> **¹⁴** As a beast goeth down into the valley, the Spirit of the LORD caused him to rest: so didst thou lead thy people, to make thyself a glorious name.  
 
 The prophet is here, in the name of the church, taking a review, and making a thankful recognition, of God's dealings with his church all along, ever since he founded it, before he comes, in the latter end of this chapter and in the next, as a watchman upon the walls, earnestly to pray to God for his compassion towards her in her present deplorable state; and it was usual for God's people, in their prayers, thus to look back.
 
@@ -68,11 +68,11 @@ II\. Here is particular notice taken of the steps of God's mercy to Israel ever 
 
 ## Earnest Pleadings. (b. c. 706.)
 
-> <sup>15</sup> Look down from heaven, and behold from the habitation of thy holiness and of thy glory: where *is* thy zeal and thy strength, the sounding of thy bowels and of thy mercies toward me? are they restrained?  
-> <sup>16</sup> Doubtless thou *art* our father, though Abraham be ignorant of us, and Israel acknowledge us not: thou, O LORD, *art* our father, our redeemer; thy name *is* from everlasting.  
-> <sup>17</sup> O LORD, why hast thou made us to err from thy ways, *and* hardened our heart from thy fear? Return for thy servants' sake, the tribes of thine inheritance.  
-> <sup>18</sup> The people of thy holiness have possessed *it* but a little while: our adversaries have trodden down thy sanctuary.  
-> <sup>19</sup> We are *thine:* thou never barest rule over them; they were not called by thy name.  
+> **¹⁵** Look down from heaven, and behold from the habitation of thy holiness and of thy glory: where *is* thy zeal and thy strength, the sounding of thy bowels and of thy mercies toward me? are they restrained?  
+> **¹⁶** Doubtless thou *art* our father, though Abraham be ignorant of us, and Israel acknowledge us not: thou, O LORD, *art* our father, our redeemer; thy name *is* from everlasting.  
+> **¹⁷** O LORD, why hast thou made us to err from thy ways, *and* hardened our heart from thy fear? Return for thy servants' sake, the tribes of thine inheritance.  
+> **¹⁸** The people of thy holiness have possessed *it* but a little while: our adversaries have trodden down thy sanctuary.  
+> **¹⁹** We are *thine:* thou never barest rule over them; they were not called by thy name.  
 
 The foregoing praises were intended as an introduction to this prayer, which is continued to the end of the next chapter, and it is an affectionate, importunate, pleading prayer. It is calculated for the time of the captivity. As they had promises, so they had prayers, prepared for them against that time of need, that they might take with them words in turning to the Lord, and say unto him what he himself taught them to say, in which they might the better hope to prevail, the words being of God's own inditing. Some good interpreters think this prayer looks further, and that it expresses the complaints of the Jews under their last and final rejection from God and destruction by the Romans; for there is one passage in it (Isa 64:4) which is applied to the grace of the gospel by the apostle (1Co 2:9), that grace for the rejecting of which they were rejected. In these verses we may observe,
 

@@ -8,34 +8,34 @@ We are here going on with the history of Rehoboam. I. His attempt to recover the
 
 ## Rehoboam Forbidden to Make War. (b. c. 975.)
 
-> <sup>1</sup> And when Rehoboam was come to Jerusalem, he gathered of the house of Judah and Benjamin a hundred and fourscore thousand chosen *men,* which were warriors, to fight against Israel, that he might bring the kingdom again to Rehoboam.  
-> <sup>2</sup> But the word of the LORD came to Shemaiah the man of God, saying,  
-> <sup>3</sup> Speak unto Rehoboam the son of Solomon, king of Judah, and to all Israel in Judah and Benjamin, saying,  
-> <sup>4</sup> Thus saith the LORD, Ye shall not go up, nor fight against your brethren: return every man to his house: for this thing is done of me. And they obeyed the words of the LORD, and returned from going against Jeroboam.  
-> <sup>5</sup> And Rehoboam dwelt in Jerusalem, and built cities for defence in Judah.  
-> <sup>6</sup> He built even Beth-lehem, and Etam, and Tekoa,  
-> <sup>7</sup> And Beth-zur, and Shoco, and Adullam,  
-> <sup>8</sup> And Gath, and Mareshah, and Ziph,  
-> <sup>9</sup> And Adoraim, and Lachish, and Azekah,  
-> <sup>10</sup> And Zorah, and Aijalon, and Hebron, which *are* in Judah and in Benjamin fenced cities.  
-> <sup>11</sup> And he fortified the strong holds, and put captains in them, and store of victual, and of oil and wine.  
-> <sup>12</sup> And in every several city *he put* shields and spears, and made them exceeding strong, having Judah and Benjamin on his side.  
+> **¹** And when Rehoboam was come to Jerusalem, he gathered of the house of Judah and Benjamin a hundred and fourscore thousand chosen *men,* which were warriors, to fight against Israel, that he might bring the kingdom again to Rehoboam.  
+> **²** But the word of the LORD came to Shemaiah the man of God, saying,  
+> **³** Speak unto Rehoboam the son of Solomon, king of Judah, and to all Israel in Judah and Benjamin, saying,  
+> **⁴** Thus saith the LORD, Ye shall not go up, nor fight against your brethren: return every man to his house: for this thing is done of me. And they obeyed the words of the LORD, and returned from going against Jeroboam.  
+> **⁵** And Rehoboam dwelt in Jerusalem, and built cities for defence in Judah.  
+> **⁶** He built even Beth-lehem, and Etam, and Tekoa,  
+> **⁷** And Beth-zur, and Shoco, and Adullam,  
+> **⁸** And Gath, and Mareshah, and Ziph,  
+> **⁹** And Adoraim, and Lachish, and Azekah,  
+> **¹⁰** And Zorah, and Aijalon, and Hebron, which *are* in Judah and in Benjamin fenced cities.  
+> **¹¹** And he fortified the strong holds, and put captains in them, and store of victual, and of oil and wine.  
+> **¹²** And in every several city *he put* shields and spears, and made them exceeding strong, having Judah and Benjamin on his side.  
 
 How the ten tribes deserted the house of David we read in the foregoing chapter. They had formerly sat loose to that family (2Sa 20:1,2), and now they quite threw it off, not considering how much it would weaken the common interest and take Israel down from that pitch of glory at which it had arrived in the last reign. But thus the *kingdom* must be corrected as well as the *house* of David. 1. Rehoboam at length, like a bold man, raises an army, with a design to reduce the revolters, 2Ch 11:1. Judah and Benjamin were not only resolved to continue their allegiance to him, but ready to give him the best assistance they could for the recovery of his right. Judah was his own tribe, that owned him some years before the rest did; Benjamin was the tribe in which Jerusalem, or the greatest part of it, stood, which perhaps was one reason why that tribe clave to him. 2. Yet, like a conscientious man, when God forbade him to prosecute this design, in obedience to him he let it fall, either because he reverenced the divine authority or because he knew that he should not prosper if he should go contrary to God's command, but instead of retrieving what was lost would be in danger of losing what he had. It is dangerous undertaking any thing, but especially undertaking a war, contrary to the will of God. God calls him (2Ch 11:3), *Rehoboam the son of Solomon,* to intimate that this was determined for the sin of Solomon, and it would be to no purpose to oppose a decree that had gone forth. They *obeyed the words of the Lord;* and though it looked mean, and would turn to their reproach among their neighbours, yet, because God would have it so, they laid down their arms. 3. Like a discreet man, he fortified his own country. He saw it was to no purpose to think of reducing those that had revolted. A few good words might have prevented their defection, but now all the forces of his kingdom cannot bring them back. The thing is done, and so it must rest; it is his wisdom to make the best of it. Perhaps the same young counsellors that had advised him to answer them roughly urged him to fight them, notwithstanding the divine inhibition; but he had paid dearly enough for being advised by them, and therefore now, we may suppose, his aged and experienced counsellors were hearkened to, and they advised him to submit to the will of God concerning what was lost, and to make it his business to keep what he had. It was probably by their advice that, (1.) He fortified his frontiers, and many of the principal cities of his kingdom, which, in Solomon's peaceable reign, no care had been taken for the defence of. (2.) He furnished them with good stores of victuals and arms, 2Ch 11:11,12. Because God forbade him to fight, he did not therefore sit down sullenly, and say that he would do nothing for the public safety if he might not do that, but prudently provided against an attack. Those that may not be conquerors, yet may be builders.
 
 ## The Priests Adhere to Rehoboam. (b. c. 974.)
 
-> <sup>13</sup> And the priests and the Levites that *were* in all Israel resorted to him out of all their coasts.  
-> <sup>14</sup> For the Levites left their suburbs and their possession, and came to Judah and Jerusalem: for Jeroboam and his sons had cast them off from executing the priest's office unto the LORD:  
-> <sup>15</sup> And he ordained him priests for the high places, and for the devils, and for the calves which he had made.  
-> <sup>16</sup> And after them out of all the tribes of Israel such as set their hearts to seek the LORD God of Israel came to Jerusalem, to sacrifice unto the LORD God of their fathers.  
-> <sup>17</sup> So they strengthened the kingdom of Judah, and made Rehoboam the son of Solomon strong, three years: for three years they walked in the way of David and Solomon.  
-> <sup>18</sup> And Rehoboam took him Mahalath the daughter of Jerimoth the son of David to wife, *and* Abihail the daughter of Eliab the son of Jesse;  
-> <sup>19</sup> Which bare him children; Jeush, and Shamariah, and Zaham.  
-> <sup>20</sup> And after her he took Maachah the daughter of Absalom; which bare him Abijah, and Attai, and Ziza, and Shelomith.  
-> <sup>21</sup> And Rehoboam loved Maachah the daughter of Absalom above all his wives and his concubines: (for he took eighteen wives, and threescore concubines; and begat twenty and eight sons, and threescore daughters.)  
-> <sup>22</sup> And Rehoboam made Abijah the son of Maachah the chief, *to be* ruler among his brethren: for *he thought* to make him king.  
-> <sup>23</sup> And he dealt wisely, and dispersed of all his children throughout all the countries of Judah and Benjamin, unto every fenced city: and he gave them victual in abundance. And he desired many wives.  
+> **¹³** And the priests and the Levites that *were* in all Israel resorted to him out of all their coasts.  
+> **¹⁴** For the Levites left their suburbs and their possession, and came to Judah and Jerusalem: for Jeroboam and his sons had cast them off from executing the priest's office unto the LORD:  
+> **¹⁵** And he ordained him priests for the high places, and for the devils, and for the calves which he had made.  
+> **¹⁶** And after them out of all the tribes of Israel such as set their hearts to seek the LORD God of Israel came to Jerusalem, to sacrifice unto the LORD God of their fathers.  
+> **¹⁷** So they strengthened the kingdom of Judah, and made Rehoboam the son of Solomon strong, three years: for three years they walked in the way of David and Solomon.  
+> **¹⁸** And Rehoboam took him Mahalath the daughter of Jerimoth the son of David to wife, *and* Abihail the daughter of Eliab the son of Jesse;  
+> **¹⁹** Which bare him children; Jeush, and Shamariah, and Zaham.  
+> **²⁰** And after her he took Maachah the daughter of Absalom; which bare him Abijah, and Attai, and Ziza, and Shelomith.  
+> **²¹** And Rehoboam loved Maachah the daughter of Absalom above all his wives and his concubines: (for he took eighteen wives, and threescore concubines; and begat twenty and eight sons, and threescore daughters.)  
+> **²²** And Rehoboam made Abijah the son of Maachah the chief, *to be* ruler among his brethren: for *he thought* to make him king.  
+> **²³** And he dealt wisely, and dispersed of all his children throughout all the countries of Judah and Benjamin, unto every fenced city: and he gave them victual in abundance. And he desired many wives.  
 
 See here,
 

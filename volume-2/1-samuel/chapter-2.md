@@ -8,16 +8,16 @@ In this chapter we have, I. Hannah's song of thanksgiving to God for his favour 
 
 ## Hannah's Song. (b. c. 1137.)
 
-> <sup>1</sup> And Hannah prayed, and said, My heart rejoiceth in the LORD, mine horn is exalted in the LORD: my mouth is enlarged over mine enemies; because I rejoice in thy salvation.  
-> <sup>2</sup> *There is* none holy as the LORD: for *there is* none beside thee: neither *is there* any rock like our God.  
-> <sup>3</sup> Talk no more so exceeding proudly; let *not* arrogancy come out of your mouth: for the LORD *is* a God of knowledge, and by him actions are weighed.  
-> <sup>4</sup> The bows of the mighty men *are* broken, and they that stumbled are girded with strength.  
-> <sup>5</sup> *They that were* full have hired out themselves for bread; and *they that were* hungry ceased: so that the barren hath born seven; and she that hath many children is waxed feeble.  
-> <sup>6</sup> The LORD killeth, and maketh alive: he bringeth down to the grave, and bringeth up.  
-> <sup>7</sup> The LORD maketh poor, and maketh rich: he bringeth low, and lifteth up.  
-> <sup>8</sup> He raiseth up the poor out of the dust, *and* lifteth up the beggar from the dunghill, to set *them* among princes, and to make them inherit the throne of glory: for the pillars of the earth *are* the LORD's, and he hath set the world upon them.  
-> <sup>9</sup> He will keep the feet of his saints, and the wicked shall be silent in darkness; for by strength shall no man prevail.  
-> <sup>10</sup> The adversaries of the LORD shall be broken to pieces; out of heaven shall he thunder upon them: the LORD shall judge the ends of the earth; and he shall give strength unto his king, and exalt the horn of his anointed.  
+> **¹** And Hannah prayed, and said, My heart rejoiceth in the LORD, mine horn is exalted in the LORD: my mouth is enlarged over mine enemies; because I rejoice in thy salvation.  
+> **²** *There is* none holy as the LORD: for *there is* none beside thee: neither *is there* any rock like our God.  
+> **³** Talk no more so exceeding proudly; let *not* arrogancy come out of your mouth: for the LORD *is* a God of knowledge, and by him actions are weighed.  
+> **⁴** The bows of the mighty men *are* broken, and they that stumbled are girded with strength.  
+> **⁵** *They that were* full have hired out themselves for bread; and *they that were* hungry ceased: so that the barren hath born seven; and she that hath many children is waxed feeble.  
+> **⁶** The LORD killeth, and maketh alive: he bringeth down to the grave, and bringeth up.  
+> **⁷** The LORD maketh poor, and maketh rich: he bringeth low, and lifteth up.  
+> **⁸** He raiseth up the poor out of the dust, *and* lifteth up the beggar from the dunghill, to set *them* among princes, and to make them inherit the throne of glory: for the pillars of the earth *are* the LORD's, and he hath set the world upon them.  
+> **⁹** He will keep the feet of his saints, and the wicked shall be silent in darkness; for by strength shall no man prevail.  
+> **¹⁰** The adversaries of the LORD shall be broken to pieces; out of heaven shall he thunder upon them: the LORD shall judge the ends of the earth; and he shall give strength unto his king, and exalt the horn of his anointed.  
 
 We have here Hannah's thanksgiving, dictated, not only by the spirit of prayer, but by the spirit of prophecy. Her petition for the mercy she desired we had before (1Sa 1:11), and here we have her return of praise; in both *out of the abundance of a heart* deeply affected (in the former with her own wants, and in the latter with God's goodness) *her mouth spoke.* Observe in general, 1. When she had received mercy from God she owned it, with thankfulness to his praise. Not like the nine lepers, Lu 17:17. Praise is our rent, our tribute. We are unjust if we do not pay it. 2. The mercy she had received was an answer to prayer, and therefore she thought herself especially obliged to give thanks for it. What we win by prayer we may wear with comfort, and must wear with praise. 3. Her thanksgiving is here called a prayer: *Hannah prayed;* for thanksgiving is an essential part of prayer. In every address to God we must express a grateful regard to him as our benefactor. Nay, and thanksgiving for mercies received shall be accepted as a petition for further mercy. 4. From this particular mercy which she had received from God she takes occasion, with an elevated and enlarged heart, to speak glorious things of God and of his government of the world for the good of his church. Whatever at any time gives rise to our praises in this manner they should be raised. 5. Her prayer was mental. *Her voice was not heard;* but in her thanksgiving she spoke, that all might hear her. She made her supplication *with groanings that could not be uttered,* but now her lips were opened to *show forth God's praise.* 6. This thanksgiving is here left upon record for the encouragement of those of the weaker sex to attend the throne of grace. God will regard their prayers and praises. The virgin Mary's song has great affinity with this of Hannah, Lu 1:46. Three things we have in this thanksgiving:—
 
@@ -47,22 +47,22 @@ III\. A prediction of the preservation and advancement of all God's faithful fri
 
 ## Samuel in the Sanctuary; The Wickedness of Eli's Sons. (b. c. 1130.)
 
-> <sup>11</sup> And Elkanah went to Ramah to his house. And the child did minister unto the LORD before Eli the priest.  
-> <sup>12</sup> Now the sons of Eli *were* sons of Belial; they knew not the LORD.  
-> <sup>13</sup> And the priests' custom with the people *was, that,* when any man offered sacrifice, the priest's servant came, while the flesh was in seething, with a fleshhook of three teeth in his hand;  
-> <sup>14</sup> And he struck *it* into the pan, or kettle, or caldron, or pot; all that the fleshhook brought up the priest took for himself. So they did in Shiloh unto all the Israelites that came thither.  
-> <sup>15</sup> Also before they burnt the fat, the priest's servant came, and said to the man that sacrificed, Give flesh to roast for the priest; for he will not have sodden flesh of thee, but raw.  
-> <sup>16</sup> And *if* any man said unto him, Let them not fail to burn the fat presently, and *then* take *as much* as thy soul desireth; then he would answer him, *Nay;* but thou shalt give *it me* now: and if not, I will take *it* by force.  
-> <sup>17</sup> Wherefore the sin of the young men was very great before the LORD: for men abhorred the offering of the LORD.  
-> <sup>18</sup> But Samuel ministered before the LORD, *being* a child, girded with a linen ephod.  
-> <sup>19</sup> Moreover his mother made him a little coat, and brought *it* to him from year to year, when she came up with her husband to offer the yearly sacrifice.  
-> <sup>20</sup> And Eli blessed Elkanah and his wife, and said, The LORD give thee seed of this woman for the loan which is lent to the LORD. And they went unto their own home.  
-> <sup>21</sup> And the LORD visited Hannah, so that she conceived, and bare three sons and two daughters. And the child Samuel grew before the LORD.  
-> <sup>22</sup> Now Eli was very old, and heard all that his sons did unto all Israel; and how they lay with the women that assembled *at* the door of the tabernacle of the congregation.  
-> <sup>23</sup> And he said unto them, Why do ye such things? for I hear of your evil dealings by all this people.  
-> <sup>24</sup> Nay, my sons; for *it is* no good report that I hear: ye make the LORD's people to transgress.  
-> <sup>25</sup> If one man sin against another, the judge shall judge him: but if a man sin against the LORD, who shall intreat for him? Notwithstanding they hearkened not unto the voice of their father, because the LORD would slay them.  
-> <sup>26</sup> And the child Samuel grew on, and was in favour both with the LORD, and also with men.  
+> **¹¹** And Elkanah went to Ramah to his house. And the child did minister unto the LORD before Eli the priest.  
+> **¹²** Now the sons of Eli *were* sons of Belial; they knew not the LORD.  
+> **¹³** And the priests' custom with the people *was, that,* when any man offered sacrifice, the priest's servant came, while the flesh was in seething, with a fleshhook of three teeth in his hand;  
+> **¹⁴** And he struck *it* into the pan, or kettle, or caldron, or pot; all that the fleshhook brought up the priest took for himself. So they did in Shiloh unto all the Israelites that came thither.  
+> **¹⁵** Also before they burnt the fat, the priest's servant came, and said to the man that sacrificed, Give flesh to roast for the priest; for he will not have sodden flesh of thee, but raw.  
+> **¹⁶** And *if* any man said unto him, Let them not fail to burn the fat presently, and *then* take *as much* as thy soul desireth; then he would answer him, *Nay;* but thou shalt give *it me* now: and if not, I will take *it* by force.  
+> **¹⁷** Wherefore the sin of the young men was very great before the LORD: for men abhorred the offering of the LORD.  
+> **¹⁸** But Samuel ministered before the LORD, *being* a child, girded with a linen ephod.  
+> **¹⁹** Moreover his mother made him a little coat, and brought *it* to him from year to year, when she came up with her husband to offer the yearly sacrifice.  
+> **²⁰** And Eli blessed Elkanah and his wife, and said, The LORD give thee seed of this woman for the loan which is lent to the LORD. And they went unto their own home.  
+> **²¹** And the LORD visited Hannah, so that she conceived, and bare three sons and two daughters. And the child Samuel grew before the LORD.  
+> **²²** Now Eli was very old, and heard all that his sons did unto all Israel; and how they lay with the women that assembled *at* the door of the tabernacle of the congregation.  
+> **²³** And he said unto them, Why do ye such things? for I hear of your evil dealings by all this people.  
+> **²⁴** Nay, my sons; for *it is* no good report that I hear: ye make the LORD's people to transgress.  
+> **²⁵** If one man sin against another, the judge shall judge him: but if a man sin against the LORD, who shall intreat for him? Notwithstanding they hearkened not unto the voice of their father, because the LORD would slay them.  
+> **²⁶** And the child Samuel grew on, and was in favour both with the LORD, and also with men.  
 
 In these verses we have the good character and posture of Elkanah's family, and the bad character and posture of Eli's family. The account of these two is observably interwoven throughout this whole paragraph, as if the historian intended to set the one over against the other, that they might set off one another. The devotion and good order of Elkanah's family aggravated the iniquity of Eli's house; while the wickedness of Eli's sons made Samuel's early piety appear the more bright and illustrious.
 
@@ -84,16 +84,16 @@ II\. Let us now see how ill things went in Eli's family, though seated at the ve
 
 ## Eli and His House Threatened. (b. c. 1128.)
 
-> <sup>27</sup> And there came a man of God unto Eli, and said unto him, Thus saith the LORD, Did I plainly appear unto the house of thy father, when they were in Egypt in Pharaoh's house?  
-> <sup>28</sup> And did I choose him out of all the tribes of Israel *to be* my priest, to offer upon mine altar, to burn incense, to wear an ephod before me? and did I give unto the house of thy father all the offerings made by fire of the children of Israel?  
-> <sup>29</sup> Wherefore kick ye at my sacrifice and at mine offering, which I have commanded *in my* habitation; and honourest thy sons above me, to make yourselves fat with the chiefest of all the offerings of Israel my people?  
-> <sup>30</sup> Wherefore the LORD God of Israel saith, I said indeed *that* thy house, and the house of thy father, should walk before me for ever: but now the LORD saith, Be it far from me; for them that honour me I will honour, and they that despise me shall be lightly esteemed.  
-> <sup>31</sup> Behold, the days come, that I will cut off thine arm, and the arm of thy father's house, that there shall not be an old man in thine house.  
-> <sup>32</sup> And thou shalt see an enemy *in my* habitation, in all *the wealth* which *God* shall give Israel: and there shall not be an old man in thine house for ever.  
-> <sup>33</sup> And the man of thine, *whom* I shall not cut off from mine altar, *shall be* to consume thine eyes, and to grieve thine heart: and all the increase of thine house shall die in the flower of their age.  
-> <sup>34</sup> And this *shall be* a sign unto thee, that shall come upon thy two sons, on Hophni and Phinehas; in one day they shall die both of them.  
-> <sup>35</sup> And I will raise me up a faithful priest, *that* shall do according to *that* which *is* in mine heart and in my mind: and I will build him a sure house; and he shall walk before mine anointed for ever.  
-> <sup>36</sup> And it shall come to pass, *that* every one that is left in thine house shall come *and* crouch to him for a piece of silver and a morsel of bread, and shall say, Put me, I pray thee, into one of the priests' offices, that I may eat a piece of bread.  
+> **²⁷** And there came a man of God unto Eli, and said unto him, Thus saith the LORD, Did I plainly appear unto the house of thy father, when they were in Egypt in Pharaoh's house?  
+> **²⁸** And did I choose him out of all the tribes of Israel *to be* my priest, to offer upon mine altar, to burn incense, to wear an ephod before me? and did I give unto the house of thy father all the offerings made by fire of the children of Israel?  
+> **²⁹** Wherefore kick ye at my sacrifice and at mine offering, which I have commanded *in my* habitation; and honourest thy sons above me, to make yourselves fat with the chiefest of all the offerings of Israel my people?  
+> **³⁰** Wherefore the LORD God of Israel saith, I said indeed *that* thy house, and the house of thy father, should walk before me for ever: but now the LORD saith, Be it far from me; for them that honour me I will honour, and they that despise me shall be lightly esteemed.  
+> **³¹** Behold, the days come, that I will cut off thine arm, and the arm of thy father's house, that there shall not be an old man in thine house.  
+> **³²** And thou shalt see an enemy *in my* habitation, in all *the wealth* which *God* shall give Israel: and there shall not be an old man in thine house for ever.  
+> **³³** And the man of thine, *whom* I shall not cut off from mine altar, *shall be* to consume thine eyes, and to grieve thine heart: and all the increase of thine house shall die in the flower of their age.  
+> **³⁴** And this *shall be* a sign unto thee, that shall come upon thy two sons, on Hophni and Phinehas; in one day they shall die both of them.  
+> **³⁵** And I will raise me up a faithful priest, *that* shall do according to *that* which *is* in mine heart and in my mind: and I will build him a sure house; and he shall walk before mine anointed for ever.  
+> **³⁶** And it shall come to pass, *that* every one that is left in thine house shall come *and* crouch to him for a piece of silver and a morsel of bread, and shall say, Put me, I pray thee, into one of the priests' offices, that I may eat a piece of bread.  
 
 Eli reproved his sons too gently, and did not threaten them as he should, and therefore God sent a prophet to him to reprove him sharply, and to threaten him, because, by his indulgence of them, he had strengthened their hands in their wickedness. If good men be wanting in their duty, and by their carelessness and remissness contribute any thing to the sin of sinners, they must expect both to hear of it and to smart for it. Eli's family was now nearer to God than all *the families of the earth, and therefore he will punish them,* Am 3:2. The message is sent to Eli himself, because God would bring him to repentance and save him; not to his sons, whom he had determined to destroy. And it might have been a means of awakening him to do his duty at last, and so to have prevented the judgment, but we do not find it had any great effect upon him. The message this prophet delivers from God is very close.
 

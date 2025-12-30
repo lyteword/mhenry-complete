@@ -8,10 +8,10 @@ Here we first meet with Nehemiah at the Persian court, where we find him, I. Inq
 
 ## Nehemiah's Distress. (b. c. 445.)
 
-> <sup>1</sup> The words of Nehemiah the son of Hachaliah. And it came to pass in the month Chisleu, in the twentieth year, as I was in Shushan the palace,  
-> <sup>2</sup> That Hanani, one of my brethren, came, he and *certain* men of Judah; and I asked them concerning the Jews that had escaped, which were left of the captivity, and concerning Jerusalem.  
-> <sup>3</sup> And they said unto me, The remnant that are left of the captivity there in the province *are* in great affliction and reproach: the wall of Jerusalem also *is* broken down, and the gates thereof are burned with fire.  
-> <sup>4</sup> And it came to pass, when I heard these words, that I sat down and wept, and mourned *certain* days, and fasted, and prayed before the God of heaven,  
+> **¹** The words of Nehemiah the son of Hachaliah. And it came to pass in the month Chisleu, in the twentieth year, as I was in Shushan the palace,  
+> **²** That Hanani, one of my brethren, came, he and *certain* men of Judah; and I asked them concerning the Jews that had escaped, which were left of the captivity, and concerning Jerusalem.  
+> **³** And they said unto me, The remnant that are left of the captivity there in the province *are* in great affliction and reproach: the wall of Jerusalem also *is* broken down, and the gates thereof are burned with fire.  
+> **⁴** And it came to pass, when I heard these words, that I sat down and wept, and mourned *certain* days, and fasted, and prayed before the God of heaven,  
 
 What a tribe Nehemiah was of does nowhere appear; but, if it be true (which we are told by the author of the Maccabees, 2 Mac. i. 18) that he offered sacrifice, we must conclude him to have been a priest. Observe,
 
@@ -25,13 +25,13 @@ IV\. The great affliction this gave to Nehemiah and the deep concern it put him 
 
 ## Nehemiah's Prayer. (b. c. 445.)
 
-> <sup>5</sup> And said, I beseech thee, O LORD God of heaven, the great and terrible God, that keepeth covenant and mercy for them that love him and observe his commandments:  
-> <sup>6</sup> Let thine ear now be attentive, and thine eyes open, that thou mayest hear the prayer of thy servant, which I pray before thee now, day and night, for the children of Israel thy servants, and confess the sins of the children of Israel, which we have sinned against thee: both I and my father's house have sinned.  
-> <sup>7</sup> We have dealt very corruptly against thee, and have not kept the commandments, nor the statutes, nor the judgments, which thou commandedst thy servant Moses.  
-> <sup>8</sup> Remember, I beseech thee, the word that thou commandedst thy servant Moses, saying, *If* ye transgress, I will scatter you abroad among the nations:  
-> <sup>9</sup> But *if* ye turn unto me, and keep my commandments, and do them; though there were of you cast out unto the uttermost part of the heaven, *yet* will I gather them from thence, and will bring them unto the place that I have chosen to set my name there.  
-> <sup>10</sup> Now these *are* thy servants and thy people, whom thou hast redeemed by thy great power, and by thy strong hand.  
-> <sup>11</sup> O Lord, I beseech thee, let now thine ear be attentive to the prayer of thy servant, and to the prayer of thy servants, who desire to fear thy name: and prosper, I pray thee, thy servant this day, and grant him mercy in the sight of this man. For I was the king's cupbearer.  
+> **⁵** And said, I beseech thee, O LORD God of heaven, the great and terrible God, that keepeth covenant and mercy for them that love him and observe his commandments:  
+> **⁶** Let thine ear now be attentive, and thine eyes open, that thou mayest hear the prayer of thy servant, which I pray before thee now, day and night, for the children of Israel thy servants, and confess the sins of the children of Israel, which we have sinned against thee: both I and my father's house have sinned.  
+> **⁷** We have dealt very corruptly against thee, and have not kept the commandments, nor the statutes, nor the judgments, which thou commandedst thy servant Moses.  
+> **⁸** Remember, I beseech thee, the word that thou commandedst thy servant Moses, saying, *If* ye transgress, I will scatter you abroad among the nations:  
+> **⁹** But *if* ye turn unto me, and keep my commandments, and do them; though there were of you cast out unto the uttermost part of the heaven, *yet* will I gather them from thence, and will bring them unto the place that I have chosen to set my name there.  
+> **¹⁰** Now these *are* thy servants and thy people, whom thou hast redeemed by thy great power, and by thy strong hand.  
+> **¹¹** O Lord, I beseech thee, let now thine ear be attentive to the prayer of thy servant, and to the prayer of thy servants, who desire to fear thy name: and prosper, I pray thee, thy servant this day, and grant him mercy in the sight of this man. For I was the king's cupbearer.  
 
 We have here Nehemiah's prayer, a prayer that has reference to all the prayers which he had for some time before been putting up to God day and night, while he continued his sorrows for the desolations of Jerusalem, and withal to the petition he was now intending to present to the king his master for his favour to Jerusalem. We may observe in this prayer,
 

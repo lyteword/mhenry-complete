@@ -8,16 +8,16 @@ We have here a further account of the furniture of God's house. I. Those things 
 
 ## The Furniture of the Temple. (b. c. 1012.)
 
-> <sup>1</sup> Moreover he made an altar of brass, twenty cubits the length thereof, and twenty cubits the breadth thereof, and ten cubits the height thereof.  
-> <sup>2</sup> Also he made a molten sea of ten cubits from brim to brim, round in compass, and five cubits the height thereof; and a line of thirty cubits did compass it round about.  
-> <sup>3</sup> And under it *was* the similitude of oxen, which did compass it round about: ten in a cubit, compassing the sea round about. Two rows of oxen *were* cast, when it was cast.  
-> <sup>4</sup> It stood upon twelve oxen, three looking toward the north, and three looking toward the west, and three looking toward the south, and three looking toward the east: and the sea *was set* above upon them, and all their hinder parts *were* inward.  
-> <sup>5</sup> And the thickness of it *was* a handbreadth, and the brim of it like the work of the brim of a cup, with flowers of lilies; *and* it received and held three thousand baths.  
-> <sup>6</sup> He made also ten lavers, and put five on the right hand, and five on the left, to wash in them: such things as they offered for the burnt offering they washed in them; but the sea *was* for the priests to wash in.  
-> <sup>7</sup> And he made ten candlesticks of gold according to their form, and set *them* in the temple, five on the right hand, and five on the left.  
-> <sup>8</sup> He made also ten tables, and placed *them* in the temple, five on the right side, and five on the left. And he made an hundred basons of gold.  
-> <sup>9</sup> Furthermore he made the court of the priests, and the great court, and doors for the court, and overlaid the doors of them with brass.  
-> <sup>10</sup> And he set the sea on the right side of the east end, over against the south.  
+> **¹** Moreover he made an altar of brass, twenty cubits the length thereof, and twenty cubits the breadth thereof, and ten cubits the height thereof.  
+> **²** Also he made a molten sea of ten cubits from brim to brim, round in compass, and five cubits the height thereof; and a line of thirty cubits did compass it round about.  
+> **³** And under it *was* the similitude of oxen, which did compass it round about: ten in a cubit, compassing the sea round about. Two rows of oxen *were* cast, when it was cast.  
+> **⁴** It stood upon twelve oxen, three looking toward the north, and three looking toward the west, and three looking toward the south, and three looking toward the east: and the sea *was set* above upon them, and all their hinder parts *were* inward.  
+> **⁵** And the thickness of it *was* a handbreadth, and the brim of it like the work of the brim of a cup, with flowers of lilies; *and* it received and held three thousand baths.  
+> **⁶** He made also ten lavers, and put five on the right hand, and five on the left, to wash in them: such things as they offered for the burnt offering they washed in them; but the sea *was* for the priests to wash in.  
+> **⁷** And he made ten candlesticks of gold according to their form, and set *them* in the temple, five on the right hand, and five on the left.  
+> **⁸** He made also ten tables, and placed *them* in the temple, five on the right side, and five on the left. And he made an hundred basons of gold.  
+> **⁹** Furthermore he made the court of the priests, and the great court, and doors for the court, and overlaid the doors of them with brass.  
+> **¹⁰** And he set the sea on the right side of the east end, over against the south.  
 
 David often speaks with much affection both of the *house of the Lord* and of the *courts of our God.* Both without doors and within there was that which typified the grace of the gospel and *shadowed* out *good things to come,* of which the substance is Christ.
 
@@ -33,18 +33,18 @@ I\. There were those things in the open court, in the view of all the people, wh
 
 II\. There were those things in *the house of the Lord* (into which the priests alone went to minister) that were very significant. All was gold there. The nearer we come to God the purer we must be, the purer we shall be. 1. There were ten *golden candlesticks,* according to the form of that one which was in the tabernacle, 2Ch 4:7. The written word is a lamp and a light, shining in a dark place. In Moses's time they had but one candlestick, the Pentateuch; but the additions which, in process of time, were to be made of other books of scripture might be signified by this increase of the number of the candlesticks. Light was growing. The candlesticks are the churches, Re 1:20. Moses set up but one, the church of the Jews; but, in the gospel temple, not only believers, but churches, are multiplied. 2. There were ten *golden tables* (2Ch 4:8), *tables whereon the show-bread was set,* 2Ch 4:19. Perhaps every one of the tables had twelve loaves of show-bread on it. As the house was enlarged, the house-keeping was. *In my father's house there is bread enough for the whole family.* To those tables belonged 100 golden basins, or dishes; for God's table is well furnished. 3. There was a *golden altar* (2Ch 4:19), on which they burnt incense. It is probable that this was enlarged in proportion to the brazen altar. Christ, who once for all made atonement for sin, ever lives, making intercession, in virtue of that atonement.
 
-> <sup>11</sup> And Huram made the pots, and the shovels, and the basons. And Huram finished the work that he was to make for king Solomon for the house of God;  
-> <sup>12</sup> *To wit,* the two pillars, and the pommels, and the chapiters *which were* on the top of the two pillars, and the two wreaths to cover the two pommels of the chapiters which *were* on the top of the pillars;  
-> <sup>13</sup> And four hundred pomegranates on the two wreaths; two rows of pomegranates on each wreath, to cover the two pommels of the chapiters which *were* upon the pillars.  
-> <sup>14</sup> He made also bases, and lavers made he upon the bases;  
-> <sup>15</sup> One sea, and twelve oxen under it.  
-> <sup>16</sup> The pots also, and the shovels, and the fleshhooks, and all their instruments, did Huram his father make to king Solomon for the house of the LORD of bright brass.  
-> <sup>17</sup> In the plain of Jordan did the king cast them, in the clay ground between Succoth and Zeredathah.  
-> <sup>18</sup> Thus Solomon made all these vessels in great abundance: for the weight of the brass could not be found out.  
-> <sup>19</sup> And Solomon made all the vessels that *were for* the house of God, the golden altar also, and the tables whereon the showbread *was set;*  
-> <sup>20</sup> Moreover the candlesticks with their lamps, that they should burn after the manner before the oracle, of pure gold;  
-> <sup>21</sup> And the flowers, and the lamps, and the tongs, *made he of* gold, *and* that perfect gold;  
-> <sup>22</sup> And the snuffers, and the basons, and the spoons, and the censers, *of* pure gold: and the entry of the house, the inner doors thereof for the most holy *place,* and the doors of the house of the temple, *were of* gold.  
+> **¹¹** And Huram made the pots, and the shovels, and the basons. And Huram finished the work that he was to make for king Solomon for the house of God;  
+> **¹²** *To wit,* the two pillars, and the pommels, and the chapiters *which were* on the top of the two pillars, and the two wreaths to cover the two pommels of the chapiters which *were* on the top of the pillars;  
+> **¹³** And four hundred pomegranates on the two wreaths; two rows of pomegranates on each wreath, to cover the two pommels of the chapiters which *were* upon the pillars.  
+> **¹⁴** He made also bases, and lavers made he upon the bases;  
+> **¹⁵** One sea, and twelve oxen under it.  
+> **¹⁶** The pots also, and the shovels, and the fleshhooks, and all their instruments, did Huram his father make to king Solomon for the house of the LORD of bright brass.  
+> **¹⁷** In the plain of Jordan did the king cast them, in the clay ground between Succoth and Zeredathah.  
+> **¹⁸** Thus Solomon made all these vessels in great abundance: for the weight of the brass could not be found out.  
+> **¹⁹** And Solomon made all the vessels that *were for* the house of God, the golden altar also, and the tables whereon the showbread *was set;*  
+> **²⁰** Moreover the candlesticks with their lamps, that they should burn after the manner before the oracle, of pure gold;  
+> **²¹** And the flowers, and the lamps, and the tongs, *made he of* gold, *and* that perfect gold;  
+> **²²** And the snuffers, and the basons, and the spoons, and the censers, *of* pure gold: and the entry of the house, the inner doors thereof for the most holy *place,* and the doors of the house of the temple, *were of* gold.  
 
 We have here such a summary both of the brass-work and the gold-work of the temple as we had before (1Ki 7:13-51, etc.), in which we have nothing more to observe than, 1. That Huram the workman was very punctual: *He finished all that he was to make* (2Ch 4:11), and left no part of his work undone. *Huram, his father,* he is called, 2Ch 4:16. Probably it was a sort of nickname by which he was commonly known, *Father Huram;* for the king of Tyre called him *Huram Abi, my father,* in compliance with whom Solomon called him his, he being a great artist and *father of the artificers* in brass and iron. He acquitted himself well both for ingenuity and industry. 2. Solomon was very generous. He made *all the vessels in great abundance* (2Ch 4:18), many of a sort, that many hands might be employed, and so the work might go on with expedition, or that some might be laid up for use when others were worn out. Freely he has received, and he will freely give. When he had made vessels enough for the present he could not convert the remainder of the brass to his own use; it is devoted to God, and it shall be used for him.
 

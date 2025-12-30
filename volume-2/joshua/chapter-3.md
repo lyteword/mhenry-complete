@@ -8,12 +8,12 @@ This chapter, and that which follows it, give us the history of Israel's passing
 
 ## Preparation for Passing over the Jordan. (b. c. 1451.)
 
-> <sup>1</sup> And Joshua rose early in the morning; and they removed from Shittim, and came to Jordan, he and all the children of Israel, and lodged there before they passed over.  
-> <sup>2</sup> And it came to pass after three days, that the officers went through the host;  
-> <sup>3</sup> And they commanded the people, saying, When ye see the ark of the covenant of the LORD your God, and the priests the Levites bearing it, then ye shall remove from your place, and go after it.  
-> <sup>4</sup> Yet there shall be a space between you and it, about two thousand cubits by measure: come not near unto it, that ye may know the way by which ye must go: for ye have not passed *this* way heretofore.  
-> <sup>5</sup> And Joshua said unto the people, Sanctify yourselves: for to morrow the LORD will do wonders among you.  
-> <sup>6</sup> And Joshua spake unto the priests, saying, Take up the ark of the covenant, and pass over before the people. And they took up the ark of the covenant, and went before the people.  
+> **¹** And Joshua rose early in the morning; and they removed from Shittim, and came to Jordan, he and all the children of Israel, and lodged there before they passed over.  
+> **²** And it came to pass after three days, that the officers went through the host;  
+> **³** And they commanded the people, saying, When ye see the ark of the covenant of the LORD your God, and the priests the Levites bearing it, then ye shall remove from your place, and go after it.  
+> **⁴** Yet there shall be a space between you and it, about two thousand cubits by measure: come not near unto it, that ye may know the way by which ye must go: for ye have not passed *this* way heretofore.  
+> **⁵** And Joshua said unto the people, Sanctify yourselves: for to morrow the LORD will do wonders among you.  
+> **⁶** And Joshua spake unto the priests, saying, Take up the ark of the covenant, and pass over before the people. And they took up the ark of the covenant, and went before the people.  
 
 Rahab, in mentioning to the spies the *drying up of the Red Sea* (Jos 2:10), the report of which terrified the Canaanites more than anything else, intimates that those on that side the water expected that Jordan, that great defence of their country, would in like manner give way to them. Whether the Israelites had any expectation of it does not appear. God often *did things for them which they looked not for,* Isa 64:3. Now here we are told,
 
@@ -33,13 +33,13 @@ III\. They were commanded to sanctify themselves, that they might be prepared to
 
 IV\. The priests were ordered to take up the ark and carry it *before the people,* Jos 3:6. It was the Levites' work ordinarily to carry the ark, Nu 4:15. But on this great occasion the priests were ordered to do it. And they did as they were commanded, *took up the ark,* and did not think themselves disparaged, *went before the people,* and did not think themselves exposed; the ark they carried was both their honour and their defence. And now we may suppose that prayer of Moses used, when the ark set forward (Nu 10:35), *Rise up, Lord and let they enemies be scattered.* Magistrates are here instructed to stir up ministers to their work, and to make use of their authority for the furtherance of religion. Ministers must likewise learn to go before in the way of God, and not to shrink nor draw back when dangers are before them. They must expect to be most struck at, but they *know whom they have trusted.*
 
-> <sup>7</sup> And the LORD said unto Joshua, This day will I begin to magnify thee in the sight of all Israel, that they may know that, as I was with Moses, *so* I will be with thee.  
-> <sup>8</sup> And thou shalt command the priests that bear the ark of the covenant, saying, When ye are come to the brink of the water of Jordan, ye shall stand still in Jordan.  
-> <sup>9</sup> And Joshua said unto the children of Israel, Come hither, and hear the words of the LORD your God.  
-> <sup>10</sup> And Joshua said, Hereby ye shall know that the living God *is* among you, and *that* he will without fail drive out from before you the Canaanites, and the Hittites, and the Hivites, and the Perizzites, and the Girgashites, and the Amorites, and the Jebusites.  
-> <sup>11</sup> Behold, the ark of the covenant of the Lord of all the earth passeth over before you into Jordan.  
-> <sup>12</sup> Now therefore take you twelve men out of the tribes of Israel, out of every tribe a man.  
-> <sup>13</sup> And it shall come to pass, as soon as the soles of the feet of the priests that bear the ark of the LORD, the Lord of all the earth, shall rest in the waters of Jordan, *that* the waters of Jordan shall be cut off *from* the waters that come down from above; and they shall stand upon a heap.  
+> **⁷** And the LORD said unto Joshua, This day will I begin to magnify thee in the sight of all Israel, that they may know that, as I was with Moses, *so* I will be with thee.  
+> **⁸** And thou shalt command the priests that bear the ark of the covenant, saying, When ye are come to the brink of the water of Jordan, ye shall stand still in Jordan.  
+> **⁹** And Joshua said unto the children of Israel, Come hither, and hear the words of the LORD your God.  
+> **¹⁰** And Joshua said, Hereby ye shall know that the living God *is* among you, and *that* he will without fail drive out from before you the Canaanites, and the Hittites, and the Hivites, and the Perizzites, and the Girgashites, and the Amorites, and the Jebusites.  
+> **¹¹** Behold, the ark of the covenant of the Lord of all the earth passeth over before you into Jordan.  
+> **¹²** Now therefore take you twelve men out of the tribes of Israel, out of every tribe a man.  
+> **¹³** And it shall come to pass, as soon as the soles of the feet of the priests that bear the ark of the LORD, the Lord of all the earth, shall rest in the waters of Jordan, *that* the waters of Jordan shall be cut off *from* the waters that come down from above; and they shall stand upon a heap.  
 
 We may observe here how God honours Joshua, and by this wondrous work he is about to do designs to make Israel know that he is their governor, and then how Joshua honours God and endeavours by it to make Israel know that he is their God. Thus those that honour God he will honour, and those whom he has advanced should do what they can in their places to exalt him.
 
@@ -59,10 +59,10 @@ II\. Joshua speaks to the people, and therein honours God.
 
 ## The Passage over the Jordan. (b. c. 1451.)
 
-> <sup>14</sup> And it came to pass, when the people removed from their tents, to pass over Jordan, and the priests bearing the ark of the covenant before the people;  
-> <sup>15</sup> And as they that bare the ark were come unto Jordan, and the feet of the priests that bare the ark were dipped in the brim of the water, (for Jordan overfloweth all his banks all the time of harvest,)  
-> <sup>16</sup> That the waters which came down from above stood *and* rose up upon a heap very far from the city Adam, that *is* beside Zaretan: and those that came down toward the sea of the plain, *even* the salt sea, failed, *and* were cut off: and the people passed over right against Jericho.  
-> <sup>17</sup> And the priests that bare the ark of the covenant of the LORD stood firm on dry ground in the midst of Jordan, and all the Israelites passed over on dry ground, until all the people were passed clean over Jordan.  
+> **¹⁴** And it came to pass, when the people removed from their tents, to pass over Jordan, and the priests bearing the ark of the covenant before the people;  
+> **¹⁵** And as they that bare the ark were come unto Jordan, and the feet of the priests that bare the ark were dipped in the brim of the water, (for Jordan overfloweth all his banks all the time of harvest,)  
+> **¹⁶** That the waters which came down from above stood *and* rose up upon a heap very far from the city Adam, that *is* beside Zaretan: and those that came down toward the sea of the plain, *even* the salt sea, failed, *and* were cut off: and the people passed over right against Jericho.  
+> **¹⁷** And the priests that bare the ark of the covenant of the LORD stood firm on dry ground in the midst of Jordan, and all the Israelites passed over on dry ground, until all the people were passed clean over Jordan.  
 
 Here we have a short and plain account of the dividing of the river Jordan, and the passage of the children of Israel through it. The story is not garnished with the flowers of rhetoric (gold needs not to be painted), but it tell us, in short, matter of fact.
 

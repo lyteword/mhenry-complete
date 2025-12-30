@@ -8,14 +8,14 @@ Job being still silent, Elihu follows his blow, and here, a third time, undertak
 
 ## The Address of Elihu. (b. c. 1520.)
 
-> <sup>1</sup> Elihu spake moreover, and said,  
-> <sup>2</sup> Thinkest thou this to be right, *that* thou saidst, My righteousness *is* more than God's?  
-> <sup>3</sup> For thou saidst, What advantage will it be unto thee? *and,* What profit shall I have, *if I be cleansed* from my sin?  
-> <sup>4</sup> I will answer thee, and thy companions with thee.  
-> <sup>5</sup> Look unto the heavens, and see; and behold the clouds *which* are higher than thou.  
-> <sup>6</sup> If thou sinnest, what doest thou against him? or *if* thy transgressions be multiplied, what doest thou unto him?  
-> <sup>7</sup> If thou be righteous, what givest thou him? or what receiveth he of thine hand?  
-> <sup>8</sup> Thy wickedness *may hurt* a man as thou *art;* and thy righteousness *may profit* the son of man.  
+> **¹** Elihu spake moreover, and said,  
+> **²** Thinkest thou this to be right, *that* thou saidst, My righteousness *is* more than God's?  
+> **³** For thou saidst, What advantage will it be unto thee? *and,* What profit shall I have, *if I be cleansed* from my sin?  
+> **⁴** I will answer thee, and thy companions with thee.  
+> **⁵** Look unto the heavens, and see; and behold the clouds *which* are higher than thou.  
+> **⁶** If thou sinnest, what doest thou against him? or *if* thy transgressions be multiplied, what doest thou unto him?  
+> **⁷** If thou be righteous, what givest thou him? or what receiveth he of thine hand?  
+> **⁸** Thy wickedness *may hurt* a man as thou *art;* and thy righteousness *may profit* the son of man.  
 
 We have here,
 
@@ -23,11 +23,11 @@ I\. The bad words which Elihu charges upon Job, Job 35:2,3. To evince the badnes
 
 II\. The good answer which Elihu gives to this (Job 35:4): "*I will* undertake to *answer thee, and thy companions with thee,*" that is, "all those that approve thy sayings and are ready to justify thee in them, and all others that say as thou sayest: "I have that to offer which will silence them all." To do this he has recourse to his old maxim (Job 33:12), *that God is greater than man.* This is a truth which, if duly improved, will serve many good purposes, and particularly this to prove that God is debtor to no man. The greatest of men may be a debtor to the meanest; but such is the infinite disproportion between God and man that the great God cannot possibly receive any benefit by man, and therefore cannot be supposed to lie under any obligation to man; for, if he be obliged by his purpose and promise, it is only to himself. That is a challenge which no man can take up (Ro 11:35), *Who hath first given to God,* let him prove it, *and it shall be recompensed to him again.* Why should we demand it, as a just debt, to gain by our religion (as Job seemed to do), when the God we serve does not gain by it? 1. Elihu needs not prove that God is above man; it is agreed by all; but he endeavours to affect Job and us with it, by an ocular demonstration of the height of the heavens and the clouds, Job 35:5. They are far above us, and God is far above them; how much then is he set out of the reach either of our sins or of our services! *Look unto the heavens, and behold the clouds.* God made man erect, *coelumque tueri jussit—and bade him look up to heaven.* Idolaters looked up, and worshipped the hosts of heaven, the sun, moon, and stars; but we must look up to heaven, and worship the Lord of those hosts. They are higher than we, but God is infinitely above them. His *glory is above the heavens* (Ps 8:1) and the knowledge of him higher than heaven, Job 11:8. 2. But hence he infers that God is not affected, either one way or other, by any thing that we do. (1.) He owns that men may be either bettered or damaged by what we do (Job 35:8): *Thy wickedness,* perhaps, may *hurt a man as thou art,* may occasion him trouble in his outward concerns. A wicked man may wound, or rob, or slander his neighbour, or may draw him into sin and so prejudice his soul. Thy righteousness, thy justice, thy charity, thy wisdom, thy piety, may perhaps *profit the son of man.* Our goodness *extends to the saints that are in the earth,* Ps 16:3. To men like ourselves we are in a capacity either of doing injury or of showing kindness; and in both these the sovereign Lord and Judge of all will interest himself, will reward those that do good and punish those that do hurt to their fellow-creatures and fellow-subjects. But, (2.) He utterly denies that God can really be either prejudiced or advantaged by what any, even the greatest men of the earth, do, or can do. [1.] The sins of the worst sinners are no damage to him (Job 35:6): "*If thou sinnest* wilfully, and of malice prepense, against him, with a high hand, nay, *if thy transgressions be multiplied,* and the acts of sin be ever so often repeated, yet *what doest thou against him?*" This is a challenge to the carnal mind, and defies the most daring sinner to do his worst. It speaks much for the greatness and glory of God that it is not in the power of his worst enemies to do him any real prejudice. Sin is said to *be against God* because so the sinner intends it and so God takes it, and it is an injury to his honour; yet it cannot *do any thing against him.* The malice of sinners is impotent malice: it cannot destroy his being or perfections, cannot dethrone him from his power and dominion, cannot disturb his peace and repose, cannot defeat his counsels and designs, nor can it derogate from his essential glory. Job therefore spoke amiss in saying *What profit is it that I am cleansed from my sin?* God was no gainer by his reformation; and who then would gain if he himself did not? [2.] The services of the best saints are no profit to him (Job 35:7): *If thou be righteous, what givest thou to him?* He needs not our service; or, if he did want to have the work done, he has better hands than ours at command. Our religion brings no accession at all to his felicity. He is so far from being beholden to us that we are beholden to him for making us righteous and accepting our righteousness; and therefore we can demand nothing from him, nor have any reason to complain if we have not what we expect, but to be thankful that we have better than we deserve.
 
-> <sup>9</sup> By reason of the multitude of oppressions they make *the oppressed* to cry: they cry out by reason of the arm of the mighty.  
-> <sup>10</sup> But none saith, Where *is* God my maker, who giveth songs in the night;  
-> <sup>11</sup> Who teacheth us more than the beasts of the earth, and maketh us wiser than the fowls of heaven?  
-> <sup>12</sup> There they cry, but none giveth answer, because of the pride of evil men.  
-> <sup>13</sup> Surely God will not hear vanity, neither will the Almighty regard it.  
+> **⁹** By reason of the multitude of oppressions they make *the oppressed* to cry: they cry out by reason of the arm of the mighty.  
+> **¹⁰** But none saith, Where *is* God my maker, who giveth songs in the night;  
+> **¹¹** Who teacheth us more than the beasts of the earth, and maketh us wiser than the fowls of heaven?  
+> **¹²** There they cry, but none giveth answer, because of the pride of evil men.  
+> **¹³** Surely God will not hear vanity, neither will the Almighty regard it.  
 
 Elihu here returns an answer to another word that Job had said, which, he thought, reflected much upon the justice and goodness of God, and therefore ought not to pass without a remark. Observe,
 
@@ -43,9 +43,9 @@ II\. How Elihu solves the difficulty. If the cries of the oppressed be not heard
 
 4\. They are not sincere, and upright, and inward with God, in their supplications to him, and therefore he does not hear and answer them (Job 35:13): *God will not hear vanity,* that is, the hypocritical prayer, which is a vain prayer, coming out of feigned lips. It is a vanity to think that God should hear it, who searches the heart and requires *truth in the inward part.*
 
-> <sup>14</sup> Although thou sayest thou shalt not see him, *yet* judgment *is* before him; therefore trust thou in him.  
-> <sup>15</sup> But now, because *it is* not *so,* he hath visited in his anger; yet he knoweth *it* not in great extremity:  
-> <sup>16</sup> Therefore doth Job open his mouth in vain; he multiplieth words without knowledge.  
+> **¹⁴** Although thou sayest thou shalt not see him, *yet* judgment *is* before him; therefore trust thou in him.  
+> **¹⁵** But now, because *it is* not *so,* he hath visited in his anger; yet he knoweth *it* not in great extremity:  
+> **¹⁶** Therefore doth Job open his mouth in vain; he multiplieth words without knowledge.  
 
 Here is, I. Another improper word for which Elihu reproves Job (Job 35:14): *Thou sayest thou shalt not see him;* that is, 1. "Thou complainest that thou dost not understand the meaning of his severe dealings with thee, nor discern the drift and design of them," Job 23:8,9. And, 2. "Thou despairest of seeing his gracious returns to thee, of seeing better days again, and art ready to give up all for gone;" as Hezekiah (Isa 38:11), *I shall not see the Lord.* As, when we are in prosperity, we are ready to think our mountain will never be brought low, so when we are in adversity we are ready to think our valley will never be filled, but, in both, to conclude that *to morrow must be as this day,* which is as absurd as to think, when the weather is either fair or foul, that is will be always so, that the flowing tide will always flow, or the ebbing tide will always ebb.
 

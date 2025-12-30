@@ -8,23 +8,23 @@ After an account of the great trials and sufferings which the servants of God ha
 
 ## The Lamb and His Attendants. (a. d. 95.)
 
-> <sup>1</sup> And I looked, and, lo, a Lamb stood on the mount Sion, and with him a hundred forty *and* four thousand, having his Father's name written in their foreheads.  
-> <sup>2</sup> And I heard a voice from heaven, as the voice of many waters, and as the voice of a great thunder: and I heard the voice of harpers harping with their harps:  
-> <sup>3</sup> And they sung as it were a new song before the throne, and before the four beasts, and the elders: and no man could learn that song but the hundred *and* forty *and* four thousand, which were redeemed from the earth.  
-> <sup>4</sup> These are they which were not defiled with women; for they are virgins. These are they which follow the Lamb whithersoever he goeth. These were redeemed from among men, *being* the firstfruits unto God and to the Lamb.  
-> <sup>5</sup> And in their mouth was found no guile: for they are without fault before the throne of God.  
+> **¹** And I looked, and, lo, a Lamb stood on the mount Sion, and with him a hundred forty *and* four thousand, having his Father's name written in their foreheads.  
+> **²** And I heard a voice from heaven, as the voice of many waters, and as the voice of a great thunder: and I heard the voice of harpers harping with their harps:  
+> **³** And they sung as it were a new song before the throne, and before the four beasts, and the elders: and no man could learn that song but the hundred *and* forty *and* four thousand, which were redeemed from the earth.  
+> **⁴** These are they which were not defiled with women; for they are virgins. These are they which follow the Lamb whithersoever he goeth. These were redeemed from among men, *being* the firstfruits unto God and to the Lamb.  
+> **⁵** And in their mouth was found no guile: for they are without fault before the throne of God.  
 
 Here we have one of the most pleasing sights that can be viewed in this world—the Lord Jesus Christ at the head of his faithful adherents and attendants. Here observe, 1. How Christ appears: as a Lamb standing upon *mount Zion.* Mount Zion is the gospel church. Christ is with his church and in the midst of her in all her troubles, and therefore she is not consumed. It is his presence that secures her perseverance; he appears as *a Lamb, a true Lamb, the Lamb of God.* A counterfeit lamb is mentioned as rising out of the earth in the last chapter, which was really a dragon; here Christ appears as the true paschal Lamb, to show that his mediatorial government is the fruit of his sufferings, and the cause of his people's safety and fidelity. 2. How his people appear: very honourably. (1.) As to the numbers, they are many, even all who are sealed; not one of them lost in all the tribulations through which they have gone. (2.) Their distinguishing badge: they had *the name of God written in their foreheads;* they made a bold and open profession of their faith in God and Christ, and, this being followed by suitable actings, they are known and approved. (3.) Their congratulations and songs of praise, which were peculiar to the redeemed (Re 14:3); their praises were loud as thunder, or *as the voice of many waters;* they were melodious, as *of harpers;* they were heavenly, *before the throne* of God. *The song was new,* suited to the new covenant, and unto that new and gracious dispensation of Providence under which they now were; and their song was a secret to others, *strangers intermeddled not with their joy;* others might repeat the words of the song, but they were strangers to the true sense and spirit of it. (4.) Their character and description. [1.] They are described by their chastity and purity: *They are virgins.* They had not defiled themselves either with corporal or spiritual adultery; they had kept themselves clean from the abominations of the antichristian generation. [2.] By their loyalty and stedfast adherence to Christ: *They follow the Lamb withersoever he goes;* they follow the conduct of his word, Spirit, and providence, leaving it to him to lead them into what duties and difficulties he pleases. [3.] By their former designation to this honour: *These were redeemed from among men, being the first-fruits to God, and to the Lamb,* Re 14:4. Here is plain evidence of a special redemption: *They were redeemed from among men.* Some of the children of men are, by redeeming mercy, distinguished from others: *They were the first-fruits to God, and to the Lamb,* his choice ones, eminent in every grace, and the earnest of many more who should *be followers of them, as they were of Christ.* [4.] By their universal integrity and conscientiousness: *There was no guile found in them,* and *they were without fault before the throne of God.* They were without any prevailing guile, any allowed fault; their hearts were right with God, and, as for their human infirmities, they were freely pardoned in Christ. This is the happy remnant who attend upon the Lord Jesus as their head and Lord; he is glorified in them, and they are glorified in him.
 
 ## The Three Angels. (a. d. 95.)
 
-> <sup>6</sup> And I saw another angel fly in the midst of heaven, having the everlasting gospel to preach unto them that dwell on the earth, and to every nation, and kindred, and tongue, and people,  
-> <sup>7</sup> Saying with a loud voice, Fear God, and give glory to him; for the hour of his judgment is come: and worship him that made heaven, and earth, and the sea, and the fountains of waters.  
-> <sup>8</sup> And there followed another angel, saying, Babylon is fallen, is fallen, that great city, because she made all nations drink of the wine of the wrath of her fornication.  
-> <sup>9</sup> And the third angel followed them, saying with a loud voice, If any man worship the beast and his image, and receive *his* mark in his forehead, or in his hand,  
-> <sup>10</sup> The same shall drink of the wine of the wrath of God, which is poured out without mixture into the cup of his indignation; and he shall be tormented with fire and brimstone in the presence of the holy angels, and in the presence of the Lamb:  
-> <sup>11</sup> And the smoke of their torment ascendeth up for ever and ever: and they have no rest day nor night, who worship the beast and his image, and whosoever receiveth the mark of his name.  
-> <sup>12</sup> Here is the patience of the saints: here *are* they that keep the commandments of God, and the faith of Jesus.  
+> **⁶** And I saw another angel fly in the midst of heaven, having the everlasting gospel to preach unto them that dwell on the earth, and to every nation, and kindred, and tongue, and people,  
+> **⁷** Saying with a loud voice, Fear God, and give glory to him; for the hour of his judgment is come: and worship him that made heaven, and earth, and the sea, and the fountains of waters.  
+> **⁸** And there followed another angel, saying, Babylon is fallen, is fallen, that great city, because she made all nations drink of the wine of the wrath of her fornication.  
+> **⁹** And the third angel followed them, saying with a loud voice, If any man worship the beast and his image, and receive *his* mark in his forehead, or in his hand,  
+> **¹⁰** The same shall drink of the wine of the wrath of God, which is poured out without mixture into the cup of his indignation; and he shall be tormented with fire and brimstone in the presence of the holy angels, and in the presence of the Lamb:  
+> **¹¹** And the smoke of their torment ascendeth up for ever and ever: and they have no rest day nor night, who worship the beast and his image, and whosoever receiveth the mark of his name.  
+> **¹²** Here is the patience of the saints: here *are* they that keep the commandments of God, and the faith of Jesus.  
 
 In this part of the chapter we have three angels or messengers sent from heaven to give notice of the fall of Babylon, and of those things that were antecedent and consequent to that great event.
 
@@ -36,14 +36,14 @@ III\. A third angel follows the other two, and gives warning to all of that divi
 
 ## The Harvest and the Vintage. (a. d. 95.)
 
-> <sup>13</sup> And I heard a voice from heaven saying unto me, Write, Blessed *are* the dead which die in the Lord from henceforth: Yea, saith the Spirit, that they may rest from their labours; and their works do follow them.  
-> <sup>14</sup> And I looked, and behold a white cloud, and upon the cloud *one* sat like unto the Son of man, having on his head a golden crown, and in his hand a sharp sickle.  
-> <sup>15</sup> And another angel came out of the temple, crying with a loud voice to him that sat on the cloud, Thrust in thy sickle, and reap: for the time is come for thee to reap; for the harvest of the earth is ripe.  
-> <sup>16</sup> And he that sat on the cloud thrust in his sickle on the earth; and the earth was reaped.  
-> <sup>17</sup> And another angel came out of the temple which is in heaven, he also having a sharp sickle.  
-> <sup>18</sup> And another angel came out from the altar, which had power over fire; and cried with a loud cry to him that had the sharp sickle, saying, Thrust in thy sharp sickle, and gather the clusters of the vine of the earth; for her grapes are fully ripe.  
-> <sup>19</sup> And the angel thrust in his sickle into the earth, and gathered the vine of the earth, and cast *it* into the great winepress of the wrath of God.  
-> <sup>20</sup> And the winepress was trodden without the city, and blood came out of the winepress, even unto the horse bridles, by the space of a thousand *and* six hundred furlongs.  
+> **¹³** And I heard a voice from heaven saying unto me, Write, Blessed *are* the dead which die in the Lord from henceforth: Yea, saith the Spirit, that they may rest from their labours; and their works do follow them.  
+> **¹⁴** And I looked, and behold a white cloud, and upon the cloud *one* sat like unto the Son of man, having on his head a golden crown, and in his hand a sharp sickle.  
+> **¹⁵** And another angel came out of the temple, crying with a loud voice to him that sat on the cloud, Thrust in thy sickle, and reap: for the time is come for thee to reap; for the harvest of the earth is ripe.  
+> **¹⁶** And he that sat on the cloud thrust in his sickle on the earth; and the earth was reaped.  
+> **¹⁷** And another angel came out of the temple which is in heaven, he also having a sharp sickle.  
+> **¹⁸** And another angel came out from the altar, which had power over fire; and cried with a loud cry to him that had the sharp sickle, saying, Thrust in thy sharp sickle, and gather the clusters of the vine of the earth; for her grapes are fully ripe.  
+> **¹⁹** And the angel thrust in his sickle into the earth, and gathered the vine of the earth, and cast *it* into the great winepress of the wrath of God.  
+> **²⁰** And the winepress was trodden without the city, and blood came out of the winepress, even unto the horse bridles, by the space of a thousand *and* six hundred furlongs.  
 
 Here we have the vision of the harvest and vintage, introduced with a solemn preface. Observe,
 

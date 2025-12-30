@@ -8,64 +8,64 @@ The prophet, in this chapter, goes on with the prediction of Babylon's fall, to 
 
 ## The Judgment of Babylon. (b. c. 595.)
 
-> <sup>1</sup> Thus saith the LORD; Behold, I will raise up against Babylon, and against them that dwell in the midst of them that rise up against me, a destroying wind;  
-> <sup>2</sup> And will send unto Babylon fanners, that shall fan her, and shall empty her land: for in the day of trouble they shall be against her round about.  
-> <sup>3</sup> Against *him that* bendeth let the archer bend his bow, and against *him that* lifteth himself up in his brigandine: and spare ye not her young men; destroy ye utterly all her host.  
-> <sup>4</sup> Thus the slain shall fall in the land of the Chaldeans, and *they that are* thrust through in her streets.  
-> <sup>5</sup> For Israel *hath* not *been* forsaken, nor Judah of his God, of the LORD of hosts; though their land was filled with sin against the Holy One of Israel.  
-> <sup>6</sup> Flee out of the midst of Babylon, and deliver every man his soul: be not cut off in her iniquity; for this *is* the time of the LORD's vengeance; he will render unto her a recompence.  
-> <sup>7</sup> Babylon *hath been* a golden cup in the LORD's hand, that made all the earth drunken: the nations have drunken of her wine; therefore the nations are mad.  
-> <sup>8</sup> Babylon is suddenly fallen and destroyed: howl for her; take balm for her pain, if so be she may be healed.  
-> <sup>9</sup> We would have healed Babylon, but she is not healed: forsake her, and let us go every one into his own country: for her judgment reacheth unto heaven, and is lifted up *even* to the skies.  
-> <sup>10</sup> The LORD hath brought forth our righteousness: come, and let us declare in Zion the work of the LORD our God.  
-> <sup>11</sup> Make bright the arrows; gather the shields: the LORD hath raised up the spirit of the kings of the Medes: for his device *is* against Babylon, to destroy it; because it *is* the vengeance of the LORD, the vengeance of his temple.  
-> <sup>12</sup> Set up the standard upon the walls of Babylon, make the watch strong, set up the watchmen, prepare the ambushes: for the LORD hath both devised and done that which he spake against the inhabitants of Babylon.  
-> <sup>13</sup> O thou that dwellest upon many waters, abundant in treasures, thine end is come, *and* the measure of thy covetousness.  
-> <sup>14</sup> The LORD of hosts hath sworn by himself, *saying,* Surely I will fill thee with men, as with caterpillers; and they shall lift up a shout against thee.  
-> <sup>15</sup> He hath made the earth by his power, he hath established the world by his wisdom, and hath stretched out the heaven by his understanding.  
-> <sup>16</sup> When he uttereth *his* voice, *there is* a multitude of waters in the heavens; and he causeth the vapours to ascend from the ends of the earth: he maketh lightnings with rain, and bringeth forth the wind out of his treasures.  
-> <sup>17</sup> Every man is brutish by *his* knowledge; every founder is confounded by the graven image: for his molten image *is* falsehood, and *there is* no breath in them.  
-> <sup>18</sup> They *are* vanity, the work of errors: in the time of their visitation they shall perish.  
-> <sup>19</sup> The portion of Jacob *is* not like them; for he *is* the former of all things: and *Israel is* the rod of his inheritance: the LORD of hosts *is* his name.  
-> <sup>20</sup> Thou *art* my battle axe *and* weapons of war: for with thee will I break in pieces the nations, and with thee will I destroy kingdoms;  
-> <sup>21</sup> And with thee will I break in pieces the horse and his rider; and with thee will I break in pieces the chariot and his rider;  
-> <sup>22</sup> With thee also will I break in pieces man and woman; and with thee will I break in pieces old and young; and with thee will I break in pieces the young man and the maid;  
-> <sup>23</sup> I will also break in pieces with thee the shepherd and his flock; and with thee will I break in pieces the husbandman and his yoke of oxen; and with thee will I break in pieces captains and rulers.  
-> <sup>24</sup> And I will render unto Babylon and to all the inhabitants of Chaldea all their evil that they have done in Zion in your sight, saith the LORD.  
-> <sup>25</sup> Behold, I *am* against thee, O destroying mountain, saith the LORD, which destroyest all the earth: and I will stretch out mine hand upon thee, and roll thee down from the rocks, and will make thee a burnt mountain.  
-> <sup>26</sup> And they shall not take of thee a stone for a corner, nor a stone for foundations; but thou shalt be desolate for ever, saith the LORD.  
-> <sup>27</sup> Set ye up a standard in the land, blow the trumpet among the nations, prepare the nations against her, call together against her the kingdoms of Ararat, Minni, and Ashchenaz; appoint a captain against her; cause the horses to come up as the rough caterpillers.  
-> <sup>28</sup> Prepare against her the nations with the kings of the Medes, the captains thereof, and all the rulers thereof, and all the land of his dominion.  
-> <sup>29</sup> And the land shall tremble and sorrow: for every purpose of the LORD shall be performed against Babylon, to make the land of Babylon a desolation without an inhabitant.  
-> <sup>30</sup> The mighty men of Babylon have forborne to fight, they have remained in *their* holds: their might hath failed; they became as women: they have burned her dwelling-places; her bars are broken.  
-> <sup>31</sup> One post shall run to meet another, and one messenger to meet another, to shew the king of Babylon that his city is taken at *one* end,  
-> <sup>32</sup> And that the passages are stopped, and the reeds they have burned with fire, and the men of war are affrighted.  
-> <sup>33</sup> For thus saith the LORD of hosts, the God of Israel; The daughter of Babylon *is* like a threshing-floor, *it is* time to thresh her: yet a little while, and the time of her harvest shall come.  
-> <sup>34</sup> Nebuchadrezzar the king of Babylon hath devoured me, he hath crushed me, he hath made me an empty vessel, he hath swallowed me up like a dragon, he hath filled his belly with my delicates, he hath cast me out.  
-> <sup>35</sup> The violence done to me and to my flesh *be* upon Babylon, shall the inhabitant of Zion say; and my blood upon the inhabitants of Chaldea, shall Jerusalem say.  
-> <sup>36</sup> Therefore thus saith the LORD; Behold, I will plead thy cause, and take vengeance for thee; and I will dry up her sea, and make her springs dry.  
-> <sup>37</sup> And Babylon shall become heaps, a dwelling-place for dragons, an astonishment, and a hissing, without an inhabitant.  
-> <sup>38</sup> They shall roar together like lions: they shall yell as lions' whelps.  
-> <sup>39</sup> In their heat I will make their feasts, and I will make them drunken, that they may rejoice, and sleep a perpetual sleep, and not wake, saith the LORD.  
-> <sup>40</sup> I will bring them down like lambs to the slaughter, like rams with he goats.  
-> <sup>41</sup> How is Sheshach taken! and how is the praise of the whole earth surprised! how is Babylon become an astonishment among the nations!  
-> <sup>42</sup> The sea is come up upon Babylon: she is covered with the multitude of the waves thereof.  
-> <sup>43</sup> Her cities are a desolation, a dry land, and a wilderness, a land wherein no man dwelleth, neither doth *any* son of man pass thereby.  
-> <sup>44</sup> And I will punish Bel in Babylon, and I will bring forth out of his mouth that which he hath swallowed up: and the nations shall not flow together any more unto him: yea, the wall of Babylon shall fall.  
-> <sup>45</sup> My people, go ye out of the midst of her, and deliver ye every man his soul from the fierce anger of the LORD.  
-> <sup>46</sup> And lest your heart faint, and ye fear for the rumour that shall be heard in the land; a rumour shall both come *one* year, and after that in *another* year *shall come* a rumour, and violence in the land, ruler against ruler.  
-> <sup>47</sup> Therefore, behold, the days come, that I will do judgment upon the graven images of Babylon: and her whole land shall be confounded, and all her slain shall fall in the midst of her.  
-> <sup>48</sup> Then the heaven and the earth, and all that *is* therein, shall sing for Babylon: for the spoilers shall come unto her from the north, saith the LORD.  
-> <sup>49</sup> As Babylon *hath caused* the slain of Israel to fall, so at Babylon shall fall the slain of all the earth.  
-> <sup>50</sup> Ye that have escaped the sword, go away, stand not still: remember the LORD afar off, and let Jerusalem come into your mind.  
-> <sup>51</sup> We are confounded, because we have heard reproach: shame hath covered our faces: for strangers are come into the sanctuaries of the LORD's house.  
-> <sup>52</sup> Wherefore, behold, the days come, saith the LORD, that I will do judgment upon her graven images: and through all her land the wounded shall groan.  
-> <sup>53</sup> Though Babylon should mount up to heaven, and though she should fortify the height of her strength, *yet* from me shall spoilers come unto her, saith the LORD.  
-> <sup>54</sup> A sound of a cry *cometh* from Babylon, and great destruction from the land of the Chaldeans:  
-> <sup>55</sup> Because the LORD hath spoiled Babylon, and destroyed out of her the great voice; when her waves do roar like great waters, a noise of their voice is uttered:  
-> <sup>56</sup> Because the spoiler is come upon her, *even* upon Babylon, and her mighty men are taken, every one of their bows is broken: for the LORD God of recompences shall surely requite.  
-> <sup>57</sup> And I will make drunk her princes, and her wise *men,* her captains, and her rulers, and her mighty men: and they shall sleep a perpetual sleep, and not wake, saith the King, whose name *is* the LORD of hosts.  
-> <sup>58</sup> Thus saith the LORD of hosts; The broad walls of Babylon shall be utterly broken, and her high gates shall be burned with fire; and the people shall labour in vain, and the folk in the fire, and they shall be weary.  
+> **¹** Thus saith the LORD; Behold, I will raise up against Babylon, and against them that dwell in the midst of them that rise up against me, a destroying wind;  
+> **²** And will send unto Babylon fanners, that shall fan her, and shall empty her land: for in the day of trouble they shall be against her round about.  
+> **³** Against *him that* bendeth let the archer bend his bow, and against *him that* lifteth himself up in his brigandine: and spare ye not her young men; destroy ye utterly all her host.  
+> **⁴** Thus the slain shall fall in the land of the Chaldeans, and *they that are* thrust through in her streets.  
+> **⁵** For Israel *hath* not *been* forsaken, nor Judah of his God, of the LORD of hosts; though their land was filled with sin against the Holy One of Israel.  
+> **⁶** Flee out of the midst of Babylon, and deliver every man his soul: be not cut off in her iniquity; for this *is* the time of the LORD's vengeance; he will render unto her a recompence.  
+> **⁷** Babylon *hath been* a golden cup in the LORD's hand, that made all the earth drunken: the nations have drunken of her wine; therefore the nations are mad.  
+> **⁸** Babylon is suddenly fallen and destroyed: howl for her; take balm for her pain, if so be she may be healed.  
+> **⁹** We would have healed Babylon, but she is not healed: forsake her, and let us go every one into his own country: for her judgment reacheth unto heaven, and is lifted up *even* to the skies.  
+> **¹⁰** The LORD hath brought forth our righteousness: come, and let us declare in Zion the work of the LORD our God.  
+> **¹¹** Make bright the arrows; gather the shields: the LORD hath raised up the spirit of the kings of the Medes: for his device *is* against Babylon, to destroy it; because it *is* the vengeance of the LORD, the vengeance of his temple.  
+> **¹²** Set up the standard upon the walls of Babylon, make the watch strong, set up the watchmen, prepare the ambushes: for the LORD hath both devised and done that which he spake against the inhabitants of Babylon.  
+> **¹³** O thou that dwellest upon many waters, abundant in treasures, thine end is come, *and* the measure of thy covetousness.  
+> **¹⁴** The LORD of hosts hath sworn by himself, *saying,* Surely I will fill thee with men, as with caterpillers; and they shall lift up a shout against thee.  
+> **¹⁵** He hath made the earth by his power, he hath established the world by his wisdom, and hath stretched out the heaven by his understanding.  
+> **¹⁶** When he uttereth *his* voice, *there is* a multitude of waters in the heavens; and he causeth the vapours to ascend from the ends of the earth: he maketh lightnings with rain, and bringeth forth the wind out of his treasures.  
+> **¹⁷** Every man is brutish by *his* knowledge; every founder is confounded by the graven image: for his molten image *is* falsehood, and *there is* no breath in them.  
+> **¹⁸** They *are* vanity, the work of errors: in the time of their visitation they shall perish.  
+> **¹⁹** The portion of Jacob *is* not like them; for he *is* the former of all things: and *Israel is* the rod of his inheritance: the LORD of hosts *is* his name.  
+> **²⁰** Thou *art* my battle axe *and* weapons of war: for with thee will I break in pieces the nations, and with thee will I destroy kingdoms;  
+> **²¹** And with thee will I break in pieces the horse and his rider; and with thee will I break in pieces the chariot and his rider;  
+> **²²** With thee also will I break in pieces man and woman; and with thee will I break in pieces old and young; and with thee will I break in pieces the young man and the maid;  
+> **²³** I will also break in pieces with thee the shepherd and his flock; and with thee will I break in pieces the husbandman and his yoke of oxen; and with thee will I break in pieces captains and rulers.  
+> **²⁴** And I will render unto Babylon and to all the inhabitants of Chaldea all their evil that they have done in Zion in your sight, saith the LORD.  
+> **²⁵** Behold, I *am* against thee, O destroying mountain, saith the LORD, which destroyest all the earth: and I will stretch out mine hand upon thee, and roll thee down from the rocks, and will make thee a burnt mountain.  
+> **²⁶** And they shall not take of thee a stone for a corner, nor a stone for foundations; but thou shalt be desolate for ever, saith the LORD.  
+> **²⁷** Set ye up a standard in the land, blow the trumpet among the nations, prepare the nations against her, call together against her the kingdoms of Ararat, Minni, and Ashchenaz; appoint a captain against her; cause the horses to come up as the rough caterpillers.  
+> **²⁸** Prepare against her the nations with the kings of the Medes, the captains thereof, and all the rulers thereof, and all the land of his dominion.  
+> **²⁹** And the land shall tremble and sorrow: for every purpose of the LORD shall be performed against Babylon, to make the land of Babylon a desolation without an inhabitant.  
+> **³⁰** The mighty men of Babylon have forborne to fight, they have remained in *their* holds: their might hath failed; they became as women: they have burned her dwelling-places; her bars are broken.  
+> **³¹** One post shall run to meet another, and one messenger to meet another, to shew the king of Babylon that his city is taken at *one* end,  
+> **³²** And that the passages are stopped, and the reeds they have burned with fire, and the men of war are affrighted.  
+> **³³** For thus saith the LORD of hosts, the God of Israel; The daughter of Babylon *is* like a threshing-floor, *it is* time to thresh her: yet a little while, and the time of her harvest shall come.  
+> **³⁴** Nebuchadrezzar the king of Babylon hath devoured me, he hath crushed me, he hath made me an empty vessel, he hath swallowed me up like a dragon, he hath filled his belly with my delicates, he hath cast me out.  
+> **³⁵** The violence done to me and to my flesh *be* upon Babylon, shall the inhabitant of Zion say; and my blood upon the inhabitants of Chaldea, shall Jerusalem say.  
+> **³⁶** Therefore thus saith the LORD; Behold, I will plead thy cause, and take vengeance for thee; and I will dry up her sea, and make her springs dry.  
+> **³⁷** And Babylon shall become heaps, a dwelling-place for dragons, an astonishment, and a hissing, without an inhabitant.  
+> **³⁸** They shall roar together like lions: they shall yell as lions' whelps.  
+> **³⁹** In their heat I will make their feasts, and I will make them drunken, that they may rejoice, and sleep a perpetual sleep, and not wake, saith the LORD.  
+> **⁴⁰** I will bring them down like lambs to the slaughter, like rams with he goats.  
+> **⁴¹** How is Sheshach taken! and how is the praise of the whole earth surprised! how is Babylon become an astonishment among the nations!  
+> **⁴²** The sea is come up upon Babylon: she is covered with the multitude of the waves thereof.  
+> **⁴³** Her cities are a desolation, a dry land, and a wilderness, a land wherein no man dwelleth, neither doth *any* son of man pass thereby.  
+> **⁴⁴** And I will punish Bel in Babylon, and I will bring forth out of his mouth that which he hath swallowed up: and the nations shall not flow together any more unto him: yea, the wall of Babylon shall fall.  
+> **⁴⁵** My people, go ye out of the midst of her, and deliver ye every man his soul from the fierce anger of the LORD.  
+> **⁴⁶** And lest your heart faint, and ye fear for the rumour that shall be heard in the land; a rumour shall both come *one* year, and after that in *another* year *shall come* a rumour, and violence in the land, ruler against ruler.  
+> **⁴⁷** Therefore, behold, the days come, that I will do judgment upon the graven images of Babylon: and her whole land shall be confounded, and all her slain shall fall in the midst of her.  
+> **⁴⁸** Then the heaven and the earth, and all that *is* therein, shall sing for Babylon: for the spoilers shall come unto her from the north, saith the LORD.  
+> **⁴⁹** As Babylon *hath caused* the slain of Israel to fall, so at Babylon shall fall the slain of all the earth.  
+> **⁵⁰** Ye that have escaped the sword, go away, stand not still: remember the LORD afar off, and let Jerusalem come into your mind.  
+> **⁵¹** We are confounded, because we have heard reproach: shame hath covered our faces: for strangers are come into the sanctuaries of the LORD's house.  
+> **⁵²** Wherefore, behold, the days come, saith the LORD, that I will do judgment upon her graven images: and through all her land the wounded shall groan.  
+> **⁵³** Though Babylon should mount up to heaven, and though she should fortify the height of her strength, *yet* from me shall spoilers come unto her, saith the LORD.  
+> **⁵⁴** A sound of a cry *cometh* from Babylon, and great destruction from the land of the Chaldeans:  
+> **⁵⁵** Because the LORD hath spoiled Babylon, and destroyed out of her the great voice; when her waves do roar like great waters, a noise of their voice is uttered:  
+> **⁵⁶** Because the spoiler is come upon her, *even* upon Babylon, and her mighty men are taken, every one of their bows is broken: for the LORD God of recompences shall surely requite.  
+> **⁵⁷** And I will make drunk her princes, and her wise *men,* her captains, and her rulers, and her mighty men: and they shall sleep a perpetual sleep, and not wake, saith the King, whose name *is* the LORD of hosts.  
+> **⁵⁸** Thus saith the LORD of hosts; The broad walls of Babylon shall be utterly broken, and her high gates shall be burned with fire; and the people shall labour in vain, and the folk in the fire, and they shall be weary.  
 
 The particulars of this copious prophecy are dispersed and interwoven, and the same things left and returned to so often that it could not well be divided into parts, but we must endeavor to collect them under their proper heads. Let us then observe here,
 
@@ -91,12 +91,12 @@ X\. Here is the diversified feeling excited by Babylon's fall, and it is the sam
 
 ## The Prophecy Sent to the People. (b. c. 595.)
 
-> <sup>59</sup> The word which Jeremiah the prophet commanded Seraiah the son of Neriah, the son of Maaseiah, when he went with Zedekiah the king of Judah into Babylon in the fourth year of his reign. And *this* Seraiah *was* a quiet prince.  
-> <sup>60</sup> So Jeremiah wrote in a book all the evil that should come upon Babylon, *even* all these words that are written against Babylon.  
-> <sup>61</sup> And Jeremiah said to Seraiah, When thou comest to Babylon, and shalt see, and shalt read all these words;  
-> <sup>62</sup> Then shalt thou say, O LORD, thou hast spoken against this place, to cut it off, that none shall remain in it, neither man nor beast, but that it shall be desolate for ever.  
-> <sup>63</sup> And it shall be, when thou hast made an end of reading this book, *that* thou shalt bind a stone to it, and cast it into the midst of Euphrates:  
-> <sup>64</sup> And thou shalt say, Thus shall Babylon sink, and shall not rise from the evil that I will bring upon her: and they shall be weary. Thus far *are* the words of Jeremiah.  
+> **⁵⁹** The word which Jeremiah the prophet commanded Seraiah the son of Neriah, the son of Maaseiah, when he went with Zedekiah the king of Judah into Babylon in the fourth year of his reign. And *this* Seraiah *was* a quiet prince.  
+> **⁶⁰** So Jeremiah wrote in a book all the evil that should come upon Babylon, *even* all these words that are written against Babylon.  
+> **⁶¹** And Jeremiah said to Seraiah, When thou comest to Babylon, and shalt see, and shalt read all these words;  
+> **⁶²** Then shalt thou say, O LORD, thou hast spoken against this place, to cut it off, that none shall remain in it, neither man nor beast, but that it shall be desolate for ever.  
+> **⁶³** And it shall be, when thou hast made an end of reading this book, *that* thou shalt bind a stone to it, and cast it into the midst of Euphrates:  
+> **⁶⁴** And thou shalt say, Thus shall Babylon sink, and shall not rise from the evil that I will bring upon her: and they shall be weary. Thus far *are* the words of Jeremiah.  
 
 We have been long attending the judgment of Babylon in this and the foregoing chapter; now here we have the conclusion of that whole matter. 1. A copy is taken of this prophecy, it should seem by Jeremiah himself, for Baruch his scribe is not mentioned here (Jer 51:60): *Jeremiah wrote in a book all these words that are here written against Babylon.* He received this notice that he might give it to all whom it might concern. It is of great advantage both to the propagating and to the perpetuating of the word of God to have it written, and to have copies taken of the law, prophets, and epistles. 2. It is sent to Babylon, to the captives there, by the hand of Seraiah, who went there attendant on or ambassador for king Zedekiah, *in the fourth year of his reign,* Jer 51:59. He *went with Zedekiah,* or (as the margin reads it) *on the behalf of Zedekiah, into Babylon.* The character given of him is observable, that this *Seraiah was a quiet prince,* a prince of rest. He was in honour and power, but not, as most of the princes then were, hot and heady, making parties, and heading factions, and driving things furiously. He was of a calm temper, studied the things that made for peace, endeavoured to preserve a good understanding between the king his master and the king of Babylon, and to keep his master from rebelling. He was no persecutor of God's prophets, but a moderate man. Zedekiah was happy in the choice of such a man to be his envoy to the king of Babylon, and Jeremiah might safely entrust such a man with his errand too. Note, it is the real honour of great men to be quiet men, and it is the wisdom of princes to put such into places of trust. 3. Seraiah is desired to read it to his countrymen that had already gone into captivity: "*When thou shalt come to Babylon, and shalt see* what a magnificent place it is, how large a city, how strong, how rich, and how well fortified, and shalt therefore be tempted to think, Surely, it will stand forever" (as the disciples, when they observed the buildings of the temple, concluded that nothing would *throw them down* but the end of the world, Mt 24:3), "*then thou shalt read all these words* to thyself and thy particular friends, for their encouragement in their captivity: let them with an eye of faith see to the end of these threatening powers, and comfort themselves and one another herewith." 4. He is directed to make a solemn protestation of the divine authority and unquestionable certainty of that which he had read (Jer 51:62): *Then thou shalt* look up to God, and say, *O Lord! it is thou that hast spoken against this place, to cut it off.* This is like the angel's protestation concerning the destruction of the New-Testament Babylon. *These are the true sayings of God,* Re 19:9. *These words are true and faithful,* Re 21:5. Though Seraiah sees Babylon flourishing, having read this prophecy he must foresee Babylon falling, and by virtue of it must curse its habitation, though it be *taking root* (Job 5:3): "*O Lord! thou hast spoken against this place,* and I believe what thou hast spoken, that, as thou knowest every thing, so thou canst do every thing. Thou hast passed sentence upon Babylon, and it shall be executed. *Thou hast spoken against this place, to cut it off,* and therefore we will neither envy its pomp nor fear its power." When we see what this world is, how glittering its shows are and how flattering its proposals, let us read in the book of the Lord that its *fashion passes away,* and it shall shortly be *cut off* and be *desolate for ever,* and we shall learn to look upon it with a holy contempt. Observe here, When we have been reading the word of God it becomes us to direct to him whose word it is a humble believing acknowledgment of the truth, equity, and goodness, of what we have read. 5. He must then tie a stone to the book and throw it into the midst of the river Euphrates, as a confirming sign of the things contained in it, saying, "*Thus shall Babylon sink, and not rise;* for they *shall be weary,* they shall perfectly succumb, as men tired with a burden, under the load of *the evil that I will bring upon them,* which they shall never shake off, nor get from under," Jer 51:53,64. In the sign it was the stone that sunk the book, which otherwise would have swum. But in *the thing signified* it was rather the book that sunk the stone; it was the divine sentence passed upon Babylon in this prophecy that sunk that city, which seemed *as firm as a stone.* The fall of the New-Testament Babylon was represented by something like this, but much more magnificent, Re 18:21. *A mighty angel cast a great millstone into the sea, saying, Thus shall Babylon fall.* Those that sink under the weight of God's wrath and curse sink irrecoverably. The last words of the chapter seal up the vision and prophecy of this book: *Thus far are the words of Jeremiah.* Not that this prophecy against Babylon was the last of his prophecies; for it was dated in the *fourth* year of Zedekiah (Jer 51:59), long before he finished his testimony; but this is recorded last of his prophecies because it was to be last accomplished of all his prophecies against the Gentiles, Jer 46:1. And the chapter which remains is purely historical, and, as some think, was added by some other hand.
 

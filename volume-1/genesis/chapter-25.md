@@ -8,16 +8,16 @@ The sacred historian, in this chapter, I. Takes his leave of Abraham, with an ac
 
 ## Abraham's Death. (b. c. 1822.)
 
-> <sup>1</sup> Then again Abraham took a wife, and her name *was* Keturah.  
-> <sup>2</sup> And she bare him Zimran, and Jokshan, and Medan, and Midian, and Ishbak, and Shuah.  
-> <sup>3</sup> And Jokshan begat Sheba, and Dedan. And the sons of Dedan were Asshurim, and Letushim, and Leummim.  
-> <sup>4</sup> And the sons of Midian; Ephah, and Epher, and Hanoch, and Abida, and Eldaah. All these *were* the children of Keturah.  
-> <sup>5</sup> And Abraham gave all that he had unto Isaac.  
-> <sup>6</sup> But unto the sons of the concubines, which Abraham had, Abraham gave gifts, and sent them away from Isaac his son, while he yet lived, eastward, unto the east country.  
-> <sup>7</sup> And these *are* the days of the years of Abraham's life which he lived, an hundred threescore and fifteen years.  
-> <sup>8</sup> Then Abraham gave up the ghost, and died in a good old age, an old man, and full *of years*; and was gathered to his people.  
-> <sup>9</sup> And his sons Isaac and Ishmael buried him in the cave of Machpelah, in the field of Ephron the son of Zohar the Hittite, which *is* before Mamre;  
-> <sup>10</sup> The field which Abraham purchased of the sons of Heth: there was Abraham buried, and Sarah his wife.  
+> **¹** Then again Abraham took a wife, and her name *was* Keturah.  
+> **²** And she bare him Zimran, and Jokshan, and Medan, and Midian, and Ishbak, and Shuah.  
+> **³** And Jokshan begat Sheba, and Dedan. And the sons of Dedan were Asshurim, and Letushim, and Leummim.  
+> **⁴** And the sons of Midian; Ephah, and Epher, and Hanoch, and Abida, and Eldaah. All these *were* the children of Keturah.  
+> **⁵** And Abraham gave all that he had unto Isaac.  
+> **⁶** But unto the sons of the concubines, which Abraham had, Abraham gave gifts, and sent them away from Isaac his son, while he yet lived, eastward, unto the east country.  
+> **⁷** And these *are* the days of the years of Abraham's life which he lived, an hundred threescore and fifteen years.  
+> **⁸** Then Abraham gave up the ghost, and died in a good old age, an old man, and full *of years*; and was gathered to his people.  
+> **⁹** And his sons Isaac and Ishmael buried him in the cave of Machpelah, in the field of Ephron the son of Zohar the Hittite, which *is* before Mamre;  
+> **¹⁰** The field which Abraham purchased of the sons of Heth: there was Abraham buried, and Sarah his wife.  
 
 Abraham lived, after the marriage of Isaac, thirty-five years, and all that is recorded concerning him during the time lies here in a very few verses. We hear no more of God's extraordinary appearances to him or trials of him; for all the days, even of the best and greatest saints, are not eminent days, some slide on silently, and neither come nor go with observation; such were these last days of Abraham. We have here,
 
@@ -31,29 +31,29 @@ IV\. His burial, Ge 25:9,10. Here is nothing recorded of the pomp or ceremony of
 
 ## Genealogy of Ishmael. (b. c. 1822.)
 
-> <sup>11</sup> And it came to pass after the death of Abraham, that God blessed his son Isaac; and Isaac dwelt by the well Lahai-roi.  
-> <sup>12</sup> Now these *are* the generations of Ishmael, Abraham's son, whom Hagar the Egyptian, Sarah's handmaid, bare unto Abraham:  
-> <sup>13</sup> And these *are* the names of the sons of Ishmael, by their names, according to their generations: the firstborn of Ishmael, Nebajoth; and Kedar, and Adbeel, and Mibsam,  
-> <sup>14</sup> And Mishma, and Dumah, and Massa,  
-> <sup>15</sup> Hadar, and Tema, Jetur, Naphish, and Kedemah:  
-> <sup>16</sup> These *are* the sons of Ishmael, and these *are* their names, by their towns, and by their castles; twelve princes according to their nations.  
-> <sup>17</sup> And these *are* the years of the life of Ishmael, an hundred and thirty and seven years: and he gave up the ghost and died; and was gathered unto his people.  
-> <sup>18</sup> And they dwelt from Havilah unto Shur, that *is* before Egypt, as thou goest toward Assyria: *and* he died in the presence of all his brethren.  
+> **¹¹** And it came to pass after the death of Abraham, that God blessed his son Isaac; and Isaac dwelt by the well Lahai-roi.  
+> **¹²** Now these *are* the generations of Ishmael, Abraham's son, whom Hagar the Egyptian, Sarah's handmaid, bare unto Abraham:  
+> **¹³** And these *are* the names of the sons of Ishmael, by their names, according to their generations: the firstborn of Ishmael, Nebajoth; and Kedar, and Adbeel, and Mibsam,  
+> **¹⁴** And Mishma, and Dumah, and Massa,  
+> **¹⁵** Hadar, and Tema, Jetur, Naphish, and Kedemah:  
+> **¹⁶** These *are* the sons of Ishmael, and these *are* their names, by their towns, and by their castles; twelve princes according to their nations.  
+> **¹⁷** And these *are* the years of the life of Ishmael, an hundred and thirty and seven years: and he gave up the ghost and died; and was gathered unto his people.  
+> **¹⁸** And they dwelt from Havilah unto Shur, that *is* before Egypt, as thou goest toward Assyria: *and* he died in the presence of all his brethren.  
 
 Immediately after the account of Abraham's death, Moses begins the story of Isaac (Ge 25:11), and tells us where he dwelt and how remarkably God blessed him. Note, The blessing of Abraham did not die with him, but survived to all the children of the promise. But he presently digresses from the story of Isaac, to give a short account of Ishmael, forasmuch as he also was a son of Abraham, and God had made some promises concerning him, which it was requisite we should know the accomplishment of. Observe here what is said, 1. Concerning his children. He had twelve sons, *twelve princes* they are called (Ge 25:16), heads of families, which in process of time became nations, distinct tribes, numerous and very considerable. They peopled a very large continent, that lay between Egypt and Assyria, called *Arabia.* The names of his twelve sons are recorded. Midian and Kedar we often read of in scripture. And some very good expositors have taken notice of the signification of those three names which are put together (Ge 25:14), as containing good advice to us all, *Mishma, Dumah,* and *Massa,* that is, *hear, keep silence,* and *bear;* we have them together in the same order, Jam 1:19, *Be swift to hear, slow to speak, slow to wrath.* The posterity of Ishmael had not only tents in the fields, wherein they grew rich in times of peace; but they had towns and castles (Ge 25:16), wherein they fortified themselves in time of war. Now the number and strength of this family were the fruit of the promise made to Hagar concerning Ishmael (Ge 16:10), and to Abraham, Ge 17:20,21:13. Note, Many that are strangers to the covenants of promise are yet blessed with outward prosperity for the sake of their godly ancestors. *Wealth and riches shall be in their house.* 2. Concerning himself. Here is an account of his age: He *lived* 137 *years* (Ge 25:17) which is recorded to show the efficacy of Abraham's prayer for him (Ge 17:18), *O that Ishmael might live before thee!* Here is also an account of his death; he too *was gathered to his people;* but it is not said that he was *full of days,* though he lived to so great an age: he was not so weary of the world, nor so willing to leave it, as his good father was. Those words, *he fell in the presence of all his brethren,* whether they mean, as we take them, *he died,* or, as others, *his lot fell,* are designed to show the fulfilling of that word to Hagar (Ge 16:12), *He shall dwell in the presence of all his brethren,* that is, he shall flourish and be eminent among them, and shall hold his own to the last. Or he died with his friends about him, which is comfortable.
 
 ## Birth of Esau and Jacob. (b. c. 1837.)
 
-> <sup>19</sup> And these *are* the generations of Isaac, Abraham's son: Abraham begat Isaac:  
-> <sup>20</sup> And Isaac was forty years old when he took Rebekah to wife, the daughter of Bethuel the Syrian of Padan-aram, the sister to Laban the Syrian.  
-> <sup>21</sup> And Isaac intreated the LORD for his wife, because she *was* barren: and the LORD was intreated of him, and Rebekah his wife conceived.  
-> <sup>22</sup> And the children struggled together within her; and she said, If *it be* so, why *am* I thus? And she went to enquire of the LORD.  
-> <sup>23</sup> And the LORD said unto her, Two nations *are* in thy womb, and two manner of people shall be separated from thy bowels; and *the one* people shall be stronger than *the other* people; and the elder shall serve the younger.  
-> <sup>24</sup> And when her days to be delivered were fulfilled, behold, *there were* twins in her womb.  
-> <sup>25</sup> And the first came out red, all over like a hairy garment; and they called his name Esau.  
-> <sup>26</sup> And after that came his brother out, and his hand took hold on Esau's heel; and his name was called Jacob: and Isaac *was* threescore years old when she bare them.  
-> <sup>27</sup> And the boys grew: and Esau was a cunning hunter, a man of the field; and Jacob *was* a plain man, dwelling in tents.  
-> <sup>28</sup> And Isaac loved Esau, because he did eat of *his* venison: but Rebekah loved Jacob.  
+> **¹⁹** And these *are* the generations of Isaac, Abraham's son: Abraham begat Isaac:  
+> **²⁰** And Isaac was forty years old when he took Rebekah to wife, the daughter of Bethuel the Syrian of Padan-aram, the sister to Laban the Syrian.  
+> **²¹** And Isaac intreated the LORD for his wife, because she *was* barren: and the LORD was intreated of him, and Rebekah his wife conceived.  
+> **²²** And the children struggled together within her; and she said, If *it be* so, why *am* I thus? And she went to enquire of the LORD.  
+> **²³** And the LORD said unto her, Two nations *are* in thy womb, and two manner of people shall be separated from thy bowels; and *the one* people shall be stronger than *the other* people; and the elder shall serve the younger.  
+> **²⁴** And when her days to be delivered were fulfilled, behold, *there were* twins in her womb.  
+> **²⁵** And the first came out red, all over like a hairy garment; and they called his name Esau.  
+> **²⁶** And after that came his brother out, and his hand took hold on Esau's heel; and his name was called Jacob: and Isaac *was* threescore years old when she bare them.  
+> **²⁷** And the boys grew: and Esau was a cunning hunter, a man of the field; and Jacob *was* a plain man, dwelling in tents.  
+> **²⁸** And Isaac loved Esau, because he did eat of *his* venison: but Rebekah loved Jacob.  
 
 We have here an account of the birth of Jacob and Esau, the twin sons of Isaac and Rebekah: their entrance into the world was (which is not usual) one of the most considerable parts of their story; nor is much related concerning Isaac but what had reference to his father while he lived and to his sons afterwards. For Isaac seems not to have been a man of action, nor much tried, but to have spent his days in quietness and silence. Now concerning Jacob and Esau we are here told,
 
@@ -79,12 +79,12 @@ III\. That when they were born there was a great difference between them, which 
 
 ## Esau Sells His Birthright. (b. c. 1805.)
 
-> <sup>29</sup> And Jacob sod pottage: and Esau came from the field, and he *was* faint:  
-> <sup>30</sup> And Esau said to Jacob, Feed me, I pray thee, with that same red *pottage;* for I *am* faint: therefore was his name called Edom.  
-> <sup>31</sup> And Jacob said, Sell me this day thy birthright.  
-> <sup>32</sup> And Esau said, Behold, I *am* at the point to die: and what profit shall this birthright do to me?  
-> <sup>33</sup> And Jacob said, Swear to me this day; and he sware unto him: and he sold his birthright unto Jacob.  
-> <sup>34</sup> Then Jacob gave Esau bread and pottage of lentiles; and he did eat and drink, and rose up, and went his way: thus Esau despised *his* birthright.  
+> **²⁹** And Jacob sod pottage: and Esau came from the field, and he *was* faint:  
+> **³⁰** And Esau said to Jacob, Feed me, I pray thee, with that same red *pottage;* for I *am* faint: therefore was his name called Edom.  
+> **³¹** And Jacob said, Sell me this day thy birthright.  
+> **³²** And Esau said, Behold, I *am* at the point to die: and what profit shall this birthright do to me?  
+> **³³** And Jacob said, Swear to me this day; and he sware unto him: and he sold his birthright unto Jacob.  
+> **³⁴** Then Jacob gave Esau bread and pottage of lentiles; and he did eat and drink, and rose up, and went his way: thus Esau despised *his* birthright.  
 
 We have here a bargain made between Jacob and Esau about the birthright, which was Esau's by providence but Jacob's by promise. It was a spiritual privilege, including the excellency of dignity and the excellency of power, as well as the double portion, Ge 49:3. It seemed to be such a birthright as had then the blessing annexed to it, and the entail of the promise. Now see,
 

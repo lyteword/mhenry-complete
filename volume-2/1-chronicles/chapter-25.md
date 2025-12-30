@@ -8,13 +8,13 @@ David, having settled the courses of these Levites that were to attend the pries
 
 ## The Courses of the Singers. (b. c. 1015.)
 
-> <sup>1</sup> Moreover David and the captains of the host separated to the service of the sons of Asaph, and of Heman, and of Jeduthun, who should prophesy with harps, with psalteries, and with cymbals: and the number of the workmen according to their service was:  
-> <sup>2</sup> Of the sons of Asaph; Zaccur, and Joseph, and Nethaniah, and Asarelah, the sons of Asaph under the hands of Asaph, which prophesied according to the order of the king.  
-> <sup>3</sup> Of Jeduthun: the sons of Jeduthun; Gedaliah, and Zeri, and Jeshaiah, Hashabiah, and Mattithiah, six, under the hands of their father Jeduthun, who prophesied with a harp, to give thanks and to praise the LORD.  
-> <sup>4</sup> Of Heman: the sons of Heman; Bukkiah, Mattaniah, Uzziel, Shebuel, and Jerimoth, Hananiah, Hanani, Eliathah, Giddalti, and Romamti-ezer, Joshbekashah, Mallothi, Hothir, *and* Mahazioth:  
-> <sup>5</sup> All these *were* the sons of Heman the king's seer in the words of God, to lift up the horn. And God gave to Heman fourteen sons and three daughters.  
-> <sup>6</sup> All these *were* under the hands of their father for song *in* the house of the LORD, with cymbals, psalteries, and harps, for the service of the house of God, according to the king's order to Asaph, Jeduthun, and Heman.  
-> <sup>7</sup> So the number of them, with their brethren that were instructed in the songs of the LORD, *even* all that were cunning, was two hundred fourscore and eight.  
+> **¹** Moreover David and the captains of the host separated to the service of the sons of Asaph, and of Heman, and of Jeduthun, who should prophesy with harps, with psalteries, and with cymbals: and the number of the workmen according to their service was:  
+> **²** Of the sons of Asaph; Zaccur, and Joseph, and Nethaniah, and Asarelah, the sons of Asaph under the hands of Asaph, which prophesied according to the order of the king.  
+> **³** Of Jeduthun: the sons of Jeduthun; Gedaliah, and Zeri, and Jeshaiah, Hashabiah, and Mattithiah, six, under the hands of their father Jeduthun, who prophesied with a harp, to give thanks and to praise the LORD.  
+> **⁴** Of Heman: the sons of Heman; Bukkiah, Mattaniah, Uzziel, Shebuel, and Jerimoth, Hananiah, Hanani, Eliathah, Giddalti, and Romamti-ezer, Joshbekashah, Mallothi, Hothir, *and* Mahazioth:  
+> **⁵** All these *were* the sons of Heman the king's seer in the words of God, to lift up the horn. And God gave to Heman fourteen sons and three daughters.  
+> **⁶** All these *were* under the hands of their father for song *in* the house of the LORD, with cymbals, psalteries, and harps, for the service of the house of God, according to the king's order to Asaph, Jeduthun, and Heman.  
+> **⁷** So the number of them, with their brethren that were instructed in the songs of the LORD, *even* all that were cunning, was two hundred fourscore and eight.  
 
 Observe, I. Singing the praises of God is here called *prophesying* (1Ch 25:1-3), not that all those who were employed in this service were honoured with the visions of God, or could foretel things to come. Heman indeed is said to be the *king's seer in the words of God* (1Ch 25:5); but the psalms they sang were composed by the prophets, and many of them were prophetical; and the edification of the church was intended in it, as well as the glory of God. In Samuel's time singing the praises of God went by the name of *prophesying* (1Sa 10:5,19:20), and perhaps that is intended in what St. Paul calls *prophesying,* 1Co 11:4,14:24.
 
@@ -30,30 +30,30 @@ VI\. The fathers presided in this service, Asaph, Heman, and Jeduthun (1Ch 25:1)
 
 VII\. There were others also, besides the sons of these three great men, who are called their *brethren* (probably because they had been wont to join with them in their private concerts), who were *instructed in the songs of the Lord,* and were cunning or well skilled therein, 1Ch 25:7. They were all Levites and were in number 288. Now, 1. These were a good number, and a competent number to keep up the service in the house of God; for they were all skilful in the work to which they were called. When David the king was so much addicted to divine poesy and music many others, all that had a genius for it, applied their studies and endeavours that way. Those do religion a great deal of good service that bring the exercises of devotion into reputation. 2. Yet these were but a small number in comparison with the 4000 whom David appointed thus to *praise the Lord,* 1Ch 23:5. Where were all the rest when only 288, and those but by twelve in a course, were separated to this service? It is probable that all the rest were divided into as many courses, and were to follow as these led. Or, perhaps, these were *for songs in the house of the Lord* (1Ch 25:6), with whom any that worshipped in the courts of that house might join; and the rest were disposed of, all the kingdom over, to preside in the country congregations, in this good work: for, though the sacrifices instituted by the hand of Moses might be offered but at one place, the psalms penned by David might be sung every where, 1Ti 2:8.
 
-> <sup>8</sup> And they cast lots, ward against *ward,* as well the small as the great, the teacher as the scholar.  
-> <sup>9</sup> Now the first lot came forth for Asaph to Joseph: the second to Gedaliah, who with his brethren and sons *were* twelve:  
-> <sup>10</sup> The third to Zaccur, *he,* his sons, and his brethren, *were* twelve:  
-> <sup>11</sup> The fourth to Izri, *he,* his sons, and his brethren, *were* twelve:  
-> <sup>12</sup> The fifth to Nethaniah, *he,* his sons, and his brethren, *were* twelve:  
-> <sup>13</sup> The sixth to Bukkiah, *he,* his sons, and his brethren, *were* twelve:  
-> <sup>14</sup> The seventh to Jesharelah, *he,* his sons, and his brethren, *were* twelve:  
-> <sup>15</sup> The eighth to Jeshaiah, *he,* his sons, and his brethren, *were* twelve:  
-> <sup>16</sup> The ninth to Mattaniah, *he,* his sons, and his brethren, *were* twelve:  
-> <sup>17</sup> The tenth to Shimei, *he,* his sons, and his brethren, *were* twelve:  
-> <sup>18</sup> The eleventh to Azareel, *he,* his sons, and his brethren, *were* twelve:  
-> <sup>19</sup> The twelfth to Hashabiah, *he,* his sons, and his brethren, *were* twelve:  
-> <sup>20</sup> The thirteenth to Shubael, *he,* his sons, and his brethren, *were* twelve:  
-> <sup>21</sup> The fourteenth to Mattithiah, *he,* his sons, and his brethren, *were* twelve:  
-> <sup>22</sup> The fifteenth to Jeremoth, *he,* his sons, and his brethren, *were* twelve:  
-> <sup>23</sup> The sixteenth to Hananiah, *he,* his sons, and his brethren, *were* twelve:  
-> <sup>24</sup> The seventeenth to Joshbekashah, *he,* his sons, and his brethren, *were* twelve:  
-> <sup>25</sup> The eighteenth to Hanani, *he,* his sons, and his brethren, *were* twelve:  
-> <sup>26</sup> The nineteenth to Mallothi, *he,* his sons, and his brethren, *were* twelve:  
-> <sup>27</sup> The twentieth to Eliathah, *he,* his sons, and his brethren, *were* twelve:  
-> <sup>28</sup> The one and twentieth to Hothir, *he,* his sons, and his brethren, *were* twelve:  
-> <sup>29</sup> The two and twentieth to Giddalti, *he,* his sons, and his brethren, *were* twelve:  
-> <sup>30</sup> The three and twentieth to Mahazioth, *he,* his sons, and his brethren, *were* twelve:  
-> <sup>31</sup> The four and twentieth to Romamti-ezer, *he,* his sons, and his brethren, *were* twelve.  
+> **⁸** And they cast lots, ward against *ward,* as well the small as the great, the teacher as the scholar.  
+> **⁹** Now the first lot came forth for Asaph to Joseph: the second to Gedaliah, who with his brethren and sons *were* twelve:  
+> **¹⁰** The third to Zaccur, *he,* his sons, and his brethren, *were* twelve:  
+> **¹¹** The fourth to Izri, *he,* his sons, and his brethren, *were* twelve:  
+> **¹²** The fifth to Nethaniah, *he,* his sons, and his brethren, *were* twelve:  
+> **¹³** The sixth to Bukkiah, *he,* his sons, and his brethren, *were* twelve:  
+> **¹⁴** The seventh to Jesharelah, *he,* his sons, and his brethren, *were* twelve:  
+> **¹⁵** The eighth to Jeshaiah, *he,* his sons, and his brethren, *were* twelve:  
+> **¹⁶** The ninth to Mattaniah, *he,* his sons, and his brethren, *were* twelve:  
+> **¹⁷** The tenth to Shimei, *he,* his sons, and his brethren, *were* twelve:  
+> **¹⁸** The eleventh to Azareel, *he,* his sons, and his brethren, *were* twelve:  
+> **¹⁹** The twelfth to Hashabiah, *he,* his sons, and his brethren, *were* twelve:  
+> **²⁰** The thirteenth to Shubael, *he,* his sons, and his brethren, *were* twelve:  
+> **²¹** The fourteenth to Mattithiah, *he,* his sons, and his brethren, *were* twelve:  
+> **²²** The fifteenth to Jeremoth, *he,* his sons, and his brethren, *were* twelve:  
+> **²³** The sixteenth to Hananiah, *he,* his sons, and his brethren, *were* twelve:  
+> **²⁴** The seventeenth to Joshbekashah, *he,* his sons, and his brethren, *were* twelve:  
+> **²⁵** The eighteenth to Hanani, *he,* his sons, and his brethren, *were* twelve:  
+> **²⁶** The nineteenth to Mallothi, *he,* his sons, and his brethren, *were* twelve:  
+> **²⁷** The twentieth to Eliathah, *he,* his sons, and his brethren, *were* twelve:  
+> **²⁸** The one and twentieth to Hothir, *he,* his sons, and his brethren, *were* twelve:  
+> **²⁹** The two and twentieth to Giddalti, *he,* his sons, and his brethren, *were* twelve:  
+> **³⁰** The three and twentieth to Mahazioth, *he,* his sons, and his brethren, *were* twelve:  
+> **³¹** The four and twentieth to Romamti-ezer, *he,* his sons, and his brethren, *were* twelve.  
 
 Twenty-four persons are named in the beginning of this chapter as sons of those three great men, Asaph, Heman, and Jeduthun. Ethan was the third (1Ch 6:44), but probably he was dead before the establishment was perfected and Jeduthun came in his room. [Or perhaps Ethan and Jeduthun were two names for the same person.] Of these three Providence so ordered it that Asaph had four sons, Jeduthun six [only five are mentioned 1Ch 25:3; Shimei, mentioned 1Ch 25:17, is supposed to have been the sixth], and Heman fourteen, in all twenty-four (who were named, 1Ch 25:2-4), who were all qualified for the service and called to it. But the question was, In what order must they serve? This was determined by lot, to prevent strife for precedency, a sin which most easily besets many that otherwise are good people.
 

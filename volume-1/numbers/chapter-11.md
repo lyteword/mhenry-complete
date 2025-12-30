@@ -8,9 +8,9 @@ Hitherto things had gone pretty well in Israel; little interruption had been giv
 
 ## The Murmurings of the Israelites. (b. c. 1490.)
 
-> <sup>1</sup> And *when* the people complained, it displeased the LORD: and the LORD heard *it;* and his anger was kindled; and the fire of the LORD burnt among them, and consumed *them that were* in the uttermost parts of the camp.  
-> <sup>2</sup> And the people cried unto Moses; and when Moses prayed unto the LORD, the fire was quenched.  
-> <sup>3</sup> And he called the name of the place Taberah: because the fire of the LORD burnt among them.  
+> **¹** And *when* the people complained, it displeased the LORD: and the LORD heard *it;* and his anger was kindled; and the fire of the LORD burnt among them, and consumed *them that were* in the uttermost parts of the camp.  
+> **²** And the people cried unto Moses; and when Moses prayed unto the LORD, the fire was quenched.  
+> **³** And he called the name of the place Taberah: because the fire of the LORD burnt among them.  
 
 Here is, I. The people's sin. They *complained,* Nu 11:1. *They were, as it were, complainers.* So it is in the margin. There were some secret grudgings and discontents among them, which as yet did not break out in an open mutiny. But how great a matter did this little fire kindle! They had received from God excellent laws and ordinances, and yet no sooner had they departed from the mount of the Lord than they began to quarrel with God himself. See in this, 1. The sinfulness of sin, which takes occasion from the commandment to be the more provoking. 2. The weakness of the law through the flesh, Ro 8:3. The law discovered sin, but could not destroy it; checked it, but could not conquer it. They *complained.* Interpreters enquire what they complained of; and truly, when they were furnished with so much matter for thanksgiving, one may justly wonder where they found any matter for complaint; it is probable that those who complained did not all agree in the cause. Some perhaps complained that they were removed from Mount Sinai, where they had been at rest so long, others that they did not remove sooner: some complained of the weather, others of the ways: some perhaps thought three days' journey was too long a march, others thought it not long enough, because it did not bring them into Canaan. When we consider how their camp was guided, guarded, graced, what good victuals they had and good company, and what care was taken of them in their marches that their feet should not swell nor their clothes wear (De 8:4), we may ask, "What could have been done more for a people to make them easy?" And yet they complained. Note, Those that are of a fretful discontented spirit will always find something or other to quarrel with, though the circumstances of their outward condition be ever so favourable.
 
@@ -24,18 +24,18 @@ V\. The prevalency of Moses's intercession for them: *When Moses prayed unto the
 
 VI\. A new name given hereupon to the place, to perpetuate the shame of a murmuring people and the honour of a righteous God; the place was called *Taberah,* a *burning* (Nu 11:3), that others might hear, and fear, and take warning not to sin as they did, lest they should smart as they did, 1Co 10:10.
 
-> <sup>4</sup> And the mixt multitude that *was* among them fell a lusting: and the children of Israel also wept again, and said, Who shall give us flesh to eat?  
-> <sup>5</sup> We remember the fish, which we did eat in Egypt freely; the cucumbers, and the melons, and the leeks, and the onions, and the garlick:  
-> <sup>6</sup> But now our soul *is* dried away: *there is* nothing at all, beside this manna, *before* our eyes.  
-> <sup>7</sup> And the manna *was* as coriander seed, and the colour thereof as the colour of bdellium.  
-> <sup>8</sup> *And* the people went about, and gathered *it,* and ground *it* in mills, or beat *it* in a mortar, and baked *it* in pans, and made cakes of it: and the taste of it was as the taste of fresh oil.  
-> <sup>9</sup> And when the dew fell upon the camp in the night, the manna fell upon it.  
-> <sup>10</sup> Then Moses heard the people weep throughout their families, every man in the door of his tent: and the anger of the LORD was kindled greatly; Moses also was displeased.  
-> <sup>11</sup> And Moses said unto the LORD, Wherefore hast thou afflicted thy servant? and wherefore have I not found favour in thy sight, that thou layest the burden of all this people upon me?  
-> <sup>12</sup> Have I conceived all this people? have I begotten them, that thou shouldest say unto me, Carry them in thy bosom, as a nursing father beareth the sucking child, unto the land which thou swarest unto their fathers?  
-> <sup>13</sup> Whence should I have flesh to give unto all this people? for they weep unto me, saying, Give us flesh, that we may eat.  
-> <sup>14</sup> I am not able to bear all this people alone, because *it is* too heavy for me.  
-> <sup>15</sup> And if thou deal thus with me, kill me, I pray thee, out of hand, if I have found favour in thy sight; and let me not see my wretchedness.  
+> **⁴** And the mixt multitude that *was* among them fell a lusting: and the children of Israel also wept again, and said, Who shall give us flesh to eat?  
+> **⁵** We remember the fish, which we did eat in Egypt freely; the cucumbers, and the melons, and the leeks, and the onions, and the garlick:  
+> **⁶** But now our soul *is* dried away: *there is* nothing at all, beside this manna, *before* our eyes.  
+> **⁷** And the manna *was* as coriander seed, and the colour thereof as the colour of bdellium.  
+> **⁸** *And* the people went about, and gathered *it,* and ground *it* in mills, or beat *it* in a mortar, and baked *it* in pans, and made cakes of it: and the taste of it was as the taste of fresh oil.  
+> **⁹** And when the dew fell upon the camp in the night, the manna fell upon it.  
+> **¹⁰** Then Moses heard the people weep throughout their families, every man in the door of his tent: and the anger of the LORD was kindled greatly; Moses also was displeased.  
+> **¹¹** And Moses said unto the LORD, Wherefore hast thou afflicted thy servant? and wherefore have I not found favour in thy sight, that thou layest the burden of all this people upon me?  
+> **¹²** Have I conceived all this people? have I begotten them, that thou shouldest say unto me, Carry them in thy bosom, as a nursing father beareth the sucking child, unto the land which thou swarest unto their fathers?  
+> **¹³** Whence should I have flesh to give unto all this people? for they weep unto me, saying, Give us flesh, that we may eat.  
+> **¹⁴** I am not able to bear all this people alone, because *it is* too heavy for me.  
+> **¹⁵** And if thou deal thus with me, kill me, I pray thee, out of hand, if I have found favour in thy sight; and let me not see my wretchedness.  
 
 These verses represent things sadly unhinged and out of order in Israel, both the people and the prince uneasy.
 
@@ -49,14 +49,14 @@ II\. Moses himself, though so meek and good a man, is uneasy upon this occasion:
 
 ## Assistance Provided for Moses. (b. c. 1490.)
 
-> <sup>16</sup> And the LORD said unto Moses, Gather unto me seventy men of the elders of Israel, whom thou knowest to be the elders of the people, and officers over them; and bring them unto the tabernacle of the congregation, that they may stand there with thee.  
-> <sup>17</sup> And I will come down and talk with thee there: and I will take of the spirit which *is* upon thee, and will put *it* upon them; and they shall bear the burden of the people with thee, that thou bear *it* not thyself alone.  
-> <sup>18</sup> And say thou unto the people, Sanctify yourselves against to morrow, and ye shall eat flesh: for ye have wept in the ears of the LORD, saying, Who shall give us flesh to eat? for *it was* well with us in Egypt: therefore the LORD will give you flesh, and ye shall eat.  
-> <sup>19</sup> Ye shall not eat one day, nor two days, nor five days, neither ten days, nor twenty days;  
-> <sup>20</sup> *But* even a whole month, until it come out at your nostrils, and it be loathsome unto you: because that ye have despised the LORD which *is* among you, and have wept before him, saying, Why came we forth out of Egypt?  
-> <sup>21</sup> And Moses said, The people, among whom I *am,* *are* six hundred thousand footmen; and thou hast said, I will give them flesh, that they may eat a whole month.  
-> <sup>22</sup> Shall the flocks and the herds be slain for them, to suffice them? or shall all the fish of the sea be gathered together for them, to suffice them?  
-> <sup>23</sup> And the LORD said unto Moses, Is the LORD's hand waxed short? thou shalt see now whether my word shall come to pass unto thee or not.  
+> **¹⁶** And the LORD said unto Moses, Gather unto me seventy men of the elders of Israel, whom thou knowest to be the elders of the people, and officers over them; and bring them unto the tabernacle of the congregation, that they may stand there with thee.  
+> **¹⁷** And I will come down and talk with thee there: and I will take of the spirit which *is* upon thee, and will put *it* upon them; and they shall bear the burden of the people with thee, that thou bear *it* not thyself alone.  
+> **¹⁸** And say thou unto the people, Sanctify yourselves against to morrow, and ye shall eat flesh: for ye have wept in the ears of the LORD, saying, Who shall give us flesh to eat? for *it was* well with us in Egypt: therefore the LORD will give you flesh, and ye shall eat.  
+> **¹⁹** Ye shall not eat one day, nor two days, nor five days, neither ten days, nor twenty days;  
+> **²⁰** *But* even a whole month, until it come out at your nostrils, and it be loathsome unto you: because that ye have despised the LORD which *is* among you, and have wept before him, saying, Why came we forth out of Egypt?  
+> **²¹** And Moses said, The people, among whom I *am,* *are* six hundred thousand footmen; and thou hast said, I will give them flesh, that they may eat a whole month.  
+> **²²** Shall the flocks and the herds be slain for them, to suffice them? or shall all the fish of the sea be gathered together for them, to suffice them?  
+> **²³** And the LORD said unto Moses, Is the LORD's hand waxed short? thou shalt see now whether my word shall come to pass unto thee or not.  
 
 We have here God's gracious answer to both the foregoing complaints, wherein his goodness takes occasion from man's badness to appear so much the more illustrious.
 
@@ -76,13 +76,13 @@ II\. Even the humour of the discontented people shall be gratified too, that eve
 
 ## God Promises the People Flesh; The Case of Eldad and Medad. (b. c. 1490.)
 
-> <sup>24</sup> And Moses went out, and told the people the words of the LORD, and gathered the seventy men of the elders of the people, and set them round about the tabernacle.  
-> <sup>25</sup> And the LORD came down in a cloud, and spake unto him, and took of the spirit that *was* upon him, and gave *it* unto the seventy elders: and it came to pass, *that,* when the spirit rested upon them, they prophesied, and did not cease.  
-> <sup>26</sup> But there remained two *of the* men in the camp, the name of the one *was* Eldad, and the name of the other Medad: and the spirit rested upon them; and they *were* of them that were written, but went not out unto the tabernacle: and they prophesied in the camp.  
-> <sup>27</sup> And there ran a young man, and told Moses, and said, Eldad and Medad do prophesy in the camp.  
-> <sup>28</sup> And Joshua the son of Nun, the servant of Moses, *one* of his young men, answered and said, My lord Moses, forbid them.  
-> <sup>29</sup> And Moses said unto him, Enviest thou for my sake? would God that all the LORD's people were prophets, *and* that the LORD would put his spirit upon them!  
-> <sup>30</sup> And Moses gat him into the camp, he and the elders of Israel.  
+> **²⁴** And Moses went out, and told the people the words of the LORD, and gathered the seventy men of the elders of the people, and set them round about the tabernacle.  
+> **²⁵** And the LORD came down in a cloud, and spake unto him, and took of the spirit that *was* upon him, and gave *it* unto the seventy elders: and it came to pass, *that,* when the spirit rested upon them, they prophesied, and did not cease.  
+> **²⁶** But there remained two *of the* men in the camp, the name of the one *was* Eldad, and the name of the other Medad: and the spirit rested upon them; and they *were* of them that were written, but went not out unto the tabernacle: and they prophesied in the camp.  
+> **²⁷** And there ran a young man, and told Moses, and said, Eldad and Medad do prophesy in the camp.  
+> **²⁸** And Joshua the son of Nun, the servant of Moses, *one* of his young men, answered and said, My lord Moses, forbid them.  
+> **²⁹** And Moses said unto him, Enviest thou for my sake? would God that all the LORD's people were prophets, *and* that the LORD would put his spirit upon them!  
+> **³⁰** And Moses gat him into the camp, he and the elders of Israel.  
 
 We have here the performance of God's word to Moses, that he should have help in the government of Israel.
 
@@ -104,11 +104,11 @@ II\. Here is the particular case of two of them, *Eldad* and *Medad,* probably t
 
 ## The Quails. (b. c. 1490.)
 
-> <sup>31</sup> And there went forth a wind from the LORD, and brought quails from the sea, and let *them* fall by the camp, as it were a day's journey on this side, and as it were a day's journey on the other side, round about the camp, and as it were two cubits *high* upon the face of the earth.  
-> <sup>32</sup> And the people stood up all that day, and all *that* night, and all the next day, and they gathered the quails: he that gathered least gathered ten homers: and they spread *them* all abroad for themselves round about the camp.  
-> <sup>33</sup> And while the flesh *was* yet between their teeth, ere it was chewed, the wrath of the LORD was kindled against the people, and the LORD smote the people with a very great plague.  
-> <sup>34</sup> And he called the name of that place Kibroth-hattaavah: because there they buried the people that lusted.  
-> <sup>35</sup> *And* the people journeyed from Kibroth-hattaavah unto Hazeroth; and abode at Hazeroth.  
+> **³¹** And there went forth a wind from the LORD, and brought quails from the sea, and let *them* fall by the camp, as it were a day's journey on this side, and as it were a day's journey on the other side, round about the camp, and as it were two cubits *high* upon the face of the earth.  
+> **³²** And the people stood up all that day, and all *that* night, and all the next day, and they gathered the quails: he that gathered least gathered ten homers: and they spread *them* all abroad for themselves round about the camp.  
+> **³³** And while the flesh *was* yet between their teeth, ere it was chewed, the wrath of the LORD was kindled against the people, and the LORD smote the people with a very great plague.  
+> **³⁴** And he called the name of that place Kibroth-hattaavah: because there they buried the people that lusted.  
+> **³⁵** *And* the people journeyed from Kibroth-hattaavah unto Hazeroth; and abode at Hazeroth.  
 
 God, having performed his promise to Moses by giving him assessors in the government, thereby proving the power he has over the spirits of men by his Spirit, he here performs his promise to the people by giving them flesh, proving thereby his power over the inferior creatures and his dominion in the kingdom of nature. Observe, 1. How the people were gratified with flesh in abundance: *A wind* (a south-east wind, as appears, Ps 78:26) *brought quails,* Nu 11:31. It is uncertain what sort of animals they were; the psalmist calls them *feathered fowl,* or *fowl of wing.* The learned bishop Patrick inclines to agree with some modern writers, who think they were *locusts,* a delicious sort of food well known in those parts, the rather because they were brought with a wind, lay in heaps, and were dried in the sun for use. Whatever they were, they answered the intention, they served for a month's feast for Israel, such an indulgent Father was God to his froward family. Locusts, that had been a plague to fruitful Egypt, feeding upon the fruits, were a blessing to a barren wilderness, being themselves fed upon. 2. How greedy they were of this flesh that God sent them. They *flew upon the spoil* with an unsatiable appetite, not regarding what Moses had told them from God, that they would surfeit upon it, Nu 11:32. Two days and a night they were at it, gathering flesh, till every master of a family had brought home ten homers (that is, ten ass-loads) at least. David longed for the water of the well of Bethlehem, but would not drink it when he had it, because it was obtained by venturing; much more reason these Israelites had to refuse this flesh, which was obtained by murmuring, and which, they might easily perceive, by what Moses said, was given them in anger; but those that are under the power of a carnal mind will have their lusts fulfilled, though it be to the certain damage and ruin of their precious souls. 3. How dearly they paid for their feasts, when it came into the reckoning: *The Lord smote them with a very great plague* (Nu 11:33), some bodily disease, which probably was the effect of their surfeit, and was the death of many of them, and those, it is likely, the ringleaders in the mutiny. Note, God often grants the desires of his own people in love. He *gave them their request,* but *sent leanness into their soul,* Ps 16:15. By all that was said to them they *were not estranged from their lusts,* and therefore, *while the meat was in their mouths, the wrath of God came upon them,* Ps 78:30,31. What we inordinately desire, if we obtain it (we have reason to fear), will be some way or other a grief and cross to us. God satiated them first, and then plagued them, (1.) To save the reputation of his own power, that it might not be said, "He would not have cut them off had he been able to supply them." And, (2.) To show us the meaning of the prosperity of sinners; it is their preparation for ruin, they are fed as an ox for the slaughter. *Lastly,* The remembrance of this is preserved in the name given to the place, Nu 11:34. Moses called it *Kibroth-hattaavah,* the *graves of lusters* or *of lust.* And well it had been if these graves of Israel's lusters had proved the graves of Israel's lust: the warning was designed to be so, but it had not its due effect, for it follows (Ps 78:32), *For all this, they sinned still.*
 

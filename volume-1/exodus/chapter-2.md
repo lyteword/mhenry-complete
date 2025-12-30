@@ -8,10 +8,10 @@ This chapter begins the story of Moses, that man of renown, famed for his intima
 
 ## The Birth of Moses. (b. c. 1571.)
 
-> <sup>1</sup> And there went a man of the house of Levi, and took *to wife* a daughter of Levi.  
-> <sup>2</sup> And the woman conceived, and bare a son: and when she saw him that he *was a* goodly *child,* she hid him three months.  
-> <sup>3</sup> And when she could not longer hide him, she took for him an ark of bulrushes, and daubed it with slime and with pitch, and put the child therein; and she laid *it* in the flags by the river's brink.  
-> <sup>4</sup> And his sister stood afar off, to wit what would be done to him.  
+> **¹** And there went a man of the house of Levi, and took *to wife* a daughter of Levi.  
+> **²** And the woman conceived, and bare a son: and when she saw him that he *was a* goodly *child,* she hid him three months.  
+> **³** And when she could not longer hide him, she took for him an ark of bulrushes, and daubed it with slime and with pitch, and put the child therein; and she laid *it* in the flags by the river's brink.  
+> **⁴** And his sister stood afar off, to wit what would be done to him.  
 
 Moses was a Levite, both by father and mother. Jacob left Levi under marks of disgrace (Ge 49:5); and yet, soon after, Moses appears a descendant from him, that he might typify Christ, who came in the likeness of sinful flesh and was made a curse for us. This tribe began to be distinguished from the rest by the birth of Moses, as afterwards it became remarkable in many other instances. Observe, concerning this newborn infant,
 
@@ -21,12 +21,12 @@ II\. How he was exposed. At three months' end, probably when the searchers came 
 
 ## The Deliverance of Moses. (b. c. 1571.)
 
-> <sup>5</sup> And the daughter of Pharaoh came down to wash *herself* at the river; and her maidens walked along by the river's side; and when she saw the ark among the flags, she sent her maid to fetch it.  
-> <sup>6</sup> And when she had opened *it,* she saw the child: and, behold, the babe wept. And she had compassion on him, and said, This *is one* of the Hebrews' children.  
-> <sup>7</sup> Then said his sister to Pharaoh's daughter, Shall I go and call to thee a nurse of the Hebrew women, that she may nurse the child for thee?  
-> <sup>8</sup> And Pharaoh's daughter said to her, Go. And the maid went and called the child's mother.  
-> <sup>9</sup> And Pharaoh's daughter said unto her, Take this child away, and nurse it for me, and I will give *thee* thy wages. And the woman took the child, and nursed it.  
-> <sup>10</sup> And the child grew, and she brought him unto Pharaoh's daughter, and he became her son. And she called his name Moses: and she said, Because I drew him out of the water.  
+> **⁵** And the daughter of Pharaoh came down to wash *herself* at the river; and her maidens walked along by the river's side; and when she saw the ark among the flags, she sent her maid to fetch it.  
+> **⁶** And when she had opened *it,* she saw the child: and, behold, the babe wept. And she had compassion on him, and said, This *is one* of the Hebrews' children.  
+> **⁷** Then said his sister to Pharaoh's daughter, Shall I go and call to thee a nurse of the Hebrew women, that she may nurse the child for thee?  
+> **⁸** And Pharaoh's daughter said to her, Go. And the maid went and called the child's mother.  
+> **⁹** And Pharaoh's daughter said unto her, Take this child away, and nurse it for me, and I will give *thee* thy wages. And the woman took the child, and nursed it.  
+> **¹⁰** And the child grew, and she brought him unto Pharaoh's daughter, and he became her son. And she called his name Moses: and she said, Because I drew him out of the water.  
 
 Here is, I. Moses saved from perishing. Come see the place where that great man lay when he was a little child; he lay in a bulrush-basket by the river's side. Had he been left to lie there, he must have perished in a little time with hunger, if he had not been sooner washed into the river or devoured by a crocodile. Had he fallen into any other hands than those he did fall into, either they would not, or durst not, have done otherwise than have thrown him straightway into the river; but Providence brings no less a person thither than Pharaoh's daughter, just at that juncture, guides her to the place where this poor forlorn infant lay, and inclines her heart to pity it, which she dares do when none else durst. Never did poor child cry so seasonably, so happily, as this did: *The babe wept,* which moved the compassion of the princess, as no doubt his beauty did, Ex 2:5,6. Note, 1. Those are hard-hearted indeed that have not a tender compassion for helpless infancy. How pathetically does God represent his compassion for the Israelites in general considered in this pitiable state! Eze 16:5,6. 2. It is very commendable in persons of quality to take cognizance of the distresses of the meanest, and to be helpful and charitable to them. 3. God's care of us in our infancy ought to be often made mention of by us to his praise. Though we were not thus exposed (that we were not was God's mercy) yet many were the perils we were surrounded with in our infancy, out of which the Lord delivered us, Ps 22:9,10. 4. God often raises up friends for his people even among their enemies. Pharaoh cruelly seeks Israel's destruction, but his own daughter charitably compassionates a Hebrew child, and not only so, but, beyond her intention, preserves Israel's deliverer. *O Lord, how wonderful are thy counsels!*
 
@@ -38,11 +38,11 @@ IV\. Moses named. The Jews tell us that his father, at his circumcision, called 
 
 ## Moses Slays an Egyptian; Rebukes a Contentious Hebrew. (b. c. 1533.)
 
-> <sup>11</sup> And it came to pass in those days, when Moses was grown, that he went out unto his brethren, and looked on their burdens: and he spied an Egyptian smiting an Hebrew, one of his brethren.  
-> <sup>12</sup> And he looked this way and that way, and when he saw that *there was* no man, he slew the Egyptian, and hid him in the sand.  
-> <sup>13</sup> And when he went out the second day, behold, two men of the Hebrews strove together: and he said to him that did the wrong, Wherefore smitest thou thy fellow?  
-> <sup>14</sup> And he said, Who made thee a prince and a judge over us? intendest thou to kill me, as thou killedst the Egyptian? And Moses feared, and said, Surely this thing is known.  
-> <sup>15</sup> Now when Pharaoh heard this thing, he sought to slay Moses. But Moses fled from the face of Pharaoh, and dwelt in the land of Midian: and he sat down by a well.  
+> **¹¹** And it came to pass in those days, when Moses was grown, that he went out unto his brethren, and looked on their burdens: and he spied an Egyptian smiting an Hebrew, one of his brethren.  
+> **¹²** And he looked this way and that way, and when he saw that *there was* no man, he slew the Egyptian, and hid him in the sand.  
+> **¹³** And when he went out the second day, behold, two men of the Hebrews strove together: and he said to him that did the wrong, Wherefore smitest thou thy fellow?  
+> **¹⁴** And he said, Who made thee a prince and a judge over us? intendest thou to kill me, as thou killedst the Egyptian? And Moses feared, and said, Surely this thing is known.  
+> **¹⁵** Now when Pharaoh heard this thing, he sought to slay Moses. But Moses fled from the face of Pharaoh, and dwelt in the land of Midian: and he sat down by a well.  
 
 Moses had now passed the first forty years of his life in the court of Pharaoh, preparing himself for business; and now it was time for him to enter upon action, and,
 
@@ -64,13 +64,13 @@ II\. He gives a specimen of the great things he was afterwards to do for God and
 
 ## The Marriage of Moses. (b. c. 1533.)
 
-> <sup>16</sup> Now the priest of Midian had seven daughters: and they came and drew *water,* and filled the troughs to water their father's flock.  
-> <sup>17</sup> And the shepherds came and drove them away: but Moses stood up and helped them, and watered their flock.  
-> <sup>18</sup> And when they came to Reuel their father, he said, How *is it that* ye are come so soon to day?  
-> <sup>19</sup> And they said, An Egyptian delivered us out of the hand of the shepherds, and also drew *water* enough for us, and watered the flock.  
-> <sup>20</sup> And he said unto his daughters, And where *is* he? why *is* it *that* ye have left the man? call him, that he may eat bread.  
-> <sup>21</sup> And Moses was content to dwell with the man: and he gave Moses Zipporah his daughter.  
-> <sup>22</sup> And she bare *him* a son, and he called his name Gershom: for he said, I have been a stranger in a strange land.  
+> **¹⁶** Now the priest of Midian had seven daughters: and they came and drew *water,* and filled the troughs to water their father's flock.  
+> **¹⁷** And the shepherds came and drove them away: but Moses stood up and helped them, and watered their flock.  
+> **¹⁸** And when they came to Reuel their father, he said, How *is it that* ye are come so soon to day?  
+> **¹⁹** And they said, An Egyptian delivered us out of the hand of the shepherds, and also drew *water* enough for us, and watered the flock.  
+> **²⁰** And he said unto his daughters, And where *is* he? why *is* it *that* ye have left the man? call him, that he may eat bread.  
+> **²¹** And Moses was content to dwell with the man: and he gave Moses Zipporah his daughter.  
+> **²²** And she bare *him* a son, and he called his name Gershom: for he said, I have been a stranger in a strange land.  
 
 Moses here gains a settlement in Midian, just as his father Jacob had gained one in Syria, Ge 29:2, etc. And both these instances should encourage us to trust Providence, and to follow it. Events that seem inconsiderable, and purely accidental, after wards appear to have been designed by the wisdom of God for very good purposes, and of great consequence to his people. A casual transient occurrence has sometimes occasioned the greatest and happiest turns of a man's life. Observe,
 
@@ -80,9 +80,9 @@ II\. Concerning Moses. He was taken for an Egyptian (Ex 2:19); and strangers mus
 
 ## Cry of the Oppressed Israelites. (b. c. 1491.)
 
-> <sup>23</sup> And it came to pass in process of time, that the king of Egypt died: and the children of Israel sighed by reason of the bondage, and they cried, and their cry came up unto God by reason of the bondage.  
-> <sup>24</sup> And God heard their groaning, and God remembered his covenant with Abraham, with Isaac, and with Jacob.  
-> <sup>25</sup> And God looked upon the children of Israel, and God had respect unto *them.*  
+> **²³** And it came to pass in process of time, that the king of Egypt died: and the children of Israel sighed by reason of the bondage, and they cried, and their cry came up unto God by reason of the bondage.  
+> **²⁴** And God heard their groaning, and God remembered his covenant with Abraham, with Isaac, and with Jacob.  
+> **²⁵** And God looked upon the children of Israel, and God had respect unto *them.*  
 
 Here is, 1. The continuance of the Israelites' bondage in Egypt, Ex 2:23. Probably the murdering of their infants did not continue; this part of their affliction attended only the period immediately connected with the birth of Moses, and served to signalize it. The Egyptians now were content with their increase, finding that Egypt was enriched by their labour; so that they might have them for slaves, they cared not how many they were. On this therefore they were intent, to keep them all at work, and make the best hand they could of their labour. When one Pharaoh died, another rose up in his place that was governed by the same maxims, and was as cruel to Israel as his predecessors. If there was sometimes a little relaxation, yet it presently revived again with as much rigour as ever; and probably, as the more Israel were oppressed the more they multiplied, so the more they multiplied the more they were oppressed. Note, Sometimes God suffers the rod of the wicked to lie very long and very heavily on the lot of the righteous. If Moses, in Midian, at any time began to think how much better his condition might have been had he staid among the courtiers, he must of himself think this also, how much worse it would have been if he had had his lot with brethren: it was a great degradation to him to be keeping sheep in Midian, but better so than making brick in Egypt. The consideration of our brethren's afflictions would help to reconcile us to our own. 2. The preface to their deliverance at last. (1.) *They cried,* Ex 2:23. Now, at last, they began to think of God under their troubles, and to return to him from the idols they had served, Eze 20:8. Hitherto they had fretted at the instruments of their trouble, but God was not in all their thoughts. Thus *hypocrites in heart heap up wrath; they cry not when he binds them,* Job 36:13. But before God unbound them he put it into their hearts to cry unto him, as it is explained, Nu 20:16. Note, It is a good sign that God is coming towards us with deliverance when he inclines and enables us to cry to him for it. (2.) *God heard,* Ex 2:24,25. The name of God is here emphatically prefixed to four different expressions of a kind intention towards them. [1.] *God heard their groaning;* that is, he made it to appear that he took notice of their complaints. The groans of the oppressed cry aloud in the ears of the righteous God, to whom vengeance belongs, especially the groans of God's spiritual Israel; he knows the burdens they groan under and the blessings they groan after, and that the blessed Spirit, by these groanings, makes intercession in them. [2.] *God remembered his covenant,* which he seemed to have forgotten, but of which he is ever mindful. This God had an eye to, and not to any merit of theirs, in what he did for them. See Le 26:42. (3.) *God looked upon the children of Israel.* Moses looked upon them and pitied them (Ex 2:11); but now God looked upon them and helped them. (4.) *God had a respect unto them,* a favourable respect to them as his own. The frequent repetition of the name of God here intimates that now we are to expect something great, *Opus Deo dignum—A work worthy of God.* His eyes, which run to and fro through the earth, are now fixed upon Israel, to show himself strong, to show himself a God in their behalf.
 

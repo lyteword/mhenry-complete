@@ -8,26 +8,26 @@ This chapter gives an account of one of the most memorable ordinances, and one o
 
 ## The Appointment of the Passover; the Feast of Unleavened Bread. (b. c. 1491.)
 
-> <sup>1</sup> And the LORD spake unto Moses and Aaron in the land of Egypt, saying,  
-> <sup>2</sup> This month *shall be* unto you the beginning of months: it *shall be* the first month of the year to you.  
-> <sup>3</sup> Speak ye unto all the congregation of Israel, saying, In the tenth *day* of this month they shall take to them every man a lamb, according to the house of *their* fathers, a lamb for an house:  
-> <sup>4</sup> And if the household be too little for the lamb, let him and his neighbour next unto his house take *it* according to the number of the souls; every man according to his eating shall make your count for the lamb.  
-> <sup>5</sup> Your lamb shall be without blemish, a male of the first year: ye shall take *it* out from the sheep, or from the goats:  
-> <sup>6</sup> And ye shall keep it up until the fourteenth day of the same month: and the whole assembly of the congregation of Israel shall kill it in the evening.  
-> <sup>7</sup> And they shall take of the blood, and strike *it* on the two side posts and on the upper door post of the houses, wherein they shall eat it.  
-> <sup>8</sup> And they shall eat the flesh in that night, roast with fire, and unleavened bread; *and* with bitter *herbs* they shall eat it.  
-> <sup>9</sup> Eat not of it raw, nor sodden at all with water, but roast *with* fire; his head with his legs, and with the purtenance thereof.  
-> <sup>10</sup> And ye shall let nothing of it remain until the morning; and that which remaineth of it until the morning ye shall burn with fire.  
-> <sup>11</sup> And thus shall ye eat it; *with* your loins girded, your shoes on your feet, and your staff in your hand; and ye shall eat it in haste: it *is* the LORD's passover.  
-> <sup>12</sup> For I will pass through the land of Egypt this night, and will smite all the firstborn in the land of Egypt, both man and beast; and against all the gods of Egypt I will execute judgment: I *am* the LORD.  
-> <sup>13</sup> And the blood shall be to you for a token upon the houses where ye *are:* and when I see the blood, I will pass over you, and the plague shall not be upon you to destroy *you,* when I smite the land of Egypt.  
-> <sup>14</sup> And this day shall be unto you for a memorial; and ye shall keep it a feast to the LORD throughout your generations; ye shall keep it a feast by an ordinance for ever.  
-> <sup>15</sup> Seven days shall ye eat unleavened bread; even the first day ye shall put away leaven out of your houses: for whosoever eateth leavened bread from the first day until the seventh day, that soul shall be cut off from Israel.  
-> <sup>16</sup> And in the first day *there shall be* an holy convocation, and in the seventh day there shall be an holy convocation to you; no manner of work shall be done in them, save *that* which every man must eat, that only may be done of you.  
-> <sup>17</sup> And ye shall observe *the feast of* unleavened bread; for in this selfsame day have I brought your armies out of the land of Egypt: therefore shall ye observe this day in your generations by an ordinance for ever.  
-> <sup>18</sup> In the first *month,* on the fourteenth day of the month at even, ye shall eat unleavened bread, until the one and twentieth day of the month at even.  
-> <sup>19</sup> Seven days shall there be no leaven found in your houses: for whosoever eateth that which is leavened, even that soul shall be cut off from the congregation of Israel, whether he be a stranger, or born in the land.  
-> <sup>20</sup> Ye shall eat nothing leavened; in all your habitations shall ye eat unleavened bread.  
+> **¹** And the LORD spake unto Moses and Aaron in the land of Egypt, saying,  
+> **²** This month *shall be* unto you the beginning of months: it *shall be* the first month of the year to you.  
+> **³** Speak ye unto all the congregation of Israel, saying, In the tenth *day* of this month they shall take to them every man a lamb, according to the house of *their* fathers, a lamb for an house:  
+> **⁴** And if the household be too little for the lamb, let him and his neighbour next unto his house take *it* according to the number of the souls; every man according to his eating shall make your count for the lamb.  
+> **⁵** Your lamb shall be without blemish, a male of the first year: ye shall take *it* out from the sheep, or from the goats:  
+> **⁶** And ye shall keep it up until the fourteenth day of the same month: and the whole assembly of the congregation of Israel shall kill it in the evening.  
+> **⁷** And they shall take of the blood, and strike *it* on the two side posts and on the upper door post of the houses, wherein they shall eat it.  
+> **⁸** And they shall eat the flesh in that night, roast with fire, and unleavened bread; *and* with bitter *herbs* they shall eat it.  
+> **⁹** Eat not of it raw, nor sodden at all with water, but roast *with* fire; his head with his legs, and with the purtenance thereof.  
+> **¹⁰** And ye shall let nothing of it remain until the morning; and that which remaineth of it until the morning ye shall burn with fire.  
+> **¹¹** And thus shall ye eat it; *with* your loins girded, your shoes on your feet, and your staff in your hand; and ye shall eat it in haste: it *is* the LORD's passover.  
+> **¹²** For I will pass through the land of Egypt this night, and will smite all the firstborn in the land of Egypt, both man and beast; and against all the gods of Egypt I will execute judgment: I *am* the LORD.  
+> **¹³** And the blood shall be to you for a token upon the houses where ye *are:* and when I see the blood, I will pass over you, and the plague shall not be upon you to destroy *you,* when I smite the land of Egypt.  
+> **¹⁴** And this day shall be unto you for a memorial; and ye shall keep it a feast to the LORD throughout your generations; ye shall keep it a feast by an ordinance for ever.  
+> **¹⁵** Seven days shall ye eat unleavened bread; even the first day ye shall put away leaven out of your houses: for whosoever eateth leavened bread from the first day until the seventh day, that soul shall be cut off from Israel.  
+> **¹⁶** And in the first day *there shall be* an holy convocation, and in the seventh day there shall be an holy convocation to you; no manner of work shall be done in them, save *that* which every man must eat, that only may be done of you.  
+> **¹⁷** And ye shall observe *the feast of* unleavened bread; for in this selfsame day have I brought your armies out of the land of Egypt: therefore shall ye observe this day in your generations by an ordinance for ever.  
+> **¹⁸** In the first *month,* on the fourteenth day of the month at even, ye shall eat unleavened bread, until the one and twentieth day of the month at even.  
+> **¹⁹** Seven days shall there be no leaven found in your houses: for whosoever eateth that which is leavened, even that soul shall be cut off from the congregation of Israel, whether he be a stranger, or born in the land.  
+> **²⁰** Ye shall eat nothing leavened; in all your habitations shall ye eat unleavened bread.  
 
 Moses and Aaron here *receive of the Lord* what they were afterwards to *deliver to the people* concerning the ordinance of the passover, to which is prefixed an order for a new style to be observed in their months (Ex 12:1,2): *This shall be to you the beginning of months.* They had hitherto begun their year from the middle of September, but henceforward they were to begin it from the middle of March, at least in all their ecclesiastical computations. Note, It is good to begin the day, and begin the year, and especially to begin our lives, with God. This new calculation began the year with the spring, which *reneweth the face of the earth,* and was used as a figure of the coming of Christ, So 2:11,12. We may suppose that, while Moses was bringing the ten plagues upon the Egyptians, he was directing the Israelites to prepare for their departure at an hour's warning. Probably he had by degrees brought them near together from their dispersions, for they are here called *the congregation of Israel* (Ex 12:3), and to them as a congregation orders are here sent. Their amazement and hurry, it is easy to suppose, were great; yet now they must apply themselves to the observance of a sacred rite, to the honour of God. Note, When our heads are fullest of care, and our hands of business, yet we must not forget our religion, nor suffer ourselves to be indisposed for acts of devotion.
 
@@ -49,14 +49,14 @@ IV\. This was to be annually observed as a feast of the Lord in their generation
 
 ## The Passover. (b. c. 1491.)
 
-> <sup>21</sup> Then Moses called for all the elders of Israel, and said unto them, Draw out and take you a lamb according to your families, and kill the passover.  
-> <sup>22</sup> And ye shall take a bunch of hyssop, and dip *it* in the blood that *is* in the bason, and strike the lintel and the two side posts with the blood that *is* in the bason; and none of you shall go out at the door of his house until the morning.  
-> <sup>23</sup> For the LORD will pass through to smite the Egyptians; and when he seeth the blood upon the lintel, and on the two side posts, the LORD will pass over the door, and will not suffer the destroyer to come in unto your houses to smite *you.*  
-> <sup>24</sup> And ye shall observe this thing for an ordinance to thee and to thy sons for ever.  
-> <sup>25</sup> And it shall come to pass, when ye be come to the land which the LORD will give you, according as he hath promised, that ye shall keep this service.  
-> <sup>26</sup> And it shall come to pass, when your children shall say unto you, What mean ye by this service?  
-> <sup>27</sup> That ye shall say, It *is* the sacrifice of the LORD's passover, who passed over the houses of the children of Israel in Egypt, when he smote the Egyptians, and delivered our houses. And the people bowed the head and worshipped.  
-> <sup>28</sup> And the children of Israel went away, and did as the LORD had commanded Moses and Aaron, so did they.  
+> **²¹** Then Moses called for all the elders of Israel, and said unto them, Draw out and take you a lamb according to your families, and kill the passover.  
+> **²²** And ye shall take a bunch of hyssop, and dip *it* in the blood that *is* in the bason, and strike the lintel and the two side posts with the blood that *is* in the bason; and none of you shall go out at the door of his house until the morning.  
+> **²³** For the LORD will pass through to smite the Egyptians; and when he seeth the blood upon the lintel, and on the two side posts, the LORD will pass over the door, and will not suffer the destroyer to come in unto your houses to smite *you.*  
+> **²⁴** And ye shall observe this thing for an ordinance to thee and to thy sons for ever.  
+> **²⁵** And it shall come to pass, when ye be come to the land which the LORD will give you, according as he hath promised, that ye shall keep this service.  
+> **²⁶** And it shall come to pass, when your children shall say unto you, What mean ye by this service?  
+> **²⁷** That ye shall say, It *is* the sacrifice of the LORD's passover, who passed over the houses of the children of Israel in Egypt, when he smote the Egyptians, and delivered our houses. And the people bowed the head and worshipped.  
+> **²⁸** And the children of Israel went away, and did as the LORD had commanded Moses and Aaron, so did they.  
 
 I\. Moses is here, as a faithful steward in God's house, teaching the children of Israel to *observe all things which God had commanded him;* and no doubt he gave the instructions as largely as he received them, though they are not so largely recorded. It is here added,
 
@@ -72,14 +72,14 @@ II\. The people received these instructions with reverence and ready obedience. 
 
 ## The Death of the Firstborn. (b. c. 1491.)
 
-> <sup>29</sup> And it came to pass, that at midnight the LORD smote all the firstborn in the land of Egypt, from the firstborn of Pharaoh that sat on his throne unto the firstborn of the captive that *was* in the dungeon; and all the firstborn of cattle.  
-> <sup>30</sup> And Pharaoh rose up in the night, he, and all his servants, and all the Egyptians; and there was a great cry in Egypt; for *there was* not a house where *there was* not one dead.  
-> <sup>31</sup> And he called for Moses and Aaron by night, and said, Rise up, *and* get you forth from among my people, both ye and the children of Israel; and go, serve the LORD, as ye have said.  
-> <sup>32</sup> Also take your flocks and your herds, as ye have said, and be gone; and bless me also.  
-> <sup>33</sup> And the Egyptians were urgent upon the people, that they might send them out of the land in haste; for they said, We *be* all dead *men.*  
-> <sup>34</sup> And the people took their dough before it was leavened, their kneadingtroughs being bound up in their clothes upon their shoulders.  
-> <sup>35</sup> And the children of Israel did according to the word of Moses; and they borrowed of the Egyptians jewels of silver, and jewels of gold, and raiment:  
-> <sup>36</sup> And the LORD gave the people favour in the sight of the Egyptians, so that they lent unto them *such things as they required.* And they spoiled the Egyptians.  
+> **²⁹** And it came to pass, that at midnight the LORD smote all the firstborn in the land of Egypt, from the firstborn of Pharaoh that sat on his throne unto the firstborn of the captive that *was* in the dungeon; and all the firstborn of cattle.  
+> **³⁰** And Pharaoh rose up in the night, he, and all his servants, and all the Egyptians; and there was a great cry in Egypt; for *there was* not a house where *there was* not one dead.  
+> **³¹** And he called for Moses and Aaron by night, and said, Rise up, *and* get you forth from among my people, both ye and the children of Israel; and go, serve the LORD, as ye have said.  
+> **³²** Also take your flocks and your herds, as ye have said, and be gone; and bless me also.  
+> **³³** And the Egyptians were urgent upon the people, that they might send them out of the land in haste; for they said, We *be* all dead *men.*  
+> **³⁴** And the people took their dough before it was leavened, their kneadingtroughs being bound up in their clothes upon their shoulders.  
+> **³⁵** And the children of Israel did according to the word of Moses; and they borrowed of the Egyptians jewels of silver, and jewels of gold, and raiment:  
+> **³⁶** And the LORD gave the people favour in the sight of the Egyptians, so that they lent unto them *such things as they required.* And they spoiled the Egyptians.  
 
 Here we have, I. The Egyptians' sons, even their first-born, slain, Ex 12:29,30. If Pharaoh would have taken the warning which was given him of this plague, and would thereupon have released Israel, what a great many dear and valuable lives might have been preserved! But see what obstinate infidelity brings upon men. Observe, 1. The time when this blow was given: It was *at midnight,* which added to the terror of it. The three preceding nights were made dreadful by the additional plague of darkness, which might be felt, and doubtless disturbed their repose; and now, when they hoped for one quiet night's rest, at midnight was the alarm given. When the destroying angel drew his sword against Jerusalem, it was in the day-time (2Sa 24:15), which made it the less frightful; but the destruction of Egypt was by a *pestilence walking in darkness,* Ps 91:6. Shortly there will be an alarming cry at midnight, *Behold, the bridegroom cometh.* 2. On whom the plague fastened—on *their first-born,* the joy and hope of their respective families. They had slain the Hebrews' children, and now God slew theirs. Thus he visits the iniquity of the fathers upon the children; and he is *not unrighteous who taketh vengeance.* 3. How far it reached—from the throne to the dungeon. Prince and peasant stand upon the same level before God's judgments, for there is no respect of persons with him; see Job 34:19,20. Now the *slain of the Lord were many; multitudes, multitudes,* fall in this *valley of decision,* when the controversy between God and Pharaoh was to be determined. 4. What an outcry was made upon it: *There was a great cry in Egypt,* universal lamentation for their *only* son (with many), and with all for their *first-born.* If any be suddenly taken ill in the night, we are wont to call up neighbours; but the Egyptians could have no help, no comfort, from their neighbours, all being involved in the same calamity. Let us learn hence, (1.) To tremble before God, and to be *afraid of his judgments,* Ps 119:120. Who is able to stand before him, or dares resist him? (2.) To be thankful to God for the daily preservation of ourselves and our families: lying so much exposed, we have reason to say, "It is of the Lord's mercies that we are not consumed."
 
@@ -87,26 +87,26 @@ II\. God's sons, even his first-born, released; this judgment conquered Pharaoh,
 
 ## Departure of the Israelites. (b. c. 1491.)
 
-> <sup>37</sup> And the children of Israel journeyed from Rameses to Succoth, about six hundred thousand on foot *that were* men, beside children.  
-> <sup>38</sup> And a mixed multitude went up also with them; and flocks, and herds, *even* very much cattle.  
-> <sup>39</sup> And they baked unleavened cakes of the dough which they brought forth out of Egypt, for it was not leavened; because they were thrust out of Egypt, and could not tarry, neither had they prepared for themselves any victual.  
-> <sup>40</sup> Now the sojourning of the children of Israel, who dwelt in Egypt, *was* four hundred and thirty years.  
-> <sup>41</sup> And it came to pass at the end of the four hundred and thirty years, even the selfsame day it came to pass, that all the hosts of the LORD went out from the land of Egypt.  
-> <sup>42</sup> It *is* a night to be much observed unto the LORD for bringing them out from the land of Egypt: this *is* that night of the LORD to be observed of all the children of Israel in their generations.  
+> **³⁷** And the children of Israel journeyed from Rameses to Succoth, about six hundred thousand on foot *that were* men, beside children.  
+> **³⁸** And a mixed multitude went up also with them; and flocks, and herds, *even* very much cattle.  
+> **³⁹** And they baked unleavened cakes of the dough which they brought forth out of Egypt, for it was not leavened; because they were thrust out of Egypt, and could not tarry, neither had they prepared for themselves any victual.  
+> **⁴⁰** Now the sojourning of the children of Israel, who dwelt in Egypt, *was* four hundred and thirty years.  
+> **⁴¹** And it came to pass at the end of the four hundred and thirty years, even the selfsame day it came to pass, that all the hosts of the LORD went out from the land of Egypt.  
+> **⁴²** It *is* a night to be much observed unto the LORD for bringing them out from the land of Egypt: this *is* that night of the LORD to be observed of all the children of Israel in their generations.  
 
 Here is the departure of the children of Israel out of Egypt; having obtained their dismission, they set forward without delay, and did not defer to a more convenient season. Pharaoh was now in a good mind; but they had reason to think he would not long continue so, and therefore it was no time to linger. We have here an account, 1. Of their number, about 600,000 men (Ex 12:37), besides women and children, which I think, we cannot suppose to make less than 1,200,000 more. What a vast increase was this, to arise from seventy souls in little more than 200 years' time! See the power and efficacy of that blessing, when God commands it, *Be fruitful and multiply.* This was typical of the multitudes that were brought into the gospel church when it was first founded; *so mightily grew the word of God, and prevailed.* 2. Of their retinue (Ex 12:38): *A mixed multitude went up with them,* hangers on to that great family, some perhaps willing to leave their country, because it was laid waste by the plagues, and to seek their fortune, as we say, with the Israelites; others went out of curiosity, to see the solemnities of Israel's sacrifice to their God, which had been so much talked of, and expecting to see some glorious appearances of their God to them in the wilderness, having seen such glorious appearances of their God for them in the field of Zoan, Ps 78:12. Probably the greatest part of this mixed multitude were but a rude unthinking mob, that followed the crowd they knew not why; we afterwards find that they proved a snare to them (Nu 11:4), and it is probable that when, soon afterwards, they understood that the children of Israel were to continue forty years in the wilderness, they quitted them, and returned to Egypt. Note, There were always those among the Israelites that were not Israelites, and there are still hypocrites in the church, who make a deal of mischief, but will be shaken off at last. 3. Of their effects. They had with them *flocks and herds,* even *very much cattle.* This is taken notice of because it was long before Pharaoh would give them leave to remove their effects, which were chiefly cattle, Ge 46:32. 4. Of the provision made for the camp, which was very poor and slender. They brought some dough with them out of Egypt in their knapsacks, Ex 12:34. They had prepared to bake, the next day, in order to their removal, understanding it was very near; but, being hastened away sooner than they thought of, by some hours, they took the dough as it was, unleavened; when they came to Succoth, their first stage, they baked unleavened cakes, and, though these were of course insipid, yet the liberty they were brought into made this the most joyful meal they had ever eaten in their lives. Note, The servants of God must not be slaves to their appetites, nor solicitous to wind up all the delights of sense to their highest pitch. We should be willing to take up with dry bread, nay, with unleavened bread, rather than neglect or delay any service we have to do for God, as those whose meat and drink it is to do his will. 5. Of the date of this great event: it was just 430 years from the promise made to Abraham (as the apostle explains it, Ga 3:17) at his first coming into Canaan, during all which time *the children of Israel,* that is, the Hebrews, the distinguished chosen seed, were sojourners in a land that was not theirs, either Canaan or Egypt. So long the promise God made to Abraham of a settlement lay dormant and unfulfilled, but now, at length, it revived, and things began to work towards the accomplishment of it. The first day of the march of Abraham's seed towards Canaan was just 430 years (it should seem to a day) from the promise made to Abraham, Ge 12:2, *I will make of thee a great nation.* See how punctual God is to his time; though his promises be not performed quickly, they will be accomplished in their season. 6. Of the memorableness of it: *It is a night to be much observed,* Ex 12:42. (1.) The providences of that first night were very observable; memorable was the destruction of the Egyptians, and the deliverance of the Israelites by it; God herein made himself taken notice of. (2.) The ordinances of that night, in the annual return of it, were to be carefully observed: *This is that night of the Lord,* that remarkable night, to be celebrated in all generations. Note, The great things God does for his people are not to be a nine days' wonder, as we say, but the remembrance of them is to be perpetuated throughout all ages, especially the work of our redemption by Christ. This first passover-night was a night of the Lord *much to be observed;* but the last passover-night, in which Christ was betrayed (and in which the passover, with the rest of the ceremonial institutions, was superseded and abolished), was a night of the Lord *much more to be observed,* when a yoke heavier than that of Egypt was broken from off our necks, and a land better than that of Canaan set before us. That was a temporal deliverance to be celebrated *in their generation;* this is an eternal redemption to be celebrated in the praises of glorious saints, *world without end.*
 
 ## Directions Concerning the Passover. (b. c. 1491.)
 
-> <sup>43</sup> And the LORD said unto Moses and Aaron, This *is* the ordinance of the passover: There shall no stranger eat thereof:  
-> <sup>44</sup> But every man's servant that is bought for money, when thou hast circumcised him, then shall he eat thereof.  
-> <sup>45</sup> A foreigner and an hired servant shall not eat thereof.  
-> <sup>46</sup> In one house shall it be eaten; thou shalt not carry forth ought of the flesh abroad out of the house; neither shall ye break a bone thereof.  
-> <sup>47</sup> All the congregation of Israel shall keep it.  
-> <sup>48</sup> And when a stranger shall sojourn with thee, and will keep the passover to the LORD, let all his males be circumcised, and then let him come near and keep it; and he shall be as one that is born in the land: for no uncircumcised person shall eat thereof.  
-> <sup>49</sup> One law shall be to him that is homeborn, and unto the stranger that sojourneth among you.  
-> <sup>50</sup> Thus did all the children of Israel; as the LORD commanded Moses and Aaron, so did they.  
-> <sup>51</sup> And it came to pass the selfsame day, *that* the LORD did bring the children of Israel out of the land of Egypt by their armies.  
+> **⁴³** And the LORD said unto Moses and Aaron, This *is* the ordinance of the passover: There shall no stranger eat thereof:  
+> **⁴⁴** But every man's servant that is bought for money, when thou hast circumcised him, then shall he eat thereof.  
+> **⁴⁵** A foreigner and an hired servant shall not eat thereof.  
+> **⁴⁶** In one house shall it be eaten; thou shalt not carry forth ought of the flesh abroad out of the house; neither shall ye break a bone thereof.  
+> **⁴⁷** All the congregation of Israel shall keep it.  
+> **⁴⁸** And when a stranger shall sojourn with thee, and will keep the passover to the LORD, let all his males be circumcised, and then let him come near and keep it; and he shall be as one that is born in the land: for no uncircumcised person shall eat thereof.  
+> **⁴⁹** One law shall be to him that is homeborn, and unto the stranger that sojourneth among you.  
+> **⁵⁰** Thus did all the children of Israel; as the LORD commanded Moses and Aaron, so did they.  
+> **⁵¹** And it came to pass the selfsame day, *that* the LORD did bring the children of Israel out of the land of Egypt by their armies.  
 
 Some further precepts are here given concerning the passover, as it should be observed in times to come.
 

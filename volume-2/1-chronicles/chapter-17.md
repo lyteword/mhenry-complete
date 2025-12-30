@@ -8,21 +8,21 @@ This excellent chapter is the same with 2Sa 7:1-29 It will be worth while to loo
 
 ## God's Promise to David. (b. c. 1042.)
 
-> <sup>1</sup> Now it came to pass, as David sat in his house, that David said to Nathan the prophet, Lo, I dwell in a house of cedars, but the ark of the covenant of the LORD *remaineth* under curtains.  
-> <sup>2</sup> Then Nathan said unto David, Do all that *is* in thine heart; for God *is* with thee.  
-> <sup>3</sup> And it came to pass the same night, that the word of God came to Nathan, saying,  
-> <sup>4</sup> Go and tell David my servant, Thus saith the LORD, Thou shalt not build me a house to dwell in:  
-> <sup>5</sup> For I have not dwelt in a house since the day that I brought up Israel unto this day; but have gone from tent to tent, and from *one* tabernacle *to another.*  
-> <sup>6</sup> Wheresoever I have walked with all Israel, spake I a word to any of the judges of Israel, whom I commanded to feed my people, saying, Why have ye not built me a house of cedars?  
-> <sup>7</sup> Now therefore thus shalt thou say unto my servant David, Thus saith the LORD of hosts, I took thee from the sheepcote, *even* from following the sheep, that thou shouldest be ruler over my people Israel:  
-> <sup>8</sup> And I have been with thee whithersoever thou hast walked, and have cut off all thine enemies from before thee, and have made thee a name like the name of the great men that *are* in the earth.  
-> <sup>9</sup> Also I will ordain a place for my people Israel, and will plant them, and they shall dwell in their place, and shall be moved no more; neither shall the children of wickedness waste them any more, as at the beginning,  
-> <sup>10</sup> And since the time that I commanded judges *to be* over my people Israel. Moreover I will subdue all thine enemies. Furthermore I tell thee that the LORD will build thee a house.  
-> <sup>11</sup> And it shall come to pass, when thy days be expired that thou must go *to be* with thy fathers, that I will raise up thy seed after thee, which shall be of thy sons; and I will establish his kingdom.  
-> <sup>12</sup> He shall build me a house, and I will stablish his throne for ever.  
-> <sup>13</sup> I will be his father, and he shall be my son: and I will not take my mercy away from him, as I took *it* from *him* that was before thee:  
-> <sup>14</sup> But I will settle him in mine house and in my kingdom for ever: and his throne shall be established for evermore.  
-> <sup>15</sup> According to all these words, and according to all this vision, so did Nathan speak unto David.  
+> **¹** Now it came to pass, as David sat in his house, that David said to Nathan the prophet, Lo, I dwell in a house of cedars, but the ark of the covenant of the LORD *remaineth* under curtains.  
+> **²** Then Nathan said unto David, Do all that *is* in thine heart; for God *is* with thee.  
+> **³** And it came to pass the same night, that the word of God came to Nathan, saying,  
+> **⁴** Go and tell David my servant, Thus saith the LORD, Thou shalt not build me a house to dwell in:  
+> **⁵** For I have not dwelt in a house since the day that I brought up Israel unto this day; but have gone from tent to tent, and from *one* tabernacle *to another.*  
+> **⁶** Wheresoever I have walked with all Israel, spake I a word to any of the judges of Israel, whom I commanded to feed my people, saying, Why have ye not built me a house of cedars?  
+> **⁷** Now therefore thus shalt thou say unto my servant David, Thus saith the LORD of hosts, I took thee from the sheepcote, *even* from following the sheep, that thou shouldest be ruler over my people Israel:  
+> **⁸** And I have been with thee whithersoever thou hast walked, and have cut off all thine enemies from before thee, and have made thee a name like the name of the great men that *are* in the earth.  
+> **⁹** Also I will ordain a place for my people Israel, and will plant them, and they shall dwell in their place, and shall be moved no more; neither shall the children of wickedness waste them any more, as at the beginning,  
+> **¹⁰** And since the time that I commanded judges *to be* over my people Israel. Moreover I will subdue all thine enemies. Furthermore I tell thee that the LORD will build thee a house.  
+> **¹¹** And it shall come to pass, when thy days be expired that thou must go *to be* with thy fathers, that I will raise up thy seed after thee, which shall be of thy sons; and I will establish his kingdom.  
+> **¹²** He shall build me a house, and I will stablish his throne for ever.  
+> **¹³** I will be his father, and he shall be my son: and I will not take my mercy away from him, as I took *it* from *him* that was before thee:  
+> **¹⁴** But I will settle him in mine house and in my kingdom for ever: and his throne shall be established for evermore.  
+> **¹⁵** According to all these words, and according to all this vision, so did Nathan speak unto David.  
 
 Let us observe here,
 
@@ -36,18 +36,18 @@ IV\. How graciously God accepts his people's good purposes, yea, though he himse
 
 ## David's Grateful Acknowledgment. (b. c. 1042.)
 
-> <sup>16</sup> And David the king came and sat before the LORD, and said, Who *am* I, O LORD God, and what *is* mine house, that thou hast brought me hitherto?  
-> <sup>17</sup> And *yet* this was a small thing in thine eyes, O God; for thou hast *also* spoken of thy servant's house for a great while to come, and hast regarded me according to the estate of a man of high degree, O LORD God.  
-> <sup>18</sup> What can David *speak* more to thee for the honour of thy servant? for thou knowest thy servant.  
-> <sup>19</sup> O LORD, for thy servant's sake, and according to thine own heart, hast thou done all this greatness, in making known all *these* great things.  
-> <sup>20</sup> O LORD, *there is* none like thee, neither *is there any* God beside thee, according to all that we have heard with our ears.  
-> <sup>21</sup> And what one nation in the earth *is* like thy people Israel, whom God went to redeem *to be* his own people, to make thee a name of greatness and terribleness, by driving out nations from before thy people, whom thou hast redeemed out of Egypt?  
-> <sup>22</sup> For thy people Israel didst thou make thine own people for ever; and thou, LORD, becamest their God.  
-> <sup>23</sup> Therefore now, LORD, let the thing that thou hast spoken concerning thy servant and concerning his house be established for ever, and do as thou hast said.  
-> <sup>24</sup> Let it even be established, that thy name may be magnified for ever, saying, The LORD of hosts *is* the God of Israel, *even* a God to Israel: and *let* the house of David thy servant *be* established before thee.  
-> <sup>25</sup> For thou, O my God, hast told thy servant that thou wilt build him a house: therefore thy servant hath found *in his heart* to pray before thee.  
-> <sup>26</sup> And now, LORD, thou art God, and hast promised this goodness unto thy servant:  
-> <sup>27</sup> Now therefore let it please thee to bless the house of thy servant, that it may be before thee for ever: for thou blessest, O LORD, and *it shall be* blessed for ever.  
+> **¹⁶** And David the king came and sat before the LORD, and said, Who *am* I, O LORD God, and what *is* mine house, that thou hast brought me hitherto?  
+> **¹⁷** And *yet* this was a small thing in thine eyes, O God; for thou hast *also* spoken of thy servant's house for a great while to come, and hast regarded me according to the estate of a man of high degree, O LORD God.  
+> **¹⁸** What can David *speak* more to thee for the honour of thy servant? for thou knowest thy servant.  
+> **¹⁹** O LORD, for thy servant's sake, and according to thine own heart, hast thou done all this greatness, in making known all *these* great things.  
+> **²⁰** O LORD, *there is* none like thee, neither *is there any* God beside thee, according to all that we have heard with our ears.  
+> **²¹** And what one nation in the earth *is* like thy people Israel, whom God went to redeem *to be* his own people, to make thee a name of greatness and terribleness, by driving out nations from before thy people, whom thou hast redeemed out of Egypt?  
+> **²²** For thy people Israel didst thou make thine own people for ever; and thou, LORD, becamest their God.  
+> **²³** Therefore now, LORD, let the thing that thou hast spoken concerning thy servant and concerning his house be established for ever, and do as thou hast said.  
+> **²⁴** Let it even be established, that thy name may be magnified for ever, saying, The LORD of hosts *is* the God of Israel, *even* a God to Israel: and *let* the house of David thy servant *be* established before thee.  
+> **²⁵** For thou, O my God, hast told thy servant that thou wilt build him a house: therefore thy servant hath found *in his heart* to pray before thee.  
+> **²⁶** And now, LORD, thou art God, and hast promised this goodness unto thy servant:  
+> **²⁷** Now therefore let it please thee to bless the house of thy servant, that it may be before thee for ever: for thou blessest, O LORD, and *it shall be* blessed for ever.  
 
 We have here David's solemn address to God, in answer to the gracious message he had now received from him. By faith he receives the promises, embraces them, and is persuaded of them, as the patriarchs, Heb 11:13. How humbly does he here abase himself, and acknowledge his own unworthiness! How highly does he advance the name of God and admire his condescending grace and favour! With what devout affections does he magnify the God of Israel and what a value has he for the Israel of God! With what assurance does he build upon the promise, and with what a lively faith does he put it in suit! What an example is this to us of humble, believing, fervent prayer! The Lord enable us all thus to seek him! These things were largely observed, 2Sa 7:1-29 We shall therefore here observe only those few expressions in which the prayer, as we find it here, differs from the record of it there, and has something added to it.
 

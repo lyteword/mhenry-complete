@@ -8,12 +8,12 @@ This chapter is one of the most excellent in all this book, both for argument to
 
 ## Communion Conferred by Wisdom.
 
-> <sup>1</sup> My son, forget not my law; but let thine heart keep my commandments:  
-> <sup>2</sup> For length of days, and long life, and peace, shall they add to thee.  
-> <sup>3</sup> Let not mercy and truth forsake thee: bind them about thy neck; write them upon the table of thine heart:  
-> <sup>4</sup> So shalt thou find favour and good understanding in the sight of God and man.  
-> <sup>5</sup> Trust in the LORD with all thine heart; and lean not unto thine own understanding.  
-> <sup>6</sup> In all thy ways acknowledge him, and he shall direct thy paths.  
+> **¹** My son, forget not my law; but let thine heart keep my commandments:  
+> **²** For length of days, and long life, and peace, shall they add to thee.  
+> **³** Let not mercy and truth forsake thee: bind them about thy neck; write them upon the table of thine heart:  
+> **⁴** So shalt thou find favour and good understanding in the sight of God and man.  
+> **⁵** Trust in the LORD with all thine heart; and lean not unto thine own understanding.  
+> **⁶** In all thy ways acknowledge him, and he shall direct thy paths.  
 
 We are here taught to live a life of communion with God; and without controversy great is this mystery of godliness, and of great consequence to us, and, as is here shown, will be of unspeakable advantage.
 
@@ -29,12 +29,12 @@ III\. We must have a continual regard to God's providence, must own and depend u
 
 ## Consecration to God.
 
-> <sup>7</sup> Be not wise in thine own eyes: fear the LORD, and depart from evil.  
-> <sup>8</sup> It shall be health to thy navel, and marrow to thy bones.  
-> <sup>9</sup> Honour the LORD with thy substance, and with the firstfruits of all thine increase:  
-> <sup>10</sup> So shall thy barns be filled with plenty, and thy presses shall burst out with new wine.  
-> <sup>11</sup> My son, despise not the chastening of the LORD; neither be weary of his correction:  
-> <sup>12</sup> For whom the LORD loveth he correcteth; even as a father the son *in whom* he delighteth.  
+> **⁷** Be not wise in thine own eyes: fear the LORD, and depart from evil.  
+> **⁸** It shall be health to thy navel, and marrow to thy bones.  
+> **⁹** Honour the LORD with thy substance, and with the firstfruits of all thine increase:  
+> **¹⁰** So shall thy barns be filled with plenty, and thy presses shall burst out with new wine.  
+> **¹¹** My son, despise not the chastening of the LORD; neither be weary of his correction:  
+> **¹²** For whom the LORD loveth he correcteth; even as a father the son *in whom* he delighteth.  
 
 We have here before us three exhortations, each of them enforced with a good reason:—
 
@@ -54,14 +54,14 @@ III\. We must conduct ourselves aright under our afflictions, Pr 3:11,12. This t
 
 ## The Excellency of Wisdom; Happiness of Those Who Find Wisdom.
 
-> <sup>13</sup> Happy *is* the man *that* findeth wisdom, and the man *that* getteth understanding.  
-> <sup>14</sup> For the merchandise of it *is* better than the merchandise of silver, and the gain thereof than fine gold.  
-> <sup>15</sup> She *is* more precious than rubies: and all the things thou canst desire are not to be compared unto her.  
-> <sup>16</sup> Length of days *is* in her right hand; *and* in her left hand riches and honour.  
-> <sup>17</sup> Her ways *are* ways of pleasantness, and all her paths *are* peace.  
-> <sup>18</sup> She *is* a tree of life to them that lay hold upon her: and happy *is every one* that retaineth her.  
-> <sup>19</sup> The LORD by wisdom hath founded the earth; by understanding hath he established the heavens.  
-> <sup>20</sup> By his knowledge the depths are broken up, and the clouds drop down the dew.  
+> **¹³** Happy *is* the man *that* findeth wisdom, and the man *that* getteth understanding.  
+> **¹⁴** For the merchandise of it *is* better than the merchandise of silver, and the gain thereof than fine gold.  
+> **¹⁵** She *is* more precious than rubies: and all the things thou canst desire are not to be compared unto her.  
+> **¹⁶** Length of days *is* in her right hand; *and* in her left hand riches and honour.  
+> **¹⁷** Her ways *are* ways of pleasantness, and all her paths *are* peace.  
+> **¹⁸** She *is* a tree of life to them that lay hold upon her: and happy *is every one* that retaineth her.  
+> **¹⁹** The LORD by wisdom hath founded the earth; by understanding hath he established the heavens.  
+> **²⁰** By his knowledge the depths are broken up, and the clouds drop down the dew.  
 
 Solomon had pressed us earnestly to seek diligently for wisdom (Pr 2:1, etc.), and had assured us that we should succeed in our sincere and constant pursuits. But the question is, What shall we get by it when we have found it? Prospect of advantage is the spring and spur of industry; he therefore shows us how much it will be to our profit, laying this down for an unquestionable truth, *Happy is the man that findeth wisdom,* that true wisdom which consists in the knowledge and love of God, and an entire conformity to all the intentions of his truths, providences, and laws. Now observe,
 
@@ -87,12 +87,12 @@ II\. What the happiness of those is who do find it.
 
 ## The Excellency of Wisdom.
 
-> <sup>21</sup> My son, let not them depart from thine eyes: keep sound wisdom and discretion:  
-> <sup>22</sup> So shall they be life unto thy soul, and grace to thy neck.  
-> <sup>23</sup> Then shalt thou walk in thy way safely, and thy foot shall not stumble.  
-> <sup>24</sup> When thou liest down, thou shalt not be afraid: yea, thou shalt lie down, and thy sleep shall be sweet.  
-> <sup>25</sup> Be not afraid of sudden fear, neither of the desolation of the wicked, when it cometh.  
-> <sup>26</sup> For the LORD shall be thy confidence, and shall keep thy foot from being taken.  
+> **²¹** My son, let not them depart from thine eyes: keep sound wisdom and discretion:  
+> **²²** So shall they be life unto thy soul, and grace to thy neck.  
+> **²³** Then shalt thou walk in thy way safely, and thy foot shall not stumble.  
+> **²⁴** When thou liest down, thou shalt not be afraid: yea, thou shalt lie down, and thy sleep shall be sweet.  
+> **²⁵** Be not afraid of sudden fear, neither of the desolation of the wicked, when it cometh.  
+> **²⁶** For the LORD shall be thy confidence, and shall keep thy foot from being taken.  
 
 Solomon, having pronounced those happy who not only lay hold on wisdom, but retain her, here exhorts us therefore to retain her, assuring us that we ourselves shall have the comfort of doing so.
 
@@ -102,15 +102,15 @@ II\. The argument to enforce this exhortation is taken from the unspeakable adva
 
 ## Justice and Kindness Recommended; Caution against Envy.
 
-> <sup>27</sup> Withhold not good from them to whom it is due, when it is in the power of thine hand to do *it.*  
-> <sup>28</sup> Say not unto thy neighbour, Go, and come again, and to morrow I will give; when thou hast it by thee.  
-> <sup>29</sup> Devise not evil against thy neighbour, seeing he dwelleth securely by thee.  
-> <sup>30</sup> Strive not with a man without cause, if he have done thee no harm.  
-> <sup>31</sup> Envy thou not the oppressor, and choose none of his ways.  
-> <sup>32</sup> For the froward *is* abomination to the LORD: but his secret *is* with the righteous.  
-> <sup>33</sup> The curse of the LORD *is* in the house of the wicked: but he blesseth the habitation of the just.  
-> <sup>34</sup> Surely he scorneth the scorners: but he giveth grace unto the lowly.  
-> <sup>35</sup> The wise shall inherit glory: but shame shall be the promotion of fools.  
+> **²⁷** Withhold not good from them to whom it is due, when it is in the power of thine hand to do *it.*  
+> **²⁸** Say not unto thy neighbour, Go, and come again, and to morrow I will give; when thou hast it by thee.  
+> **²⁹** Devise not evil against thy neighbour, seeing he dwelleth securely by thee.  
+> **³⁰** Strive not with a man without cause, if he have done thee no harm.  
+> **³¹** Envy thou not the oppressor, and choose none of his ways.  
+> **³²** For the froward *is* abomination to the LORD: but his secret *is* with the righteous.  
+> **³³** The curse of the LORD *is* in the house of the wicked: but he blesseth the habitation of the just.  
+> **³⁴** Surely he scorneth the scorners: but he giveth grace unto the lowly.  
+> **³⁵** The wise shall inherit glory: but shame shall be the promotion of fools.  
 
 True wisdom consists in the due discharge of our duty towards man, as well as towards God, in honesty as well as piety, and therefore we have here divers excellent precepts of wisdom which relate to our neighbour.
 

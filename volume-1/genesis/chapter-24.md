@@ -8,15 +8,15 @@ Marriages and funerals are the changes of families, and the common news among th
 
 ## Abraham's Charges to His Servant. (b. c. 1857.)
 
-> <sup>1</sup> And Abraham was old, *and* well stricken in age: and the LORD had blessed Abraham in all things.  
-> <sup>2</sup> And Abraham said unto his eldest servant of his house, that ruled over all that he had, Put, I pray thee, thy hand under my thigh:  
-> <sup>3</sup> And I will make thee swear by the LORD, the God of heaven, and the God of the earth, that thou shalt not take a wife unto my son of the daughters of the Canaanites, among whom I dwell:  
-> <sup>4</sup> But thou shalt go unto my country, and to my kindred, and take a wife unto my son Isaac.  
-> <sup>5</sup> And the servant said unto him, Peradventure the woman will not be willing to follow me unto this land: must I needs bring thy son again unto the land from whence thou camest?  
-> <sup>6</sup> And Abraham said unto him, Beware thou that thou bring not my son thither again.  
-> <sup>7</sup> The LORD God of heaven, which took me from my father's house, and from the land of my kindred, and which spake unto me, and that sware unto me, saying, Unto thy seed will I give this land; he shall send his angel before thee, and thou shalt take a wife unto my son from thence.  
-> <sup>8</sup> And if the woman will not be willing to follow thee, then thou shalt be clear from this my oath: only bring not my son thither again.  
-> <sup>9</sup> And the servant put his hand under the thigh of Abraham his master, and sware to him concerning that matter.  
+> **¹** And Abraham was old, *and* well stricken in age: and the LORD had blessed Abraham in all things.  
+> **²** And Abraham said unto his eldest servant of his house, that ruled over all that he had, Put, I pray thee, thy hand under my thigh:  
+> **³** And I will make thee swear by the LORD, the God of heaven, and the God of the earth, that thou shalt not take a wife unto my son of the daughters of the Canaanites, among whom I dwell:  
+> **⁴** But thou shalt go unto my country, and to my kindred, and take a wife unto my son Isaac.  
+> **⁵** And the servant said unto him, Peradventure the woman will not be willing to follow me unto this land: must I needs bring thy son again unto the land from whence thou camest?  
+> **⁶** And Abraham said unto him, Beware thou that thou bring not my son thither again.  
+> **⁷** The LORD God of heaven, which took me from my father's house, and from the land of my kindred, and which spake unto me, and that sware unto me, saying, Unto thy seed will I give this land; he shall send his angel before thee, and thou shalt take a wife unto my son from thence.  
+> **⁸** And if the woman will not be willing to follow thee, then thou shalt be clear from this my oath: only bring not my son thither again.  
+> **⁹** And the servant put his hand under the thigh of Abraham his master, and sware to him concerning that matter.  
 
 Three things we may observe here concerning Abraham:—
 
@@ -28,25 +28,25 @@ III\. The confidence he put in a good God, who, he doubts not, will give his ser
 
 ## Journey of Abraham's Servant. (b. c. 1857.)
 
-> <sup>10</sup> And the servant took ten camels of the camels of his master, and departed; for all the goods of his master *were* in his hand: and he arose, and went to Mesopotamia, unto the city of Nahor.  
-> <sup>11</sup> And he made his camels to kneel down without the city by a well of water at the time of the evening, *even* the time that women go out to draw *water.*  
-> <sup>12</sup> And he said, O LORD God of my master Abraham, I pray thee, send me good speed this day, and show kindness unto my master Abraham.  
-> <sup>13</sup> Behold, I stand *here* by the well of water; and the daughters of the men of the city come out to draw water:  
-> <sup>14</sup> And let it come to pass, that the damsel to whom I shall say, Let down thy pitcher, I pray thee, that I may drink; and she shall say, Drink, and I will give thy camels drink also: *let the same be* she *that* thou hast appointed for thy servant Isaac; and thereby shall I know that thou hast showed kindness unto my master.  
-> <sup>15</sup> And it came to pass, before he had done speaking, that, behold, Rebekah came out, who was born to Bethuel, son of Milcah, the wife of Nahor, Abraham's brother, with her pitcher upon her shoulder.  
-> <sup>16</sup> And the damsel *was* very fair to look upon, a virgin, neither had any man known her: and she went down to the well, and filled her pitcher, and came up.  
-> <sup>17</sup> And the servant ran to meet her, and said, Let me, I pray thee, drink a little water of thy pitcher.  
-> <sup>18</sup> And she said, Drink, my lord: and she hasted, and let down her pitcher upon her hand, and gave him drink.  
-> <sup>19</sup> And when she had done giving him drink, she said, I will draw *water* for thy camels also, until they have done drinking.  
-> <sup>20</sup> And she hasted, and emptied her pitcher into the trough, and ran again unto the well to draw *water,* and drew for all his camels.  
-> <sup>21</sup> And the man wondering at her held his peace, to wit whether the LORD had made his journey prosperous or not.  
-> <sup>22</sup> And it came to pass, as the camels had done drinking, that the man took a golden earring of half a shekel weight, and two bracelets for her hands of ten *shekels* weight of gold;  
-> <sup>23</sup> And said, Whose daughter *art* thou? tell me, I pray thee: is there room *in* thy father's house for us to lodge in?  
-> <sup>24</sup> And she said unto him, I *am* the daughter of Bethuel the son of Milcah, which she bare unto Nahor.  
-> <sup>25</sup> She said moreover unto him, We have both straw and provender enough, and room to lodge in.  
-> <sup>26</sup> And the man bowed down his head, and worshipped the LORD.  
-> <sup>27</sup> And he said, Blessed *be* the LORD God of my master Abraham, who hath not left destitute my master of his mercy and his truth: I *being* in the way, the LORD led me to the house of my master's brethren.  
-> <sup>28</sup> And the damsel ran, and told *them of* her mother's house these things.  
+> **¹⁰** And the servant took ten camels of the camels of his master, and departed; for all the goods of his master *were* in his hand: and he arose, and went to Mesopotamia, unto the city of Nahor.  
+> **¹¹** And he made his camels to kneel down without the city by a well of water at the time of the evening, *even* the time that women go out to draw *water.*  
+> **¹²** And he said, O LORD God of my master Abraham, I pray thee, send me good speed this day, and show kindness unto my master Abraham.  
+> **¹³** Behold, I stand *here* by the well of water; and the daughters of the men of the city come out to draw water:  
+> **¹⁴** And let it come to pass, that the damsel to whom I shall say, Let down thy pitcher, I pray thee, that I may drink; and she shall say, Drink, and I will give thy camels drink also: *let the same be* she *that* thou hast appointed for thy servant Isaac; and thereby shall I know that thou hast showed kindness unto my master.  
+> **¹⁵** And it came to pass, before he had done speaking, that, behold, Rebekah came out, who was born to Bethuel, son of Milcah, the wife of Nahor, Abraham's brother, with her pitcher upon her shoulder.  
+> **¹⁶** And the damsel *was* very fair to look upon, a virgin, neither had any man known her: and she went down to the well, and filled her pitcher, and came up.  
+> **¹⁷** And the servant ran to meet her, and said, Let me, I pray thee, drink a little water of thy pitcher.  
+> **¹⁸** And she said, Drink, my lord: and she hasted, and let down her pitcher upon her hand, and gave him drink.  
+> **¹⁹** And when she had done giving him drink, she said, I will draw *water* for thy camels also, until they have done drinking.  
+> **²⁰** And she hasted, and emptied her pitcher into the trough, and ran again unto the well to draw *water,* and drew for all his camels.  
+> **²¹** And the man wondering at her held his peace, to wit whether the LORD had made his journey prosperous or not.  
+> **²²** And it came to pass, as the camels had done drinking, that the man took a golden earring of half a shekel weight, and two bracelets for her hands of ten *shekels* weight of gold;  
+> **²³** And said, Whose daughter *art* thou? tell me, I pray thee: is there room *in* thy father's house for us to lodge in?  
+> **²⁴** And she said unto him, I *am* the daughter of Bethuel the son of Milcah, which she bare unto Nahor.  
+> **²⁵** She said moreover unto him, We have both straw and provender enough, and room to lodge in.  
+> **²⁶** And the man bowed down his head, and worshipped the LORD.  
+> **²⁷** And he said, Blessed *be* the LORD God of my master Abraham, who hath not left destitute my master of his mercy and his truth: I *being* in the way, the LORD led me to the house of my master's brethren.  
+> **²⁸** And the damsel ran, and told *them of* her mother's house these things.  
 
 Abraham's servant now begins to make a figure in this story; and, though he is not named, yet much is here recorded to his honour, and for an example to all servants, who shall be honoured if, by faithfully serving God and their masters, they adorn the doctrine of Christ (compare Pr 27:18, Tit 2:10); for there is no respect of persons with God, Col 3:24,25. A good servant that makes conscience of the duty of his place, and does it in the fear of God, though he make not a figure in the world nor have praise of men, yet shall be owned and accepted of God and have praise of him. Observe here,
 
@@ -62,31 +62,31 @@ II\. How devoutly he acknowledged God in this affair, like one of that happy hou
 
 ## Abraham's Servant Entertained by Laban; Errand of Abraham's Servant. (b. c. 1857.)
 
-> <sup>29</sup> And Rebekah had a brother, and his name *was* Laban: and Laban ran out unto the man, unto the well.  
-> <sup>30</sup> And it came to pass, when he saw the earring and bracelets upon his sister's hands, and when he heard the words of Rebekah his sister, saying, Thus spake the man unto me; that he came unto the man; and, behold, he stood by the camels at the well.  
-> <sup>31</sup> And he said, Come in, thou blessed of the LORD; wherefore standest thou without? for I have prepared the house, and room for the camels.  
-> <sup>32</sup> And the man came into the house: and he ungirded his camels, and gave straw and provender for the camels, and water to wash his feet, and the men's feet that *were* with him.  
-> <sup>33</sup> And there was set *meat* before him to eat: but he said, I will not eat, until I have told mine errand. And he said, Speak on.  
-> <sup>34</sup> And he said, I *am* Abraham's servant.  
-> <sup>35</sup> And the LORD hath blessed my master greatly; and he is become great: and he hath given him flocks, and herds, and silver, and gold, and menservants, and maidservants, and camels, and asses.  
-> <sup>36</sup> And Sarah my master's wife bare a son to my master when she was old: and unto him hath he given all that he hath.  
-> <sup>37</sup> And my master made me swear, saying, Thou shalt not take a wife to my son of the daughters of the Canaanites, in whose land I dwell:  
-> <sup>38</sup> But thou shalt go unto my father's house, and to my kindred, and take a wife unto my son.  
-> <sup>39</sup> And I said unto my master, Peradventure the woman will not follow me.  
-> <sup>40</sup> And he said unto me, The LORD, before whom I walk, will send his angel with thee, and prosper thy way; and thou shalt take a wife for my son of my kindred, and of my father's house:  
-> <sup>41</sup> Then shalt thou be clear from *this* my oath, when thou comest to my kindred; and if they give not thee *one,* thou shalt be clear from my oath.  
-> <sup>42</sup> And I came this day unto the well, and said, O LORD God of my master Abraham, if now thou do prosper my way which I go:  
-> <sup>43</sup> Behold, I stand by the well of water; and it shall come to pass, that when the virgin cometh forth to draw *water,* and I say to her, Give me, I pray thee, a little water of thy pitcher to drink;  
-> <sup>44</sup> And she say to me, Both drink thou, and I will also draw for thy camels: *let* the same *be* the woman whom the LORD hath appointed out for my master's son.  
-> <sup>45</sup> And before I had done speaking in mine heart, behold, Rebekah came forth with her pitcher on her shoulder; and she went down unto the well, and drew *water*: and I said unto her, Let me drink, I pray thee.  
-> <sup>46</sup> And she made haste, and let down her pitcher from her *shoulder,* and said, Drink, and I will give thy camels drink also: so I drank, and she made the camels drink also.  
-> <sup>47</sup> And I asked her, and said, Whose daughter *art* thou? And she said, The daughter of Bethuel, Nahor's son, whom Milcah bare unto him: and I put the earring upon her face, and the bracelets upon her hands.  
-> <sup>48</sup> And I bowed down my head, and worshipped the LORD, and blessed the LORD God of my master Abraham, which had led me in the right way to take my master's brother's daughter unto his son.  
-> <sup>49</sup> And now if ye will deal kindly and truly with my master, tell me: and if not, tell me; that I may turn to the right hand, or to the left.  
-> <sup>50</sup> Then Laban and Bethuel answered and said, The thing proceedeth from the LORD: we cannot speak unto thee bad or good.  
-> <sup>51</sup> Behold, Rebekah *is* before thee, take *her,* and go, and let her be thy master's son's wife, as the LORD hath spoken.  
-> <sup>52</sup> And it came to pass, that, when Abraham's servant heard their words, he worshipped the LORD, *bowing himself* to the earth.  
-> <sup>53</sup> And the servant brought forth jewels of silver, and jewels of gold, and raiment, and gave *them* to Rebekah: he gave also to her brother and to her mother precious things.  
+> **²⁹** And Rebekah had a brother, and his name *was* Laban: and Laban ran out unto the man, unto the well.  
+> **³⁰** And it came to pass, when he saw the earring and bracelets upon his sister's hands, and when he heard the words of Rebekah his sister, saying, Thus spake the man unto me; that he came unto the man; and, behold, he stood by the camels at the well.  
+> **³¹** And he said, Come in, thou blessed of the LORD; wherefore standest thou without? for I have prepared the house, and room for the camels.  
+> **³²** And the man came into the house: and he ungirded his camels, and gave straw and provender for the camels, and water to wash his feet, and the men's feet that *were* with him.  
+> **³³** And there was set *meat* before him to eat: but he said, I will not eat, until I have told mine errand. And he said, Speak on.  
+> **³⁴** And he said, I *am* Abraham's servant.  
+> **³⁵** And the LORD hath blessed my master greatly; and he is become great: and he hath given him flocks, and herds, and silver, and gold, and menservants, and maidservants, and camels, and asses.  
+> **³⁶** And Sarah my master's wife bare a son to my master when she was old: and unto him hath he given all that he hath.  
+> **³⁷** And my master made me swear, saying, Thou shalt not take a wife to my son of the daughters of the Canaanites, in whose land I dwell:  
+> **³⁸** But thou shalt go unto my father's house, and to my kindred, and take a wife unto my son.  
+> **³⁹** And I said unto my master, Peradventure the woman will not follow me.  
+> **⁴⁰** And he said unto me, The LORD, before whom I walk, will send his angel with thee, and prosper thy way; and thou shalt take a wife for my son of my kindred, and of my father's house:  
+> **⁴¹** Then shalt thou be clear from *this* my oath, when thou comest to my kindred; and if they give not thee *one,* thou shalt be clear from my oath.  
+> **⁴²** And I came this day unto the well, and said, O LORD God of my master Abraham, if now thou do prosper my way which I go:  
+> **⁴³** Behold, I stand by the well of water; and it shall come to pass, that when the virgin cometh forth to draw *water,* and I say to her, Give me, I pray thee, a little water of thy pitcher to drink;  
+> **⁴⁴** And she say to me, Both drink thou, and I will also draw for thy camels: *let* the same *be* the woman whom the LORD hath appointed out for my master's son.  
+> **⁴⁵** And before I had done speaking in mine heart, behold, Rebekah came forth with her pitcher on her shoulder; and she went down unto the well, and drew *water*: and I said unto her, Let me drink, I pray thee.  
+> **⁴⁶** And she made haste, and let down her pitcher from her *shoulder,* and said, Drink, and I will give thy camels drink also: so I drank, and she made the camels drink also.  
+> **⁴⁷** And I asked her, and said, Whose daughter *art* thou? And she said, The daughter of Bethuel, Nahor's son, whom Milcah bare unto him: and I put the earring upon her face, and the bracelets upon her hands.  
+> **⁴⁸** And I bowed down my head, and worshipped the LORD, and blessed the LORD God of my master Abraham, which had led me in the right way to take my master's brother's daughter unto his son.  
+> **⁴⁹** And now if ye will deal kindly and truly with my master, tell me: and if not, tell me; that I may turn to the right hand, or to the left.  
+> **⁵⁰** Then Laban and Bethuel answered and said, The thing proceedeth from the LORD: we cannot speak unto thee bad or good.  
+> **⁵¹** Behold, Rebekah *is* before thee, take *her,* and go, and let her be thy master's son's wife, as the LORD hath spoken.  
+> **⁵²** And it came to pass, that, when Abraham's servant heard their words, he worshipped the LORD, *bowing himself* to the earth.  
+> **⁵³** And the servant brought forth jewels of silver, and jewels of gold, and raiment, and gave *them* to Rebekah: he gave also to her brother and to her mother precious things.  
 
 We have here the making up of the marriage between Isaac and Rebekah. It is related very largely and particularly, even to the minute circumstances, which, we should think, might have been spared, while other things of great moment and mystery (as the story of Melchizedek) are related in few words. Thus God conceals that which is curious from the wise and prudent, reveals to babes that which is common and level to their capacity (Mt 11:25), and rules and *saves the world by the foolishness of preaching,* 1Co 1:21. Thus also we are directed to take notice of God's providence in the little common occurrences of human life, and in them also to exercise our own prudence and other graces; for the scripture was not intended for the use of philosophers and statesmen only, but to make us all wise and virtuous in the conduct of ourselves and families. Here is,
 
@@ -112,25 +112,25 @@ II\. The full account which he gave them of his errand, and the court he made to
 
 ## Rebekah's Departure. (b. c. 1857.)
 
-> <sup>54</sup> And they did eat and drink, he and the men that *were* with him, and tarried all night; and they rose up in the morning, and he said, Send me away unto my master.  
-> <sup>55</sup> And her brother and her mother said, Let the damsel abide with us *a few* days, at the least ten; after that she shall go.  
-> <sup>56</sup> And he said unto them, Hinder me not, seeing the LORD hath prospered my way; send me away that I may go to my master.  
-> <sup>57</sup> And they said, We will call the damsel, and enquire at her mouth.  
-> <sup>58</sup> And they called Rebekah, and said unto her, Wilt thou go with this man? And she said, I will go.  
-> <sup>59</sup> And they sent away Rebekah their sister, and her nurse, and Abraham's servant, and his men.  
-> <sup>60</sup> And they blessed Rebekah, and said unto her, Thou *art* our sister, be thou *the mother* of thousands of millions, and let thy seed possess the gate of those which hate them.  
-> <sup>61</sup> And Rebekah arose, and her damsels, and they rode upon the camels, and followed the man: and the servant took Rebekah, and went his way.  
+> **⁵⁴** And they did eat and drink, he and the men that *were* with him, and tarried all night; and they rose up in the morning, and he said, Send me away unto my master.  
+> **⁵⁵** And her brother and her mother said, Let the damsel abide with us *a few* days, at the least ten; after that she shall go.  
+> **⁵⁶** And he said unto them, Hinder me not, seeing the LORD hath prospered my way; send me away that I may go to my master.  
+> **⁵⁷** And they said, We will call the damsel, and enquire at her mouth.  
+> **⁵⁸** And they called Rebekah, and said unto her, Wilt thou go with this man? And she said, I will go.  
+> **⁵⁹** And they sent away Rebekah their sister, and her nurse, and Abraham's servant, and his men.  
+> **⁶⁰** And they blessed Rebekah, and said unto her, Thou *art* our sister, be thou *the mother* of thousands of millions, and let thy seed possess the gate of those which hate them.  
+> **⁶¹** And Rebekah arose, and her damsels, and they rode upon the camels, and followed the man: and the servant took Rebekah, and went his way.  
 
 Rebekah is here taking leave of her father's house; and 1. Abraham's servant presses for a dismission. Though he and his company were very welcome, and very cheerful there, yet he said, *Send me away* (Ge 24:54), and again, Ge 24:56. He knew his master would expect him home with some impatience; he had business to do at home which wanted him, and therefore, as one that preferred his work before his pleasure, he was for hastening home. Note, Lingering and loitering no way become a wise and good man; when we have despatched our business abroad we must not delay our return to our business at home, nor be longer from it than needs must; for as a bird that *wanders from her nest so is he that wanders from his place,* Pr 27:8. 2. Rebekah's relations, from natural affection and according to the usual expression of kindness in that case, solicit for her stay some time among them, Ge 24:55. They could not think of parting with her on a sudden, especially as she was about the remove so far off and it was not likely that they would ever see one another again: *Let her stay a few days, at least ten,* which makes it as reasonable a request as the reading in the margin seems to make it unreasonable, *a year,* or *at least ten months.* They had consented to the marriage, and yet were loth to part with her. Note, It is an instance of the vanity of this world that there is nothing in it so agreeable but it has its alloy. *Nulla est sincera voluptas—There is no unmingled pleasure.* They were pleased that they had matched a daughter of their family so well, and yet, when it came to the last, it was with great reluctance that they sent her away. 3. Rebekah herself determined the matter. To her they appealed, as it was fit they should (Ge 24:57): *Call the damsel* (who had retired to her apartment with a modest silence) and *enquire at her mouth.* Note, As children ought not to marry without their parents' consent, so parents ought not to marry them without their own. Before the matter is resolved on, "Ask at the damsel's mouth;" she is a party principally concerned, and therefore ought to be principally consulted. Rebekah consented, not only to go, but to go immediately: *I will go,* Ge 24:58. We may hope that the notice she had taken of the servant's piety and devotion gave her such an idea of the prevalence of religion and godliness in the family she was to go to made her desirous to hasten thither, and willing to forget her own people and her father's house, where religion had not so much the ascendant. 4. Hereupon she is sent away with Abraham's servant; not, we may suppose, the very next day after, but very quickly: her friends see that she has a good heart on it, and so they dismiss her, (1.) With suitable attendants—her *nurse* (Ge 24:59), her *damsels,* Ge 24:61. It seems, then, that when she went to the well for water it was not because she had not servants at command, but because she took a pleasure in works of humble industry. Now that she was going among strangers, it was fit she should take those with her with whom she was acquainted. Here is nothing said of her portion. Her personal merits were a portion in her, she needed none with her, nor did that ever come into the treaty of marriage. (2.) With hearty good wishes: *They blessed Rebekah,* Ge 24:60. Note, When our relations are entering into a new condition, we ought by prayer to recommend them to the blessing and grace of God. Now that she was going to be a wife, they prayed that she might be a mother both of a numerous and of a victorious progeny. Perhaps Abraham's servant had told them of the promise God had lately made to his master, which it is likely, Abraham acquainted his household with, that God *would multiply his seed as the stars of heaven, and that they should possess the gate of their enemies* (Ge 22:17), to which promise they had an eye in this blessing, *Be thou the mother* of that seed.
 
 ## Isaac's Marriage. (b. c. 1857.)
 
-> <sup>62</sup> And Isaac came from the way of the well Lahai-roi; for he dwelt in the south country.  
-> <sup>63</sup> And Isaac went out to meditate in the field at the eventide: and he lifted up his eyes, and saw, and, behold, the camels *were* coming.  
-> <sup>64</sup> And Rebekah lifted up her eyes, and when she saw Isaac, she lighted off the camel.  
-> <sup>65</sup> For she *had* said unto the servant, What man *is* this that walketh in the field to meet us? And the servant *had* said, It *is* my master: therefore she took a veil, and covered herself.  
-> <sup>66</sup> And the servant told Isaac all things that he had done.  
-> <sup>67</sup> And Isaac brought her into his mother Sarah's tent, and took Rebekah, and she became his wife; and he loved her: and Isaac was comforted after his mother's *death.*  
+> **⁶²** And Isaac came from the way of the well Lahai-roi; for he dwelt in the south country.  
+> **⁶³** And Isaac went out to meditate in the field at the eventide: and he lifted up his eyes, and saw, and, behold, the camels *were* coming.  
+> **⁶⁴** And Rebekah lifted up her eyes, and when she saw Isaac, she lighted off the camel.  
+> **⁶⁵** For she *had* said unto the servant, What man *is* this that walketh in the field to meet us? And the servant *had* said, It *is* my master: therefore she took a veil, and covered herself.  
+> **⁶⁶** And the servant told Isaac all things that he had done.  
+> **⁶⁷** And Isaac brought her into his mother Sarah's tent, and took Rebekah, and she became his wife; and he loved her: and Isaac was comforted after his mother's *death.*  
 
 Isaac and Rebekah are, at length, happily brought together. Observe,
 

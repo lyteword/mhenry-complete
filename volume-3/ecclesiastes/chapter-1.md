@@ -8,9 +8,9 @@ In this chapter we have, I. The inscription, or title of the book, Ec 1:1. II. T
 
 ## The Vanity of the World.
 
-> <sup>1</sup> The words of the Preacher, the son of David, king in Jerusalem.  
-> <sup>2</sup> Vanity of vanities, saith the Preacher, vanity of vanities; all *is* vanity.  
-> <sup>3</sup> What profit hath a man of all his labour which he taketh under the sun?  
+> **¹** The words of the Preacher, the son of David, king in Jerusalem.  
+> **²** Vanity of vanities, saith the Preacher, vanity of vanities; all *is* vanity.  
+> **³** What profit hath a man of all his labour which he taketh under the sun?  
 
 Here is, I. An account of the penman of this book; it was Solomon, for no other son of David was king of Jerusalem; but he conceals his name *Solomon, peaceable,* because by his sin he had brought trouble upon himself and his kingdom, had broken his peace with God and lost the peace of his conscience, and therefore was no more worthy of that name. Call me not *Solomon,* call me *Marah,* for, *behold, for peace I had great bitterness.* But he calls himself,
 
@@ -34,19 +34,19 @@ II\. The general scope and design of the book. What is it that this royal preach
 
 ## The Vanity of the World.
 
-> <sup>4</sup> *One* generation passeth away, and *another* generation cometh: but the earth abideth for ever.  
-> <sup>5</sup> The sun also ariseth, and the sun goeth down, and hasteth to his place where he arose.  
-> <sup>6</sup> The wind goeth toward the south, and turneth about unto the north; it whirleth about continually, and the wind returneth again according to his circuits.  
-> <sup>7</sup> All the rivers run into the sea; yet the sea *is* not full; unto the place from whence the rivers come, thither they return again.  
-> <sup>8</sup> All things *are* full of labour; man cannot utter *it:* the eye is not satisfied with seeing, nor the ear filled with hearing.  
+> **⁴** *One* generation passeth away, and *another* generation cometh: but the earth abideth for ever.  
+> **⁵** The sun also ariseth, and the sun goeth down, and hasteth to his place where he arose.  
+> **⁶** The wind goeth toward the south, and turneth about unto the north; it whirleth about continually, and the wind returneth again according to his circuits.  
+> **⁷** All the rivers run into the sea; yet the sea *is* not full; unto the place from whence the rivers come, thither they return again.  
+> **⁸** All things *are* full of labour; man cannot utter *it:* the eye is not satisfied with seeing, nor the ear filled with hearing.  
 
 To prove the vanity of all things under the sun, and their insufficiency to make us happy, Solomon here shows, 1. That the time of our enjoyment of these things is very short, and only while we *accomplish as a hireling his day.* We continue in the world but for one generation, which is continually passing away to make room for another, and we are passing with it. Our worldly possessions we very lately had from others, and must very shortly leave to others, and therefore to us they are vanity; they can be no more substantial than that life which is the *substratum* of them, and that is but a *vapour, which appears for a little while and then vanishes away.* While the stream of mankind is continually flowing, how little enjoyment has one drop of that stream of the pleasant banks between which it glides! We may give God the glory of that constant succession of generations, in which the world has hitherto had its existence, and will have to the end of time, admitting his patience in continuing that sinful species and his power in continuing that dying species. We may be also quickened to do the work of our generation diligently, and serve it faithfully, because it will be over shortly; and, in concern for mankind in general, we should consult the welfare of succeeding generations; but as to our own happiness, let us not expect it within such narrow limits, but in an eternal rest and consistency. 2. That when we leave this world we leave the earth behind us, that *abides for ever* where it is, and therefore the things of the earth can stand us in no stead in the future state. It is well for mankind in general that the earth endures to the end of time, when it and all the works in it shall be burnt up; but what is that to particular persons, when they remove to the world of spirits? 3. That the condition of man is, in this respect, worse than that even of the inferior creatures: *The earth abides for ever,* but man abides upon the earth but a little while. The sun sets indeed every night, yet it rises again in the morning, as bright and fresh as ever; the winds, though they shift their point, yet in some point or other still they are; the waters that go to the sea above ground come from it again under ground. *But man lies down and rises not,* Job 14:7,12. 4. That all things in this world are movable and mutable, and subject to a continual toil and agitation, constant in nothing but inconstancy, still going, never resting; it was but once that the sun stood still; when it is risen it is hastening to set, and, when it is set, hastening to rise again (Ec 1:5); the winds are ever and anon shifting (Ec 1:6), and the waters in a continual circulation (Ec 1:7), it would be of as bad consequence for them to stagnate as for the blood in the body to do so. And can we expect rest in a world where all things are thus full of labour (Ec 1:8), on a sea that is always ebbing and flowing, and her waves continually working and rolling? 5. That though all things are still in motion, yet they are still where they were; The sun *parts* (as it is in the margin), but it is to the same place; the wind turns till it comes to the same place, and so the waters return to the place whence they came. Thus man, after all the pains he takes to find satisfaction and happiness in the creature, is but where he was, still as far to seek as ever. Man's mind is as restless in its pursuits as the sun, and wind, and rivers, but never satisfied, never contented; the more it has of the world the more it would have; and it would be no sooner filled with the streams of outward prosperity, the brooks of *honey and butter* (Job 20:17), than the sea is with *all the rivers that run into it;* it is still as it was, *a troubled sea that cannot rest.* 6. That *all things continue as they were from the beginning of the creation,* 2Pe 3:4. The earth is where it was; the sun, and winds, and rivers, keep the same course that ever they did; and therefore, if they have never yet been sufficient to make a happiness for man, they are never likely to be so, for they can but yield the same comfort that they have yielded. We must therefore look above the sun for satisfaction, and for a new world. 7. That this world is, at the best, a weary land: *All is vanity,* for all is *full of labour.* The whole creation is made subject to this vanity ever since man was sentenced to *eat bread in the sweat of his brows.* If we survey the whole creation, we shall see all busy; all have enough to do to mind their own business; none will be a portion or happiness for man; all labour to serve him, but none prove a *help-meet* for him. Man cannot express how full of labour all things are, can neither number the laborious nor measure the labours. 8. That our senses are unsatisfied, and the objects of them unsatisfying. He specifies those senses that perform their office with least toil, and are most capable of being pleased: *The eye is not satisfied with seeing,* but is weary of seeing always the same sight, and covets novelty and variety. *The ear* is fond, at first, of a pleasant song or tune, but soon nauseates it, and must have another; both are surfeited, but neither satiated, and what was most grateful becomes ungrateful. Curiosity is still inquisitive, because still unsatisfied, and the more it is humoured the more nice and peevish it grows, crying, *Give, give.*
 
 ## Change without Novelty.
 
-> <sup>9</sup> The thing that hath been, it *is that* which shall be; and that which is done *is* that which shall be done: and *there is* no new *thing* under the sun.  
-> <sup>10</sup> Is there *any* thing whereof it may be said, See, this *is* new? it hath been already of old time, which was before us.  
-> <sup>11</sup> *There is* no remembrance of former *things;* neither shall there be *any* remembrance of *things* that are to come with *those* that shall come after.  
+> **⁹** The thing that hath been, it *is that* which shall be; and that which is done *is* that which shall be done: and *there is* no new *thing* under the sun.  
+> **¹⁰** Is there *any* thing whereof it may be said, See, this *is* new? it hath been already of old time, which was before us.  
+> **¹¹** *There is* no remembrance of former *things;* neither shall there be *any* remembrance of *things* that are to come with *those* that shall come after.  
 
 Two things we are apt to take a great deal of pleasure and satisfaction in, and value ourselves upon, with reference to our business and enjoyments in the world, as if they helped to save them from vanity. Solomon shows us our mistake in both.
 
@@ -56,13 +56,13 @@ Two things we are apt to take a great deal of pleasure and satisfaction in, and 
 
 ## Vanity of Human Wisdom.
 
-> <sup>12</sup> I the Preacher was king over Israel in Jerusalem.  
-> <sup>13</sup> And I gave my heart to seek and search out by wisdom concerning all *things* that are done under heaven: this sore travail hath God given to the sons of man to be exercised therewith.  
-> <sup>14</sup> I have seen all the works that are done under the sun; and, behold, all *is* vanity and vexation of spirit.  
-> <sup>15</sup> *That which is* crooked cannot be made straight: and that which is wanting cannot be numbered.  
-> <sup>16</sup> I communed with mine own heart, saying, Lo, I am come to great estate, and have gotten more wisdom than all *they* that have been before me in Jerusalem: yea, my heart had great experience of wisdom and knowledge.  
-> <sup>17</sup> And I gave my heart to know wisdom, and to know madness and folly: I perceived that this also is vexation of spirit.  
-> <sup>18</sup> For in much wisdom *is* much grief: and he that increaseth knowledge increaseth sorrow.  
+> **¹²** I the Preacher was king over Israel in Jerusalem.  
+> **¹³** And I gave my heart to seek and search out by wisdom concerning all *things* that are done under heaven: this sore travail hath God given to the sons of man to be exercised therewith.  
+> **¹⁴** I have seen all the works that are done under the sun; and, behold, all *is* vanity and vexation of spirit.  
+> **¹⁵** *That which is* crooked cannot be made straight: and that which is wanting cannot be numbered.  
+> **¹⁶** I communed with mine own heart, saying, Lo, I am come to great estate, and have gotten more wisdom than all *they* that have been before me in Jerusalem: yea, my heart had great experience of wisdom and knowledge.  
+> **¹⁷** And I gave my heart to know wisdom, and to know madness and folly: I perceived that this also is vexation of spirit.  
+> **¹⁸** For in much wisdom *is* much grief: and he that increaseth knowledge increaseth sorrow.  
 
 Solomon, having asserted in general that *all is vanity,* and having given some general proofs of it, now takes the most effectual method to evince the truth of it, 1. By his own experience; he tried them all, and found them vanity. 2. By an induction of particulars; and here he begins with that which bids fairest of all to be the happiness of a reasonable creature, and that is knowledge and learning; if this be vanity, every thing else must needs be so. Now as to this,
 

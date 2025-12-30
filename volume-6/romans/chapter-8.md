@@ -8,15 +8,15 @@ The apostle, having fully explained the doctrine of justification, and pressed t
 
 ## The Believer's Privileges. (a. d. 58.)
 
-> <sup>1</sup> *There is* therefore now no condemnation to them which are in Christ Jesus, who walk not after the flesh, but after the Spirit.  
-> <sup>2</sup> For the law of the Spirit of life in Christ Jesus hath made me free from the law of sin and death.  
-> <sup>3</sup> For what the law could not do, in that it was weak through the flesh, God sending his own Son in the likeness of sinful flesh, and for sin, condemned sin in the flesh:  
-> <sup>4</sup> That the righteousness of the law might be fulfilled in us, who walk not after the flesh, but after the Spirit.  
-> <sup>5</sup> For they that are after the flesh do mind the things of the flesh; but they that are after the Spirit the things of the Spirit.  
-> <sup>6</sup> For to be carnally minded *is* death; but to be spiritually minded *is* life and peace.  
-> <sup>7</sup> Because the carnal mind *is* enmity against God: for it is not subject to the law of God, neither indeed can be.  
-> <sup>8</sup> So then they that are in the flesh cannot please God.  
-> <sup>9</sup> But ye are not in the flesh, but in the Spirit, if so be that the Spirit of God dwell in you. Now if any man have not the Spirit of Christ, he is none of his.  
+> **¹** *There is* therefore now no condemnation to them which are in Christ Jesus, who walk not after the flesh, but after the Spirit.  
+> **²** For the law of the Spirit of life in Christ Jesus hath made me free from the law of sin and death.  
+> **³** For what the law could not do, in that it was weak through the flesh, God sending his own Son in the likeness of sinful flesh, and for sin, condemned sin in the flesh:  
+> **⁴** That the righteousness of the law might be fulfilled in us, who walk not after the flesh, but after the Spirit.  
+> **⁵** For they that are after the flesh do mind the things of the flesh; but they that are after the Spirit the things of the Spirit.  
+> **⁶** For to be carnally minded *is* death; but to be spiritually minded *is* life and peace.  
+> **⁷** Because the carnal mind *is* enmity against God: for it is not subject to the law of God, neither indeed can be.  
+> **⁸** So then they that are in the flesh cannot please God.  
+> **⁹** But ye are not in the flesh, but in the Spirit, if so be that the Spirit of God dwell in you. Now if any man have not the Spirit of Christ, he is none of his.  
 
 I\. The apostle here begins with one signal privilege of true Christians, and describes the character of those to whom it belongs: *There is therefore now no condemnation to those that are in Christ Jesus,* Ro 8:1. This is his triumph after that melancholy complaint and conflict in the foregoing chapter—sin remaining, disturbing, vexing, but, blessed be God, not ruining. The complaint he takes to himself, but humbly transfers the comfort with himself to all true believers, who are all interested in it. 1. It is the unspeakable privilege and comfort of all those that are in Christ Jesus that there is therefore now no condemnation to them. He does not say, "There is no accusation against them," for this there is; but the accusation is thrown out, and the indictment quashed. He does not say, "There is nothing in them that deserves condemnation," for this there is, and they see it, and own it, and mourn over it, and condemn themselves for it; but it shall not be their ruin. He does not say, "There is no cross, no affliction to them or no displeasure in the affliction," for this there may be; but *no condemnation.* They may be chastened of the Lord, but not condemned with the world. Now this arises from their being in Christ Jesus; by virtue of their union with him through faith they are thus secured. They are in Christ Jesus, as in their city of refuge, and so are protected from the avenger of blood. He is their advocate, and brings them off. There is therefore no condemnation, because they are interested in the satisfaction that Christ by dying made to the law. In Christ, God does not only not condemn them, but is well pleased with them, Mt 17:5. 2. It is the undoubted character of all those who are so in Christ Jesus as to be freed from condemnation that *they walk not after the flesh but after the Spirit.* Observe, The character is given from their walk, not from any one particular act, but from their course and way. And the great question is, What is the principle of the walk, the flesh or the spirit, the old or the new nature, corruption or grace? Which of these do we mind, for which of these doe we make provision, by which of these are we governed, which of these do we take part with?
 
@@ -36,13 +36,13 @@ II\. This great truth, thus laid down, he illustrates in the Ro 8:2-9; and shows
 
 ## The Believer's Privileges. (a. d. 58.)
 
-> <sup>10</sup> And if Christ *be* in you, the body *is* dead because of sin; but the Spirit *is* life because of righteousness.  
-> <sup>11</sup> But if the Spirit of him that raised up Jesus from the dead dwell in you, he that raised up Christ from the dead shall also quicken your mortal bodies by his Spirit that dwelleth in you.  
-> <sup>12</sup> Therefore, brethren, we are debtors, not to the flesh, to live after the flesh.  
-> <sup>13</sup> For if ye live after the flesh, ye shall die: but if ye through the Spirit do mortify the deeds of the body, ye shall live.  
-> <sup>14</sup> For as many as are led by the Spirit of God, they are the sons of God.  
-> <sup>15</sup> For ye have not received the spirit of bondage again to fear; but ye have received the Spirit of adoption, whereby we cry, Abba, Father.  
-> <sup>16</sup> The Spirit itself beareth witness with our spirit, that we are the children of God:  
+> **¹⁰** And if Christ *be* in you, the body *is* dead because of sin; but the Spirit *is* life because of righteousness.  
+> **¹¹** But if the Spirit of him that raised up Jesus from the dead dwell in you, he that raised up Christ from the dead shall also quicken your mortal bodies by his Spirit that dwelleth in you.  
+> **¹²** Therefore, brethren, we are debtors, not to the flesh, to live after the flesh.  
+> **¹³** For if ye live after the flesh, ye shall die: but if ye through the Spirit do mortify the deeds of the body, ye shall live.  
+> **¹⁴** For as many as are led by the Spirit of God, they are the sons of God.  
+> **¹⁵** For ye have not received the spirit of bondage again to fear; but ye have received the Spirit of adoption, whereby we cry, Abba, Father.  
+> **¹⁶** The Spirit itself beareth witness with our spirit, that we are the children of God:  
 
 In these verses the apostle represents two more excellent benefits, which belong to true believers.
 
@@ -70,15 +70,15 @@ II\. The *Spirit of adoption* is another privilege belonging to those that are i
 
 ## The Believer's Privileges. (a. d. 58.)
 
-> <sup>17</sup> And if children, then heirs; heirs of God, and joint-heirs with Christ; if so be that we suffer with *him,* that we may be also glorified together.  
-> <sup>18</sup> For I reckon that the sufferings of this present time *are* not worthy *to be compared* with the glory which shall be revealed in us.  
-> <sup>19</sup> For the earnest expectation of the creature waiteth for the manifestation of the sons of God.  
-> <sup>20</sup> For the creature was made subject to vanity, not willingly, but by reason of him who hath subjected *the same* in hope,  
-> <sup>21</sup> Because the creature itself also shall be delivered from the bondage of corruption into the glorious liberty of the children of God.  
-> <sup>22</sup> For we know that the whole creation groaneth and travaileth in pain together until now.  
-> <sup>23</sup> And not only *they,* but ourselves also, which have the firstfruits of the Spirit, even we ourselves groan within ourselves, waiting for the adoption, *to wit,* the redemption of our body.  
-> <sup>24</sup> For we are saved by hope: but hope that is seen is not hope: for what a man seeth, why doth he yet hope for?  
-> <sup>25</sup> But if we hope for that we see not, *then* do we with patience wait for *it.*  
+> **¹⁷** And if children, then heirs; heirs of God, and joint-heirs with Christ; if so be that we suffer with *him,* that we may be also glorified together.  
+> **¹⁸** For I reckon that the sufferings of this present time *are* not worthy *to be compared* with the glory which shall be revealed in us.  
+> **¹⁹** For the earnest expectation of the creature waiteth for the manifestation of the sons of God.  
+> **²⁰** For the creature was made subject to vanity, not willingly, but by reason of him who hath subjected *the same* in hope,  
+> **²¹** Because the creature itself also shall be delivered from the bondage of corruption into the glorious liberty of the children of God.  
+> **²²** For we know that the whole creation groaneth and travaileth in pain together until now.  
+> **²³** And not only *they,* but ourselves also, which have the firstfruits of the Spirit, even we ourselves groan within ourselves, waiting for the adoption, *to wit,* the redemption of our body.  
+> **²⁴** For we are saved by hope: but hope that is seen is not hope: for what a man seeth, why doth he yet hope for?  
+> **²⁵** But if we hope for that we see not, *then* do we with patience wait for *it.*  
 
 In these words the apostle describes a fourth illustrious branch of the happiness of believers, namely, a title to the future glory. This is fitly annexed to our sonship; for as the adoption of sons entitles us to that glory, so the disposition of sons fits and prepares us for it. *If children, then heirs,* Ro 8:17. In earthly inheritances this rule does not hold, only the first-born are heirs; but the church is a church of first-born, for they are all heirs. Heaven is an inheritance that all the saints are heirs to. They do not come to it as purchasers by any merit or procurement of their own; but as heirs, purely by the act of God; for God makes heirs. The saints are heirs though in this world they are heirs under age; see Ga 4:1,2. Their present state is a state of education and preparation for the inheritance. How comfortable should this be to all the children of God, how little soever they have in possession, that, being heirs, they have enough in reversion! But the honour and happiness of an heir lie in the value and worth of that which he is heir to: we read of those that inherit the wind; and therefore we have here an abstract of the premises. 1. *Heirs of God.* The Lord himself is the portion of the saints' inheritance (Ps 16:5), a goodly heritage, Ro 8:6. The saints are spiritual priests, that have the Lord for their inheritance, Nu 18:20. The vision of God and the fruition of God make up the inheritance the saints are heirs to. God himself will be with them, and will be their God, Re 21:3. 2. *Joint-heirs with Christ.* Christ, as Mediator, is said to be the heir of all things (Heb 1:2), and true believers, by virtue of their union with him, *shall inherit all things,* Re 21:7. Those that now partake of the Spirit of Christ, as his brethren, shall, as his brethren, partake of his glory (Joh 17:24), shall sit down with him upon his throne, Re 3:21. Lord, what is man, that thou shouldst thus magnify him! Now this future glory is further spoken of as the reward of present sufferings and as the accomplishment of present hopes.
 
@@ -92,9 +92,9 @@ II\. As the accomplishment of the saints' present hopes and expectations, Ro 8:1
 
 ## The Believer's Privileges. (a. d. 58.)
 
-> <sup>26</sup> Likewise the Spirit also helpeth our infirmities: for we know not what we should pray for as we ought: but the Spirit itself maketh intercession for us with groanings which cannot be uttered.  
-> <sup>27</sup> And he that searcheth the hearts knoweth what *is* the mind of the Spirit, because he maketh intercession for the saints according to *the will of* God.  
-> <sup>28</sup> And we know that all things work together for good to them that love God, to them who are the called according to *his* purpose.  
+> **²⁶** Likewise the Spirit also helpeth our infirmities: for we know not what we should pray for as we ought: but the Spirit itself maketh intercession for us with groanings which cannot be uttered.  
+> **²⁷** And he that searcheth the hearts knoweth what *is* the mind of the Spirit, because he maketh intercession for the saints according to *the will of* God.  
+> **²⁸** And we know that all things work together for good to them that love God, to them who are the called according to *his* purpose.  
 
 The apostle here suggests two privileges more to which true Christians are entitled:—
 
@@ -114,8 +114,8 @@ II\. The concurrence of all providences for the good of those that are Christ's,
 
 ## The Believer's Privileges. (a. d. 58.)
 
-> <sup>29</sup> For whom he did foreknow, he also did predestinate *to be* conformed to the image of his Son, that he might be the firstborn among many brethren.  
-> <sup>30</sup> Moreover whom he did predestinate, them he also called: and whom he called, them he also justified: and whom he justified, them he also glorified.  
+> **²⁹** For whom he did foreknow, he also did predestinate *to be* conformed to the image of his Son, that he might be the firstborn among many brethren.  
+> **³⁰** Moreover whom he did predestinate, them he also called: and whom he called, them he also justified: and whom he justified, them he also glorified.  
 
 The apostle, having reckoned up so many ingredients of the happiness of true believers, comes here to represent the ground of them all, which he lays in predestination. These precious privileges are conveyed to us by the charter of the covenant, but they are founded in the counsel of God, which infallibly secures the event. That Jesus Christ, the purchaser, might not labour in vain, nor spend his strength and life for nought and in vain, there is a remnant given him, a seed that he shall see, so that the good pleasure of the Lord shall prosper in his hands. For the explication of this he here sets before us the order of the causes of our salvation, a golden chain, which cannot be broken. There are four links of it:—
 
@@ -129,15 +129,15 @@ IV\. *Whom he justified those he also glorified.* The power of corruption being 
 
 ## The Believer's Triumph. (a. d. 58.)
 
-> <sup>31</sup> What shall we then say to these things? If God *be* for us, who *can be* against us?  
-> <sup>32</sup> He that spared not his own Son, but delivered him up for us all, how shall he not with him also freely give us all things?  
-> <sup>33</sup> Who shall lay any thing to the charge of God's elect? *It is* God that justifieth.  
-> <sup>34</sup> Who *is* he that condemneth? *It is* Christ that died, yea rather, that is risen again, who is even at the right hand of God, who also maketh intercession for us.  
-> <sup>35</sup> Who shall separate us from the love of Christ? *shall* tribulation, or distress, or persecution, or famine, or nakedness, or peril, or sword?  
-> <sup>36</sup> As it is written, For thy sake we are killed all the day long; we are accounted as sheep for the slaughter.  
-> <sup>37</sup> Nay, in all these things we are more than conquerors through him that loved us.  
-> <sup>38</sup> For I am persuaded, that neither death, nor life, nor angels, nor principalities, nor powers, nor things present, nor things to come,  
-> <sup>39</sup> Nor height, nor depth, nor any other creature, shall be able to separate us from the love of God, which is in Christ Jesus our Lord.  
+> **³¹** What shall we then say to these things? If God *be* for us, who *can be* against us?  
+> **³²** He that spared not his own Son, but delivered him up for us all, how shall he not with him also freely give us all things?  
+> **³³** Who shall lay any thing to the charge of God's elect? *It is* God that justifieth.  
+> **³⁴** Who *is* he that condemneth? *It is* Christ that died, yea rather, that is risen again, who is even at the right hand of God, who also maketh intercession for us.  
+> **³⁵** Who shall separate us from the love of Christ? *shall* tribulation, or distress, or persecution, or famine, or nakedness, or peril, or sword?  
+> **³⁶** As it is written, For thy sake we are killed all the day long; we are accounted as sheep for the slaughter.  
+> **³⁷** Nay, in all these things we are more than conquerors through him that loved us.  
+> **³⁸** For I am persuaded, that neither death, nor life, nor angels, nor principalities, nor powers, nor things present, nor things to come,  
+> **³⁹** Nor height, nor depth, nor any other creature, shall be able to separate us from the love of God, which is in Christ Jesus our Lord.  
 
 The apostle closes this excellent discourse upon the privileges of believers with a holy triumph, in the name of all the saints. Having largely set forth the mystery of God's love to us in Christ, and the exceedingly great and precious privileges we enjoy by him, he concludes like an orator: *What shall we then say to these things?* What use shall we make of all that has been said? He speaks as one amazed and swallowed up with the contemplation and admiration of it, wondering at the height and depth, and length and breadth, of the love of Christ, which passeth knowledge. The more we know of other things the less we wonder at them; but the further we are led into an acquaintance with gospel mysteries the more we are affected with the admiration of them. If Paul was at a loss what to say to these things, no marvel if we be. And what does he say? Why, if ever Paul rode in a triumphant chariot on this side of heaven, here it was: with such a holy height and bravery of spirit, with such a fluency and copiousness of expression, does he here comfort himself and all the people of God, upon the consideration of these privileges. In general, he here makes a challenge, throws down the gauntlet, as it were, dares all the enemies of the saints to do their worst: *If God be for us, who can be against us?* The ground of the challenge is God's being for us; in this he sums up all our privileges. This includes all, that *God is for us;* not only reconciled to us, and so not against us, but in covenant with us, and so engaged for us—all his attributes for us, his promises for us. All that he is, and has, and does, is for his people. He performs all things for them. He is for them, even when he seems to act against them. And, if so, *who can be against us,* so as to prevail against us, so as to hinder our happiness? Be they ever so great and strong, ever so many, ever so might, ever so malicious, what can they do? While God is for us, and we keep in his love, we may with a holy boldness defy all the powers of darkness. Let Satan do his worst, he is chained; let the world do its worst, it is conquered: principalities and powers are spoiled and disarmed, and triumphed over, in the cross of Christ. Who then dares fight against us, while God himself is fighting for us? And this we say to these things, this is the inference we draw from these premises. More particularly.
 

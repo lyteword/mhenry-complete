@@ -8,17 +8,17 @@ In this chapter we have a miracle and a sermon: the miracle wrought to make way 
 
 ## The Healing of a Cripple.
 
-> <sup>1</sup> Now Peter and John went up together into the temple at the hour of prayer, *being* the ninth *hour.*  
-> <sup>2</sup> And a certain man lame from his mother's womb was carried, whom they laid daily at the gate of the temple which is called Beautiful, to ask alms of them that entered into the temple;  
-> <sup>3</sup> Who seeing Peter and John about to go into the temple asked an alms.  
-> <sup>4</sup> And Peter, fastening his eyes upon him with John, said, Look on us.  
-> <sup>5</sup> And he gave heed unto them, expecting to receive something of them.  
-> <sup>6</sup> Then Peter said, Silver and gold have I none; but such as I have give I thee: In the name of Jesus Christ of Nazareth rise up and walk.  
-> <sup>7</sup> And he took him by the right hand, and lifted *him* up: and immediately his feet and ankle bones received strength.  
-> <sup>8</sup> And he leaping up stood, and walked, and entered with them into the temple, walking, and leaping, and praising God.  
-> <sup>9</sup> And all the people saw him walking and praising God:  
-> <sup>10</sup> And they knew that it was he which sat for alms at the Beautiful gate of the temple: and they were filled with wonder and amazement at that which had happened unto him.  
-> <sup>11</sup> And as the lame man which was healed held Peter and John, all the people ran together unto them in the porch that is called Solomon's, greatly wondering.  
+> **¹** Now Peter and John went up together into the temple at the hour of prayer, *being* the ninth *hour.*  
+> **²** And a certain man lame from his mother's womb was carried, whom they laid daily at the gate of the temple which is called Beautiful, to ask alms of them that entered into the temple;  
+> **³** Who seeing Peter and John about to go into the temple asked an alms.  
+> **⁴** And Peter, fastening his eyes upon him with John, said, Look on us.  
+> **⁵** And he gave heed unto them, expecting to receive something of them.  
+> **⁶** Then Peter said, Silver and gold have I none; but such as I have give I thee: In the name of Jesus Christ of Nazareth rise up and walk.  
+> **⁷** And he took him by the right hand, and lifted *him* up: and immediately his feet and ankle bones received strength.  
+> **⁸** And he leaping up stood, and walked, and entered with them into the temple, walking, and leaping, and praising God.  
+> **⁹** And all the people saw him walking and praising God:  
+> **¹⁰** And they knew that it was he which sat for alms at the Beautiful gate of the temple: and they were filled with wonder and amazement at that which had happened unto him.  
+> **¹¹** And as the lame man which was healed held Peter and John, all the people ran together unto them in the porch that is called Solomon's, greatly wondering.  
 
 We were told in general (Ac 2:43) that *many signs and wonders were done by the apostles,* which are not written in this book; but here we have one given us for an instance. As they wrought miracles, not upon every body as every body had occasion for them, but as the Holy Spirit gave direction, so as to answer the end of their commission; so all the miracles they did work are not written in this book, but such only are recorded as the Holy Ghost thought fit, to answer the end of this sacred history.
 
@@ -44,21 +44,21 @@ VI\. How the people that were eye-witnesses of this miracle were influenced by i
 
 ## Peter's Address after Healing the Cripple.
 
-> <sup>12</sup> And when Peter saw *it,* he answered unto the people, Ye men of Israel, why marvel ye at this? or why look ye so earnestly on us, as though by our own power or holiness we had made this man to walk?  
-> <sup>13</sup> The God of Abraham, and of Isaac, and of Jacob, the God of our fathers, hath glorified his Son Jesus; whom ye delivered up, and denied him in the presence of Pilate, when he was determined to let *him* go.  
-> <sup>14</sup> But ye denied the Holy One and the Just, and desired a murderer to be granted unto you;  
-> <sup>15</sup> And killed the Prince of life, whom God hath raised from the dead; whereof we are witnesses.  
-> <sup>16</sup> And his name through faith in his name hath made this man strong, whom ye see and know: yea, the faith which is by him hath given him this perfect soundness in the presence of you all.  
-> <sup>17</sup> And now, brethren, I wot that through ignorance ye did *it,* as *did* also your rulers.  
-> <sup>18</sup> But those things, which God before had showed by the mouth of all his prophets, that Christ should suffer, he hath so fulfilled.  
-> <sup>19</sup> Repent ye therefore, and be converted, that your sins may be blotted out, when the times of refreshing shall come from the presence of the Lord;  
-> <sup>20</sup> And he shall send Jesus Christ, which before was preached unto you:  
-> <sup>21</sup> Whom the heaven must receive until the times of restitution of all things, which God hath spoken by the mouth of all his holy prophets since the world began.  
-> <sup>22</sup> For Moses truly said unto the fathers, A prophet shall the Lord your God raise up unto you of your brethren, like unto me; him shall ye hear in all things whatsoever he shall say unto you.  
-> <sup>23</sup> And it shall come to pass, *that* every soul, which will not hear that prophet, shall be destroyed from among the people.  
-> <sup>24</sup> Yea, and all the prophets from Samuel and those that follow after, as many as have spoken, have likewise foretold of these days.  
-> <sup>25</sup> Ye are the children of the prophets, and of the covenant which God made with our fathers, saying unto Abraham, And in thy seed shall all the kindreds of the earth be blessed.  
-> <sup>26</sup> Unto you first God, having raised up his Son Jesus, sent him to bless you, in turning away every one of you from his iniquities.  
+> **¹²** And when Peter saw *it,* he answered unto the people, Ye men of Israel, why marvel ye at this? or why look ye so earnestly on us, as though by our own power or holiness we had made this man to walk?  
+> **¹³** The God of Abraham, and of Isaac, and of Jacob, the God of our fathers, hath glorified his Son Jesus; whom ye delivered up, and denied him in the presence of Pilate, when he was determined to let *him* go.  
+> **¹⁴** But ye denied the Holy One and the Just, and desired a murderer to be granted unto you;  
+> **¹⁵** And killed the Prince of life, whom God hath raised from the dead; whereof we are witnesses.  
+> **¹⁶** And his name through faith in his name hath made this man strong, whom ye see and know: yea, the faith which is by him hath given him this perfect soundness in the presence of you all.  
+> **¹⁷** And now, brethren, I wot that through ignorance ye did *it,* as *did* also your rulers.  
+> **¹⁸** But those things, which God before had showed by the mouth of all his prophets, that Christ should suffer, he hath so fulfilled.  
+> **¹⁹** Repent ye therefore, and be converted, that your sins may be blotted out, when the times of refreshing shall come from the presence of the Lord;  
+> **²⁰** And he shall send Jesus Christ, which before was preached unto you:  
+> **²¹** Whom the heaven must receive until the times of restitution of all things, which God hath spoken by the mouth of all his holy prophets since the world began.  
+> **²²** For Moses truly said unto the fathers, A prophet shall the Lord your God raise up unto you of your brethren, like unto me; him shall ye hear in all things whatsoever he shall say unto you.  
+> **²³** And it shall come to pass, *that* every soul, which will not hear that prophet, shall be destroyed from among the people.  
+> **²⁴** Yea, and all the prophets from Samuel and those that follow after, as many as have spoken, have likewise foretold of these days.  
+> **²⁵** Ye are the children of the prophets, and of the covenant which God made with our fathers, saying unto Abraham, And in thy seed shall all the kindreds of the earth be blessed.  
+> **²⁶** Unto you first God, having raised up his Son Jesus, sent him to bless you, in turning away every one of you from his iniquities.  
 
 We have here the sermon which Peter preached after he had cured the lame man. *When Peter saw it.* 1. When he saw the people got together in a crowd, he took that opportunity to preach Christ to them, especially the temple being the place of their concourse, and Solomon's porch there: let them come and hear a more excellent wisdom than Solomon's, for, behold, a greater than Solomon is here preached. 2. When he saw the people affected with the miracle, and filed with admiration, then he sowed the gospel seed in the ground which was thus broken up, and prepared to receive it. 3. When he saw the people ready to adore him and John, he stepped in immediately, and diverted their respect from them, that it might be directed to Christ only; to this *he answered* presently, as Paul and Barnabas at Lystra. See Ac 14:14,15. In the sermon,
 

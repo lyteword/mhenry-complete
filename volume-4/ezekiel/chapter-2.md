@@ -8,11 +8,11 @@ What our Lord Jesus said to St. Paul (Ac 26:16) may fitly be applied to the prop
 
 ## The Prophet Commissioned to Reprove. (b. c. 595.)
 
-> <sup>1</sup> And he said unto me, Son of man, stand upon thy feet, and I will speak unto thee.  
-> <sup>2</sup> And the spirit entered into me when he spake unto me, and set me upon my feet, that I heard him that spake unto me.  
-> <sup>3</sup> And he said unto me, Son of man, I send thee to the children of Israel, to a rebellious nation that hath rebelled against me: they and their fathers have transgressed against me, *even* unto this very day.  
-> <sup>4</sup> For *they are* impudent children and stiff-hearted. I do send thee unto them; and thou shalt say unto them, Thus saith the Lord GOD.  
-> <sup>5</sup> And they, whether they will hear, or whether they will forbear, (for they *are* a rebellious house,) yet shall know that there hath been a prophet among them.  
+> **¹** And he said unto me, Son of man, stand upon thy feet, and I will speak unto thee.  
+> **²** And the spirit entered into me when he spake unto me, and set me upon my feet, that I heard him that spake unto me.  
+> **³** And he said unto me, Son of man, I send thee to the children of Israel, to a rebellious nation that hath rebelled against me: they and their fathers have transgressed against me, *even* unto this very day.  
+> **⁴** For *they are* impudent children and stiff-hearted. I do send thee unto them; and thou shalt say unto them, Thus saith the Lord GOD.  
+> **⁵** And they, whether they will hear, or whether they will forbear, (for they *are* a rebellious house,) yet shall know that there hath been a prophet among them.  
 
 The title here given to Ezekiel, as often afterwards, is very observable. God, when he speaks to him, calls him, *Son of man* (Eze 2:1,3), *Son of Adam, Son of the earth.* Daniel is once called so (Da 8:17) and but once; the compellation is used to no other of the prophets but to Ezekiel all along. We may take it, 1. As a humble diminishing title. Lest Ezekiel should be lifted up with the abundance of the revelations, he is put in mind of this, that still he is a *son of man,* a mean, weak, mortal creature. Among other things made known to him, it was necessary he should be made to know this, that he was a *son of man,* and therefore that it was wonderful condescension in God that he was pleased thus to manifest himself to him. Now he is among the living creatures, the angels; yet he must remember that he is himself a man, a dying creature. *What is man, or the son of man,* that he should be thus visited, thus dignified? Though God had here a splendid retinue of holy angles about his throne, who were ready to go on his errands, yet he passes them all by, and pitches on Ezekiel, a *son of man,* to be his messenger to the *house of Israel;* for we *have this treasure in earthen vessels,* and God's messages sent us by men like ourselves, whose terror shall not *make us afraid* nor *their hand be heavy upon us.* Ezekiel was a priest, but the priesthood was brought low and the honour of it laid in the dust. It therefore became him, and all of his order, to humble themselves, and to lie low, as sons of men, common men. He was now to be employed as a prophet, God's ambassador, and a ruler over the kingdoms (Jer 1:10), a post of great honour, but he must remember that he is a *son of man,* and, whatever good he did, it was not by any might of his own, for he was a *son of man,* but in the strength of divine grace, which must therefore have all the glory. Or, 2. We may take it as an honourable dignifying title; for it is one of the titles of the Messiah in the Old Testament (Da 7:13, *I saw one like the Son of man come with the clouds of heaven*), whence Christ borrows the title he often calls himself by, *The Son of man.* The prophets were types of him, as they had near access to God and great authority among men; and therefore as David the king is called the *Lord's anointed,* or *Christ,* so Ezekiel the prophet is called *son of man.*
 
@@ -30,11 +30,11 @@ II\. Ezekiel is here sent, and made to go, with a message to the children of Isr
 
 ## The Prophet Cautioned Not to Fear; Charge Given to the Prophet. (b. c. 595.)
 
-> <sup>6</sup> And thou, son of man, be not afraid of them, neither be afraid of their words, though briers and thorns *be* with thee, and thou dost dwell among scorpions: be not afraid of their words, nor be dismayed at their looks, though they *be* a rebellious house.  
-> <sup>7</sup> And thou shalt speak my words unto them, whether they will hear, or whether they will forbear: for they *are* most rebellious.  
-> <sup>8</sup> But thou, son of man, hear what I say unto thee; Be not thou rebellious like that rebellious house: open thy mouth, and eat that I give thee.  
-> <sup>9</sup> And when I looked, behold, a hand *was* sent unto me; and, lo, a roll of a book *was* therein;  
-> <sup>10</sup> And he spread it before me; and it *was* written within and without: and *there was* written therein lamentations, and mourning, and woe.  
+> **⁶** And thou, son of man, be not afraid of them, neither be afraid of their words, though briers and thorns *be* with thee, and thou dost dwell among scorpions: be not afraid of their words, nor be dismayed at their looks, though they *be* a rebellious house.  
+> **⁷** And thou shalt speak my words unto them, whether they will hear, or whether they will forbear: for they *are* most rebellious.  
+> **⁸** But thou, son of man, hear what I say unto thee; Be not thou rebellious like that rebellious house: open thy mouth, and eat that I give thee.  
+> **⁹** And when I looked, behold, a hand *was* sent unto me; and, lo, a roll of a book *was* therein;  
+> **¹⁰** And he spread it before me; and it *was* written within and without: and *there was* written therein lamentations, and mourning, and woe.  
 
 The prophet, having received his commission, here receives a charge with it. It is a post of honour to which he is advanced, but withal it is a post of service and work, and it is here required of him,
 

@@ -8,23 +8,23 @@ This evangelist begins with the account of Christ's parentage and birth, the anc
 
 ## The Genealogy of Christ.
 
-> <sup>1</sup> The book of the generation of Jesus Christ, the son of David, the son of Abraham.  
-> <sup>2</sup> Abraham begat Isaac; and Isaac begat Jacob; and Jacob begat Judas and his brethren;  
-> <sup>3</sup> And Judas begat Phares and Zara of Thamar; and Phares begat Esrom; and Esrom begat Aram;  
-> <sup>4</sup> And Aram begat Aminadab; and Aminadab begat Naasson; and Naasson begat Salmon;  
-> <sup>5</sup> And Salmon begat Booz of Rachab; and Booz begat Obed of Ruth; and Obed begat Jesse;  
-> <sup>6</sup> And Jesse begat David the king; and David the king begat Solomon of her *that had been the wife* of Urias;  
-> <sup>7</sup> And Solomon begat Roboam; and Roboam begat Abia; and Abia begat Asa;  
-> <sup>8</sup> And Asa begat Josaphat; and Josaphat begat Joram; and Joram begat Ozias;  
-> <sup>9</sup> And Ozias begat Joatham; and Joatham begat Achaz; and Achaz begat Ezekias;  
-> <sup>10</sup> And Ezekias begat Manasses; and Manasses begat Amon; and Amon begat Josias;  
-> <sup>11</sup> And Josias begat Jechonias and his brethren, about the time they were carried away to Babylon:  
-> <sup>12</sup> And after they were brought to Babylon, Jechonias begat Salathiel; and Salathiel begat Zorobabel;  
-> <sup>13</sup> And Zorobabel begat Abiud; and Abiud begat Eliakim; and Eliakim begat Azor;  
-> <sup>14</sup> And Azor begat Sadoc; and Sadoc begat Achim; and Achim begat Eliud;  
-> <sup>15</sup> And Eliud begat Eleazar; and Eleazar begat Matthan; and Matthan begat Jacob;  
-> <sup>16</sup> And Jacob begat Joseph the husband of Mary, of whom was born Jesus, who is called Christ.  
-> <sup>17</sup> So all the generations from Abraham to David *are* fourteen generations; and from David until the carrying away into Babylon *are* fourteen generations; and from the carrying away into Babylon unto Christ *are* fourteen generations.  
+> **¹** The book of the generation of Jesus Christ, the son of David, the son of Abraham.  
+> **²** Abraham begat Isaac; and Isaac begat Jacob; and Jacob begat Judas and his brethren;  
+> **³** And Judas begat Phares and Zara of Thamar; and Phares begat Esrom; and Esrom begat Aram;  
+> **⁴** And Aram begat Aminadab; and Aminadab begat Naasson; and Naasson begat Salmon;  
+> **⁵** And Salmon begat Booz of Rachab; and Booz begat Obed of Ruth; and Obed begat Jesse;  
+> **⁶** And Jesse begat David the king; and David the king begat Solomon of her *that had been the wife* of Urias;  
+> **⁷** And Solomon begat Roboam; and Roboam begat Abia; and Abia begat Asa;  
+> **⁸** And Asa begat Josaphat; and Josaphat begat Joram; and Joram begat Ozias;  
+> **⁹** And Ozias begat Joatham; and Joatham begat Achaz; and Achaz begat Ezekias;  
+> **¹⁰** And Ezekias begat Manasses; and Manasses begat Amon; and Amon begat Josias;  
+> **¹¹** And Josias begat Jechonias and his brethren, about the time they were carried away to Babylon:  
+> **¹²** And after they were brought to Babylon, Jechonias begat Salathiel; and Salathiel begat Zorobabel;  
+> **¹³** And Zorobabel begat Abiud; and Abiud begat Eliakim; and Eliakim begat Azor;  
+> **¹⁴** And Azor begat Sadoc; and Sadoc begat Achim; and Achim begat Eliud;  
+> **¹⁵** And Eliud begat Eleazar; and Eleazar begat Matthan; and Matthan begat Jacob;  
+> **¹⁶** And Jacob begat Joseph the husband of Mary, of whom was born Jesus, who is called Christ.  
+> **¹⁷** So all the generations from Abraham to David *are* fourteen generations; and from David until the carrying away into Babylon *are* fourteen generations; and from the carrying away into Babylon unto Christ *are* fourteen generations.  
 
 Concerning this genealogy of our Saviour, observe,
 
@@ -64,14 +64,14 @@ Lastly. The general summary of all this genealogy we have, Mt 1:17, where it is 
 
 ## The Birth of Christ.
 
-> <sup>18</sup> Now the birth of Jesus Christ was on this wise: When as his mother Mary was espoused to Joseph, before they came together, she was found with child of the Holy Ghost.  
-> <sup>19</sup> Then Joseph her husband, being a just *man,* and not willing to make her a public example, was minded to put her away privily.  
-> <sup>20</sup> But while he thought on these things, behold, the angel of the Lord appeared unto him in a dream, saying, Joseph, thou son of David, fear not to take unto thee Mary thy wife: for that which is conceived in her is of the Holy Ghost.  
-> <sup>21</sup> And she shall bring forth a son, and thou shalt call his name JESUS: for he shall save his people from their sins.  
-> <sup>22</sup> Now all this was done, that it might be fulfilled which was spoken of the Lord by the prophet, saying,  
-> <sup>23</sup> Behold, a virgin shall be with child, and shall bring forth a son, and they shall call his name Emmanuel, which being interpreted is, God with us.  
-> <sup>24</sup> Then Joseph being raised from sleep did as the angel of the Lord had bidden him, and took unto him his wife:  
-> <sup>25</sup> And knew her not till she had brought forth her firstborn son: and he called his name JESUS.  
+> **¹⁸** Now the birth of Jesus Christ was on this wise: When as his mother Mary was espoused to Joseph, before they came together, she was found with child of the Holy Ghost.  
+> **¹⁹** Then Joseph her husband, being a just *man,* and not willing to make her a public example, was minded to put her away privily.  
+> **²⁰** But while he thought on these things, behold, the angel of the Lord appeared unto him in a dream, saying, Joseph, thou son of David, fear not to take unto thee Mary thy wife: for that which is conceived in her is of the Holy Ghost.  
+> **²¹** And she shall bring forth a son, and thou shalt call his name JESUS: for he shall save his people from their sins.  
+> **²²** Now all this was done, that it might be fulfilled which was spoken of the Lord by the prophet, saying,  
+> **²³** Behold, a virgin shall be with child, and shall bring forth a son, and they shall call his name Emmanuel, which being interpreted is, God with us.  
+> **²⁴** Then Joseph being raised from sleep did as the angel of the Lord had bidden him, and took unto him his wife:  
+> **²⁵** And knew her not till she had brought forth her firstborn son: and he called his name JESUS.  
 
 The mystery of Christ's incarnation is to be adored, not pried into. If we *know not the way of the Spirit* in the formation of common persons, nor *how the bones are formed in the womb of* any one *that is with child* (Ec 11:5), much less do we know how the blessed Jesus was formed in the womb of the blessed virgin. When David admires how he himself was *made in secret,* and *curiously wrought* (Ps 139:13-16), perhaps he speaks in the spirit of Christ's incarnation. Some circumstances attending the birth of Christ we find here which are not in Luke, though it is more largely recorded here. Here we have,
 

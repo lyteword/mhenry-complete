@@ -8,31 +8,31 @@ We had several important exhortations in the close of the foregoing chapter, and
 
 ## Cautions against Impurity. (a. d. 61.)
 
-> <sup>1</sup> Be ye therefore followers of God, as dear children;  
-> <sup>2</sup> And walk in love, as Christ also hath loved us, and hath given himself for us an offering and a sacrifice to God for a sweetsmelling savour.  
+> **¹** Be ye therefore followers of God, as dear children;  
+> **²** And walk in love, as Christ also hath loved us, and hath given himself for us an offering and a sacrifice to God for a sweetsmelling savour.  
 
 Here we have the exhortation to mutual love, or to Christian charity. The apostle had been insisting on this in the former chapter, and particularly in the Eph 4:17-32 of it, to which the particle *therefore* refers, and connects what he had said there with what is contained in these verses, thus: "Because God, for Christ's sake, has forgiven you, therefore be you followers of God, or *imitators* of him;" for so the word signifies. Pious persons should imitate the God whom they worship, as far as he has revealed himself as imitable by them. They must conform themselves to his example, and have his image renewed upon them. This puts a great honour upon practical religion, that it is the imitating of God. We must be holy as God is holy, merciful as he is merciful, perfect as he is perfect. But there is no one attribute of God more recommended to our imitation than that of his goodness. Be you imitators of God, or resemble him, in every grace, and especially in his love, and in his pardoning goodness. God *is love; and those that dwell in love dwell in God and God in them.* Thus he has proclaimed his name, *Gracious and merciful, and abundant in goodness. As dear children,* as children (who are wont to be greatly beloved by their parents) usually resemble them in the lineaments and features of their faces, and in the dispositions and qualities of their minds; or as becomes the children of God, who are beloved and cherished by their heavenly Father. Children are obliged to imitate their parents in what is good, especially when dearly beloved by them. The character that we bear of God's children obliges us to resemble him, especially in his love and goodness, in his mercy and readiness to forgive. And those only are God's dear children who imitate him in these. It follows, *And walk in love,* Eph 5:2. This godlike grace should conduct and influence our whole conversation, which is meant by walking in it. It should be the principle from which we act; it should direct the ends at which we aim. We should be more careful to give proof of the sincerity of our love one to another. *As Christ also hath loved us.* Here the apostle directs us to the example of Christ, whom Christians are obliged to imitate, and in whom we have an instance of the most free and generous love that ever was, that great love wherewith he hath loved us. We are all joint sharers in that love, and partakers of the comfort of it, and therefore should love one another, Christ having loved us all and given such proof of his love to us; for *he hath given himself for us.* The apostle designedly enlarges on the subject; for what can yield us more delightful matter for contemplation than this? Christ gave himself to die for us; and the death of Christ was the great sacrifice of atonement: *An offering and a sacrifice to God;* or an offering, even a sacrifice—a propitiatory sacrifice, to expiate our guilt, which had been prefigured in the legal oblations and sacrifices; and this *for a sweet-smelling savour.* Some observe that the sin-offerings were never said to be of a sweet-smelling savour; but this is said of *the Lamb of God, which taketh away the sin of the world.* As he offered himself with a design to be accepted of God, so God did accept, was pleased with, and appeased by, that sacrifice. Note, As the sacrifice of Christ was efficacious with God, so his example should be prevailing with us, and we should carefully copy after it.
 
 ## Preservatives from Impurity; Cautions and Admonitions. (a. d. 61.)
 
-> <sup>3</sup> But fornication, and all uncleanness, or covetousness, let it not be once named among you, as becometh saints;  
-> <sup>4</sup> Neither filthiness, nor foolish talking, nor jesting, which are not convenient: but rather giving of thanks.  
-> <sup>5</sup> For this ye know, that no whoremonger, nor unclean person, nor covetous man, who is an idolater, hath any inheritance in the kingdom of Christ and of God.  
-> <sup>6</sup> Let no man deceive you with vain words: for because of these things cometh the wrath of God upon the children of disobedience.  
-> <sup>7</sup> Be not ye therefore partakers with them.  
-> <sup>8</sup> For ye were sometimes darkness, but now *are ye* light in the Lord: walk as children of light:  
-> <sup>9</sup> (For the fruit of the Spirit *is* in all goodness and righteousness and truth;)  
-> <sup>10</sup> Proving what is acceptable unto the Lord.  
-> <sup>11</sup> And have no fellowship with the unfruitful works of darkness, but rather reprove *them.*  
-> <sup>12</sup> For it is a shame even to speak of those things which are done of them in secret.  
-> <sup>13</sup> But all things that are reproved are made manifest by the light: for whatsoever doth make manifest is light.  
-> <sup>14</sup> Wherefore he saith, Awake thou that sleepest, and arise from the dead, and Christ shall give thee light.  
-> <sup>15</sup> See then that ye walk circumspectly, not as fools, but as wise,  
-> <sup>16</sup> Redeeming the time, because the days are evil.  
-> <sup>17</sup> Wherefore be ye not unwise, but understanding what the will of the Lord *is.*  
-> <sup>18</sup> And be not drunk with wine, wherein is excess; but be filled with the Spirit;  
-> <sup>19</sup> Speaking to yourselves in psalms and hymns and spiritual songs, singing and making melody in your heart to the Lord;  
-> <sup>20</sup> Giving thanks always for all things unto God and the Father in the name of our Lord Jesus Christ;  
+> **³** But fornication, and all uncleanness, or covetousness, let it not be once named among you, as becometh saints;  
+> **⁴** Neither filthiness, nor foolish talking, nor jesting, which are not convenient: but rather giving of thanks.  
+> **⁵** For this ye know, that no whoremonger, nor unclean person, nor covetous man, who is an idolater, hath any inheritance in the kingdom of Christ and of God.  
+> **⁶** Let no man deceive you with vain words: for because of these things cometh the wrath of God upon the children of disobedience.  
+> **⁷** Be not ye therefore partakers with them.  
+> **⁸** For ye were sometimes darkness, but now *are ye* light in the Lord: walk as children of light:  
+> **⁹** (For the fruit of the Spirit *is* in all goodness and righteousness and truth;)  
+> **¹⁰** Proving what is acceptable unto the Lord.  
+> **¹¹** And have no fellowship with the unfruitful works of darkness, but rather reprove *them.*  
+> **¹²** For it is a shame even to speak of those things which are done of them in secret.  
+> **¹³** But all things that are reproved are made manifest by the light: for whatsoever doth make manifest is light.  
+> **¹⁴** Wherefore he saith, Awake thou that sleepest, and arise from the dead, and Christ shall give thee light.  
+> **¹⁵** See then that ye walk circumspectly, not as fools, but as wise,  
+> **¹⁶** Redeeming the time, because the days are evil.  
+> **¹⁷** Wherefore be ye not unwise, but understanding what the will of the Lord *is.*  
+> **¹⁸** And be not drunk with wine, wherein is excess; but be filled with the Spirit;  
+> **¹⁹** Speaking to yourselves in psalms and hymns and spiritual songs, singing and making melody in your heart to the Lord;  
+> **²⁰** Giving thanks always for all things unto God and the Father in the name of our Lord Jesus Christ;  
 
 These verses contain a caution against all manner of uncleanness, with proper remedies and arguments proposed: some further cautions are added, and other duties recommended. Filthy lusts must be suppressed, in order to the supporting of holy love. *Walk in love,* and *shun fornication and all uncleanness. Fornication* is folly committed between unmarried persons. *All uncleanness* includes all other sorts of filthy lusts, which were too common among the Gentiles. Or *covetousness,* which being thus connected, and mentioned as a thing which should not be *once named,* some understand it, in the chaste style of the scripture, of unnatural lust; while others take it in the more common sense, for an immoderate desire of gain or an insatiable love of riches, which is spiritual adultery; for by this the soul, which was espoused to God, goes astray from him, and embraces the bosom of a stranger, and therefore carnal worldlings are called adulterers: *You adulterers and adulteresses, know you not that the friendship of the world is enmity with God?* Now these sins must be dreaded and detested in the highest degree: *Let it not be once named among you,* never in a way of approbation nor without abhorrence, *as becometh saints,* holy persons, who are separated from the world, and dedicated unto God. The apostle not only cautions against the gross acts of sin, but against what some may be apt to make light of, and think to be excusable. *Neither filthiness* (Eph 5:4), by which may be understood all wanton and unseemly gestures and behaviour; *nor foolish talking,* obscene and lewd discourse, or, more generally, such vain discourse as betrays much folly and indiscretion, and is far from edifying the hearers; *nor jesting.* The Greek word *eutrapelia* is the same which Aristotle, in his Ethics, makes a virtue: pleasantness of conversation. And there is no doubt an innocent and inoffensive jesting, which we cannot suppose the apostle here forbids. Some understand him of such scurrilous and abusive reflections as tend to expose others and to make them appear ridiculous. This is bad enough: but the context seems to restrain it to such pleasantry of discourse as is filthy and obscene, which he may also design by that *corrupt,* or putrid and rotten, communication that he speaks of, Eph 4:29. Of these things he says, *They are not convenient.* Indeed there is more than inconvenience, even a great deal of mischief, in them. They are so far from being profitable that they pollute and poison the hearers. But the meaning is, Those things do not become Christians, and are very unsuitable to their profession and character. Christians are allowed to be cheerful and pleasant; but they must be merry and wise. The apostle adds, *But rather giving of thanks:* so far let the Christian's way of mirth be from that of obscene and profane wit, that he may delight his mind, and make himself cheerful, by a grateful remembrance of God's goodness and mercy to him, and by blessing and praising him on account of these. Note, 1. We should take all occasions to render thanksgivings and praises to God for his kindness and favours to us. 2. A reflection on the grace and goodness of God to us, with a design to excite our thankfulness to him, is proper to refresh and delight the Christian's mind, and to make him cheerful. Dr. Hammond thinks that *eucharistia* may signify gracious, pious, religious discourse in general, by way of opposition to what the apostle condemns. Our cheerfulness, instead of breaking out into what is vain and sinful, and a profanation of God's name, should express itself as becomes Christians, and in what may tend to his glory. If men abounded more in good and pious expressions, they would not be so apt to utter ill and unbecoming words; for shall *blessing* and *cursing,* lewdness and thanksgivings, *proceed out of the same mouth?*
 
@@ -46,19 +46,19 @@ II\. In the Eph 5:18-20 the apostle warns against some other particular sins, an
 
 ## Duties of Husbands and Wives. (a. d. 61.)
 
-> <sup>21</sup> Submitting yourselves one to another in the fear of God.  
-> <sup>22</sup> Wives, submit yourselves unto your own husbands, as unto the Lord.  
-> <sup>23</sup> For the husband is the head of the wife, even as Christ is the head of the church: and he is the saviour of the body.  
-> <sup>24</sup> Therefore as the church is subject unto Christ, so *let* the wives *be* to their own husbands in every thing.  
-> <sup>25</sup> Husbands, love your wives, even as Christ also loved the church, and gave himself for it;  
-> <sup>26</sup> That he might sanctify and cleanse it with the washing of water by the word,  
-> <sup>27</sup> That he might present it to himself a glorious church, not having spot, or wrinkle, or any such thing; but that it should be holy and without blemish.  
-> <sup>28</sup> So ought men to love their wives as their own bodies. He that loveth his wife loveth himself.  
-> <sup>29</sup> For no man ever yet hated his own flesh; but nourisheth and cherisheth it, even as the Lord the church:  
-> <sup>30</sup> For we are members of his body, of his flesh, and of his bones.  
-> <sup>31</sup> For this cause shall a man leave his father and mother, and shall be joined unto his wife, and they two shall be one flesh.  
-> <sup>32</sup> This is a great mystery: but I speak concerning Christ and the church.  
-> <sup>33</sup> Nevertheless let every one of you in particular so love his wife even as himself; and the wife *see* that she reverence *her* husband.  
+> **²¹** Submitting yourselves one to another in the fear of God.  
+> **²²** Wives, submit yourselves unto your own husbands, as unto the Lord.  
+> **²³** For the husband is the head of the wife, even as Christ is the head of the church: and he is the saviour of the body.  
+> **²⁴** Therefore as the church is subject unto Christ, so *let* the wives *be* to their own husbands in every thing.  
+> **²⁵** Husbands, love your wives, even as Christ also loved the church, and gave himself for it;  
+> **²⁶** That he might sanctify and cleanse it with the washing of water by the word,  
+> **²⁷** That he might present it to himself a glorious church, not having spot, or wrinkle, or any such thing; but that it should be holy and without blemish.  
+> **²⁸** So ought men to love their wives as their own bodies. He that loveth his wife loveth himself.  
+> **²⁹** For no man ever yet hated his own flesh; but nourisheth and cherisheth it, even as the Lord the church:  
+> **³⁰** For we are members of his body, of his flesh, and of his bones.  
+> **³¹** For this cause shall a man leave his father and mother, and shall be joined unto his wife, and they two shall be one flesh.  
+> **³²** This is a great mystery: but I speak concerning Christ and the church.  
+> **³³** Nevertheless let every one of you in particular so love his wife even as himself; and the wife *see* that she reverence *her* husband.  
 
 Here the apostle begins his exhortation to the discharge of relative duties. As a general foundation for these duties, he lays down that rule Eph 5:21. There is a mutual submission that Christians owe one to another, condescending to bear one another's burdens: not advancing themselves above others, nor domineering over one another and giving laws to one another. Paul was an example of this truly Christian temper, for he *became all things to all men.* We must be of a yielding and of a submissive spirit, and ready to all the duties of the respective places and stations that God has allotted to us in the world. *In the fear of God,* that is, so far as is consistent with the fear of God, for his sake, and out of conscience towards him, and that hereby we may give proof that we truly fear him. Where there is this mutual condescension and submission, the duties of all relations will be the better performed. From Eph 5:22 to the end he speaks of the duties of husbands and wives; and he speaks of these in a Christian manner, setting the church as an example of the wife's subjection, and Christ as an example of love in husbands.
 

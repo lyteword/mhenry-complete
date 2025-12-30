@@ -8,12 +8,12 @@ The apostasy of Israel after the death of Gideon is punished, not as the former 
 
 ## The Usurpation of Abimelech. (b. c. 1209.)
 
-> <sup>1</sup> And Abimelech the son of Jerubbaal went to Shechem unto his mother's brethren, and communed with them, and with all the family of the house of his mother's father, saying,  
-> <sup>2</sup> Speak, I pray you, in the ears of all the men of Shechem, Whether *is* better for you, either that all the sons of Jerubbaal, *which are* threescore and ten persons, reign over you, or that one reign over you? remember also that I *am* your bone and your flesh.  
-> <sup>3</sup> And his mother's brethren spake of him in the ears of all the men of Shechem all these words: and their hearts inclined to follow Abimelech; for they said, He *is* our brother.  
-> <sup>4</sup> And they gave him threescore and ten *pieces* of silver out of the house of Baal-berith, wherewith Abimelech hired vain and light persons, which followed him.  
-> <sup>5</sup> And he went unto his father's house at Ophrah, and slew his brethren the sons of Jerubbaal, *being* threescore and ten persons, upon one stone: notwithstanding yet Jotham the youngest son of Jerubbaal was left; for he hid himself.  
-> <sup>6</sup> And all the men of Shechem gathered together, and all the house of Millo, and went, and made Abimelech king, by the plain of the pillar that *was* in Shechem.  
+> **¹** And Abimelech the son of Jerubbaal went to Shechem unto his mother's brethren, and communed with them, and with all the family of the house of his mother's father, saying,  
+> **²** Speak, I pray you, in the ears of all the men of Shechem, Whether *is* better for you, either that all the sons of Jerubbaal, *which are* threescore and ten persons, reign over you, or that one reign over you? remember also that I *am* your bone and your flesh.  
+> **³** And his mother's brethren spake of him in the ears of all the men of Shechem all these words: and their hearts inclined to follow Abimelech; for they said, He *is* our brother.  
+> **⁴** And they gave him threescore and ten *pieces* of silver out of the house of Baal-berith, wherewith Abimelech hired vain and light persons, which followed him.  
+> **⁵** And he went unto his father's house at Ophrah, and slew his brethren the sons of Jerubbaal, *being* threescore and ten persons, upon one stone: notwithstanding yet Jotham the youngest son of Jerubbaal was left; for he hid himself.  
+> **⁶** And all the men of Shechem gathered together, and all the house of Millo, and went, and made Abimelech king, by the plain of the pillar that *was* in Shechem.  
 
 We are here told by what arts Abimelech got into authority, and made himself great. His mother perhaps had instilled into his mind some towering ambitious thoughts, and the name his father gave him, carrying royalty in it, might help to blow up these sparks; and now that he has buried his father nothing will serve his proud spirit but he will succeed him in the government of Israel, directly contrary to his father's will, for he had declared *no son of his should rule over them.* He had no call from God to this honour as his father had, nor was there any present occasion for a judge to deliver Israel as there was when his father was advanced; but his own ambition must be gratified, and its gratification is all he aims at. Now observe here,
 
@@ -27,21 +27,21 @@ II\. How cruelly he got his father's sons out of the way.
 
 ## Jotham's Parable. (b. c. 1209.)
 
-> <sup>7</sup> And when they told *it* to Jotham, he went and stood in the top of mount Gerizim, and lifted up his voice, and cried, and said unto them, Hearken unto me, ye men of Shechem, that God may hearken unto you.  
-> <sup>8</sup> The trees went forth *on a time* to anoint a king over them; and they said unto the olive tree, Reign thou over us.  
-> <sup>9</sup> But the olive tree said unto them, Should I leave my fatness, wherewith by me they honour God and man, and go to be promoted over the trees?  
-> <sup>10</sup> And the trees said to the fig tree, Come thou, *and* reign over us.  
-> <sup>11</sup> But the fig tree said unto them, Should I forsake my sweetness, and my good fruit, and go to be promoted over the trees?  
-> <sup>12</sup> Then said the trees unto the vine, Come thou, *and* reign over us.  
-> <sup>13</sup> And the vine said unto them, Should I leave my wine, which cheereth God and man, and go to be promoted over the trees?  
-> <sup>14</sup> Then said all the trees unto the bramble, Come thou, *and* reign over us.  
-> <sup>15</sup> And the bramble said unto the trees, If in truth ye anoint me king over you, *then* come *and* put your trust in my shadow: and if not, let fire come out of the bramble, and devour the cedars of Lebanon.  
-> <sup>16</sup> Now therefore, if ye have done truly and sincerely, in that ye have made Abimelech king, and if ye have dealt well with Jerubbaal and his house, and have done unto him according to the deserving of his hands;  
-> <sup>17</sup> (For my father fought for you, and adventured his life far, and delivered you out of the hand of Midian:  
-> <sup>18</sup> And ye are risen up against my father's house this day, and have slain his sons, threescore and ten persons, upon one stone, and have made Abimelech, the son of his maidservant, king over the men of Shechem, because he *is* your brother;)  
-> <sup>19</sup> If ye then have dealt truly and sincerely with Jerubbaal and with his house this day, *then* rejoice ye in Abimelech, and let him also rejoice in you:  
-> <sup>20</sup> But if not, let fire come out from Abimelech, and devour the men of Shechem, and the house of Millo; and let fire come out from the men of Shechem, and from the house of Millo, and devour Abimelech.  
-> <sup>21</sup> And Jotham ran away, and fled, and went to Beer, and dwelt there, for fear of Abimelech his brother.  
+> **⁷** And when they told *it* to Jotham, he went and stood in the top of mount Gerizim, and lifted up his voice, and cried, and said unto them, Hearken unto me, ye men of Shechem, that God may hearken unto you.  
+> **⁸** The trees went forth *on a time* to anoint a king over them; and they said unto the olive tree, Reign thou over us.  
+> **⁹** But the olive tree said unto them, Should I leave my fatness, wherewith by me they honour God and man, and go to be promoted over the trees?  
+> **¹⁰** And the trees said to the fig tree, Come thou, *and* reign over us.  
+> **¹¹** But the fig tree said unto them, Should I forsake my sweetness, and my good fruit, and go to be promoted over the trees?  
+> **¹²** Then said the trees unto the vine, Come thou, *and* reign over us.  
+> **¹³** And the vine said unto them, Should I leave my wine, which cheereth God and man, and go to be promoted over the trees?  
+> **¹⁴** Then said all the trees unto the bramble, Come thou, *and* reign over us.  
+> **¹⁵** And the bramble said unto the trees, If in truth ye anoint me king over you, *then* come *and* put your trust in my shadow: and if not, let fire come out of the bramble, and devour the cedars of Lebanon.  
+> **¹⁶** Now therefore, if ye have done truly and sincerely, in that ye have made Abimelech king, and if ye have dealt well with Jerubbaal and his house, and have done unto him according to the deserving of his hands;  
+> **¹⁷** (For my father fought for you, and adventured his life far, and delivered you out of the hand of Midian:  
+> **¹⁸** And ye are risen up against my father's house this day, and have slain his sons, threescore and ten persons, upon one stone, and have made Abimelech, the son of his maidservant, king over the men of Shechem, because he *is* your brother;)  
+> **¹⁹** If ye then have dealt truly and sincerely with Jerubbaal and with his house this day, *then* rejoice ye in Abimelech, and let him also rejoice in you:  
+> **²⁰** But if not, let fire come out from Abimelech, and devour the men of Shechem, and the house of Millo; and let fire come out from the men of Shechem, and from the house of Millo, and devour Abimelech.  
+> **²¹** And Jotham ran away, and fled, and went to Beer, and dwelt there, for fear of Abimelech his brother.  
 
 We have here the only testimony that appears to have been borne against the wicked confederacy of Abimelech and the men of Shechem. It was a sign they had provoked God to depart from them that neither any prophet was sent nor any remarkable judgment, to awaken this stupid people, and to stop the progress of this threatening mischief. Only Jotham, the youngest son of Gideon, who by a special providence escaped the common ruin of his family (Jdg 9:5), dealt plainly with the Shechemites, and his speech, which is here recorded, shows him to have been a man of such great ingenuity and wisdom, and really such an accomplished gentleman, that we cannot but the more lament the fall of Gideon's sons. Jotham did not go about to raise an army out of the other cities of Israel (in which, one would think, he might have made a good interest for his father's sake), to avenge his brethren's death, much less to set up himself in competition with Abimelech, so groundless was the usurper's suggestion that the sons of Gideon aimed at dominion (Jdg 9:2); but he contents himself with giving a faithful reproof to the Shechemites, and fair warning of the fatal consequences. He got an opportunity of speaking to them from the top of Mount Gerizim, the mount of blessings, at the foot of which probably the Shechemites were, upon some occasion or other, gathered together (Josephus says, solemnizing a festival), and it seems they were willing to hear what he had to say.
 
@@ -59,34 +59,34 @@ Jotham, having given them this admonition, made a shift to escape with his life,
 
 ## Gaal's Insurrection; Gaal's Defeat. (b. c. 1206.)
 
-> <sup>22</sup> When Abimelech had reigned three years over Israel,  
-> <sup>23</sup> Then God sent an evil spirit between Abimelech and the men of Shechem; and the men of Shechem dealt treacherously with Abimelech:  
-> <sup>24</sup> That the cruelty *done* to the threescore and ten sons of Jerubbaal might come, and their blood be laid upon Abimelech their brother, which slew them; and upon the men of Shechem, which aided him in the killing of his brethren.  
-> <sup>25</sup> And the men of Shechem set liers in wait for him in the top of the mountains, and they robbed all that came along that way by them: and it was told Abimelech.  
-> <sup>26</sup> And Gaal the son of Ebed came with his brethren, and went over to Shechem: and the men of Shechem put their confidence in him.  
-> <sup>27</sup> And they went out into the fields, and gathered their vineyards, and trode *the grapes,* and made merry, and went into the house of their god, and did eat and drink, and cursed Abimelech.  
-> <sup>28</sup> And Gaal the son of Ebed said, Who *is* Abimelech, and who *is* Shechem, that we should serve him? *is* not *he* the son of Jerubbaal? and Zebul his officer? serve the men of Hamor the father of Shechem: for why should we serve him?  
-> <sup>29</sup> And would to God this people were under my hand! then would I remove Abimelech. And he said to Abimelech, Increase thine army, and come out.  
-> <sup>30</sup> And when Zebul the ruler of the city heard the words of Gaal the son of Ebed, his anger was kindled.  
-> <sup>31</sup> And he sent messengers unto Abimelech privily, saying, Behold, Gaal the son of Ebed and his brethren be come to Shechem; and, behold, they fortify the city against thee.  
-> <sup>32</sup> Now therefore up by night, thou and the people that *is* with thee, and lie in wait in the field:  
-> <sup>33</sup> And it shall be, *that* in the morning, as soon as the sun is up, thou shalt rise early, and set upon the city: and, behold, *when* he and the people that *is* with him come out against thee, then mayest thou do to them as thou shalt find occasion.  
-> <sup>34</sup> And Abimelech rose up, and all the people that *were* with him, by night, and they laid wait against Shechem in four companies.  
-> <sup>35</sup> And Gaal the son of Ebed went out, and stood in the entering of the gate of the city: and Abimelech rose up, and the people that *were* with him, from lying in wait.  
-> <sup>36</sup> And when Gaal saw the people, he said to Zebul, Behold, there come people down from the top of the mountains. And Zebul said unto him, Thou seest the shadow of the mountains as *if they were* men.  
-> <sup>37</sup> And Gaal spake again and said, See there come people down by the middle of the land, and another company come along by the plain of Meonenim.  
-> <sup>38</sup> Then said Zebul unto him, Where *is* now thy mouth, wherewith thou saidst, Who *is* Abimelech, that we should serve him? *is* not this the people that thou hast despised? go out, I pray now, and fight with them.  
-> <sup>39</sup> And Gaal went out before the men of Shechem, and fought with Abimelech.  
-> <sup>40</sup> And Abimelech chased him, and he fled before him, and many were overthrown *and* wounded, *even* unto the entering of the gate.  
-> <sup>41</sup> And Abimelech dwelt at Arumah: and Zebul thrust out Gaal and his brethren, that they should not dwell in Shechem.  
-> <sup>42</sup> And it came to pass on the morrow, that the people went out into the field; and they told Abimelech.  
-> <sup>43</sup> And he took the people, and divided them into three companies, and laid wait in the field, and looked, and, behold, the people *were* come forth out of the city; and he rose up against them, and smote them.  
-> <sup>44</sup> And Abimelech, and the company that *was* with him, rushed forward, and stood in the entering of the gate of the city: and the two *other* companies ran upon all *the people* that *were* in the fields, and slew them.  
-> <sup>45</sup> And Abimelech fought against the city all that day; and he took the city, and slew the people that *was* therein, and beat down the city, and sowed it with salt.  
-> <sup>46</sup> And when all the men of the tower of Shechem heard *that,* they entered into a hold of the house of the god Berith.  
-> <sup>47</sup> And it was told Abimelech, that all the men of the tower of Shechem were gathered together.  
-> <sup>48</sup> And Abimelech gat him up to mount Zalmon, he and all the people that *were* with him; and Abimelech took an axe in his hand, and cut down a bough from the trees, and took it, and laid *it* on his shoulder, and said unto the people that *were* with him, What ye have seen me do, make haste, *and* do as I *have done.*  
-> <sup>49</sup> And all the people likewise cut down every man his bough, and followed Abimelech, and put *them* to the hold, and set the hold on fire upon them; so that all the men of the tower of Shechem died also, about a thousand men and women.  
+> **²²** When Abimelech had reigned three years over Israel,  
+> **²³** Then God sent an evil spirit between Abimelech and the men of Shechem; and the men of Shechem dealt treacherously with Abimelech:  
+> **²⁴** That the cruelty *done* to the threescore and ten sons of Jerubbaal might come, and their blood be laid upon Abimelech their brother, which slew them; and upon the men of Shechem, which aided him in the killing of his brethren.  
+> **²⁵** And the men of Shechem set liers in wait for him in the top of the mountains, and they robbed all that came along that way by them: and it was told Abimelech.  
+> **²⁶** And Gaal the son of Ebed came with his brethren, and went over to Shechem: and the men of Shechem put their confidence in him.  
+> **²⁷** And they went out into the fields, and gathered their vineyards, and trode *the grapes,* and made merry, and went into the house of their god, and did eat and drink, and cursed Abimelech.  
+> **²⁸** And Gaal the son of Ebed said, Who *is* Abimelech, and who *is* Shechem, that we should serve him? *is* not *he* the son of Jerubbaal? and Zebul his officer? serve the men of Hamor the father of Shechem: for why should we serve him?  
+> **²⁹** And would to God this people were under my hand! then would I remove Abimelech. And he said to Abimelech, Increase thine army, and come out.  
+> **³⁰** And when Zebul the ruler of the city heard the words of Gaal the son of Ebed, his anger was kindled.  
+> **³¹** And he sent messengers unto Abimelech privily, saying, Behold, Gaal the son of Ebed and his brethren be come to Shechem; and, behold, they fortify the city against thee.  
+> **³²** Now therefore up by night, thou and the people that *is* with thee, and lie in wait in the field:  
+> **³³** And it shall be, *that* in the morning, as soon as the sun is up, thou shalt rise early, and set upon the city: and, behold, *when* he and the people that *is* with him come out against thee, then mayest thou do to them as thou shalt find occasion.  
+> **³⁴** And Abimelech rose up, and all the people that *were* with him, by night, and they laid wait against Shechem in four companies.  
+> **³⁵** And Gaal the son of Ebed went out, and stood in the entering of the gate of the city: and Abimelech rose up, and the people that *were* with him, from lying in wait.  
+> **³⁶** And when Gaal saw the people, he said to Zebul, Behold, there come people down from the top of the mountains. And Zebul said unto him, Thou seest the shadow of the mountains as *if they were* men.  
+> **³⁷** And Gaal spake again and said, See there come people down by the middle of the land, and another company come along by the plain of Meonenim.  
+> **³⁸** Then said Zebul unto him, Where *is* now thy mouth, wherewith thou saidst, Who *is* Abimelech, that we should serve him? *is* not this the people that thou hast despised? go out, I pray now, and fight with them.  
+> **³⁹** And Gaal went out before the men of Shechem, and fought with Abimelech.  
+> **⁴⁰** And Abimelech chased him, and he fled before him, and many were overthrown *and* wounded, *even* unto the entering of the gate.  
+> **⁴¹** And Abimelech dwelt at Arumah: and Zebul thrust out Gaal and his brethren, that they should not dwell in Shechem.  
+> **⁴²** And it came to pass on the morrow, that the people went out into the field; and they told Abimelech.  
+> **⁴³** And he took the people, and divided them into three companies, and laid wait in the field, and looked, and, behold, the people *were* come forth out of the city; and he rose up against them, and smote them.  
+> **⁴⁴** And Abimelech, and the company that *was* with him, rushed forward, and stood in the entering of the gate of the city: and the two *other* companies ran upon all *the people* that *were* in the fields, and slew them.  
+> **⁴⁵** And Abimelech fought against the city all that day; and he took the city, and slew the people that *was* therein, and beat down the city, and sowed it with salt.  
+> **⁴⁶** And when all the men of the tower of Shechem heard *that,* they entered into a hold of the house of the god Berith.  
+> **⁴⁷** And it was told Abimelech, that all the men of the tower of Shechem were gathered together.  
+> **⁴⁸** And Abimelech gat him up to mount Zalmon, he and all the people that *were* with him; and Abimelech took an axe in his hand, and cut down a bough from the trees, and took it, and laid *it* on his shoulder, and said unto the people that *were* with him, What ye have seen me do, make haste, *and* do as I *have done.*  
+> **⁴⁹** And all the people likewise cut down every man his bough, and followed Abimelech, and put *them* to the hold, and set the hold on fire upon them; so that all the men of the tower of Shechem died also, about a thousand men and women.  
 
 Three years Abimelech reigned, after a sort, without any disturbance; it is not said, He judged Israel, or did any service at all to his country, but so long he enjoyed the title and dignity of a king; and not only the Shechemites, but many other places, paid him respect. They must have been fond of a king that could please themselves with such a one as this. But the triumphing of the wicked is short. *Within three years, as the years of a hireling, all this glory shall be contemned,* and laid in the dust, Isa 16:14. The ruin of these confederates in wickedness was from the righteous hand of the God to whom vengeance belongs. *He sent an evil spirit between Abimelech and the Shechemites* (Jdg 9:23), that is, they grew jealous one of another and ill-affected one to another. He slighted those that set him up, and perhaps countenanced other cities which now began to come into his interests more than he did theirs; and then they grew uneasy at his government, blamed his conduct, and quarrelled at his impositions. This was from God. He permitted the devil, that great mischief-maker, to sow discord between them, and he is *an evil spirit,* whom God not only keeps under his check, but sometimes serves his own purposes by. Their own lusts were evil spirits; they are devils in men's own hearts; from them come wars and fightings. These God gave them up to, and so might be said to *send the evil spirits between them.* When men's sin is made their punishment, though God is not the author of the sin, yet the punishment is from him. The quarrel God had with Abimelech and the Shechemites was for the murder of the sons of Gideon (Jdg 9:24): *That the cruelty done to them might come and their blood be laid* as a burden *upon Abimelech that slew them, and the men of Shechem that helped him.* Note, 1. Sooner or later God will make inquisition for blood, innocent blood, and will return it on the heads of those that shed it, who shall have blood given them to drink, for they are worthy. 2. Accessaries shall be reckoned with, as well as principals, in that and other sins. The Shechemites that countenanced Abimelech's pretensions, aided and abetted him in his bloody project, and avowed the fact by making him king after he had done it, must fall with him, fall by him, and fall first. 3. Those that combine together to do wickedly are justly dashed in pieces one against another. Blood cannot be a lasting cement to any interest.
 
@@ -108,14 +108,14 @@ II\. Abimelech turned all his force upon them, and, in a little time, quite ruin
 
 ## The Death of Abimelech. (b. c. 1206.)
 
-> <sup>50</sup> Then went Abimelech to Thebez, and encamped against Thebez, and took it.  
-> <sup>51</sup> But there was a strong tower within the city, and thither fled all the men and women, and all they of the city, and shut *it* to them, and gat them up to the top of the tower.  
-> <sup>52</sup> And Abimelech came unto the tower, and fought against it, and went hard unto the door of the tower to burn it with fire.  
-> <sup>53</sup> And a certain woman cast a piece of a millstone upon Abimelech's head, and all to brake his skull.  
-> <sup>54</sup> Then he called hastily unto the young man his armour bearer, and said unto him, Draw thy sword, and slay me, that men say not of me, A woman slew him. And his young man thrust him through, and he died.  
-> <sup>55</sup> And when the men of Israel saw that Abimelech was dead, they departed every man unto his place.  
-> <sup>56</sup> Thus God rendered the wickedness of Abimelech, which he did unto his father, in slaying his seventy brethren:  
-> <sup>57</sup> And all the evil of the men of Shechem did God render upon their heads: and upon them came the curse of Jotham the son of Jerubbaal.  
+> **⁵⁰** Then went Abimelech to Thebez, and encamped against Thebez, and took it.  
+> **⁵¹** But there was a strong tower within the city, and thither fled all the men and women, and all they of the city, and shut *it* to them, and gat them up to the top of the tower.  
+> **⁵²** And Abimelech came unto the tower, and fought against it, and went hard unto the door of the tower to burn it with fire.  
+> **⁵³** And a certain woman cast a piece of a millstone upon Abimelech's head, and all to brake his skull.  
+> **⁵⁴** Then he called hastily unto the young man his armour bearer, and said unto him, Draw thy sword, and slay me, that men say not of me, A woman slew him. And his young man thrust him through, and he died.  
+> **⁵⁵** And when the men of Israel saw that Abimelech was dead, they departed every man unto his place.  
+> **⁵⁶** Thus God rendered the wickedness of Abimelech, which he did unto his father, in slaying his seventy brethren:  
+> **⁵⁷** And all the evil of the men of Shechem did God render upon their heads: and upon them came the curse of Jotham the son of Jerubbaal.  
 
 We have seen the ruin of the Shechemites completed by the hand of Abimelech; and now it comes to his turn to be reckoned with who was their leader in villany. Thebez was a small city, probably not far from Shechem, dependent upon it, and in confederacy with it. Now,
 

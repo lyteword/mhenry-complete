@@ -8,14 +8,14 @@ God, by the prophet, goes on in this chapter, as before, I. To encourage his peo
 
 ## Prosperity Foretold; The Supremacy of God. (b. c. 708.)
 
-> <sup>1</sup> Yet now hear, O Jacob my servant; and Israel, whom I have chosen:  
-> <sup>2</sup> Thus saith the LORD that made thee, and formed thee from the womb, *which* will help thee; Fear not, O Jacob, my servant; and thou, Jesurun, whom I have chosen.  
-> <sup>3</sup> For I will pour water upon him that is thirsty, and floods upon the dry ground: I will pour my spirit upon thy seed, and my blessing upon thine offspring:  
-> <sup>4</sup> And they shall spring up *as* among the grass, as willows by the water courses.  
-> <sup>5</sup> One shall say, I *am* the LORD's; and another shall call *himself* by the name of Jacob; and another shall subscribe *with* his hand unto the LORD, and surname *himself* by the name of Israel.  
-> <sup>6</sup> Thus saith the LORD the King of Israel, and his redeemer the LORD of hosts; I *am* the first, and I *am* the last; and beside me *there is* no God.  
-> <sup>7</sup> And who, as I, shall call, and shall declare it, and set it in order for me, since I appointed the ancient people? and the things that are coming, and shall come, let them show unto them.  
-> <sup>8</sup> Fear ye not, neither be afraid: have not I told thee from that time, and have declared *it?* ye *are* even my witnesses. Is there a God beside me? yea, *there is* no God; I know not *any.*  
+> **¹** Yet now hear, O Jacob my servant; and Israel, whom I have chosen:  
+> **²** Thus saith the LORD that made thee, and formed thee from the womb, *which* will help thee; Fear not, O Jacob, my servant; and thou, Jesurun, whom I have chosen.  
+> **³** For I will pour water upon him that is thirsty, and floods upon the dry ground: I will pour my spirit upon thy seed, and my blessing upon thine offspring:  
+> **⁴** And they shall spring up *as* among the grass, as willows by the water courses.  
+> **⁵** One shall say, I *am* the LORD's; and another shall call *himself* by the name of Jacob; and another shall subscribe *with* his hand unto the LORD, and surname *himself* by the name of Israel.  
+> **⁶** Thus saith the LORD the King of Israel, and his redeemer the LORD of hosts; I *am* the first, and I *am* the last; and beside me *there is* no God.  
+> **⁷** And who, as I, shall call, and shall declare it, and set it in order for me, since I appointed the ancient people? and the things that are coming, and shall come, let them show unto them.  
+> **⁸** Fear ye not, neither be afraid: have not I told thee from that time, and have declared *it?* ye *are* even my witnesses. Is there a God beside me? yea, *there is* no God; I know not *any.*  
 
 Two great truths are abundantly made out in these verses:—
 
@@ -31,18 +31,18 @@ II\. That, as the Israel of God are a happy people, so the God of Israel is a gr
 
 ## The Folly of Idolatry. (b. c. 708.)
 
-> <sup>9</sup> They that make a graven image *are* all of them vanity; and their delectable things shall not profit; and they *are* their own witnesses; they see not, nor know; that they may be ashamed.  
-> <sup>10</sup> Who hath formed a god, or molten a graven image *that* is profitable for nothing?  
-> <sup>11</sup> Behold, all his fellows shall be ashamed: and the workmen, they *are* of men: let them all be gathered together, let them stand up; *yet* they shall fear, *and* they shall be ashamed together.  
-> <sup>12</sup> The smith with the tongs both worketh in the coals, and fashioneth it with hammers, and worketh it with the strength of his arms: yea, he is hungry, and his strength faileth: he drinketh no water, and is faint.  
-> <sup>13</sup> The carpenter stretcheth out *his* rule; he marketh it out with a line; he fitteth it with planes, and he marketh it out with the compass, and maketh it after the figure of a man, according to the beauty of a man; that it may remain in the house.  
-> <sup>14</sup> He heweth him down cedars, and taketh the cypress and the oak, which he strengtheneth for himself among the trees of the forest: he planteth an ash, and the rain doth nourish *it.*  
-> <sup>15</sup> Then shall it be for a man to burn: for he will take thereof, and warm himself; yea, he kindleth *it,* and baketh bread; yea, he maketh a god, and worshippeth *it;* he maketh it a graven image, and falleth down thereto.  
-> <sup>16</sup> He burneth part thereof in the fire; with part thereof he eateth flesh; he roasteth roast, and is satisfied: yea, he warmeth *himself,* and saith, Aha, I am warm, I have seen the fire:  
-> <sup>17</sup> And the residue thereof he maketh a god, *even* his graven image: he falleth down unto it, and worshippeth *it,* and prayeth unto it, and saith, Deliver me; for thou *art* my god.  
-> <sup>18</sup> They have not known nor understood: for he hath shut their eyes, that they cannot see; *and* their hearts, that they cannot understand.  
-> <sup>19</sup> And none considereth in his heart, neither *is there* knowledge nor understanding to say, I have burned part of it in the fire; yea, also I have baked bread upon the coals thereof; I have roasted flesh, and eaten *it:* and shall I make the residue thereof an abomination? shall I fall down to the stock of a tree?  
-> <sup>20</sup> He feedeth on ashes: a deceived heart hath turned him aside, that he cannot deliver his soul, nor say, *Is there* not a lie in my right hand?  
+> **⁹** They that make a graven image *are* all of them vanity; and their delectable things shall not profit; and they *are* their own witnesses; they see not, nor know; that they may be ashamed.  
+> **¹⁰** Who hath formed a god, or molten a graven image *that* is profitable for nothing?  
+> **¹¹** Behold, all his fellows shall be ashamed: and the workmen, they *are* of men: let them all be gathered together, let them stand up; *yet* they shall fear, *and* they shall be ashamed together.  
+> **¹²** The smith with the tongs both worketh in the coals, and fashioneth it with hammers, and worketh it with the strength of his arms: yea, he is hungry, and his strength faileth: he drinketh no water, and is faint.  
+> **¹³** The carpenter stretcheth out *his* rule; he marketh it out with a line; he fitteth it with planes, and he marketh it out with the compass, and maketh it after the figure of a man, according to the beauty of a man; that it may remain in the house.  
+> **¹⁴** He heweth him down cedars, and taketh the cypress and the oak, which he strengtheneth for himself among the trees of the forest: he planteth an ash, and the rain doth nourish *it.*  
+> **¹⁵** Then shall it be for a man to burn: for he will take thereof, and warm himself; yea, he kindleth *it,* and baketh bread; yea, he maketh a god, and worshippeth *it;* he maketh it a graven image, and falleth down thereto.  
+> **¹⁶** He burneth part thereof in the fire; with part thereof he eateth flesh; he roasteth roast, and is satisfied: yea, he warmeth *himself,* and saith, Aha, I am warm, I have seen the fire:  
+> **¹⁷** And the residue thereof he maketh a god, *even* his graven image: he falleth down unto it, and worshippeth *it,* and prayeth unto it, and saith, Deliver me; for thou *art* my god.  
+> **¹⁸** They have not known nor understood: for he hath shut their eyes, that they cannot see; *and* their hearts, that they cannot understand.  
+> **¹⁹** And none considereth in his heart, neither *is there* knowledge nor understanding to say, I have burned part of it in the fire; yea, also I have baked bread upon the coals thereof; I have roasted flesh, and eaten *it:* and shall I make the residue thereof an abomination? shall I fall down to the stock of a tree?  
+> **²⁰** He feedeth on ashes: a deceived heart hath turned him aside, that he cannot deliver his soul, nor say, *Is there* not a lie in my right hand?  
 
 Often before, God, by the prophet, had mentioned the folly and strange sottishness of idolaters; but here he enlarges upon that head, and very fully and particularly exposes them to contempt and ridicule. This discourse is intended, 1. To arm the people of Israel against the strong temptation they would be in to worship idols when they were captives in Babylon, in compliance with the custom of the country (they being far from the city of their own solemnities) and to humour those who were now their lords and masters. 2. To cure them of their inclination to idolatry, which was the sin that did most easily beset them and to reform them from which they were sent into Babylon. As the rod of God is of use to enforce the word, so the word of God is of use to explain the rod, that the voice of both together may be heard and answered. 3. To furnish them with something to say to their Chaldean task-masters. When they insulted over them, when they asked, *Where is your God?* they might hence ask them, *What are your gods?* 4. To take off their fear of the gods of their enemies, and to encourage their hope in their own God that he would certainly appear against those who set up such scandalous competitors as these with him for the throne.
 
@@ -72,14 +72,14 @@ III\. Here is judgment given upon this whole matter, Isa 44:18-20. In short, it 
 
 ## Encouragement to the People of God. (b. c. 708.)
 
-> <sup>21</sup> Remember these, O Jacob and Israel; for thou *art* my servant: I have formed thee; thou *art* my servant: O Israel, thou shalt not be forgotten of me.  
-> <sup>22</sup> I have blotted out, as a thick cloud, thy transgressions, and, as a cloud, thy sins: return unto me; for I have redeemed thee.  
-> <sup>23</sup> Sing, O ye heavens; for the LORD hath done *it:* shout, ye lower parts of the earth: break forth into singing, ye mountains, O forest, and every tree therein: for the LORD hath redeemed Jacob, and glorified himself in Israel.  
-> <sup>24</sup> Thus saith the LORD, thy redeemer, and he that formed thee from the womb, I *am* the LORD that maketh all *things;* that stretcheth forth the heavens alone; that spreadeth abroad the earth by myself;  
-> <sup>25</sup> That frustrateth the tokens of the liars, and maketh diviners mad; that turneth wise *men* backward, and maketh their knowledge foolish;  
-> <sup>26</sup> That confirmeth the word of his servant, and performeth the counsel of his messengers; that saith to Jerusalem, Thou shalt be inhabited; and to the cities of Judah, Ye shall be built, and I will raise up the decayed places thereof:  
-> <sup>27</sup> That saith to the deep, Be dry, and I will dry up thy rivers:  
-> <sup>28</sup> That saith of Cyrus, *He is* my shepherd, and shall perform all my pleasure: even saying to Jerusalem, Thou shalt be built; and to the temple, Thy foundation shall be laid.  
+> **²¹** Remember these, O Jacob and Israel; for thou *art* my servant: I have formed thee; thou *art* my servant: O Israel, thou shalt not be forgotten of me.  
+> **²²** I have blotted out, as a thick cloud, thy transgressions, and, as a cloud, thy sins: return unto me; for I have redeemed thee.  
+> **²³** Sing, O ye heavens; for the LORD hath done *it:* shout, ye lower parts of the earth: break forth into singing, ye mountains, O forest, and every tree therein: for the LORD hath redeemed Jacob, and glorified himself in Israel.  
+> **²⁴** Thus saith the LORD, thy redeemer, and he that formed thee from the womb, I *am* the LORD that maketh all *things;* that stretcheth forth the heavens alone; that spreadeth abroad the earth by myself;  
+> **²⁵** That frustrateth the tokens of the liars, and maketh diviners mad; that turneth wise *men* backward, and maketh their knowledge foolish;  
+> **²⁶** That confirmeth the word of his servant, and performeth the counsel of his messengers; that saith to Jerusalem, Thou shalt be inhabited; and to the cities of Judah, Ye shall be built, and I will raise up the decayed places thereof:  
+> **²⁷** That saith to the deep, Be dry, and I will dry up thy rivers:  
+> **²⁸** That saith of Cyrus, *He is* my shepherd, and shall perform all my pleasure: even saying to Jerusalem, Thou shalt be built; and to the temple, Thy foundation shall be laid.  
 
 In these verses we have,
 

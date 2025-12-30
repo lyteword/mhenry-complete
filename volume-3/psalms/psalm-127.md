@@ -10,11 +10,11 @@ This is a family-psalm, as divers before were state-poems and church-poems. It i
 
 A song of degrees for Solomon.
 
-> <sup>1</sup> Except the LORD build the house, they labour in vain that build it: except the LORD keep the city, the watchman waketh *but* in vain.  
-> <sup>2</sup> *It is* vain for you to rise up early, to sit up late, to eat the bread of sorrows: *for* so he giveth his beloved sleep.  
-> <sup>3</sup> Lo, children *are* a heritage of the LORD: *and* the fruit of the womb *is his* reward.  
-> <sup>4</sup> As arrows *are* in the hand of a mighty man; so *are* children of the youth.  
-> <sup>5</sup> Happy *is* the man that hath his quiver full of them: they shall not be ashamed, but they shall speak with the enemies in the gate.  
+> **¹** Except the LORD build the house, they labour in vain that build it: except the LORD keep the city, the watchman waketh *but* in vain.  
+> **²** *It is* vain for you to rise up early, to sit up late, to eat the bread of sorrows: *for* so he giveth his beloved sleep.  
+> **³** Lo, children *are* a heritage of the LORD: *and* the fruit of the womb *is his* reward.  
+> **⁴** As arrows *are* in the hand of a mighty man; so *are* children of the youth.  
+> **⁵** Happy *is* the man that hath his quiver full of them: they shall not be ashamed, but they shall speak with the enemies in the gate.  
 
 We are here taught to have a continual regard to the divine Providence in all the concerns of this life. Solomon was cried up for a wise man, and would be apt to lean to his own understanding and forecast, and therefore his father teaches him to look higher, and to take God along with him in his undertakings. He was to be a man of business, and therefore David instructed him how to manage his business under the direction of his religion. Parents, in teaching their children, should suit their exhortations to their condition and occasions. We must have an eye to God,
 

@@ -8,15 +8,15 @@ This chapter, I. Continues and concludes God's discourse with Moses at the bush 
 
 ## The Objections of Moses Overruled. (b. c. 1491.)
 
-> <sup>1</sup> And Moses answered and said, But, behold, they will not believe me, nor hearken unto my voice: for they will say, The LORD hath not appeared unto thee.  
-> <sup>2</sup> And the LORD said unto him, What *is* that in thine hand? And he said, A rod.  
-> <sup>3</sup> And he said, Cast it on the ground. And he cast it on the ground, and it became a serpent; and Moses fled from before it.  
-> <sup>4</sup> And the LORD said unto Moses, Put forth thine hand, and take it by the tail. And he put forth his hand, and caught it, and it became a rod in his hand:  
-> <sup>5</sup> That they may believe that the LORD God of their fathers, the God of Abraham, the God of Isaac, and the God of Jacob, hath appeared unto thee.  
-> <sup>6</sup> And the LORD said furthermore unto him, Put now thine hand into thy bosom. And he put his hand into his bosom: and when he took it out, behold, his hand *was* leprous as snow.  
-> <sup>7</sup> And he said, Put thine hand into thy bosom again. And he put his hand into his bosom again; and plucked it out of his bosom, and, behold, it was turned again as his *other* flesh.  
-> <sup>8</sup> And it shall come to pass, if they will not believe thee, neither hearken to the voice of the first sign, that they will believe the voice of the latter sign.  
-> <sup>9</sup> And it shall come to pass, if they will not believe also these two signs, neither hearken unto thy voice, that thou shalt take of the water of the river, and pour *it* upon the dry *land:* and the water which thou takest out of the river shall become blood upon the dry *land.*  
+> **¹** And Moses answered and said, But, behold, they will not believe me, nor hearken unto my voice: for they will say, The LORD hath not appeared unto thee.  
+> **²** And the LORD said unto him, What *is* that in thine hand? And he said, A rod.  
+> **³** And he said, Cast it on the ground. And he cast it on the ground, and it became a serpent; and Moses fled from before it.  
+> **⁴** And the LORD said unto Moses, Put forth thine hand, and take it by the tail. And he put forth his hand, and caught it, and it became a rod in his hand:  
+> **⁵** That they may believe that the LORD God of their fathers, the God of Abraham, the God of Isaac, and the God of Jacob, hath appeared unto thee.  
+> **⁶** And the LORD said furthermore unto him, Put now thine hand into thy bosom. And he put his hand into his bosom: and when he took it out, behold, his hand *was* leprous as snow.  
+> **⁷** And he said, Put thine hand into thy bosom again. And he put his hand into his bosom again; and plucked it out of his bosom, and, behold, it was turned again as his *other* flesh.  
+> **⁸** And it shall come to pass, if they will not believe thee, neither hearken to the voice of the first sign, that they will believe the voice of the latter sign.  
+> **⁹** And it shall come to pass, if they will not believe also these two signs, neither hearken unto thy voice, that thou shalt take of the water of the river, and pour *it* upon the dry *land:* and the water which thou takest out of the river shall become blood upon the dry *land.*  
 
 It was a very great honour that Moses was called to when God commissioned him to bring Israel out of Egypt; yet he is with difficulty persuaded to accept the commission, and does it at last with great reluctance, which we should rather impute to a humble diffidence of himself and his own sufficiency than to any unbelieving distrust of God and his word and power. Note, Those whom God designs for preferment he clothes with humility; the most fit for service are the least forward.
 
@@ -30,14 +30,14 @@ II\. God empowers him to work miracles, directs him to three particularly, two o
 
 3\. He is directed, when he shall come to Egypt, to turn some of the water of the river into blood, Ex 4:9. This was done, at first, as a sign, but, not gaining due credit with Pharaoh, the whole river was afterwards turned into blood, and then it became a plague. He is ordered to work this miracle in case they would not be convinced by the other two. Note, Unbelief shall be left inexcusable, and convicted of a wilful obstinacy. As to the people of Israel, God had said (Ex 3:18), *They shall hearken;* yet he appoints these miracles to be wrought for their conviction, for he that has ordained the end has ordained the means.
 
-> <sup>10</sup> And Moses said unto the LORD, O my Lord, I *am* not eloquent, neither heretofore, nor since thou hast spoken unto thy servant: but I *am* slow of speech, and of a slow tongue.  
-> <sup>11</sup> And the LORD said unto him, Who hath made man's mouth? or who maketh the dumb, or deaf, or the seeing, or the blind? have not I the LORD?  
-> <sup>12</sup> Now therefore go, and I will be with thy mouth, and teach thee what thou shalt say.  
-> <sup>13</sup> And he said, O my Lord, send, I pray thee, by the hand *of him whom* thou wilt send.  
-> <sup>14</sup> And the anger of the LORD was kindled against Moses, and he said, *Is* not Aaron the Levite thy brother? I know that he can speak well. And also, behold, he cometh forth to meet thee: and when he seeth thee, he will be glad in his heart.  
-> <sup>15</sup> And thou shalt speak unto him, and put words in his mouth: and I will be with thy mouth, and with his mouth, and will teach you what ye shall do.  
-> <sup>16</sup> And he shall be thy spokesman unto the people: and he shall be, *even* he shall be to thee instead of a mouth, and thou shalt be to him instead of God.  
-> <sup>17</sup> And thou shalt take this rod in thine hand, wherewith thou shalt do signs.  
+> **¹⁰** And Moses said unto the LORD, O my Lord, I *am* not eloquent, neither heretofore, nor since thou hast spoken unto thy servant: but I *am* slow of speech, and of a slow tongue.  
+> **¹¹** And the LORD said unto him, Who hath made man's mouth? or who maketh the dumb, or deaf, or the seeing, or the blind? have not I the LORD?  
+> **¹²** Now therefore go, and I will be with thy mouth, and teach thee what thou shalt say.  
+> **¹³** And he said, O my Lord, send, I pray thee, by the hand *of him whom* thou wilt send.  
+> **¹⁴** And the anger of the LORD was kindled against Moses, and he said, *Is* not Aaron the Levite thy brother? I know that he can speak well. And also, behold, he cometh forth to meet thee: and when he seeth thee, he will be glad in his heart.  
+> **¹⁵** And thou shalt speak unto him, and put words in his mouth: and I will be with thy mouth, and with his mouth, and will teach you what ye shall do.  
+> **¹⁶** And he shall be thy spokesman unto the people: and he shall be, *even* he shall be to thee instead of a mouth, and thou shalt be to him instead of God.  
+> **¹⁷** And thou shalt take this rod in thine hand, wherewith thou shalt do signs.  
 
 Moses still continues backward to the service for which God had designed him, even to a fault; for now we can no longer impute it to his humility and modesty, but must own that here was too much of cowardice, slothfulness, and unbelief in it. Observe here,
 
@@ -59,12 +59,12 @@ II\. How God condescends to answer all his excuses. Though *the anger of the Lor
 
 ## Moses Returns in Egypt. (b. c. 1491.)
 
-> <sup>18</sup> And Moses went and returned to Jethro his father in law, and said unto him, Let me go, I pray thee, and return unto my brethren which *are* in Egypt, and see whether they be yet alive. And Jethro said to Moses, Go in peace.  
-> <sup>19</sup> And the LORD said unto Moses in Midian, Go, return into Egypt: for all the men are dead which sought thy life.  
-> <sup>20</sup> And Moses took his wife and his sons, and set them upon an ass, and he returned to the land of Egypt: and Moses took the rod of God in his hand.  
-> <sup>21</sup> And the LORD said unto Moses, When thou goest to return into Egypt, see that thou do all those wonders before Pharaoh, which I have put in thine hand: but I will harden his heart, that he shall not let the people go.  
-> <sup>22</sup> And thou shalt say unto Pharaoh, Thus saith the LORD, Israel *is* my son, *even* my firstborn:  
-> <sup>23</sup> And I say unto thee, Let my son go, that he may serve me: and if thou refuse to let him go, behold, I will slay thy son, *even* thy firstborn.  
+> **¹⁸** And Moses went and returned to Jethro his father in law, and said unto him, Let me go, I pray thee, and return unto my brethren which *are* in Egypt, and see whether they be yet alive. And Jethro said to Moses, Go in peace.  
+> **¹⁹** And the LORD said unto Moses in Midian, Go, return into Egypt: for all the men are dead which sought thy life.  
+> **²⁰** And Moses took his wife and his sons, and set them upon an ass, and he returned to the land of Egypt: and Moses took the rod of God in his hand.  
+> **²¹** And the LORD said unto Moses, When thou goest to return into Egypt, see that thou do all those wonders before Pharaoh, which I have put in thine hand: but I will harden his heart, that he shall not let the people go.  
+> **²²** And thou shalt say unto Pharaoh, Thus saith the LORD, Israel *is* my son, *even* my firstborn:  
+> **²³** And I say unto thee, Let my son go, that he may serve me: and if thou refuse to let him go, behold, I will slay thy son, *even* thy firstborn.  
 
 Here, I. Moses obtains leave of his father-in-law to return into Egypt, Ex 4:18. His father-in-law had been kind to him when he was a stranger, and therefore he would not be so uncivil as to leave his family, nor so unjust as to leave his service, without giving him notice. Note, The honour of being admitted into communion with God, and of being employed for him, does not exempt us from the duties of our relations and callings in this world. Moses said nothing to his father-in-law (for aught that appears) of the glorious manifestation of God to him; such favours we are to be thankful for to God, but not to boast of before men.
 
@@ -74,14 +74,14 @@ III\. Moses addresses himself to this expedition. When God had assured him (Ex 4
 
 ## The Circumcision of the Son of Moses. (b. c. 1491.)
 
-> <sup>24</sup> And it came to pass by the way in the inn, that the LORD met him, and sought to kill him.  
-> <sup>25</sup> Then Zipporah took a sharp stone, and cut off the foreskin of her son, and cast *it* at his feet, and said, Surely a bloody husband *art* thou to me.  
-> <sup>26</sup> So he let him go: then she said, A bloody husband *thou art,* because of the circumcision.  
-> <sup>27</sup> And the LORD said to Aaron, Go into the wilderness to meet Moses. And he went, and met him in the mount of God, and kissed him.  
-> <sup>28</sup> And Moses told Aaron all the words of the LORD who had sent him, and all the signs which he had commanded him.  
-> <sup>29</sup> And Moses and Aaron went and gathered together all the elders of the children of Israel:  
-> <sup>30</sup> And Aaron spake all the words which the LORD had spoken unto Moses, and did the signs in the sight of the people.  
-> <sup>31</sup> And the people believed: and when they heard that the LORD had visited the children of Israel, and that he had looked upon their affliction, then they bowed their heads and worshipped.  
+> **²⁴** And it came to pass by the way in the inn, that the LORD met him, and sought to kill him.  
+> **²⁵** Then Zipporah took a sharp stone, and cut off the foreskin of her son, and cast *it* at his feet, and said, Surely a bloody husband *art* thou to me.  
+> **²⁶** So he let him go: then she said, A bloody husband *thou art,* because of the circumcision.  
+> **²⁷** And the LORD said to Aaron, Go into the wilderness to meet Moses. And he went, and met him in the mount of God, and kissed him.  
+> **²⁸** And Moses told Aaron all the words of the LORD who had sent him, and all the signs which he had commanded him.  
+> **²⁹** And Moses and Aaron went and gathered together all the elders of the children of Israel:  
+> **³⁰** And Aaron spake all the words which the LORD had spoken unto Moses, and did the signs in the sight of the people.  
+> **³¹** And the people believed: and when they heard that the LORD had visited the children of Israel, and that he had looked upon their affliction, then they bowed their heads and worshipped.  
 
 Moses is here going to Egypt, and we are told,
 

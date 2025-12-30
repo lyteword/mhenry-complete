@@ -8,9 +8,9 @@ The work of a Christian is twofold—doing the will of God and suffering his ple
 
 ## The Mortification of Sin. (a. d. 66.)
 
-> <sup>1</sup> Forasmuch then as Christ hath suffered for us in the flesh, arm yourselves likewise with the same mind: for he that hath suffered in the flesh hath ceased from sin;  
-> <sup>2</sup> That he no longer should live the rest of *his* time in the flesh to the lusts of men, but to the will of God.  
-> <sup>3</sup> For the time past of *our* life may suffice us to have wrought the will of the Gentiles, when we walked in lasciviousness, lusts, excess of wine, revellings, banquetings, and abominable idolatries:  
+> **¹** Forasmuch then as Christ hath suffered for us in the flesh, arm yourselves likewise with the same mind: for he that hath suffered in the flesh hath ceased from sin;  
+> **²** That he no longer should live the rest of *his* time in the flesh to the lusts of men, but to the will of God.  
+> **³** For the time past of *our* life may suffice us to have wrought the will of the Gentiles, when we walked in lasciviousness, lusts, excess of wine, revellings, banquetings, and abominable idolatries:  
 
 The apostle here draws a new inference from the consideration of Christ's sufferings. As he had before made use of it to persuade to patience in suffering, so here to mortification of sin. Observe,
 
@@ -22,9 +22,9 @@ III\. How it is enforced (1Pe 4:3): *For the time past of our life may suffice u
 
 ## Comfort of the Servants of God. (a. d. 66.)
 
-> <sup>4</sup> Wherein they think it strange that ye run not with *them* to the same excess of riot, speaking evil of *you:*  
-> <sup>5</sup> Who shall give account to him that is ready to judge the quick and the dead.  
-> <sup>6</sup> For for this cause was the gospel preached also to them that are dead, that they might be judged according to men in the flesh, but live according to God in the spirit.  
+> **⁴** Wherein they think it strange that ye run not with *them* to the same excess of riot, speaking evil of *you:*  
+> **⁵** Who shall give account to him that is ready to judge the quick and the dead.  
+> **⁶** For for this cause was the gospel preached also to them that are dead, that they might be judged according to men in the flesh, but live according to God in the spirit.  
 
 I\. Here you have the visible change wrought in those who in the 1Pe 4:3 were represented as having been in the former part of their life very wicked. They no longer run on in the same courses, or with the same companions, as they used to do. Hereupon observe the conduct of their wicked acquaintance towards them. 1. *They think it strange,* they are surprised and wonder at it, as at something new and unusual, that their old friends should be so much altered, and not run with as much violence as they used to do *to the same excess of riot,* to the same sottish excesses and luxury which before they had greedily and madly followed. 2. *They speak evil of them.* Their surprise carries them to blasphemy. They speak evil of their persons, of their way, their religion, and their God. Learn, (1.) Those that are once really converted will not return to their former course of life, though ever so much tempted by the frowns or flatteries of others to do so. Neither persuasion nor reproach will prevail with them to be or to do as they were wont to do. (2.) The temper and behaviour of true Christians seem very strange to ungodly men. That they should despise that which every one else is fond of, that they should believe many things which to others seem incredible, that they should delight in what is irksome and tedious, be zealous where they have no visible interest to serve, and depend so much upon hope, is what the ungodly cannot comprehend. (3.) The best actions of religious people cannot escape the censures and slanders of those who are irreligious. Those actions which cost a good man the most pains, hazard, and self-denial, shall be most censured by the uncharitable and ill-natured world; they will speak evil of good people, though they themselves reap the fruits of their charity, piety, and goodness.
 
@@ -36,11 +36,11 @@ II\. For the comfort of the servants of God, it is here added,
 
 ## Sobriety, Watchfulness, and Charity; Improvement of Talents. (a. d. 66.)
 
-> <sup>7</sup> But the end of all things is at hand: be ye therefore sober, and watch unto prayer.  
-> <sup>8</sup> And above all things have fervent charity among yourselves: for charity shall cover the multitude of sins.  
-> <sup>9</sup> Use hospitality one to another without grudging.  
-> <sup>10</sup> As every man hath received the gift, *even so* minister the same one to another, as good stewards of the manifold grace of God.  
-> <sup>11</sup> If any man speak, *let him speak* as the oracles of God; if any man minister, *let him do it* as of the ability which God giveth: that God in all things may be glorified through Jesus Christ, to whom be praise and dominion for ever and ever. Amen.  
+> **⁷** But the end of all things is at hand: be ye therefore sober, and watch unto prayer.  
+> **⁸** And above all things have fervent charity among yourselves: for charity shall cover the multitude of sins.  
+> **⁹** Use hospitality one to another without grudging.  
+> **¹⁰** As every man hath received the gift, *even so* minister the same one to another, as good stewards of the manifold grace of God.  
+> **¹¹** If any man speak, *let him speak* as the oracles of God; if any man minister, *let him do it* as of the ability which God giveth: that God in all things may be glorified through Jesus Christ, to whom be praise and dominion for ever and ever. Amen.  
 
 We have here an awful position or doctrine, and an inference drawn from it. The position is that the *end of all things is at hand.* The miserable destruction of the Jewish church and nation foretold by our Saviour is now very near; consequently, the time of their persecution and your sufferings is but very short. Your own life and that of your enemies will soon come to their utmost period. Nay, the world itself will not continue very long. The conflagration will put an end to it; and all things must be swallowed up in an endless eternity. The inference from this comprises a series of exhortations.
 
@@ -58,14 +58,14 @@ We have here an awful position or doctrine, and an inference drawn from it. The 
 
 ## Fortitude and Circumspection; Advice to Suffering Christians. (a. d. 66.)
 
-> <sup>12</sup> Beloved, think it not strange concerning the fiery trial which is to try you, as though some strange thing happened unto you:  
-> <sup>13</sup> But rejoice, inasmuch as ye are partakers of Christ's sufferings; that, when his glory shall be revealed, ye may be glad also with exceeding joy.  
-> <sup>14</sup> If ye be reproached for the name of Christ, happy *are ye;* for the spirit of glory and of God resteth upon you: on their part he is evil spoken of, but on your part he is glorified.  
-> <sup>15</sup> But let none of you suffer as a murderer, or *as* a thief, or *as* an evildoer, or as a busybody in other men's matters.  
-> <sup>16</sup> Yet if *any man suffer* as a Christian, let him not be ashamed; but let him glorify God on this behalf.  
-> <sup>17</sup> For the time *is come* that judgment must begin at the house of God: and if *it* first *begin* at us, what shall the end *be* of them that obey not the gospel of God?  
-> <sup>18</sup> And if the righteous scarcely be saved, where shall the ungodly and the sinner appear?  
-> <sup>19</sup> Wherefore let them that suffer according to the will of God commit the keeping of their souls *to him* in well doing, as unto a faithful Creator.  
+> **¹²** Beloved, think it not strange concerning the fiery trial which is to try you, as though some strange thing happened unto you:  
+> **¹³** But rejoice, inasmuch as ye are partakers of Christ's sufferings; that, when his glory shall be revealed, ye may be glad also with exceeding joy.  
+> **¹⁴** If ye be reproached for the name of Christ, happy *are ye;* for the spirit of glory and of God resteth upon you: on their part he is evil spoken of, but on your part he is glorified.  
+> **¹⁵** But let none of you suffer as a murderer, or *as* a thief, or *as* an evildoer, or as a busybody in other men's matters.  
+> **¹⁶** Yet if *any man suffer* as a Christian, let him not be ashamed; but let him glorify God on this behalf.  
+> **¹⁷** For the time *is come* that judgment must begin at the house of God: and if *it* first *begin* at us, what shall the end *be* of them that obey not the gospel of God?  
+> **¹⁸** And if the righteous scarcely be saved, where shall the ungodly and the sinner appear?  
+> **¹⁹** Wherefore let them that suffer according to the will of God commit the keeping of their souls *to him* in well doing, as unto a faithful Creator.  
 
 The frequent repetition of counsel and comfort to Christians, considered as sufferers, in every chapter of this epistle, shows that the greatest danger these new converts were in arose from the persecutions to which their embracing Christianity exposed them. The good behaviour of Christians under sufferings is the most difficult part of their duty, but yet necessary both for the honour of Christ and their own comfort; and therefore the apostle, having extorted them in the former part of this chapter to the great duty of mortification, comes here to direct them in the necessary duty of patience under sufferings. An unmortified spirit is very unfit to bear trials. Observe,
 

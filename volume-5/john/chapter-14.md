@@ -8,9 +8,9 @@ This chapter is a continuation of Christ's discourse with his disciples after su
 
 ## Christ's Consolatory Discourse.
 
-> <sup>1</sup> Let not your heart be troubled: ye believe in God, believe also in me.  
-> <sup>2</sup> In my Father's house are many mansions: if *it were* not *so,* I would have told you. I go to prepare a place for you.  
-> <sup>3</sup> And if I go and prepare a place for you, I will come again, and receive you unto myself; that where I am, *there* ye may be also.  
+> **¹** Let not your heart be troubled: ye believe in God, believe also in me.  
+> **²** In my Father's house are many mansions: if *it were* not *so,* I would have told you. I go to prepare a place for you.  
+> **³** And if I go and prepare a place for you, I will come again, and receive you unto myself; that where I am, *there* ye may be also.  
 
 In these verses we have,
 
@@ -38,14 +38,14 @@ II\. Here is a particular direction to act faith upon the promise of eternal lif
 
 ## Christ's Consolatory Discourse.
 
-> <sup>4</sup> And whither I go ye know, and the way ye know.  
-> <sup>5</sup> Thomas saith unto him, Lord, we know not whither thou goest; and how can we know the way?  
-> <sup>6</sup> Jesus saith unto him, I am the way, the truth, and the life: no man cometh unto the Father, but by me.  
-> <sup>7</sup> If ye had known me, ye should have known my Father also: and from henceforth ye know him, and have seen him.  
-> <sup>8</sup> Philip saith unto him, Lord, show us the Father, and it sufficeth us.  
-> <sup>9</sup> Jesus saith unto him, Have I been so long time with you, and yet hast thou not known me, Philip? he that hath seen me hath seen the Father; and how sayest thou *then,* Show us the Father?  
-> <sup>10</sup> Believest thou not that I am in the Father, and the Father in me? the words that I speak unto you I speak not of myself: but the Father that dwelleth in me, he doeth the works.  
-> <sup>11</sup> Believe me that I *am* in the Father, and the Father in me: or else believe me for the very works' sake.  
+> **⁴** And whither I go ye know, and the way ye know.  
+> **⁵** Thomas saith unto him, Lord, we know not whither thou goest; and how can we know the way?  
+> **⁶** Jesus saith unto him, I am the way, the truth, and the life: no man cometh unto the Father, but by me.  
+> **⁷** If ye had known me, ye should have known my Father also: and from henceforth ye know him, and have seen him.  
+> **⁸** Philip saith unto him, Lord, show us the Father, and it sufficeth us.  
+> **⁹** Jesus saith unto him, Have I been so long time with you, and yet hast thou not known me, Philip? he that hath seen me hath seen the Father; and how sayest thou *then,* Show us the Father?  
+> **¹⁰** Believest thou not that I am in the Father, and the Father in me? the words that I speak unto you I speak not of myself: but the Father that dwelleth in me, he doeth the works.  
+> **¹¹** Believe me that I *am* in the Father, and the Father in me: or else believe me for the very works' sake.  
 
 Christ, having set the happiness of heaven before them as the end, here shows them himself as the way to it, and tells them that they were better acquainted both with the end they were to aim at and with the way they were to walk in than they thought they were: *You know,* that is, 1. "You may know; it is none of the *secret things* which belong not to you, but one of the *things revealed;* you *need not ascend into heaven,* nor *go down into the deep,* for *the word is nigh you* (Ro 10:6-8), level to you." 2. "You do know; you know that which is the home and which is the way, though perhaps not as the home and as the way. You have been told it, and cannot but know, if you would recollect and consider it." Note, Jesus Christ is willing to make the best of his people's knowledge, though they are weak and defective in it. He knows the good that is in them better than they do themselves, and is certain that they have that knowledge, and faith, and love, of which they themselves are not sensible, or not certain.
 
@@ -89,9 +89,9 @@ II\. Philip enquired concerning the Father (Joh 14:8), and Christ answered him, 
 
 ## Christ's Consolatory Discourse.
 
-> <sup>12</sup> Verily, verily, I say unto you, He that believeth on me, the works that I do shall he do also; and greater *works* than these shall he do; because I go unto my Father.  
-> <sup>13</sup> And whatsoever ye shall ask in my name, that will I do, that the Father may be glorified in the Son.  
-> <sup>14</sup> If ye shall ask any thing in my name, I will do *it.*  
+> **¹²** Verily, verily, I say unto you, He that believeth on me, the works that I do shall he do also; and greater *works* than these shall he do; because I go unto my Father.  
+> **¹³** And whatsoever ye shall ask in my name, that will I do, that the Father may be glorified in the Son.  
+> **¹⁴** If ye shall ask any thing in my name, I will do *it.*  
 
 The disciples, as they were full of grief to think of parting with their Master, so they were full of care what would become of themselves when he was gone; while he was with them, he was a support to them, kept them in countenance, kept them in heart; but, if he leave them, they will be *as sheep having no shepherd,* an easy prey to those who seek to run them down. Now, to silence these fears, Christ here assures them that they should be clothed with powers sufficient to bear them out. As Christ has *all power,* they, in his name, should have great *power, both in heaven and in earth.*
 
@@ -117,9 +117,9 @@ II\. Great *power in heaven: "Whatsoever you shall ask, that will I do* (Joh 14:
 
 ## Christ's Consolatory Discourse.
 
-> <sup>15</sup> If ye love me, keep my commandments.  
-> <sup>16</sup> And I will pray the Father, and he shall give you another Comforter, that he may abide with you for ever;  
-> <sup>17</sup> *Even* the Spirit of truth; whom the world cannot receive, because it seeth him not, neither knoweth him: but ye know him; for he dwelleth with you, and shall be in you.  
+> **¹⁵** If ye love me, keep my commandments.  
+> **¹⁶** And I will pray the Father, and he shall give you another Comforter, that he may abide with you for ever;  
+> **¹⁷** *Even* the Spirit of truth; whom the world cannot receive, because it seeth him not, neither knoweth him: but ye know him; for he dwelleth with you, and shall be in you.  
 
 Christ not only proposes such things to them as were the matter of their comfort, but here promises to send the Spirit, whose office it should be to be their Comforter, to *impress* these things upon them.
 
@@ -147,13 +147,13 @@ II\. He promises this great and unspeakable blessing to them, Joh 14:16,17.
 
 ## Christ's Consolatory Discourse.
 
-> <sup>18</sup> I will not leave you comfortless: I will come to you.  
-> <sup>19</sup> Yet a little while, and the world seeth me no more; but ye see me: because I live, ye shall live also.  
-> <sup>20</sup> At that day ye shall know that I *am* in my Father, and ye in me, and I in you.  
-> <sup>21</sup> He that hath my commandments, and keepeth them, he it is that loveth me: and he that loveth me shall be loved of my Father, and I will love him, and will manifest myself to him.  
-> <sup>22</sup> Judas saith unto him, not Iscariot, Lord, how is it that thou wilt manifest thyself unto us, and not unto the world?  
-> <sup>23</sup> Jesus answered and said unto him, If a man love me, he will keep my words: and my Father will love him, and we will come unto him, and make our abode with him.  
-> <sup>24</sup> He that loveth me not keepeth not my sayings: and the word which ye hear is not mine, but the Father's which sent me.  
+> **¹⁸** I will not leave you comfortless: I will come to you.  
+> **¹⁹** Yet a little while, and the world seeth me no more; but ye see me: because I live, ye shall live also.  
+> **²⁰** At that day ye shall know that I *am* in my Father, and ye in me, and I in you.  
+> **²¹** He that hath my commandments, and keepeth them, he it is that loveth me: and he that loveth me shall be loved of my Father, and I will love him, and will manifest myself to him.  
+> **²²** Judas saith unto him, not Iscariot, Lord, how is it that thou wilt manifest thyself unto us, and not unto the world?  
+> **²³** Jesus answered and said unto him, If a man love me, he will keep my words: and my Father will love him, and we will come unto him, and make our abode with him.  
+> **²⁴** He that loveth me not keepeth not my sayings: and the word which ye hear is not mine, but the Father's which sent me.  
 
 When friends are parting, it is a common request they make to each other, "Pray let us hear from you as often as you can:" this Christ engaged to his disciples, that out of sight they should not be out of mind.
 
@@ -187,9 +187,9 @@ III\. He promises that he would love them, and manifest himself to them, Joh 14:
 
 ## Christ's Consolatory Discourse.
 
-> <sup>25</sup> These things have I spoken unto you, being *yet* present with you.  
-> <sup>26</sup> But the Comforter, *which is* the Holy Ghost, whom the Father will send in my name, he shall teach you all things, and bring all things to your remembrance, whatsoever I have said unto you.  
-> <sup>27</sup> Peace I leave with you, my peace I give unto you: not as the world giveth, give I unto you. Let not your heart be troubled, neither let it be afraid.  
+> **²⁵** These things have I spoken unto you, being *yet* present with you.  
+> **²⁶** But the Comforter, *which is* the Holy Ghost, whom the Father will send in my name, he shall teach you all things, and bring all things to your remembrance, whatsoever I have said unto you.  
+> **²⁷** Peace I leave with you, my peace I give unto you: not as the world giveth, give I unto you. Let not your heart be troubled, neither let it be afraid.  
 
 Two things Christ here comforts his disciples with:—
 
@@ -215,10 +215,10 @@ II\. That they should be under the influence of his peace (Joh 14:27): *Peace I 
 
 ## Christ's Consolatory Discourse.
 
-> <sup>28</sup> Ye have heard how I said unto you, I go away, and come *again* unto you. If ye loved me, ye would rejoice, because I said, I go unto the Father: for my Father is greater than I.  
-> <sup>29</sup> And now I have told you before it come to pass, that, when it is come to pass, ye might believe.  
-> <sup>30</sup> Hereafter I will not talk much with you: for the prince of this world cometh, and hath nothing in me.  
-> <sup>31</sup> But that the world may know that I love the Father; and as the Father gave me commandment, even so I do. Arise, let us go hence.  
+> **²⁸** Ye have heard how I said unto you, I go away, and come *again* unto you. If ye loved me, ye would rejoice, because I said, I go unto the Father: for my Father is greater than I.  
+> **²⁹** And now I have told you before it come to pass, that, when it is come to pass, ye might believe.  
+> **³⁰** Hereafter I will not talk much with you: for the prince of this world cometh, and hath nothing in me.  
+> **³¹** But that the world may know that I love the Father; and as the Father gave me commandment, even so I do. Arise, let us go hence.  
 
 Christ here gives his disciples another reason why their hearts should not be troubled for his going away; and that is, because his heart was not. And here he tells them what it was that enabled him to endure the cross and despise the shame, that they might *look unto him,* and *run with patience.* He comforted himself,
 

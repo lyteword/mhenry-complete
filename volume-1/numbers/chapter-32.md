@@ -8,21 +8,21 @@ In this chapter we have, I. The humble request of the tribes of Reuben and Gad f
 
 ## The Request of the Reubenites. (b. c. 1452.)
 
-> <sup>1</sup> Now the children of Reuben and the children of Gad had a very great multitude of cattle: and when they saw the land of Jazer, and the land of Gilead, that, behold, the place *was* a place for cattle;  
-> <sup>2</sup> The children of Gad and the children of Reuben came and spake unto Moses, and to Eleazar the priest, and unto the princes of the congregation, saying,  
-> <sup>3</sup> Ataroth, and Dibon, and Jazer, and Nimrah, and Heshbon, and Elealeh, and Shebam, and Nebo, and Beon,  
-> <sup>4</sup> *Even* the country which the LORD smote before the congregation of Israel, *is* a land for cattle, and thy servants have cattle:  
-> <sup>5</sup> Wherefore, said they, if we have found grace in thy sight, let this land be given unto thy servants for a possession, *and* bring us not over Jordan.  
-> <sup>6</sup> And Moses said unto the children of Gad and to the children of Reuben, Shall your brethren go to war, and shall ye sit here?  
-> <sup>7</sup> And wherefore discourage ye the heart of the children of Israel from going over into the land which the LORD hath given them?  
-> <sup>8</sup> Thus did your fathers, when I sent them from Kadesh-barnea to see the land.  
-> <sup>9</sup> For when they went up unto the valley of Eshcol, and saw the land, they discouraged the heart of the children of Israel, that they should not go into the land which the LORD had given them.  
-> <sup>10</sup> And the LORD's anger was kindled the same time, and he sware, saying,  
-> <sup>11</sup> Surely none of the men that came up out of Egypt, from twenty years old and upward, shall see the land which I sware unto Abraham, unto Isaac, and unto Jacob; because they have not wholly followed me:  
-> <sup>12</sup> Save Caleb the son of Jephunneh the Kenezite, and Joshua the son of Nun: for they have wholly followed the LORD.  
-> <sup>13</sup> And the LORD's anger was kindled against Israel, and he made them wander in the wilderness forty years, until all the generation, that had done evil in the sight of the LORD, was consumed.  
-> <sup>14</sup> And, behold, ye are risen up in your fathers' stead, an increase of sinful men, to augment yet the fierce anger of the LORD toward Israel.  
-> <sup>15</sup> For if ye turn away from after him, he will yet again leave them in the wilderness; and ye shall destroy all this people.  
+> **¹** Now the children of Reuben and the children of Gad had a very great multitude of cattle: and when they saw the land of Jazer, and the land of Gilead, that, behold, the place *was* a place for cattle;  
+> **²** The children of Gad and the children of Reuben came and spake unto Moses, and to Eleazar the priest, and unto the princes of the congregation, saying,  
+> **³** Ataroth, and Dibon, and Jazer, and Nimrah, and Heshbon, and Elealeh, and Shebam, and Nebo, and Beon,  
+> **⁴** *Even* the country which the LORD smote before the congregation of Israel, *is* a land for cattle, and thy servants have cattle:  
+> **⁵** Wherefore, said they, if we have found grace in thy sight, let this land be given unto thy servants for a possession, *and* bring us not over Jordan.  
+> **⁶** And Moses said unto the children of Gad and to the children of Reuben, Shall your brethren go to war, and shall ye sit here?  
+> **⁷** And wherefore discourage ye the heart of the children of Israel from going over into the land which the LORD hath given them?  
+> **⁸** Thus did your fathers, when I sent them from Kadesh-barnea to see the land.  
+> **⁹** For when they went up unto the valley of Eshcol, and saw the land, they discouraged the heart of the children of Israel, that they should not go into the land which the LORD had given them.  
+> **¹⁰** And the LORD's anger was kindled the same time, and he sware, saying,  
+> **¹¹** Surely none of the men that came up out of Egypt, from twenty years old and upward, shall see the land which I sware unto Abraham, unto Isaac, and unto Jacob; because they have not wholly followed me:  
+> **¹²** Save Caleb the son of Jephunneh the Kenezite, and Joshua the son of Nun: for they have wholly followed the LORD.  
+> **¹³** And the LORD's anger was kindled against Israel, and he made them wander in the wilderness forty years, until all the generation, that had done evil in the sight of the LORD, was consumed.  
+> **¹⁴** And, behold, ye are risen up in your fathers' stead, an increase of sinful men, to augment yet the fierce anger of the LORD toward Israel.  
+> **¹⁵** For if ye turn away from after him, he will yet again leave them in the wilderness; and ye shall destroy all this people.  
 
 Israel's tents were now pitched in the plains of Moab, where they continued many months, looking back upon the conquests they had already made of the land of Sihon and Og, and looking forward to Canaan, which they hoped in a little while to make themselves masters of. While they made this stand, and were at a pause, this great affair of the disposal of the conquests they had already made was here concerted and settled, not by any particular order or appointment of God, but at the special instance and request of two of the tribes, to which Moses, after a long debate that arose upon it, consented. For even *then,* when so much was done by the extraordinary appearances of divine Providence, many things were left to the direction of human prudence; for God, in governing both the world and the church, makes use of the reason of men, and serves his own purposes by it.
 
@@ -34,18 +34,18 @@ II\. Moses's dislike of this motion, and the severe rebuke he gives to it, as a 
 
 2\. Moses is therefore very warm upon them, which is to be imputed to his pious zeal against sin, and not to any peevishness, the effect of old age, for his meekness abated not, any more than his natural force. (1.) He shows them what he apprehended to be evil in this motion, that it would discharge the heart of their brethren, Nu 32:6,7. "What!" (says he, with a holy indignation at their selfishness) "*shall your brethren go to war,* and expose themselves to all the hardships and hazards of the field, and *shall you sit here* at your ease? No, do not deceive yourselves, you shall never be indulged by me in this sloth and cowardice." It ill becomes any of God's Israel to sit down unconcerned in the difficult and perilous concernments of their brethren, whether public or personal. (2.) He reminds them of the fatal consequences of the unbelief and faint-heartedness of their fathers, when they were just ready to enter Canaan, as they themselves now were. He recites the story very particularly (Nu 32:8-13): "*Thus did your fathers,* whose punishment should be a warning to you to take heed of sinning after the similitude of their transgression." (3.) He gives them fair warning of the mischief that would be likely to follow upon this separation which they were about to make from the camp of Israel; they would be in danger of bringing wrath upon the whole congregation, and hurrying them all back again into the wilderness (Nu 32:14,15): "*You have risen up in your fathers' stead* to despise the pleasant land and reject it as they did, when we hoped you had risen up in their stead to possess it." It was an encouragement to Moses to see what an increase of men there was in these tribes, but a discouragement to see that it was withal an increase of sinful men, treading in the steps of their fathers' impiety. It is sad to see the rising generation in families and countries not only no better, but worse than that which went before it; and what comes of it? Why, *it augments the fierce anger of the Lord;* not only continues that fire, but increases it, and fills the measure, often till it overflows in a deluge of desolation. Note, If men did but consider as they ought, what would be the end of sin, they would be afraid of the beginnings of it.
 
-> <sup>16</sup> And they came near unto him, and said, We will build sheepfolds here for our cattle, and cities for our little ones:  
-> <sup>17</sup> But we ourselves will go ready armed before the children of Israel, until we have brought them unto their place: and our little ones shall dwell in the fenced cities because of the inhabitants of the land.  
-> <sup>18</sup> We will not return unto our houses, until the children of Israel have inherited every man his inheritance.  
-> <sup>19</sup> For we will not inherit with them on yonder side Jordan, or forward; because our inheritance is fallen to us on this side Jordan eastward.  
-> <sup>20</sup> And Moses said unto them, If ye will do this thing, if ye will go armed before the LORD to war,  
-> <sup>21</sup> And will go all of you armed over Jordan before the LORD, until he hath driven out his enemies from before him,  
-> <sup>22</sup> And the land be subdued before the LORD: then afterward ye shall return, and be guiltless before the LORD, and before Israel; and this land shall be your possession before the LORD.  
-> <sup>23</sup> But if ye will not do so, behold, ye have sinned against the LORD: and be sure your sin will find you out.  
-> <sup>24</sup> Build you cities for your little ones, and folds for your sheep; and do that which hath proceeded out of your mouth.  
-> <sup>25</sup> And the children of Gad and the children of Reuben spake unto Moses, saying, Thy servants will do as my lord commandeth.  
-> <sup>26</sup> Our little ones, our wives, our flocks, and all our cattle, shall be there in the cities of Gilead:  
-> <sup>27</sup> But thy servants will pass over, every man armed for war, before the LORD to battle, as my lord saith.  
+> **¹⁶** And they came near unto him, and said, We will build sheepfolds here for our cattle, and cities for our little ones:  
+> **¹⁷** But we ourselves will go ready armed before the children of Israel, until we have brought them unto their place: and our little ones shall dwell in the fenced cities because of the inhabitants of the land.  
+> **¹⁸** We will not return unto our houses, until the children of Israel have inherited every man his inheritance.  
+> **¹⁹** For we will not inherit with them on yonder side Jordan, or forward; because our inheritance is fallen to us on this side Jordan eastward.  
+> **²⁰** And Moses said unto them, If ye will do this thing, if ye will go armed before the LORD to war,  
+> **²¹** And will go all of you armed over Jordan before the LORD, until he hath driven out his enemies from before him,  
+> **²²** And the land be subdued before the LORD: then afterward ye shall return, and be guiltless before the LORD, and before Israel; and this land shall be your possession before the LORD.  
+> **²³** But if ye will not do so, behold, ye have sinned against the LORD: and be sure your sin will find you out.  
+> **²⁴** Build you cities for your little ones, and folds for your sheep; and do that which hath proceeded out of your mouth.  
+> **²⁵** And the children of Gad and the children of Reuben spake unto Moses, saying, Thy servants will do as my lord commandeth.  
+> **²⁶** Our little ones, our wives, our flocks, and all our cattle, shall be there in the cities of Gilead:  
+> **²⁷** But thy servants will pass over, every man armed for war, before the LORD to battle, as my lord saith.  
 
 We have here the accommodating of the matter between Moses and the two tribes, about their settlement on this side Jordan. Probably the petitioners withdrew, and considered with themselves what answer they should return to the severe reproof Moses had given them; and, after some consultation, they return with this proposal, that their men of war should go and assist their brethren in the conquest of Canaan, and they would leave their families and flocks behind them in this land: and thus they might have their request, and no harm would be done. Now it is uncertain whether they designed this at first when they brought their petition or no. If they did, it is an instance how often that which is honestly meant is unhappily misinterpreted; yet Moses herein was excusable, for he had reason to suspect the worst of them, and the rebuke he gave them was from the abundance of his care to prevent sin. But, if they did not, it is an instance of the good effect of plain dealing; Moses, by showing them their sin, and the danger of it, brought them to their duty without murmuring or disputing. They object not that their brethren were able to contend with the Canaanites without their help, especially since they were sure of God's fighting for them; but engage themselves to stand by them.
 
@@ -57,21 +57,21 @@ III\. They unanimously agree to the provisos and conditions of the grant, and do
 
 ## Inheritance of the Reubenites. (b. c. 1452.)
 
-> <sup>28</sup> So concerning them Moses commanded Eleazar the priest, and Joshua the son of Nun, and the chief fathers of the tribes of the children of Israel:  
-> <sup>29</sup> And Moses said unto them, If the children of Gad and the children of Reuben will pass with you over Jordan, every man armed to battle, before the LORD, and the land shall be subdued before you; then ye shall give them the land of Gilead for a possession:  
-> <sup>30</sup> But if they will not pass over with you armed, they shall have possessions among you in the land of Canaan.  
-> <sup>31</sup> And the children of Gad and the children of Reuben answered, saying, As the LORD hath said unto thy servants, so will we do.  
-> <sup>32</sup> We will pass over armed before the LORD into the land of Canaan, that the possession of our inheritance on this side Jordan *may be* ours.  
-> <sup>33</sup> And Moses gave unto them, *even* to the children of Gad, and to the children of Reuben, and unto half the tribe of Ephraim the son of Joseph, the kingdom of Sihon king of the Amorites, and the kingdom of Og king of Bashan, the land, with the cities thereof in the coasts, *even* the cities of the country round about.  
-> <sup>34</sup> And the children of Gad built Dibon, and Ataroth, and Aroer,  
-> <sup>35</sup> And Atroth, Shophan, and Jaazer, and Jogbehah,  
-> <sup>36</sup> And Beth-nimrah, and Beth-haran, fenced cities: and folds for sheep.  
-> <sup>37</sup> And the children of Reuben built Heshbon, and Elealeh, and Kirjathaim,  
-> <sup>38</sup> And Nebo, and Baal-meon, (their names being changed,) and Shibmah: and gave other names unto the cities which they builded.  
-> <sup>39</sup> And the children of Machir the son of Manasseh went to Gilead, and took it, and dispossessed the Amorite which *was* in it.  
-> <sup>40</sup> And Moses gave Gilead unto Machir the son of Manasseh; and he dwelt therein.  
-> <sup>41</sup> And Jair the son of Manasseh went and took the small towns thereof, and called them Havoth-jair.  
-> <sup>42</sup> And Nobah went and took Kenath, and the villages thereof, and called it Nobah, after his own name.  
+> **²⁸** So concerning them Moses commanded Eleazar the priest, and Joshua the son of Nun, and the chief fathers of the tribes of the children of Israel:  
+> **²⁹** And Moses said unto them, If the children of Gad and the children of Reuben will pass with you over Jordan, every man armed to battle, before the LORD, and the land shall be subdued before you; then ye shall give them the land of Gilead for a possession:  
+> **³⁰** But if they will not pass over with you armed, they shall have possessions among you in the land of Canaan.  
+> **³¹** And the children of Gad and the children of Reuben answered, saying, As the LORD hath said unto thy servants, so will we do.  
+> **³²** We will pass over armed before the LORD into the land of Canaan, that the possession of our inheritance on this side Jordan *may be* ours.  
+> **³³** And Moses gave unto them, *even* to the children of Gad, and to the children of Reuben, and unto half the tribe of Ephraim the son of Joseph, the kingdom of Sihon king of the Amorites, and the kingdom of Og king of Bashan, the land, with the cities thereof in the coasts, *even* the cities of the country round about.  
+> **³⁴** And the children of Gad built Dibon, and Ataroth, and Aroer,  
+> **³⁵** And Atroth, Shophan, and Jaazer, and Jogbehah,  
+> **³⁶** And Beth-nimrah, and Beth-haran, fenced cities: and folds for sheep.  
+> **³⁷** And the children of Reuben built Heshbon, and Elealeh, and Kirjathaim,  
+> **³⁸** And Nebo, and Baal-meon, (their names being changed,) and Shibmah: and gave other names unto the cities which they builded.  
+> **³⁹** And the children of Machir the son of Manasseh went to Gilead, and took it, and dispossessed the Amorite which *was* in it.  
+> **⁴⁰** And Moses gave Gilead unto Machir the son of Manasseh; and he dwelt therein.  
+> **⁴¹** And Jair the son of Manasseh went and took the small towns thereof, and called them Havoth-jair.  
+> **⁴²** And Nobah went and took Kenath, and the villages thereof, and called it Nobah, after his own name.  
 
 Here, 1. Moses settles this matter with Eleazar, and with Joshua who was to be his successor, knowing that he himself must not live to see it perfected, Nu 32:28-30. He gives them an estate upon condition, leaving it to Joshua, if they fulfilled the condition, to declare the estate absolute: "If *they will not go over with you,*" he does not say "you shall give them no inheritance at all," but "you shall not give them this inheritance which they covet. If their militia will not come over with you, compel the whole tribes to come over, and let them take their lot with their brethren, and fare as they fare; *they shall have possessions in Canaan,* and let them not expect that the lot will favour them." Hereupon they repeat their promise to adhere to their brethren, Nu 32:31,32. 2. Moses settles them in the land they desired. He gave it to them for a possession, Nu 32:33. Here is the first mention of the half tribe of Manasseh coming in with them for a share; probably they had not joined with them in the petition, but, the land when it came to be apportioned proving to be too much for them, this half tribe had a lot among them, perhaps at their request, or by divine direction, or because they had signalized themselves in the conquest of this country: for the children of Machir, a stout and warlike family, had taken Gilead and dispossessed the Amorites, Nu 32:39. "Let them win it and wear it, get it and take it." And, they being celebrated for their courage and bravery, it was for the common safety to put them in this frontier-country. Concerning the settlement of these tribes observe, (1.) They built the cities, that is, repaired them, because either they had been damaged by the war or the Amorites had suffered them to go to decay. (2.) They changed the names of them (Nu 32:38), either to show their authority, that the change of the names might signify the change of their owners, or because their names were idolatrous, and carried in them a respect to the dunghill-deities that were there worshipped. Nebo and Baal were names of their gods, which they were forbidden to make mention of (Ex 23:13), and which, by changing the names of these cities, they endeavoured to bury in oblivion; and God promises to take away the names of Baalim out of the mouths of his people, Ho 2:17.
 

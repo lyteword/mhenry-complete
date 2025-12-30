@@ -8,13 +8,13 @@ The wise and penitent preacher is here closing his sermon; and he closes it, not
 
 ## The Infirmities of Old Age; The Effects of Death.
 
-> <sup>1</sup> Remember now thy Creator in the days of thy youth, while the evil days come not, nor the years draw nigh, when thou shalt say, I have no pleasure in them;  
-> <sup>2</sup> While the sun, or the light, or the moon, or the stars, be not darkened, nor the clouds return after the rain:  
-> <sup>3</sup> In the day when the keepers of the house shall tremble, and the strong men shall bow themselves, and the grinders cease because they are few, and those that look out of the windows be darkened,  
-> <sup>4</sup> And the doors shall be shut in the streets, when the sound of the grinding is low, and he shall rise up at the voice of the bird, and all the daughters of music shall be brought low;  
-> <sup>5</sup> Also *when* they shall be afraid of *that which is* high, and fears *shall be* in the way, and the almond tree shall flourish, and the grasshopper shall be a burden, and desire shall fail: because man goeth to his long home, and the mourners go about the streets:  
-> <sup>6</sup> Or ever the silver cord be loosed, or the golden bowl be broken, or the pitcher be broken at the fountain, or the wheel broken at the cistern.  
-> <sup>7</sup> Then shall the dust return to the earth as it was: and the spirit shall return unto God who gave it.  
+> **¹** Remember now thy Creator in the days of thy youth, while the evil days come not, nor the years draw nigh, when thou shalt say, I have no pleasure in them;  
+> **²** While the sun, or the light, or the moon, or the stars, be not darkened, nor the clouds return after the rain:  
+> **³** In the day when the keepers of the house shall tremble, and the strong men shall bow themselves, and the grinders cease because they are few, and those that look out of the windows be darkened,  
+> **⁴** And the doors shall be shut in the streets, when the sound of the grinding is low, and he shall rise up at the voice of the bird, and all the daughters of music shall be brought low;  
+> **⁵** Also *when* they shall be afraid of *that which is* high, and fears *shall be* in the way, and the almond tree shall flourish, and the grasshopper shall be a burden, and desire shall fail: because man goeth to his long home, and the mourners go about the streets:  
+> **⁶** Or ever the silver cord be loosed, or the golden bowl be broken, or the pitcher be broken at the fountain, or the wheel broken at the cistern.  
+> **⁷** Then shall the dust return to the earth as it was: and the spirit shall return unto God who gave it.  
 
 Here is, I. A call to young people to think of God, and mind their duty to him, when they are young: *Remember now thy Creator in the days of thy youth.* This is, 1. The royal preacher's application of his sermon concerning the vanity of the world and every thing in it. "You that are young flatter yourselves with expectations of great things from it, but believe those that have tried it; it yields no solid satisfaction to a soul; therefore, that you may not be deceived by this vanity, nor too much disturbed by it, *remember your Creator,* and so guard yourselves against the mischiefs that arise from the vanity of the creature." 2. It is the royal physician's antidote against the particular diseases of youth, the love of mirth, and the indulgence of sensual pleasures, the vanity which childhood and youth are subject to; to prevent and cure this, *remember thy Creator.* Here is, (1.) A great duty pressed upon us, to *remember* God as our *creator,* not only to remember that God is our Creator, that he *made us and not we ourselves,* and is therefore our rightful Lord and owner, but we must engage ourselves to him with the considerations which his being our Creator lay us under, and pay him the honour and duty which we owe him as our Creator. *Remember thy Creators;* the word is plural, as it is Job 35:10, *Where is God my Makers?* For God said, *Let us make man,* us, Father, Son, and Holy Ghost. (2.) The proper season for this duty—*in the days of thy youth,* the *days of thy choice* (so some), thy choice days, thy choosing days. "Begin in the beginning of thy days to remember him from whom thou hadst thy being, and go on according to that good beginning. Call him to mind when thou art young, and keep him in mind throughout all the days of thy youth, and never forget him. Guard thus against the temptations of youth, and thus improve the advantages of it."
 
@@ -34,11 +34,11 @@ II\. A reason to enforce this command: *While the evil days come not, and the ye
 
 ## The Conclusion of the Whole.
 
-> <sup>8</sup> Vanity of vanities, saith the preacher; all *is* vanity.  
-> <sup>9</sup> And moreover, because the preacher was wise, he still taught the people knowledge; yea, he gave good heed, and sought out, *and* set in order many proverbs.  
-> <sup>10</sup> The preacher sought to find out acceptable words: and *that which was* written *was* upright, *even* words of truth.  
-> <sup>11</sup> The words of the wise *are* as goads, and as nails fastened *by* the masters of assemblies, *which* are given from one shepherd.  
-> <sup>12</sup> And further, by these, my son, be admonished: of making many books *there is* no end; and much study *is* a weariness of the flesh.  
+> **⁸** Vanity of vanities, saith the preacher; all *is* vanity.  
+> **⁹** And moreover, because the preacher was wise, he still taught the people knowledge; yea, he gave good heed, and sought out, *and* set in order many proverbs.  
+> **¹⁰** The preacher sought to find out acceptable words: and *that which was* written *was* upright, *even* words of truth.  
+> **¹¹** The words of the wise *are* as goads, and as nails fastened *by* the masters of assemblies, *which* are given from one shepherd.  
+> **¹²** And further, by these, my son, be admonished: of making many books *there is* no end; and much study *is* a weariness of the flesh.  
 
 Solomon is here drawing towards a close, and is loth to part till he has gained his point, and prevailed with his hearers, with his readers, to seek for that satisfaction in God only and in their duty to him which they can never find in the creature.
 
@@ -66,8 +66,8 @@ II\. He recommends what he had written upon this subject by divine direction and
 
 ## The Conclusion of the Whole.
 
-> <sup>13</sup> Let us hear the conclusion of the whole matter: Fear God, and keep his commandments: for this *is* the whole *duty* of man.  
-> <sup>14</sup> For God shall bring every work into judgment, with every secret thing, whether *it be* good, or whether *it be* evil.  
+> **¹³** Let us hear the conclusion of the whole matter: Fear God, and keep his commandments: for this *is* the whole *duty* of man.  
+> **¹⁴** For God shall bring every work into judgment, with every secret thing, whether *it be* good, or whether *it be* evil.  
 
 The great enquiry which Solomon prosecutes in this book is, *What is that good which the sons of men should do?* Ec 2:3. What is the true way to true happiness, the certain means to attain our great end? He had in vain sought it among those things which most men are eager in pursuit of, but here, at length, he has found it, by the help of that discovery which God anciently made to man (Job 28:28), that serious godliness is the only way to true happiness: *Let us hear the conclusion of the whole matter,* the return entered upon the writ of enquiry, the result of this diligent search; you shall have all I have been driving at in two words. He does not say, *Do you hear it,* but *Let us hear it;* for preachers must themselves be hearers of that word which they preach to others, must hear it as from God; those are teachers by the halves who teach others and not themselves, Ro 2:21. Every word of God is pure and precious, but some words are worthy of more special remark, as this; the Masorites begin it with a capital letter, as that De 6:4. Solomon himself puts a *nota bene* before it, demanding attention in these words, *Let us hear the conclusion of the whole matter.* Observe here,
 

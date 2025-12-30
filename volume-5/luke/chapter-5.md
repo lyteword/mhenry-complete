@@ -8,17 +8,17 @@ In this chapter, we have, I. Christ preaching to the people out of Peter's ship,
 
 ## The Call of Peter, James, and John.
 
-> <sup>1</sup> And it came to pass, that, as the people pressed upon him to hear the word of God, he stood by the lake of Gennesaret,  
-> <sup>2</sup> And saw two ships standing by the lake: but the fishermen were gone out of them, and were washing *their* nets.  
-> <sup>3</sup> And he entered into one of the ships, which was Simon's, and prayed him that he would thrust out a little from the land. And he sat down, and taught the people out of the ship.  
-> <sup>4</sup> Now when he had left speaking, he said unto Simon, Launch out into the deep, and let down your nets for a draught.  
-> <sup>5</sup> And Simon answering said unto him, Master, we have toiled all the night, and have taken nothing: nevertheless at thy word I will let down the net.  
-> <sup>6</sup> And when they had this done, they inclosed a great multitude of fishes: and their net brake.  
-> <sup>7</sup> And they beckoned unto *their* partners, which were in the other ship, that they should come and help them. And they came, and filled both the ships, so that they began to sink.  
-> <sup>8</sup> When Simon Peter saw *it,* he fell down at Jesus' knees, saying, Depart from me; for I am a sinful man, O Lord.  
-> <sup>9</sup> For he was astonished, and all that were with him, at the draught of the fishes which they had taken:  
-> <sup>10</sup> And so *was* also James, and John, the sons of Zebedee, which were partners with Simon. And Jesus said unto Simon, Fear not; from henceforth thou shalt catch men.  
-> <sup>11</sup> And when they had brought their ships to land, they forsook all, and followed him.  
+> **¹** And it came to pass, that, as the people pressed upon him to hear the word of God, he stood by the lake of Gennesaret,  
+> **²** And saw two ships standing by the lake: but the fishermen were gone out of them, and were washing *their* nets.  
+> **³** And he entered into one of the ships, which was Simon's, and prayed him that he would thrust out a little from the land. And he sat down, and taught the people out of the ship.  
+> **⁴** Now when he had left speaking, he said unto Simon, Launch out into the deep, and let down your nets for a draught.  
+> **⁵** And Simon answering said unto him, Master, we have toiled all the night, and have taken nothing: nevertheless at thy word I will let down the net.  
+> **⁶** And when they had this done, they inclosed a great multitude of fishes: and their net brake.  
+> **⁷** And they beckoned unto *their* partners, which were in the other ship, that they should come and help them. And they came, and filled both the ships, so that they began to sink.  
+> **⁸** When Simon Peter saw *it,* he fell down at Jesus' knees, saying, Depart from me; for I am a sinful man, O Lord.  
+> **⁹** For he was astonished, and all that were with him, at the draught of the fishes which they had taken:  
+> **¹⁰** And so *was* also James, and John, the sons of Zebedee, which were partners with Simon. And Jesus said unto Simon, Fear not; from henceforth thou shalt catch men.  
+> **¹¹** And when they had brought their ships to land, they forsook all, and followed him.  
 
 This passage of story fell, in order of time, before the two miracles we had in the close of the foregoing chapter, and is the same with that which was more briefly related by Matthew and Mark, of Christ's calling Peter and Andrew to be *fishers of men,* Mt 4:18, Mk 1:16. They had not related this miraculous draught of fishes at that time, having only in view the calling of his disciples; but Luke gives us that story as one of the many signs which Jesus did in the presence of his disciples, which *had not been written* in the foregoing books, Joh 20:30,31. Observe here,
 
@@ -54,11 +54,11 @@ Now by this vast draught of fishes, (1.) Christ intended to show his *dominion* 
 
 ## A Leper Cleansed.
 
-> <sup>12</sup> And it came to pass, when he was in a certain city, behold a man full of leprosy: who seeing Jesus fell on *his* face, and besought him, saying, Lord, if thou wilt, thou canst make me clean.  
-> <sup>13</sup> And he put forth *his* hand, and touched him, saying, I will: be thou clean. And immediately the leprosy departed from him.  
-> <sup>14</sup> And he charged him to tell no man: but go, and show thyself to the priest, and offer for thy cleansing, according as Moses commanded, for a testimony unto them.  
-> <sup>15</sup> But so much the more went there a fame abroad of him: and great multitudes came together to hear, and to be healed by him of their infirmities.  
-> <sup>16</sup> And he withdrew himself into the wilderness, and prayed.  
+> **¹²** And it came to pass, when he was in a certain city, behold a man full of leprosy: who seeing Jesus fell on *his* face, and besought him, saying, Lord, if thou wilt, thou canst make me clean.  
+> **¹³** And he put forth *his* hand, and touched him, saying, I will: be thou clean. And immediately the leprosy departed from him.  
+> **¹⁴** And he charged him to tell no man: but go, and show thyself to the priest, and offer for thy cleansing, according as Moses commanded, for a testimony unto them.  
+> **¹⁵** But so much the more went there a fame abroad of him: and great multitudes came together to hear, and to be healed by him of their infirmities.  
+> **¹⁶** And he withdrew himself into the wilderness, and prayed.  
 
 Here is, I. The cleansing of a leper, Lu 5:12-14. This narrative we had both in Matthew and Mark. It is here said to have been *in a certain city* (Lu 5:12); it was in Capernaum, but the evangelist would not name it, perhaps because it was a reflection upon the government of the city that a leper was suffered to be *in it.* This man is said to be *full of leprosy;* he had that distemper in a high degree, which the more fitly represents our natural pollution by sin; we are *full of that leprosy, from the crown of the head to the sole of the foot there is no soundness in us.* Now let us learn here,
 
@@ -76,16 +76,16 @@ Here is, I. The cleansing of a leper, Lu 5:12-14. This narrative we had both in 
 
 ## Cure of a Paralytic.
 
-> <sup>17</sup> And it came to pass on a certain day, as he was teaching, that there were Pharisees and doctors of the law sitting by, which were come out of every town of Galilee, and Judæa, and Jerusalem: and the power of the Lord was *present* to heal them.  
-> <sup>18</sup> And, behold, men brought in a bed a man which was taken with a palsy: and they sought *means* to bring him in, and to lay *him* before him.  
-> <sup>19</sup> And when they could not find by what *way* they might bring him in because of the multitude, they went upon the housetop, and let him down through the tiling with *his* couch into the midst before Jesus.  
-> <sup>20</sup> And when he saw their faith, he said unto him, Man, thy sins are forgiven thee.  
-> <sup>21</sup> And the scribes and the Pharisees began to reason, saying, Who is this which speaketh blasphemies? Who can forgive sins, but God alone?  
-> <sup>22</sup> But when Jesus perceived their thoughts, he answering said unto them, What reason ye in your hearts?  
-> <sup>23</sup> Whether is easier, to say, Thy sins be forgiven thee; or to say, Rise up and walk?  
-> <sup>24</sup> But that ye may know that the Son of man hath power upon earth to forgive sins, (he said unto the sick of the palsy,) I say unto thee, Arise, and take up thy couch, and go into thine house.  
-> <sup>25</sup> And immediately he rose up before them, and took up that whereon he lay, and departed to his own house, glorifying God.  
-> <sup>26</sup> And they were all amazed, and they glorified God, and were filled with fear, saying, We have seen strange things to day.  
+> **¹⁷** And it came to pass on a certain day, as he was teaching, that there were Pharisees and doctors of the law sitting by, which were come out of every town of Galilee, and Judæa, and Jerusalem: and the power of the Lord was *present* to heal them.  
+> **¹⁸** And, behold, men brought in a bed a man which was taken with a palsy: and they sought *means* to bring him in, and to lay *him* before him.  
+> **¹⁹** And when they could not find by what *way* they might bring him in because of the multitude, they went upon the housetop, and let him down through the tiling with *his* couch into the midst before Jesus.  
+> **²⁰** And when he saw their faith, he said unto him, Man, thy sins are forgiven thee.  
+> **²¹** And the scribes and the Pharisees began to reason, saying, Who is this which speaketh blasphemies? Who can forgive sins, but God alone?  
+> **²²** But when Jesus perceived their thoughts, he answering said unto them, What reason ye in your hearts?  
+> **²³** Whether is easier, to say, Thy sins be forgiven thee; or to say, Rise up and walk?  
+> **²⁴** But that ye may know that the Son of man hath power upon earth to forgive sins, (he said unto the sick of the palsy,) I say unto thee, Arise, and take up thy couch, and go into thine house.  
+> **²⁵** And immediately he rose up before them, and took up that whereon he lay, and departed to his own house, glorifying God.  
+> **²⁶** And they were all amazed, and they glorified God, and were filled with fear, saying, We have seen strange things to day.  
 
 Here is, I. A general account of Christ's preaching and miracles, Lu 5:17. 1. He was *teaching on a certain day,* not on the sabbath day, then he would have said so, but on a *week-day; six days shalt thou labour,* not only for *the world,* but for *the soul,* and the welfare of that. Preaching and hearing the word of *God* are *good works,* if they be *done well,* any day in the *week,* as well as on sabbath days. It was not in the *synagogue,* but in a *private house;* for even there where we ordinarily converse with our friends it is not improper to give and receive good instruction. 2. There he *taught,* he *healed* (as before, Lu 5:15): *And the power of the Lord was to heal them*—*en eis to iasthai autous*. It was *mighty* to heal them; it was *exerted* and *put forth* to heal them, to heal those whom he *taught* (we may understand it so), to heal their souls, to cure them of their spiritual diseases, and to give them a new life, a new nature. Note, Those who receive the word of Christ in faith will find a divine power going along with that word, to *heal them;* for Christ came with his comforts to *heal the broken-hearted,* Lu 4:18. The power of the Lord is *present* with the word, *present to those* that pray for it and submit to it, *present to heal them.* Or it may be meant (and so it is generally taken) of the healing of those who were *diseased in body,* who came to him for cures. Whenever there was occasion, Christ had not *to seek* for his power, it was *present to heal.* 3. There were some grandees present in this assembly, and, as it should seem, more than usual: *There were Pharisees, and doctors of the law, sitting by;* not sitting *at his feet,* to learn of him; then I should have been willing to take the following clause as referring to those who are spoken of immediately before (the *power of the Lord was present to heal them*); and why might not the word of Christ reach their hearts? But, by what follows (Lu 5:21), it appears that they were *not healed,* but cavilled at Christ, which compels us to refer this to others, not to them; for they *sat by* as *persons unconcerned,* as if the word of Christ were nothing to them. They sat by as spectators, censors, and spies, to pick up something on which to ground a reproach or accusation. How many are there in the midst of our assemblies, where the gospel is preached, that do not *sit under* the word, but *sit by!* It is to them as a *tale* that is *told them,* not as a *message* that is *sent them;* they are willing that we should preach *before them,* not that we should preach *to them.* These Pharisees and scribes (or doctors of the law) *came out of every town of Galilee, and Judea, and Jerusalem;* they came from all parts of the nation. Probably, they appointed to meet at this time and place, to see what remarks they could make upon Christ and what he said and did. They were in a confederacy, as those that said, *Come, and let us devise devices against Jeremiah,* and agree to *smite him with the tongue,* Jer 18:18. *Report, and we will report it,* Jer 20:10. Observe, Christ went on with his work of *preaching* and *healing,* though he saw these Pharisees, and doctors of the Jewish church, *sitting by,* who, he knew, *despised* him, and watched to *ensnare him.*
 
@@ -97,19 +97,19 @@ II\. A particular account of the cure of the man *sick of the palsy,* which was 
 
 ## The Call of Matthew; Watchfulness Inculcated.
 
-> <sup>27</sup> And after these things he went forth, and saw a publican, named Levi, sitting at the receipt of custom: and he said unto him, Follow me.  
-> <sup>28</sup> And he left all, rose up, and followed him.  
-> <sup>29</sup> And Levi made him a great feast in his own house: and there was a great company of publicans and of others that sat down with them.  
-> <sup>30</sup> But their scribes and Pharisees murmured against his disciples, saying, Why do ye eat and drink with publicans and sinners?  
-> <sup>31</sup> And Jesus answering said unto them, They that are whole need not a physician; but they that are sick.  
-> <sup>32</sup> I came not to call the righteous, but sinners to repentance.  
-> <sup>33</sup> And they said unto him, Why do the disciples of John fast often, and make prayers, and likewise *the disciples* of the Pharisees; but thine eat and drink?  
-> <sup>34</sup> And he said unto them, Can ye make the children of the bridechamber fast, while the bridegroom is with them?  
-> <sup>35</sup> But the days will come, when the bridegroom shall be taken away from them, and then shall they fast in those days.  
-> <sup>36</sup> And he spake also a parable unto them; No man putteth a piece of a new garment upon an old; if otherwise, then both the new maketh a rent, and the piece that was *taken* out of the new agreeth not with the old.  
-> <sup>37</sup> And no man putteth new wine into old bottles; else the new wine will burst the bottles, and be spilled, and the bottles shall perish.  
-> <sup>38</sup> But new wine must be put into new bottles; and both are preserved.  
-> <sup>39</sup> No man also having drunk old *wine* straightway desireth new: for he saith, The old is better.  
+> **²⁷** And after these things he went forth, and saw a publican, named Levi, sitting at the receipt of custom: and he said unto him, Follow me.  
+> **²⁸** And he left all, rose up, and followed him.  
+> **²⁹** And Levi made him a great feast in his own house: and there was a great company of publicans and of others that sat down with them.  
+> **³⁰** But their scribes and Pharisees murmured against his disciples, saying, Why do ye eat and drink with publicans and sinners?  
+> **³¹** And Jesus answering said unto them, They that are whole need not a physician; but they that are sick.  
+> **³²** I came not to call the righteous, but sinners to repentance.  
+> **³³** And they said unto him, Why do the disciples of John fast often, and make prayers, and likewise *the disciples* of the Pharisees; but thine eat and drink?  
+> **³⁴** And he said unto them, Can ye make the children of the bridechamber fast, while the bridegroom is with them?  
+> **³⁵** But the days will come, when the bridegroom shall be taken away from them, and then shall they fast in those days.  
+> **³⁶** And he spake also a parable unto them; No man putteth a piece of a new garment upon an old; if otherwise, then both the new maketh a rent, and the piece that was *taken* out of the new agreeth not with the old.  
+> **³⁷** And no man putteth new wine into old bottles; else the new wine will burst the bottles, and be spilled, and the bottles shall perish.  
+> **³⁸** But new wine must be put into new bottles; and both are preserved.  
+> **³⁹** No man also having drunk old *wine* straightway desireth new: for he saith, The old is better.  
 
 All this, except the last verse, we had before in Matthew and Mark; it is not the story of any *miracle in nature* wrought by our Lord Jesus, but it is an account of some of the *wonders of his grace,* which, to those who understand things aright, are no less cogent proofs of Christ's being sent of God than the other.
 

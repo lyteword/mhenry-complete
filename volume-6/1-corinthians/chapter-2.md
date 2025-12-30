@@ -8,11 +8,11 @@ The apostle proceeds with his argument in this chapter, and, I. Reminds the Cori
 
 ## The Apostle's Ministry. (a. d. 57.)
 
-> <sup>1</sup> And I, brethren, when I came to you, came not with excellency of speech or of wisdom, declaring unto you the testimony of God.  
-> <sup>2</sup> For I determined not to know any thing among you, save Jesus Christ, and him crucified.  
-> <sup>3</sup> And I was with you in weakness, and in fear, and in much trembling.  
-> <sup>4</sup> And my speech and my preaching *was* not with enticing words of man's wisdom, but in demonstration of the Spirit and of power:  
-> <sup>5</sup> That your faith should not stand in the wisdom of men, but in the power of God.  
+> **¹** And I, brethren, when I came to you, came not with excellency of speech or of wisdom, declaring unto you the testimony of God.  
+> **²** For I determined not to know any thing among you, save Jesus Christ, and him crucified.  
+> **³** And I was with you in weakness, and in fear, and in much trembling.  
+> **⁴** And my speech and my preaching *was* not with enticing words of man's wisdom, but in demonstration of the Spirit and of power:  
+> **⁵** That your faith should not stand in the wisdom of men, but in the power of God.  
 
 In this passage the apostle pursues his design, and reminds the Corinthians how he acted when he first preached the gospel among them.
 
@@ -24,17 +24,17 @@ III\. Here is the end mentioned for which he preached Christ crucified in this m
 
 ## Discoveries of the Gospel; Spiritual Things Spiritually Discerned. (a. d. 57.)
 
-> <sup>6</sup> Howbeit we speak wisdom among them that are perfect: yet not the wisdom of this world, nor of the princes of this world, that come to nought:  
-> <sup>7</sup> But we speak the wisdom of God in a mystery, *even* the hidden *wisdom,* which God ordained before the world unto our glory:  
-> <sup>8</sup> Which none of the princes of this world knew: for had they known *it,* they would not have crucified the Lord of glory.  
-> <sup>9</sup> But as it is written, Eye hath not seen, nor ear heard, neither have entered into the heart of man, the things which God hath prepared for them that love him.  
-> <sup>10</sup> But God hath revealed *them* unto us by his Spirit: for the Spirit searcheth all things, yea, the deep things of God.  
-> <sup>11</sup> For what man knoweth the things of a man, save the spirit of man which is in him? even so the things of God knoweth no man, but the Spirit of God.  
-> <sup>12</sup> Now we have received, not the spirit of the world, but the spirit which is of God; that we might know the things that are freely given to us of God.  
-> <sup>13</sup> Which things also we speak, not in the words which man's wisdom teacheth, but which the Holy Ghost teacheth; comparing spiritual things with spiritual.  
-> <sup>14</sup> But the natural man receiveth not the things of the Spirit of God: for they are foolishness unto him: neither can he know *them,* because they are spiritually discerned.  
-> <sup>15</sup> But he that is spiritual judgeth all things, yet he himself is judged of no man.  
-> <sup>16</sup> For who hath known the mind of the Lord, that he may instruct him? But we have the mind of Christ.  
+> **⁶** Howbeit we speak wisdom among them that are perfect: yet not the wisdom of this world, nor of the princes of this world, that come to nought:  
+> **⁷** But we speak the wisdom of God in a mystery, *even* the hidden *wisdom,* which God ordained before the world unto our glory:  
+> **⁸** Which none of the princes of this world knew: for had they known *it,* they would not have crucified the Lord of glory.  
+> **⁹** But as it is written, Eye hath not seen, nor ear heard, neither have entered into the heart of man, the things which God hath prepared for them that love him.  
+> **¹⁰** But God hath revealed *them* unto us by his Spirit: for the Spirit searcheth all things, yea, the deep things of God.  
+> **¹¹** For what man knoweth the things of a man, save the spirit of man which is in him? even so the things of God knoweth no man, but the Spirit of God.  
+> **¹²** Now we have received, not the spirit of the world, but the spirit which is of God; that we might know the things that are freely given to us of God.  
+> **¹³** Which things also we speak, not in the words which man's wisdom teacheth, but which the Holy Ghost teacheth; comparing spiritual things with spiritual.  
+> **¹⁴** But the natural man receiveth not the things of the Spirit of God: for they are foolishness unto him: neither can he know *them,* because they are spiritually discerned.  
+> **¹⁵** But he that is spiritual judgeth all things, yet he himself is judged of no man.  
+> **¹⁶** For who hath known the mind of the Lord, that he may instruct him? But we have the mind of Christ.  
 
 In this part of the chapter the apostle shows them that though he had not come to them with the excellency of human wisdom, with any of the boasted knowledge and literature of the Jews or Greeks, yet he had communicated to them a treasure of the truest and the highest wisdom: *We speak wisdom among those who are perfect* (1Co 2:6), among those who are well instructed in Christianity, and come to some maturity in the things of God. Those that receive the doctrine as divine, and, having been illuminated by the Holy Spirit, have looked well into it, discover true wisdom in it. They not only understand the plain history of Christ, and him crucified, but discern the deep and admirable designs of the divine wisdom therein. Though what we preach is foolishness to the world, it is wisdom to them. They are made wise by it, and can discern wisdom in it. Note, Those who are wise themselves are the only proper judges of what is wisdom; *not* indeed *the wisdom of this world, nor of the princes of this world,* but *the wisdom of God in a mystery* (1Co 2:6,7); not worldly wisdom, but divine; not such as the men of this world could have discovered, nor such as worldly men, under the direction of pride, and passion, and appetite, and worldly interest, and destitute of the Spirit of God, can receive. Note, How different is the judgment of God from that of the world! *He seeth not as man seeth.* The wisdom he teaches is of a quite different kind from what passes under that notion in the world. It is not the wisdom of politicians, nor philosophers, nor rabbis (see 1Co 2:6), not such as they teach nor such as they relish; *but the wisdom of God in a mystery, the hidden wisdom of God*—what he had a long time kept to himself, and concealed from the world, and the depth of which, now it is revealed, none but himself can fathom. *It is the mystery which hath been hid from ages and generations, though now made manifest to the saints* (Col 1:26), hid in a manner entirely from the heathen world, and made mysterious to the Jews, by being wrapped up in dark types and distant prophecies, but revealed and made known to us by the Spirit of God. Note, See the privilege of those who enjoy the gospel revelation: to them types are unveiled, mysteries made plain, prophecies interpreted, and the secret counsels of God published and laid open. The wisdom of God in a mystery is now made manifest to the saints. Now, concerning this wisdom, observe,
 

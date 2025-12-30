@@ -8,11 +8,11 @@ Paul here foretels, I. A dreadful apostasy, 1Ti 4:1-3. II. He treats of Christia
 
 ## Apostasy Foretold; Christian Liberty. (a. d. 64.)
 
-> <sup>1</sup> Now the Spirit speaketh expressly, that in the latter times some shall depart from the faith, giving heed to seducing spirits, and doctrines of devils;  
-> <sup>2</sup> Speaking lies in hypocrisy; having their conscience seared with a hot iron;  
-> <sup>3</sup> Forbidding to marry, *and commanding* to abstain from meats, which God hath created to be received with thanksgiving of them which believe and know the truth.  
-> <sup>4</sup> For every creature of God *is* good, and nothing to be refused, if it be received with thanksgiving:  
-> <sup>5</sup> For it is sanctified by the word of God and prayer.  
+> **¹** Now the Spirit speaketh expressly, that in the latter times some shall depart from the faith, giving heed to seducing spirits, and doctrines of devils;  
+> **²** Speaking lies in hypocrisy; having their conscience seared with a hot iron;  
+> **³** Forbidding to marry, *and commanding* to abstain from meats, which God hath created to be received with thanksgiving of them which believe and know the truth.  
+> **⁴** For every creature of God *is* good, and nothing to be refused, if it be received with thanksgiving:  
+> **⁵** For it is sanctified by the word of God and prayer.  
 
 We have here a prophecy of the apostasy of the latter times, which he had spoken of as a thing expected and taken for granted among Christians, 2Th 2:1-17.
 
@@ -28,17 +28,17 @@ II\. Having mentioned their hypocritical fastings, the apostle takes occasion to
 
 ## Exhortation to Godliness; Exhortation to Ministerial Duties. (a. d. 64.)
 
-> <sup>6</sup> If thou put the brethren in remembrance of these things, thou shalt be a good minister of Jesus Christ, nourished up in the words of faith and of good doctrine, whereunto thou hast attained.  
-> <sup>7</sup> But refuse profane and old wives' fables, and exercise thyself *rather* unto godliness.  
-> <sup>8</sup> For bodily exercise profiteth little: but godliness is profitable unto all things, having promise of the life that now is, and of that which is to come.  
-> <sup>9</sup> This *is* a faithful saying and worthy of all acceptation.  
-> <sup>10</sup> For therefore we both labour and suffer reproach, because we trust in the living God, who is the Saviour of all men, specially of those that believe.  
-> <sup>11</sup> These things command and teach.  
-> <sup>12</sup> Let no man despise thy youth; but be thou an example of the believers, in word, in conversation, in charity, in spirit, in faith, in purity.  
-> <sup>13</sup> Till I come, give attendance to reading, to exhortation, to doctrine.  
-> <sup>14</sup> Neglect not the gift that is in thee, which was given thee by prophecy, with the laying on of the hands of the presbytery.  
-> <sup>15</sup> Meditate upon these things; give thyself wholly to them; that thy profiting may appear to all.  
-> <sup>16</sup> Take heed unto thyself, and unto the doctrine; continue in them: for in doing this thou shalt both save thyself, and them that hear thee.  
+> **⁶** If thou put the brethren in remembrance of these things, thou shalt be a good minister of Jesus Christ, nourished up in the words of faith and of good doctrine, whereunto thou hast attained.  
+> **⁷** But refuse profane and old wives' fables, and exercise thyself *rather* unto godliness.  
+> **⁸** For bodily exercise profiteth little: but godliness is profitable unto all things, having promise of the life that now is, and of that which is to come.  
+> **⁹** This *is* a faithful saying and worthy of all acceptation.  
+> **¹⁰** For therefore we both labour and suffer reproach, because we trust in the living God, who is the Saviour of all men, specially of those that believe.  
+> **¹¹** These things command and teach.  
+> **¹²** Let no man despise thy youth; but be thou an example of the believers, in word, in conversation, in charity, in spirit, in faith, in purity.  
+> **¹³** Till I come, give attendance to reading, to exhortation, to doctrine.  
+> **¹⁴** Neglect not the gift that is in thee, which was given thee by prophecy, with the laying on of the hands of the presbytery.  
+> **¹⁵** Meditate upon these things; give thyself wholly to them; that thy profiting may appear to all.  
+> **¹⁶** Take heed unto thyself, and unto the doctrine; continue in them: for in doing this thou shalt both save thyself, and them that hear thee.  
 
 The apostle would have Timothy to instil into the minds of Christians such sentiments as might prevent their being seduced by the judaizing teachers. Observe, Those are good ministers of Jesus Christ who are diligent in their work; not that study to advance new notions, but that *put the brethren in remembrance of those things which they have received and heard. Wherefore I will not be negligent to put you always in remembrance of these things, though you knew them,* 2Pe 1:12. And elsewhere, *I stir up your pure minds by way of remembrance,* 2Pe 3:1. And, says the apostle Jude, *I will therefore put you in remembrance,* Jude 1:5. You see that the apostles and apostolical men reckoned it a main part of their work to put their hearers in remembrance; for we are apt to forget, and slow to learn and remember, the things of God.—*Nourished up in the words of faith and good doctrine, whereunto thou hast attained.* Observe, 1. Even ministers themselves have need to be growing and increasing in the knowledge of Christ and his doctrine: they must be nourished up in the words of faith. 2. The best way for ministers to grow in knowledge and faith is to put the brethren in remembrance; while we teach others, we teach ourselves. 3. Those whom ministers teach are brethren, and are to be treated like brethren; for ministers are not lords of God's heritage.
 

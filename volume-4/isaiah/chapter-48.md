@@ -8,14 +8,14 @@ God, having in the foregoing chapter reckoned with the Babylonians, and shown th
 
 ## God's Expostulation with His People. (b. c. 708.)
 
-> <sup>1</sup> Hear ye this, O house of Jacob, which are called by the name of Israel, and are come forth out of the waters of Judah, which swear by the name of the LORD, and make mention of the God of Israel, *but* not in truth, nor in righteousness.  
-> <sup>2</sup> For they call themselves of the holy city, and stay themselves upon the God of Israel; The LORD of hosts *is* his name.  
-> <sup>3</sup> I have declared the former things from the beginning; and they went forth out of my mouth, and I showed them; I did *them* suddenly, and they came to pass.  
-> <sup>4</sup> Because I knew that thou *art* obstinate, and thy neck *is* an iron sinew, and thy brow brass;  
-> <sup>5</sup> I have even from the beginning declared *it* to thee; before it came to pass I showed *it* thee: lest thou shouldest say, Mine idol hath done them, and my graven image, and my molten image, hath commanded them.  
-> <sup>6</sup> Thou hast heard, see all this; and will not ye declare *it?* I have showed thee new things from this time, even hidden things, and thou didst not know them.  
-> <sup>7</sup> They are created now, and not from the beginning; even before the day when thou heardest them not; lest thou shouldest say, Behold, I knew them.  
-> <sup>8</sup> Yea, thou heardest not; yea, thou knewest not; yea, from that time *that* thine ear was not opened: for I knew that thou wouldest deal very treacherously, and wast called a transgressor from the womb.  
+> **¹** Hear ye this, O house of Jacob, which are called by the name of Israel, and are come forth out of the waters of Judah, which swear by the name of the LORD, and make mention of the God of Israel, *but* not in truth, nor in righteousness.  
+> **²** For they call themselves of the holy city, and stay themselves upon the God of Israel; The LORD of hosts *is* his name.  
+> **³** I have declared the former things from the beginning; and they went forth out of my mouth, and I showed them; I did *them* suddenly, and they came to pass.  
+> **⁴** Because I knew that thou *art* obstinate, and thy neck *is* an iron sinew, and thy brow brass;  
+> **⁵** I have even from the beginning declared *it* to thee; before it came to pass I showed *it* thee: lest thou shouldest say, Mine idol hath done them, and my graven image, and my molten image, hath commanded them.  
+> **⁶** Thou hast heard, see all this; and will not ye declare *it?* I have showed thee new things from this time, even hidden things, and thou didst not know them.  
+> **⁷** They are created now, and not from the beginning; even before the day when thou heardest them not; lest thou shouldest say, Behold, I knew them.  
+> **⁸** Yea, thou heardest not; yea, thou knewest not; yea, from that time *that* thine ear was not opened: for I knew that thou wouldest deal very treacherously, and wast called a transgressor from the womb.  
 
 We may observe here,
 
@@ -35,13 +35,13 @@ III\. The reasons why God would take this method with them.
 
 ## Encouragement to God's People. (b. c. 708.)
 
-> <sup>9</sup> For my name's sake will I defer mine anger, and for my praise will I refrain for thee, that I cut thee not off.  
-> <sup>10</sup> Behold, I have refined thee, but not with silver; I have chosen thee in the furnace of affliction.  
-> <sup>11</sup> For mine own sake, *even* for mine own sake, will I do *it:* for how should *my name* be polluted? and I will not give my glory unto another.  
-> <sup>12</sup> Hearken unto me, O Jacob and Israel, my called; I *am* he; I *am* the first, I also *am* the last.  
-> <sup>13</sup> Mine hand also hath laid the foundation of the earth, and my right hand hath spanned the heavens: *when* I call unto them, they stand up together.  
-> <sup>14</sup> All ye, assemble yourselves, and hear; which among them hath declared these *things?* The LORD hath loved him: he will do his pleasure on Babylon, and his arm *shall be on* the Chaldeans.  
-> <sup>15</sup> I, *even* I, have spoken; yea, I have called him: I have brought him, and he shall make his way prosperous.  
+> **⁹** For my name's sake will I defer mine anger, and for my praise will I refrain for thee, that I cut thee not off.  
+> **¹⁰** Behold, I have refined thee, but not with silver; I have chosen thee in the furnace of affliction.  
+> **¹¹** For mine own sake, *even* for mine own sake, will I do *it:* for how should *my name* be polluted? and I will not give my glory unto another.  
+> **¹²** Hearken unto me, O Jacob and Israel, my called; I *am* he; I *am* the first, I also *am* the last.  
+> **¹³** Mine hand also hath laid the foundation of the earth, and my right hand hath spanned the heavens: *when* I call unto them, they stand up together.  
+> **¹⁴** All ye, assemble yourselves, and hear; which among them hath declared these *things?* The LORD hath loved him: he will do his pleasure on Babylon, and his arm *shall be on* the Chaldeans.  
+> **¹⁵** I, *even* I, have spoken; yea, I have called him: I have brought him, and he shall make his way prosperous.  
 
 The deliverance of God's people out of their captivity in Babylon was a thing upon many accounts so improbable that there was need of line upon line for the encouragement of the faith and hope of God's people concerning it. Two things were discouraging to them—their own unworthiness that God should do it for them and the many difficulties in the thing itself; now, in these verses, both these discouragements are removed, for here is,
 
@@ -51,13 +51,13 @@ II\. Here is a proof that God could do it for them, though they were unable to h
 
 ## Encouragement to God's People. (b. c. 708.)
 
-> <sup>16</sup> Come ye near unto me, hear ye this; I have not spoken in secret from the beginning; from the time that it was, there *am* I: and now the Lord GOD, and his Spirit, hath sent me.  
-> <sup>17</sup> Thus saith the LORD, thy Redeemer, the Holy One of Israel; I *am* the LORD thy God which teacheth thee to profit, which leadeth thee by the way *that* thou shouldest go.  
-> <sup>18</sup> O that thou hadst hearkened to my commandments! then had thy peace been as a river, and thy righteousness as the waves of the sea:  
-> <sup>19</sup> Thy seed also had been as the sand, and the offspring of thy bowels like the gravel thereof; his name should not have been cut off nor destroyed from before me.  
-> <sup>20</sup> Go ye forth of Babylon, flee ye from the Chaldeans, with a voice of singing declare ye, tell this, utter it *even* to the end of the earth; say ye, The LORD hath redeemed his servant Jacob.  
-> <sup>21</sup> And they thirsted not *when* he led them through the deserts: he caused the waters to flow out of the rock for them: he clave the rock also, and the waters gushed out.  
-> <sup>22</sup> *There is* no peace, saith the LORD, unto the wicked.  
+> **¹⁶** Come ye near unto me, hear ye this; I have not spoken in secret from the beginning; from the time that it was, there *am* I: and now the Lord GOD, and his Spirit, hath sent me.  
+> **¹⁷** Thus saith the LORD, thy Redeemer, the Holy One of Israel; I *am* the LORD thy God which teacheth thee to profit, which leadeth thee by the way *that* thou shouldest go.  
+> **¹⁸** O that thou hadst hearkened to my commandments! then had thy peace been as a river, and thy righteousness as the waves of the sea:  
+> **¹⁹** Thy seed also had been as the sand, and the offspring of thy bowels like the gravel thereof; his name should not have been cut off nor destroyed from before me.  
+> **²⁰** Go ye forth of Babylon, flee ye from the Chaldeans, with a voice of singing declare ye, tell this, utter it *even* to the end of the earth; say ye, The LORD hath redeemed his servant Jacob.  
+> **²¹** And they thirsted not *when* he led them through the deserts: he caused the waters to flow out of the rock for them: he clave the rock also, and the waters gushed out.  
+> **²²** *There is* no peace, saith the LORD, unto the wicked.  
 
 Here, as before, Jacob and Israel are summoned to hearken to the prophet speaking in God's name, or rather to God speaking in and by the prophet, and that as a type of the great prophet by whom God has in these last days spoken unto us, and that is sufficient: *Come near* therefore, *and hear this.* Note, Those that would hear and understand what God says must come near, and approach to him; let them come as near as they can. Let those that have hearkened to the tempter now come near, and hear this, that they may be confirmed in their resolutions to serve God. Those that draw nigh to God may depend upon this, that his secret shall be with them. Here,
 

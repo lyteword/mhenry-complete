@@ -8,13 +8,13 @@ Two passages of story are recorded in this chapter, I. The watering of the host 
 
 ## The Israelites Murmur for Water. (b. c. 1491.)
 
-> <sup>1</sup> And all the congregation of the children of Israel journeyed from the wilderness of Sin, after their journeys, according to the commandment of the LORD, and pitched in Rephidim: and *there was* no water for the people to drink.  
-> <sup>2</sup> Wherefore the people did chide with Moses, and said, Give us water that we may drink. And Moses said unto them, Why chide ye with me? wherefore do ye tempt the LORD?  
-> <sup>3</sup> And the people thirsted there for water; and the people murmured against Moses, and said, Wherefore *is* this *that* thou hast brought us up out of Egypt, to kill us and our children and our cattle with thirst?  
-> <sup>4</sup> And Moses cried unto the LORD, saying, What shall I do unto this people? they be almost ready to stone me.  
-> <sup>5</sup> And the LORD said unto Moses, Go on before the people, and take with thee of the elders of Israel; and thy rod, wherewith thou smotest the river, take in thine hand, and go.  
-> <sup>6</sup> Behold, I will stand before thee there upon the rock in Horeb; and thou shalt smite the rock, and there shall come water out of it, that the people may drink. And Moses did so in the sight of the elders of Israel.  
-> <sup>7</sup> And he called the name of the place Massah, and Meribah, because of the chiding of the children of Israel, and because they tempted the LORD, saying, Is the LORD among us, or not?  
+> **¹** And all the congregation of the children of Israel journeyed from the wilderness of Sin, after their journeys, according to the commandment of the LORD, and pitched in Rephidim: and *there was* no water for the people to drink.  
+> **²** Wherefore the people did chide with Moses, and said, Give us water that we may drink. And Moses said unto them, Why chide ye with me? wherefore do ye tempt the LORD?  
+> **³** And the people thirsted there for water; and the people murmured against Moses, and said, Wherefore *is* this *that* thou hast brought us up out of Egypt, to kill us and our children and our cattle with thirst?  
+> **⁴** And Moses cried unto the LORD, saying, What shall I do unto this people? they be almost ready to stone me.  
+> **⁵** And the LORD said unto Moses, Go on before the people, and take with thee of the elders of Israel; and thy rod, wherewith thou smotest the river, take in thine hand, and go.  
+> **⁶** Behold, I will stand before thee there upon the rock in Horeb; and thou shalt smite the rock, and there shall come water out of it, that the people may drink. And Moses did so in the sight of the elders of Israel.  
+> **⁷** And he called the name of the place Massah, and Meribah, because of the chiding of the children of Israel, and because they tempted the LORD, saying, Is the LORD among us, or not?  
 
 Here is, I. The strait that the children of Israel were in for want of water; once before the were in the like distress, and now, a second time, Ex 17:1. They journeyed *according to the commandment of the Lord,* led by the pillar of cloud and fire, and yet they came to a place where there was no water for them to drink. Note, We may be in the way of our duty, and yet may meet with troubles, which Providence brings us into for the trial of our faith, and that God may be glorified in our relief.
 
@@ -28,15 +28,15 @@ V\. A new name was, upon this occasion, given to the place, preserving the remem
 
 ## The Conflict with Amalek; The Defeat of Amalek. (b. c. 1491.)
 
-> <sup>8</sup> Then came Amalek, and fought with Israel in Rephidim.  
-> <sup>9</sup> And Moses said unto Joshua, Choose us out men, and go out, fight with Amalek: to morrow I will stand on the top of the hill with the rod of God in mine hand.  
-> <sup>10</sup> So Joshua did as Moses had said to him, and fought with Amalek: and Moses, Aaron, and Hur went up to the top of the hill.  
-> <sup>11</sup> And it came to pass, when Moses held up his hand, that Israel prevailed: and when he let down his hand, Amalek prevailed.  
-> <sup>12</sup> But Moses' hands *were* heavy; and they took a stone, and put *it* under him, and he sat thereon; and Aaron and Hur stayed up his hands, the one on the one side, and the other on the other side; and his hands were steady until the going down of the sun.  
-> <sup>13</sup> And Joshua discomfited Amalek and his people with the edge of the sword.  
-> <sup>14</sup> And the LORD said unto Moses, Write this *for* a memorial in a book, and rehearse *it* in the ears of Joshua: for I will utterly put out the remembrance of Amalek from under heaven.  
-> <sup>15</sup> And Moses built an altar, and called the name of it Jehovahnissi:  
-> <sup>16</sup> For he said, Because the LORD hath sworn *that* the LORD *will have* war with Amalek from generation to generation.  
+> **⁸** Then came Amalek, and fought with Israel in Rephidim.  
+> **⁹** And Moses said unto Joshua, Choose us out men, and go out, fight with Amalek: to morrow I will stand on the top of the hill with the rod of God in mine hand.  
+> **¹⁰** So Joshua did as Moses had said to him, and fought with Amalek: and Moses, Aaron, and Hur went up to the top of the hill.  
+> **¹¹** And it came to pass, when Moses held up his hand, that Israel prevailed: and when he let down his hand, Amalek prevailed.  
+> **¹²** But Moses' hands *were* heavy; and they took a stone, and put *it* under him, and he sat thereon; and Aaron and Hur stayed up his hands, the one on the one side, and the other on the other side; and his hands were steady until the going down of the sun.  
+> **¹³** And Joshua discomfited Amalek and his people with the edge of the sword.  
+> **¹⁴** And the LORD said unto Moses, Write this *for* a memorial in a book, and rehearse *it* in the ears of Joshua: for I will utterly put out the remembrance of Amalek from under heaven.  
+> **¹⁵** And Moses built an altar, and called the name of it Jehovahnissi:  
+> **¹⁶** For he said, Because the LORD hath sworn *that* the LORD *will have* war with Amalek from generation to generation.  
 
 We have here the story of the war with Amalek, which, we may suppose, was the first that was recorded in the *book of the wars of the Lord,* Nu 21:14. Amalek was the first of the nations that Israel fought with, Nu 24:20. Observe,
 

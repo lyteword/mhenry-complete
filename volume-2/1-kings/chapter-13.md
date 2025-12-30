@@ -8,16 +8,16 @@ In the close of the foregoing chapter we left Jeroboam attending his altar at Be
 
 ## A Prophet Sent to Jeroboam; the Withering of Jeroboam's Hand. (b. c. 974.)
 
-> <sup>1</sup> And, behold, there came a man of God out of Judah by the word of the LORD unto Beth-el: and Jeroboam stood by the altar to burn incense.  
-> <sup>2</sup> And he cried against the altar in the word of the LORD, and said, O altar, altar, thus saith the LORD; Behold, a child shall be born unto the house of David, Josiah by name; and upon thee shall he offer the priests of the high places that burn incense upon thee, and men's bones shall be burnt upon thee.  
-> <sup>3</sup> And he gave a sign the same day, saying, This *is* the sign which the LORD hath spoken; Behold, the altar shall be rent, and the ashes that *are* upon it shall be poured out.  
-> <sup>4</sup> And it came to pass, when king Jeroboam heard the saying of the man of God, which had cried against the altar in Beth-el, that he put forth his hand from the altar, saying, Lay hold on him. And his hand, which he put forth against him, dried up, so that he could not pull it in again to him.  
-> <sup>5</sup> The altar also was rent, and the ashes poured out from the altar, according to the sign which the man of God had given by the word of the LORD.  
-> <sup>6</sup> And the king answered and said unto the man of God, Intreat now the face of the LORD thy God, and pray for me, that my hand may be restored me again. And the man of God besought the LORD, and the king's hand was restored him again, and became as *it was* before.  
-> <sup>7</sup> And the king said unto the man of God, Come home with me, and refresh thyself, and I will give thee a reward.  
-> <sup>8</sup> And the man of God said unto the king, If thou wilt give me half thine house, I will not go in with thee, neither will I eat bread nor drink water in this place:  
-> <sup>9</sup> For so was it charged me by the word of the LORD, saying, Eat no bread, nor drink water, nor turn again by the same way that thou camest.  
-> <sup>10</sup> So he went another way, and returned not by the way that he came to Beth-el.  
+> **¹** And, behold, there came a man of God out of Judah by the word of the LORD unto Beth-el: and Jeroboam stood by the altar to burn incense.  
+> **²** And he cried against the altar in the word of the LORD, and said, O altar, altar, thus saith the LORD; Behold, a child shall be born unto the house of David, Josiah by name; and upon thee shall he offer the priests of the high places that burn incense upon thee, and men's bones shall be burnt upon thee.  
+> **³** And he gave a sign the same day, saying, This *is* the sign which the LORD hath spoken; Behold, the altar shall be rent, and the ashes that *are* upon it shall be poured out.  
+> **⁴** And it came to pass, when king Jeroboam heard the saying of the man of God, which had cried against the altar in Beth-el, that he put forth his hand from the altar, saying, Lay hold on him. And his hand, which he put forth against him, dried up, so that he could not pull it in again to him.  
+> **⁵** The altar also was rent, and the ashes poured out from the altar, according to the sign which the man of God had given by the word of the LORD.  
+> **⁶** And the king answered and said unto the man of God, Intreat now the face of the LORD thy God, and pray for me, that my hand may be restored me again. And the man of God besought the LORD, and the king's hand was restored him again, and became as *it was* before.  
+> **⁷** And the king said unto the man of God, Come home with me, and refresh thyself, and I will give thee a reward.  
+> **⁸** And the man of God said unto the king, If thou wilt give me half thine house, I will not go in with thee, neither will I eat bread nor drink water in this place:  
+> **⁹** For so was it charged me by the word of the LORD, saying, Eat no bread, nor drink water, nor turn again by the same way that thou camest.  
+> **¹⁰** So he went another way, and returned not by the way that he came to Beth-el.  
 
 Here is, I. A messenger sent to Jeroboam, to signify to him God's displeasure against his idolatry, 1Ki 13:1. The army of Judah that aimed to ruin him was countermanded, and might not draw a sword against him (2Ki 12:24); but a prophet of Judah is, instead thereof, sent to reclaim him from his evil way, and is sent in time, while he is but dedicating his altar, before his heart is hardened by the deceitfulness of his sin; for God delights not in the death of sinners, but would rather they would burn and live. How bold was the messenger that durst attack the king in his pride and interrupt the solemnity he was proud of! Those that go on God's errand must not fear the face of man; they know who will bear them out. How kind was he that sent him to warn Jeroboam of the wrath of God *revealed from heaven* against his *ungodliness* and *unrighteousness!*
 
@@ -33,18 +33,18 @@ VI\. The prophet's refusal of Jeroboam's kind invitation, in which observe, 1. T
 
 ## The Prophet Deceived. (b. c. 974.)
 
-> <sup>11</sup> Now there dwelt an old prophet in Beth-el; and his sons came and told him all the works that the man of God had done that day in Beth-el: the words which he had spoken unto the king, them they told also to their father.  
-> <sup>12</sup> And their father said unto them, What way went he? For his sons had seen what way the man of God went, which came from Judah.  
-> <sup>13</sup> And he said unto his sons, Saddle me the ass. So they saddled him the ass: and he rode thereon,  
-> <sup>14</sup> And went after the man of God, and found him sitting under an oak: and he said unto him, *Art* thou the man of God that camest from Judah? And he said, I *am.*  
-> <sup>15</sup> Then he said unto him, Come home with me, and eat bread.  
-> <sup>16</sup> And he said, I may not return with thee, nor go in with thee: neither will I eat bread nor drink water with thee in this place:  
-> <sup>17</sup> For it was said to me by the word of the LORD, Thou shalt eat no bread nor drink water there, nor turn again to go by the way that thou camest.  
-> <sup>18</sup> He said unto him, I *am* a prophet also as thou *art;* and an angel spake unto me by the word of the LORD, saying, Bring him back with thee into thine house, that he may eat bread and drink water. *But* he lied unto him.  
-> <sup>19</sup> So he went back with him, and did eat bread in his house, and drank water.  
-> <sup>20</sup> And it came to pass, as they sat at the table, that the word of the LORD came unto the prophet that brought him back:  
-> <sup>21</sup> And he cried unto the man of God that came from Judah, saying, Thus saith the LORD, Forasmuch as thou hast disobeyed the mouth of the LORD, and hast not kept the commandment which the LORD thy God commanded thee,  
-> <sup>22</sup> But camest back, and hast eaten bread and drunk water in the place, of the which *the LORD* did say to thee, Eat no bread, and drink no water; thy carcase shall not come unto the sepulchre of thy fathers.  
+> **¹¹** Now there dwelt an old prophet in Beth-el; and his sons came and told him all the works that the man of God had done that day in Beth-el: the words which he had spoken unto the king, them they told also to their father.  
+> **¹²** And their father said unto them, What way went he? For his sons had seen what way the man of God went, which came from Judah.  
+> **¹³** And he said unto his sons, Saddle me the ass. So they saddled him the ass: and he rode thereon,  
+> **¹⁴** And went after the man of God, and found him sitting under an oak: and he said unto him, *Art* thou the man of God that camest from Judah? And he said, I *am.*  
+> **¹⁵** Then he said unto him, Come home with me, and eat bread.  
+> **¹⁶** And he said, I may not return with thee, nor go in with thee: neither will I eat bread nor drink water with thee in this place:  
+> **¹⁷** For it was said to me by the word of the LORD, Thou shalt eat no bread nor drink water there, nor turn again to go by the way that thou camest.  
+> **¹⁸** He said unto him, I *am* a prophet also as thou *art;* and an angel spake unto me by the word of the LORD, saying, Bring him back with thee into thine house, that he may eat bread and drink water. *But* he lied unto him.  
+> **¹⁹** So he went back with him, and did eat bread in his house, and drank water.  
+> **²⁰** And it came to pass, as they sat at the table, that the word of the LORD came unto the prophet that brought him back:  
+> **²¹** And he cried unto the man of God that came from Judah, saying, Thus saith the LORD, Forasmuch as thou hast disobeyed the mouth of the LORD, and hast not kept the commandment which the LORD thy God commanded thee,  
+> **²²** But camest back, and hast eaten bread and drunk water in the place, of the which *the LORD* did say to thee, Eat no bread, and drink no water; thy carcase shall not come unto the sepulchre of thy fathers.  
 
 The man of God had honestly and resolutely refused the king's invitation, though he promised him a reward; yet he was over-persuaded by an old prophet to come back with him, and dine in Beth-el, contrary to the command given him. Here we find how dearly his dinner cost him. Observe with wonder,
 
@@ -56,18 +56,18 @@ III\. The proceedings of divine justice hereupon; and here we may well wonder th
 
 ## The Deceived Prophet Slain. (b. c. 974.)
 
-> <sup>23</sup> And it came to pass, after he had eaten bread, and after he had drunk, that he saddled for him the ass, *to wit,* for the prophet whom he had brought back.  
-> <sup>24</sup> And when he was gone, a lion met him by the way, and slew him: and his carcase was cast in the way, and the ass stood by it, the lion also stood by the carcase.  
-> <sup>25</sup> And, behold, men passed by, and saw the carcase cast in the way, and the lion standing by the carcase: and they came and told *it* in the city where the old prophet dwelt.  
-> <sup>26</sup> And when the prophet that brought him back from the way heard *thereof,* he said, It *is* the man of God, who was disobedient unto the word of the LORD: therefore the LORD hath delivered him unto the lion, which hath torn him, and slain him, according to the word of the LORD, which he spake unto him.  
-> <sup>27</sup> And he spake to his sons, saying, Saddle me the ass. And they saddled *him.*  
-> <sup>28</sup> And he went and found his carcase cast in the way, and the ass and the lion standing by the carcase: the lion had not eaten the carcase, nor torn the ass.  
-> <sup>29</sup> And the prophet took up the carcase of the man of God, and laid it upon the ass, and brought it back: and the old prophet came to the city, to mourn and to bury him.  
-> <sup>30</sup> And he laid his carcase in his own grave; and they mourned over him, *saying,* Alas, my brother!  
-> <sup>31</sup> And it came to pass, after he had buried him, that he spake to his sons, saying, When I am dead, then bury me in the sepulchre wherein the man of God *is* buried; lay my bones beside his bones:  
-> <sup>32</sup> For the saying which he cried by the word of the LORD against the altar in Beth-el, and against all the houses of the high places which *are* in the cities of Samaria, shall surely come to pass.  
-> <sup>33</sup> After this thing Jeroboam returned not from his evil way, but made again of the lowest of the people priests of the high places: whosoever would, he consecrated him, and he became *one* of the priests of the high places.  
-> <sup>34</sup> And this thing became sin unto the house of Jeroboam, even to cut *it* off, and to destroy *it* from off the face of the earth.  
+> **²³** And it came to pass, after he had eaten bread, and after he had drunk, that he saddled for him the ass, *to wit,* for the prophet whom he had brought back.  
+> **²⁴** And when he was gone, a lion met him by the way, and slew him: and his carcase was cast in the way, and the ass stood by it, the lion also stood by the carcase.  
+> **²⁵** And, behold, men passed by, and saw the carcase cast in the way, and the lion standing by the carcase: and they came and told *it* in the city where the old prophet dwelt.  
+> **²⁶** And when the prophet that brought him back from the way heard *thereof,* he said, It *is* the man of God, who was disobedient unto the word of the LORD: therefore the LORD hath delivered him unto the lion, which hath torn him, and slain him, according to the word of the LORD, which he spake unto him.  
+> **²⁷** And he spake to his sons, saying, Saddle me the ass. And they saddled *him.*  
+> **²⁸** And he went and found his carcase cast in the way, and the ass and the lion standing by the carcase: the lion had not eaten the carcase, nor torn the ass.  
+> **²⁹** And the prophet took up the carcase of the man of God, and laid it upon the ass, and brought it back: and the old prophet came to the city, to mourn and to bury him.  
+> **³⁰** And he laid his carcase in his own grave; and they mourned over him, *saying,* Alas, my brother!  
+> **³¹** And it came to pass, after he had buried him, that he spake to his sons, saying, When I am dead, then bury me in the sepulchre wherein the man of God *is* buried; lay my bones beside his bones:  
+> **³²** For the saying which he cried by the word of the LORD against the altar in Beth-el, and against all the houses of the high places which *are* in the cities of Samaria, shall surely come to pass.  
+> **³³** After this thing Jeroboam returned not from his evil way, but made again of the lowest of the people priests of the high places: whosoever would, he consecrated him, and he became *one* of the priests of the high places.  
+> **³⁴** And this thing became sin unto the house of Jeroboam, even to cut *it* off, and to destroy *it* from off the face of the earth.  
 
 Here is, I. The death of the deceived disobedient prophet. The old prophet that had deluded him, as if he would make him some amends for the wrong he had done him or help to prevent the mischief threatened him, furnished him with an ass to ride home on; but by the way a lion set upon him, and killed him, 1Ki 13:23,24. He did but return back to refresh himself when he was hungry, and behold he must die for it; see 1Sa 14:43. But we must consider, 1. That his offence was great, and it would by no means justify him that he was drawn into it by a lie; he could not be so certain of the countermand sent by another as he was of the command given to himself, nor had he any ground to think that the command would be recalled, when the reason of it remained in force, which was that he might testify his detestation of the wickedness of that place. He had great reason to suspect the honesty of this old prophet, who did not himself bear his testimony, nor did God think fit to make use of him as a witness against the idolatry of the city he lived in. However, he should have taken time to beg direction from God, and not have complied so soon. Did he think this old prophet's house safer to eat in than other houses at Beth-el, when God had forbidden him to eat in any? That was to refine upon the command, and make himself wiser than God. Did he think to excuse himself that he was hungry? Had he never read that *man lives not by bread alone?* 2. That his death was for the glory of God; for by this it appeared, (1.) That nothing is more provoking to him than disobedience to an express command, though in a small matter, which makes his proceedings against our first parents, for eating the forbidden fruit, the easier to be accounted for. (2.) That God is displeased at the sins of his own people, and no man shall be protected in disobedience by the sanctity of his profession, the dignity of his office, his nearness to God, or any good services he has done for him. Perhaps God by this intended, in a way of righteous judgment, to harden Jeroboam's heart, since he was not reformed by the withering of his hand; for he would be apt to make a bad use of it, and to say that the prophet was well enough served for meddling with his altar, he had better have staid at home; any, he would say that Providence had punished him for his insolence, and the lion had done that which his withered hand might not do. However, by this God intended to warn all those whom he employs strictly to observe their orders, at their peril.
 

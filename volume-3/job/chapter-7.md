@@ -8,12 +8,12 @@ Job, in this chapter, goes on to express the bitter sense he had of his calamiti
 
 ## Job's Reply to Eliphaz. (b. c. 1520.)
 
-> <sup>1</sup> *Is there* not an appointed time to man upon earth? *are not* his days also like the days of a hireling?  
-> <sup>2</sup> As a servant earnestly desireth the shadow, and as an hireling looketh for *the reward of* his work:  
-> <sup>3</sup> So am I made to possess months of vanity, and wearisome nights are appointed to me.  
-> <sup>4</sup> When I lie down, I say, When shall I arise, and the night be gone? and I am full of tossings to and fro unto the dawning of the day.  
-> <sup>5</sup> My flesh is clothed with worms and clods of dust; my skin is broken, and become loathsome.  
-> <sup>6</sup> My days are swifter than a weaver's shuttle, and are spent without hope.  
+> **¹** *Is there* not an appointed time to man upon earth? *are not* his days also like the days of a hireling?  
+> **²** As a servant earnestly desireth the shadow, and as an hireling looketh for *the reward of* his work:  
+> **³** So am I made to possess months of vanity, and wearisome nights are appointed to me.  
+> **⁴** When I lie down, I say, When shall I arise, and the night be gone? and I am full of tossings to and fro unto the dawning of the day.  
+> **⁵** My flesh is clothed with worms and clods of dust; my skin is broken, and become loathsome.  
+> **⁶** My days are swifter than a weaver's shuttle, and are spent without hope.  
 
 Job is here excusing what he could not justify, even his inordinate desire of death. Why should he not wish for the termination of life, which would be the termination of his miseries? To enforce this reason he argues,
 
@@ -29,16 +29,16 @@ II\. From his own condition at this time. He had as much reason, he thought, to 
 
 4\. His life was hastening apace towards a period, Job 7:6. He thought he had no reason to expect a long life, for he found himself declining fast (Job 7:6): *My days are swifter than a weaver's shuttle,* that is, "My time is now but short, and there are but a few sands more in my glass, which will speedily run out." Natural motions are more swift near the centre. Job thought his days ran swiftly because he thought he should soon be at his journey's end; he looked upon them as good as spent already, and he was therefore without hope of being restored to his former prosperity. It is applicable to man's life in general. Our days are like a weaver's shuttle, thrown from one side of the web to the other in the twinkling of an eye, and then back again, to and fro, until at length it is quite exhausted of the thread it carried, and then we *cut off, like a weaver, our life,* Isa 38:12. Time hastens on apace; the motion of it cannot be stopped, and, when it is past, it cannot be recalled. While we are living, as we are sowing (Ga 6:8), so we are weaving. Every day, like the shuttle, leaves a thread behind it. Many weave the spider's web, which will fail them, Job 8:14. If we are weaving to ourselves holy garments and robes of righteousness, we shall have the benefit of them when our work comes to be reviewed and every man shall reap as he sowed and wear as he wove.
 
-> <sup>7</sup> O remember that my life *is* wind: mine eye shall no more see good.  
-> <sup>8</sup> The eye of him that hath seen me shall see me no *more:* thine eyes *are* upon me, and I *am* not.  
-> <sup>9</sup> *As* the cloud is consumed and vanisheth away: so he that goeth down to the grave shall come up no *more.*  
-> <sup>10</sup> He shall return no more to his house, neither shall his place know him any more.  
-> <sup>11</sup> Therefore I will not refrain my mouth; I will speak in the anguish of my spirit; I will complain in the bitterness of my soul.  
-> <sup>12</sup> *Am* I a sea, or a whale, that thou settest a watch over me?  
-> <sup>13</sup> When I say, My bed shall comfort me, my couch shall ease my complaint;  
-> <sup>14</sup> Then thou scarest me with dreams, and terrifiest me through visions:  
-> <sup>15</sup> So that my soul chooseth strangling, *and* death rather than my life.  
-> <sup>16</sup> I loathe *it;* I would not live alway: let me alone; for my days *are* vanity.  
+> **⁷** O remember that my life *is* wind: mine eye shall no more see good.  
+> **⁸** The eye of him that hath seen me shall see me no *more:* thine eyes *are* upon me, and I *am* not.  
+> **⁹** *As* the cloud is consumed and vanisheth away: so he that goeth down to the grave shall come up no *more.*  
+> **¹⁰** He shall return no more to his house, neither shall his place know him any more.  
+> **¹¹** Therefore I will not refrain my mouth; I will speak in the anguish of my spirit; I will complain in the bitterness of my soul.  
+> **¹²** *Am* I a sea, or a whale, that thou settest a watch over me?  
+> **¹³** When I say, My bed shall comfort me, my couch shall ease my complaint;  
+> **¹⁴** Then thou scarest me with dreams, and terrifiest me through visions:  
+> **¹⁵** So that my soul chooseth strangling, *and* death rather than my life.  
+> **¹⁶** I loathe *it;* I would not live alway: let me alone; for my days *are* vanity.  
 
 Job, observing perhaps that his friends, though they would not interrupt him in his discourse, yet began to grow weary, and not to heed much what he said, here turns to God, and speaks to him. If men will not hear us, God will; if men cannot help us, he can; for his arm is not shortened, neither is his ear heavy. Yet we must not go to school to Job here to learn how to speak to God; for, it must be confessed, there is a great mixture of passion and corruption in what he here says. But, if God be not extreme to mark what his people say amiss, let us also make the best of it. Job is here begging of God either to ease him or to end him. He here represents himself to God,
 
@@ -52,11 +52,11 @@ He takes away our breath, and we die; nay, he but *looks on the earth* and it *t
 
 II\. As a distempered man, sorely and grievously distempered both in body and mind. In this part of his representation is he is very peevish, as if God dealt hardly with him and laid upon him more than was meet: "*Am I a sea, or a whale* (Job 7:12), a raging sea, that must be kept within bounds, to check its proud waves, or an unruly whale, that must be restrained by force from devouring all the fishes of the sea? Am I so strong that there needs so much ado to hold me? so boisterous that no less than all these mighty bonds of affliction will serve to tame me and keep me within compass?" We are very apt, when we are in affliction, to complain of God and his providence, as if he laid more restraints upon us that there is occasion for; whereas we are never in heaviness but when there is need, nor more than the necessity demands. 1. He complains that he could not rest in his bed, Job 7:13,14. There we promise ourselves some repose, when we are fatigued with labour, pain, or traveling: "*My bed shall comfort me, and my couch shall ease my complaint.* Sleep will for a time give me some relief;" it usually does so; it is appointed for that end; many a time it has eased us, and we have awaked refreshed, and with new vigour. When it is so we have great reason to be thankful; but it was not so with poor Job: his bed, instead of comforting him, terrified him; and his couch, instead of easing his complaint, added to it; for if he dropped asleep, he was disturbed with frightful dreams, and when those awaked him still he was haunted with dreadful apparitions. This was it that made the night so unwelcome and wearisome to him as it was (Job 7:4): When *shall I arise?* Note, God can, when he pleases, meet us with terror even where we promise ourselves ease and repose; nay, he can make us a terror to ourselves, and, as we have often contracted guilt by the rovings of an unsanctified fancy, he can likewise, by the power of our own imagination, create us much grief, and so make that our punishment which has often been our sin. In Job's dreams, though they might partly arise from his distemper (in fevers, or small pox, when the body is all over sore, it is common for the sleep to be unquiet), yet we have reason to think Satan had a hand, for he delights to terrify those whom it is out of his reach to destroy; but Job looked up to God, who permitted Satan to do this (*thou scarest me*), and mistook Satan's representations for the *terror of God setting themselves in array against him.* We have reason to pray to God that our dreams may neither defile nor disquiet us, neither tempt us to sin nor torment us with fear, that he who keeps Israel, and neither slumbers nor sleeps, may keep us when we slumber and sleep, that the devil may not then do us a mischief, either as an insinuating serpent or as a roaring lion, and to bless God if we lie down and our sleep is sweet and we are not thus scared. 2. He covets to rest in his grave, that bed where there are no tossings to and fro, nor any frightful dreams, Job 7:15,16. (1.) He was sick of life, and hated the thoughts of it: "*I loathe it;* I have had enough of it. *I would not live always,* not only not live always in this condition, in pain and misery, but not live always in the most easy and prosperous condition, to be continually in danger of being thus reduced. *My days are vanity* at the best, empty of solid comfort, exposed to real griefs; and I would not be for ever tied to such uncertainty." Note, A good man would not (if he might) live always in this world, no, not though it smile upon him, because it is a world of sin and temptation and he has a better world in prospect. (2.) He was fond of death, and pleased himself with the thoughts of it: his *soul* (his judgment, he thought, but really it was his passion) *chose strangling and death rather than life;* any death rather than such a life as this. Doubtless this was Job's infirmity; for though a good man would not wish to live always in this world, and would choose strangling and death rather than sin, as the martyrs did, yet he will be content to live as long as pleases God, not choose death rather than life, because life is our opportunity of glorifying God and getting ready for heaven.
 
-> <sup>17</sup> What *is* man, that thou shouldest magnify him? and that thou shouldest set thine heart upon him?  
-> <sup>18</sup> And *that* thou shouldest visit him every morning, *and* try him every moment?  
-> <sup>19</sup> How long wilt thou not depart from me, nor let me alone till I swallow down my spittle?  
-> <sup>20</sup> I have sinned; what shall I do unto thee, O thou preserver of men? why hast thou set me as a mark against thee, so that I am a burden to myself?  
-> <sup>21</sup> And why dost thou not pardon my transgression, and take away mine iniquity? for now shall I sleep in the dust; and thou shalt seek me in the morning, but I *shall* not *be.*  
+> **¹⁷** What *is* man, that thou shouldest magnify him? and that thou shouldest set thine heart upon him?  
+> **¹⁸** And *that* thou shouldest visit him every morning, *and* try him every moment?  
+> **¹⁹** How long wilt thou not depart from me, nor let me alone till I swallow down my spittle?  
+> **²⁰** I have sinned; what shall I do unto thee, O thou preserver of men? why hast thou set me as a mark against thee, so that I am a burden to myself?  
+> **²¹** And why dost thou not pardon my transgression, and take away mine iniquity? for now shall I sleep in the dust; and thou shalt seek me in the morning, but I *shall* not *be.*  
 
 Job here reasons with God,
 

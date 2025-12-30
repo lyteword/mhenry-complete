@@ -8,11 +8,11 @@ In this chapter the apostle seems to excuse his earnestness in pressing the Cori
 
 ## Charity Urged. (a. d. 57.)
 
-> <sup>1</sup> For as touching the ministering to the saints, it is superfluous for me to write to you:  
-> <sup>2</sup> For I know the forwardness of your mind, for which I boast of you to them of Macedonia, that Achaia was ready a year ago; and your zeal hath provoked very many.  
-> <sup>3</sup> Yet have I sent the brethren, lest our boasting of you should be in vain in this behalf; that, as I said, ye may be ready:  
-> <sup>4</sup> Lest haply if they of Macedonia come with me, and find you unprepared, we (that we say not, ye) should be ashamed in this same confident boasting.  
-> <sup>5</sup> Therefore I thought it necessary to exhort the brethren, that they would go before unto you, and make up beforehand your bounty, whereof ye had notice before, that the same might be ready, as *a matter of* bounty, and not as *of* covetousness.  
+> **¹** For as touching the ministering to the saints, it is superfluous for me to write to you:  
+> **²** For I know the forwardness of your mind, for which I boast of you to them of Macedonia, that Achaia was ready a year ago; and your zeal hath provoked very many.  
+> **³** Yet have I sent the brethren, lest our boasting of you should be in vain in this behalf; that, as I said, ye may be ready:  
+> **⁴** Lest haply if they of Macedonia come with me, and find you unprepared, we (that we say not, ye) should be ashamed in this same confident boasting.  
+> **⁵** Therefore I thought it necessary to exhort the brethren, that they would go before unto you, and make up beforehand your bounty, whereof ye had notice before, that the same might be ready, as *a matter of* bounty, and not as *of* covetousness.  
 
 In these verses the apostle speaks very respectfully to the Corinthians, and with great skill; and, while he seems to excuse his urging them so earnestly to charity, still presses them thereto, and shows how much his heart was set upon this matter.
 
@@ -22,16 +22,16 @@ II\. He seems to apologize for sending Titus and the other brethren to them. He 
 
 ## Charity Urged. (a. d. 57.)
 
-> <sup>6</sup> But this *I say,* He which soweth sparingly shall reap also sparingly; and he which soweth bountifully shall reap also bountifully.  
-> <sup>7</sup> Every man according as he purposeth in his heart, *so let him give;* not grudgingly, or of necessity: for God loveth a cheerful giver.  
-> <sup>8</sup> And God *is* able to make all grace abound toward you; that ye, always having all sufficiency in all *things,* may abound to every good work:  
-> <sup>9</sup> (As it is written, He hath dispersed abroad; he hath given to the poor: his righteousness remaineth for ever.  
-> <sup>10</sup> Now he that ministereth seed to the sower both minister bread for *your* food, and multiply your seed sown, and increase the fruits of your righteousness;)  
-> <sup>11</sup> Being enriched in every thing to all bountifulness, which causeth through us thanksgiving to God.  
-> <sup>12</sup> For the administration of this service not only supplieth the want of the saints, but is abundant also by many thanksgivings unto God;  
-> <sup>13</sup> Whiles by the experiment of this ministration they glorify God for your professed subjection unto the gospel of Christ, and for *your* liberal distribution unto them, and unto all *men;*  
-> <sup>14</sup> And by their prayer for you, which long after you for the exceeding grace of God in you.  
-> <sup>15</sup> Thanks *be* unto God for his unspeakable gift.  
+> **⁶** But this *I say,* He which soweth sparingly shall reap also sparingly; and he which soweth bountifully shall reap also bountifully.  
+> **⁷** Every man according as he purposeth in his heart, *so let him give;* not grudgingly, or of necessity: for God loveth a cheerful giver.  
+> **⁸** And God *is* able to make all grace abound toward you; that ye, always having all sufficiency in all *things,* may abound to every good work:  
+> **⁹** (As it is written, He hath dispersed abroad; he hath given to the poor: his righteousness remaineth for ever.  
+> **¹⁰** Now he that ministereth seed to the sower both minister bread for *your* food, and multiply your seed sown, and increase the fruits of your righteousness;)  
+> **¹¹** Being enriched in every thing to all bountifulness, which causeth through us thanksgiving to God.  
+> **¹²** For the administration of this service not only supplieth the want of the saints, but is abundant also by many thanksgivings unto God;  
+> **¹³** Whiles by the experiment of this ministration they glorify God for your professed subjection unto the gospel of Christ, and for *your* liberal distribution unto them, and unto all *men;*  
+> **¹⁴** And by their prayer for you, which long after you for the exceeding grace of God in you.  
+> **¹⁵** Thanks *be* unto God for his unspeakable gift.  
 
 Here we have,
 

@@ -8,10 +8,10 @@ In this chapter the apostle, I. Makes some application of the doctrine laid down
 
 ## The Danger of Neglect. (a. d. 62.)
 
-> <sup>1</sup> Therefore we ought to give the more earnest heed to the things which we have heard, lest at any time we should let *them* slip.  
-> <sup>2</sup> For if the word spoken by angels was stedfast, and every transgression and disobedience received a just recompence of reward;  
-> <sup>3</sup> How shall we escape, if we neglect so great salvation; which at the first began to be spoken by the Lord, and was confirmed unto us by them that heard *him;*  
-> <sup>4</sup> God also bearing *them* witness, both with signs and wonders, and with divers miracles, and gifts of the Holy Ghost, according to his own will?  
+> **¹** Therefore we ought to give the more earnest heed to the things which we have heard, lest at any time we should let *them* slip.  
+> **²** For if the word spoken by angels was stedfast, and every transgression and disobedience received a just recompence of reward;  
+> **³** How shall we escape, if we neglect so great salvation; which at the first began to be spoken by the Lord, and was confirmed unto us by them that heard *him;*  
+> **⁴** God also bearing *them* witness, both with signs and wonders, and with divers miracles, and gifts of the Holy Ghost, according to his own will?  
 
 The apostle proceeds in the plain profitable method of doctrine, reason, and use, through this epistle. Here we have the application of the truths before asserted and proved; this is brought in by the illative particle *therefore,* with which this chapter begins, and which shows its connection with the former, where the apostle having proved Christ to be superior to the angels by whose ministry the law was given, and therefore that the gospel dispensation must be more excellent than the legal, he now comes to apply this doctrine both by way of exhortation and argument.
 
@@ -29,11 +29,11 @@ II\. By way of argument, he adds strong motives to enforce the exhortation.
 
 ## Design of Christ's Sufferings. (a. d. 62.)
 
-> <sup>5</sup> For unto the angels hath he not put in subjection the world to come, whereof we speak.  
-> <sup>6</sup> But one in a certain place testified, saying, What is man, that thou art mindful of him? or the son of man, that thou visitest him?  
-> <sup>7</sup> Thou madest him a little lower than the angels; thou crownedst him with glory and honour, and didst set him over the works of thy hands:  
-> <sup>8</sup> Thou hast put all things in subjection under his feet. For in that he put all in subjection under him, he left nothing *that is* not put under him. But now we see not yet all things put under him.  
-> <sup>9</sup> But we see Jesus, who was made a little lower than the angels for the suffering of death, crowned with glory and honour; that he by the grace of God should taste death for every man.  
+> **⁵** For unto the angels hath he not put in subjection the world to come, whereof we speak.  
+> **⁶** But one in a certain place testified, saying, What is man, that thou art mindful of him? or the son of man, that thou visitest him?  
+> **⁷** Thou madest him a little lower than the angels; thou crownedst him with glory and honour, and didst set him over the works of thy hands:  
+> **⁸** Thou hast put all things in subjection under his feet. For in that he put all in subjection under him, he left nothing *that is* not put under him. But now we see not yet all things put under him.  
+> **⁹** But we see Jesus, who was made a little lower than the angels for the suffering of death, crowned with glory and honour; that he by the grace of God should taste death for every man.  
 
 The apostle, having made this serious application of the doctrine of the personal excellency of Christ above the angels, now returns to that pleasant subject again, and pursues it further (Heb 2:5): *For to the angels hath he not put in subjection the world to come, whereof we speak.*
 
@@ -47,10 +47,10 @@ II\. We have a scripture—account of that blessed Jesus to whom the gospel worl
 
 ## Design of Christ's Sufferings. (a. d. 62.)
 
-> <sup>10</sup> For it became him, for whom *are* all things, and by whom *are* all things, in bringing many sons unto glory, to make the captain of their salvation perfect through sufferings.  
-> <sup>11</sup> For both he that sanctifieth and they who are sanctified *are* all of one: for which cause he is not ashamed to call them brethren,  
-> <sup>12</sup> Saying, I will declare thy name unto my brethren, in the midst of the church will I sing praise unto thee.  
-> <sup>13</sup> And again, I will put my trust in him. And again, Behold I and the children which God hath given me.  
+> **¹⁰** For it became him, for whom *are* all things, and by whom *are* all things, in bringing many sons unto glory, to make the captain of their salvation perfect through sufferings.  
+> **¹¹** For both he that sanctifieth and they who are sanctified *are* all of one: for which cause he is not ashamed to call them brethren,  
+> **¹²** Saying, I will declare thy name unto my brethren, in the midst of the church will I sing praise unto thee.  
+> **¹³** And again, I will put my trust in him. And again, Behold I and the children which God hath given me.  
 
 Having mentioned the death of Christ, the apostle here proceeds to prevent and remove the scandal of the cross; and this he does by showing both how it became God that Christ should suffer and how much man should be benefited by those sufferings.
 
@@ -82,11 +82,11 @@ II\. He shows how much they would be benefited by the cross and sufferings of Ch
 
 ## Christ's Incarnation. (a. d. 62.)
 
-> <sup>14</sup> Forasmuch then as the children are partakers of flesh and blood, he also himself likewise took part of the same; that through death he might destroy him that had the power of death, that is, the devil;  
-> <sup>15</sup> And deliver them who through fear of death were all their lifetime subject to bondage.  
-> <sup>16</sup> For verily he took not on *him the nature of* angels; but he took on *him* the seed of Abraham.  
-> <sup>17</sup> Wherefore in all things it behoved him to be made like unto *his* brethren, that he might be a merciful and faithful high priest in things *pertaining* to God, to make reconciliation for the sins of the people.  
-> <sup>18</sup> For in that he himself hath suffered being tempted, he is able to succour them that are tempted.  
+> **¹⁴** Forasmuch then as the children are partakers of flesh and blood, he also himself likewise took part of the same; that through death he might destroy him that had the power of death, that is, the devil;  
+> **¹⁵** And deliver them who through fear of death were all their lifetime subject to bondage.  
+> **¹⁶** For verily he took not on *him the nature of* angels; but he took on *him* the seed of Abraham.  
+> **¹⁷** Wherefore in all things it behoved him to be made like unto *his* brethren, that he might be a merciful and faithful high priest in things *pertaining* to God, to make reconciliation for the sins of the people.  
+> **¹⁸** For in that he himself hath suffered being tempted, he is able to succour them that are tempted.  
 
 Here the apostle proceeds to assert the incarnation of Christ, as taking upon him not the nature of angels, but the seed of Abraham; and he shows the reason and design of his so doing.
 

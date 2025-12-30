@@ -10,11 +10,11 @@ David, no doubt, was in very great grief when he said to Abiathar (1Sa 22:22), "
 
 To the chief musician, Maschil. *A psalm* of David, when Doeg the Edomite came and told Saul, and said unto him, David is come to the house of Ahimelech.
 
-> <sup>1</sup> Why boastest thou thyself in mischief, O mighty man? the goodness of God *endureth* continually.  
-> <sup>2</sup> Thy tongue deviseth mischiefs; like a sharp razor, working deceitfully.  
-> <sup>3</sup> Thou lovest evil more than good; *and* lying rather than to speak righteousness. Selah.  
-> <sup>4</sup> Thou lovest all devouring words, O *thou* deceitful tongue.  
-> <sup>5</sup> God shall likewise destroy thee for ever, he shall take thee away, and pluck thee out of *thy* dwelling place, and root thee out of the land of the living. Selah.  
+> **¹** Why boastest thou thyself in mischief, O mighty man? the goodness of God *endureth* continually.  
+> **²** Thy tongue deviseth mischiefs; like a sharp razor, working deceitfully.  
+> **³** Thou lovest evil more than good; *and* lying rather than to speak righteousness. Selah.  
+> **⁴** Thou lovest all devouring words, O *thou* deceitful tongue.  
+> **⁵** God shall likewise destroy thee for ever, he shall take thee away, and pluck thee out of *thy* dwelling place, and root thee out of the land of the living. Selah.  
 
 The title is a brief account of the story which the psalm refers to. David now, at length, saw it necessary to quit the court, and shift for his own safety, for fear of Saul, who had once and again attempted to murder him. Being unprovided with arms and victuals, he, by a wile, got Ahimelech the priest to furnish him with both. Doeg an Edomite happened to be there, and he went and informed Saul against Ahimelech, representing him as confederate with a traitor, upon which accusation Saul grounded a very bloody warrant, to kill all the priests; and Doeg, the prosecutor, was the executioner, 1Sa 22:9, etc. In these verses,
 
@@ -26,10 +26,10 @@ III\. He reads his doom and denounces the judgments of God against him for his w
 
 ## The Ruin of Doeg Predicted.
 
-> <sup>6</sup> The righteous also shall see, and fear, and shall laugh at him:  
-> <sup>7</sup> Lo, *this is* the man *that* made not God his strength; but trusted in the abundance of his riches, *and* strengthened himself in his wickedness.  
-> <sup>8</sup> But I *am* like a green olive tree in the house of God: I trust in the mercy of God for ever and ever.  
-> <sup>9</sup> I will praise thee for ever, because thou hast done *it:* and I will wait on thy name; for *it is* good before thy saints.  
+> **⁶** The righteous also shall see, and fear, and shall laugh at him:  
+> **⁷** Lo, *this is* the man *that* made not God his strength; but trusted in the abundance of his riches, *and* strengthened himself in his wickedness.  
+> **⁸** But I *am* like a green olive tree in the house of God: I trust in the mercy of God for ever and ever.  
+> **⁹** I will praise thee for ever, because thou hast done *it:* and I will wait on thy name; for *it is* good before thy saints.  
 
 David was at this time in great distress; the mischief Doeg had done him was but the beginning of his sorrows; and yet here we have him triumphing, and that is more than rejoicing, in tribulation. Blessed Paul, in the midst of his troubles, is in the midst of his triumphs, 2Co 2:14. David here triumphs,
 

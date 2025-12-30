@@ -8,8 +8,8 @@ We have here the famous story of Abraham's offering up his son Isaac, that is, h
 
 ## Abraham Commanded to Offer Isaac. (b. c. 1872.)
 
-> <sup>1</sup> And it came to pass after these things, that God did tempt Abraham, and said unto him, Abraham: and he said, Behold, *here* I *am.*  
-> <sup>2</sup> And he said, Take now thy son, thine only *son* Isaac, whom thou lovest, and get thee into the land of Moriah; and offer him there for a burnt offering upon one of the mountains which I will tell thee of.  
+> **¹** And it came to pass after these things, that God did tempt Abraham, and said unto him, Abraham: and he said, Behold, *here* I *am.*  
+> **²** And he said, Take now thy son, thine only *son* Isaac, whom thou lovest, and get thee into the land of Moriah; and offer him there for a burnt offering upon one of the mountains which I will tell thee of.  
 
 Here is the trial of Abraham's faith, whether it continued so strong, so vigorous, so victorious, after a long settlement in communion with God, as it was at first, when by it he left his country: then it was made to appear that he loved God better than his father; now that he loved him better than his son. Observe here,
 
@@ -27,14 +27,14 @@ III\. The trial itself. God appeared to him as he had formerly done, called him 
 
 ## Abraham's Obedience. (b. c. 1872.)
 
-> <sup>3</sup> And Abraham rose up early in the morning, and saddled his ass, and took two of his young men with him, and Isaac his son, and clave the wood for the burnt offering, and rose up, and went unto the place of which God had told him.  
-> <sup>4</sup> Then on the third day Abraham lifted up his eyes, and saw the place afar off.  
-> <sup>5</sup> And Abraham said unto his young men, Abide ye here with the ass; and I and the lad will go yonder and worship, and come again to you.  
-> <sup>6</sup> And Abraham took the wood of the burnt offering, and laid *it* upon Isaac his son; and he took the fire in his hand, and a knife; and they went both of them together.  
-> <sup>7</sup> And Isaac spake unto Abraham his father, and said, My father: and he said, Here *am* I, my son. And he said, Behold the fire and the wood: but where *is* the lamb for a burnt offering?  
-> <sup>8</sup> And Abraham said, My son, God will provide himself a lamb for a burnt offering: so they went both of them together.  
-> <sup>9</sup> And they came to the place which God had told him of; and Abraham built an altar there, and laid the wood in order, and bound Isaac his son, and laid him on the altar upon the wood.  
-> <sup>10</sup> And Abraham stretched forth his hand, and took the knife to slay his son.  
+> **³** And Abraham rose up early in the morning, and saddled his ass, and took two of his young men with him, and Isaac his son, and clave the wood for the burnt offering, and rose up, and went unto the place of which God had told him.  
+> **⁴** Then on the third day Abraham lifted up his eyes, and saw the place afar off.  
+> **⁵** And Abraham said unto his young men, Abide ye here with the ass; and I and the lad will go yonder and worship, and come again to you.  
+> **⁶** And Abraham took the wood of the burnt offering, and laid *it* upon Isaac his son; and he took the fire in his hand, and a knife; and they went both of them together.  
+> **⁷** And Isaac spake unto Abraham his father, and said, My father: and he said, Here *am* I, my son. And he said, Behold the fire and the wood: but where *is* the lamb for a burnt offering?  
+> **⁸** And Abraham said, My son, God will provide himself a lamb for a burnt offering: so they went both of them together.  
+> **⁹** And they came to the place which God had told him of; and Abraham built an altar there, and laid the wood in order, and bound Isaac his son, and laid him on the altar upon the wood.  
+> **¹⁰** And Abraham stretched forth his hand, and took the knife to slay his son.  
 
 We have here Abraham's obedience to this severe command. *Being tried, he offered up Isaac,* Heb 11:17. Observe,
 
@@ -64,10 +64,10 @@ II\. The several steps of obedience, all which help to magnify it, and to show t
 
 ## Isaac Rescued. (b. c. 1872.)
 
-> <sup>11</sup> And the angel of the LORD called unto him out of heaven, and said, Abraham, Abraham: and he said, Here *am* I.  
-> <sup>12</sup> And he said, Lay not thine hand upon the lad, neither do thou any thing unto him: for now I know that thou fearest God, seeing thou hast not withheld thy son, thine only *son* from me.  
-> <sup>13</sup> And Abraham lifted up his eyes, and looked, and behold behind *him* a ram caught in a thicket by his horns: and Abraham went and took the ram, and offered him up for a burnt offering in the stead of his son.  
-> <sup>14</sup> And Abraham called the name of that place Jehovah-jireh: as it is said *to* this day, In the mount of the LORD it shall be seen.  
+> **¹¹** And the angel of the LORD called unto him out of heaven, and said, Abraham, Abraham: and he said, Here *am* I.  
+> **¹²** And he said, Lay not thine hand upon the lad, neither do thou any thing unto him: for now I know that thou fearest God, seeing thou hast not withheld thy son, thine only *son* from me.  
+> **¹³** And Abraham lifted up his eyes, and looked, and behold behind *him* a ram caught in a thicket by his horns: and Abraham went and took the ram, and offered him up for a burnt offering in the stead of his son.  
+> **¹⁴** And Abraham called the name of that place Jehovah-jireh: as it is said *to* this day, In the mount of the LORD it shall be seen.  
 
 Hitherto this story has been very melancholy, and seemed to hasten towards a most tragical period; but here the sky suddenly clears up, the sun breaks out, and a bright and pleasant scene opens. The same hand that had wounded and cast down here heals and lifts up; for, though he cause grief, he will have compassion. *The angel of the Lord,* that is, God himself, the eternal Word, the angel of the covenant, who was to be the great Redeemer and comforter, he interposed, and gave a happy issue to this trial.
 
@@ -81,19 +81,19 @@ IV\. A new name is given to the place, to the honour of God, and for the encoura
 
 ## Abraham's Blessing Confirmed. (b. c. 1872.)
 
-> <sup>15</sup> And the angel of the LORD called unto Abraham out of heaven the second time,  
-> <sup>16</sup> And said, By myself have I sworn, saith the LORD, for because thou hast done this thing, and hast not withheld thy son, thine only *son:*  
-> <sup>17</sup> That in blessing I will bless thee, and in multiplying I will multiply thy seed as the stars of the heaven, and as the sand which *is* upon the sea shore; and thy seed shall possess the gate of his enemies;  
-> <sup>18</sup> And in thy seed shall all the nations of the earth be blessed; because thou hast obeyed my voice.  
-> <sup>19</sup> So Abraham returned unto his young men, and they rose up and went together to Beer-sheba; and Abraham dwelt at Beer-sheba.  
+> **¹⁵** And the angel of the LORD called unto Abraham out of heaven the second time,  
+> **¹⁶** And said, By myself have I sworn, saith the LORD, for because thou hast done this thing, and hast not withheld thy son, thine only *son:*  
+> **¹⁷** That in blessing I will bless thee, and in multiplying I will multiply thy seed as the stars of the heaven, and as the sand which *is* upon the sea shore; and thy seed shall possess the gate of his enemies;  
+> **¹⁸** And in thy seed shall all the nations of the earth be blessed; because thou hast obeyed my voice.  
+> **¹⁹** So Abraham returned unto his young men, and they rose up and went together to Beer-sheba; and Abraham dwelt at Beer-sheba.  
 
 Abraham's obedience was graciously accepted; but this was not all: here we have it recompensed, abundantly recompensed, before he stirred from the place; probably while the ram he had sacrificed was yet burning God sent him this gracious message, renewed and ratified his covenant with him. All covenants were made by sacrifice, so was this by the typical sacrifices of Isaac and the ram. Very high expressions of God's favour to Abraham are employed in this confirmation of the covenant with him, expressions exceeding any he had yet been blessed with. Note, Extraordinary services shall be crowned with extraordinary honours and comforts; and favours in the promise, though not yet performed, ought to be accounted real and valuable recompences. Observe, 1. God is pleased to make mention of Abraham's obedience as the consideration of the covenant; and he speaks of it with an encomium: *Because thou hast done this thing, and hast not withheld thy son, thine only son,* Ge 22:16. He lays a strong emphasis on this, and (Ge 22:18) praises it as an act of obedience: in it thou hast *obeyed my voice,* and to obey is better than sacrifice. Not that this was a proportionable consideration, but God graciously put this honour upon that by which Abraham had honoured him. 2. God now confirmed the promise with an oath. It was said and sealed before; but now it is sworn: *By myself have I sworn;* for he could swear by no greater, Heb 6:13. Thus he interposed himself by an oath, as the apostle expresses it, Heb 6:17. He did (to speak with reverence) even pawn his own life and being upon it (*As I live,*) that by all those immutable things, in which it was impossible for God to lie, he and his might have strong consolation. Note, If we exercise faith, God will encourage it. Improve the promises, and God will ratify them. 3. The particular promise here renewed is that of a numerous offspring: *Multiplying, I will multiply thee,* Ge 22:17. Note, Those that are willing to part with any thing for God shall have it made up to them with unspeakable advantage. Abraham has but one son, and is willing to part with that one, in obedience to God. "Well," said God, "thou shalt be recompensed with thousands and millions." What a figure does the seed of Abraham make in history! How numerous, how illustrious, were his known descendants, who, to this day, triumph in this, that they have Abraham to their father! Thus he received a thousand-fold in this life, Mt 19:29. 4. The promise, doubtless, points at the Messiah, and the grace of the gospel. This is the oath sworn to our father Abraham, which Zacharias refers to, Lu 1:73-75, etc. And so here is a promise, (1.) Of the great blessing of the Spirit: *In blessing, I will bless thee,* namely, with that best of blessings the gift of the Holy Ghost; the promise of the Spirit was that blessing of Abraham which was to come upon the Gentiles through Jesus Christ, Ga 3:14. (2.) Of the increase of the church, that believers, his spiritual seed, should be numerous as the stars of heaven. (3.) Of spiritual victories: *Thy seed shall possess the gate of his enemies.* Believers, by their faith, overcome the world, and triumph over all the powers of darkness, and are more than conquerors. Probably Zacharias refers to this part of the oath (Lu 1:74), *That we, being delivered out of the hand of our enemies, might serve him without fear.* But the crown of all is the last promise. (4.) Of the incarnation of Christ: *In thy seed,* one particular person that shall descend from thee (for he speaks not of many, but of one, as the apostle observes, Ga 3:16), *shall all the nations of the earth be blessed,* or shall *bless themselves,* as the phrase is, Isa 65:16. In him all may be happy if they will, and all that belong to him shall be so, and shall think themselves so. Christ is the great blessing of the world. Abraham was ready to give up his son for a sacrifice to the honour of God, and, on that occasion, God promised to give his Son a sacrifice for the salvation of man.
 
-> <sup>20</sup> And it came to pass after these things, that it was told Abraham, saying, Behold, Milcah, she hath also born children unto thy brother Nahor;  
-> <sup>21</sup> Huz his first born, and Buz his brother, and Kemuel the father of Aram,  
-> <sup>22</sup> And Chesed, and Hazo, and Pildash, and Jidlaph, and Bethuel.  
-> <sup>23</sup> And Bethuel begat Rebekah: these eight Milcah did bear to Nahor, Abraham's brother.  
-> <sup>24</sup> And his concubine, whose name *was* Reumah, she bare also Tebah, and Gaham, and Thahash, and Maachah.  
+> **²⁰** And it came to pass after these things, that it was told Abraham, saying, Behold, Milcah, she hath also born children unto thy brother Nahor;  
+> **²¹** Huz his first born, and Buz his brother, and Kemuel the father of Aram,  
+> **²²** And Chesed, and Hazo, and Pildash, and Jidlaph, and Bethuel.  
+> **²³** And Bethuel begat Rebekah: these eight Milcah did bear to Nahor, Abraham's brother.  
+> **²⁴** And his concubine, whose name *was* Reumah, she bare also Tebah, and Gaham, and Thahash, and Maachah.  
 
 This is recorded here, 1. To show that though Abraham saw his own family highly dignified with peculiar privileges, admitted into covenant, and blessed with the entail of the promise, yet he did not look with contempt and disdain upon his relations, but was glad to hear of the increase and prosperity of their families. 2. To make way for the following story of the marriage of Isaac to Rebekah, a daughter of this family.
 

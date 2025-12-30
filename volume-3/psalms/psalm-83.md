@@ -10,14 +10,14 @@ This psalm is the last of those that go under the name of Asaph. It is penned, a
 
 A song *or* psalm of Asaph.
 
-> <sup>1</sup> Keep not thou silence, O God: hold not thy peace, and be not still, O God.  
-> <sup>2</sup> For, lo, thine enemies make a tumult: and they that hate thee have lifted up the head.  
-> <sup>3</sup> They have taken crafty counsel against thy people, and consulted against thy hidden ones.  
-> <sup>4</sup> They have said, Come, and let us cut them off from *being* a nation; that the name of Israel may be no more in remembrance.  
-> <sup>5</sup> For they have consulted together with one consent: they are confederate against thee:  
-> <sup>6</sup> The tabernacles of Edom, and the Ishmaelites; of Moab, and the Hagarenes;  
-> <sup>7</sup> Gebal, and Ammon, and Amalek; the Philistines with the inhabitants of Tyre;  
-> <sup>8</sup> Assur also is joined with them: they have holpen the children of Lot. Selah.  
+> **¹** Keep not thou silence, O God: hold not thy peace, and be not still, O God.  
+> **²** For, lo, thine enemies make a tumult: and they that hate thee have lifted up the head.  
+> **³** They have taken crafty counsel against thy people, and consulted against thy hidden ones.  
+> **⁴** They have said, Come, and let us cut them off from *being* a nation; that the name of Israel may be no more in remembrance.  
+> **⁵** For they have consulted together with one consent: they are confederate against thee:  
+> **⁶** The tabernacles of Edom, and the Ishmaelites; of Moab, and the Hagarenes;  
+> **⁷** Gebal, and Ammon, and Amalek; the Philistines with the inhabitants of Tyre;  
+> **⁸** Assur also is joined with them: they have holpen the children of Lot. Selah.  
 
 The Israel of God were now in danger, and fear, and great distress, and yet their prayer is called, *A song or psalm;* for singing psalms is not unseasonable, no, not when the harps are hung upon the willow-trees.
 
@@ -35,16 +35,16 @@ II\. He here gives an account of the grand alliance of the neighbouring nations 
 
 ## Prophetic Imprecations.
 
-> <sup>9</sup> Do unto them as *unto* the Midianites; as *to* Sisera, as *to* Jabin, at the brook of Kison:  
-> <sup>10</sup> *Which* perished at Endor: they became *as* dung for the earth.  
-> <sup>11</sup> Make their nobles like Oreb, and like Zeeb: yea, all their princes as Zebah, and as Zalmunna:  
-> <sup>12</sup> Who said, Let us take to ourselves the houses of God in possession.  
-> <sup>13</sup> O my God, make them like a wheel; as the stubble before the wind.  
-> <sup>14</sup> As the fire burneth a wood, and as the flame setteth the mountains on fire;  
-> <sup>15</sup> So persecute them with thy tempest, and make them afraid with thy storm.  
-> <sup>16</sup> Fill their faces with shame; that they may seek thy name, O LORD.  
-> <sup>17</sup> Let them be confounded and troubled for ever; yea, let them be put to shame, and perish:  
-> <sup>18</sup> That *men* may know that thou, whose name alone *is* JEHOVAH, *art* the most high over all the earth.  
+> **⁹** Do unto them as *unto* the Midianites; as *to* Sisera, as *to* Jabin, at the brook of Kison:  
+> **¹⁰** *Which* perished at Endor: they became *as* dung for the earth.  
+> **¹¹** Make their nobles like Oreb, and like Zeeb: yea, all their princes as Zebah, and as Zalmunna:  
+> **¹²** Who said, Let us take to ourselves the houses of God in possession.  
+> **¹³** O my God, make them like a wheel; as the stubble before the wind.  
+> **¹⁴** As the fire burneth a wood, and as the flame setteth the mountains on fire;  
+> **¹⁵** So persecute them with thy tempest, and make them afraid with thy storm.  
+> **¹⁶** Fill their faces with shame; that they may seek thy name, O LORD.  
+> **¹⁷** Let them be confounded and troubled for ever; yea, let them be put to shame, and perish:  
+> **¹⁸** That *men* may know that thou, whose name alone *is* JEHOVAH, *art* the most high over all the earth.  
 
 The psalmist here, in the name of the church, prays for the destruction of those confederate forces, and, in God's name, foretels it; for this prayer that it might be so amounts to a prophecy that it shall be so, and this prophecy reaches to all the enemies of the gospel-church; whoever they be that oppose the kingdom of Christ, here they may read their doom. The prayer is, in short, that these enemies, who were confederate against Israel, might be defeated in all their attempts, and that they might prove their own ruin, and so God's Israel might be preserved and perpetuated. Now this is here illustrated,
 

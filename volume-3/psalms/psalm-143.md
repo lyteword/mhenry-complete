@@ -10,12 +10,12 @@ This psalm, as those before, is a prayer of David, and full of complaints of the
 
 A psalm of David.
 
-> <sup>1</sup> Hear my prayer, O LORD, give ear to my supplications: in thy faithfulness answer me, *and* in thy righteousness.  
-> <sup>2</sup> And enter not into judgment with thy servant: for in thy sight shall no man living be justified.  
-> <sup>3</sup> For the enemy hath persecuted my soul; he hath smitten my life down to the ground; he hath made me to dwell in darkness, as those that have been long dead.  
-> <sup>4</sup> Therefore is my spirit overwhelmed within me; my heart within me is desolate.  
-> <sup>5</sup> I remember the days of old; I meditate on all thy works; I muse on the work of thy hands.  
-> <sup>6</sup> I stretch forth my hands unto thee: my soul *thirsteth* after thee, as a thirsty land. Selah.  
+> **¹** Hear my prayer, O LORD, give ear to my supplications: in thy faithfulness answer me, *and* in thy righteousness.  
+> **²** And enter not into judgment with thy servant: for in thy sight shall no man living be justified.  
+> **³** For the enemy hath persecuted my soul; he hath smitten my life down to the ground; he hath made me to dwell in darkness, as those that have been long dead.  
+> **⁴** Therefore is my spirit overwhelmed within me; my heart within me is desolate.  
+> **⁵** I remember the days of old; I meditate on all thy works; I muse on the work of thy hands.  
+> **⁶** I stretch forth my hands unto thee: my soul *thirsteth* after thee, as a thirsty land. Selah.  
 
 Here, I. David humbly begs to be heard (Ps 143:1), not as if he questioned it, but he earnestly desired it, and was in care about it, for, having desired it, and was in care about it, for having directed his prayer, he looked up to see how it sped, Hab 2:1. He is a suppliant to his God, and he begs that his requests may be granted: *Hear my prayer; give ear to my supplications.* He is an appellant against his persecutors, and he begs that his case may be brought to hearing and that God will give judgment upon it, in his faithfulness and righteousness, as the Judge of right and wrong. Or, "Answer my petitions in thy faithfulness, according to the promises thou hast made, which thou wilt be just to." We have no righteousness of our own to plead, and therefore must plead God's righteousness, the word of promise which he has freely given us and caused us to hope in.
 
@@ -29,12 +29,12 @@ V\. He applies himself to the use of proper means for the relief of his troubled
 
 ## Prayers for Divine Grace.
 
-> <sup>7</sup> Hear me speedily, O LORD: my spirit faileth: hide not thy face from me, lest I be like unto them that go down into the pit.  
-> <sup>8</sup> Cause me to hear thy lovingkindness in the morning; for in thee do I trust: cause me to know the way wherein I should walk; for I lift up my soul unto thee.  
-> <sup>9</sup> Deliver me, O LORD, from mine enemies: I flee unto thee to hide me.  
-> <sup>10</sup> Teach me to do thy will; for thou *art* my God: thy spirit *is* good; lead me into the land of uprightness.  
-> <sup>11</sup> Quicken me, O LORD, for thy name's sake: for thy righteousness' sake bring my soul out of trouble.  
-> <sup>12</sup> And of thy mercy cut off mine enemies, and destroy all them that afflict my soul: for I *am* thy servant.  
+> **⁷** Hear me speedily, O LORD: my spirit faileth: hide not thy face from me, lest I be like unto them that go down into the pit.  
+> **⁸** Cause me to hear thy lovingkindness in the morning; for in thee do I trust: cause me to know the way wherein I should walk; for I lift up my soul unto thee.  
+> **⁹** Deliver me, O LORD, from mine enemies: I flee unto thee to hide me.  
+> **¹⁰** Teach me to do thy will; for thou *art* my God: thy spirit *is* good; lead me into the land of uprightness.  
+> **¹¹** Quicken me, O LORD, for thy name's sake: for thy righteousness' sake bring my soul out of trouble.  
+> **¹²** And of thy mercy cut off mine enemies, and destroy all them that afflict my soul: for I *am* thy servant.  
 
 David here tells us what he said when he stretched forth his hands unto God; he begins not only as one in earnest, but as one in haste: "*Hear me speedily,* and defer no longer, for *my spirit faileth.* I am just ready to faint; reach the cordial—quickly, quickly, or I am gone." It was not a haste of unbelief, but of vehement desire and holy love. *Make haste, O God! to help me.* Three things David here prays for:—
 

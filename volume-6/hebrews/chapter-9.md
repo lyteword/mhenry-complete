@@ -8,13 +8,13 @@ The apostle, having declared the Old-Testament dispensation antiquated and vanis
 
 ## The Furniture of the Tabernacle. (a. d. 62.)
 
-> <sup>1</sup> Then verily the first *covenant* had also ordinances of divine service, and a worldly sanctuary.  
-> <sup>2</sup> For there was a tabernacle made; the first, wherein *was* the candlestick, and the table, and the showbread; which is called the sanctuary.  
-> <sup>3</sup> And after the second veil, the tabernacle which is called the Holiest of all;  
-> <sup>4</sup> Which had the golden censer, and the ark of the covenant overlaid round about with gold, wherein *was* the golden pot that had manna, and Aaron's rod that budded, and the tables of the covenant;  
-> <sup>5</sup> And over it the cherubims of glory shadowing the mercyseat; of which we cannot now speak particularly.  
-> <sup>6</sup> Now when these things were thus ordained, the priests went always into the first tabernacle, accomplishing the service *of God.*  
-> <sup>7</sup> But into the second *went* the high priest alone once every year, not without blood, which he offered for himself, and *for* the errors of the people:  
+> **¹** Then verily the first *covenant* had also ordinances of divine service, and a worldly sanctuary.  
+> **²** For there was a tabernacle made; the first, wherein *was* the candlestick, and the table, and the showbread; which is called the sanctuary.  
+> **³** And after the second veil, the tabernacle which is called the Holiest of all;  
+> **⁴** Which had the golden censer, and the ark of the covenant overlaid round about with gold, wherein *was* the golden pot that had manna, and Aaron's rod that budded, and the tables of the covenant;  
+> **⁵** And over it the cherubims of glory shadowing the mercyseat; of which we cannot now speak particularly.  
+> **⁶** Now when these things were thus ordained, the priests went always into the first tabernacle, accomplishing the service *of God.*  
+> **⁷** But into the second *went* the high priest alone once every year, not without blood, which he offered for himself, and *for* the errors of the people:  
 
 Here, I. The apostle gives an account of the tabernacle, that place of worship which God appointed to be pitched on earth; it is called *a worldly* sanctuary, wholly of this world, as to the materials of which it was built, and a building that must be taken down; it is called a worldly *sanctuary,* because it was the court and palace of the King of Israel. God was their King, and, as other kings, had his court or place of residence, and attendants, furniture, and provision, suitable thereto. This tabernacle (of which we have the model, Ex 25:1-27:21) was a moving temple, shadowing forth the unsettled state of the church militant, and the human nature of the Lord Jesus Christ, in whom the fullness of the Godhead dwelt bodily. Now of this tabernacle it is said that it was divided into two parts, called a first and a second tabernacle, an inner and an outer part, representing the two states of the church militant and triumphant, and the two natures of Christ, human and divine. We are also told what was placed in each part of the tabernacle.
 
@@ -30,13 +30,13 @@ II\. From the description of the place of worship in the Old-Testament dispensat
 
 ## The Priesthood of Christ. (a. d. 62.)
 
-> <sup>8</sup> The Holy Ghost this signifying, that the way into the holiest of all was not yet made manifest, while as the first tabernacle was yet standing:  
-> <sup>9</sup> Which *was* a figure for the time then present, in which were offered both gifts and sacrifices, that could not make him that did the service perfect, as pertaining to the conscience;  
-> <sup>10</sup> *Which stood* only in meats and drinks, and divers washings, and carnal ordinances, imposed *on them* until the time of reformation.  
-> <sup>11</sup> But Christ being come a high priest of good things to come, by a greater and more perfect tabernacle, not made with hands, that is to say, not of this building;  
-> <sup>12</sup> Neither by the blood of goats and calves, but by his own blood he entered in once into the holy place, having obtained eternal redemption *for us.*  
-> <sup>13</sup> For if the blood of bulls and of goats, and the ashes of an heifer sprinkling the unclean, sanctifieth to the purifying of the flesh:  
-> <sup>14</sup> How much more shall the blood of Christ, who through the eternal Spirit offered himself without spot to God, purge your conscience from dead works to serve the living God?  
+> **⁸** The Holy Ghost this signifying, that the way into the holiest of all was not yet made manifest, while as the first tabernacle was yet standing:  
+> **⁹** Which *was* a figure for the time then present, in which were offered both gifts and sacrifices, that could not make him that did the service perfect, as pertaining to the conscience;  
+> **¹⁰** *Which stood* only in meats and drinks, and divers washings, and carnal ordinances, imposed *on them* until the time of reformation.  
+> **¹¹** But Christ being come a high priest of good things to come, by a greater and more perfect tabernacle, not made with hands, that is to say, not of this building;  
+> **¹²** Neither by the blood of goats and calves, but by his own blood he entered in once into the holy place, having obtained eternal redemption *for us.*  
+> **¹³** For if the blood of bulls and of goats, and the ashes of an heifer sprinkling the unclean, sanctifieth to the purifying of the flesh:  
+> **¹⁴** How much more shall the blood of Christ, who through the eternal Spirit offered himself without spot to God, purge your conscience from dead works to serve the living God?  
 
 In these verses the apostle undertakes to deliver to us the mind and meaning of the Holy Ghost in all the ordinances of the tabernacle and legal economy, comprehending both place and worship. The scriptures of the Old Testament were given by inspiration of God; holy men of old spoke and wrote as the Holy Ghost directed them. And these Old-Testament records are of great use and significancy, not only to those who first received them, but even to Christians, who ought not to satisfy themselves with reading the institutes of the Levitical law, but should learn what the Holy Ghost signifies and suggests to them thereby. Now here are several things mentioned as the things that the Holy Ghost signified and certified to his people hereby.
 
@@ -62,14 +62,14 @@ V\. The Holy Ghost signifies to us hereby that we never make the right use of ty
 
 ## The Priesthood of Christ. (a. d. 62.)
 
-> <sup>15</sup> And for this cause he is the mediator of the new testament, that by means of death, for the redemption of the transgressions *that were* under the first testament, they which are called might receive the promise of eternal inheritance.  
-> <sup>16</sup> For where a testament *is,* there must also of necessity be the death of the testator.  
-> <sup>17</sup> For a testament *is* of force after men are dead: otherwise it is of no strength at all while the testator liveth.  
-> <sup>18</sup> Whereupon neither the first *testament* was dedicated without blood.  
-> <sup>19</sup> For when Moses had spoken every precept to all the people according to the law, he took the blood of calves and of goats, with water, and scarlet wool, and hyssop, and sprinkled both the book, and all the people,  
-> <sup>20</sup> Saying, This *is* the blood of the testament which God hath enjoined unto you.  
-> <sup>21</sup> Moreover he sprinkled with blood both the tabernacle, and all the vessels of the ministry.  
-> <sup>22</sup> And almost all things are by the law purged with blood; and without shedding of blood is no remission.  
+> **¹⁵** And for this cause he is the mediator of the new testament, that by means of death, for the redemption of the transgressions *that were* under the first testament, they which are called might receive the promise of eternal inheritance.  
+> **¹⁶** For where a testament *is,* there must also of necessity be the death of the testator.  
+> **¹⁷** For a testament *is* of force after men are dead: otherwise it is of no strength at all while the testator liveth.  
+> **¹⁸** Whereupon neither the first *testament* was dedicated without blood.  
+> **¹⁹** For when Moses had spoken every precept to all the people according to the law, he took the blood of calves and of goats, with water, and scarlet wool, and hyssop, and sprinkled both the book, and all the people,  
+> **²⁰** Saying, This *is* the blood of the testament which God hath enjoined unto you.  
+> **²¹** Moreover he sprinkled with blood both the tabernacle, and all the vessels of the ministry.  
+> **²²** And almost all things are by the law purged with blood; and without shedding of blood is no remission.  
 
 In these verses the apostle considers the gospel under the notion of a will or testament, the new or last will and testament of Christ, and shows the necessity and efficacy of the blood of Christ to make this testament valid and effectual.
 
@@ -79,12 +79,12 @@ II\. To make this New Testament effectual, it was necessary that Christ should d
 
 ## The Priesthood of Christ; The Second Coming of Christ. (a. d. 62.)
 
-> <sup>23</sup> *It was* therefore necessary that the patterns of things in the heavens should be purified with these; but the heavenly things themselves with better sacrifices than these.  
-> <sup>24</sup> For Christ is not entered into the holy places made with hands, *which are* the figures of the true; but into heaven itself, now to appear in the presence of God for us:  
-> <sup>25</sup> Nor yet that he should offer himself often, as the high priest entereth into the holy place every year with blood of others;  
-> <sup>26</sup> For then must he often have suffered since the foundation of the world: but now once in the end of the world hath he appeared to put away sin by the sacrifice of himself.  
-> <sup>27</sup> And as it is appointed unto men once to die, but after this the judgment:  
-> <sup>28</sup> So Christ was once offered to bear the sins of many; and unto them that look for him shall he appear the second time without sin unto salvation.  
+> **²³** *It was* therefore necessary that the patterns of things in the heavens should be purified with these; but the heavenly things themselves with better sacrifices than these.  
+> **²⁴** For Christ is not entered into the holy places made with hands, *which are* the figures of the true; but into heaven itself, now to appear in the presence of God for us:  
+> **²⁵** Nor yet that he should offer himself often, as the high priest entereth into the holy place every year with blood of others;  
+> **²⁶** For then must he often have suffered since the foundation of the world: but now once in the end of the world hath he appeared to put away sin by the sacrifice of himself.  
+> **²⁷** And as it is appointed unto men once to die, but after this the judgment:  
+> **²⁸** So Christ was once offered to bear the sins of many; and unto them that look for him shall he appear the second time without sin unto salvation.  
 
 In this last part of the chapter, the apostle goes on to tell us what the Holy Ghost has signified to us by the legal purifications of the patterns of the things in heaven, inferring thence the necessity of better sacrifices to consecrate the heavenly things themselves.
 

@@ -8,11 +8,11 @@ Eliphaz, in the foregoing chapter, for the making good of his charge against Job
 
 ## The Address of Eliphaz. (b. c. 1520.)
 
-> <sup>1</sup> Call now, if there be any that will answer thee; and to which of the saints wilt thou turn?  
-> <sup>2</sup> For wrath killeth the foolish man, and envy slayeth the silly one.  
-> <sup>3</sup> I have seen the foolish taking root: but suddenly I cursed his habitation.  
-> <sup>4</sup> His children are far from safety, and they are crushed in the gate, neither *is there* any to deliver *them.*  
-> <sup>5</sup> Whose harvest the hungry eateth up, and taketh it even out of the thorns, and the robber swalloweth up their substance.  
+> **¹** Call now, if there be any that will answer thee; and to which of the saints wilt thou turn?  
+> **²** For wrath killeth the foolish man, and envy slayeth the silly one.  
+> **³** I have seen the foolish taking root: but suddenly I cursed his habitation.  
+> **⁴** His children are far from safety, and they are crushed in the gate, neither *is there* any to deliver *them.*  
+> **⁵** Whose harvest the hungry eateth up, and taketh it even out of the thorns, and the robber swalloweth up their substance.  
 
 A very warm dispute being begun between Job and his friends, Eliphaz here makes a fair motion to put the matter to a reference. In all debates perhaps the sooner this is done the better if the contenders cannot end it between themselves. So well assured is Eliphaz of the goodness of his own cause that he moves Job himself to choose the arbitrators (Job 5:1): *Call now, if there be any that will answer thee;* that is, 1. "If there be any that suffer as thou sufferest. Canst thou produce an instance of any one that was really a saint that was reduced to such an extremity as thou art now reduced to? God never dealt with any that love his name as he deals with thee, and therefore surely thou art none of them." 2. "If there be any that say as thou sayest. Did ever any good man curse his day as thou dost? Or will any of the saints justify thee in these heats or passions, or say that these are the spots of God's children? Thou wilt find none of the saints that will be either thy advocates or my antagonists. *To which of the saints wilt thou turn?* Turn to which thou wilt, and thou wilt find they are all of my mind. I have the *communis sensus fidelium—the unanimous vote of the faithful* on my side; they will all subscribe to what I am going to say." Observe, (1.) Good people are called *saints* even in the Old Testament; and therefore I know not why we should, in common speaking (unless because we must *loqui cum vulgo—speak as our neighbours*), appropriate the title to those of the New Testament, and not say St. Abraham, St. Moses, and St. Isaiah, as well as St. Matthew and St. Mark; and St. David the psalmist, as well as St. David the British bishop. Aaron is expressly called *the saint of the Lord.* (2.) All that are themselves saints will turn to those that are so, will choose them for their friends and converse with them, will choose them for their judges and consult them. See Ps 119:79. The saints shall *judge the world,* 1Co 6:1,2. *Walk in the way of good men* (Pr 2:20), *the old way, the footsteps of the flock.* Every one chooses some sort of people or other to whom he studies to recommend himself, and whose sentiments are to him the test of honour and dishonour. Now all true saints endeavour to recommend themselves to those that are such, and to stand right in their opinion. (3.) There are some truths so plain, and so universally known and believed, that one may venture to appeal to any of the saints concerning them. However there are some things about which they unhappily differ, there are many more, and more considerable, in which they are agreed; as the evil of sin, the vanity of the world, the worth of the soul, the necessity of a holy life, and the like. Though they do not all live up, as they should, to their belief of these truths, yet they are all ready to bear their testimony to them.
 
@@ -22,17 +22,17 @@ I\. That the sin of sinners directly tends to their own ruin (Job 5:2): *Wrath k
 
 II\. That their prosperity is short and their destruction certain, Job 5:3-5. He seems here to parallel Job's case with that which is commonly the case of wicked people. 1. Job had prospered for a time, seemed confirmed, and was secure in his prosperity; and it is common for foolish wicked men to do so: *I have seen them taking root*—planted, and, in their own and others' apprehension, fixed, and likely to continue. See Jer 12:2, Ps 37:35,36. We see worldly men taking root in the earth; on earthly things they fix the standing of their hopes, and from them they draw the sap of their comforts. The outward estate may be flourishing, but the soul cannot prosper that takes root in the earth. 2. Job's prosperity was now at an end, and so has the prosperity of other wicked people quickly been. (1.) Eliphaz foresaw their ruin with an eye of faith. Those who looked only at present things blessed their habitation, and thought them happy, blessed it long, and wished themselves in their condition. But Eliphaz cursed it, suddenly cursed it, as soon as he saw them begin to take root, that is, he plainly foresaw and foretold their ruin; not that he prayed for it (*I have not desired the woeful day*), but he prognosticated it. *He went into the sanctuary,* and there *understood their end* and heard their doom read (Ps 73:17,18), that the *prosperity of fools will destroy them,* Pr 1:32. Those who believe the word of God can see a *curse in the house of the wicked* (Pr 3:33), though it be ever so finely and firmly built, and ever so full of all good things; and they can foresee that the curse will, in time, infallibly consume it with the timber thereof, and the stones thereof, Zec 5:4. (2.) He saw, at length, what he had foreseen. He was not disappointed in his expectation concerning him; the event answered it; his family was undone, and his estate ruined. In these particulars he plainly and very invidiously reflects on Job's calamities. [1.] His children were crushed, Job 5:4. They thought themselves safe in their eldest brother's house, but were *far from safety,* for they were *crushed in the gate.* Perhaps the door or gate of the house was highest built, and fell heaviest upon them, *and there was none to deliver them* from perishing in the ruins. This is commonly understood of the destruction of the families of wicked men, by the execution of justice upon them, to oblige them to restore what they have ill-gotten. They leave it to their children; but the descent shall not bar the entry of the rightful owners, who will crush their children, and cast them by due course of law (and there shall be none to help them), or perhaps by oppression, Ps 109:9,10, etc. [2.] His estate was plundered, Job 5:5. Job's was so. The hungry robbers, the Sabeans and Chaldeans, ran away with it, and swallowed it; and this, says he, I have often observed in others. What has been got by spoil and rapine has been lost in the same way. The careful owner hedged it about with thorns, and then thought it safe; but the fence proved insignificant against the greediness of the spoilers (if hunger will break through the stone walls, much more through thorn hedges), and against the divine curse, which will go through the thorns and briers, and *burn them together,* Isa 27:4.
 
-> <sup>6</sup> Although affliction cometh not forth of the dust, neither doth trouble spring out of the ground;  
-> <sup>7</sup> Yet man is born unto trouble, as the sparks fly upward.  
-> <sup>8</sup> I would seek unto God, and unto God would I commit my cause:  
-> <sup>9</sup> Which doeth great things and unsearchable; marvellous things without number:  
-> <sup>10</sup> Who giveth rain upon the earth, and sendeth waters upon the fields:  
-> <sup>11</sup> To set up on high those that be low; that those which mourn may be exalted to safety.  
-> <sup>12</sup> He disappointeth the devices of the crafty, so that their hands cannot perform *their* enterprise.  
-> <sup>13</sup> He taketh the wise in their own craftiness: and the counsel of the froward is carried headlong.  
-> <sup>14</sup> They meet with darkness in the daytime, and grope in the noonday as in the night.  
-> <sup>15</sup> But he saveth the poor from the sword, from their mouth, and from the hand of the mighty.  
-> <sup>16</sup> So the poor hath hope, and iniquity stoppeth her mouth.  
+> **⁶** Although affliction cometh not forth of the dust, neither doth trouble spring out of the ground;  
+> **⁷** Yet man is born unto trouble, as the sparks fly upward.  
+> **⁸** I would seek unto God, and unto God would I commit my cause:  
+> **⁹** Which doeth great things and unsearchable; marvellous things without number:  
+> **¹⁰** Who giveth rain upon the earth, and sendeth waters upon the fields:  
+> **¹¹** To set up on high those that be low; that those which mourn may be exalted to safety.  
+> **¹²** He disappointeth the devices of the crafty, so that their hands cannot perform *their* enterprise.  
+> **¹³** He taketh the wise in their own craftiness: and the counsel of the froward is carried headlong.  
+> **¹⁴** They meet with darkness in the daytime, and grope in the noonday as in the night.  
+> **¹⁵** But he saveth the poor from the sword, from their mouth, and from the hand of the mighty.  
+> **¹⁶** So the poor hath hope, and iniquity stoppeth her mouth.  
 
 Eliphaz, having touched Job in a very tender part, in mentioning both the loss of his estate and the death of his children as the just punishment of his sin, that he might not drive him to despair, here begins to encourage him, and puts him in a way to make himself easy. Now he very much changes his voice (Ga 4:20), and speaks in the accents of kindness, as if he would atone for the hard words he had given him.
 
@@ -56,17 +56,17 @@ IV\. He encourages him thus to seek to God, and commit his cause to him. It will
 
 [2.] How he favours the cause of the poor and humble, and espouses that. *First,* He exalts the humble, Job 5:11. Those whom proud men contrive to crush he raises from under their feet, and sets them in safety, Ps 12:5. The lowly in heart, and those that mourn, he advances, comforts, and makes to *dwell on high,* in the *munitions of rocks,* Isa 33:16. Sion's mourners are the sealed ones, marked for safety, Eze 9:4. *Secondly,* He delivers the oppressed, Job 5:15. The designs of the crafty are to ruin the poor. Tongue, and hand, and sword, and all, are at work in order to this; but God takes under his special protection those who, being poor and unable to help themselves, being his poor and devoted to his praise, have committed themselves to him. He saves them from the mouth that speaks hard things against them and the hand that does hard things against them; for he can, when he pleases, tie the tongue and wither the hand. The effect of this is (Job 5:16), 1. That weak and timorous saints are comforted: *So the poor,* who began to despair, *has hope.* The experiences of some are encouragement to others to hope the best in the worst of times; for it is the glory of God to send help to the helpless and hope to the hopeless. 2. That daring threatening sinners are confounded: *Iniquity stops her mouth,* being surprised at the strangeness of the deliverance, ashamed of its enmity against those who appear to be the favourites of Heaven, mortified at the disappointment, and compelled to acknowledge the justice of God's proceedings, having nothing to object against them. Those that domineered over God's poor, that frightened them, menaced them, and falsely accused them, will not have a word to say against them when God appears for them. See Ps 76:8,9, Isa 26:11, Mic 7:16.
 
-> <sup>17</sup> Behold, happy *is* the man whom God correcteth: therefore despise not thou the chastening of the Almighty:  
-> <sup>18</sup> For he maketh sore, and bindeth up: he woundeth, and his hands make whole.  
-> <sup>19</sup> He shall deliver thee in six troubles: yea, in seven there shall no evil touch thee.  
-> <sup>20</sup> In famine he shall redeem thee from death: and in war from the power of the sword.  
-> <sup>21</sup> Thou shalt be hid from the scourge of the tongue: neither shalt thou be afraid of destruction when it cometh.  
-> <sup>22</sup> At destruction and famine thou shalt laugh: neither shalt thou be afraid of the beasts of the earth.  
-> <sup>23</sup> For thou shalt be in league with the stones of the field: and the beasts of the field shall be at peace with thee.  
-> <sup>24</sup> And thou shalt know that thy tabernacle *shall be* in peace; and thou shalt visit thy habitation, and shalt not sin.  
-> <sup>25</sup> Thou shalt know also that thy seed *shall be* great, and thine offspring as the grass of the earth.  
-> <sup>26</sup> Thou shalt come to *thy* grave in a full age, like as a shock of corn cometh in in his season.  
-> <sup>27</sup> Lo this, we have searched it, so it *is;* hear it, and know thou *it* for thy good.  
+> **¹⁷** Behold, happy *is* the man whom God correcteth: therefore despise not thou the chastening of the Almighty:  
+> **¹⁸** For he maketh sore, and bindeth up: he woundeth, and his hands make whole.  
+> **¹⁹** He shall deliver thee in six troubles: yea, in seven there shall no evil touch thee.  
+> **²⁰** In famine he shall redeem thee from death: and in war from the power of the sword.  
+> **²¹** Thou shalt be hid from the scourge of the tongue: neither shalt thou be afraid of destruction when it cometh.  
+> **²²** At destruction and famine thou shalt laugh: neither shalt thou be afraid of the beasts of the earth.  
+> **²³** For thou shalt be in league with the stones of the field: and the beasts of the field shall be at peace with thee.  
+> **²⁴** And thou shalt know that thy tabernacle *shall be* in peace; and thou shalt visit thy habitation, and shalt not sin.  
+> **²⁵** Thou shalt know also that thy seed *shall be* great, and thine offspring as the grass of the earth.  
+> **²⁶** Thou shalt come to *thy* grave in a full age, like as a shock of corn cometh in in his season.  
+> **²⁷** Lo this, we have searched it, so it *is;* hear it, and know thou *it* for thy good.  
 
 Eliphaz, in this concluding paragraph of his discourse, gives Job (what he himself knew not how to take) a comfortable prospect of the issue of his afflictions, if he did but recover his temper and accommodate himself to them. Observe,
 

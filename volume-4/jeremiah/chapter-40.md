@@ -8,12 +8,12 @@ We have attended Jerusalem's funeral pile, and have taken our leave of the capti
 
 ## The Preservation of Jeremiah; Jeremiah's Adherence to Gedaliah. (b. c. 588.)
 
-> <sup>1</sup> The word that came to Jeremiah from the LORD, after that Nebuzar-adan the captain of the guard had let him go from Ramah, when he had taken him being bound in chains among all that were carried away captive of Jerusalem and Judah, which were carried away captive unto Babylon.  
-> <sup>2</sup> And the captain of the guard took Jeremiah, and said unto him, The LORD thy God hath pronounced this evil upon this place.  
-> <sup>3</sup> Now the LORD hath brought *it,* and done according as he hath said: because ye have sinned against the LORD, and have not obeyed his voice, therefore this thing is come upon you.  
-> <sup>4</sup> And now, behold, I loose thee this day from the chains which *were* upon thine hand. If it seem good unto thee to come with me into Babylon, come; and I will look well unto thee: but if it seem ill unto thee to come with me into Babylon, forbear: behold, all the land *is* before thee: whither it seemeth good and convenient for thee to go, thither go.  
-> <sup>5</sup> Now while he was not yet gone back, *he said,* Go back also to Gedaliah the son of Ahikam the son of Shaphan, whom the king of Babylon hath made governor over the cities of Judah, and dwell with him among the people: or go wheresoever it seemeth convenient unto thee to go. So the captain of the guard gave him victuals and a reward, and let him go.  
-> <sup>6</sup> Then went Jeremiah unto Gedaliah the son of Ahikam to Mizpah; and dwelt with him among the people that were left in the land.  
+> **¹** The word that came to Jeremiah from the LORD, after that Nebuzar-adan the captain of the guard had let him go from Ramah, when he had taken him being bound in chains among all that were carried away captive of Jerusalem and Judah, which were carried away captive unto Babylon.  
+> **²** And the captain of the guard took Jeremiah, and said unto him, The LORD thy God hath pronounced this evil upon this place.  
+> **³** Now the LORD hath brought *it,* and done according as he hath said: because ye have sinned against the LORD, and have not obeyed his voice, therefore this thing is come upon you.  
+> **⁴** And now, behold, I loose thee this day from the chains which *were* upon thine hand. If it seem good unto thee to come with me into Babylon, come; and I will look well unto thee: but if it seem ill unto thee to come with me into Babylon, forbear: behold, all the land *is* before thee: whither it seemeth good and convenient for thee to go, thither go.  
+> **⁵** Now while he was not yet gone back, *he said,* Go back also to Gedaliah the son of Ahikam the son of Shaphan, whom the king of Babylon hath made governor over the cities of Judah, and dwell with him among the people: or go wheresoever it seemeth convenient unto thee to go. So the captain of the guard gave him victuals and a reward, and let him go.  
+> **⁶** Then went Jeremiah unto Gedaliah the son of Ahikam to Mizpah; and dwelt with him among the people that were left in the land.  
 
 The title of this part of the book, which begins the chapter, seems misapplied (*The word which came to Jeremiah*), for here is nothing of prophecy in this chapter, but it is to be referred to Jer 42:7, where we have a message that God sent by Jeremiah to the captains and the people that remained. The story between is only to introduce that prophecy and show the occasion of it, that it may be the better understood, and Jeremiah, being himself concerned in the story, was the better able to give an account of it.
 
@@ -21,16 +21,16 @@ In these verses we have Jeremiah's adhering, by the advice of Nebuzar-adan, to G
 
 ## Gedaliah's Address to the People. (b. c. 588.)
 
-> <sup>7</sup> Now when all the captains of the forces which *were* in the fields, *even* they and their men, heard that the king of Babylon had made Gedaliah the son of Ahikam governor in the land, and had committed unto him men, and women, and children, and of the poor of the land, of them that were not carried away captive to Babylon;  
-> <sup>8</sup> Then they came to Gedaliah to Mizpah, even Ishmael the son of Nethaniah, and Johanan and Jonathan the sons of Kareah, and Seraiah the son of Tanhumeth, and the sons of Ephai the Netophathite, and Jezaniah the son of a Maachathite, they and their men.  
-> <sup>9</sup> And Gedaliah the son of Ahikam the son of Shaphan sware unto them and to their men, saying, Fear not to serve the Chaldeans: dwell in the land, and serve the king of Babylon, and it shall be well with you.  
-> <sup>10</sup> As for me, behold, I will dwell at Mizpah to serve the Chaldeans, which will come unto us: but ye, gather ye wine, and summer fruits, and oil, and put *them* in your vessels, and dwell in your cities that ye have taken.  
-> <sup>11</sup> Likewise when all the Jews that *were* in Moab, and among the Ammonites, and in Edom, and that *were* in all the countries, heard that the king of Babylon had left a remnant of Judah, and that he had set over them Gedaliah the son of Ahikam the son of Shaphan;  
-> <sup>12</sup> Even all the Jews returned out of all places whither they were driven, and came to the land of Judah, to Gedaliah, unto Mizpah, and gathered wine and summer fruits very much.  
-> <sup>13</sup> Moreover Johanan the son of Kareah, and all the captains of the forces that *were* in the fields, came to Gedaliah to Mizpah,  
-> <sup>14</sup> And said unto him, Dost thou certainly know that Baalis the king of the Ammonites hath sent Ishmael the son of Nethaniah to slay thee? But Gedaliah the son of Ahikam believed them not.  
-> <sup>15</sup> Then Johanan the son of Kareah spake to Gedaliah in Mizpah secretly, saying, Let me go, I pray thee, and I will slay Ishmael the son of Nethaniah, and no man shall know *it:* wherefore should he slay thee, that all the Jews which are gathered unto thee should be scattered, and the remnant in Judah perish?  
-> <sup>16</sup> But Gedaliah the son of Ahikam said unto Johanan the son of Kareah, Thou shalt not do this thing: for thou speakest falsely of Ishmael.  
+> **⁷** Now when all the captains of the forces which *were* in the fields, *even* they and their men, heard that the king of Babylon had made Gedaliah the son of Ahikam governor in the land, and had committed unto him men, and women, and children, and of the poor of the land, of them that were not carried away captive to Babylon;  
+> **⁸** Then they came to Gedaliah to Mizpah, even Ishmael the son of Nethaniah, and Johanan and Jonathan the sons of Kareah, and Seraiah the son of Tanhumeth, and the sons of Ephai the Netophathite, and Jezaniah the son of a Maachathite, they and their men.  
+> **⁹** And Gedaliah the son of Ahikam the son of Shaphan sware unto them and to their men, saying, Fear not to serve the Chaldeans: dwell in the land, and serve the king of Babylon, and it shall be well with you.  
+> **¹⁰** As for me, behold, I will dwell at Mizpah to serve the Chaldeans, which will come unto us: but ye, gather ye wine, and summer fruits, and oil, and put *them* in your vessels, and dwell in your cities that ye have taken.  
+> **¹¹** Likewise when all the Jews that *were* in Moab, and among the Ammonites, and in Edom, and that *were* in all the countries, heard that the king of Babylon had left a remnant of Judah, and that he had set over them Gedaliah the son of Ahikam the son of Shaphan;  
+> **¹²** Even all the Jews returned out of all places whither they were driven, and came to the land of Judah, to Gedaliah, unto Mizpah, and gathered wine and summer fruits very much.  
+> **¹³** Moreover Johanan the son of Kareah, and all the captains of the forces that *were* in the fields, came to Gedaliah to Mizpah,  
+> **¹⁴** And said unto him, Dost thou certainly know that Baalis the king of the Ammonites hath sent Ishmael the son of Nethaniah to slay thee? But Gedaliah the son of Ahikam believed them not.  
+> **¹⁵** Then Johanan the son of Kareah spake to Gedaliah in Mizpah secretly, saying, Let me go, I pray thee, and I will slay Ishmael the son of Nethaniah, and no man shall know *it:* wherefore should he slay thee, that all the Jews which are gathered unto thee should be scattered, and the remnant in Judah perish?  
+> **¹⁶** But Gedaliah the son of Ahikam said unto Johanan the son of Kareah, Thou shalt not do this thing: for thou speakest falsely of Ishmael.  
 
 We have in these verses,
 

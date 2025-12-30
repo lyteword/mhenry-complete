@@ -8,14 +8,14 @@ This chapter continues and concludes the history of the reign of Hezekiah. I. Th
 
 ## Sennacherib's Invasion; Hezekiah's Patient Confidence. (b. c. 713.)
 
-> <sup>1</sup> After these things, and the establishment thereof, Sennacherib king of Assyria came, and entered into Judah, and encamped against the fenced cities, and thought to win them for himself.  
-> <sup>2</sup> And when Hezekiah saw that Sennacherib was come, and that he was purposed to fight against Jerusalem,  
-> <sup>3</sup> He took counsel with his princes and his mighty men to stop the waters of the fountains which *were* without the city: and they did help him.  
-> <sup>4</sup> So there was gathered much people together, who stopped all the fountains, and the brook that ran through the midst of the land, saying, Why should the kings of Assyria come, and find much water?  
-> <sup>5</sup> Also he strengthened himself, and built up all the wall that was broken, and raised *it* up to the towers, and another wall without, and repaired Millo *in* the city of David, and made darts and shields in abundance.  
-> <sup>6</sup> And he set captains of war over the people, and gathered them together to him in the street of the gate of the city, and spake comfortably to them, saying,  
-> <sup>7</sup> Be strong and courageous, be not afraid nor dismayed for the king of Assyria, nor for all the multitude that *is* with him: for *there be* more with us than with him:  
-> <sup>8</sup> With him *is* an arm of flesh; but with us *is* the LORD our God to help us, and to fight our battles. And the people rested themselves upon the words of Hezekiah king of Judah.  
+> **¹** After these things, and the establishment thereof, Sennacherib king of Assyria came, and entered into Judah, and encamped against the fenced cities, and thought to win them for himself.  
+> **²** And when Hezekiah saw that Sennacherib was come, and that he was purposed to fight against Jerusalem,  
+> **³** He took counsel with his princes and his mighty men to stop the waters of the fountains which *were* without the city: and they did help him.  
+> **⁴** So there was gathered much people together, who stopped all the fountains, and the brook that ran through the midst of the land, saying, Why should the kings of Assyria come, and find much water?  
+> **⁵** Also he strengthened himself, and built up all the wall that was broken, and raised *it* up to the towers, and another wall without, and repaired Millo *in* the city of David, and made darts and shields in abundance.  
+> **⁶** And he set captains of war over the people, and gathered them together to him in the street of the gate of the city, and spake comfortably to them, saying,  
+> **⁷** Be strong and courageous, be not afraid nor dismayed for the king of Assyria, nor for all the multitude that *is* with him: for *there be* more with us than with him:  
+> **⁸** With him *is* an arm of flesh; but with us *is* the LORD our God to help us, and to fight our battles. And the people rested themselves upon the words of Hezekiah king of Judah.  
 
 Here is, I. The formidable design of Sennacherib against Hezekiah's kingdom, and the vigorous attempt he made upon it. This Sennacherib was now, as Nebuchadnezzar was afterwards, the terror and scourge and great oppressor of that part of the world. He aimed to raise a boundless monarchy for himself upon the ruins of all his neighbours. His predecessor Shalmaneser had lately made himself master of the kingdom of Israel, and carried the ten tribes captives. Sennacherib thought, in like manner, to win Judah for himself. Pride and ambition put men upon grasping at universal dominion. It is observable that, just about this time, Rome, a city which afterwards came to reign more than any other had done *over the kings of the earth,* was built by Romulus. Sennacherib invaded Judah immediately after the reformation of it and the re-establishment of religion in it: *After these things he entered into Judah,* 2Ch 32:1. 1. It was well ordered by the divine Providence that he did not give them this disturbance before the reformation was finished and established, as it might then have put a stop to it. 2. Perhaps he intended to chastise Hezekiah for destroying that idolatry to which he himself was devoted. He looked upon Hezekiah as profane in what he had done, and as having thrown himself out of the divine protection. He accordingly considered him as one who might easily be made a prey of. 3. God ordered it at this time that he might have an opportunity of showing himself strong on the behalf of this returning reforming people. He brought this trouble upon them that he might have the honour, and might put on them the honour, of their deliverance. *After these things, and the establishment thereof,* one would have expected to hear of nothing but perfect peace, and that none durst meddle with a people thus qualified for the divine favour; yet the next news we hear is that a threatening destroying army enters the country, and is ready to lay all waste. We may be in the way of our duty and yet meet with trouble and danger. God orders it so for the trial of our confidence in him and the manifestation of his care concerning us. The little opposition which Sennacherib met with in entering Judah induced him to imagine that all was his own. He thought to *win all the fenced cities* (2Ch 32:1), and purposed to *fight against Jerusalem,* 2Ch 32:2. See 2Ki 18:7,13.
 
@@ -25,21 +25,21 @@ III\. The encouragement which he gave to his people to depend upon God in this d
 
 ## The Destruction of the Assyrians. (b. c. 713.)
 
-> <sup>9</sup> After this did Sennacherib king of Assyria send his servants to Jerusalem, (but he *himself laid siege* against Lachish, and all his power with him,) unto Hezekiah king of Judah, and unto all Judah that *were* at Jerusalem, saying,  
-> <sup>10</sup> Thus saith Sennacherib king of Assyria, Whereon do ye trust, that ye abide in the siege in Jerusalem?  
-> <sup>11</sup> Doth not Hezekiah persuade you to give over yourselves to die by famine and by thirst, saying, The LORD our God shall deliver us out of the hand of the king of Assyria?  
-> <sup>12</sup> Hath not the same Hezekiah taken away his high places and his altars, and commanded Judah and Jerusalem, saying, Ye shall worship before one altar, and burn incense upon it?  
-> <sup>13</sup> Know ye not what I and my fathers have done unto all the people of *other* lands? were the gods of the nations of those lands any ways able to deliver their lands out of mine hand?  
-> <sup>14</sup> Who *was there* among all the gods of those nations that my fathers utterly destroyed, that could deliver his people out of mine hand, that your God should be able to deliver you out of mine hand?  
-> <sup>15</sup> Now therefore let not Hezekiah deceive you, nor persuade you on this manner, neither yet believe him: for no god of any nation or kingdom was able to deliver his people out of mine hand, and out of the hand of my fathers: how much less shall your God deliver you out of mine hand?  
-> <sup>16</sup> And his servants spake yet *more* against the LORD God, and against his servant Hezekiah.  
-> <sup>17</sup> He wrote also letters to rail on the LORD God of Israel, and to speak against him, saying, As the gods of the nations of *other* lands have not delivered their people out of mine hand, so shall not the God of Hezekiah deliver his people out of mine hand.  
-> <sup>18</sup> Then they cried with a loud voice in the Jews' speech unto the people of Jerusalem that *were* on the wall, to affright them, and to trouble them; that they might take the city.  
-> <sup>19</sup> And they spake against the God of Jerusalem, as against the gods of the people of the earth, *which were* the work of the hands of man.  
-> <sup>20</sup> And for this *cause* Hezekiah the king, and the prophet Isaiah the son of Amoz, prayed and cried to heaven.  
-> <sup>21</sup> And the LORD sent an angel, which cut off all the mighty men of valour, and the leaders and captains in the camp of the king of Assyria. So he returned with shame of face to his own land. And when he was come into the house of his god, they that came forth of his own bowels slew him there with the sword.  
-> <sup>22</sup> Thus the LORD saved Hezekiah and the inhabitants of Jerusalem from the hand of Sennacherib the king of Assyria, and from the hand of all *other,* and guided them on every side.  
-> <sup>23</sup> And many brought gifts unto the LORD to Jerusalem, and presents to Hezekiah king of Judah: so that he was magnified in the sight of all nations from thenceforth.  
+> **⁹** After this did Sennacherib king of Assyria send his servants to Jerusalem, (but he *himself laid siege* against Lachish, and all his power with him,) unto Hezekiah king of Judah, and unto all Judah that *were* at Jerusalem, saying,  
+> **¹⁰** Thus saith Sennacherib king of Assyria, Whereon do ye trust, that ye abide in the siege in Jerusalem?  
+> **¹¹** Doth not Hezekiah persuade you to give over yourselves to die by famine and by thirst, saying, The LORD our God shall deliver us out of the hand of the king of Assyria?  
+> **¹²** Hath not the same Hezekiah taken away his high places and his altars, and commanded Judah and Jerusalem, saying, Ye shall worship before one altar, and burn incense upon it?  
+> **¹³** Know ye not what I and my fathers have done unto all the people of *other* lands? were the gods of the nations of those lands any ways able to deliver their lands out of mine hand?  
+> **¹⁴** Who *was there* among all the gods of those nations that my fathers utterly destroyed, that could deliver his people out of mine hand, that your God should be able to deliver you out of mine hand?  
+> **¹⁵** Now therefore let not Hezekiah deceive you, nor persuade you on this manner, neither yet believe him: for no god of any nation or kingdom was able to deliver his people out of mine hand, and out of the hand of my fathers: how much less shall your God deliver you out of mine hand?  
+> **¹⁶** And his servants spake yet *more* against the LORD God, and against his servant Hezekiah.  
+> **¹⁷** He wrote also letters to rail on the LORD God of Israel, and to speak against him, saying, As the gods of the nations of *other* lands have not delivered their people out of mine hand, so shall not the God of Hezekiah deliver his people out of mine hand.  
+> **¹⁸** Then they cried with a loud voice in the Jews' speech unto the people of Jerusalem that *were* on the wall, to affright them, and to trouble them; that they might take the city.  
+> **¹⁹** And they spake against the God of Jerusalem, as against the gods of the people of the earth, *which were* the work of the hands of man.  
+> **²⁰** And for this *cause* Hezekiah the king, and the prophet Isaiah the son of Amoz, prayed and cried to heaven.  
+> **²¹** And the LORD sent an angel, which cut off all the mighty men of valour, and the leaders and captains in the camp of the king of Assyria. So he returned with shame of face to his own land. And when he was come into the house of his god, they that came forth of his own bowels slew him there with the sword.  
+> **²²** Thus the LORD saved Hezekiah and the inhabitants of Jerusalem from the hand of Sennacherib the king of Assyria, and from the hand of all *other,* and guided them on every side.  
+> **²³** And many brought gifts unto the LORD to Jerusalem, and presents to Hezekiah king of Judah: so that he was magnified in the sight of all nations from thenceforth.  
 
 This story of the rage and blasphemy of Sennacherib, Hezekiah's prayer, and the deliverance of Jerusalem by the destruction of the Assyrian army, we had more at large in the book of Kings, 2Ki 18:1-19:37 It is contracted here, yet large enough to show these three things:—
 
@@ -55,16 +55,16 @@ III\. The power and goodness of the church's God. He is able both to control his
 
 ## The Death of Hezekiah. (b. c. 698.)
 
-> <sup>24</sup> In those days Hezekiah was sick to the death, and prayed unto the LORD: and he spake unto him, and he gave him a sign.  
-> <sup>25</sup> But Hezekiah rendered not again according to the benefit *done* unto him; for his heart was lifted up: therefore there was wrath upon him, and upon Judah and Jerusalem.  
-> <sup>26</sup> Notwithstanding Hezekiah humbled himself for the pride of his heart, *both* he and the inhabitants of Jerusalem, so that the wrath of the LORD came not upon them in the days of Hezekiah.  
-> <sup>27</sup> And Hezekiah had exceeding much riches and honour: and he made himself treasuries for silver, and for gold, and for precious stones, and for spices, and for shields, and for all manner of pleasant jewels;  
-> <sup>28</sup> Storehouses also for the increase of corn, and wine, and oil; and stalls for all manner of beasts, and cotes for flocks.  
-> <sup>29</sup> Moreover he provided him cities, and possessions of flocks and herds in abundance: for God had given him substance very much.  
-> <sup>30</sup> This same Hezekiah also stopped the upper watercourse of Gihon, and brought it straight down to the west side of the city of David. And Hezekiah prospered in all his works.  
-> <sup>31</sup> Howbeit in *the business of* the ambassadors of the princes of Babylon, who sent unto him to enquire of the wonder that was *done* in the land, God left him, to try him, that he might know all *that was* in his heart.  
-> <sup>32</sup> Now the rest of the acts of Hezekiah, and his goodness, behold, they *are* written in the vision of Isaiah the prophet, the son of Amoz, *and* in the book of the kings of Judah and Israel.  
-> <sup>33</sup> And Hezekiah slept with his fathers, and they buried him in the chiefest of the sepulchres of the sons of David: and all Judah and the inhabitants of Jerusalem did him honour at his death. And Manasseh his son reigned in his stead.  
+> **²⁴** In those days Hezekiah was sick to the death, and prayed unto the LORD: and he spake unto him, and he gave him a sign.  
+> **²⁵** But Hezekiah rendered not again according to the benefit *done* unto him; for his heart was lifted up: therefore there was wrath upon him, and upon Judah and Jerusalem.  
+> **²⁶** Notwithstanding Hezekiah humbled himself for the pride of his heart, *both* he and the inhabitants of Jerusalem, so that the wrath of the LORD came not upon them in the days of Hezekiah.  
+> **²⁷** And Hezekiah had exceeding much riches and honour: and he made himself treasuries for silver, and for gold, and for precious stones, and for spices, and for shields, and for all manner of pleasant jewels;  
+> **²⁸** Storehouses also for the increase of corn, and wine, and oil; and stalls for all manner of beasts, and cotes for flocks.  
+> **²⁹** Moreover he provided him cities, and possessions of flocks and herds in abundance: for God had given him substance very much.  
+> **³⁰** This same Hezekiah also stopped the upper watercourse of Gihon, and brought it straight down to the west side of the city of David. And Hezekiah prospered in all his works.  
+> **³¹** Howbeit in *the business of* the ambassadors of the princes of Babylon, who sent unto him to enquire of the wonder that was *done* in the land, God left him, to try him, that he might know all *that was* in his heart.  
+> **³²** Now the rest of the acts of Hezekiah, and his goodness, behold, they *are* written in the vision of Isaiah the prophet, the son of Amoz, *and* in the book of the kings of Judah and Israel.  
+> **³³** And Hezekiah slept with his fathers, and they buried him in the chiefest of the sepulchres of the sons of David: and all Judah and the inhabitants of Jerusalem did him honour at his death. And Manasseh his son reigned in his stead.  
 
 Here we conclude the story of Hezekiah with an account of three things concerning him:—
 

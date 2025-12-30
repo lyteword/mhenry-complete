@@ -8,14 +8,14 @@ Moses, as mediator between God and Israel, having received divers laws and ordin
 
 ## Israel's Acceptance of the Laws. (b. c. 1491.)
 
-> <sup>1</sup> And he said unto Moses, Come up unto the LORD, thou, and Aaron, Nadab, and Abihu, and seventy of the elders of Israel; and worship ye afar off.  
-> <sup>2</sup> And Moses alone shall come near the LORD: but they shall not come nigh; neither shall the people go up with him.  
-> <sup>3</sup> And Moses came and told the people all the words of the LORD, and all the judgments: and all the people answered with one voice, and said, All the words which the LORD hath said will we do.  
-> <sup>4</sup> And Moses wrote all the words of the LORD, and rose up early in the morning, and builded an altar under the hill, and twelve pillars, according to the twelve tribes of Israel.  
-> <sup>5</sup> And he sent young men of the children of Israel, which offered burnt offerings, and sacrificed peace offerings of oxen unto the LORD.  
-> <sup>6</sup> And Moses took half of the blood, and put *it* in basons; and half of the blood he sprinkled on the altar.  
-> <sup>7</sup> And he took the book of the covenant, and read in the audience of the people: and they said, All that the LORD hath said will we do, and be obedient.  
-> <sup>8</sup> And Moses took the blood, and sprinkled *it* on the people, and said, Behold the blood of the covenant, which the LORD hath made with you concerning all these words.  
+> **¹** And he said unto Moses, Come up unto the LORD, thou, and Aaron, Nadab, and Abihu, and seventy of the elders of Israel; and worship ye afar off.  
+> **²** And Moses alone shall come near the LORD: but they shall not come nigh; neither shall the people go up with him.  
+> **³** And Moses came and told the people all the words of the LORD, and all the judgments: and all the people answered with one voice, and said, All the words which the LORD hath said will we do.  
+> **⁴** And Moses wrote all the words of the LORD, and rose up early in the morning, and builded an altar under the hill, and twelve pillars, according to the twelve tribes of Israel.  
+> **⁵** And he sent young men of the children of Israel, which offered burnt offerings, and sacrificed peace offerings of oxen unto the LORD.  
+> **⁶** And Moses took half of the blood, and put *it* in basons; and half of the blood he sprinkled on the altar.  
+> **⁷** And he took the book of the covenant, and read in the audience of the people: and they said, All that the LORD hath said will we do, and be obedient.  
+> **⁸** And Moses took the blood, and sprinkled *it* on the people, and said, Behold the blood of the covenant, which the LORD hath made with you concerning all these words.  
 
 The first two verses record the appointment of a second session upon Mount Sinai, for the making of laws, when an end was put to the first. When a communion is begun between God and us, it shall never fail on his side, if it do not first fail on ours. Moses is directed to bring Aaron and his sons, and the seventy elders of Israel, that they might be witnesses of the glory of God, and that communion with him to which Moses was admitted; and that their testimony might confirm the people's faith. In this approach, 1. They must all be very reverent: *Worship you afar off,* Ex 24:1. Before they came near, they must worship. Thus we must enter into God's gates with humble and solemn adorations, draw near as those that know our distance, and admire the condescensions of God's grace in admitting us to draw near. Are great princes approached with the profound reverences of the body? And shall not the soul that draws near to God be bowed before him? 2. They must none of them come so near as Moses, Ex 24:2. They must come up to the Lord (and those that would approach to God must *ascend*), but Moses alone must come near, being therein a type of Christ, who, as the high priest, entered alone into the most holy place.
 
@@ -37,19 +37,19 @@ This is the tenour of the covenant, That, if they would observe the foregoing pr
 
 ## A Manifestation of God. (b. c. 1491.)
 
-> <sup>9</sup> Then went up Moses, and Aaron, Nadab, and Abihu, and seventy of the elders of Israel:  
-> <sup>10</sup> And they saw the God of Israel: and *there was* under his feet as it were a paved work of a sapphire stone, and as it were the body of heaven in *his* clearness.  
-> <sup>11</sup> And upon the nobles of the children of Israel he laid not his hand: also they saw God, and did eat and drink.  
+> **⁹** Then went up Moses, and Aaron, Nadab, and Abihu, and seventy of the elders of Israel:  
+> **¹⁰** And they saw the God of Israel: and *there was* under his feet as it were a paved work of a sapphire stone, and as it were the body of heaven in *his* clearness.  
+> **¹¹** And upon the nobles of the children of Israel he laid not his hand: also they saw God, and did eat and drink.  
 
 The people having, besides their submission to the ceremony of the sprinkling of blood, declared their well-pleasedness in their God and his law, again and again, God here gives to their representatives some special tokens of his favour to them (for God meets him that rejoices and works righteousness), and admits them nearer to him than they could have expected. Thus, in the New-Testament church, we find the *four living creatures,* and the *four and twenty elders,* honoured with places round the throne, being *redeemed unto God* by the *blood of the Lamb* which is *in the midst of the throne,* Re 4:4,6,5:8,9. Observe, 1. They saw the God of Israel (Ex 24:10), that is, they had some glimpse of his glory, in light and fire, though they saw *no manner of similitude,* and his being *no man hath seen nor can see,* 1Ti 6:16. They saw the place where the God of Israel stood (so the LXX.), something that came near a similitude, but was not; whatever they saw, it was certainly something of which no image nor picture could be made, and yet enough to satisfy them that God was with them of a truth. Nothing is described but that which was under his feet; for our conceptions of God are all below him, and fall infinitely short of being adequate. They saw not so much as God's feet; but at the bottom of the brightness, and as the footstool or pedestal of it, they saw a most rich and splendid pavement, such as they never saw before nor after, as it had been of sapphires, azure or sky-coloured. The heavens themselves are the pavement of God's palace, and his throne is above the firmament. See how much better wisdom is than the precious onyx or the sapphires, for wisdom was from eternity God's delight (Pr 8:30), and lay in his bosom, but the sapphires are the pavement under his feet; there let us put all the wealth of this world, and not in our hearts. 2. *Upon the nobles* (or elders) *of Israel, he laid not his hand,* Ex 24:11. Though they were men, the dazzling splendour of his glory did not overwhelm them; but it was so moderated (Job 26:9), and they were so strengthened (Da 10:19), that they were able to bear it. Nay, though they were sinful men, and obnoxious to God's justice, yet he did not lay his punishing avenging hand upon them, as they feared he would. When we consider what a consuming fire God is, and what stubble we are before him, we shall have reason to say, in all our approaches to him, *It is of the Lord's mercies that we are not consumed.* 3. *They saw God, and did eat and drink.* They had not only their lives preserved, but their vigour, courage, and comfort; it cast no damp upon their joy, but rather increased and elevated it. They *feasted upon the sacrifice,* before God, in token of their cheerful consent to the covenant now made, their grateful acceptance of the benefits of it, and their communion with God, in pursuance of that covenant. Thus believers *eat and drink with Christ at his table,* Lu 22:30. Blessed are those that shall eat bread in the kingdom of our Father, and drink of the wine new there.
 
-> <sup>12</sup> And the LORD said unto Moses, Come up to me into the mount, and be there: and I will give thee tables of stone, and a law, and commandments which I have written; that thou mayest teach them.  
-> <sup>13</sup> And Moses rose up, and his minister Joshua: and Moses went up into the mount of God.  
-> <sup>14</sup> And he said unto the elders, Tarry ye here for us, until we come again unto you: and, behold, Aaron and Hur *are* with you: if any man have any matters to do, let him come unto them.  
-> <sup>15</sup> And Moses went up into the mount, and a cloud covered the mount.  
-> <sup>16</sup> And the glory of the LORD abode upon Mount Sinai, and the cloud covered it six days: and the seventh day he called unto Moses out of the midst of the cloud.  
-> <sup>17</sup> And the sight of the glory of the LORD *was* like devouring fire on the top of the mount in the eyes of the children of Israel.  
-> <sup>18</sup> And Moses went into the midst of the cloud, and gat him up into the mount: and Moses was in the mount forty days and forty nights.  
+> **¹²** And the LORD said unto Moses, Come up to me into the mount, and be there: and I will give thee tables of stone, and a law, and commandments which I have written; that thou mayest teach them.  
+> **¹³** And Moses rose up, and his minister Joshua: and Moses went up into the mount of God.  
+> **¹⁴** And he said unto the elders, Tarry ye here for us, until we come again unto you: and, behold, Aaron and Hur *are* with you: if any man have any matters to do, let him come unto them.  
+> **¹⁵** And Moses went up into the mount, and a cloud covered the mount.  
+> **¹⁶** And the glory of the LORD abode upon Mount Sinai, and the cloud covered it six days: and the seventh day he called unto Moses out of the midst of the cloud.  
+> **¹⁷** And the sight of the glory of the LORD *was* like devouring fire on the top of the mount in the eyes of the children of Israel.  
+> **¹⁸** And Moses went into the midst of the cloud, and gat him up into the mount: and Moses was in the mount forty days and forty nights.  
 
 The public ceremony of sealing the covenant being over, Moses is called up to receive further instructions, which we have in the following chapters.
 

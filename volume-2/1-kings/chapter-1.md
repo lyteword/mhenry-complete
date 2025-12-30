@@ -8,21 +8,21 @@ In this chapter we have, I. David declining in his health, 1Ki 1:1-4. II. Adonij
 
 ## Introduction. (b. c. 1015.)
 
-> <sup>1</sup> Now king David was old *and* stricken in years; and they covered him with clothes, but he gat no heat.  
-> <sup>2</sup> Wherefore his servants said unto him, Let there be sought for my lord the king a young virgin: and let her stand before the king, and let her cherish him, and let her lie in thy bosom, that my lord the king may get heat.  
-> <sup>3</sup> So they sought for a fair damsel throughout all the coasts of Israel, and found Abishag a Shunammite, and brought her to the king.  
-> <sup>4</sup> And the damsel *was* very fair, and cherished the king, and ministered to him: but the king knew her not.  
+> **¹** Now king David was old *and* stricken in years; and they covered him with clothes, but he gat no heat.  
+> **²** Wherefore his servants said unto him, Let there be sought for my lord the king a young virgin: and let her stand before the king, and let her cherish him, and let her lie in thy bosom, that my lord the king may get heat.  
+> **³** So they sought for a fair damsel throughout all the coasts of Israel, and found Abishag a Shunammite, and brought her to the king.  
+> **⁴** And the damsel *was* very fair, and cherished the king, and ministered to him: but the king knew her not.  
 
 David, as recorded in the foregoing chapter, had, by the great mercy of God, escaped the sword of the destroying angel. But our deliverances from or through diseases and dangers are but reprieves; if the candle be not blown out, it will burn out of itself. We have David here sinking under the infirmities of old age, and brought by them to the gates of the grave. He that *cometh up out of the pit shall fall into the snare;* and, one way or other, *we must needs die.* 1. It would have troubled one to see David so infirm. He as old, and his natural heat so wasted that no clothes could keep him warm, 1Ki 1:1. David had been a valiant active man and a man of business, and very vehement had the flame always been in his breast; and yet now his blood is chilled and stagnated, he is confined to his bed, and there can get no heat. He was now seventy years old. Many, at that age, are as lively and fit for business as ever; but David was now chastised for his former sins, especially that in the matter of Uriah, and felt from his former toils and the hardships he had gone through in his youth, which then he made nothing of, but was now the worse for. *Let not the strong man glory in his strength,* which may soon be weakened by sickness, or at last will be weakened by old age. Let young people *remember their Creator in the days of their youth,* before these evil days come. What our hand finds to do for God, and our souls, and our generation, let us do with all our might, because the night comes, the night of old age, in which no man can work; and, when our strength has gone, it will be a comfort to remember that we used it well. 2. It would have troubled one to see his physicians so weak and unskilful that they knew no other way of relieving him than by outward applications. No cordials, no spirits, but, (1.) *They covered him with clothes,* which, where there is any inward heat, will keep it in, and so increase it; but, where it is not, they have none to communicate, no, not royal clothing. Elihu makes it a difficulty to understand *how our garments are warm upon us* (Job 37:17); but, if God deny his blessing, men *clothe themselves, and there is none warm* (Hag 1:6), David here was not. (2.) They foolishly prescribed nuptials to one that should rather have been preparing for his funeral (1Ki 1:2-4); but they knew what would gratify their own corruptions, and perhaps were too willing to gratify his, under colour of consulting his health. His prophets should have been consulted as well as his physicians in an affair of this nature. However, this might be excused then, when even good men ignorantly allowed themselves to have many wives. We now have not so learned of Christ, but are taught that one man must have but one wife (Mt 19:5), and further that *it is good for a man not to touch a woman,* 1Co 7:1. That Abishag was married to David before she lay with him, and was his secondary wife, appears from its being imputed as a great crime to Adonijah that he desired to marry her (1Ki 2:22) after his father's death.
 
 ## Adonijah's Ambition. (b. c. 1015.)
 
-> <sup>5</sup> Then Adonijah the son of Haggith exalted himself, saying, I will be king: and he prepared him chariots and horsemen, and fifty men to run before him.  
-> <sup>6</sup> And his father had not displeased him at any time in saying, Why hast thou done so? and he also *was a* very goodly *man;* and *his mother* bare him after Absalom.  
-> <sup>7</sup> And he conferred with Joab the son of Zeruiah, and with Abiathar the priest: and they following Adonijah helped *him.*  
-> <sup>8</sup> But Zadok the priest, and Benaiah the son of Jehoiada, and Nathan the prophet, and Shimei, and Rei, and the mighty men which *belonged* to David, were not with Adonijah.  
-> <sup>9</sup> And Adonijah slew sheep and oxen and fat cattle by the stone of Zoheleth, which *is* by En-rogel, and called all his brethren the king's sons, and all the men of Judah the king's servants:  
-> <sup>10</sup> But Nathan the prophet, and Benaiah, and the mighty men, and Solomon his brother, he called not.  
+> **⁵** Then Adonijah the son of Haggith exalted himself, saying, I will be king: and he prepared him chariots and horsemen, and fifty men to run before him.  
+> **⁶** And his father had not displeased him at any time in saying, Why hast thou done so? and he also *was a* very goodly *man;* and *his mother* bare him after Absalom.  
+> **⁷** And he conferred with Joab the son of Zeruiah, and with Abiathar the priest: and they following Adonijah helped *him.*  
+> **⁸** But Zadok the priest, and Benaiah the son of Jehoiada, and Nathan the prophet, and Shimei, and Rei, and the mighty men which *belonged* to David, were not with Adonijah.  
+> **⁹** And Adonijah slew sheep and oxen and fat cattle by the stone of Zoheleth, which *is* by En-rogel, and called all his brethren the king's sons, and all the men of Judah the king's servants:  
+> **¹⁰** But Nathan the prophet, and Benaiah, and the mighty men, and Solomon his brother, he called not.  
 
 David had much affliction in his children. Amnon and Absalom had both been his grief; the one his first-born, the other his third, 2Sa 3:2,3. His second, whom he had by Abigail, we will suppose he had comfort in; his fourth was Adonijah (2Sa 3:4); he was one of those that were born in Hebron; we have heard nothing of him till now, and here we are told that he was a comely person, and that he was next in age, and (as it proved) next in temper to Absalom, 1Ki 1:6. And, further, that in his father's eyes he had been a jewel, but was now a thorn.
 
@@ -32,27 +32,27 @@ II\. He, in return, made a fool of his father. Because he was old, and confined 
 
 ## David Makes Solomon King. (b. c. 1015.)
 
-> <sup>11</sup> Wherefore Nathan spake unto Bathsheba the mother of Solomon, saying, Hast thou not heard that Adonijah the son of Haggith doth reign, and David our lord knoweth *it* not?  
-> <sup>12</sup> Now therefore come, let me, I pray thee, give thee counsel, that thou mayest save thine own life, and the life of thy son Solomon.  
-> <sup>13</sup> Go and get thee in unto king David, and say unto him, Didst not thou, my lord, O king, swear unto thine handmaid, saying, Assuredly Solomon thy son shall reign after me, and he shall sit upon my throne? why then doth Adonijah reign?  
-> <sup>14</sup> Behold, while thou yet talkest there with the king, I also will come in after thee, and confirm thy words.  
-> <sup>15</sup> And Bathsheba went in unto the king into the chamber: and the king was very old; and Abishag the Shunammite ministered unto the king.  
-> <sup>16</sup> And Bathsheba bowed, and did obeisance unto the king. And the king said, What wouldest thou?  
-> <sup>17</sup> And she said unto him, My lord, thou swarest by the LORD thy God unto thine handmaid, *saying,* Assuredly Solomon thy son shall reign after me, and he shall sit upon my throne.  
-> <sup>18</sup> And now, behold, Adonijah reigneth; and now, my lord the king, thou knowest *it* not:  
-> <sup>19</sup> And he hath slain oxen and fat cattle and sheep in abundance, and hath called all the sons of the king, and Abiathar the priest, and Joab the captain of the host: but Solomon thy servant hath he not called.  
-> <sup>20</sup> And thou, my lord, O king, the eyes of all Israel *are* upon thee, that thou shouldest tell them who shall sit on the throne of my lord the king after him.  
-> <sup>21</sup> Otherwise it shall come to pass, when my lord the king shall sleep with his fathers, that I and my son Solomon shall be counted offenders.  
-> <sup>22</sup> And, lo, while she yet talked with the king, Nathan the prophet also came in.  
-> <sup>23</sup> And they told the king, saying, Behold Nathan the prophet. And when he was come in before the king, he bowed himself before the king with his face to the ground.  
-> <sup>24</sup> And Nathan said, My lord, O king, hast thou said, Adonijah shall reign after me, and he shall sit upon my throne?  
-> <sup>25</sup> For he is gone down this day, and hath slain oxen and fat cattle and sheep in abundance, and hath called all the king's sons, and the captains of the host, and Abiathar the priest; and, behold, they eat and drink before him, and say, God save king Adonijah.  
-> <sup>26</sup> But me, *even* me thy servant, and Zadok the priest, and Benaiah the son of Jehoiada, and thy servant Solomon, hath he not called.  
-> <sup>27</sup> Is this thing done by my lord the king, and thou hast not showed *it* unto thy servant, who should sit on the throne of my lord the king after him?  
-> <sup>28</sup> Then king David answered and said, Call me Bathsheba. And she came into the king's presence, and stood before the king.  
-> <sup>29</sup> And the king sware, and said, *As* the LORD liveth, that hath redeemed my soul out of all distress,  
-> <sup>30</sup> Even as I sware unto thee by the LORD God of Israel, saying, Assuredly Solomon thy son shall reign after me, and he shall sit upon my throne in my stead; even so will I certainly do this day.  
-> <sup>31</sup> Then Bathsheba bowed with *her* face to the earth, and did reverence to the king, and said, Let my lord king David live for ever.  
+> **¹¹** Wherefore Nathan spake unto Bathsheba the mother of Solomon, saying, Hast thou not heard that Adonijah the son of Haggith doth reign, and David our lord knoweth *it* not?  
+> **¹²** Now therefore come, let me, I pray thee, give thee counsel, that thou mayest save thine own life, and the life of thy son Solomon.  
+> **¹³** Go and get thee in unto king David, and say unto him, Didst not thou, my lord, O king, swear unto thine handmaid, saying, Assuredly Solomon thy son shall reign after me, and he shall sit upon my throne? why then doth Adonijah reign?  
+> **¹⁴** Behold, while thou yet talkest there with the king, I also will come in after thee, and confirm thy words.  
+> **¹⁵** And Bathsheba went in unto the king into the chamber: and the king was very old; and Abishag the Shunammite ministered unto the king.  
+> **¹⁶** And Bathsheba bowed, and did obeisance unto the king. And the king said, What wouldest thou?  
+> **¹⁷** And she said unto him, My lord, thou swarest by the LORD thy God unto thine handmaid, *saying,* Assuredly Solomon thy son shall reign after me, and he shall sit upon my throne.  
+> **¹⁸** And now, behold, Adonijah reigneth; and now, my lord the king, thou knowest *it* not:  
+> **¹⁹** And he hath slain oxen and fat cattle and sheep in abundance, and hath called all the sons of the king, and Abiathar the priest, and Joab the captain of the host: but Solomon thy servant hath he not called.  
+> **²⁰** And thou, my lord, O king, the eyes of all Israel *are* upon thee, that thou shouldest tell them who shall sit on the throne of my lord the king after him.  
+> **²¹** Otherwise it shall come to pass, when my lord the king shall sleep with his fathers, that I and my son Solomon shall be counted offenders.  
+> **²²** And, lo, while she yet talked with the king, Nathan the prophet also came in.  
+> **²³** And they told the king, saying, Behold Nathan the prophet. And when he was come in before the king, he bowed himself before the king with his face to the ground.  
+> **²⁴** And Nathan said, My lord, O king, hast thou said, Adonijah shall reign after me, and he shall sit upon my throne?  
+> **²⁵** For he is gone down this day, and hath slain oxen and fat cattle and sheep in abundance, and hath called all the king's sons, and the captains of the host, and Abiathar the priest; and, behold, they eat and drink before him, and say, God save king Adonijah.  
+> **²⁶** But me, *even* me thy servant, and Zadok the priest, and Benaiah the son of Jehoiada, and thy servant Solomon, hath he not called.  
+> **²⁷** Is this thing done by my lord the king, and thou hast not showed *it* unto thy servant, who should sit on the throne of my lord the king after him?  
+> **²⁸** Then king David answered and said, Call me Bathsheba. And she came into the king's presence, and stood before the king.  
+> **²⁹** And the king sware, and said, *As* the LORD liveth, that hath redeemed my soul out of all distress,  
+> **³⁰** Even as I sware unto thee by the LORD God of Israel, saying, Assuredly Solomon thy son shall reign after me, and he shall sit upon my throne in my stead; even so will I certainly do this day.  
+> **³¹** Then Bathsheba bowed with *her* face to the earth, and did reverence to the king, and said, Let my lord king David live for ever.  
 
 We have here the effectual endeavours that were used by Nathan and Bathsheba to obtain from David a ratification of Solomon's succession, for the crushing of Adonijah's usurpation. 1. David himself knew not what was doing. Disobedient children think that they are well enough off if they can but keep their good old parents ignorant of their bad courses; but a *bird of the air will carry the voice.* 2. Bathsheba lived retired, and knew nothing of it either, till Nathan informed her. Many get very comfortably through this world that know little how the world goes. 3. Solomon, it is likely, knew of it, but was as a deaf man that heard not. Though he had years, and wisdom above his years, yet we do not find that he stirred to oppose Adonijah, but quietly composed himself and left it to God and his friends to order the matter. Hence David, in his Psalm for Solomon, observes that while men, in pursuit of the world, in vain *rise early and sit up late, God giveth his beloved* (his *Jedidiahs*) *sleep,* in giving them to be easy, and to gain their point without agitation, Ps 127:1,2. How then is the design brought about?
 
@@ -68,15 +68,15 @@ V\. Bathsheba receives these assurances (1Ki 1:31), 1. With great complaisance t
 
 ## Solomon Declared Successor. (b. c. 1015.)
 
-> <sup>32</sup> And king David said, Call me Zadok the priest, and Nathan the prophet, and Benaiah the son of Jehoiada. And they came before the king.  
-> <sup>33</sup> The king also said unto them, Take with you the servants of your lord, and cause Solomon my son to ride upon mine own mule, and bring him down to Gihon:  
-> <sup>34</sup> And let Zadok the priest and Nathan the prophet anoint him there king over Israel: and blow ye with the trumpet, and say, God save king Solomon.  
-> <sup>35</sup> Then ye shall come up after him, that he may come and sit upon my throne; for he shall be king in my stead: and I have appointed him to be ruler over Israel and over Judah.  
-> <sup>36</sup> And Benaiah the son of Jehoiada answered the king, and said, Amen: the LORD God of my lord the king say so *too.*  
-> <sup>37</sup> As the LORD hath been with my lord the king, even so be he with Solomon, and make his throne greater than the throne of my lord king David.  
-> <sup>38</sup> So Zadok the priest, and Nathan the prophet, and Benaiah the son of Jehoiada, and the Cherethites, and the Pelethites, went down, and caused Solomon to ride upon king David's mule, and brought him to Gihon.  
-> <sup>39</sup> And Zadok the priest took a horn of oil out of the tabernacle, and anointed Solomon. And they blew the trumpet; and all the people said, God save king Solomon.  
-> <sup>40</sup> And all the people came up after him, and the people piped with pipes, and rejoiced with great joy, so that the earth rent with the sound of them.  
+> **³²** And king David said, Call me Zadok the priest, and Nathan the prophet, and Benaiah the son of Jehoiada. And they came before the king.  
+> **³³** The king also said unto them, Take with you the servants of your lord, and cause Solomon my son to ride upon mine own mule, and bring him down to Gihon:  
+> **³⁴** And let Zadok the priest and Nathan the prophet anoint him there king over Israel: and blow ye with the trumpet, and say, God save king Solomon.  
+> **³⁵** Then ye shall come up after him, that he may come and sit upon my throne; for he shall be king in my stead: and I have appointed him to be ruler over Israel and over Judah.  
+> **³⁶** And Benaiah the son of Jehoiada answered the king, and said, Amen: the LORD God of my lord the king say so *too.*  
+> **³⁷** As the LORD hath been with my lord the king, even so be he with Solomon, and make his throne greater than the throne of my lord king David.  
+> **³⁸** So Zadok the priest, and Nathan the prophet, and Benaiah the son of Jehoiada, and the Cherethites, and the Pelethites, went down, and caused Solomon to ride upon king David's mule, and brought him to Gihon.  
+> **³⁹** And Zadok the priest took a horn of oil out of the tabernacle, and anointed Solomon. And they blew the trumpet; and all the people said, God save king Solomon.  
+> **⁴⁰** And all the people came up after him, and the people piped with pipes, and rejoiced with great joy, so that the earth rent with the sound of them.  
 
 We have here the effectual care David took both to secure Solomon's right and to preserve the public peace, by crushing Adonijah's project in the bud. Observe,
 
@@ -88,19 +88,19 @@ III\. The immediate execution of these orders, 1Ki 1:38-40. No time was lost, bu
 
 ## Solomon Proclaimed. (b. c. 1015.)
 
-> <sup>41</sup> And Adonijah and all the guests that *were* with him heard *it* as they had made an end of eating. And when Joab heard the sound of the trumpet, he said, Wherefore *is this* noise of the city being in an uproar?  
-> <sup>42</sup> And while he yet spake, behold, Jonathan the son of Abiathar the priest came: and Adonijah said unto him, Come in; for thou *art* a valiant man, and bringest good tidings.  
-> <sup>43</sup> And Jonathan answered and said to Adonijah, Verily our lord king David hath made Solomon king.  
-> <sup>44</sup> And the king hath sent with him Zadok the priest, and Nathan the prophet, and Benaiah the son of Jehoiada, and the Cherethites, and the Pelethites, and they have caused him to ride upon the king's mule:  
-> <sup>45</sup> And Zadok the priest and Nathan the prophet have anointed him king in Gihon: and they are come up from thence rejoicing, so that the city rang again. This *is* the noise that ye have heard.  
-> <sup>46</sup> And also Solomon sitteth on the throne of the kingdom.  
-> <sup>47</sup> And moreover the king's servants came to bless our lord king David, saying, God make the name of Solomon better than thy name, and make his throne greater than thy throne. And the king bowed himself upon the bed.  
-> <sup>48</sup> And also thus said the king, Blessed *be* the LORD God of Israel, which hath given *one* to sit on my throne this day, mine eyes even seeing *it.*  
-> <sup>49</sup> And all the guests that *were* with Adonijah were afraid, and rose up, and went every man his way.  
-> <sup>50</sup> And Adonijah feared because of Solomon, and arose, and went, and caught hold on the horns of the altar.  
-> <sup>51</sup> And it was told Solomon, saying, Behold, Adonijah feareth king Solomon: for, lo, he hath caught hold on the horns of the altar, saying, Let king Solomon swear unto me to day that he will not slay his servant with the sword.  
-> <sup>52</sup> And Solomon said, If he will show himself a worthy man, there shall not a hair of him fall to the earth: but if wickedness shall be found in him, he shall die.  
-> <sup>53</sup> So king Solomon sent, and they brought him down from the altar. And he came and bowed himself to king Solomon: and Solomon said unto him, Go to thine house.  
+> **⁴¹** And Adonijah and all the guests that *were* with him heard *it* as they had made an end of eating. And when Joab heard the sound of the trumpet, he said, Wherefore *is this* noise of the city being in an uproar?  
+> **⁴²** And while he yet spake, behold, Jonathan the son of Abiathar the priest came: and Adonijah said unto him, Come in; for thou *art* a valiant man, and bringest good tidings.  
+> **⁴³** And Jonathan answered and said to Adonijah, Verily our lord king David hath made Solomon king.  
+> **⁴⁴** And the king hath sent with him Zadok the priest, and Nathan the prophet, and Benaiah the son of Jehoiada, and the Cherethites, and the Pelethites, and they have caused him to ride upon the king's mule:  
+> **⁴⁵** And Zadok the priest and Nathan the prophet have anointed him king in Gihon: and they are come up from thence rejoicing, so that the city rang again. This *is* the noise that ye have heard.  
+> **⁴⁶** And also Solomon sitteth on the throne of the kingdom.  
+> **⁴⁷** And moreover the king's servants came to bless our lord king David, saying, God make the name of Solomon better than thy name, and make his throne greater than thy throne. And the king bowed himself upon the bed.  
+> **⁴⁸** And also thus said the king, Blessed *be* the LORD God of Israel, which hath given *one* to sit on my throne this day, mine eyes even seeing *it.*  
+> **⁴⁹** And all the guests that *were* with Adonijah were afraid, and rose up, and went every man his way.  
+> **⁵⁰** And Adonijah feared because of Solomon, and arose, and went, and caught hold on the horns of the altar.  
+> **⁵¹** And it was told Solomon, saying, Behold, Adonijah feareth king Solomon: for, lo, he hath caught hold on the horns of the altar, saying, Let king Solomon swear unto me to day that he will not slay his servant with the sword.  
+> **⁵²** And Solomon said, If he will show himself a worthy man, there shall not a hair of him fall to the earth: but if wickedness shall be found in him, he shall die.  
+> **⁵³** So king Solomon sent, and they brought him down from the altar. And he came and bowed himself to king Solomon: and Solomon said unto him, Go to thine house.  
 
 We have here,
 

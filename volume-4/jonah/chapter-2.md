@@ -8,15 +8,15 @@ We left Jonah in the belly of the fish, and had reason to think we should hear n
 
 ## Jonah's Prayer; The Prophet in the Fish's Belly. (b. c. 840.)
 
-> <sup>1</sup> Then Jonah prayed unto the LORD his God out of the fish's belly,  
-> <sup>2</sup> And said, I cried by reason of mine affliction unto the LORD, and he heard me; out of the belly of hell cried I, *and* thou heardest my voice.  
-> <sup>3</sup> For thou hadst cast me into the deep, in the midst of the seas; and the floods compassed me about: all thy billows and thy waves passed over me.  
-> <sup>4</sup> Then I said, I am cast out of thy sight; yet I will look again toward thy holy temple.  
-> <sup>5</sup> The waters compassed me about, *even* to the soul: the depth closed me round about, the weeds were wrapped about my head.  
-> <sup>6</sup> I went down to the bottoms of the mountains; the earth with her bars *was* about me for ever: yet hast thou brought up my life from corruption, O LORD my God.  
-> <sup>7</sup> When my soul fainted within me I remembered the LORD: and my prayer came in unto thee, into thine holy temple.  
-> <sup>8</sup> They that observe lying vanities forsake their own mercy.  
-> <sup>9</sup> But I will sacrifice unto thee with the voice of thanksgiving; I will pay *that* that I have vowed. Salvation *is* of the LORD.  
+> **¹** Then Jonah prayed unto the LORD his God out of the fish's belly,  
+> **²** And said, I cried by reason of mine affliction unto the LORD, and he heard me; out of the belly of hell cried I, *and* thou heardest my voice.  
+> **³** For thou hadst cast me into the deep, in the midst of the seas; and the floods compassed me about: all thy billows and thy waves passed over me.  
+> **⁴** Then I said, I am cast out of thy sight; yet I will look again toward thy holy temple.  
+> **⁵** The waters compassed me about, *even* to the soul: the depth closed me round about, the weeds were wrapped about my head.  
+> **⁶** I went down to the bottoms of the mountains; the earth with her bars *was* about me for ever: yet hast thou brought up my life from corruption, O LORD my God.  
+> **⁷** When my soul fainted within me I remembered the LORD: and my prayer came in unto thee, into thine holy temple.  
+> **⁸** They that observe lying vanities forsake their own mercy.  
+> **⁹** But I will sacrifice unto thee with the voice of thanksgiving; I will pay *that* that I have vowed. Salvation *is* of the LORD.  
 
 God and his servant Jonah had parted in anger, and the quarrel began on Jonah's side; he fled from his country that he might outrun his work; but we hope to see them both together again, and the reconciliation begins on God's side. In the close of the foregoing chapter we found God returning to Jonah in a way of mercy, *delivering him from going down to the pit,* having *found a ransom;* in this chapter we find Jonah returning to God in a way of duty; he was called up in the former chapter to pray to his God, but we are not told that he did so; however, now at length he is brought to it. Now observe here,
 
@@ -44,7 +44,7 @@ IV\. What his prayer was. He afterwards recollected the substance of it, and lef
 
 ## Jonah's Deliverance. (b. c. 840.)
 
-> <sup>10</sup> And the LORD spake unto the fish, and it vomited out Jonah upon the dry *land.*  
+> **¹⁰** And the LORD spake unto the fish, and it vomited out Jonah upon the dry *land.*  
 
 We have here Jonah's discharge from his imprisonment, and his deliverance from that death which there he was threatened with—his return, though not to life, for he lived in the fish's belly, yet to the *land of the living,* for from that he seemed to be quite cut off—his resurrection, though not from death, yet from the grave, for surely never man was so buried alive as Jonah was in the fish's belly. His enlargement may be considered, 1. As an instance of God's power over all the creatures. God *spoke to the fish,* gave him orders to return him, as before he had given him orders to receive him. God speaks to other creatures, and *it is done;* they are all his ready obedient servants. But to man he *speaks once, yea, twice, and he perceives it not,* regards it not, but turns a deaf ear to what he says. Note, God has all creatures at his command, makes what use he pleases of them, and serves his own purposes by them. 2. As an instance of God's mercy to a poor penitent, that in his distress prays to him. Jonah had sinned, and had done foolishly, very foolishly; his own backslidings did not correct him, and it appears by his after-conduct that his foolishness was not quite driven from him, no, not by the rod of this correction; and yet, upon his praying, and humbling himself before God, here is a miracle in nature wrought for his deliverance, to intimate what a miracle of grace, free grace, God's reception and entertainment of returning sinners are. When God had him at his mercy he showed him mercy, and did not *contend for ever.* 3. As a type and figure of Christ's resurrection. He died and was buried, to lay in the grave, as Jonah did, three days and three nights, a prisoner for our debt; but the third day he came forth, as Jonah did, by his messengers to preach repentance, and remission of sins, even to the Gentiles. And thus was another scripture fulfilled, *After two days he will receive us, and the third day he will raise us up,* Ho 6:2. The earth trembled as if full of her burden, as the fish was of Jonah.
 

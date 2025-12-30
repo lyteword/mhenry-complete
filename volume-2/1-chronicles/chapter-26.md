@@ -8,25 +8,25 @@ We have here an account of the business of the Levites. That tribe had made but 
 
 ## The Officers of the Levites. (b. c. Date.)
 
-> <sup>1</sup> Concerning the divisions of the porters: Of the Korhites *was* Meshelemiah the son of Kore, of the sons of Asaph.  
-> <sup>2</sup> And the sons of Meshelemiah *were,* Zechariah the firstborn, Jediael the second, Zebadiah the third, Jathniel the fourth,  
-> <sup>3</sup> Elam the fifth, Jehohanan the sixth, Elioenai the seventh.  
-> <sup>4</sup> Moreover the sons of Obed-edom *were,* Shemaiah the firstborn, Jehozabad the second, Joah the third, and Sacar the fourth, and Nethaneel the fifth,  
-> <sup>5</sup> Ammiel the sixth, Issachar the seventh, Peulthai the eighth: for God blessed him.  
-> <sup>6</sup> Also unto Shemaiah his son were sons born, that ruled throughout the house of their father: for they *were* mighty men of valour.  
-> <sup>7</sup> The sons of Shemaiah; Othni, and Rephael, and Obed, Elzabad, whose brethren *were* strong men, Elihu, and Semachiah.  
-> <sup>8</sup> All these of the sons of Obed-edom: they and their sons and their brethren, able men for strength for the service, *were* threescore and two of Obed-edom.  
-> <sup>9</sup> And Meshelemiah had sons and brethren, strong men, eighteen.  
-> <sup>10</sup> Also Hosah, of the children of Merari, had sons; Simri the chief, (for *though* he was not the firstborn, yet his father made him the chief;)  
-> <sup>11</sup> Hilkiah the second, Tebaliah the third, Zechariah the fourth: all the sons and brethren of Hosah *were* thirteen.  
-> <sup>12</sup> Among these *were* the divisions of the porters, *even* among the chief men, *having* wards one against another, to minister in the house of the LORD.  
-> <sup>13</sup> And they cast lots, as well the small as the great, according to the house of their fathers, for every gate.  
-> <sup>14</sup> And the lot eastward fell to Shelemiah. Then for Zechariah his son, a wise counsellor, they cast lots; and his lot came out northward.  
-> <sup>15</sup> To Obed-edom southward; and to his sons the house of Asuppim.  
-> <sup>16</sup> To Shuppim and Hosah *the lot came forth* westward, with the gate Shallecheth, by the causeway of the going up, ward against ward.  
-> <sup>17</sup> Eastward *were* six Levites, northward four a day, southward four a day, and toward Asuppim two *and* two.  
-> <sup>18</sup> At Parbar westward, four at the causeway, *and* two at Parbar.  
-> <sup>19</sup> These *are* the divisions of the porters among the sons of Kore, and among the sons of Merari.  
+> **¹** Concerning the divisions of the porters: Of the Korhites *was* Meshelemiah the son of Kore, of the sons of Asaph.  
+> **²** And the sons of Meshelemiah *were,* Zechariah the firstborn, Jediael the second, Zebadiah the third, Jathniel the fourth,  
+> **³** Elam the fifth, Jehohanan the sixth, Elioenai the seventh.  
+> **⁴** Moreover the sons of Obed-edom *were,* Shemaiah the firstborn, Jehozabad the second, Joah the third, and Sacar the fourth, and Nethaneel the fifth,  
+> **⁵** Ammiel the sixth, Issachar the seventh, Peulthai the eighth: for God blessed him.  
+> **⁶** Also unto Shemaiah his son were sons born, that ruled throughout the house of their father: for they *were* mighty men of valour.  
+> **⁷** The sons of Shemaiah; Othni, and Rephael, and Obed, Elzabad, whose brethren *were* strong men, Elihu, and Semachiah.  
+> **⁸** All these of the sons of Obed-edom: they and their sons and their brethren, able men for strength for the service, *were* threescore and two of Obed-edom.  
+> **⁹** And Meshelemiah had sons and brethren, strong men, eighteen.  
+> **¹⁰** Also Hosah, of the children of Merari, had sons; Simri the chief, (for *though* he was not the firstborn, yet his father made him the chief;)  
+> **¹¹** Hilkiah the second, Tebaliah the third, Zechariah the fourth: all the sons and brethren of Hosah *were* thirteen.  
+> **¹²** Among these *were* the divisions of the porters, *even* among the chief men, *having* wards one against another, to minister in the house of the LORD.  
+> **¹³** And they cast lots, as well the small as the great, according to the house of their fathers, for every gate.  
+> **¹⁴** And the lot eastward fell to Shelemiah. Then for Zechariah his son, a wise counsellor, they cast lots; and his lot came out northward.  
+> **¹⁵** To Obed-edom southward; and to his sons the house of Asuppim.  
+> **¹⁶** To Shuppim and Hosah *the lot came forth* westward, with the gate Shallecheth, by the causeway of the going up, ward against ward.  
+> **¹⁷** Eastward *were* six Levites, northward four a day, southward four a day, and toward Asuppim two *and* two.  
+> **¹⁸** At Parbar westward, four at the causeway, *and* two at Parbar.  
+> **¹⁹** These *are* the divisions of the porters among the sons of Kore, and among the sons of Merari.  
 
 Observe, I. There were porters appointed to attend the temple, who guarded all the avenues that let to it, opened and shut all the outer gates and attended at them, not only for the state, but for service, to direct and instruct those who were going to worship in the courts of the sanctuary in the decorum they were to observe, to encourage those that were timorous, to send back the strangers and unclean, and to guard against thieves and others that were enemies to the house of God. In allusion to this office, ministers are said to have *the keys to the kingdom of heaven* committed to them (Mt 16:19), that they may admit, and exclude, according to the law of Christ.
 
@@ -38,22 +38,22 @@ IV\. It is said of one here that *though he was not the first-born his father ma
 
 V\. The porters, as the singers, had their post assigned them by lot, so many at such a gate, and so many at such a one, that every one might know his post and make it good, 1Ch 26:13. It is not said that they were cast into twenty-four courses, as before; but here are the names of about twenty-four (1Ch 26:1-11), and the posts assigned are twenty-four, 1Ch 26:17,18. We have therefore reason to think they were distributed into as many companies. Happy are those who dwell in God's house: for, as they are well fed, well taught, and well employed, so they are well guarded. Men attended at the gates of the temple, but angels attend at the gates of the New Jerusalem, Re 21:12.
 
-> <sup>20</sup> And of the Levites, Ahijah *was* over the treasures of the house of God, and over the treasures of the dedicated things.  
-> <sup>21</sup> *As concerning* the sons of Laadan; the sons of the Gershonite Laadan, chief fathers, *even* of Laadan the Gershonite, *were* Jehieli.  
-> <sup>22</sup> The sons of Jehieli; Zetham, and Joel his brother, *which were* over the treasures of the house of the LORD.  
-> <sup>23</sup> Of the Amramites, *and* the Izharites, the Hebronites, *and* the Uzzielites:  
-> <sup>24</sup> And Shebuel the son of Gershom, the son of Moses, *was* ruler of the treasures.  
-> <sup>25</sup> And his brethren by Eliezer; Rehabiah his son, and Jeshaiah his son, and Joram his son, and Zichri his son, and Shelomith his son.  
-> <sup>26</sup> Which Shelomith and his brethren *were* over all the treasures of the dedicated things, which David the king, and the chief fathers, the captains over thousands and hundreds, and the captains of the host, had dedicated.  
-> <sup>27</sup> Out of the spoils won in battles did they dedicate to maintain the house of the LORD.  
-> <sup>28</sup> And all that Samuel the seer, and Saul the son of Kish, and Abner the son of Ner, and Joab the son of Zeruiah, had dedicated; *and* whosoever had dedicated *any thing, it was* under the hand of Shelomith, and of his brethren.  
+> **²⁰** And of the Levites, Ahijah *was* over the treasures of the house of God, and over the treasures of the dedicated things.  
+> **²¹** *As concerning* the sons of Laadan; the sons of the Gershonite Laadan, chief fathers, *even* of Laadan the Gershonite, *were* Jehieli.  
+> **²²** The sons of Jehieli; Zetham, and Joel his brother, *which were* over the treasures of the house of the LORD.  
+> **²³** Of the Amramites, *and* the Izharites, the Hebronites, *and* the Uzzielites:  
+> **²⁴** And Shebuel the son of Gershom, the son of Moses, *was* ruler of the treasures.  
+> **²⁵** And his brethren by Eliezer; Rehabiah his son, and Jeshaiah his son, and Joram his son, and Zichri his son, and Shelomith his son.  
+> **²⁶** Which Shelomith and his brethren *were* over all the treasures of the dedicated things, which David the king, and the chief fathers, the captains over thousands and hundreds, and the captains of the host, had dedicated.  
+> **²⁷** Out of the spoils won in battles did they dedicate to maintain the house of the LORD.  
+> **²⁸** And all that Samuel the seer, and Saul the son of Kish, and Abner the son of Ner, and Joab the son of Zeruiah, had dedicated; *and* whosoever had dedicated *any thing, it was* under the hand of Shelomith, and of his brethren.  
 
 Observe, 1. There were *treasures of the house of God.* A great house cannot be well kept without stores of all manner of provisions. Much was expended daily upon the altar-flour, wine, oil, salt, fuel, besides the lamps; quantities of these were to be kept beforehand, besides the sacred vestments and utensils. These were the *treasures of the house of God.* And, because money answers all things, doubtless they had an abundance of it, which was received from the people's offerings, wherewith they bought in what they had occasion for. And perhaps much was laid up for an exigence. These treasures typified the plenty there is in our heavenly Father's house, enough and to spare. In Christ, the true temple, are hid *treasures of wisdom and knowledge,* and *unsearchable riches.* 2. There were *treasures of dedicated things,* dedicated mostly *out of the spoils won in battle* (1Ch 26:27), as a grateful acknowledgment of the divine protection. Abraham gave Melchisedec the *tenth of the spoils* Heb 7:4. In Moses's time the officers of the army, when they returned victorious, brought of their spoils an *oblation to the Lord,* Nu 31:50. Of late this pious custom had been revived; and not only Samuel and David, but Saul, and Abner, and Joab, had dedicated of their spoils to the honour and support of the house of God, 1Ch 26:28. Note, The more God bestows upon us the more he expects from us in works of piety and charity. Great successes call for proportionable returns. When we look over our estates we should consider, "Here are convenient things, rich things, it may be, and fine things; but where are the dedicated things?" Men of war must honour God with their spoils. 3. These treasures had treasurers, those that were over them (1Ch 26:20,26), whose business it was to keep them, that neither *moth nor rust* might *corrupt them,* nor *thieves break through and steal,* to give out as there was occasion and to see that they were not wasted, embezzled, or alienated to the common use; and it is probable that they kept accounts of all that was brought in and how it was laid out.
 
-> <sup>29</sup> Of the Izharites, Chenaniah and his sons *were* for the outward business over Israel, for officers and judges.  
-> <sup>30</sup> *And* of the Hebronites, Hashabiah and his brethren, men of valour, a thousand and seven hundred, *were* officers among them of Israel on this side Jordan westward in all the business of the LORD, and in the service of the king.  
-> <sup>31</sup> Among the Hebronites *was* Jerijah the chief, *even* among the Hebronites, according to the generations of his fathers. In the fortieth year of the reign of David they were sought for, and there were found among them mighty men of valour at Jazer of Gilead.  
-> <sup>32</sup> And his brethren, men of valour, *were* two thousand and seven hundred chief fathers, whom king David made rulers over the Reubenites, the Gadites, and the half tribe of Manasseh, for every matter pertaining to God, and affairs of the king.  
+> **²⁹** Of the Izharites, Chenaniah and his sons *were* for the outward business over Israel, for officers and judges.  
+> **³⁰** *And* of the Hebronites, Hashabiah and his brethren, men of valour, a thousand and seven hundred, *were* officers among them of Israel on this side Jordan westward in all the business of the LORD, and in the service of the king.  
+> **³¹** Among the Hebronites *was* Jerijah the chief, *even* among the Hebronites, according to the generations of his fathers. In the fortieth year of the reign of David they were sought for, and there were found among them mighty men of valour at Jazer of Gilead.  
+> **³²** And his brethren, men of valour, *were* two thousand and seven hundred chief fathers, whom king David made rulers over the Reubenites, the Gadites, and the half tribe of Manasseh, for every matter pertaining to God, and affairs of the king.  
 
 All the offices of the house of God being well provided with Levites, we have here an account of those that were employed as officers and judges in the outward business, which must not be neglected, no, not for the temple itself. The magistracy is an ordinance of God for the good of the church as truly as the ministry is. And here we are told, 1. That the Levites were employed in the administration of justice in concurrence with the princes and elders of the several tribes, who could not be supposed to understand the law so well as the Levites, who made it their business to study it. None of those Levites who were employed in the service of the sanctuary, none of the singers or porters, were concerned in this outward business; either one was enough to engage the whole man or it was presumption to undertake both. 2. Their charge was both *in all business of the Lord,* and *in the service of the kings,* 1Ch 26:30 and again 1Ch 26:32. They managed the affairs of the country, as well ecclesiastical as civil, took care both of God's tithes and the king's taxes, punished offences committed immediately against God and his honour and those against the government and the public peace, guarded both against idolatry and against injustice, and took care to put the laws in execution against both. Some, it is likely, applied themselves to the affairs of religion, others to secular affairs; and so, between both, God and the king were well served. It is happy with a kingdom when its civil and sacred interests are thus interwoven and jointly minded and advanced. 3. There were more Levites employed as judges with the two tribes and a half on the other side of Jordan than with all the rest of the tribes; there were 2700; whereas as the west side of Jordan there were 1700, 1Ch 26:30,32. Either those remote tribes were not so well furnished as the rest with judges of their own, or because they, lying furthest from Jerusalem and on the borders of the neighbouring nations, were most in danger of being infected with idolatry, and most needed the help of Levites to prevent it. The frontiers must be well guarded. 4. This is said to be done (as were all the foregoing settlements) in the fortieth year of the reign of David (1Ch 26:31), that is, the last year of his reign. We should be so much the more industrious to do good *as we can see the day approaching.* If we live to enjoy the fruit of our labours, grudge it not to those that shall come after us.
 

@@ -10,11 +10,11 @@ This is a psalm of thanksgiving for the great deliverances which God had wrought
 
 A psalm *and* song *at* the dedication of the house of David.
 
-> <sup>1</sup> I will extol thee, O LORD; for thou hast lifted me up, and hast not made my foes to rejoice over me.  
-> <sup>2</sup> O LORD my God, I cried unto thee, and thou hast healed me.  
-> <sup>3</sup> O LORD, thou hast brought up my soul from the grave: thou hast kept me alive, that I should not go down to the pit.  
-> <sup>4</sup> Sing unto the LORD, O ye saints of his, and give thanks at the remembrance of his holiness.  
-> <sup>5</sup> For his anger *endureth but* a moment; in his favour *is* life: weeping may endure for a night, but joy *cometh* in the morning.  
+> **¹** I will extol thee, O LORD; for thou hast lifted me up, and hast not made my foes to rejoice over me.  
+> **²** O LORD my God, I cried unto thee, and thou hast healed me.  
+> **³** O LORD, thou hast brought up my soul from the grave: thou hast kept me alive, that I should not go down to the pit.  
+> **⁴** Sing unto the LORD, O ye saints of his, and give thanks at the remembrance of his holiness.  
+> **⁵** For his anger *endureth but* a moment; in his favour *is* life: weeping may endure for a night, but joy *cometh* in the morning.  
 
 It was the laudable practice of the pious Jews, and, though not expressly appointed, yet allowed and accepted, when they had built a new house, to *dedicate it to God,* De 20:5. David did so when his house was built, and he took possession of it (2Sa 5:11); for royal palaces do as much need God's protection, and are as much bound to be at his service, as ordinary houses. Note, The houses we dwell in should, at our first entrance upon them, be dedicated to God, as little sanctuaries. We must solemnly commit ourselves, our families, and all our family affairs, to God's guidance and care, must pray for his presence and blessing, must devote ourselves and all ours to his glory, and must resolve both that we put away iniquity far from our tabernacles and that we and our houses will serve the Lord both in the duties of family worship and in all instances of gospel obedience. Some conjecture that this psalm was sung at the re-dedication of David's house, after he had been driven out of it by Absalom, who had defiled it with his incest, and that it is a thanksgiving for the crushing of that dangerous rebellion. In these verses,
 
@@ -24,13 +24,13 @@ II\. He calls upon others to join with him in praise, not only for the particula
 
 ## Prayer and Praise.
 
-> <sup>6</sup> And in my prosperity I said, I shall never be moved.  
-> <sup>7</sup> LORD, by thy favour thou hast made my mountain to stand strong: thou didst hide thy face, *and* I was troubled.  
-> <sup>8</sup> I cried to thee, O LORD; and unto the LORD I made supplication.  
-> <sup>9</sup> What profit *is there* in my blood, when I go down to the pit? Shall the dust praise thee? shall it declare thy truth?  
-> <sup>10</sup> Hear, O LORD, and have mercy upon me: LORD, be thou my helper.  
-> <sup>11</sup> Thou hast turned for me my mourning into dancing: thou hast put off my sackcloth, and girded me with gladness;  
-> <sup>12</sup> To the end that *my* glory may sing praise to thee, and not be silent. O LORD my God, I will give thanks unto thee for ever.  
+> **⁶** And in my prosperity I said, I shall never be moved.  
+> **⁷** LORD, by thy favour thou hast made my mountain to stand strong: thou didst hide thy face, *and* I was troubled.  
+> **⁸** I cried to thee, O LORD; and unto the LORD I made supplication.  
+> **⁹** What profit *is there* in my blood, when I go down to the pit? Shall the dust praise thee? shall it declare thy truth?  
+> **¹⁰** Hear, O LORD, and have mercy upon me: LORD, be thou my helper.  
+> **¹¹** Thou hast turned for me my mourning into dancing: thou hast put off my sackcloth, and girded me with gladness;  
+> **¹²** To the end that *my* glory may sing praise to thee, and not be silent. O LORD my God, I will give thanks unto thee for ever.  
 
 We have, in these verses, an account of three several states that David was in successively, and of the workings of his heart towards God in each of those states—what he said and did, and how his heart stood affected; in the first of these we may see what we are too apt to be, and in the other two what we should be.
 

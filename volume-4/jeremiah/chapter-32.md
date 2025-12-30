@@ -8,21 +8,21 @@ In this chapter we have, I. Jeremiah imprisoned for foretelling the destruction 
 
 ## Judgments Predicted; Jeremiah Imprisoned. (b. c. 589.)
 
-> <sup>1</sup> The word that came to Jeremiah from the LORD in the tenth year of Zedekiah king of Judah, which *was* the eighteenth year of Nebuchadrezzar.  
-> <sup>2</sup> For then the king of Babylon's army besieged Jerusalem: and Jeremiah the prophet was shut up in the court of the prison, which *was* in the king of Judah's house.  
-> <sup>3</sup> For Zedekiah king of Judah had shut him up, saying, Wherefore dost thou prophesy, and say, Thus saith the LORD, Behold, I will give this city into the hand of the king of Babylon, and he shall take it;  
-> <sup>4</sup> And Zedekiah king of Judah shall not escape out of the hand of the Chaldeans, but shall surely be delivered into the hand of the king of Babylon, and shall speak with him mouth to mouth, and his eyes shall behold his eyes;  
-> <sup>5</sup> And he shall lead Zedekiah to Babylon, and there shall he be until I visit him, saith the LORD: though ye fight with the Chaldeans, ye shall not prosper.  
-> <sup>6</sup> And Jeremiah said, The word of the LORD came unto me, saying,  
-> <sup>7</sup> Behold, Hanameel the son of Shallum thine uncle shall come unto thee, saying, Buy thee my field that *is* in Anathoth: for the right of redemption *is* thine to buy *it.*  
-> <sup>8</sup> So Hanameel mine uncle's son came to me in the court of the prison according to the word of the LORD, and said unto me, Buy my field, I pray thee, that *is* in Anathoth, which *is* in the country of Benjamin: for the right of inheritance *is* thine, and the redemption *is* thine; buy *it* for thyself. Then I knew that this *was* the word of the LORD.  
-> <sup>9</sup> And I bought the field of Hanameel my uncle's son, that *was* in Anathoth, and weighed him the money, *even* seventeen shekels of silver.  
-> <sup>10</sup> And I subscribed the evidence, and sealed *it,* and took witnesses, and weighed *him* the money in the balances.  
-> <sup>11</sup> So I took the evidence of the purchase, *both* that which was sealed *according* to the law and custom, and that which was open:  
-> <sup>12</sup> And I gave the evidence of the purchase unto Baruch the son of Neriah, the son of Maaseiah, in the sight of Hanameel mine uncle's *son,* and in the presence of the witnesses that subscribed the book of the purchase, before all the Jews that sat in the court of the prison.  
-> <sup>13</sup> And I charged Baruch before them, saying,  
-> <sup>14</sup> Thus saith the LORD of hosts, the God of Israel; Take these evidences, this evidence of the purchase, both which is sealed, and this evidence which is open; and put them in an earthen vessel, that they may continue many days.  
-> <sup>15</sup> For thus saith the LORD of hosts, the God of Israel; Houses and fields and vineyards shall be possessed again in this land.  
+> **¹** The word that came to Jeremiah from the LORD in the tenth year of Zedekiah king of Judah, which *was* the eighteenth year of Nebuchadrezzar.  
+> **²** For then the king of Babylon's army besieged Jerusalem: and Jeremiah the prophet was shut up in the court of the prison, which *was* in the king of Judah's house.  
+> **³** For Zedekiah king of Judah had shut him up, saying, Wherefore dost thou prophesy, and say, Thus saith the LORD, Behold, I will give this city into the hand of the king of Babylon, and he shall take it;  
+> **⁴** And Zedekiah king of Judah shall not escape out of the hand of the Chaldeans, but shall surely be delivered into the hand of the king of Babylon, and shall speak with him mouth to mouth, and his eyes shall behold his eyes;  
+> **⁵** And he shall lead Zedekiah to Babylon, and there shall he be until I visit him, saith the LORD: though ye fight with the Chaldeans, ye shall not prosper.  
+> **⁶** And Jeremiah said, The word of the LORD came unto me, saying,  
+> **⁷** Behold, Hanameel the son of Shallum thine uncle shall come unto thee, saying, Buy thee my field that *is* in Anathoth: for the right of redemption *is* thine to buy *it.*  
+> **⁸** So Hanameel mine uncle's son came to me in the court of the prison according to the word of the LORD, and said unto me, Buy my field, I pray thee, that *is* in Anathoth, which *is* in the country of Benjamin: for the right of inheritance *is* thine, and the redemption *is* thine; buy *it* for thyself. Then I knew that this *was* the word of the LORD.  
+> **⁹** And I bought the field of Hanameel my uncle's son, that *was* in Anathoth, and weighed him the money, *even* seventeen shekels of silver.  
+> **¹⁰** And I subscribed the evidence, and sealed *it,* and took witnesses, and weighed *him* the money in the balances.  
+> **¹¹** So I took the evidence of the purchase, *both* that which was sealed *according* to the law and custom, and that which was open:  
+> **¹²** And I gave the evidence of the purchase unto Baruch the son of Neriah, the son of Maaseiah, in the sight of Hanameel mine uncle's *son,* and in the presence of the witnesses that subscribed the book of the purchase, before all the Jews that sat in the court of the prison.  
+> **¹³** And I charged Baruch before them, saying,  
+> **¹⁴** Thus saith the LORD of hosts, the God of Israel; Take these evidences, this evidence of the purchase, both which is sealed, and this evidence which is open; and put them in an earthen vessel, that they may continue many days.  
+> **¹⁵** For thus saith the LORD of hosts, the God of Israel; Houses and fields and vineyards shall be possessed again in this land.  
 
 It appears by the date of this chapter that we are now coming very nigh to that fatal year which completed the desolations of Judah and Jerusalem by the Chaldeans. God's judgments came gradually upon them, but, they not meeting him by repentance in the way of his judgments, he proceeded in his controversy till all was laid waste, which was in the eleventh year of Zedekiah; now what is here recorded happened in the tenth. The king of Babylon's army had now invested Jerusalem and was carrying on the siege with vigour, not doubting but in a little time to make themselves masters of it, while the besieged had taken up a desperate resolution not to surrender, but to hold out to the last extremity. Now,
 
@@ -42,16 +42,16 @@ III\. Being in prison, he purchases from a near relation of his a piece of groun
 
 ## Jeremiah's Prayer. (b. c. 589.)
 
-> <sup>16</sup> Now when I had delivered the evidence of the purchase unto Baruch the son of Neriah, I prayed unto the LORD, saying,  
-> <sup>17</sup> Ah Lord GOD! behold, thou hast made the heaven and the earth by thy great power and stretched out arm, *and* there is nothing too hard for thee:  
-> <sup>18</sup> Thou shewest lovingkindness unto thousands, and recompensest the iniquity of the fathers into the bosom of their children after them: the Great, the Mighty God, the LORD of hosts, *is* his name,  
-> <sup>19</sup> Great in counsel, and mighty in work: for thine eyes *are* open upon all the ways of the sons of men: to give every one according to his ways, and according to the fruit of his doings:  
-> <sup>20</sup> Which hast set signs and wonders in the land of Egypt, *even* unto this day, and in Israel, and among *other* men; and hast made thee a name, as at this day;  
-> <sup>21</sup> And hast brought forth thy people Israel out of the land of Egypt with signs, and with wonders, and with a strong hand, and with a stretched out arm, and with great terror;  
-> <sup>22</sup> And hast given them this land, which thou didst swear to their fathers to give them, a land flowing with milk and honey;  
-> <sup>23</sup> And they came in, and possessed it; but they obeyed not thy voice, neither walked in thy law; they have done nothing of all that thou commandedst them to do: therefore thou hast caused all this evil to come upon them:  
-> <sup>24</sup> Behold the mounts, they are come unto the city to take it; and the city is given into the hand of the Chaldeans, that fight against it, because of the sword, and of the famine, and of the pestilence: and what thou hast spoken is come to pass; and, behold, thou seest *it.*  
-> <sup>25</sup> And thou hast said unto me, O Lord GOD, Buy thee the field for money, and take witnesses; for the city is given into the hand of the Chaldeans.  
+> **¹⁶** Now when I had delivered the evidence of the purchase unto Baruch the son of Neriah, I prayed unto the LORD, saying,  
+> **¹⁷** Ah Lord GOD! behold, thou hast made the heaven and the earth by thy great power and stretched out arm, *and* there is nothing too hard for thee:  
+> **¹⁸** Thou shewest lovingkindness unto thousands, and recompensest the iniquity of the fathers into the bosom of their children after them: the Great, the Mighty God, the LORD of hosts, *is* his name,  
+> **¹⁹** Great in counsel, and mighty in work: for thine eyes *are* open upon all the ways of the sons of men: to give every one according to his ways, and according to the fruit of his doings:  
+> **²⁰** Which hast set signs and wonders in the land of Egypt, *even* unto this day, and in Israel, and among *other* men; and hast made thee a name, as at this day;  
+> **²¹** And hast brought forth thy people Israel out of the land of Egypt with signs, and with wonders, and with a strong hand, and with a stretched out arm, and with great terror;  
+> **²²** And hast given them this land, which thou didst swear to their fathers to give them, a land flowing with milk and honey;  
+> **²³** And they came in, and possessed it; but they obeyed not thy voice, neither walked in thy law; they have done nothing of all that thou commandedst them to do: therefore thou hast caused all this evil to come upon them:  
+> **²⁴** Behold the mounts, they are come unto the city to take it; and the city is given into the hand of the Chaldeans, that fight against it, because of the sword, and of the famine, and of the pestilence: and what thou hast spoken is come to pass; and, behold, thou seest *it.*  
+> **²⁵** And thou hast said unto me, O Lord GOD, Buy thee the field for money, and take witnesses; for the city is given into the hand of the Chaldeans.  
 
 We have here Jeremiah's prayer to God upon occasion of the discoveries God had made to him of his purposes concerning this nation, to pull it down, and in process of time to build it up again, which puzzled the prophet himself, who, though he delivered his messages faithfully, yet, in reflecting upon them, was greatly at a loss within himself how to reconcile them; in that perplexity he poured out his soul before God in prayer, and so gave himself ease. That which disturbed him was not the bad bargain he seemed to have made for himself in purchasing a field that he was likely to have no good of, but the case of his people, for whom he was still a kind and faithful intercessor, and he was willing to hope that, if God had so much mercy in store for them hereafter as he had promised, he would not proceed with so much severity against them now as he had threatened. Before Jeremiah went to prayer he delivered the deeds that concerned his new purchase to Baruch, which may intimate to us that when we are going to worship God we should get our minds as clear as may be from the cares and incumbrances of this world. Jeremiah was in prison, in distress, in the dark about the meaning of God's providences, and then he prays. Note, Prayer is a salve for every sore. Whatever is a burden to us, we may by prayer cast it upon the Lord and then be easy.
 
@@ -69,25 +69,25 @@ V\. He seems desirous to be let further into the meaning of the order God had no
 
 ## Judgments Predicted; Restoration of the Jews; Encouraging Promises. (b. c. 589.)
 
-> <sup>26</sup> Then came the word of the LORD unto Jeremiah, saying,  
-> <sup>27</sup> Behold, I *am* the LORD, the God of all flesh: is there any thing too hard for me?  
-> <sup>28</sup> Therefore thus saith the LORD; Behold, I will give this city into the hand of the Chaldeans, and into the hand of Nebuchadrezzar king of Babylon, and he shall take it:  
-> <sup>29</sup> And the Chaldeans, that fight against this city, shall come and set fire on this city, and burn it with the houses, upon whose roofs they have offered incense unto Baal, and poured out drink offerings unto other gods, to provoke me to anger.  
-> <sup>30</sup> For the children of Israel and the children of Judah have only done evil before me from their youth: for the children of Israel have only provoked me to anger with the work of their hands, saith the LORD.  
-> <sup>31</sup> For this city hath been to me *as* a provocation of mine anger and of my fury from the day that they built it even unto this day; that I should remove it from before my face,  
-> <sup>32</sup> Because of all the evil of the children of Israel and of the children of Judah, which they have done to provoke me to anger, they, their kings, their princes, their priests, and their prophets, and the men of Judah, and the inhabitants of Jerusalem.  
-> <sup>33</sup> And they have turned unto me the back, and not the face: though I taught them, rising up early and teaching *them,* yet they have not hearkened to receive instruction.  
-> <sup>34</sup> But they set their abominations in the house, which is called by my name, to defile it.  
-> <sup>35</sup> And they built the high places of Baal, which *are* in the valley of the son of Hinnom, to cause their sons and their daughters to pass through *the fire* unto Molech; which I commanded them not, neither came it into my mind, that they should do this abomination, to cause Judah to sin.  
-> <sup>36</sup> And now therefore thus saith the LORD, the God of Israel, concerning this city, whereof ye say, It shall be delivered into the hand of the king of Babylon by the sword, and by the famine, and by the pestilence;  
-> <sup>37</sup> Behold, I will gather them out of all countries, whither I have driven them in mine anger, and in my fury, and in great wrath; and I will bring them again unto this place, and I will cause them to dwell safely:  
-> <sup>38</sup> And they shall be my people, and I will be their God:  
-> <sup>39</sup> And I will give them one heart, and one way, that they may fear me for ever, for the good of them, and of their children after them:  
-> <sup>40</sup> And I will make an everlasting covenant with them, that I will not turn away from them, to do them good; but I will put my fear in their hearts, that they shall not depart from me.  
-> <sup>41</sup> Yea, I will rejoice over them to do them good, and I will plant them in this land assuredly with my whole heart and with my whole soul.  
-> <sup>42</sup> For thus saith the LORD; Like as I have brought all this great evil upon this people, so will I bring upon them all the good that I have promised them.  
-> <sup>43</sup> And fields shall be bought in this land, whereof ye say, *It is* desolate without man or beast; it is given into the hand of the Chaldeans.  
-> <sup>44</sup> Men shall buy fields for money, and subscribe evidences, and seal *them,* and take witnesses in the land of Benjamin, and in the places about Jerusalem, and in the cities of Judah, and in the cities of the mountains, and in the cities of the valley, and in the cities of the south: for I will cause their captivity to return, saith the LORD.  
+> **²⁶** Then came the word of the LORD unto Jeremiah, saying,  
+> **²⁷** Behold, I *am* the LORD, the God of all flesh: is there any thing too hard for me?  
+> **²⁸** Therefore thus saith the LORD; Behold, I will give this city into the hand of the Chaldeans, and into the hand of Nebuchadrezzar king of Babylon, and he shall take it:  
+> **²⁹** And the Chaldeans, that fight against this city, shall come and set fire on this city, and burn it with the houses, upon whose roofs they have offered incense unto Baal, and poured out drink offerings unto other gods, to provoke me to anger.  
+> **³⁰** For the children of Israel and the children of Judah have only done evil before me from their youth: for the children of Israel have only provoked me to anger with the work of their hands, saith the LORD.  
+> **³¹** For this city hath been to me *as* a provocation of mine anger and of my fury from the day that they built it even unto this day; that I should remove it from before my face,  
+> **³²** Because of all the evil of the children of Israel and of the children of Judah, which they have done to provoke me to anger, they, their kings, their princes, their priests, and their prophets, and the men of Judah, and the inhabitants of Jerusalem.  
+> **³³** And they have turned unto me the back, and not the face: though I taught them, rising up early and teaching *them,* yet they have not hearkened to receive instruction.  
+> **³⁴** But they set their abominations in the house, which is called by my name, to defile it.  
+> **³⁵** And they built the high places of Baal, which *are* in the valley of the son of Hinnom, to cause their sons and their daughters to pass through *the fire* unto Molech; which I commanded them not, neither came it into my mind, that they should do this abomination, to cause Judah to sin.  
+> **³⁶** And now therefore thus saith the LORD, the God of Israel, concerning this city, whereof ye say, It shall be delivered into the hand of the king of Babylon by the sword, and by the famine, and by the pestilence;  
+> **³⁷** Behold, I will gather them out of all countries, whither I have driven them in mine anger, and in my fury, and in great wrath; and I will bring them again unto this place, and I will cause them to dwell safely:  
+> **³⁸** And they shall be my people, and I will be their God:  
+> **³⁹** And I will give them one heart, and one way, that they may fear me for ever, for the good of them, and of their children after them:  
+> **⁴⁰** And I will make an everlasting covenant with them, that I will not turn away from them, to do them good; but I will put my fear in their hearts, that they shall not depart from me.  
+> **⁴¹** Yea, I will rejoice over them to do them good, and I will plant them in this land assuredly with my whole heart and with my whole soul.  
+> **⁴²** For thus saith the LORD; Like as I have brought all this great evil upon this people, so will I bring upon them all the good that I have promised them.  
+> **⁴³** And fields shall be bought in this land, whereof ye say, *It is* desolate without man or beast; it is given into the hand of the Chaldeans.  
+> **⁴⁴** Men shall buy fields for money, and subscribe evidences, and seal *them,* and take witnesses in the land of Benjamin, and in the places about Jerusalem, and in the cities of Judah, and in the cities of the mountains, and in the cities of the valley, and in the cities of the south: for I will cause their captivity to return, saith the LORD.  
 
 We have here God's answer to Jeremiah's prayer, designed to quiet his mind and make him easy; and it is a full discovery of the purposes of God's wrath against the present generation and the purposes of his grace concerning the future generations. Jeremiah knew not how to *sing both of mercy and judgment,* but God here teaches to sing unto him of both. When we know not how to reconcile one word of God with another we may yet be sure that both are true, both are pure, both shall be made good, and not one iota or tittle of either shall fall to the ground. When Jeremiah was ordered to buy the field in Anathoth he was willing to hope that God was about to revoke the sentence of his wrath and to order the Chaldeans to raise the siege. "No," says God, "the execution of the sentence shall go on; Jerusalem shall be laid in ruins." Note, Assurances of future mercy must not be interpreted as securities from present troubles. But, lest Jeremiah should think that his being ordered to buy this field intimated that all the mercy God had in store for his people, after their return, was only that they should have the possession of their own land again, he further informs him that that was but a type and figure of those spiritual blessings which should then be abundantly bestowed upon them, unspeakably more valuable than fields and vineyards; so that in this *word of the Lord,* which came to Jeremiah, we have first as dreadful threatenings and then as precious promises as perhaps any we have in the Old Testament; life and death, good and evil, are here set before us; let us consider and choose wisely.
 

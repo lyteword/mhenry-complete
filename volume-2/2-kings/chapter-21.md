@@ -8,15 +8,15 @@ In this chapter we have a short but sad account of the reigns of two of the king
 
 ## Manasseh's Impious Reign. (b. c. 698.)
 
-> <sup>1</sup> Manasseh *was* twelve years old when he began to reign, and reigned fifty and five years in Jerusalem. And his mother's name *was* Hephzibah.  
-> <sup>2</sup> And he did *that which was* evil in the sight of the LORD, after the abominations of the heathen, whom the LORD cast out before the children of Israel.  
-> <sup>3</sup> For he built up again the high places which Hezekiah his father had destroyed; and he reared up altars for Baal, and made a grove, as did Ahab king of Israel; and worshipped all the host of heaven, and served them.  
-> <sup>4</sup> And he built altars in the house of the LORD, of which the LORD said, In Jerusalem will I put my name.  
-> <sup>5</sup> And he built altars for all the host of heaven in the two courts of the house of the LORD.  
-> <sup>6</sup> And he made his son pass through the fire, and observed times, and used enchantments, and dealt with familiar spirits and wizards: he wrought much wickedness in the sight of the LORD, to provoke *him* to anger.  
-> <sup>7</sup> And he set a graven image of the grove that he had made in the house, of which the LORD said to David, and to Solomon his son, In this house, and in Jerusalem, which I have chosen out of all tribes of Israel, will I put my name for ever:  
-> <sup>8</sup> Neither will I make the feet of Israel move any more out of the land which I gave their fathers; only if they will observe to do according to all that I have commanded them, and according to all the law that my servant Moses commanded them.  
-> <sup>9</sup> But they hearkened not: and Manasseh seduced them to do more evil than did the nations whom the LORD destroyed before the children of Israel.  
+> **¹** Manasseh *was* twelve years old when he began to reign, and reigned fifty and five years in Jerusalem. And his mother's name *was* Hephzibah.  
+> **²** And he did *that which was* evil in the sight of the LORD, after the abominations of the heathen, whom the LORD cast out before the children of Israel.  
+> **³** For he built up again the high places which Hezekiah his father had destroyed; and he reared up altars for Baal, and made a grove, as did Ahab king of Israel; and worshipped all the host of heaven, and served them.  
+> **⁴** And he built altars in the house of the LORD, of which the LORD said, In Jerusalem will I put my name.  
+> **⁵** And he built altars for all the host of heaven in the two courts of the house of the LORD.  
+> **⁶** And he made his son pass through the fire, and observed times, and used enchantments, and dealt with familiar spirits and wizards: he wrought much wickedness in the sight of the LORD, to provoke *him* to anger.  
+> **⁷** And he set a graven image of the grove that he had made in the house, of which the LORD said to David, and to Solomon his son, In this house, and in Jerusalem, which I have chosen out of all tribes of Israel, will I put my name for ever:  
+> **⁸** Neither will I make the feet of Israel move any more out of the land which I gave their fathers; only if they will observe to do according to all that I have commanded them, and according to all the law that my servant Moses commanded them.  
+> **⁹** But they hearkened not: and Manasseh seduced them to do more evil than did the nations whom the LORD destroyed before the children of Israel.  
 
 How delightful were our meditations on the last reign! How many pleasing views had we of Sion in its glory (that is, in its purity and in its triumphs), of the king in his beauty! (for Isa 33:17 refers to Hezekiah), and (as it follows there, 2Ki 21:20) Jerusalem was *a quiet habitation* because *a city of righteousness,* Isa 1:26. But now we have melancholy work upon our hands, unpleasant ground to travel, and cannot but drive heavily. *How has the gold become dim and the most fine gold changed!* The beauty of Jerusalem is stained, and all her glory, all her joy, sunk and gone. These verses give such an account of this reign as make it, in all respects, the reverse of the last, and, in a manner, the ruin of it.
 
@@ -34,15 +34,15 @@ III\. He reigned very ill.
 
 ## Manasseh's Ruin Foretold. (b. c. 643.)
 
-> <sup>10</sup> And the LORD spake by his servants the prophets, saying,  
-> <sup>11</sup> Because Manasseh king of Judah hath done these abominations, *and* hath done wickedly above all that the Amorites did, which *were* before him, and hath made Judah also to sin with his idols:  
-> <sup>12</sup> Therefore thus saith the LORD God of Israel, Behold, I *am* bringing *such* evil upon Jerusalem and Judah, that whosoever heareth of it, both his ears shall tingle.  
-> <sup>13</sup> And I will stretch over Jerusalem the line of Samaria, and the plummet of the house of Ahab: and I will wipe Jerusalem as *a man* wipeth a dish, wiping *it,* and turning *it* upside down.  
-> <sup>14</sup> And I will forsake the remnant of mine inheritance, and deliver them into the hand of their enemies; and they shall become a prey and a spoil to all their enemies;  
-> <sup>15</sup> Because they have done *that which was* evil in my sight, and have provoked me to anger, since the day their fathers came forth out of Egypt, even unto this day.  
-> <sup>16</sup> Moreover Manasseh shed innocent blood very much, till he had filled Jerusalem from one end to another; beside his sin wherewith he made Judah to sin, in doing *that which was* evil in the sight of the LORD.  
-> <sup>17</sup> Now the rest of the acts of Manasseh, and all that he did, and his sin that he sinned, *are* they not written in the book of the chronicles of the kings of Judah?  
-> <sup>18</sup> And Manasseh slept with his fathers, and was buried in the garden of his own house, in the garden of Uzza: and Amon his son reigned in his stead.  
+> **¹⁰** And the LORD spake by his servants the prophets, saying,  
+> **¹¹** Because Manasseh king of Judah hath done these abominations, *and* hath done wickedly above all that the Amorites did, which *were* before him, and hath made Judah also to sin with his idols:  
+> **¹²** Therefore thus saith the LORD God of Israel, Behold, I *am* bringing *such* evil upon Jerusalem and Judah, that whosoever heareth of it, both his ears shall tingle.  
+> **¹³** And I will stretch over Jerusalem the line of Samaria, and the plummet of the house of Ahab: and I will wipe Jerusalem as *a man* wipeth a dish, wiping *it,* and turning *it* upside down.  
+> **¹⁴** And I will forsake the remnant of mine inheritance, and deliver them into the hand of their enemies; and they shall become a prey and a spoil to all their enemies;  
+> **¹⁵** Because they have done *that which was* evil in my sight, and have provoked me to anger, since the day their fathers came forth out of Egypt, even unto this day.  
+> **¹⁶** Moreover Manasseh shed innocent blood very much, till he had filled Jerusalem from one end to another; beside his sin wherewith he made Judah to sin, in doing *that which was* evil in the sight of the LORD.  
+> **¹⁷** Now the rest of the acts of Manasseh, and all that he did, and his sin that he sinned, *are* they not written in the book of the chronicles of the kings of Judah?  
+> **¹⁸** And Manasseh slept with his fathers, and was buried in the garden of his own house, in the garden of Uzza: and Amon his son reigned in his stead.  
 
 Here is the doom of Judah and Jerusalem read, and it is heavy doom. The prophets were sent, in the first place, to teach them the knowledge of God, to remind them of their duty and direct them in it. If they succeeded not in that, their next work was to reprove them for their sins, and to set them in view before them, that they might repent and reform, and return to their duty. If in this they prevailed not, but sinners went on frowardly, their next work was to foretel the judgments of God, that the terror of them might awaken those to repentance who would not be made sensible of the obligations of his love, or else that the execution of them, in their season, might be a demonstration of the divine mission of the prophets that foretold them. The prophets were deputed judges to those that would not hear and receive them as teachers. We have here,
 
@@ -54,14 +54,14 @@ This is all we have here of Manasseh; he stands convicted and condemned; but we 
 
 ## Amon's Reign and Death. (b. c. 643.)
 
-> <sup>19</sup> Amon *was* twenty and two years old when he began to reign, and he reigned two years in Jerusalem. And his mother's name *was* Meshullemeth, the daughter of Haruz of Jotbah.  
-> <sup>20</sup> And he did *that which was* evil in the sight of the LORD, as his father Manasseh did.  
-> <sup>21</sup> And he walked in all the way that his father walked in, and served the idols that his father served, and worshipped them:  
-> <sup>22</sup> And he forsook the LORD God of his fathers, and walked not in the way of the LORD.  
-> <sup>23</sup> And the servants of Amon conspired against him, and slew the king in his own house.  
-> <sup>24</sup> And the people of the land slew all them that had conspired against king Amon; and the people of the land made Josiah his son king in his stead.  
-> <sup>25</sup> Now the rest of the acts of Amon which he did, *are* they not written in the book of the chronicles of the kings of Judah?  
-> <sup>26</sup> And he was buried in his sepulchre in the garden of Uzza: and Josiah his son reigned in his stead.  
+> **¹⁹** Amon *was* twenty and two years old when he began to reign, and he reigned two years in Jerusalem. And his mother's name *was* Meshullemeth, the daughter of Haruz of Jotbah.  
+> **²⁰** And he did *that which was* evil in the sight of the LORD, as his father Manasseh did.  
+> **²¹** And he walked in all the way that his father walked in, and served the idols that his father served, and worshipped them:  
+> **²²** And he forsook the LORD God of his fathers, and walked not in the way of the LORD.  
+> **²³** And the servants of Amon conspired against him, and slew the king in his own house.  
+> **²⁴** And the people of the land slew all them that had conspired against king Amon; and the people of the land made Josiah his son king in his stead.  
+> **²⁵** Now the rest of the acts of Amon which he did, *are* they not written in the book of the chronicles of the kings of Judah?  
+> **²⁶** And he was buried in his sepulchre in the garden of Uzza: and Josiah his son reigned in his stead.  
 
 Here is a short account of the short and inglorious reign of Amon, the son of Manasseh. Whether Manasseh, in his blind and brutish zeal for his idols, had sacrificed his other sons—or whether, having been dedicated to his idols, they were refused by the people—so it was that his successor was a son not born till he was forty-five years old. And of him we are here told, 1. That his reign was very wicked: *He forsook the God of his fathers* (2Ki 21:22), disobeyed the commands given to his fathers, and disclaimed the covenant made with his fathers, *and walked not in the way of the Lord,* but *in all the way which his father walked in,* 2Ki 21:20,21. He trod in the steps of his father's idolatry, and revived that which he, in the latter end of his days, had put down. Note, Those who set bad examples, though they may repent themselves, yet cannot be sure that those whom they have drawn into sin by their example will repent; it is often otherwise. 2. That his end was very tragical. He having rebelled against God, his own servants *conspired against him and slew him,* probably upon some personal disgust, when he had reigned but two years, 2Ki 21:23. His servants, who should have guarded him, murdered him; his own house, that should have been his castle of defence, was the place of his execution. He had profaned God's house with his idols, and now God suffered his own house to be polluted with his blood. How unrighteous soever those were that did it, God was righteous who suffered it to be done. Two things the people of the land did, by their representatives, hereupon:—(1.) They did justice on the traitors that had slain the king, and put them to death; for, though he was a *bad* king, he was *their* king, and it was a part of their allegiance to him to avenge his death. Thus they cleared themselves from having any hand in the crime, and did what was incumbent on them to deter others from the like villainous practices. (2.) They did a kindness to themselves in *making Josiah his son king in his stead,* whom probably the conspirators had a design to put by, but the people stood by him and settled him in the throne, encouraged, it may be, by the indications he gave, even in his early days, of a good disposition. Now they made a happy change from one of the worst to one of the best of all the kings of Judah. "Once more," says God, "they shall be tried with a reformation; and, if that succeed, well; if not, then after that I will cut them down." Amon was buried in the same garden where his father was, 2Ki 21:26. If his father put himself under that humiliation, the people will put him under it.
 

@@ -8,17 +8,17 @@ Moses, in this chapter, relates, I. The conquest of Og, king of Bashan, and the 
 
 ## Sihon and Og Subdued. (b. c. 1451.)
 
-> <sup>1</sup> Then we turned, and went up the way to Bashan: and Og the king of Bashan came out against us, he and all his people, to battle at Edrei.  
-> <sup>2</sup> And the LORD said unto me, Fear him not: for I will deliver him, and all his people, and his land, into thy hand; and thou shalt do unto him as thou didst unto Sihon king of the Amorites, which dwelt at Heshbon.  
-> <sup>3</sup> So the LORD our God delivered into our hands Og also, the king of Bashan, and all his people: and we smote him until none was left to him remaining.  
-> <sup>4</sup> And we took all his cities at that time, there was not a city which we took not from them, threescore cities, all the region of Argob, the kingdom of Og in Bashan.  
-> <sup>5</sup> All these cities *were* fenced with high walls, gates, and bars; beside unwalled towns a great many.  
-> <sup>6</sup> And we utterly destroyed them, as we did unto Sihon king of Heshbon, utterly destroying the men, women, and children, of every city.  
-> <sup>7</sup> But all the cattle, and the spoil of the cities, we took for a prey to ourselves.  
-> <sup>8</sup> And we took at that time out of the hand of the two kings of the Amorites the land that *was* on this side Jordan, from the river of Arnon unto mount Hermon;  
-> <sup>9</sup> (*Which* Hermon the Sidonians call Sirion; and the Amorites call it Shenir;)  
-> <sup>10</sup> All the cities of the plain, and all Gilead, and all Bashan, unto Salchah and Edrei, cities of the kingdom of Og in Bashan.  
-> <sup>11</sup> For only Og king of Bashan remained of the remnant of giants; behold, his bedstead *was* a bedstead of iron; *is* it not in Rabbath of the children of Ammon? nine cubits *was* the length thereof, and four cubits the breadth of it, after the cubit of a man.  
+> **¹** Then we turned, and went up the way to Bashan: and Og the king of Bashan came out against us, he and all his people, to battle at Edrei.  
+> **²** And the LORD said unto me, Fear him not: for I will deliver him, and all his people, and his land, into thy hand; and thou shalt do unto him as thou didst unto Sihon king of the Amorites, which dwelt at Heshbon.  
+> **³** So the LORD our God delivered into our hands Og also, the king of Bashan, and all his people: and we smote him until none was left to him remaining.  
+> **⁴** And we took all his cities at that time, there was not a city which we took not from them, threescore cities, all the region of Argob, the kingdom of Og in Bashan.  
+> **⁵** All these cities *were* fenced with high walls, gates, and bars; beside unwalled towns a great many.  
+> **⁶** And we utterly destroyed them, as we did unto Sihon king of Heshbon, utterly destroying the men, women, and children, of every city.  
+> **⁷** But all the cattle, and the spoil of the cities, we took for a prey to ourselves.  
+> **⁸** And we took at that time out of the hand of the two kings of the Amorites the land that *was* on this side Jordan, from the river of Arnon unto mount Hermon;  
+> **⁹** (*Which* Hermon the Sidonians call Sirion; and the Amorites call it Shenir;)  
+> **¹⁰** All the cities of the plain, and all Gilead, and all Bashan, unto Salchah and Edrei, cities of the kingdom of Og in Bashan.  
+> **¹¹** For only Og king of Bashan remained of the remnant of giants; behold, his bedstead *was* a bedstead of iron; *is* it not in Rabbath of the children of Ammon? nine cubits *was* the length thereof, and four cubits the breadth of it, after the cubit of a man.  
 
 We have here another brave country delivered into the hand of Israel, that of Bashan; the conquest of Sihon is often mentioned together with that of Og, to the praise of God, the rather because in these Israel's triumphs began, Ps 135:11,136:19,20. See,
 
@@ -28,29 +28,29 @@ II\. How they got possession of Bashan, a very desirable country. They took all 
 
 ## Allotment of the Conquered Lands. (b. c. 1451.)
 
-> <sup>12</sup> And this land, *which* we possessed at that time, from Aroer, which *is* by the river Arnon, and half mount Gilead, and the cities thereof, gave I unto the Reubenites and to the Gadites.  
-> <sup>13</sup> And the rest of Gilead, and all Bashan, *being* the kingdom of Og, gave I unto the half tribe of Manasseh; all the region of Argob, with all Bashan, which was called the land of giants.  
-> <sup>14</sup> Jair the son of Manasseh took all the country of Argob unto the coasts of Geshuri and Maachathi; and called them after his own name, Bashan-havoth-jair, unto this day.  
-> <sup>15</sup> And I gave Gilead unto Machir.  
-> <sup>16</sup> And unto the Reubenites and unto the Gadites I gave from Gilead even unto the river Arnon half the valley, and the border even unto the river Jabbok, *which is* the border of the children of Ammon;  
-> <sup>17</sup> The plain also, and Jordan, and the coast *thereof,* from Chinnereth even unto the sea of the plain, *even* the salt sea, under Ashdoth-pisgah eastward.  
-> <sup>18</sup> And I commanded you at that time, saying, The LORD your God hath given you this land to possess it: ye shall pass over armed before your brethren the children of Israel, all *that are* meet for the war.  
-> <sup>19</sup> But your wives, and your little ones, and your cattle, (*for* I know that ye have much cattle,) shall abide in your cities which I have given you;  
-> <sup>20</sup> Until the LORD have given rest unto your brethren, as well as unto you, and *until* they also possess the land which the LORD your God hath given them beyond Jordan: and *then* shall ye return every man unto his possession, which I have given you.  
+> **¹²** And this land, *which* we possessed at that time, from Aroer, which *is* by the river Arnon, and half mount Gilead, and the cities thereof, gave I unto the Reubenites and to the Gadites.  
+> **¹³** And the rest of Gilead, and all Bashan, *being* the kingdom of Og, gave I unto the half tribe of Manasseh; all the region of Argob, with all Bashan, which was called the land of giants.  
+> **¹⁴** Jair the son of Manasseh took all the country of Argob unto the coasts of Geshuri and Maachathi; and called them after his own name, Bashan-havoth-jair, unto this day.  
+> **¹⁵** And I gave Gilead unto Machir.  
+> **¹⁶** And unto the Reubenites and unto the Gadites I gave from Gilead even unto the river Arnon half the valley, and the border even unto the river Jabbok, *which is* the border of the children of Ammon;  
+> **¹⁷** The plain also, and Jordan, and the coast *thereof,* from Chinnereth even unto the sea of the plain, *even* the salt sea, under Ashdoth-pisgah eastward.  
+> **¹⁸** And I commanded you at that time, saying, The LORD your God hath given you this land to possess it: ye shall pass over armed before your brethren the children of Israel, all *that are* meet for the war.  
+> **¹⁹** But your wives, and your little ones, and your cattle, (*for* I know that ye have much cattle,) shall abide in your cities which I have given you;  
+> **²⁰** Until the LORD have given rest unto your brethren, as well as unto you, and *until* they also possess the land which the LORD your God hath given them beyond Jordan: and *then* shall ye return every man unto his possession, which I have given you.  
 
 Having shown how this country which they were now in was conquered, in these verses he shows how it was settled upon the Reubenites, Gadites, and half the tribe of Manasseh, which we had the story of before, Nu 32:1-42 Here is the rehearsal. 1. Moses specifies the particular parts of the country that were allotted to each tribe, especially the distribution of the lot to the half tribe of Manasseh, the subdividing of which tribe is observable. Joseph was divided into Ephraim and Manasseh; Manasseh was divided into one half on the one side Jordan and the other half on the other side: that on the east side Jordan was again divided into two great families, which had their several allotments: Jair, De 3:14, Machir, De 3:15. And perhaps Jacob's prediction of the smallness of that tribe was now accomplished in these divisions and subdivisions. Observe that Bashan is here called *the land of the giants,* because it had been in their possession, but Og was the last of them. These giants, it seems, had lost their country, and were rooted out of it sooner than any of their neighbours; for those who, presuming upon their strength and stature, had their hand against every man, had every man's hand against them, and went down slain to the pit, though they were the terror of the mighty in the land of the living. 2. He repeats the condition of the grant which they had already agreed to, De 3:18-20. That they should send a strong detachment over Jordan to lead the van in the conquest of Canaan, who should not return to their families, at least not to settle (though for a time they might retire thither into winter quarters, at the end of a campaign), till they had seen their brethren in as full possession of their respective allotments as they themselves were now in of theirs. They must hereby be taught not to *look at their own things only, but at the things of others,* Php 2:4. It ill becomes an Israelite to be selfish, and to prefer any private interest before the public welfare. When we are rest we should desire to see our brethren at rest too, and should be ready to do what we can towards it; for we are not born for ourselves, but are members one of another. A good man cannot rejoice much in the comforts of his family unless withal he sees *peace upon Israel,* Ps 128:6.
 
 ## Joshua Named as Moses's Successor. (b. c. 1451.)
 
-> <sup>21</sup> And I commanded Joshua at that time, saying, Thine eyes have seen all that the LORD your God hath done unto these two kings: so shall the LORD do unto all the kingdoms whither thou passest.  
-> <sup>22</sup> Ye shall not fear them: for the LORD your God he shall fight for you.  
-> <sup>23</sup> And I besought the LORD at that time, saying,  
-> <sup>24</sup> O Lord GOD, thou hast begun to show thy servant thy greatness, and thy mighty hand: for what God *is there* in heaven or in earth, that can do according to thy works, and according to thy might?  
-> <sup>25</sup> I pray thee, let me go over, and see the good land that *is* beyond Jordan, that goodly mountain, and Lebanon.  
-> <sup>26</sup> But the LORD was wroth with me for your sakes, and would not hear me: and the LORD said unto me, Let it suffice thee; speak no more unto me of this matter.  
-> <sup>27</sup> Get thee up into the top of Pisgah, and lift up thine eyes westward, and northward, and southward, and eastward, and behold *it* with thine eyes: for thou shalt not go over this Jordan.  
-> <sup>28</sup> But charge Joshua, and encourage him, and strengthen him: for he shall go over before this people, and he shall cause them to inherit the land which thou shalt see.  
-> <sup>29</sup> So we abode in the valley over against Beth-peor.  
+> **²¹** And I commanded Joshua at that time, saying, Thine eyes have seen all that the LORD your God hath done unto these two kings: so shall the LORD do unto all the kingdoms whither thou passest.  
+> **²²** Ye shall not fear them: for the LORD your God he shall fight for you.  
+> **²³** And I besought the LORD at that time, saying,  
+> **²⁴** O Lord GOD, thou hast begun to show thy servant thy greatness, and thy mighty hand: for what God *is there* in heaven or in earth, that can do according to thy works, and according to thy might?  
+> **²⁵** I pray thee, let me go over, and see the good land that *is* beyond Jordan, that goodly mountain, and Lebanon.  
+> **²⁶** But the LORD was wroth with me for your sakes, and would not hear me: and the LORD said unto me, Let it suffice thee; speak no more unto me of this matter.  
+> **²⁷** Get thee up into the top of Pisgah, and lift up thine eyes westward, and northward, and southward, and eastward, and behold *it* with thine eyes: for thou shalt not go over this Jordan.  
+> **²⁸** But charge Joshua, and encourage him, and strengthen him: for he shall go over before this people, and he shall cause them to inherit the land which thou shalt see.  
+> **²⁹** So we abode in the valley over against Beth-peor.  
 
 Here is I. The encouragement which Moses gave to Joshua, who was to succeed him in the government, De 3:21,22. He commanded him not to fear. Thus those that are aged and experienced in the service of God should do all they can to strengthen the hands of those that are young, and setting out in religion. Two things he would have him consider for his encouragement:—1. What God has done. Joshua had seen what a total defeat God had given by the forces of Israel to these two kings, and thence he might easily infer, *so shall the Lord do to all the rest of the kingdoms* upon which we are to make war. He must not only infer thence that thus the Lord can do with them all, for his arm is not shortened, but thus he will do, for his purpose is not changed; he that has begun will finish; *as for God, his work is perfect.* Joshua had seen it with his own eyes. And the more we have seen of the instances of divine wisdom, power, and goodness, the more inexcusable we are if we *fear what flesh can do unto us.* 2. What God had promised. The *Lord your God he shall fight for you;* and that cause cannot but be victorious which the Lord of hosts fights for. *If God be for us, who can be against us* so as to prevail? We reproach our leader if we follow him trembling.
 

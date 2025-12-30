@@ -8,13 +8,13 @@ We now return to Jerusalem, and must again hear what God has to say to her, I. B
 
 ## The Depravity of Jerusalem. (b. c. 612.)
 
-> <sup>1</sup> Woe to her that is filthy and polluted, to the oppressing city!  
-> <sup>2</sup> She obeyed not the voice; she received not correction; she trusted not in the LORD; she drew not near to her God.  
-> <sup>3</sup> Her princes within her *are* roaring lions; her judges *are* evening wolves; they gnaw not the bones till the morrow.  
-> <sup>4</sup> Her prophets *are* light *and* treacherous persons: her priests have polluted the sanctuary, they have done violence to the law.  
-> <sup>5</sup> The just LORD *is* in the midst thereof; he will not do iniquity: every morning doth he bring his judgment to light, he faileth not; but the unjust knoweth no shame.  
-> <sup>6</sup> I have cut off the nations: their towers are desolate; I made their streets waste, that none passeth by: their cities are destroyed, so that there is no man, that there is none inhabitant.  
-> <sup>7</sup> I said, Surely thou wilt fear me, thou wilt receive instruction; so their dwelling should not be cut off, howsoever I punished them: but they rose early, *and* corrupted all their doings.  
+> **¹** Woe to her that is filthy and polluted, to the oppressing city!  
+> **²** She obeyed not the voice; she received not correction; she trusted not in the LORD; she drew not near to her God.  
+> **³** Her princes within her *are* roaring lions; her judges *are* evening wolves; they gnaw not the bones till the morrow.  
+> **⁴** Her prophets *are* light *and* treacherous persons: her priests have polluted the sanctuary, they have done violence to the law.  
+> **⁵** The just LORD *is* in the midst thereof; he will not do iniquity: every morning doth he bring his judgment to light, he faileth not; but the unjust knoweth no shame.  
+> **⁶** I have cut off the nations: their towers are desolate; I made their streets waste, that none passeth by: their cities are destroyed, so that there is no man, that there is none inhabitant.  
+> **⁷** I said, Surely thou wilt fear me, thou wilt receive instruction; so their dwelling should not be cut off, howsoever I punished them: but they rose early, *and* corrupted all their doings.  
 
 One would wonder that Jerusalem, the holy city, where God was known, and his name was great, should be the city of which this black character is here given, that a place which enjoyed such abundance of the means of grace should become so very corrupt and vicious, and that God should permit it to be so; yet so it is, to show that *the law made nothing perfect;* but if this be the true character of Jerusalem, as no doubt it is (for God's judgments will make none worse than they are), it is no wonder that the prophet begins with *woe to her.* For the holy God hates sin in those that are nearest to him, nay, in them he hates it most. A sinful state is, and will be, a woeful state.
 
@@ -32,12 +32,12 @@ III\. We have here the aggravations of this general corruption of all orders and
 
 ## Judgment and Mercy; Promises of Mercy. (b. c. 612.)
 
-> <sup>8</sup> Therefore wait ye upon me, saith the LORD, until the day that I rise up to the prey: for my determination *is* to gather the nations, that I may assemble the kingdoms, to pour upon them mine indignation, *even* all my fierce anger: for all the earth shall be devoured with the fire of my jealousy.  
-> <sup>9</sup> For then will I turn to the people a pure language, that they may all call upon the name of the LORD, to serve him with one consent.  
-> <sup>10</sup> From beyond the rivers of Ethiopia my suppliants, *even* the daughter of my dispersed, shall bring mine offering.  
-> <sup>11</sup> In that day shalt thou not be ashamed for all thy doings, wherein thou hast transgressed against me: for then I will take away out of the midst of thee them that rejoice in thy pride, and thou shalt no more be haughty because of my holy mountain.  
-> <sup>12</sup> I will also leave in the midst of thee an afflicted and poor people, and they shall trust in the name of the LORD.  
-> <sup>13</sup> The remnant of Israel shall not do iniquity, nor speak lies; neither shall a deceitful tongue be found in their mouth: for they shall feed and lie down, and none shall make *them* afraid.  
+> **⁸** Therefore wait ye upon me, saith the LORD, until the day that I rise up to the prey: for my determination *is* to gather the nations, that I may assemble the kingdoms, to pour upon them mine indignation, *even* all my fierce anger: for all the earth shall be devoured with the fire of my jealousy.  
+> **⁹** For then will I turn to the people a pure language, that they may all call upon the name of the LORD, to serve him with one consent.  
+> **¹⁰** From beyond the rivers of Ethiopia my suppliants, *even* the daughter of my dispersed, shall bring mine offering.  
+> **¹¹** In that day shalt thou not be ashamed for all thy doings, wherein thou hast transgressed against me: for then I will take away out of the midst of thee them that rejoice in thy pride, and thou shalt no more be haughty because of my holy mountain.  
+> **¹²** I will also leave in the midst of thee an afflicted and poor people, and they shall trust in the name of the LORD.  
+> **¹³** The remnant of Israel shall not do iniquity, nor speak lies; neither shall a deceitful tongue be found in their mouth: for they shall feed and lie down, and none shall make *them* afraid.  
 
 Things looked very bad with Jerusalem in the Zep 3:1-7; she has got into a very bad name, and seems to be incorrigible, incurable, mercy-proof and judgment-proof. Now one would think it should follow, Therefore expect no other but that she should be utterly abandoned and rejected as *reprobate silver;* since they will not be wrought upon by prophets or providences, let them be made a desolation as their neighbours have been. But behold and wonder at the riches of divine grace, which takes occasion from man's badness to appear so much the more illustrious. They still grew worse and worse, *therefore wait you upon me, saith the Lord,* Zep 3:8. "Since the *law,* it seems, will *make nothing perfect,* the *bringing in of a better hope shall.* Let those that lament the corruptions of the church *wait upon God,* till he send his Son into the world, to *save his people from their sins,* till he send his gospel to reform and refine his church, and to purify to himself a peculiar people both of Jews and Gentiles." And there were those who, according to this direction and encouragement, *waited for redemption,* for this redemption in Jerusalem; and long-looked-for came at last, Lu 2:38. *For judgment* Christ will *come into this world,* Joh 9:39.
 
@@ -59,13 +59,13 @@ II\. To amend what he finds amiss in his church. When God intends the restoratio
 
 ## Evangelical Predictions. (b. c. 612.)
 
-> <sup>14</sup> Sing, O daughter of Zion; shout, O Israel; be glad and rejoice with all the heart, O daughter of Jerusalem.  
-> <sup>15</sup> The LORD hath taken away thy judgments, he hath cast out thine enemy: the king of Israel, *even* the LORD, *is* in the midst of thee: thou shalt not see evil any more.  
-> <sup>16</sup> In that day it shall be said to Jerusalem, Fear thou not: *and to* Zion, Let not thine hands be slack.  
-> <sup>17</sup> The LORD thy God in the midst of thee *is* mighty; he will save, he will rejoice over thee with joy; he will rest in his love, he will joy over thee with singing.  
-> <sup>18</sup> I will gather *them that are* sorrowful for the solemn assembly, *who* are of thee, *to whom* the reproach of it *was* a burden.  
-> <sup>19</sup> Behold, at that time I will undo all that afflict thee: and I will save her that halteth, and gather her that was driven out; and I will get them praise and fame in every land where they have been put to shame.  
-> <sup>20</sup> At that time will I bring you *again,* even in the time that I gather you: for I will make you a name and a praise among all people of the earth, when I turn back your captivity before your eyes, saith the LORD.  
+> **¹⁴** Sing, O daughter of Zion; shout, O Israel; be glad and rejoice with all the heart, O daughter of Jerusalem.  
+> **¹⁵** The LORD hath taken away thy judgments, he hath cast out thine enemy: the king of Israel, *even* the LORD, *is* in the midst of thee: thou shalt not see evil any more.  
+> **¹⁶** In that day it shall be said to Jerusalem, Fear thou not: *and to* Zion, Let not thine hands be slack.  
+> **¹⁷** The LORD thy God in the midst of thee *is* mighty; he will save, he will rejoice over thee with joy; he will rest in his love, he will joy over thee with singing.  
+> **¹⁸** I will gather *them that are* sorrowful for the solemn assembly, *who* are of thee, *to whom* the reproach of it *was* a burden.  
+> **¹⁹** Behold, at that time I will undo all that afflict thee: and I will save her that halteth, and gather her that was driven out; and I will get them praise and fame in every land where they have been put to shame.  
+> **²⁰** At that time will I bring you *again,* even in the time that I gather you: for I will make you a name and a praise among all people of the earth, when I turn back your captivity before your eyes, saith the LORD.  
 
 After the promises of the taking away of sin, here follow promises of the taking away of trouble; for when the cause is removed the effect will cease. What makes a people holy will make them happy of course. The precious promises here made to the purified people were to have their full accomplishment in the comforts of the gospel, in the hope, and much more in the enjoyment, of which, they are here called upon, 1. To rejoice and sing (Zep 3:14): *Sing, O daughter of Zion!* sing for joy; *Shout, O Israel!* in a holy transport and exultation; *be glad and rejoice with all the heart;* let the joy be inward, let it be great. Those that love God with all their heart have occasion with all their heart to rejoice in him. It was promised (Zep 3:13) that their sins should be mortified and their fears silenced, and then follows, *Sing* and *rejoice.* Note, Those that reform have cause to rejoice, whereas Israel cannot rejoice for joy as other people, while she goes a whoring from her God. God's promises, applied by faith, furnish the saints with constant and abundant matter for joy; they are filled with joy and peace in believing them. 2. To throw off all their discouragements (Zep 3:16): *In that day it shall be said to Jerusalem* (God will say it by his prophets, by his providences, their neighbours shall say it, they shall say it to one another), "*Fear thou not,* be not disposed to fear, do not easily admit the impressions of it; when things are bad, fear not their being worse, but hope they will mend; frighten not thyself upon every occasion. *Let not thy hands be slack* or *faint;* wring not thy hands in despair; drop not thy hands in despondence; disfit not thyself for thy work and warfare by giving way to doubts and fears. Pluck up thy spirits, and, in token of that, lift up thy hands, the *hands that hung down,* Heb 12:12, Isa 35:3. Lift up thy hands in prayer to God; lift up thy hands to help thyself." Fear makes the hands slack, but faith and hope make them vigorous, and the joy of the Lord will be our strength both for doing and suffering.
 

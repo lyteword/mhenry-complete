@@ -8,8 +8,8 @@ In this chapter we have an account, I. Of the measuring—reed given to the apos
 
 ## The Measuring of the Temple. (a. d. 95.)
 
-> <sup>1</sup> And there was given me a reed like unto a rod: and the angel stood, saying, Rise, and measure the temple of God, and the altar, and them that worship therein.  
-> <sup>2</sup> But the court which is without the temple leave out, and measure it not; for it is given unto the Gentiles: and the holy city shall they tread under foot forty *and* two months.  
+> **¹** And there was given me a reed like unto a rod: and the angel stood, saying, Rise, and measure the temple of God, and the altar, and them that worship therein.  
+> **²** But the court which is without the temple leave out, and measure it not; for it is given unto the Gentiles: and the holy city shall they tread under foot forty *and* two months.  
 
 This prophetical passage about measuring the temple is a plain reference to what we find in Ezekiel's vision, Eze 40:3, etc. But how to understand either the one or the other is not so easy. It should seem the design of measuring the temple in the former case was in order to the rebuilding of it, and that with advantage; the design of this measurement seems to be either, 1. For the preservation of it in those times of public danger and calamity that are here foretold; or, 2. For its trial; that it may be seen how far it agrees with the standard, or pattern, in the mount; or, 3. For its reformation; that what is redundant, deficient, or changed, may be regulated according to the true model. Observe,
 
@@ -19,17 +19,17 @@ II\. What was not to be measured (Re 11:2), and why it should be left out. 1. Wh
 
 ## The Two Witnesses. (a. d. 95.)
 
-> <sup>3</sup> And I will give *power* unto my two witnesses, and they shall prophesy a thousand two hundred *and* threescore days, clothed in sackcloth.  
-> <sup>4</sup> These are the two olive trees, and the two candlesticks standing before the God of the earth.  
-> <sup>5</sup> And if any man will hurt them, fire proceedeth out of their mouth, and devoureth their enemies: and if any man will hurt them, he must in this manner be killed.  
-> <sup>6</sup> These have power to shut heaven, that it rain not in the days of their prophecy: and have power over waters to turn them to blood, and to smite the earth with all plagues, as often as they will.  
-> <sup>7</sup> And when they shall have finished their testimony, the beast that ascendeth out of the bottomless pit shall make war against them, and shall overcome them, and kill them.  
-> <sup>8</sup> And their dead bodies *shall lie* in the street of the great city, which spiritually is called Sodom and Egypt, where also our Lord was crucified.  
-> <sup>9</sup> And they of the people and kindreds and tongues and nations shall see their dead bodies three days and a half, and shall not suffer their dead bodies to be put in graves.  
-> <sup>10</sup> And they that dwell upon the earth shall rejoice over them, and make merry, and shall send gifts one to another; because these two prophets tormented them that dwelt on the earth.  
-> <sup>11</sup> And after three days and a half the Spirit of life from God entered into them, and they stood upon their feet; and great fear fell upon them which saw them.  
-> <sup>12</sup> And they heard a great voice from heaven saying unto them, Come up hither. And they ascended up to heaven in a cloud; and their enemies beheld them.  
-> <sup>13</sup> And the same hour was there a great earthquake, and the tenth part of the city fell, and in the earthquake were slain of men seven thousand: and the remnant were affrighted, and gave glory to the God of heaven.  
+> **³** And I will give *power* unto my two witnesses, and they shall prophesy a thousand two hundred *and* threescore days, clothed in sackcloth.  
+> **⁴** These are the two olive trees, and the two candlesticks standing before the God of the earth.  
+> **⁵** And if any man will hurt them, fire proceedeth out of their mouth, and devoureth their enemies: and if any man will hurt them, he must in this manner be killed.  
+> **⁶** These have power to shut heaven, that it rain not in the days of their prophecy: and have power over waters to turn them to blood, and to smite the earth with all plagues, as often as they will.  
+> **⁷** And when they shall have finished their testimony, the beast that ascendeth out of the bottomless pit shall make war against them, and shall overcome them, and kill them.  
+> **⁸** And their dead bodies *shall lie* in the street of the great city, which spiritually is called Sodom and Egypt, where also our Lord was crucified.  
+> **⁹** And they of the people and kindreds and tongues and nations shall see their dead bodies three days and a half, and shall not suffer their dead bodies to be put in graves.  
+> **¹⁰** And they that dwell upon the earth shall rejoice over them, and make merry, and shall send gifts one to another; because these two prophets tormented them that dwelt on the earth.  
+> **¹¹** And after three days and a half the Spirit of life from God entered into them, and they stood upon their feet; and great fear fell upon them which saw them.  
+> **¹²** And they heard a great voice from heaven saying unto them, Come up hither. And they ascended up to heaven in a cloud; and their enemies beheld them.  
+> **¹³** And the same hour was there a great earthquake, and the tenth part of the city fell, and in the earthquake were slain of men seven thousand: and the remnant were affrighted, and gave glory to the God of heaven.  
 
 In this time of treading down, God has reserved to himself his faithful witnesses, who will not fail to attest the truth of his word and worship, and the excellency of his ways. Here observe,
 
@@ -51,12 +51,12 @@ VIII\. The ascension of the witnesses into heaven and the consequences thereof, 
 
 ## The Seventh Trumpet. (a. d. 95.)
 
-> <sup>14</sup> The second woe is past; *and,* behold, the third woe cometh quickly.  
-> <sup>15</sup> And the seventh angel sounded; and there were great voices in heaven, saying, The kingdoms of this world are become *the kingdoms* of our Lord, and of his Christ; and he shall reign for ever and ever.  
-> <sup>16</sup> And the four and twenty elders, which sat before God on their seats, fell upon their faces, and worshipped God,  
-> <sup>17</sup> Saying, We give thee thanks, O Lord God Almighty, which art, and wast, and art to come; because thou hast taken to thee thy great power, and hast reigned.  
-> <sup>18</sup> And the nations were angry, and thy wrath is come, and the time of the dead, that they should be judged, and that thou shouldest give reward unto thy servants the prophets, and to the saints, and them that fear thy name, small and great; and shouldest destroy them which destroy the earth.  
-> <sup>19</sup> And the temple of God was opened in heaven, and there was seen in his temple the ark of his testament: and there were lightnings, and voices, and thunderings, and an earthquake, and great hail.  
+> **¹⁴** The second woe is past; *and,* behold, the third woe cometh quickly.  
+> **¹⁵** And the seventh angel sounded; and there were great voices in heaven, saying, The kingdoms of this world are become *the kingdoms* of our Lord, and of his Christ; and he shall reign for ever and ever.  
+> **¹⁶** And the four and twenty elders, which sat before God on their seats, fell upon their faces, and worshipped God,  
+> **¹⁷** Saying, We give thee thanks, O Lord God Almighty, which art, and wast, and art to come; because thou hast taken to thee thy great power, and hast reigned.  
+> **¹⁸** And the nations were angry, and thy wrath is come, and the time of the dead, that they should be judged, and that thou shouldest give reward unto thy servants the prophets, and to the saints, and them that fear thy name, small and great; and shouldest destroy them which destroy the earth.  
+> **¹⁹** And the temple of God was opened in heaven, and there was seen in his temple the ark of his testament: and there were lightnings, and voices, and thunderings, and an earthquake, and great hail.  
 
 We have here the sounding of the seventh and last trumpet, which is ushered in by the usual warning and demand of attention: *The second woe is past, and, behold, the third woe cometh quickly. Then the seventh angel sounded.* This had been suspended for some time, till the apostle had been made acquainted with some intervening occurrences of very great moment, and worthy of his notice and observation. But what he before expected he now heard—the seventh angel sounding. Here observe the effects and consequences of this trumpet, thus sounded.
 

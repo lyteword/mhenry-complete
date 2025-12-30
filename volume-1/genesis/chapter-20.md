@@ -8,16 +8,16 @@ We are here returning to the story of Abraham; yet that part of it which is here
 
 ## Abraham's Denial of His Wife. (b. c. 1898.)
 
-> <sup>1</sup> And Abraham journeyed from thence toward the south country, and dwelled between Kadesh and Shur, and sojourned in Gerar.  
-> <sup>2</sup> And Abraham said of Sarah his wife, She *is* my sister: and Abimelech king of Gerar sent, and took Sarah.  
+> **¹** And Abraham journeyed from thence toward the south country, and dwelled between Kadesh and Shur, and sojourned in Gerar.  
+> **²** And Abraham said of Sarah his wife, She *is* my sister: and Abimelech king of Gerar sent, and took Sarah.  
 
 Here is, 1. Abraham's removal from Mamre, where he had lived nearly twenty years, into the country of the Philistines: *He sojourned in Gerar,* Ge 20:1. We are not told upon what occasion he removed, whether terrified by the destruction of Sodom, or because the country round was for the present prejudiced by it, or, as some of the Jewish writers say, because he was grieved at Lot's incest with his daughters, and the reproach which the Canaanites cast upon him and his religion, for his kinsman's sake: doubtless there was some good cause for his removal. Note, In a world where we are strangers and pilgrims we cannot expect to be always in the same place. Again, Wherever we are, we must look upon ourselves but as sojourners. 2. His sin in denying his wife, as before (Ge 12:13), which was not only in itself such an equivocation as bordered upon a lie, and which, if admitted as lawful, would be the ruin of human converse and an inlet to all falsehood, but was also an exposing of the chastity and honour of his wife, of which he ought to have been the protector. But, besides this, it had here a two-fold aggravation:— (1.) He had been guilty of this same sin before, and had been reproved for it, and convinced of the folly of the suggestion which induced him to it; yet he returns to it. Note, It is possible that a good man may, not only fall into sin, but relapse into the same sin, through the surprise and strength of temptation and the infirmity of the flesh. Let backsliders repent then, but not despair, Jer 3:22. (2.) Sarah, as it should seem, was now with child of the promised seed, or, at least, in expectation of being so quickly, according to the word of God; he ought therefore to have taken particular care of her now, as Jdg 13:4. 3. The peril that Sarah was brought into by this means: *The king of Gerar sent, and took her* to his house, in order to the taking of her to his bed. Note, The sin of one often occasions the sin of others; he that breaks the hedge of God's commandments opens a gap to he knows not how many; the beginning of sin is as the letting forth of water.
 
-> <sup>3</sup> But God came to Abimelech in a dream by night, and said to him, Behold, thou *art but* a dead man, for the woman which thou hast taken; for she *is* a man's wife.  
-> <sup>4</sup> But Abimelech had not come near her: and he said, LORD, wilt thou slay also a righteous nation?  
-> <sup>5</sup> Said he not unto me, She *is* my sister? and she, even she herself said, He *is* my brother: in the integrity of my heart and innocency of my hands have I done this.  
-> <sup>6</sup> And God said unto him in a dream, Yea, I know that thou didst this in the integrity of thy heart; for I also withheld thee from sinning against me: therefore suffered I thee not to touch her.  
-> <sup>7</sup> Now therefore restore the man *his* wife; for he *is* a prophet, and he shall pray for thee, and thou shalt live: and if thou restore *her* not, know thou that thou shalt surely die, thou, and all that *are* thine.  
+> **³** But God came to Abimelech in a dream by night, and said to him, Behold, thou *art but* a dead man, for the woman which thou hast taken; for she *is* a man's wife.  
+> **⁴** But Abimelech had not come near her: and he said, LORD, wilt thou slay also a righteous nation?  
+> **⁵** Said he not unto me, She *is* my sister? and she, even she herself said, He *is* my brother: in the integrity of my heart and innocency of my hands have I done this.  
+> **⁶** And God said unto him in a dream, Yea, I know that thou didst this in the integrity of thy heart; for I also withheld thee from sinning against me: therefore suffered I thee not to touch her.  
+> **⁷** Now therefore restore the man *his* wife; for he *is* a prophet, and he shall pray for thee, and thou shalt live: and if thou restore *her* not, know thou that thou shalt surely die, thou, and all that *are* thine.  
 
 It appears by this that God revealed himself by dreams (which evidenced themselves to be divine and supernatural) not only to his servants the prophets, but even to those who were out of the pale of the church and covenant; but then, usually, it was with some regard to God's own people as in Pharaoh's dream, to Joseph, in Nebuchadnezzar's, to Daniel, and here, in Abimelech's, to Abraham and Sarah, for he reproved this king for their sake, Ps 105:14,15.
 
@@ -35,12 +35,12 @@ III\. God gives a very full answer to what he had said.
 
 ## Abimelech's Conduct Towards Abraham. (b. c. 1898.)
 
-> <sup>8</sup> Therefore Abimelech rose early in the morning, and called all his servants, and told all these things in their ears: and the men were sore afraid.  
-> <sup>9</sup> Then Abimelech called Abraham, and said unto him, What hast thou done unto us? and what have I offended thee, that thou hast brought on me and on my kingdom a great sin? thou hast done deeds unto me that ought not to be done.  
-> <sup>10</sup> And Abimelech said unto Abraham, What sawest thou, that thou hast done this thing?  
-> <sup>11</sup> And Abraham said, Because I thought, Surely the fear of God *is* not in this place; and they will slay me for my wife's sake.  
-> <sup>12</sup> And yet indeed *she is* my sister; she *is* the daughter of my father, but not the daughter of my mother; and she became my wife.  
-> <sup>13</sup> And it came to pass, when God caused me to wander from my father's house, that I said unto her, This *is* thy kindness which thou shalt show unto me; at every place whither we shall come, say of me, He *is* my brother.  
+> **⁸** Therefore Abimelech rose early in the morning, and called all his servants, and told all these things in their ears: and the men were sore afraid.  
+> **⁹** Then Abimelech called Abraham, and said unto him, What hast thou done unto us? and what have I offended thee, that thou hast brought on me and on my kingdom a great sin? thou hast done deeds unto me that ought not to be done.  
+> **¹⁰** And Abimelech said unto Abraham, What sawest thou, that thou hast done this thing?  
+> **¹¹** And Abraham said, Because I thought, Surely the fear of God *is* not in this place; and they will slay me for my wife's sake.  
+> **¹²** And yet indeed *she is* my sister; she *is* the daughter of my father, but not the daughter of my mother; and she became my wife.  
+> **¹³** And it came to pass, when God caused me to wander from my father's house, that I said unto her, This *is* thy kindness which thou shalt show unto me; at every place whither we shall come, say of me, He *is* my brother.  
 
 Abimelech, being thus warned of God in a dream, takes the warning, and, as one truly afraid of sin and its consequences, he rises early to obey the directions given him.
 
@@ -58,11 +58,11 @@ II\. He has a chiding for Abraham. Observe,
 
 (3.) He clears himself from the imputation of an affront designed to Abimelech in it by alleging that it had been his practice before, according to an agreement between him and his wife, when they first became sojourners (Ge 20:13): "*When God caused me to wander from my father's house,* then we settled this matter." Note, [1.] God is to be acknowledged in all our wanderings. [2.] Those that travel abroad, and converse much with strangers, as they have need of the wisdom of the serpent, so it is requisite that that wisdom be ever tempered with the innocence of the dove. It may, for aught I know, be suggested that God denied to Abraham and Sarah the blessing of children so long to punish them for this sinful compact if they will not own their marriage, why should God own it? But we may suppose that, after this reproof which Abimelech gave them, they agreed never to do so again, and then presently we read (Ge 21:1,2) that *Sarah conceived.*
 
-> <sup>14</sup> And Abimelech took sheep, and oxen, and menservants, and womenservants, and gave *them* unto Abraham, and restored him Sarah his wife.  
-> <sup>15</sup> And Abimelech said, Behold, my land *is* before thee: dwell where it pleaseth thee.  
-> <sup>16</sup> And unto Sarah he said, Behold, I have given thy brother a thousand *pieces* of silver: behold, he *is* to thee a covering of the eyes, unto all that *are* with thee, and with all *other:* thus she was reproved.  
-> <sup>17</sup> So Abraham prayed unto God: and God healed Abimelech, and his wife, and his maidservants; and they bare *children.*  
-> <sup>18</sup> For the LORD had fast closed up all the wombs of the house of Abimelech, because of Sarah Abraham's wife.  
+> **¹⁴** And Abimelech took sheep, and oxen, and menservants, and womenservants, and gave *them* unto Abraham, and restored him Sarah his wife.  
+> **¹⁵** And Abimelech said, Behold, my land *is* before thee: dwell where it pleaseth thee.  
+> **¹⁶** And unto Sarah he said, Behold, I have given thy brother a thousand *pieces* of silver: behold, he *is* to thee a covering of the eyes, unto all that *are* with thee, and with all *other:* thus she was reproved.  
+> **¹⁷** So Abraham prayed unto God: and God healed Abimelech, and his wife, and his maidservants; and they bare *children.*  
+> **¹⁸** For the LORD had fast closed up all the wombs of the house of Abimelech, because of Sarah Abraham's wife.  
 
 Here is, I. The kindness of a prince which Abimelech showed to Abraham. See how unjust Abraham's jealousies were. He fancied that if they knew that Sarah was his wife they would kill him; but, when they did know it, instead of killing him they were kind to him, frightened at least to be so by the divine rebukes they were under. 1. He gives him his royal licence to dwell where he pleased in his country, courting his stay because he gives him his royal gifts (Ge 20:14), *sheep and oxen,* and (Ge 20:16) *a thousand pieces of silver.* This he gave when he restored Sarah, either, [1.] By way of satisfaction for the wrong he had offered to do, in taking her to his house: when the Philistines restored the ark, being plagued for detaining it, they sent a present with it. The law appointed that when restitution was made something should be added to it, Le 6:5. Or, [2.] To engage Abraham's prayers for him; not as if prayers should be bought and sold, but we should endeavour to be kind to those of whose spiritual things we reap, 1Co 9:11. Note, It is our wisdom to get and keep an interest with those that have an interest in heaven, and to make those our friends who are the friends of God. [3.] He gives to Sarah good instruction, tells her that her husband (her *brother* he calls him, to upbraid her with calling him so) must be to her for *a covering of the eyes,* that is, she must look at no other, nor desire to be looked at by any other. Note, Yoke-fellows must be to each other for a covering of the eyes. The marriage-covenant is a covenant with the eyes, like Job's, Job 31:1.
 

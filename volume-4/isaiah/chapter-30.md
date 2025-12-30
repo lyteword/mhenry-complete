@@ -8,13 +8,13 @@ The prophecy of this chapter seems to relate (as that in the foregoing chapter) 
 
 ## The Foolish Confidence of Judah. (b. c. 720.)
 
-> <sup>1</sup> Woe to the rebellious children, saith the LORD, that take counsel, but not of me; and that cover with a covering, but not of my spirit, that they may add sin to sin:  
-> <sup>2</sup> That walk to go down into Egypt, and have not asked at my mouth; to strengthen themselves in the strength of Pharaoh, and to trust in the shadow of Egypt!  
-> <sup>3</sup> Therefore shall the strength of Pharaoh be your shame, and the trust in the shadow of Egypt *your* confusion.  
-> <sup>4</sup> For his princes were at Zoan, and his ambassadors came to Hanes.  
-> <sup>5</sup> They were all ashamed of a people *that* could not profit them, nor be a help nor profit, but a shame, and also a reproach.  
-> <sup>6</sup> The burden of the beasts of the south: into the land of trouble and anguish, from whence *come* the young and old lion, the viper and fiery flying serpent, they will carry their riches upon the shoulders of young asses, and their treasures upon the bunches of camels, to a people *that* shall not profit *them.*  
-> <sup>7</sup> For the Egyptians shall help in vain, and to no purpose: therefore have I cried concerning this, Their strength *is* to sit still.  
+> **¹** Woe to the rebellious children, saith the LORD, that take counsel, but not of me; and that cover with a covering, but not of my spirit, that they may add sin to sin:  
+> **²** That walk to go down into Egypt, and have not asked at my mouth; to strengthen themselves in the strength of Pharaoh, and to trust in the shadow of Egypt!  
+> **³** Therefore shall the strength of Pharaoh be your shame, and the trust in the shadow of Egypt *your* confusion.  
+> **⁴** For his princes were at Zoan, and his ambassadors came to Hanes.  
+> **⁵** They were all ashamed of a people *that* could not profit them, nor be a help nor profit, but a shame, and also a reproach.  
+> **⁶** The burden of the beasts of the south: into the land of trouble and anguish, from whence *come* the young and old lion, the viper and fiery flying serpent, they will carry their riches upon the shoulders of young asses, and their treasures upon the bunches of camels, to a people *that* shall not profit *them.*  
+> **⁷** For the Egyptians shall help in vain, and to no purpose: therefore have I cried concerning this, Their strength *is* to sit still.  
 
 It was often the fault and folly of the people of the Jews that, when they were insulted by their neighbours on one side, they sought for succour from their neighbours on the other side, instead of looking up to God and putting their confidence in him. Against the Israelites they sought to the Syrians, 2Ch 16:2,3. Against the Syrians they sought to the Assyrians, 2Ki 16:7. Against the Assyrians they here sought to the Egyptians, and Rabshakeh upbraided them with so doing, 2Ki 18:21. Now observe here,
 
@@ -28,16 +28,16 @@ IV\. The use and application of all this (Isa 30:7): "*Therefore have I cried co
 
 ## Doom of Incorrigible Sinners. (b. c. 720.)
 
-> <sup>8</sup> Now go, write it before them in a table, and note it in a book, that it may be for the time to come for ever and ever:  
-> <sup>9</sup> That this *is* a rebellious people, lying children, children *that* will not hear the law of the LORD:  
-> <sup>10</sup> Which say to the seers, See not; and to the prophets, Prophesy not unto us right things, speak unto us smooth things, prophesy deceits:  
-> <sup>11</sup> Get you out of the way, turn aside out of the path, cause the Holy One of Israel to cease from before us.  
-> <sup>12</sup> Wherefore thus saith the Holy One of Israel, Because ye despise this word, and trust in oppression and perverseness, and stay thereon:  
-> <sup>13</sup> Therefore this iniquity shall be to you as a breach ready to fall, swelling out in a high wall, whose breaking cometh suddenly at an instant.  
-> <sup>14</sup> And he shall break it as the breaking of the potters' vessel that is broken in pieces; he shall not spare: so that there shall not be found in the bursting of it a sherd to take fire from the hearth, or to take water *withal* out of the pit.  
-> <sup>15</sup> For thus saith the Lord GOD, the Holy One of Israel; In returning and rest shall ye be saved; in quietness and in confidence shall be your strength: and ye would not.  
-> <sup>16</sup> But ye said, No; for we will flee upon horses; therefore shall ye flee: and, We will ride upon the swift; therefore shall they that pursue you be swift.  
-> <sup>17</sup> One thousand *shall flee* at the rebuke of one; at the rebuke of five shall ye flee: till ye be left as a beacon upon the top of a mountain, and as an ensign on a hill.  
+> **⁸** Now go, write it before them in a table, and note it in a book, that it may be for the time to come for ever and ever:  
+> **⁹** That this *is* a rebellious people, lying children, children *that* will not hear the law of the LORD:  
+> **¹⁰** Which say to the seers, See not; and to the prophets, Prophesy not unto us right things, speak unto us smooth things, prophesy deceits:  
+> **¹¹** Get you out of the way, turn aside out of the path, cause the Holy One of Israel to cease from before us.  
+> **¹²** Wherefore thus saith the Holy One of Israel, Because ye despise this word, and trust in oppression and perverseness, and stay thereon:  
+> **¹³** Therefore this iniquity shall be to you as a breach ready to fall, swelling out in a high wall, whose breaking cometh suddenly at an instant.  
+> **¹⁴** And he shall break it as the breaking of the potters' vessel that is broken in pieces; he shall not spare: so that there shall not be found in the bursting of it a sherd to take fire from the hearth, or to take water *withal* out of the pit.  
+> **¹⁵** For thus saith the Lord GOD, the Holy One of Israel; In returning and rest shall ye be saved; in quietness and in confidence shall be your strength: and ye would not.  
+> **¹⁶** But ye said, No; for we will flee upon horses; therefore shall ye flee: and, We will ride upon the swift; therefore shall they that pursue you be swift.  
+> **¹⁷** One thousand *shall flee* at the rebuke of one; at the rebuke of five shall ye flee: till ye be left as a beacon upon the top of a mountain, and as an ensign on a hill.  
 
 Here, I. The preface is very awful. The prophet must not only preach this, but he must write it (Isa 30:8), *write it in a table,* to be hung up and exposed to public view; he must carefully *note it,* not in loose papers which might be lost or torn, but *in a book,* to be preserved for posterity, *in perpetuam rei memoriam—for a standing testimony* against this wicked generation; let it remain not only to the next succeeding ages, but for ever and ever, while the world stands; and so it shall, for the book of the scriptures no doubt, shall continue, and be read, to the end of time. Let it be written, 1. To shame the men of the present age, who would not hear and heed it when it was spoken. Let it be written, that it may not be lost; their children may profit by it, though they will not. 2. To justify God in the judgments he was about to ring upon them; people will be tempted to think he was too hard upon them, and over-severe, unless they know how very bad they were, how very provoking, and what fair means God tried with them before he brought it to this extremity. 3. For warning to others not to do as they did, lest they should fare as they fared. It is designed for admonition to those of the remotest place and age, even those *upon whom the ends of the world have come,* 1Co 10:11. It may be of use for God's ministers not only to preach, but to write; for that which is written remains.
 
@@ -61,15 +61,15 @@ III\. The charge drawn up against them is very high and the sentence passed upon
 
 ## Promises. (b. c. 720.)
 
-> <sup>18</sup> And therefore will the LORD wait, that he may be gracious unto you, and therefore will he be exalted, that he may have mercy upon you: for the LORD *is* a God of judgment: blessed *are* all they that wait for him.  
-> <sup>19</sup> For the people shall dwell in Zion at Jerusalem: thou shalt weep no more: he will be very gracious unto thee at the voice of thy cry; when he shall hear it, he will answer thee.  
-> <sup>20</sup> And *though* the Lord give you the bread of adversity, and the water of affliction, yet shall not thy teachers be removed into a corner any more, but thine eyes shall see thy teachers:  
-> <sup>21</sup> And thine ears shall hear a word behind thee, saying, This *is* the way, walk ye in it, when ye turn to the right hand, and when ye turn to the left.  
-> <sup>22</sup> Ye shall defile also the covering of thy graven images of silver, and the ornament of thy molten images of gold: thou shalt cast them away as a menstruous cloth; thou shalt say unto it, Get thee hence.  
-> <sup>23</sup> Then shall he give the rain of thy seed, that thou shalt sow the ground withal; and bread of the increase of the earth, and it shall be fat and plenteous: in that day shall thy cattle feed in large pastures.  
-> <sup>24</sup> The oxen likewise and the young asses that ear the ground shall eat clean provender, which hath been winnowed with the shovel and with the fan.  
-> <sup>25</sup> And there shall be upon every high mountain, and upon every high hill, rivers *and* streams of waters in the day of the great slaughter, when the towers fall.  
-> <sup>26</sup> Moreover the light of the moon shall be as the light of the sun, and the light of the sun shall be sevenfold, as the light of seven days, in the day that the LORD bindeth up the breach of his people, and healeth the stroke of their wound.  
+> **¹⁸** And therefore will the LORD wait, that he may be gracious unto you, and therefore will he be exalted, that he may have mercy upon you: for the LORD *is* a God of judgment: blessed *are* all they that wait for him.  
+> **¹⁹** For the people shall dwell in Zion at Jerusalem: thou shalt weep no more: he will be very gracious unto thee at the voice of thy cry; when he shall hear it, he will answer thee.  
+> **²⁰** And *though* the Lord give you the bread of adversity, and the water of affliction, yet shall not thy teachers be removed into a corner any more, but thine eyes shall see thy teachers:  
+> **²¹** And thine ears shall hear a word behind thee, saying, This *is* the way, walk ye in it, when ye turn to the right hand, and when ye turn to the left.  
+> **²²** Ye shall defile also the covering of thy graven images of silver, and the ornament of thy molten images of gold: thou shalt cast them away as a menstruous cloth; thou shalt say unto it, Get thee hence.  
+> **²³** Then shall he give the rain of thy seed, that thou shalt sow the ground withal; and bread of the increase of the earth, and it shall be fat and plenteous: in that day shall thy cattle feed in large pastures.  
+> **²⁴** The oxen likewise and the young asses that ear the ground shall eat clean provender, which hath been winnowed with the shovel and with the fan.  
+> **²⁵** And there shall be upon every high mountain, and upon every high hill, rivers *and* streams of waters in the day of the great slaughter, when the towers fall.  
+> **²⁶** Moreover the light of the moon shall be as the light of the sun, and the light of the sun shall be sevenfold, as the light of seven days, in the day that the LORD bindeth up the breach of his people, and healeth the stroke of their wound.  
 
 The closing words of the foregoing paragraph (*You shall be left as a beacon upon a mountain*) some understand as a promise that a remnant of them should be reserved as monuments of mercy; and here the prophet tells them what good times should succeed these calamities. Or the first words in this paragraph may be read by way of antithesis, *Notwithstanding this, yet will the Lord wait that he may be gracious.* The prophet, having shown that those who made Egypt their confidence would be ashamed of it, here shows that those who sat still and made God alone their confidence would have the comfort of it. It is matter of comfort to the people of God, when the times are very bad, that *all will be well yet,* well with those that fear God, when we say to the wicked, *It shall be ill with you.*
 
@@ -89,13 +89,13 @@ V\. The effect of all this should be extraordinary comfort and joy to the people
 
 ## Judgments on Assyria. (b. c. 720.)
 
-> <sup>27</sup> Behold, the name of the LORD cometh from far, burning *with* his anger, and the burden *thereof is* heavy: his lips are full of indignation, and his tongue as a devouring fire:  
-> <sup>28</sup> And his breath, as an overflowing stream, shall reach to the midst of the neck, to sift the nations with the sieve of vanity: and *there shall be* a bridle in the jaws of the people, causing *them* to err.  
-> <sup>29</sup> Ye shall have a song, as in the night *when* a holy solemnity is kept; and gladness of heart, as when one goeth with a pipe to come into the mountain of the LORD, to the mighty One of Israel.  
-> <sup>30</sup> And the LORD shall cause his glorious voice to be heard, and shall show the lighting down of his arm, with the indignation of *his* anger, and *with* the flame of a devouring fire, *with* scattering, and tempest, and hailstones.  
-> <sup>31</sup> For through the voice of the LORD shall the Assyrian be beaten down, *which* smote with a rod.  
-> <sup>32</sup> And *in* every place where the grounded staff shall pass, which the LORD shall lay upon him, *it* shall be with tabrets and harps: and in battles of shaking will he fight with it.  
-> <sup>33</sup> For Tophet *is* ordained of old; yea, for the king it is prepared; he hath made *it* deep *and* large: the pile thereof *is* fire and much wood; the breath of the LORD, like a stream of brimstone, doth kindle it.  
+> **²⁷** Behold, the name of the LORD cometh from far, burning *with* his anger, and the burden *thereof is* heavy: his lips are full of indignation, and his tongue as a devouring fire:  
+> **²⁸** And his breath, as an overflowing stream, shall reach to the midst of the neck, to sift the nations with the sieve of vanity: and *there shall be* a bridle in the jaws of the people, causing *them* to err.  
+> **²⁹** Ye shall have a song, as in the night *when* a holy solemnity is kept; and gladness of heart, as when one goeth with a pipe to come into the mountain of the LORD, to the mighty One of Israel.  
+> **³⁰** And the LORD shall cause his glorious voice to be heard, and shall show the lighting down of his arm, with the indignation of *his* anger, and *with* the flame of a devouring fire, *with* scattering, and tempest, and hailstones.  
+> **³¹** For through the voice of the LORD shall the Assyrian be beaten down, *which* smote with a rod.  
+> **³²** And *in* every place where the grounded staff shall pass, which the LORD shall lay upon him, *it* shall be with tabrets and harps: and in battles of shaking will he fight with it.  
+> **³³** For Tophet *is* ordained of old; yea, for the king it is prepared; he hath made *it* deep *and* large: the pile thereof *is* fire and much wood; the breath of the LORD, like a stream of brimstone, doth kindle it.  
 
 This terrible prediction of the ruin of the Assyrian army, though it is a threatening to them, is part of the promise to the Israel of God, that God would not only punish the Assyrians for the mischief they had done to the Israel of God, but would disable and deter them from doing the like again; and this prediction, which would now shortly be accomplished, would ratify and confirm the foregoing promises, which should be accomplished in the latter days. Here is,
 

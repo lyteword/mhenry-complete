@@ -8,13 +8,13 @@ The vision in the foregoing chapter gave assurances of the re-establishing of th
 
 ## Joshua resisted and Upheld; Joshua Purified from Pollution; Joshua Reinstalled in His Office. (b. c. 520.)
 
-> <sup>1</sup> And he shewed me Joshua the high priest standing before the angel of the LORD, and Satan standing at his right hand to resist him.  
-> <sup>2</sup> And the LORD said unto Satan, The LORD rebuke thee, O Satan; even the LORD that hath chosen Jerusalem rebuke thee: *is* not this a brand plucked out of the fire?  
-> <sup>3</sup> Now Joshua was clothed with filthy garments, and stood before the angel.  
-> <sup>4</sup> And he answered and spake unto those that stood before him, saying, Take away the filthy garments from him. And unto him he said, Behold, I have caused thine iniquity to pass from thee, and I will clothe thee with change of raiment.  
-> <sup>5</sup> And I said, Let them set a fair mitre upon his head. So they set a fair mitre upon his head, and clothed him with garments. And the angel of the LORD stood by.  
-> <sup>6</sup> And the angel of the LORD protested unto Joshua, saying,  
-> <sup>7</sup> Thus saith the LORD of hosts; If thou wilt walk in my ways, and if thou wilt keep my charge, then thou shalt also judge my house, and shalt also keep my courts, and I will give thee places to walk among these that stand by.  
+> **¹** And he shewed me Joshua the high priest standing before the angel of the LORD, and Satan standing at his right hand to resist him.  
+> **²** And the LORD said unto Satan, The LORD rebuke thee, O Satan; even the LORD that hath chosen Jerusalem rebuke thee: *is* not this a brand plucked out of the fire?  
+> **³** Now Joshua was clothed with filthy garments, and stood before the angel.  
+> **⁴** And he answered and spake unto those that stood before him, saying, Take away the filthy garments from him. And unto him he said, Behold, I have caused thine iniquity to pass from thee, and I will clothe thee with change of raiment.  
+> **⁵** And I said, Let them set a fair mitre upon his head. So they set a fair mitre upon his head, and clothed him with garments. And the angel of the LORD stood by.  
+> **⁶** And the angel of the LORD protested unto Joshua, saying,  
+> **⁷** Thus saith the LORD of hosts; If thou wilt walk in my ways, and if thou wilt keep my charge, then thou shalt also judge my house, and shalt also keep my courts, and I will give thee places to walk among these that stand by.  
 
 There was a Joshua that was a principal agent in the first settling of Israel in Canaan; here is another of the same name very active in their second settlement there after the captivity; Jesus is the same name, and it signifies *Saviour;* and they were both figures of him that was to come, our chief captain and our chief priest. The angel that talked with *Zechariah showed him Joshua the high priest;* it is probable that the prophet saw him frequently, that he spoke to him, and that there was a great intimacy between them; but, in his common views, he only saw how he appeared before men; if he must know how he stands before the Lord, it must be shown him in vision; and so it is shown him. And men are really as they are with God, not as they appear in the eye of the world. He stood *before the angel of the Lord,* that is, before Christ, the Lord of the angels, to whom even the high priests themselves, of Aaron's order, were accountable. He *stood before the angel of the Lord* to execute his office, to minister to God under the inspection of the angels. He stood to consult the oracle on the behalf of Israel, for whom, as high priest, he was agent. Guilt and corruption are our two great discouragements when we stand before God. By the guilt of the sins committed by us we have become obnoxious to the justice of God; by the power of the sin that dwells in us we have become odious to the holiness of God. All God's Israel are in danger upon these two accounts. Joshua was so here, for *the law made men priests that had infirmity,* Heb 7:28. And, as to both, we have relief from Jesus Christ, who is made of God to us both *righteousness and sanctification.*
 
@@ -26,9 +26,9 @@ III\. Joshua is in danger of being turned out of office; but, instead of that, h
 
 ## Advent of Christ Predicted; Prediction Relating to Christ. (b. c. 520.)
 
-> <sup>8</sup> Hear now, O Joshua the high priest, thou, and thy fellows that sit before thee: for they *are* men wondered at: for, behold, I will bring forth my servant the BRANCH.  
-> <sup>9</sup> For behold the stone that I have laid before Joshua; upon one stone *shall be* seven eyes: behold, I will engrave the graving thereof, saith the LORD of hosts, and I will remove the iniquity of that land in one day.  
-> <sup>10</sup> In that day, saith the LORD of hosts, shall ye call every man his neighbour under the vine and under the fig tree.  
+> **⁸** Hear now, O Joshua the high priest, thou, and thy fellows that sit before thee: for they *are* men wondered at: for, behold, I will bring forth my servant the BRANCH.  
+> **⁹** For behold the stone that I have laid before Joshua; upon one stone *shall be* seven eyes: behold, I will engrave the graving thereof, saith the LORD of hosts, and I will remove the iniquity of that land in one day.  
+> **¹⁰** In that day, saith the LORD of hosts, shall ye call every man his neighbour under the vine and under the fig tree.  
 
 As the promises made to David often slide insensibly into promises of the Messiah, whose kingdom David's was a type of, so the promises here made to Joshua immediately rise as far upward, and look as far forward, as to Christ, whose priesthood Joshua's was now a shadow of, not only in general, as it kept up the line of Aaron's priesthood, but especially as it was the reviving of that happy method of correspondence between heaven and earth, to which a great interruption had been given by the iniquity and captivity of Israel. Christ is a high priest, as Joshua was, for sinners and sufferers, to mediate for those that have been under guilt and wrath. And it was fit that Joshua should understand the priesthood of Christ, because all the virtue of his priesthood, its value and usefulness to the church, depended upon and was derived from the priesthood of Christ. See,
 

@@ -8,24 +8,24 @@ In this chapter we have, I. Peter's necessary vindication of what he did in rece
 
 ## Peter's Vindication.
 
-> <sup>1</sup> And the apostles and brethren that were in Judæa heard that the Gentiles had also received the word of God.  
-> <sup>2</sup> And when Peter was come up to Jerusalem, they that were of the circumcision contended with him,  
-> <sup>3</sup> Saying, Thou wentest in to men uncircumcised, and didst eat with them.  
-> <sup>4</sup> But Peter rehearsed *the matter* from the beginning, and expounded *it* by order unto them, saying,  
-> <sup>5</sup> I was in the city of Joppa praying: and in a trance I saw a vision, A certain vessel descend, as it had been a great sheet, let down from heaven by four corners; and it came even to me:  
-> <sup>6</sup> Upon the which when I had fastened mine eyes, I considered, and saw fourfooted beasts of the earth, and wild beasts, and creeping things, and fowls of the air.  
-> <sup>7</sup> And I heard a voice saying unto me, Arise, Peter; slay and eat.  
-> <sup>8</sup> But I said, Not so, Lord: for nothing common or unclean hath at any time entered into my mouth.  
-> <sup>9</sup> But the voice answered me again from heaven, What God hath cleansed, *that* call not thou common.  
-> <sup>10</sup> And this was done three times: and all were drawn up again into heaven.  
-> <sup>11</sup> And, behold, immediately there were three men already come unto the house where I was, sent from Cæsarea unto me.  
-> <sup>12</sup> And the Spirit bade me go with them, nothing doubting. Moreover these six brethren accompanied me, and we entered into the man's house:  
-> <sup>13</sup> And he showed us how he had seen an angel in his house, which stood and said unto him, Send men to Joppa, and call for Simon, whose surname is Peter;  
-> <sup>14</sup> Who shall tell thee words, whereby thou and all thy house shall be saved.  
-> <sup>15</sup> And as I began to speak, the Holy Ghost fell on them, as on us at the beginning.  
-> <sup>16</sup> Then remembered I the word of the Lord, how that he said, John indeed baptized with water; but ye shall be baptized with the Holy Ghost.  
-> <sup>17</sup> Forasmuch then as God gave them the like gift as *he did* unto us, who believed on the Lord Jesus Christ; what was I, that I could withstand God?  
-> <sup>18</sup> When they heard these things, they held their peace, and glorified God, saying, Then hath God also to the Gentiles granted repentance unto life.  
+> **¹** And the apostles and brethren that were in Judæa heard that the Gentiles had also received the word of God.  
+> **²** And when Peter was come up to Jerusalem, they that were of the circumcision contended with him,  
+> **³** Saying, Thou wentest in to men uncircumcised, and didst eat with them.  
+> **⁴** But Peter rehearsed *the matter* from the beginning, and expounded *it* by order unto them, saying,  
+> **⁵** I was in the city of Joppa praying: and in a trance I saw a vision, A certain vessel descend, as it had been a great sheet, let down from heaven by four corners; and it came even to me:  
+> **⁶** Upon the which when I had fastened mine eyes, I considered, and saw fourfooted beasts of the earth, and wild beasts, and creeping things, and fowls of the air.  
+> **⁷** And I heard a voice saying unto me, Arise, Peter; slay and eat.  
+> **⁸** But I said, Not so, Lord: for nothing common or unclean hath at any time entered into my mouth.  
+> **⁹** But the voice answered me again from heaven, What God hath cleansed, *that* call not thou common.  
+> **¹⁰** And this was done three times: and all were drawn up again into heaven.  
+> **¹¹** And, behold, immediately there were three men already come unto the house where I was, sent from Cæsarea unto me.  
+> **¹²** And the Spirit bade me go with them, nothing doubting. Moreover these six brethren accompanied me, and we entered into the man's house:  
+> **¹³** And he showed us how he had seen an angel in his house, which stood and said unto him, Send men to Joppa, and call for Simon, whose surname is Peter;  
+> **¹⁴** Who shall tell thee words, whereby thou and all thy house shall be saved.  
+> **¹⁵** And as I began to speak, the Holy Ghost fell on them, as on us at the beginning.  
+> **¹⁶** Then remembered I the word of the Lord, how that he said, John indeed baptized with water; but ye shall be baptized with the Holy Ghost.  
+> **¹⁷** Forasmuch then as God gave them the like gift as *he did* unto us, who believed on the Lord Jesus Christ; what was I, that I could withstand God?  
+> **¹⁸** When they heard these things, they held their peace, and glorified God, saying, Then hath God also to the Gentiles granted repentance unto life.  
 
 The preaching of the gospel to Cornelius was a thing which we poor sinners of the Gentiles have reason to reflect upon with a great deal of joy and thankfulness; for it was the bringing of light to us who sat in darkness. Now it being so great a surprize to the believing as well as the unbelieving Jews, it is worth while to enquire how it was received, and what comments were made upon it. And here we find,
 
@@ -53,14 +53,14 @@ IV\. This account which Peter gave of the matter satisfied them, and all was wel
 
 ## The Gospel Preached at Antioch; Success of the Gospel at Antioch; Barnabas at Antioch.
 
-> <sup>19</sup> Now they which were scattered abroad upon the persecution that arose about Stephen travelled as far as Phenice, and Cyprus, and Antioch, preaching the word to none but unto the Jews only.  
-> <sup>20</sup> And some of them were men of Cyprus and Cyrene, which, when they were come to Antioch, spake unto the Grecians, preaching the Lord Jesus.  
-> <sup>21</sup> And the hand of the Lord was with them: and a great number believed, and turned unto the Lord.  
-> <sup>22</sup> Then tidings of these things came unto the ears of the church which was in Jerusalem: and they sent forth Barnabas, that he should go as far as Antioch.  
-> <sup>23</sup> Who, when he came, and had seen the grace of God, was glad, and exhorted them all, that with purpose of heart they would cleave unto the Lord.  
-> <sup>24</sup> For he was a good man, and full of the Holy Ghost and of faith: and much people was added unto the Lord.  
-> <sup>25</sup> Then departed Barnabas to Tarsus, for to seek Saul:  
-> <sup>26</sup> And when he had found him, he brought him unto Antioch. And it came to pass, that a whole year they assembled themselves with the church, and taught much people. And the disciples were called Christians first in Antioch.  
+> **¹⁹** Now they which were scattered abroad upon the persecution that arose about Stephen travelled as far as Phenice, and Cyprus, and Antioch, preaching the word to none but unto the Jews only.  
+> **²⁰** And some of them were men of Cyprus and Cyrene, which, when they were come to Antioch, spake unto the Grecians, preaching the Lord Jesus.  
+> **²¹** And the hand of the Lord was with them: and a great number believed, and turned unto the Lord.  
+> **²²** Then tidings of these things came unto the ears of the church which was in Jerusalem: and they sent forth Barnabas, that he should go as far as Antioch.  
+> **²³** Who, when he came, and had seen the grace of God, was glad, and exhorted them all, that with purpose of heart they would cleave unto the Lord.  
+> **²⁴** For he was a good man, and full of the Holy Ghost and of faith: and much people was added unto the Lord.  
+> **²⁵** Then departed Barnabas to Tarsus, for to seek Saul:  
+> **²⁶** And when he had found him, he brought him unto Antioch. And it came to pass, that a whole year they assembled themselves with the church, and taught much people. And the disciples were called Christians first in Antioch.  
 
 We have here an account of the planting and watering of a church at Antioch, the chief city of Syria, reckoned afterwards the third most considerable city of the empire, only Rome and Alexandria being preferred before it, next to whose patriarch that of Antioch took place. It stood where Hamath or Riblah did, which we read of in the Old Testament. It is suggested that Luke, the penman of this history, as well as Theophilus, to whom he dedicates it, was of Antioch, which may be the reason why he takes more particular notice of the success of the gospel at Antioch, as also because there it was that Paul began to be famous, towards the story of whom he is hastening. Now concerning the church at Antioch observe,
 
@@ -102,10 +102,10 @@ II\. The good work thus begun at Antioch was carried on to great perfection; and
 
 ## Primitive Charity.
 
-> <sup>27</sup> And in these days came prophets from Jerusalem unto Antioch.  
-> <sup>28</sup> And there stood up one of them named Agabus, and signified by the Spirit that there should be great dearth throughout all the world: which came to pass in the days of Claudius Cæsar.  
-> <sup>29</sup> Then the disciples, every man according to his ability, determined to send relief unto the brethren which dwelt in Judæa:  
-> <sup>30</sup> Which also they did, and sent it to the elders by the hands of Barnabas and Saul.  
+> **²⁷** And in these days came prophets from Jerusalem unto Antioch.  
+> **²⁸** And there stood up one of them named Agabus, and signified by the Spirit that there should be great dearth throughout all the world: which came to pass in the days of Claudius Cæsar.  
+> **²⁹** Then the disciples, every man according to his ability, determined to send relief unto the brethren which dwelt in Judæa:  
+> **³⁰** Which also they did, and sent it to the elders by the hands of Barnabas and Saul.  
 
 When our Lord Jesus *ascended on high he gave gifts unto men,* not only *apostles and evangelists, but prophets,* who were enabled by the Spirit to foresee and foretel things to come, which not only served for a confirmation of the truth of Christianity (for all that these prophets foretold came to pass, which proved that *they were sent of God,* De 18:22, Jer 28:9), but was also of great use to the church, and served very much for its guidance. Now here we have,
 

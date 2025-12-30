@@ -8,11 +8,11 @@ This short psalm sets forth the honour of the kingdom of God among men, to his g
 
 ## The Glory and Majesty of God.
 
-> <sup>1</sup> The LORD reigneth, he is clothed with majesty; the LORD is clothed with strength, *wherewith* he hath girded himself: the world also is stablished, that it cannot be moved.  
-> <sup>2</sup> Thy throne *is* established of old: thou *art* from everlasting.  
-> <sup>3</sup> The floods have lifted up, O LORD, the floods have lifted up their voice; the floods lift up their waves.  
-> <sup>4</sup> The LORD on high *is* mightier than the noise of many waters, *yea, than* the mighty waves of the sea.  
-> <sup>5</sup> Thy testimonies are very sure: holiness becometh thine house, O LORD, for ever.  
+> **¹** The LORD reigneth, he is clothed with majesty; the LORD is clothed with strength, *wherewith* he hath girded himself: the world also is stablished, that it cannot be moved.  
+> **²** Thy throne *is* established of old: thou *art* from everlasting.  
+> **³** The floods have lifted up, O LORD, the floods have lifted up their voice; the floods lift up their waves.  
+> **⁴** The LORD on high *is* mightier than the noise of many waters, *yea, than* the mighty waves of the sea.  
+> **⁵** Thy testimonies are very sure: holiness becometh thine house, O LORD, for ever.  
 
 Next to the being of God there is nothing that we are more concerned to believe and consider than God's dominion, that Jehovah is God, and that this God reigns (Ps 93:1), not only that he is King of right, and is the owner and proprietor of all persons and things, but that he is King in fact, and does direct and dispose of all the creatures and all their actions according to the counsel of his own will. This is celebrated here, and in many other psalms: *The Lord reigns.* It is the song of the gospel church, of the glorified church (Re 19:6), *Hallelujah; the Lord God omnipotent reigns.* Here we are told how he reigns.
 

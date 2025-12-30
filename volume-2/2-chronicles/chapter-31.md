@@ -8,16 +8,16 @@ We have here a further account of that blessed reformation of which Hezekiah was
 
 ## Hezekiah Destroys Idolatry. (b. c. 726.)
 
-> <sup>1</sup> Now when all this was finished, all Israel that were present went out to the cities of Judah, and brake the images in pieces, and cut down the groves, and threw down the high places and the altars out of all Judah and Benjamin, in Ephraim also and Manasseh, until they had utterly destroyed them all. Then all the children of Israel returned, every man to his possession, into their own cities.  
-> <sup>2</sup> And Hezekiah appointed the courses of the priests and the Levites after their courses, every man according to his service, the priests and Levites for burnt offerings and for peace offerings, to minister, and to give thanks, and to praise in the gates of the tents of the LORD.  
-> <sup>3</sup> *He appointed* also the king's portion of his substance for the burnt offerings, *to wit,* for the morning and evening burnt offerings, and the burnt offerings for the sabbaths, and for the new moons, and for the set feasts, as *it is* written in the law of the LORD.  
-> <sup>4</sup> Moreover he commanded the people that dwelt in Jerusalem to give the portion of the priests and the Levites, that they might be encouraged in the law of the LORD.  
-> <sup>5</sup> And as soon as the commandment came abroad, the children of Israel brought in abundance the firstfruits of corn, wine, and oil, and honey, and of all the increase of the field; and the tithe of all *things* brought they in abundantly.  
-> <sup>6</sup> And *concerning* the children of Israel and Judah, that dwelt in the cities of Judah, they also brought in the tithe of oxen and sheep, and the tithe of holy things which were consecrated unto the LORD their God, and laid *them* by heaps.  
-> <sup>7</sup> In the third month they began to lay the foundation of the heaps, and finished *them* in the seventh month.  
-> <sup>8</sup> And when Hezekiah and the princes came and saw the heaps, they blessed the LORD, and his people Israel.  
-> <sup>9</sup> Then Hezekiah questioned with the priests and the Levites concerning the heaps.  
-> <sup>10</sup> And Azariah the chief priest of the house of Zadok answered him, and said, Since *the people* began to bring the offerings into the house of the LORD, we have had enough to eat, and have left plenty: for the LORD hath blessed his people; and that which is left *is* this great store.  
+> **¹** Now when all this was finished, all Israel that were present went out to the cities of Judah, and brake the images in pieces, and cut down the groves, and threw down the high places and the altars out of all Judah and Benjamin, in Ephraim also and Manasseh, until they had utterly destroyed them all. Then all the children of Israel returned, every man to his possession, into their own cities.  
+> **²** And Hezekiah appointed the courses of the priests and the Levites after their courses, every man according to his service, the priests and Levites for burnt offerings and for peace offerings, to minister, and to give thanks, and to praise in the gates of the tents of the LORD.  
+> **³** *He appointed* also the king's portion of his substance for the burnt offerings, *to wit,* for the morning and evening burnt offerings, and the burnt offerings for the sabbaths, and for the new moons, and for the set feasts, as *it is* written in the law of the LORD.  
+> **⁴** Moreover he commanded the people that dwelt in Jerusalem to give the portion of the priests and the Levites, that they might be encouraged in the law of the LORD.  
+> **⁵** And as soon as the commandment came abroad, the children of Israel brought in abundance the firstfruits of corn, wine, and oil, and honey, and of all the increase of the field; and the tithe of all *things* brought they in abundantly.  
+> **⁶** And *concerning* the children of Israel and Judah, that dwelt in the cities of Judah, they also brought in the tithe of oxen and sheep, and the tithe of holy things which were consecrated unto the LORD their God, and laid *them* by heaps.  
+> **⁷** In the third month they began to lay the foundation of the heaps, and finished *them* in the seventh month.  
+> **⁸** And when Hezekiah and the princes came and saw the heaps, they blessed the LORD, and his people Israel.  
+> **⁹** Then Hezekiah questioned with the priests and the Levites concerning the heaps.  
+> **¹⁰** And Azariah the chief priest of the house of Zadok answered him, and said, Since *the people* began to bring the offerings into the house of the LORD, we have had enough to eat, and have left plenty: for the LORD hath blessed his people; and that which is left *is* this great store.  
 
 We have here an account of what was done after the passover. What was wanting in the solemnities of preparation for it before was made up in that which is better, a due improvement of it after. When the religious exercises of a Lord's day or a communion are finished we must not think that then the work is done. No, then the hardest part of our work begins, which is to exemplify the impressions of the ordinance upon our minds in all the instances of a holy conversation. So it was here; when all this was finished there was more to be done.
 
@@ -33,17 +33,17 @@ V\. The people thereupon brought in their tithes very readily. They wanted nothi
 
 ## The Maintenance of the Priests. (b. c. 720.)
 
-> <sup>11</sup> Then Hezekiah commanded to prepare chambers in the house of the LORD; and they prepared *them,*  
-> <sup>12</sup> And brought in the offerings and the tithes and the dedicated *things* faithfully: over which Cononiah the Levite *was* ruler, and Shimei his brother *was* the next.  
-> <sup>13</sup> And Jehiel, and Azaziah, and Nahath, and Asahel, and Jerimoth, and Jozabad, and Eliel, and Ismachiah, and Mahath, and Benaiah, *were* overseers under the hand of Cononiah and Shimei his brother, at the commandment of Hezekiah the king, and Azariah the ruler of the house of God.  
-> <sup>14</sup> And Kore the son of Imnah the Levite, the porter toward the east, *was* over the freewill offerings of God, to distribute the oblations of the LORD, and the most holy things.  
-> <sup>15</sup> And next him *were* Eden, and Miniamin, and Jeshua, and Shemaiah, Amariah, and Shecaniah, in the cities of the priests, in *their* set office, to give to their brethren by courses, as well to the great as to the small:  
-> <sup>16</sup> Beside their genealogy of males, from three years old and upward, *even* unto every one that entereth into the house of the LORD, his daily portion for their service in their charges according to their courses;  
-> <sup>17</sup> Both to the genealogy of the priests by the house of their fathers, and the Levites from twenty years old and upward, in their charges by their courses;  
-> <sup>18</sup> And to the genealogy of all their little ones, their wives, and their sons, and their daughters, through all the congregation: for in their set office they sanctified themselves in holiness:  
-> <sup>19</sup> Also of the sons of Aaron the priests, *which were* in the fields of the suburbs of their cities, in every several city, the men that were expressed by name, to give portions to all the males among the priests, and to all that were reckoned by genealogies among the Levites.  
-> <sup>20</sup> And thus did Hezekiah throughout all Judah, and wrought *that which was* good and right and truth before the LORD his God.  
-> <sup>21</sup> And in every work that he began in the service of the house of God, and in the law, and in the commandments, to seek his God, he did *it* with all his heart, and prospered.  
+> **¹¹** Then Hezekiah commanded to prepare chambers in the house of the LORD; and they prepared *them,*  
+> **¹²** And brought in the offerings and the tithes and the dedicated *things* faithfully: over which Cononiah the Levite *was* ruler, and Shimei his brother *was* the next.  
+> **¹³** And Jehiel, and Azaziah, and Nahath, and Asahel, and Jerimoth, and Jozabad, and Eliel, and Ismachiah, and Mahath, and Benaiah, *were* overseers under the hand of Cononiah and Shimei his brother, at the commandment of Hezekiah the king, and Azariah the ruler of the house of God.  
+> **¹⁴** And Kore the son of Imnah the Levite, the porter toward the east, *was* over the freewill offerings of God, to distribute the oblations of the LORD, and the most holy things.  
+> **¹⁵** And next him *were* Eden, and Miniamin, and Jeshua, and Shemaiah, Amariah, and Shecaniah, in the cities of the priests, in *their* set office, to give to their brethren by courses, as well to the great as to the small:  
+> **¹⁶** Beside their genealogy of males, from three years old and upward, *even* unto every one that entereth into the house of the LORD, his daily portion for their service in their charges according to their courses;  
+> **¹⁷** Both to the genealogy of the priests by the house of their fathers, and the Levites from twenty years old and upward, in their charges by their courses;  
+> **¹⁸** And to the genealogy of all their little ones, their wives, and their sons, and their daughters, through all the congregation: for in their set office they sanctified themselves in holiness:  
+> **¹⁹** Also of the sons of Aaron the priests, *which were* in the fields of the suburbs of their cities, in every several city, the men that were expressed by name, to give portions to all the males among the priests, and to all that were reckoned by genealogies among the Levites.  
+> **²⁰** And thus did Hezekiah throughout all Judah, and wrought *that which was* good and right and truth before the LORD his God.  
+> **²¹** And in every work that he began in the service of the house of God, and in the law, and in the commandments, to seek his God, he did *it* with all his heart, and prospered.  
 
 Here we have,
 

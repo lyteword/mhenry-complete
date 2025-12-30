@@ -8,13 +8,13 @@ So sad was the character both of the princes and people of Israel, as described 
 
 ## Elijah's First Prophecy; Elijah Fed by Ravens. (b. c. 910.)
 
-> <sup>1</sup> And Elijah the Tishbite, *who was* of the inhabitants of Gilead, said unto Ahab, *As* the LORD God of Israel liveth, before whom I stand, there shall not be dew nor rain these years, but according to my word.  
-> <sup>2</sup> And the word of the LORD came unto him, saying,  
-> <sup>3</sup> Get thee hence, and turn thee eastward, and hide thyself by the brook Cherith, that *is* before Jordan.  
-> <sup>4</sup> And it shall be, *that* thou shalt drink of the brook; and I have commanded the ravens to feed thee there.  
-> <sup>5</sup> So he went and did according unto the word of the LORD: for he went and dwelt by the brook Cherith, that *is* before Jordan.  
-> <sup>6</sup> And the ravens brought him bread and flesh in the morning, and bread and flesh in the evening; and he drank of the brook.  
-> <sup>7</sup> And it came to pass after a while, that the brook dried up, because there had been no rain in the land.  
+> **¹** And Elijah the Tishbite, *who was* of the inhabitants of Gilead, said unto Ahab, *As* the LORD God of Israel liveth, before whom I stand, there shall not be dew nor rain these years, but according to my word.  
+> **²** And the word of the LORD came unto him, saying,  
+> **³** Get thee hence, and turn thee eastward, and hide thyself by the brook Cherith, that *is* before Jordan.  
+> **⁴** And it shall be, *that* thou shalt drink of the brook; and I have commanded the ravens to feed thee there.  
+> **⁵** So he went and did according unto the word of the LORD: for he went and dwelt by the brook Cherith, that *is* before Jordan.  
+> **⁶** And the ravens brought him bread and flesh in the morning, and bread and flesh in the evening; and he drank of the brook.  
+> **⁷** And it came to pass after a while, that the brook dried up, because there had been no rain in the land.  
 
 The history of Elijah begins somewhat abruptly. Usually, when a prophet enters, we have some account of his parentage, are told whose son he was and of what tribe; but Elijah drops (so to speak) out of the clouds, as if, like Melchisedek, he were without father, without mother, and without descent, which made some of the Jews fancy that he was an angel sent from heaven; but the apostle has assured us that *he was a man subject to like passions as we are* (Jam 5:17), which perhaps intimates, not only that he was liable to the common infirmities of human nature, but that, by his natural temper, he was a man of strong passions, more hot and eager than most men, and therefore the more fit to deal with the daring sinners of the age he lived in: so wonderfully does God suit men to the work he designs them for. Rough spirits are called to rough services. The reformation needed such a man as Luther to break the ice. Observe, 1. The prophet's name: *Elijahu—"My God Jehovah is he*" (so it signifies), "is he who sends me and will own me and bear me out, is he to whom I would bring Israel back and who alone can effect that great work." 2. His country: He was *of the inhabitants of Gilead,* on the other side Jordan, either of the tribe of Gad or the half of Manasseh, for Gilead was divided between them; but whether a native of either of those tribes is uncertain. The obscurity of his parentage was no prejudice to his eminency afterwards. We need not enquire whence men are, but what they are: if it be a good thing, no matter though it come out of Nazareth. Israel was sorely wounded when God sent them this balm from Gilead and this physician thence. He is called a *Tishbite* from Thisbe, a town in that country. Two things we have an account of here in the beginning of his story:—
 
@@ -26,15 +26,15 @@ Thus does Elijah, for a great while, *eat his morsels alone,* and his provision 
 
 ## The Widow of Zarephath. (b. c. 908.)
 
-> <sup>8</sup> And the word of the LORD came unto him, saying,  
-> <sup>9</sup> Arise, get thee to Zarephath, which *belongeth* to Zidon, and dwell there: behold, I have commanded a widow woman there to sustain thee.  
-> <sup>10</sup> So he arose and went to Zarephath. And when he came to the gate of the city, behold, the widow woman *was* there gathering of sticks: and he called to her, and said, Fetch me, I pray thee, a little water in a vessel, that I may drink.  
-> <sup>11</sup> And as she was going to fetch *it,* he called to her, and said, Bring me, I pray thee, a morsel of bread in thine hand.  
-> <sup>12</sup> And she said, *As* the LORD thy God liveth, I have not a cake, but a handful of meal in a barrel, and a little oil in a cruse: and, behold, I *am* gathering two sticks, that I may go in and dress it for me and my son, that we may eat it, and die.  
-> <sup>13</sup> And Elijah said unto her, Fear not; go *and* do as thou hast said: but make me thereof a little cake first, and bring *it* unto me, and after make for thee and for thy son.  
-> <sup>14</sup> For thus saith the LORD God of Israel, The barrel of meal shall not waste, neither shall the cruse of oil fail, until the day *that* the LORD sendeth rain upon the earth.  
-> <sup>15</sup> And she went and did according to the saying of Elijah: and she, and he, and her house, did eat *many* days.  
-> <sup>16</sup> *And* the barrel of meal wasted not, neither did the cruse of oil fail, according to the word of the LORD, which he spake by Elijah.  
+> **⁸** And the word of the LORD came unto him, saying,  
+> **⁹** Arise, get thee to Zarephath, which *belongeth* to Zidon, and dwell there: behold, I have commanded a widow woman there to sustain thee.  
+> **¹⁰** So he arose and went to Zarephath. And when he came to the gate of the city, behold, the widow woman *was* there gathering of sticks: and he called to her, and said, Fetch me, I pray thee, a little water in a vessel, that I may drink.  
+> **¹¹** And as she was going to fetch *it,* he called to her, and said, Bring me, I pray thee, a morsel of bread in thine hand.  
+> **¹²** And she said, *As* the LORD thy God liveth, I have not a cake, but a handful of meal in a barrel, and a little oil in a cruse: and, behold, I *am* gathering two sticks, that I may go in and dress it for me and my son, that we may eat it, and die.  
+> **¹³** And Elijah said unto her, Fear not; go *and* do as thou hast said: but make me thereof a little cake first, and bring *it* unto me, and after make for thee and for thy son.  
+> **¹⁴** For thus saith the LORD God of Israel, The barrel of meal shall not waste, neither shall the cruse of oil fail, until the day *that* the LORD sendeth rain upon the earth.  
+> **¹⁵** And she went and did according to the saying of Elijah: and she, and he, and her house, did eat *many* days.  
+> **¹⁶** *And* the barrel of meal wasted not, neither did the cruse of oil fail, according to the word of the LORD, which he spake by Elijah.  
 
 We have here an account of the further protection Elijah was taken under, and the further provision made for him in his retirement. *At destruction and famine he shall laugh* that has God for his friend to guard and maintain him. The brook Cherith is dried up, but God's care of his people, and kindness to them, never slacken, never fail, but are still the same, are still continued and drawn out to those that know him, Ps 36:10. When the brook was dried up Jordan was not; why did not God send him thither? Surely because he would show that he has a variety of ways to provide for his people and is not tied to any one. God will now provide for him where he shall have some company and opportunity of usefulness, and not be, as he had been, buried alive. Observe,
 
@@ -50,14 +50,14 @@ III\. The provision made for him there. Providence brought the widow woman to me
 
 ## The Widow's Child Raised to Life. (b. c. 908.)
 
-> <sup>17</sup> And it came to pass after these things, *that* the son of the woman, the mistress of the house, fell sick; and his sickness was so sore, that there was no breath left in him.  
-> <sup>18</sup> And she said unto Elijah, What have I to do with thee, O thou man of God? art thou come unto me to call my sin to remembrance, and to slay my son?  
-> <sup>19</sup> And he said unto her, Give me thy son. And he took him out of her bosom, and carried him up into a loft, where he abode, and laid him upon his own bed.  
-> <sup>20</sup> And he cried unto the LORD, and said, O LORD my God, hast thou also brought evil upon the widow with whom I sojourn, by slaying her son?  
-> <sup>21</sup> And he stretched himself upon the child three times, and cried unto the LORD, and said, O LORD my God, I pray thee, let this child's soul come into him again.  
-> <sup>22</sup> And the LORD heard the voice of Elijah; and the soul of the child came into him again, and he revived.  
-> <sup>23</sup> And Elijah took the child, and brought him down out of the chamber into the house, and delivered him unto his mother: and Elijah said, See, thy son liveth.  
-> <sup>24</sup> And the woman said to Elijah, Now by this I know that thou *art* a man of God, *and* that the word of the LORD in thy mouth *is* truth.  
+> **¹⁷** And it came to pass after these things, *that* the son of the woman, the mistress of the house, fell sick; and his sickness was so sore, that there was no breath left in him.  
+> **¹⁸** And she said unto Elijah, What have I to do with thee, O thou man of God? art thou come unto me to call my sin to remembrance, and to slay my son?  
+> **¹⁹** And he said unto her, Give me thy son. And he took him out of her bosom, and carried him up into a loft, where he abode, and laid him upon his own bed.  
+> **²⁰** And he cried unto the LORD, and said, O LORD my God, hast thou also brought evil upon the widow with whom I sojourn, by slaying her son?  
+> **²¹** And he stretched himself upon the child three times, and cried unto the LORD, and said, O LORD my God, I pray thee, let this child's soul come into him again.  
+> **²²** And the LORD heard the voice of Elijah; and the soul of the child came into him again, and he revived.  
+> **²³** And Elijah took the child, and brought him down out of the chamber into the house, and delivered him unto his mother: and Elijah said, See, thy son liveth.  
+> **²⁴** And the woman said to Elijah, Now by this I know that thou *art* a man of God, *and* that the word of the LORD in thy mouth *is* truth.  
 
 We have here a further recompence made to the widow for her kindness to the prophet; as if it were a small thing to be kept alive, her son, when dead, is restored to life, and so restored to her. Observe,
 

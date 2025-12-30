@@ -8,9 +8,9 @@ The apostle is very careful to hinder the spreading of an error into which some 
 
 ## Cautions against False Alarm. (a. d. 52.)
 
-> <sup>1</sup> Now we beseech you, brethren, by the coming of our Lord Jesus Christ, and *by* our gathering together unto him,  
-> <sup>2</sup> That ye be not soon shaken in mind, or be troubled, neither by spirit, nor by word, nor by letter as from us, as that the day of Christ is at hand.  
-> <sup>3</sup> Let no man deceive you by any means—  
+> **¹** Now we beseech you, brethren, by the coming of our Lord Jesus Christ, and *by* our gathering together unto him,  
+> **²** That ye be not soon shaken in mind, or be troubled, neither by spirit, nor by word, nor by letter as from us, as that the day of Christ is at hand.  
+> **³** Let no man deceive you by any means—  
 
 From these words it appears that some among the Thessalonians had mistaken the apostle's meaning, in what he had written in his former epistle about the coming of Christ, by thinking that it was near at hand,—that Christ was just ready to appear and come to judgment. Or, it may be, some among them pretended that they had the knowledge of this by particular revelation from the Spirit, or from some words they had heard from the apostle, when he was with them, or some letter he had written or they pretended he had written to them or some other person: and hereupon the apostle is careful to rectify this mistake, and to prevent the spreading of this error. Observe, If errors and mistakes arise among Christians, we should take the first opportunity to rectify them, and hinder the spreading thereof; and good men will be especially careful to suppress errors that may arise from a mistake of their words and actions, though that which was spoken or done was ever so innocent or well. We have a subtle adversary, who watches all opportunities to do mischief, and will sometimes promote errors even by means of the words of scripture. Observe,
 
@@ -24,16 +24,16 @@ II\. The thing itself against which the apostle cautions the Thessalonians is th
 
 ## Apostasy Foretold. (a. d. 52.)
 
-> <sup>3</sup> —For *that day shall not come,* except there come a falling away first, and that man of sin be revealed, the son of perdition;  
-> <sup>4</sup> Who opposeth and exalteth himself above all that is called God, or that is worshipped; so that he as God sitteth in the temple of God, showing himself that he is God.  
-> <sup>5</sup> Remember ye not, that, when I was yet with you, I told you these things?  
-> <sup>6</sup> And now ye know what withholdeth that he might be revealed in his time.  
-> <sup>7</sup> For the mystery of iniquity doth already work: only he who now letteth *will let,* until he be taken out of the way.  
-> <sup>8</sup> And then shall that Wicked be revealed, whom the Lord shall consume with the spirit of his mouth, and shall destroy with the brightness of his coming:  
-> <sup>9</sup> *Even him,* whose coming is after the working of Satan with all power and signs and lying wonders,  
-> <sup>10</sup> And with all deceivableness of unrighteousness in them that perish; because they received not the love of the truth, that they might be saved.  
-> <sup>11</sup> And for this cause God shall send them strong delusion, that they should believe a lie:  
-> <sup>12</sup> That they all might be damned who believed not the truth, but had pleasure in unrighteousness.  
+> **³** —For *that day shall not come,* except there come a falling away first, and that man of sin be revealed, the son of perdition;  
+> **⁴** Who opposeth and exalteth himself above all that is called God, or that is worshipped; so that he as God sitteth in the temple of God, showing himself that he is God.  
+> **⁵** Remember ye not, that, when I was yet with you, I told you these things?  
+> **⁶** And now ye know what withholdeth that he might be revealed in his time.  
+> **⁷** For the mystery of iniquity doth already work: only he who now letteth *will let,* until he be taken out of the way.  
+> **⁸** And then shall that Wicked be revealed, whom the Lord shall consume with the spirit of his mouth, and shall destroy with the brightness of his coming:  
+> **⁹** *Even him,* whose coming is after the working of Satan with all power and signs and lying wonders,  
+> **¹⁰** And with all deceivableness of unrighteousness in them that perish; because they received not the love of the truth, that they might be saved.  
+> **¹¹** And for this cause God shall send them strong delusion, that they should believe a lie:  
+> **¹²** That they all might be damned who believed not the truth, but had pleasure in unrighteousness.  
 
 In these words the apostle confutes the error against which he had cautioned them, and gives the reasons why they should not expect the coming of Christ as just at hand. There were several events previous to the second coming of Christ; in particular, he tells them there would be,
 
@@ -55,9 +55,9 @@ II\. A revelation of that man of sin, that is (2Th 2:3), antichrist would take h
 
 ## Apostasy Foretold. (a. d. 52.)
 
-> <sup>13</sup> But we are bound to give thanks alway to God for you, brethren beloved of the Lord, because God hath from the beginning chosen you to salvation through sanctification of the Spirit and belief of the truth:  
-> <sup>14</sup> Whereunto he called you by our gospel, to the obtaining of the glory of our Lord Jesus Christ.  
-> <sup>15</sup> Therefore, brethren, stand fast, and hold the traditions which ye have been taught, whether by word, or our epistle.  
+> **¹³** But we are bound to give thanks alway to God for you, brethren beloved of the Lord, because God hath from the beginning chosen you to salvation through sanctification of the Spirit and belief of the truth:  
+> **¹⁴** Whereunto he called you by our gospel, to the obtaining of the glory of our Lord Jesus Christ.  
+> **¹⁵** Therefore, brethren, stand fast, and hold the traditions which ye have been taught, whether by word, or our epistle.  
 
 Here observe, I. The consolation the Thessalonians might take against the terrors of this apostasy, 2Th 2:13,14. For they were chosen to salvation, and called to the obtaining of glory. Note, When we hear of the apostasy of many, it is matter of great comfort and joy that there is a remnant according to the election of grace which does and shall persevere; and especially we should rejoice if we have reason to hope that we are of that number. The apostle reckoned himself bound in duty to be thankful to God on this account: *We are bound to give thanks to God always for you.* He had often given thanks on their behalf, and he is still abounding in thanksgiving for them; and there was good reason, because they were beloved by the Lord, as appeared in this matter—their security from apostatizing. This preservation of the saints is owing,
 
@@ -69,8 +69,8 @@ II\. An exhortation to stedfastness and perseverance: *Therefore, brethren, stan
 
 ## Apostolic Prayer. (a. d. 52.)
 
-> <sup>16</sup> Now our Lord Jesus Christ himself, and God, even our Father, which hath loved us, and hath given *us* everlasting consolation and good hope through grace,  
-> <sup>17</sup> Comfort your hearts, and stablish you in every good word and work.  
+> **¹⁶** Now our Lord Jesus Christ himself, and God, even our Father, which hath loved us, and hath given *us* everlasting consolation and good hope through grace,  
+> **¹⁷** Comfort your hearts, and stablish you in every good word and work.  
 
 In these words we have the apostle's earnest prayer for them, in which observe,
 

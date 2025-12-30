@@ -8,11 +8,11 @@ This chapter goes on with that pathetic pleading prayer which the church offered
 
 ## Prayer for the Divine Presence; Blessings Prepared for the Saints. (b. c. 706.)
 
-> <sup>1</sup> Oh that thou wouldest rend the heavens, that thou wouldest come down, that the mountains might flow down at thy presence,  
-> <sup>2</sup> As *when* the melting fire burneth, the fire causeth the waters to boil, to make thy name known to thine adversaries, *that* the nations may tremble at thy presence!  
-> <sup>3</sup> When thou didst terrible things *which* we looked not for, thou camest down, the mountains flowed down at thy presence.  
-> <sup>4</sup> For since the beginning of the world *men* have not heard, nor perceived by the ear, neither hath the eye seen, O God, beside thee, *what* he hath prepared for him that waiteth for him.  
-> <sup>5</sup> Thou meetest him that rejoiceth and worketh righteousness, *those that* remember thee in thy ways: behold, thou art wroth; for we have sinned: in those is continuance, and we shall be saved.  
+> **¹** Oh that thou wouldest rend the heavens, that thou wouldest come down, that the mountains might flow down at thy presence,  
+> **²** As *when* the melting fire burneth, the fire causeth the waters to boil, to make thy name known to thine adversaries, *that* the nations may tremble at thy presence!  
+> **³** When thou didst terrible things *which* we looked not for, thou camest down, the mountains flowed down at thy presence.  
+> **⁴** For since the beginning of the world *men* have not heard, nor perceived by the ear, neither hath the eye seen, O God, beside thee, *what* he hath prepared for him that waiteth for him.  
+> **⁵** Thou meetest him that rejoiceth and worketh righteousness, *those that* remember thee in thy ways: behold, thou art wroth; for we have sinned: in those is continuance, and we shall be saved.  
 
 Here, I. The petition is that God would appear wonderfully for them now, Isa 63:1,2. Their case was represented in the close of the foregoing chapter as very sad and very hard, and in this case it was time to cry, "Help, Lord; O that God would manifest his zeal and his strength!" They had prayed (Isa 63:15) that God would *look down from heaven;* here they pray that he would come down to deliver them, as he had said, Ex 3:8. 1. They desire that God would in his providence manifest himself both to them and for them. When God works some extraordinary deliverance for his people he is said to *shine forth,* to show himself strong; so, here, they pray that he would *rend the heavens and come down,* as when he delivered David he is said to *bow the heavens, and come down* (Ps 18:9), to display his power, and justice, and goodness, in an extraordinary manner, so that all may take notice of them and acknowledge them. This God's people desire and pray for, that they themselves having the satisfaction of seeing him though his way be in the sea, others may be made to see him when his way is in the clouds. This is applicable to the second coming of Christ, when *the Lord himself shall descend from heaven with a shout. Come, Lord Jesus, come quickly.* 2. They desire that he would vanquish all opposition and that it might be made to give way before him: *That the mountains might flow down at thy presence,* that the fire of thy wrath may burn so fiercely against thy enemies as even to dissolve the rockiest mountains and melt them down before it, as metal in the furnace, which is made liquid and cast into what shape the operator pleases; so *the melting fire burns,* Isa 63:2. Let things be put into a ferment, in order to a glorious revolution in favour of the church: *As the fire causes the waters to boil.* There is an allusion here, some think, to the *volcanoes,* or burning mountains, which sometimes send forth such sulphureous streams as make the adjacent rivers and seas to boil, which, perhaps, are left as sensible intimations of the power of God's wrath and warning—pieces of the final conflagration. 3. They desire that this may tend very much to the glory and honour of God, *may make his name known,* not only to his friends (they knew it before, and trusted in his power), but to his adversaries likewise, that they may know it and *tremble at his presence,* and may say, with the men of Bethshemesh, *Who is able to stand before this holy Lord God? Who knows the power of his anger?* Note, Sooner or later God will make his name known to his adversaries and force those to *tremble at his presence* that would not come and worship in his presence. God's name, if it be not a stronghold for us, into which we may run and be safe, will be a strong-hold against us, out of the reach of which we cannot run and be safe. The day will come when nations shall be made to tremble at the presence of God, though they be ever so numerous and strong.
 
@@ -30,13 +30,13 @@ II\. The plea is that God had appeared wonderfully for his people formerly; and 
 
 ## Humble Confession. (b. c. 706.)
 
-> <sup>6</sup> But we are all as an unclean *thing,* and all our righteousnesses *are* as filthy rags; and we all do fade as a leaf; and our iniquities, like the wind, have taken us away.  
-> <sup>7</sup> And *there is* none that calleth upon thy name, that stirreth up himself to take hold of thee: for thou hast hid thy face from us, and hast consumed us, because of our iniquities.  
-> <sup>8</sup> But now, O LORD, thou *art* our father; we *are* the clay, and thou our potter; and we all *are* the work of thy hand.  
-> <sup>9</sup> Be not wroth very sore, O LORD, neither remember iniquity for ever: behold, see, we beseech thee, we *are* all thy people.  
-> <sup>10</sup> Thy holy cities are a wilderness, Zion is a wilderness, Jerusalem a desolation.  
-> <sup>11</sup> Our holy and our beautiful house, where our fathers praised thee, is burned up with fire: and all our pleasant things are laid waste.  
-> <sup>12</sup> Wilt thou refrain thyself for these *things,* O LORD? wilt thou hold thy peace, and afflict us very sore?  
+> **⁶** But we are all as an unclean *thing,* and all our righteousnesses *are* as filthy rags; and we all do fade as a leaf; and our iniquities, like the wind, have taken us away.  
+> **⁷** And *there is* none that calleth upon thy name, that stirreth up himself to take hold of thee: for thou hast hid thy face from us, and hast consumed us, because of our iniquities.  
+> **⁸** But now, O LORD, thou *art* our father; we *are* the clay, and thou our potter; and we all *are* the work of thy hand.  
+> **⁹** Be not wroth very sore, O LORD, neither remember iniquity for ever: behold, see, we beseech thee, we *are* all thy people.  
+> **¹⁰** Thy holy cities are a wilderness, Zion is a wilderness, Jerusalem a desolation.  
+> **¹¹** Our holy and our beautiful house, where our fathers praised thee, is burned up with fire: and all our pleasant things are laid waste.  
+> **¹²** Wilt thou refrain thyself for these *things,* O LORD? wilt thou hold thy peace, and afflict us very sore?  
 
 As we have the Lamentations of Jeremiah, so here we have the Lamentations of Isaiah; the subject of both is the same—the destruction of Jerusalem by the Chaldeans and the sin of Israel that brought that destruction—only with this difference, Isaiah sees it at a distance and laments it by the Spirit of prophecy, Jeremiah saw it accomplished. In these verses,
 

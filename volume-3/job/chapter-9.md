@@ -8,19 +8,19 @@ In this and the following chapter we have Job's answer to Bildad's discourse, wh
 
 ## Job's Reply to Bildad. (b. c. 1520.)
 
-> <sup>1</sup> Then Job answered and said,  
-> <sup>2</sup> I know *it is* so of a truth: but how should man be just with God?  
-> <sup>3</sup> If he will contend with him, he cannot answer him one of a thousand.  
-> <sup>4</sup> *He is* wise in heart, and mighty in strength: who hath hardened *himself* against him, and hath prospered?  
-> <sup>5</sup> Which removeth the mountains, and they know not: which overturneth them in his anger.  
-> <sup>6</sup> Which shaketh the earth out of her place, and the pillars thereof tremble.  
-> <sup>7</sup> Which commandeth the sun, and it riseth not; and sealeth up the stars.  
-> <sup>8</sup> Which alone spreadeth out the heavens, and treadeth upon the waves of the sea.  
-> <sup>9</sup> Which maketh Arcturus, Orion, and Pleiades, and the chambers of the south.  
-> <sup>10</sup> Which doeth great things past finding out; yea, and wonders without number.  
-> <sup>11</sup> Lo, he goeth by me, and I see *him* not: he passeth on also, but I perceive him not.  
-> <sup>12</sup> Behold, he taketh away, who can hinder him? who will say unto him, What doest thou?  
-> <sup>13</sup> *If* God will not withdraw his anger, the proud helpers do stoop under him.  
+> **¹** Then Job answered and said,  
+> **²** I know *it is* so of a truth: but how should man be just with God?  
+> **³** If he will contend with him, he cannot answer him one of a thousand.  
+> **⁴** *He is* wise in heart, and mighty in strength: who hath hardened *himself* against him, and hath prospered?  
+> **⁵** Which removeth the mountains, and they know not: which overturneth them in his anger.  
+> **⁶** Which shaketh the earth out of her place, and the pillars thereof tremble.  
+> **⁷** Which commandeth the sun, and it riseth not; and sealeth up the stars.  
+> **⁸** Which alone spreadeth out the heavens, and treadeth upon the waves of the sea.  
+> **⁹** Which maketh Arcturus, Orion, and Pleiades, and the chambers of the south.  
+> **¹⁰** Which doeth great things past finding out; yea, and wonders without number.  
+> **¹¹** Lo, he goeth by me, and I see *him* not: he passeth on also, but I perceive him not.  
+> **¹²** Behold, he taketh away, who can hinder him? who will say unto him, What doest thou?  
+> **¹³** *If* God will not withdraw his anger, the proud helpers do stoop under him.  
 
 Bildad began with a rebuke to Job for talking so much, Job 8:2. Job makes no answer to that, though it would have been easy enough to retort it upon himself; but in what he next lays down as his principle, that God never perverts judgment, Job agrees with him: *I know it is so of a truth,* Job 9:2. Note, We should be ready to own how far we agree with those with whom we dispute, and should not slight, much less resist, a truth, though produced by an adversary and urged against us, but receive it in the light and love of it, though it may have been misapplied. "*It is so of a truth,* that wickedness brings men to ruin and the godly are taken under God's special protection. These are truths which I subscribe to; but how can any man make good his part with God?" *In his sight shall no flesh living be justified,* Ps 143:2. *How should man be just with God?* Some understand this as a passionate complaint of God's strictness and severity, that he is a God whom there is no dealing with; and it cannot be denied that there are, in this chapter, some peevish expressions, which seem to speak such language as this. But I take this rather as a pious confession of man's sinfulness, and his own in particular, that, if God should deal with any of us according to the desert of our iniquities, we should certainly be undone.
 
@@ -40,14 +40,14 @@ II\. He proves it by showing what a God he is with whom we have to do: *He is wi
 
 2\. From the kingdom of Providence, that special Providence which is conversant about the affairs of the children of men. Consider what God does in the government of the world, and you will say, He is *wise in heart* and *mighty in strength.* (1.) He does many things and great, many and great to admiration, Job 9:10. Job here says the same that Eliphaz had said (Job 5:9), and in the original in the very same words, not declining to speak after him, though now his antagonist. God is a great God, and *doeth great things,* a wonder-working God; his works of wonder are so many that we cannot number them and so mysterious that we cannot find them out. O the depth of his counsels! (2.) He acts invisibly and undiscerned, Job 9:11. "*He goes by me* in his operations, *and I see him not, I perceive him not.* His *way is in the sea,*" Ps 77:19. The operations of second causes are commonly obvious to sense, but God does all about us and yet *we see him not,* Ac 17:23. Our finite understandings cannot fathom his counsels, apprehend his motions, or comprehend the measures he takes; we are therefore incompetent judges of God's proceedings, because we know not what he does or what he designs. The *arcana imperii—secrets of government,* are things above us, which therefore we must not pretend to expound or comment upon. (3.) He acts with an incontestable sovereignty, Job 9:12. He takes away our creature-comforts and confidences when and as he pleases, takes away health, estate, relations, friends, takes away life itself; whatever goes, it is he that takes it; by what hand so ever it is removed, his hand must be acknowledged in its removal. The Lord *takes away,* and *who can hinder him? Who can turn him away?* (Margin, *Who shall make him restore?*) Who can dissuade him or alter his counsels? Who can resist him or oppose his operations? Who can control him or call him to an account? What action can be brought against him? Or *who will say unto him, What doest thou?* Or, Why doest thou so? Da 4:35. God is not obliged to give us a reason of what he does. The meanings of his proceedings we know not now; it will be time enough to know hereafter, when it will appear that what seemed now to be done by prerogative was done in infinite wisdom and for the best. (4.) He acts with an irresistible power, which no creature can resist, Job 9:13. *If God will not withdraw his anger* (which he can do when he pleases, for he is *Lord of his anger,* lets it out or calls it in according to his will), *the proud helpers do stoop under him;* that is, He certainly breaks and crushes those that proudly help one another against him. Proud men set themselves against God and his proceedings. In this opposition they join hand in hand. *The kings of the earth set themselves, and the rulers take counsel together,* to throw off his yoke, to run down his truths, and to persecute his people. *Men of Israel, help,* Ac 21:28, Ps 83:8. If one enemy of God's kingdom fall under his judgment, the rest come proudly to help that, and think to deliver that out of his hand: but in vain; unless he pleases to withdraw his anger (which he often does, for it is the day of his patience) the proud helpers stoop under him, and fall with those whom they designed to help. *Who knows the power of God's anger?* Those who think they have strength enough to help others will not be able to help themselves against it.
 
-> <sup>14</sup> How much less shall I answer him, *and* choose out my words *to reason* with him?  
-> <sup>15</sup> Whom, though I were righteous, *yet* would I not answer, *but* I would make supplication to my judge.  
-> <sup>16</sup> If I had called, and he had answered me; *yet* would I not believe that he had hearkened unto my voice.  
-> <sup>17</sup> For he breaketh me with a tempest, and multiplieth my wounds without cause.  
-> <sup>18</sup> He will not suffer me to take my breath, but filleth me with bitterness.  
-> <sup>19</sup> If *I speak* of strength, lo, *he is* strong: and if of judgment, who shall set me a time *to plead?*  
-> <sup>20</sup> If I justify myself, mine own mouth shall condemn me: *if I say,* I *am* perfect, it shall also prove me perverse.  
-> <sup>21</sup> *Though* I *were* perfect, *yet* would I not know my soul: I would despise my life.  
+> **¹⁴** How much less shall I answer him, *and* choose out my words *to reason* with him?  
+> **¹⁵** Whom, though I were righteous, *yet* would I not answer, *but* I would make supplication to my judge.  
+> **¹⁶** If I had called, and he had answered me; *yet* would I not believe that he had hearkened unto my voice.  
+> **¹⁷** For he breaketh me with a tempest, and multiplieth my wounds without cause.  
+> **¹⁸** He will not suffer me to take my breath, but filleth me with bitterness.  
+> **¹⁹** If *I speak* of strength, lo, *he is* strong: and if of judgment, who shall set me a time *to plead?*  
+> **²⁰** If I justify myself, mine own mouth shall condemn me: *if I say,* I *am* perfect, it shall also prove me perverse.  
+> **²¹** *Though* I *were* perfect, *yet* would I not know my soul: I would despise my life.  
 
 What Job had said of man's utter inability to contend with God he here applies to himself, and in effect despairs of gaining his favour, which (some think) arises from the hard thoughts he had of God, as one who, having set himself against him, right or wrong, would be too hard for him. I rather think it arises from the sense he had of the imperfection of his own righteousness, and the dark and cloudy apprehensions which at present he had of God's displeasure against him.
 
@@ -59,25 +59,25 @@ II\. He durst not insist upon his own justification before God. Though he vindic
 
 2\. He knew so much of himself the he durst not stand a trial, Job 9:20,21. "*If I* go about to *justify myself,* and to plead a righteousness of my own, my defence will be my offence, and *my own mouth shall condemn me* even when it goes about to acquit me." A good man, who knows the deceitfulness of his own heart, and is jealous over it with a godly jealousy, and has often discovered that amiss there which had long lain undiscovered, is suspicious of more evil in himself than he is really conscious of, and therefore will by no means think of justifying himself before God. *If we say we have no sin, we* not only *deceive ourselves,* but we affront God; for we sin in saying so, and give the lie to the scripture, which has *concluded all under sin. "If I say, I am perfect,* I am sinless, God has nothing to lay to my charge, my very saying so shall *prove me perverse,* proud, ignorant, and presumptuous. Nay, *though I were perfect,* though God should pronounce me just, *yet would I not know my soul,* I would not be in care about the prolonging of my life while it is loaded with all these miseries." Or, "Though I were free from gross sin, though my conscience should not charge me with any enormous crime, yet would I not believe my own heart so far as to insist upon my innocency nor think my life worth striving for with God." In short, it is folly to contend with God, and our wisdom, as well as duty, to submit to him and throw ourselves at his feet.
 
-> <sup>22</sup> This *is* one *thing,* therefore I said *it,* He destroyeth the perfect and the wicked.  
-> <sup>23</sup> If the scourge slay suddenly, he will laugh at the trial of the innocent.  
-> <sup>24</sup> The earth is given into the hand of the wicked: he covereth the faces of the judges thereof; if not, where, *and* who *is* he?  
+> **²²** This *is* one *thing,* therefore I said *it,* He destroyeth the perfect and the wicked.  
+> **²³** If the scourge slay suddenly, he will laugh at the trial of the innocent.  
+> **²⁴** The earth is given into the hand of the wicked: he covereth the faces of the judges thereof; if not, where, *and* who *is* he?  
 
 Here Job touches briefly upon the main point now in dispute between him and his friends. They maintained that those who are righteous and good always prosper in this world, and none but the wicked are in misery and distress; he asserted, on the contrary, that it is a common thing for the wicked to prosper and the righteous to be greatly afflicted. This is the one thing, the chief thing, wherein he and his friends differed; and they had not proved their assertion, therefore he abides by his: "I said it, and say it again, that all things come alike to all." Now, 1. It must be owned that there is very much truth in what Job here means, that temporal judgments, when they are sent abroad, fall both upon good and bad, and the destroying angel seldom distinguishes (though once he did) between the houses of Israelites and the houses of Egyptians. In the judgment of Sodom indeed, which is called *the vengeance of eternal fire* (Jude 1:7), *far be it from* God to *slay the righteous with the wicked, and that the righteous should be as the wicked* (Ge 18:25); but, in judgments merely temporal, the righteous have their share, and sometimes the greatest share. *The sword devours one as well as another,* Josiah as well as Ahab. Thus God *destroys the perfect and the wicked,* involves them both in the same common ruin; good and bad were sent together into Babylon, Jer 24:5,9. *If the scourge slay suddenly,* and sweep down all before it, God will be well pleased to see how the same scourge which is the perdition of the wicked is the trial of the innocent and of their faith, which *will be found unto praise, and honour, and glory,* 1Pe 1:7, Ps 66:10.
 
 Let this reconcile God's children to their troubles; they are but trials, designed for their honour and benefit, and, if God be pleased with them, let not them be displeased; if he *laugh at the trial of the innocent,* knowing how glorious the issue of it will be, at destruction and famine let them also laugh (Job 5:22), and triumph over them, saying, *O death! where is thy sting?* On the other hand, the wicked are so far from being made the marks of God's judgments that *the earth is given into their hand,* Job 9:24 (they enjoy large possessions and great power, have what they will and do what they will), *into the hand of the wicked one* (in the original, the word is singular); the devil, that wicked one, is called *the god of this world,* and boasts that into his hands it is delivered, Lu 4:6. Or *into the hand of a wicked man,* meaning (as bishop Patrick and the Assembly's Annotations conjecture) some noted tyrant then living in those parts, whose great wickedness and great prosperity were well known both to Job and his friends. The wicked have the earth given them, but the righteous have heaven given them, and which is better—heaven without earth or earth without heaven? God, in his providence, advances wicked men, while he *covers the faces of* those who are fit to be *judges,* who are wise and good, and qualified for government, and buries them alive in obscurity, perhaps suffers them to be run down and condemned, and to have their faces covered as criminals by those wicked ones into whose hand the earth is given. We daily see that this is done; *if* it be *not* God that does it, *where and who is he* that does it? To whom can it be ascribed but to him that rules in the kingdoms of men, and gives them to whom he will? Da 4:32. Yet, 2. It must be owned that there is too much passion in what Job here says. The manner of expression is peevish. When he meant that God afflicts he ought not to have said, *He destroys* both *the perfect and the wicked;* when he meant that God pleases himself with the trial of the innocent he ought not to have said, *He laughs at it,* for he doth not afflict willingly. When the spirit is heated, either with dispute or with discontent, we have need to set a watch before the door of our lips, that we may observe a due decorum in speaking of divine things.
 
-> <sup>25</sup> Now my days are swifter than a post: they flee away, they see no good.  
-> <sup>26</sup> They are passed away as the swift ships: as the eagle *that* hasteth to the prey.  
-> <sup>27</sup> If I say, I will forget my complaint, I will leave off my heaviness, and comfort *myself:*  
-> <sup>28</sup> I am afraid of all my sorrows, I know that thou wilt not hold me innocent.  
-> <sup>29</sup> *If* I be wicked, why then labour I in vain?  
-> <sup>30</sup> If I wash myself with snow water, and make my hands never so clean;  
-> <sup>31</sup> Yet shalt thou plunge me in the ditch, and mine own clothes shall abhor me.  
-> <sup>32</sup> For *he is* not a man, as I *am, that* I should answer him, *and* we should come together in judgment.  
-> <sup>33</sup> Neither is there any daysman betwixt us, *that* might lay his hand upon us both.  
-> <sup>34</sup> Let him take his rod away from me, and let not his fear terrify me:  
-> <sup>35</sup> *Then* would I speak, and not fear him; but *it is* not so with me.  
+> **²⁵** Now my days are swifter than a post: they flee away, they see no good.  
+> **²⁶** They are passed away as the swift ships: as the eagle *that* hasteth to the prey.  
+> **²⁷** If I say, I will forget my complaint, I will leave off my heaviness, and comfort *myself:*  
+> **²⁸** I am afraid of all my sorrows, I know that thou wilt not hold me innocent.  
+> **²⁹** *If* I be wicked, why then labour I in vain?  
+> **³⁰** If I wash myself with snow water, and make my hands never so clean;  
+> **³¹** Yet shalt thou plunge me in the ditch, and mine own clothes shall abhor me.  
+> **³²** For *he is* not a man, as I *am, that* I should answer him, *and* we should come together in judgment.  
+> **³³** Neither is there any daysman betwixt us, *that* might lay his hand upon us both.  
+> **³⁴** Let him take his rod away from me, and let not his fear terrify me:  
+> **³⁵** *Then* would I speak, and not fear him; but *it is* not so with me.  
 
 Job here grows more and more querulous, and does not conclude this chapter with such reverent expressions of God's wisdom and justice as he began with. Those that indulge a complaining humour know not to what indecencies, nay, to what impieties, it will hurry them. *The beginning of* that *strife* with God *is as the letting forth of water; therefore leave it off before it be meddled with.* When we are in trouble we are allowed to complain to God, as the Psalmist often, but must by no means complain of God, as Job here.
 

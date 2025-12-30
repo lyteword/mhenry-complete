@@ -8,11 +8,11 @@ The scope of this chapter seems to be much the same with that of the foregoing c
 
 ## The Sinfulness of Israel. (b. c. 764.)
 
-> <sup>1</sup> Say ye unto your brethren, Ammi; and to your sisters, Ruhamah.  
-> <sup>2</sup> Plead with your mother, plead: for she *is* not my wife, neither *am* I her husband: let her therefore put away her whoredoms out of her sight, and her adulteries from between her breasts;  
-> <sup>3</sup> Lest I strip her naked, and set her as in the day that she was born, and make her as a wilderness, and set her like a dry land, and slay her with thirst.  
-> <sup>4</sup> And I will not have mercy upon her children; for they *be* the children of whoredoms.  
-> <sup>5</sup> For their mother hath played the harlot: she that conceived them hath done shamefully: for she said, I will go after my lovers, that give *me* my bread and my water, my wool and my flax, mine oil and my drink.  
+> **¹** Say ye unto your brethren, Ammi; and to your sisters, Ruhamah.  
+> **²** Plead with your mother, plead: for she *is* not my wife, neither *am* I her husband: let her therefore put away her whoredoms out of her sight, and her adulteries from between her breasts;  
+> **³** Lest I strip her naked, and set her as in the day that she was born, and make her as a wilderness, and set her like a dry land, and slay her with thirst.  
+> **⁴** And I will not have mercy upon her children; for they *be* the children of whoredoms.  
+> **⁵** For their mother hath played the harlot: she that conceived them hath done shamefully: for she said, I will go after my lovers, that give *me* my bread and my water, my wool and my flax, mine oil and my drink.  
 
 The first words of this chapter some make the close of the foregoing chapter, and add them to the promises which we have here of the great things God would do for them. When they shall have appointed Christ their head, and centered in him, then let them say to one another, with triumph and exultation (*let the prophets say it* to them, so the Chaldee—*Comfort you, comfort you, my people,* is now their commission), "say to them, *Ammi,* and *Ruhamah;* call them so again, for they shall no longer lie under the reproach and doom of *Lo-ammi* and *Lo-ruhamah;* they shall now be *my people* again, and shall *obtain mercy.*" God's spiritual Israel, made up of Jews and Gentiles without distinction, shall call one another brethren and sisters, shall own one another for the people of God and beloved of him, and, for that reason, shall embrace one another, and stir up one another both to give thanks for and to walk worthy of this *common salvation* which they partake of. Or rather, because the following words seem to have a coherence with these, these also are designed for conviction and humiliation. The *mother* (Ho 2:2) seems to be the same with the *brethren* and *sisters* (Ho 2:1), the church of the ten tribes, the body of the people, who were brethren, and in a special manner with the heads and leaders, who were as the mother by whom the rest were brought up and nursed. But who are the children that must *plead with their mother* thus? Either, 1. The godly that were among them, that witnessed against the iniquities of the times, let them boldly go on to bear their testimony against the idolatries and gross corruptions that prevail among them. Let those that had not bowed the knee to Baal reason the case with those that had, and endeavour to convince them with such arguments as are here put into their mouths. Note, Private persons may, and ought in their places, to appear and plead against the public profanations of God's name and worship. Children may humbly and modestly argue with their parents when they do amiss: *Plead with your mother, plead,* as Jonathan with Saul concerning David. Or, 2. The sufferers among them, that shared in the calamities of the times, let them not complain of God, let them not quarrel with him, nor lay the blame on him, as if he had dealt hardly with them, and not like a tender father. No; let them *plead with their mother,* and lay the fault on her, where it ought to be laid; compare Isa 50:1. "*For her transgressions is your mother put away;* she may thank herself, and you may thank her for all your miseries." Let us see now how they must plead with her.
 
@@ -28,14 +28,14 @@ V\. They must show her the utter ruin that will certainly be the fatal consequen
 
 ## Threatenings of Judgment. (b. c. 764.)
 
-> <sup>6</sup> Therefore, behold, I will hedge up thy way with thorns, and make a wall, that she shall not find her paths.  
-> <sup>7</sup> And she shall follow after her lovers, but she shall not overtake them; and she shall seek them, but shall not find *them:* then shall she say, I will go and return to my first husband; for then *was it* better with me than now.  
-> <sup>8</sup> For she did not know that I gave her corn, and wine, and oil, and multiplied her silver and gold, *which* they prepared for Baal.  
-> <sup>9</sup> Therefore will I return, and take away my corn in the time thereof, and my wine in the season thereof, and will recover my wool and my flax *given* to cover her nakedness.  
-> <sup>10</sup> And now will I discover her lewdness in the sight of her lovers, and none shall deliver her out of mine hand.  
-> <sup>11</sup> I will also cause all her mirth to cease, her feast days, her new moons, and her sabbaths, and all her solemn feasts.  
-> <sup>12</sup> And I will destroy her vines and her fig trees, whereof she hath said, These *are* my rewards that my lovers have given me: and I will make them a forest, and the beasts of the field shall eat them.  
-> <sup>13</sup> And I will visit upon her the days of Baalim, wherein she burned incense to them, and she decked herself with her earrings and her jewels, and she went after her lovers, and forgat me, saith the LORD.  
+> **⁶** Therefore, behold, I will hedge up thy way with thorns, and make a wall, that she shall not find her paths.  
+> **⁷** And she shall follow after her lovers, but she shall not overtake them; and she shall seek them, but shall not find *them:* then shall she say, I will go and return to my first husband; for then *was it* better with me than now.  
+> **⁸** For she did not know that I gave her corn, and wine, and oil, and multiplied her silver and gold, *which* they prepared for Baal.  
+> **⁹** Therefore will I return, and take away my corn in the time thereof, and my wine in the season thereof, and will recover my wool and my flax *given* to cover her nakedness.  
+> **¹⁰** And now will I discover her lewdness in the sight of her lovers, and none shall deliver her out of mine hand.  
+> **¹¹** I will also cause all her mirth to cease, her feast days, her new moons, and her sabbaths, and all her solemn feasts.  
+> **¹²** And I will destroy her vines and her fig trees, whereof she hath said, These *are* my rewards that my lovers have given me: and I will make them a forest, and the beasts of the field shall eat them.  
+> **¹³** And I will visit upon her the days of Baalim, wherein she burned incense to them, and she decked herself with her earrings and her jewels, and she went after her lovers, and forgat me, saith the LORD.  
 
 God here goes on to threaten what he would do with this treacherous idolatrous people; and he warns that he may not wound, he threatens that he may not strike. *If he turn not, he will whet his sword* (Ps 7:12); but, if he turn, he will sheathe it. They did not turn, and therefore all this came upon them: and its being threatened before shows that it was the execution of a divine sentence upon them for their wickedness; and it is written for admonition to us.
 
@@ -61,16 +61,16 @@ IV\. They shall lose all their pleasure, and shall be left melancholy (Ho 2:11):
 
 ## Promises of Mercy. (b. c. 764.)
 
-> <sup>14</sup> Therefore, behold, I will allure her, and bring her into the wilderness, and speak comfortably unto her.  
-> <sup>15</sup> And I will give her her vineyards from thence, and the valley of Achor for a door of hope: and she shall sing there, as in the days of her youth, and as in the day when she came up out of the land of Egypt.  
-> <sup>16</sup> And it shall be at that day, saith the LORD, *that* thou shalt call me Ishi; and shalt call me no more Baali.  
-> <sup>17</sup> For I will take away the names of Baalim out of her mouth, and they shall no more be remembered by their name.  
-> <sup>18</sup> And in that day will I make a covenant for them with the beasts of the field, and with the fowls of heaven, and *with* the creeping things of the ground: and I will break the bow and the sword and the battle out of the earth, and will make them to lie down safely.  
-> <sup>19</sup> And I will betroth thee unto me for ever; yea, I will betroth thee unto me in righteousness, and in judgment, and in lovingkindness, and in mercies.  
-> <sup>20</sup> I will even betroth thee unto me in faithfulness: and thou shalt know the LORD.  
-> <sup>21</sup> And it shall come to pass in that day, I will hear, saith the LORD, I will hear the heavens, and they shall hear the earth;  
-> <sup>22</sup> And the earth shall hear the corn, and the wine, and the oil; and they shall hear Jezreel.  
-> <sup>23</sup> And I will sow her unto me in the earth; and I will have mercy upon her that had not obtained mercy; and I will say to *them which were* not my people, Thou *art* my people; and they shall say, *Thou art* my God.  
+> **¹⁴** Therefore, behold, I will allure her, and bring her into the wilderness, and speak comfortably unto her.  
+> **¹⁵** And I will give her her vineyards from thence, and the valley of Achor for a door of hope: and she shall sing there, as in the days of her youth, and as in the day when she came up out of the land of Egypt.  
+> **¹⁶** And it shall be at that day, saith the LORD, *that* thou shalt call me Ishi; and shalt call me no more Baali.  
+> **¹⁷** For I will take away the names of Baalim out of her mouth, and they shall no more be remembered by their name.  
+> **¹⁸** And in that day will I make a covenant for them with the beasts of the field, and with the fowls of heaven, and *with* the creeping things of the ground: and I will break the bow and the sword and the battle out of the earth, and will make them to lie down safely.  
+> **¹⁹** And I will betroth thee unto me for ever; yea, I will betroth thee unto me in righteousness, and in judgment, and in lovingkindness, and in mercies.  
+> **²⁰** I will even betroth thee unto me in faithfulness: and thou shalt know the LORD.  
+> **²¹** And it shall come to pass in that day, I will hear, saith the LORD, I will hear the heavens, and they shall hear the earth;  
+> **²²** And the earth shall hear the corn, and the wine, and the oil; and they shall hear Jezreel.  
+> **²³** And I will sow her unto me in the earth; and I will have mercy upon her that had not obtained mercy; and I will say to *them which were* not my people, Thou *art* my people; and they shall say, *Thou art* my God.  
 
 The state of Israel ruined by their own sin did not look so black and dismal in the former part of the chapter, but that the state of Israel, restrained by the divine grace, looks as bright and pleasant here in the latter part of the chapter, and the more surprisingly so as the promises follow thus close upon the threatenings; nay, which is very strange, they are by a note of connexion joined to, and inferred from, that declaration of their sinfulness upon which the threatenings of their ruin are grounded: *She went after her lovers, and forgot me, saith the Lord; therefore I will allure her.* Fitly therefore is that *therefore* which is the note of connexion immediately followed with a note of admiration: *Behold I will allure her!* When it was said, *She forgot me,* one would think it should have followed, "Therefore I will abandon her, I will forget her, I will never look after her more." No, *Therefore I will allure her.* Note, God's thoughts and ways of mercy are infinitely above ours; his reasons are all fetched from within himself, and not from any thing in us; nay, his goodness takes occasion from man's badness to appear so much the more illustrious, Isa 57:17,18. *Therefore,* because she will not be restrained by the denunciations of wrath, God will try whether she will be wrought upon by the offers of mercy. Some think it may be translated, *Afterwards,* or *nevertheless,* I will allure her. It comes all to one; the design is plainly to magnify free grace to those on whom God will have mercy purely for mercy's sake. Now that which is here promised to Israel is,
 

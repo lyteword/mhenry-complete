@@ -8,21 +8,21 @@ We have done with Mount Seir, and left it desolate, and likely to continue so, a
 
 ## God's Compassion for Israel. (b. c. 587.)
 
-> <sup>1</sup> Also, thou son of man, prophesy unto the mountains of Israel, and say, Ye mountains of Israel, hear the word of the LORD:  
-> <sup>2</sup> Thus saith the Lord GOD; Because the enemy hath said against you, Aha, even the ancient high places are ours in possession:  
-> <sup>3</sup> Therefore prophesy and say, Thus saith the Lord GOD; Because they have made *you* desolate, and swallowed you up on every side, that ye might be a possession unto the residue of the heathen, and ye are taken up in the lips of talkers, and *are* an infamy of the people:  
-> <sup>4</sup> Therefore, ye mountains of Israel, hear the word of the Lord GOD; Thus saith the Lord GOD to the mountains, and to the hills, to the rivers, and to the valleys, to the desolate wastes, and to the cities that are forsaken, which became a prey and derision to the residue of the heathen that *are* round about;  
-> <sup>5</sup> Therefore thus saith the Lord GOD; Surely in the fire of my jealousy have I spoken against the residue of the heathen, and against all Idumea, which have appointed my land into their possession with the joy of all *their* heart, with despiteful minds, to cast it out for a prey.  
-> <sup>6</sup> Prophesy therefore concerning the land of Israel, and say unto the mountains, and to the hills, to the rivers, and to the valleys, Thus saith the Lord GOD; Behold, I have spoken in my jealousy and in my fury, because ye have borne the shame of the heathen:  
-> <sup>7</sup> Therefore thus saith the Lord GOD; I have lifted up mine hand, Surely the heathen that *are* about you, they shall bear their shame.  
-> <sup>8</sup> But ye, O mountains of Israel, ye shall shoot forth your branches, and yield your fruit to my people of Israel; for they are at hand to come.  
-> <sup>9</sup> For, behold, I *am* for you, and I will turn unto you, and ye shall be tilled and sown:  
-> <sup>10</sup> And I will multiply men upon you, all the house of Israel, *even* all of it: and the cities shall be inhabited, and the wastes shall be builded:  
-> <sup>11</sup> And I will multiply upon you man and beast; and they shall increase and bring fruit: and I will settle you after your old estates, and will do better *unto you* than at your beginnings: and ye shall know that I *am* the LORD.  
-> <sup>12</sup> Yea, I will cause men to walk upon you, *even* my people Israel; and they shall possess thee, and thou shalt be their inheritance, and thou shalt no more henceforth bereave them *of men.*  
-> <sup>13</sup> Thus saith the Lord GOD; Because they say unto you, Thou *land* devourest up men, and hast bereaved thy nations;  
-> <sup>14</sup> Therefore thou shalt devour men no more, neither bereave thy nations any more, saith the Lord GOD.  
-> <sup>15</sup> Neither will I cause *men* to hear in thee the shame of the heathen any more, neither shalt thou bear the reproach of the people any more, neither shalt thou cause thy nations to fall any more, saith the Lord GOD.  
+> **¹** Also, thou son of man, prophesy unto the mountains of Israel, and say, Ye mountains of Israel, hear the word of the LORD:  
+> **²** Thus saith the Lord GOD; Because the enemy hath said against you, Aha, even the ancient high places are ours in possession:  
+> **³** Therefore prophesy and say, Thus saith the Lord GOD; Because they have made *you* desolate, and swallowed you up on every side, that ye might be a possession unto the residue of the heathen, and ye are taken up in the lips of talkers, and *are* an infamy of the people:  
+> **⁴** Therefore, ye mountains of Israel, hear the word of the Lord GOD; Thus saith the Lord GOD to the mountains, and to the hills, to the rivers, and to the valleys, to the desolate wastes, and to the cities that are forsaken, which became a prey and derision to the residue of the heathen that *are* round about;  
+> **⁵** Therefore thus saith the Lord GOD; Surely in the fire of my jealousy have I spoken against the residue of the heathen, and against all Idumea, which have appointed my land into their possession with the joy of all *their* heart, with despiteful minds, to cast it out for a prey.  
+> **⁶** Prophesy therefore concerning the land of Israel, and say unto the mountains, and to the hills, to the rivers, and to the valleys, Thus saith the Lord GOD; Behold, I have spoken in my jealousy and in my fury, because ye have borne the shame of the heathen:  
+> **⁷** Therefore thus saith the Lord GOD; I have lifted up mine hand, Surely the heathen that *are* about you, they shall bear their shame.  
+> **⁸** But ye, O mountains of Israel, ye shall shoot forth your branches, and yield your fruit to my people of Israel; for they are at hand to come.  
+> **⁹** For, behold, I *am* for you, and I will turn unto you, and ye shall be tilled and sown:  
+> **¹⁰** And I will multiply men upon you, all the house of Israel, *even* all of it: and the cities shall be inhabited, and the wastes shall be builded:  
+> **¹¹** And I will multiply upon you man and beast; and they shall increase and bring fruit: and I will settle you after your old estates, and will do better *unto you* than at your beginnings: and ye shall know that I *am* the LORD.  
+> **¹²** Yea, I will cause men to walk upon you, *even* my people Israel; and they shall possess thee, and thou shalt be their inheritance, and thou shalt no more henceforth bereave them *of men.*  
+> **¹³** Thus saith the Lord GOD; Because they say unto you, Thou *land* devourest up men, and hast bereaved thy nations;  
+> **¹⁴** Therefore thou shalt devour men no more, neither bereave thy nations any more, saith the Lord GOD.  
+> **¹⁵** Neither will I cause *men* to hear in thee the shame of the heathen any more, neither shalt thou bear the reproach of the people any more, neither shalt thou cause thy nations to fall any more, saith the Lord GOD.  
 
 The prophet had been ordered to set his face *towards the mountains of Israel* and *prophesy against them,* Eze 6:2. Then God was coming forth to contend with his people; but now that God is returning in mercy to them he must speak good words and comfortable words to these mountains, Eze 36:1,4. *You mountains of Israel, hear the word of the Lord;* and what he says to them he says *to the hills, to the rivers, to the valleys, to the desolate wastes* in the country, and to the cities *that are forsaken,* Eze 36:4,6. The people were gone, some one way and some another; nothing remained there to be spoken to but the places, the mountains and valleys; these the Chaldeans could not carry away with them. *The earth abides for ever.* Now, to show the mercy God had in reserve for the people, he is to speak of him as having a dormant kindness for the place, which, if the Lord had been pleased for ever to abandon, he would not have called upon to *hear the word of the Lord,* nor *would he as at this time have shown it such things as these.* Here is,
 
@@ -34,15 +34,15 @@ III\. The promises of God's favour to his Israel and assurances given of great m
 
 ## God's Compassion for Israel. (b. c. 587.)
 
-> <sup>16</sup> Moreover the word of the LORD came unto me, saying,  
-> <sup>17</sup> Son of man, when the house of Israel dwelt in their own land, they defiled it by their own way and by their doings: their way was before me as the uncleanness of a removed woman.  
-> <sup>18</sup> Wherefore I poured my fury upon them for the blood that they had shed upon the land, and for their idols *wherewith* they had polluted it:  
-> <sup>19</sup> And I scattered them among the heathen, and they were dispersed through the countries: according to their way and according to their doings I judged them.  
-> <sup>20</sup> And when they entered unto the heathen, whither they went, they profaned my holy name, when they said to them, These *are* the people of the LORD, and are gone forth out of his land.  
-> <sup>21</sup> But I had pity for mine holy name, which the house of Israel had profaned among the heathen, whither they went.  
-> <sup>22</sup> Therefore say unto the house of Israel, Thus saith the Lord GOD; I do not *this* for your sakes, O house of Israel, but for mine holy name's sake, which ye have profaned among the heathen, whither ye went.  
-> <sup>23</sup> And I will sanctify my great name, which was profaned among the heathen, which ye have profaned in the midst of them; and the heathen shall know that I *am* the LORD, saith the Lord GOD, when I shall be sanctified in you before their eyes.  
-> <sup>24</sup> For I will take you from among the heathen, and gather you out of all countries, and will bring you into your own land.  
+> **¹⁶** Moreover the word of the LORD came unto me, saying,  
+> **¹⁷** Son of man, when the house of Israel dwelt in their own land, they defiled it by their own way and by their doings: their way was before me as the uncleanness of a removed woman.  
+> **¹⁸** Wherefore I poured my fury upon them for the blood that they had shed upon the land, and for their idols *wherewith* they had polluted it:  
+> **¹⁹** And I scattered them among the heathen, and they were dispersed through the countries: according to their way and according to their doings I judged them.  
+> **²⁰** And when they entered unto the heathen, whither they went, they profaned my holy name, when they said to them, These *are* the people of the LORD, and are gone forth out of his land.  
+> **²¹** But I had pity for mine holy name, which the house of Israel had profaned among the heathen, whither they went.  
+> **²²** Therefore say unto the house of Israel, Thus saith the Lord GOD; I do not *this* for your sakes, O house of Israel, but for mine holy name's sake, which ye have profaned among the heathen, whither ye went.  
+> **²³** And I will sanctify my great name, which was profaned among the heathen, which ye have profaned in the midst of them; and the heathen shall know that I *am* the LORD, saith the Lord GOD, when I shall be sanctified in you before their eyes.  
+> **²⁴** For I will take you from among the heathen, and gather you out of all countries, and will bring you into your own land.  
 
 When God promised the poor captives a glorious return, in due time, to their own land, it was a great discouragement to their hopes that they were unworthy, utterly unworthy, of such a favour; therefore, to remove that discouragement, God here shows them that he would do it for them purely *for his own name's sake,* that he might be glorified in them and by them, that he might manifest and magnify his mercy and goodness, that attribute which of all others is most his glory. And, the restoration of that people being typical of our redemption by Christ, this is intended further to show that the ultimate end aimed at in our salvation, to which all the steps of it were made subservient, was the glory of God. To this end Christ directed all he did in that short prayer, *Father, glorify thy name;* and God declared it was his end in all he did in the immediate answer given to that prayer, by a voice from heaven: *I have glorified it, and I will glorify it yet again,* Joh 12:28. Now observe here,
 
@@ -52,20 +52,20 @@ II\. Let us now see how God would retrieve his honour, secure it, and advance it
 
 ## The Promise of a New Heart; The Promise of Sanctifying Grace; Promised Blessings Must Be Prayed for. (b. c. 587.)
 
-> <sup>25</sup> Then will I sprinkle clean water upon you, and ye shall be clean: from all your filthiness, and from all your idols, will I cleanse you.  
-> <sup>26</sup> A new heart also will I give you, and a new spirit will I put within you: and I will take away the stony heart out of your flesh, and I will give you a heart of flesh.  
-> <sup>27</sup> And I will put my spirit within you, and cause you to walk in my statutes, and ye shall keep my judgments, and do *them.*  
-> <sup>28</sup> And ye shall dwell in the land that I gave to your fathers; and ye shall be my people, and I will be your God.  
-> <sup>29</sup> I will also save you from all your uncleannesses: and I will call for the corn, and will increase it, and lay no famine upon you.  
-> <sup>30</sup> And I will multiply the fruit of the tree, and the increase of the field, that ye shall receive no more reproach of famine among the heathen.  
-> <sup>31</sup> Then shall ye remember your own evil ways, and your doings that *were* not good, and shall loathe yourselves in your own sight for your iniquities and for your abominations.  
-> <sup>32</sup> Not for your sakes do I *this,* saith the Lord GOD, be it known unto you: be ashamed and confounded for your own ways, O house of Israel.  
-> <sup>33</sup> Thus saith the Lord GOD; In the day that I shall have cleansed you from all your iniquities I will also cause *you* to dwell in the cities, and the wastes shall be builded.  
-> <sup>34</sup> And the desolate land shall be tilled, whereas it lay desolate in the sight of all that passed by.  
-> <sup>35</sup> And they shall say, This land that was desolate is become like the garden of Eden; and the waste and desolate and ruined cities *are become* fenced, *and* are inhabited.  
-> <sup>36</sup> Then the heathen that are left round about you shall know that I the LORD build the ruined *places, and* plant that that was desolate: I the LORD have spoken *it,* and I will do *it.*  
-> <sup>37</sup> Thus saith the Lord GOD; I will yet *for* this be enquired of by the house of Israel, to do *it* for them; I will increase them with men like a flock.  
-> <sup>38</sup> As the holy flock, as the flock of Jerusalem in her solemn feasts; so shall the waste cities be filled with flocks of men: and they shall know that I *am* the LORD.  
+> **²⁵** Then will I sprinkle clean water upon you, and ye shall be clean: from all your filthiness, and from all your idols, will I cleanse you.  
+> **²⁶** A new heart also will I give you, and a new spirit will I put within you: and I will take away the stony heart out of your flesh, and I will give you a heart of flesh.  
+> **²⁷** And I will put my spirit within you, and cause you to walk in my statutes, and ye shall keep my judgments, and do *them.*  
+> **²⁸** And ye shall dwell in the land that I gave to your fathers; and ye shall be my people, and I will be your God.  
+> **²⁹** I will also save you from all your uncleannesses: and I will call for the corn, and will increase it, and lay no famine upon you.  
+> **³⁰** And I will multiply the fruit of the tree, and the increase of the field, that ye shall receive no more reproach of famine among the heathen.  
+> **³¹** Then shall ye remember your own evil ways, and your doings that *were* not good, and shall loathe yourselves in your own sight for your iniquities and for your abominations.  
+> **³²** Not for your sakes do I *this,* saith the Lord GOD, be it known unto you: be ashamed and confounded for your own ways, O house of Israel.  
+> **³³** Thus saith the Lord GOD; In the day that I shall have cleansed you from all your iniquities I will also cause *you* to dwell in the cities, and the wastes shall be builded.  
+> **³⁴** And the desolate land shall be tilled, whereas it lay desolate in the sight of all that passed by.  
+> **³⁵** And they shall say, This land that was desolate is become like the garden of Eden; and the waste and desolate and ruined cities *are become* fenced, *and* are inhabited.  
+> **³⁶** Then the heathen that are left round about you shall know that I the LORD build the ruined *places, and* plant that that was desolate: I the LORD have spoken *it,* and I will do *it.*  
+> **³⁷** Thus saith the Lord GOD; I will yet *for* this be enquired of by the house of Israel, to do *it* for them; I will increase them with men like a flock.  
+> **³⁸** As the holy flock, as the flock of Jerusalem in her solemn feasts; so shall the waste cities be filled with flocks of men: and they shall know that I *am* the LORD.  
 
 The people of God might be discouraged in their hopes of a restoration by the sense not only of their unworthiness of such a favour (which was answered, in the Eze 36:1-24, with this, that God, in doing it, would have an eye to his own glory, not to their worthiness), but of their unfitness for such a favour, being still corrupt and sinful; and that is answered in these verses, with a promise that God would by his grace prepare and qualify them for the mercy and then bestow it on them. And this was in part fulfilled in that wonderful effect which the captivity in Babylon had upon the Jews there, that it effectually cured them of their inclination to idolatry. But it is further intended as a draught of the covenant of grace, and a specimen of those spiritual blessings with which we are blessed in heavenly things by that covenant. As (Eze 34:1-31) after a promise of their return the prophecy insensibly slid into a promise of the coming of Christ, the great Shepherd, so here it insensibly slides into a promise of the Spirit, and his gracious influences and operations, which we have as much need of for our sanctification as we have of Christ's merit for our justification.
 

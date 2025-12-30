@@ -10,8 +10,8 @@ This psalm is a solemn meditation on, and admiration of, the glory and greatness
 
 To the chief musician upon Gittith. A psalm of David.
 
-> <sup>1</sup> O LORD our Lord, how excellent *is* thy name in all the earth! who hast set thy glory above the heavens.  
-> <sup>2</sup> Out of the mouth of babes and sucklings hast thou ordained strength because of thine enemies, that thou mightest still the enemy and the avenger.  
+> **¹** O LORD our Lord, how excellent *is* thy name in all the earth! who hast set thy glory above the heavens.  
+> **²** Out of the mouth of babes and sucklings hast thou ordained strength because of thine enemies, that thou mightest still the enemy and the avenger.  
 
 The psalmist here sets himself to give to God the glory due to his name. Dr. Hammond grounds a conjecture upon the title of this psalm concerning the occasion of penning it. It is said to be upon *Gittith,* which is generally taken for the tune, or musical instrument, with which this psalm was to be sung; but he renders it upon the *Gittite,* that is, *Goliath the Gittite,* whom he vanquished and slew (1Sa 17:1-58); that enemy was stilled by him who was, in comparison, but a babe and a suckling. The conjecture would be probable enough but that we find two other psalms with the same title, Ps 81:1-16,84:1-12. Two things David here admires:—
 
@@ -23,13 +23,13 @@ In singing this let us give God the glory of his great name, and of the great th
 
 ## Condescension of God.
 
-> <sup>3</sup> When I consider thy heavens, the work of thy fingers, the moon and the stars, which thou hast ordained;  
-> <sup>4</sup> What is man, that thou art mindful of him? and the son of man, that thou visitest him?  
-> <sup>5</sup> For thou hast made him a little lower than the angels, and hast crowned him with glory and honour.  
-> <sup>6</sup> Thou madest him to have dominion over the works of thy hands; thou hast put all *things* under his feet:  
-> <sup>7</sup> All sheep and oxen, yea, and the beasts of the field;  
-> <sup>8</sup> The fowl of the air, and the fish of the sea, *and whatsoever* passeth through the paths of the seas.  
-> <sup>9</sup> O LORD our Lord, how excellent *is* thy name in all the earth!  
+> **³** When I consider thy heavens, the work of thy fingers, the moon and the stars, which thou hast ordained;  
+> **⁴** What is man, that thou art mindful of him? and the son of man, that thou visitest him?  
+> **⁵** For thou hast made him a little lower than the angels, and hast crowned him with glory and honour.  
+> **⁶** Thou madest him to have dominion over the works of thy hands; thou hast put all *things* under his feet:  
+> **⁷** All sheep and oxen, yea, and the beasts of the field;  
+> **⁸** The fowl of the air, and the fish of the sea, *and whatsoever* passeth through the paths of the seas.  
+> **⁹** O LORD our Lord, how excellent *is* thy name in all the earth!  
 
 David here goes on to magnify the honour of God by recounting the honours he has put upon man, especially the man Christ Jesus. The condescensions of the divine grace call for our praises as much as the elevations of the divine glory. How God has condescended in favour to man the psalmist here observes with wonder and thankfulness, and recommends it to our thoughts. See here,
 

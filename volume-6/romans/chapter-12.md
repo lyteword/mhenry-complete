@@ -8,27 +8,27 @@ The apostle, having at large cleared and confirmed the prime fundamental doctrin
 
 ## Consecration to God; Duty towards God; Duty towards Ourselves; Due Exercise of Spiritual Gifts; Duty towards Our Brethren; Brotherly Love; Love to Enemies. (a. d. 58.)
 
-> <sup>1</sup> I beseech you therefore, brethren, by the mercies of God, that ye present your bodies a living sacrifice, holy, acceptable unto God, *which is* your reasonable service.  
-> <sup>2</sup> And be not conformed to this world: but be ye transformed by the renewing of your mind, that ye may prove what *is* that good, and acceptable, and perfect, will of God.  
-> <sup>3</sup> For I say, through the grace given unto me, to every man that is among you, not to think *of himself* more highly than he ought to think; but to think soberly, according as God hath dealt to every man the measure of faith.  
-> <sup>4</sup> For as we have many members in one body, and all members have not the same office:  
-> <sup>5</sup> So we, *being* many, are one body in Christ, and every one members one of another.  
-> <sup>6</sup> Having then gifts differing according to the grace that is given to us, whether prophecy, *let us prophesy* according to the proportion of faith;  
-> <sup>7</sup> Or ministry, *let us wait* on *our* ministering: or he that teacheth, on teaching;  
-> <sup>8</sup> Or he that exhorteth, on exhortation: he that giveth, *let him do it* with simplicity; he that ruleth, with diligence; he that showeth mercy, with cheerfulness.  
-> <sup>9</sup> *Let* love be without dissimulation. Abhor that which is evil; cleave to that which is good.  
-> <sup>10</sup> *Be* kindly affectioned one to another with brotherly love; in honour preferring one another;  
-> <sup>11</sup> Not slothful in business; fervent in spirit; serving the Lord;  
-> <sup>12</sup> Rejoicing in hope; patient in tribulation; continuing instant in prayer;  
-> <sup>13</sup> Distributing to the necessity of saints; given to hospitality.  
-> <sup>14</sup> Bless them which persecute you: bless, and curse not.  
-> <sup>15</sup> Rejoice with them that do rejoice, and weep with them that weep.  
-> <sup>16</sup> *Be* of the same mind one toward another. Mind not high things, but condescend to men of low estate. Be not wise in your own conceits.  
-> <sup>17</sup> Recompense to no man evil for evil. Provide things honest in the sight of all men.  
-> <sup>18</sup> If it be possible, as much as lieth in you, live peaceably with all men.  
-> <sup>19</sup> Dearly beloved, avenge not yourselves, but *rather* give place unto wrath: for it is written, Vengeance *is* mine; I will repay, saith the Lord.  
-> <sup>20</sup> Therefore if thine enemy hunger, feed him; if he thirst, give him drink: for in so doing thou shalt heap coals of fire on his head.  
-> <sup>21</sup> Be not overcome of evil, but overcome evil with good.  
+> **¹** I beseech you therefore, brethren, by the mercies of God, that ye present your bodies a living sacrifice, holy, acceptable unto God, *which is* your reasonable service.  
+> **²** And be not conformed to this world: but be ye transformed by the renewing of your mind, that ye may prove what *is* that good, and acceptable, and perfect, will of God.  
+> **³** For I say, through the grace given unto me, to every man that is among you, not to think *of himself* more highly than he ought to think; but to think soberly, according as God hath dealt to every man the measure of faith.  
+> **⁴** For as we have many members in one body, and all members have not the same office:  
+> **⁵** So we, *being* many, are one body in Christ, and every one members one of another.  
+> **⁶** Having then gifts differing according to the grace that is given to us, whether prophecy, *let us prophesy* according to the proportion of faith;  
+> **⁷** Or ministry, *let us wait* on *our* ministering: or he that teacheth, on teaching;  
+> **⁸** Or he that exhorteth, on exhortation: he that giveth, *let him do it* with simplicity; he that ruleth, with diligence; he that showeth mercy, with cheerfulness.  
+> **⁹** *Let* love be without dissimulation. Abhor that which is evil; cleave to that which is good.  
+> **¹⁰** *Be* kindly affectioned one to another with brotherly love; in honour preferring one another;  
+> **¹¹** Not slothful in business; fervent in spirit; serving the Lord;  
+> **¹²** Rejoicing in hope; patient in tribulation; continuing instant in prayer;  
+> **¹³** Distributing to the necessity of saints; given to hospitality.  
+> **¹⁴** Bless them which persecute you: bless, and curse not.  
+> **¹⁵** Rejoice with them that do rejoice, and weep with them that weep.  
+> **¹⁶** *Be* of the same mind one toward another. Mind not high things, but condescend to men of low estate. Be not wise in your own conceits.  
+> **¹⁷** Recompense to no man evil for evil. Provide things honest in the sight of all men.  
+> **¹⁸** If it be possible, as much as lieth in you, live peaceably with all men.  
+> **¹⁹** Dearly beloved, avenge not yourselves, but *rather* give place unto wrath: for it is written, Vengeance *is* mine; I will repay, saith the Lord.  
+> **²⁰** Therefore if thine enemy hunger, feed him; if he thirst, give him drink: for in so doing thou shalt heap coals of fire on his head.  
+> **²¹** Be not overcome of evil, but overcome evil with good.  
 
 We may observe here, according to the scheme mentioned in the contents, the apostle's exhortations,
 

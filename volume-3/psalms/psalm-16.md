@@ -10,13 +10,13 @@ This psalm has something of David in it, but much more of Christ. It begins with
 
 Michtam of David.
 
-> <sup>1</sup> Preserve me, O God: for in thee do I put my trust.  
-> <sup>2</sup> *O my soul,* thou hast said unto the LORD, Thou *art* my Lord: my goodness *extendeth* not to thee;  
-> <sup>3</sup> *But* to the saints that *are* in the earth, and *to* the excellent, in whom *is* all my delight.  
-> <sup>4</sup> Their sorrows shall be multiplied *that* hasten *after* another *god:* their drink offerings of blood will I not offer, nor take up their names into my lips.  
-> <sup>5</sup> The LORD *is* the portion of mine inheritance and of my cup: thou maintainest my lot.  
-> <sup>6</sup> The lines are fallen unto me in pleasant *places;* yea, I have a goodly heritage.  
-> <sup>7</sup> I will bless the LORD, who hath given me counsel: my reins also instruct me in the night seasons.  
+> **¹** Preserve me, O God: for in thee do I put my trust.  
+> **²** *O my soul,* thou hast said unto the LORD, Thou *art* my Lord: my goodness *extendeth* not to thee;  
+> **³** *But* to the saints that *are* in the earth, and *to* the excellent, in whom *is* all my delight.  
+> **⁴** Their sorrows shall be multiplied *that* hasten *after* another *god:* their drink offerings of blood will I not offer, nor take up their names into my lips.  
+> **⁵** The LORD *is* the portion of mine inheritance and of my cup: thou maintainest my lot.  
+> **⁶** The lines are fallen unto me in pleasant *places;* yea, I have a goodly heritage.  
+> **⁷** I will bless the LORD, who hath given me counsel: my reins also instruct me in the night seasons.  
 
 This psalm is entitled *Michtam,* which some translate *a golden* psalm, a very precious one, more to be valued by us than gold, yea, than much fine gold, because it speaks so plainly of Christ and his resurrection, who is the true treasure hidden in the field of the Old Testament.
 
@@ -44,10 +44,10 @@ All this may be applied to Christ, who made the Lord his portion and was pleased
 
 ## Prophecy Relating to the Messiah; Sufferings and Consequent Glory of Christ.
 
-> <sup>8</sup> I have set the LORD always before me: because *he is* at my right hand, I shall not be moved.  
-> <sup>9</sup> Therefore my heart is glad, and my glory rejoiceth: my flesh also shall rest in hope.  
-> <sup>10</sup> For thou wilt not leave my soul in hell; neither wilt thou suffer thine Holy One to see corruption.  
-> <sup>11</sup> Thou wilt show me the path of life: in thy presence *is* fulness of joy; at thy right hand *there are* pleasures for evermore.  
+> **⁸** I have set the LORD always before me: because *he is* at my right hand, I shall not be moved.  
+> **⁹** Therefore my heart is glad, and my glory rejoiceth: my flesh also shall rest in hope.  
+> **¹⁰** For thou wilt not leave my soul in hell; neither wilt thou suffer thine Holy One to see corruption.  
+> **¹¹** Thou wilt show me the path of life: in thy presence *is* fulness of joy; at thy right hand *there are* pleasures for evermore.  
 
 All these verses are quoted by St. Peter in his first sermon, after the pouring out of the Spirit on the day of pentecost (Ac 2:25-28); and he tells us expressly that David in them speaks concerning Christ and particularly of his resurrection. Something we may allow here of the workings of David's own pious and devout affections towards God, depending upon his grace to perfect every thing that concerned him, and looking for the blessed hope, and happy state on the other side death, in the enjoyment of God; but in these holy elevations towards God and heaven he was carried by the spirit of prophecy quite beyond the consideration of himself and his own case, to foretel the glory of the Messiah, in such expressions as were peculiar to that, and could not be understood of himself. The New Testament furnishes us with a key to let us into the mystery of these lines.
 

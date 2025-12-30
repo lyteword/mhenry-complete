@@ -8,16 +8,16 @@ The description here given of the leviathan, a very large, strong, formidable fi
 
 ## Description of Leviathan. (b. c. 1520.)
 
-> <sup>1</sup> Canst thou draw out leviathan with a hook? or his tongue with a cord *which* thou lettest down?  
-> <sup>2</sup> Canst thou put a hook into his nose? or bore his jaw through with a thorn?  
-> <sup>3</sup> Will he make many supplications unto thee? will he speak soft *words* unto thee?  
-> <sup>4</sup> Will he make a covenant with thee? wilt thou take him for a servant for ever?  
-> <sup>5</sup> Wilt thou play with him as *with* a bird? or wilt thou bind him for thy maidens?  
-> <sup>6</sup> Shall the companions make a banquet of him? shall they part him among the merchants?  
-> <sup>7</sup> Canst thou fill his skin with barbed irons? or his head with fish spears?  
-> <sup>8</sup> Lay thine hand upon him, remember the battle, do no more.  
-> <sup>9</sup> Behold, the hope of him is in vain: shall not *one* be cast down even at the sight of him?  
-> <sup>10</sup> None *is so* fierce that dare stir him up: who then is able to stand before me?  
+> **¹** Canst thou draw out leviathan with a hook? or his tongue with a cord *which* thou lettest down?  
+> **²** Canst thou put a hook into his nose? or bore his jaw through with a thorn?  
+> **³** Will he make many supplications unto thee? will he speak soft *words* unto thee?  
+> **⁴** Will he make a covenant with thee? wilt thou take him for a servant for ever?  
+> **⁵** Wilt thou play with him as *with* a bird? or wilt thou bind him for thy maidens?  
+> **⁶** Shall the companions make a banquet of him? shall they part him among the merchants?  
+> **⁷** Canst thou fill his skin with barbed irons? or his head with fish spears?  
+> **⁸** Lay thine hand upon him, remember the battle, do no more.  
+> **⁹** Behold, the hope of him is in vain: shall not *one* be cast down even at the sight of him?  
+> **¹⁰** None *is so* fierce that dare stir him up: who then is able to stand before me?  
 
 Whether this leviathan be a whale or a crocodile is a great dispute among the learned, which I will not undertake to determine; some of the particulars agree more easily to the one, others to the other; both are very strong and fierce, and the power of the Creator appears in them. The ingenious Sir Richard Blackmore, though he admits the more received opinion concerning the *behemoth,* that it must be meant of the *elephant,* yet agrees with the learned Bochart's notion of the *leviathan,* that it is the *crocodile,* which was so well known in the river of Egypt. I confess that that which inclines me rather to understand it of the whale is not only because it is much larger and a nobler animal, but because, in the history of the Creation, there is such an express notice taken of it as is not of any other species of animals whatsoever (Ge 1:21, *God created great whales*), by which it appears, not only that whales were well known in those parts in the time of Moses, who lived a little after Job, but that the creation of whales was generally looked upon as a most illustrious proof of the eternal power and godhead of the Creator; and we may conjecture that this was the reason (for otherwise it seems unaccountable) why Moses there so particularly mentions the creation of the whales, because God had so lately insisted upon the bulk and strength of that creature than of any other, as the proof of his power; and the *leviathan* is here spoken of as an inhabitant of the sea (Job 41:31), which the crocodile is not; and Ps 104:25,26, *there* in *the great and wide sea, is that leviathan.* Here in these verses,
 
@@ -25,30 +25,30 @@ I\. He shows how unable Job was to master the leviathan. 1. That he could not ca
 
 II\. Thence he infers how unable he was to contend with the Almighty. *None is so fierce,* none so fool-hardy, *that he dares* to *stir up* the leviathan (Job 41:10), it being known that he will certainly be too hard for them; and *who then is able to stand before God,* either to impeach and arraign his proceedings or to out-face the power of his wrath? If the inferior creatures that are put under the feet of man, and over whom he has dominion, keep us in awe thus, how terrible must the majesty of our great Lord be, who has a sovereign dominion over us and against whom man has been so long in rebellion! *Who can stand before him when once he is angry?*
 
-> <sup>11</sup> Who hath prevented me, that I should repay *him? whatsoever is* under the whole heaven is mine.  
-> <sup>12</sup> I will not conceal his parts, nor his power, nor his comely proportion.  
-> <sup>13</sup> Who can discover the face of his garment? *or* who can come *to him* with his double bridle?  
-> <sup>14</sup> Who can open the doors of his face? his teeth *are* terrible round about.  
-> <sup>15</sup> *His* scales *are his* pride, shut up together *as with* a close seal.  
-> <sup>16</sup> One is so near to another, that no air can come between them.  
-> <sup>17</sup> They are joined one to another, they stick together, that they cannot be sundered.  
-> <sup>18</sup> By his neesings a light doth shine, and his eyes *are* like the eyelids of the morning.  
-> <sup>19</sup> Out of his mouth go burning lamps, *and* sparks of fire leap out.  
-> <sup>20</sup> Out of his nostrils goeth smoke, as *out* of a seething pot or caldron.  
-> <sup>21</sup> His breath kindleth coals, and a flame goeth out of his mouth.  
-> <sup>22</sup> In his neck remaineth strength, and sorrow is turned into joy before him.  
-> <sup>23</sup> The flakes of his flesh are joined together: they are firm in themselves; they cannot be moved.  
-> <sup>24</sup> His heart is as firm as a stone; yea, as hard as a piece of the nether *millstone.*  
-> <sup>25</sup> When he raiseth up himself, the mighty are afraid: by reason of breakings they purify themselves.  
-> <sup>26</sup> The sword of him that layeth at him cannot hold: the spear, the dart, nor the habergeon.  
-> <sup>27</sup> He esteemeth iron as straw, *and* brass as rotten wood.  
-> <sup>28</sup> The arrow cannot make him flee: slingstones are turned with him into stubble.  
-> <sup>29</sup> Darts are counted as stubble: he laugheth at the shaking of a spear.  
-> <sup>30</sup> Sharp stones *are* under him: he spreadeth sharp pointed things upon the mire.  
-> <sup>31</sup> He maketh the deep to boil like a pot: he maketh the sea like a pot of ointment.  
-> <sup>32</sup> He maketh a path to shine after him; *one* would think the deep *to be* hoary.  
-> <sup>33</sup> Upon earth there is not his like, who is made without fear.  
-> <sup>34</sup> He beholdeth all high *things:* he *is* a king over all the children of pride.  
+> **¹¹** Who hath prevented me, that I should repay *him? whatsoever is* under the whole heaven is mine.  
+> **¹²** I will not conceal his parts, nor his power, nor his comely proportion.  
+> **¹³** Who can discover the face of his garment? *or* who can come *to him* with his double bridle?  
+> **¹⁴** Who can open the doors of his face? his teeth *are* terrible round about.  
+> **¹⁵** *His* scales *are his* pride, shut up together *as with* a close seal.  
+> **¹⁶** One is so near to another, that no air can come between them.  
+> **¹⁷** They are joined one to another, they stick together, that they cannot be sundered.  
+> **¹⁸** By his neesings a light doth shine, and his eyes *are* like the eyelids of the morning.  
+> **¹⁹** Out of his mouth go burning lamps, *and* sparks of fire leap out.  
+> **²⁰** Out of his nostrils goeth smoke, as *out* of a seething pot or caldron.  
+> **²¹** His breath kindleth coals, and a flame goeth out of his mouth.  
+> **²²** In his neck remaineth strength, and sorrow is turned into joy before him.  
+> **²³** The flakes of his flesh are joined together: they are firm in themselves; they cannot be moved.  
+> **²⁴** His heart is as firm as a stone; yea, as hard as a piece of the nether *millstone.*  
+> **²⁵** When he raiseth up himself, the mighty are afraid: by reason of breakings they purify themselves.  
+> **²⁶** The sword of him that layeth at him cannot hold: the spear, the dart, nor the habergeon.  
+> **²⁷** He esteemeth iron as straw, *and* brass as rotten wood.  
+> **²⁸** The arrow cannot make him flee: slingstones are turned with him into stubble.  
+> **²⁹** Darts are counted as stubble: he laugheth at the shaking of a spear.  
+> **³⁰** Sharp stones *are* under him: he spreadeth sharp pointed things upon the mire.  
+> **³¹** He maketh the deep to boil like a pot: he maketh the sea like a pot of ointment.  
+> **³²** He maketh a path to shine after him; *one* would think the deep *to be* hoary.  
+> **³³** Upon earth there is not his like, who is made without fear.  
+> **³⁴** He beholdeth all high *things:* he *is* a king over all the children of pride.  
 
 God, having in the Job 42:1-6 shown Job how unable he was to deal with the leviathan, here sets forth his own power in that massy mighty creature. Here is,
 

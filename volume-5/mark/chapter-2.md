@@ -8,18 +8,18 @@ In this chapter, we have, I. Christ's healing a man that was sick of a palsy, Mk
 
 ## The Healing of a Paralytic.
 
-> <sup>1</sup> And again he entered into Capernaum after *some* days; and it was noised that he was in the house.  
-> <sup>2</sup> And straightway many were gathered together, insomuch that there was no room to receive *them,* no, not so much as about the door: and he preached the word unto them.  
-> <sup>3</sup> And they come unto him, bringing one sick of the palsy, which was borne of four.  
-> <sup>4</sup> And when they could not come nigh unto him for the press, they uncovered the roof where he was: and when they had broken *it* up, they let down the bed wherein the sick of the palsy lay.  
-> <sup>5</sup> When Jesus saw their faith, he said unto the sick of the palsy, Son, thy sins be forgiven thee.  
-> <sup>6</sup> But there were certain of the scribes sitting there, and reasoning in their hearts,  
-> <sup>7</sup> Why doth this *man* thus speak blasphemies? who can forgive sins but God only?  
-> <sup>8</sup> And immediately when Jesus perceived in his spirit that they so reasoned within themselves, he said unto them, Why reason ye these things in your hearts?  
-> <sup>9</sup> Whether is it easier to say to the sick of the palsy, *Thy* sins be forgiven thee; or to say, Arise, and take up thy bed, and walk?  
-> <sup>10</sup> But that ye may know that the Son of man hath power on earth to forgive sins, (he saith to the sick of the palsy,)  
-> <sup>11</sup> I say unto thee, Arise, and take up thy bed, and go thy way into thine house.  
-> <sup>12</sup> And immediately he arose, took up the bed, and went forth before them all; insomuch that they were all amazed, and glorified God, saying, We never saw it on this fashion.  
+> **¹** And again he entered into Capernaum after *some* days; and it was noised that he was in the house.  
+> **²** And straightway many were gathered together, insomuch that there was no room to receive *them,* no, not so much as about the door: and he preached the word unto them.  
+> **³** And they come unto him, bringing one sick of the palsy, which was borne of four.  
+> **⁴** And when they could not come nigh unto him for the press, they uncovered the roof where he was: and when they had broken *it* up, they let down the bed wherein the sick of the palsy lay.  
+> **⁵** When Jesus saw their faith, he said unto the sick of the palsy, Son, thy sins be forgiven thee.  
+> **⁶** But there were certain of the scribes sitting there, and reasoning in their hearts,  
+> **⁷** Why doth this *man* thus speak blasphemies? who can forgive sins but God only?  
+> **⁸** And immediately when Jesus perceived in his spirit that they so reasoned within themselves, he said unto them, Why reason ye these things in your hearts?  
+> **⁹** Whether is it easier to say to the sick of the palsy, *Thy* sins be forgiven thee; or to say, Arise, and take up thy bed, and walk?  
+> **¹⁰** But that ye may know that the Son of man hath power on earth to forgive sins, (he saith to the sick of the palsy,)  
+> **¹¹** I say unto thee, Arise, and take up thy bed, and go thy way into thine house.  
+> **¹²** And immediately he arose, took up the bed, and went forth before them all; insomuch that they were all amazed, and glorified God, saying, We never saw it on this fashion.  
 
 Christ, having been for some time preaching about in the country, here returns to Capernaum his head-quarters, and makes his appearance there, in hopes that by this time the talk and crowd would be somewhat abated. Now observe,
 
@@ -37,11 +37,11 @@ VI\. The cure of the sick man, and the impression it made upon the people, Mk 2:
 
 ## Christ among Publicans and Sinners.
 
-> <sup>13</sup> And he went forth again by the sea side; and all the multitude resorted unto him, and he taught them.  
-> <sup>14</sup> And as he passed by, he saw Levi the *son* of Alphæus sitting at the receipt of custom, and said unto him, Follow me. And he arose and followed him.  
-> <sup>15</sup> And it came to pass, that, as Jesus sat at meat in his house, many publicans and sinners sat also together with Jesus and his disciples: for there were many, and they followed him.  
-> <sup>16</sup> And when the scribes and Pharisees saw him eat with publicans and sinners, they said unto his disciples, How is it that he eateth and drinketh with publicans and sinners?  
-> <sup>17</sup> When Jesus heard *it,* he saith unto them, They that are whole have no need of the physician, but they that are sick: I came not to call the righteous, but sinners to repentance.  
+> **¹³** And he went forth again by the sea side; and all the multitude resorted unto him, and he taught them.  
+> **¹⁴** And as he passed by, he saw Levi the *son* of Alphæus sitting at the receipt of custom, and said unto him, Follow me. And he arose and followed him.  
+> **¹⁵** And it came to pass, that, as Jesus sat at meat in his house, many publicans and sinners sat also together with Jesus and his disciples: for there were many, and they followed him.  
+> **¹⁶** And when the scribes and Pharisees saw him eat with publicans and sinners, they said unto his disciples, How is it that he eateth and drinketh with publicans and sinners?  
+> **¹⁷** When Jesus heard *it,* he saith unto them, They that are whole have no need of the physician, but they that are sick: I came not to call the righteous, but sinners to repentance.  
 
 Here is,
 
@@ -57,17 +57,17 @@ V\. Christ's justification of himself in it, Mk 2:17. He stood to what he did, a
 
 ## The Hypocritical Rigour of the Pharisees.
 
-> <sup>18</sup> And the disciples of John and of the Pharisees used to fast: and they come and say unto him, Why do the disciples of John and of the Pharisees fast, but thy disciples fast not?  
-> <sup>19</sup> And Jesus said unto them, Can the children of the bridechamber fast, while the bridegroom is with them? as long as they have the bridegroom with them, they cannot fast.  
-> <sup>20</sup> But the days will come, when the bridegroom shall be taken away from them, and then shall they fast in those days.  
-> <sup>21</sup> No man also seweth a piece of new cloth on an old garment: else the new piece that filled it up taketh away from the old, and the rent is made worse.  
-> <sup>22</sup> And no man putteth new wine into old bottles: else the new wine doth burst the bottles, and the wine is spilled, and the bottles will be marred: but new wine must be put into new bottles.  
-> <sup>23</sup> And it came to pass, that he went through the corn fields on the sabbath day; and his disciples began, as they went, to pluck the ears of corn.  
-> <sup>24</sup> And the Pharisees said unto him, Behold, why do they on the sabbath day that which is not lawful?  
-> <sup>25</sup> And he said unto them, Have ye never read what David did, when he had need, and was an hungred, he, and they that were with him?  
-> <sup>26</sup> How he went into the house of God in the days of Abiathar the high priest, and did eat the showbread, which is not lawful to eat but for the priests, and gave also to them which were with him?  
-> <sup>27</sup> And he said unto them, The sabbath was made for man, and not man for the sabbath:  
-> <sup>28</sup> Therefore the Son of man is Lord also of the sabbath.  
+> **¹⁸** And the disciples of John and of the Pharisees used to fast: and they come and say unto him, Why do the disciples of John and of the Pharisees fast, but thy disciples fast not?  
+> **¹⁹** And Jesus said unto them, Can the children of the bridechamber fast, while the bridegroom is with them? as long as they have the bridegroom with them, they cannot fast.  
+> **²⁰** But the days will come, when the bridegroom shall be taken away from them, and then shall they fast in those days.  
+> **²¹** No man also seweth a piece of new cloth on an old garment: else the new piece that filled it up taketh away from the old, and the rent is made worse.  
+> **²²** And no man putteth new wine into old bottles: else the new wine doth burst the bottles, and the wine is spilled, and the bottles will be marred: but new wine must be put into new bottles.  
+> **²³** And it came to pass, that he went through the corn fields on the sabbath day; and his disciples began, as they went, to pluck the ears of corn.  
+> **²⁴** And the Pharisees said unto him, Behold, why do they on the sabbath day that which is not lawful?  
+> **²⁵** And he said unto them, Have ye never read what David did, when he had need, and was an hungred, he, and they that were with him?  
+> **²⁶** How he went into the house of God in the days of Abiathar the high priest, and did eat the showbread, which is not lawful to eat but for the priests, and gave also to them which were with him?  
+> **²⁷** And he said unto them, The sabbath was made for man, and not man for the sabbath:  
+> **²⁸** Therefore the Son of man is Lord also of the sabbath.  
 
 Christ had been put to *justify* himself in conversing with *publicans and sinners:* here he is put to justify his disciples; and in what they do according to his will he will justify them, and bear them out.
 

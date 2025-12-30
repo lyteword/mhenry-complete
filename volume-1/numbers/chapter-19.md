@@ -8,16 +8,16 @@ This chapter is only concerning the preparing and using of the ashes which were 
 
 ## The Ashes of Purification. (b. c. 1471.)
 
-> <sup>1</sup> And the LORD spake unto Moses and unto Aaron, saying,  
-> <sup>2</sup> This *is* the ordinance of the law which the LORD hath commanded, saying, Speak unto the children of Israel, that they bring thee a red heifer without spot, wherein *is* no blemish, *and* upon which never came yoke:  
-> <sup>3</sup> And ye shall give her unto Eleazar the priest, that he may bring her forth without the camp, and *one* shall slay her before his face:  
-> <sup>4</sup> And Eleazar the priest shall take of her blood with his finger, and sprinkle of her blood directly before the tabernacle of the congregation seven times:  
-> <sup>5</sup> And *one* shall burn the heifer in his sight; her skin, and her flesh, and her blood, with her dung, shall he burn:  
-> <sup>6</sup> And the priest shall take cedar wood, and hyssop, and scarlet, and cast *it* into the midst of the burning of the heifer.  
-> <sup>7</sup> Then the priest shall wash his clothes, and he shall bathe his flesh in water, and afterward he shall come into the camp, and the priest shall be unclean until the even.  
-> <sup>8</sup> And he that burneth her shall wash his clothes in water, and bathe his flesh in water, and shall be unclean until the even.  
-> <sup>9</sup> And a man *that is* clean shall gather up the ashes of the heifer, and lay *them* up without the camp in a clean place, and it shall be kept for the congregation of the children of Israel for a water of separation: it *is* a purification for sin.  
-> <sup>10</sup> And he that gathereth the ashes of the heifer shall wash his clothes, and be unclean until the even: and it shall be unto the children of Israel, and unto the stranger that sojourneth among them, for a statute for ever.  
+> **¹** And the LORD spake unto Moses and unto Aaron, saying,  
+> **²** This *is* the ordinance of the law which the LORD hath commanded, saying, Speak unto the children of Israel, that they bring thee a red heifer without spot, wherein *is* no blemish, *and* upon which never came yoke:  
+> **³** And ye shall give her unto Eleazar the priest, that he may bring her forth without the camp, and *one* shall slay her before his face:  
+> **⁴** And Eleazar the priest shall take of her blood with his finger, and sprinkle of her blood directly before the tabernacle of the congregation seven times:  
+> **⁵** And *one* shall burn the heifer in his sight; her skin, and her flesh, and her blood, with her dung, shall he burn:  
+> **⁶** And the priest shall take cedar wood, and hyssop, and scarlet, and cast *it* into the midst of the burning of the heifer.  
+> **⁷** Then the priest shall wash his clothes, and he shall bathe his flesh in water, and afterward he shall come into the camp, and the priest shall be unclean until the even.  
+> **⁸** And he that burneth her shall wash his clothes in water, and bathe his flesh in water, and shall be unclean until the even.  
+> **⁹** And a man *that is* clean shall gather up the ashes of the heifer, and lay *them* up without the camp in a clean place, and it shall be kept for the congregation of the children of Israel for a water of separation: it *is* a purification for sin.  
+> **¹⁰** And he that gathereth the ashes of the heifer shall wash his clothes, and be unclean until the even: and it shall be unto the children of Israel, and unto the stranger that sojourneth among them, for a statute for ever.  
 
 We have here the divine appointment concerning the solemn burning of a red heifer to ashes, and the preserving of the ashes, that of them might be made, not a beautifying, but a purifying, water, for that was the utmost the law reached to; it offered not to adorn as the gospel does, but to cleanse only. This burning of the heifer, though it was not properly a sacrifice of expiation, being not performed at the altar, yet was typical of the death and sufferings of Christ, by which he intended, not only to satisfy God's justice, but to purify and pacify our consciences, that we may have peace with God and also peace in our own bosoms, to prepare for which Christ died, not only like the bulls and goats at the altar, but like the heifer without the camp.
 
@@ -35,18 +35,18 @@ II\. There was to be a great deal of ceremony in the burning of it. The care of 
 
 5\. All those that were employed in this service were made ceremonially unclean by it; even Eleazar himself, though he did but sprinkle the blood, Nu 19:7. *He that burned the heifer was unclean* (Nu 19:8), and he that *gathered up the ashes* (Nu 19:10); so all that had a hand in putting Christ to death contracted guilt by it: his betrayer, his prosecutors, his judge, his executioner, all did what they did with wicked hands, though it was *by the determinate counsel and foreknowledge of God* (Ac 2:23); yet some of them were, and all might have been cleansed by the virtue of that same blood which they had brought themselves under the guilt of. Some make this to signify the imperfection of the legal services, and their insufficiency to take away sin, inasmuch as those who prepared for the purifying of others were themselves polluted by the preparation. The Jews say, This is a mystery which Solomon himself did not understand, that the same thing should pollute those that were clean and purify those that were unclean. But (says bishop Patrick) it is not strange to those who consider that all the sacrifices which were offered for sin were therefore looked upon as impure, because the sins of men were laid upon them, as all our sins were upon Christ, who therefore is said to be *made sin for us,* 2Co 5:21.
 
-> <sup>11</sup> He that toucheth the dead body of any man shall be unclean seven days.  
-> <sup>12</sup> He shall purify himself with it on the third day, and on the seventh day he shall be clean: but if he purify not himself the third day, then the seventh day he shall not be clean.  
-> <sup>13</sup> Whosoever toucheth the dead body of any man that is dead, and purifieth not himself, defileth the tabernacle of the LORD; and that soul shall be cut off from Israel: because the water of separation was not sprinkled upon him, he shall be unclean; his uncleanness *is* yet upon him.  
-> <sup>14</sup> This *is* the law, when a man dieth in a tent: all that come into the tent, and all that *is* in the tent, shall be unclean seven days.  
-> <sup>15</sup> And every open vessel, which hath no covering bound upon it, *is* unclean.  
-> <sup>16</sup> And whosoever toucheth one that is slain with a sword in the open fields, or a dead body, or a bone of a man, or a grave, shall be unclean seven days.  
-> <sup>17</sup> And for an unclean *person* they shall take of the ashes of the burnt heifer of purification for sin, and running water shall be put thereto in a vessel:  
-> <sup>18</sup> And a clean person shall take hyssop, and dip *it* in the water, and sprinkle *it* upon the tent, and upon all the vessels, and upon the persons that were there, and upon him that touched a bone, or one slain, or one dead, or a grave:  
-> <sup>19</sup> And the clean *person* shall sprinkle upon the unclean on the third day, and on the seventh day: and on the seventh day he shall purify himself, and wash his clothes, and bathe himself in water, and shall be clean at even.  
-> <sup>20</sup> But the man that shall be unclean, and shall not purify himself, that soul shall be cut off from among the congregation, because he hath defiled the sanctuary of the LORD: the water of separation hath not been sprinkled upon him; he *is* unclean.  
-> <sup>21</sup> And it shall be a perpetual statute unto them, that he that sprinkleth the water of separation shall wash his clothes; and he that toucheth the water of separation shall be unclean until even.  
-> <sup>22</sup> And whatsoever the unclean *person* toucheth shall be unclean; and the soul that toucheth *it* shall be unclean until even.  
+> **¹¹** He that toucheth the dead body of any man shall be unclean seven days.  
+> **¹²** He shall purify himself with it on the third day, and on the seventh day he shall be clean: but if he purify not himself the third day, then the seventh day he shall not be clean.  
+> **¹³** Whosoever toucheth the dead body of any man that is dead, and purifieth not himself, defileth the tabernacle of the LORD; and that soul shall be cut off from Israel: because the water of separation was not sprinkled upon him, he shall be unclean; his uncleanness *is* yet upon him.  
+> **¹⁴** This *is* the law, when a man dieth in a tent: all that come into the tent, and all that *is* in the tent, shall be unclean seven days.  
+> **¹⁵** And every open vessel, which hath no covering bound upon it, *is* unclean.  
+> **¹⁶** And whosoever toucheth one that is slain with a sword in the open fields, or a dead body, or a bone of a man, or a grave, shall be unclean seven days.  
+> **¹⁷** And for an unclean *person* they shall take of the ashes of the burnt heifer of purification for sin, and running water shall be put thereto in a vessel:  
+> **¹⁸** And a clean person shall take hyssop, and dip *it* in the water, and sprinkle *it* upon the tent, and upon all the vessels, and upon the persons that were there, and upon him that touched a bone, or one slain, or one dead, or a grave:  
+> **¹⁹** And the clean *person* shall sprinkle upon the unclean on the third day, and on the seventh day: and on the seventh day he shall purify himself, and wash his clothes, and bathe himself in water, and shall be clean at even.  
+> **²⁰** But the man that shall be unclean, and shall not purify himself, that soul shall be cut off from among the congregation, because he hath defiled the sanctuary of the LORD: the water of separation hath not been sprinkled upon him; he *is* unclean.  
+> **²¹** And it shall be a perpetual statute unto them, that he that sprinkleth the water of separation shall wash his clothes; and he that toucheth the water of separation shall be unclean until even.  
+> **²²** And whatsoever the unclean *person* toucheth shall be unclean; and the soul that toucheth *it* shall be unclean until even.  
 
 Directions are here given concerning the use and application of the ashes which were prepared for purification. they were laid up to be laid out; and therefore, though now one place would serve to keep them in, while all Israel lay so closely encamped, yet it is probable that afterwards, when they came to Canaan, some of these ashes were kept in every town, for there would be daily use for them. Observe,
 

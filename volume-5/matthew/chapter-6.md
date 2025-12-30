@@ -8,10 +8,10 @@ Christ having, in the former chapter, armed his disciples against the corrupt do
 
 ## The Sermon on the Mount.
 
-> <sup>1</sup> Take heed that ye do not your alms before men, to be seen of them: otherwise ye have no reward of your Father which is in heaven.  
-> <sup>2</sup> Therefore when thou doest *thine* alms, do not sound a trumpet before thee, as the hypocrites do in the synagogues and in the streets, that they may have glory of men. Verily I say unto you, They have their reward.  
-> <sup>3</sup> But when thou doest alms, let not thy left hand know what thy right hand doeth:  
-> <sup>4</sup> That thine alms may be in secret: and thy Father which seeth in secret himself shall reward thee openly.  
+> **¹** Take heed that ye do not your alms before men, to be seen of them: otherwise ye have no reward of your Father which is in heaven.  
+> **²** Therefore when thou doest *thine* alms, do not sound a trumpet before thee, as the hypocrites do in the synagogues and in the streets, that they may have glory of men. Verily I say unto you, They have their reward.  
+> **³** But when thou doest alms, let not thy left hand know what thy right hand doeth:  
+> **⁴** That thine alms may be in secret: and thy Father which seeth in secret himself shall reward thee openly.  
 
 As we must do better than the scribes and Pharisees in avoiding heart-sins, heart-adultery, and heart-murder, so likewise in maintaining and keeping up heart-religion, doing what we do from an inward, vital principle, that we may be approved of God, not that we may be applauded of men; that is, we must watch against hypocrisy, which was the leaven of the Pharisees, as well as against their doctrine, Lu 12:1. *Almsgiving, prayer,* and *fasting,* are three great Christian duties—the three foundations of the law, say the Arabians: by them we do homage and service to God with our three principal interests; by *prayer* with our *souls,* by *fasting* with our *bodies,* by *alms-giving* with our *estates.* Thus we must not only *depart from evil,* but *do good,* and do it well, and so *dwell for evermore.*
 
@@ -39,10 +39,10 @@ Now the doom that Christ passes upon this is very observable; *Verily I say unto
 
 ## The Sermon on the Mount.
 
-> <sup>5</sup> And when thou prayest, thou shalt not be as the hypocrites *are:* for they love to pray standing in the synagogues and in the corners of the streets, that they may be seen of men. Verily I say unto you, They have their reward.  
-> <sup>6</sup> But thou, when thou prayest, enter into thy closet, and when thou hast shut thy door, pray to thy Father which is in secret; and thy Father which seeth in secret shall reward thee openly.  
-> <sup>7</sup> But when ye pray, use not vain repetitions, as the heathen *do:* for they think that they shall be heard for their much speaking.  
-> <sup>8</sup> Be not ye therefore like unto them: for your Father knoweth what things ye have need of, before ye ask him.  
+> **⁵** And when thou prayest, thou shalt not be as the hypocrites *are:* for they love to pray standing in the synagogues and in the corners of the streets, that they may be seen of men. Verily I say unto you, They have their reward.  
+> **⁶** But thou, when thou prayest, enter into thy closet, and when thou hast shut thy door, pray to thy Father which is in secret; and thy Father which seeth in secret shall reward thee openly.  
+> **⁷** But when ye pray, use not vain repetitions, as the heathen *do:* for they think that they shall be heard for their much speaking.  
+> **⁸** Be not ye therefore like unto them: for your Father knoweth what things ye have need of, before ye ask him.  
 
 In *prayer* we have more immediately to do with God than in *giving alms,* and therefore are yet more concerned to be *sincere,* which is what we are here directed to. *When thou prayest* (Mt 6:5). It is taken for granted that all the disciples of Christ *pray.* As soon as ever Paul was converted, *behold he prayeth.* You may as soon find a living man that does not breathe, as a living Christian that does not pray. *For this shall every one that is godly pray.* If prayerless, then graceless. "*Now, when thou prayest,* thou shalt not be *as the hypocrites are,* nor do as they do," Mt 6:2. Note, Those who would not do as the hypocrites do in their ways and actions must not be as the hypocrites are in their frame and temper. He names nobody, but it appears by Mt 23:13, that by the hypocrites here he means especially the scribes and Pharisees.
 
@@ -86,13 +86,13 @@ II\. We must not *use vain repetitions* in prayer, Mt 6:7,8. Though the life of 
 
 ## The Sermon on the Mount.
 
-> <sup>9</sup> After this manner therefore pray ye: Our Father which art in heaven, Hallowed be thy name.  
-> <sup>10</sup> Thy kingdom come. Thy will be done in earth, as *it is* in heaven.  
-> <sup>11</sup> Give us this day our daily bread.  
-> <sup>12</sup> And forgive us our debts, as we forgive our debtors.  
-> <sup>13</sup> And lead us not into temptation, but deliver us from evil: For thine is the kingdom, and the power, and the glory, for ever. Amen.  
-> <sup>14</sup> For if ye forgive men their trespasses, your heavenly Father will also forgive you:  
-> <sup>15</sup> But if ye forgive not men their trespasses, neither will your Father forgive your trespasses.  
+> **⁹** After this manner therefore pray ye: Our Father which art in heaven, Hallowed be thy name.  
+> **¹⁰** Thy kingdom come. Thy will be done in earth, as *it is* in heaven.  
+> **¹¹** Give us this day our daily bread.  
+> **¹²** And forgive us our debts, as we forgive our debtors.  
+> **¹³** And lead us not into temptation, but deliver us from evil: For thine is the kingdom, and the power, and the glory, for ever. Amen.  
+> **¹⁴** For if ye forgive men their trespasses, your heavenly Father will also forgive you:  
+> **¹⁵** But if ye forgive not men their trespasses, neither will your Father forgive your trespasses.  
 
 When Christ had condemned what was amiss, he directs to do better; for his are reproofs of instruction. Because we know not what to pray for as we ought, he here helps our infirmities, by putting words into our mouths; *after this manner therefore pray ye,* Mt 6:9. So many were the corruptions that had crept into this duty of prayer among the Jews, that Christ saw it needful to give a new directory for prayer, to show his disciples what must ordinarily be the matter and method of their prayer, which he gives in words that may very well be used as a form; as the summary or contents of the several particulars of our prayers. Not that we are tied up to the use of this form only, or of this always, as if this were necessary to the consecrating of our other prayers; we are here bid to pray after this manner, with these words, or to this effect. That in Luke differs from this; we do not find it used by the apostles; we are not here taught to pray in the name of Christ, as we are afterward; we are here taught to pray that the kingdom might come which did come when the Spirit was poured out: yet, without doubt, it is very good to use it as a form, and it is a pledge of the communion of saints, it having been used by the church in all ages, at least (says Dr. Whitby) from the third century. It is our Lord's prayer, it is of his composing, of his appointing; it is very compendious, yet very comprehensive, in compassion to our infirmities in praying. The matter is choice and necessary, the method instructive, and the expression very concise. It has much in a little, and it is requisite that we acquaint ourselves with the sense and meaning of it, for it is used acceptably no further than it is used with understanding and without vain repetition.
 
@@ -146,9 +146,9 @@ Most of the petitions in the Lord's prayer had been commonly used by the Jews in
 
 ## The Sermon on the Mount.
 
-> <sup>16</sup> Moreover when ye fast, be not, as the hypocrites, of a sad countenance: for they disfigure their faces, that they may appear unto men to fast. Verily I say unto you, They have their reward.  
-> <sup>17</sup> But thou, when thou fastest, anoint thine head, and wash thy face;  
-> <sup>18</sup> That thou appear not unto men to fast, but unto thy Father which is in secret: and thy Father, which seeth in secret, shall reward thee openly.  
+> **¹⁶** Moreover when ye fast, be not, as the hypocrites, of a sad countenance: for they disfigure their faces, that they may appear unto men to fast. Verily I say unto you, They have their reward.  
+> **¹⁷** But thou, when thou fastest, anoint thine head, and wash thy face;  
+> **¹⁸** That thou appear not unto men to fast, but unto thy Father which is in secret: and thy Father, which seeth in secret, shall reward thee openly.  
 
 We are here cautioned against hypocrisy in fasting, as before in almsgiving, and in prayer.
 
@@ -164,12 +164,12 @@ III\. We are directed how to manage a private fast; we must keep it in private, 
 
 ## The Sermon on the Mount.
 
-> <sup>19</sup> Lay not up for yourselves treasures upon earth, where moth and rust doth corrupt, and where thieves break through and steal:  
-> <sup>20</sup> But lay up for yourselves treasures in heaven, where neither moth nor rust doth corrupt, and where thieves do not break through nor steal:  
-> <sup>21</sup> For where your treasure is, there will your heart be also.  
-> <sup>22</sup> The light of the body is the eye: if therefore thine eye be single, thy whole body shall be full of light.  
-> <sup>23</sup> But if thine eye be evil, thy whole body shall be full of darkness. If therefore the light that is in thee be darkness, how great *is* that darkness!  
-> <sup>24</sup> No man can serve two masters: for either he will hate the one, and love the other; or else he will hold to the one, and despise the other. Ye cannot serve God and mammon.  
+> **¹⁹** Lay not up for yourselves treasures upon earth, where moth and rust doth corrupt, and where thieves break through and steal:  
+> **²⁰** But lay up for yourselves treasures in heaven, where neither moth nor rust doth corrupt, and where thieves do not break through nor steal:  
+> **²¹** For where your treasure is, there will your heart be also.  
+> **²²** The light of the body is the eye: if therefore thine eye be single, thy whole body shall be full of light.  
+> **²³** But if thine eye be evil, thy whole body shall be full of darkness. If therefore the light that is in thee be darkness, how great *is* that darkness!  
+> **²⁴** No man can serve two masters: for either he will hate the one, and love the other; or else he will hold to the one, and despise the other. Ye cannot serve God and mammon.  
 
 Worldly-mindedness is as common and as fatal a symptom of hypocrisy as any other, for by no sin can Satan have a surer and faster hold of the soul, under the cloak of a visible and passable profession of religion, than by this; and therefore Christ, having warned us against coveting *the praise of men,* proceeds next to warn us against coveting the wealth of the world; in this also we must take heed, lest we be as the hypocrites are, and do as they do: the fundamental error that they are guilty of is, that they choose the world for *their reward;* we must therefore take heed of hypocrisy and worldly-mindedness, in the choice we make of our treasure, our end, and our masters.
 
@@ -201,16 +201,16 @@ III\. We must take heed of hypocrisy and worldly-mindedness in choosing the mast
 
 ## The Sermon on the Mount.
 
-> <sup>25</sup> Therefore I say unto you, Take no thought for your life, what ye shall eat, or what ye shall drink; nor yet for your body, what ye shall put on. Is not the life more than meat, and the body than raiment?  
-> <sup>26</sup> Behold the fowls of the air: for they sow not, neither do they reap, nor gather into barns; yet your heavenly Father feedeth them. Are ye not much better than they?  
-> <sup>27</sup> Which of you by taking thought can add one cubit unto his stature?  
-> <sup>28</sup> And why take ye thought for raiment? Consider the lilies of the field, how they grow; they toil not, neither do they spin:  
-> <sup>29</sup> And yet I say unto you, That even Solomon in all his glory was not arrayed like one of these.  
-> <sup>30</sup> Wherefore, if God so clothe the grass of the field, which to day is, and to morrow is cast into the oven, *shall he* not much more *clothe* you, O ye of little faith?  
-> <sup>31</sup> Therefore take no thought, saying, What shall we eat? or, What shall we drink? or, Wherewithal shall we be clothed?  
-> <sup>32</sup> (For after all these things do the Gentiles seek:) for your heavenly Father knoweth that ye have need of all these things.  
-> <sup>33</sup> But seek ye first the kingdom of God, and his righteousness; and all these things shall be added unto you.  
-> <sup>34</sup> Take therefore no thought for the morrow: for the morrow shall take thought for the things of itself. Sufficient unto the day *is* the evil thereof.  
+> **²⁵** Therefore I say unto you, Take no thought for your life, what ye shall eat, or what ye shall drink; nor yet for your body, what ye shall put on. Is not the life more than meat, and the body than raiment?  
+> **²⁶** Behold the fowls of the air: for they sow not, neither do they reap, nor gather into barns; yet your heavenly Father feedeth them. Are ye not much better than they?  
+> **²⁷** Which of you by taking thought can add one cubit unto his stature?  
+> **²⁸** And why take ye thought for raiment? Consider the lilies of the field, how they grow; they toil not, neither do they spin:  
+> **²⁹** And yet I say unto you, That even Solomon in all his glory was not arrayed like one of these.  
+> **³⁰** Wherefore, if God so clothe the grass of the field, which to day is, and to morrow is cast into the oven, *shall he* not much more *clothe* you, O ye of little faith?  
+> **³¹** Therefore take no thought, saying, What shall we eat? or, What shall we drink? or, Wherewithal shall we be clothed?  
+> **³²** (For after all these things do the Gentiles seek:) for your heavenly Father knoweth that ye have need of all these things.  
+> **³³** But seek ye first the kingdom of God, and his righteousness; and all these things shall be added unto you.  
+> **³⁴** Take therefore no thought for the morrow: for the morrow shall take thought for the things of itself. Sufficient unto the day *is* the evil thereof.  
 
 There is scarcely any one sin against which our Lord Jesus more largely and earnestly warns his disciples, or against which he arms them with more variety of arguments, than the sin of disquieting, distracting, distrustful cares about the things of life, which are a bad sign that both the *treasure* and the heart are *on the earth;* and therefore he thus largely insists upon it. Here is,
 

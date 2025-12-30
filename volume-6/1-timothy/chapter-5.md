@@ -8,27 +8,27 @@ Here the apostle, I. Directs Timothy how to reprove, 1Ti 5:1,2. II. Adverts to w
 
 ## Directions Concerning Reproofs. (a. d. 64.)
 
-> <sup>1</sup> Rebuke not an elder, but intreat *him* as a father; *and* the younger men as brethren;  
-> <sup>2</sup> The elder women as mothers; the younger as sisters, with all purity.  
+> **¹** Rebuke not an elder, but intreat *him* as a father; *and* the younger men as brethren;  
+> **²** The elder women as mothers; the younger as sisters, with all purity.  
 
 Here the apostle gives rules to Timothy, and in him to other ministers, in reproving. Ministers are reprovers by office; it is a part, though the least pleasing part, of their office; they are to preach the word, to reprove and rebuke, 2Ti 4:2. A great difference is to be made in our reproofs, according to the age, quality, and other circumstances, of the persons rebuked; thus, and elder in age or office must be entreated as a father; *on some have compassion, making a difference,* Jude 1:22. Now the rule is, 1. To be very tender in rebuking elders—elders in age, elders by office. Respect must be had to the dignity of their years and place, and therefore they must not be rebuked sharply nor magisterially; but Timothy himself, though an evangelist, must entreat them as fathers, for this would be the likeliest way to work upon them, and to win upon them. 2. The younger must be rebuked as brethren, with love and tenderness; not as desirous, to spy faults or pick quarrels, but as being willing to make the best of them. There is need of a great deal of meekness in reproving those who deserve reproof. 3. The elder women must be reproved, when there is occasion, as mothers. Ho 2:2, *Plead with your mother, plead.* 4. The younger women must be reproved, but reproved as *sisters, with all purity.* If Timothy, so mortified a man to this world and to the flesh and lusts of it, had need of such a caution as this, much more have we.
 
 ## Directions Concerning Widows. (a. d. 64.)
 
-> <sup>3</sup> Honour widows that are widows indeed.  
-> <sup>4</sup> But if any widow have children or nephews, let them learn first to show piety at home, and to requite their parents: for that is good and acceptable before God.  
-> <sup>5</sup> Now she that is a widow indeed, and desolate, trusteth in God, and continueth in supplications and prayers night and day.  
-> <sup>6</sup> But she that liveth in pleasure is dead while she liveth.  
-> <sup>7</sup> And these things give in charge, that they may be blameless.  
-> <sup>8</sup> But if any provide not for his own, and specially for those of his own house, he hath denied the faith, and is worse than an infidel.  
-> <sup>9</sup> Let not a widow be taken into the number under threescore years old, having been the wife of one man,  
-> <sup>10</sup> Well reported of for good works; if she have brought up children, if she have lodged strangers, if she have washed the saints' feet, if she have relieved the afflicted, if she have diligently followed every good work.  
-> <sup>11</sup> But the younger widows refuse: for when they have begun to wax wanton against Christ, they will marry;  
-> <sup>12</sup> Having damnation, because they have cast off their first faith.  
-> <sup>13</sup> And withal they learn *to be* idle, wandering about from house to house; and not only idle, but tattlers also and busybodies, speaking things which they ought not.  
-> <sup>14</sup> I will therefore that the younger women marry, bear children, guide the house, give none occasion to the adversary to speak reproachfully.  
-> <sup>15</sup> For some are already turned aside after Satan.  
-> <sup>16</sup> If any man or woman that believeth have widows, let them relieve them, and let not the church be charged; that it may relieve them that are widows indeed.  
+> **³** Honour widows that are widows indeed.  
+> **⁴** But if any widow have children or nephews, let them learn first to show piety at home, and to requite their parents: for that is good and acceptable before God.  
+> **⁵** Now she that is a widow indeed, and desolate, trusteth in God, and continueth in supplications and prayers night and day.  
+> **⁶** But she that liveth in pleasure is dead while she liveth.  
+> **⁷** And these things give in charge, that they may be blameless.  
+> **⁸** But if any provide not for his own, and specially for those of his own house, he hath denied the faith, and is worse than an infidel.  
+> **⁹** Let not a widow be taken into the number under threescore years old, having been the wife of one man,  
+> **¹⁰** Well reported of for good works; if she have brought up children, if she have lodged strangers, if she have washed the saints' feet, if she have relieved the afflicted, if she have diligently followed every good work.  
+> **¹¹** But the younger widows refuse: for when they have begun to wax wanton against Christ, they will marry;  
+> **¹²** Having damnation, because they have cast off their first faith.  
+> **¹³** And withal they learn *to be* idle, wandering about from house to house; and not only idle, but tattlers also and busybodies, speaking things which they ought not.  
+> **¹⁴** I will therefore that the younger women marry, bear children, guide the house, give none occasion to the adversary to speak reproachfully.  
+> **¹⁵** For some are already turned aside after Satan.  
+> **¹⁶** If any man or woman that believeth have widows, let them relieve them, and let not the church be charged; that it may relieve them that are widows indeed.  
 
 Directions are here given concerning the taking of widows into the number of those who were employed by the church and had maintenance from the church: *Honour widows that are widows indeed.* Honour them, that is, maintain them, admit them into office. There was in those times an office in the church in which widows were employed, and that was to tend the sick and the aged, to look to them by the direction of the deacons. We read of the care taken of widows immediately upon the first forming of the Christian church (Ac 6:1), where the Grecians thought their widows were neglected in the daily ministration and provision made for poor widows. The general rule is to *honour widows that are widows indeed,* to maintain them, to relieve them with respect and tenderness.
 
@@ -42,15 +42,15 @@ IV\. He cautions them to take heed of admitting into the number those who are li
 
 ## Directions Concerning Elders; Concerning Church Discipline. (a. d. 64.)
 
-> <sup>17</sup> Let the elders that rule well be counted worthy of double honour, especially they who labour in the word and doctrine.  
-> <sup>18</sup> For the scripture saith, Thou shalt not muzzle the ox that treadeth out the corn. And, The labourer *is* worthy of his reward.  
-> <sup>19</sup> Against an elder receive not an accusation, but before two or three witnesses.  
-> <sup>20</sup> Them that sin rebuke before all, that others also may fear.  
-> <sup>21</sup> I charge *thee* before God, and the Lord Jesus Christ, and the elect angels, that thou observe these things without preferring one before another, doing nothing by partiality.  
-> <sup>22</sup> Lay hands suddenly on no man, neither be partaker of other men's sins: keep thyself pure.  
-> <sup>23</sup> Drink no longer water, but use a little wine for thy stomach's sake and thine often infirmities.  
-> <sup>24</sup> Some men's sins are open beforehand, going before to judgment; and some *men* they follow after.  
-> <sup>25</sup> Likewise also the good works *of some* are manifest beforehand; and they that are otherwise cannot be hid.  
+> **¹⁷** Let the elders that rule well be counted worthy of double honour, especially they who labour in the word and doctrine.  
+> **¹⁸** For the scripture saith, Thou shalt not muzzle the ox that treadeth out the corn. And, The labourer *is* worthy of his reward.  
+> **¹⁹** Against an elder receive not an accusation, but before two or three witnesses.  
+> **²⁰** Them that sin rebuke before all, that others also may fear.  
+> **²¹** I charge *thee* before God, and the Lord Jesus Christ, and the elect angels, that thou observe these things without preferring one before another, doing nothing by partiality.  
+> **²²** Lay hands suddenly on no man, neither be partaker of other men's sins: keep thyself pure.  
+> **²³** Drink no longer water, but use a little wine for thy stomach's sake and thine often infirmities.  
+> **²⁴** Some men's sins are open beforehand, going before to judgment; and some *men* they follow after.  
+> **²⁵** Likewise also the good works *of some* are manifest beforehand; and they that are otherwise cannot be hid.  
 
 Here are directions,
 

@@ -8,21 +8,21 @@ The prophet having in God's name reproved the people for their sins, and given t
 
 ## A Call of Repentance. (b. c. 606.)
 
-> <sup>1</sup> The word that came to Jeremiah from the LORD, saying,  
-> <sup>2</sup> Stand in the gate of the LORD's house, and proclaim there this word, and say, Hear the word of the LORD, all *ye of* Judah, that enter in at these gates to worship the LORD.  
-> <sup>3</sup> Thus saith the LORD of hosts, the God of Israel, Amend your ways and your doings, and I will cause you to dwell in this place.  
-> <sup>4</sup> Trust ye not in lying words, saying, The temple of the LORD, The temple of the LORD, The temple of the LORD, *are* these.  
-> <sup>5</sup> For if ye throughly amend your ways and your doings; if ye throughly execute judgment between a man and his neighbour;  
-> <sup>6</sup> *If* ye oppress not the stranger, the fatherless, and the widow, and shed not innocent blood in this place, neither walk after other gods to your hurt:  
-> <sup>7</sup> Then will I cause you to dwell in this place, in the land that I gave to your fathers, for ever and ever.  
-> <sup>8</sup> Behold, ye trust in lying words, that cannot profit.  
-> <sup>9</sup> Will ye steal, murder, and commit adultery, and swear falsely, and burn incense unto Baal, and walk after other gods whom ye know not;  
-> <sup>10</sup> And come and stand before me in this house, which is called by my name, and say, We are delivered to do all these abominations?  
-> <sup>11</sup> Is this house, which is called by my name, become a den of robbers in your eyes? Behold, even I have seen *it,* saith the LORD.  
-> <sup>12</sup> But go ye now unto my place which *was* in Shiloh, where I set my name at the first, and see what I did to it for the wickedness of my people Israel.  
-> <sup>13</sup> And now, because ye have done all these works, saith the LORD, and I spake unto you, rising up early and speaking, but ye heard not; and I called you, but ye answered not;  
-> <sup>14</sup> Therefore will I do unto *this* house, which is called by my name, wherein ye trust, and unto the place which I gave to you and to your fathers, as I have done to Shiloh.  
-> <sup>15</sup> And I will cast you out of my sight, as I have cast out all your brethren, *even* the whole seed of Ephraim.  
+> **¹** The word that came to Jeremiah from the LORD, saying,  
+> **²** Stand in the gate of the LORD's house, and proclaim there this word, and say, Hear the word of the LORD, all *ye of* Judah, that enter in at these gates to worship the LORD.  
+> **³** Thus saith the LORD of hosts, the God of Israel, Amend your ways and your doings, and I will cause you to dwell in this place.  
+> **⁴** Trust ye not in lying words, saying, The temple of the LORD, The temple of the LORD, The temple of the LORD, *are* these.  
+> **⁵** For if ye throughly amend your ways and your doings; if ye throughly execute judgment between a man and his neighbour;  
+> **⁶** *If* ye oppress not the stranger, the fatherless, and the widow, and shed not innocent blood in this place, neither walk after other gods to your hurt:  
+> **⁷** Then will I cause you to dwell in this place, in the land that I gave to your fathers, for ever and ever.  
+> **⁸** Behold, ye trust in lying words, that cannot profit.  
+> **⁹** Will ye steal, murder, and commit adultery, and swear falsely, and burn incense unto Baal, and walk after other gods whom ye know not;  
+> **¹⁰** And come and stand before me in this house, which is called by my name, and say, We are delivered to do all these abominations?  
+> **¹¹** Is this house, which is called by my name, become a den of robbers in your eyes? Behold, even I have seen *it,* saith the LORD.  
+> **¹²** But go ye now unto my place which *was* in Shiloh, where I set my name at the first, and see what I did to it for the wickedness of my people Israel.  
+> **¹³** And now, because ye have done all these works, saith the LORD, and I spake unto you, rising up early and speaking, but ye heard not; and I called you, but ye answered not;  
+> **¹⁴** Therefore will I do unto *this* house, which is called by my name, wherein ye trust, and unto the place which I gave to you and to your fathers, as I have done to Shiloh.  
+> **¹⁵** And I will cast you out of my sight, as I have cast out all your brethren, *even* the whole seed of Ephraim.  
 
 These verses begin another sermon, which is continued in this and the two following chapters, much to the same effect with those before, to reason them to repentance. Observe,
 
@@ -44,11 +44,11 @@ II\. The contents and scope of the sermon itself. It is delivered in the name of
 
 ## Punishment Predicted. (b. c. 606.)
 
-> <sup>16</sup> Therefore pray not thou for this people, neither lift up cry nor prayer for them, neither make intercession to me: for I will not hear thee.  
-> <sup>17</sup> Seest thou not what they do in the cities of Judah and in the streets of Jerusalem?  
-> <sup>18</sup> The children gather wood, and the fathers kindle the fire, and the women knead *their* dough, to make cakes to the queen of heaven, and to pour out drink offerings unto other gods, that they may provoke me to anger.  
-> <sup>19</sup> Do they provoke me to anger? saith the LORD: *do they* not *provoke* themselves to the confusion of their own faces?  
-> <sup>20</sup> Therefore thus saith the Lord GOD; Behold, mine anger and my fury shall be poured out upon this place, upon man, and upon beast, and upon the trees of the field, and upon the fruit of the ground; and it shall burn, and shall not be quenched.  
+> **¹⁶** Therefore pray not thou for this people, neither lift up cry nor prayer for them, neither make intercession to me: for I will not hear thee.  
+> **¹⁷** Seest thou not what they do in the cities of Judah and in the streets of Jerusalem?  
+> **¹⁸** The children gather wood, and the fathers kindle the fire, and the women knead *their* dough, to make cakes to the queen of heaven, and to pour out drink offerings unto other gods, that they may provoke me to anger.  
+> **¹⁹** Do they provoke me to anger? saith the LORD: *do they* not *provoke* themselves to the confusion of their own faces?  
+> **²⁰** Therefore thus saith the Lord GOD; Behold, mine anger and my fury shall be poured out upon this place, upon man, and upon beast, and upon the trees of the field, and upon the fruit of the ground; and it shall burn, and shall not be quenched.  
 
 God had shown them, in the foregoing verses, that the temple and the service of it, of which they boasted and in which they trusted, should not avail to prevent the judgment threatened. But there was another thing which might stand them in some stead, and which yet they had no value for, and that was the prophet's intercession for them; his prayers would do them more good than their own pleas: now here that support is taken from them; and their case is said indeed who have lost their interest in the prayers of God's ministers and people.
 
@@ -66,14 +66,14 @@ II\. He gives him a reason for this prohibition. Praying breath is too precious 
 
 ## Obedience Better than Sacrifice. (b. c. 606.)
 
-> <sup>21</sup> Thus saith the LORD of hosts, the God of Israel; Put your burnt offerings unto your sacrifices, and eat flesh.  
-> <sup>22</sup> For I spake not unto your fathers, nor commanded them in the day that I brought them out of the land of Egypt, concerning burnt offerings or sacrifices:  
-> <sup>23</sup> But this thing commanded I them, saying, Obey my voice, and I will be your God, and ye shall be my people: and walk ye in all the ways that I have commanded you, that it may be well unto you.  
-> <sup>24</sup> But they hearkened not, nor inclined their ear, but walked in the counsels *and* in the imagination of their evil heart, and went backward, and not forward.  
-> <sup>25</sup> Since the day that your fathers came forth out of the land of Egypt unto this day I have even sent unto you all my servants the prophets, daily rising up early and sending *them:*  
-> <sup>26</sup> Yet they hearkened not unto me, nor inclined their ear, but hardened their neck: they did worse than their fathers.  
-> <sup>27</sup> Therefore thou shalt speak all these words unto them; but they will not hearken to thee: thou shalt also call unto them; but they will not answer thee.  
-> <sup>28</sup> But thou shalt say unto them, This *is* a nation that obeyeth not the voice of the LORD their God, nor receiveth correction: truth is perished, and is cut off from their mouth.  
+> **²¹** Thus saith the LORD of hosts, the God of Israel; Put your burnt offerings unto your sacrifices, and eat flesh.  
+> **²²** For I spake not unto your fathers, nor commanded them in the day that I brought them out of the land of Egypt, concerning burnt offerings or sacrifices:  
+> **²³** But this thing commanded I them, saying, Obey my voice, and I will be your God, and ye shall be my people: and walk ye in all the ways that I have commanded you, that it may be well unto you.  
+> **²⁴** But they hearkened not, nor inclined their ear, but walked in the counsels *and* in the imagination of their evil heart, and went backward, and not forward.  
+> **²⁵** Since the day that your fathers came forth out of the land of Egypt unto this day I have even sent unto you all my servants the prophets, daily rising up early and sending *them:*  
+> **²⁶** Yet they hearkened not unto me, nor inclined their ear, but hardened their neck: they did worse than their fathers.  
+> **²⁷** Therefore thou shalt speak all these words unto them; but they will not hearken to thee: thou shalt also call unto them; but they will not answer thee.  
+> **²⁸** But thou shalt say unto them, This *is* a nation that obeyeth not the voice of the LORD their God, nor receiveth correction: truth is perished, and is cut off from their mouth.  
 
 God, having shown the people that the temple would not protect them while they polluted it with their wickedness, here shows them that their sacrifices would not atone for them, nor be accepted, while they went on in disobedience. See with what contempt he here speaks of their ceremonial service (Jer 7:21). "*Put your burnt-offerings to your sacrifices;* go on in them as long as you please; add one sort of sacrifice to another; turn your *burnt-offerings* (which were to be wholly burnt to the honour of God) into *peace-offerings*" (which the offerer himself had a considerable share of), "that you may *eat flesh,* for that is all the good you are likely to have from your sacrifices, a good meal's meat or two; but expect not any other benefit by them while you live at this loose rate. *Keep your sacrifices to yourselves*" (so some understand it); "let them be served up at your own table, for they are no way acceptable at God's altars." For the opening of this,
 
@@ -83,12 +83,12 @@ II\. He shows them that disobedience was the only thing for which he had a quarr
 
 ## The Desolation of Judah. (b. c. 606.)
 
-> <sup>29</sup> Cut off thine hair, *O Jerusalem,* and cast *it* away, and take up a lamentation on high places; for the LORD hath rejected and forsaken the generation of his wrath.  
-> <sup>30</sup> For the children of Judah have done evil in my sight, saith the LORD: they have set their abominations in the house which is called by my name, to pollute it.  
-> <sup>31</sup> And they have built the high places of Tophet, which *is* in the valley of the son of Hinnom, to burn their sons and their daughters in the fire; which I commanded *them* not, neither came it into my heart.  
-> <sup>32</sup> Therefore, behold, the days come, saith the LORD, that it shall no more be called Tophet, nor the valley of the son of Hinnom, but the valley of slaughter: for they shall bury in Tophet, till there be no place.  
-> <sup>33</sup> And the carcases of this people shall be meat for the fowls of the heaven, and for the beasts of the earth; and none shall fray *them* away.  
-> <sup>34</sup> Then will I cause to cease from the cities of Judah, and from the streets of Jerusalem, the voice of mirth, and the voice of gladness, the voice of the bridegroom, and the voice of the bride: for the land shall be desolate.  
+> **²⁹** Cut off thine hair, *O Jerusalem,* and cast *it* away, and take up a lamentation on high places; for the LORD hath rejected and forsaken the generation of his wrath.  
+> **³⁰** For the children of Judah have done evil in my sight, saith the LORD: they have set their abominations in the house which is called by my name, to pollute it.  
+> **³¹** And they have built the high places of Tophet, which *is* in the valley of the son of Hinnom, to burn their sons and their daughters in the fire; which I commanded *them* not, neither came it into my heart.  
+> **³²** Therefore, behold, the days come, saith the LORD, that it shall no more be called Tophet, nor the valley of the son of Hinnom, but the valley of slaughter: for they shall bury in Tophet, till there be no place.  
+> **³³** And the carcases of this people shall be meat for the fowls of the heaven, and for the beasts of the earth; and none shall fray *them* away.  
+> **³⁴** Then will I cause to cease from the cities of Judah, and from the streets of Jerusalem, the voice of mirth, and the voice of gladness, the voice of the bridegroom, and the voice of the bride: for the land shall be desolate.  
 
 Here is, I. A loud call to weeping and mourning. Jerusalem, that had been a joyous city, the joy of the whole earth, must now *take up a lamentation on high places* (Jer 7:29), the high places where they had served their idols; there must they now bemoan their misery. In token both of sorrow and slavery, Jerusalem must now *cut off her hair and cast it away;* the word is peculiar to the hair of the Nazarites, which was the badge and token of their dedication to God, and it is called *their crown.* Jerusalem had been a city which was a Nazarite to God, but now must *cut off her hair,* must be profaned, degraded, and separated from God, as she had been separated to him. It is time for those that have lost their holiness to lay aside their joy.
 

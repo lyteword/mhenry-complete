@@ -8,21 +8,21 @@ In this chapter we have, I. A further account of the triumphant song of angels a
 
 ## The Triumph of the Saints. (a. d. 95.)
 
-> <sup>1</sup> And after these things I heard a great voice of much people in heaven, saying, Alleluia; Salvation, and glory, and honour, and power, unto the Lord our God:  
-> <sup>2</sup> For true and righteous *are* his judgments: for he hath judged the great whore, which did corrupt the earth with her fornication, and hath avenged the blood of his servants at her hand.  
-> <sup>3</sup> And again they said, Alleluia. And her smoke rose up for ever and ever.  
-> <sup>4</sup> And the four and twenty elders and the four beasts fell down and worshipped God that sat on the throne, saying, Amen; Alleluia.  
+> **¹** And after these things I heard a great voice of much people in heaven, saying, Alleluia; Salvation, and glory, and honour, and power, unto the Lord our God:  
+> **²** For true and righteous *are* his judgments: for he hath judged the great whore, which did corrupt the earth with her fornication, and hath avenged the blood of his servants at her hand.  
+> **³** And again they said, Alleluia. And her smoke rose up for ever and ever.  
+> **⁴** And the four and twenty elders and the four beasts fell down and worshipped God that sat on the throne, saying, Amen; Alleluia.  
 
 The fall of Babylon being fixed, finished, and declared to be irrecoverable in the foregoing chapter, this begins with a holy triumph over her, in pursuance of the order given forth: *Rejoice over her, thou heaven, and you holy apostles and prophets,* Re 18:20. They now gladly answer the call; and here you have, 1. The form of their thanksgiving, in that heavenly and most comprehensive word, *Alleluia, praise you the Lord:* with this they begin, with this they go on, and with this they end (Re 19:4); their prayers are now turned into praises, their hosannas end in halleluias. 2. The matter of their thanksgiving: they praise him for the truth of his word, and the righteousness of his providential conduct, especially in this great event—the ruin of Babylon, which had been a mother, nurse, and nest of idolatry, lewdness, and cruelty (Re 19:2), for which signal example of divine justice they ascribe *salvation, and glory, and honour, and power, unto our God.* 3. The effect of these their praises: when the angels and saints cried *Alleluia,* her fire burned more fiercely and *her smoke ascended for ever and ever,* Re 19:3. The surest way to have our deliverances continued and completed is to give God the glory of what he has done for us. Praising God for what we have is praying in the most effectual manner for what is yet further to be done for us; the praises of the saints blow up the fire of God's wrath against the common enemy. 4. The blessed harmony between the angels and the saints in this triumphant song, Re 19:4. The churches and their ministers take the melodious sound from the angels, and repeat it; falling down, and worshipping God, they cry, *Amen, Alleluia.*
 
 ## The Triumph of the Saints. (a. d. 95.)
 
-> <sup>5</sup> And a voice came out of the throne, saying, Praise our God, all ye his servants, and ye that fear him, both small and great.  
-> <sup>6</sup> And I heard as it were the voice of a great multitude, and as the voice of many waters, and as the voice of mighty thunderings, saying, Alleluia: for the Lord God omnipotent reigneth.  
-> <sup>7</sup> Let us be glad and rejoice, and give honour to him: for the marriage of the Lamb is come, and his wife hath made herself ready.  
-> <sup>8</sup> And to her was granted that she should be arrayed in fine linen, clean and white: for the fine linen is the righteousness of saints.  
-> <sup>9</sup> And he saith unto me, Write, Blessed *are* they which are called unto the marriage supper of the Lamb. And he saith unto me, These are the true sayings of God.  
-> <sup>10</sup> And I fell at his feet to worship him. And he said unto me, See *thou do it* not: I am thy fellowservant, and of thy brethren that have the testimony of Jesus: worship God: for the testimony of Jesus is the spirit of prophecy.  
+> **⁵** And a voice came out of the throne, saying, Praise our God, all ye his servants, and ye that fear him, both small and great.  
+> **⁶** And I heard as it were the voice of a great multitude, and as the voice of many waters, and as the voice of mighty thunderings, saying, Alleluia: for the Lord God omnipotent reigneth.  
+> **⁷** Let us be glad and rejoice, and give honour to him: for the marriage of the Lamb is come, and his wife hath made herself ready.  
+> **⁸** And to her was granted that she should be arrayed in fine linen, clean and white: for the fine linen is the righteousness of saints.  
+> **⁹** And he saith unto me, Write, Blessed *are* they which are called unto the marriage supper of the Lamb. And he saith unto me, These are the true sayings of God.  
+> **¹⁰** And I fell at his feet to worship him. And he said unto me, See *thou do it* not: I am thy fellowservant, and of thy brethren that have the testimony of Jesus: worship God: for the testimony of Jesus is the spirit of prophecy.  
 
 The triumphant song being ended, and epithalamium, or marriage-song, begins, Re 19:6. Here observe,
 
@@ -32,17 +32,17 @@ II\. The occasion of this song; and that is the reign and dominion of that omnip
 
 ## The Triumph of the Saints. (a. d. 95.)
 
-> <sup>11</sup> And I saw heaven opened, and behold a white horse; and he that sat upon him *was* called Faithful and True, and in righteousness he doth judge and make war.  
-> <sup>12</sup> His eyes *were* as a flame of fire, and on his head *were* many crowns; and he had a name written, that no man knew, but he himself.  
-> <sup>13</sup> And he *was* clothed with a vesture dipped in blood: and his name is called The Word of God.  
-> <sup>14</sup> And the armies *which were* in heaven followed him upon white horses, clothed in fine linen, white and clean.  
-> <sup>15</sup> And out of his mouth goeth a sharp sword, that with it he should smite the nations: and he shall rule them with a rod of iron: and he treadeth the winepress of the fierceness and wrath of Almighty God.  
-> <sup>16</sup> And he hath on *his* vesture and on his thigh a name written, KING OF KINGS, AND LORD OF LORDS.  
-> <sup>17</sup> And I saw an angel standing in the sun; and he cried with a loud voice, saying to all the fowls that fly in the midst of heaven, Come and gather yourselves together unto the supper of the great God;  
-> <sup>18</sup> That ye may eat the flesh of kings, and the flesh of captains, and the flesh of mighty men, and the flesh of horses, and of them that sit on them, and the flesh of all *men, both* free and bond, both small and great.  
-> <sup>19</sup> And I saw the beast, and the kings of the earth, and their armies, gathered together to make war against him that sat on the horse, and against his army.  
-> <sup>20</sup> And the beast was taken, and with him the false prophet that wrought miracles before him, with which he deceived them that had received the mark of the beast, and them that worshipped his image. These both were cast alive into a lake of fire burning with brimstone.  
-> <sup>21</sup> And the remnant were slain with the sword of him that sat upon the horse, which *sword* proceeded out of his mouth: and all the fowls were filled with their flesh.  
+> **¹¹** And I saw heaven opened, and behold a white horse; and he that sat upon him *was* called Faithful and True, and in righteousness he doth judge and make war.  
+> **¹²** His eyes *were* as a flame of fire, and on his head *were* many crowns; and he had a name written, that no man knew, but he himself.  
+> **¹³** And he *was* clothed with a vesture dipped in blood: and his name is called The Word of God.  
+> **¹⁴** And the armies *which were* in heaven followed him upon white horses, clothed in fine linen, white and clean.  
+> **¹⁵** And out of his mouth goeth a sharp sword, that with it he should smite the nations: and he shall rule them with a rod of iron: and he treadeth the winepress of the fierceness and wrath of Almighty God.  
+> **¹⁶** And he hath on *his* vesture and on his thigh a name written, KING OF KINGS, AND LORD OF LORDS.  
+> **¹⁷** And I saw an angel standing in the sun; and he cried with a loud voice, saying to all the fowls that fly in the midst of heaven, Come and gather yourselves together unto the supper of the great God;  
+> **¹⁸** That ye may eat the flesh of kings, and the flesh of captains, and the flesh of mighty men, and the flesh of horses, and of them that sit on them, and the flesh of all *men, both* free and bond, both small and great.  
+> **¹⁹** And I saw the beast, and the kings of the earth, and their armies, gathered together to make war against him that sat on the horse, and against his army.  
+> **²⁰** And the beast was taken, and with him the false prophet that wrought miracles before him, with which he deceived them that had received the mark of the beast, and them that worshipped his image. These both were cast alive into a lake of fire burning with brimstone.  
+> **²¹** And the remnant were slain with the sword of him that sat upon the horse, which *sword* proceeded out of his mouth: and all the fowls were filled with their flesh.  
 
 No sooner was the marriage solemnized between Christ and his church by the conversion of the Jews than the glorious head and husband of the church is called out to a new expedition, which seems to be the great battle that was to be fought at Armageddon, foretold Re 16:16. And here observe,
 

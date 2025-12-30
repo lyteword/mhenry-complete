@@ -8,11 +8,11 @@ Prophets were sent to be reprovers, to tell people of their faults, and to warn 
 
 ## The Sinfulness of Israel. (b. c. 758.)
 
-> <sup>1</sup> Hear the word of the LORD, ye children of Israel: for the LORD hath a controversy with the inhabitants of the land, because *there is* no truth, nor mercy, nor knowledge of God in the land.  
-> <sup>2</sup> By swearing, and lying, and killing, and stealing, and committing adultery, they break out, and blood toucheth blood.  
-> <sup>3</sup> Therefore shall the land mourn, and every one that dwelleth therein shall languish, with the beasts of the field, and with the fowls of heaven; yea, the fishes of the sea also shall be taken away.  
-> <sup>4</sup> Yet let no man strive, nor reprove another: for thy people *are* as they that strive with the priest.  
-> <sup>5</sup> Therefore shalt thou fall in the day, and the prophet also shall fall with thee in the night, and I will destroy thy mother.  
+> **¹** Hear the word of the LORD, ye children of Israel: for the LORD hath a controversy with the inhabitants of the land, because *there is* no truth, nor mercy, nor knowledge of God in the land.  
+> **²** By swearing, and lying, and killing, and stealing, and committing adultery, they break out, and blood toucheth blood.  
+> **³** Therefore shall the land mourn, and every one that dwelleth therein shall languish, with the beasts of the field, and with the fowls of heaven; yea, the fishes of the sea also shall be taken away.  
+> **⁴** Yet let no man strive, nor reprove another: for thy people *are* as they that strive with the priest.  
+> **⁵** Therefore shalt thou fall in the day, and the prophet also shall fall with thee in the night, and I will destroy thy mother.  
 
 Here is, I. The court set, and both attendance and attention demanded: "*Hear the word of the Lord, you children of Israel,* for to you is the word of this conviction sent, whether you will hear or whether you will forbear." Whom may God expect to give him a fair hearing, and take from him a fair warning, but the children of Israel, his own professing people? Yea, they will be ready enough to hear when God speaks comfortably to them; but are they willing to hear when he has a controversy with them? Yes, they must hear him when he pleads against them, when he has something to lay to their charge: *The Lord has a controversy with the inhabitants of the land,* of this land, of this holy land. Note, Sin is the great mischief-maker; it sows discord between God and Israel. God sees sin in his own people, and a good action he has against them for it. Some more particular actions lie against his own people, which do not lie against other sinners. He has a controversy with them for breaking covenant with him, for bringing a reproach upon him, and for an ungrateful return to him for his favours. God's controversy will be pleaded, pleaded by the judgments of his mouth before they are pleaded by the judgments of his hand, that he may be justified in all he does and may make it appear that he desires not the death of sinners; and God's pleadings ought to be attended to, for, sooner or later, they shall have a hearing.
 
@@ -24,12 +24,12 @@ IV\. An order of court that no pains should be taken with the condemned criminal
 
 ## Grounds of God's Controversy with Israel; The Sins of the Priests and People. (b. c. 758.)
 
-> <sup>6</sup> My people are destroyed for lack of knowledge: because thou hast rejected knowledge, I will also reject thee, that thou shalt be no priest to me: seeing thou hast forgotten the law of thy God, I will also forget thy children.  
-> <sup>7</sup> As they were increased, so they sinned against me: *therefore* will I change their glory into shame.  
-> <sup>8</sup> They eat up the sin of my people, and they set their heart on their iniquity.  
-> <sup>9</sup> And there shall be, like people, like priest: and I will punish them for their ways, and reward them their doings.  
-> <sup>10</sup> For they shall eat, and not have enough: they shall commit whoredom, and shall not increase: because they have left off to take heed to the LORD.  
-> <sup>11</sup> Whoredom and wine and new wine take away the heart.  
+> **⁶** My people are destroyed for lack of knowledge: because thou hast rejected knowledge, I will also reject thee, that thou shalt be no priest to me: seeing thou hast forgotten the law of thy God, I will also forget thy children.  
+> **⁷** As they were increased, so they sinned against me: *therefore* will I change their glory into shame.  
+> **⁸** They eat up the sin of my people, and they set their heart on their iniquity.  
+> **⁹** And there shall be, like people, like priest: and I will punish them for their ways, and reward them their doings.  
+> **¹⁰** For they shall eat, and not have enough: they shall commit whoredom, and shall not increase: because they have left off to take heed to the LORD.  
+> **¹¹** Whoredom and wine and new wine take away the heart.  
 
 God is here proceeding in his controversy both with the priests and with the people. *The people* were as those *that strove with the priests* (Ho 4:4) when they had priests that did their duty; but the generality of them lived in the neglect of their duty, and here is a word for those priests, and for the people that love to have it so, Jer 5:31. And it is observable here how the punishment answers to the sin, and how, for the justifying of his own proceedings, God sets the one over-against the other.
 
@@ -51,14 +51,14 @@ VIII\. They indulged themselves in the delights of sense, to hold up their heart
 
 ## The Sins of the Priests and the People; Warning to Judah. (b. c. 758.)
 
-> <sup>12</sup> My people ask counsel at their stocks, and their staff declareth unto them: for the spirit of whoredoms hath caused *them* to err, and they have gone a whoring from under their God.  
-> <sup>13</sup> They sacrifice upon the tops of the mountains, and burn incense upon the hills, under oaks and poplars and elms, because the shadow thereof *is* good: therefore your daughters shall commit whoredom, and your spouses shall commit adultery.  
-> <sup>14</sup> I will not punish your daughters when they commit whoredom, nor your spouses when they commit adultery: for themselves are separated with whores, and they sacrifice with harlots: therefore the people *that* doth not understand shall fall.  
-> <sup>15</sup> Though thou, Israel, play the harlot, *yet* let not Judah offend; and come not ye unto Gilgal, neither go ye up to Beth-aven, nor swear, The LORD liveth.  
-> <sup>16</sup> For Israel slideth back as a backsliding heifer: now the LORD will feed them as a lamb in a large place.  
-> <sup>17</sup> Ephraim *is* joined to idols: let him alone.  
-> <sup>18</sup> Their drink is sour: they have committed whoredom continually: her rulers *with* shame do love, Give ye.  
-> <sup>19</sup> The wind hath bound her up in her wings, and they shall be ashamed because of their sacrifices.  
+> **¹²** My people ask counsel at their stocks, and their staff declareth unto them: for the spirit of whoredoms hath caused *them* to err, and they have gone a whoring from under their God.  
+> **¹³** They sacrifice upon the tops of the mountains, and burn incense upon the hills, under oaks and poplars and elms, because the shadow thereof *is* good: therefore your daughters shall commit whoredom, and your spouses shall commit adultery.  
+> **¹⁴** I will not punish your daughters when they commit whoredom, nor your spouses when they commit adultery: for themselves are separated with whores, and they sacrifice with harlots: therefore the people *that* doth not understand shall fall.  
+> **¹⁵** Though thou, Israel, play the harlot, *yet* let not Judah offend; and come not ye unto Gilgal, neither go ye up to Beth-aven, nor swear, The LORD liveth.  
+> **¹⁶** For Israel slideth back as a backsliding heifer: now the LORD will feed them as a lamb in a large place.  
+> **¹⁷** Ephraim *is* joined to idols: let him alone.  
+> **¹⁸** Their drink is sour: they have committed whoredom continually: her rulers *with* shame do love, Give ye.  
+> **¹⁹** The wind hath bound her up in her wings, and they shall be ashamed because of their sacrifices.  
 
 In these verses we have, as before,
 

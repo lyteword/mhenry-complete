@@ -8,12 +8,12 @@ We had, in the foregoing chapter, the fulfilling of the dreams which Joseph had 
 
 ## Jacob Sends to Egypt to Buy Corn. (b. c. 1706.)
 
-> <sup>1</sup> Now when Jacob saw that there was corn in Egypt, Jacob said unto his sons, Why do ye look one upon another?  
-> <sup>2</sup> And he said, Behold, I have heard that there is corn in Egypt: get you down thither, and buy for us from thence; that we may live, and not die.  
-> <sup>3</sup> And Joseph's ten brethren went down to buy corn in Egypt.  
-> <sup>4</sup> But Benjamin, Joseph's brother, Jacob sent not with his brethren; for he said, Lest peradventure mischief befal him.  
-> <sup>5</sup> And the sons of Israel came to buy *corn* among those that came: for the famine was in the land of Canaan.  
-> <sup>6</sup> And Joseph *was* the governor over the land, *and* he *it was* that sold to all the people of the land: and Joseph's brethren came, and bowed down themselves before him *with* their faces to the earth.  
+> **¹** Now when Jacob saw that there was corn in Egypt, Jacob said unto his sons, Why do ye look one upon another?  
+> **²** And he said, Behold, I have heard that there is corn in Egypt: get you down thither, and buy for us from thence; that we may live, and not die.  
+> **³** And Joseph's ten brethren went down to buy corn in Egypt.  
+> **⁴** But Benjamin, Joseph's brother, Jacob sent not with his brethren; for he said, Lest peradventure mischief befal him.  
+> **⁵** And the sons of Israel came to buy *corn* among those that came: for the famine was in the land of Canaan.  
+> **⁶** And Joseph *was* the governor over the land, *and* he *it was* that sold to all the people of the land: and Joseph's brethren came, and bowed down themselves before him *with* their faces to the earth.  
 
 Though Jacob's sons were all married, and had families of their own, yet, it should seem, they were still incorporated in one society, under the conduct and presidency of their father Jacob. We have here,
 
@@ -23,20 +23,20 @@ II\. Their obedience to these orders, Ge 42:3. They *went down to buy corn;* the
 
 ## Joseph Speaks Roughly to His Brethren. (b. c. 1706.)
 
-> <sup>7</sup> And Joseph saw his brethren, and he knew them, but made himself strange unto them, and spake roughly unto them; and he said unto them, Whence come ye? And they said, From the land of Canaan to buy food.  
-> <sup>8</sup> And Joseph knew his brethren, but they knew not him.  
-> <sup>9</sup> And Joseph remembered the dreams which he dreamed of them, and said unto them, Ye *are* spies; to see the nakedness of the land ye are come.  
-> <sup>10</sup> And they said unto him, Nay, my lord, but to buy food are thy servants come.  
-> <sup>11</sup> We *are* all one man's sons; we *are* true *men,* thy servants are no spies.  
-> <sup>12</sup> And he said unto them, Nay, but to see the nakedness of the land ye are come.  
-> <sup>13</sup> And they said, Thy servants *are* twelve brethren, the sons of one man in the land of Canaan; and, behold, the youngest *is* this day with our father, and one *is* not.  
-> <sup>14</sup> And Joseph said unto them, That *is it* that I spake unto you, saying, Ye *are* spies:  
-> <sup>15</sup> Hereby ye shall be proved: By the life of Pharaoh ye shall not go forth hence, except your youngest brother come hither.  
-> <sup>16</sup> Send one of you, and let him fetch your brother, and ye shall be kept in prison, that your words may be proved, whether *there be any* truth in you: or else by the life of Pharaoh surely ye *are* spies.  
-> <sup>17</sup> And he put them all together into ward three days.  
-> <sup>18</sup> And Joseph said unto them the third day, This do, and live; *for* I fear God:  
-> <sup>19</sup> If ye *be* true *men,* let one of your brethren be bound in the house of your prison: go ye, carry corn for the famine of your houses:  
-> <sup>20</sup> But bring your youngest brother unto me; so shall your words be verified, and ye shall not die. And they did so.  
+> **⁷** And Joseph saw his brethren, and he knew them, but made himself strange unto them, and spake roughly unto them; and he said unto them, Whence come ye? And they said, From the land of Canaan to buy food.  
+> **⁸** And Joseph knew his brethren, but they knew not him.  
+> **⁹** And Joseph remembered the dreams which he dreamed of them, and said unto them, Ye *are* spies; to see the nakedness of the land ye are come.  
+> **¹⁰** And they said unto him, Nay, my lord, but to buy food are thy servants come.  
+> **¹¹** We *are* all one man's sons; we *are* true *men,* thy servants are no spies.  
+> **¹²** And he said unto them, Nay, but to see the nakedness of the land ye are come.  
+> **¹³** And they said, Thy servants *are* twelve brethren, the sons of one man in the land of Canaan; and, behold, the youngest *is* this day with our father, and one *is* not.  
+> **¹⁴** And Joseph said unto them, That *is it* that I spake unto you, saying, Ye *are* spies:  
+> **¹⁵** Hereby ye shall be proved: By the life of Pharaoh ye shall not go forth hence, except your youngest brother come hither.  
+> **¹⁶** Send one of you, and let him fetch your brother, and ye shall be kept in prison, that your words may be proved, whether *there be any* truth in you: or else by the life of Pharaoh surely ye *are* spies.  
+> **¹⁷** And he put them all together into ward three days.  
+> **¹⁸** And Joseph said unto them the third day, This do, and live; *for* I fear God:  
+> **¹⁹** If ye *be* true *men,* let one of your brethren be bound in the house of your prison: go ye, carry corn for the famine of your houses:  
+> **²⁰** But bring your youngest brother unto me; so shall your words be verified, and ye shall not die. And they did so.  
 
 We may well wonder that Joseph, during the twenty years that he had now been in Egypt, especially during the last seven years that he had been in power there, never sent to his father to acquaint him with his circumstances; nay, it is strange that he who so often *went throughout all the land of Egypt* (Ge 41:45,46) never made an excursion to Canaan, to visit his aged father, when he was in the borders of Egypt, that lay next to Canaan. Perhaps it would not have been above three or four days' journey for him in his chariot. It is a probable conjecture that his whole management of himself in this affair was by special direction from Heaven, that the purpose of God concerning Jacob and his family might be accomplished. When Joseph's brethren came, he knew them by many a satisfactory token, but they knew not him, little thinking to find him there, Ge 42:8. He *remembered the dreams* (Ge 42:9), but they had forgotten them. The laying up of God's oracles in our hearts will be of excellent use to us in all our conduct. Joseph had an eye to his dreams, which he knew to be divine, in his carriage towards his brethren, and aimed at the accomplishment of them and the bringing of his brethren to repentance for their former sins; and both these points were gained.
 
@@ -50,14 +50,14 @@ IV\. He concluded with them, at last, that one of them should be left as a hosta
 
 ## Reflections of Joseph's Brethren. (b. c. 1706.)
 
-> <sup>21</sup> And they said one to another, We *are* verily guilty concerning our brother, in that we saw the anguish of his soul, when he besought us, and we would not hear; therefore is this distress come upon us.  
-> <sup>22</sup> And Reuben answered them, saying, Spake I not unto you, saying, Do not sin against the child; and ye would not hear? therefore, behold, also his blood is required.  
-> <sup>23</sup> And they knew not that Joseph understood *them;* for he spake unto them by an interpreter.  
-> <sup>24</sup> And he turned himself about from them, and wept; and returned to them again, and communed with them, and took from them Simeon, and bound him before their eyes.  
-> <sup>25</sup> Then Joseph commanded to fill their sacks with corn, and to restore every man's money into his sack, and to give them provision for the way: and thus did he unto them.  
-> <sup>26</sup> And they laded their asses with the corn, and departed thence.  
-> <sup>27</sup> And as one of them opened his sack to give his ass provender in the inn, he espied his money; for, behold, it *was* in his sack's mouth.  
-> <sup>28</sup> And he said unto his brethren, My money is restored; and, lo, *it is* even in my sack: and their heart failed *them,* and they were afraid, saying one to another, What *is* this *that* God hath done unto us?  
+> **²¹** And they said one to another, We *are* verily guilty concerning our brother, in that we saw the anguish of his soul, when he besought us, and we would not hear; therefore is this distress come upon us.  
+> **²²** And Reuben answered them, saying, Spake I not unto you, saying, Do not sin against the child; and ye would not hear? therefore, behold, also his blood is required.  
+> **²³** And they knew not that Joseph understood *them;* for he spake unto them by an interpreter.  
+> **²⁴** And he turned himself about from them, and wept; and returned to them again, and communed with them, and took from them Simeon, and bound him before their eyes.  
+> **²⁵** Then Joseph commanded to fill their sacks with corn, and to restore every man's money into his sack, and to give them provision for the way: and thus did he unto them.  
+> **²⁶** And they laded their asses with the corn, and departed thence.  
+> **²⁷** And as one of them opened his sack to give his ass provender in the inn, he espied his money; for, behold, it *was* in his sack's mouth.  
+> **²⁸** And he said unto his brethren, My money is restored; and, lo, *it is* even in my sack: and their heart failed *them,* and they were afraid, saying one to another, What *is* this *that* God hath done unto us?  
 
 Here is, I. The penitent reflection Joseph's brethren made upon the wrong they had formerly done to him, Ge 42:21. They talked the matter over in the Hebrew tongue, not suspecting that Joseph, whom they took for a native of Egypt, understood them, much less that he was the person they spoke of.
 
@@ -77,16 +77,16 @@ IV\. The dismission of the rest of them. They came for corn, and corn they had; 
 
 ## The Report Made to Jacob. (b. c. 1706.)
 
-> <sup>29</sup> And they came unto Jacob their father unto the land of Canaan, and told him all that befell unto them; saying,  
-> <sup>30</sup> The man, *who is* the lord of the land, spake roughly to us, and took us for spies of the country.  
-> <sup>31</sup> And we said unto him, We *are* true *men;* we are no spies:  
-> <sup>32</sup> We *be* twelve brethren, sons of our father; one *is* not, and the youngest *is* this day with our father in the land of Canaan.  
-> <sup>33</sup> And the man, the lord of the country, said unto us, Hereby shall I know that ye *are* true *men;* leave one of your brethren *here* with me, and take *food for* the famine of your households, and be gone:  
-> <sup>34</sup> And bring your youngest brother unto me: then shall I know that ye *are* no spies, but *that* ye *are* true *men: so* will I deliver you your brother, and ye shall traffic in the land.  
-> <sup>35</sup> And it came to pass as they emptied their sacks, that, behold, every man's bundle of money *was* in his sack: and when *both* they and their father saw the bundles of money, they were afraid.  
-> <sup>36</sup> And Jacob their father said unto them, Me have ye bereaved *of my children:* Joseph *is* not, and Simeon *is* not, and ye will take Benjamin *away:* all these things are against me.  
-> <sup>37</sup> And Reuben spake unto his father, saying, Slay my two sons, if I bring him not to thee: deliver him into my hand, and I will bring him to thee again.  
-> <sup>38</sup> And he said, My son shall not go down with you; for his brother is dead, and he is left alone: if mischief befal him by the way in the which ye go, then shall ye bring down my gray hairs with sorrow to the grave.  
+> **²⁹** And they came unto Jacob their father unto the land of Canaan, and told him all that befell unto them; saying,  
+> **³⁰** The man, *who is* the lord of the land, spake roughly to us, and took us for spies of the country.  
+> **³¹** And we said unto him, We *are* true *men;* we are no spies:  
+> **³²** We *be* twelve brethren, sons of our father; one *is* not, and the youngest *is* this day with our father in the land of Canaan.  
+> **³³** And the man, the lord of the country, said unto us, Hereby shall I know that ye *are* true *men;* leave one of your brethren *here* with me, and take *food for* the famine of your households, and be gone:  
+> **³⁴** And bring your youngest brother unto me: then shall I know that ye *are* no spies, but *that* ye *are* true *men: so* will I deliver you your brother, and ye shall traffic in the land.  
+> **³⁵** And it came to pass as they emptied their sacks, that, behold, every man's bundle of money *was* in his sack: and when *both* they and their father saw the bundles of money, they were afraid.  
+> **³⁶** And Jacob their father said unto them, Me have ye bereaved *of my children:* Joseph *is* not, and Simeon *is* not, and ye will take Benjamin *away:* all these things are against me.  
+> **³⁷** And Reuben spake unto his father, saying, Slay my two sons, if I bring him not to thee: deliver him into my hand, and I will bring him to thee again.  
+> **³⁸** And he said, My son shall not go down with you; for his brother is dead, and he is left alone: if mischief befal him by the way in the which ye go, then shall ye bring down my gray hairs with sorrow to the grave.  
 
 Here is, 1. The report which Jacob's sons made to their father of the great distress they had been in in Egypt; how they had been suspected, and threatened, and obliged to leave Simeon a prisoner there, till they should bring Benjamin with them thither. Who would have thought of this when they left home? When we go abroad we should consider how many sad accidents, that we little think of, may befal us before we return home. *We know not what a day may bring forth;* we ought therefore to be always ready for the worst. 2. The deep impression this made upon the good man. The very bundles of money which Joseph returned, in kindness to his father, frightened him (Ge 42:35); for he concluded it was done with some mischievous design, or perhaps suspected his own sons to have committed some offence, and so to have run themselves into a *præmunire—a penalty,* which is intimated in what he says (Ge 42:36): *Me have you bereaved.* He seems to lay the fault upon them; knowing their characters, he feared they had provoked the Egyptians, and perhaps forcibly, or fraudulently, brought home their money. Jacob is here much out of temper. (1.) He has very melancholy apprehensions concerning the present state of his family: *Joseph is not, and Simeon is not;* whereas Joseph was in honour and Simeon in the way to it. Note, We often perplex ourselves with our own mistakes, even in matters of fact. True griefs may arise from false intelligence and suppositions, 2Sa 13:31. Jacob gives up Joseph for gone, and Simeon and Benjamin as being in danger; and he concludes, *All these things are against me.* It proved otherwise, that all these were for him, were working together for his good and the good of his family: yet here he thinks them all against him. Note, Through our ignorance and mistake, and the weakness of our faith, we often apprehend that to be against us which is really for us. We are afflicted in body, estate, name, and relations; and we think all these things are against us, whereas these are really working for us the weight of glory. (2.) He is at present resolved that Benjamin shall not go down. Reuben will undertake to bring him back in safety (Ge 42:37), not so much as putting in, *If the Lord will,* nor expecting the common disasters of travellers; but he foolishly bids Jacob slay his two sons (which, it is likely, he was very proud of) if he brought him not back; as if the death of two grandsons could satisfy Jacob for the death of a son. No, Jacob's present thoughts are, *My son shall not go down with you.* He plainly intimates a distrust of them, remembering that he never saw Joseph since he had been with them; therefore, "Benjamin shall not go with you, by the way in which you go, for *you will bring down my gray hairs with sorrow to the grave.*" Note, It is bad with a family when children conduct themselves so ill that their parents know not how to trust them.
 

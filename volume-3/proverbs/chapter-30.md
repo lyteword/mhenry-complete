@@ -8,12 +8,12 @@ This and the following chapter are an appendix to Solomon's proverbs; but they a
 
 ## The Words of Agur.
 
-> <sup>1</sup> The words of Agur the son of Jakeh, *even* the prophecy: the man spake unto Ithiel, even unto Ithiel and Ucal,  
-> <sup>2</sup> Surely I *am* more brutish than *any* man, and have not the understanding of a man.  
-> <sup>3</sup> I neither learned wisdom, nor have the knowledge of the holy.  
-> <sup>4</sup> Who hath ascended up into heaven, or descended? who hath gathered the wind in his fists? who hath bound the waters in a garment? who hath established all the ends of the earth? what *is* his name, and what *is* his son's name, if thou canst tell?  
-> <sup>5</sup> Every word of God *is* pure: he *is* a shield unto them that put their trust in him.  
-> <sup>6</sup> Add thou not unto his words, lest he reprove thee, and thou be found a liar.  
+> **¹** The words of Agur the son of Jakeh, *even* the prophecy: the man spake unto Ithiel, even unto Ithiel and Ucal,  
+> **²** Surely I *am* more brutish than *any* man, and have not the understanding of a man.  
+> **³** I neither learned wisdom, nor have the knowledge of the holy.  
+> **⁴** Who hath ascended up into heaven, or descended? who hath gathered the wind in his fists? who hath bound the waters in a garment? who hath established all the ends of the earth? what *is* his name, and what *is* his son's name, if thou canst tell?  
+> **⁵** Every word of God *is* pure: he *is* a shield unto them that put their trust in him.  
+> **⁶** Add thou not unto his words, lest he reprove thee, and thou be found a liar.  
 
 Some make *Agur* to be not the name of this author, but his character; he was a *collector* (so it signifies), a gatherer, one that did not compose things himself, but collected the wise sayings and observations of others, made abstracts of the writings of others, which some think is the reason why he says (Pr 30:3), "*I* have not *learned wisdom* myself, but have been a scribe, or amanuensis, to other wise and learned men." Note, We must not bury our talent, though it be but one, but, as we have received the gift, so minister the same, if it be but to collect what others have written. But we rather suppose it to be his name, which, no doubt, was well known then, though not mentioned elsewhere in scripture. *Ithiel and Ucal* are mentioned, either, 1. As the names of his pupils, whom he instructed, or who consulted him as an oracle, having a great opinion of his wisdom and goodness. Probably they wrote from him what he dictated, as Baruch wrote from the mouth of Jeremiah, and by their means it was preserved, as they were ready to attest it to be his, for it was spoken to them; they were two witnesses of it. Or, 2. As the subject of his discourse. *Ithiel* signifies *God with me,* the application of *Immanuel, God with us.* The word calls him *God with us;* faith appropriates this, and calls him "*God with me,* who loved me, and gave himself for me, and into union and communion with whom I am admitted." *Ucal* signifies *the Mighty One,* for it is upon one that is mighty that help is laid for us. Many good interpreters therefore apply this to the Messiah, for to him all the prophecies bear witness, and why not this then? It is what Agur spoke concerning *Ithiel, even* concerning *Ithiel* (that is the name on which the stress is laid) *with us,* Isa 7:14.
 
@@ -27,9 +27,9 @@ III\. To assure us of the truth of the word of God, and to recommend it to us, P
 
 ## The Prayer of Agur.
 
-> <sup>7</sup> Two *things* have I required of thee; deny me *them* not before I die:  
-> <sup>8</sup> Remove far from me vanity and lies: give me neither poverty nor riches; feed me with food convenient for me:  
-> <sup>9</sup> Lest I be full, and deny *thee,* and say, Who *is* the LORD? or lest I be poor, and steal, and take the name of my God *in vain.*  
+> **⁷** Two *things* have I required of thee; deny me *them* not before I die:  
+> **⁸** Remove far from me vanity and lies: give me neither poverty nor riches; feed me with food convenient for me:  
+> **⁹** Lest I be full, and deny *thee,* and say, Who *is* the LORD? or lest I be poor, and steal, and take the name of my God *in vain.*  
 
 After Agur's confession and creed, here follows his litany, where we may observe,
 
@@ -39,11 +39,11 @@ II\. The prayer itself. The *two things* he requires are grace sufficient and fo
 
 ## Four Wicked Generations.
 
-> <sup>10</sup> Accuse not a servant unto his master, lest he curse thee, and thou be found guilty.  
-> <sup>11</sup> *There is* a generation *that* curseth their father, and doth not bless their mother.  
-> <sup>12</sup> *There is* a generation *that are* pure in their own eyes, and *yet* is not washed from their filthiness.  
-> <sup>13</sup> *There is* a generation, O how lofty are their eyes! and their eyelids are lifted up.  
-> <sup>14</sup> *There is* a generation, whose teeth *are as* swords, and their jaw teeth *as* knives, to devour the poor from off the earth, and the needy from *among* men.  
+> **¹⁰** Accuse not a servant unto his master, lest he curse thee, and thou be found guilty.  
+> **¹¹** *There is* a generation *that* curseth their father, and doth not bless their mother.  
+> **¹²** *There is* a generation *that are* pure in their own eyes, and *yet* is not washed from their filthiness.  
+> **¹³** *There is* a generation, O how lofty are their eyes! and their eyelids are lifted up.  
+> **¹⁴** *There is* a generation, whose teeth *are as* swords, and their jaw teeth *as* knives, to devour the poor from off the earth, and the needy from *among* men.  
 
 Here is, I. A caution not to abuse other people's servants any more than our own, nor to make mischief between them and their masters, for it is an ill office, invidious, and what will make a man odious, Pr 30:10. Consider, 1. It is an injury to the servant, whose poor condition makes him an object of pity, and therefore it is barbarous to add affliction to him that is afflicted: *Hurt not a servant with thy tongue* (so the margin reads it); for it argues a sordid disposition to smite any body secretly with the scourge of the tongue, especially a servant, who is not a match for us, and whom we should rather protect, if his master be severe with him, than exasperate him more. 2. "It will perhaps be an injury to thyself. If a servant be thus provoked, perhaps he will curse thee, will accuse thee and bring thee into trouble, or give thee an ill word and blemish thy reputation, or appeal to God against thee, and imprecate *his* wrath upon thee, who is the patron and protector of oppressed innocency."
 
@@ -51,9 +51,9 @@ II\. An account, upon occasion of this caution, of some wicked generations of me
 
 ## Four Things Unsearchable.
 
-> <sup>15</sup> The horseleach hath two daughters, *crying,* Give, give. There are three *things that* are never satisfied, *yea,* four *things* say not, *It is* enough:  
-> <sup>16</sup> The grave; and the barren womb; the earth *that* is not filled with water; and the fire *that* saith not, *It is* enough.  
-> <sup>17</sup> The eye *that* mocketh at *his* father, and despiseth to obey *his* mother, the ravens of the valley shall pick it out, and the young eagles shall eat it.  
+> **¹⁵** The horseleach hath two daughters, *crying,* Give, give. There are three *things that* are never satisfied, *yea,* four *things* say not, *It is* enough:  
+> **¹⁶** The grave; and the barren womb; the earth *that* is not filled with water; and the fire *that* saith not, *It is* enough.  
+> **¹⁷** The eye *that* mocketh at *his* father, and despiseth to obey *his* mother, the ravens of the valley shall pick it out, and the young eagles shall eat it.  
 
 He had spoken before of those that devoured the poor (Pr 30:14), and had spoken of them last, as the worst of all the four generations there mentioned; now here he speaks of their insatiableness in doing this. The temper that puts them upon it is made up of cruelty and covetousness. Now those are *two daughters* of the *horse-leech,* its genuine offspring, that still cry, "*Give, give,* give more blood, give more money;" for the bloody are still blood-thirsty; being drunk with blood, they add thirst to their drunkenness, and will seek it yet again. Those also that *love silver* shall never *be satisfied with silver.* Thus, while from these two principles they are devouring the poor, they are continually uneasy to themselves, as David's enemies, Ps 59:14,15. Now, for the further illustration of this,
 
@@ -67,12 +67,12 @@ II\. He adds a terrible threatening to disobedient children (Pr 30:17), for warn
 
 ## Four Things Little and Wise.
 
-> <sup>18</sup> There be three *things which* are too wonderful for me, yea, four which I know not:  
-> <sup>19</sup> The way of an eagle in the air; the way of a serpent upon a rock; the way of a ship in the midst of the sea; and the way of a man with a maid.  
-> <sup>20</sup> Such *is* the way of an adulterous woman; she eateth, and wipeth her mouth, and saith, I have done no wickedness.  
-> <sup>21</sup> For three *things* the earth is disquieted, and for four *which* it cannot bear:  
-> <sup>22</sup> For a servant when he reigneth; and a fool when he is filled with meat;  
-> <sup>23</sup> For an odious *woman* when she is married; and an handmaid that is heir to her mistress.  
+> **¹⁸** There be three *things which* are too wonderful for me, yea, four which I know not:  
+> **¹⁹** The way of an eagle in the air; the way of a serpent upon a rock; the way of a ship in the midst of the sea; and the way of a man with a maid.  
+> **²⁰** Such *is* the way of an adulterous woman; she eateth, and wipeth her mouth, and saith, I have done no wickedness.  
+> **²¹** For three *things* the earth is disquieted, and for four *which* it cannot bear:  
+> **²²** For a servant when he reigneth; and a fool when he is filled with meat;  
+> **²³** For an odious *woman* when she is married; and an handmaid that is heir to her mistress.  
 
 Here is, I. An account of four things that are unsearchable, *too wonderful* to be fully known. And here,
 
@@ -84,11 +84,11 @@ II\. An account of four things that are intolerable, that is, four sorts of pers
 
 ## Four Things Little and Wise.
 
-> <sup>24</sup> There be four *things which are* little upon the earth, but they *are* exceeding wise:  
-> <sup>25</sup> The ants *are* a people not strong, yet they prepare their meat in the summer;  
-> <sup>26</sup> The conies *are but* a feeble folk, yet make they their houses in the rocks;  
-> <sup>27</sup> The locusts have no king, yet go they forth all of them by bands;  
-> <sup>28</sup> The spider taketh hold with her hands, and is in kings' palaces.  
+> **²⁴** There be four *things which are* little upon the earth, but they *are* exceeding wise:  
+> **²⁵** The ants *are* a people not strong, yet they prepare their meat in the summer;  
+> **²⁶** The conies *are but* a feeble folk, yet make they their houses in the rocks;  
+> **²⁷** The locusts have no king, yet go they forth all of them by bands;  
+> **²⁸** The spider taketh hold with her hands, and is in kings' palaces.  
 
 I\. Agur, having specified four things that seem great and yet are really contemptible, here specifies four things that are little and yet are very admirable, great in miniature, in which, as bishop Patrick observes, he teaches us several good lessons; as, 1. Not to admire bodily bulk, or beauty, or strength, nor to value persons or think the better of them for such advantages, but to judge of men by their wisdom and conduct, their industry and application to business, which are characters that deserve respect. 2. To admire the wisdom and power of the Creator in the smallest and most despicable animals, in an ant as much as in an elephant. 3. To blame ourselves who do not act so much for our own true interest as the meanest creatures do for theirs. 4. Not to despise the weak things of the world; there are those that are *little upon the earth,* poor in the world and of small account, and yet *are exceedingly wise,* wise for their souls and another world, and those *are exceedingly wise, wiser than their neighbours.* Margin, *They are wise, made wise* by the special instinct of nature. All that are wise to salvation are made wise by the grace of God.
 
@@ -96,11 +96,11 @@ II\. Those he specifies are, 1. The *ants,* minute animals and very weak, and ye
 
 ## Four Things Majestic and Stately.
 
-> <sup>29</sup> There be three *things* which go well, yea, four are comely in going:  
-> <sup>30</sup> A lion *which is* strongest among beasts, and turneth not away for any;  
-> <sup>31</sup> A greyhound; an he goat also; and a king, against whom *there is* no rising up.  
-> <sup>32</sup> If thou hast done foolishly in lifting up thyself, or if thou hast thought evil, *lay* thine hand upon thy mouth.  
-> <sup>33</sup> Surely the churning of milk bringeth forth butter, and the wringing of the nose bringeth forth blood: so the forcing of wrath bringeth forth strife.  
+> **²⁹** There be three *things* which go well, yea, four are comely in going:  
+> **³⁰** A lion *which is* strongest among beasts, and turneth not away for any;  
+> **³¹** A greyhound; an he goat also; and a king, against whom *there is* no rising up.  
+> **³²** If thou hast done foolishly in lifting up thyself, or if thou hast thought evil, *lay* thine hand upon thy mouth.  
+> **³³** Surely the churning of milk bringeth forth butter, and the wringing of the nose bringeth forth blood: so the forcing of wrath bringeth forth strife.  
 
 Here is, I. An enumeration of four things which are majestic and stately in their going, which look great:— 1. *A lion,* the king of beasts, because *strongest among beasts.* Among beasts it is strength that gives the pre-eminence, but it is a pity that it should do so among men, whose *wisdom* is their honour, not their *strength* and *force.* The lion *turns not away,* nor alters his pace, for fear of any pursuers, since he knows he is too hard for them. Herein *the righteous are bold as a lion,* that they *turn not away* from their duty for fear of any difficulty they meet with in it. 2. *A greyhound* that is girt in the loins and fit for running; or (as the margin reads it) *a horse,* which ought not to be omitted among the creatures that *are comely in going,* for so he is, especially when he is dressed up in his harness or trappings. 3. *A he-goat,* the comeliness of whose going is when he goes first and leads the flock. It is the comeliness of a Christian's going to go first in a good work and to lead others in the right way. 4. *A king,* who, when he appears in his majesty, is looked upon with reverence and awe, and all agree that *there is no rising up against* him; none can vie with him, none can contend with him, whoever does it, it is at his peril. And, if *there is no rising up* against an earthly prince, *woe to him* then *that strives with his Maker.* It is intended that we should learn courage and fortitude in all virtuous actions from the *lion* and *not to turn away for any* difficulty we meet with; from the *greyhound* we may learn quickness and despatch, from the *he-goat* the care of our family and those under our charge, and from *a king* to have our children in subjection with all gravity, and from them all to *go well,* and to order the steps of our conversation so as that we may not only be safe, but *comely, in going.*
 

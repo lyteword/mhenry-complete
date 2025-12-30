@@ -8,15 +8,15 @@ In this chapter we have, I. God contending with Israel, by the judgments, but ar
 
 ## Intercession for Israel; Ruin of Israel Foretold. (b. c. 785.)
 
-> <sup>1</sup> Thus hath the Lord GOD shewed unto me; and, behold, he formed grasshoppers in the beginning of the shooting up of the latter growth; and, lo, *it was* the latter growth after the king's mowings.  
-> <sup>2</sup> And it came to pass, *that* when they had made an end of eating the grass of the land, then I said, O Lord GOD, forgive, I beseech thee: by whom shall Jacob arise? for he *is* small.  
-> <sup>3</sup> The LORD repented for this: It shall not be, saith the LORD.  
-> <sup>4</sup> Thus hath the Lord GOD shewed unto me: and, behold, the Lord GOD called to contend by fire, and it devoured the great deep, and did eat up a part.  
-> <sup>5</sup> Then said I, O Lord GOD, cease, I beseech thee: by whom shall Jacob arise? for he *is* small.  
-> <sup>6</sup> The LORD repented for this: This also shall not be, saith the Lord GOD.  
-> <sup>7</sup> Thus he shewed me: and, behold, the Lord stood upon a wall *made* by a plumb-line, with a plumb-line in his hand.  
-> <sup>8</sup> And the LORD said unto me, Amos, what seest thou? And I said, A plumb-line. Then said the Lord, Behold, I will set a plumb-line in the midst of my people Israel: I will not again pass by them any more:  
-> <sup>9</sup> And the high places of Isaac shall be desolate, and the sanctuaries of Israel shall be laid waste; and I will rise against the house of Jeroboam with the sword.  
+> **¹** Thus hath the Lord GOD shewed unto me; and, behold, he formed grasshoppers in the beginning of the shooting up of the latter growth; and, lo, *it was* the latter growth after the king's mowings.  
+> **²** And it came to pass, *that* when they had made an end of eating the grass of the land, then I said, O Lord GOD, forgive, I beseech thee: by whom shall Jacob arise? for he *is* small.  
+> **³** The LORD repented for this: It shall not be, saith the LORD.  
+> **⁴** Thus hath the Lord GOD shewed unto me: and, behold, the Lord GOD called to contend by fire, and it devoured the great deep, and did eat up a part.  
+> **⁵** Then said I, O Lord GOD, cease, I beseech thee: by whom shall Jacob arise? for he *is* small.  
+> **⁶** The LORD repented for this: This also shall not be, saith the Lord GOD.  
+> **⁷** Thus he shewed me: and, behold, the Lord stood upon a wall *made* by a plumb-line, with a plumb-line in his hand.  
+> **⁸** And the LORD said unto me, Amos, what seest thou? And I said, A plumb-line. Then said the Lord, Behold, I will set a plumb-line in the midst of my people Israel: I will not again pass by them any more:  
+> **⁹** And the high places of Isaac shall be desolate, and the sanctuaries of Israel shall be laid waste; and I will rise against the house of Jeroboam with the sword.  
 
 We here see that God bears long, but that he will not bear always, with a provoking people, both these God here showed the prophet: *Thus hath the Lord God showed me,* Am 7:1,4,7. He showed him what was present, foreshowed him what was to come, gave him the knowledge both of what he did and of what he designed; for the *Lord God reveals his secret unto his servants the prophets,* Am 3:7.
 
@@ -40,14 +40,14 @@ II\. We have here the rejection of those at last who had been often reprieved an
 
 ## Amaziah's Charge against Amos; Amaziah's Doom. (b. c. 785.)
 
-> <sup>10</sup> Then Amaziah the priest of Bethel sent to Jeroboam king of Israel, saying, Amos hath conspired against thee in the midst of the house of Israel: the land is not able to bear all his words.  
-> <sup>11</sup> For thus Amos saith, Jeroboam shall die by the sword, and Israel shall surely be led away captive out of their own land.  
-> <sup>12</sup> Also Amaziah said unto Amos, O thou seer, go, flee thee away into the land of Judah, and there eat bread, and prophesy there:  
-> <sup>13</sup> But prophesy not again any more at Bethel: for it *is* the king's chapel, and it *is* the king's court.  
-> <sup>14</sup> Then answered Amos, and said to Amaziah, I *was* no prophet, neither *was* I a prophet's son; but I *was* a herdman, and a gatherer of sycamore fruit:  
-> <sup>15</sup> And the LORD took me as I followed the flock, and the LORD said unto me, Go, prophesy unto my people Israel.  
-> <sup>16</sup> Now therefore hear thou the word of the LORD: Thou sayest, Prophesy not against Israel, and drop not *thy word* against the house of Isaac.  
-> <sup>17</sup> Therefore thus saith the LORD; Thy wife shall be a harlot in the city, and thy sons and thy daughters shall fall by the sword, and thy land shall be divided by line; and thou shalt die in a polluted land: and Israel shall surely go into captivity forth of his land.  
+> **¹⁰** Then Amaziah the priest of Bethel sent to Jeroboam king of Israel, saying, Amos hath conspired against thee in the midst of the house of Israel: the land is not able to bear all his words.  
+> **¹¹** For thus Amos saith, Jeroboam shall die by the sword, and Israel shall surely be led away captive out of their own land.  
+> **¹²** Also Amaziah said unto Amos, O thou seer, go, flee thee away into the land of Judah, and there eat bread, and prophesy there:  
+> **¹³** But prophesy not again any more at Bethel: for it *is* the king's chapel, and it *is* the king's court.  
+> **¹⁴** Then answered Amos, and said to Amaziah, I *was* no prophet, neither *was* I a prophet's son; but I *was* a herdman, and a gatherer of sycamore fruit:  
+> **¹⁵** And the LORD took me as I followed the flock, and the LORD said unto me, Go, prophesy unto my people Israel.  
+> **¹⁶** Now therefore hear thou the word of the LORD: Thou sayest, Prophesy not against Israel, and drop not *thy word* against the house of Isaac.  
+> **¹⁷** Therefore thus saith the LORD; Thy wife shall be a harlot in the city, and thy sons and thy daughters shall fall by the sword, and thy land shall be divided by line; and thou shalt die in a polluted land: and Israel shall surely go into captivity forth of his land.  
 
 One would have expected, 1. That what we met with in the former part of the chapter would awaken the people to repentance, when they saw that they were reprieved in order that they might have *space to repent* and that they could not obtain a pardon unless they did repent. 2. That it would endear the prophet Amos to them, who had not only shown his good-will to them in praying against the judgments that invaded them, but had prevailed to turn away those judgments, which, if they had had any sense of gratitude, would have gained him an interest in their affections. But it fell out quite contrary; they continue impenitent, and the next news we hear of Amos is that he is persecuted. Note, As it is the praise of great saints that they pray for those that are enemies to them, so it is the shame of many great sinners that they are enemies to those who pray for them, Ps 35:13,109:4. We have here,
 

@@ -8,12 +8,12 @@ God, having given the prophet a clear foresight of the people's miseries that we
 
 ## The Vision of the Divine Glory. (b. c. 593.)
 
-> <sup>1</sup> And it came to pass in the sixth year, in the sixth *month,* in the fifth *day* of the month, *as* I sat in mine house, and the elders of Judah sat before me, that the hand of the Lord GOD fell there upon me.  
-> <sup>2</sup> Then I beheld, and lo a likeness as the appearance of fire: from the appearance of his loins even downward, fire; and from his loins even upward, as the appearance of brightness, as the colour of amber.  
-> <sup>3</sup> And he put forth the form of a hand, and took me by a lock of mine head; and the spirit lifted me up between the earth and the heaven, and brought me in the visions of God to Jerusalem, to the door of the inner gate that looketh toward the north; where *was* the seat of the image of jealousy, which provoketh to jealousy.  
-> <sup>4</sup> And, behold, the glory of the God of Israel *was* there, according to the vision that I saw in the plain.  
-> <sup>5</sup> Then said he unto me, Son of man, lift up thine eyes now the way toward the north. So I lifted up mine eyes the way toward the north, and behold northward at the gate of the altar this image of jealousy in the entry.  
-> <sup>6</sup> He said furthermore unto me, Son of man, seest thou what they do? *even* the great abominations that the house of Israel committeth here, that I should go far off from my sanctuary? but turn thee yet again, *and* thou shalt see greater abominations.  
+> **¹** And it came to pass in the sixth year, in the sixth *month,* in the fifth *day* of the month, *as* I sat in mine house, and the elders of Judah sat before me, that the hand of the Lord GOD fell there upon me.  
+> **²** Then I beheld, and lo a likeness as the appearance of fire: from the appearance of his loins even downward, fire; and from his loins even upward, as the appearance of brightness, as the colour of amber.  
+> **³** And he put forth the form of a hand, and took me by a lock of mine head; and the spirit lifted me up between the earth and the heaven, and brought me in the visions of God to Jerusalem, to the door of the inner gate that looketh toward the north; where *was* the seat of the image of jealousy, which provoketh to jealousy.  
+> **⁴** And, behold, the glory of the God of Israel *was* there, according to the vision that I saw in the plain.  
+> **⁵** Then said he unto me, Son of man, lift up thine eyes now the way toward the north. So I lifted up mine eyes the way toward the north, and behold northward at the gate of the altar this image of jealousy in the entry.  
+> **⁶** He said furthermore unto me, Son of man, seest thou what they do? *even* the great abominations that the house of Israel committeth here, that I should go far off from my sanctuary? but turn thee yet again, *and* thou shalt see greater abominations.  
 
 Ezekiel was now in Babylon; but the messages of wrath he had delivered in the foregoing chapters related to Jerusalem, for in the peace or trouble thereof the captives looked upon themselves to have peace or trouble, and therefore here he has a vision of what was done at Jerusalem, and this vision is continued to the close of the 11th chapter.
 
@@ -39,12 +39,12 @@ VI\. The discoveries that were made to him there.
 
 ## Secret Abominations Discovered; The Chambers of Imagery. (b. c. 593.)
 
-> <sup>7</sup> And he brought me to the door of the court; and when I looked, behold a hole in the wall.  
-> <sup>8</sup> Then said he unto me, Son of man, dig now in the wall: and when I had digged in the wall, behold a door.  
-> <sup>9</sup> And he said unto me, Go in, and behold the wicked abominations that they do here.  
-> <sup>10</sup> So I went in and saw; and behold every form of creeping things, and abominable beasts, and all the idols of the house of Israel, portrayed upon the wall round about.  
-> <sup>11</sup> And there stood before them seventy men of the ancients of the house of Israel, and in the midst of them stood Jaazaniah the son of Shaphan, with every man his censer in his hand; and a thick cloud of incense went up.  
-> <sup>12</sup> Then said he unto me, Son of man, hast thou seen what the ancients of the house of Israel do in the dark, every man in the chambers of his imagery? for they say, The LORD seeth us not; the LORD hath forsaken the earth.  
+> **⁷** And he brought me to the door of the court; and when I looked, behold a hole in the wall.  
+> **⁸** Then said he unto me, Son of man, dig now in the wall: and when I had digged in the wall, behold a door.  
+> **⁹** And he said unto me, Go in, and behold the wicked abominations that they do here.  
+> **¹⁰** So I went in and saw; and behold every form of creeping things, and abominable beasts, and all the idols of the house of Israel, portrayed upon the wall round about.  
+> **¹¹** And there stood before them seventy men of the ancients of the house of Israel, and in the midst of them stood Jaazaniah the son of Shaphan, with every man his censer in his hand; and a thick cloud of incense went up.  
+> **¹²** Then said he unto me, Son of man, hast thou seen what the ancients of the house of Israel do in the dark, every man in the chambers of his imagery? for they say, The LORD seeth us not; the LORD hath forsaken the earth.  
 
 We have here a further discovery of the abominations that were committed at Jerusalem, and within the confines of the temple, too. Now observe,
 
@@ -56,12 +56,12 @@ III\. What the remark is that made upon it (Eze 8:12): "*Son of man, hast thou s
 
 ## The Chambers of Imagery. (b. c. 593.)
 
-> <sup>13</sup> He said also unto me, Turn thee yet again, *and* thou shalt see greater abominations that they do.  
-> <sup>14</sup> Then he brought me to the door of the gate of the LORD's house which *was* toward the north; and, behold, there sat women weeping for Tammuz.  
-> <sup>15</sup> Then said he unto me, Hast thou seen *this,* O son of man? turn thee yet again, *and* thou shalt see greater abominations than these.  
-> <sup>16</sup> And he brought me into the inner court of the LORD's house, and, behold, at the door of the temple of the LORD, between the porch and the altar, *were* about five and twenty men, with their backs toward the temple of the LORD, and their faces toward the east; and they worshipped the sun toward the east.  
-> <sup>17</sup> Then he said unto me, Hast thou seen *this,* O son of man? Is it a light thing to the house of Judah that they commit the abominations which they commit here? for they have filled the land with violence, and have returned to provoke me to anger: and, lo, they put the branch to their nose.  
-> <sup>18</sup> Therefore will I also deal in fury: mine eye shall not spare, neither will I have pity: and though they cry in mine ears with a loud voice, *yet* will I not hear them.  
+> **¹³** He said also unto me, Turn thee yet again, *and* thou shalt see greater abominations that they do.  
+> **¹⁴** Then he brought me to the door of the gate of the LORD's house which *was* toward the north; and, behold, there sat women weeping for Tammuz.  
+> **¹⁵** Then said he unto me, Hast thou seen *this,* O son of man? turn thee yet again, *and* thou shalt see greater abominations than these.  
+> **¹⁶** And he brought me into the inner court of the LORD's house, and, behold, at the door of the temple of the LORD, between the porch and the altar, *were* about five and twenty men, with their backs toward the temple of the LORD, and their faces toward the east; and they worshipped the sun toward the east.  
+> **¹⁷** Then he said unto me, Hast thou seen *this,* O son of man? Is it a light thing to the house of Judah that they commit the abominations which they commit here? for they have filled the land with violence, and have returned to provoke me to anger: and, lo, they put the branch to their nose.  
+> **¹⁸** Therefore will I also deal in fury: mine eye shall not spare, neither will I have pity: and though they cry in mine ears with a loud voice, *yet* will I not hear them.  
 
 Here we have,
 

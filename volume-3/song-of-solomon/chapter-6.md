@@ -8,9 +8,9 @@ In this chapter, I. The daughters of Jerusalem, moved with the description which
 
 ## Enquiring after Christ.
 
-> <sup>1</sup> Whither is thy beloved gone, O thou fairest among women? whither is thy beloved turned aside? that we may seek him with thee.  
-> <sup>2</sup> My beloved is gone down into his garden, to the beds of spices, to feed in the gardens, and to gather lilies.  
-> <sup>3</sup> I *am* my beloved's, and my beloved *is* mine: he feedeth among the lilies.  
+> **¹** Whither is thy beloved gone, O thou fairest among women? whither is thy beloved turned aside? that we may seek him with thee.  
+> **²** My beloved is gone down into his garden, to the beds of spices, to feed in the gardens, and to gather lilies.  
+> **³** I *am* my beloved's, and my beloved *is* mine: he feedeth among the lilies.  
 
 Here is, I. The enquiry which the daughters of Jerusalem made concerning Christ, So 6:1. They still continue their high thoughts of the church, and call her, as before, the *fairest among women;* for true sanctity is true beauty. And now they raise their thoughts higher concerning Christ: *Whither has thy beloved gone, that we may seek him with thee?* This would be but an indecent, unacceptable, compliment, if the song were not to be understood spiritually; for love is jealous of a rival, would monopolize the beloved, and cares not that others should join in seeking him; but those that truly love Christ are desirous that others should love him too, and be joined to him; nay, the greatest instance of duty and respect that the church's children can show to their mother is to join with her in seeking Christ. The *daughters of Jerusalem,* who had asked (So 5:9), *What is thy beloved more than another beloved?* wondering that the spouse should be so passionately in love with him, are now of another mind, and are themselves in love with him; for, 1. The spouse had described him, and shown them his excellencies and perfections; and therefore, though they have not seen him, yet, believing, they love him. Those that undervalue Christ do so because they do not know him; when God, by his word and Spirit, discovers him to the soul, with that ray of light the fire of love to him will be kindled. 2. The spouse had expressed her own love to him, her rest in that love, and triumphed in it: *This is my beloved;* and that flame in her breast scattered sparks into theirs. As sinful lusts, when they break out, defile many, so the pious zeal of some may *provoke many,* 2Co 9:2. 3. The spouse had bespoken their help in seeking her beloved (So 5:8); but now they beg hers, for they perceive that now the cloud she had been under began to scatter, and the sky to clear up, and, while she was describing her beloved to them, she herself retrieved her comfort in him. Drooping Christians would find benefit themselves by talking of Christ, as well as do good to others. Now here, (1.) They enquire concerning him, "*Wither has thy beloved gone?* which way must we steer our course in pursuit of him?" Note, Those that are made acquainted with the excellencies of Christ, and the comfort of an interest in him, cannot but be inquisitive after him and desirous to know where they may meet with him. (2.) They offer their service to the spouse to accompany her in quest of him: *We will seek him with thee.* Those that would find Christ must seek him, seek him early, seek him diligently; and it is best seeking Christ in concert, to join with those that are seeking him. We must seek for communion with Christ in communion with saints. We know *whither our beloved has gone;* he has gone to heaven, *to his Father, and our Father.* He took care to send us notice of it, that we might know how to direct to him, Joh 20:17. We must by faith see him there, and by prayer seek him there, with boldness *enter into the holiest,* and herein must join with *the generation of those that seek him* (Ps 24:6), even with *all that in every place call upon him,* 1Co 1:2. We must pray with and for others.
 
@@ -22,13 +22,13 @@ II\. The answer which the spouse gave to this enquiry, So 6:2,3. Now she complai
 
 ## The Church's Confidence in Christ; The Love of Christ to the Church.
 
-> <sup>4</sup> Thou *art* beautiful, O my love, as Tirzah, comely as Jerusalem, terrible as *an army* with banners.  
-> <sup>5</sup> Turn away thine eyes from me, for they have overcome me: thy hair *is* as a flock of goats that appear from Gilead.  
-> <sup>6</sup> Thy teeth *are* as a flock of sheep which go up from the washing, whereof every one beareth twins, and *there is* not one barren among them.  
-> <sup>7</sup> As a piece of a pomegranate *are* thy temples within thy locks.  
-> <sup>8</sup> There are threescore queens, and fourscore concubines, and virgins without number.  
-> <sup>9</sup> My dove, my undefiled is *but* one; she *is* the *only* one of her mother, she *is* the choice *one* of her that bare her. The daughters saw her, and blessed her; *yea,* the queens and the concubines, and they praised her.  
-> <sup>10</sup> Who *is* she *that* looketh forth as the morning, fair as the moon, clear as the sun, *and* terrible as *an army* with banners?  
+> **⁴** Thou *art* beautiful, O my love, as Tirzah, comely as Jerusalem, terrible as *an army* with banners.  
+> **⁵** Turn away thine eyes from me, for they have overcome me: thy hair *is* as a flock of goats that appear from Gilead.  
+> **⁶** Thy teeth *are* as a flock of sheep which go up from the washing, whereof every one beareth twins, and *there is* not one barren among them.  
+> **⁷** As a piece of a pomegranate *are* thy temples within thy locks.  
+> **⁸** There are threescore queens, and fourscore concubines, and virgins without number.  
+> **⁹** My dove, my undefiled is *but* one; she *is* the *only* one of her mother, she *is* the choice *one* of her that bare her. The daughters saw her, and blessed her; *yea,* the queens and the concubines, and they praised her.  
+> **¹⁰** Who *is* she *that* looketh forth as the morning, fair as the moon, clear as the sun, *and* terrible as *an army* with banners?  
 
 Now we must suppose Christ graciously returned to his spouse, from whom he had withdrawn himself, returned to converse with her (for he speaks to her and *makes her to hear joy and gladness*), returned to favour her, having forgiven and forgotten all her unkindness, for he speaks very tenderly and respectfully to her.
 
@@ -50,9 +50,9 @@ VI\. He produces the encomium that was given of her, and makes it his own (So 6:
 
 ## The Love of Christ to the Church.
 
-> <sup>11</sup> I went down into the garden of nuts to see the fruits of the valley, *and* to see whether the vine flourished, *and* the pomegranates budded.  
-> <sup>12</sup> Or ever I was aware, my soul made me *like* the chariots of Amminadib.  
-> <sup>13</sup> Return, return, O Shulamite; return, return, that we may look upon thee. What will ye see in the Shulamite? As it were the company of two armies.  
+> **¹¹** I went down into the garden of nuts to see the fruits of the valley, *and* to see whether the vine flourished, *and* the pomegranates budded.  
+> **¹²** Or ever I was aware, my soul made me *like* the chariots of Amminadib.  
+> **¹³** Return, return, O Shulamite; return, return, that we may look upon thee. What will ye see in the Shulamite? As it were the company of two armies.  
 
 Christ having now returned to his spouse, and the breach being entirely made up, and the falling out of these lovers being the renewing of love, Christ here gives an account both of the distance and of the reconciliation.
 

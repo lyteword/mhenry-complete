@@ -10,25 +10,25 @@ This psalm we met with before, in the history of David's life, 2Sa 22:1-51 That 
 
 To the chief musician, *A psalm* of David, the servant of the Lord, who spake unto the Lord the words of this song in the day *that* the Lord delivered him from the hand of all his enemies.
 
-> <sup>1</sup> I will love thee, O LORD, my strength.  
-> <sup>2</sup> The LORD *is* my rock, and my fortress, and my deliverer; my God, my strength, in whom I will trust; my buckler, and the horn of my salvation, *and* my high tower.  
-> <sup>3</sup> I will call upon the LORD, *who is worthy* to be praised: so shall I be saved from mine enemies.  
-> <sup>4</sup> The sorrows of death compassed me, and the floods of ungodly men made me afraid.  
-> <sup>5</sup> The sorrows of hell compassed me about: the snares of death prevented me.  
-> <sup>6</sup> In my distress I called upon the LORD, and cried unto my God: he heard my voice out of his temple, and my cry came before him, *even* into his ears.  
-> <sup>7</sup> Then the earth shook and trembled; the foundations also of the hills moved and were shaken, because he was wroth.  
-> <sup>8</sup> There went up a smoke out of his nostrils, and fire out of his mouth devoured: coals were kindled by it.  
-> <sup>9</sup> He bowed the heavens also, and came down: and darkness *was* under his feet.  
-> <sup>10</sup> And he rode upon a cherub, and did fly: yea, he did fly upon the wings of the wind.  
-> <sup>11</sup> He made darkness his secret place; his pavilion round about him *were* dark waters *and* thick clouds of the skies.  
-> <sup>12</sup> At the brightness *that was* before him his thick clouds passed, hail *stones* and coals of fire.  
-> <sup>13</sup> The LORD also thundered in the heavens, and the Highest gave his voice; hail *stones* and coals of fire.  
-> <sup>14</sup> Yea, he sent out his arrows, and scattered them; and he shot out lightnings, and discomfited them.  
-> <sup>15</sup> Then the channels of waters were seen, and the foundations of the world were discovered at thy rebuke, O LORD, at the blast of the breath of thy nostrils.  
-> <sup>16</sup> He sent from above, he took me, he drew me out of many waters.  
-> <sup>17</sup> He delivered me from my strong enemy, and from them which hated me: for they were too strong for me.  
-> <sup>18</sup> They prevented me in the day of my calamity: but the LORD was my stay.  
-> <sup>19</sup> He brought me forth also into a large place; he delivered me, because he delighted in me.  
+> **¹** I will love thee, O LORD, my strength.  
+> **²** The LORD *is* my rock, and my fortress, and my deliverer; my God, my strength, in whom I will trust; my buckler, and the horn of my salvation, *and* my high tower.  
+> **³** I will call upon the LORD, *who is worthy* to be praised: so shall I be saved from mine enemies.  
+> **⁴** The sorrows of death compassed me, and the floods of ungodly men made me afraid.  
+> **⁵** The sorrows of hell compassed me about: the snares of death prevented me.  
+> **⁶** In my distress I called upon the LORD, and cried unto my God: he heard my voice out of his temple, and my cry came before him, *even* into his ears.  
+> **⁷** Then the earth shook and trembled; the foundations also of the hills moved and were shaken, because he was wroth.  
+> **⁸** There went up a smoke out of his nostrils, and fire out of his mouth devoured: coals were kindled by it.  
+> **⁹** He bowed the heavens also, and came down: and darkness *was* under his feet.  
+> **¹⁰** And he rode upon a cherub, and did fly: yea, he did fly upon the wings of the wind.  
+> **¹¹** He made darkness his secret place; his pavilion round about him *were* dark waters *and* thick clouds of the skies.  
+> **¹²** At the brightness *that was* before him his thick clouds passed, hail *stones* and coals of fire.  
+> **¹³** The LORD also thundered in the heavens, and the Highest gave his voice; hail *stones* and coals of fire.  
+> **¹⁴** Yea, he sent out his arrows, and scattered them; and he shot out lightnings, and discomfited them.  
+> **¹⁵** Then the channels of waters were seen, and the foundations of the world were discovered at thy rebuke, O LORD, at the blast of the breath of thy nostrils.  
+> **¹⁶** He sent from above, he took me, he drew me out of many waters.  
+> **¹⁷** He delivered me from my strong enemy, and from them which hated me: for they were too strong for me.  
+> **¹⁸** They prevented me in the day of my calamity: but the LORD was my stay.  
+> **¹⁹** He brought me forth also into a large place; he delivered me, because he delighted in me.  
 
 The title gives us the occasion of penning this psalm; we had it before (2Sa 22:1), only here we are told that the psalm was delivered *to the chief musician,* or precentor, in the temple-songs. Note, The private compositions of good men, designed by them for their own use, may be serviceable to the public, that others may not only borrow light from their candle, but heat from their fire. Examples sometimes teach better than rules. And David is here called *the servant of the Lord,* as Moses was, not only as every good man is God's servant, but because, with his sceptre, with his sword, and with his pen, he greatly promoted the interests of God's kingdom in Israel. It was more his honour that he was a servant of the Lord than that he was king of a great kingdom; and so he himself accounted it (Ps 116:16): *O Lord! truly I am thy servant.* In these verses,
 
@@ -50,15 +50,15 @@ In singing this we must triumph in God, and trust in him: and we may apply it to
 
 ## Devout Thanksgivings; Devout Confidence
 
-> <sup>20</sup> The LORD rewarded me according to my righteousness; according to the cleanness of my hands hath he recompensed me.  
-> <sup>21</sup> For I have kept the ways of the LORD, and have not wickedly departed from my God.  
-> <sup>22</sup> For all his judgments *were* before me, and I did not put away his statutes from me.  
-> <sup>23</sup> I was also upright before him, and I kept myself from mine iniquity.  
-> <sup>24</sup> Therefore hath the LORD recompensed me according to my righteousness, according to the cleanness of my hands in his eyesight.  
-> <sup>25</sup> With the merciful thou wilt show thyself merciful; with an upright man thou wilt show thyself upright;  
-> <sup>26</sup> With the pure thou wilt show thyself pure; and with the froward thou wilt show thyself froward.  
-> <sup>27</sup> For thou wilt save the afflicted people; but wilt bring down high looks.  
-> <sup>28</sup> For thou wilt light my candle: the LORD my God will enlighten my darkness.  
+> **²⁰** The LORD rewarded me according to my righteousness; according to the cleanness of my hands hath he recompensed me.  
+> **²¹** For I have kept the ways of the LORD, and have not wickedly departed from my God.  
+> **²²** For all his judgments *were* before me, and I did not put away his statutes from me.  
+> **²³** I was also upright before him, and I kept myself from mine iniquity.  
+> **²⁴** Therefore hath the LORD recompensed me according to my righteousness, according to the cleanness of my hands in his eyesight.  
+> **²⁵** With the merciful thou wilt show thyself merciful; with an upright man thou wilt show thyself upright;  
+> **²⁶** With the pure thou wilt show thyself pure; and with the froward thou wilt show thyself froward.  
+> **²⁷** For thou wilt save the afflicted people; but wilt bring down high looks.  
+> **²⁸** For thou wilt light my candle: the LORD my God will enlighten my darkness.  
 
 Here, I. David reflects with comfort upon his own integrity, and rejoices in the testimony of his conscience that he had had his conversation in godly sincerity and not with fleshly wisdom, 2Co 1:12. His deliverances were an evidence of this, and this was the great comfort of his deliverances. His enemies had misrepresented him, and perhaps, when his troubles continued long, he began to suspect himself; but, when God visibly took his part, he had both the credit and the comfort of his righteousness. 1. His deliverances cleared his innocency before men, and acquitted him from those crimes which he was falsely accused of. This he calls *rewarding him according to his righteousness* (Ps 18:20,24), that is, determining the controversy between him and his enemies, according to the justice of his cause and the cleanness of his hands, from that sedition, treason, and rebellion, with which he was charged. He had often appealed to God concerning his innocency; and now God had given judgment upon the appeal (as he always will) according to equity. 2. They confirmed the testimony of his own conscience for him, which he here reviews with a great deal of pleasure, Ps 18:21-23. His own heart knows, and is ready to attest it, (1.) That he had kept firmly to his duty, and had not departed, not wickedly, not wilfully departed, from his God. Those that forsake the ways of the Lord do, in effect, depart from their God, and it is a wicked thing to do so. But though we are conscious to ourselves of many a stumble, and many a false step taken, yet if we recover ourselves by repentance, and go on in the way of our duty, it shall not be construed into a departure, for it is not a wicked departure, from our God. (2.) That he had kept his eye upon the rule of God's commands (Ps 18:22): "*All his judgments were before me;* and I had a respect to them all, despised none as little, disliked none as hard, but made it my care and business to conform to them all. His statutes I did not put away from me, out of my sight, out of my mind, but kept my eye always upon them, and did not as those who, because they would quit the ways of the Lord, desire not the knowledge of those ways." (3.) That he had kept himself from his iniquity, and thereby had approved himself upright before God. Constant care to abstain from that sin, whatever it be, which most easily besets us, and to mortify the habit of it, will be a good evidence for us that we are upright before God. As David's deliverances cleared his integrity, so did the exaltation of Christ clear his, and for ever roll away the reproach that was cast upon him; and therefore he is said to be *justified in the Spirit,* 1Ti 3:16.
 
@@ -70,28 +70,28 @@ Let those that walk in darkness, and labour under many discouragements in singin
 
 ## Grateful Remembrance of Past Deliverances; Confidence in the Divine Goodness.
 
-> <sup>29</sup> For by thee I have run through a troop; and by my God have I leaped over a wall.  
-> <sup>30</sup> *As for* God, his way *is* perfect: the word of the LORD is tried: he *is* a buckler to all those that trust in him.  
-> <sup>31</sup> For who *is* God save the LORD? or who *is* a rock save our God?  
-> <sup>32</sup> *It is* God that girdeth me with strength, and maketh my way perfect.  
-> <sup>33</sup> He maketh my feet like hinds' *feet,* and setteth me upon my high places.  
-> <sup>34</sup> He teacheth my hands to war, so that a bow of steel is broken by mine arms.  
-> <sup>35</sup> Thou hast also given me the shield of thy salvation: and thy right hand hath holden me up, and thy gentleness hath made me great.  
-> <sup>36</sup> Thou hast enlarged my steps under me, that my feet did not slip.  
-> <sup>37</sup> I have pursued mine enemies, and overtaken them: neither did I turn again till they were consumed.  
-> <sup>38</sup> I have wounded them that they were not able to rise: they are fallen under my feet.  
-> <sup>39</sup> For thou hast girded me with strength unto the battle: thou hast subdued under me those that rose up against me.  
-> <sup>40</sup> Thou hast also given me the necks of mine enemies; that I might destroy them that hate me.  
-> <sup>41</sup> They cried, but *there was* none to save *them: even* unto the LORD, but he answered them not.  
-> <sup>42</sup> Then did I beat them small as the dust before the wind: I did cast them out as the dirt in the streets.  
-> <sup>43</sup> Thou hast delivered me from the strivings of the people; *and* thou hast made me the head of the heathen: a people *whom* I have not known shall serve me.  
-> <sup>44</sup> As soon as they hear of me, they shall obey me: the strangers shall submit themselves unto me.  
-> <sup>45</sup> The strangers shall fade away, and be afraid out of their close places.  
-> <sup>46</sup> The LORD liveth; and blessed *be* my rock; and let the God of my salvation be exalted.  
-> <sup>47</sup> *It is* God that avengeth me, and subdueth the people under me.  
-> <sup>48</sup> He delivereth me from mine enemies: yea, thou liftest me up above those that rise up against me: thou hast delivered me from the violent man.  
-> <sup>49</sup> Therefore will I give thanks unto thee, O LORD, among the heathen, and sing praises unto thy name.  
-> <sup>50</sup> Great deliverance giveth he to his king; and showeth mercy to his anointed, to David, and to his seed for evermore.  
+> **²⁹** For by thee I have run through a troop; and by my God have I leaped over a wall.  
+> **³⁰** *As for* God, his way *is* perfect: the word of the LORD is tried: he *is* a buckler to all those that trust in him.  
+> **³¹** For who *is* God save the LORD? or who *is* a rock save our God?  
+> **³²** *It is* God that girdeth me with strength, and maketh my way perfect.  
+> **³³** He maketh my feet like hinds' *feet,* and setteth me upon my high places.  
+> **³⁴** He teacheth my hands to war, so that a bow of steel is broken by mine arms.  
+> **³⁵** Thou hast also given me the shield of thy salvation: and thy right hand hath holden me up, and thy gentleness hath made me great.  
+> **³⁶** Thou hast enlarged my steps under me, that my feet did not slip.  
+> **³⁷** I have pursued mine enemies, and overtaken them: neither did I turn again till they were consumed.  
+> **³⁸** I have wounded them that they were not able to rise: they are fallen under my feet.  
+> **³⁹** For thou hast girded me with strength unto the battle: thou hast subdued under me those that rose up against me.  
+> **⁴⁰** Thou hast also given me the necks of mine enemies; that I might destroy them that hate me.  
+> **⁴¹** They cried, but *there was* none to save *them: even* unto the LORD, but he answered them not.  
+> **⁴²** Then did I beat them small as the dust before the wind: I did cast them out as the dirt in the streets.  
+> **⁴³** Thou hast delivered me from the strivings of the people; *and* thou hast made me the head of the heathen: a people *whom* I have not known shall serve me.  
+> **⁴⁴** As soon as they hear of me, they shall obey me: the strangers shall submit themselves unto me.  
+> **⁴⁵** The strangers shall fade away, and be afraid out of their close places.  
+> **⁴⁶** The LORD liveth; and blessed *be* my rock; and let the God of my salvation be exalted.  
+> **⁴⁷** *It is* God that avengeth me, and subdueth the people under me.  
+> **⁴⁸** He delivereth me from mine enemies: yea, thou liftest me up above those that rise up against me: thou hast delivered me from the violent man.  
+> **⁴⁹** Therefore will I give thanks unto thee, O LORD, among the heathen, and sing praises unto thy name.  
+> **⁵⁰** Great deliverance giveth he to his king; and showeth mercy to his anointed, to David, and to his seed for evermore.  
 
 In these verses,
 

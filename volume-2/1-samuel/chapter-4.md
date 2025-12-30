@@ -8,15 +8,15 @@ The predictions in the foregoing chapters concerning the ruin of Eli's house her
 
 ## The War with the Philistines. (b. c. 1120.)
 
-> <sup>1</sup> And the word of Samuel came to all Israel. Now Israel went out against the Philistines to battle, and pitched beside Ebenezer: and the Philistines pitched in Aphek.  
-> <sup>2</sup> And the Philistines put themselves in array against Israel: and when they joined battle, Israel was smitten before the Philistines: and they slew of the army in the field about four thousand men.  
-> <sup>3</sup> And when the people were come into the camp, the elders of Israel said, Wherefore hath the LORD smitten us to day before the Philistines? Let us fetch the ark of the covenant of the LORD out of Shiloh unto us, that, when it cometh among us, it may save us out of the hand of our enemies.  
-> <sup>4</sup> So the people sent to Shiloh, that they might bring from thence the ark of the covenant of the LORD of hosts, which dwelleth *between* the cherubims: and the two sons of Eli, Hophni and Phinehas, *were* there with the ark of the covenant of God.  
-> <sup>5</sup> And when the ark of the covenant of the LORD came into the camp, all Israel shouted with a great shout, so that the earth rang again.  
-> <sup>6</sup> And when the Philistines heard the noise of the shout, they said, What *meaneth* the noise of this great shout in the camp of the Hebrews? And they understood that the ark of the LORD was come into the camp.  
-> <sup>7</sup> And the Philistines were afraid, for they said, God is come into the camp. And they said, Woe unto us! for there hath not been such a thing heretofore.  
-> <sup>8</sup> Woe unto us! who shall deliver us out of the hand of these mighty Gods? these *are* the Gods that smote the Egyptians with all the plagues in the wilderness.  
-> <sup>9</sup> Be strong, and quit yourselves like men, O ye Philistines, that ye be not servants unto the Hebrews, as they have been to you: quit yourselves like men, and fight.  
+> **¹** And the word of Samuel came to all Israel. Now Israel went out against the Philistines to battle, and pitched beside Ebenezer: and the Philistines pitched in Aphek.  
+> **²** And the Philistines put themselves in array against Israel: and when they joined battle, Israel was smitten before the Philistines: and they slew of the army in the field about four thousand men.  
+> **³** And when the people were come into the camp, the elders of Israel said, Wherefore hath the LORD smitten us to day before the Philistines? Let us fetch the ark of the covenant of the LORD out of Shiloh unto us, that, when it cometh among us, it may save us out of the hand of our enemies.  
+> **⁴** So the people sent to Shiloh, that they might bring from thence the ark of the covenant of the LORD of hosts, which dwelleth *between* the cherubims: and the two sons of Eli, Hophni and Phinehas, *were* there with the ark of the covenant of God.  
+> **⁵** And when the ark of the covenant of the LORD came into the camp, all Israel shouted with a great shout, so that the earth rang again.  
+> **⁶** And when the Philistines heard the noise of the shout, they said, What *meaneth* the noise of this great shout in the camp of the Hebrews? And they understood that the ark of the LORD was come into the camp.  
+> **⁷** And the Philistines were afraid, for they said, God is come into the camp. And they said, Woe unto us! for there hath not been such a thing heretofore.  
+> **⁸** Woe unto us! who shall deliver us out of the hand of these mighty Gods? these *are* the Gods that smote the Egyptians with all the plagues in the wilderness.  
+> **⁹** Be strong, and quit yourselves like men, O ye Philistines, that ye be not servants unto the Hebrews, as they have been to you: quit yourselves like men, and fight.  
 
 The first words of this paragraph, which relate to Samuel, that *his word came to all Israel,* seem not to have any reference to the following story, as if it was by any direction of his that the Israelites went out against the Philistines. Had they consulted him, though but newly initiated as a prophet, his counsel might have stood them in more stead than the presence of the ark did; but perhaps the princes of Israel despised his youth, and would not have recourse to him as an oracle, and he did not as yet interpose in public affairs; nor do we find any mention of his name henceforward till some years after (1Sa 7:3), only *his word came to all Israel,* that is, people from all parts that were piously disposed had recourse to him as a prophet and consulted him. Perhaps it is meant of his prophecy against the house of Eli. This was generally known and talked of, and all that were serious and observing compared the events here related, when they came to pass, with the prophecy, and saw it accomplished in them. Here is,
 
@@ -32,8 +32,8 @@ V\. The consternation into which the bringing of the ark into the camp of Israel
 
 ## The Defeat of the Israelites. (b. c. 1120.)
 
-> <sup>10</sup> And the Philistines fought, and Israel was smitten, and they fled every man into his tent: and there was a very great slaughter; for there fell of Israel thirty thousand footmen.  
-> <sup>11</sup> And the ark of God was taken; and the two sons of Eli, Hophni and Phinehas, were slain.  
+> **¹⁰** And the Philistines fought, and Israel was smitten, and they fled every man into his tent: and there was a very great slaughter; for there fell of Israel thirty thousand footmen.  
+> **¹¹** And the ark of God was taken; and the two sons of Eli, Hophni and Phinehas, were slain.  
 
 Here is a short account of the issue of this battle.
 
@@ -43,13 +43,13 @@ II\. The ark itself was taken by the Philistines; and Hophni and Phinehas, who i
 
 ## The Death of Eli. (b. c. 1120.)
 
-> <sup>12</sup> And there ran a man of Benjamin out of the army, and came to Shiloh the same day with his clothes rent, and with earth upon his head.  
-> <sup>13</sup> And when he came, lo, Eli sat upon a seat by the wayside watching: for his heart trembled for the ark of God. And when the man came into the city, and told *it,* all the city cried out.  
-> <sup>14</sup> And when Eli heard the noise of the crying, he said, What *meaneth* the noise of this tumult? And the man came in hastily, and told Eli.  
-> <sup>15</sup> Now Eli was ninety and eight years old; and his eyes were dim, that he could not see.  
-> <sup>16</sup> And the man said unto Eli, I *am* he that came out of the army, and I fled to day out of the army. And he said, What is there done, my son?  
-> <sup>17</sup> And the messenger answered and said, Israel is fled before the Philistines, and there hath been also a great slaughter among the people, and thy two sons also, Hophni and Phinehas, are dead, and the ark of God is taken.  
-> <sup>18</sup> And it came to pass, when he made mention of the ark of God, that he fell from off the seat backward by the side of the gate, and his neck brake, and he died: for he was an old man, and heavy. And he had judged Israel forty years.  
+> **¹²** And there ran a man of Benjamin out of the army, and came to Shiloh the same day with his clothes rent, and with earth upon his head.  
+> **¹³** And when he came, lo, Eli sat upon a seat by the wayside watching: for his heart trembled for the ark of God. And when the man came into the city, and told *it,* all the city cried out.  
+> **¹⁴** And when Eli heard the noise of the crying, he said, What *meaneth* the noise of this tumult? And the man came in hastily, and told Eli.  
+> **¹⁵** Now Eli was ninety and eight years old; and his eyes were dim, that he could not see.  
+> **¹⁶** And the man said unto Eli, I *am* he that came out of the army, and I fled to day out of the army. And he said, What is there done, my son?  
+> **¹⁷** And the messenger answered and said, Israel is fled before the Philistines, and there hath been also a great slaughter among the people, and thy two sons also, Hophni and Phinehas, are dead, and the ark of God is taken.  
+> **¹⁸** And it came to pass, when he made mention of the ark of God, that he fell from off the seat backward by the side of the gate, and his neck brake, and he died: for he was an old man, and heavy. And he had judged Israel forty years.  
 
 Tidings are here brought to Shiloh of the fatal issue of their battle with the Philistines. Bad news flies fast. This soon spread through all Israel; every man that fled to his tent brought it, with too plain a proof of it, to his neighbours. But no place was so nearly concerned as Shiloh. Thither therefore an express posted away immediately; it was a man of Benjamin; the Jews fancy it was Saul. *He rent his clothes, and put earth upon his head,* by these signs to proclaim the sorrowful news to all that saw him as he ran, and to show how much he himself was affected with it, 1Sa 4:12. He went straight to Shiloh with it; and here we are told,
 
@@ -59,10 +59,10 @@ II\. What a fatal blow it was to old Eli. Let us see, 1. With what fear he expec
 
 ## The Death of Phinehas' Wife. (b. c. 1120.)
 
-> <sup>19</sup> And his daughter in law, Phinehas' wife, was with child, *near* to be delivered: and when she heard the tidings that the ark of God was taken, and that her father in law and her husband were dead, she bowed herself and travailed; for her pains came upon her.  
-> <sup>20</sup> And about the time of her death the women that stood by her said unto her, Fear not; for thou hast born a son. But she answered not, neither did she regard *it.*  
-> <sup>21</sup> And she named the child Ichabod, saying, The glory is departed from Israel: because the ark of God was taken, and because of her father in law and her husband.  
-> <sup>22</sup> And she said, The glory is departed from Israel: for the ark of God is taken.  
+> **¹⁹** And his daughter in law, Phinehas' wife, was with child, *near* to be delivered: and when she heard the tidings that the ark of God was taken, and that her father in law and her husband were dead, she bowed herself and travailed; for her pains came upon her.  
+> **²⁰** And about the time of her death the women that stood by her said unto her, Fear not; for thou hast born a son. But she answered not, neither did she regard *it.*  
+> **²¹** And she named the child Ichabod, saying, The glory is departed from Israel: because the ark of God was taken, and because of her father in law and her husband.  
+> **²²** And she said, The glory is departed from Israel: for the ark of God is taken.  
 
 We have here another melancholy story, that carries on the desolations of Eli's house, and the sorrowful feeling which the tidings of the ark's captivity excited. It is concerning the wife of Phinehas, one of those ungracious sons of Eli that had brought all this mischief on Israel. It cost her her life, though young, as well as that of her father-in-law, that was old; for many a green head, as well as many a hoary head, has been brought by sorrow to the grave: it worketh death. By what is here related of her it appears,
 

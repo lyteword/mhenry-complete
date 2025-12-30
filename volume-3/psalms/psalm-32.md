@@ -10,12 +10,12 @@ This psalm, though it speaks not of Christ, as many of the psalms we have hither
 
 A psalm of David, Maschil.
 
-> <sup>1</sup> Blessed *is he whose* transgression *is* forgiven, *whose* sin *is* covered.  
-> <sup>2</sup> Blessed *is* the man unto whom the LORD imputeth not iniquity, and in whose spirit *there is* no guile.  
-> <sup>3</sup> When I kept silence, my bones waxed old through my roaring all the day long.  
-> <sup>4</sup> For day and night thy hand was heavy upon me: my moisture is turned into the drought of summer. Selah.  
-> <sup>5</sup> I acknowledged my sin unto thee, and mine iniquity have I not hid. I said, I will confess my transgressions unto the LORD; and thou forgavest the iniquity of my sin. Selah.  
-> <sup>6</sup> For this shall every one that is godly pray unto thee in a time when thou mayest be found: surely in the floods of great waters they shall not come nigh unto him.  
+> **¹** Blessed *is he whose* transgression *is* forgiven, *whose* sin *is* covered.  
+> **²** Blessed *is* the man unto whom the LORD imputeth not iniquity, and in whose spirit *there is* no guile.  
+> **³** When I kept silence, my bones waxed old through my roaring all the day long.  
+> **⁴** For day and night thy hand was heavy upon me: my moisture is turned into the drought of summer. Selah.  
+> **⁵** I acknowledged my sin unto thee, and mine iniquity have I not hid. I said, I will confess my transgressions unto the LORD; and thou forgavest the iniquity of my sin. Selah.  
+> **⁶** For this shall every one that is godly pray unto thee in a time when thou mayest be found: surely in the floods of great waters they shall not come nigh unto him.  
 
 This psalm is entitled *Maschil,* which some take to be only the name of the tune to which it was set and was to be sung. But others think it is significant; our margin reads it, *A psalm of David giving instruction,* and there is nothing in which we have more need of instruction than in the nature of true blessedness, wherein it consists and the way that leads to it—what we must do that we may be happy. There are several things in which these verses instruct us. In general, we are here taught that our happiness consists in the favour of God, and not in the wealth of this world—in spiritual blessings, and not the good things of this world. When David says (Ps 1:1), *Blessed is the man that walks not in the counsel of the ungodly,* and (Ps 119:1), *Blessed are the undefiled in the way,* the meaning is, "This is the character of the blessed man; and he that has not this character cannot expect to be happy:" but when it is here said, *Blessed is the man whose iniquity is forgiven,* the meaning is, "This is the ground of his blessedness: this is that fundamental privilege from which all the other ingredients of his blessedness flow." In particular, we are here instructed,
 
@@ -35,11 +35,11 @@ VII\. Concerning the good use that we are to make of the experience David had ha
 
 ## Devout Confidence.
 
-> <sup>7</sup> Thou *art* my hiding place; thou shalt preserve me from trouble; thou shalt compass me about with songs of deliverance. Selah.  
-> <sup>8</sup> I will instruct thee and teach thee in the way which thou shalt go: I will guide thee with mine eye.  
-> <sup>9</sup> Be ye not as the horse, *or* as the mule, *which* have no understanding: whose mouth must be held in with bit and bridle, lest they come near unto thee.  
-> <sup>10</sup> Many sorrows *shall be* to the wicked: but he that trusteth in the LORD, mercy shall compass him about.  
-> <sup>11</sup> Be glad in the LORD, and rejoice, ye righteous: and shout for joy, all *ye that are* upright in heart.  
+> **⁷** Thou *art* my hiding place; thou shalt preserve me from trouble; thou shalt compass me about with songs of deliverance. Selah.  
+> **⁸** I will instruct thee and teach thee in the way which thou shalt go: I will guide thee with mine eye.  
+> **⁹** Be ye not as the horse, *or* as the mule, *which* have no understanding: whose mouth must be held in with bit and bridle, lest they come near unto thee.  
+> **¹⁰** Many sorrows *shall be* to the wicked: but he that trusteth in the LORD, mercy shall compass him about.  
+> **¹¹** Be glad in the LORD, and rejoice, ye righteous: and shout for joy, all *ye that are* upright in heart.  
 
 David is here improving the experience he had had of the comfort of pardoning mercy.
 

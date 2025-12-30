@@ -8,18 +8,18 @@ The apostle drawing towards the conclusion of his second epistle, begins this la
 
 ## Adhere to Words of the Prophets and Commandments of the Apostles. (a. d. 67.)
 
-> <sup>1</sup> This second epistle, beloved, I now write unto you; in *both* which I stir up your pure minds by way of remembrance:  
-> <sup>2</sup> That ye may be mindful of the words which were spoken before by the holy prophets, and of the commandment of us the apostles of the Lord and Saviour:  
+> **¹** This second epistle, beloved, I now write unto you; in *both* which I stir up your pure minds by way of remembrance:  
+> **²** That ye may be mindful of the words which were spoken before by the holy prophets, and of the commandment of us the apostles of the Lord and Saviour:  
 
 That the apostle might the better reach his end in writing this epistle, which is to make them steady and constant in a fiducial and practical remembrance of the doctrine of the gospel, he, 1. Expresses his special affection and tenderness for them, by calling them *beloved,* hereby evidencing that he *added to godliness brotherly-kindness,* as he had (2Pe 1:17) exhorted them to do. Ministers must be examples of love and affection, as well as life and conversation. 2. He evinces a sincere love to them, and hearty concern for them, by writing the same thing to them, though in other words. It being safe for them, it shall not be grievous to him to write upon the same subject, and pursue the same design, by those methods which are most likely to succeed. 3. The better to recommend the matter, he tells them that what he would have them to remember are, (1.) *The words spoken by the holy prophets,* who were divinely inspired, both enlightened and sanctified by the Holy Ghost; and, seeing these persons' minds were purified by the sanctifying operation of the same Spirit, they were the better disposed to receive and retain what came from God by the holy prophets. (2.) *The commandments of the apostles of the Lord and Saviour;* and therefore the disciples and servants of Christ ought to regard what those who are sent by him have declared unto them to be the will of their Lord. What God has spoken by the prophets of the Old Testament, and Christ has commanded by the apostles of the New, cannot but demand and deserve to be frequently remembered; and those who meditate on these things will feel the quickening virtues thereof. It is by these things the pure minds of Christians are to be stirred up, that they may be active and lively in the work of holiness, and zealous and unwearied in the way to heaven.
 
 ## The Cavils of Infidels; Destruction of the World. (a. d. 67.)
 
-> <sup>3</sup> Knowing this first, that there shall come in the last days scoffers, walking after their own lusts,  
-> <sup>4</sup> And saying, Where is the promise of his coming? for since the fathers fell asleep, all things continue as *they were* from the beginning of the creation.  
-> <sup>5</sup> For this they willingly are ignorant of, that by the word of God the heavens were of old, and the earth standing out of the water and in the water:  
-> <sup>6</sup> Whereby the world that then was, being overflowed with water, perished:  
-> <sup>7</sup> But the heavens and the earth, which are now, by the same word are kept in store, reserved unto fire against the day of judgment and perdition of ungodly men.  
+> **³** Knowing this first, that there shall come in the last days scoffers, walking after their own lusts,  
+> **⁴** And saying, Where is the promise of his coming? for since the fathers fell asleep, all things continue as *they were* from the beginning of the creation.  
+> **⁵** For this they willingly are ignorant of, that by the word of God the heavens were of old, and the earth standing out of the water and in the water:  
+> **⁶** Whereby the world that then was, being overflowed with water, perished:  
+> **⁷** But the heavens and the earth, which are now, by the same word are kept in store, reserved unto fire against the day of judgment and perdition of ungodly men.  
 
 To quicken and excite us to a serious minding and firm adhering to what God has revealed to us by the prophets and apostles, we are told that there will be *scoffers,* men who will *make a mock of sin,* and of salvation from it. God's way of saving sinners by Jesus Christ is what men will scoff at, and that *in the last days,* under the gospel. This indeed may seem very strange, that the New-Testament dispensation of the covenant of grace, which is spiritual and therefore more agreeable to the nature of God than the Old, should be ridiculed and reproached; but the spirituality and simplicity of New-Testament worship are directly contrary to the carnal mind of man, and this accounts for what the apostle seems here to hint at, namely, that scoffers shall be more numerous and more bold in the last days than ever before. Though in all ages those who were born and walked after the flesh persecuted, reviled, and reproached those who were born and did walk after the Spirit, yet in the last days there will be a great improvement in the art and impudence of bantering serious godliness, and those who firmly adhere to the circumspection and self-denial which the gospel prescribes. This is what is mentioned as a thing well known to all Christians, and therefore they ought to reckon upon it, that they may not be surprised and shaken, as if some strange thing happened unto them. Now to prevent the true Christian's being overcome, when attacked by these scoffers, we are told,
 
@@ -37,7 +37,7 @@ IV\. Here is the falsehood of their argument detected. Whereas they confidently 
 
 ## Conception of Eternity. (a. d. 67.)
 
-> <sup>8</sup> But, beloved, be not ignorant of this one thing, that one day *is* with the Lord as a thousand years, and a thousand years as one day.  
+> **⁸** But, beloved, be not ignorant of this one thing, that one day *is* with the Lord as a thousand years, and a thousand years as one day.  
 
 The apostle comes in these words to instruct and establish Christians in the truth of the coming of the Lord, where we may clearly discern the tenderness and affection wherewith he speaks to them, calling them *beloved;* he had a compassionate concern and a love of good-will for the ungodly wretches who refused to believe divine revelation, but he has a peculiar respect for the true believers, and the remaining ignorance and weakness that the apprehends to be in them make him jealous, and put him on giving them a caution. Here we may observe,
 
@@ -47,8 +47,8 @@ II\. The importance of this truth: This is the *one thing* the apostle would not
 
 ## Destruction of the World. (a. d. 67.)
 
-> <sup>9</sup> The Lord is not slack concerning his promise, as some men count slackness; but is longsuffering to us-ward, not willing that any should perish, but that all should come to repentance.  
-> <sup>10</sup> But the day of the Lord will come as a thief in the night; in the which the heavens shall pass away with a great noise, and the elements shall melt with fervent heat, the earth also and the works that are therein shall be burned up.  
+> **⁹** The Lord is not slack concerning his promise, as some men count slackness; but is longsuffering to us-ward, not willing that any should perish, but that all should come to repentance.  
+> **¹⁰** But the day of the Lord will come as a thief in the night; in the which the heavens shall pass away with a great noise, and the elements shall melt with fervent heat, the earth also and the works that are therein shall be burned up.  
 
 We are here told that *the Lord is not slack*—he does not delay beyond the appointed time; as God kept the time that he had appointed for the delivering of Israel out of Egypt, to a day (Ex 12:41), so he will keep to the time appointed in coming to judge the world. What a difference is there between the account which God makes and that which men make! Good men are apt to think God stays beyond the appointed time, that is, the time which they have set for their own and the church's deliverance; but they set one time and God sets another, and he will not fail to keep the day which he has appointed. Ungodly men dare charge a culpable slackness upon God, as if he had slipped the time, and laid aside the thoughts of coming. But the apostle assures us,
 
@@ -60,14 +60,14 @@ And now who can but observe what a difference there will be between the first co
 
 ## Solemn Exhortations. (a. d. 67.)
 
-> <sup>11</sup> *Seeing* then *that* all these things shall be dissolved, what manner *of persons* ought ye to be in *all* holy conversation and godliness,  
-> <sup>12</sup> Looking for and hasting unto the coming of the day of God, wherein the heavens being on fire shall be dissolved, and the elements shall melt with fervent heat?  
-> <sup>13</sup> Nevertheless we, according to his promise, look for new heavens and a new earth, wherein dwelleth righteousness.  
-> <sup>14</sup> Wherefore, beloved, seeing that ye look for such things, be diligent that ye may be found of him in peace, without spot, and blameless.  
-> <sup>15</sup> And account *that* the longsuffering of our Lord *is* salvation; even as our beloved brother Paul also according to the wisdom given unto him hath written unto you;  
-> <sup>16</sup> As also in all *his* epistles, speaking in them of these things; in which are some things hard to be understood, which they that are unlearned and unstable wrest, as *they do* also the other scriptures, unto their own destruction.  
-> <sup>17</sup> Ye therefore, beloved, seeing ye know *these things* before, beware lest ye also, being led away with the error of the wicked, fall from your own stedfastness.  
-> <sup>18</sup> But grow in grace, and *in* the knowledge of our Lord and Saviour Jesus Christ. To him *be* glory both now and for ever. Amen.  
+> **¹¹** *Seeing* then *that* all these things shall be dissolved, what manner *of persons* ought ye to be in *all* holy conversation and godliness,  
+> **¹²** Looking for and hasting unto the coming of the day of God, wherein the heavens being on fire shall be dissolved, and the elements shall melt with fervent heat?  
+> **¹³** Nevertheless we, according to his promise, look for new heavens and a new earth, wherein dwelleth righteousness.  
+> **¹⁴** Wherefore, beloved, seeing that ye look for such things, be diligent that ye may be found of him in peace, without spot, and blameless.  
+> **¹⁵** And account *that* the longsuffering of our Lord *is* salvation; even as our beloved brother Paul also according to the wisdom given unto him hath written unto you;  
+> **¹⁶** As also in all *his* epistles, speaking in them of these things; in which are some things hard to be understood, which they that are unlearned and unstable wrest, as *they do* also the other scriptures, unto their own destruction.  
+> **¹⁷** Ye therefore, beloved, seeing ye know *these things* before, beware lest ye also, being led away with the error of the wicked, fall from your own stedfastness.  
+> **¹⁸** But grow in grace, and *in* the knowledge of our Lord and Saviour Jesus Christ. To him *be* glory both now and for ever. Amen.  
 
 The apostle, having instructed them in the doctrine of Christ's second coming,
 

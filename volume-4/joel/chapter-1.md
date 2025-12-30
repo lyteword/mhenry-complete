@@ -8,13 +8,13 @@ This chapter is the description of a lamentable devastation made of the country 
 
 ## Threatenings of Judgment. (b. c. 720.)
 
-> <sup>1</sup> The word of the LORD that came to Joel the son of Pethuel.  
-> <sup>2</sup> Hear this, ye old men, and give ear, all ye inhabitants of the land. Hath this been in your days, or even in the days of your fathers?  
-> <sup>3</sup> Tell ye your children of it, and *let* your children *tell* their children, and their children another generation.  
-> <sup>4</sup> That which the palmer-worm hath left hath the locust eaten; and that which the locust hath left hath the canker-worm eaten; and that which the canker-worm hath left hath the caterpillar eaten.  
-> <sup>5</sup> Awake, ye drunkards, and weep; and howl, all ye drinkers of wine, because of the new wine; for it is cut off from your mouth.  
-> <sup>6</sup> For a nation is come up upon my land, strong, and without number, whose teeth *are* the teeth of a lion, and he hath the cheek teeth of a great lion.  
-> <sup>7</sup> He hath laid my vine waste, and barked my fig tree: he hath made it clean bare, and cast *it* away; the branches thereof are made white.  
+> **¹** The word of the LORD that came to Joel the son of Pethuel.  
+> **²** Hear this, ye old men, and give ear, all ye inhabitants of the land. Hath this been in your days, or even in the days of your fathers?  
+> **³** Tell ye your children of it, and *let* your children *tell* their children, and their children another generation.  
+> **⁴** That which the palmer-worm hath left hath the locust eaten; and that which the locust hath left hath the canker-worm eaten; and that which the canker-worm hath left hath the caterpillar eaten.  
+> **⁵** Awake, ye drunkards, and weep; and howl, all ye drinkers of wine, because of the new wine; for it is cut off from your mouth.  
+> **⁶** For a nation is come up upon my land, strong, and without number, whose teeth *are* the teeth of a lion, and he hath the cheek teeth of a great lion.  
+> **⁷** He hath laid my vine waste, and barked my fig tree: he hath made it clean bare, and cast *it* away; the branches thereof are made white.  
 
 It is a foolish fancy which some of the Jews have, that this Joel the prophet was the same with that Joel who was the son of Samuel (1Sa 8:2); yet one of their rabbin very gravely undertakes to show why Samuel is here called *Pethuel.* This Joel was long after that. He here speaks of a sad and sore judgment which was now brought, or to be brought, upon Judah, for their sins. Observe,
 
@@ -26,12 +26,12 @@ III\. A call to the drunkards to lament this judgment (Joe 1:5): *Awake and weep
 
 ## Threatenings of Judgment. (b. c. 720.)
 
-> <sup>8</sup> Lament like a virgin girded with sackcloth for the husband of her youth.  
-> <sup>9</sup> The meat offering and the drink offering is cut off from the house of the LORD; the priests, the LORD's ministers, mourn.  
-> <sup>10</sup> The field is wasted, the land mourneth; for the corn is wasted: the new wine is dried up, the oil languisheth.  
-> <sup>11</sup> Be ye ashamed, O ye husbandmen; howl, O ye vinedressers, for the wheat and for the barley; because the harvest of the field is perished.  
-> <sup>12</sup> The vine is dried up, and the fig tree languisheth; the pomegranate tree, the palm tree also, and the apple tree, *even* all the trees of the field, are withered: because joy is withered away from the sons of men.  
-> <sup>13</sup> Gird yourselves, and lament, ye priests: howl, ye ministers of the altar: come, lie all night in sackcloth, ye ministers of my God: for the meat offering and the drink offering is withholden from the house of your God.  
+> **⁸** Lament like a virgin girded with sackcloth for the husband of her youth.  
+> **⁹** The meat offering and the drink offering is cut off from the house of the LORD; the priests, the LORD's ministers, mourn.  
+> **¹⁰** The field is wasted, the land mourneth; for the corn is wasted: the new wine is dried up, the oil languisheth.  
+> **¹¹** Be ye ashamed, O ye husbandmen; howl, O ye vinedressers, for the wheat and for the barley; because the harvest of the field is perished.  
+> **¹²** The vine is dried up, and the fig tree languisheth; the pomegranate tree, the palm tree also, and the apple tree, *even* all the trees of the field, are withered: because joy is withered away from the sons of men.  
+> **¹³** Gird yourselves, and lament, ye priests: howl, ye ministers of the altar: come, lie all night in sackcloth, ye ministers of my God: for the meat offering and the drink offering is withholden from the house of your God.  
 
 The judgment is here described as very lamentable, and such as all sorts of people should share in; it shall not only rob the drunkards of their pleasure (if that were the worst of it, it might be the better borne), but it shall deprive others of their necessary subsistence, who are therefore called to lament (Joe 1:8), as a virgin laments the death of her lover to whom she was espoused, but not completely married, yet so that he was in effect her husband, or as a young woman lately married, from whom the *husband of her youth,* her young husband, or the husband to whom she was married when she was young, is suddenly taken away by death. Between a new-married couple that are young, that married for love, and that are every way amiable and agreeable to each other, there is great fondness, and consequently great grief if either be taken away. Such lamentation shall there be for the loss of their corn and wine. Note, The more we are wedded to our creature-comforts that harder it is to part with them. See that parallel place, Isa 32:10-12. Two sorts of people are here brought in, as concerned to lament this devastation, countrymen and clergymen.
 
@@ -41,13 +41,13 @@ II\. Let the priests, the Lord's ministers, lament, for they share deeply in the
 
 ## Threatenings of Judgment; A Proclamation for a Fast. (b. c. 720.)
 
-> <sup>14</sup> Sanctify ye a fast, call a solemn assembly, gather the elders *and* all the inhabitants of the land *into* the house of the LORD your God, and cry unto the LORD,  
-> <sup>15</sup> Alas for the day! for the day of the LORD *is* at hand, and as a destruction from the Almighty shall it come.  
-> <sup>16</sup> Is not the meat cut off before our eyes, *yea,* joy and gladness from the house of our God?  
-> <sup>17</sup> The seed is rotten under their clods, the garners are laid desolate, the barns are broken down; for the corn is withered.  
-> <sup>18</sup> How do the beasts groan! the herds of cattle are perplexed, because they have no pasture; yea, the flocks of sheep are made desolate.  
-> <sup>19</sup> O LORD, to thee will I cry: for the fire hath devoured the pastures of the wilderness, and the flame hath burned all the trees of the field.  
-> <sup>20</sup> The beasts of the field cry also unto thee: for the rivers of waters are dried up, and the fire hath devoured the pastures of the wilderness.  
+> **¹⁴** Sanctify ye a fast, call a solemn assembly, gather the elders *and* all the inhabitants of the land *into* the house of the LORD your God, and cry unto the LORD,  
+> **¹⁵** Alas for the day! for the day of the LORD *is* at hand, and as a destruction from the Almighty shall it come.  
+> **¹⁶** Is not the meat cut off before our eyes, *yea,* joy and gladness from the house of our God?  
+> **¹⁷** The seed is rotten under their clods, the garners are laid desolate, the barns are broken down; for the corn is withered.  
+> **¹⁸** How do the beasts groan! the herds of cattle are perplexed, because they have no pasture; yea, the flocks of sheep are made desolate.  
+> **¹⁹** O LORD, to thee will I cry: for the fire hath devoured the pastures of the wilderness, and the flame hath burned all the trees of the field.  
+> **²⁰** The beasts of the field cry also unto thee: for the rivers of waters are dried up, and the fire hath devoured the pastures of the wilderness.  
 
 We have observed abundance of tears shed for the destruction of the fruits of the earth by the locusts; now here we have those tears turned into the right channel, that of repentance and humiliation before God. The judgment was very heavy, and here they are directed to own the hand of God in it, his *mighty hand,* and to *humble themselves* under it. Here is,
 

@@ -10,17 +10,17 @@ This psalm does so particularly describe the destruction of Jerusalem and the te
 
 Maschil of Asaph.
 
-> <sup>1</sup> O God, why hast thou cast *us* off for ever? *why* doth thine anger smoke against the sheep of thy pasture?  
-> <sup>2</sup> Remember thy congregation, *which* thou hast purchased of old; the rod of thine inheritance, *which* thou hast redeemed; this mount Zion, wherein thou hast dwelt.  
-> <sup>3</sup> Lift up thy feet unto the perpetual desolations; *even* all *that* the enemy hath done wickedly in the sanctuary.  
-> <sup>4</sup> Thine enemies roar in the midst of thy congregations; they set up their ensigns *for* signs.  
-> <sup>5</sup> *A man* was famous according as he had lifted up axes upon the thick trees.  
-> <sup>6</sup> But now they break down the carved work thereof at once with axes and hammers.  
-> <sup>7</sup> They have cast fire into thy sanctuary, they have defiled *by casting down* the dwelling place of thy name to the ground.  
-> <sup>8</sup> They said in their hearts, Let us destroy them together: they have burned up all the synagogues of God in the land.  
-> <sup>9</sup> We see not our signs: *there is* no more any prophet: neither *is there* among us any that knoweth how long.  
-> <sup>10</sup> O God, how long shall the adversary reproach? shall the enemy blaspheme thy name for ever?  
-> <sup>11</sup> Why withdrawest thou thy hand, even thy right hand? pluck *it* out of thy bosom.  
+> **¹** O God, why hast thou cast *us* off for ever? *why* doth thine anger smoke against the sheep of thy pasture?  
+> **²** Remember thy congregation, *which* thou hast purchased of old; the rod of thine inheritance, *which* thou hast redeemed; this mount Zion, wherein thou hast dwelt.  
+> **³** Lift up thy feet unto the perpetual desolations; *even* all *that* the enemy hath done wickedly in the sanctuary.  
+> **⁴** Thine enemies roar in the midst of thy congregations; they set up their ensigns *for* signs.  
+> **⁵** *A man* was famous according as he had lifted up axes upon the thick trees.  
+> **⁶** But now they break down the carved work thereof at once with axes and hammers.  
+> **⁷** They have cast fire into thy sanctuary, they have defiled *by casting down* the dwelling place of thy name to the ground.  
+> **⁸** They said in their hearts, Let us destroy them together: they have burned up all the synagogues of God in the land.  
+> **⁹** We see not our signs: *there is* no more any prophet: neither *is there* among us any that knoweth how long.  
+> **¹⁰** O God, how long shall the adversary reproach? shall the enemy blaspheme thy name for ever?  
+> **¹¹** Why withdrawest thou thy hand, even thy right hand? pluck *it* out of thy bosom.  
 
 This psalm is entitled *Maschil—a psalm to give instruction,* for it was penned in a day of affliction, which is intended for instruction; and this instruction in general it gives us, That when we are, upon any account, in distress, it is our wisdom and duty to apply to God by faithful and fervent prayer, and we shall not find it in vain to do so. Three things the people of God here complain of:—
 
@@ -36,12 +36,12 @@ III\. The great aggravation of all these calamities was that they had no prospec
 
 ## Acknowledgments of Divine Power.
 
-> <sup>12</sup> For God *is* my King of old, working salvation in the midst of the earth.  
-> <sup>13</sup> Thou didst divide the sea by thy strength: thou brakest the heads of the dragons in the waters.  
-> <sup>14</sup> Thou brakest the heads of leviathan in pieces, *and* gavest him *to be* meat to the people inhabiting the wilderness.  
-> <sup>15</sup> Thou didst cleave the fountain and the flood: thou driedst up mighty rivers.  
-> <sup>16</sup> The day *is* thine, the night also *is* thine: thou hast prepared the light and the sun.  
-> <sup>17</sup> Thou hast set all the borders of the earth: thou hast made summer and winter.  
+> **¹²** For God *is* my King of old, working salvation in the midst of the earth.  
+> **¹³** Thou didst divide the sea by thy strength: thou brakest the heads of the dragons in the waters.  
+> **¹⁴** Thou brakest the heads of leviathan in pieces, *and* gavest him *to be* meat to the people inhabiting the wilderness.  
+> **¹⁵** Thou didst cleave the fountain and the flood: thou driedst up mighty rivers.  
+> **¹⁶** The day *is* thine, the night also *is* thine: thou hast prepared the light and the sun.  
+> **¹⁷** Thou hast set all the borders of the earth: thou hast made summer and winter.  
 
 The lamenting church fastens upon something here which she calls to mind, and *therefore hath she hope* (as La 3:21), with which she encourages herself and silences her own complaints. Two things quiet the minds of those that are here sorrowing for the solemn assembly:—
 
@@ -57,12 +57,12 @@ II\. That the God of Israel is the God of nature, Ps 74:16,17. It is he that ord
 
 ## Earnest Supplications; Pleading with God.
 
-> <sup>18</sup> Remember this, *that* the enemy hath reproached, O LORD, and *that* the foolish people have blasphemed thy name.  
-> <sup>19</sup> O deliver not the soul of thy turtledove unto the multitude *of the wicked:* forget not the congregation of thy poor for ever.  
-> <sup>20</sup> Have respect unto the covenant: for the dark places of the earth are full of the habitations of cruelty.  
-> <sup>21</sup> O let not the oppressed return ashamed: let the poor and needy praise thy name.  
-> <sup>22</sup> Arise, O God, plead thine own cause: remember how the foolish man reproacheth thee daily.  
-> <sup>23</sup> Forget not the voice of thine enemies: the tumult of those that rise up against thee increaseth continually.  
+> **¹⁸** Remember this, *that* the enemy hath reproached, O LORD, and *that* the foolish people have blasphemed thy name.  
+> **¹⁹** O deliver not the soul of thy turtledove unto the multitude *of the wicked:* forget not the congregation of thy poor for ever.  
+> **²⁰** Have respect unto the covenant: for the dark places of the earth are full of the habitations of cruelty.  
+> **²¹** O let not the oppressed return ashamed: let the poor and needy praise thy name.  
+> **²²** Arise, O God, plead thine own cause: remember how the foolish man reproacheth thee daily.  
+> **²³** Forget not the voice of thine enemies: the tumult of those that rise up against thee increaseth continually.  
 
 The psalmist here, in the name of the church, most earnestly begs that God would appear fro them against their enemies, and put an end to their present troubles. To encourage his own faith, he interests God in this matter (Ps 74:22): *Arise, O God! plead thy own cause.* This we may be sure he will do, for he is jealous for his own honour; whatever is his own cause he will plead it with a strong hand, will appear against those that oppose it and with and for those that cordially espouse it. He will arise and plead it, though for a time he seems to neglect it; he will stir up himself, will manifest himself, will do his own work in his own time. Note, The cause of religion is God's own cause and he will certainly plead it. Now, to make it out that the cause is God's, he pleads,
 

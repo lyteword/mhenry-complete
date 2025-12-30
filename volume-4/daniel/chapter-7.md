@@ -8,14 +8,14 @@ The six former chapters of this book were historical; we now enter with fear and
 
 ## The Vision of the Four Beasts. (b. c. 555.)
 
-> <sup>1</sup> In the first year of Belshazzar king of Babylon Daniel had a dream and visions of his head upon his bed: then he wrote the dream, *and* told the sum of the matters.  
-> <sup>2</sup> Daniel spake and said, I saw in my vision by night, and, behold, the four winds of the heaven strove upon the great sea.  
-> <sup>3</sup> And four great beasts came up from the sea, diverse one from another.  
-> <sup>4</sup> The first *was* like a lion, and had eagle's wings: I beheld till the wings thereof were plucked, and it was lifted up from the earth, and made stand upon the feet as a man, and a man's heart was given to it.  
-> <sup>5</sup> And behold another beast, a second, like to a bear, and it raised up itself on one side, and *it had* three ribs in the mouth of it between the teeth of it: and they said thus unto it, Arise, devour much flesh.  
-> <sup>6</sup> After this I beheld, and lo another, like a leopard, which had upon the back of it four wings of a fowl; the beast had also four heads; and dominion was given to it.  
-> <sup>7</sup> After this I saw in the night visions, and behold a fourth beast, dreadful and terrible, and strong exceedingly; and it had great iron teeth: it devoured and brake in pieces, and stamped the residue with the feet of it: and it *was* diverse from all the beasts that *were* before it; and it had ten horns.  
-> <sup>8</sup> I considered the horns, and, behold, there came up among them another little horn, before whom there were three of the first horns plucked up by the roots: and, behold, in this horn *were* eyes like the eyes of man, and a mouth speaking great things.  
+> **¹** In the first year of Belshazzar king of Babylon Daniel had a dream and visions of his head upon his bed: then he wrote the dream, *and* told the sum of the matters.  
+> **²** Daniel spake and said, I saw in my vision by night, and, behold, the four winds of the heaven strove upon the great sea.  
+> **³** And four great beasts came up from the sea, diverse one from another.  
+> **⁴** The first *was* like a lion, and had eagle's wings: I beheld till the wings thereof were plucked, and it was lifted up from the earth, and made stand upon the feet as a man, and a man's heart was given to it.  
+> **⁵** And behold another beast, a second, like to a bear, and it raised up itself on one side, and *it had* three ribs in the mouth of it between the teeth of it: and they said thus unto it, Arise, devour much flesh.  
+> **⁶** After this I beheld, and lo another, like a leopard, which had upon the back of it four wings of a fowl; the beast had also four heads; and dominion was given to it.  
+> **⁷** After this I saw in the night visions, and behold a fourth beast, dreadful and terrible, and strong exceedingly; and it had great iron teeth: it devoured and brake in pieces, and stamped the residue with the feet of it: and it *was* diverse from all the beasts that *were* before it; and it had ten horns.  
+> **⁸** I considered the horns, and, behold, there came up among them another little horn, before whom there were three of the first horns plucked up by the roots: and, behold, in this horn *were* eyes like the eyes of man, and a mouth speaking great things.  
 
 The date of this chapter places it before Da 5:1-31, which was in the last year of Belshazzar, and Da 6:1-28, which was in the first of Darius; for Daniel had those visions in the first year of Belshazzar, when the captivity of the Jews in Babylon was drawing near a period. Belshazzar's name here is, in the original, spelt differently from what it used to be; before it was *Bel-she-azar—Bel is he that treasures up riches.* But this is *Bel-eshe-zar—Bel is on fire by the enemy.* Bel was the god of the Chaldeans; he had prospered, but is now to be consumed.
 
@@ -27,12 +27,12 @@ II\. The vision itself, which foretels the revolutions of government in those na
 
 ## The Vision of the Four Beasts. (b. c. 555.)
 
-> <sup>9</sup> I beheld till the thrones were cast down, and the Ancient of days did sit, whose garment *was* white as snow, and the hair of his head like the pure wool: his throne *was like* the fiery flame, *and* his wheels *as* burning fire.  
-> <sup>10</sup> A fiery stream issued and came forth from before him: thousand thousands ministered unto him, and ten thousand times ten thousand stood before him: the judgment was set, and the books were opened.  
-> <sup>11</sup> I beheld then because of the voice of the great words which the horn spake: I beheld *even* till the beast was slain, and his body destroyed, and given to the burning flame.  
-> <sup>12</sup> As concerning the rest of the beasts, they had their dominion taken away: yet their lives were prolonged for a season and time.  
-> <sup>13</sup> I saw in the night visions, and, behold, *one* like the Son of man came with the clouds of heaven, and came to the Ancient of days, and they brought him near before him.  
-> <sup>14</sup> And there was given him dominion, and glory, and a kingdom, that all people, nations, and languages, should serve him: his dominion *is* an everlasting dominion, which shall not pass away, and his kingdom *that* which shall not be destroyed.  
+> **⁹** I beheld till the thrones were cast down, and the Ancient of days did sit, whose garment *was* white as snow, and the hair of his head like the pure wool: his throne *was like* the fiery flame, *and* his wheels *as* burning fire.  
+> **¹⁰** A fiery stream issued and came forth from before him: thousand thousands ministered unto him, and ten thousand times ten thousand stood before him: the judgment was set, and the books were opened.  
+> **¹¹** I beheld then because of the voice of the great words which the horn spake: I beheld *even* till the beast was slain, and his body destroyed, and given to the burning flame.  
+> **¹²** As concerning the rest of the beasts, they had their dominion taken away: yet their lives were prolonged for a season and time.  
+> **¹³** I saw in the night visions, and, behold, *one* like the Son of man came with the clouds of heaven, and came to the Ancient of days, and they brought him near before him.  
+> **¹⁴** And there was given him dominion, and glory, and a kingdom, that all people, nations, and languages, should serve him: his dominion *is* an everlasting dominion, which shall not pass away, and his kingdom *that* which shall not be destroyed.  
 
 Whether we understand the fourth beast to signify the Syrian empire, or the Roman, or the former as the figure of the latter, it is plain that these verses are intended for the comfort and support of the people of God in reference to the persecutions they were likely to sustain both from the one and from the other, and from all their proud enemies in every age; for it is written for their learning on whom the ends of the world have come, that they also, through patience and comfort of this scripture, might have hope. Three things are here discovered that are very encouraging:—
 
@@ -44,20 +44,20 @@ III\. That the kingdom of the Messiah shall be set up, and kept up, in the world
 
 ## The Vision of the Four Beasts. (b. c. 555.)
 
-> <sup>15</sup> I Daniel was grieved in my spirit in the midst of *my* body, and the visions of my head troubled me.  
-> <sup>16</sup> I came near unto one of them that stood by, and asked him the truth of all this. So he told me, and made me know the interpretation of the things.  
-> <sup>17</sup> These great beasts, which are four, *are* four kings, *which* shall arise out of the earth.  
-> <sup>18</sup> But the saints of the most High shall take the kingdom, and possess the kingdom for ever, even for ever and ever.  
-> <sup>19</sup> Then I would know the truth of the fourth beast, which was diverse from all the others, exceeding dreadful, whose teeth *were of* iron, and his nails *of* brass; *which* devoured, brake in pieces, and stamped the residue with his feet;  
-> <sup>20</sup> And of the ten horns that *were* in his head, and *of* the other which came up, and before whom three fell; even *of* that horn that had eyes, and a mouth that spake very great things, whose look *was* more stout than his fellows.  
-> <sup>21</sup> I beheld, and the same horn made war with the saints, and prevailed against them;  
-> <sup>22</sup> Until the Ancient of days came, and judgment was given to the saints of the most High; and the time came that the saints possessed the kingdom.  
-> <sup>23</sup> Thus he said, The fourth beast shall be the fourth kingdom upon earth, which shall be diverse from all kingdoms, and shall devour the whole earth, and shall tread it down, and break it in pieces.  
-> <sup>24</sup> And the ten horns out of this kingdom *are* ten kings *that* shall arise: and another shall rise after them; and he shall be diverse from the first, and he shall subdue three kings.  
-> <sup>25</sup> And he shall speak *great* words against the most High, and shall wear out the saints of the most High, and think to change times and laws: and they shall be given into his hand until a time and times and the dividing of time.  
-> <sup>26</sup> But the judgment shall sit, and they shall take away his dominion, to consume and to destroy *it* unto the end.  
-> <sup>27</sup> And the kingdom and dominion, and the greatness of the kingdom under the whole heaven, shall be given to the people of the saints of the most High, whose kingdom *is* an everlasting kingdom, and all dominions shall serve and obey him.  
-> <sup>28</sup> Hitherto *is* the end of the matter. As for me Daniel, my cogitations much troubled me, and my countenance changed in me: but I kept the matter in my heart.  
+> **¹⁵** I Daniel was grieved in my spirit in the midst of *my* body, and the visions of my head troubled me.  
+> **¹⁶** I came near unto one of them that stood by, and asked him the truth of all this. So he told me, and made me know the interpretation of the things.  
+> **¹⁷** These great beasts, which are four, *are* four kings, *which* shall arise out of the earth.  
+> **¹⁸** But the saints of the most High shall take the kingdom, and possess the kingdom for ever, even for ever and ever.  
+> **¹⁹** Then I would know the truth of the fourth beast, which was diverse from all the others, exceeding dreadful, whose teeth *were of* iron, and his nails *of* brass; *which* devoured, brake in pieces, and stamped the residue with his feet;  
+> **²⁰** And of the ten horns that *were* in his head, and *of* the other which came up, and before whom three fell; even *of* that horn that had eyes, and a mouth that spake very great things, whose look *was* more stout than his fellows.  
+> **²¹** I beheld, and the same horn made war with the saints, and prevailed against them;  
+> **²²** Until the Ancient of days came, and judgment was given to the saints of the most High; and the time came that the saints possessed the kingdom.  
+> **²³** Thus he said, The fourth beast shall be the fourth kingdom upon earth, which shall be diverse from all kingdoms, and shall devour the whole earth, and shall tread it down, and break it in pieces.  
+> **²⁴** And the ten horns out of this kingdom *are* ten kings *that* shall arise: and another shall rise after them; and he shall be diverse from the first, and he shall subdue three kings.  
+> **²⁵** And he shall speak *great* words against the most High, and shall wear out the saints of the most High, and think to change times and laws: and they shall be given into his hand until a time and times and the dividing of time.  
+> **²⁶** But the judgment shall sit, and they shall take away his dominion, to consume and to destroy *it* unto the end.  
+> **²⁷** And the kingdom and dominion, and the greatness of the kingdom under the whole heaven, shall be given to the people of the saints of the most High, whose kingdom *is* an everlasting kingdom, and all dominions shall serve and obey him.  
+> **²⁸** Hitherto *is* the end of the matter. As for me Daniel, my cogitations much troubled me, and my countenance changed in me: but I kept the matter in my heart.  
 
 Here we have, I. The deep impressions which these visions made upon the prophet. God in them put honour upon him, and gave him satisfaction, yet not without a great allay of pain and perplexity (Da 7:15): *I Daniel was grieved in my spirit, in the midst of my body.* The word here used for the *body* properly signifies a *sheath* or *scabbard,* for the body is no more to the soul; that is the weapon; it is that which we are principally to take care of. The *visions of my head troubled me,* and again (Da 7:28), *my cogitations much troubled me.* The manner in which these things were discovered to him quite overwhelmed him, and put his thoughts so much to the stretch that his spirits failed him, and the trance he was in tired him and made him faint. The things themselves that were discovered amazed and astonished him, and put him into a confusion, till by degrees he recollected and conquered himself, and set the comforts of the vision over against the terrors of it.
 

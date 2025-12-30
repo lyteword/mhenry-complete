@@ -8,10 +8,10 @@ In this chapter we have a further account concerning Abram. I. In general, of hi
 
 ## Abram's Removal to Canaan. (b. c. 1918.)
 
-> <sup>1</sup> And Abram went up out of Egypt, he, and his wife, and all that he had, and Lot with him, into the south.  
-> <sup>2</sup> And Abram *was* very rich in cattle, in silver, and in gold.  
-> <sup>3</sup> And he went on his journeys from the south even to Beth-el, unto the place where his tent had been at the beginning, between Beth-el and Hai;  
-> <sup>4</sup> Unto the place of the altar, which he had made there at the first: and there Abram called on the name of the LORD.  
+> **¹** And Abram went up out of Egypt, he, and his wife, and all that he had, and Lot with him, into the south.  
+> **²** And Abram *was* very rich in cattle, in silver, and in gold.  
+> **³** And he went on his journeys from the south even to Beth-el, unto the place where his tent had been at the beginning, between Beth-el and Hai;  
+> **⁴** Unto the place of the altar, which he had made there at the first: and there Abram called on the name of the LORD.  
 
 I\. Here is Abram's return out of Egypt, Ge 13:1. He came himself and brought all his with him back again to Canaan. Note, Though there may be occasion to go sometimes into places of temptation, yet we must hasten out of them as soon as possible. See Ru 1:6.
 
@@ -23,11 +23,11 @@ IV\. His devotion there. His altar was gone, so that he could not offer sacrific
 
 ## Lot's Separation from Abram. (b. c. 1917.)
 
-> <sup>5</sup> And Lot also, which went with Abram, had flocks, and herds, and tents.  
-> <sup>6</sup> And the land was not able to bear them, that they might dwell together: for their substance was great, so that they could not dwell together.  
-> <sup>7</sup> And there was a strife between the herdmen of Abram's cattle and the herdmen of Lot's cattle: and the Canaanite and the Perizzite dwelled then in the land.  
-> <sup>8</sup> And Abram said unto Lot, Let there be no strife, I pray thee, between me and thee, and between my herdmen and thy herdmen; for we *be* brethren.  
-> <sup>9</sup> *Is* not the whole land before thee? separate thyself, I pray thee, from me: if *thou wilt take* the left hand, then I will go to the right; or if *thou depart* to the right hand, then I will go to the left.  
+> **⁵** And Lot also, which went with Abram, had flocks, and herds, and tents.  
+> **⁶** And the land was not able to bear them, that they might dwell together: for their substance was great, so that they could not dwell together.  
+> **⁷** And there was a strife between the herdmen of Abram's cattle and the herdmen of Lot's cattle: and the Canaanite and the Perizzite dwelled then in the land.  
+> **⁸** And Abram said unto Lot, Let there be no strife, I pray thee, between me and thee, and between my herdmen and thy herdmen; for we *be* brethren.  
+> **⁹** *Is* not the whole land before thee? separate thyself, I pray thee, from me: if *thou wilt take* the left hand, then I will go to the right; or if *thou depart* to the right hand, then I will go to the left.  
 
 We have here an unhappy falling out between Abram and Lot, who had hitherto been inseparable companions (see Ge 13:1, and Ge 12:4), but now parted.
 
@@ -47,10 +47,10 @@ IV\. The making up of this quarrel was very happy. It is best to preserve the pe
 
 ## Lot's Removal to Sodom. (b. c. 1917.)
 
-> <sup>10</sup> And Lot lifted up his eyes, and beheld all the plain of Jordan, that it *was* well watered everywhere, before the LORD destroyed Sodom and Gomorrah, *even* as the garden of the LORD, like the land of Egypt, as thou comest unto Zoar.  
-> <sup>11</sup> Then Lot chose him all the plain of Jordan; and Lot journeyed east: and they separated themselves the one from the other.  
-> <sup>12</sup> Abram dwelled in the land of Canaan, and Lot dwelled in the cities of the plain, and pitched *his* tent toward Sodom.  
-> <sup>13</sup> But the men of Sodom *were* wicked and sinners before the LORD exceedingly.  
+> **¹⁰** And Lot lifted up his eyes, and beheld all the plain of Jordan, that it *was* well watered everywhere, before the LORD destroyed Sodom and Gomorrah, *even* as the garden of the LORD, like the land of Egypt, as thou comest unto Zoar.  
+> **¹¹** Then Lot chose him all the plain of Jordan; and Lot journeyed east: and they separated themselves the one from the other.  
+> **¹²** Abram dwelled in the land of Canaan, and Lot dwelled in the cities of the plain, and pitched *his* tent toward Sodom.  
+> **¹³** But the men of Sodom *were* wicked and sinners before the LORD exceedingly.  
 
 We have here the choice that Lot made when he parted from Abram. Upon this occasion, one would have expected, 1. That he should have expressed an unwillingness to part from Abram, and that, at least, he should have done it with reluctancy. 2. That he should have been so civil as to have remitted the choice back again to Abram. But we find not any instance of deference or respect to his uncle in the whole management. Abram having offered him the choice, without compliment he accepted it, and made his election. Passion and selfishness make men rude. Now, in the choice which Lot made, we may observe,
 
@@ -60,11 +60,11 @@ II\. How little he considered the wickedness of the inhabitants: *But the men of
 
 ## God Confirms His Promise to Abram. (b. c. 1917.)
 
-> <sup>14</sup> And the LORD said unto Abram, after that Lot was separated from him, Lift up now thine eyes, and look from the place where thou art northward, and southward, and eastward, and westward:  
-> <sup>15</sup> For all the land which thou seest, to thee will I give it, and to thy seed for ever.  
-> <sup>16</sup> And I will make thy seed as the dust of the earth: so that if a man can number the dust of the earth, *then* shall thy seed also be numbered.  
-> <sup>17</sup> Arise, walk through the land in the length of it and in the breadth of it; for I will give it unto thee.  
-> <sup>18</sup> Then Abram removed *his* tent, and came and dwelt in the plain of Mamre, which *is* in Hebron, and built there an altar unto the LORD.  
+> **¹⁴** And the LORD said unto Abram, after that Lot was separated from him, Lift up now thine eyes, and look from the place where thou art northward, and southward, and eastward, and westward:  
+> **¹⁵** For all the land which thou seest, to thee will I give it, and to thy seed for ever.  
+> **¹⁶** And I will make thy seed as the dust of the earth: so that if a man can number the dust of the earth, *then* shall thy seed also be numbered.  
+> **¹⁷** Arise, walk through the land in the length of it and in the breadth of it; for I will give it unto thee.  
+> **¹⁸** Then Abram removed *his* tent, and came and dwelt in the plain of Mamre, which *is* in Hebron, and built there an altar unto the LORD.  
 
 We have here an account of a gracious visit which God paid to Abram, to confirm the promise to him and his. Observe,
 

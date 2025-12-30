@@ -8,28 +8,28 @@ With this chapter Moses concludes his preface to the repetition of the statutes 
 
 ## Persuasives to Obedience. (b. c. 1451.)
 
-> <sup>1</sup> Therefore thou shalt love the LORD thy God, and keep his charge, and his statutes, and his judgments, and his commandments, alway.  
-> <sup>2</sup> And know ye this day: for *I speak* not with your children which have not known, and which have not seen the chastisement of the LORD your God, his greatness, his mighty hand, and his stretched out arm,  
-> <sup>3</sup> And his miracles, and his acts, which he did in the midst of Egypt unto Pharaoh the king of Egypt, and unto all his land;  
-> <sup>4</sup> And what he did unto the army of Egypt, unto their horses, and to their chariots; how he made the water of the Red sea to overflow them as they pursued after you, and *how* the LORD hath destroyed them unto this day;  
-> <sup>5</sup> And what he did unto you in the wilderness, until ye came into this place;  
-> <sup>6</sup> And what he did unto Dathan and Abiram, the sons of Eliab, the son of Reuben: how the earth opened her mouth, and swallowed them up, and their households, and their tents, and all the substance that *was* in their possession, in the midst of all Israel:  
-> <sup>7</sup> But your eyes have seen all the great acts of the LORD which he did.  
+> **¹** Therefore thou shalt love the LORD thy God, and keep his charge, and his statutes, and his judgments, and his commandments, alway.  
+> **²** And know ye this day: for *I speak* not with your children which have not known, and which have not seen the chastisement of the LORD your God, his greatness, his mighty hand, and his stretched out arm,  
+> **³** And his miracles, and his acts, which he did in the midst of Egypt unto Pharaoh the king of Egypt, and unto all his land;  
+> **⁴** And what he did unto the army of Egypt, unto their horses, and to their chariots; how he made the water of the Red sea to overflow them as they pursued after you, and *how* the LORD hath destroyed them unto this day;  
+> **⁵** And what he did unto you in the wilderness, until ye came into this place;  
+> **⁶** And what he did unto Dathan and Abiram, the sons of Eliab, the son of Reuben: how the earth opened her mouth, and swallowed them up, and their households, and their tents, and all the substance that *was* in their possession, in the midst of all Israel:  
+> **⁷** But your eyes have seen all the great acts of the LORD which he did.  
 
 Because *God has made thee as the stars of heaven for multitude* (so the preceding chapter concludes), *therefore thou shalt love the Lord thy God* (so this begins). Those whom God has built up into families, whose beginning was small, but whose latter end greatly increases, should use that as an argument with themselves why they should serve God. Thou shalt *keep his charge,* that is, the oracles of his word and ordinances of his worship, with which they were entrusted and for which they were accountable. It is a phrase often used concerning the office of the priests and Levites, for all Israel was a kingdom of priests, a holy nation. Observe the connection of these two: *Thou shalt love the Lord* and *keep his charge,* since love will work in obedience, and that only is acceptable obedience which flows from a principle of love. 1Jo 5:3.
 
 Mention is made of the great and terrible works of God which their *eyes had seen,* De 11:7. This part of his discourse Moses addresses to the *seniors* among the people, the elders in age; and probably the elders in office were so, and were now his immediate auditors: there were some among them that could remember their deliverance out of Egypt, all above fifty, and to them he speaks this, not to the children, who knew it by hearsay only, De 11:2. Note, God's mercies to us when we were young we should remember and retain the impressions of when we are old; what our eyes have seen, especially in our early days, has affected us, and should be improved by us long after. They had seen what terrible judgments God had executed upon the enemies of Israel's peace, 1. Upon Pharaoh and the Egyptians that enslaved them. What a fine country was ruined and laid waste by one plague after another, to force Israel's enlargement! De 11:3. What a fine army was entirely drowned in the Red Sea, to prevent Israel's being re-enslaved! De 11:4. Thus did he give *Egypt for their ransom,* Isa 43:3. Rather shall that famous kingdom be destroyed than that Israel shall not be delivered. 2. Upon Dathan and Abiram that embroiled them. Remember *what he did in the wilderness* (De 11:5), by how many necessary *chastisements* (as they are called, De 11:2) they were kept from ruining themselves, particularly when those daring Reubenites defied the authority of Moses and headed a dangerous rebellion against God himself, which threatened the ruin of a whole nation, and might have ended in that if the divine power had not immediately crushed the rebellion by burying the rebels alive, them and *all that was in their possession,* De 11:6. What was done against them, though misinterpreted by the disaffected party (Nu 16:41), was really done in mercy to Israel. To be saved from the mischiefs of insurrections at home is as great a kindness to a people, and therefore lays them under as strong obligations, as protection from the invasion of enemies abroad.
 
-> <sup>8</sup> Therefore shall ye keep all the commandments which I command you this day, that ye may be strong, and go in and possess the land, whither ye go to possess it;  
-> <sup>9</sup> And that ye may prolong *your* days in the land, which the LORD sware unto your fathers to give unto them and to their seed, a land that floweth with milk and honey.  
-> <sup>10</sup> For the land, whither thou goest in to possess it, *is* not as the land of Egypt, from whence ye came out, where thou sowedst thy seed, and wateredst *it* with thy foot, as a garden of herbs:  
-> <sup>11</sup> But the land, whither ye go to possess it, *is* a land of hills and valleys, *and* drinketh water of the rain of heaven:  
-> <sup>12</sup> A land which the LORD thy God careth for: the eyes of the LORD thy God *are* always upon it, from the beginning of the year even unto the end of the year.  
-> <sup>13</sup> And it shall come to pass, if ye shall hearken diligently unto my commandments which I command you this day, to love the LORD your God, and to serve him with all your heart and with all your soul,  
-> <sup>14</sup> That I will give *you* the rain of your land in his due season, the first rain and the latter rain, that thou mayest gather in thy corn, and thy wine, and thine oil.  
-> <sup>15</sup> And I will send grass in thy fields for thy cattle, that thou mayest eat and be full.  
-> <sup>16</sup> Take heed to yourselves, that your heart be not deceived, and ye turn aside, and serve other gods, and worship them;  
-> <sup>17</sup> And *then* the LORD's wrath be kindled against you, and he shut up the heaven, that there be no rain, and that the land yield not her fruit; and *lest* ye perish quickly from off the good land which the LORD giveth you.  
+> **⁸** Therefore shall ye keep all the commandments which I command you this day, that ye may be strong, and go in and possess the land, whither ye go to possess it;  
+> **⁹** And that ye may prolong *your* days in the land, which the LORD sware unto your fathers to give unto them and to their seed, a land that floweth with milk and honey.  
+> **¹⁰** For the land, whither thou goest in to possess it, *is* not as the land of Egypt, from whence ye came out, where thou sowedst thy seed, and wateredst *it* with thy foot, as a garden of herbs:  
+> **¹¹** But the land, whither ye go to possess it, *is* a land of hills and valleys, *and* drinketh water of the rain of heaven:  
+> **¹²** A land which the LORD thy God careth for: the eyes of the LORD thy God *are* always upon it, from the beginning of the year even unto the end of the year.  
+> **¹³** And it shall come to pass, if ye shall hearken diligently unto my commandments which I command you this day, to love the LORD your God, and to serve him with all your heart and with all your soul,  
+> **¹⁴** That I will give *you* the rain of your land in his due season, the first rain and the latter rain, that thou mayest gather in thy corn, and thy wine, and thine oil.  
+> **¹⁵** And I will send grass in thy fields for thy cattle, that thou mayest eat and be full.  
+> **¹⁶** Take heed to yourselves, that your heart be not deceived, and ye turn aside, and serve other gods, and worship them;  
+> **¹⁷** And *then* the LORD's wrath be kindled against you, and he shut up the heaven, that there be no rain, and that the land yield not her fruit; and *lest* ye perish quickly from off the good land which the LORD giveth you.  
 
 Still Moses urges the same subject, as loth to conclude till he had gained his point. "*If thou wilt enter into life,* if thou wilt enter into Canaan, a type of that life, and find it a good land indeed to thee, *keep the commandments: Keep all the commandments which I command you this day;* love God, and serve him with all your heart."
 
@@ -41,14 +41,14 @@ III\. Because God would certainly bless them with an abundance of all good thing
 
 IV\. Because their revolt from God to idols. would certainly be their ruin: *Take heed that your hearts be not deceived,* De 11:16,17. All that forsake God to set their affection upon, or pay their devotion to, any creature, will find themselves wretchedly deceived to their own destruction; and this will aggravate it that it was purely for want of taking heed. A little care would have prevented their being imposed upon by the great deceiver. To awaken them to take heed, Moses here tells them plainly that if they should *turn aside to other gods,* 1. They would provoke the wrath of God against them; and *who knows the power of that anger?* 2. Good things would be turned away from them; the heaven would withhold its rain, and then of course the earth would not yield its fruit. 3. Evil things would come upon them; they would perish quickly from off this good land. And the better the land was the more grievous it would be to perish from it. The goodness of the land would not be their security, when the badness of the inhabitants had made them ripe for ruin.
 
-> <sup>18</sup> Therefore shall ye lay up these my words in your heart and in your soul, and bind them for a sign upon your hand, that they may be as frontlets between your eyes.  
-> <sup>19</sup> And ye shall teach them your children, speaking of them when thou sittest in thine house, and when thou walkest by the way, when thou liest down, and when thou risest up.  
-> <sup>20</sup> And thou shalt write them upon the door posts of thine house, and upon thy gates:  
-> <sup>21</sup> That your days may be multiplied, and the days of your children, in the land which the LORD sware unto your fathers to give them, as the days of heaven upon the earth.  
-> <sup>22</sup> For if ye shall diligently keep all these commandments which I command you, to do them, to love the LORD your God, to walk in all his ways, and to cleave unto him;  
-> <sup>23</sup> Then will the LORD drive out all these nations from before you, and ye shall possess greater nations and mightier than yourselves.  
-> <sup>24</sup> Every place whereon the soles of your feet shall tread shall be yours: from the wilderness and Lebanon, from the river, the river Euphrates, even unto the uttermost sea shall your coast be.  
-> <sup>25</sup> There shall no man be able to stand before you: *for* the LORD your God shall lay the fear of you and the dread of you upon all the land that ye shall tread upon, as he hath said unto you.  
+> **¹⁸** Therefore shall ye lay up these my words in your heart and in your soul, and bind them for a sign upon your hand, that they may be as frontlets between your eyes.  
+> **¹⁹** And ye shall teach them your children, speaking of them when thou sittest in thine house, and when thou walkest by the way, when thou liest down, and when thou risest up.  
+> **²⁰** And thou shalt write them upon the door posts of thine house, and upon thy gates:  
+> **²¹** That your days may be multiplied, and the days of your children, in the land which the LORD sware unto your fathers to give them, as the days of heaven upon the earth.  
+> **²²** For if ye shall diligently keep all these commandments which I command you, to do them, to love the LORD your God, to walk in all his ways, and to cleave unto him;  
+> **²³** Then will the LORD drive out all these nations from before you, and ye shall possess greater nations and mightier than yourselves.  
+> **²⁴** Every place whereon the soles of your feet shall tread shall be yours: from the wilderness and Lebanon, from the river, the river Euphrates, even unto the uttermost sea shall your coast be.  
+> **²⁵** There shall no man be able to stand before you: *for* the LORD your God shall lay the fear of you and the dread of you upon all the land that ye shall tread upon, as he hath said unto you.  
 
 Here, I. Moses repeats the directions he had given for the guidance and assistance of the people in their obedience, and for the keeping up of religion among them (De 11:18-20), which is much to the same purport with what we had before, De 6:6, etc. Let us all be directed by the three rules here given:—1. Let our hearts be filled with the word of God: *Lay up these words in your heart and in your soul.* The heart must be the treasury or store-house in which the word of God must be laid up, to be used upon all occasions. We cannot expect good practices in the conversation, unless there be good thoughts, good affections, and good principles, in the heart. 2. Let our eyes be fixed upon the word of God. "Bind these words for a sign *upon your hand,* which is always in view (Isa 49:16), *and as frontlets between your eyes,* which you cannot avoid the sight of; let them be as ready and familiar to you, and have your eye as constantly upon them, as if they were *written upon your door-posts,* and could not be overlooked either when you go out or when you come in." Thus we must *lay God's judgments before us,* having a constant regard to them, as the guide of our way, as the rule of our work, Ps 119:30. 3. Let our tongues be employed about the word of God. Let it be the subject of our familiar discourse, wherever we are; especially with our children, who must be taught the service of God, as the one thing needful, much more needful than either the rules of decency or the calling they must live by in this world. Great care and pains must be taken to acquaint children betimes, and to affect them, with the word of God and the wondrous things of his law. Nor will any thing contribute more to the prosperity and perpetuity of religion in a nation than the good education of children: if the seed be holy, it is the substance of a land.
 
@@ -56,13 +56,13 @@ II\. He repeats the assurances he had before given them, in God's name, of prosp
 
 ## The Blessing and the Curse. (b. c. 1451.)
 
-> <sup>26</sup> Behold, I set before you this day a blessing and a curse;  
-> <sup>27</sup> A blessing, if ye obey the commandments of the LORD your God, which I command you this day:  
-> <sup>28</sup> And a curse, if ye will not obey the commandments of the LORD your God, but turn aside out of the way which I command you this day, to go after other gods, which ye have not known.  
-> <sup>29</sup> And it shall come to pass, when the LORD thy God hath brought thee in unto the land whither thou goest to possess it, that thou shalt put the blessing upon mount Gerizim, and the curse upon mount Ebal.  
-> <sup>30</sup> *Are* they not on the other side Jordan, by the way where the sun goeth down, in the land of the Canaanites, which dwell in the champaign over against Gilgal, beside the plains of Moreh?  
-> <sup>31</sup> For ye shall pass over Jordan to go in to possess the land which the LORD your God giveth you, and ye shall possess it, and dwell therein.  
-> <sup>32</sup> And ye shall observe to do all the statutes and judgments which I set before you this day.  
+> **²⁶** Behold, I set before you this day a blessing and a curse;  
+> **²⁷** A blessing, if ye obey the commandments of the LORD your God, which I command you this day:  
+> **²⁸** And a curse, if ye will not obey the commandments of the LORD your God, but turn aside out of the way which I command you this day, to go after other gods, which ye have not known.  
+> **²⁹** And it shall come to pass, when the LORD thy God hath brought thee in unto the land whither thou goest to possess it, that thou shalt put the blessing upon mount Gerizim, and the curse upon mount Ebal.  
+> **³⁰** *Are* they not on the other side Jordan, by the way where the sun goeth down, in the land of the Canaanites, which dwell in the champaign over against Gilgal, beside the plains of Moreh?  
+> **³¹** For ye shall pass over Jordan to go in to possess the land which the LORD your God giveth you, and ye shall possess it, and dwell therein.  
+> **³²** And ye shall observe to do all the statutes and judgments which I set before you this day.  
 
 Here Moses concludes his general exhortations to obedience; and his management is very affecting, and such as, one would think, should have engaged them for ever to God, and should have left impressions upon them never to be worn out.
 

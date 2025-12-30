@@ -8,17 +8,17 @@ Never surely did any kingdom change its king so much for the worse as Judah did,
 
 ## Jehoram's Wicked Reign. (b. c. 889.)
 
-> <sup>1</sup> Now Jehoshaphat slept with his fathers, and was buried with his fathers in the city of David. And Jehoram his son reigned in his stead.  
-> <sup>2</sup> And he had brethren the sons of Jehoshaphat, Azariah, and Jehiel, and Zechariah, and Azariah, and Michael, and Shephatiah: all these *were* the sons of Jehoshaphat king of Israel.  
-> <sup>3</sup> And their father gave them great gifts of silver, and of gold, and of precious things, with fenced cities in Judah: but the kingdom gave he to Jehoram; because he *was* the firstborn.  
-> <sup>4</sup> Now when Jehoram was risen up to the kingdom of his father, he strengthened himself, and slew all his brethren with the sword, and *divers* also of the princes of Israel.  
-> <sup>5</sup> Jehoram *was* thirty and two years old when he began to reign, and he reigned eight years in Jerusalem.  
-> <sup>6</sup> And he walked in the way of the kings of Israel, like as did the house of Ahab: for he had the daughter of Ahab to wife: and he wrought *that which was* evil in the eyes of the LORD.  
-> <sup>7</sup> Howbeit the LORD would not destroy the house of David, because of the covenant that he had made with David, and as he promised to give a light to him and to his sons for ever.  
-> <sup>8</sup> In his days the Edomites revolted from under the dominion of Judah, and made themselves a king.  
-> <sup>9</sup> Then Jehoram went forth with his princes, and all his chariots with him: and he rose up by night, and smote the Edomites which compassed him in, and the captains of the chariots.  
-> <sup>10</sup> So the Edomites revolted from under the hand of Judah unto this day. The same time *also* did Libnah revolt from under his hand; because he had forsaken the LORD God of his fathers.  
-> <sup>11</sup> Moreover he made high places in the mountains of Judah, and caused the inhabitants of Jerusalem to commit fornication, and compelled Judah *thereto.*  
+> **¹** Now Jehoshaphat slept with his fathers, and was buried with his fathers in the city of David. And Jehoram his son reigned in his stead.  
+> **²** And he had brethren the sons of Jehoshaphat, Azariah, and Jehiel, and Zechariah, and Azariah, and Michael, and Shephatiah: all these *were* the sons of Jehoshaphat king of Israel.  
+> **³** And their father gave them great gifts of silver, and of gold, and of precious things, with fenced cities in Judah: but the kingdom gave he to Jehoram; because he *was* the firstborn.  
+> **⁴** Now when Jehoram was risen up to the kingdom of his father, he strengthened himself, and slew all his brethren with the sword, and *divers* also of the princes of Israel.  
+> **⁵** Jehoram *was* thirty and two years old when he began to reign, and he reigned eight years in Jerusalem.  
+> **⁶** And he walked in the way of the kings of Israel, like as did the house of Ahab: for he had the daughter of Ahab to wife: and he wrought *that which was* evil in the eyes of the LORD.  
+> **⁷** Howbeit the LORD would not destroy the house of David, because of the covenant that he had made with David, and as he promised to give a light to him and to his sons for ever.  
+> **⁸** In his days the Edomites revolted from under the dominion of Judah, and made themselves a king.  
+> **⁹** Then Jehoram went forth with his princes, and all his chariots with him: and he rose up by night, and smote the Edomites which compassed him in, and the captains of the chariots.  
+> **¹⁰** So the Edomites revolted from under the hand of Judah unto this day. The same time *also* did Libnah revolt from under his hand; because he had forsaken the LORD God of his fathers.  
+> **¹¹** Moreover he made high places in the mountains of Judah, and caused the inhabitants of Jerusalem to commit fornication, and compelled Judah *thereto.*  
 
 We find here,
 
@@ -34,15 +34,15 @@ V\. That yet God was tender of his covenant with the house of David, and therefo
 
 ## Jehoram's Miserable End. (b. c. 884.)
 
-> <sup>12</sup> And there came a writing to him from Elijah the prophet, saying, Thus saith the LORD God of David thy father, Because thou hast not walked in the ways of Jehoshaphat thy father, nor in the ways of Asa king of Judah,  
-> <sup>13</sup> But hast walked in the way of the kings of Israel, and hast made Judah and the inhabitants of Jerusalem to go a whoring, like to the whoredoms of the house of Ahab, and also hast slain thy brethren of thy father's house, *which were* better than thyself:  
-> <sup>14</sup> Behold, with a great plague will the LORD smite thy people, and thy children, and thy wives, and all thy goods:  
-> <sup>15</sup> And thou *shalt have* great sickness by disease of thy bowels, until thy bowels fall out by reason of the sickness day by day.  
-> <sup>16</sup> Moreover the LORD stirred up against Jehoram the spirit of the Philistines, and of the Arabians, that *were* near the Ethiopians:  
-> <sup>17</sup> And they came up into Judah, and brake into it, and carried away all the substance that was found in the king's house, and his sons also, and his wives; so that there was never a son left him, save Jehoahaz, the youngest of his sons.  
-> <sup>18</sup> And after all this the LORD smote him in his bowels with an incurable disease.  
-> <sup>19</sup> And it came to pass, that in process of time, after the end of two years, his bowels fell out by reason of his sickness: so he died of sore diseases. And his people made no burning for him, like the burning of his fathers.  
-> <sup>20</sup> Thirty and two years old was he when he began to reign, and he reigned in Jerusalem eight years, and departed without being desired. Howbeit they buried him in the city of David, but not in the sepulchres of the kings.  
+> **¹²** And there came a writing to him from Elijah the prophet, saying, Thus saith the LORD God of David thy father, Because thou hast not walked in the ways of Jehoshaphat thy father, nor in the ways of Asa king of Judah,  
+> **¹³** But hast walked in the way of the kings of Israel, and hast made Judah and the inhabitants of Jerusalem to go a whoring, like to the whoredoms of the house of Ahab, and also hast slain thy brethren of thy father's house, *which were* better than thyself:  
+> **¹⁴** Behold, with a great plague will the LORD smite thy people, and thy children, and thy wives, and all thy goods:  
+> **¹⁵** And thou *shalt have* great sickness by disease of thy bowels, until thy bowels fall out by reason of the sickness day by day.  
+> **¹⁶** Moreover the LORD stirred up against Jehoram the spirit of the Philistines, and of the Arabians, that *were* near the Ethiopians:  
+> **¹⁷** And they came up into Judah, and brake into it, and carried away all the substance that was found in the king's house, and his sons also, and his wives; so that there was never a son left him, save Jehoahaz, the youngest of his sons.  
+> **¹⁸** And after all this the LORD smote him in his bowels with an incurable disease.  
+> **¹⁹** And it came to pass, that in process of time, after the end of two years, his bowels fell out by reason of his sickness: so he died of sore diseases. And his people made no burning for him, like the burning of his fathers.  
+> **²⁰** Thirty and two years old was he when he began to reign, and he reigned in Jerusalem eight years, and departed without being desired. Howbeit they buried him in the city of David, but not in the sepulchres of the kings.  
 
 Here we have, I. A warning from God sent to Jehoram by a writing from Elijah the prophet. By this it appears that Jehoram came to the throne, and showed himself what he was before Elijah's translation. It is true we find Elisha attending Jehoshaphat, and described as pouring water on the hands of Elijah, after the story of Elijah's translation (2Ki 3:11); but that might be, and that description might be given of him, while Elijah was yet on earth: and it is certain that that history is put out of its proper place, for we read of Jehoshaphat's death, and Jehoram's coming to the crown, before we read of Elijah's translation, 1Ki 22:50. We will suppose that the time of his departure was at hand, so that he could not go in person to Jehoram; but that, hearing of his great wickedness in murdering his brethren, he left this writing it is probable with Elisha, to be sent him by the first opportunity, that it might either be a means to reclaim him or a witness against him that he was fairly told what would be in the end hereof. The message is sent him in the name of *the Lord God of David his father* (2Ch 21:12), upbraiding him with his relation to David as that which, though it was his honour, was an aggravation of his degeneracy. 1. His crimes are plainly charged upon him—his departure from the good ways of God, in which he had been educated, and which he had been directed and encouraged to walk in by the example of his good father and grandfather, who lived and died in peace and honour (2Ch 21:12)—his conformity to the ways of the house of Ahab, that impious scandalous family—his setting up and enforcing idolatry in his kingdom—and his murdering his brethren because they were better than himself, 2Ch 21:13. These are the heads of the indictment against him. 2. Judgment is given against him for these crimes; he is plainly told that his sin should certainly be the ruin, (1.) Of his kingdom and family (2Ch 21:14): "With a heavy stroke, even that of war and captivity, *will the Lord smite thy people and thy children,*" etc. Bad men bring God's judgments upon all about them. His people justly suffer because they had complied with his idolatry, and his wives because they had drawn him to it. (2.) Of his health and life: "Thou shalt have great sickness, very painful and tedious, and at last mortal," 2Ch 21:15. This he is warned of before, that his blood might be upon his own head, the watchman having delivered his soul; and that when these things so particularly foretold, came to pass, it might appear that they did not come by chance, but as the punishment of his sins, and were so intended. And now if, as he had learned of Ahab to do wickedly, he had but learned even of Ahab to humble himself upon the receipt of this threatening message from Elijah—if, like (1Ki 21:27), he had *rent his clothes, put on sackcloth, and fasted*—who knows but, like him, he might have obtained at least a reprieve? But it does not appear that he took any notice of it; he threw it by as waste-paper; Elijah seemed to him *as one that mocked.* But those that will not believe shall feel.
 

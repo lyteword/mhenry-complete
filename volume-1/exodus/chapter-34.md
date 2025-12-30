@@ -8,10 +8,10 @@ God having in the foregoing chapter intimated to Moses his reconciliation to Isr
 
 ## God's Proclamation of Himself. (b. c. 1491.)
 
-> <sup>1</sup> And the LORD said unto Moses, Hew thee two tables of stone like unto the first: and I will write upon *these* tables the words that were in the first tables, which thou brakest.  
-> <sup>2</sup> And be ready in the morning, and come up in the morning unto Mount Sinai, and present thyself there to me in the top of the mount.  
-> <sup>3</sup> And no man shall come up with thee, neither let any man be seen throughout all the mount; neither let the flocks nor herds feed before that mount.  
-> <sup>4</sup> And he hewed two tables of stone like unto the first; and Moses rose up early in the morning, and went up unto Mount Sinai, as the LORD had commanded him, and took in his hand the two tables of stone.  
+> **¹** And the LORD said unto Moses, Hew thee two tables of stone like unto the first: and I will write upon *these* tables the words that were in the first tables, which thou brakest.  
+> **²** And be ready in the morning, and come up in the morning unto Mount Sinai, and present thyself there to me in the top of the mount.  
+> **³** And no man shall come up with thee, neither let any man be seen throughout all the mount; neither let the flocks nor herds feed before that mount.  
+> **⁴** And he hewed two tables of stone like unto the first; and Moses rose up early in the morning, and went up unto Mount Sinai, as the LORD had commanded him, and took in his hand the two tables of stone.  
 
 The treaty that was on foot between God and Israel being broken off abruptly, by their worshipping the golden calf, when peace was made all must be begun anew, not where they left off, but from the beginning. Thus backsliders must *repent, and do their first works,* Re 2:5.
 
@@ -19,11 +19,11 @@ I\. Moses must prepare for the renewing of the tables, Ex 34:1. Before, God hims
 
 II\. Moses must attend again on the top of Mount Sinai, and present himself to God there, Ex 34:2. Though the absence of Moses, and his continuance so long on the mount, had lately occasioned their making the golden calf, yet God did not therefore alter his measures, but he shall come up and tarry as long as he had done, to try whether they had learned to wait. To strike an awe upon the people, they are directed to keep their distance, none must come up with him, Ex 34:3. They had said (Ex 32:1), *We know not what has become of him,* and God will not let them know. Moses, accordingly, *rose up early* (Ex 34:4) to go to the place appointed, to show how forward he was to present himself before God and loth to lose time. It is good to be early at our devotions. The morning is perhaps as good a friend to the graces as it is to the muses.
 
-> <sup>5</sup> And the LORD descended in the cloud, and stood with him there, and proclaimed the name of the LORD.  
-> <sup>6</sup> And the LORD passed by before him, and proclaimed, The LORD, The LORD God, merciful and gracious, longsuffering, and abundant in goodness and truth,  
-> <sup>7</sup> Keeping mercy for thousands, forgiving iniquity and transgression and sin, and that will by no means clear *the guilty;* visiting the iniquity of the fathers upon the children, and upon the children's children, unto the third and to the fourth *generation.*  
-> <sup>8</sup> And Moses made haste, and bowed his head toward the earth, and worshipped.  
-> <sup>9</sup> And he said, If now I have found grace in thy sight, O Lord, let my Lord, I pray thee, go among us; for it *is* a stiffnecked people; and pardon our iniquity and our sin, and take us for thine inheritance.  
+> **⁵** And the LORD descended in the cloud, and stood with him there, and proclaimed the name of the LORD.  
+> **⁶** And the LORD passed by before him, and proclaimed, The LORD, The LORD God, merciful and gracious, longsuffering, and abundant in goodness and truth,  
+> **⁷** Keeping mercy for thousands, forgiving iniquity and transgression and sin, and that will by no means clear *the guilty;* visiting the iniquity of the fathers upon the children, and upon the children's children, unto the third and to the fourth *generation.*  
+> **⁸** And Moses made haste, and bowed his head toward the earth, and worshipped.  
+> **⁹** And he said, If now I have found grace in thy sight, O Lord, let my Lord, I pray thee, go among us; for it *is* a stiffnecked people; and pardon our iniquity and our sin, and take us for thine inheritance.  
 
 No sooner had Moses got to the top of the mount than God gave him the meeting (Ex 34:5): *The Lord descended,* by some sensible token of his presence, and manifestation of his glory. His descending bespeaks his condescension; he humbles himself to take cognizance of those that humble themselves to walk with him. Ps 113:6, *Lord, what is man, that he should be thus visited?* He descended *in the cloud,* probably that pillar of cloud which had hitherto gone before Israel, and had the day before met Moses at the door of the tabernacle. This cloud was to strike an awe upon Moses, that the familiarity he was admitted to might not breed contempt. The disciples *feared, when they entered the cloud.* His making a cloud his pavilion intimated that, though he made known much of himself, yet there was much more concealed. Now observe,
 
@@ -43,14 +43,14 @@ II\. How Moses received this declaration which God made of himself, and of his g
 
 ## A Caution Against Idolatry. (b. c. 1491.)
 
-> <sup>10</sup> And he said, Behold, I make a covenant: before all thy people I will do marvels, such as have not been done in all the earth, nor in any nation: and all the people among which thou *art* shall see the work of the LORD: for it *is* a terrible thing that I will do with thee.  
-> <sup>11</sup> Observe thou that which I command thee this day: behold, I drive out before thee the Amorite, and the Canaanite, and the Hittite, and the Perizzite, and the Hivite, and the Jebusite.  
-> <sup>12</sup> Take heed to thyself, lest thou make a covenant with the inhabitants of the land whither thou goest, lest it be for a snare in the midst of thee:  
-> <sup>13</sup> But ye shall destroy their altars, break their images, and cut down their groves:  
-> <sup>14</sup> For thou shalt worship no other god: for the LORD, whose name *is* Jealous, *is* a jealous God:  
-> <sup>15</sup> Lest thou make a covenant with the inhabitants of the land, and they go a whoring after their gods, and do sacrifice unto their gods, and *one* call thee, and thou eat of his sacrifice;  
-> <sup>16</sup> And thou take of their daughters unto thy sons, and their daughters go a whoring after their gods, and make thy sons go a whoring after their gods.  
-> <sup>17</sup> Thou shalt make thee no molten gods.  
+> **¹⁰** And he said, Behold, I make a covenant: before all thy people I will do marvels, such as have not been done in all the earth, nor in any nation: and all the people among which thou *art* shall see the work of the LORD: for it *is* a terrible thing that I will do with thee.  
+> **¹¹** Observe thou that which I command thee this day: behold, I drive out before thee the Amorite, and the Canaanite, and the Hittite, and the Perizzite, and the Hivite, and the Jebusite.  
+> **¹²** Take heed to thyself, lest thou make a covenant with the inhabitants of the land whither thou goest, lest it be for a snare in the midst of thee:  
+> **¹³** But ye shall destroy their altars, break their images, and cut down their groves:  
+> **¹⁴** For thou shalt worship no other god: for the LORD, whose name *is* Jealous, *is* a jealous God:  
+> **¹⁵** Lest thou make a covenant with the inhabitants of the land, and they go a whoring after their gods, and do sacrifice unto their gods, and *one* call thee, and thou eat of his sacrifice;  
+> **¹⁶** And thou take of their daughters unto thy sons, and their daughters go a whoring after their gods, and make thy sons go a whoring after their gods.  
+> **¹⁷** Thou shalt make thee no molten gods.  
 
 Reconciliation being made, a covenant of friendship is here settled between God and Israel. The traitors are not only pardoned, but preferred and made favourites again. Well may the assurances of this be ushered in with a *behold,* a word commanding attention and admiration: *Behold, I make a covenant.* When the covenant was broken, it was Israel that broke it; now that it comes to be renewed, it is God that makes it. If there be quarrels, we must bear all the blame; if there be peace, God must have all the glory. Here is,
 
@@ -64,16 +64,16 @@ II\. Their part of the covenant: *Observe that which I command thee.* We cannot 
 
 ## Solemn Feasts Appointed. (b. c. 1491.)
 
-> <sup>18</sup> The feast of unleavened bread shalt thou keep. Seven days thou shalt eat unleavened bread, as I commanded thee, in the time of the month Abib: for in the month Abib thou camest out from Egypt.  
-> <sup>19</sup> All that openeth the matrix *is* mine; and every firstling among thy cattle, *whether* ox or sheep, *that is male.*  
-> <sup>20</sup> But the firstling of an ass thou shalt redeem with a lamb: and if thou redeem *him* not, then shalt thou break his neck. All the firstborn of thy sons thou shalt redeem. And none shall appear before me empty.  
-> <sup>21</sup> Six days thou shalt work, but on the seventh day thou shalt rest: in earing time and in harvest thou shalt rest.  
-> <sup>22</sup> And thou shalt observe the feast of weeks, of the firstfruits of wheat harvest, and the feast of ingathering at the year's end.  
-> <sup>23</sup> Thrice in the year shall all your men children appear before the Lord GOD, the God of Israel.  
-> <sup>24</sup> For I will cast out the nations before thee, and enlarge thy borders: neither shall any man desire thy land, when thou shalt go up to appear before the LORD thy God thrice in the year.  
-> <sup>25</sup> Thou shalt not offer the blood of my sacrifice with leaven; neither shall the sacrifice of the feast of the passover be left unto the morning.  
-> <sup>26</sup> The first of the firstfruits of thy land thou shalt bring unto the house of the LORD thy God. Thou shalt not seethe a kid in his mother's milk.  
-> <sup>27</sup> And the LORD said unto Moses, Write thou these words: for after the tenor of these words I have made a covenant with thee and with Israel.  
+> **¹⁸** The feast of unleavened bread shalt thou keep. Seven days thou shalt eat unleavened bread, as I commanded thee, in the time of the month Abib: for in the month Abib thou camest out from Egypt.  
+> **¹⁹** All that openeth the matrix *is* mine; and every firstling among thy cattle, *whether* ox or sheep, *that is male.*  
+> **²⁰** But the firstling of an ass thou shalt redeem with a lamb: and if thou redeem *him* not, then shalt thou break his neck. All the firstborn of thy sons thou shalt redeem. And none shall appear before me empty.  
+> **²¹** Six days thou shalt work, but on the seventh day thou shalt rest: in earing time and in harvest thou shalt rest.  
+> **²²** And thou shalt observe the feast of weeks, of the firstfruits of wheat harvest, and the feast of ingathering at the year's end.  
+> **²³** Thrice in the year shall all your men children appear before the Lord GOD, the God of Israel.  
+> **²⁴** For I will cast out the nations before thee, and enlarge thy borders: neither shall any man desire thy land, when thou shalt go up to appear before the LORD thy God thrice in the year.  
+> **²⁵** Thou shalt not offer the blood of my sacrifice with leaven; neither shall the sacrifice of the feast of the passover be left unto the morning.  
+> **²⁶** The first of the firstfruits of thy land thou shalt bring unto the house of the LORD thy God. Thou shalt not seethe a kid in his mother's milk.  
+> **²⁷** And the LORD said unto Moses, Write thou these words: for after the tenor of these words I have made a covenant with thee and with Israel.  
 
 Here is a repetition of several appointments made before, especially relating to their solemn feasts. When they had made the calf, they proclaimed a feast in honour of it; now, that they might never do so again, they are here charged with the observance of the feasts which God had instituted. Note, Men need not be drawn from their religion by the temptation of mirth, for we serve a Master that has abundantly provided for the joy of his servants: serious godliness is a continual feast, and joy in God always.
 
@@ -87,14 +87,14 @@ IV\. With these laws, here repeated, it is probable all that was said to him whe
 
 ## The Veil of Moses. (b. c. 1491.)
 
-> <sup>28</sup> And he was there with the LORD forty days and forty nights; he did neither eat bread, nor drink water. And he wrote upon the tables the words of the covenant, the ten commandments.  
-> <sup>29</sup> And it came to pass, when Moses came down from Mount Sinai with the two tables of testimony in Moses' hand, when he came down from the mount, that Moses wist not that the skin of his face shone while he talked with him.  
-> <sup>30</sup> And when Aaron and all the children of Israel saw Moses, behold, the skin of his face shone; and they were afraid to come nigh him.  
-> <sup>31</sup> And Moses called unto them; and Aaron and all the rulers of the congregation returned unto him: and Moses talked with them.  
-> <sup>32</sup> And afterward all the children of Israel came nigh: and he gave them in commandment all that the LORD had spoken with him in mount Sinai.  
-> <sup>33</sup> And *till* Moses had done speaking with them, he put a vail on his face.  
-> <sup>34</sup> But when Moses went in before the LORD to speak with him, he took the vail off, until he came out. And he came out, and spake unto the children of Israel *that* which he was commanded.  
-> <sup>35</sup> And the children of Israel saw the face of Moses, that the skin of Moses' face shone: and Moses put the vail upon his face again, until he went in to speak with him.  
+> **²⁸** And he was there with the LORD forty days and forty nights; he did neither eat bread, nor drink water. And he wrote upon the tables the words of the covenant, the ten commandments.  
+> **²⁹** And it came to pass, when Moses came down from Mount Sinai with the two tables of testimony in Moses' hand, when he came down from the mount, that Moses wist not that the skin of his face shone while he talked with him.  
+> **³⁰** And when Aaron and all the children of Israel saw Moses, behold, the skin of his face shone; and they were afraid to come nigh him.  
+> **³¹** And Moses called unto them; and Aaron and all the rulers of the congregation returned unto him: and Moses talked with them.  
+> **³²** And afterward all the children of Israel came nigh: and he gave them in commandment all that the LORD had spoken with him in mount Sinai.  
+> **³³** And *till* Moses had done speaking with them, he put a vail on his face.  
+> **³⁴** But when Moses went in before the LORD to speak with him, he took the vail off, until he came out. And he came out, and spake unto the children of Israel *that* which he was commanded.  
+> **³⁵** And the children of Israel saw the face of Moses, that the skin of Moses' face shone: and Moses put the vail upon his face again, until he went in to speak with him.  
 
 Here is, I. The continuance of Moses in the mount, where he was miraculously sustained, Ex 34:28. He was there in very intimate communion with God, without interruption, forty days and forty nights, and did not think it long. When we are weary of an hour or two spent in attendance upon God and adoration of him, we should think how many days and nights Moses spent with him, and of the eternal day we hope to spend in praising him. During all this time Moses did neither eat nor drink. Though he had before been kept so long fasting, yet he did not, this second time, take up so many days' provision along with him, but believed that *man lives not by bread alone,* and encouraged himself with the experience he had of the truth of it. So long he continued without meat and drink (and probably without sleep too), for, 1. The power of God supported him, that he did not need it. He who made the body can nourish it without ordinary means, which he uses, but is not tied to. *The life is more than meat.* 2. His communion with God entertained him, so that he did not desire it. He had meat to eat which the world knew not of, for it was his meat and drink to hear the word of God and pray. The abundant satisfaction his soul had in the word of God and the visions of the Almighty made him forget the body and the pleasures of it. When God would treat his favourite Moses, it was not with meat and drink, but with his light, law, and love, with the knowledge of himself and his will; then man did indeed eat angels' food. See what we should value as the truest pleasure. *The kingdom of God is not meat and drink,* neither the abundance nor delicacy of food, but *righteousness and peace and joy in the Holy Ghost.* As Moses, so Elijah and Christ, fasted forty days and forty nights. The more dead we are to the delights of sense the better prepared we are for the pleasures of heaven.
 

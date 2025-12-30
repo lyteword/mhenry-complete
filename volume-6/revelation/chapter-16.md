@@ -8,13 +8,13 @@ In this chapter we have an account of the pouring forth of these vials that were
 
 ## The Seven Vials. (a. d. 95.)
 
-> <sup>1</sup> And I heard a great voice out of the temple saying to the seven angels, Go your ways, and pour out the vials of the wrath of God upon the earth.  
-> <sup>2</sup> And the first went, and poured out his vial upon the earth; and there fell a noisome and grievous sore upon the men which had the mark of the beast, and *upon* them which worshipped his image.  
-> <sup>3</sup> And the second angel poured out his vial upon the sea; and it became as the blood of a dead *man:* and every living soul died in the sea.  
-> <sup>4</sup> And the third angel poured out his vial upon the rivers and fountains of waters; and they became blood.  
-> <sup>5</sup> And I heard the angel of the waters say, Thou art righteous, O Lord, which art, and wast, and shalt be, because thou hast judged thus.  
-> <sup>6</sup> For they have shed the blood of saints and prophets, and thou hast given them blood to drink; for they are worthy.  
-> <sup>7</sup> And I heard another out of the altar say, Even so, Lord God Almighty, true and righteous *are* thy judgments.  
+> **¹** And I heard a great voice out of the temple saying to the seven angels, Go your ways, and pour out the vials of the wrath of God upon the earth.  
+> **²** And the first went, and poured out his vial upon the earth; and there fell a noisome and grievous sore upon the men which had the mark of the beast, and *upon* them which worshipped his image.  
+> **³** And the second angel poured out his vial upon the sea; and it became as the blood of a dead *man:* and every living soul died in the sea.  
+> **⁴** And the third angel poured out his vial upon the rivers and fountains of waters; and they became blood.  
+> **⁵** And I heard the angel of the waters say, Thou art righteous, O Lord, which art, and wast, and shalt be, because thou hast judged thus.  
+> **⁶** For they have shed the blood of saints and prophets, and thou hast given them blood to drink; for they are worthy.  
+> **⁷** And I heard another out of the altar say, Even so, Lord God Almighty, true and righteous *are* thy judgments.  
 
 We had in the foregoing chapter the great and solemn preparation that was made for the pouring out of the vials; now we have the performance of that work. Here observe,
 
@@ -36,20 +36,20 @@ II\. No sooner was the word of command given than it was immediately obeyed; no 
 
 ## The Seven Vials. (a. d. 95.)
 
-> <sup>8</sup> And the fourth angel poured out his vial upon the sun; and power was given unto him to scorch men with fire.  
-> <sup>9</sup> And men were scorched with great heat, and blasphemed the name of God, which hath power over these plagues: and they repented not to give him glory.  
-> <sup>10</sup> And the fifth angel poured out his vial upon the seat of the beast; and his kingdom was full of darkness; and they gnawed their tongues for pain,  
-> <sup>11</sup> And blasphemed the God of heaven because of their pains and their sores, and repented not of their deeds.  
+> **⁸** And the fourth angel poured out his vial upon the sun; and power was given unto him to scorch men with fire.  
+> **⁹** And men were scorched with great heat, and blasphemed the name of God, which hath power over these plagues: and they repented not to give him glory.  
+> **¹⁰** And the fifth angel poured out his vial upon the seat of the beast; and his kingdom was full of darkness; and they gnawed their tongues for pain,  
+> **¹¹** And blasphemed the God of heaven because of their pains and their sores, and repented not of their deeds.  
 
 In these verses we see the work going on in the appointed order. The fourth angel poured out his vial, and that fell upon the sun; that is, say some, upon some eminent prince of the popish communion, who should renounce their false religion a little while before his utter downfall; and some expect it will be the German emperor. And now what will be the consequence of this? That sun which before cherished them with warm and benign influences shall now grow hot against these idolaters, and shall scorch them. Princes shall use their power and authority to suppress them, which yet will be so far from bringing them to repentance, that it will cause them to curse God and their king, and look upward, throwing out their blasphemous speeches against the God of heaven; they will be hardened to their ruin. The fifth angel poured out his vial, Re 16:10. And observe, 1. Where this fell—*upon the seat of the beast,* upon Rome itself, the mystical Babylon, the head of the antichristian empire. 2. What effect it had there: The whole kingdom of the beast *was full of darkness* and distress. That very city which was the seat of their policy, the source of all their learning, and all their knowledge, and all their pomp and pleasure, now becomes a source of darkness, and pain, and anguish. Darkness was one of the plagues of Egypt, and it is opposed to lustre and honour, and so forebodes the contempt and scorn to which the antichristian interest should be exposed. Darkness is opposed to wisdom and penetration, and forebodes the confusion and folly which the idolaters should discover at that time. It is opposed to pleasure and joy, and so signifies their anguish and vexation of Spirit, when their calamities thus came upon them.
 
 ## The Seven Vials. (a. d. 95.)
 
-> <sup>12</sup> And the sixth angel poured out his vial upon the great river Euphrates; and the water thereof was dried up, that the way of the kings of the east might be prepared.  
-> <sup>13</sup> And I saw three unclean spirits like frogs *come* out of the mouth of the dragon, and out of the mouth of the beast, and out of the mouth of the false prophet.  
-> <sup>14</sup> For they are the spirits of devils, working miracles, *which* go forth unto the kings of the earth and of the whole world, to gather them to the battle of that great day of God Almighty.  
-> <sup>15</sup> Behold, I come as a thief. Blessed *is* he that watcheth, and keepeth his garments, lest he walk naked, and they see his shame.  
-> <sup>16</sup> And he gathered them together into a place called in the Hebrew tongue Armageddon.  
+> **¹²** And the sixth angel poured out his vial upon the great river Euphrates; and the water thereof was dried up, that the way of the kings of the east might be prepared.  
+> **¹³** And I saw three unclean spirits like frogs *come* out of the mouth of the dragon, and out of the mouth of the beast, and out of the mouth of the false prophet.  
+> **¹⁴** For they are the spirits of devils, working miracles, *which* go forth unto the kings of the earth and of the whole world, to gather them to the battle of that great day of God Almighty.  
+> **¹⁵** Behold, I come as a thief. Blessed *is* he that watcheth, and keepeth his garments, lest he walk naked, and they see his shame.  
+> **¹⁶** And he gathered them together into a place called in the Hebrew tongue Armageddon.  
 
 *The sixth angel poured out his vial;* and observe,
 
@@ -59,11 +59,11 @@ II\. What did this vial produce? 1. The drying up of the river, which furnished 
 
 ## The Seven Vials. (a. d. 95.)
 
-> <sup>17</sup> And the seventh angel poured out his vial into the air; and there came a great voice out of the temple of heaven, from the throne, saying, It is done.  
-> <sup>18</sup> And there were voices, and thunders, and lightnings; and there was a great earthquake, such as was not since men were upon the earth, so mighty an earthquake, *and* so great.  
-> <sup>19</sup> And the great city was divided into three parts, and the cities of the nations fell: and great Babylon came in remembrance before God, to give unto her the cup of the wine of the fierceness of his wrath.  
-> <sup>20</sup> And every island fled away, and the mountains were not found.  
-> <sup>21</sup> And there fell upon men a great hail out of heaven, *every stone* about the weight of a talent: and men blasphemed God because of the plague of the hail; for the plague thereof was exceeding great.  
+> **¹⁷** And the seventh angel poured out his vial into the air; and there came a great voice out of the temple of heaven, from the throne, saying, It is done.  
+> **¹⁸** And there were voices, and thunders, and lightnings; and there was a great earthquake, such as was not since men were upon the earth, so mighty an earthquake, *and* so great.  
+> **¹⁹** And the great city was divided into three parts, and the cities of the nations fell: and great Babylon came in remembrance before God, to give unto her the cup of the wine of the fierceness of his wrath.  
+> **²⁰** And every island fled away, and the mountains were not found.  
+> **²¹** And there fell upon men a great hail out of heaven, *every stone* about the weight of a talent: and men blasphemed God because of the plague of the hail; for the plague thereof was exceeding great.  
 
 Here we have an account of the seventh and last angel pouring forth his vial, contributing his part towards the accomplishment of the downfall of Babylon, which was the finishing stroke. And here, as before, observe,
 

@@ -8,9 +8,9 @@ We have here proper instructions given us (very proper to close the canon of the
 
 ## Evangelical Predictions. (b. c. 400.)
 
-> <sup>1</sup> For, behold, the day cometh, that shall burn as an oven; and all the proud, yea, and all that do wickedly, shall be stubble: and the day that cometh shall burn them up, saith the LORD of hosts, that it shall leave them neither root nor branch.  
-> <sup>2</sup> But unto you that fear my name shall the Sun of righteousness arise with healing in his wings; and ye shall go forth, and grow up as calves of the stall.  
-> <sup>3</sup> And ye shall tread down the wicked; for they shall be ashes under the soles of your feet in the day that I shall do *this,* saith the LORD of hosts.  
+> **¹** For, behold, the day cometh, that shall burn as an oven; and all the proud, yea, and all that do wickedly, shall be stubble: and the day that cometh shall burn them up, saith the LORD of hosts, that it shall leave them neither root nor branch.  
+> **²** But unto you that fear my name shall the Sun of righteousness arise with healing in his wings; and ye shall go forth, and grow up as calves of the stall.  
+> **³** And ye shall tread down the wicked; for they shall be ashes under the soles of your feet in the day that I shall do *this,* saith the LORD of hosts.  
 
 The great and terrible day of the Lord is here prophesied of. This, like the pillar of cloud and fire, shall have a dark side turned towards the Egyptians that fight against God, and a bright side towards the faithful Israelites that follow him: *The day cometh,* that is, the Lord cometh, the day of the Lord; and it has reference both to the first and to the second coming of Jesus Christ; the day of both was fixed, and should answer the character here given of it.
 
@@ -28,9 +28,9 @@ II\. In both Christ is a rejoicing light to those who serve him faithfully, to t
 
 ## Evangelical Predictions. (b. c. 400.)
 
-> <sup>4</sup> Remember ye the law of Moses my servant, which I commanded unto him in Horeb for all Israel, *with* the statutes and judgments.  
-> <sup>5</sup> Behold, I will send you Elijah the prophet before the coming of the great and dreadful day of the LORD:  
-> <sup>6</sup> And he shall turn the heart of the fathers to the children, and the heart of the children to their fathers, lest I come and smite the earth with a curse.  
+> **⁴** Remember ye the law of Moses my servant, which I commanded unto him in Horeb for all Israel, *with* the statutes and judgments.  
+> **⁵** Behold, I will send you Elijah the prophet before the coming of the great and dreadful day of the LORD:  
+> **⁶** And he shall turn the heart of the fathers to the children, and the heart of the children to their fathers, lest I come and smite the earth with a curse.  
 
 This is doubtless intended for a solemn conclusion, not only of this prophecy, but of the canon of the Old Testament, and is a plain information that they were not to expect any more sayings nor writing by divine inspiration, any more of the dictates of the Spirit of prophecy, till the beginning of the gospel of the Messiah, which sets aside the Apocrypha as no part of holy writ, and which therefore the Jews never received.
 

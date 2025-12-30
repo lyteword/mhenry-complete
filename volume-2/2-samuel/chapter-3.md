@@ -8,12 +8,12 @@ The battle between Joab and Abner did not end the controversy between the two ho
 
 ## David's Wives and Children. (b. c. 1048.)
 
-> <sup>1</sup> Now there was long war between the house of Saul and the house of David: but David waxed stronger and stronger, and the house of Saul waxed weaker and weaker.  
-> <sup>2</sup> And unto David were sons born in Hebron: and his firstborn was Amnon, of Ahinoam the Jezreelitess;  
-> <sup>3</sup> And his second, Chileab, of Abigail the wife of Nabal the Carmelite; and the third, Absalom the son of Maacah the daughter of Talmai king of Geshur;  
-> <sup>4</sup> And the fourth, Adonijah the son of Haggith; and the fifth, Shephatiah the son of Abital;  
-> <sup>5</sup> And the sixth, Ithream, by Eglah David's wife. These were born to David in Hebron.  
-> <sup>6</sup> And it came to pass, while there was war between the house of Saul and the house of David, that Abner made himself strong for the house of Saul.  
+> **¹** Now there was long war between the house of Saul and the house of David: but David waxed stronger and stronger, and the house of Saul waxed weaker and weaker.  
+> **²** And unto David were sons born in Hebron: and his firstborn was Amnon, of Ahinoam the Jezreelitess;  
+> **³** And his second, Chileab, of Abigail the wife of Nabal the Carmelite; and the third, Absalom the son of Maacah the daughter of Talmai king of Geshur;  
+> **⁴** And the fourth, Adonijah the son of Haggith; and the fifth, Shephatiah the son of Abital;  
+> **⁵** And the sixth, Ithream, by Eglah David's wife. These were born to David in Hebron.  
+> **⁶** And it came to pass, while there was war between the house of Saul and the house of David, that Abner made himself strong for the house of Saul.  
 
 Here is, I. The struggle that David had with the house of Saul before his settlement in the throne was completed, 2Sa 3:1. 1. Both sides contested. Saul's house, though beheaded and diminished, would not fall tamely. It is not strange between them, but one would wonder it should be a long war, when David's house had right on its side, and therefore God on its side; but, though truth and equity will triumph at last, God made for wise and holy ends prolonged the conflict. The length of this war tried the faith and patience of David, and made his establishment at last the more welcome to him. 2. David's side got ground. The house of Saul waxed weaker and weaker, lost places, lost men, sunk in its reputation, grew less considerable, and was foiled in every engagement. But the house of David grew stronger and stronger. Many deserted the declining cause of Saul's house, and prudently came into David's interest, being convinced that he would certainly win the day. The contest between grace and corruption in the hearts of believers, who are sanctified but in part, may fitly be compared to this recorded here. There is a long war between them, the flesh lusted against the spirit and the spirit against the flesh; but, as the work of sanctification is carried on, corruption, like the house of Saul, grows weaker and weaker; while grace, like the house of David, grows stronger and stronger, till it come to a perfect man, and judgment be brought forth unto victory.
 
@@ -23,21 +23,21 @@ Thus was David's house strengthened; but it was Abner that *made himself strong 
 
 ## Abner Deserts to David. (b. c. 1048.)
 
-> <sup>7</sup> And Saul had a concubine, whose name *was* Rizpah, the daughter of Aiah: and *Ishbosheth* said to Abner, Wherefore hast thou gone in unto my father's concubine?  
-> <sup>8</sup> Then was Abner very wroth for the words of Ishbosheth, and said, *Am* I a dog's head, which against Judah do shew kindness this day unto the house of Saul thy father, to his brethren, and to his friends, and have not delivered thee into the hand of David, that thou chargest me to day with a fault concerning this woman?  
-> <sup>9</sup> So do God to Abner, and more also, except, as the LORD hath sworn to David, even so I do to him;  
-> <sup>10</sup> To translate the kingdom from the house of Saul, and to set up the throne of David over Israel and over Judah, from Dan even to Beer-sheba.  
-> <sup>11</sup> And he could not answer Abner a word again, because he feared him.  
-> <sup>12</sup> And Abner sent messengers to David on his behalf, saying, Whose *is* the land? saying *also,* Make thy league with me, and, behold, my hand *shall be* with thee, to bring about all Israel unto thee.  
-> <sup>13</sup> And he said, Well; I will make a league with thee: but one thing I require of thee, that is, Thou shalt not see my face, except thou first bring Michal Saul's daughter, when thou comest to see my face.  
-> <sup>14</sup> And David sent messengers to Ishbosheth Saul's son, saying, Deliver *me* my wife Michal, which I espoused to me for an hundred foreskins of the Philistines.  
-> <sup>15</sup> And Ishbosheth sent, and took her from *her* husband, *even* from Phaltiel the son of Laish.  
-> <sup>16</sup> And her husband went with her along weeping behind her to Bahurim. Then said Abner unto him, Go, return. And he returned.  
-> <sup>17</sup> And Abner had communication with the elders of Israel, saying, Ye sought for David in times past *to be* king over you:  
-> <sup>18</sup> Now then do *it:* for the LORD hath spoken of David, saying, By the hand of my servant David I will save my people Israel out of the hand of the Philistines, and out of the hand of all their enemies.  
-> <sup>19</sup> And Abner also spake in the ears of Benjamin: and Abner went also to speak in the ears of David in Hebron all that seemed good to Israel, and that seemed good to the whole house of Benjamin.  
-> <sup>20</sup> So Abner came to David to Hebron, and twenty men with him. And David made Abner and the men that *were* with him a feast.  
-> <sup>21</sup> And Abner said unto David, I will arise and go, and will gather all Israel unto my lord the king, that they may make a league with thee, and that thou mayest reign over all that thine heart desireth. And David sent Abner away; and he went in peace.  
+> **⁷** And Saul had a concubine, whose name *was* Rizpah, the daughter of Aiah: and *Ishbosheth* said to Abner, Wherefore hast thou gone in unto my father's concubine?  
+> **⁸** Then was Abner very wroth for the words of Ishbosheth, and said, *Am* I a dog's head, which against Judah do shew kindness this day unto the house of Saul thy father, to his brethren, and to his friends, and have not delivered thee into the hand of David, that thou chargest me to day with a fault concerning this woman?  
+> **⁹** So do God to Abner, and more also, except, as the LORD hath sworn to David, even so I do to him;  
+> **¹⁰** To translate the kingdom from the house of Saul, and to set up the throne of David over Israel and over Judah, from Dan even to Beer-sheba.  
+> **¹¹** And he could not answer Abner a word again, because he feared him.  
+> **¹²** And Abner sent messengers to David on his behalf, saying, Whose *is* the land? saying *also,* Make thy league with me, and, behold, my hand *shall be* with thee, to bring about all Israel unto thee.  
+> **¹³** And he said, Well; I will make a league with thee: but one thing I require of thee, that is, Thou shalt not see my face, except thou first bring Michal Saul's daughter, when thou comest to see my face.  
+> **¹⁴** And David sent messengers to Ishbosheth Saul's son, saying, Deliver *me* my wife Michal, which I espoused to me for an hundred foreskins of the Philistines.  
+> **¹⁵** And Ishbosheth sent, and took her from *her* husband, *even* from Phaltiel the son of Laish.  
+> **¹⁶** And her husband went with her along weeping behind her to Bahurim. Then said Abner unto him, Go, return. And he returned.  
+> **¹⁷** And Abner had communication with the elders of Israel, saying, Ye sought for David in times past *to be* king over you:  
+> **¹⁸** Now then do *it:* for the LORD hath spoken of David, saying, By the hand of my servant David I will save my people Israel out of the hand of the Philistines, and out of the hand of all their enemies.  
+> **¹⁹** And Abner also spake in the ears of Benjamin: and Abner went also to speak in the ears of David in Hebron all that seemed good to Israel, and that seemed good to the whole house of Benjamin.  
+> **²⁰** So Abner came to David to Hebron, and twenty men with him. And David made Abner and the men that *were* with him a feast.  
+> **²¹** And Abner said unto David, I will arise and go, and will gather all Israel unto my lord the king, that they may make a league with thee, and that thou mayest reign over all that thine heart desireth. And David sent Abner away; and he went in peace.  
 
 Here, I. Abner breaks with Ish-bosheth, and deserts his interest, upon a little provocation which Ish-bosheth unadvisedly gave him. God can serve his own purposes by the sins and follies of men. 1. Ish-bosheth accused Abner of no less a crime than debauching one of his father's concubines, 2Sa 3:7. Whether it was so or no does not appear, nor what ground he had for the suspicion: but, however it was, it would have been Ish-bosheth's prudence to be silent, considering how much it was his interest not to disoblige Abner. If the thing was false, and his jealousy groundless, it was very disingenuous and ungrateful to entertain unjust surmises of one who had ventured his all for him, and was certainly the best friend he had in the world. 2. Abner resented the charge very strongly. Whether he was guilty of the *fault concerning this woman* or no he does not say (2Sa 3:8), but we suspect he was guilty, for he does not expressly deny it; and, though he was, he lets Ish-bosheth know, (1.) That he scorned to be reproached with it by him, and would not take reproof at his hands. "What!" says Abner, "*Am I a dog's head,* a vile and contemptible animal, that thou exposest me thus? 2Sa 3:8. Is this my recompence for the kindness I have shown to thee and thy father's house, and the good services I have done you?" He magnifies the service with this, that it was against Judah, the tribe on which the crown was settled, and which would certainly have it at last, so that, in supporting the house of Saul, he acted both against his conscience and against his interest, for which he deserved a better requital than this: and yet, perhaps, he would not have been so zealous for the house of Saul if he had not thereby gratified his own ambition and hoped to find his own account in it. Note, Proud men will not bear to be reproved, especially by those whom they think they have obliged. (2.) That he would certainly be revenged on him, 2Sa 3:9,10. With the utmost degree of arrogance and insolence he lets him know that, as he had raised him up, so he could pull him down again and would do it. He knew that God had sworn to David to give him the kingdom, and yet opposed it with all his might from a principle of ambition; but now he complies with it from a principle of revenge, under colour of some regard to the will of God, which was but a pretence. Those that are slaves to their lusts have many masters, which drive, some one way and some another, and, according as they make head, men are violently hurried into self-contradictions. Abner's ambition made him zealous for Ish-bosheth, and now his revenge made him as zealous for David. If he had sincerely regarded God's promise to David, and acted with an eye to that, he would have been steady and uniform in his counsels, and acted in consistency with himself. But, while Abner serves his own lusts, God by him serves his own purposes, makes even his wrath and revenge to praise him, and ordains strength to David by it. *Lastly,* See how Ish-bosheth was thunder-struck by Abner's insolence: He *could not answer him again,* 2Sa 3:11. If Ish-bosheth had had the spirit of a man, especially of a prince, he might have answered him that his merits were the aggravation of his crimes, that he would not be served by so base a man, and doubted not but to do well enough without him. But he was conscious to himself of his own weakness, and therefore said not a word, lest he should make bad worse. His heart failed him, and he now became, as David had foretold concerning his enemies, like a bowing wall and a *tottering fence,* Ps 62:3.
 
@@ -51,24 +51,24 @@ V\. David concludes the treaty with Abner; and he did wisely and well therein; f
 
 ## Joab Murders Abner; David's Reflections on Abner's Murder. (b. c. 1048.)
 
-> <sup>22</sup> And, behold, the servants of David and Joab came from *pursuing* a troop, and brought in a great spoil with them: but Abner *was* not with David in Hebron; for he had sent him away, and he was gone in peace.  
-> <sup>23</sup> When Joab and all the host that *was* with him were come, they told Joab, saying, Abner the son of Ner came to the king, and he hath sent him away, and he is gone in peace.  
-> <sup>24</sup> Then Joab came to the king, and said, What hast thou done? behold, Abner came unto thee; why *is* it *that* thou hast sent him away, and he is quite gone?  
-> <sup>25</sup> Thou knowest Abner the son of Ner, that he came to deceive thee, and to know thy going out and thy coming in, and to know all that thou doest.  
-> <sup>26</sup> And when Joab was come out from David, he sent messengers after Abner, which brought him again from the well of Sirah: but David knew *it* not.  
-> <sup>27</sup> And when Abner was returned to Hebron, Joab took him aside in the gate to speak with him quietly, and smote him there under the fifth *rib,* that he died, for the blood of Asahel his brother.  
-> <sup>28</sup> And afterward when David heard *it,* he said, I and my kingdom *are* guiltless before the LORD for ever from the blood of Abner the son of Ner:  
-> <sup>29</sup> Let it rest on the head of Joab, and on all his father's house; and let there not fail from the house of Joab one that hath an issue, or that is a leper, or that leaneth on a staff, or that falleth on the sword, or that lacketh bread.  
-> <sup>30</sup> So Joab and Abishai his brother slew Abner, because he had slain their brother Asahel at Gibeon in the battle.  
-> <sup>31</sup> And David said to Joab, and to all the people that *were* with him, Rend your clothes, and gird you with sackcloth, and mourn before Abner. And king David *himself* followed the bier.  
-> <sup>32</sup> And they buried Abner in Hebron: and the king lifted up his voice, and wept at the grave of Abner; and all the people wept.  
-> <sup>33</sup> And the king lamented over Abner, and said, Died Abner as a fool dieth?  
-> <sup>34</sup> Thy hands *were* not bound, nor thy feet put into fetters: as a man falleth before wicked men, *so* fellest thou. And all the people wept again over him.  
-> <sup>35</sup> And when all the people came to cause David to eat meat while it was yet day, David sware, saying, So do God to me, and more also, if I taste bread, or ought else, till the sun be down.  
-> <sup>36</sup> And all the people took notice *of it,* and it pleased them: as whatsoever the king did pleased all the people.  
-> <sup>37</sup> For all the people and all Israel understood that day that it was not of the king to slay Abner the son of Ner.  
-> <sup>38</sup> And the king said unto his servants, Know ye not that there is a prince and a great man fallen this day in Israel?  
-> <sup>39</sup> And I *am* this day weak, though anointed king; and these men the sons of Zeruiah *be* too hard for me: the LORD shall reward the doer of evil according to his wickedness.  
+> **²²** And, behold, the servants of David and Joab came from *pursuing* a troop, and brought in a great spoil with them: but Abner *was* not with David in Hebron; for he had sent him away, and he was gone in peace.  
+> **²³** When Joab and all the host that *was* with him were come, they told Joab, saying, Abner the son of Ner came to the king, and he hath sent him away, and he is gone in peace.  
+> **²⁴** Then Joab came to the king, and said, What hast thou done? behold, Abner came unto thee; why *is* it *that* thou hast sent him away, and he is quite gone?  
+> **²⁵** Thou knowest Abner the son of Ner, that he came to deceive thee, and to know thy going out and thy coming in, and to know all that thou doest.  
+> **²⁶** And when Joab was come out from David, he sent messengers after Abner, which brought him again from the well of Sirah: but David knew *it* not.  
+> **²⁷** And when Abner was returned to Hebron, Joab took him aside in the gate to speak with him quietly, and smote him there under the fifth *rib,* that he died, for the blood of Asahel his brother.  
+> **²⁸** And afterward when David heard *it,* he said, I and my kingdom *are* guiltless before the LORD for ever from the blood of Abner the son of Ner:  
+> **²⁹** Let it rest on the head of Joab, and on all his father's house; and let there not fail from the house of Joab one that hath an issue, or that is a leper, or that leaneth on a staff, or that falleth on the sword, or that lacketh bread.  
+> **³⁰** So Joab and Abishai his brother slew Abner, because he had slain their brother Asahel at Gibeon in the battle.  
+> **³¹** And David said to Joab, and to all the people that *were* with him, Rend your clothes, and gird you with sackcloth, and mourn before Abner. And king David *himself* followed the bier.  
+> **³²** And they buried Abner in Hebron: and the king lifted up his voice, and wept at the grave of Abner; and all the people wept.  
+> **³³** And the king lamented over Abner, and said, Died Abner as a fool dieth?  
+> **³⁴** Thy hands *were* not bound, nor thy feet put into fetters: as a man falleth before wicked men, *so* fellest thou. And all the people wept again over him.  
+> **³⁵** And when all the people came to cause David to eat meat while it was yet day, David sware, saying, So do God to me, and more also, if I taste bread, or ought else, till the sun be down.  
+> **³⁶** And all the people took notice *of it,* and it pleased them: as whatsoever the king did pleased all the people.  
+> **³⁷** For all the people and all Israel understood that day that it was not of the king to slay Abner the son of Ner.  
+> **³⁸** And the king said unto his servants, Know ye not that there is a prince and a great man fallen this day in Israel?  
+> **³⁹** And I *am* this day weak, though anointed king; and these men the sons of Zeruiah *be* too hard for me: the LORD shall reward the doer of evil according to his wickedness.  
 
 We have here an account of the murder of Abner by Joab, and David's deep resentment of it.
 

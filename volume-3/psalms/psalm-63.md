@@ -10,8 +10,8 @@ This psalm has in it as much of warmth and lively devotion as any of David's psa
 
 A psalm of David, when he was in the wilderness of Judah.
 
-> <sup>1</sup> O God, thou *art* my God; early will I seek thee: my soul thirsteth for thee, my flesh longeth for thee in a dry and thirsty land, where no water is;  
-> <sup>2</sup> To see thy power and thy glory, so *as* I have seen thee in the sanctuary.  
+> **¹** O God, thou *art* my God; early will I seek thee: my soul thirsteth for thee, my flesh longeth for thee in a dry and thirsty land, where no water is;  
+> **²** To see thy power and thy glory, so *as* I have seen thee in the sanctuary.  
 
 The title tells us when the psalm was penned, when David was *in the wilderness of Judah;* that is, *in the forest of Hareth* (1Sa 22:5) or in *the wilderness of Ziph,* 1Sa 23:15. 1. Even in Canaan, though a fruitful land and the people numerous, yet there were wildernesses, places less fruitful and less inhabited than other places. It will be so in the world, in the church, but not in heaven; there it is all city, all paradise, and no desert ground; *the wilderness* there *shall blossom as the rose.* 2. The best and dearest of God's saints and servants may sometimes have their lot cast in a wilderness, which speaks them lonely and solitary, desolate and afflicted, wanting, wandering, and unsettled, and quite at a loss what to do with themselves. 3. All the straits and difficulties of a wilderness must not put us out of tune for sacred songs; but even then it is our duty and interest to keep up a cheerful communion with God. There are psalms proper for a wilderness, and we have reason to thank God that it is the wilderness of Judah we are in, not the wilderness of Sin.
 
@@ -27,10 +27,10 @@ II\. By pious and devout affections, pursuant to the choice he had made of God a
 
 ## Joyful Praises.
 
-> <sup>3</sup> Because thy lovingkindness *is* better than life, my lips shall praise thee.  
-> <sup>4</sup> Thus will I bless thee while I live: I will lift up my hands in thy name.  
-> <sup>5</sup> My soul shall be satisfied as *with* marrow and fatness; and my mouth shall praise *thee* with joyful lips:  
-> <sup>6</sup> When I remember thee upon my bed, *and* meditate on thee in the *night* watches.  
+> **³** Because thy lovingkindness *is* better than life, my lips shall praise thee.  
+> **⁴** Thus will I bless thee while I live: I will lift up my hands in thy name.  
+> **⁵** My soul shall be satisfied as *with* marrow and fatness; and my mouth shall praise *thee* with joyful lips:  
+> **⁶** When I remember thee upon my bed, *and* meditate on thee in the *night* watches.  
 
 How soon are David's complaints and prayers turned into praises and thanksgivings! After Ps 63:1,2 that express his desire in seeking God, here are some that express his joy and satisfaction in having found him. Faithful prayers may quickly be turned into joyful praises, if it be not our own fault. *Let the hearts of those rejoice that seek the Lord* (Ps 105:3), and let them praise him for working those desires in them, and giving them assurance that he will satisfy them. David was now in a wilderness, and yet had his heart much enlarged in blessing God. Even in affliction we need not want matter for praise, if we have but a heart to it. Observe,
 
@@ -44,11 +44,11 @@ IV\. How he would entertain himself with thoughts of God when he was most retire
 
 ## Confidence in God; David Triumphing in Hope.
 
-> <sup>7</sup> Because thou hast been my help, therefore in the shadow of thy wings will I rejoice.  
-> <sup>8</sup> My soul followeth hard after thee: thy right hand upholdeth me.  
-> <sup>9</sup> But those *that* seek my soul, to destroy *it,* shall go into the lower parts of the earth.  
-> <sup>10</sup> They shall fall by the sword: they shall be a portion for foxes.  
-> <sup>11</sup> But the king shall rejoice in God; every one that sweareth by him shall glory: but the mouth of them that speak lies shall be stopped.  
+> **⁷** Because thou hast been my help, therefore in the shadow of thy wings will I rejoice.  
+> **⁸** My soul followeth hard after thee: thy right hand upholdeth me.  
+> **⁹** But those *that* seek my soul, to destroy *it,* shall go into the lower parts of the earth.  
+> **¹⁰** They shall fall by the sword: they shall be a portion for foxes.  
+> **¹¹** But the king shall rejoice in God; every one that sweareth by him shall glory: but the mouth of them that speak lies shall be stopped.  
 
 David, having expressed his desires towards God and his praises of him, here expresses his confidence in him and his joyful expectations from him (Ps 63:7): *In the shadow of thy wings I will rejoice,* alluding either to the wings of the cherubim stretched out over the ark of the covenant, between which God is said to dwell ("I will rejoice in thy oracles, and in covenant and communion with thee"), or to the wings of a fowl, under which the helpless young ones have shelter, as the eagle's young ones (Ex 19:4, De 32:11), which speaks the divine power, and the young ones of the common hen (Mt 23:37), which speaks more of divine tenderness. It is a phrase often used in the psalms (Ps 17:8,36:7,57:1,61:4,91:4), and no where else in this sense, except Ru 2:12, where Ruth, when she became a proselyte, is said to *trust under the wings of the God of Israel.* It is our duty to *rejoice in the shadow of God's wings,* which denotes our recourse to him by faith and prayer, as naturally as the chickens, when they are cold or frightened, run by instinct under the wings of the hen. It intimates also our reliance upon him as able and ready to help us and our refreshment and satisfaction in his care and protection. Having committed ourselves to God, we must be easy and pleased, and quiet from the fear of evil. Now let us see further,
 

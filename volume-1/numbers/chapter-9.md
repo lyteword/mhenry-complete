@@ -8,20 +8,20 @@ This chapter is, I. Concerning the great ordinance of the passover; 1. Orders gi
 
 ## The Law of the Passover. (b. c. 1490.)
 
-> <sup>1</sup> And the LORD spake unto Moses in the wilderness of Sinai, in the first month of the second year after they were come out of the land of Egypt, saying,  
-> <sup>2</sup> Let the children of Israel also keep the passover at his appointed season.  
-> <sup>3</sup> In the fourteenth day of this month, at even, ye shall keep it in his appointed season: according to all the rites of it, and according to all the ceremonies thereof, shall ye keep it.  
-> <sup>4</sup> And Moses spake unto the children of Israel, that they should keep the passover.  
-> <sup>5</sup> And they kept the passover on the fourteenth day of the first month at even in the wilderness of Sinai: according to all that the LORD commanded Moses, so did the children of Israel.  
-> <sup>6</sup> And there were certain men, who were defiled by the dead body of a man, that they could not keep the passover on that day: and they came before Moses and before Aaron on that day:  
-> <sup>7</sup> And those men said unto him, We *are* defiled by the dead body of a man: wherefore are we kept back, that we may not offer an offering of the LORD in his appointed season among the children of Israel?  
-> <sup>8</sup> And Moses said unto them, Stand still, and I will hear what the LORD will command concerning you.  
-> <sup>9</sup> And the LORD spake unto Moses, saying,  
-> <sup>10</sup> Speak unto the children of Israel, saying, If any man of you or of your posterity shall be unclean by reason of a dead body, or *be* in a journey afar off, yet he shall keep the passover unto the LORD.  
-> <sup>11</sup> The fourteenth day of the second month at even they shall keep it, *and* eat it with unleavened bread and bitter *herbs.*  
-> <sup>12</sup> They shall leave none of it unto the morning, nor break any bone of it: according to all the ordinances of the passover they shall keep it.  
-> <sup>13</sup> But the man that *is* clean, and is not in a journey, and forbeareth to keep the passover, even the same soul shall be cut off from among his people: because he brought not the offering of the LORD in his appointed season, that man shall bear his sin.  
-> <sup>14</sup> And if a stranger shall sojourn among you, and will keep the passover unto the LORD; according to the ordinance of the passover, and according to the manner thereof, so shall he do: ye shall have one ordinance, both for the stranger, and for him that was born in the land.  
+> **¹** And the LORD spake unto Moses in the wilderness of Sinai, in the first month of the second year after they were come out of the land of Egypt, saying,  
+> **²** Let the children of Israel also keep the passover at his appointed season.  
+> **³** In the fourteenth day of this month, at even, ye shall keep it in his appointed season: according to all the rites of it, and according to all the ceremonies thereof, shall ye keep it.  
+> **⁴** And Moses spake unto the children of Israel, that they should keep the passover.  
+> **⁵** And they kept the passover on the fourteenth day of the first month at even in the wilderness of Sinai: according to all that the LORD commanded Moses, so did the children of Israel.  
+> **⁶** And there were certain men, who were defiled by the dead body of a man, that they could not keep the passover on that day: and they came before Moses and before Aaron on that day:  
+> **⁷** And those men said unto him, We *are* defiled by the dead body of a man: wherefore are we kept back, that we may not offer an offering of the LORD in his appointed season among the children of Israel?  
+> **⁸** And Moses said unto them, Stand still, and I will hear what the LORD will command concerning you.  
+> **⁹** And the LORD spake unto Moses, saying,  
+> **¹⁰** Speak unto the children of Israel, saying, If any man of you or of your posterity shall be unclean by reason of a dead body, or *be* in a journey afar off, yet he shall keep the passover unto the LORD.  
+> **¹¹** The fourteenth day of the second month at even they shall keep it, *and* eat it with unleavened bread and bitter *herbs.*  
+> **¹²** They shall leave none of it unto the morning, nor break any bone of it: according to all the ordinances of the passover they shall keep it.  
+> **¹³** But the man that *is* clean, and is not in a journey, and forbeareth to keep the passover, even the same soul shall be cut off from among his people: because he brought not the offering of the LORD in his appointed season, that man shall bear his sin.  
+> **¹⁴** And if a stranger shall sojourn among you, and will keep the passover unto the LORD; according to the ordinance of the passover, and according to the manner thereof, so shall he do: ye shall have one ordinance, both for the stranger, and for him that was born in the land.  
 
 Here we have,
 
@@ -39,15 +39,15 @@ II\. Instructions given concerning those that were ceremonially unclean when the
 
 ## The Pillar of Cloud and Fire. (b. c. 1490.)
 
-> <sup>15</sup> And on the day that the tabernacle was reared up the cloud covered the tabernacle, *namely,* the tent of the testimony: and at even there was upon the tabernacle as it were the appearance of fire, until the morning.  
-> <sup>16</sup> So it was alway: the cloud covered it *by day,* and the appearance of fire by night.  
-> <sup>17</sup> And when the cloud was taken up from the tabernacle, then after that the children of Israel journeyed: and in the place where the cloud abode, there the children of Israel pitched their tents.  
-> <sup>18</sup> At the commandment of the LORD the children of Israel journeyed, and at the commandment of the LORD they pitched: as long as the cloud abode upon the tabernacle they rested in their tents.  
-> <sup>19</sup> And when the cloud tarried long upon the tabernacle many days, then the children of Israel kept the charge of the LORD, and journeyed not.  
-> <sup>20</sup> And *so* it was, when the cloud was a few days upon the tabernacle; according to the commandment of the LORD they abode in their tents, and according to the commandment of the LORD they journeyed.  
-> <sup>21</sup> And *so* it was, when the cloud abode from even unto the morning, and *that* the cloud was taken up in the morning, then they journeyed: whether *it was* by day or by night that the cloud was taken up, they journeyed.  
-> <sup>22</sup> Or *whether it were* two days, or a month, or a year, that the cloud tarried upon the tabernacle, remaining thereon, the children of Israel abode in their tents, and journeyed not: but when it was taken up, they journeyed.  
-> <sup>23</sup> At the commandment of the LORD they rested in the tents, and at the commandment of the LORD they journeyed: they kept the charge of the LORD, at the commandment of the LORD by the hand of Moses.  
+> **¹⁵** And on the day that the tabernacle was reared up the cloud covered the tabernacle, *namely,* the tent of the testimony: and at even there was upon the tabernacle as it were the appearance of fire, until the morning.  
+> **¹⁶** So it was alway: the cloud covered it *by day,* and the appearance of fire by night.  
+> **¹⁷** And when the cloud was taken up from the tabernacle, then after that the children of Israel journeyed: and in the place where the cloud abode, there the children of Israel pitched their tents.  
+> **¹⁸** At the commandment of the LORD the children of Israel journeyed, and at the commandment of the LORD they pitched: as long as the cloud abode upon the tabernacle they rested in their tents.  
+> **¹⁹** And when the cloud tarried long upon the tabernacle many days, then the children of Israel kept the charge of the LORD, and journeyed not.  
+> **²⁰** And *so* it was, when the cloud was a few days upon the tabernacle; according to the commandment of the LORD they abode in their tents, and according to the commandment of the LORD they journeyed.  
+> **²¹** And *so* it was, when the cloud abode from even unto the morning, and *that* the cloud was taken up in the morning, then they journeyed: whether *it was* by day or by night that the cloud was taken up, they journeyed.  
+> **²²** Or *whether it were* two days, or a month, or a year, that the cloud tarried upon the tabernacle, remaining thereon, the children of Israel abode in their tents, and journeyed not: but when it was taken up, they journeyed.  
+> **²³** At the commandment of the LORD they rested in the tents, and at the commandment of the LORD they journeyed: they kept the charge of the LORD, at the commandment of the LORD by the hand of Moses.  
 
 We have here the history of the cloud; not a natural history: *who knows the balancings of the clouds?* but a divine history of a cloud that was appointed to be the visible sign and symbol of God's presence with Israel.
 

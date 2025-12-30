@@ -8,14 +8,14 @@ In this chapter Moses, having finished his sermon, I. Encourages both the people
 
 ## Solemn Warnings; Joshua Encouraged. (b. c. 1451.)
 
-> <sup>1</sup> And Moses went and spake these words unto all Israel.  
-> <sup>2</sup> And he said unto them, I *am* a hundred and twenty years old this day; I can no more go out and come in: also the LORD hath said unto me, Thou shalt not go over this Jordan.  
-> <sup>3</sup> The LORD thy God, he will go over before thee, *and* he will destroy these nations from before thee, and thou shalt possess them: *and* Joshua, he shall go over before thee, as the LORD hath said.  
-> <sup>4</sup> And the LORD shall do unto them as he did to Sihon and to Og, kings of the Amorites, and unto the land of them, whom he destroyed.  
-> <sup>5</sup> And the LORD shall give them up before your face, that ye may do unto them according unto all the commandments which I have commanded you.  
-> <sup>6</sup> Be strong and of a good courage, fear not, nor be afraid of them: for the LORD thy God, he *it is* that doth go with thee; he will not fail thee, nor forsake thee.  
-> <sup>7</sup> And Moses called unto Joshua, and said unto him in the sight of all Israel, Be strong and of a good courage: for thou must go with this people unto the land which the LORD hath sworn unto their fathers to give them; and thou shalt cause them to inherit it.  
-> <sup>8</sup> And the LORD, he *it is* that doth go before thee; he will be with thee, he will not fail thee, neither forsake thee: fear not, neither be dismayed.  
+> **¹** And Moses went and spake these words unto all Israel.  
+> **²** And he said unto them, I *am* a hundred and twenty years old this day; I can no more go out and come in: also the LORD hath said unto me, Thou shalt not go over this Jordan.  
+> **³** The LORD thy God, he will go over before thee, *and* he will destroy these nations from before thee, and thou shalt possess them: *and* Joshua, he shall go over before thee, as the LORD hath said.  
+> **⁴** And the LORD shall do unto them as he did to Sihon and to Og, kings of the Amorites, and unto the land of them, whom he destroyed.  
+> **⁵** And the LORD shall give them up before your face, that ye may do unto them according unto all the commandments which I have commanded you.  
+> **⁶** Be strong and of a good courage, fear not, nor be afraid of them: for the LORD thy God, he *it is* that doth go with thee; he will not fail thee, nor forsake thee.  
+> **⁷** And Moses called unto Joshua, and said unto him in the sight of all Israel, Be strong and of a good courage: for thou must go with this people unto the land which the LORD hath sworn unto their fathers to give them; and thou shalt cause them to inherit it.  
+> **⁸** And the LORD, he *it is* that doth go before thee; he will be with thee, he will not fail thee, neither forsake thee: fear not, neither be dismayed.  
 
 *Loth to part* (we say) *bids oft farewell.* Moses does so to the children of Israel: not because he was loth to go to God, but because he was loth to leave them, fearing that when he had left them they would leave God. He had finished what he had to say to them by way of counsel and exhortation: here he calls them together to give them a word of encouragement, especially with reference to the wars of Canaan, in which they were now to engage. It was a discouragement to them that Moses was to be removed at a time when he could so ill be spared: though Joshua was continued to fight for them in the valley, they would want Moses to intercede for them on the hill, as he did, Ex 17:10. But there is no remedy: *Moses can no more go out and come in,* De 31:2. Not that he was disabled by any decay either of body or mind; for his *natural force was not abated,* De 24:7. But he cannot any longer discharge his office; for, 1. He is 120 *years old,* and it is time for him to think of resigning his honour and returning to his rest. He that had arrived at so great an age then, when seventy or eighty was the ordinary stint, as appears by the prayer of Moses (Ps 90:10), might well think that he had accomplished as a hireling his day. 2. He is under a divine sentence: *Thou shalt not go over Jordan.* Thus a full stop was put to his usefulness; hitherto he must go, hitherto he must serve, but no further. So God had appointed it and Moses acquiesces: for I know not why we should any of us desire to live a day longer than while God has work for us to do; nor shall we be accountable for more time than is allotted us. But, though Moses must not go over himself, he is anxious to encourage those that must.
 
@@ -25,11 +25,11 @@ II\. He encourages Joshua, De 31:7,8. Observe, 1. Though Joshua was an experienc
 
 ## The Reading of the Law. (b. c. 1451.)
 
-> <sup>9</sup> And Moses wrote this law, and delivered it unto the priests the sons of Levi, which bare the ark of the covenant of the LORD, and unto all the elders of Israel.  
-> <sup>10</sup> And Moses commanded them, saying, At the end of *every* seven years, in the solemnity of the year of release, in the feast of tabernacles,  
-> <sup>11</sup> When all Israel is come to appear before the LORD thy God in the place which he shall choose, thou shalt read this law before all Israel in their hearing.  
-> <sup>12</sup> Gather the people together, men, and women, and children, and thy stranger that *is* within thy gates, that they may hear, and that they may learn, and fear the LORD your God, and observe to do all the words of this law:  
-> <sup>13</sup> And *that* their children, which have not known *any thing,* may hear, and learn to fear the LORD your God, as long as ye live in the land whither ye go over Jordan to possess it.  
+> **⁹** And Moses wrote this law, and delivered it unto the priests the sons of Levi, which bare the ark of the covenant of the LORD, and unto all the elders of Israel.  
+> **¹⁰** And Moses commanded them, saying, At the end of *every* seven years, in the solemnity of the year of release, in the feast of tabernacles,  
+> **¹¹** When all Israel is come to appear before the LORD thy God in the place which he shall choose, thou shalt read this law before all Israel in their hearing.  
+> **¹²** Gather the people together, men, and women, and children, and thy stranger that *is* within thy gates, that they may hear, and that they may learn, and fear the LORD your God, and observe to do all the words of this law:  
+> **¹³** And *that* their children, which have not known *any thing,* may hear, and learn to fear the LORD your God, as long as ye live in the land whither ye go over Jordan to possess it.  
 
 The law was given by Moses; so it is said, Joh 1:17. He was not only entrusted to deliver it to that generation, but to transmit it to the generations to come; and here it appears that he was faithful to that trust.
 
@@ -49,14 +49,14 @@ III\. He appointed the public reading of this law in a general assembly of all I
 
 ## Apostasy Foretold. (b. c. 1451.)
 
-> <sup>14</sup> And the LORD said unto Moses, Behold, thy days approach that thou must die: call Joshua, and present yourselves in the tabernacle of the congregation, that I may give him a charge. And Moses and Joshua went, and presented themselves in the tabernacle of the congregation.  
-> <sup>15</sup> And the LORD appeared in the tabernacle in a pillar of a cloud: and the pillar of the cloud stood over the door of the tabernacle.  
-> <sup>16</sup> And the LORD said unto Moses, Behold, thou shalt sleep with thy fathers; and this people will rise up, and go a whoring after the gods of the strangers of the land, whither they go *to be* among them, and will forsake me, and break my covenant which I have made with them.  
-> <sup>17</sup> Then my anger shall be kindled against them in that day, and I will forsake them, and I will hide my face from them, and they shall be devoured, and many evils and troubles shall befall them; so that they will say in that day, Are not these evils come upon us, because our God *is* not among us?  
-> <sup>18</sup> And I will surely hide my face in that day for all the evils which they shall have wrought, in that they are turned unto other gods.  
-> <sup>19</sup> Now therefore write ye this song for you, and teach it the children of Israel: put it in their mouths, that this song may be a witness for me against the children of Israel.  
-> <sup>20</sup> For when I shall have brought them into the land which I sware unto their fathers, that floweth with milk and honey; and they shall have eaten and filled themselves, and waxen fat; then will they turn unto other gods, and serve them, and provoke me, and break my covenant.  
-> <sup>21</sup> And it shall come to pass, when many evils and troubles are befallen them, that this song shall testify against them as a witness; for it shall not be forgotten out of the mouths of their seed: for I know their imagination which they go about, even now, before I have brought them into the land which I sware.  
+> **¹⁴** And the LORD said unto Moses, Behold, thy days approach that thou must die: call Joshua, and present yourselves in the tabernacle of the congregation, that I may give him a charge. And Moses and Joshua went, and presented themselves in the tabernacle of the congregation.  
+> **¹⁵** And the LORD appeared in the tabernacle in a pillar of a cloud: and the pillar of the cloud stood over the door of the tabernacle.  
+> **¹⁶** And the LORD said unto Moses, Behold, thou shalt sleep with thy fathers; and this people will rise up, and go a whoring after the gods of the strangers of the land, whither they go *to be* among them, and will forsake me, and break my covenant which I have made with them.  
+> **¹⁷** Then my anger shall be kindled against them in that day, and I will forsake them, and I will hide my face from them, and they shall be devoured, and many evils and troubles shall befall them; so that they will say in that day, Are not these evils come upon us, because our God *is* not among us?  
+> **¹⁸** And I will surely hide my face in that day for all the evils which they shall have wrought, in that they are turned unto other gods.  
+> **¹⁹** Now therefore write ye this song for you, and teach it the children of Israel: put it in their mouths, that this song may be a witness for me against the children of Israel.  
+> **²⁰** For when I shall have brought them into the land which I sware unto their fathers, that floweth with milk and honey; and they shall have eaten and filled themselves, and waxen fat; then will they turn unto other gods, and serve them, and provoke me, and break my covenant.  
+> **²¹** And it shall come to pass, when many evils and troubles are befallen them, that this song shall testify against them as a witness; for it shall not be forgotten out of the mouths of their seed: for I know their imagination which they go about, even now, before I have brought them into the land which I sware.  
 
 Here, I. Moses and Joshua are summoned to attend the divine majesty at the door of the tabernacle, De 31:14. Moses is told again that he must shortly die; even those that are most ready and willing to die have need to be often reminded of the approach of death. In consideration of this, he must come himself to meet God; for whatever improves our communion with God furthers our preparation for death. He must also bring Joshua with him to be presented to God for a successor, and to receive his commission and charge. Moses readily obeys the summons, for he was not one of those that look with an evil eye upon their successors, but, on the contrary, rejoiced in him.
 
@@ -68,15 +68,15 @@ IV\. He directs Moses to deliver them a song, in the composing of which he shoul
 
 ## The Song of Moses. (b. c. 1451.)
 
-> <sup>22</sup> Moses therefore wrote this song the same day, and taught it the children of Israel.  
-> <sup>23</sup> And he gave Joshua the son of Nun a charge, and said, Be strong and of a good courage: for thou shalt bring the children of Israel into the land which I sware unto them: and I will be with thee.  
-> <sup>24</sup> And it came to pass, when Moses had made an end of writing the words of this law in a book, until they were finished,  
-> <sup>25</sup> That Moses commanded the Levites, which bare the ark of the covenant of the LORD, saying,  
-> <sup>26</sup> Take this book of the law, and put it in the side of the ark of the covenant of the LORD your God, that it may be there for a witness against thee.  
-> <sup>27</sup> For I know thy rebellion, and thy stiff neck: behold, while I am yet alive with you this day, ye have been rebellious against the LORD; and how much more after my death?  
-> <sup>28</sup> Gather unto me all the elders of your tribes, and your officers, that I may speak these words in their ears, and call heaven and earth to record against them.  
-> <sup>29</sup> For I know that after my death ye will utterly corrupt *yourselves,* and turn aside from the way which I have commanded you; and evil will befall you in the latter days; because ye will do evil in the sight of the LORD, to provoke him to anger through the work of your hands.  
-> <sup>30</sup> And Moses spake in the ears of all the congregation of Israel the words of this song, until they were ended.  
+> **²²** Moses therefore wrote this song the same day, and taught it the children of Israel.  
+> **²³** And he gave Joshua the son of Nun a charge, and said, Be strong and of a good courage: for thou shalt bring the children of Israel into the land which I sware unto them: and I will be with thee.  
+> **²⁴** And it came to pass, when Moses had made an end of writing the words of this law in a book, until they were finished,  
+> **²⁵** That Moses commanded the Levites, which bare the ark of the covenant of the LORD, saying,  
+> **²⁶** Take this book of the law, and put it in the side of the ark of the covenant of the LORD your God, that it may be there for a witness against thee.  
+> **²⁷** For I know thy rebellion, and thy stiff neck: behold, while I am yet alive with you this day, ye have been rebellious against the LORD; and how much more after my death?  
+> **²⁸** Gather unto me all the elders of your tribes, and your officers, that I may speak these words in their ears, and call heaven and earth to record against them.  
+> **²⁹** For I know that after my death ye will utterly corrupt *yourselves,* and turn aside from the way which I have commanded you; and evil will befall you in the latter days; because ye will do evil in the sight of the LORD, to provoke him to anger through the work of your hands.  
+> **³⁰** And Moses spake in the ears of all the congregation of Israel the words of this song, until they were ended.  
 
 Here, I. The charge is given to Joshua, which God has said (De 31:14) he would give him. The same in effect that Moses had given him. The same in effect that Moses had given him (De 31:7): *Be strong and of a good courage,* De 31:23. Joshua had now heard from God so much of the wickedness of the people whom he was to have the conduct of as could not but be a discouragement to him: "Nay," says God, "how bad soever they are, thou shalt go through thy understanding, for *I will be with thee.* Thou shalt put them into possession of Canaan. If they afterwards by their sin throw themselves out of it again, that will be no fault of thine, nor any dishonour to thee, therefore *be of good courage.*"
 

@@ -8,11 +8,11 @@ At this chapter begins the story of David, one that makes as great a figure in t
 
 ## Samuel Goes to Bethlehem. (b. c. 1065.)
 
-> <sup>1</sup> And the LORD said unto Samuel, How long wilt thou mourn for Saul, seeing I have rejected him from reigning over Israel? fill thine horn with oil, and go, I will send thee to Jesse the Bethlehemite: for I have provided me a king among his sons.  
-> <sup>2</sup> And Samuel said, How can I go? if Saul hear *it,* he will kill me. And the LORD said, Take a heifer with thee, and say, I am come to sacrifice to the LORD.  
-> <sup>3</sup> And call Jesse to the sacrifice, and I will shew thee what thou shalt do: and thou shalt anoint unto me *him* whom I name unto thee.  
-> <sup>4</sup> And Samuel did that which the LORD spake, and came to Bethlehem. And the elders of the town trembled at his coming, and said, Comest thou peaceably?  
-> <sup>5</sup> And he said, Peaceably: I am come to sacrifice unto the LORD: sanctify yourselves, and come with me to the sacrifice. And he sanctified Jesse and his sons, and called them to the sacrifice.  
+> **¹** And the LORD said unto Samuel, How long wilt thou mourn for Saul, seeing I have rejected him from reigning over Israel? fill thine horn with oil, and go, I will send thee to Jesse the Bethlehemite: for I have provided me a king among his sons.  
+> **²** And Samuel said, How can I go? if Saul hear *it,* he will kill me. And the LORD said, Take a heifer with thee, and say, I am come to sacrifice to the LORD.  
+> **³** And call Jesse to the sacrifice, and I will shew thee what thou shalt do: and thou shalt anoint unto me *him* whom I name unto thee.  
+> **⁴** And Samuel did that which the LORD spake, and came to Bethlehem. And the elders of the town trembled at his coming, and said, Comest thou peaceably?  
+> **⁵** And he said, Peaceably: I am come to sacrifice unto the LORD: sanctify yourselves, and come with me to the sacrifice. And he sanctified Jesse and his sons, and called them to the sacrifice.  
 
 Samuel had retired to his own house in Ramah, with a resolution not to appear any more in public business, but to addict himself wholly to the instructing and training up of the sons of the prophets, over whom he presided, as we find, 1Sa 19:20. He promised himself more satisfaction in young prophets than in young princes; and we do not find that, to his dying day, God called him out to any public action relating to the state, but only here to anoint David.
 
@@ -30,14 +30,14 @@ VI\. He had a particular regard to Jesse and his sons, for with them his private
 
 ## David Anointed by Samuel. (b. c. 1065.)
 
-> <sup>6</sup> And it came to pass, when they were come, that he looked on Eliab, and said, Surely the LORD's anointed *is* before him.  
-> <sup>7</sup> But the LORD said unto Samuel, Look not on his countenance, or on the height of his stature; because I have refused him: for *the LORD seeth* not as man seeth; for man looketh on the outward appearance, but the LORD looketh on the heart.  
-> <sup>8</sup> Then Jesse called Abinadab, and made him pass before Samuel. And he said, Neither hath the LORD chosen this.  
-> <sup>9</sup> Then Jesse made Shammah to pass by. And he said, Neither hath the LORD chosen this.  
-> <sup>10</sup> Again, Jesse made seven of his sons to pass before Samuel. And Samuel said unto Jesse, The LORD hath not chosen these.  
-> <sup>11</sup> And Samuel said unto Jesse, Are here all *thy* children? And he said, There remaineth yet the youngest, and, behold, he keepeth the sheep. And Samuel said unto Jesse, Send and fetch him: for we will not sit down till he come hither.  
-> <sup>12</sup> And he sent, and brought him in. Now he *was* ruddy, *and* withal of a beautiful countenance, and goodly to look to. And the LORD said, Arise, anoint him: for this *is* he.  
-> <sup>13</sup> Then Samuel took the horn of oil, and anointed him in the midst of his brethren: and the Spirit of the LORD came upon David from that day forward. So Samuel rose up, and went to Ramah.  
+> **⁶** And it came to pass, when they were come, that he looked on Eliab, and said, Surely the LORD's anointed *is* before him.  
+> **⁷** But the LORD said unto Samuel, Look not on his countenance, or on the height of his stature; because I have refused him: for *the LORD seeth* not as man seeth; for man looketh on the outward appearance, but the LORD looketh on the heart.  
+> **⁸** Then Jesse called Abinadab, and made him pass before Samuel. And he said, Neither hath the LORD chosen this.  
+> **⁹** Then Jesse made Shammah to pass by. And he said, Neither hath the LORD chosen this.  
+> **¹⁰** Again, Jesse made seven of his sons to pass before Samuel. And Samuel said unto Jesse, The LORD hath not chosen these.  
+> **¹¹** And Samuel said unto Jesse, Are here all *thy* children? And he said, There remaineth yet the youngest, and, behold, he keepeth the sheep. And Samuel said unto Jesse, Send and fetch him: for we will not sit down till he come hither.  
+> **¹²** And he sent, and brought him in. Now he *was* ruddy, *and* withal of a beautiful countenance, and goodly to look to. And the LORD said, Arise, anoint him: for this *is* he.  
+> **¹³** Then Samuel took the horn of oil, and anointed him in the midst of his brethren: and the Spirit of the LORD came upon David from that day forward. So Samuel rose up, and went to Ramah.  
 
 If the sons of Jesse were told that God would provide himself a king among them (as he had said, 1Sa 16:1), we may well suppose they all made the best appearance they could, and each hoped he should be the man; but here we are told,
 
@@ -51,16 +51,16 @@ II\. How David at length was pitched upon. He was the youngest of all the sons o
 
 ## Saul Troubled by an Evil Spirit. (b. c. 1065.)
 
-> <sup>14</sup> But the Spirit of the LORD departed from Saul, and an evil spirit from the LORD troubled him.  
-> <sup>15</sup> And Saul's servants said unto him, Behold now, an evil spirit from God troubleth thee.  
-> <sup>16</sup> Let our lord now command thy servants, *which are* before thee, to seek out a man, *who is* a cunning player on a harp: and it shall come to pass, when the evil spirit from God is upon thee, that he shall play with his hand, and thou shalt be well.  
-> <sup>17</sup> And Saul said unto his servants, Provide me now a man that can play well, and bring *him* to me.  
-> <sup>18</sup> Then answered one of the servants, and said, Behold, I have seen a son of Jesse the Bethlehemite, *that is* cunning in playing, and a mighty valiant man, and a man of war, and prudent in matters, and a comely person, and the LORD *is* with him.  
-> <sup>19</sup> Wherefore Saul sent messengers unto Jesse, and said, Send me David thy son, which *is* with the sheep.  
-> <sup>20</sup> And Jesse took an ass *laden* with bread, and a bottle of wine, and a kid, and sent *them* by David his son unto Saul.  
-> <sup>21</sup> And David came to Saul, and stood before him: and he loved him greatly; and he became his armourbearer.  
-> <sup>22</sup> And Saul sent to Jesse, saying, Let David, I pray thee, stand before me; for he hath found favour in my sight.  
-> <sup>23</sup> And it came to pass, when the *evil* spirit from God was upon Saul, that David took a harp, and played with his hand: so Saul was refreshed, and was well, and the evil spirit departed from him.  
+> **¹⁴** But the Spirit of the LORD departed from Saul, and an evil spirit from the LORD troubled him.  
+> **¹⁵** And Saul's servants said unto him, Behold now, an evil spirit from God troubleth thee.  
+> **¹⁶** Let our lord now command thy servants, *which are* before thee, to seek out a man, *who is* a cunning player on a harp: and it shall come to pass, when the evil spirit from God is upon thee, that he shall play with his hand, and thou shalt be well.  
+> **¹⁷** And Saul said unto his servants, Provide me now a man that can play well, and bring *him* to me.  
+> **¹⁸** Then answered one of the servants, and said, Behold, I have seen a son of Jesse the Bethlehemite, *that is* cunning in playing, and a mighty valiant man, and a man of war, and prudent in matters, and a comely person, and the LORD *is* with him.  
+> **¹⁹** Wherefore Saul sent messengers unto Jesse, and said, Send me David thy son, which *is* with the sheep.  
+> **²⁰** And Jesse took an ass *laden* with bread, and a bottle of wine, and a kid, and sent *them* by David his son unto Saul.  
+> **²¹** And David came to Saul, and stood before him: and he loved him greatly; and he became his armourbearer.  
+> **²²** And Saul sent to Jesse, saying, Let David, I pray thee, stand before me; for he hath found favour in my sight.  
+> **²³** And it came to pass, when the *evil* spirit from God was upon Saul, that David took a harp, and played with his hand: so Saul was refreshed, and was well, and the evil spirit departed from him.  
 
 We have here Saul falling and David rising.
 

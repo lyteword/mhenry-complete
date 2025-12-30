@@ -8,54 +8,54 @@ In this chapter are preserved upon record, I. The names of the chief of the prie
 
 ## The Priests and Levites That Returned. (b. c. 444.)
 
-> <sup>1</sup> Now these *are* the priests and the Levites that went up with Zerubbabel the son of Shealtiel, and Jeshua: Seraiah, Jeremiah, Ezra,  
-> <sup>2</sup> Amariah, Malluch, Hattush,  
-> <sup>3</sup> Shechaniah, Rehum, Meremoth,  
-> <sup>4</sup> Iddo, Ginnetho, Abijah,  
-> <sup>5</sup> Miamin, Maadiah, Bilgah,  
-> <sup>6</sup> Shemaiah, and Joiarib, Jedaiah,  
-> <sup>7</sup> Sallu, Amok, Hilkiah, Jedaiah. These *were* the chief of the priests and of their brethren in the days of Jeshua.  
-> <sup>8</sup> Moreover the Levites: Jeshua, Binnui, Kadmiel, Sherebiah, Judah, *and* Mattaniah, *which was* over the thanksgiving, he and his brethren.  
-> <sup>9</sup> Also Bakbukiah and Unni, their brethren, *were* over against them in the watches.  
-> <sup>10</sup> And Jeshua begat Joiakim, Joiakim also begat Eliashib, and Eliashib begat Joiada,  
-> <sup>11</sup> And Joiada begat Jonathan, and Jonathan begat Jaddua.  
-> <sup>12</sup> And in the days of Joiakim were priests, the chief of the fathers: of Seraiah, Meraiah; of Jeremiah, Hananiah;  
-> <sup>13</sup> Of Ezra, Meshullam; of Amariah, Jehohanan;  
-> <sup>14</sup> Of Melicu, Jonathan; of Shebaniah, Joseph;  
-> <sup>15</sup> Of Harim, Adna; of Meraioth, Helkai;  
-> <sup>16</sup> Of Iddo, Zechariah; of Ginnethon, Meshullam;  
-> <sup>17</sup> Of Abijah, Zichri; of Miniamin, of Moadiah, Piltai;  
-> <sup>18</sup> Of Bilgah, Shammua; of Shemaiah, Jehonathan;  
-> <sup>19</sup> And of Joiarib, Mattenai; of Jedaiah, Uzzi;  
-> <sup>20</sup> Of Sallai, Kallai; of Amok, Eber;  
-> <sup>21</sup> Of Hilkiah, Hashabiah; of Jedaiah, Nethaneel.  
-> <sup>22</sup> The Levites in the days of Eliashib, Joiada, and Johanan, and Jaddua, *were* recorded chief of the fathers: also the priests, to the reign of Darius the Persian.  
-> <sup>23</sup> The sons of Levi, the chief of the fathers, *were* written in the book of the chronicles, even until the days of Johanan the son of Eliashib.  
-> <sup>24</sup> And the chief of the Levites: Hashabiah, Sherebiah, and Jeshua the son of Kadmiel, with their brethren over against them, to praise *and* to give thanks, according to the commandment of David the man of God, ward over against ward.  
-> <sup>25</sup> Mattaniah, and Bakbukiah, Obadiah, Meshullam, Talmon, Akkub, *were* porters keeping the ward at the thresholds of the gates.  
-> <sup>26</sup> These *were* in the days of Joiakim the son of Jeshua, the son of Jozadak, and in the days of Nehemiah the governor, and of Ezra the priest, the scribe.  
+> **¹** Now these *are* the priests and the Levites that went up with Zerubbabel the son of Shealtiel, and Jeshua: Seraiah, Jeremiah, Ezra,  
+> **²** Amariah, Malluch, Hattush,  
+> **³** Shechaniah, Rehum, Meremoth,  
+> **⁴** Iddo, Ginnetho, Abijah,  
+> **⁵** Miamin, Maadiah, Bilgah,  
+> **⁶** Shemaiah, and Joiarib, Jedaiah,  
+> **⁷** Sallu, Amok, Hilkiah, Jedaiah. These *were* the chief of the priests and of their brethren in the days of Jeshua.  
+> **⁸** Moreover the Levites: Jeshua, Binnui, Kadmiel, Sherebiah, Judah, *and* Mattaniah, *which was* over the thanksgiving, he and his brethren.  
+> **⁹** Also Bakbukiah and Unni, their brethren, *were* over against them in the watches.  
+> **¹⁰** And Jeshua begat Joiakim, Joiakim also begat Eliashib, and Eliashib begat Joiada,  
+> **¹¹** And Joiada begat Jonathan, and Jonathan begat Jaddua.  
+> **¹²** And in the days of Joiakim were priests, the chief of the fathers: of Seraiah, Meraiah; of Jeremiah, Hananiah;  
+> **¹³** Of Ezra, Meshullam; of Amariah, Jehohanan;  
+> **¹⁴** Of Melicu, Jonathan; of Shebaniah, Joseph;  
+> **¹⁵** Of Harim, Adna; of Meraioth, Helkai;  
+> **¹⁶** Of Iddo, Zechariah; of Ginnethon, Meshullam;  
+> **¹⁷** Of Abijah, Zichri; of Miniamin, of Moadiah, Piltai;  
+> **¹⁸** Of Bilgah, Shammua; of Shemaiah, Jehonathan;  
+> **¹⁹** And of Joiarib, Mattenai; of Jedaiah, Uzzi;  
+> **²⁰** Of Sallai, Kallai; of Amok, Eber;  
+> **²¹** Of Hilkiah, Hashabiah; of Jedaiah, Nethaneel.  
+> **²²** The Levites in the days of Eliashib, Joiada, and Johanan, and Jaddua, *were* recorded chief of the fathers: also the priests, to the reign of Darius the Persian.  
+> **²³** The sons of Levi, the chief of the fathers, *were* written in the book of the chronicles, even until the days of Johanan the son of Eliashib.  
+> **²⁴** And the chief of the Levites: Hashabiah, Sherebiah, and Jeshua the son of Kadmiel, with their brethren over against them, to praise *and* to give thanks, according to the commandment of David the man of God, ward over against ward.  
+> **²⁵** Mattaniah, and Bakbukiah, Obadiah, Meshullam, Talmon, Akkub, *were* porters keeping the ward at the thresholds of the gates.  
+> **²⁶** These *were* in the days of Joiakim the son of Jeshua, the son of Jozadak, and in the days of Nehemiah the governor, and of Ezra the priest, the scribe.  
 
 We have here the names, and little more than the names, of a great many priests and Levites, that were eminent in their day among the returned Jews. Why this register should be here inserted by Nehemiah does not appear, perhaps to keep in remembrance those good men, that posterity might know to whom they were beholden, under God, for the happy revival and re-establishment of their religion among them. Thus must we contribute towards the performance of that promise, Ps 112:6, *The righteous shall be in everlasting remembrance.* Let the memory of the just be blessed, be perpetuated. It is a debt we still owe to faithful ministers to *remember our guides,* who have *spoken to us the word of God,* Heb 13:7. Perhaps it is intended to stir up their posterity, who succeeded them in the priest's office and inherited their dignities and preferments, to imitate their courage and fidelity. It is good to know what our godly ancestors and predecessors were, that we may learn thereby what we should be. We have here, 1. The names of the priests and Levites that came up with the first out of Babylon, when Jeshua was high priest. Jeremiah and Ezra are mentioned with the first (Ne 12:1), but, it is supposed, not Jeremiah the prophet nor Ezra the scribe; the fame of the one was long before and that of the other some time after, though both of them were priests. Of one of the Levites it is said (Ne 12:8) that he was *over the thanksgiving,* that is, he was entrusted to see that the psalms, the thanksgiving psalms, were constantly sung in the temple in due time and manner. The Levites kept their turns in their watches, reliving one another as becomes brethren, fellow-labourers, and fellow-soldiers. 2. The succession of high priests during the Persian monarchy, from Jeshua (or Jesus), who was high priest at the time of the restoration, to Jaddua (or Jaddus), who was high priest when Alexander the Great, after the conquest of Tyre, came to Jerusalem, and paid great respect to this Jaddus, who met him in his pontifical habit, and showed him the prophecy of Daniel, which foretold his conquests. 3. The next generation of priests, who were chief men, and active in the days of Joiakim, sons of the first set. Note, We have reason to acknowledge God's favour to his church, and care of it, in that, as one generation of ministers passes away, another comes. All those who are mentioned Ne 12:1-11, etc., as eminent in their generation, are again mentioned, though with some variation in several of the names, Ne 12:12-24, etc., except two, as having sons that were likewise eminent in their generation—a rare instance, that twenty good fathers should leave behind them twenty good sons (for so many here are) that filled up their places. 4. The next generation of Levites, or rather a latter generation; for those priests who are mentioned flourished in the days of Joiakim the high priest, these Levites in the days of Eliashib, Ne 12:22. Perhaps *then* the forementioned families of the priests began to degenerate, and the third generation of them came short of the first two; but the work of God shall never fail for want of instruments. Then a generation of Levites was *raised up,* who were *recorded chief of the fathers* (Ne 12:22), and were eminently serviceable to the interests of the church, and their service not the less acceptable either to God or to his people for their being Levites only, of the lower rank of ministers. Eliashib the high priest being allied to Tobiah (Ne 13:4), the other priests grew remiss; but then the Levites appeared the more zealous, as appears by this, that those who were now employed in expounding (Ne 8:7) and in praying (Ne 9:4,5) were all Levites, not priests, regard being had to their personal qualifications more than to their order. These Levites were some of them singers (Ne 12:24), *to praise and give thanks,* others of them porters (Ne 12:25), *keeping the ward at the thresholds of the gates, and both according to the command of David.*
 
 ## The Dedication of the Wall. (b. c. 444.)
 
-> <sup>27</sup> And at the dedication of the wall of Jerusalem they sought the Levites out of all their places, to bring them to Jerusalem, to keep the dedication with gladness, both with thanksgivings, and with singing, *with* cymbals, psalteries, and with harps.  
-> <sup>28</sup> And the sons of the singers gathered themselves together, both out of the plain country round about Jerusalem, and from the villages of Netophathi;  
-> <sup>29</sup> Also from the house of Gilgal, and out of the fields of Geba and Azmaveth: for the singers had builded them villages round about Jerusalem.  
-> <sup>30</sup> And the priests and the Levites purified themselves, and purified the people, and the gates, and the wall.  
-> <sup>31</sup> Then I brought up the princes of Judah upon the wall, and appointed two great *companies of them that gave* thanks, *whereof one* went on the right hand upon the wall toward the dung gate:  
-> <sup>32</sup> And after them went Hoshaiah, and half of the princes of Judah,  
-> <sup>33</sup> And Azariah, Ezra, and Meshullam,  
-> <sup>34</sup> Judah, and Benjamin, and Shemaiah, and Jeremiah,  
-> <sup>35</sup> And *certain* of the priests' sons with trumpets; *namely,* Zechariah the son of Jonathan, the son of Shemaiah, the son of Mattaniah, the son of Michaiah, the son of Zaccur, the son of Asaph:  
-> <sup>36</sup> And his brethren, Shemaiah, and Azarael, Milalai, Gilalai, Maai, Nethaneel, and Judah, Hanani, with the musical instruments of David the man of God, and Ezra the scribe before them.  
-> <sup>37</sup> And at the fountain gate, which was over against them, they went up by the stairs of the city of David, at the going up of the wall, above the house of David, even unto the water gate eastward.  
-> <sup>38</sup> And the other *company of them that gave* thanks went over against *them,* and I after them, and the half of the people upon the wall, from beyond the tower of the furnaces even unto the broad wall;  
-> <sup>39</sup> And from above the gate of Ephraim, and above the old gate, and above the fish gate, and the tower of Hananeel, and the tower of Meah, even unto the sheep gate: and they stood still in the prison gate.  
-> <sup>40</sup> So stood the two *companies of them that gave* thanks in the house of God, and I, and the half of the rulers with me:  
-> <sup>41</sup> And the priests; Eliakim, Maaseiah, Miniamin, Michaiah, Elioenai, Zechariah, *and* Hananiah, with trumpets;  
-> <sup>42</sup> And Maaseiah, and Shemaiah, and Eleazar, and Uzzi, and Jehohanan, and Malchijah, and Elam, and Ezer. And the singers sang loud, with Jezrahiah *their* overseer.  
-> <sup>43</sup> Also that day they offered great sacrifices, and rejoiced: for God had made them rejoice with great joy: the wives also and the children rejoiced: so that the joy of Jerusalem was heard even afar off.  
+> **²⁷** And at the dedication of the wall of Jerusalem they sought the Levites out of all their places, to bring them to Jerusalem, to keep the dedication with gladness, both with thanksgivings, and with singing, *with* cymbals, psalteries, and with harps.  
+> **²⁸** And the sons of the singers gathered themselves together, both out of the plain country round about Jerusalem, and from the villages of Netophathi;  
+> **²⁹** Also from the house of Gilgal, and out of the fields of Geba and Azmaveth: for the singers had builded them villages round about Jerusalem.  
+> **³⁰** And the priests and the Levites purified themselves, and purified the people, and the gates, and the wall.  
+> **³¹** Then I brought up the princes of Judah upon the wall, and appointed two great *companies of them that gave* thanks, *whereof one* went on the right hand upon the wall toward the dung gate:  
+> **³²** And after them went Hoshaiah, and half of the princes of Judah,  
+> **³³** And Azariah, Ezra, and Meshullam,  
+> **³⁴** Judah, and Benjamin, and Shemaiah, and Jeremiah,  
+> **³⁵** And *certain* of the priests' sons with trumpets; *namely,* Zechariah the son of Jonathan, the son of Shemaiah, the son of Mattaniah, the son of Michaiah, the son of Zaccur, the son of Asaph:  
+> **³⁶** And his brethren, Shemaiah, and Azarael, Milalai, Gilalai, Maai, Nethaneel, and Judah, Hanani, with the musical instruments of David the man of God, and Ezra the scribe before them.  
+> **³⁷** And at the fountain gate, which was over against them, they went up by the stairs of the city of David, at the going up of the wall, above the house of David, even unto the water gate eastward.  
+> **³⁸** And the other *company of them that gave* thanks went over against *them,* and I after them, and the half of the people upon the wall, from beyond the tower of the furnaces even unto the broad wall;  
+> **³⁹** And from above the gate of Ephraim, and above the old gate, and above the fish gate, and the tower of Hananeel, and the tower of Meah, even unto the sheep gate: and they stood still in the prison gate.  
+> **⁴⁰** So stood the two *companies of them that gave* thanks in the house of God, and I, and the half of the rulers with me:  
+> **⁴¹** And the priests; Eliakim, Maaseiah, Miniamin, Michaiah, Elioenai, Zechariah, *and* Hananiah, with trumpets;  
+> **⁴²** And Maaseiah, and Shemaiah, and Eleazar, and Uzzi, and Jehohanan, and Malchijah, and Elam, and Ezer. And the singers sang loud, with Jezrahiah *their* overseer.  
+> **⁴³** Also that day they offered great sacrifices, and rejoiced: for God had made them rejoice with great joy: the wives also and the children rejoiced: so that the joy of Jerusalem was heard even afar off.  
 
 We have read of the building of the wall of Jerusalem with a great deal of fear and trembling; we have here an account of the dedicating of it with a great deal of joy and triumph. *Those that sow in tears shall* thus *reap.*
 
@@ -65,10 +65,10 @@ II\. We must observe with what solemnity it was performed, under the direction o
 
 ## The People's Attention to Their Duty. (b. c. 444.)
 
-> <sup>44</sup> And at that time were some appointed over the chambers for the treasures, for the offerings, for the firstfruits, and for the tithes, to gather into them out of the fields of the cities the portions of the law for the priests and Levites: for Judah rejoiced for the priests and for the Levites that waited.  
-> <sup>45</sup> And both the singers and the porters kept the ward of their God, and the ward of the purification, according to the commandment of David, *and* of Solomon his son.  
-> <sup>46</sup> For in the days of David and Asaph of old *there were* chief of the singers, and songs of praise and thanksgiving unto God.  
-> <sup>47</sup> And all Israel in the days of Zerubbabel, and in the days of Nehemiah, gave the portions of the singers and the porters, every day his portion: and they sanctified *holy things* unto the Levites; and the Levites sanctified *them* unto the children of Aaron.  
+> **⁴⁴** And at that time were some appointed over the chambers for the treasures, for the offerings, for the firstfruits, and for the tithes, to gather into them out of the fields of the cities the portions of the law for the priests and Levites: for Judah rejoiced for the priests and for the Levites that waited.  
+> **⁴⁵** And both the singers and the porters kept the ward of their God, and the ward of the purification, according to the commandment of David, *and* of Solomon his son.  
+> **⁴⁶** For in the days of David and Asaph of old *there were* chief of the singers, and songs of praise and thanksgiving unto God.  
+> **⁴⁷** And all Israel in the days of Zerubbabel, and in the days of Nehemiah, gave the portions of the singers and the porters, every day his portion: and they sanctified *holy things* unto the Levites; and the Levites sanctified *them* unto the children of Aaron.  
 
 We have here an account of the remaining good effects of the universal joy that was at the dedication of the wall. When the solemnities of a thanksgiving day leave such impressions on ministers and people as that both are more careful and cheerful in doing their duty afterwards, then they are indeed acceptable to God and turn to a good account. So it was here. 1. The ministers were more careful than they had been of their work; the respect the people paid them upon this occasion encouraged them to diligence and watchfulness, Ne 12:45. *The singers kept the ward of their God,* attending in due time to the duty of their office; the *porters,* too, *kept the ward of the purification,* that is, they took care to preserve the purity of the temple by denying admission to those that were ceremonially unclean. When the joy of the Lord thus engages us to our duty, and enlarges us in it, it is then an earnest of that joy which, in concurrence with the perfection of holiness, will be our everlasting bliss. 2. The people were more careful than they had been of the maintenance of their ministers. The people, at the dedication of the wall, among other things which they made matter of their joy, rejoiced *for the priests and for the Levites that waited,* Ne 12:44. They had a great deal of comfort in their ministers, and were glad of them. When they observed how diligently they waited, and what pains they took in their work, they rejoiced in them. Note, The surest way for ministers to recommend themselves to their people, and gain an interest in their affections, is *to wait on their ministry* (Ro 12:7), to be humble and industrious, and to mind their business. When these did so the people thought nothing too much to do for them, to encourage them. The law had provided then *their portions* (Ne 12:44), but what the better were they for that provision if what the law appointed them either was not duly collected or not justly paid to them? Now, (1.) Care is here taken for the collecting of their dues. They were modest, and would rather lose their right than call for it themselves. The people were many of them careless and would not bring their dues unless they were called upon; and therefore *some were appointed* whose office it should be to gather into the treasuries, *out of the fields of the cities, the portions of the law for the priests and Levites* (Ne 12:44), that their portion might not be lost for want of being demanded. This is a piece of good service both to ministers and people, that the one may not come short of their maintenance nor the other of their duty. (2.) Care is taken that, being *gathered in,* they might be duly *paid out,* Ne 12:47. They gave the singers and porters their daily portion, over and above what was due to them as Levites; for we may suppose that when David and Solomon appointed them their work (Ne 12:45,46), above what was required from them as Levites, they settled a fund for their further encouragement. Let those that labour more abundantly in the word and doctrine be counted worthy of this double honour. As for the other Levites, the tithes, here called *the holy things,* were duly set apart for them, out of which they paid the priests their tithe according to the law. Both are said to be *sanctified;* when what is contributed, either voluntarily or by law, for the support of religion and the maintenance of the ministry, is given with an eye to God and his honour, it is sanctified, and shall be accepted of him accordingly, and it will *cause the blessing to rest on the house* and all that is in it, Eze 44:30.
 

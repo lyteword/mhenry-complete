@@ -10,14 +10,14 @@ It is supposed that David penned this psalm in Saul's reign, when there was a ge
 
 To the chief musician upon Sheminith. A psalm of David.
 
-> <sup>1</sup> Help, LORD; for the godly man ceaseth; for the faithful fail from among the children of men.  
-> <sup>2</sup> They speak vanity every one with his neighbour: *with* flattering lips *and* with a double heart do they speak.  
-> <sup>3</sup> The LORD shall cut off all flattering lips, *and* the tongue that speaketh proud things:  
-> <sup>4</sup> Who have said, With our tongue will we prevail; our lips *are* our own: who *is* lord over us?  
-> <sup>5</sup> For the oppression of the poor, for the sighing of the needy, now will I arise, saith the LORD; I will set *him* in safety *from him that* puffeth at him.  
-> <sup>6</sup> The words of the LORD *are* pure words: *as* silver tried in a furnace of earth, purified seven times.  
-> <sup>7</sup> Thou shalt keep them, O LORD, thou shalt preserve them from this generation for ever.  
-> <sup>8</sup> The wicked walk on every side, when the vilest men are exalted.  
+> **¹** Help, LORD; for the godly man ceaseth; for the faithful fail from among the children of men.  
+> **²** They speak vanity every one with his neighbour: *with* flattering lips *and* with a double heart do they speak.  
+> **³** The LORD shall cut off all flattering lips, *and* the tongue that speaketh proud things:  
+> **⁴** Who have said, With our tongue will we prevail; our lips *are* our own: who *is* lord over us?  
+> **⁵** For the oppression of the poor, for the sighing of the needy, now will I arise, saith the LORD; I will set *him* in safety *from him that* puffeth at him.  
+> **⁶** The words of the LORD *are* pure words: *as* silver tried in a furnace of earth, purified seven times.  
+> **⁷** Thou shalt keep them, O LORD, thou shalt preserve them from this generation for ever.  
+> **⁸** The wicked walk on every side, when the vilest men are exalted.  
 
 This psalm furnishes us with good thoughts for bad times, in which, though the prudent will keep silent (Am 5:13) because a man may then be made an offender for a word, yet we may comfort ourselves with such suitable meditations and prayers as are here got ready to our hand.
 

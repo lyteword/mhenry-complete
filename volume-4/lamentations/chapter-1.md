@@ -8,17 +8,17 @@ We have here the first alphabet of this lamentation, twenty-two stanzas, in whic
 
 ## The Miseries of Jerusalem; Grief for the Loss of Ordinances. (b. c. 588.)
 
-> <sup>1</sup> How doth the city sit solitary, *that was* full of people! *how* is she become as a widow! she *that was* great among the nations, *and* princess among the provinces, *how* is she become tributary!  
-> <sup>2</sup> She weepeth sore in the night, and her tears *are* on her cheeks: among all her lovers she hath none to comfort *her:* all her friends have dealt treacherously with her, they are become her enemies.  
-> <sup>3</sup> Judah is gone into captivity because of affliction, and because of great servitude: she dwelleth among the heathen, she findeth no rest: all her persecutors overtook her between the straits.  
-> <sup>4</sup> The ways of Zion do mourn, because none come to the solemn feasts: all her gates are desolate: her priests sigh, her virgins are afflicted, and she *is* in bitterness.  
-> <sup>5</sup> Her adversaries are the chief, her enemies prosper; for the LORD hath afflicted her for the multitude of her transgressions: her children are gone into captivity before the enemy.  
-> <sup>6</sup> And from the daughter of Zion all her beauty is departed: her princes are become like harts *that* find no pasture, and they are gone without strength before the pursuer.  
-> <sup>7</sup> Jerusalem remembered in the days of her affliction and of her miseries all her pleasant things that she had in the days of old, when her people fell into the hand of the enemy, and none did help her: the adversaries saw her, *and* did mock at her sabbaths.  
-> <sup>8</sup> Jerusalem hath grievously sinned; therefore she is removed: all that honoured her despise her, because they have seen her nakedness: yea, she sigheth, and turneth backward.  
-> <sup>9</sup> Her filthiness *is* in her skirts; she remembereth not her last end; therefore she came down wonderfully: she had no comforter. O LORD, behold my affliction: for the enemy hath magnified *himself.*  
-> <sup>10</sup> The adversary hath spread out his hand upon all her pleasant things: for she hath seen *that* the heathen entered into her sanctuary, whom thou didst command *that* they should not enter into thy congregation.  
-> <sup>11</sup> All her people sigh, they seek bread; they have given their pleasant things for meat to relieve the soul: see, O LORD, and consider; for I am become vile.  
+> **¹** How doth the city sit solitary, *that was* full of people! *how* is she become as a widow! she *that was* great among the nations, *and* princess among the provinces, *how* is she become tributary!  
+> **²** She weepeth sore in the night, and her tears *are* on her cheeks: among all her lovers she hath none to comfort *her:* all her friends have dealt treacherously with her, they are become her enemies.  
+> **³** Judah is gone into captivity because of affliction, and because of great servitude: she dwelleth among the heathen, she findeth no rest: all her persecutors overtook her between the straits.  
+> **⁴** The ways of Zion do mourn, because none come to the solemn feasts: all her gates are desolate: her priests sigh, her virgins are afflicted, and she *is* in bitterness.  
+> **⁵** Her adversaries are the chief, her enemies prosper; for the LORD hath afflicted her for the multitude of her transgressions: her children are gone into captivity before the enemy.  
+> **⁶** And from the daughter of Zion all her beauty is departed: her princes are become like harts *that* find no pasture, and they are gone without strength before the pursuer.  
+> **⁷** Jerusalem remembered in the days of her affliction and of her miseries all her pleasant things that she had in the days of old, when her people fell into the hand of the enemy, and none did help her: the adversaries saw her, *and* did mock at her sabbaths.  
+> **⁸** Jerusalem hath grievously sinned; therefore she is removed: all that honoured her despise her, because they have seen her nakedness: yea, she sigheth, and turneth backward.  
+> **⁹** Her filthiness *is* in her skirts; she remembereth not her last end; therefore she came down wonderfully: she had no comforter. O LORD, behold my affliction: for the enemy hath magnified *himself.*  
+> **¹⁰** The adversary hath spread out his hand upon all her pleasant things: for she hath seen *that* the heathen entered into her sanctuary, whom thou didst command *that* they should not enter into thy congregation.  
+> **¹¹** All her people sigh, they seek bread; they have given their pleasant things for meat to relieve the soul: see, O LORD, and consider; for I am become vile.  
 
 Those that have any disposition to *weep with those that weep,* one would think, should scarcely be able to refrain from tears at the reading of these verses, so very pathetic are the lamentations here.
 
@@ -38,17 +38,17 @@ IV\. Jerusalem's God is here complained to concerning all these things, and all 
 
 ## God Acknowledged in Affliction; Jerusalem's Complaint. (b. c. 588.)
 
-> <sup>12</sup> *Is it* nothing to you, all ye that pass by? behold, and see if there be any sorrow like unto my sorrow, which is done unto me, wherewith the LORD hath afflicted *me* in the day of his fierce anger.  
-> <sup>13</sup> From above hath he sent fire into my bones, and it prevaileth against them: he hath spread a net for my feet, he hath turned me back: he hath made me desolate *and* faint all the day.  
-> <sup>14</sup> The yoke of my transgressions is bound by his hand: they are wreathed, *and* come up upon my neck: he hath made my strength to fall, the Lord hath delivered me into *their* hands, *from whom* I am not able to rise up.  
-> <sup>15</sup> The Lord hath trodden under foot all my mighty *men* in the midst of me: he hath called an assembly against me to crush my young men: the Lord hath trodden the virgin, the daughter of Judah, *as* in a winepress.  
-> <sup>16</sup> For these *things* I weep; mine eye, mine eye runneth down with water, because the comforter that should relieve my soul is far from me: my children are desolate, because the enemy prevailed.  
-> <sup>17</sup> Zion spreadeth forth her hands, *and there is* none to comfort her: the LORD hath commanded concerning Jacob, *that* his adversaries *should be* round about him: Jerusalem is as a menstruous woman among them.  
-> <sup>18</sup> The LORD is righteous; for I have rebelled against his commandment: hear, I pray you, all people, and behold my sorrow: my virgins and my young men are gone into captivity.  
-> <sup>19</sup> I called for my lovers, *but* they deceived me: my priests and mine elders gave up the ghost in the city, while they sought their meat to relieve their souls.  
-> <sup>20</sup> Behold, O LORD; for I *am* in distress: my bowels are troubled; mine heart is turned within me; for I have grievously rebelled: abroad the sword bereaveth, at home *there is* as death.  
-> <sup>21</sup> They have heard that I sigh: *there is* none to comfort me: all mine enemies have heard of my trouble; they are glad that thou hast done *it:* thou wilt bring the day *that* thou hast called, and they shall be like unto me.  
-> <sup>22</sup> Let all their wickedness come before thee; and do unto them, as thou hast done unto me for all my transgressions: for my sighs *are* many, and my heart *is* faint.  
+> **¹²** *Is it* nothing to you, all ye that pass by? behold, and see if there be any sorrow like unto my sorrow, which is done unto me, wherewith the LORD hath afflicted *me* in the day of his fierce anger.  
+> **¹³** From above hath he sent fire into my bones, and it prevaileth against them: he hath spread a net for my feet, he hath turned me back: he hath made me desolate *and* faint all the day.  
+> **¹⁴** The yoke of my transgressions is bound by his hand: they are wreathed, *and* come up upon my neck: he hath made my strength to fall, the Lord hath delivered me into *their* hands, *from whom* I am not able to rise up.  
+> **¹⁵** The Lord hath trodden under foot all my mighty *men* in the midst of me: he hath called an assembly against me to crush my young men: the Lord hath trodden the virgin, the daughter of Judah, *as* in a winepress.  
+> **¹⁶** For these *things* I weep; mine eye, mine eye runneth down with water, because the comforter that should relieve my soul is far from me: my children are desolate, because the enemy prevailed.  
+> **¹⁷** Zion spreadeth forth her hands, *and there is* none to comfort her: the LORD hath commanded concerning Jacob, *that* his adversaries *should be* round about him: Jerusalem is as a menstruous woman among them.  
+> **¹⁸** The LORD is righteous; for I have rebelled against his commandment: hear, I pray you, all people, and behold my sorrow: my virgins and my young men are gone into captivity.  
+> **¹⁹** I called for my lovers, *but* they deceived me: my priests and mine elders gave up the ghost in the city, while they sought their meat to relieve their souls.  
+> **²⁰** Behold, O LORD; for I *am* in distress: my bowels are troubled; mine heart is turned within me; for I have grievously rebelled: abroad the sword bereaveth, at home *there is* as death.  
+> **²¹** They have heard that I sigh: *there is* none to comfort me: all mine enemies have heard of my trouble; they are glad that thou hast done *it:* thou wilt bring the day *that* thou hast called, and they shall be like unto me.  
+> **²²** Let all their wickedness come before thee; and do unto them, as thou hast done unto me for all my transgressions: for my sighs *are* many, and my heart *is* faint.  
 
 The complaints here are, for substance, the same with those in the foregoing part of the chapter; but in these verses the prophet, in the name of the lamenting church, does more particularly acknowledge the hand of god in these calamities, and the righteousness of his hand.
 

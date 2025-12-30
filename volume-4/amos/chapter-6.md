@@ -8,13 +8,13 @@ In this chapter we have, I. A sinful people studying to put a slight upon God's 
 
 ## The Danger of False Security. (b. c. 790.)
 
-> <sup>1</sup> Woe to them *that are* at ease in Zion, and trust in the mountain of Samaria, *which are* named chief of the nations, to whom the house of Israel came!  
-> <sup>2</sup> Pass ye unto Calneh, and see; and from thence go ye to Hamath the great: then go down to Gath of the Philistines: *be they* better than these kingdoms? or their border greater than your border?  
-> <sup>3</sup> Ye that put far away the evil day, and cause the seat of violence to come near;  
-> <sup>4</sup> That lie upon beds of ivory, and stretch themselves upon their couches, and eat the lambs out of the flock, and the calves out of the midst of the stall;  
-> <sup>5</sup> That chant to the sound of the viol, *and* invent to themselves instruments of music, like David;  
-> <sup>6</sup> That drink wine in bowls, and anoint themselves with the chief ointments: but they are not grieved for the affliction of Joseph.  
-> <sup>7</sup> Therefore now shall they go captive with the first that go captive, and the banquet of them that stretched themselves shall be removed.  
+> **¹** Woe to them *that are* at ease in Zion, and trust in the mountain of Samaria, *which are* named chief of the nations, to whom the house of Israel came!  
+> **²** Pass ye unto Calneh, and see; and from thence go ye to Hamath the great: then go down to Gath of the Philistines: *be they* better than these kingdoms? or their border greater than your border?  
+> **³** Ye that put far away the evil day, and cause the seat of violence to come near;  
+> **⁴** That lie upon beds of ivory, and stretch themselves upon their couches, and eat the lambs out of the flock, and the calves out of the midst of the stall;  
+> **⁵** That chant to the sound of the viol, *and* invent to themselves instruments of music, like David;  
+> **⁶** That drink wine in bowls, and anoint themselves with the chief ointments: but they are not grieved for the affliction of Joseph.  
+> **⁷** Therefore now shall they go captive with the first that go captive, and the banquet of them that stretched themselves shall be removed.  
 
 The first words of the chapter are the contents of these verses; but they sound very strangely, and contrary to the sentiments of a vain world: *Woe to those that are at ease!* We are ready to say, *Happy are those that are at ease,* that neither feel any trouble nor fear any, that lie soft and warm, and lay nothing to heart; and wise we think are those that do so, that bathe themselves in the delights of sense and care not how the world goes. Those are looked upon as doing well for themselves that do well for their bodies and make much of them; but against them this woe is denounced, and we are here told what their ease is, and what the woe is.
 
@@ -32,13 +32,13 @@ II\. Here is the doom passed upon them (Am 6:7): *Therefore now shall they go ca
 
 ## Threatenings of Judgment. (b. c. 790.)
 
-> <sup>8</sup> The Lord GOD hath sworn by himself, saith the LORD the God of hosts, I abhor the excellency of Jacob, and hate his palaces: therefore will I deliver up the city with all that is therein.  
-> <sup>9</sup> And it shall come to pass, if there remain ten men in one house, that they shall die.  
-> <sup>10</sup> And a man's uncle shall take him up, and he that burneth him, to bring out the bones out of the house, and shall say unto him that *is* by the sides of the house, *Is there* yet *any* with thee? and he shall say, No. Then shall he say, Hold thy tongue: for we may not make mention of the name of the LORD.  
-> <sup>11</sup> For, behold, the LORD commandeth, and he will smite the great house with breaches, and the little house with clefts.  
-> <sup>12</sup> Shall horses run upon the rock? will *one* plow *there* with oxen? for ye have turned judgment into gall, and the fruit of righteousness into hemlock:  
-> <sup>13</sup> Ye which rejoice in a thing of nought, which say, Have we not taken to us horns by our own strength?  
-> <sup>14</sup> But, behold, I will raise up against you a nation, O house of Israel, saith the LORD the God of hosts; and they shall afflict you from the entering in of Hemath unto the river of the wilderness.  
+> **⁸** The Lord GOD hath sworn by himself, saith the LORD the God of hosts, I abhor the excellency of Jacob, and hate his palaces: therefore will I deliver up the city with all that is therein.  
+> **⁹** And it shall come to pass, if there remain ten men in one house, that they shall die.  
+> **¹⁰** And a man's uncle shall take him up, and he that burneth him, to bring out the bones out of the house, and shall say unto him that *is* by the sides of the house, *Is there* yet *any* with thee? and he shall say, No. Then shall he say, Hold thy tongue: for we may not make mention of the name of the LORD.  
+> **¹¹** For, behold, the LORD commandeth, and he will smite the great house with breaches, and the little house with clefts.  
+> **¹²** Shall horses run upon the rock? will *one* plow *there* with oxen? for ye have turned judgment into gall, and the fruit of righteousness into hemlock:  
+> **¹³** Ye which rejoice in a thing of nought, which say, Have we not taken to us horns by our own strength?  
+> **¹⁴** But, behold, I will raise up against you a nation, O house of Israel, saith the LORD the God of hosts; and they shall afflict you from the entering in of Hemath unto the river of the wilderness.  
 
 In the former part of the chapter we had these secure Israelites loading themselves with pleasures, as if they could never be made merry enough; here we have God loading them with punishments, as if they could never be made miserable enough. And observe,
 

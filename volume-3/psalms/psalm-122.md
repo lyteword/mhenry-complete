@@ -10,11 +10,11 @@ This psalm seems to have been penned by David for the use of the people of Israe
 
 A song of degrees of David.
 
-> <sup>1</sup> I was glad when they said unto me, Let us go into the house of the LORD.  
-> <sup>2</sup> Our feet shall stand within thy gates, O Jerusalem.  
-> <sup>3</sup> Jerusalem is builded as a city that is compact together:  
-> <sup>4</sup> Whither the tribes go up, the tribes of the LORD, unto the testimony of Israel, to give thanks unto the name of the LORD.  
-> <sup>5</sup> For there are set thrones of judgment, the thrones of the house of David.  
+> **¹** I was glad when they said unto me, Let us go into the house of the LORD.  
+> **²** Our feet shall stand within thy gates, O Jerusalem.  
+> **³** Jerusalem is builded as a city that is compact together:  
+> **⁴** Whither the tribes go up, the tribes of the LORD, unto the testimony of Israel, to give thanks unto the name of the LORD.  
+> **⁵** For there are set thrones of judgment, the thrones of the house of David.  
 
 Here we have,
 
@@ -34,10 +34,10 @@ II\. The praises of Jerusalem, as Ps 48:12.
 
 ## Prayer for the Church.
 
-> <sup>6</sup> Pray for the peace of Jerusalem: they shall prosper that love thee.  
-> <sup>7</sup> Peace be within thy walls, *and* prosperity within thy palaces.  
-> <sup>8</sup> For my brethren and companions' sakes, I will now say, Peace *be* within thee.  
-> <sup>9</sup> Because of the house of the LORD our God I will seek thy good.  
+> **⁶** Pray for the peace of Jerusalem: they shall prosper that love thee.  
+> **⁷** Peace be within thy walls, *and* prosperity within thy palaces.  
+> **⁸** For my brethren and companions' sakes, I will now say, Peace *be* within thee.  
+> **⁹** Because of the house of the LORD our God I will seek thy good.  
 
 Here, I. David calls upon others to wish well to Jerusalem, Ps 122:6,7. *Pray for the peace of Jerusalem,* for the welfare of it, for all good to it, particularly for the uniting of the inhabitants among themselves and their preservation from the incursions of enemies. This we may truly desire, that in the peace thereof we may have peace; and this we must earnestly pray for, for it is the gift of God, and for it he will be enquired of. Those that can do nothing else for the peace of Jerusalem can pray for it, which is something more than showing their good-will; it is the appointed way of fetching in mercy. The peace and welfare of the gospel church, particularly in our land, is to be earnestly desired and prayed for by every one of us. Now, 1. We are here encouraged in our prayers for Jerusalem's peace: *Those shall prosper that love thee.* We must pray for Jerusalem, not out of custom, nor for fashion's sake, but out of a principle of love to God's government of man and man's worship of God; and, in seeking the public welfare, we seek our own, for so well does God *love the gates of Zion* that he will love all those that do love them, and therefore they cannot but prosper; at least their souls shall prosper by the ordinances they so dearly love. 2. We are here directed in our prayers for it and words are put into our mouths (Ps 122:7): *Peace be within thy walls.* He teaches us to pray, (1.) For all the inhabitants in general, all within the walls, from the least to the greatest. Peace be in thy fortifications; let them never be attacked, or, if they be, let them never be taken, but be an effectual security to the city. (2.) For the princes and rulers especially: Let *prosperity* be *in the palaces* of the great men that sit at the helm and have the direction of public affairs; for, if they prosper, it will be well for the public. The poorer sort are apt to envy the prosperity of the palaces, but they are here taught to pray for it.
 

@@ -8,19 +8,19 @@ The book of the divine counsels being thus lodged in the hand of Christ, he lose
 
 ## The Opening of the Seals. (a. d. 95.)
 
-> <sup>1</sup> And I saw when the Lamb opened one of the seals, and I heard, as it were the noise of thunder, one of the four beasts saying, Come and see.  
-> <sup>2</sup> And I saw, and behold a white horse: and he that sat on him had a bow; and a crown was given unto him: and he went forth conquering, and to conquer.  
+> **¹** And I saw when the Lamb opened one of the seals, and I heard, as it were the noise of thunder, one of the four beasts saying, Come and see.  
+> **²** And I saw, and behold a white horse: and he that sat on him had a bow; and a crown was given unto him: and he went forth conquering, and to conquer.  
 
 Here, 1. Christ, the Lamb, opens the first seal; he now enters upon the great work of opening and accomplishing the purposes of God towards the church and the world. 2. One of the ministers of the church calls upon the apostle, with a voice like thunder, to come near, and observe what then appeared. 3. We have the vision itself, Re 6:2. (1.) The Lord Jesus appears riding on *a white horse.* White horses are generally refused in war, because they make the rider a mark for the enemy; but our Lord Redeemer was sure of the victory and a glorious triumph, and he rides on the white horse of a pure but despised gospel, with great swiftness through the world. (2.) *He had a bow* in his hand. The convictions impressed by the word of God are sharp arrows, they reach at a distance; and, though the ministers of the word draw the bow at a venture, God can and will direct it to the joints of the harness. This bow, in the hand of Christ, abides in strength, and, like that of Jonathan, *never returns empty.* (3.) *A crown was given him,* importing that all who receive the gospel must receive Christ as a king, and must be his loyal and obedient subjects; he will be glorified in the success of the gospel. When Christ was going to war, one would think a helmet had been more proper than a crown; but a crown is given him as the earnest and emblem of victory. (4.) *He went forth conquering, and to conquer.* As long as the church continues militant Christ will be conquering; when he has conquered his enemies in one age he meets with new ones in another age; men go on opposing, and Christ goes on conquering, and his former victories are pledges of future victories. He conquers his enemies in his people; their sins are their enemies and his enemies; when Christ comes with power into their soul he begins to conquer these enemies, and he goes on conquering, in the progressive work of sanctification, till he has gained us a complete victory. And he conquers his enemies in the world, wicked men, some by bringing them to his foot, others by making them his footstool. Observe, From this seal opened, [1.] The successful progress of the gospel of Christ in the world is a glorious sight, worth beholding, the most pleasant and welcome sight that a good man can see in this world. [2.] Whatever convulsions and revolutions happen in the states and kingdoms of the world, the kingdom of Christ shall be established and enlarged in spite of all opposition. [3.] A morning of opportunity usually goes before a night of calamity; the gospel is preached before the plagues are poured forth. [4.] Christ's work is not all done at once. We are ready to think, when the gospel goes forth, it should carry all the world before it, but it often meets with opposition, and moves slowly; however, Christ will do his own work effectually, in his own time and way.
 
 ## The Opening of the Seals. (a. d. 95.)
 
-> <sup>3</sup> And when he had opened the second seal, I heard the second beast say, Come and see.  
-> <sup>4</sup> And there went out another horse *that was* red: and *power* was given to him that sat thereon to take peace from the earth, and that they should kill one another: and there was given unto him a great sword.  
-> <sup>5</sup> And when he had opened the third seal, I heard the third beast say, Come and see. And I beheld, and lo a black horse; and he that sat on him had a pair of balances in his hand.  
-> <sup>6</sup> And I heard a voice in the midst of the four beasts say, A measure of wheat for a penny, and three measures of barley for a penny; and *see* thou hurt not the oil and the wine.  
-> <sup>7</sup> And when he had opened the fourth seal, I heard the voice of the fourth beast say, Come and see.  
-> <sup>8</sup> And I looked, and behold a pale horse: and his name that sat on him was Death, and Hell followed with him. And power was given unto them over the fourth part of the earth, to kill with sword, and with hunger, and with death, and with the beasts of the earth.  
+> **³** And when he had opened the second seal, I heard the second beast say, Come and see.  
+> **⁴** And there went out another horse *that was* red: and *power* was given to him that sat thereon to take peace from the earth, and that they should kill one another: and there was given unto him a great sword.  
+> **⁵** And when he had opened the third seal, I heard the third beast say, Come and see. And I beheld, and lo a black horse; and he that sat on him had a pair of balances in his hand.  
+> **⁶** And I heard a voice in the midst of the four beasts say, A measure of wheat for a penny, and three measures of barley for a penny; and *see* thou hurt not the oil and the wine.  
+> **⁷** And when he had opened the fourth seal, I heard the voice of the fourth beast say, Come and see.  
+> **⁸** And I looked, and behold a pale horse: and his name that sat on him was Death, and Hell followed with him. And power was given unto them over the fourth part of the earth, to kill with sword, and with hunger, and with death, and with the beasts of the earth.  
 
 The next three seals give us a sad prospect of great and desolating judgments with which God punishes those who either refuse or abuse the everlasting gospel. Though some understand them of the persecutions that befel the church of Christ, and others of the destruction of the Jews, they rather seem more generally to represent God's terrible judgments, by which he avenges the quarrel of his covenant upon those who make light of it.
 
@@ -34,15 +34,15 @@ IV\. After the opening of these seals of approaching judgments, and the distinct
 
 ## The Opening of the Seals. (a. d. 95.)
 
-> <sup>9</sup> And when he had opened the fifth seal, I saw under the altar the souls of them that were slain for the word of God, and for the testimony which they held:  
-> <sup>10</sup> And they cried with a loud voice, saying, How long, O Lord, holy and true, dost thou not judge and avenge our blood on them that dwell on the earth?  
-> <sup>11</sup> And white robes were given unto every one of them; and it was said unto them, that they should rest yet for a little season, until their fellowservants also and their brethren, that should be killed as they *were,* should be fulfilled.  
-> <sup>12</sup> And I beheld when he had opened the sixth seal, and, lo, there was a great earthquake; and the sun became black as sackcloth of hair, and the moon became as blood;  
-> <sup>13</sup> And the stars of heaven fell unto the earth, even as a fig tree casteth her untimely figs, when she is shaken of a mighty wind.  
-> <sup>14</sup> And the heaven departed as a scroll when it is rolled together; and every mountain and island were moved out of their places.  
-> <sup>15</sup> And the kings of the earth, and the great men, and the rich men, and the chief captains, and the mighty men, and every bondman, and every free man, hid themselves in the dens and in the rocks of the mountains;  
-> <sup>16</sup> And said to the mountains and rocks, Fall on us, and hide us from the face of him that sitteth on the throne, and from the wrath of the Lamb:  
-> <sup>17</sup> For the great day of his wrath is come; and who shall be able to stand?  
+> **⁹** And when he had opened the fifth seal, I saw under the altar the souls of them that were slain for the word of God, and for the testimony which they held:  
+> **¹⁰** And they cried with a loud voice, saying, How long, O Lord, holy and true, dost thou not judge and avenge our blood on them that dwell on the earth?  
+> **¹¹** And white robes were given unto every one of them; and it was said unto them, that they should rest yet for a little season, until their fellowservants also and their brethren, that should be killed as they *were,* should be fulfilled.  
+> **¹²** And I beheld when he had opened the sixth seal, and, lo, there was a great earthquake; and the sun became black as sackcloth of hair, and the moon became as blood;  
+> **¹³** And the stars of heaven fell unto the earth, even as a fig tree casteth her untimely figs, when she is shaken of a mighty wind.  
+> **¹⁴** And the heaven departed as a scroll when it is rolled together; and every mountain and island were moved out of their places.  
+> **¹⁵** And the kings of the earth, and the great men, and the rich men, and the chief captains, and the mighty men, and every bondman, and every free man, hid themselves in the dens and in the rocks of the mountains;  
+> **¹⁶** And said to the mountains and rocks, Fall on us, and hide us from the face of him that sitteth on the throne, and from the wrath of the Lamb:  
+> **¹⁷** For the great day of his wrath is come; and who shall be able to stand?  
 
 In the remaining part of this chapter we have the opening of the fifth and the sixth seals.
 

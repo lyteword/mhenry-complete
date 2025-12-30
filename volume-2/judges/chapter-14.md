@@ -8,15 +8,15 @@ The idea which this chapter gives us of Samson is not what one might have expect
 
 ## Samson Chooses a Philistine Wife; A Lion Slain by Samson. (b. c. 1141.)
 
-> <sup>1</sup> And Samson went down to Timnath, and saw a woman in Timnath of the daughters of the Philistines.  
-> <sup>2</sup> And he came up, and told his father and his mother, and said, I have seen a woman in Timnath of the daughters of the Philistines: now therefore get her for me to wife.  
-> <sup>3</sup> Then his father and his mother said unto him, *Is there* never a woman among the daughters of thy brethren, or among all my people, that thou goest to take a wife of the uncircumcised Philistines? And Samson said unto his father, Get her for me; for she pleaseth me well.  
-> <sup>4</sup> But his father and his mother knew not that it *was* of the LORD, that he sought an occasion against the Philistines: for at that time the Philistines had dominion over Israel.  
-> <sup>5</sup> Then went Samson down, and his father and his mother, to Timnath, and came to the vineyards of Timnath: and, behold, a young lion roared against him.  
-> <sup>6</sup> And the Spirit of the LORD came mightily upon him, and he rent him as he would have rent a kid, and *he had* nothing in his hand: but he told not his father or his mother what he had done.  
-> <sup>7</sup> And he went down, and talked with the woman; and she pleased Samson well.  
-> <sup>8</sup> And after a time he returned to take her, and he turned aside to see the carcase of the lion: and, behold, *there was* a swarm of bees and honey in the carcase of the lion.  
-> <sup>9</sup> And he took thereof in his hands, and went on eating, and came to his father and mother, and he gave them, and they did eat: but he told not them that he had taken the honey out of the carcase of the lion.  
+> **¹** And Samson went down to Timnath, and saw a woman in Timnath of the daughters of the Philistines.  
+> **²** And he came up, and told his father and his mother, and said, I have seen a woman in Timnath of the daughters of the Philistines: now therefore get her for me to wife.  
+> **³** Then his father and his mother said unto him, *Is there* never a woman among the daughters of thy brethren, or among all my people, that thou goest to take a wife of the uncircumcised Philistines? And Samson said unto his father, Get her for me; for she pleaseth me well.  
+> **⁴** But his father and his mother knew not that it *was* of the LORD, that he sought an occasion against the Philistines: for at that time the Philistines had dominion over Israel.  
+> **⁵** Then went Samson down, and his father and his mother, to Timnath, and came to the vineyards of Timnath: and, behold, a young lion roared against him.  
+> **⁶** And the Spirit of the LORD came mightily upon him, and he rent him as he would have rent a kid, and *he had* nothing in his hand: but he told not his father or his mother what he had done.  
+> **⁷** And he went down, and talked with the woman; and she pleased Samson well.  
+> **⁸** And after a time he returned to take her, and he turned aside to see the carcase of the lion: and, behold, *there was* a swarm of bees and honey in the carcase of the lion.  
+> **⁹** And he took thereof in his hands, and went on eating, and came to his father and mother, and he gave them, and they did eat: but he told not them that he had taken the honey out of the carcase of the lion.  
 
 Here, I. Samson, under the extraordinary guidance of Providence, seeks an occasion of quarrelling with the Philistines, by joining in affinity with them—a strange method, but the truth is Samson was himself a riddle, a paradox of a man, did that which was really great and good, by that which was seemingly weak and evil, because he was designed not to be a pattern to us (who must walk by rule, not by example), but a type of him who, though he knew no sin, was made sin for us, and appeared *in the likeness of sinful flesh,* that he might *condemn* and *destroy sin in the flesh,* Ro 8:3.
 
@@ -32,17 +32,17 @@ II\. Samson, by a special providence, is animated and encouraged to attack the P
 
 ## Samson's Riddle; Slaughter of the Philistines. (b. c. 1141.)
 
-> <sup>10</sup> So his father went down unto the woman: and Samson made there a feast; for so used the young men to do.  
-> <sup>11</sup> And it came to pass, when they saw him, that they brought thirty companions to be with him.  
-> <sup>12</sup> And Samson said unto them, I will now put forth a riddle unto you: if ye can certainly declare it me within the seven days of the feast, and find *it* out, then I will give you thirty sheets and thirty change of garments:  
-> <sup>13</sup> But if ye cannot declare *it* me, then shall ye give me thirty sheets and thirty change of garments. And they said unto him, Put forth thy riddle, that we may hear it.  
-> <sup>14</sup> And he said unto them, Out of the eater came forth meat, and out of the strong came forth sweetness. And they could not in three days expound the riddle.  
-> <sup>15</sup> And it came to pass on the seventh day, that they said unto Samson's wife, Entice thy husband, that he may declare unto us the riddle, lest we burn thee and thy father's house with fire: have ye called us to take that we have? *is it* not *so?*  
-> <sup>16</sup> And Samson's wife wept before him, and said, Thou dost but hate me, and lovest me not: thou hast put forth a riddle unto the children of my people, and hast not told *it* me. And he said unto her, Behold, I have not told *it* my father nor my mother, and shall I tell *it* thee?  
-> <sup>17</sup> And she wept before him the seven days, while their feast lasted: and it came to pass on the seventh day, that he told her, because she lay sore upon him: and she told the riddle to the children of her people.  
-> <sup>18</sup> And the men of the city said unto him on the seventh day before the sun went down, What *is* sweeter than honey? and what *is* stronger than a lion? And he said unto them, If ye had not plowed with my heifer, ye had not found out my riddle.  
-> <sup>19</sup> And the Spirit of the LORD came upon him, and he went down to Ashkelon, and slew thirty men of them, and took their spoil, and gave change of garments unto them which expounded the riddle. And his anger was kindled, and he went up to his father's house.  
-> <sup>20</sup> But Samson's wife was *given* to his companion, whom he had used as his friend.  
+> **¹⁰** So his father went down unto the woman: and Samson made there a feast; for so used the young men to do.  
+> **¹¹** And it came to pass, when they saw him, that they brought thirty companions to be with him.  
+> **¹²** And Samson said unto them, I will now put forth a riddle unto you: if ye can certainly declare it me within the seven days of the feast, and find *it* out, then I will give you thirty sheets and thirty change of garments:  
+> **¹³** But if ye cannot declare *it* me, then shall ye give me thirty sheets and thirty change of garments. And they said unto him, Put forth thy riddle, that we may hear it.  
+> **¹⁴** And he said unto them, Out of the eater came forth meat, and out of the strong came forth sweetness. And they could not in three days expound the riddle.  
+> **¹⁵** And it came to pass on the seventh day, that they said unto Samson's wife, Entice thy husband, that he may declare unto us the riddle, lest we burn thee and thy father's house with fire: have ye called us to take that we have? *is it* not *so?*  
+> **¹⁶** And Samson's wife wept before him, and said, Thou dost but hate me, and lovest me not: thou hast put forth a riddle unto the children of my people, and hast not told *it* me. And he said unto her, Behold, I have not told *it* my father nor my mother, and shall I tell *it* thee?  
+> **¹⁷** And she wept before him the seven days, while their feast lasted: and it came to pass on the seventh day, that he told her, because she lay sore upon him: and she told the riddle to the children of her people.  
+> **¹⁸** And the men of the city said unto him on the seventh day before the sun went down, What *is* sweeter than honey? and what *is* stronger than a lion? And he said unto them, If ye had not plowed with my heifer, ye had not found out my riddle.  
+> **¹⁹** And the Spirit of the LORD came upon him, and he went down to Ashkelon, and slew thirty men of them, and took their spoil, and gave change of garments unto them which expounded the riddle. And his anger was kindled, and he went up to his father's house.  
+> **²⁰** But Samson's wife was *given* to his companion, whom he had used as his friend.  
 
 We have here an account of Samson's wedding feast and the occasion it gave him to fall foul upon the Philistines.
 

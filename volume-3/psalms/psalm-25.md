@@ -10,13 +10,13 @@ This psalm is full of devout affection to God, the out-goings of holy desires to
 
 A psalm of David.
 
-> <sup>1</sup> Unto thee, O LORD, do I lift up my soul.  
-> <sup>2</sup> O my God, I trust in thee: let me not be ashamed, let not mine enemies triumph over me.  
-> <sup>3</sup> Yea, let none that wait on thee be ashamed: let them be ashamed which transgress without cause.  
-> <sup>4</sup> show me thy ways, O LORD; teach me thy paths.  
-> <sup>5</sup> Lead me in thy truth, and teach me: for thou *art* the God of my salvation; on thee do I wait all the day.  
-> <sup>6</sup> Remember, O LORD, thy tender mercies and thy lovingkindnesses; for they *have been* ever of old.  
-> <sup>7</sup> Remember not the sins of my youth, nor my transgressions: according to thy mercy remember thou me for thy goodness' sake, O LORD.  
+> **¹** Unto thee, O LORD, do I lift up my soul.  
+> **²** O my God, I trust in thee: let me not be ashamed, let not mine enemies triumph over me.  
+> **³** Yea, let none that wait on thee be ashamed: let them be ashamed which transgress without cause.  
+> **⁴** show me thy ways, O LORD; teach me thy paths.  
+> **⁵** Lead me in thy truth, and teach me: for thou *art* the God of my salvation; on thee do I wait all the day.  
+> **⁶** Remember, O LORD, thy tender mercies and thy lovingkindnesses; for they *have been* ever of old.  
+> **⁷** Remember not the sins of my youth, nor my transgressions: according to thy mercy remember thou me for thy goodness' sake, O LORD.  
 
 Here we have David's professions of desire towards God and dependence on him. He often begins his psalms with such professions, not to move God, but to move himself, and to engage himself to answer those professions.
 
@@ -38,13 +38,13 @@ V\. He is in a special manner earnest for the pardon of his sins (Ps 25:7): "*O 
 
 ## Divine Goodness and Mercy.
 
-> <sup>8</sup> Good and upright *is* the LORD: therefore will he teach sinners in the way.  
-> <sup>9</sup> The meek will he guide in judgment: and the meek will he teach his way.  
-> <sup>10</sup> All the paths of the LORD *are* mercy and truth unto such as keep his covenant and his testimonies.  
-> <sup>11</sup> For thy name's sake, O LORD, pardon mine iniquity; for it *is* great.  
-> <sup>12</sup> What man *is* he that feareth the LORD? him shall he teach in the way *that* he shall choose.  
-> <sup>13</sup> His soul shall dwell at ease; and his seed shall inherit the earth.  
-> <sup>14</sup> The secret of the LORD *is* with them that fear him; and he will show them his covenant.  
+> **⁸** Good and upright *is* the LORD: therefore will he teach sinners in the way.  
+> **⁹** The meek will he guide in judgment: and the meek will he teach his way.  
+> **¹⁰** All the paths of the LORD *are* mercy and truth unto such as keep his covenant and his testimonies.  
+> **¹¹** For thy name's sake, O LORD, pardon mine iniquity; for it *is* great.  
+> **¹²** What man *is* he that feareth the LORD? him shall he teach in the way *that* he shall choose.  
+> **¹³** His soul shall dwell at ease; and his seed shall inherit the earth.  
+> **¹⁴** The secret of the LORD *is* with them that fear him; and he will show them his covenant.  
 
 God's promises are here mixed with David's prayers. Many petitions there were in the former part of the psalm, and many we shall find in the latter; and here, in the middle of the psalm, he meditates upon the promises, and by a lively faith sucks and is satisfied from these breasts of consolation; for the promises of God are not only the best foundation of prayer, telling us what to pray for and encouraging our faith and hope in prayer, but they are a present answer to prayer. Let the prayer be made according to the promise, and then the promise may be read as a return to the prayer; and we are to believe the prayer is heard because the promise will be performed. But, in the midst of the promises, we fine one petition which seems to come in somewhat abruptly, and should have followed upon Ps 25:7. It is that (Ps 25:11), *Pardon my iniquity.* But prayers for the pardon of sin are never impertinent; we mingle sin with all our actions, and therefore should mingle such prayers with all our devotions. He enforces this petition with a double plea. The former is very natural: "*For thy name's sake pardon my iniquity,* because thou hast proclaimed thy name gracious and merciful, pardoning iniquity, for thy glory-sake, for thy promise-sake, for thy own sake," Isa 43:25. But the latter is very surprising: "*Pardon my iniquity, for it is great,* and the greater it is the more will divine mercy be magnified in the forgiveness of it." It is the glory of a great God to forgive great sins, to forgive iniquity, transgression, and sin, Ex 34:7. "It is great, and therefore I am undone, for ever undone, if infinite mercy do not interpose for the pardon of it. It is great; I see it to be so." The more we see of the heinousness of our sins the better qualified we are to find mercy with God. When we confess sin we must aggravate it.
 
@@ -66,14 +66,14 @@ III\. What these promises are.
 
 ## Precious Promises; Petitions.
 
-> <sup>15</sup> Mine eyes *are* ever toward the LORD; for he shall pluck my feet out of the net.  
-> <sup>16</sup> Turn thee unto me, and have mercy upon me; for I *am* desolate and afflicted.  
-> <sup>17</sup> The troubles of my heart are enlarged: *O* bring thou me out of my distresses.  
-> <sup>18</sup> Look upon mine affliction and my pain; and forgive all my sins.  
-> <sup>19</sup> Consider mine enemies; for they are many; and they hate me with cruel hatred.  
-> <sup>20</sup> O keep my soul, and deliver me: let me not be ashamed; for I put my trust in thee.  
-> <sup>21</sup> Let integrity and uprightness preserve me; for I wait on thee.  
-> <sup>22</sup> Redeem Israel, O God, out of all his troubles.  
+> **¹⁵** Mine eyes *are* ever toward the LORD; for he shall pluck my feet out of the net.  
+> **¹⁶** Turn thee unto me, and have mercy upon me; for I *am* desolate and afflicted.  
+> **¹⁷** The troubles of my heart are enlarged: *O* bring thou me out of my distresses.  
+> **¹⁸** Look upon mine affliction and my pain; and forgive all my sins.  
+> **¹⁹** Consider mine enemies; for they are many; and they hate me with cruel hatred.  
+> **²⁰** O keep my soul, and deliver me: let me not be ashamed; for I put my trust in thee.  
+> **²¹** Let integrity and uprightness preserve me; for I wait on thee.  
+> **²²** Redeem Israel, O God, out of all his troubles.  
 
 David, encouraged by the promises he had been meditating upon, here renews his addresses to God, and concludes the psalm, as he began, with professions of dependence upon God and desire towards him.
 

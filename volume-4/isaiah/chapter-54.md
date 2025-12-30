@@ -8,11 +8,11 @@ The death of Christ is the life of the church and of all that truly belong to it
 
 ## The Prosperity of the Church. (b. c. 706.)
 
-> <sup>1</sup> Sing, O barren, thou *that* didst not bear; break forth into singing, and cry aloud, thou *that* didst not travail with child: for more *are* the children of the desolate than the children of the married wife, saith the LORD.  
-> <sup>2</sup> Enlarge the place of thy tent, and let them stretch forth the curtains of thine habitations: spare not, lengthen thy cords, and strengthen thy stakes;  
-> <sup>3</sup> For thou shalt break forth on the right hand and on the left; and thy seed shall inherit the Gentiles, and make the desolate cities to be inhabited.  
-> <sup>4</sup> Fear not; for thou shalt not be ashamed: neither be thou confounded; for thou shalt not be put to shame: for thou shalt forget the shame of thy youth, and shalt not remember the reproach of thy widowhood any more.  
-> <sup>5</sup> For thy Maker *is* thine husband; the LORD of hosts *is* his name; and thy Redeemer the Holy One of Israel; The God of the whole earth shall he be called.  
+> **¹** Sing, O barren, thou *that* didst not bear; break forth into singing, and cry aloud, thou *that* didst not travail with child: for more *are* the children of the desolate than the children of the married wife, saith the LORD.  
+> **²** Enlarge the place of thy tent, and let them stretch forth the curtains of thine habitations: spare not, lengthen thy cords, and strengthen thy stakes;  
+> **³** For thou shalt break forth on the right hand and on the left; and thy seed shall inherit the Gentiles, and make the desolate cities to be inhabited.  
+> **⁴** Fear not; for thou shalt not be ashamed: neither be thou confounded; for thou shalt not be put to shame: for thou shalt forget the shame of thy youth, and shalt not remember the reproach of thy widowhood any more.  
+> **⁵** For thy Maker *is* thine husband; the LORD of hosts *is* his name; and thy Redeemer the Holy One of Israel; The God of the whole earth shall he be called.  
 
 If we apply this to the state of the Jews after their return out of captivity, it is a prophecy of the increase of their nation after they were settled in their own land. Jerusalem had been in the condition of a wife written childless, or a desolate solitary widow; but now it is promised that the city should be replenished and the country peopled again, that not only the ruins of Jerusalem should be repaired, but the suburbs of it extended on all sides and a great many buildings erected upon new foundations,—that those estates which had for many years been wrongfully held by the Babylonian Gentiles should now return to the right owners. God will again be a husband to them, and the reproach of their captivity, and the small number to which they were then reduced, shall be forgotten. And it is to be observed that, by virtue of the ancient promise made to Abraham of the increase of his seed, when they were restored to God's favour they multiplied greatly. Those that first came out of Babylon were but 42,000 (Ezr 2:64), about a fifteenth part of their number when they came out of Egypt; many came dropping to them afterwards, but we may suppose that to be the greatest number that ever came in a body; and yet above 500 years after, a little before their destruction by the Romans, a calculation was made by the number of the paschal lambs, and the lowest computation by that rule (allowing only ten to a lamb, whereas they might be twenty) made the nation to be nearly three millions. Josephus says, seven and twenty hundred thousand and odd, *Jewish War* 6.425. But we must apply it to the church of God in general; I mean the kingdom of God among men, God's city in the world, the children of God incorporated. Now observe,
 
@@ -30,11 +30,11 @@ II\. Its recovery from this low condition by the preaching of the gospel and the
 
 ## The Prosperity of the Church. (b. c. 706.)
 
-> <sup>6</sup> For the LORD hath called thee as a woman forsaken and grieved in spirit, and a wife of youth, when thou wast refused, saith thy God.  
-> <sup>7</sup> For a small moment have I forsaken thee; but with great mercies will I gather thee.  
-> <sup>8</sup> In a little wrath I hid my face from thee for a moment; but with everlasting kindness will I have mercy on thee, saith the LORD thy Redeemer.  
-> <sup>9</sup> For this *is as* the waters of Noah unto me: for *as* I have sworn that the waters of Noah should no more go over the earth; so have I sworn that I would not be wroth with thee, nor rebuke thee.  
-> <sup>10</sup> For the mountains shall depart, and the hills be removed; but my kindness shall not depart from thee, neither shall the covenant of my peace be removed, saith the LORD that hath mercy on thee.  
+> **⁶** For the LORD hath called thee as a woman forsaken and grieved in spirit, and a wife of youth, when thou wast refused, saith thy God.  
+> **⁷** For a small moment have I forsaken thee; but with great mercies will I gather thee.  
+> **⁸** In a little wrath I hid my face from thee for a moment; but with everlasting kindness will I have mercy on thee, saith the LORD thy Redeemer.  
+> **⁹** For this *is as* the waters of Noah unto me: for *as* I have sworn that the waters of Noah should no more go over the earth; so have I sworn that I would not be wroth with thee, nor rebuke thee.  
+> **¹⁰** For the mountains shall depart, and the hills be removed; but my kindness shall not depart from thee, neither shall the covenant of my peace be removed, saith the LORD that hath mercy on thee.  
 
 The seasonable succour and relief which God sent to his captives in Babylon, when they had a discharge from their bondage there, are here foretold, as a type and figure of all those consolations of God which are treasured up for the church in general and all believers in particular, in the covenant of grace.
 
@@ -48,13 +48,13 @@ II\. Look forward to future dangers, and in defiance of them God's favours to hi
 
 ## The Prosperity of the Church; The Prosperity of Zion. (b. c. 706.)
 
-> <sup>11</sup> O thou afflicted, tossed with tempest, *and* not comforted, behold, I will lay thy stones with fair colours, and lay thy foundations with sapphires.  
-> <sup>12</sup> And I will make thy windows of agates, and thy gates of carbuncles, and all thy borders of pleasant stones.  
-> <sup>13</sup> And all thy children *shall be* taught of the LORD; and great *shall be* the peace of thy children.  
-> <sup>14</sup> In righteousness shalt thou be established: thou shalt be far from oppression; for thou shalt not fear: and from terror; for it shall not come near thee.  
-> <sup>15</sup> Behold, they shall surely gather together, *but* not by me: whosoever shall gather together against thee shall fall for thy sake.  
-> <sup>16</sup> Behold, I have created the smith that bloweth the coals in the fire, and that bringeth forth an instrument for his work; and I have created the waster to destroy.  
-> <sup>17</sup> No weapon that is formed against thee shall prosper; and every tongue *that* shall rise against thee in judgment thou shalt condemn. This *is* the heritage of the servants of the LORD, and their righteousness *is* of me, saith the LORD.  
+> **¹¹** O thou afflicted, tossed with tempest, *and* not comforted, behold, I will lay thy stones with fair colours, and lay thy foundations with sapphires.  
+> **¹²** And I will make thy windows of agates, and thy gates of carbuncles, and all thy borders of pleasant stones.  
+> **¹³** And all thy children *shall be* taught of the LORD; and great *shall be* the peace of thy children.  
+> **¹⁴** In righteousness shalt thou be established: thou shalt be far from oppression; for thou shalt not fear: and from terror; for it shall not come near thee.  
+> **¹⁵** Behold, they shall surely gather together, *but* not by me: whosoever shall gather together against thee shall fall for thy sake.  
+> **¹⁶** Behold, I have created the smith that bloweth the coals in the fire, and that bringeth forth an instrument for his work; and I have created the waster to destroy.  
+> **¹⁷** No weapon that is formed against thee shall prosper; and every tongue *that* shall rise against thee in judgment thou shalt condemn. This *is* the heritage of the servants of the LORD, and their righteousness *is* of me, saith the LORD.  
 
 Very precious promises are here made to the church in her low condition, that God would not only continue his love to his people under their troubles as before, but that he would restore them to their former prosperity, nay, that he would raise them to greater prosperity than any they had yet enjoyed. In the foregoing chapter we had the humiliation and exaltation of Christ; here we have the humiliation and exaltation of the church; for, if we suffer with him, we shall reign with him. Observe,
 

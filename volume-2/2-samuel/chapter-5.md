@@ -8,11 +8,11 @@ How far Abner's deserting the house of Saul, his murder, and the murder of Ish-b
 
 ## David King over All Israel. (b. c. 1048.)
 
-> <sup>1</sup> Then came all the tribes of Israel to David unto Hebron, and spake, saying, Behold, we *are* thy bone and thy flesh.  
-> <sup>2</sup> Also in time past, when Saul was king over us, thou wast he that leddest out and broughtest in Israel: and the LORD said to thee, Thou shalt feed my people Israel, and thou shalt be a captain over Israel.  
-> <sup>3</sup> So all the elders of Israel came to the king to Hebron; and king David made a league with them in Hebron before the LORD: and they anointed David king over Israel.  
-> <sup>4</sup> David *was* thirty years old when he began to reign, *and* he reigned forty years.  
-> <sup>5</sup> In Hebron he reigned over Judah seven years and six months: and in Jerusalem he reigned thirty and three years over all Israel and Judah.  
+> **¹** Then came all the tribes of Israel to David unto Hebron, and spake, saying, Behold, we *are* thy bone and thy flesh.  
+> **²** Also in time past, when Saul was king over us, thou wast he that leddest out and broughtest in Israel: and the LORD said to thee, Thou shalt feed my people Israel, and thou shalt be a captain over Israel.  
+> **³** So all the elders of Israel came to the king to Hebron; and king David made a league with them in Hebron before the LORD: and they anointed David king over Israel.  
+> **⁴** David *was* thirty years old when he began to reign, *and* he reigned forty years.  
+> **⁵** In Hebron he reigned over Judah seven years and six months: and in Jerusalem he reigned thirty and three years over all Israel and Judah.  
 
 Here is, I. The humble address of all the tribes to David, beseeching him to take upon him the government (for they were now as sheep having no shepherd), and owning him for their king. Though David might by no means approve the murder of Ish-bosheth, yet he might improve the advantages he gained thereby, and accept the applications made to him thereupon. Judah had submitted to David as their king above seven years ago, and their ease and happiness, under his administration, encouraged the rest of the tribes to make their court to him. What numbers came from each tribe, with what zeal and sincerity they came, and how they were entertained for three days at Hebron, when they were all of one heart to make David king, we have a full account, 1Ch 12:23-40. Here we have only the heads of their address, containing the grounds they went upon in making David king. 1. Their relation to him was some inducement: "*We are thy bone and thy flesh* (2Sa 5:1), not only thou art our bone and our flesh, not a stranger, unqualified by the law to be king (De 17:15), but we are thine," that is, "we know that thou considerest us as thy bone and thy flesh, and hast as tender a concern for us as a man has for his own body, which Saul and his house had not. *We are thy bone and thy flesh,* and therefore thou wilt be as glad as we shall be to put an end to this long civil war; and thou wilt take pity on us, protect us, and do thy utmost for our welfare." Those who take Christ for their king may thus plead with him: "*We are thy bone and thy flesh,* thou hast made thyself in all things *like unto thy brethren* (Heb 2:17); therefore be thou our ruler, and let this ruin be under thy hand," Isa 3:6. 2. His former good services to the public were a further inducement (2Sa 5:2): "*When Saul was king* he was but the cypher, thou wast the figure, *thou wast he that leddest out* Israel to battle, and broughtest them in in triumph; and therefore who so fit now to fill the vacant throne?" He that is faithful in a little deserves to be entrusted with more. Former good offices done for us should be gratefully remembered by us when there is occasion. 3. The divine appointment was the greatest inducement of all: *The Lord said, Thou shalt feed my people Israel,* that is, thou shalt rule them; for princes are to feed their people as shepherds, in every thing consulting the subjects' benefit, feeding them and not fleecing them. "And thou shalt be not only a king to govern in peace, but a captain to preside in war, and be exposed to all the toils and perils of the camp." Since God has said so, now at length, when need drives them to it, they are persuaded to say so too.
 
@@ -22,11 +22,11 @@ III\. A general account of his reign and age. He was thirty years old when he be
 
 ## David Takes Mount Sion. (b. c. 1047.)
 
-> <sup>6</sup> And the king and his men went to Jerusalem unto the Jebusites, the inhabitants of the land: which spake unto David, saying, Except thou take away the blind and the lame, thou shalt not come in hither: thinking, David cannot come in hither.  
-> <sup>7</sup> Nevertheless David took the strong hold of Zion: the same *is* the city of David.  
-> <sup>8</sup> And David said on that day, Whosoever getteth up to the gutter, and smiteth the Jebusites, and the lame and the blind, *that are* hated of David's soul, *he shall be chief and captain.* Wherefore they said, The blind and the lame shall not come into the house.  
-> <sup>9</sup> So David dwelt in the fort, and called it the city of David. And David built round about from Millo and inward.  
-> <sup>10</sup> And David went on, and grew great, and the LORD God of hosts *was* with him.  
+> **⁶** And the king and his men went to Jerusalem unto the Jebusites, the inhabitants of the land: which spake unto David, saying, Except thou take away the blind and the lame, thou shalt not come in hither: thinking, David cannot come in hither.  
+> **⁷** Nevertheless David took the strong hold of Zion: the same *is* the city of David.  
+> **⁸** And David said on that day, Whosoever getteth up to the gutter, and smiteth the Jebusites, and the lame and the blind, *that are* hated of David's soul, *he shall be chief and captain.* Wherefore they said, The blind and the lame shall not come into the house.  
+> **⁹** So David dwelt in the fort, and called it the city of David. And David built round about from Millo and inward.  
+> **¹⁰** And David went on, and grew great, and the LORD God of hosts *was* with him.  
 
 If Salem, the place of which Melchizedec was king, was Jerusalem (as seems probable from Ps 76:2), it was famous in Abraham's time. Joshua, in his time, found it the chief city of the south part of Canaan, Jos 10:1-3. It fell to Benjamin's lot (Jos 18:28), but joined close to Judah's, Jos 15:8. The children of Judah had taken it (Jdg 1:8), but the children of Benjamin suffered the Jebusites to dwell among them (Jdg 1:21), and they grew so upon them that it became a *city of Jebusites,* Jdg 19:11. Now the very first exploit David did, after he was anointed king over all Israel, was to gain Jerusalem out of the hand of the Jebusites, which, because it belonged to Benjamin, he could not well attempt till that tribe, which long adhered to Saul's house (1Ch 12:29), submitted to him. Here we have,
 
@@ -38,12 +38,12 @@ III\. His fixing his royal seat in Sion. He himself dwelt in the fort (the stren
 
 ## David's Children. (b. c. 1046.)
 
-> <sup>11</sup> And Hiram king of Tyre sent messengers to David, and cedar trees, and carpenters, and masons: and they built David a house.  
-> <sup>12</sup> And David perceived that the LORD had established him king over Israel, and that he had exalted his kingdom for his people Israel's sake.  
-> <sup>13</sup> And David took *him* more concubines and wives out of Jerusalem, after he was come from Hebron: and there were yet sons and daughters born to David.  
-> <sup>14</sup> And these *be* the names of those that were born unto him in Jerusalem; Shammua, and Shobab, and Nathan, and Solomon,  
-> <sup>15</sup> Ibhar also, and Elishua, and Nepheg, and Japhia,  
-> <sup>16</sup> And Elishama, and Eliada, and Eliphalet.  
+> **¹¹** And Hiram king of Tyre sent messengers to David, and cedar trees, and carpenters, and masons: and they built David a house.  
+> **¹²** And David perceived that the LORD had established him king over Israel, and that he had exalted his kingdom for his people Israel's sake.  
+> **¹³** And David took *him* more concubines and wives out of Jerusalem, after he was come from Hebron: and there were yet sons and daughters born to David.  
+> **¹⁴** And these *be* the names of those that were born unto him in Jerusalem; Shammua, and Shobab, and Nathan, and Solomon,  
+> **¹⁵** Ibhar also, and Elishua, and Nepheg, and Japhia,  
+> **¹⁶** And Elishama, and Eliada, and Eliphalet.  
 
 Here is, I. David's house built, a royal palace, fit for the reception of the court he kept and the homage that was paid to him, 2Sa 5:11. The Jews were husbandmen and shepherds, and did not much addict themselves either to merchandise or manufactures; and therefore Hiram, king of Tyre, a wealthy prince, when he sent to congratulate David on his accession to the throne, offered him workmen to build him a house. David thankfully accepted the offer, and Hiram's workmen built David a house to his mind. Many have excelled in arts and sciences who were strangers to the covenants of promise. Yet David's house was never the worse, nor the less fit to be dedicated to God, for being built by the sons of the stranger. It is prophesied of the gospel church, *The sons of the strangers shall build up thy walls, and their kings shall minister unto thee,* Isa 60:10.
 
@@ -53,15 +53,15 @@ III\. David's family multiplied and increased. All the sons that were born to hi
 
 ## David Defeats the Philistines. (b. c. 1046.)
 
-> <sup>17</sup> But when the Philistines heard that they had anointed David king over Israel, all the Philistines came up to seek David; and David heard *of it,* and went down to the hold.  
-> <sup>18</sup> The Philistines also came and spread themselves in the valley of Rephaim.  
-> <sup>19</sup> And David enquired of the LORD, saying, Shall I go up to the Philistines? wilt thou deliver them into mine hand? And the LORD said unto David, Go up: for I will doubtless deliver the Philistines into thine hand.  
-> <sup>20</sup> And David came to Baal-perazim, and David smote them there, and said, The LORD hath broken forth upon mine enemies before me, as the breach of waters. Therefore he called the name of that place Baal-perazim.  
-> <sup>21</sup> And there they left their images, and David and his men burned them.  
-> <sup>22</sup> And the Philistines came up yet again, and spread themselves in the valley of Rephaim.  
-> <sup>23</sup> And when David enquired of the LORD, he said, Thou shalt not go up; *but* fetch a compass behind them, and come upon them over against the mulberry trees.  
-> <sup>24</sup> And let it be, when thou hearest the sound of a going in the tops of the mulberry trees, that then thou shalt bestir thyself: for then shall the LORD go out before thee, to smite the host of the Philistines.  
-> <sup>25</sup> And David did so, as the LORD had commanded him; and smote the Philistines from Geba until thou come to Gazer.  
+> **¹⁷** But when the Philistines heard that they had anointed David king over Israel, all the Philistines came up to seek David; and David heard *of it,* and went down to the hold.  
+> **¹⁸** The Philistines also came and spread themselves in the valley of Rephaim.  
+> **¹⁹** And David enquired of the LORD, saying, Shall I go up to the Philistines? wilt thou deliver them into mine hand? And the LORD said unto David, Go up: for I will doubtless deliver the Philistines into thine hand.  
+> **²⁰** And David came to Baal-perazim, and David smote them there, and said, The LORD hath broken forth upon mine enemies before me, as the breach of waters. Therefore he called the name of that place Baal-perazim.  
+> **²¹** And there they left their images, and David and his men burned them.  
+> **²²** And the Philistines came up yet again, and spread themselves in the valley of Rephaim.  
+> **²³** And when David enquired of the LORD, he said, Thou shalt not go up; *but* fetch a compass behind them, and come upon them over against the mulberry trees.  
+> **²⁴** And let it be, when thou hearest the sound of a going in the tops of the mulberry trees, that then thou shalt bestir thyself: for then shall the LORD go out before thee, to smite the host of the Philistines.  
+> **²⁵** And David did so, as the LORD had commanded him; and smote the Philistines from Geba until thou come to Gazer.  
 
 The particular service for which David was raised up was to *save Israel out of the hand of the Philistines,* 2Sa 3:18. This therefore divine Providence, in the first place, gives him an opportunity of accomplishing. Two great victories obtained over the Philistines we have here an account of, by which David not only balanced the disgrace and retrieved the loss Israel had sustained in the battle wherein Saul was slain, but went far towards the total subduing of those vexatious neighbours, the last remains of the devoted nations.
 

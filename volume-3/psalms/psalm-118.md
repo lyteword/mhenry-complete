@@ -8,24 +8,24 @@ It is probable that David penned this psalm when he had, after many a story, wea
 
 ## Goodness of God Celebrated; Grateful Acknowledgments.
 
-> <sup>1</sup> O give thanks unto the LORD; for *he is* good: because his mercy *endureth* for ever.  
-> <sup>2</sup> Let Israel now say, that his mercy *endureth* for ever.  
-> <sup>3</sup> Let the house of Aaron now say, that his mercy *endureth* for ever.  
-> <sup>4</sup> Let them now that fear the LORD say, that his mercy *endureth* for ever.  
-> <sup>5</sup> I called upon the LORD in distress: the LORD answered me, *and set me* in a large place.  
-> <sup>6</sup> The LORD *is* on my side; I will not fear: what can man do unto me?  
-> <sup>7</sup> The LORD taketh my part with them that help me: therefore shall I see *my desire* upon them that hate me.  
-> <sup>8</sup> *It is* better to trust in the LORD than to put confidence in man.  
-> <sup>9</sup> *It is* better to trust in the LORD than to put confidence in princes.  
-> <sup>10</sup> All nations compassed me about: but in the name of the LORD will I destroy them.  
-> <sup>11</sup> They compassed me about; yea, they compassed me about: but in the name of the LORD I will destroy them.  
-> <sup>12</sup> They compassed me about like bees; they are quenched as the fire of thorns: for in the name of the LORD I will destroy them.  
-> <sup>13</sup> Thou hast thrust sore at me that I might fall: but the LORD helped me.  
-> <sup>14</sup> The LORD *is* my strength and song, and is become my salvation.  
-> <sup>15</sup> The voice of rejoicing and salvation *is* in the tabernacles of the righteous: the right hand of the LORD doeth valiantly.  
-> <sup>16</sup> The right hand of the LORD is exalted: the right hand of the LORD doeth valiantly.  
-> <sup>17</sup> I shall not die, but live, and declare the works of the LORD.  
-> <sup>18</sup> The LORD hath chastened me sore: but he hath not given me over unto death.  
+> **¹** O give thanks unto the LORD; for *he is* good: because his mercy *endureth* for ever.  
+> **²** Let Israel now say, that his mercy *endureth* for ever.  
+> **³** Let the house of Aaron now say, that his mercy *endureth* for ever.  
+> **⁴** Let them now that fear the LORD say, that his mercy *endureth* for ever.  
+> **⁵** I called upon the LORD in distress: the LORD answered me, *and set me* in a large place.  
+> **⁶** The LORD *is* on my side; I will not fear: what can man do unto me?  
+> **⁷** The LORD taketh my part with them that help me: therefore shall I see *my desire* upon them that hate me.  
+> **⁸** *It is* better to trust in the LORD than to put confidence in man.  
+> **⁹** *It is* better to trust in the LORD than to put confidence in princes.  
+> **¹⁰** All nations compassed me about: but in the name of the LORD will I destroy them.  
+> **¹¹** They compassed me about; yea, they compassed me about: but in the name of the LORD I will destroy them.  
+> **¹²** They compassed me about like bees; they are quenched as the fire of thorns: for in the name of the LORD I will destroy them.  
+> **¹³** Thou hast thrust sore at me that I might fall: but the LORD helped me.  
+> **¹⁴** The LORD *is* my strength and song, and is become my salvation.  
+> **¹⁵** The voice of rejoicing and salvation *is* in the tabernacles of the righteous: the right hand of the LORD doeth valiantly.  
+> **¹⁶** The right hand of the LORD is exalted: the right hand of the LORD doeth valiantly.  
+> **¹⁷** I shall not die, but live, and declare the works of the LORD.  
+> **¹⁸** The LORD hath chastened me sore: but he hath not given me over unto death.  
 
 It appears here, as often as elsewhere, that David had his heart full of the goodness of God. He loved to think of it, loved to speak of it, and was very solicitous that God might have the praise of it and others the comfort of it. The more our hearts are impressed with a sense of God's goodness the more they will be enlarged in all manner of obedience. In these verses,
 
@@ -45,17 +45,17 @@ This also is applicable to Jesus Christ. God *answered him, and set him in a lar
 
 ## David Triumphs in God; The Humiliation and Exaltation of the Messiah.
 
-> <sup>19</sup> Open to me the gates of righteousness: I will go into them, *and* I will praise the LORD:  
-> <sup>20</sup> This gate of the LORD, into which the righteous shall enter.  
-> <sup>21</sup> I will praise thee: for thou hast heard me, and art become my salvation.  
-> <sup>22</sup> The stone *which* the builders refused is become the head *stone* of the corner.  
-> <sup>23</sup> This is the LORD's doing; it *is* marvellous in our eyes.  
-> <sup>24</sup> This *is* the day *which* the LORD hath made; we will rejoice and be glad in it.  
-> <sup>25</sup> Save now, I beseech thee, O LORD: O LORD, I beseech thee, send now prosperity.  
-> <sup>26</sup> Blessed *be* he that cometh in the name of the LORD: we have blessed you out of the house of the LORD.  
-> <sup>27</sup> God *is* the LORD, which hath showed us light: bind the sacrifice with cords, *even* unto the horns of the altar.  
-> <sup>28</sup> Thou *art* my God, and I will praise thee: *thou art* my God, I will exalt thee.  
-> <sup>29</sup> O give thanks unto the LORD; for *he is* good: for his mercy *endureth* for ever.  
+> **¹⁹** Open to me the gates of righteousness: I will go into them, *and* I will praise the LORD:  
+> **²⁰** This gate of the LORD, into which the righteous shall enter.  
+> **²¹** I will praise thee: for thou hast heard me, and art become my salvation.  
+> **²²** The stone *which* the builders refused is become the head *stone* of the corner.  
+> **²³** This is the LORD's doing; it *is* marvellous in our eyes.  
+> **²⁴** This *is* the day *which* the LORD hath made; we will rejoice and be glad in it.  
+> **²⁵** Save now, I beseech thee, O LORD: O LORD, I beseech thee, send now prosperity.  
+> **²⁶** Blessed *be* he that cometh in the name of the LORD: we have blessed you out of the house of the LORD.  
+> **²⁷** God *is* the LORD, which hath showed us light: bind the sacrifice with cords, *even* unto the horns of the altar.  
+> **²⁸** Thou *art* my God, and I will praise thee: *thou art* my God, I will exalt thee.  
+> **²⁹** O give thanks unto the LORD; for *he is* good: for his mercy *endureth* for ever.  
 
 We have here an illustrious prophecy of the humiliation and exaltation of our Lord Jesus, his sufferings, and the glory that should follow. Peter thus applies it directly to the chief priests and scribes, and none of them could charge him with misapplying it, Ac 4:11. Now observe here,
 

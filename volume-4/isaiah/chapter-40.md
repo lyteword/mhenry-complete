@@ -10,8 +10,8 @@ In this chapter we have, I. Orders given to preach and publish the glad tidings 
 
 ## Evangelical Predictions. (b. c. 708.)
 
-> <sup>1</sup> Comfort ye, comfort ye my people, saith your God.  
-> <sup>2</sup> Speak ye comfortably to Jerusalem, and cry unto her, that her warfare is accomplished, that her iniquity is pardoned: for she hath received of the LORD's hand double for all her sins.  
+> **¹** Comfort ye, comfort ye my people, saith your God.  
+> **²** Speak ye comfortably to Jerusalem, and cry unto her, that her warfare is accomplished, that her iniquity is pardoned: for she hath received of the LORD's hand double for all her sins.  
 
 We have here the commission and instructions given, not to this prophet only, but, with him, to all the Lord's prophets, nay, and to all Christ's ministers, to proclaim comfort to God's people. 1. This did not only warrant, but enjoin, this prophet himself to encourage the good people who lived in his own time, who could not but have very melancholy apprehensions of things when they saw Judah and Jerusalem by their daring impieties ripening apace for ruin, and God in his providence hastening ruin upon them. Let them be sure that, notwithstanding all this, God had mercy in store for them. 2. It was especially a direction to the prophets that should live in the time of captivity, when Jerusalem was in ruins; they must encourage the captives to hope for enlargement in due time. 3. Gospel ministers, being employed by the blessed Spirit as comforters, and as helpers of the joy of Christians, are here put in mind of their business. Here we have,
 
@@ -21,12 +21,12 @@ II\. Comfortable words directed to Jerusalem in particular: "*Speak to the heart
 
 ## Evangelical Predictions. (b. c. 708.)
 
-> <sup>3</sup> The voice of him that crieth in the wilderness, Prepare ye the way of the LORD, make straight in the desert a highway for our God.  
-> <sup>4</sup> Every valley shall be exalted, and every mountain and hill shall be made low: and the crooked shall be made straight, and the rough places plain:  
-> <sup>5</sup> And the glory of the LORD shall be revealed, and all flesh shall see *it* together: for the mouth of the LORD hath spoken *it.*  
-> <sup>6</sup> The voice said, Cry. And he said, What shall I cry? All flesh *is* grass, and all the goodliness thereof *is* as the flower of the field:  
-> <sup>7</sup> The grass withereth, the flower fadeth: because the spirit of the LORD bloweth upon it: surely the people *is* grass.  
-> <sup>8</sup> The grass withereth, the flower fadeth: but the word of our God shall stand for ever.  
+> **³** The voice of him that crieth in the wilderness, Prepare ye the way of the LORD, make straight in the desert a highway for our God.  
+> **⁴** Every valley shall be exalted, and every mountain and hill shall be made low: and the crooked shall be made straight, and the rough places plain:  
+> **⁵** And the glory of the LORD shall be revealed, and all flesh shall see *it* together: for the mouth of the LORD hath spoken *it.*  
+> **⁶** The voice said, Cry. And he said, What shall I cry? All flesh *is* grass, and all the goodliness thereof *is* as the flower of the field:  
+> **⁷** The grass withereth, the flower fadeth: because the spirit of the LORD bloweth upon it: surely the people *is* grass.  
+> **⁸** The grass withereth, the flower fadeth: but the word of our God shall stand for ever.  
 
 The time to favour Zion, yea, the set time, having come, the people of God must be prepared, by repentance and faith, for the favours designed them; and, in order to call them to both these, we have here *the voice of one crying in the wilderness,* which *may* be applied to those prophets who were with the captives in their wilderness-state, and who, when they saw the day of their deliverance dawn, called earnestly upon them to prepare for it, and assured them that all the difficulties which stood in the way of their deliverance should be got over. It is a good sign that mercy is preparing for us if we find God's grace preparing us for it, Ps 10:17. But it *must* be applied to John the Baptist; for, though God was the speaker, he was *the voice of one crying in the wilderness,* and his business was to *prepare the way of the Lord,* to dispose men's minds for the reception and entertainment of the gospel of Christ. The way of the Lord is prepared,
 
@@ -44,9 +44,9 @@ II\. By confidence in the word of the Lord, and not in any creature. *The mouth 
 
 ## Evangelical Predictions. (b. c. 708.)
 
-> <sup>9</sup> O Zion, that bringest good tidings, get thee up into the high mountain; O Jerusalem, that bringest good tidings, lift up thy voice with strength; lift *it* up, be not afraid; say unto the cities of Judah, Behold your God!  
-> <sup>10</sup> Behold, the Lord GOD will come with strong *hand,* and his arm shall rule for him: behold, his reward *is* with him, and his work before him.  
-> <sup>11</sup> He shall feed his flock like a shepherd: he shall gather the lambs with his arm, and carry *them* in his bosom, *and* shall gently lead those that are with young.  
+> **⁹** O Zion, that bringest good tidings, get thee up into the high mountain; O Jerusalem, that bringest good tidings, lift up thy voice with strength; lift *it* up, be not afraid; say unto the cities of Judah, Behold your God!  
+> **¹⁰** Behold, the Lord GOD will come with strong *hand,* and his arm shall rule for him: behold, his reward *is* with him, and his work before him.  
+> **¹¹** He shall feed his flock like a shepherd: he shall gather the lambs with his arm, and carry *them* in his bosom, *and* shall gently lead those that are with young.  
 
 It was promised (Isa 40:5) *that the glory of the Lord shall be revealed;* that is it with the hopes of which God's people must be comforted. Now here we are told,
 
@@ -60,12 +60,12 @@ II\. What that glory is which shall be revealed. "Your God will come, will show 
 
 ## Evangelical Predictions. (b. c. 708.)
 
-> <sup>12</sup> Who hath measured the waters in the hollow of his hand, and meted out heaven with the span, and comprehended the dust of the earth in a measure, and weighed the mountains in scales, and the hills in a balance?  
-> <sup>13</sup> Who hath directed the Spirit of the LORD, or *being* his counsellor hath taught him?  
-> <sup>14</sup> With whom took he counsel, and *who* instructed him, and taught him in the path of judgment, and taught him knowledge, and showed to him the way of understanding?  
-> <sup>15</sup> Behold, the nations *are* as a drop of a bucket, and are counted as the small dust of the balance: behold, he taketh up the isles as a very little thing.  
-> <sup>16</sup> And Lebanon *is* not sufficient to burn, nor the beasts thereof sufficient for a burnt offering.  
-> <sup>17</sup> All nations before him *are* as nothing; and they are counted to him less than nothing, and vanity.  
+> **¹²** Who hath measured the waters in the hollow of his hand, and meted out heaven with the span, and comprehended the dust of the earth in a measure, and weighed the mountains in scales, and the hills in a balance?  
+> **¹³** Who hath directed the Spirit of the LORD, or *being* his counsellor hath taught him?  
+> **¹⁴** With whom took he counsel, and *who* instructed him, and taught him in the path of judgment, and taught him knowledge, and showed to him the way of understanding?  
+> **¹⁵** Behold, the nations *are* as a drop of a bucket, and are counted as the small dust of the balance: behold, he taketh up the isles as a very little thing.  
+> **¹⁶** And Lebanon *is* not sufficient to burn, nor the beasts thereof sufficient for a burnt offering.  
+> **¹⁷** All nations before him *are* as nothing; and they are counted to him less than nothing, and vanity.  
 
 The scope of these verses is to show what a great and glorious being the Lord Jehovah is, who is Israel's God and Saviour. It comes in here, 1. To encourage his people that were captives in Babylon to hope in him, and to depend upon him for deliverance, though they were ever so weak and their oppressors ever so strong. 2. To engage them to cleave to him, and not to turn aside after other gods; for there are none to be compared with him. 3. To possess all those who receive the glad tidings of redemption by Christ with a holy awe and reverence of God. Though it was said (Isa 40:9), *Behold your God,* and (Isa 40:11) *He shall feed his flock like a shepherd,* yet these condescensions of his grace must not be thought of with any diminution to the transcendencies of his glory. Let us see how great our God is, and fear before him; for,
 
@@ -79,15 +79,15 @@ IV\. The services of the church can make no addition to him nor do they bear any
 
 ## Vanity of Idols. (b. c. 708.)
 
-> <sup>18</sup> To whom then will ye liken God? or what likeness will ye compare unto him?  
-> <sup>19</sup> The workman melteth a graven image, and the goldsmith spreadeth it over with gold, and casteth silver chains.  
-> <sup>20</sup> He that *is* so impoverished that he hath no oblation chooseth a tree *that* will not rot; he seeketh unto him a cunning workman to prepare a graven image, *that* shall not be moved.  
-> <sup>21</sup> Have ye not known? have ye not heard? hath it not been told you from the beginning? have ye not understood from the foundations of the earth?  
-> <sup>22</sup> *It is* he that sitteth upon the circle of the earth, and the inhabitants thereof *are* as grasshoppers; that stretcheth out the heavens as a curtain, and spreadeth them out as a tent to dwell in:  
-> <sup>23</sup> That bringeth the princes to nothing; he maketh the judges of the earth as vanity.  
-> <sup>24</sup> Yea, they shall not be planted; yea, they shall not be sown: yea, their stock shall not take root in the earth: and he shall also blow upon them, and they shall wither, and the whirlwind shall take them away as stubble.  
-> <sup>25</sup> To whom then will ye liken me, or shall I be equal? saith the Holy One.  
-> <sup>26</sup> Lift up your eyes on high, and behold who hath created these *things,* that bringeth out their host by number: he calleth them all by names by the greatness of his might, for that *he is* strong in power; not one faileth.  
+> **¹⁸** To whom then will ye liken God? or what likeness will ye compare unto him?  
+> **¹⁹** The workman melteth a graven image, and the goldsmith spreadeth it over with gold, and casteth silver chains.  
+> **²⁰** He that *is* so impoverished that he hath no oblation chooseth a tree *that* will not rot; he seeketh unto him a cunning workman to prepare a graven image, *that* shall not be moved.  
+> **²¹** Have ye not known? have ye not heard? hath it not been told you from the beginning? have ye not understood from the foundations of the earth?  
+> **²²** *It is* he that sitteth upon the circle of the earth, and the inhabitants thereof *are* as grasshoppers; that stretcheth out the heavens as a curtain, and spreadeth them out as a tent to dwell in:  
+> **²³** That bringeth the princes to nothing; he maketh the judges of the earth as vanity.  
+> **²⁴** Yea, they shall not be planted; yea, they shall not be sown: yea, their stock shall not take root in the earth: and he shall also blow upon them, and they shall wither, and the whirlwind shall take them away as stubble.  
+> **²⁵** To whom then will ye liken me, or shall I be equal? saith the Holy One.  
+> **²⁶** Lift up your eyes on high, and behold who hath created these *things,* that bringeth out their host by number: he calleth them all by names by the greatness of his might, for that *he is* strong in power; not one faileth.  
 
 The prophet here reproves those, 1. Who represented God by creatures, and so changed his truth into a lie and his glory into shame, who made images and then said that they resembled God, and paid their homage to them accordingly. 2. Who put creatures in the place of God, who feared them more than God, as if they were a match for him, or loved them more than God, as if they were fit to be rivals with him. Twice the challenge is here made, *To whom will you liken God?* Isa 40:18, and again Isa 40:25. The Holy One himself says, *To whom will you liken me?* This shows the folly and absurdity, (1.) Of corporal idolatry, making visible images of him who is invisible, imagining the image to be animated by the deity, and the deity to be presentiated by the image, which, as it was an instance of the corruption of the human nature, so it was an intolerable injury to the honour of the divine nature. (2.) Of spiritual idolatry, making creatures equal with God in our affections. Proud people make themselves equal with God; covetous people make their money equal with God; and whatever we esteem or love, fear or hope in, more than God, that creature we equal with God, which is the highest affront imaginable to him who is *God over all.* Now, to show the absurdity of this,
 
@@ -101,11 +101,11 @@ II\. He describes God as infinitely great, and worthy of the highest veneration;
 
 ## Jehovah's Grandeur and Compassion. (b. c. 708.)
 
-> <sup>27</sup> Why sayest thou, O Jacob, and speakest, O Israel, My way is hid from the LORD, and my judgment is passed over from my God?  
-> <sup>28</sup> Hast thou not known? hast thou not heard, *that* the everlasting God, the LORD, the Creator of the ends of the earth, fainteth not, neither is weary? *there is* no searching of his understanding.  
-> <sup>29</sup> He giveth power to the faint; and to *them that have* no might he increaseth strength.  
-> <sup>30</sup> Even the youths shall faint and be weary, and the young men shall utterly fall:  
-> <sup>31</sup> But they that wait upon the LORD shall renew *their* strength; they shall mount up with wings as eagles; they shall run, and not be weary; *and* they shall walk, and not faint.  
+> **²⁷** Why sayest thou, O Jacob, and speakest, O Israel, My way is hid from the LORD, and my judgment is passed over from my God?  
+> **²⁸** Hast thou not known? hast thou not heard, *that* the everlasting God, the LORD, the Creator of the ends of the earth, fainteth not, neither is weary? *there is* no searching of his understanding.  
+> **²⁹** He giveth power to the faint; and to *them that have* no might he increaseth strength.  
+> **³⁰** Even the youths shall faint and be weary, and the young men shall utterly fall:  
+> **³¹** But they that wait upon the LORD shall renew *their* strength; they shall mount up with wings as eagles; they shall run, and not be weary; *and* they shall walk, and not faint.  
 
 Here, I. The prophet reproves the people of God, who are now supposed to be captives in Babylon for their unbelief and distrust of God, and the dejections and despondencies of their spirit under their affliction (Isa 40:27): "*Why sayest thou, O Jacob!* to thyself and to those about thee, *My way is hidden from the Lord?* Why dost thou make hard and melancholy conclusions concerning thyself and thy present case as if the latter were desperate?" 1. The titles he here gives them were enough to shame them out of their distrusts: *O Jacob! O Israel!* Let them remember whence they took these names—from one who had found God faithful to him and kind in all his straits; and why they bore these names—as God's professing people, a people in covenant with him. 2. The way of reproving them is by reasoning with them: "Why? Consider whether thou hast any ground to say so." Many of our foolish frets and foolish fears would vanish before a strict enquiry into the causes of them. 3. That which they are reproved for is an ill-natured, ill-favoured, word they spoke of God, as if he had cast them off. There seems to be an emphasis laid upon their saying it: Why *sayest* thou and *speakest* thou? It is bad to have evil thoughts rise in our mind, but it is worse to put an *imprimatur—a sanction* to them, and turn them into evil words. David reflects with regret upon what he said in his haste, when he was in distress. 4. The ill word they said was a word of despair concerning their present calamitous condition. They were ready to conclude, (1.) That God would not heed them: "*My way is hidden from the Lord;* he takes no notice of our straits, nor concerns himself any more in our concernments. There are such difficulties in our case that even divine wisdom and power will be nonplussed." A man *whose way is hidden* is one whom *God has hedged in,* Job 3:23. (2.) That God could not help them: "*My judgment is passed over from my God;* my case is past relief, so far past it that God himself cannot redress the grievances of it. *Our bones are dried.*" Eze 37:11.
 

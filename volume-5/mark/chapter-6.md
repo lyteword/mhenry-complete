@@ -8,12 +8,12 @@ A great variety of observable passages we have, in this chapter, concerning our 
 
 ## The Contempt Poured on Christ.
 
-> <sup>1</sup> And he went out from thence, and came into his own country; and his disciples follow him.  
-> <sup>2</sup> And when the sabbath day was come, he began to teach in the synagogue: and many hearing *him* were astonished, saying, From whence hath this *man* these things? and what wisdom *is* this which is given unto him, that even such mighty works are wrought by his hands?  
-> <sup>3</sup> Is not this the carpenter, the son of Mary, the brother of James, and Joses, and of Juda, and Simon? and are not his sisters here with us? And they were offended at him.  
-> <sup>4</sup> But Jesus said unto them, A prophet is not without honour, but in his own country, and among his own kin, and in his own house.  
-> <sup>5</sup> And he could there do no mighty work, save that he laid his hands upon a few sick folk, and healed *them.*  
-> <sup>6</sup> And he marvelled because of their unbelief. And he went round about the villages, teaching.  
+> **¹** And he went out from thence, and came into his own country; and his disciples follow him.  
+> **²** And when the sabbath day was come, he began to teach in the synagogue: and many hearing *him* were astonished, saying, From whence hath this *man* these things? and what wisdom *is* this which is given unto him, that even such mighty works are wrought by his hands?  
+> **³** Is not this the carpenter, the son of Mary, the brother of James, and Joses, and of Juda, and Simon? and are not his sisters here with us? And they were offended at him.  
+> **⁴** But Jesus said unto them, A prophet is not without honour, but in his own country, and among his own kin, and in his own house.  
+> **⁵** And he could there do no mighty work, save that he laid his hands upon a few sick folk, and healed *them.*  
+> **⁶** And he marvelled because of their unbelief. And he went round about the villages, teaching.  
 
 Here, I. Christ makes a visit to *his own country,* the place not of his birth, but of his education; that was *Nazareth;* where his relations were. He had been in danger of his life among them (Lu 4:29), and yet he came among them again; so strangely doth he wait to be gracious, and seek the salvation of his enemies. Whither he went, though it was into danger, *his disciples followed him* (Mk 6:1); for they had left all, to follow him whithersoever he went.
 
@@ -39,13 +39,13 @@ V\. Let us see how Christ bore this contempt.
 
 ## The Apostolic Commission.
 
-> <sup>7</sup> And he called *unto him* the twelve, and began to send them forth by two and two; and gave them power over unclean spirits;  
-> <sup>8</sup> And commanded them that they should take nothing for *their* journey, save a staff only; no scrip, no bread, no money in *their* purse:  
-> <sup>9</sup> But *be* shod with sandals; and not put on two coats.  
-> <sup>10</sup> And he said unto them, In what place soever ye enter into an house, there abide till ye depart from that place.  
-> <sup>11</sup> And whosoever shall not receive you, nor hear you, when ye depart thence, shake off the dust under your feet for a testimony against them. Verily I say unto you, It shall be more tolerable for Sodom and Gomorrha in the day of judgment, than for that city.  
-> <sup>12</sup> And they went out, and preached that men should repent.  
-> <sup>13</sup> And they cast out many devils, and anointed with oil many that were sick, and healed *them.*  
+> **⁷** And he called *unto him* the twelve, and began to send them forth by two and two; and gave them power over unclean spirits;  
+> **⁸** And commanded them that they should take nothing for *their* journey, save a staff only; no scrip, no bread, no money in *their* purse:  
+> **⁹** But *be* shod with sandals; and not put on two coats.  
+> **¹⁰** And he said unto them, In what place soever ye enter into an house, there abide till ye depart from that place.  
+> **¹¹** And whosoever shall not receive you, nor hear you, when ye depart thence, shake off the dust under your feet for a testimony against them. Verily I say unto you, It shall be more tolerable for Sodom and Gomorrha in the day of judgment, than for that city.  
+> **¹²** And they went out, and preached that men should repent.  
+> **¹³** And they cast out many devils, and anointed with oil many that were sick, and healed *them.*  
 
 Here is, I. The commission given to the twelve apostles, to preach and work miracles; it is the same which we had more largely, Mt 10:1-42. Mark doth not name them here, as Matthew doth, because he had named them before, when they were first called into fellowship with him, Mk 3:16-19. Hitherto they had been conversant with Christ, and had set at his feet, had heard his doctrine, and seen his miracles; and now he determines to make some use of them; they had *received,* that they might *give,* had *learned,* that they might *teach;* and therefore now he *began to send them forth.* They must not always be studying in the academy, to get knowledge, but they must preach in the country, to do good with the knowledge they have got. Though they were not as yet so well accomplished as they were to be, yet, according to their present ability and capacity, they must be set to work, and make further improvements afterward. Now observe here,
 
@@ -67,22 +67,22 @@ II\. The apostles' conduct in pursuance of their commission. Though they were co
 
 ## The Death of John the Baptist.
 
-> <sup>14</sup> And king Herod heard *of him;* (for his name was spread abroad:) and he said, That John the Baptist was risen from the dead, and therefore mighty works do show forth themselves in him.  
-> <sup>15</sup> Others said, That it is Elias. And others said, That it is a prophet, or as one of the prophets.  
-> <sup>16</sup> But when Herod heard *thereof,* he said, It is John, whom I beheaded: he is risen from the dead.  
-> <sup>17</sup> For Herod himself had sent forth and laid hold upon John, and bound him in prison for Herodias' sake, his brother Philip's wife: for he had married her.  
-> <sup>18</sup> For John had said unto Herod, It is not lawful for thee to have thy brother's wife.  
-> <sup>19</sup> Therefore Herodias had a quarrel against him, and would have killed him; but she could not:  
-> <sup>20</sup> For Herod feared John, knowing that he was a just man and an holy, and observed him; and when he heard him, he did many things, and heard him gladly.  
-> <sup>21</sup> And when a convenient day was come, that Herod on his birthday made a supper to his lords, high captains, and chief *estates* of Galilee;  
-> <sup>22</sup> And when the daughter of the said Herodias came in, and danced, and pleased Herod and them that sat with him, the king said unto the damsel, Ask of me whatsoever thou wilt, and I will give *it* thee.  
-> <sup>23</sup> And he sware unto her, Whatsoever thou shalt ask of me, I will give *it* thee, unto the half of my kingdom.  
-> <sup>24</sup> And she went forth, and said unto her mother, What shall I ask? And she said, The head of John the Baptist.  
-> <sup>25</sup> And she came in straightway with haste unto the king, and asked, saying, I will that thou give me by and by in a charger the head of John the Baptist.  
-> <sup>26</sup> And the king was exceeding sorry; *yet* for his oath's sake, and for their sakes which sat with him, he would not reject her.  
-> <sup>27</sup> And immediately the king sent an executioner, and commanded his head to be brought: and he went and beheaded him in the prison,  
-> <sup>28</sup> And brought his head in a charger, and gave it to the damsel: and the damsel gave it to her mother.  
-> <sup>29</sup> And when his disciples heard *of it,* they came and took up his corpse, and laid it in a tomb.  
+> **¹⁴** And king Herod heard *of him;* (for his name was spread abroad:) and he said, That John the Baptist was risen from the dead, and therefore mighty works do show forth themselves in him.  
+> **¹⁵** Others said, That it is Elias. And others said, That it is a prophet, or as one of the prophets.  
+> **¹⁶** But when Herod heard *thereof,* he said, It is John, whom I beheaded: he is risen from the dead.  
+> **¹⁷** For Herod himself had sent forth and laid hold upon John, and bound him in prison for Herodias' sake, his brother Philip's wife: for he had married her.  
+> **¹⁸** For John had said unto Herod, It is not lawful for thee to have thy brother's wife.  
+> **¹⁹** Therefore Herodias had a quarrel against him, and would have killed him; but she could not:  
+> **²⁰** For Herod feared John, knowing that he was a just man and an holy, and observed him; and when he heard him, he did many things, and heard him gladly.  
+> **²¹** And when a convenient day was come, that Herod on his birthday made a supper to his lords, high captains, and chief *estates* of Galilee;  
+> **²²** And when the daughter of the said Herodias came in, and danced, and pleased Herod and them that sat with him, the king said unto the damsel, Ask of me whatsoever thou wilt, and I will give *it* thee.  
+> **²³** And he sware unto her, Whatsoever thou shalt ask of me, I will give *it* thee, unto the half of my kingdom.  
+> **²⁴** And she went forth, and said unto her mother, What shall I ask? And she said, The head of John the Baptist.  
+> **²⁵** And she came in straightway with haste unto the king, and asked, saying, I will that thou give me by and by in a charger the head of John the Baptist.  
+> **²⁶** And the king was exceeding sorry; *yet* for his oath's sake, and for their sakes which sat with him, he would not reject her.  
+> **²⁷** And immediately the king sent an executioner, and commanded his head to be brought: and he went and beheaded him in the prison,  
+> **²⁸** And brought his head in a charger, and gave it to the damsel: and the damsel gave it to her mother.  
+> **²⁹** And when his disciples heard *of it,* they came and took up his corpse, and laid it in a tomb.  
 
 Here is, I. The wild notions that the people had concerning our Lord Jesus, Mk 6:15. His own countrymen could believe nothing great concerning him, because they knew his poor kindred; but others that were not under the power of that prejudice against him, were yet willing to believe any thing rather than the truth—that he was the Son of God, and the true Messias: they said, He is Elias, whom they expected; or, *He is a prophet,* one of the Old-Testament prophets raised to life, and returned to this world; or *as one of the prophets,* a prophet now newly raised up, equal to those under the Old Testament.
 
@@ -120,21 +120,21 @@ III\. A narrative of Herod's putting John Baptist to death, which is brought in 
 
 ## The Miracle of the Loaves and Fishes.
 
-> <sup>30</sup> And the apostles gathered themselves together unto Jesus, and told him all things, both what they had done, and what they had taught.  
-> <sup>31</sup> And he said unto them, Come ye yourselves apart into a desert place, and rest a while: for there were many coming and going, and they had no leisure so much as to eat.  
-> <sup>32</sup> And they departed into a desert place by ship privately.  
-> <sup>33</sup> And the people saw them departing, and many knew him, and ran afoot thither out of all cities, and outwent them, and came together unto him.  
-> <sup>34</sup> And Jesus, when he came out, saw much people, and was moved with compassion toward them, because they were as sheep not having a shepherd: and he began to teach them many things.  
-> <sup>35</sup> And when the day was now far spent, his disciples came unto him, and said, This is a desert place, and now the time *is* far passed:  
-> <sup>36</sup> Send them away, that they may go into the country round about, and into the villages, and buy themselves bread: for they have nothing to eat.  
-> <sup>37</sup> He answered and said unto them, Give ye them to eat. And they say unto him, Shall we go and buy two hundred pennyworth of bread, and give them to eat?  
-> <sup>38</sup> He saith unto them, How many loaves have ye? go and see. And when they knew, they say, Five, and two fishes.  
-> <sup>39</sup> And he commanded them to make all sit down by companies upon the green grass.  
-> <sup>40</sup> And they sat down in ranks, by hundreds, and by fifties.  
-> <sup>41</sup> And when he had taken the five loaves and the two fishes, he looked up to heaven, and blessed, and brake the loaves, and gave *them* to his disciples to set before them; and the two fishes divided he among them all.  
-> <sup>42</sup> And they did all eat, and were filled.  
-> <sup>43</sup> And they took up twelve baskets full of the fragments, and of the fishes.  
-> <sup>44</sup> And they that did eat of the loaves were about five thousand men.  
+> **³⁰** And the apostles gathered themselves together unto Jesus, and told him all things, both what they had done, and what they had taught.  
+> **³¹** And he said unto them, Come ye yourselves apart into a desert place, and rest a while: for there were many coming and going, and they had no leisure so much as to eat.  
+> **³²** And they departed into a desert place by ship privately.  
+> **³³** And the people saw them departing, and many knew him, and ran afoot thither out of all cities, and outwent them, and came together unto him.  
+> **³⁴** And Jesus, when he came out, saw much people, and was moved with compassion toward them, because they were as sheep not having a shepherd: and he began to teach them many things.  
+> **³⁵** And when the day was now far spent, his disciples came unto him, and said, This is a desert place, and now the time *is* far passed:  
+> **³⁶** Send them away, that they may go into the country round about, and into the villages, and buy themselves bread: for they have nothing to eat.  
+> **³⁷** He answered and said unto them, Give ye them to eat. And they say unto him, Shall we go and buy two hundred pennyworth of bread, and give them to eat?  
+> **³⁸** He saith unto them, How many loaves have ye? go and see. And when they knew, they say, Five, and two fishes.  
+> **³⁹** And he commanded them to make all sit down by companies upon the green grass.  
+> **⁴⁰** And they sat down in ranks, by hundreds, and by fifties.  
+> **⁴¹** And when he had taken the five loaves and the two fishes, he looked up to heaven, and blessed, and brake the loaves, and gave *them* to his disciples to set before them; and the two fishes divided he among them all.  
+> **⁴²** And they did all eat, and were filled.  
+> **⁴³** And they took up twelve baskets full of the fragments, and of the fishes.  
+> **⁴⁴** And they that did eat of the loaves were about five thousand men.  
 
 In there verses, we have,
 
@@ -166,18 +166,18 @@ V\. The provision he made for them all; all his hearers he generously made his g
 
 ## Christ Walking on the Sea.
 
-> <sup>45</sup> And straightway he constrained his disciples to get into the ship, and to go to the other side before unto Bethsaida, while he sent away the people.  
-> <sup>46</sup> And when he had sent them away, he departed into a mountain to pray.  
-> <sup>47</sup> And when even was come, the ship was in the midst of the sea, and he alone on the land.  
-> <sup>48</sup> And he saw them toiling in rowing; for the wind was contrary unto them: and about the fourth watch of the night he cometh unto them, walking upon the sea, and would have passed by them.  
-> <sup>49</sup> But when they saw him walking upon the sea, they supposed it had been a spirit, and cried out:  
-> <sup>50</sup> For they all saw him, and were troubled. And immediately he talked with them, and saith unto them, Be of good cheer: it is I; be not afraid.  
-> <sup>51</sup> And he went up unto them into the ship; and the wind ceased: and they were sore amazed in themselves beyond measure, and wondered.  
-> <sup>52</sup> For they considered not *the miracle* of the loaves: for their heart was hardened.  
-> <sup>53</sup> And when they had passed over, they came into the land of Gennesaret, and drew to the shore.  
-> <sup>54</sup> And when they were come out of the ship, straightway they knew him,  
-> <sup>55</sup> And ran through that whole region round about, and began to carry about in beds those that were sick, where they heard he was.  
-> <sup>56</sup> And whithersoever he entered, into villages, or cities, or country, they laid the sick in the streets, and besought him that they might touch if it were but the border of his garment: and as many as touched him were made whole.  
+> **⁴⁵** And straightway he constrained his disciples to get into the ship, and to go to the other side before unto Bethsaida, while he sent away the people.  
+> **⁴⁶** And when he had sent them away, he departed into a mountain to pray.  
+> **⁴⁷** And when even was come, the ship was in the midst of the sea, and he alone on the land.  
+> **⁴⁸** And he saw them toiling in rowing; for the wind was contrary unto them: and about the fourth watch of the night he cometh unto them, walking upon the sea, and would have passed by them.  
+> **⁴⁹** But when they saw him walking upon the sea, they supposed it had been a spirit, and cried out:  
+> **⁵⁰** For they all saw him, and were troubled. And immediately he talked with them, and saith unto them, Be of good cheer: it is I; be not afraid.  
+> **⁵¹** And he went up unto them into the ship; and the wind ceased: and they were sore amazed in themselves beyond measure, and wondered.  
+> **⁵²** For they considered not *the miracle* of the loaves: for their heart was hardened.  
+> **⁵³** And when they had passed over, they came into the land of Gennesaret, and drew to the shore.  
+> **⁵⁴** And when they were come out of the ship, straightway they knew him,  
+> **⁵⁵** And ran through that whole region round about, and began to carry about in beds those that were sick, where they heard he was.  
+> **⁵⁶** And whithersoever he entered, into villages, or cities, or country, they laid the sick in the streets, and besought him that they might touch if it were but the border of his garment: and as many as touched him were made whole.  
 
 This passage of story we had Mt 14:22, etc., only what was there related concerning Peter, is omitted here. Here we have,
 

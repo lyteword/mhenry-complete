@@ -8,15 +8,15 @@ The same melancholy theme is the subject of this chapter that was of those foreg
 
 ## The Desolation of Jerusalem. (b. c. 600.)
 
-> <sup>1</sup> Thus saith the LORD, Go and get a potter's earthen bottle, and *take* of the ancients of the people, and of the ancients of the priests;  
-> <sup>2</sup> And go forth unto the valley of the son of Hinnom, which *is* by the entry of the east gate, and proclaim there the words that I shall tell thee,  
-> <sup>3</sup> And say, Hear ye the word of the LORD, O kings of Judah, and inhabitants of Jerusalem; Thus saith the LORD of hosts, the God of Israel; Behold, I will bring evil upon this place, the which whosoever heareth, his ears shall tingle.  
-> <sup>4</sup> Because they have forsaken me, and have estranged this place, and have burned incense in it unto other gods, whom neither they nor their fathers have known, nor the kings of Judah, and have filled this place with the blood of innocents;  
-> <sup>5</sup> They have built also the high places of Baal, to burn their sons with fire *for* burnt offerings unto Baal, which I commanded not, nor spake *it,* neither came *it* into my mind:  
-> <sup>6</sup> Therefore, behold, the days come, saith the LORD, that this place shall no more be called Tophet, nor The valley of the son of Hinnom, but The valley of slaughter.  
-> <sup>7</sup> And I will make void the counsel of Judah and Jerusalem in this place; and I will cause them to fall by the sword before their enemies, and by the hands of them that seek their lives: and their carcases will I give to be meat for the fowls of the heaven, and for the beasts of the earth.  
-> <sup>8</sup> And I will make this city desolate, and a hissing; every one that passeth thereby shall be astonished and hiss because of all the plagues thereof.  
-> <sup>9</sup> And I will cause them to eat the flesh of their sons and the flesh of their daughters, and they shall eat every one the flesh of his friend in the siege and straitness, wherewith their enemies, and they that seek their lives, shall straiten them.  
+> **¹** Thus saith the LORD, Go and get a potter's earthen bottle, and *take* of the ancients of the people, and of the ancients of the priests;  
+> **²** And go forth unto the valley of the son of Hinnom, which *is* by the entry of the east gate, and proclaim there the words that I shall tell thee,  
+> **³** And say, Hear ye the word of the LORD, O kings of Judah, and inhabitants of Jerusalem; Thus saith the LORD of hosts, the God of Israel; Behold, I will bring evil upon this place, the which whosoever heareth, his ears shall tingle.  
+> **⁴** Because they have forsaken me, and have estranged this place, and have burned incense in it unto other gods, whom neither they nor their fathers have known, nor the kings of Judah, and have filled this place with the blood of innocents;  
+> **⁵** They have built also the high places of Baal, to burn their sons with fire *for* burnt offerings unto Baal, which I commanded not, nor spake *it,* neither came *it* into my mind:  
+> **⁶** Therefore, behold, the days come, saith the LORD, that this place shall no more be called Tophet, nor The valley of the son of Hinnom, but The valley of slaughter.  
+> **⁷** And I will make void the counsel of Judah and Jerusalem in this place; and I will cause them to fall by the sword before their enemies, and by the hands of them that seek their lives: and their carcases will I give to be meat for the fowls of the heaven, and for the beasts of the earth.  
+> **⁸** And I will make this city desolate, and a hissing; every one that passeth thereby shall be astonished and hiss because of all the plagues thereof.  
+> **⁹** And I will cause them to eat the flesh of their sons and the flesh of their daughters, and they shall eat every one the flesh of his friend in the siege and straitness, wherewith their enemies, and they that seek their lives, shall straiten them.  
 
 The corruption of man having made it necessary that *precept* should be *upon precept, and line upon line* (so unapt are we to receive, and so very apt to let slip, the things of God), the grace of God has provided that there shall be, accordingly, *precept upon precept, and line upon line,* that those who are irreclaimable may be inexcusable. For this reason the prophet is here sent with a message to the same purport with what he had often delivered, but with some circumstances that might make it the more taken notice of, a thing which ministers should study, for a little circumstance may sometimes be a great advantage, and those that would win souls must be wise.
 
@@ -34,12 +34,12 @@ VI\. He must assure them that all their attempts to prevent and avoid this ruin,
 
 ## The Desolation of Jerusalem. (b. c. 600.)
 
-> <sup>10</sup> Then shalt thou break the bottle in the sight of the men that go with thee,  
-> <sup>11</sup> And shalt say unto them, Thus saith the LORD of hosts; Even so will I break this people and this city, as *one* breaketh a potter's vessel, that cannot be made whole again: and they shall bury *them* in Tophet, till *there be* no place to bury.  
-> <sup>12</sup> Thus will I do unto this place, saith the LORD, and to the inhabitants thereof, and *even* make this city as Tophet:  
-> <sup>13</sup> And the houses of Jerusalem, and the houses of the kings of Judah, shall be defiled as the place of Tophet, because of all the houses upon whose roofs they have burned incense unto all the host of heaven, and have poured out drink offerings unto other gods.  
-> <sup>14</sup> Then came Jeremiah from Tophet, whither the LORD had sent him to prophesy; and he stood in the court of the LORD's house; and said to all the people,  
-> <sup>15</sup> Thus saith the LORD of hosts, the God of Israel; Behold, I will bring upon this city and upon all her towns all the evil that I have pronounced against it, because they have hardened their necks, that they might not hear my words.  
+> **¹⁰** Then shalt thou break the bottle in the sight of the men that go with thee,  
+> **¹¹** And shalt say unto them, Thus saith the LORD of hosts; Even so will I break this people and this city, as *one* breaketh a potter's vessel, that cannot be made whole again: and they shall bury *them* in Tophet, till *there be* no place to bury.  
+> **¹²** Thus will I do unto this place, saith the LORD, and to the inhabitants thereof, and *even* make this city as Tophet:  
+> **¹³** And the houses of Jerusalem, and the houses of the kings of Judah, shall be defiled as the place of Tophet, because of all the houses upon whose roofs they have burned incense unto all the host of heaven, and have poured out drink offerings unto other gods.  
+> **¹⁴** Then came Jeremiah from Tophet, whither the LORD had sent him to prophesy; and he stood in the court of the LORD's house; and said to all the people,  
+> **¹⁵** Thus saith the LORD of hosts, the God of Israel; Behold, I will bring upon this city and upon all her towns all the evil that I have pronounced against it, because they have hardened their necks, that they might not hear my words.  
 
 The message of wrath delivered in the Jer 19:1-9 is here enforced, that it might gain credit, two ways:—
 

@@ -8,15 +8,15 @@ This chapter continues and concludes the history of the defeat of the counsels o
 
 ## Balaam Blesses Israel a Third Time. (b. c. 1452.)
 
-> <sup>1</sup> And when Balaam saw that it pleased the LORD to bless Israel, he went not, as at other times, to seek for enchantments, but he set his face toward the wilderness.  
-> <sup>2</sup> And Balaam lifted up his eyes, and he saw Israel abiding *in his tents* according to their tribes; and the spirit of God came upon him.  
-> <sup>3</sup> And he took up his parable, and said, Balaam the son of Beor hath said, and the man whose eyes are open hath said:  
-> <sup>4</sup> He hath said, which heard the words of God, which saw the vision of the Almighty, falling *into a trance,* but having his eyes open:  
-> <sup>5</sup> How goodly are thy tents, O Jacob, *and* thy tabernacles, O Israel!  
-> <sup>6</sup> As the valleys are they spread forth, as gardens by the river's side, as the trees of lign aloes which the LORD hath planted, *and* as cedar trees beside the waters.  
-> <sup>7</sup> He shall pour the water out of his buckets, and his seed *shall be* in many waters, and his king shall be higher than Agag, and his kingdom shall be exalted.  
-> <sup>8</sup> God brought him forth out of Egypt; he hath as it were the strength of an unicorn: he shall eat up the nations his enemies, and shall break their bones, and pierce *them* through with his arrows.  
-> <sup>9</sup> He couched, he lay down as a lion, and as a great lion: who shall stir him up? Blessed *is* he that blesseth thee, and cursed *is* he that curseth thee.  
+> **¹** And when Balaam saw that it pleased the LORD to bless Israel, he went not, as at other times, to seek for enchantments, but he set his face toward the wilderness.  
+> **²** And Balaam lifted up his eyes, and he saw Israel abiding *in his tents* according to their tribes; and the spirit of God came upon him.  
+> **³** And he took up his parable, and said, Balaam the son of Beor hath said, and the man whose eyes are open hath said:  
+> **⁴** He hath said, which heard the words of God, which saw the vision of the Almighty, falling *into a trance,* but having his eyes open:  
+> **⁵** How goodly are thy tents, O Jacob, *and* thy tabernacles, O Israel!  
+> **⁶** As the valleys are they spread forth, as gardens by the river's side, as the trees of lign aloes which the LORD hath planted, *and* as cedar trees beside the waters.  
+> **⁷** He shall pour the water out of his buckets, and his seed *shall be* in many waters, and his king shall be higher than Agag, and his kingdom shall be exalted.  
+> **⁸** God brought him forth out of Egypt; he hath as it were the strength of an unicorn: he shall eat up the nations his enemies, and shall break their bones, and pierce *them* through with his arrows.  
+> **⁹** He couched, he lay down as a lion, and as a great lion: who shall stir him up? Blessed *is* he that blesseth thee, and cursed *is* he that curseth thee.  
 
 The blessing itself which Balaam here pronounces upon Israel is much the same with the two we had in the foregoing chapter; but the introduction to it is different.
 
@@ -38,27 +38,27 @@ II\. Yet the blessing is for substance the same with those before. Several thing
 
 ## Balak's Remonstrance. (b. c. 1452.)
 
-> <sup>10</sup> And Balak's anger was kindled against Balaam, and he smote his hands together: and Balak said unto Balaam, I called thee to curse mine enemies, and, behold, thou hast altogether blessed *them* these three times.  
-> <sup>11</sup> Therefore now flee thou to thy place: I thought to promote thee unto great honour; but, lo, the LORD hath kept thee back from honour.  
-> <sup>12</sup> And Balaam said unto Balak, Spake I not also to thy messengers which thou sentest unto me, saying,  
-> <sup>13</sup> If Balak would give me his house full of silver and gold, I cannot go beyond the commandment of the LORD, to do *either* good or bad of mine own mind; *but* what the LORD saith, that will I speak?  
-> <sup>14</sup> And now, behold, I go unto my people: come *therefore, and* I will advertise thee what this people shall do to thy people in the latter days.  
+> **¹⁰** And Balak's anger was kindled against Balaam, and he smote his hands together: and Balak said unto Balaam, I called thee to curse mine enemies, and, behold, thou hast altogether blessed *them* these three times.  
+> **¹¹** Therefore now flee thou to thy place: I thought to promote thee unto great honour; but, lo, the LORD hath kept thee back from honour.  
+> **¹²** And Balaam said unto Balak, Spake I not also to thy messengers which thou sentest unto me, saying,  
+> **¹³** If Balak would give me his house full of silver and gold, I cannot go beyond the commandment of the LORD, to do *either* good or bad of mine own mind; *but* what the LORD saith, that will I speak?  
+> **¹⁴** And now, behold, I go unto my people: come *therefore, and* I will advertise thee what this people shall do to thy people in the latter days.  
 
 We have here the conclusion of this vain attempt to curse Israel, and the total abandonment of it. 1. Balak made the worst of it. He broke out into a rage against Balaam (Nu 24:10), expressed both in words and gesture the highest degree of vexation at the disappointment; he smote his hands together, for indignation, to see all his measures thus broken, and his project baffled. He charged Balaam with putting upon him the basest affront and cheat imaginable: "*I called thee to curse my enemies,* and thou hast shown thyself in league with them, and in their interests, for thou hast *blessed them these three times,* though, by appointing the altars to be built and sacrifices to be offered, thou madest be believe thou wouldest certainly curse them." Hereupon he forbade him his presence, expelled him his country, upbraided him with the preferments he had designed to bestow upon him, but now would not (Nu 24:11): "*The Lord hath kept thee back from honour.* See what thou gettest by pleasing the Lord, instead of pleasing me; thou has hindered thy preferment by it." Thus those who are any way losers by their duty are commonly upbraided with it, as fools, for preferring it before their interest in the world. Whereas, if Balaam had been voluntary and sincere in his adherence to the word of the Lord, though he lost the honour Balak designed him by it, God would have made that loss up to him abundantly to his advantage. 2. Balaam made the best if it. (1.) He endeavours to excuse the disappointment. And a very good excuse he has for it, that God restrained him from saying what he would have said, and constrained him to say what he would not; and that this was what Balak ought not to be displeased at, not only because he could not help it, but because he had told Balak before what he must depend upon, Nu 24:12,13. Balak could not say that he had cheated him, since he had given him fair notice of the check he found himself under. (2.) He endeavours to atone for it, Nu 24:14. Though he cannot do what Balak would have him do, yet, [1.] He will gratify his curiosity with some predictions concerning the nations about him. It is natural to us to be pleased with prophecy, and with this he hopes to pacify the angry prince. [2.] He will satisfy him with an assurance that, whatever this formidable people should do to his people, it should not be till the latter days; so that he, for his part, needed not to fear any mischief or molestation from them; the *vision was for a great while to come,* but in his days there should be peace. [3.] He will put him into a method of doing Israel a mischief without the ceremonies of enchantment and execration. This seems to be implied in that word: *I will advertise thee;* for it properly signifies, *I will counsel thee.* What the counsel was is not set down here, because it was given privately, but we are told afterwards what it was, Nu 31:16. He counselled him to entice the Israelites to idolatry, Re 2:14. Since he could not have leave from God to curse them, he puts him in a way of getting help from the devil to tempt them. *Flectere si nequeo superos, Acheronta movebo—If I cannot move heaven, I will solicit hell.*
 
 ## Balaam's Prophecy. (b. c. 1452.)
 
-> <sup>15</sup> And he took up his parable, and said, Balaam the son of Beor hath said, and the man whose eyes are open hath said:  
-> <sup>16</sup> He hath said, which heard the words of God, and knew the knowledge of the most High, *which* saw the vision of the Almighty, falling *into a trance,* but having his eyes open:  
-> <sup>17</sup> I shall see him, but not now: I shall behold him, but not nigh: there shall come a Star out of Jacob, and a Sceptre shall rise out of Israel, and shall smite the corners of Moab, and destroy all the children of Sheth.  
-> <sup>18</sup> And Edom shall be a possession, Seir also shall be a possession for his enemies; and Israel shall do valiantly.  
-> <sup>19</sup> Out of Jacob shall come he that shall have dominion, and shall destroy him that remaineth of the city.  
-> <sup>20</sup> And when he looked on Amalek, he took up his parable, and said, Amalek *was* the first of the nations; but his latter end *shall be* that he perish for ever.  
-> <sup>21</sup> And he looked on the Kenites, and took up his parable, and said, Strong is thy dwellingplace, and thou puttest thy nest in a rock.  
-> <sup>22</sup> Nevertheless the Kenite shall be wasted, until Asshur shall carry thee away captive.  
-> <sup>23</sup> And he took up his parable, and said, Alas, who shall live when God doeth this!  
-> <sup>24</sup> And ships *shall come* from the coast of Chittim, and shall afflict Asshur, and shall afflict Eber, and he also shall perish for ever.  
-> <sup>25</sup> And Balaam rose up, and went and returned to his place: and Balak also went his way.  
+> **¹⁵** And he took up his parable, and said, Balaam the son of Beor hath said, and the man whose eyes are open hath said:  
+> **¹⁶** He hath said, which heard the words of God, and knew the knowledge of the most High, *which* saw the vision of the Almighty, falling *into a trance,* but having his eyes open:  
+> **¹⁷** I shall see him, but not now: I shall behold him, but not nigh: there shall come a Star out of Jacob, and a Sceptre shall rise out of Israel, and shall smite the corners of Moab, and destroy all the children of Sheth.  
+> **¹⁸** And Edom shall be a possession, Seir also shall be a possession for his enemies; and Israel shall do valiantly.  
+> **¹⁹** Out of Jacob shall come he that shall have dominion, and shall destroy him that remaineth of the city.  
+> **²⁰** And when he looked on Amalek, he took up his parable, and said, Amalek *was* the first of the nations; but his latter end *shall be* that he perish for ever.  
+> **²¹** And he looked on the Kenites, and took up his parable, and said, Strong is thy dwellingplace, and thou puttest thy nest in a rock.  
+> **²²** Nevertheless the Kenite shall be wasted, until Asshur shall carry thee away captive.  
+> **²³** And he took up his parable, and said, Alas, who shall live when God doeth this!  
+> **²⁴** And ships *shall come* from the coast of Chittim, and shall afflict Asshur, and shall afflict Eber, and he also shall perish for ever.  
+> **²⁵** And Balaam rose up, and went and returned to his place: and Balak also went his way.  
 
 The office of prophets was both to bless and to prophesy in the name of the Lord. Balaam, as a prophet, per force had blessed Israel; here he foretells future events.
 

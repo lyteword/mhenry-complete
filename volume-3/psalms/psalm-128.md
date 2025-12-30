@@ -10,12 +10,12 @@ This, as the former, is a psalm for families. In that we were taught that the pr
 
 A song of degrees.
 
-> <sup>1</sup> Blessed *is* every one that feareth the LORD; that walketh in his ways.  
-> <sup>2</sup> For thou shalt eat the labour of thine hands: happy *shalt* thou *be,* and *it shall be* well with thee.  
-> <sup>3</sup> Thy wife *shall be* as a fruitful vine by the sides of thine house: thy children like olive plants round about thy table.  
-> <sup>4</sup> Behold, that thus shall the man be blessed that feareth the LORD.  
-> <sup>5</sup> The LORD shall bless thee out of Zion: and thou shalt see the good of Jerusalem all the days of thy life.  
-> <sup>6</sup> Yea, thou shalt see thy children's children, *and* peace upon Israel.  
+> **¹** Blessed *is* every one that feareth the LORD; that walketh in his ways.  
+> **²** For thou shalt eat the labour of thine hands: happy *shalt* thou *be,* and *it shall be* well with thee.  
+> **³** Thy wife *shall be* as a fruitful vine by the sides of thine house: thy children like olive plants round about thy table.  
+> **⁴** Behold, that thus shall the man be blessed that feareth the LORD.  
+> **⁵** The LORD shall bless thee out of Zion: and thou shalt see the good of Jerusalem all the days of thy life.  
+> **⁶** Yea, thou shalt see thy children's children, *and* peace upon Israel.  
 
 It is here shown that godliness has the promise of the life that now is and of that which is to come.
 

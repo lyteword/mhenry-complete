@@ -8,11 +8,11 @@ David's troubles from Saul here begin again; and the clouds return after the rai
 
 ## Saul Again Pursues David. (b. c. 1056.)
 
-> <sup>1</sup> And the Ziphites came unto Saul to Gibeah, saying, Doth not David hide himself in the hill of Hachilah, *which is* before Jeshimon?  
-> <sup>2</sup> Then Saul arose, and went down to the wilderness of Ziph, having three thousand chosen men of Israel with him, to seek David in the wilderness of Ziph.  
-> <sup>3</sup> And Saul pitched in the hill of Hachilah, which *is* before Jeshimon, by the way. But David abode in the wilderness, and he saw that Saul came after him into the wilderness.  
-> <sup>4</sup> David therefore sent out spies, and understood that Saul was come in very deed.  
-> <sup>5</sup> And David arose, and came to the place where Saul had pitched: and David beheld the place where Saul lay, and Abner the son of Ner, the captain of his host: and Saul lay in the trench, and the people pitched round about him.  
+> **¹** And the Ziphites came unto Saul to Gibeah, saying, Doth not David hide himself in the hill of Hachilah, *which is* before Jeshimon?  
+> **²** Then Saul arose, and went down to the wilderness of Ziph, having three thousand chosen men of Israel with him, to seek David in the wilderness of Ziph.  
+> **³** And Saul pitched in the hill of Hachilah, which *is* before Jeshimon, by the way. But David abode in the wilderness, and he saw that Saul came after him into the wilderness.  
+> **⁴** David therefore sent out spies, and understood that Saul was come in very deed.  
+> **⁵** And David arose, and came to the place where Saul had pitched: and David beheld the place where Saul lay, and Abner the son of Ner, the captain of his host: and Saul lay in the trench, and the people pitched round about him.  
 
 Here, 1. Saul gets information of David's movements and acts offensively. The Ziphites came to him and told him where David now was, in the same place where he was when they formerly betrayed him, 1Sa 23:19. Perhaps (though it is not mentioned) Saul had given them intimation, under-hand, that he continued his design against David, and would be glad of their assistance. If not, they were very officious to Saul, aware of what would please him, and very malicious against David, to whom they despaired of ever reconciling themselves, and therefore they stirred up Saul (who needed no such spur) against him, 1Sa 26:1. For aught we know, Saul would have continued in the same good mind that he was in (1Sa 24:17), and would not have given David this fresh trouble, if the Ziphites had not put him on. See what need we have to pray to God that, since we have so much of the tinder of corruption in our own hearts, the sparks of temptation may be kept far from us, lest, if they come together, we be set on fire of hell. Saul readily caught at the information, and went down with an army of 3000 men to the place where David hid himself, 1Sa 26:2. How soon do unsanctified hearts lose the good impressions which their convictions have made upon them and return with the dog to their vomit!
 
@@ -20,13 +20,13 @@ Here, 1. Saul gets information of David's movements and acts offensively. The Zi
 
 ## David Spares Saul's Life. (b. c. 1056.)
 
-> <sup>6</sup> Then answered David and said to Ahimelech the Hittite, and to Abishai the son of Zeruiah, brother to Joab, saying, Who will go down with me to Saul to the camp? And Abishai said, I will go down with thee.  
-> <sup>7</sup> So David and Abishai came to the people by night: and, behold, Saul lay sleeping within the trench, and his spear stuck in the ground at his bolster: but Abner and the people lay round about him.  
-> <sup>8</sup> Then said Abishai to David, God hath delivered thine enemy into thine hand this day: now therefore let me smite him, I pray thee, with the spear even to the earth at once, and I will not *smite* him the second time.  
-> <sup>9</sup> And David said to Abishai, Destroy him not: for who can stretch forth his hand against the LORD's anointed, and be guiltless?  
-> <sup>10</sup> David said furthermore, *As* the LORD liveth, the LORD shall smite him; or his day shall come to die; or he shall descend into battle, and perish.  
-> <sup>11</sup> The LORD forbid that I should stretch forth mine hand against the LORD's anointed: but, I pray thee, take thou now the spear that *is* at his bolster, and the cruse of water, and let us go.  
-> <sup>12</sup> So David took the spear and the cruse of water from Saul's bolster; and they gat them away, and no man saw *it,* nor knew *it,* neither awaked: for they *were* all asleep; because a deep sleep from the LORD was fallen upon them.  
+> **⁶** Then answered David and said to Ahimelech the Hittite, and to Abishai the son of Zeruiah, brother to Joab, saying, Who will go down with me to Saul to the camp? And Abishai said, I will go down with thee.  
+> **⁷** So David and Abishai came to the people by night: and, behold, Saul lay sleeping within the trench, and his spear stuck in the ground at his bolster: but Abner and the people lay round about him.  
+> **⁸** Then said Abishai to David, God hath delivered thine enemy into thine hand this day: now therefore let me smite him, I pray thee, with the spear even to the earth at once, and I will not *smite* him the second time.  
+> **⁹** And David said to Abishai, Destroy him not: for who can stretch forth his hand against the LORD's anointed, and be guiltless?  
+> **¹⁰** David said furthermore, *As* the LORD liveth, the LORD shall smite him; or his day shall come to die; or he shall descend into battle, and perish.  
+> **¹¹** The LORD forbid that I should stretch forth mine hand against the LORD's anointed: but, I pray thee, take thou now the spear that *is* at his bolster, and the cruse of water, and let us go.  
+> **¹²** So David took the spear and the cruse of water from Saul's bolster; and they gat them away, and no man saw *it,* nor knew *it,* neither awaked: for they *were* all asleep; because a deep sleep from the LORD was fallen upon them.  
 
 Here is, I. David's bold adventure into Saul's camp in the night, accompanied only by his kinsman Abishai, the son of Zeruiah. He proposed it to him and to another of his confidants (1Sa 26:6), but the other either declined it as too dangerous an enterprise, or at least was content that Abishai, who was forward to it, should run the risk of it rather than himself. Whether David was prompted to do this by his own courage, or by an extraordinary impression upon his spirits, or by the oracle, does not appear; but, like Gideon, he ventured through the guards, with a special assurance of the divine protection.
 
@@ -40,14 +40,14 @@ V\. The improvement he made of this opportunity for the further evidence of his 
 
 ## David Expostulates with Saul. (b. c. 1056.)
 
-> <sup>13</sup> Then David went over to the other side, and stood on the top of a hill afar off; a great space *being* between them:  
-> <sup>14</sup> And David cried to the people, and to Abner the son of Ner, saying, Answerest thou not, Abner? Then Abner answered and said, Who *art* thou *that* criest to the king?  
-> <sup>15</sup> And David said to Abner, *Art* not thou a *valiant* man? and who *is* like to thee in Israel? wherefore then hast thou not kept thy lord the king? for there came one of the people in to destroy the king thy lord.  
-> <sup>16</sup> This thing *is* not good that thou hast done. *As* the LORD liveth, ye *are* worthy to die, because ye have not kept your master, the LORD's anointed. And now see where the king's spear *is,* and the cruse of water that *was* at his bolster.  
-> <sup>17</sup> And Saul knew David's voice, and said, *Is* this thy voice, my son David? And David said, *It is* my voice, my lord, O king.  
-> <sup>18</sup> And he said, Wherefore doth my lord thus pursue after his servant? for what have I done? or what evil *is* in mine hand?  
-> <sup>19</sup> Now therefore, I pray thee, let my lord the king hear the words of his servant. If the LORD have stirred thee up against me, let him accept an offering: but if *they be* the children of men, cursed *be* they before the LORD; for they have driven me out this day from abiding in the inheritance of the LORD, saying, Go, serve other gods.  
-> <sup>20</sup> Now therefore, let not my blood fall to the earth before the face of the LORD: for the king of Israel is come out to seek a flea, as when one doth hunt a partridge in the mountains.  
+> **¹³** Then David went over to the other side, and stood on the top of a hill afar off; a great space *being* between them:  
+> **¹⁴** And David cried to the people, and to Abner the son of Ner, saying, Answerest thou not, Abner? Then Abner answered and said, Who *art* thou *that* criest to the king?  
+> **¹⁵** And David said to Abner, *Art* not thou a *valiant* man? and who *is* like to thee in Israel? wherefore then hast thou not kept thy lord the king? for there came one of the people in to destroy the king thy lord.  
+> **¹⁶** This thing *is* not good that thou hast done. *As* the LORD liveth, ye *are* worthy to die, because ye have not kept your master, the LORD's anointed. And now see where the king's spear *is,* and the cruse of water that *was* at his bolster.  
+> **¹⁷** And Saul knew David's voice, and said, *Is* this thy voice, my son David? And David said, *It is* my voice, my lord, O king.  
+> **¹⁸** And he said, Wherefore doth my lord thus pursue after his servant? for what have I done? or what evil *is* in mine hand?  
+> **¹⁹** Now therefore, I pray thee, let my lord the king hear the words of his servant. If the LORD have stirred thee up against me, let him accept an offering: but if *they be* the children of men, cursed *be* they before the LORD; for they have driven me out this day from abiding in the inheritance of the LORD, saying, Go, serve other gods.  
+> **²⁰** Now therefore, let not my blood fall to the earth before the face of the LORD: for the king of Israel is come out to seek a flea, as when one doth hunt a partridge in the mountains.  
 
 David having got safely from Saul's camp himself, and having brought with him proofs sufficient that he had been there, posts himself conveniently, so that they might hear him and yet not reach him (1Sa 26:13), and then begins to reason with them upon what had passed.
 
@@ -65,11 +65,11 @@ II\. He reasons seriously and affectionately with Saul. By this time he was so w
 
 ## Saul Relents. (b. c. 1056.)
 
-> <sup>21</sup> Then said Saul, I have sinned: return, my son David: for I will no more do thee harm, because my soul was precious in thine eyes this day: behold, I have played the fool, and have erred exceedingly.  
-> <sup>22</sup> And David answered and said, Behold the king's spear! and let one of the young men come over and fetch it.  
-> <sup>23</sup> The LORD render to every man his righteousness and his faithfulness: for the LORD delivered thee into *my* hand to day, but I would not stretch forth mine hand against the LORD's anointed.  
-> <sup>24</sup> And, behold, as thy life was much set by this day in mine eyes, so let my life be much set by in the eyes of the LORD, and let him deliver me out of all tribulation.  
-> <sup>25</sup> Then Saul said to David, Blessed *be* thou, my son David: thou shalt both do great *things,* and also shalt still prevail. So David went on his way, and Saul returned to his place.  
+> **²¹** Then said Saul, I have sinned: return, my son David: for I will no more do thee harm, because my soul was precious in thine eyes this day: behold, I have played the fool, and have erred exceedingly.  
+> **²²** And David answered and said, Behold the king's spear! and let one of the young men come over and fetch it.  
+> **²³** The LORD render to every man his righteousness and his faithfulness: for the LORD delivered thee into *my* hand to day, but I would not stretch forth mine hand against the LORD's anointed.  
+> **²⁴** And, behold, as thy life was much set by this day in mine eyes, so let my life be much set by in the eyes of the LORD, and let him deliver me out of all tribulation.  
+> **²⁵** Then Saul said to David, Blessed *be* thou, my son David: thou shalt both do great *things,* and also shalt still prevail. So David went on his way, and Saul returned to his place.  
 
 Here is, I. Saul's penitent confession of his fault and folly in persecuting David and his promise to do so no more. This second instance of David's respect to him wrought more upon him than the former, and extorted from him better acknowledgements, 1Sa 26:21. 1. He owns himself melted and quite overcome by David's kindness to him: "*My soul was precious in thy eyes this day,* which, I thought, had been odious!" 2. He acknowledges he has done very wrong to persecute him, that he has therein acted against God's law (*I have sinned*), and against his own interest (*I have played the fool*), in pursuing him as an enemy who would have been one of his best friends, if he could but have thought so. "Herein (says he) I have *erred exceedingly,* and wronged both thee and myself." Note, Those that sin play the fool and err exceedingly, those especially that hate and persecute God's people, Job 19;28. 3. He invites him to court again: *Return, my son David.* Those that have understanding will see it to be their interest to have those about them that *behave themselves wisely,* as David did, and have God with them. 4. He promises him that he will not persecute him as he has done, but protect him: *I will no more do thee harm.* We have reason to think, according to the mind he was now in, that he meant as he said, and yet neither his confession nor his promise of amendment came from a principle of true repentance.
 

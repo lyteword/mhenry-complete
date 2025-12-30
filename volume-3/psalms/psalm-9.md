@@ -10,16 +10,16 @@ In this psalm, I. David praises God for pleading his cause, and giving him victo
 
 To the chief musician upon Muth-labben. A psalm of David.
 
-> <sup>1</sup> I will praise *thee,* O LORD, with my whole heart; I will show forth all thy marvellous works.  
-> <sup>2</sup> I will be glad and rejoice in thee: I will sing praise to thy name, O thou most High.  
-> <sup>3</sup> When mine enemies are turned back, they shall fall and perish at thy presence.  
-> <sup>4</sup> For thou hast maintained my right and my cause; thou satest in the throne judging right.  
-> <sup>5</sup> Thou hast rebuked the heathen, thou hast destroyed the wicked, thou hast put out their name for ever and ever.  
-> <sup>6</sup> O thou enemy, destructions are come to a perpetual end: and thou hast destroyed cities; their memorial is perished with them.  
-> <sup>7</sup> But the LORD shall endure for ever: he hath prepared his throne for judgment.  
-> <sup>8</sup> And he shall judge the world in righteousness, he shall minister judgment to the people in uprightness.  
-> <sup>9</sup> The LORD also will be a refuge for the oppressed, a refuge in times of trouble.  
-> <sup>10</sup> And they that know thy name will put their trust in thee: for thou, LORD, hast not forsaken them that seek thee.  
+> **¹** I will praise *thee,* O LORD, with my whole heart; I will show forth all thy marvellous works.  
+> **²** I will be glad and rejoice in thee: I will sing praise to thy name, O thou most High.  
+> **³** When mine enemies are turned back, they shall fall and perish at thy presence.  
+> **⁴** For thou hast maintained my right and my cause; thou satest in the throne judging right.  
+> **⁵** Thou hast rebuked the heathen, thou hast destroyed the wicked, thou hast put out their name for ever and ever.  
+> **⁶** O thou enemy, destructions are come to a perpetual end: and thou hast destroyed cities; their memorial is perished with them.  
+> **⁷** But the LORD shall endure for ever: he hath prepared his throne for judgment.  
+> **⁸** And he shall judge the world in righteousness, he shall minister judgment to the people in uprightness.  
+> **⁹** The LORD also will be a refuge for the oppressed, a refuge in times of trouble.  
+> **¹⁰** And they that know thy name will put their trust in thee: for thou, LORD, hast not forsaken them that seek thee.  
 
 The title of this psalm gives a very uncertain sound concerning the occasion of penning it. It is upon *Muth-labben,* which some make to refer to the death of Goliath, others of Nabal, others of Absalom; but I incline to think it signifies only some tone, or some musical instrument, to which this psalm was intended to be sung; and that the enemies David is here triumphing in the defeat of are the Philistines, and the other neighbouring nations that opposed his settlement in the throne, whom he contested with and subdued in the beginning of his reign, 2Sa 5:8. In these verses,
 
@@ -37,16 +37,16 @@ VI\. He comforts himself and others in God, and pleases himself with the thought
 
 ## A Call to Praise God; Certain Ruin of the Wicked.
 
-> <sup>11</sup> Sing praises to the LORD, which dwelleth in Zion: declare among the people his doings.  
-> <sup>12</sup> When he maketh inquisition for blood, he remembereth them: he forgetteth not the cry of the humble.  
-> <sup>13</sup> Have mercy upon me, O LORD; consider my trouble *which I suffer* of them that hate me, thou that liftest me up from the gates of death:  
-> <sup>14</sup> That I may show forth all thy praise in the gates of the daughter of Zion: I will rejoice in thy salvation.  
-> <sup>15</sup> The heathen are sunk down in the pit *that* they made: in the net which they hid is their own foot taken.  
-> <sup>16</sup> The LORD is known *by* the judgment *which* he executeth: the wicked is snared in the work of his own hands. Higgaion. Selah.  
-> <sup>17</sup> The wicked shall be turned into hell, *and* all the nations that forget God.  
-> <sup>18</sup> For the needy shall not alway be forgotten: the expectation of the poor shall *not* perish for ever.  
-> <sup>19</sup> Arise, O LORD; let not man prevail: let the heathen be judged in thy sight.  
-> <sup>20</sup> Put them in fear, O LORD: *that* the nations may know themselves *to be but* men. Selah.  
+> **¹¹** Sing praises to the LORD, which dwelleth in Zion: declare among the people his doings.  
+> **¹²** When he maketh inquisition for blood, he remembereth them: he forgetteth not the cry of the humble.  
+> **¹³** Have mercy upon me, O LORD; consider my trouble *which I suffer* of them that hate me, thou that liftest me up from the gates of death:  
+> **¹⁴** That I may show forth all thy praise in the gates of the daughter of Zion: I will rejoice in thy salvation.  
+> **¹⁵** The heathen are sunk down in the pit *that* they made: in the net which they hid is their own foot taken.  
+> **¹⁶** The LORD is known *by* the judgment *which* he executeth: the wicked is snared in the work of his own hands. Higgaion. Selah.  
+> **¹⁷** The wicked shall be turned into hell, *and* all the nations that forget God.  
+> **¹⁸** For the needy shall not alway be forgotten: the expectation of the poor shall *not* perish for ever.  
+> **¹⁹** Arise, O LORD; let not man prevail: let the heathen be judged in thy sight.  
+> **²⁰** Put them in fear, O LORD: *that* the nations may know themselves *to be but* men. Selah.  
 
 In these verses,
 

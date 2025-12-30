@@ -8,14 +8,14 @@ Ezekiel has again and again, in God's name, foretold the utter ruin of Jerusalem
 
 ## Jerusalem a Condemned Vine. (b. c. 593.)
 
-> <sup>1</sup> And the word of the LORD came unto me, saying,  
-> <sup>2</sup> Son of man, What is the vine tree more than any tree, *or than* a branch which is among the trees of the forest?  
-> <sup>3</sup> Shall wood be taken thereof to do any work? or will *men* take a pin of it to hang any vessel thereon?  
-> <sup>4</sup> Behold, it is cast into the fire for fuel; the fire devoureth both the ends of it, and the midst of it is burned. Is it meet for *any* work?  
-> <sup>5</sup> Behold, when it was whole, it was meet for no work: how much less shall it be meet yet for *any* work, when the fire hath devoured it, and it is burned?  
-> <sup>6</sup> Therefore thus saith the Lord GOD; As the vine tree among the trees of the forest, which I have given to the fire for fuel, so will I give the inhabitants of Jerusalem.  
-> <sup>7</sup> And I will set my face against them; they shall go out from *one* fire, and *another* fire shall devour them; and ye shall know that I *am* the LORD, when I set my face against them.  
-> <sup>8</sup> And I will make the land desolate, because they have committed a trespass, saith the Lord GOD.  
+> **¹** And the word of the LORD came unto me, saying,  
+> **²** Son of man, What is the vine tree more than any tree, *or than* a branch which is among the trees of the forest?  
+> **³** Shall wood be taken thereof to do any work? or will *men* take a pin of it to hang any vessel thereon?  
+> **⁴** Behold, it is cast into the fire for fuel; the fire devoureth both the ends of it, and the midst of it is burned. Is it meet for *any* work?  
+> **⁵** Behold, when it was whole, it was meet for no work: how much less shall it be meet yet for *any* work, when the fire hath devoured it, and it is burned?  
+> **⁶** Therefore thus saith the Lord GOD; As the vine tree among the trees of the forest, which I have given to the fire for fuel, so will I give the inhabitants of Jerusalem.  
+> **⁷** And I will set my face against them; they shall go out from *one* fire, and *another* fire shall devour them; and ye shall know that I *am* the LORD, when I set my face against them.  
+> **⁸** And I will make the land desolate, because they have committed a trespass, saith the Lord GOD.  
 
 The prophet, we may suppose, was thinking what a glorious city Jerusalem was, above any city in the world; it was the crown and *joy of the whole earth;* and therefore what a pity it was that it should be destroyed; it was a noble structure, the city of God, and the city of Israel's solemnities. But, if these were the thoughts of his heart, God here returns an answer to them by comparing Jerusalem to a vine. 1. It is true, if a vine be fruitful, it is a most valuable tree, none more so; it was one of those that were courted to have dominion over the trees, and the fruit of it is such as *cheers God and man* (Jdg 9:12,13); it *makes glad the heart,* Ps 104:15. So Jerusalem was *planted a choice and noble vine, wholly a right seed* (Jer 2:21); and, if it had brought forth fruit suitable to its character as a holy city, it would have been the glory both of God and Israel. It was a vine which *God's right hand had planted,* a *branch out of a dry ground,* which, though its original was mean and despicable, God had *made strong for himself* (Ps 80:15), to be *to him for a name and for a praise.* 2. But, if it be not fruitful, it is good for nothing, it is as worthless and useless a production of the earth as even thorns and briers are: *What is the vine-tree,* if you take the tree by itself, without consideration of the fruit? *What is it more than any tree,* that it should have so much care taken of it and so much cost laid out upon it? What is a branch of the vine, though it spread *more than a branch which is among the trees of the forest,* where it grows neglected and exposed? Or, as some read it, *What is the vine more than any tree if the branch of it be as the trees of the forest;* that is, if it bear no fruit, as forest-trees seldom do, being designed for timber-trees, not fruit-trees? Now there are some fruit-trees which, if they do not bear, are nevertheless of good use, as the wood of them may be made to turn to a good account; but the vine is not of this sort: if that do not answer its end as a fruit-tree, it is worth nothing as a timber-tree. Observe,
 

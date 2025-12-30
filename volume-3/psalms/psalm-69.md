@@ -10,18 +10,18 @@ David penned this psalm when he was in affliction; and in it, I. He complains of
 
 To the chief musician upon Shoshannim. *A psalm* of David.
 
-> <sup>1</sup> Save me, O God; for the waters are come in unto *my* soul.  
-> <sup>2</sup> I sink in deep mire, where *there is* no standing: I am come into deep waters, where the floods overflow me.  
-> <sup>3</sup> I am weary of my crying: my throat is dried: mine eyes fail while I wait for my God.  
-> <sup>4</sup> They that hate me without a cause are more than the hairs of mine head: they that would destroy me, *being* mine enemies wrongfully, are mighty: then I restored *that* which I took not away.  
-> <sup>5</sup> O God, thou knowest my foolishness; and my sins are not hid from thee.  
-> <sup>6</sup> Let not them that wait on thee, O Lord GOD of hosts, be ashamed for my sake: let not those that seek thee be confounded for my sake, O God of Israel.  
-> <sup>7</sup> Because for thy sake I have borne reproach; shame hath covered my face.  
-> <sup>8</sup> I am become a stranger unto my brethren, and an alien unto my mother's children.  
-> <sup>9</sup> For the zeal of thine house hath eaten me up; and the reproaches of them that reproached thee are fallen upon me.  
-> <sup>10</sup> When I wept, *and chastened* my soul with fasting, that was to my reproach.  
-> <sup>11</sup> I made sackcloth also my garment; and I became a proverb to them.  
-> <sup>12</sup> They that sit in the gate speak against me; and I *was* the song of the drunkards.  
+> **¹** Save me, O God; for the waters are come in unto *my* soul.  
+> **²** I sink in deep mire, where *there is* no standing: I am come into deep waters, where the floods overflow me.  
+> **³** I am weary of my crying: my throat is dried: mine eyes fail while I wait for my God.  
+> **⁴** They that hate me without a cause are more than the hairs of mine head: they that would destroy me, *being* mine enemies wrongfully, are mighty: then I restored *that* which I took not away.  
+> **⁵** O God, thou knowest my foolishness; and my sins are not hid from thee.  
+> **⁶** Let not them that wait on thee, O Lord GOD of hosts, be ashamed for my sake: let not those that seek thee be confounded for my sake, O God of Israel.  
+> **⁷** Because for thy sake I have borne reproach; shame hath covered my face.  
+> **⁸** I am become a stranger unto my brethren, and an alien unto my mother's children.  
+> **⁹** For the zeal of thine house hath eaten me up; and the reproaches of them that reproached thee are fallen upon me.  
+> **¹⁰** When I wept, *and chastened* my soul with fasting, that was to my reproach.  
+> **¹¹** I made sackcloth also my garment; and I became a proverb to them.  
+> **¹²** They that sit in the gate speak against me; and I *was* the song of the drunkards.  
 
 In these verses David complains of his troubles, intermixing with those complaints some requests for relief.
 
@@ -45,15 +45,15 @@ IV\. His plea is very powerful, Ps 69:7,9. Reproach was one of the greatest of h
 
 ## Complaints and Petitions.
 
-> <sup>13</sup> But as for me, my prayer *is* unto thee, O LORD, *in* an acceptable time: O God, in the multitude of thy mercy hear me, in the truth of thy salvation.  
-> <sup>14</sup> Deliver me out of the mire, and let me not sink: let me be delivered from them that hate me, and out of the deep waters.  
-> <sup>15</sup> Let not the waterflood overflow me, neither let the deep swallow me up, and let not the pit shut her mouth upon me.  
-> <sup>16</sup> Hear me, O LORD; for thy lovingkindness *is* good: turn unto me according to the multitude of thy tender mercies.  
-> <sup>17</sup> And hide not thy face from thy servant; for I am in trouble: hear me speedily.  
-> <sup>18</sup> Draw nigh unto my soul, *and* redeem it: deliver me because of mine enemies.  
-> <sup>19</sup> Thou hast known my reproach, and my shame, and my dishonour: mine adversaries *are* all before thee.  
-> <sup>20</sup> Reproach hath broken my heart; and I am full of heaviness: and I looked *for some* to take pity, but *there was* none; and for comforters, but I found none.  
-> <sup>21</sup> They gave me also gall for my meat; and in my thirst they gave me vinegar to drink.  
+> **¹³** But as for me, my prayer *is* unto thee, O LORD, *in* an acceptable time: O God, in the multitude of thy mercy hear me, in the truth of thy salvation.  
+> **¹⁴** Deliver me out of the mire, and let me not sink: let me be delivered from them that hate me, and out of the deep waters.  
+> **¹⁵** Let not the waterflood overflow me, neither let the deep swallow me up, and let not the pit shut her mouth upon me.  
+> **¹⁶** Hear me, O LORD; for thy lovingkindness *is* good: turn unto me according to the multitude of thy tender mercies.  
+> **¹⁷** And hide not thy face from thy servant; for I am in trouble: hear me speedily.  
+> **¹⁸** Draw nigh unto my soul, *and* redeem it: deliver me because of mine enemies.  
+> **¹⁹** Thou hast known my reproach, and my shame, and my dishonour: mine adversaries *are* all before thee.  
+> **²⁰** Reproach hath broken my heart; and I am full of heaviness: and I looked *for some* to take pity, but *there was* none; and for comforters, but I found none.  
+> **²¹** They gave me also gall for my meat; and in my thirst they gave me vinegar to drink.  
 
 David had been speaking before of the spiteful reproaches which his enemies cast upon him; here he adds, *But, as for me, my prayer is unto thee.* They spoke ill of him for his fasting and praying, and for that he was made the song of the drunkards; but, notwithstanding that, he resolves to continue praying. Note, Though we may be jeered for well-doing, we must never be jeered out of it. Those can bear but little for God, and their confessing his name before men, that cannot bear a scoff and a hard word rather than quit their duty. David's enemies were very abusive to him, but this was his comfort, that he had a God to go to, with whom he would lodge his cause. "They think to carry their cause by insolence and calumny; but I use other methods. Whatever they do, *As for me, my prayer is unto thee, O Lord!*" And it was in an acceptable time, not the less acceptable for being a time of affliction. God will not drive us from him, though it is need that drives us to him; nay, it is the more acceptable, because the misery and distress of God's people make them so much the more the objects of his pity: it is seasonable for him to help them when all other helps fail, and they are undone, and feel that they are undone, if he do not help them. We find this expression used concerning Christ. Isa 49:8, *In an acceptable time have I heard thee.* Now observe,
 
@@ -63,14 +63,14 @@ II\. What his pleas are to enforce these petitions. 1. He pleads God's mercy and
 
 ## Pleading with God; Prophetic Imprecations.
 
-> <sup>22</sup> Let their table become a snare before them: and *that which should have been* for *their* welfare, *let it become* a trap.  
-> <sup>23</sup> Let their eyes be darkened, that they see not; and make their loins continually to shake.  
-> <sup>24</sup> Pour out thine indignation upon them, and let thy wrathful anger take hold of them.  
-> <sup>25</sup> Let their habitation be desolate; *and* let none dwell in their tents.  
-> <sup>26</sup> For they persecute *him* whom thou hast smitten; and they talk to the grief of those whom thou hast wounded.  
-> <sup>27</sup> Add iniquity unto their iniquity: and let them not come into thy righteousness.  
-> <sup>28</sup> Let them be blotted out of the book of the living, and not be written with the righteous.  
-> <sup>29</sup> But I *am* poor and sorrowful: let thy salvation, O God, set me up on high.  
+> **²²** Let their table become a snare before them: and *that which should have been* for *their* welfare, *let it become* a trap.  
+> **²³** Let their eyes be darkened, that they see not; and make their loins continually to shake.  
+> **²⁴** Pour out thine indignation upon them, and let thy wrathful anger take hold of them.  
+> **²⁵** Let their habitation be desolate; *and* let none dwell in their tents.  
+> **²⁶** For they persecute *him* whom thou hast smitten; and they talk to the grief of those whom thou hast wounded.  
+> **²⁷** Add iniquity unto their iniquity: and let them not come into thy righteousness.  
+> **²⁸** Let them be blotted out of the book of the living, and not be written with the righteous.  
+> **²⁹** But I *am* poor and sorrowful: let thy salvation, O God, set me up on high.  
 
 These imprecations are not David's prayers against his enemies, but prophecies of the destruction of Christ's persecutors, especially the Jewish nation, which our Lord himself foretold with tears, and which was accomplished about forty years after the death of Christ. The first two verses of this paragraph are expressly applied to the judgments of God upon the unbelieving Jews by the apostle (Ps 69:22,23, Ro 11:9,10), and therefore the whole must look that way. The rejection of the Jews for rejecting Christ, as it was a signal instance of God's justice and an earnest of the vengeance which God will at last take on all that are obstinate in their infidelity, so it was, and continues to be, a convincing proof of the truth of the Christian religion. One great objection against it, at first, was, that it set aside the ceremonial law; but its doing so was effectually justified, and that objection removed, when God so remarkably set it aside by the utter destruction of the temple, and the sinking of those, with the Mosaic economy, that obstinately adhered to it in opposition to the gospel of Christ. Let us observe here,
 
@@ -94,13 +94,13 @@ III\. What the psalmist thinks of himself in the midst of all (Ps 69:29): "*But 
 
 ## Comfort for the Persecuted; Thanksgiving and Praise.
 
-> <sup>30</sup> I will praise the name of God with a song, and will magnify him with thanksgiving.  
-> <sup>31</sup> *This* also shall please the LORD better than an ox *or* bullock that hath horns and hoofs.  
-> <sup>32</sup> The humble shall see *this, and* be glad: and your heart shall live that seek God.  
-> <sup>33</sup> For the LORD heareth the poor, and despiseth not his prisoners.  
-> <sup>34</sup> Let the heaven and earth praise him, the seas, and every thing that moveth therein.  
-> <sup>35</sup> For God will save Zion, and will build the cities of Judah: that they may dwell there, and have it in possession.  
-> <sup>36</sup> The seed also of his servants shall inherit it: and they that love his name shall dwell therein.  
+> **³⁰** I will praise the name of God with a song, and will magnify him with thanksgiving.  
+> **³¹** *This* also shall please the LORD better than an ox *or* bullock that hath horns and hoofs.  
+> **³²** The humble shall see *this, and* be glad: and your heart shall live that seek God.  
+> **³³** For the LORD heareth the poor, and despiseth not his prisoners.  
+> **³⁴** Let the heaven and earth praise him, the seas, and every thing that moveth therein.  
+> **³⁵** For God will save Zion, and will build the cities of Judah: that they may dwell there, and have it in possession.  
+> **³⁶** The seed also of his servants shall inherit it: and they that love his name shall dwell therein.  
 
 The psalmist here, both as a type of Christ and as an example to Christians, concludes a psalm with holy joy and praise which he began with complaints and remonstrances of his griefs.
 

@@ -8,13 +8,13 @@ Eliphaz concluded his discourse with an air of assurance; very confident he was 
 
 ## Job's Reply to Eliphaz. (b. c. 1520.)
 
-> <sup>1</sup> But Job answered and said,  
-> <sup>2</sup> Oh that my grief were thoroughly weighed, and my calamity laid in the balances together!  
-> <sup>3</sup> For now it would be heavier than the sand of the sea: therefore my words are swallowed up.  
-> <sup>4</sup> For the arrows of the Almighty *are* within me, the poison whereof drinketh up my spirit: the terrors of God do set themselves in array against me.  
-> <sup>5</sup> Doth the wild ass bray when he hath grass? or loweth the ox over his fodder?  
-> <sup>6</sup> Can that which is unsavoury be eaten without salt? or is there *any* taste in the white of an egg?  
-> <sup>7</sup> The things *that* my soul refused to touch *are* as my sorrowful meat.  
+> **¹** But Job answered and said,  
+> **²** Oh that my grief were thoroughly weighed, and my calamity laid in the balances together!  
+> **³** For now it would be heavier than the sand of the sea: therefore my words are swallowed up.  
+> **⁴** For the arrows of the Almighty *are* within me, the poison whereof drinketh up my spirit: the terrors of God do set themselves in array against me.  
+> **⁵** Doth the wild ass bray when he hath grass? or loweth the ox over his fodder?  
+> **⁶** Can that which is unsavoury be eaten without salt? or is there *any* taste in the white of an egg?  
+> **⁷** The things *that* my soul refused to touch *are* as my sorrowful meat.  
 
 Eliphaz, in the beginning of his discourse, had been very sharp upon Job, and yet it does not appear that Job gave him any interruption, but heard him patiently till he had said all he had to say. Those that would make an impartial judgment of a discourse must hear it out, and take it entire. But, when he had concluded, he makes his reply, in which he speaks very feelingly.
 
@@ -24,12 +24,12 @@ II\. He complains of the trouble and terror of mind he was in as the sorest part
 
 III\. He reflects upon his friends for their severe censures of his complaints and their unskilful management of his case. 1. Their reproofs were causeless. He complained, it is true, now that he was in this affliction, but he never used to complain, as those do who are of a fretful unquiet spirit, when he was in prosperity: he did not *bray when he had grass,* nor *low over his fodder,* Job 6:5. But, now that he was utterly deprived of all his comforts, he must be a stock or a stone, and not have the sense of an ox or a wild ass, if he did not give some vent to his grief. He was forced to eat unsavoury meats, and was so poor that he had not a grain of salt wherewith to season them, nor to give a little taste to the white of an egg, which was now the choicest dish he had at his table, Job 6:6. Even that food which once he would have scorned to touch he was now glad of, and it was his *sorrowful meat,* Job 6:7. Note, It is wisdom not to use ourselves or our children to be nice and dainty about meat and drink, because we know not how we or they may be reduced, nor how that which we now disdain may be made acceptable by necessity. 2. Their comforts were sapless and insipid; so some understand Job 6:6,7. He complains he had nothing now offered to him for his relief that was proper for him, no cordial, nothing to revive and cheer his spirits; what they had afforded was in itself as tasteless as the white of an egg, and, when applied to him, as loathsome and burdensome as the most sorrowful meat. I am sorry he should say thus of what Eliphaz had excellently well said, Job 5:8-13, etc. But peevish spirits are too apt thus to abuse their comforters.
 
-> <sup>8</sup> Oh that I might have my request; and that God would grant *me* the thing that I long for!  
-> <sup>9</sup> Even that it would please God to destroy me; that he would let loose his hand, and cut me off!  
-> <sup>10</sup> Then should I yet have comfort; yea, I would harden myself in sorrow: let him not spare; for I have not concealed the words of the Holy One.  
-> <sup>11</sup> What *is* my strength, that I should hope? and what *is* mine end, that I should prolong my life?  
-> <sup>12</sup> *Is* my strength the strength of stones? or *is* my flesh of brass?  
-> <sup>13</sup> *Is* not my help in me? and is wisdom driven quite from me?  
+> **⁸** Oh that I might have my request; and that God would grant *me* the thing that I long for!  
+> **⁹** Even that it would please God to destroy me; that he would let loose his hand, and cut me off!  
+> **¹⁰** Then should I yet have comfort; yea, I would harden myself in sorrow: let him not spare; for I have not concealed the words of the Holy One.  
+> **¹¹** What *is* my strength, that I should hope? and what *is* mine end, that I should prolong my life?  
+> **¹²** *Is* my strength the strength of stones? or *is* my flesh of brass?  
+> **¹³** *Is* not my help in me? and is wisdom driven quite from me?  
 
 Ungoverned passion often grows more violent when it meets with some rebuke and check. The troubled sea rages most when it dashes against a rock. Job had been courting death, as that which would be the happy period of his miseries, Job 3:1-26. For this Eliphaz had gravely reproved him, but he, instead of unsaying what he had said, says it here again with more vehemence than before; and it is as ill said as almost any thing we meet with in all his discourses, and is recorded for our admonition, not our imitation.
 
@@ -47,14 +47,14 @@ VI\. He justifies himself, in this extreme desire of death, from the deplorable 
 
 VII\. He obviates the suspicion of his being delirious (Job 6:13): *Is not my help in me?* that is, "Have I not the use of my reason, with which, I thank God, I can help myself, though you do not help me? Do you think wisdom is driven quite from me, and that I am gone distracted? No, I am not mad, most noble Eliphaz, but *speak the words of truth and soberness.*" Note, Those who have grace in them, who have the evidence of it and have it in exercise, have wisdom in them, which will be their help in the worst of times. *Sat lucis intus—They have light within.*
 
-> <sup>14</sup> To him that is afflicted pity *should be showed* from his friend; but he forsaketh the fear of the Almighty.  
-> <sup>15</sup> My brethren have dealt deceitfully as a brook, *and* as the stream of brooks they pass away;  
-> <sup>16</sup> Which are blackish by reason of the ice, *and* wherein the snow is hid:  
-> <sup>17</sup> What time they wax warm, they vanish: when it is hot, they are consumed out of their place.  
-> <sup>18</sup> The paths of their way are turned aside; they go to nothing, and perish.  
-> <sup>19</sup> The troops of Tema looked, the companies of Sheba waited for them.  
-> <sup>20</sup> They were confounded because they had hoped; they came thither, and were ashamed.  
-> <sup>21</sup> For now ye are nothing; ye see *my* casting down, and are afraid.  
+> **¹⁴** To him that is afflicted pity *should be showed* from his friend; but he forsaketh the fear of the Almighty.  
+> **¹⁵** My brethren have dealt deceitfully as a brook, *and* as the stream of brooks they pass away;  
+> **¹⁶** Which are blackish by reason of the ice, *and* wherein the snow is hid:  
+> **¹⁷** What time they wax warm, they vanish: when it is hot, they are consumed out of their place.  
+> **¹⁸** The paths of their way are turned aside; they go to nothing, and perish.  
+> **¹⁹** The troops of Tema looked, the companies of Sheba waited for them.  
+> **²⁰** They were confounded because they had hoped; they came thither, and were ashamed.  
+> **²¹** For now ye are nothing; ye see *my* casting down, and are afraid.  
 
 Eliphaz had been very severe in his censures of Job; and his companions, though as yet they had said little, yet had intimated their concurrence with him. Their unkindness therein poor Job here complains of, as an aggravation of his calamity and a further excuse of his desire to die; for what satisfaction could he ever expect in this world when those that should have been his comforters thus proved his tormentors?
 
@@ -66,15 +66,15 @@ II\. He shows how wretchedly he was disappointed in his expectations from them (
 
 2\. The application is very close (Job 6:21): *For now you are nothing.* They seemed to be somewhat, but in conference they added nothing to him. Allude to Ga 2:6. He was never the wiser, never the better, for the visit they made him. Note, Whatever complacency we may take, or whatever confidence we may put, in creatures, how great soever they may seem and how dear soever they may be to us, one time or other we shall say of them, *Now you are nothing.* When Job was in prosperity his friends were something to him, he took complacency in them and their society; but "*Now you are nothing,* now I can find no comfort but in God." It were well for us if we had always such convictions of the vanity of the creature, and its insufficiency to make us happy, as we have sometimes had, or shall have on a sick-bed, a death-bed, or in trouble of conscience: "*Now you are nothing.* You are not what you have been, what you should be, what you pretend to be, what I thought you would have been; *for you see my casting down and are afraid.* When you saw me in my elevation you caressed me; but now that you see me in my dejection you are shy of me, are afraid of showing yourselves kind, lest I should thereby be emboldened to beg something of you, or to borrow" (compare Job 6:22); "you are afraid lest, if you own me, you should be obliged to keep me." Perhaps they were afraid of catching his distemper or of coming within smell of the noisomeness of it. It is not good, either out of pride or niceness, for love of our purses or of our bodies, to be shy of those who are in distress and afraid of coming near them. Their case may soon be our own.
 
-> <sup>22</sup> Did I say, Bring unto me? or, Give a reward for me of your substance?  
-> <sup>23</sup> Or, Deliver me from the enemy's hand? or, Redeem me from the hand of the mighty?  
-> <sup>24</sup> Teach me, and I will hold my tongue: and cause me to understand wherein I have erred.  
-> <sup>25</sup> How forcible are right words! but what doth your arguing reprove?  
-> <sup>26</sup> Do ye imagine to reprove words, and the speeches of one that is desperate, *which are* as wind?  
-> <sup>27</sup> Yea, ye overwhelm the fatherless, and ye dig *a pit* for your friend.  
-> <sup>28</sup> Now therefore be content, look upon me; for *it is* evident unto you if I lie.  
-> <sup>29</sup> Return, I pray you, let it not be iniquity; yea, return again, my righteousness *is* in it.  
-> <sup>30</sup> Is there iniquity in my tongue? cannot my taste discern perverse things?  
+> **²²** Did I say, Bring unto me? or, Give a reward for me of your substance?  
+> **²³** Or, Deliver me from the enemy's hand? or, Redeem me from the hand of the mighty?  
+> **²⁴** Teach me, and I will hold my tongue: and cause me to understand wherein I have erred.  
+> **²⁵** How forcible are right words! but what doth your arguing reprove?  
+> **²⁶** Do ye imagine to reprove words, and the speeches of one that is desperate, *which are* as wind?  
+> **²⁷** Yea, ye overwhelm the fatherless, and ye dig *a pit* for your friend.  
+> **²⁸** Now therefore be content, look upon me; for *it is* evident unto you if I lie.  
+> **²⁹** Return, I pray you, let it not be iniquity; yea, return again, my righteousness *is* in it.  
+> **³⁰** Is there iniquity in my tongue? cannot my taste discern perverse things?  
 
 Poor Job goes on here to upbraid his friends with their unkindness and the hard usage they gave him. He here appeals to themselves concerning several things which tended both to justify him and to condemn them. If they would but think impartially, and speak as they thought, they could not but own,
 

@@ -8,12 +8,12 @@ There are divers psalms which are thought to have been penned in the latter days
 
 ## The Sorrows of Captivity.
 
-> <sup>1</sup> By the rivers of Babylon, there we sat down, yea, we wept, when we remembered Zion.  
-> <sup>2</sup> We hanged our harps upon the willows in the midst thereof.  
-> <sup>3</sup> For there they that carried us away captive required of us a song; and they that wasted us *required of us* mirth, *saying,* Sing us *one* of the songs of Zion.  
-> <sup>4</sup> How shall we sing the LORD's song in a strange land?  
-> <sup>5</sup> If I forget thee, O Jerusalem, let my right hand forget *her cunning.*  
-> <sup>6</sup> If I do not remember thee, let my tongue cleave to the roof of my mouth; if I prefer not Jerusalem above my chief joy.  
+> **¹** By the rivers of Babylon, there we sat down, yea, we wept, when we remembered Zion.  
+> **²** We hanged our harps upon the willows in the midst thereof.  
+> **³** For there they that carried us away captive required of us a song; and they that wasted us *required of us* mirth, *saying,* Sing us *one* of the songs of Zion.  
+> **⁴** How shall we sing the LORD's song in a strange land?  
+> **⁵** If I forget thee, O Jerusalem, let my right hand forget *her cunning.*  
+> **⁶** If I do not remember thee, let my tongue cleave to the roof of my mouth; if I prefer not Jerusalem above my chief joy.  
 
 We have here the daughter of Zion covered with a cloud, and dwelling with the daughter of Babylon; the people of God in tears, but sowing in tears. Observe,
 
@@ -31,9 +31,9 @@ IV\. The constant affection they retained for Jerusalem, the city of their solem
 
 ## The Sorrows of Captivity.
 
-> <sup>7</sup> Remember, O LORD, the children of Edom in the day of Jerusalem; who said, Rase *it,* rase *it, even* to the foundation thereof.  
-> <sup>8</sup> O daughter of Babylon, who art to be destroyed; happy *shall he be,* that rewardeth thee as thou hast served us.  
-> <sup>9</sup> Happy *shall he be,* that taketh and dasheth thy little ones against the stones.  
+> **⁷** Remember, O LORD, the children of Edom in the day of Jerusalem; who said, Rase *it,* rase *it, even* to the foundation thereof.  
+> **⁸** O daughter of Babylon, who art to be destroyed; happy *shall he be,* that rewardeth thee as thou hast served us.  
+> **⁹** Happy *shall he be,* that taketh and dasheth thy little ones against the stones.  
 
 The pious Jews in Babylon, having afflicted themselves with the thoughts of the ruins of Jerusalem, here please themselves with the prospect of the ruin of her impenitent implacable enemies; but this not from a spirit of revenge, but from a holy zeal for the glory of God and the honour of his kingdom.
 

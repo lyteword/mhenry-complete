@@ -8,17 +8,17 @@ In this chapter we have, I. A further description of that terrible desolation wh
 
 ## Threatenings of Judgment. (b. c. 720.)
 
-> <sup>1</sup> Blow ye the trumpet in Zion, and sound an alarm in my holy mountain: let all the inhabitants of the land tremble: for the day of the LORD cometh, for *it is* nigh at hand;  
-> <sup>2</sup> A day of darkness and of gloominess, a day of clouds and of thick darkness, as the morning spread upon the mountains: a great people and a strong; there hath not been ever the like, neither shall be any more after it, *even* to the years of many generations.  
-> <sup>3</sup> A fire devoureth before them; and behind them a flame burneth: the land *is* as the garden of Eden before them, and behind them a desolate wilderness; yea, and nothing shall escape them.  
-> <sup>4</sup> The appearance of them *is* as the appearance of horses; and as horsemen, so shall they run.  
-> <sup>5</sup> Like the noise of chariots on the tops of mountains shall they leap, like the noise of a flame of fire that devoureth the stubble, as a strong people set in battle array.  
-> <sup>6</sup> Before their face the people shall be much pained: all faces shall gather blackness.  
-> <sup>7</sup> They shall run like mighty men; they shall climb the wall like men of war; and they shall march every one on his ways, and they shall not break their ranks:  
-> <sup>8</sup> Neither shall one thrust another; they shall walk every one in his path: and *when* they fall upon the sword, they shall not be wounded.  
-> <sup>9</sup> They shall run to and fro in the city; they shall run upon the wall, they shall climb up upon the houses; they shall enter in at the windows like a thief.  
-> <sup>10</sup> The earth shall quake before them; the heavens shall tremble: the sun and the moon shall be dark, and the stars shall withdraw their shining:  
-> <sup>11</sup> And the LORD shall utter his voice before his army: for his camp *is* very great: for *he is* strong that executeth his word: for the day of the LORD *is* great and very terrible; and who can abide it?  
+> **¹** Blow ye the trumpet in Zion, and sound an alarm in my holy mountain: let all the inhabitants of the land tremble: for the day of the LORD cometh, for *it is* nigh at hand;  
+> **²** A day of darkness and of gloominess, a day of clouds and of thick darkness, as the morning spread upon the mountains: a great people and a strong; there hath not been ever the like, neither shall be any more after it, *even* to the years of many generations.  
+> **³** A fire devoureth before them; and behind them a flame burneth: the land *is* as the garden of Eden before them, and behind them a desolate wilderness; yea, and nothing shall escape them.  
+> **⁴** The appearance of them *is* as the appearance of horses; and as horsemen, so shall they run.  
+> **⁵** Like the noise of chariots on the tops of mountains shall they leap, like the noise of a flame of fire that devoureth the stubble, as a strong people set in battle array.  
+> **⁶** Before their face the people shall be much pained: all faces shall gather blackness.  
+> **⁷** They shall run like mighty men; they shall climb the wall like men of war; and they shall march every one on his ways, and they shall not break their ranks:  
+> **⁸** Neither shall one thrust another; they shall walk every one in his path: and *when* they fall upon the sword, they shall not be wounded.  
+> **⁹** They shall run to and fro in the city; they shall run upon the wall, they shall climb up upon the houses; they shall enter in at the windows like a thief.  
+> **¹⁰** The earth shall quake before them; the heavens shall tremble: the sun and the moon shall be dark, and the stars shall withdraw their shining:  
+> **¹¹** And the LORD shall utter his voice before his army: for his camp *is* very great: for *he is* strong that executeth his word: for the day of the LORD *is* great and very terrible; and who can abide it?  
 
 Here we have God contending with his own professing people for their sins and executing upon them the judgment written in the law (De 28:42), *The fruit of thy land shall the locust consume,* which was one of those diseases of Egypt that God would bring upon them, De 28:60.
 
@@ -36,12 +36,12 @@ VI\. We are here directed to look up both him who is the commander-in-chief of t
 
 ## Exhortation to Repentance. (b. c. 720.)
 
-> <sup>12</sup> Therefore also now, saith the LORD, turn ye *even* to me with all your heart, and with fasting, and with weeping, and with mourning:  
-> <sup>13</sup> And rend your heart, and not your garments, and turn unto the LORD your God: for he *is* gracious and merciful, slow to anger, and of great kindness, and repenteth him of the evil.  
-> <sup>14</sup> Who knoweth *if* he will return and repent, and leave a blessing behind him; *even* a meat offering and a drink offering unto the LORD your God?  
-> <sup>15</sup> Blow the trumpet in Zion, sanctify a fast, call a solemn assembly:  
-> <sup>16</sup> Gather the people, sanctify the congregation, assemble the elders, gather the children, and those that suck the breasts: let the bridegroom go forth of his chamber, and the bride out of her closet.  
-> <sup>17</sup> Let the priests, the ministers of the LORD, weep between the porch and the altar, and let them say, Spare thy people, O LORD, and give not thine heritage to reproach, that the heathen should rule over them: wherefore should they say among the people, Where *is* their God?  
+> **¹²** Therefore also now, saith the LORD, turn ye *even* to me with all your heart, and with fasting, and with weeping, and with mourning:  
+> **¹³** And rend your heart, and not your garments, and turn unto the LORD your God: for he *is* gracious and merciful, slow to anger, and of great kindness, and repenteth him of the evil.  
+> **¹⁴** Who knoweth *if* he will return and repent, and leave a blessing behind him; *even* a meat offering and a drink offering unto the LORD your God?  
+> **¹⁵** Blow the trumpet in Zion, sanctify a fast, call a solemn assembly:  
+> **¹⁶** Gather the people, sanctify the congregation, assemble the elders, gather the children, and those that suck the breasts: let the bridegroom go forth of his chamber, and the bride out of her closet.  
+> **¹⁷** Let the priests, the ministers of the LORD, weep between the porch and the altar, and let them say, Spare thy people, O LORD, and give not thine heritage to reproach, that the heathen should rule over them: wherefore should they say among the people, Where *is* their God?  
 
 We have here an earnest exhortation to repentance, inferred from that desolating judgment described and threatened in the Joe 2:1-11: *Therefore now turn you to the Lord.* 1. "Thus you must answer the end and intention of the judgment; for it was sent for this end, to convince you of your sins, to humble you for them, to reduce you to your right minds and to your allegiance." God brings us into straits, that he may bring us to repentance and so bring us to himself. 2. "Thus you may stay the progress of the judgment. Things are bad with you, but thus you may prevent their growing worse; nay, if you take this course, they will soon grow better." Here is a gracious invitation,
 
@@ -55,16 +55,16 @@ II\. They are here called to a public national repentance, to be exercised in th
 
 ## Promise of Mercy. (b. c. 720.)
 
-> <sup>18</sup> Then will the LORD be jealous for his land, and pity his people.  
-> <sup>19</sup> Yea, the LORD will answer and say unto his people, Behold, I will send you corn, and wine, and oil, and ye shall be satisfied therewith: and I will no more make you a reproach among the heathen:  
-> <sup>20</sup> But I will remove far off from you the northern *army,* and will drive him into a land barren and desolate, with his face toward the east sea, and his hinder part toward the utmost sea, and his stink shall come up, and his ill savour shall come up, because he hath done great things.  
-> <sup>21</sup> Fear not, O land; be glad and rejoice: for the LORD will do great things.  
-> <sup>22</sup> Be not afraid, ye beasts of the field: for the pastures of the wilderness do spring, for the tree beareth her fruit, the fig tree and the vine do yield their strength.  
-> <sup>23</sup> Be glad then, ye children of Zion, and rejoice in the LORD your God: for he hath given you the former rain moderately, and he will cause to come down for you the rain, the former rain, and the latter rain in the first *month.*  
-> <sup>24</sup> And the floors shall be full of wheat, and the fats shall overflow with wine and oil.  
-> <sup>25</sup> And I will restore to you the years that the locust hath eaten, the canker-worm, and the caterpillar, and the palmer-worm, my great army which I sent among you.  
-> <sup>26</sup> And ye shall eat in plenty, and be satisfied, and praise the name of the LORD your God, that hath dealt wondrously with you: and my people shall never be ashamed.  
-> <sup>27</sup> And ye shall know that I *am* in the midst of Israel, and *that* I *am* the LORD your God, and none else: and my people shall never be ashamed.  
+> **¹⁸** Then will the LORD be jealous for his land, and pity his people.  
+> **¹⁹** Yea, the LORD will answer and say unto his people, Behold, I will send you corn, and wine, and oil, and ye shall be satisfied therewith: and I will no more make you a reproach among the heathen:  
+> **²⁰** But I will remove far off from you the northern *army,* and will drive him into a land barren and desolate, with his face toward the east sea, and his hinder part toward the utmost sea, and his stink shall come up, and his ill savour shall come up, because he hath done great things.  
+> **²¹** Fear not, O land; be glad and rejoice: for the LORD will do great things.  
+> **²²** Be not afraid, ye beasts of the field: for the pastures of the wilderness do spring, for the tree beareth her fruit, the fig tree and the vine do yield their strength.  
+> **²³** Be glad then, ye children of Zion, and rejoice in the LORD your God: for he hath given you the former rain moderately, and he will cause to come down for you the rain, the former rain, and the latter rain in the first *month.*  
+> **²⁴** And the floors shall be full of wheat, and the fats shall overflow with wine and oil.  
+> **²⁵** And I will restore to you the years that the locust hath eaten, the canker-worm, and the caterpillar, and the palmer-worm, my great army which I sent among you.  
+> **²⁶** And ye shall eat in plenty, and be satisfied, and praise the name of the LORD your God, that hath dealt wondrously with you: and my people shall never be ashamed.  
+> **²⁷** And ye shall know that I *am* in the midst of Israel, and *that* I *am* the LORD your God, and none else: and my people shall never be ashamed.  
 
 See how ready God is to succour and relieve his people, how he *waits to be gracious;* as soon as ever they humble themselves under this hand, and pray, and seek his face, he immediately meets them with his favours. They prayed that God would *spare them,* and see here with what *good words and comfortable words* he answered them; for God's promises are real answers to the prayers of faith, because with him saying and doing are not two things. Now observe,
 
@@ -84,11 +84,11 @@ III\. What use shall be made of these returns of God's mercy to them and the goo
 
 ## Promise of Mercy. (b. c. 720.)
 
-> <sup>28</sup> And it shall come to pass afterward, *that* I will pour out my spirit upon all flesh; and your sons and your daughters shall prophesy, your old men shall dream dreams, your young men shall see visions:  
-> <sup>29</sup> And also upon the servants and upon the handmaids in those days will I pour out my spirit.  
-> <sup>30</sup> And I will shew wonders in the heavens and in the earth, blood, and fire, and pillars of smoke.  
-> <sup>31</sup> The sun shall be turned into darkness, and the moon into blood, before the great and the terrible day of the LORD come.  
-> <sup>32</sup> And it shall come to pass, *that* whosoever shall call on the name of the LORD shall be delivered: for in mount Zion and in Jerusalem shall be deliverance, as the LORD hath said, and in the remnant whom the LORD shall call.  
+> **²⁸** And it shall come to pass afterward, *that* I will pour out my spirit upon all flesh; and your sons and your daughters shall prophesy, your old men shall dream dreams, your young men shall see visions:  
+> **²⁹** And also upon the servants and upon the handmaids in those days will I pour out my spirit.  
+> **³⁰** And I will shew wonders in the heavens and in the earth, blood, and fire, and pillars of smoke.  
+> **³¹** The sun shall be turned into darkness, and the moon into blood, before the great and the terrible day of the LORD come.  
+> **³²** And it shall come to pass, *that* whosoever shall call on the name of the LORD shall be delivered: for in mount Zion and in Jerusalem shall be deliverance, as the LORD hath said, and in the remnant whom the LORD shall call.  
 
 The promises of corn, and wine, and oil, in the Joe 2:12-27, would be very acceptable to a wasted country; but here we are taught that we must not rest in those things. God has reserved some better things for us, and these verses have reference to those better things, both the kingdom of grace and the kingdom of glory, with the happiness of true believers in both. We are here told,
 

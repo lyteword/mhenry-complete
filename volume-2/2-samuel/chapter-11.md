@@ -8,11 +8,11 @@ What David said of the mournful report of Saul's death may more fitly be applied
 
 ## David's Sin with Bath-sheba. (b. c. 1037.)
 
-> <sup>1</sup> And it came to pass, after the year was expired, at the time when kings go forth *to battle,* that David sent Joab, and his servants with him, and all Israel; and they destroyed the children of Ammon, and besieged Rabbah. But David tarried still at Jerusalem.  
-> <sup>2</sup> And it came to pass in an eveningtide, that David arose from off his bed, and walked upon the roof of the king's house: and from the roof he saw a woman washing herself; and the woman *was* very beautiful to look upon.  
-> <sup>3</sup> And David sent and enquired after the woman. And *one* said, *Is* not this Bathsheba, the daughter of Eliam, the wife of Uriah the Hittite?  
-> <sup>4</sup> And David sent messengers, and took her; and she came in unto him, and he lay with her; for she was purified from her uncleanness: and she returned unto her house.  
-> <sup>5</sup> And the woman conceived, and sent and told David, and said, I *am* with child.  
+> **¹** And it came to pass, after the year was expired, at the time when kings go forth *to battle,* that David sent Joab, and his servants with him, and all Israel; and they destroyed the children of Ammon, and besieged Rabbah. But David tarried still at Jerusalem.  
+> **²** And it came to pass in an eveningtide, that David arose from off his bed, and walked upon the roof of the king's house: and from the roof he saw a woman washing herself; and the woman *was* very beautiful to look upon.  
+> **³** And David sent and enquired after the woman. And *one* said, *Is* not this Bathsheba, the daughter of Eliam, the wife of Uriah the Hittite?  
+> **⁴** And David sent messengers, and took her; and she came in unto him, and he lay with her; for she was purified from her uncleanness: and she returned unto her house.  
+> **⁵** And the woman conceived, and sent and told David, and said, I *am* with child.  
 
 Here is, I. David's glory, in pursuing the war against the Ammonites, 2Sa 11:1. We cannot take that pleasure in viewing this great action which hitherto we have taken in observing David's achievements, because the beauty of it was stained and sullied by sin; otherwise we might take notice of David's wisdom and bravery in following his blow. Having routed the army of the Ammonites in the field, as soon as ever the season of the year permitted he sent more forces to waste the country and further to avenge the quarrel of his ambassadors. Rabbah, their metropolis, made a stand, and held out a great while. To this city Joab laid close siege, and it was at the time of this siege that David fell into this sin.
 
@@ -26,14 +26,14 @@ II\. David's shame, in being himself conquered, and led captive by his own lust.
 
 ## David's Contrivance to Hide His Crime; David's Contrivance Defeated. (b. c. 1037.)
 
-> <sup>6</sup> And David sent to Joab, *saying,* Send me Uriah the Hittite. And Joab sent Uriah to David.  
-> <sup>7</sup> And when Uriah was come unto him, David demanded *of him* how Joab did, and how the people did, and how the war prospered.  
-> <sup>8</sup> And David said to Uriah, Go down to thy house, and wash thy feet. And Uriah departed out of the king's house, and there followed him a mess *of meat* from the king.  
-> <sup>9</sup> But Uriah slept at the door of the king's house with all the servants of his lord, and went not down to his house.  
-> <sup>10</sup> And when they had told David, saying, Uriah went not down unto his house, David said unto Uriah, Camest thou not from *thy* journey? why *then* didst thou not go down unto thine house?  
-> <sup>11</sup> And Uriah said unto David, The ark, and Israel, and Judah, abide in tents; and my lord Joab, and the servants of my lord, are encamped in the open fields; shall I then go into mine house, to eat and to drink, and to lie with my wife? *as* thou livest, and *as* thy soul liveth, I will not do this thing.  
-> <sup>12</sup> And David said to Uriah, Tarry here to day also, and to morrow I will let thee depart. So Uriah abode in Jerusalem that day, and the morrow.  
-> <sup>13</sup> And when David had called him, he did eat and drink before him; and he made him drunk: and at even he went out to lie on his bed with the servants of his lord, but went not down to his house.  
+> **⁶** And David sent to Joab, *saying,* Send me Uriah the Hittite. And Joab sent Uriah to David.  
+> **⁷** And when Uriah was come unto him, David demanded *of him* how Joab did, and how the people did, and how the war prospered.  
+> **⁸** And David said to Uriah, Go down to thy house, and wash thy feet. And Uriah departed out of the king's house, and there followed him a mess *of meat* from the king.  
+> **⁹** But Uriah slept at the door of the king's house with all the servants of his lord, and went not down to his house.  
+> **¹⁰** And when they had told David, saying, Uriah went not down unto his house, David said unto Uriah, Camest thou not from *thy* journey? why *then* didst thou not go down unto thine house?  
+> **¹¹** And Uriah said unto David, The ark, and Israel, and Judah, abide in tents; and my lord Joab, and the servants of my lord, are encamped in the open fields; shall I then go into mine house, to eat and to drink, and to lie with my wife? *as* thou livest, and *as* thy soul liveth, I will not do this thing.  
+> **¹²** And David said to Uriah, Tarry here to day also, and to morrow I will let thee depart. So Uriah abode in Jerusalem that day, and the morrow.  
+> **¹³** And when David had called him, he did eat and drink before him; and he made him drunk: and at even he went out to lie on his bed with the servants of his lord, but went not down to his house.  
 
 Uriah, we may suppose, had now been absent from his wife some weeks, making the campaign in the country of the Ammonites, and not intending to return till the end of it. The situation of his wife would *bring to light the hidden works of darkness;* and when Uriah, at his return, should find how he had been abused, and by whom, it might well be expected, 1. That he would prosecute his wife, according to law, and have her stoned to death; for *jealousy is the rage of a man,* especially a man of honour, and he that is thus injured *will not spare in the day of vengeance,* Pr 6:34. This Bath-sheba was apprehensive of when she sent to let David know she was with child, intimating that he was concerned to protect her, and, it is likely, if he had not promised her so to do (so wretchedly abusing his royal power), she would not have consented to him. Hope of impunity is a great encouragement to iniquity. 2. It might also be expected that since he could not prosecute David by law for an offence of this nature he would take his revenge another way, and raise a rebellion against him. There have been instances of kings who by provocations of this nature, given to some of their powerful subjects, have lost their crowns. To prevent this double mischief, David endeavours to father the child which should be born upon Uriah himself, and therefore sends for him home to stay a night or two with his wife. Observe,
 
@@ -43,20 +43,20 @@ II\. How this plot was defeated by Uriah's firm resolution not to lie in his own
 
 ## David Causes Uriah to Be Slain; David Informed of Uriah's Death. (b. c. 1037.)
 
-> <sup>14</sup> And it came to pass in the morning, that David wrote a letter to Joab, and sent *it* by the hand of Uriah.  
-> <sup>15</sup> And he wrote in the letter, saying, Set ye Uriah in the forefront of the hottest battle, and retire ye from him, that he may be smitten, and die.  
-> <sup>16</sup> And it came to pass, when Joab observed the city, that he assigned Uriah unto a place where he knew that valiant men *were.*  
-> <sup>17</sup> And the men of the city went out, and fought with Joab: and there fell *some* of the people of the servants of David; and Uriah the Hittite died also.  
-> <sup>18</sup> Then Joab sent and told David all the things concerning the war;  
-> <sup>19</sup> And charged the messenger, saying, When thou hast made an end of telling the matters of the war unto the king,  
-> <sup>20</sup> And if so be that the king's wrath arise, and he say unto thee, Wherefore approached ye so nigh unto the city when ye did fight? knew ye not that they would shoot from the wall?  
-> <sup>21</sup> Who smote Abimelech the son of Jerubbesheth? did not a woman cast a piece of a millstone upon him from the wall, that he died in Thebez? why went ye nigh the wall? then say thou, Thy servant Uriah the Hittite is dead also.  
-> <sup>22</sup> So the messenger went, and came and shewed David all that Joab had sent him for.  
-> <sup>23</sup> And the messenger said unto David, Surely the men prevailed against us, and came out unto us into the field, and we were upon them even unto the entering of the gate.  
-> <sup>24</sup> And the shooters shot from off the wall upon thy servants; and *some* of the king's servants be dead, and thy servant Uriah the Hittite is dead also.  
-> <sup>25</sup> Then David said unto the messenger, Thus shalt thou say unto Joab, Let not this thing displease thee, for the sword devoureth one as well as another: make thy battle more strong against the city, and overthrow it: and encourage thou him.  
-> <sup>26</sup> And when the wife of Uriah heard that Uriah her husband was dead, she mourned for her husband.  
-> <sup>27</sup> And when the mourning was past, David sent and fetched her to his house, and she became his wife, and bare him a son. But the thing that David had done displeased the LORD.  
+> **¹⁴** And it came to pass in the morning, that David wrote a letter to Joab, and sent *it* by the hand of Uriah.  
+> **¹⁵** And he wrote in the letter, saying, Set ye Uriah in the forefront of the hottest battle, and retire ye from him, that he may be smitten, and die.  
+> **¹⁶** And it came to pass, when Joab observed the city, that he assigned Uriah unto a place where he knew that valiant men *were.*  
+> **¹⁷** And the men of the city went out, and fought with Joab: and there fell *some* of the people of the servants of David; and Uriah the Hittite died also.  
+> **¹⁸** Then Joab sent and told David all the things concerning the war;  
+> **¹⁹** And charged the messenger, saying, When thou hast made an end of telling the matters of the war unto the king,  
+> **²⁰** And if so be that the king's wrath arise, and he say unto thee, Wherefore approached ye so nigh unto the city when ye did fight? knew ye not that they would shoot from the wall?  
+> **²¹** Who smote Abimelech the son of Jerubbesheth? did not a woman cast a piece of a millstone upon him from the wall, that he died in Thebez? why went ye nigh the wall? then say thou, Thy servant Uriah the Hittite is dead also.  
+> **²²** So the messenger went, and came and shewed David all that Joab had sent him for.  
+> **²³** And the messenger said unto David, Surely the men prevailed against us, and came out unto us into the field, and we were upon them even unto the entering of the gate.  
+> **²⁴** And the shooters shot from off the wall upon thy servants; and *some* of the king's servants be dead, and thy servant Uriah the Hittite is dead also.  
+> **²⁵** Then David said unto the messenger, Thus shalt thou say unto Joab, Let not this thing displease thee, for the sword devoureth one as well as another: make thy battle more strong against the city, and overthrow it: and encourage thou him.  
+> **²⁶** And when the wife of Uriah heard that Uriah her husband was dead, she mourned for her husband.  
+> **²⁷** And when the mourning was past, David sent and fetched her to his house, and she became his wife, and bare him a son. But the thing that David had done displeased the LORD.  
 
 When David's project of fathering the child upon Uriah himself failed, so that, in process of time, Uriah would certainly know the wrong that had been done him, to prevent the fruits of his revenge, the devil put it into David's heart to take him off, and then neither he nor Bath-sheba would be in any danger (what prosecution could there be when there was no prosecutor?), suggesting further that, when Uriah was out of the way, Bath-sheba might, if he pleased, be his own for ever. Adulteries have often occasioned murders, and one wickedness must be covered and secured with another. The beginnings of sin are therefore to be dreaded; for who knows where they will end? It is resolved in David's breast (which one would think could never possibly have harboured so vile a thought) that Uriah must die. That innocent, valiant, gallant man, who was ready to die for his prince's honour, must die by his prince's hand. David has sinned, and Bath-sheba has sinned, and both against him, and therefore he must die; David determines he must. Is this the man whose heart smote him because he had cut off Saul's skirt? *Quantum mutatus ab illo!—But ah, how changed!* Is this he that executed judgment and justice to all his people? How can he now do so unjust a thing? See how fleshly lusts war against the soul, and what devastations they make in that war; how they blink the eyes, harden the heart, sear the conscience, and deprive men of all sense of honour and justice. *Whoso committeth adultery with a woman lacketh understanding* and quite loses it; *he that doth it destroys his own soul,* Pr 6:32. But, as the eye of the adulterer, so the hand of the murderer seeks concealment, Job 24:14,15. Works of darkness hate the light. When David bravely slew Goliath it was done publicly, and he gloried in it; but, when he basely slew Uriah, it must be done clandestinely, for he is ashamed of it, and well he may. Who would do a thing that he dare not own? The devil, having as a poisonous serpent, put it into David's heart to murder Uriah, as a subtle serpent he puts it into his head how to do it. Not as Absalom slew Amnon, by commanding his servants to assassinate him, nor as Ahab slew Naboth by suborning witnesses to accuse him, but by exposing him to the enemy, a way of doing it which, perhaps, would not seem so odious to conscience and the world, because soldiers expose themselves of course. If Uriah had not been in that dangerous post, another must; he has (as we say) a chance for his life; if he fight stoutly, he may perhaps come off; and, if he die, it is in the field of honour, where a soldier would choose to die; and yet all this will not save it from being a wilful murder, of malice prepense.
 

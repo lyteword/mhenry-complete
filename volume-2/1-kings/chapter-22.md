@@ -8,20 +8,20 @@ This chapter finishes the history of Ahab's reign. It was promised in the close 
 
 ## Jehoshaphat's League with Ahab. (b. c. 897.)
 
-> <sup>1</sup> And they continued three years without war between Syria and Israel.  
-> <sup>2</sup> And it came to pass in the third year, that Jehoshaphat the king of Judah came down to the king of Israel.  
-> <sup>3</sup> And the king of Israel said unto his servants, Know ye that Ramoth in Gilead *is* ours, and we *be* still, *and* take it not out of the hand of the king of Syria?  
-> <sup>4</sup> And he said unto Jehoshaphat, Wilt thou go with me to battle to Ramoth-gilead? And Jehoshaphat said to the king of Israel, I *am* as thou *art,* my people as thy people, my horses as thy horses.  
-> <sup>5</sup> And Jehoshaphat said unto the king of Israel, Enquire, I pray thee, at the word of the LORD to day.  
-> <sup>6</sup> Then the king of Israel gathered the prophets together, about four hundred men, and said unto them, Shall I go against Ramoth-gilead to battle, or shall I forbear? And they said, Go up; for the Lord shall deliver *it* into the hand of the king.  
-> <sup>7</sup> And Jehoshaphat said, *Is there* not here a prophet of the LORD besides, that we might enquire of him?  
-> <sup>8</sup> And the king of Israel said unto Jehoshaphat, *There is* yet one man, Micaiah the son of Imlah, by whom we may enquire of the LORD: but I hate him; for he doth not prophesy good concerning me, but evil. And Jehoshaphat said, Let not the king say so.  
-> <sup>9</sup> Then the king of Israel called an officer, and said, Hasten *hither* Micaiah the son of Imlah.  
-> <sup>10</sup> And the king of Israel and Jehoshaphat the king of Judah sat each on his throne, having put on their robes, in a void place in the entrance of the gate of Samaria; and all the prophets prophesied before them.  
-> <sup>11</sup> And Zedekiah the son of Chenaanah made him horns of iron: and he said, Thus saith the LORD, With these shalt thou push the Syrians, until thou have consumed them.  
-> <sup>12</sup> And all the prophets prophesied so, saying, Go up to Ramoth-gilead, and prosper: for the LORD shall deliver *it* into the king's hand.  
-> <sup>13</sup> And the messenger that was gone to call Micaiah spake unto him, saying, Behold now, the words of the prophets *declare* good unto the king with one mouth: let thy word, I pray thee, be like the word of one of them, and speak *that which is* good.  
-> <sup>14</sup> And Micaiah said, *As* the LORD liveth, what the LORD saith unto me, that will I speak.  
+> **¹** And they continued three years without war between Syria and Israel.  
+> **²** And it came to pass in the third year, that Jehoshaphat the king of Judah came down to the king of Israel.  
+> **³** And the king of Israel said unto his servants, Know ye that Ramoth in Gilead *is* ours, and we *be* still, *and* take it not out of the hand of the king of Syria?  
+> **⁴** And he said unto Jehoshaphat, Wilt thou go with me to battle to Ramoth-gilead? And Jehoshaphat said to the king of Israel, I *am* as thou *art,* my people as thy people, my horses as thy horses.  
+> **⁵** And Jehoshaphat said unto the king of Israel, Enquire, I pray thee, at the word of the LORD to day.  
+> **⁶** Then the king of Israel gathered the prophets together, about four hundred men, and said unto them, Shall I go against Ramoth-gilead to battle, or shall I forbear? And they said, Go up; for the Lord shall deliver *it* into the hand of the king.  
+> **⁷** And Jehoshaphat said, *Is there* not here a prophet of the LORD besides, that we might enquire of him?  
+> **⁸** And the king of Israel said unto Jehoshaphat, *There is* yet one man, Micaiah the son of Imlah, by whom we may enquire of the LORD: but I hate him; for he doth not prophesy good concerning me, but evil. And Jehoshaphat said, Let not the king say so.  
+> **⁹** Then the king of Israel called an officer, and said, Hasten *hither* Micaiah the son of Imlah.  
+> **¹⁰** And the king of Israel and Jehoshaphat the king of Judah sat each on his throne, having put on their robes, in a void place in the entrance of the gate of Samaria; and all the prophets prophesied before them.  
+> **¹¹** And Zedekiah the son of Chenaanah made him horns of iron: and he said, Thus saith the LORD, With these shalt thou push the Syrians, until thou have consumed them.  
+> **¹²** And all the prophets prophesied so, saying, Go up to Ramoth-gilead, and prosper: for the LORD shall deliver *it* into the king's hand.  
+> **¹³** And the messenger that was gone to call Micaiah spake unto him, saying, Behold now, the words of the prophets *declare* good unto the king with one mouth: let thy word, I pray thee, be like the word of one of them, and speak *that which is* good.  
+> **¹⁴** And Micaiah said, *As* the LORD liveth, what the LORD saith unto me, that will I speak.  
 
 Though Ahab continued under guilt and wrath, and the dominion of the lusts to which he had sold himself, yet, as a reward for his professions of repentance and humiliation, though the time drew near when he should descend into battle and perish, yet we have him blessed with a three years' peace (1Ki 22:1) and an honourable visit made him by Jehoshaphat king of Judah, 1Ki 22:2. The Jews have a fabulous conceit, that when Ahab humbled himself for his sin, and lay in sackcloth, he sent for Jehoshaphat to come to him, to chastise him; and that he staid with him for some time, and gave him so many stripes every day. This is a groundless tradition. He came now, it is probable, to consult him about the affairs of their kingdoms. It is strange that so great a man as Jehoshaphat would pay so much respect to a kingdom revolted from the house of David, and that so good a man should show so much kindness to a king revolted from the worship of God. But, though he was a godly man, his temper was too easy, which betrayed him into snares and inconveniences. The Syrians durst not give Ahab any disturbance. But,
 
@@ -41,20 +41,20 @@ VII\. Micaiah is pressed by the officer that fetches him to follow the cry, 1Ki 
 
 ## Micaiah's Prediction. (b. c. 897.)
 
-> <sup>15</sup> So he came to the king. And the king said unto him, Micaiah, shall we go against Ramoth-gilead to battle, or shall we forbear? And he answered him, Go, and prosper: for the LORD shall deliver *it* into the hand of the king.  
-> <sup>16</sup> And the king said unto him, How many times shall I adjure thee that thou tell me nothing but *that which is* true in the name of the LORD?  
-> <sup>17</sup> And he said, I saw all Israel scattered upon the hills, as sheep that have not a shepherd: and the LORD said, These have no master: let them return every man to his house in peace.  
-> <sup>18</sup> And the king of Israel said unto Jehoshaphat, Did I not tell thee that he would prophesy no good concerning me, but evil?  
-> <sup>19</sup> And he said, Hear thou therefore the word of the LORD: I saw the LORD sitting on his throne, and all the host of heaven standing by him on his right hand and on his left.  
-> <sup>20</sup> And the LORD said, Who shall persuade Ahab, that he may go up and fall at Ramoth-gilead? And one said on this manner, and another said on that manner.  
-> <sup>21</sup> And there came forth a spirit, and stood before the LORD, and said, I will persuade him.  
-> <sup>22</sup> And the LORD said unto him, Wherewith? And he said, I will go forth, and I will be a lying spirit in the mouth of all his prophets. And he said, Thou shalt persuade *him,* and prevail also: go forth, and do so.  
-> <sup>23</sup> Now therefore, behold, the LORD hath put a lying spirit in the mouth of all these thy prophets, and the LORD hath spoken evil concerning thee.  
-> <sup>24</sup> But Zedekiah the son of Chenaanah went near, and smote Micaiah on the cheek, and said, Which way went the Spirit of the LORD from me to speak unto thee?  
-> <sup>25</sup> And Micaiah said, Behold, thou shalt see in that day, when thou shalt go into an inner chamber to hide thyself.  
-> <sup>26</sup> And the king of Israel said, Take Micaiah, and carry him back unto Amon the governor of the city, and to Joash the king's son;  
-> <sup>27</sup> And say, Thus saith the king, Put this *fellow* in the prison, and feed him with bread of affliction and with water of affliction, until I come in peace.  
-> <sup>28</sup> And Micaiah said, If thou return at all in peace, the LORD hath not spoken by me. And he said, Hearken, O people, every one of you.  
+> **¹⁵** So he came to the king. And the king said unto him, Micaiah, shall we go against Ramoth-gilead to battle, or shall we forbear? And he answered him, Go, and prosper: for the LORD shall deliver *it* into the hand of the king.  
+> **¹⁶** And the king said unto him, How many times shall I adjure thee that thou tell me nothing but *that which is* true in the name of the LORD?  
+> **¹⁷** And he said, I saw all Israel scattered upon the hills, as sheep that have not a shepherd: and the LORD said, These have no master: let them return every man to his house in peace.  
+> **¹⁸** And the king of Israel said unto Jehoshaphat, Did I not tell thee that he would prophesy no good concerning me, but evil?  
+> **¹⁹** And he said, Hear thou therefore the word of the LORD: I saw the LORD sitting on his throne, and all the host of heaven standing by him on his right hand and on his left.  
+> **²⁰** And the LORD said, Who shall persuade Ahab, that he may go up and fall at Ramoth-gilead? And one said on this manner, and another said on that manner.  
+> **²¹** And there came forth a spirit, and stood before the LORD, and said, I will persuade him.  
+> **²²** And the LORD said unto him, Wherewith? And he said, I will go forth, and I will be a lying spirit in the mouth of all his prophets. And he said, Thou shalt persuade *him,* and prevail also: go forth, and do so.  
+> **²³** Now therefore, behold, the LORD hath put a lying spirit in the mouth of all these thy prophets, and the LORD hath spoken evil concerning thee.  
+> **²⁴** But Zedekiah the son of Chenaanah went near, and smote Micaiah on the cheek, and said, Which way went the Spirit of the LORD from me to speak unto thee?  
+> **²⁵** And Micaiah said, Behold, thou shalt see in that day, when thou shalt go into an inner chamber to hide thyself.  
+> **²⁶** And the king of Israel said, Take Micaiah, and carry him back unto Amon the governor of the city, and to Joash the king's son;  
+> **²⁷** And say, Thus saith the king, Put this *fellow* in the prison, and feed him with bread of affliction and with water of affliction, until I come in peace.  
+> **²⁸** And Micaiah said, If thou return at all in peace, the LORD hath not spoken by me. And he said, Hearken, O people, every one of you.  
 
 Here Micaiah does well, but, as is common, suffers ill for so doing.
 
@@ -70,18 +70,18 @@ II\. We are told how he was abused for delivering his message thus faithfully, t
 
 ## Ahab's Death. (b. c. 897.)
 
-> <sup>29</sup> So the king of Israel and Jehoshaphat the king of Judah went up to Ramoth-gilead.  
-> <sup>30</sup> And the king of Israel said unto Jehoshaphat, I will disguise myself, and enter into the battle; but put thou on thy robes. And the king of Israel disguised himself, and went into the battle.  
-> <sup>31</sup> But the king of Syria commanded his thirty and two captains that had rule over his chariots, saying, Fight neither with small nor great, save only with the king of Israel.  
-> <sup>32</sup> And it came to pass, when the captains of the chariots saw Jehoshaphat, that they said, Surely it *is* the king of Israel. And they turned aside to fight against him: and Jehoshaphat cried out.  
-> <sup>33</sup> And it came to pass, when the captains of the chariots perceived that it *was* not the king of Israel, that they turned back from pursuing him.  
-> <sup>34</sup> And a *certain* man drew a bow at a venture, and smote the king of Israel between the joints of the harness: wherefore he said unto the driver of his chariot, Turn thine hand, and carry me out of the host; for I am wounded.  
-> <sup>35</sup> And the battle increased that day: and the king was stayed up in his chariot against the Syrians, and died at even: and the blood ran out of the wound into the midst of the chariot.  
-> <sup>36</sup> And there went a proclamation throughout the host about the going down of the sun, saying, Every man to his city, and every man to his own country.  
-> <sup>37</sup> So the king died, and was brought to Samaria; and they buried the king in Samaria.  
-> <sup>38</sup> And *one* washed the chariot in the pool of Samaria; and the dogs licked up his blood; and they washed his armour; according unto the word of the LORD which he spake.  
-> <sup>39</sup> Now the rest of the acts of Ahab, and all that he did, and the ivory house which he made, and all the cities that he built, *are* they not written in the book of the chronicles of the kings of Israel?  
-> <sup>40</sup> So Ahab slept with his fathers; and Ahaziah his son reigned in his stead.  
+> **²⁹** So the king of Israel and Jehoshaphat the king of Judah went up to Ramoth-gilead.  
+> **³⁰** And the king of Israel said unto Jehoshaphat, I will disguise myself, and enter into the battle; but put thou on thy robes. And the king of Israel disguised himself, and went into the battle.  
+> **³¹** But the king of Syria commanded his thirty and two captains that had rule over his chariots, saying, Fight neither with small nor great, save only with the king of Israel.  
+> **³²** And it came to pass, when the captains of the chariots saw Jehoshaphat, that they said, Surely it *is* the king of Israel. And they turned aside to fight against him: and Jehoshaphat cried out.  
+> **³³** And it came to pass, when the captains of the chariots perceived that it *was* not the king of Israel, that they turned back from pursuing him.  
+> **³⁴** And a *certain* man drew a bow at a venture, and smote the king of Israel between the joints of the harness: wherefore he said unto the driver of his chariot, Turn thine hand, and carry me out of the host; for I am wounded.  
+> **³⁵** And the battle increased that day: and the king was stayed up in his chariot against the Syrians, and died at even: and the blood ran out of the wound into the midst of the chariot.  
+> **³⁶** And there went a proclamation throughout the host about the going down of the sun, saying, Every man to his city, and every man to his own country.  
+> **³⁷** So the king died, and was brought to Samaria; and they buried the king in Samaria.  
+> **³⁸** And *one* washed the chariot in the pool of Samaria; and the dogs licked up his blood; and they washed his armour; according unto the word of the LORD which he spake.  
+> **³⁹** Now the rest of the acts of Ahab, and all that he did, and the ivory house which he made, and all the cities that he built, *are* they not written in the book of the chronicles of the kings of Israel?  
+> **⁴⁰** So Ahab slept with his fathers; and Ahaziah his son reigned in his stead.  
 
 The matter in contest between God's prophet and Ahab's prophets is here soon determined, and it is made to appear which was in the right. Here,
 
@@ -101,19 +101,19 @@ VI\. The royal corpse is brought to Samaria and buried there (1Ki 22:37), and hi
 
 ## Jehoshaphat's Death. (b. c. 897.)
 
-> <sup>41</sup> And Jehoshaphat the son of Asa began to reign over Judah in the fourth year of Ahab king of Israel.  
-> <sup>42</sup> Jehoshaphat *was* thirty and five years old when he began to reign; and he reigned twenty and five years in Jerusalem. And his mother's name *was* Azubah the daughter of Shilhi.  
-> <sup>43</sup> And he walked in all the ways of Asa his father; he turned not aside from it, doing *that which was* right in the eyes of the LORD: nevertheless the high places were not taken away; *for* the people offered and burnt incense yet in the high places.  
-> <sup>44</sup> And Jehoshaphat made peace with the king of Israel.  
-> <sup>45</sup> Now the rest of the acts of Jehoshaphat, and his might that he showed, and how he warred, *are* they not written in the book of the chronicles of the kings of Judah?  
-> <sup>46</sup> And the remnant of the sodomites, which remained in the days of his father Asa, he took out of the land.  
-> <sup>47</sup> *There was* then no king in Edom: a deputy *was* king.  
-> <sup>48</sup> Jehoshaphat made ships of Tharshish to go to Ophir for gold: but they went not; for the ships were broken at Ezion-geber.  
-> <sup>49</sup> Then said Ahaziah the son of Ahab unto Jehoshaphat, Let my servants go with thy servants in the ships. But Jehoshaphat would not.  
-> <sup>50</sup> And Jehoshaphat slept with his fathers, and was buried with his fathers in the city of David his father: and Jehoram his son reigned in his stead.  
-> <sup>51</sup> Ahaziah the son of Ahab began to reign over Israel in Samaria the seventeenth year of Jehoshaphat king of Judah, and reigned two years over Israel.  
-> <sup>52</sup> And he did evil in the sight of the LORD, and walked in the way of his father, and in the way of his mother, and in the way of Jeroboam the son of Nebat, who made Israel to sin:  
-> <sup>53</sup> For he served Baal, and worshipped him, and provoked to anger the LORD God of Israel, according to all that his father had done.  
+> **⁴¹** And Jehoshaphat the son of Asa began to reign over Judah in the fourth year of Ahab king of Israel.  
+> **⁴²** Jehoshaphat *was* thirty and five years old when he began to reign; and he reigned twenty and five years in Jerusalem. And his mother's name *was* Azubah the daughter of Shilhi.  
+> **⁴³** And he walked in all the ways of Asa his father; he turned not aside from it, doing *that which was* right in the eyes of the LORD: nevertheless the high places were not taken away; *for* the people offered and burnt incense yet in the high places.  
+> **⁴⁴** And Jehoshaphat made peace with the king of Israel.  
+> **⁴⁵** Now the rest of the acts of Jehoshaphat, and his might that he showed, and how he warred, *are* they not written in the book of the chronicles of the kings of Judah?  
+> **⁴⁶** And the remnant of the sodomites, which remained in the days of his father Asa, he took out of the land.  
+> **⁴⁷** *There was* then no king in Edom: a deputy *was* king.  
+> **⁴⁸** Jehoshaphat made ships of Tharshish to go to Ophir for gold: but they went not; for the ships were broken at Ezion-geber.  
+> **⁴⁹** Then said Ahaziah the son of Ahab unto Jehoshaphat, Let my servants go with thy servants in the ships. But Jehoshaphat would not.  
+> **⁵⁰** And Jehoshaphat slept with his fathers, and was buried with his fathers in the city of David his father: and Jehoram his son reigned in his stead.  
+> **⁵¹** Ahaziah the son of Ahab began to reign over Israel in Samaria the seventeenth year of Jehoshaphat king of Judah, and reigned two years over Israel.  
+> **⁵²** And he did evil in the sight of the LORD, and walked in the way of his father, and in the way of his mother, and in the way of Jeroboam the son of Nebat, who made Israel to sin:  
+> **⁵³** For he served Baal, and worshipped him, and provoked to anger the LORD God of Israel, according to all that his father had done.  
 
 Here is, I. A short account of the reign of Jehoshaphat king of Judah, of which we shall have a much fuller narrative in the book of Chronicles, and of the greatness and goodness of that prince, neither of which was lessened or sullied by any thing but his intimacy with the house of Ahab, which, upon several accounts, was a diminution to him. His confederacy with Ahab in war we have already found dangerous to him, and his confederacy with Ahaziah his son in trade sped no better. He offered to go partner with him in a fleet of merchant-ships, that should fetch gold from Ophir, as Solomon's navy did, 1Ki 22:49. See 2Ch 20:35,36. But, while they were preparing to set sail, they were exceedingly damaged and disabled by a storm (*broken at Ezion-geber*), which a prophet gave Jehoshaphat to understand was a rebuke to him for his league with wicked Ahaziah (2Ch 20:37); and therefore, as we are told here (1Ki 22:49), when Ahaziah desired a second time to be a partner with him, or, if that could not be obtained, that he might but send his servants with some effects of board Jehoshaphat's ships, he refused: *Jehoshaphat would not.* The rod of God, expounded by the word of God, had effectually broken him off from his confederacy with that ungodly unhappy prince. Better buy wisdom dear than be without it; but experience is therefore said to be the mistress of fools because those are fools that will not learn till they are taught by experience, and particularly till they are taught the danger of associating with wicked people. Now Jehoshaphat's reign appears here to have been none of the longest, but one of the best. 1. It was none of the longest, for he reigned but twenty-five years (1Ki 22:42), but then it was in the prime of his time, between thirty-five and sixty, and these twenty-five, added to his father's happy forty-one, give us a grateful idea of the flourishing condition of the kingdom of Judah, and of religion in it, for a great while, even when things were very bad, upon all accounts, in the kingdom of Israel. If Jehoshaphat reigned not so long as his father, to balance this he had not those blemishes on the latter end of his reign that his father had (2Ch 16:9,10,12), and it is better for a man that has been in reputation for wisdom and honour to die in the midst of it than to outlive it. 2. Yet is was one of the best, both in respect of piety and prosperity. (1.) He did well: He *did that which was right in the eyes of the Lord* (1Ki 22:43), observed the commands of his God, and trod in the steps of his good father; and he persevered therein: He *turned not aside from it.* Yet every man's character has some *but* or other, so had his; the *high places were not taken away,* no not out of Judah and Benjamin, though those tribes lay so near Jerusalem that they might easily bring their offerings and incense to the altar there, and could not pretend, as some other of the tribes, the inconveniency of lying remote. But old corruptions are with difficulty rooted out, especially when they have formerly had the patronage of those that were good, as the high places had of Samuel, Solomon, and some others. (2.) His affairs did well. He prevented the mischiefs which had attended their wars with the kingdom of Israel, establishing a lasting peace (1Ki 22:44), which would have been a greater blessing if he had contented himself with a peace, and not carried it on to an affinity with Israel; he put a deputy, or viceroy, in Edom, so that the kingdom was tributary to him (1Ki 22:47), and therein the prophecy concerning Esau and Jacob was fulfilled, that *the elder should serve the younger.* And, in general, mention is made of his might and his wars, 1Ki 22:45. He pleased God, and God blessed him with strength and success. His death is spoken of (1Ki 22:50), to shut up his story, yet, in the history of the kings of Israel, we find mention of him afterwards, 2Ki 3:7.
 

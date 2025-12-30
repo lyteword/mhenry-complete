@@ -8,12 +8,12 @@ Infinite Wisdom could have ordered things so that Israel might have been release
 
 ## Babylon Threatened. (b. c. 708.)
 
-> <sup>1</sup> Come down, and sit in the dust, O virgin daughter of Babylon, sit on the ground: *there is* no throne, O daughter of the Chaldeans: for thou shalt no more be called tender and delicate.  
-> <sup>2</sup> Take the millstones, and grind meal: uncover thy locks, make bare the leg, uncover the thigh, pass over the rivers.  
-> <sup>3</sup> Thy nakedness shall be uncovered, yea, thy shame shall be seen: I will take vengeance, and I will not meet *thee as* a man.  
-> <sup>4</sup> *As for* our redeemer, the LORD of hosts *is* his name, the Holy One of Israel.  
-> <sup>5</sup> Sit thou silent, and get thee into darkness, O daughter of the Chaldeans: for thou shalt no more be called, The lady of kingdoms.  
-> <sup>6</sup> I was wroth with my people, I have polluted mine inheritance, and given them into thine hand: thou didst show them no mercy; upon the ancient hast thou very heavily laid thy yoke.  
+> **¹** Come down, and sit in the dust, O virgin daughter of Babylon, sit on the ground: *there is* no throne, O daughter of the Chaldeans: for thou shalt no more be called tender and delicate.  
+> **²** Take the millstones, and grind meal: uncover thy locks, make bare the leg, uncover the thigh, pass over the rivers.  
+> **³** Thy nakedness shall be uncovered, yea, thy shame shall be seen: I will take vengeance, and I will not meet *thee as* a man.  
+> **⁴** *As for* our redeemer, the LORD of hosts *is* his name, the Holy One of Israel.  
+> **⁵** Sit thou silent, and get thee into darkness, O daughter of the Chaldeans: for thou shalt no more be called, The lady of kingdoms.  
+> **⁶** I was wroth with my people, I have polluted mine inheritance, and given them into thine hand: thou didst show them no mercy; upon the ancient hast thou very heavily laid thy yoke.  
 
 In these verses God by the prophet sends a messenger even to Babylon, like that of Jonah to Nineveh: "The time is at hand when Babylon shall be destroyed." Fair warning is thus given her, that she may by repentance prevent the ruin and there may be a lengthening of her tranquility. We may observe here,
 
@@ -27,15 +27,15 @@ IV\. The consequences of it to Babylon. She is called a *virgin,* because so she
 
 ## Babylon Threatened. (b. c. 708.)
 
-> <sup>7</sup> And thou saidst, I shall be a lady for ever: *so* that thou didst not lay these *things* to thy heart, neither didst remember the latter end of it.  
-> <sup>8</sup> Therefore hear now this, *thou that art* given to pleasures, that dwellest carelessly, that sayest in thine heart, I *am,* and none else beside me; I shall not sit *as* a widow, neither shall I know the loss of children:  
-> <sup>9</sup> But these two *things* shall come to thee in a moment in one day, the loss of children, and widowhood: they shall come upon thee in their perfection for the multitude of thy sorceries, *and* for the great abundance of thine enchantments.  
-> <sup>10</sup> For thou hast trusted in thy wickedness: thou hast said, None seeth me. Thy wisdom and thy knowledge, it hath perverted thee; and thou hast said in thine heart, I *am,* and none else beside me.  
-> <sup>11</sup> Therefore shall evil come upon thee; thou shalt not know from whence it riseth: and mischief shall fall upon thee; thou shalt not be able to put it off: and desolation shall come upon thee suddenly, *which* thou shalt not know.  
-> <sup>12</sup> Stand now with thine enchantments, and with the multitude of thy sorceries, wherein thou hast laboured from thy youth; if so be thou shalt be able to profit, if so be thou mayest prevail.  
-> <sup>13</sup> Thou art wearied in the multitude of thy counsels. Let now the astrologers, the stargazers, the monthly prognosticators, stand up, and save thee from *these things* that shall come upon thee.  
-> <sup>14</sup> Behold, they shall be as stubble; the fire shall burn them; they shall not deliver themselves from the power of the flame: *there shall* not *be* a coal to warm at, *nor* fire to sit before it.  
-> <sup>15</sup> Thus shall they be unto thee with whom thou hast laboured, *even* thy merchants, from thy youth: they shall wander every one to his quarter; none shall save thee.  
+> **⁷** And thou saidst, I shall be a lady for ever: *so* that thou didst not lay these *things* to thy heart, neither didst remember the latter end of it.  
+> **⁸** Therefore hear now this, *thou that art* given to pleasures, that dwellest carelessly, that sayest in thine heart, I *am,* and none else beside me; I shall not sit *as* a widow, neither shall I know the loss of children:  
+> **⁹** But these two *things* shall come to thee in a moment in one day, the loss of children, and widowhood: they shall come upon thee in their perfection for the multitude of thy sorceries, *and* for the great abundance of thine enchantments.  
+> **¹⁰** For thou hast trusted in thy wickedness: thou hast said, None seeth me. Thy wisdom and thy knowledge, it hath perverted thee; and thou hast said in thine heart, I *am,* and none else beside me.  
+> **¹¹** Therefore shall evil come upon thee; thou shalt not know from whence it riseth: and mischief shall fall upon thee; thou shalt not be able to put it off: and desolation shall come upon thee suddenly, *which* thou shalt not know.  
+> **¹²** Stand now with thine enchantments, and with the multitude of thy sorceries, wherein thou hast laboured from thy youth; if so be thou shalt be able to profit, if so be thou mayest prevail.  
+> **¹³** Thou art wearied in the multitude of thy counsels. Let now the astrologers, the stargazers, the monthly prognosticators, stand up, and save thee from *these things* that shall come upon thee.  
+> **¹⁴** Behold, they shall be as stubble; the fire shall burn them; they shall not deliver themselves from the power of the flame: *there shall* not *be* a coal to warm at, *nor* fire to sit before it.  
+> **¹⁵** Thus shall they be unto thee with whom thou hast laboured, *even* thy merchants, from thy youth: they shall wander every one to his quarter; none shall save thee.  
 
 Babylon, now doomed to ruin, is here justly upbraided with her pride, luxury, and security, in the day of her prosperity, and the confidence she had in her own wisdom and forecast, and particularly in the prognostications and counsels of the astrologers. These things are mentioned both to justify God in bringing these judgments upon her and to mortify her, and put her to so much the greater shame, under these judgments; for, when God comes forth to take vengeance, glory belongs to him, but confusion to the sinner.
 

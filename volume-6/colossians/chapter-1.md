@@ -8,8 +8,8 @@ We have here, I. The inscription, as usual, Col 1:1,2. II. His thanksgiving to G
 
 ## Inscription and Apostolical Benediction. (a. d. 62.)
 
-> <sup>1</sup> Paul, an apostle of Jesus Christ by the will of God, and Timotheus *our* brother,  
-> <sup>2</sup> To the saints and faithful brethren in Christ which are at Colosse: Grace *be* unto you, and peace, from God our Father and the Lord Jesus Christ.  
+> **¹** Paul, an apostle of Jesus Christ by the will of God, and Timotheus *our* brother,  
+> **²** To the saints and faithful brethren in Christ which are at Colosse: Grace *be* unto you, and peace, from God our Father and the Lord Jesus Christ.  
 
 I\. The inscription of this epistle is much the same with the rest; only it is observable that, 1. He calls himself an *apostle of Jesus Christ by the will of God.* An apostle is a prime-minister in the kingdom of Christ, immediately called by Christ, and extraordinarily qualified; his work was peculiarly to plant the Christian church, and confirm the Christian doctrine. He attributes this not to his own merit, strength, or sufficiency; but to the free grace and good-will of God. He thought himself engaged to do his utmost, as an apostle, because he was made so by the will of God. 2. He joins Timothy in commission with himself, which is another instance of his humility; and, though he elsewhere calls him his son (2Ti 2:1), yet here he calls him his brother, which is an example to the elder and more eminent ministers to look upon the younger and more obscure as their brethren, and to treat them accordingly with kindness and respect. 3. He calls the Christians at Colosse *saints, and faithful brethren in Christ.* As all good ministers, so all good Christians, are brethren one to another, who stand in a near relation and owe a mutual love. Towards God they must be saints, consecrated to his honour and sanctified by his grace, bearing his image and aiming at his glory. And in both these, as saints to God and as brethren to one another, they must be faithful. Faithfulness runs through every character and relation of the Christian life, and is the crown and glory of them all.
 
@@ -17,12 +17,12 @@ II\. The apostolical benediction is the same as usual: *Grace be unto you, and p
 
 ## Paul's Thanksgiving for the Colossians. (a. d. 62.)
 
-> <sup>3</sup> We give thanks to God and the Father of our Lord Jesus Christ, praying always for you,  
-> <sup>4</sup> Since we heard of your faith in Christ Jesus, and of the love *which ye have* to all the saints,  
-> <sup>5</sup> For the hope which is laid up for you in heaven, whereof ye heard before in the word of the truth of the gospel;  
-> <sup>6</sup> Which is come unto you, as *it is* in all the world; and bringeth forth fruit, as *it doth* also in you, since the day ye heard *of it,* and knew the grace of God in truth:  
-> <sup>7</sup> As ye also learned of Epaphras our dear fellowservant, who is for you a faithful minister of Christ;  
-> <sup>8</sup> Who also declared unto us your love in the Spirit.  
+> **³** We give thanks to God and the Father of our Lord Jesus Christ, praying always for you,  
+> **⁴** Since we heard of your faith in Christ Jesus, and of the love *which ye have* to all the saints,  
+> **⁵** For the hope which is laid up for you in heaven, whereof ye heard before in the word of the truth of the gospel;  
+> **⁶** Which is come unto you, as *it is* in all the world; and bringeth forth fruit, as *it doth* also in you, since the day ye heard *of it,* and knew the grace of God in truth:  
+> **⁷** As ye also learned of Epaphras our dear fellowservant, who is for you a faithful minister of Christ;  
+> **⁸** Who also declared unto us your love in the Spirit.  
 
 Here he proceeds to the body of the epistle, and begins with thanksgiving to God for what he had heard concerning them, though he had no personal acquaintance with them, and knew their state and character only by the reports of others.
 
@@ -34,9 +34,9 @@ III\. He takes this occasion to mention the minister by whom they believed (Col 
 
 ## Paul's Prayer for the Colossians. (a. d. 62.)
 
-> <sup>9</sup> For this cause we also, since the day we heard *it,* do not cease to pray for you, and to desire that ye might be filled with the knowledge of his will in all wisdom and spiritual understanding;  
-> <sup>10</sup> That ye might walk worthy of the Lord unto all pleasing, being fruitful in every good work, and increasing in the knowledge of God;  
-> <sup>11</sup> Strengthened with all might, according to his glorious power, unto all patience and longsuffering with joyfulness;  
+> **⁹** For this cause we also, since the day we heard *it,* do not cease to pray for you, and to desire that ye might be filled with the knowledge of his will in all wisdom and spiritual understanding;  
+> **¹⁰** That ye might walk worthy of the Lord unto all pleasing, being fruitful in every good work, and increasing in the knowledge of God;  
+> **¹¹** Strengthened with all might, according to his glorious power, unto all patience and longsuffering with joyfulness;  
 
 The apostle proceeds in these verses to pray for them. He heard that they were good, and he prayed that they might be better. He was constant in this prayer: *We do not cease to pray for you.* It may be he could hear of them but seldom, but he constantly prayed for them.—*And desire that you may be filled with the knowledge,* etc. Observe what it is that he begs of God for them,
 
@@ -48,24 +48,24 @@ III\. That they might be strengthened: *Strengthened with all might according to
 
 ## The Redeemer's Dignity; The Work of Redemption; Paul's Preaching. (a. d. 62.)
 
-> <sup>12</sup> Giving thanks unto the Father, which hath made us meet to be partakers of the inheritance of the saints in light:  
-> <sup>13</sup> Who hath delivered us from the power of darkness, and hath translated *us* into the kingdom of his dear Son:  
-> <sup>14</sup> In whom we have redemption through his blood, *even* the forgiveness of sins:  
-> <sup>15</sup> Who is the image of the invisible God, the firstborn of every creature:  
-> <sup>16</sup> For by him were all things created, that are in heaven, and that are in earth, visible and invisible, whether *they be* thrones, or dominions, or principalities, or powers: all things were created by him, and for him:  
-> <sup>17</sup> And he is before all things, and by him all things consist.  
-> <sup>18</sup> And he is the head of the body, the church: who is the beginning, the firstborn from the dead; that in all *things* he might have the preeminence.  
-> <sup>19</sup> For it pleased *the Father* that in him should all fulness dwell;  
-> <sup>20</sup> And, having made peace through the blood of his cross, by him to reconcile all things unto himself; by him, *I say,* whether *they be* things in earth, or things in heaven.  
-> <sup>21</sup> And you, that were sometime alienated and enemies in *your* mind by wicked works, yet now hath he reconciled  
-> <sup>22</sup> In the body of his flesh through death, to present you holy and unblameable and unreproveable in his sight:  
-> <sup>23</sup> If ye continue in the faith grounded and settled, and *be* not moved away from the hope of the gospel, which ye have heard, *and* which was preached to every creature which is under heaven; whereof I Paul am made a minister;  
-> <sup>24</sup> Who now rejoice in my sufferings for you, and fill up that which is behind of the afflictions of Christ in my flesh for his body's sake, which is the church:  
-> <sup>25</sup> Whereof I am made a minister, according to the dispensation of God which is given to me for you, to fulfil the word of God;  
-> <sup>26</sup> *Even* the mystery which hath been hid from ages and from generations, but now is made manifest to his saints:  
-> <sup>27</sup> To whom God would make known what *is* the riches of the glory of this mystery among the Gentiles; which is Christ in you, the hope of glory:  
-> <sup>28</sup> Whom we preach, warning every man, and teaching every man in all wisdom; that we may present every man perfect in Christ Jesus:  
-> <sup>29</sup> Whereunto I also labour, striving according to his working, which worketh in me mightily.  
+> **¹²** Giving thanks unto the Father, which hath made us meet to be partakers of the inheritance of the saints in light:  
+> **¹³** Who hath delivered us from the power of darkness, and hath translated *us* into the kingdom of his dear Son:  
+> **¹⁴** In whom we have redemption through his blood, *even* the forgiveness of sins:  
+> **¹⁵** Who is the image of the invisible God, the firstborn of every creature:  
+> **¹⁶** For by him were all things created, that are in heaven, and that are in earth, visible and invisible, whether *they be* thrones, or dominions, or principalities, or powers: all things were created by him, and for him:  
+> **¹⁷** And he is before all things, and by him all things consist.  
+> **¹⁸** And he is the head of the body, the church: who is the beginning, the firstborn from the dead; that in all *things* he might have the preeminence.  
+> **¹⁹** For it pleased *the Father* that in him should all fulness dwell;  
+> **²⁰** And, having made peace through the blood of his cross, by him to reconcile all things unto himself; by him, *I say,* whether *they be* things in earth, or things in heaven.  
+> **²¹** And you, that were sometime alienated and enemies in *your* mind by wicked works, yet now hath he reconciled  
+> **²²** In the body of his flesh through death, to present you holy and unblameable and unreproveable in his sight:  
+> **²³** If ye continue in the faith grounded and settled, and *be* not moved away from the hope of the gospel, which ye have heard, *and* which was preached to every creature which is under heaven; whereof I Paul am made a minister;  
+> **²⁴** Who now rejoice in my sufferings for you, and fill up that which is behind of the afflictions of Christ in my flesh for his body's sake, which is the church:  
+> **²⁵** Whereof I am made a minister, according to the dispensation of God which is given to me for you, to fulfil the word of God;  
+> **²⁶** *Even* the mystery which hath been hid from ages and from generations, but now is made manifest to his saints:  
+> **²⁷** To whom God would make known what *is* the riches of the glory of this mystery among the Gentiles; which is Christ in you, the hope of glory:  
+> **²⁸** Whom we preach, warning every man, and teaching every man in all wisdom; that we may present every man perfect in Christ Jesus:  
+> **²⁹** Whereunto I also labour, striving according to his working, which worketh in me mightily.  
 
 Here is a summary of the doctrine of the gospel concerning the great work of our redemption by Christ. It comes in here not as the matter of a sermon, but as the matter of a thanksgiving; for our salvation by Christ furnishes us with abundant matter of thanksgiving in every view of it: *Giving thanks unto the Father,* Col 1:12. He does not discourse of the work of redemption in the natural order of it; for then he would speak of the purchase of it first, and afterwards of the application of it. But here he inverts the order, because, in our sense and feeling of it, the application goes before the purchase. We first find the benefits of redemption in our hearts, and then are led by those streams to the original and fountain-head. The order and connection of the apostle's discourse may be considered in the following manner:—
 

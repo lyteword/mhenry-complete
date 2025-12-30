@@ -8,12 +8,12 @@ Bildad here makes a very short reply to Job's last discourse, as one that began 
 
 ## God Exalted and Man Abased. (b. c. 1520.)
 
-> <sup>1</sup> Then answered Bildad the Shuhite, and said,  
-> <sup>2</sup> Dominion and fear *are* with him, he maketh peace in his high places.  
-> <sup>3</sup> Is there any number of his armies? and upon whom doth not his light arise?  
-> <sup>4</sup> How then can man be justified with God? or how can he be clean *that is* born of a woman?  
-> <sup>5</sup> Behold even to the moon, and it shineth not; yea, the stars are not pure in his sight.  
-> <sup>6</sup> How much less man, *that is* a worm? and the son of man, *which is* a worm?  
+> **¹** Then answered Bildad the Shuhite, and said,  
+> **²** Dominion and fear *are* with him, he maketh peace in his high places.  
+> **³** Is there any number of his armies? and upon whom doth not his light arise?  
+> **⁴** How then can man be justified with God? or how can he be clean *that is* born of a woman?  
+> **⁵** Behold even to the moon, and it shineth not; yea, the stars are not pure in his sight.  
+> **⁶** How much less man, *that is* a worm? and the son of man, *which is* a worm?  
 
 Bildad is to be commended here for two things:—1. For speaking no more on the subject about which Job and he differed. Perhaps he began to think Job was in the right, and then it was justice to say no more concerning it, as one that contended for truth, not for victory, and therefore, for the finding of truth, would be content to lose the victory; or, if he still thought himself in the right, yet he knew when he had said enough, and would not wrangle endlessly for the last word. Perhaps indeed one reason why he and the rest of them let fall this debate was because they perceived that Job and they did not differ so much in opinion as they thought: they owned that wicked people might prosper a while, and Job owned they would be destroyed at last; how little then was the difference! If disputants would understand one another better, perhaps they would find themselves nearer one another than they imagined. 2. For speaking so well on the matter about which Job and he were agreed. If we would all get our hearts filled with awful thoughts of God and humble thoughts of ourselves, we should not be so apt as we are to fall out about matters of doubtful disputation, which are trifling or intricate.
 

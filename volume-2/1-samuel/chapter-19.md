@@ -8,13 +8,13 @@ Immediately after David's marriage, which one would have hoped would secure him 
 
 ## Saul's Jealousy of David; Jonathan's Intercession for David. (b. c. 1058.)
 
-> <sup>1</sup> And Saul spake to Jonathan his son, and to all his servants, that they should kill David.  
-> <sup>2</sup> But Jonathan Saul's son delighted much in David: and Jonathan told David, saying, Saul my father seeketh to kill thee: now therefore, I pray thee, take heed to thyself until the morning, and abide in a secret *place,* and hide thyself:  
-> <sup>3</sup> And I will go out and stand beside my father in the field where thou *art,* and I will commune with my father of thee; and what I see, that I will tell thee.  
-> <sup>4</sup> And Jonathan spake good of David unto Saul his father, and said unto him, Let not the king sin against his servant, against David; because he hath not sinned against thee, and because his works *have been* to thee-ward very good:  
-> <sup>5</sup> For he did put his life in his hand, and slew the Philistine, and the LORD wrought a great salvation for all Israel: thou sawest *it,* and didst rejoice: wherefore then wilt thou sin against innocent blood, to slay David without a cause?  
-> <sup>6</sup> And Saul hearkened unto the voice of Jonathan: and Saul sware, *As* the LORD liveth, he shall not be slain.  
-> <sup>7</sup> And Jonathan called David, and Jonathan shewed him all those things. And Jonathan brought David to Saul, and he was in his presence, as in times past.  
+> **¹** And Saul spake to Jonathan his son, and to all his servants, that they should kill David.  
+> **²** But Jonathan Saul's son delighted much in David: and Jonathan told David, saying, Saul my father seeketh to kill thee: now therefore, I pray thee, take heed to thyself until the morning, and abide in a secret *place,* and hide thyself:  
+> **³** And I will go out and stand beside my father in the field where thou *art,* and I will commune with my father of thee; and what I see, that I will tell thee.  
+> **⁴** And Jonathan spake good of David unto Saul his father, and said unto him, Let not the king sin against his servant, against David; because he hath not sinned against thee, and because his works *have been* to thee-ward very good:  
+> **⁵** For he did put his life in his hand, and slew the Philistine, and the LORD wrought a great salvation for all Israel: thou sawest *it,* and didst rejoice: wherefore then wilt thou sin against innocent blood, to slay David without a cause?  
+> **⁶** And Saul hearkened unto the voice of Jonathan: and Saul sware, *As* the LORD liveth, he shall not be slain.  
+> **⁷** And Jonathan called David, and Jonathan shewed him all those things. And Jonathan brought David to Saul, and he was in his presence, as in times past.  
 
 Saul and Jonathan appear here in their different characters, with reference to David.
 
@@ -32,9 +32,9 @@ II\. Never was friend so surprisingly kind as Jonathan. *A friend in need is a f
 
 ## David Escapes from Saul. (b. c. 1058.)
 
-> <sup>8</sup> And there was war again: and David went out, and fought with the Philistines, and slew them with a great slaughter; and they fled from him.  
-> <sup>9</sup> And the evil spirit from the LORD was upon Saul, as he sat in his house with his javelin in his hand: and David played with *his* hand.  
-> <sup>10</sup> And Saul sought to smite David even to the wall with the javelin; but he slipped away out of Saul's presence, and he smote the javelin into the wall: and David fled, and escaped that night.  
+> **⁸** And there was war again: and David went out, and fought with the Philistines, and slew them with a great slaughter; and they fled from him.  
+> **⁹** And the evil spirit from the LORD was upon Saul, as he sat in his house with his javelin in his hand: and David played with *his* hand.  
+> **¹⁰** And Saul sought to smite David even to the wall with the javelin; but he slipped away out of Saul's presence, and he smote the javelin into the wall: and David fled, and escaped that night.  
 
 Here I. David continues his good services to his king and country. Though Saul had requited him evil for good, and even his usefulness was the very thing for which Saul envied him, yet he did not therefore retire in sullenness and decline public service. Those that are ill paid for doing good, yet must not be *weary of well doing,* remembering what a bountiful benefactor our heavenly Father is, even to the froward and unthankful. Notwithstanding the many affronts Saul had given to David, yet we find him, 1. As bold as ever in using his sword for the service of his country, 1Sa 19:8. The war broke out again with the Philistines, which gave David occasion again to signalize himself. It was a great deal of bravery that he charged them; and he came off victorious, slaying many and putting the rest to flight. 2. As cheerful as ever in using his harp for the service of the prince. When Saul was disturbed with his former fits of melancholy *David played with his hand,* 1Sa 19:9. He might have pleaded that this was a piece of service now below him; but a humble man will think nothing below him by which he may do good. He might have objected the danger he was in the last time he performed this service for Saul, 1Sa 18:10. But he had learned to render good for evil, and to trust God with his safety in the way of his duty. See how David was affected when his enemy was sick (Ps 35:13,14), which perhaps refers to Saul's sickness.
 
@@ -42,13 +42,13 @@ II\. Saul continues his malice against David. He that but the other day had swor
 
 III\. God continues his care of David and still watches over him for good. Saul missed his blow. David was too quick for him and fled, and by a kind providence escaped that night. To these preservations, among others, David often refers in his Psalms, when he speaks of God's being his shield and buckler, his rock and fortress, and delivering his *soul from death.*
 
-> <sup>11</sup> Saul also sent messengers unto David's house, to watch him, and to slay him in the morning: and Michal David's wife told him, saying, If thou save not thy life to night, to morrow thou shalt be slain.  
-> <sup>12</sup> So Michal let David down through a window: and he went, and fled, and escaped.  
-> <sup>13</sup> And Michal took an image, and laid *it* in the bed, and put a pillow of goats' *hair* for his bolster, and covered *it* with a cloth.  
-> <sup>14</sup> And when Saul sent messengers to take David, she said, He *is* sick.  
-> <sup>15</sup> And Saul sent the messengers *again* to see David, saying, Bring him up to me in the bed, that I may slay him.  
-> <sup>16</sup> And when the messengers were come in, behold, *there was* an image in the bed, with a pillow of goats' *hair* for his bolster.  
-> <sup>17</sup> And Saul said unto Michal, Why hast thou deceived me so, and sent away mine enemy, that he is escaped? And Michal answered Saul, He said unto me, Let me go; why should I kill thee?  
+> **¹¹** Saul also sent messengers unto David's house, to watch him, and to slay him in the morning: and Michal David's wife told him, saying, If thou save not thy life to night, to morrow thou shalt be slain.  
+> **¹²** So Michal let David down through a window: and he went, and fled, and escaped.  
+> **¹³** And Michal took an image, and laid *it* in the bed, and put a pillow of goats' *hair* for his bolster, and covered *it* with a cloth.  
+> **¹⁴** And when Saul sent messengers to take David, she said, He *is* sick.  
+> **¹⁵** And Saul sent the messengers *again* to see David, saying, Bring him up to me in the bed, that I may slay him.  
+> **¹⁶** And when the messengers were come in, behold, *there was* an image in the bed, with a pillow of goats' *hair* for his bolster.  
+> **¹⁷** And Saul said unto Michal, Why hast thou deceived me so, and sent away mine enemy, that he is escaped? And Michal answered Saul, He said unto me, Let me go; why should I kill thee?  
 
 Here is, I. Saul's further design of mischief to David. When David had escaped the javelin, supposing he went straight to his own house, as indeed he did, Saul sent some of his guards after him to lay wait at the door of his house, and to assassinate him in the morning as soon as he stirred out, 1Sa 19:11. Josephus says the design was to seize him and to hurry him before a court of justice that was ordered to condemn him and put him to death as a traitor; but we are here told it was a shorter way they were to take with him: they were ordered to *slay him.* Well might David complain that his enemies were *bloody men,* as he did in the psalm which he penned at this time, and upon this occasion (Ps 59:1-17), when Saul sent, and they watched the house to kill him. See 1Sa 19:2,3,7. He complains that *swords were in their lips.*
 
@@ -56,13 +56,13 @@ II\. David's wonderful deliverance out of this danger. Michal was the instrument
 
 ## Saul Prophesies before Samuel. (b. c. 1058.)
 
-> <sup>18</sup> So David fled, and escaped, and came to Samuel to Ramah, and told him all that Saul had done to him. And he and Samuel went and dwelt in Naioth.  
-> <sup>19</sup> And it was told Saul, saying, Behold, David *is* at Naioth in Ramah.  
-> <sup>20</sup> And Saul sent messengers to take David: and when they saw the company of the prophets prophesying, and Samuel standing *as* appointed over them, the Spirit of God was upon the messengers of Saul, and they also prophesied.  
-> <sup>21</sup> And when it was told Saul, he sent other messengers, and they prophesied likewise. And Saul sent messengers again the third time, and they prophesied also.  
-> <sup>22</sup> Then went he also to Ramah, and came to a great well that *is* in Sechu: and he asked and said, Where *are* Samuel and David? And *one* said, Behold, *they be* at Naioth in Ramah.  
-> <sup>23</sup> And he went thither to Naioth in Ramah: and the Spirit of God was upon him also, and he went on, and prophesied, until he came to Naioth in Ramah.  
-> <sup>24</sup> And he stripped off his clothes also, and prophesied before Samuel in like manner, and lay down naked all that day and all that night. Wherefore they say, *Is* Saul also among the prophets?  
+> **¹⁸** So David fled, and escaped, and came to Samuel to Ramah, and told him all that Saul had done to him. And he and Samuel went and dwelt in Naioth.  
+> **¹⁹** And it was told Saul, saying, Behold, David *is* at Naioth in Ramah.  
+> **²⁰** And Saul sent messengers to take David: and when they saw the company of the prophets prophesying, and Samuel standing *as* appointed over them, the Spirit of God was upon the messengers of Saul, and they also prophesied.  
+> **²¹** And when it was told Saul, he sent other messengers, and they prophesied likewise. And Saul sent messengers again the third time, and they prophesied also.  
+> **²²** Then went he also to Ramah, and came to a great well that *is* in Sechu: and he asked and said, Where *are* Samuel and David? And *one* said, Behold, *they be* at Naioth in Ramah.  
+> **²³** And he went thither to Naioth in Ramah: and the Spirit of God was upon him also, and he went on, and prophesied, until he came to Naioth in Ramah.  
+> **²⁴** And he stripped off his clothes also, and prophesied before Samuel in like manner, and lay down naked all that day and all that night. Wherefore they say, *Is* Saul also among the prophets?  
 
 Here is, I. David's place of refuge. Having got away in the night from his own house, he fled not to Bethlehem to his relations, nor to any of the cities of Israel that had caressed and cried him up, to make an interest in them for his own preservation; but he ran straight to Samuel and *told him all that Saul had done to him,* 1Sa 19:18. 1. Because Samuel was the man that had given him assurance of the crown, and his faith in that assurance now beginning to fail, and he being ready to say in his haste (or *in his flight,* as some read it, Ps 116:11), *All men are liars* ("not only Saul that promised me my life, but Samuel himself that promised me the throne"), whither should he go but to Samuel, for such encouragements, in this day of distress, as would support his faith? In flying to Samuel he made God his refuge, trusting in the *shadow of his wings;* where else can a good man think himself safe? 2. Because Samuel, as a prophet, was best able to advise him what to do in this day of his distress. In the psalm he penned the night before he had lifted up his prayer to God, and now he takes the first opportunity of waiting upon Samuel to receive direction and instruction from God. If we expect answers of peace to our prayers, we must have our ears open to God's word. 3. Because with Samuel there was a college of prophets with whom he might join in praising God, and the pleasure of this exercise would be the greatest relief imaginable to him in his present distress. He met with little rest or satisfaction in Saul's court, and therefore went to seek it in Samuel's church. And, doubtless, what little pleasure is to be had in this world those have it that live a life of communion with God; to this David retired in the time of trouble, Ps 27:4-6.
 

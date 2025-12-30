@@ -8,12 +8,12 @@ A very black and mournful scene here opens, and which threatens the ruin of all 
 
 ## Haman's Malignant Proposal. (b. c. 510.)
 
-> <sup>1</sup> After these things did king Ahasuerus promote Haman the son of Hammedatha the Agagite, and advanced him, and set his seat above all the princes that *were* with him.  
-> <sup>2</sup> And all the king's servants, that *were* in the king's gate, bowed, and reverenced Haman: for the king had so commanded concerning him. But Mordecai bowed not, nor did *him* reverence.  
-> <sup>3</sup> Then the king's servants, which *were* in the king's gate, said unto Mordecai, Why transgressest thou the king's commandment?  
-> <sup>4</sup> Now it came to pass, when they spake daily unto him, and he hearkened not unto them, that they told Haman, to see whether Mordecai's matters would stand: for he had told them that he *was* a Jew.  
-> <sup>5</sup> And when Haman saw that Mordecai bowed not, nor did him reverence, then was Haman full of wrath.  
-> <sup>6</sup> And he thought scorn to lay hands on Mordecai alone; for they had showed him the people of Mordecai: wherefore Haman sought to destroy all the Jews that *were* throughout the whole kingdom of Ahasuerus, *even* the people of Mordecai.  
+> **¹** After these things did king Ahasuerus promote Haman the son of Hammedatha the Agagite, and advanced him, and set his seat above all the princes that *were* with him.  
+> **²** And all the king's servants, that *were* in the king's gate, bowed, and reverenced Haman: for the king had so commanded concerning him. But Mordecai bowed not, nor did *him* reverence.  
+> **³** Then the king's servants, which *were* in the king's gate, said unto Mordecai, Why transgressest thou the king's commandment?  
+> **⁴** Now it came to pass, when they spake daily unto him, and he hearkened not unto them, that they told Haman, to see whether Mordecai's matters would stand: for he had told them that he *was* a Jew.  
+> **⁵** And when Haman saw that Mordecai bowed not, nor did him reverence, then was Haman full of wrath.  
+> **⁶** And he thought scorn to lay hands on Mordecai alone; for they had showed him the people of Mordecai: wherefore Haman sought to destroy all the Jews that *were* throughout the whole kingdom of Ahasuerus, *even* the people of Mordecai.  
 
 Here we have,
 
@@ -25,15 +25,15 @@ III\. Haman meditating revenge. Some that hoped thereby to curry favour with Ham
 
 ## Haman Obtains Leave to Slay the Jews. (b. c. 510.)
 
-> <sup>7</sup> In the first month, that *is,* the month Nisan, in the twelfth year of king Ahasuerus, they cast Pur, that *is,* the lot, before Haman from day to day, and from month to month, *to* the twelfth *month,* that *is,* the month Adar.  
-> <sup>8</sup> And Haman said unto king Ahasuerus, There is a certain people scattered abroad and dispersed among the people in all the provinces of thy kingdom; and their laws *are* diverse from all people; neither keep they the king's laws: therefore it *is* not for the king's profit to suffer them.  
-> <sup>9</sup> If it please the king, let it be written that they may be destroyed: and I will pay ten thousand talents of silver to the hands of those that have the charge of the business, to bring *it* into the king's treasuries.  
-> <sup>10</sup> And the king took his ring from his hand, and gave it unto Haman the son of Hammedatha the Agagite, the Jews' enemy.  
-> <sup>11</sup> And the king said unto Haman, The silver *is* given to thee, the people also, to do with them as it seemeth good to thee.  
-> <sup>12</sup> Then were the king's scribes called on the thirteenth day of the first month, and there was written according to all that Haman had commanded unto the king's lieutenants, and to the governors that *were* over every province, and to the rulers of every people of every province according to the writing thereof, and *to* every people after their language; in the name of king Ahasuerus was it written, and sealed with the king's ring.  
-> <sup>13</sup> And the letters were sent by posts into all the king's provinces, to destroy, to kill, and to cause to perish, all Jews, both young and old, little children and women, in one day, *even* upon the thirteenth *day* of the twelfth month, which is the month Adar, and *to take* the spoil of them for a prey.  
-> <sup>14</sup> The copy of the writing for a commandment to be given in every province was published unto all people, that they should be ready against that day.  
-> <sup>15</sup> The posts went out, being hastened by the king's commandment, and the decree was given in Shushan the palace. And the king and Haman sat down to drink; but the city Shushan was perplexed.  
+> **⁷** In the first month, that *is,* the month Nisan, in the twelfth year of king Ahasuerus, they cast Pur, that *is,* the lot, before Haman from day to day, and from month to month, *to* the twelfth *month,* that *is,* the month Adar.  
+> **⁸** And Haman said unto king Ahasuerus, There is a certain people scattered abroad and dispersed among the people in all the provinces of thy kingdom; and their laws *are* diverse from all people; neither keep they the king's laws: therefore it *is* not for the king's profit to suffer them.  
+> **⁹** If it please the king, let it be written that they may be destroyed: and I will pay ten thousand talents of silver to the hands of those that have the charge of the business, to bring *it* into the king's treasuries.  
+> **¹⁰** And the king took his ring from his hand, and gave it unto Haman the son of Hammedatha the Agagite, the Jews' enemy.  
+> **¹¹** And the king said unto Haman, The silver *is* given to thee, the people also, to do with them as it seemeth good to thee.  
+> **¹²** Then were the king's scribes called on the thirteenth day of the first month, and there was written according to all that Haman had commanded unto the king's lieutenants, and to the governors that *were* over every province, and to the rulers of every people of every province according to the writing thereof, and *to* every people after their language; in the name of king Ahasuerus was it written, and sealed with the king's ring.  
+> **¹³** And the letters were sent by posts into all the king's provinces, to destroy, to kill, and to cause to perish, all Jews, both young and old, little children and women, in one day, *even* upon the thirteenth *day* of the twelfth month, which is the month Adar, and *to take* the spoil of them for a prey.  
+> **¹⁴** The copy of the writing for a commandment to be given in every province was published unto all people, that they should be ready against that day.  
+> **¹⁵** The posts went out, being hastened by the king's commandment, and the decree was given in Shushan the palace. And the king and Haman sat down to drink; but the city Shushan was perplexed.  
 
 Haman values himself upon that bold and daring thought, which he fancied well became his great spirit, of destroying all the Jews—an undertaking worthy of its author, and which he promised himself would perpetuate his memory. He doubts not but to find desperate and bloody hands enough to cut all their throats if the king will but give him leave. How he obtained leave, and commission to do it, we are here told. He had the king's ear, let him alone to manage him.
 

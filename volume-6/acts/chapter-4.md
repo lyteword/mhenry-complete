@@ -8,10 +8,10 @@ In going over the last two chapters, where we met with so many good things that 
 
 ## Peter and John Imprisoned.
 
-> <sup>1</sup> And as they spake unto the people, the priests, and the captain of the temple, and the Sadducees, came upon them,  
-> <sup>2</sup> Being grieved that they taught the people, and preached through Jesus the resurrection from the dead.  
-> <sup>3</sup> And they laid hands on them, and put *them* in hold unto the next day: for it was now eventide.  
-> <sup>4</sup> Howbeit many of them which heard the word believed; and the number of the men was about five thousand.  
+> **¹** And as they spake unto the people, the priests, and the captain of the temple, and the Sadducees, came upon them,  
+> **²** Being grieved that they taught the people, and preached through Jesus the resurrection from the dead.  
+> **³** And they laid hands on them, and put *them* in hold unto the next day: for it was now eventide.  
+> **⁴** Howbeit many of them which heard the word believed; and the number of the men was about five thousand.  
 
 We have here the interests of the kingdom of heaven successfully carried on, and the powers of darkness appearing against them to put a stop to them. let Christ's servants be ever so resolute, Satan's agents will be spiteful; and therefore, let Satan's agents be ever so spiteful, Christ's servants ought to be resolute.
 
@@ -25,16 +25,16 @@ II\. The chief priests and their party now made head against them, and did what 
 
 ## Peter and John Examined before the Sanhedrim.
 
-> <sup>5</sup> And it came to pass on the morrow, that their rulers, and elders, and scribes,  
-> <sup>6</sup> And Annas the high priest, and Caiaphas, and John, and Alexander, and as many as were of the kindred of the high priest, were gathered together at Jerusalem.  
-> <sup>7</sup> And when they had set them in the midst, they asked, By what power, or by what name, have ye done this?  
-> <sup>8</sup> Then Peter, filled with the Holy Ghost, said unto them, Ye rulers of the people, and elders of Israel,  
-> <sup>9</sup> If we this day be examined of the good deed done to the impotent man, by what means he is made whole;  
-> <sup>10</sup> Be it known unto you all, and to all the people of Israel, that by the name of Jesus Christ of Nazareth, whom ye crucified, whom God raised from the dead, *even* by him doth this man stand here before you whole.  
-> <sup>11</sup> This is the stone which was set at nought of you builders, which is become the head of the corner.  
-> <sup>12</sup> Neither is there salvation in any other: for there is none other name under heaven given among men, whereby we must be saved.  
-> <sup>13</sup> Now when they saw the boldness of Peter and John, and perceived that they were unlearned and ignorant men, they marvelled; and they took knowledge of them, that they had been with Jesus.  
-> <sup>14</sup> And beholding the man which was healed standing with them, they could say nothing against it.  
+> **⁵** And it came to pass on the morrow, that their rulers, and elders, and scribes,  
+> **⁶** And Annas the high priest, and Caiaphas, and John, and Alexander, and as many as were of the kindred of the high priest, were gathered together at Jerusalem.  
+> **⁷** And when they had set them in the midst, they asked, By what power, or by what name, have ye done this?  
+> **⁸** Then Peter, filled with the Holy Ghost, said unto them, Ye rulers of the people, and elders of Israel,  
+> **⁹** If we this day be examined of the good deed done to the impotent man, by what means he is made whole;  
+> **¹⁰** Be it known unto you all, and to all the people of Israel, that by the name of Jesus Christ of Nazareth, whom ye crucified, whom God raised from the dead, *even* by him doth this man stand here before you whole.  
+> **¹¹** This is the stone which was set at nought of you builders, which is become the head of the corner.  
+> **¹²** Neither is there salvation in any other: for there is none other name under heaven given among men, whereby we must be saved.  
+> **¹³** Now when they saw the boldness of Peter and John, and perceived that they were unlearned and ignorant men, they marvelled; and they took knowledge of them, that they had been with Jesus.  
+> **¹⁴** And beholding the man which was healed standing with them, they could say nothing against it.  
 
 We have here the trial of Peter and John before the judges of the ecclesiastical court, for preaching a sermon concerning Jesus Christ, and working a miracle in his name. This is charged upon them as a crime, which was the best service they could do to God or men.
 
@@ -62,14 +62,14 @@ IV\. The stand that the court was put to in the prosecution, by this plea, Ac 4:
 
 ## The Resolution of Peter and John.
 
-> <sup>15</sup> But when they had commanded them to go aside out of the council, they conferred among themselves,  
-> <sup>16</sup> Saying, What shall we do to these men? for that indeed a notable miracle hath been done by them *is* manifest to all them that dwell in Jerusalem; and we cannot deny *it.*  
-> <sup>17</sup> But that it spread no further among the people, let us straitly threaten them, that they speak henceforth to no man in this name.  
-> <sup>18</sup> And they called them, and commanded them not to speak at all nor teach in the name of Jesus.  
-> <sup>19</sup> But Peter and John answered and said unto them, Whether it be right in the sight of God to hearken unto you more than unto God, judge ye.  
-> <sup>20</sup> For we cannot but speak the things which we have seen and heard.  
-> <sup>21</sup> So when they had further threatened them, they let them go, finding nothing how they might punish them, because of the people: for all *men* glorified God for that which was done.  
-> <sup>22</sup> For the man was above forty years old, on whom this miracle of healing was showed.  
+> **¹⁵** But when they had commanded them to go aside out of the council, they conferred among themselves,  
+> **¹⁶** Saying, What shall we do to these men? for that indeed a notable miracle hath been done by them *is* manifest to all them that dwell in Jerusalem; and we cannot deny *it.*  
+> **¹⁷** But that it spread no further among the people, let us straitly threaten them, that they speak henceforth to no man in this name.  
+> **¹⁸** And they called them, and commanded them not to speak at all nor teach in the name of Jesus.  
+> **¹⁹** But Peter and John answered and said unto them, Whether it be right in the sight of God to hearken unto you more than unto God, judge ye.  
+> **²⁰** For we cannot but speak the things which we have seen and heard.  
+> **²¹** So when they had further threatened them, they let them go, finding nothing how they might punish them, because of the people: for all *men* glorified God for that which was done.  
+> **²²** For the man was above forty years old, on whom this miracle of healing was showed.  
 
 We have here the issue of the trial of Peter and John before the council. They came off now with flying colours, because they must be trained up to sufferings by degrees, and by less trials be prepared for greater. They now but *run with the footmen;* hereafter we shall have them *contending with horses,* Jer 12:5.
 
@@ -91,15 +91,15 @@ III\. Here is the discharge of the prisoners (Ac 4:21): *They further threatened
 
 ## The Apostles Return to Their Company; The Devout Appeal of the Apostles.
 
-> <sup>23</sup> And being let go, they went to their own company, and reported all that the chief priests and elders had said unto them.  
-> <sup>24</sup> And when they heard that, they lifted up their voice to God with one accord, and said, Lord, thou *art* God, which hast made heaven, and earth, and the sea, and all that in them is:  
-> <sup>25</sup> Who by the mouth of thy servant David hast said, Why did the heathen rage, and the people imagine vain things?  
-> <sup>26</sup> The kings of the earth stood up, and the rulers were gathered together against the Lord, and against his Christ.  
-> <sup>27</sup> For of a truth against thy holy child Jesus, whom thou hast anointed, both Herod, and Pontius Pilate, with the Gentiles, and the people of Israel, were gathered together,  
-> <sup>28</sup> For to do whatsoever thy hand and thy counsel determined before to be done.  
-> <sup>29</sup> And now, Lord, behold their threatenings: and grant unto thy servants, that with all boldness they may speak thy word,  
-> <sup>30</sup> By stretching forth thine hand to heal; and that signs and wonders may be done by the name of thy holy child Jesus.  
-> <sup>31</sup> And when they had prayed, the place was shaken where they were assembled together; and they were all filled with the Holy Ghost, and they spake the word of God with boldness.  
+> **²³** And being let go, they went to their own company, and reported all that the chief priests and elders had said unto them.  
+> **²⁴** And when they heard that, they lifted up their voice to God with one accord, and said, Lord, thou *art* God, which hast made heaven, and earth, and the sea, and all that in them is:  
+> **²⁵** Who by the mouth of thy servant David hast said, Why did the heathen rage, and the people imagine vain things?  
+> **²⁶** The kings of the earth stood up, and the rulers were gathered together against the Lord, and against his Christ.  
+> **²⁷** For of a truth against thy holy child Jesus, whom thou hast anointed, both Herod, and Pontius Pilate, with the Gentiles, and the people of Israel, were gathered together,  
+> **²⁸** For to do whatsoever thy hand and thy counsel determined before to be done.  
+> **²⁹** And now, Lord, behold their threatenings: and grant unto thy servants, that with all boldness they may speak thy word,  
+> **³⁰** By stretching forth thine hand to heal; and that signs and wonders may be done by the name of thy holy child Jesus.  
+> **³¹** And when they had prayed, the place was shaken where they were assembled together; and they were all filled with the Holy Ghost, and they spake the word of God with boldness.  
 
 We hear no more at present of the chief priests, what they did when they had dismissed Peter and John, but are to attend those *two witnesses.* And here we have,
 
@@ -127,12 +127,12 @@ IV\. The gracious answer God gave to this address, not in word, but in power. 1.
 
 ## The Prosperity of the Church; The Liberality of the Disciples.
 
-> <sup>32</sup> And the multitude of them that believed were of one heart and of one soul: neither said any *of them* that ought of the things which he possessed was his own; but they had all things common.  
-> <sup>33</sup> And with great power gave the apostles witness of the resurrection of the Lord Jesus: and great grace was upon them all.  
-> <sup>34</sup> Neither was there any among them that lacked: for as many as were possessors of lands or houses sold them, and brought the prices of the things that were sold,  
-> <sup>35</sup> And laid *them* down at the apostles' feet: and distribution was made unto every man according as he had need.  
-> <sup>36</sup> And Joses, who by the apostles was surnamed Barnabas, (which is, being interpreted, The son of consolation,) a Levite, *and* of the country of Cyprus,  
-> <sup>37</sup> Having land, sold *it,* and brought the money, and laid *it* at the apostles' feet.  
+> **³²** And the multitude of them that believed were of one heart and of one soul: neither said any *of them* that ought of the things which he possessed was his own; but they had all things common.  
+> **³³** And with great power gave the apostles witness of the resurrection of the Lord Jesus: and great grace was upon them all.  
+> **³⁴** Neither was there any among them that lacked: for as many as were possessors of lands or houses sold them, and brought the prices of the things that were sold,  
+> **³⁵** And laid *them* down at the apostles' feet: and distribution was made unto every man according as he had need.  
+> **³⁶** And Joses, who by the apostles was surnamed Barnabas, (which is, being interpreted, The son of consolation,) a Levite, *and* of the country of Cyprus,  
+> **³⁷** Having land, sold *it,* and brought the money, and laid *it* at the apostles' feet.  
 
 We have a general idea given us in these verses, and it is a very beautiful one, of the spirit and state of this truly primitive church; it is *conspectus sæculi—a view of that age* of infancy and innocence.
 

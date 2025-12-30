@@ -8,11 +8,11 @@ Thus prophet is sent first to convince and then to comfort, first to discover si
 
 ## Ingratitude of Israel; Judgments and Mercies. (b. c. 400.)
 
-> <sup>1</sup> The burden of the word of the LORD to Israel by Malachi.  
-> <sup>2</sup> I have loved you, saith the LORD. Yet ye say, Wherein hast thou loved us? *Was* not Esau Jacob's brother? saith the LORD: yet I loved Jacob,  
-> <sup>3</sup> And I hated Esau, and laid his mountains and his heritage waste for the dragons of the wilderness.  
-> <sup>4</sup> Whereas Edom saith, We are impoverished, but we will return and build the desolate places; thus saith the LORD of hosts, They shall build, but I will throw down; and they shall call them, The border of wickedness, and, The people against whom the LORD hath indignation for ever.  
-> <sup>5</sup> And your eyes shall see, and ye shall say, The LORD will be magnified from the border of Israel.  
+> **¹** The burden of the word of the LORD to Israel by Malachi.  
+> **²** I have loved you, saith the LORD. Yet ye say, Wherein hast thou loved us? *Was* not Esau Jacob's brother? saith the LORD: yet I loved Jacob,  
+> **³** And I hated Esau, and laid his mountains and his heritage waste for the dragons of the wilderness.  
+> **⁴** Whereas Edom saith, We are impoverished, but we will return and build the desolate places; thus saith the LORD of hosts, They shall build, but I will throw down; and they shall call them, The border of wickedness, and, The people against whom the LORD hath indignation for ever.  
+> **⁵** And your eyes shall see, and ye shall say, The LORD will be magnified from the border of Israel.  
 
 The prophecy of this book is entitled, *The burden of the word of the Lord* (Mal 1:1), which intimates, 1. That it was of great weight and importance; what the false prophets said was light as the chaff, what the true prophets said was ponderous as the wheat, Jer 23:38. 2. That it ought to be often repeated to them and by them, as the burden of a song. 3. That there were those to whom it was a burden and a reproach; they were weary of it, and found themselves so aggrieved by it that they were not able to bear it. 4. That to them it would prove a burden indeed, to sink them to the lowest hell, unless they repented. 5. That to those who loved it and embraced it, and bade it welcome, though it was a light burden, as our Saviour calls it (Mt 11:30), yet it was a burden.
 
@@ -36,15 +36,15 @@ III\. He makes it out, beyond contradiction, that he has loved them, loved them 
 
 ## God's Remonstrance with the Priests; Judgment of Wicked Priests. (b. c. 400.)
 
-> <sup>6</sup> A son honoureth *his* father, and a servant his master: if then I *be* a father, where *is* mine honour? and if I *be* a master, where *is* my fear? saith the LORD of hosts unto you, O priests, that despise my name. And ye say, Wherein have we despised thy name?  
-> <sup>7</sup> Ye offer polluted bread upon mine altar; and ye say, Wherein have we polluted thee? In that ye say, The table of the LORD *is* contemptible.  
-> <sup>8</sup> And if ye offer the blind for sacrifice, *is it* not evil? and if ye offer the lame and sick, *is it* not evil? offer it now unto thy governor; will he be pleased with thee, or accept thy person? saith the LORD of hosts.  
-> <sup>9</sup> And now, I pray you, beseech God that he will be gracious unto us: this hath been by your means: will he regard your persons? saith the LORD of hosts.  
-> <sup>10</sup> Who *is there* even among you that would shut the doors *for nought?* neither do ye kindle *fire* on mine altar for nought. I have no pleasure in you, saith the LORD of hosts, neither will I accept an offering at your hand.  
-> <sup>11</sup> For from the rising of the sun even unto the going down of the same my name *shall be* great among the Gentiles; and in every place incense *shall be* offered unto my name, and a pure offering: for my name *shall be* great among the heathen, saith the LORD of hosts.  
-> <sup>12</sup> But ye have profaned it, in that ye say, The table of the LORD *is* polluted; and the fruit thereof, *even* his meat, *is* contemptible.  
-> <sup>13</sup> Ye said also, Behold, what a weariness *is it!* and ye have snuffed at it, saith the LORD of hosts; and ye brought *that which was* torn, and the lame, and the sick; thus ye brought an offering: should I accept this of your hand? saith the LORD.  
-> <sup>14</sup> But cursed *be* the deceiver, which hath in his flock a male, and voweth, and sacrificeth unto the Lord a corrupt thing: for I *am* a great King, saith the LORD of hosts, and my name *is* dreadful among the heathen.  
+> **⁶** A son honoureth *his* father, and a servant his master: if then I *be* a father, where *is* mine honour? and if I *be* a master, where *is* my fear? saith the LORD of hosts unto you, O priests, that despise my name. And ye say, Wherein have we despised thy name?  
+> **⁷** Ye offer polluted bread upon mine altar; and ye say, Wherein have we polluted thee? In that ye say, The table of the LORD *is* contemptible.  
+> **⁸** And if ye offer the blind for sacrifice, *is it* not evil? and if ye offer the lame and sick, *is it* not evil? offer it now unto thy governor; will he be pleased with thee, or accept thy person? saith the LORD of hosts.  
+> **⁹** And now, I pray you, beseech God that he will be gracious unto us: this hath been by your means: will he regard your persons? saith the LORD of hosts.  
+> **¹⁰** Who *is there* even among you that would shut the doors *for nought?* neither do ye kindle *fire* on mine altar for nought. I have no pleasure in you, saith the LORD of hosts, neither will I accept an offering at your hand.  
+> **¹¹** For from the rising of the sun even unto the going down of the same my name *shall be* great among the Gentiles; and in every place incense *shall be* offered unto my name, and a pure offering: for my name *shall be* great among the heathen, saith the LORD of hosts.  
+> **¹²** But ye have profaned it, in that ye say, The table of the LORD *is* polluted; and the fruit thereof, *even* his meat, *is* contemptible.  
+> **¹³** Ye said also, Behold, what a weariness *is it!* and ye have snuffed at it, saith the LORD of hosts; and ye brought *that which was* torn, and the lame, and the sick; thus ye brought an offering: should I accept this of your hand? saith the LORD.  
+> **¹⁴** But cursed *be* the deceiver, which hath in his flock a male, and voweth, and sacrificeth unto the Lord a corrupt thing: for I *am* a great King, saith the LORD of hosts, and my name *is* dreadful among the heathen.  
 
 The prophet is here, by a special commission, calling the priests to account, though they were themselves appointed judges, to call the people to an account. Let the rulers in the house of God know that there is one above them, who will reckon with them for their mal-administrations. Thus *saith the Lord of hosts to you, O priests!* Mal 1:6. God will have a saying to unfaithful ministers; and it concerns those who speak from God to his people to hear and heed what he says to them, that they may *save themselves* in the first place, otherwise how should they help to *save those that hear them?* It is a severe, and no doubt a just reproof, that is here given to the *priests,* for the profanation of the holy things of God, with which they were entrusted; and, if this was the crime of the priests, we have reason to fear the people also were guilty of it: so that what is said to *the priests* is *said to all,* nay, it is *said to us,* who, as Christians, profess ourselves, not only the people of God, but priests to him. Observe here,
 

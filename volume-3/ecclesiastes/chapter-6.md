@@ -8,12 +8,12 @@ In this chapter, I. The royal preacher goes on further to show the vanity of wor
 
 ## The Miseries of Covetousness.
 
-> <sup>1</sup> There is an evil which I have seen under the sun, and it *is* common among men:  
-> <sup>2</sup> A man to whom God hath given riches, wealth, and honour, so that he wanteth nothing for his soul of all that he desireth, yet God giveth him not power to eat thereof, but a stranger eateth it: this *is* vanity, and it *is* an evil disease.  
-> <sup>3</sup> If a man beget a hundred *children,* and live many years, so that the days of his years be many, and his soul be not filled with good, and also *that* he have no burial; I say, *that* an untimely birth *is* better than he.  
-> <sup>4</sup> For he cometh in with vanity, and departeth in darkness, and his name shall be covered with darkness.  
-> <sup>5</sup> Moreover he hath not seen the sun, nor known *any thing:* this hath more rest than the other.  
-> <sup>6</sup> Yea, though he live a thousand years twice *told,* yet hath he seen no good: do not all go to one place?  
+> **¹** There is an evil which I have seen under the sun, and it *is* common among men:  
+> **²** A man to whom God hath given riches, wealth, and honour, so that he wanteth nothing for his soul of all that he desireth, yet God giveth him not power to eat thereof, but a stranger eateth it: this *is* vanity, and it *is* an evil disease.  
+> **³** If a man beget a hundred *children,* and live many years, so that the days of his years be many, and his soul be not filled with good, and also *that* he have no burial; I say, *that* an untimely birth *is* better than he.  
+> **⁴** For he cometh in with vanity, and departeth in darkness, and his name shall be covered with darkness.  
+> **⁵** Moreover he hath not seen the sun, nor known *any thing:* this hath more rest than the other.  
+> **⁶** Yea, though he live a thousand years twice *told,* yet hath he seen no good: do not all go to one place?  
 
 Solomon had shown, in the close of the foregoing chapter, how good it is to make a comfortable use of the gifts of God's providence; now here he shows the evil of the contrary, having and not using, gathering to lay up for I know not what contingent emergencies to come, not to lay out on the most urgent occasions present. This *is an evil which* Solomon himself saw *under the sun,* Ec 6:1. A great deal of evil there is *under the sun.* There is a world above the sun where there is no evil, yet God *causes his sun to shine upon the evil* as well as upon *the good,* which is an aggravation of the evil. God has lighted up a candle for his servants to work by, but they bury their talent as slothful and unprofitable, and so waste the light and are unworthy of it. Solomon, as a king, inspected the manners of his subjects, and took notice of this evil as a prejudice to the public, who are damaged not only by men's prodigality on the one hand, but by their penuriousness on the other. As it is with the blood in the natural body, so it is with the wealth of the body politic, if, instead of circulating, it stagnates, it will be of ill consequence. Solomon as a preacher observed the evils that were done that he might reprove them and warn people against them. This evil was, in his days, *common,* and yet then there was great plenty of silver and gold, which, one would think, should have made people less fond of riches; the times also were peaceable, nor was there any prospect of trouble, which to some is a temptation to hoard. But no providence will of itself, unless the grace of God work with it, cure the corrupt affection that is in the carnal mind to the world and the things of it; nay, when *riches increase* we are most apt to set our *hearts upon them.* Now concerning this miser observe,
 
@@ -35,10 +35,10 @@ The reason he gives why *this has more rest* is because *all go to one place* to
 
 ## The Insatiableness of Desire.
 
-> <sup>7</sup> All the labour of man *is* for his mouth, and yet the appetite is not filled.  
-> <sup>8</sup> For what hath the wise more than the fool? what hath the poor, that knoweth to walk before the living?  
-> <sup>9</sup> Better *is* the sight of the eyes than the wandering of the desire: this *is* also vanity and vexation of spirit.  
-> <sup>10</sup> That which hath been is named already, and it is known that it *is* man: neither may he contend with him that is mightier than he.  
+> **⁷** All the labour of man *is* for his mouth, and yet the appetite is not filled.  
+> **⁸** For what hath the wise more than the fool? what hath the poor, that knoweth to walk before the living?  
+> **⁹** Better *is* the sight of the eyes than the wandering of the desire: this *is* also vanity and vexation of spirit.  
+> **¹⁰** That which hath been is named already, and it is known that it *is* man: neither may he contend with him that is mightier than he.  
 
 The preacher here further shows the vanity and folly of heaping up worldly wealth and expecting happiness in it.
 
@@ -60,8 +60,8 @@ VIII\. How far soever our desires wander, and how closely soever our endeavours 
 
 ## The Insatiableness of Desire.
 
-> <sup>11</sup> Seeing there be many things that increase vanity, what *is* man the better?  
-> <sup>12</sup> For who knoweth what *is* good for man in *this* life, all the days of his vain life which he spendeth as a shadow? for who can tell a man what shall be after him under the sun?  
+> **¹¹** Seeing there be many things that increase vanity, what *is* man the better?  
+> **¹²** For who knoweth what *is* good for man in *this* life, all the days of his vain life which he spendeth as a shadow? for who can tell a man what shall be after him under the sun?  
 
 Here, 1. Solomon lays down his conclusion which he had undertaken to prove, as that which was fully confirmed by the foregoing discourse: *There be many things that increase vanity;* the life of man is vain, at the best, and there are abundance of accidents that concur to make it more so; even that which pretends to increase the vanity and make it more vexatious. 2. He draws some inferences from it, which serve further to evince the truth of it. (1.) That a man is never the nearer to true happiness for the abundance that he has in this world: *What is man the better* for his wealth and pleasure, his honour and preferment? What remains to man? What residuum has he, what overplus, what real advantage, when he comes to balance his accounts? Nothing that will do him any good or turn to account. (2.) That we do not know what to wish for, because that which we promise ourselves most satisfaction in often proves most vexatious to us: *Who knows what is good for a man in this life,* where every thing is vanity, and any thing, even that which we most covet, may prove a calamity to us? Thoughtful people are in care to do every thing for the best, if they knew it; but as it is an instance of the corruption of our hearts that we are apt to desire that as good for us which is really hurtful, as children that cry for knives to cut their fingers with, so is it an instance of the vanity of this world that what, according to all probable conjectures, seems to be for the best, often proves otherwise; such is our shortsightedness concerning the issues and events of things, and such broken reeds are all our creature-confidences. We know not how to advise others for the best, nor how to act ourselves, because that which we apprehend likely to be for our welfare may become a trap. (3.) That therefore our life upon earth is what we have no reason to take any great complacency in, or to be confident of the continuance of. It is to be reckoned by *days;* it is but a *vain life,* and we spend it *as a shadow,* so little is there in it substantial, so fleeting, so uncertain, so transitory is it, and so little in it to be fond of or to be depended on. If all the comforts of life be vanity, life itself can have no great reality in it to constitute a happiness for us. (4.) That our expectations from this world are as uncertain and deceitful as our enjoyments are. Since every thing is vanity, *Who can tell a man what shall be after him under the sun?* He can no more please himself with the hopes of *what shall be after him,* to his children and family, than with the relish of what is with him, since he can neither foresee himself, nor can any one else foretel to him, *what shall be after him.* Nor shall he have any intelligence sent him of it when he is gone. *His sons come to honour, and he knows it not.* So that, look which way we will, *Vanity of vanity, all is vanity.*
 

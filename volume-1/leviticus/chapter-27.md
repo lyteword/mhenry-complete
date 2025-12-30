@@ -8,19 +8,19 @@ The Le 26:46 seemed to close up the statute-book; yet this chapter is added as a
 
 ## The Law Concerning Vows. (b. c. 1490.)
 
-> <sup>1</sup> And the LORD spake unto Moses, saying,  
-> <sup>2</sup> Speak unto the children of Israel, and say unto them, When a man shall make a singular vow, the persons *shall be* for the LORD by thy estimation.  
-> <sup>3</sup> And thy estimation shall be of the male from twenty years old even unto sixty years old, even thy estimation shall be fifty shekels of silver, after the shekel of the sanctuary.  
-> <sup>4</sup> And if it *be* a female, then thy estimation shall be thirty shekels.  
-> <sup>5</sup> And if *it be* from five years old even unto twenty years old, then thy estimation shall be of the male twenty shekels, and for the female ten shekels.  
-> <sup>6</sup> And if *it be* from a month old even unto five years old, then thy estimation shall be of the male five shekels of silver, and for the female thy estimation *shall be* three shekels of silver.  
-> <sup>7</sup> And if *it be* from sixty years old and above; if *it be* a male, then thy estimation shall be fifteen shekels, and for the female ten shekels.  
-> <sup>8</sup> But if he be poorer than thy estimation, then he shall present himself before the priest, and the priest shall value him; according to his ability that vowed shall the priest value him.  
-> <sup>9</sup> And if *it be* a beast, whereof men bring an offering unto the LORD, all that *any man* giveth of such unto the LORD shall be holy.  
-> <sup>10</sup> He shall not alter it, nor change it, a good for a bad, or a bad for a good: and if he shall at all change beast for beast, then it and the exchange thereof shall be holy.  
-> <sup>11</sup> And if *it be* any unclean beast, of which they do not offer a sacrifice unto the LORD, then he shall present the beast before the priest:  
-> <sup>12</sup> And the priest shall value it, whether it be good or bad: as thou valuest it, *who art* the priest, so shall it be.  
-> <sup>13</sup> But if he will at all redeem it, then he shall add a fifth *part* thereof unto thy estimation.  
+> **¹** And the LORD spake unto Moses, saying,  
+> **²** Speak unto the children of Israel, and say unto them, When a man shall make a singular vow, the persons *shall be* for the LORD by thy estimation.  
+> **³** And thy estimation shall be of the male from twenty years old even unto sixty years old, even thy estimation shall be fifty shekels of silver, after the shekel of the sanctuary.  
+> **⁴** And if it *be* a female, then thy estimation shall be thirty shekels.  
+> **⁵** And if *it be* from five years old even unto twenty years old, then thy estimation shall be of the male twenty shekels, and for the female ten shekels.  
+> **⁶** And if *it be* from a month old even unto five years old, then thy estimation shall be of the male five shekels of silver, and for the female thy estimation *shall be* three shekels of silver.  
+> **⁷** And if *it be* from sixty years old and above; if *it be* a male, then thy estimation shall be fifteen shekels, and for the female ten shekels.  
+> **⁸** But if he be poorer than thy estimation, then he shall present himself before the priest, and the priest shall value him; according to his ability that vowed shall the priest value him.  
+> **⁹** And if *it be* a beast, whereof men bring an offering unto the LORD, all that *any man* giveth of such unto the LORD shall be holy.  
+> **¹⁰** He shall not alter it, nor change it, a good for a bad, or a bad for a good: and if he shall at all change beast for beast, then it and the exchange thereof shall be holy.  
+> **¹¹** And if *it be* any unclean beast, of which they do not offer a sacrifice unto the LORD, then he shall present the beast before the priest:  
+> **¹²** And the priest shall value it, whether it be good or bad: as thou valuest it, *who art* the priest, so shall it be.  
+> **¹³** But if he will at all redeem it, then he shall add a fifth *part* thereof unto thy estimation.  
 
 This is part of the law concerning singular vows, extraordinary ones, which though God did not expressly insist on, yet, if they were consistent with and conformable to the general precepts, he would be well pleased with. Note, We should not only ask, What must we do, but, What may we do, for the glory and honour of God? As the *liberal devises liberal things* (Isa 32:8), so the pious devises pious things, and the enlarged heart would willingly do something extraordinary in the service of so good a Master as God is. When we receive or expect some singular mercy it is good to honour God with some singular vow.
 
@@ -30,18 +30,18 @@ II\. The case is put of beasts vowed to God, 1. If it was a clean beast, such as
 
 ## Concerning Things Sanctified. (b. c. 1490.)
 
-> <sup>14</sup> And when a man shall sanctify his house *to be* holy unto the LORD, then the priest shall estimate it, whether it be good or bad: as the priest shall estimate it, so shall it stand.  
-> <sup>15</sup> And if he that sanctified it will redeem his house, then he shall add the fifth *part* of the money of thy estimation unto it, and it shall be his.  
-> <sup>16</sup> And if a man shall sanctify unto the LORD *some part* of a field of his possession, then thy estimation shall be according to the seed thereof: an homer of barley seed *shall be valued* at fifty shekels of silver.  
-> <sup>17</sup> If he sanctify his field from the year of jubilee, according to thy estimation it shall stand.  
-> <sup>18</sup> But if he sanctify his field after the jubilee, then the priest shall reckon unto him the money according to the years that remain, even unto the year of the jubilee, and it shall be abated from thy estimation.  
-> <sup>19</sup> And if he that sanctified the field will in any wise redeem it, then he shall add the fifth *part* of the money of thy estimation unto it, and it shall be assured to him.  
-> <sup>20</sup> And if he will not redeem the field, or if he have sold the field to another man, it shall not be redeemed any more.  
-> <sup>21</sup> But the field, when it goeth out in the jubilee, shall be holy unto the LORD, as a field devoted; the possession thereof shall be the priest's.  
-> <sup>22</sup> And if *a man* sanctify unto the LORD a field which he hath bought, which *is* not of the fields of his possession;  
-> <sup>23</sup> Then the priest shall reckon unto him the worth of thy estimation, *even* unto the year of the jubilee: and he shall give thine estimation in that day, *as* a holy thing unto the LORD.  
-> <sup>24</sup> In the year of the jubilee the field shall return unto him of whom it was bought, *even* to him to whom the possession of the land *did belong.*  
-> <sup>25</sup> And all thy estimations shall be according to the shekel of the sanctuary: twenty gerahs shall be the shekel.  
+> **¹⁴** And when a man shall sanctify his house *to be* holy unto the LORD, then the priest shall estimate it, whether it be good or bad: as the priest shall estimate it, so shall it stand.  
+> **¹⁵** And if he that sanctified it will redeem his house, then he shall add the fifth *part* of the money of thy estimation unto it, and it shall be his.  
+> **¹⁶** And if a man shall sanctify unto the LORD *some part* of a field of his possession, then thy estimation shall be according to the seed thereof: an homer of barley seed *shall be valued* at fifty shekels of silver.  
+> **¹⁷** If he sanctify his field from the year of jubilee, according to thy estimation it shall stand.  
+> **¹⁸** But if he sanctify his field after the jubilee, then the priest shall reckon unto him the money according to the years that remain, even unto the year of the jubilee, and it shall be abated from thy estimation.  
+> **¹⁹** And if he that sanctified the field will in any wise redeem it, then he shall add the fifth *part* of the money of thy estimation unto it, and it shall be assured to him.  
+> **²⁰** And if he will not redeem the field, or if he have sold the field to another man, it shall not be redeemed any more.  
+> **²¹** But the field, when it goeth out in the jubilee, shall be holy unto the LORD, as a field devoted; the possession thereof shall be the priest's.  
+> **²²** And if *a man* sanctify unto the LORD a field which he hath bought, which *is* not of the fields of his possession;  
+> **²³** Then the priest shall reckon unto him the worth of thy estimation, *even* unto the year of the jubilee: and he shall give thine estimation in that day, *as* a holy thing unto the LORD.  
+> **²⁴** In the year of the jubilee the field shall return unto him of whom it was bought, *even* to him to whom the possession of the land *did belong.*  
+> **²⁵** And all thy estimations shall be according to the shekel of the sanctuary: twenty gerahs shall be the shekel.  
 
 Here is the law concerning real estates dedicated to the service of God by a singular vow.
 
@@ -53,15 +53,15 @@ II\. Suppose a man should sanctify some part of his land to the Lord, giving it 
 
 2\. If the land was his own purchase, and came not to him from his ancestors, then not the land itself, but the value of it was to be given to the priests for pious uses, Le 27:22,24. It was supposed that those who, by the blessing of God, had grown so rich as to become purchasers would think themselves obliged in gratitude to sanctify some part of their purchase, at least (and here they are not limited, but they might, if they pleased, sanctify the whole), to the service of God. For we ought to give *as God prospers us,* 1Co 16:2. Purchasers are in a special manner bound to be charitable. Now, forasmuch as purchased lands were by a former law to return at the year of jubilee to the family from which they were purchased, God would not have that law and the intentions of it defeated by making the lands *corban, a gift,* Mk 7:11. But it was to be computed how much the land was worth for so many years as were from the vow to the jubilee; for only so long it was his own, and God *hates robbery for burnt-offerings.* We can never acceptably serve God with that of which we have wronged our neighbour. And so much money he was to give for the present, and keep the land in his own hands till the year of jubilee, when it was to return free of all encumbrances, even that of its being dedicated to him of whom it was bought. The value of the shekel by which all these estimations were to be made is here ascertained (Le 27:25); it shall be twenty gerahs, and every gerah was sixteen barley-corns. This was fixed before (Ex 30:13); and, whereas there had been some alterations, it is again fixed in the laws of Ezekiel's visionary temple (Eze 45:12), to denote that the gospel should reduce things to their ancient standard.
 
-> <sup>26</sup> Only the firstling of the beasts, which should be the LORD's firstling, no man shall sanctify it; whether *it be* ox, or sheep: it *is* the LORD's.  
-> <sup>27</sup> And if *it be* of an unclean beast, then he shall redeem *it* according to thine estimation, and shall add a fifth *part* of it thereto: or if it be not redeemed, then it shall be sold according to thy estimation.  
-> <sup>28</sup> Notwithstanding no devoted thing, that a man shall devote unto the LORD of all that he hath, *both* of man and beast, and of the field of his possession, shall be sold or redeemed: every devoted thing *is* most holy unto the LORD.  
-> <sup>29</sup> None devoted, which shall be devoted of men, shall be redeemed; *but* shall surely be put to death.  
-> <sup>30</sup> And all the tithe of the land, *whether* of the seed of the land, *or* of the fruit of the tree, *is* the LORD's: *it is* holy unto the LORD.  
-> <sup>31</sup> And if a man will at all redeem *ought* of his tithes, he shall add thereto the fifth *part* thereof.  
-> <sup>32</sup> And concerning the tithe of the herd, or of the flock, *even* of whatsoever passeth under the rod, the tenth shall be holy unto the LORD.  
-> <sup>33</sup> He shall not search whether it be good or bad, neither shall he change it: and if he change it at all, then both it and the change thereof shall be holy; it shall not be redeemed.  
-> <sup>34</sup> These *are* the commandments, which the LORD commanded Moses for the children of Israel in Mount Sinai.  
+> **²⁶** Only the firstling of the beasts, which should be the LORD's firstling, no man shall sanctify it; whether *it be* ox, or sheep: it *is* the LORD's.  
+> **²⁷** And if *it be* of an unclean beast, then he shall redeem *it* according to thine estimation, and shall add a fifth *part* of it thereto: or if it be not redeemed, then it shall be sold according to thy estimation.  
+> **²⁸** Notwithstanding no devoted thing, that a man shall devote unto the LORD of all that he hath, *both* of man and beast, and of the field of his possession, shall be sold or redeemed: every devoted thing *is* most holy unto the LORD.  
+> **²⁹** None devoted, which shall be devoted of men, shall be redeemed; *but* shall surely be put to death.  
+> **³⁰** And all the tithe of the land, *whether* of the seed of the land, *or* of the fruit of the tree, *is* the LORD's: *it is* holy unto the LORD.  
+> **³¹** And if a man will at all redeem *ought* of his tithes, he shall add thereto the fifth *part* thereof.  
+> **³²** And concerning the tithe of the herd, or of the flock, *even* of whatsoever passeth under the rod, the tenth shall be holy unto the LORD.  
+> **³³** He shall not search whether it be good or bad, neither shall he change it: and if he change it at all, then both it and the change thereof shall be holy; it shall not be redeemed.  
+> **³⁴** These *are* the commandments, which the LORD commanded Moses for the children of Israel in Mount Sinai.  
 
 Here is, I. A caution given that no man should make such a jest of sanctifying things to the Lord as to sanctify any firstling to him, for that was his already by the law, Le 27:26. Though the matter of a general vow be that which we were before obliged to, as of our sacramental covenant, yet a singular vow should be of that which we were not, in such circumstances and proportions, antecedently bound to. The law concerning the firstlings of unclean beasts (Le 27:27) is the same with that before, Le 27:11,12.
 

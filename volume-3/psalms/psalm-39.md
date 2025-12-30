@@ -10,12 +10,12 @@ David seems to have been in a great strait when he penned this psalm, and, upon 
 
 To the chief musician, *even* to Jeduthun. A psalm of David.
 
-> <sup>1</sup> I said, I will take heed to my ways, that I sin not with my tongue: I will keep my mouth with a bridle, while the wicked is before me.  
-> <sup>2</sup> I was dumb with silence, I held my peace, *even* from good; and my sorrow was stirred.  
-> <sup>3</sup> My heart was hot within me, while I was musing the fire burned: *then* spake I with my tongue,  
-> <sup>4</sup> LORD, make me to know mine end, and the measure of my days, what it *is; that* I may know how frail I *am.*  
-> <sup>5</sup> Behold, thou hast made my days *as* a handbreadth; and mine age *is* as nothing before thee: verily every man at his best state *is* altogether vanity. Selah.  
-> <sup>6</sup> Surely every man walketh in a vain show: surely they are disquieted in vain: he heapeth up *riches,* and knoweth not who shall gather them.  
+> **¹** I said, I will take heed to my ways, that I sin not with my tongue: I will keep my mouth with a bridle, while the wicked is before me.  
+> **²** I was dumb with silence, I held my peace, *even* from good; and my sorrow was stirred.  
+> **³** My heart was hot within me, while I was musing the fire burned: *then* spake I with my tongue,  
+> **⁴** LORD, make me to know mine end, and the measure of my days, what it *is; that* I may know how frail I *am.*  
+> **⁵** Behold, thou hast made my days *as* a handbreadth; and mine age *is* as nothing before thee: verily every man at his best state *is* altogether vanity. Selah.  
+> **⁶** Surely every man walketh in a vain show: surely they are disquieted in vain: he heapeth up *riches,* and knoweth not who shall gather them.  
 
 David here recollects, and leaves upon record, the workings of his heart under his afflictions; and it is good for us to do so, that what was thought amiss may be amended, and what was well thought of may be improved the next time.
 
@@ -41,13 +41,13 @@ IV\. When he did speak, at last, it was to the purpose: *At the last I spoke wit
 
 ## Confidence in God; David Pleading with God.
 
-> <sup>7</sup> And now, Lord, what wait I for? my hope *is* in thee.  
-> <sup>8</sup> Deliver me from all my transgressions: make me not the reproach of the foolish.  
-> <sup>9</sup> I was dumb, I opened not my mouth; because thou didst *it.*  
-> <sup>10</sup> Remove thy stroke away from me: I am consumed by the blow of thine hand.  
-> <sup>11</sup> When thou with rebukes dost correct man for iniquity, thou makest his beauty to consume away like a moth: surely every man *is* vanity. Selah.  
-> <sup>12</sup> Hear my prayer, O LORD, and give ear unto my cry; hold not thy peace at my tears: for I *am* a stranger with thee, *and* a sojourner, as all my fathers *were.*  
-> <sup>13</sup> O spare me, that I may recover strength, before I go hence, and be no more.  
+> **⁷** And now, Lord, what wait I for? my hope *is* in thee.  
+> **⁸** Deliver me from all my transgressions: make me not the reproach of the foolish.  
+> **⁹** I was dumb, I opened not my mouth; because thou didst *it.*  
+> **¹⁰** Remove thy stroke away from me: I am consumed by the blow of thine hand.  
+> **¹¹** When thou with rebukes dost correct man for iniquity, thou makest his beauty to consume away like a moth: surely every man *is* vanity. Selah.  
+> **¹²** Hear my prayer, O LORD, and give ear unto my cry; hold not thy peace at my tears: for I *am* a stranger with thee, *and* a sojourner, as all my fathers *were.*  
+> **¹³** O spare me, that I may recover strength, before I go hence, and be no more.  
 
 The psalmist, having meditated on the shortness and uncertainty of life, and the vanity and vexation of spirit that attend all the comforts of life, here, in these verses, turns his eyes and heart heaven-ward. When there is no solid satisfaction to be had in the creature it is to be found in God, and in communion with him; and to him we should be driven by our disappointments in the world. David here expresses,
 

@@ -8,9 +8,9 @@ The pedigree and family of Abram we had an account of in the foregoing chapter; 
 
 ## The Call of Abram. (b. c. 1921.)
 
-> <sup>1</sup> Now the LORD had said unto Abram, Get thee out of thy country, and from thy kindred, and from thy father's house, unto a land that I will show thee:  
-> <sup>2</sup> And I will make of thee a great nation, and I will bless thee, and make thy name great; and thou shalt be a blessing:  
-> <sup>3</sup> And I will bless them that bless thee, and curse him that curseth thee: and in thee shall all families of the earth be blessed.  
+> **¹** Now the LORD had said unto Abram, Get thee out of thy country, and from thy kindred, and from thy father's house, unto a land that I will show thee:  
+> **²** And I will make of thee a great nation, and I will bless thee, and make thy name great; and thou shalt be a blessing:  
+> **³** And I will bless them that bless thee, and curse him that curseth thee: and in thee shall all families of the earth be blessed.  
 
 We have here the call by which Abram was removed out of the land of his nativity into the land of promise, which was designed both to try his faith and obedience and also to separate him and set him apart for God, and for special services and favours which were further designed. The circumstances of this call we may be somewhat helped to the knowledge of from Stephen's speech, Ac 7:2, where we are told, 1. That the God of glory appeared to him to give him this call, appeared in such displays of his glory as left Abram no room to doubt the divine authority of this call. God spoke to him afterwards in divers manners; but this first time, when the correspondence was to be settled, he appeared to him as *the God of glory,* and spoke to him. 2. That this call was given him in Mesopotamia, before he dwelt in Charran; therefore we rightly read it, *The Lord* had *said unto Abram,* namely, in Ur of the Chaldees; and, in obedience to this call, as Stephen further relates the story (Ac 7:4), *he came out of the land of the Chaldeans, and dwelt in Charran, or Haran, about five years, and thence, when his father was dead,* by a fresh command, pursuant to the former, God removed him into the land of Canaan. Some think that Haran was in Chaldea, and so was still a part of Abram's country, or that Abram, having staid there five years, began to call it his country, and to take root there, till God let him know this was not the place he was intended for. Note, If God loves us, and has mercy in store for us, he will not suffer us to take up our rest any where short of Canaan, but will graciously repeat his calls, till the good work begun be performed, and our souls repose in God only. In the call itself we have a precept and a promise.
 
@@ -36,8 +36,8 @@ II\. Here is an encouraging promise, nay, it is a complication of promises, many
 
 ## Arrival of Abram in Canaan. (b. c. 1920.)
 
-> <sup>4</sup> So Abram departed, as the LORD had spoken unto him; and Lot went with him: and Abram *was* seventy and five years old when he departed out of Haran.  
-> <sup>5</sup> And Abram took Sarai his wife, and Lot his brother's son, and all their substance that they had gathered, and the souls that they had gotten in Haran; and they went forth to go into the land of Canaan; and into the land of Canaan they came.  
+> **⁴** So Abram departed, as the LORD had spoken unto him; and Lot went with him: and Abram *was* seventy and five years old when he departed out of Haran.  
+> **⁵** And Abram took Sarai his wife, and Lot his brother's son, and all their substance that they had gathered, and the souls that they had gotten in Haran; and they went forth to go into the land of Canaan; and into the land of Canaan they came.  
 
 Here is, I. Abraham's removal out of his country, out of Ur first and afterwards out of Haran, in compliance with the call of God: *So Abram departed;* he was not disobedient to the heavenly vision, but did as he was bidden, not conferring with flesh and blood, Ga 1:15,16. His obedience was speedy and without delay, submissive and without dispute; for he *went out, not knowing whither he went* (Heb 11:8), but knowing whom he followed and under whose direction he went. Thus God *called him to his foot,* Isa 41:2.
 
@@ -55,10 +55,10 @@ IV\. Here is their happy arrival at their journey's end: *They went forth to go 
 
 ## Abram's Devotion. (b. c. 1921.)
 
-> <sup>6</sup> And Abram passed through the land unto the place of Sichem, unto the plain of Moreh. And the Canaanite *was* then in the land.  
-> <sup>7</sup> And the LORD appeared unto Abram, and said, Unto thy seed will I give this land: and there builded he an altar unto the LORD, who appeared unto him.  
-> <sup>8</sup> And he removed from thence unto a mountain on the east of Beth-el, and pitched his tent, *having* Beth-el on the west, and Hai on the east: and there he builded an altar unto the LORD, and called upon the name of the LORD.  
-> <sup>9</sup> And Abram journeyed, going on still toward the south.  
+> **⁶** And Abram passed through the land unto the place of Sichem, unto the plain of Moreh. And the Canaanite *was* then in the land.  
+> **⁷** And the LORD appeared unto Abram, and said, Unto thy seed will I give this land: and there builded he an altar unto the LORD, who appeared unto him.  
+> **⁸** And he removed from thence unto a mountain on the east of Beth-el, and pitched his tent, *having* Beth-el on the west, and Hai on the east: and there he builded an altar unto the LORD, and called upon the name of the LORD.  
+> **⁹** And Abram journeyed, going on still toward the south.  
 
 One would have expected that Abram having had such an extraordinary call to Canaan some great event should have followed upon his arrival there, that he should have been introduced with all possible marks of honour and respect, and that the kings of Canaan should immediately have surrendered their crowns to him, and done him homage. But no; he comes not with observation, little notice is taken of him, for still God will have him to live by faith, and to look upon Canaan, even when he was in it, as a land of promise; therefore observe here,
 
@@ -72,10 +72,10 @@ II\. How much comfort he had in the God he followed; when he could have little s
 
 ## Abram's Removal into Egypt. (b. c. 1920.)
 
-> <sup>10</sup> And there was a famine in the land: and Abram went down into Egypt to sojourn there; for the famine *was* grievous in the land.  
-> <sup>11</sup> And it came to pass, when he was come near to enter into Egypt, that he said unto Sarai his wife, Behold now, I know that thou *art* a fair woman to look upon:  
-> <sup>12</sup> Therefore it shall come to pass, when the Egyptians shall see thee, that they shall say, This *is* his wife: and they will kill me, but they will save thee alive.  
-> <sup>13</sup> Say, I pray thee, thou *art* my sister: that it may be well with me for thy sake; and my soul shall live because of thee.  
+> **¹⁰** And there was a famine in the land: and Abram went down into Egypt to sojourn there; for the famine *was* grievous in the land.  
+> **¹¹** And it came to pass, when he was come near to enter into Egypt, that he said unto Sarai his wife, Behold now, I know that thou *art* a fair woman to look upon:  
+> **¹²** Therefore it shall come to pass, when the Egyptians shall see thee, that they shall say, This *is* his wife: and they will kill me, but they will save thee alive.  
+> **¹³** Say, I pray thee, thou *art* my sister: that it may be well with me for thy sake; and my soul shall live because of thee.  
 
 Here is, I. A famine in the land of Canaan, *a grievous famine.* That fruitful land was turned into barrenness, not only to punish the iniquity of the Canaanites who dwelt therein, but to exercise the faith of Abram who sojourned therein; and a very sore trial it was; it tried what he would think, 1. Of God that brought him thither, whether he would not be ready to say with his murmuring seed that he was brought forth to be *killed with hunger,* Ex 16:3. Nothing short of a strong faith could keep up good thoughts of God under such a providence. 2. Of the land of promise, whether he would think the grant of it worth the accepting, and a valuable consideration for the relinquishing of his own country, when, for aught that now appeared, it was a land that *ate up the inhabitants.* Now he was tried whether he could preserve an unshaken confidence that the God who brought him to Canaan would maintain him there, and whether he could rejoice in him as the God of his salvation when the fig-tree did not blossom, Hab 3:17,18. Note, (1.) Strong faith is commonly exercised with divers temptations, that it may be *found to praise, and honour, and glory,* 1Pe 1:6,7. (2.) It pleases God sometimes to try those with great afflictions who are but young beginners in religion. (3.) It is possible for a man to be in the way of duty, and in the way to happiness, and yet meet with great troubles and disappointments.
 
@@ -85,13 +85,13 @@ III\. A great fault which Abram was guilty of, in denying his wife, and pretendi
 
 ## Abram's Denial of His Wife. (b. c. 1920.)
 
-> <sup>14</sup> And it came to pass, that, when Abram was come into Egypt, the Egyptians beheld the woman that she *was* very fair.  
-> <sup>15</sup> The princes also of Pharaoh saw her, and commended her before Pharaoh: and the woman was taken into Pharaoh's house.  
-> <sup>16</sup> And he entreated Abram well for her sake: and he had sheep, and oxen, and he asses, and menservants, and maidservants, and she asses, and camels.  
-> <sup>17</sup> And the LORD plagued Pharaoh and his house with great plagues because of Sarai Abram's wife.  
-> <sup>18</sup> And Pharaoh called Abram, and said, What *is* this *that* thou hast done unto me? why didst thou not tell me that she *was* thy wife?  
-> <sup>19</sup> Why saidst thou, She *is* my sister? so I might have taken her to me to wife: now therefore behold thy wife, take *her,* and go thy way.  
-> <sup>20</sup> And Pharaoh commanded *his* men concerning him: and they sent him away, and his wife, and all that he had.  
+> **¹⁴** And it came to pass, that, when Abram was come into Egypt, the Egyptians beheld the woman that she *was* very fair.  
+> **¹⁵** The princes also of Pharaoh saw her, and commended her before Pharaoh: and the woman was taken into Pharaoh's house.  
+> **¹⁶** And he entreated Abram well for her sake: and he had sheep, and oxen, and he asses, and menservants, and maidservants, and she asses, and camels.  
+> **¹⁷** And the LORD plagued Pharaoh and his house with great plagues because of Sarai Abram's wife.  
+> **¹⁸** And Pharaoh called Abram, and said, What *is* this *that* thou hast done unto me? why didst thou not tell me that she *was* thy wife?  
+> **¹⁹** Why saidst thou, She *is* my sister? so I might have taken her to me to wife: now therefore behold thy wife, take *her,* and go thy way.  
+> **²⁰** And Pharaoh commanded *his* men concerning him: and they sent him away, and his wife, and all that he had.  
 
 Here is, I. The danger Sarai was in of having her chastity violated by the king of Egypt: and without doubt the peril of sin is the greatest peril we can be in. *Pharaoh's princes* (his pimps rather) *saw her, and,* observing what a comely woman she was, they *commended her before Pharaoh,* not for that which was really her praise—her virtue and modesty, her faith and piety (these were no excellencies in their eyes), but for her beauty, which they thought too good for the embraces of a subject. They recommended her to the king, and she was presently taken into Pharaoh's house, as Esther into the seraglio of Ahasuerus (Es 2:8), in order to her being taken into his bed. Now we must not look upon Sarai as standing fair for preferment, but as entering into temptation; and the occasions of it were her own beauty (which is a snare to many) and Abram's equivocation, which is a sin that commonly is an inlet to much sin. While Sarai was in this danger, Abram fared the better for her sake. Pharaoh gave him sheep, oxen, etc. (Ge 12:16), to gain his consent, that he might the more readily prevail with her whom he supposed to be his sister. We cannot think that Abram expected this when he came down into Egypt, much less that he had an eye to it when he denied his wife; but God brought good out of evil. And thus the wealth of the sinner proves, in some way or other, to be laid up for the just.
 

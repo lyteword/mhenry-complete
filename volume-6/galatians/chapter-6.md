@@ -8,16 +8,16 @@ This chapter chiefly consists of two parts. In the former the apostle gives us s
 
 ## Tenderness in Reproving; Self-Examination; Spiritual Mindedness and Beneficence. (a. d. 56.)
 
-> <sup>1</sup> Brethren, if a man be overtaken in a fault, ye which are spiritual, restore such an one in the spirit of meekness; considering thyself, lest thou also be tempted.  
-> <sup>2</sup> Bear ye one another's burdens, and so fulfil the law of Christ.  
-> <sup>3</sup> For if a man think himself to be something, when he is nothing, he deceiveth himself.  
-> <sup>4</sup> But let every man prove his own work, and then shall he have rejoicing in himself alone, and not in another.  
-> <sup>5</sup> For every man shall bear his own burden.  
-> <sup>6</sup> Let him that is taught in the word communicate unto him that teacheth in all good things.  
-> <sup>7</sup> Be not deceived; God is not mocked: for whatsoever a man soweth, that shall he also reap.  
-> <sup>8</sup> For he that soweth to his flesh shall of the flesh reap corruption; but he that soweth to the Spirit shall of the Spirit reap life everlasting.  
-> <sup>9</sup> And let us not be weary in well doing: for in due season we shall reap, if we faint not.  
-> <sup>10</sup> As we have therefore opportunity, let us do good unto all *men,* especially unto them who are of the household of faith.  
+> **¹** Brethren, if a man be overtaken in a fault, ye which are spiritual, restore such an one in the spirit of meekness; considering thyself, lest thou also be tempted.  
+> **²** Bear ye one another's burdens, and so fulfil the law of Christ.  
+> **³** For if a man think himself to be something, when he is nothing, he deceiveth himself.  
+> **⁴** But let every man prove his own work, and then shall he have rejoicing in himself alone, and not in another.  
+> **⁵** For every man shall bear his own burden.  
+> **⁶** Let him that is taught in the word communicate unto him that teacheth in all good things.  
+> **⁷** Be not deceived; God is not mocked: for whatsoever a man soweth, that shall he also reap.  
+> **⁸** For he that soweth to his flesh shall of the flesh reap corruption; but he that soweth to the Spirit shall of the Spirit reap life everlasting.  
+> **⁹** And let us not be weary in well doing: for in due season we shall reap, if we faint not.  
+> **¹⁰** As we have therefore opportunity, let us do good unto all *men,* especially unto them who are of the household of faith.  
 
 The apostle having, in the foregoing chapter, exhorted Christians *by love to serve one another* (Ga 5:13), and also cautioned us (Ga 5:16) against a temper which, if indulged, would hinder us from showing the mutual love and serviceableness which he had recommended, in the beginning of this chapter he proceeds to give some further directions, which, if duly observed, would both promote the one and prevent the other of these, and render our behaviour both more agreeable to our Christian profession and more useful and comfortable to one another: particularly,
 
@@ -41,14 +41,14 @@ VII\. Here is an exhortation to all Christians to do good in their places (Ga 6:
 
 ## Character of Seducing Teachers; Efficacy of the Cross of Christ; Apostolical Benediction. (a. d. 56.)
 
-> <sup>11</sup> Ye see how large a letter I have written unto you with mine own hand.  
-> <sup>12</sup> As many as desire to make a fair show in the flesh, they constrain you to be circumcised; only lest they should suffer persecution for the cross of Christ.  
-> <sup>13</sup> For neither they themselves who are circumcised keep the law; but desire to have you circumcised, that they may glory in your flesh.  
-> <sup>14</sup> But God forbid that I should glory, save in the cross of our Lord Jesus Christ, by whom the world is crucified unto me, and I unto the world.  
-> <sup>15</sup> For in Christ Jesus neither circumcision availeth any thing, nor uncircumcision, but a new creature.  
-> <sup>16</sup> And as many as walk according to this rule, peace *be* on them, and mercy, and upon the Israel of God.  
-> <sup>17</sup> From henceforth let no man trouble me: for I bear in my body the marks of the Lord Jesus.  
-> <sup>18</sup> Brethren, the grace of our Lord Jesus Christ *be* with your spirit. Amen.  
+> **¹¹** Ye see how large a letter I have written unto you with mine own hand.  
+> **¹²** As many as desire to make a fair show in the flesh, they constrain you to be circumcised; only lest they should suffer persecution for the cross of Christ.  
+> **¹³** For neither they themselves who are circumcised keep the law; but desire to have you circumcised, that they may glory in your flesh.  
+> **¹⁴** But God forbid that I should glory, save in the cross of our Lord Jesus Christ, by whom the world is crucified unto me, and I unto the world.  
+> **¹⁵** For in Christ Jesus neither circumcision availeth any thing, nor uncircumcision, but a new creature.  
+> **¹⁶** And as many as walk according to this rule, peace *be* on them, and mercy, and upon the Israel of God.  
+> **¹⁷** From henceforth let no man trouble me: for I bear in my body the marks of the Lord Jesus.  
+> **¹⁸** Brethren, the grace of our Lord Jesus Christ *be* with your spirit. Amen.  
 
 The apostle, having at large established the doctrine of the gospel, and endeavoured to persuade these Christians to a behaviour agreeable to it, seems as if he intended here to have put an end to the epistle, especially when he had acquainted them that, as a particular mark of his respect for them, he had written this large letter with his own hand, and had not made use of another as his amanuensis, and only subscribed his name to it, as he was wont to do in his other epistles: but such is his affection to them such his concern to recover them from the bad impressions made upon them by their false teachers, that he cannot break off till he has once again given them the true character of those teachers, and an account of his own contrary temper and behaviour, that by comparing these together they might the more easily see how little reason they had to depart from the doctrine he had taught them and to comply with theirs.
 

@@ -10,13 +10,13 @@ This psalm is much to the same purport with the foregoing. Some think it was pen
 
 To the chief musician upon Shoshannim, Eduth. A psalm of Asaph.
 
-> <sup>1</sup> Give ear, O Shepherd of Israel, thou that leadest Joseph like a flock; thou that dwellest *between* the cherubims, shine forth.  
-> <sup>2</sup> Before Ephraim and Benjamin and Manasseh stir up thy strength, and come *and* save us.  
-> <sup>3</sup> Turn us again, O God, and cause thy face to shine; and we shall be saved.  
-> <sup>4</sup> O LORD God of hosts, how long wilt thou be angry against the prayer of thy people?  
-> <sup>5</sup> Thou feedest them with the bread of tears; and givest them tears to drink in great measure.  
-> <sup>6</sup> Thou makest us a strife unto our neighbours: and our enemies laugh among themselves.  
-> <sup>7</sup> Turn us again, O God of hosts, and cause thy face to shine; and we shall be saved.  
+> **¹** Give ear, O Shepherd of Israel, thou that leadest Joseph like a flock; thou that dwellest *between* the cherubims, shine forth.  
+> **²** Before Ephraim and Benjamin and Manasseh stir up thy strength, and come *and* save us.  
+> **³** Turn us again, O God, and cause thy face to shine; and we shall be saved.  
+> **⁴** O LORD God of hosts, how long wilt thou be angry against the prayer of thy people?  
+> **⁵** Thou feedest them with the bread of tears; and givest them tears to drink in great measure.  
+> **⁶** Thou makest us a strife unto our neighbours: and our enemies laugh among themselves.  
+> **⁷** Turn us again, O God of hosts, and cause thy face to shine; and we shall be saved.  
 
 The psalmist here, in the name of the church, applies to God by prayer, with reference to the present afflicted state of Israel.
 
@@ -28,18 +28,18 @@ III\. He prays earnestly for converting grace in order to their acceptance with 
 
 ## The Desolated Vine.
 
-> <sup>8</sup> Thou hast brought a vine out of Egypt: thou hast cast out the heathen, and planted it.  
-> <sup>9</sup> Thou preparedst *room* before it, and didst cause it to take deep root, and it filled the land.  
-> <sup>10</sup> The hills were covered with the shadow of it, and the boughs thereof *were like* the goodly cedars.  
-> <sup>11</sup> She sent out her boughs unto the sea, and her branches unto the river.  
-> <sup>12</sup> Why hast thou *then* broken down her hedges, so that all they which pass by the way do pluck her?  
-> <sup>13</sup> The boar out of the wood doth waste it, and the wild beast of the field doth devour it.  
-> <sup>14</sup> Return, we beseech thee, O God of hosts: look down from heaven, and behold, and visit this vine;  
-> <sup>15</sup> And the vineyard which thy right hand hath planted, and the branch *that* thou madest strong for thyself.  
-> <sup>16</sup> *It is* burned with fire, *it is* cut down: they perish at the rebuke of thy countenance.  
-> <sup>17</sup> Let thy hand be upon the man of thy right hand, upon the son of man *whom* thou madest strong for thyself.  
-> <sup>18</sup> So will not we go back from thee: quicken us, and we will call upon thy name.  
-> <sup>19</sup> Turn us again, O LORD God of hosts, cause thy face to shine; and we shall be saved.  
+> **⁸** Thou hast brought a vine out of Egypt: thou hast cast out the heathen, and planted it.  
+> **⁹** Thou preparedst *room* before it, and didst cause it to take deep root, and it filled the land.  
+> **¹⁰** The hills were covered with the shadow of it, and the boughs thereof *were like* the goodly cedars.  
+> **¹¹** She sent out her boughs unto the sea, and her branches unto the river.  
+> **¹²** Why hast thou *then* broken down her hedges, so that all they which pass by the way do pluck her?  
+> **¹³** The boar out of the wood doth waste it, and the wild beast of the field doth devour it.  
+> **¹⁴** Return, we beseech thee, O God of hosts: look down from heaven, and behold, and visit this vine;  
+> **¹⁵** And the vineyard which thy right hand hath planted, and the branch *that* thou madest strong for thyself.  
+> **¹⁶** *It is* burned with fire, *it is* cut down: they perish at the rebuke of thy countenance.  
+> **¹⁷** Let thy hand be upon the man of thy right hand, upon the son of man *whom* thou madest strong for thyself.  
+> **¹⁸** So will not we go back from thee: quicken us, and we will call upon thy name.  
+> **¹⁹** Turn us again, O LORD God of hosts, cause thy face to shine; and we shall be saved.  
 
 The psalmist is here presenting his suit for the Israel of God, and pressing it home at the throne of grace, pleading with God for mercy and grace for them. The church is here represented as a vine (Ps 80:8,14) and a vineyard, Ps 80:15. The root of this vine is Christ, Ro 11:18. The branches are believers, Joh 15:5. The church is like a vine, weak and needing support, unsightly and having an unpromising outside, but spreading and fruitful, and its fruit most excellent. The church is a choice and noble vine; we have reason to acknowledge the goodness of God that he has planted such a vine in the wilderness of this world, and preserved it to this day. Now observe here,
 

@@ -8,8 +8,8 @@ We have here, I. An account of the penman of this epistle, a character of the ch
 
 ## Apostolic Benediction. (a. d. 66.)
 
-> <sup>1</sup> Jude, the servant of Jesus Christ, and brother of James, to them that are sanctified by God the Father, and preserved in Jesus Christ, *and* called:  
-> <sup>2</sup> Mercy unto you, and peace, and love, be multiplied.  
+> **¹** Jude, the servant of Jesus Christ, and brother of James, to them that are sanctified by God the Father, and preserved in Jesus Christ, *and* called:  
+> **²** Mercy unto you, and peace, and love, be multiplied.  
 
 Here we have the preface or introduction, in which,
 
@@ -21,11 +21,11 @@ III\. We have the apostolical benediction: *Mercy to you,* etc. From the mercy, 
 
 ## The Common Salvation; Monuments of Judgment. (a. d. 66.)
 
-> <sup>3</sup> Beloved, when I gave all diligence to write unto you of the common salvation, it was needful for me to write unto you, and exhort *you* that ye should earnestly contend for the faith which was once delivered unto the saints.  
-> <sup>4</sup> For there are certain men crept in unawares, who were before of old ordained to this condemnation, ungodly men, turning the grace of our God into lasciviousness, and denying the only Lord God, and our Lord Jesus Christ.  
-> <sup>5</sup> I will therefore put you in remembrance, though ye once knew this, how that the Lord, having saved the people out of the land of Egypt, afterward destroyed them that believed not.  
-> <sup>6</sup> And the angels which kept not their first estate, but left their own habitation, he hath reserved in everlasting chains under darkness unto the judgment of the great day.  
-> <sup>7</sup> Even as Sodom and Gomorrha, and the cities about them in like manner, giving themselves over to fornication, and going after strange flesh, are set forth for an example, suffering the vengeance of eternal fire.  
+> **³** Beloved, when I gave all diligence to write unto you of the common salvation, it was needful for me to write unto you, and exhort *you* that ye should earnestly contend for the faith which was once delivered unto the saints.  
+> **⁴** For there are certain men crept in unawares, who were before of old ordained to this condemnation, ungodly men, turning the grace of our God into lasciviousness, and denying the only Lord God, and our Lord Jesus Christ.  
+> **⁵** I will therefore put you in remembrance, though ye once knew this, how that the Lord, having saved the people out of the land of Egypt, afterward destroyed them that believed not.  
+> **⁶** And the angels which kept not their first estate, but left their own habitation, he hath reserved in everlasting chains under darkness unto the judgment of the great day.  
+> **⁷** Even as Sodom and Gomorrha, and the cities about them in like manner, giving themselves over to fornication, and going after strange flesh, are set forth for an example, suffering the vengeance of eternal fire.  
 
 We have here, I. The design of the apostle in writing this epistle to the lately converted Jews and Gentiles; namely, to establish them in the Christian faith, and a practice and conversation truly consonant and conformable thereunto, and in an open and bold profession thereof, especially in times of notorious opposition, whether by artful seduction or violent and inhuman persecution. But then we must see to it very carefully that it be really the Christian faith that we believe, profess, propagate, and contend for; not the discriminating badges of this or the other party, not any thing of later date than the inspired writings of the holy evangelists and apostles. Here observe, 1. The gospel salvation is a common salvation, that is, in a most sincere offer and tender of it to all mankind to whom the notice of it reaches: for so the commission runs (Mk 16:15,16), *Go you into all the world, and preach the gospel to every creature,* etc. Surely God means as he speaks; he does not delude us with vain words, whatever men do; and therefore none are excluded from the benefit of these gracious offers and invitations, but those who obstinately, impenitently, finally exclude themselves. *Whoever will may come and drink of the water of life freely,* Re 22:17. The application of it is made to all believers, and only to such; it is made to the weak as well as to the strong. Let none discourage themselves on the account of hidden decrees which they can know little of, and with which they have nothing to do. God's decrees are dark, his covenants are plain. "All good Christians meet in Christ the common head, are actuated by one and the same Spirit, are guided by one rule, meet here at one throne of grace, and hope shortly to meet in one common inheritance," a glorious one to be sure, but what or how glorious we cannot, nor at present need to know; but such it will be as vastly to exceed all our present hopes and expectations. 2. This common salvation is the subject-matter of the faith of all the saints. The doctrine of it is what they all most heartily consent to; they esteem it as a *faithful saying, and worthy of all acceptation,* 1Ti 1:15. It is the faith once, *or at once, once for all, delivered to the saints,* to which nothing can be added, from which nothing may be detracted, in which nothing more nor less should be altered. Here let us abide; here we are safe; if we stir a step further, we are in danger of being either entangled or seduced. 3. The apostles and evangelists all wrote to us of this common salvation. This cannot be doubted by those who have carefully read their writings. It is strange that any should think they wrote chiefly to maintain particular schemes and opinions, especially such as they never did nor could think of. It is enough that they have fully declared to us, by inspiration of the Holy Ghost, all that is necessary *for every one to believe and do,* in order to obtain a personal interest in the common salvation. 4. Those who preach or write of the common salvation should give all diligence to do it well: they should not allow themselves to offer to God or his people that which costs them nothing, or next to nothing, little or no pains or thought, 2Sa 24:24. This were to treat God irreverently, and man unjustly. The apostle (though inspired) gave all diligence to write of the common salvation. What then will become of those who (though uninspired) give no diligence, or next to none, but say to the people (even in the name of God) *quicquid in buccam venerit—whatever comes next,* who, so that they use scripture-words, care not how they interpret or apply them? Those who speak of sacred things ought always to speak of them with the greatest reverence, care, and diligence. 5. Those who have received the doctrine of this common salvation must contend earnestly for it. *Earnestly,* not *furiously.* Those who strive for the Christian faith, or in the Christian course, must strive lawfully, or they lose their labour, and run great hazard of losing their crown, 2Ti 2:5. *The wrath of man worketh not the righteousness of God,* Jam 1:20. Lying for the truth is bad, and scolding for it is not much better. Observe, Those who have received the truth must contend for it. But how? As the apostles did; by suffering patiently and courageously for it, not by making others suffer if they will not presently embrace every notion that we are pleased (proved or unproved) to call faith, or fundamental. We must not suffer ourselves to be robbed of any essential article of Christian faith, by the cunning craftiness or specious plausible pretences of any who *lie in wait to deceive,* Eph 4:14. The apostle Paul tells us he preached the gospel (mind it was the gospel) *with much contention* (1Th 2:2), that is (as I understand it), with earnestness, with a hearty zeal, and a great concern for the success of what he preached. But, if we will understand *contention* in the common acceptation of the word, we must impartially consider with whom the apostle contended, and how, the enlarging on which would not be proper for this place.
 
@@ -43,13 +43,13 @@ Now what are these things which we Christians need to be put in remembrance of?
 
 ## Contumacious Professors. (a. d. 66.)
 
-> <sup>8</sup> Likewise also these *filthy* dreamers defile the flesh, despise dominion, and speak evil of dignities.  
-> <sup>9</sup> Yet Michael the archangel, when contending with the devil he disputed about the body of Moses, durst not bring against him a railing accusation, but said, The Lord rebuke thee.  
-> <sup>10</sup> But these speak evil of those things which they know not: but what they know naturally, as brute beasts, in those things they corrupt themselves.  
-> <sup>11</sup> Woe unto them! for they have gone in the way of Cain, and ran greedily after the error of Balaam for reward, and perished in the gainsaying of Core.  
-> <sup>12</sup> These are spots in your feasts of charity, when they feast with you, feeding themselves without fear: clouds *they are* without water, carried about of winds; trees whose fruit withereth, without fruit, twice dead, plucked up by the roots;  
-> <sup>13</sup> Raging waves of the sea, foaming out their own shame; wandering stars, to whom is reserved the blackness of darkness for ever.  
-> <sup>14</sup> And Enoch also, the seventh from Adam, prophesied of these, saying, Behold, the Lord cometh with ten thousands of his saints,  
+> **⁸** Likewise also these *filthy* dreamers defile the flesh, despise dominion, and speak evil of dignities.  
+> **⁹** Yet Michael the archangel, when contending with the devil he disputed about the body of Moses, durst not bring against him a railing accusation, but said, The Lord rebuke thee.  
+> **¹⁰** But these speak evil of those things which they know not: but what they know naturally, as brute beasts, in those things they corrupt themselves.  
+> **¹¹** Woe unto them! for they have gone in the way of Cain, and ran greedily after the error of Balaam for reward, and perished in the gainsaying of Core.  
+> **¹²** These are spots in your feasts of charity, when they feast with you, feeding themselves without fear: clouds *they are* without water, carried about of winds; trees whose fruit withereth, without fruit, twice dead, plucked up by the roots;  
+> **¹³** Raging waves of the sea, foaming out their own shame; wandering stars, to whom is reserved the blackness of darkness for ever.  
+> **¹⁴** And Enoch also, the seventh from Adam, prophesied of these, saying, Behold, the Lord cometh with ten thousands of his saints,  
 
 The apostle here exhibits a charge against deceivers who were now seducing the disciples of Christ from the profession and practice of his holy religion. He calls them *filthy dreamers,* forasmuch as delusion is a dream, and the beginning of, and inlet to, all manner of filthiness. Note, Sin is filthiness; it renders men odious and vile in the sight of the most holy God, and makes them (sooner or later, as penitent or as punished to extremity and without resource) vile in their own eyes, and in a while they become vile in the eyes of all about them. *These filthy dreamers* dream themselves into a fool's paradise on earth, and into a real hell at last: let their character, course, and end, be our seasonable and sufficient warning; like sins will produce like punishments and miseries. Here,
 
@@ -73,17 +73,17 @@ I cannot pass Jude 1:15 without taking notice how often, and how emphatically, t
 
 ## Exhortation to the Faithful; Conclusion. (a. d. 66.)
 
-> <sup>15</sup> To execute judgment upon all, and to convince all that are ungodly among them of all their ungodly deeds which they have ungodly committed, and of all their hard *speeches* which ungodly sinners have spoken against him.  
-> <sup>16</sup> These are murmurers, complainers, walking after their own lusts; and their mouth speaketh great swelling *words,* having men's persons in admiration because of advantage.  
-> <sup>17</sup> But, beloved, remember ye the words which were spoken before of the apostles of our Lord Jesus Christ;  
-> <sup>18</sup> How that they told you there should be mockers in the last time, who should walk after their own ungodly lusts.  
-> <sup>19</sup> These be they who separate themselves, sensual, having not the Spirit.  
-> <sup>20</sup> But ye, beloved, building up yourselves on your most holy faith, praying in the Holy Ghost,  
-> <sup>21</sup> Keep yourselves in the love of God, looking for the mercy of our Lord Jesus Christ unto eternal life.  
-> <sup>22</sup> And of some have compassion, making a difference:  
-> <sup>23</sup> And others save with fear, pulling *them* out of the fire; hating even the garment spotted by the flesh.  
-> <sup>24</sup> Now unto him that is able to keep you from falling, and to present *you* faultless before the presence of his glory with exceeding joy,  
-> <sup>25</sup> To the only wise God our Saviour, *be* glory and majesty, dominion and power, both now and ever. Amen.  
+> **¹⁵** To execute judgment upon all, and to convince all that are ungodly among them of all their ungodly deeds which they have ungodly committed, and of all their hard *speeches* which ungodly sinners have spoken against him.  
+> **¹⁶** These are murmurers, complainers, walking after their own lusts; and their mouth speaketh great swelling *words,* having men's persons in admiration because of advantage.  
+> **¹⁷** But, beloved, remember ye the words which were spoken before of the apostles of our Lord Jesus Christ;  
+> **¹⁸** How that they told you there should be mockers in the last time, who should walk after their own ungodly lusts.  
+> **¹⁹** These be they who separate themselves, sensual, having not the Spirit.  
+> **²⁰** But ye, beloved, building up yourselves on your most holy faith, praying in the Holy Ghost,  
+> **²¹** Keep yourselves in the love of God, looking for the mercy of our Lord Jesus Christ unto eternal life.  
+> **²²** And of some have compassion, making a difference:  
+> **²³** And others save with fear, pulling *them* out of the fire; hating even the garment spotted by the flesh.  
+> **²⁴** Now unto him that is able to keep you from falling, and to present *you* faultless before the presence of his glory with exceeding joy,  
+> **²⁵** To the only wise God our Saviour, *be* glory and majesty, dominion and power, both now and ever. Amen.  
 
 Here, I. The apostle enlarges further on the character of these evil men and seducers: they *are murmurers, complainers,* etc., Jude 1:16. Observe, A murmuring complaining temper, indulged and expressed, lays men under a very bad character; such are very weak at least, and for the most part very wicked. They murmur against God and his providence, against men and their conduct; they are angry at every thing that happens, and never pleased with their own state and condition in the world, as not thinking it good enough for them. Such *walk after their own lusts;* their will, their appetite, their fancy, are their only rule and law. Note, Those who please their sinful appetites are most prone to yield to their ungovernable passions.
 

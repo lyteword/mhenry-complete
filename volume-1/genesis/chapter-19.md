@@ -8,20 +8,20 @@ The contents of this chapter we have, 2Pe 2:6-8, where we find that "God, turnin
 
 ## Assault on the House of Lot. (b. c. 1898.)
 
-> <sup>1</sup> And there came two angels to Sodom at even; and Lot sat in the gate of Sodom: and Lot seeing *them* rose up to meet them; and he bowed himself with his face toward the ground;  
-> <sup>2</sup> And he said, Behold now, my lords, turn in, I pray you, into your servant's house, and tarry all night, and wash your feet, and ye shall rise up early, and go on your ways. And they said, Nay; but we will abide in the street all night.  
-> <sup>3</sup> And he pressed upon them greatly; and they turned in unto him, and entered into his house; and he made them a feast, and did bake unleavened bread, and they did eat.  
+> **¹** And there came two angels to Sodom at even; and Lot sat in the gate of Sodom: and Lot seeing *them* rose up to meet them; and he bowed himself with his face toward the ground;  
+> **²** And he said, Behold now, my lords, turn in, I pray you, into your servant's house, and tarry all night, and wash your feet, and ye shall rise up early, and go on your ways. And they said, Nay; but we will abide in the street all night.  
+> **³** And he pressed upon them greatly; and they turned in unto him, and entered into his house; and he made them a feast, and did bake unleavened bread, and they did eat.  
 
 These angels, it is likely, were two of the three that had just before been with Abraham, the two created angels that were sent to execute God's purpose concerning Sodom. Observe here, 1. There was but one good man in Sodom, and these heavenly messengers soon found him out. Wherever we are, we should enquire out those of the place that live in the fear of God, and should choose to associate ourselves with them. Mt 10:11, *Enquire who is worthy, and there abide.* Those of the same country, when they are in a foreign country, love to be together. 2. Lot sufficiently distinguished himself from the rest of his neighbours, at this time, which plainly set a mark upon him. He that did not act like the rest must not fare like the rest. (1.) Lot sat in the gate of Sodom at even. When the rest, it is likely, were tippling and drinking, he sat alone, waiting for an opportunity to do good. (2.) He was extremely respectful to men whose mien and aspect were sober and serious, though they did not come in state. He bowed himself to the ground, when he met them, as if, upon the first view, he discerned something divine in them. (3.) He was hospitable, and very free and generous in his invitations and entertainments. He courted these strangers to his house, and to the best accommodations he had, and gave them all the evidences that he could of his sincerity; for, [1.] When the angels, to try whether he was hearty in the invitation, declined the acceptance of it, at first (which is the common usage of modesty, and no reproach at all to truth and honesty), their refusal did not make him more importunate; for he *pressed upon them greatly* (Ge 19:3), partly because he would by no means have them to expose themselves to the inconveniences and perils of lodging in the street of Sodom, and partly because he was desirous of their company and converse. He had not seen two such honest faces in Sodom this great while. Note, Those that live in bad places should know how to value the society of those that are wise and good, and earnestly desire it. [2.] When the angels accepted his invitation, he treated them nobly; he made a feast for them, and thought it well-bestowed on such guests. Note, Good people should be (with prudence) generous people.
 
-> <sup>4</sup> But before they lay down, the men of the city, *even* the men of Sodom, compassed the house round, both old and young, all the people from every quarter:  
-> <sup>5</sup> And they called unto Lot, and said unto him, Where *are* the men which came in to thee this night? bring them out unto us, that we may know them.  
-> <sup>6</sup> And Lot went out at the door unto them, and shut the door after him,  
-> <sup>7</sup> And said, I pray you, brethren, do not so wickedly.  
-> <sup>8</sup> Behold now, I have two daughters which have not known man; let me, I pray you, bring them out unto you, and do ye to them as *is* good in your eyes: only unto these men do nothing; for therefore came they under the shadow of my roof.  
-> <sup>9</sup> And they said, Stand back. And they said *again,* This one *fellow* came in to sojourn, and he will needs be a judge: now will we deal worse with thee, than with them. And they pressed sore upon the man, *even* Lot, and came near to break the door.  
-> <sup>10</sup> But the men put forth their hand, and pulled Lot into the house to them, and shut to the door.  
-> <sup>11</sup> And they smote the men that *were* at the door of the house with blindness, both small and great: so that they wearied themselves to find the door.  
+> **⁴** But before they lay down, the men of the city, *even* the men of Sodom, compassed the house round, both old and young, all the people from every quarter:  
+> **⁵** And they called unto Lot, and said unto him, Where *are* the men which came in to thee this night? bring them out unto us, that we may know them.  
+> **⁶** And Lot went out at the door unto them, and shut the door after him,  
+> **⁷** And said, I pray you, brethren, do not so wickedly.  
+> **⁸** Behold now, I have two daughters which have not known man; let me, I pray you, bring them out unto you, and do ye to them as *is* good in your eyes: only unto these men do nothing; for therefore came they under the shadow of my roof.  
+> **⁹** And they said, Stand back. And they said *again,* This one *fellow* came in to sojourn, and he will needs be a judge: now will we deal worse with thee, than with them. And they pressed sore upon the man, *even* Lot, and came near to break the door.  
+> **¹⁰** But the men put forth their hand, and pulled Lot into the house to them, and shut to the door.  
+> **¹¹** And they smote the men that *were* at the door of the house with blindness, both small and great: so that they wearied themselves to find the door.  
 
 Now it appeared, beyond contradiction, that the cry of Sodom was no louder than there was cause for. This night's work was enough to fill the measure. For we find here,
 
@@ -33,9 +33,9 @@ III\. That nothing less than the power of an angel could save a good man out of 
 
 ## Rescue of Lot out of Sodom. (b. c. 1898.)
 
-> <sup>12</sup> And the men said unto Lot, Hast thou here any besides? son in law, and thy sons, and thy daughters, and whatsoever thou hast in the city, bring *them* out of this place:  
-> <sup>13</sup> For we will destroy this place, because the cry of them is waxen great before the face of the LORD; and the LORD hath sent us to destroy it.  
-> <sup>14</sup> And Lot went out, and spake unto his sons in law, which married his daughters, and said, Up, get you out of this place; for the LORD will destroy this city. But he seemed as one that mocked unto his sons in law.  
+> **¹²** And the men said unto Lot, Hast thou here any besides? son in law, and thy sons, and thy daughters, and whatsoever thou hast in the city, bring *them* out of this place:  
+> **¹³** For we will destroy this place, because the cry of them is waxen great before the face of the LORD; and the LORD hath sent us to destroy it.  
+> **¹⁴** And Lot went out, and spake unto his sons in law, which married his daughters, and said, Up, get you out of this place; for the LORD will destroy this city. But he seemed as one that mocked unto his sons in law.  
 
 We have here the preparation for Lot's deliverance.
 
@@ -45,15 +45,15 @@ II\. He is directed to give notice to his friends and relations, that they, it t
 
 III\. He applies himself accordingly to his sons-in-law, Ge 19:14. Observe, 1. The fair warning that Lot gave them: *Up, get you out of this place.* The manner of expression is startling and quickening. It was no time to trifle when the destruction was just at the door. They had not forty days to repent in, as the Ninevites had. Now or never they must make their escape. At midnight this cry was made. Such as this is our call to the unconverted, to turn and live. 2. The slight they put upon this warning: *He seemed to them as one that mocked.* They thought, perhaps, that the assault which the Sodomites had just now made upon his house had disturbed his head, and put him into such a fright that he knew not what he said; or they thought that he was not in earnest with them. Those who lived a merry life, and made a jest of everything, made a jest of this warning, and so they perished in the overthrow. Thus many who are warned of the misery and danger they are in by sin make a light matter of it, and think their ministers do but jest with them; such will perish with their blood upon their own heads.
 
-> <sup>15</sup> And when the morning arose, then the angels hastened Lot, saying, Arise, take thy wife, and thy two daughters, which are here; lest thou be consumed in the iniquity of the city.  
-> <sup>16</sup> And while he lingered, the men laid hold upon his hand, and upon the hand of his wife, and upon the hand of his two daughters; the LORD being merciful unto him: and they brought him forth, and set him without the city.  
-> <sup>17</sup> And it came to pass, when they had brought them forth abroad, that he said, Escape for thy life; look not behind thee, neither stay thou in all the plain; escape to the mountain, lest thou be consumed.  
-> <sup>18</sup> And Lot said unto them, Oh, not so, my Lord:  
-> <sup>19</sup> Behold now, thy servant hath found grace in thy sight, and thou hast magnified thy mercy, which thou hast showed unto me in saving my life; and I cannot escape to the mountain, lest some evil take me, and I die:  
-> <sup>20</sup> Behold now, this city *is* near to flee unto, and it *is* a little one: Oh, let me escape thither, (*is* it not a little one?) and my soul shall live.  
-> <sup>21</sup> And he said unto him, See, I have accepted thee concerning this thing also, that I will not overthrow this city, for the which thou hast spoken.  
-> <sup>22</sup> Haste thee, escape thither; for I cannot do any thing till thou be come thither. Therefore the name of the city was called Zoar.  
-> <sup>23</sup> The sun was risen upon the earth when Lot entered into Zoar.  
+> **¹⁵** And when the morning arose, then the angels hastened Lot, saying, Arise, take thy wife, and thy two daughters, which are here; lest thou be consumed in the iniquity of the city.  
+> **¹⁶** And while he lingered, the men laid hold upon his hand, and upon the hand of his wife, and upon the hand of his two daughters; the LORD being merciful unto him: and they brought him forth, and set him without the city.  
+> **¹⁷** And it came to pass, when they had brought them forth abroad, that he said, Escape for thy life; look not behind thee, neither stay thou in all the plain; escape to the mountain, lest thou be consumed.  
+> **¹⁸** And Lot said unto them, Oh, not so, my Lord:  
+> **¹⁹** Behold now, thy servant hath found grace in thy sight, and thou hast magnified thy mercy, which thou hast showed unto me in saving my life; and I cannot escape to the mountain, lest some evil take me, and I die:  
+> **²⁰** Behold now, this city *is* near to flee unto, and it *is* a little one: Oh, let me escape thither, (*is* it not a little one?) and my soul shall live.  
+> **²¹** And he said unto him, See, I have accepted thee concerning this thing also, that I will not overthrow this city, for the which thou hast spoken.  
+> **²²** Haste thee, escape thither; for I cannot do any thing till thou be come thither. Therefore the name of the city was called Zoar.  
+> **²³** The sun was risen upon the earth when Lot entered into Zoar.  
 
 Here is, I. The rescue of Lot out of Sodom. Though there were not ten righteous men in Sodom, for whose sakes it might be spared, yet that one righteous man that was among them delivered his own soul, Eze 14:14. Early in the morning his own guests, in kindness to him, turned him out of doors, and his family with him, Ge 19:15. His daughters that were married perished with their unbelieving husbands; but those that continued with him were preserved with him. Observe,
 
@@ -67,12 +67,12 @@ III\. It is taken notice of that the sun had risen when Lot entered into Zoar; f
 
 ## Destruction of Sodom and Gomorrah. (b. c. 1898.)
 
-> <sup>24</sup> Then the LORD rained upon Sodom and upon Gomorrah brimstone and fire from the LORD out of heaven;  
-> <sup>25</sup> And he overthrew those cities, and all the plain, and all the inhabitants of the cities, and that which grew upon the ground.  
+> **²⁴** Then the LORD rained upon Sodom and upon Gomorrah brimstone and fire from the LORD out of heaven;  
+> **²⁵** And he overthrew those cities, and all the plain, and all the inhabitants of the cities, and that which grew upon the ground.  
 
 *Then,* when Lot had got safely into Zoar, then this ruin came; for good men are taken away from the evil to come. *Then,* when the sun had risen bright and clear, promising a fair day, then this storm arose, to show that it was not from natural causes. Concerning this destruction observe, 1. God was the immediate author of it. It was destruction from the Almighty: *The Lord rained—from the Lord* (Ge 19:24), that is, God from himself, by his own immediate power, and not in the common course of nature. Or, God the Son from God the Father; for the Father has committed all judgment to the Son. Note, He that is the Saviour will be the destroyer of those that reject the salvation. 2. It was a strange punishment, Job 31:3. Never was the like before nor since. Hell was rained from heaven upon them. *Fire, and brimstone, and a horrible tempest, were the portion of their cup* (Ps 11:6); not a flash of lightning, which is destructive enough when God gives it commission, but a shower of lightning. Brimstone was scattered upon their habitation (Job 18:15), and then the fire soon fastened upon them. God could have drowned them, as he did the old world; but he would show that he has many arrows in his quiver, fire as well as water. 3. It was a judgment that laid all waste: *It overthrew the cities,* and destroyed all the inhabitants of them, the plain, and all that grew upon the ground, Ge 19:25. It was an utter ruin, and irreparable. That fruitful valley remains to this day a great lake, or dead sea; it is called *the Salt Sea,* Nu 34:12. Travellers say that it is about thirty miles long and ten miles broad; it has no living creature in it; it is not moved by the wind; the smell of it is offensive; things do not easily sink in it. The Greeks call it *Asphaltites,* from a sort of pitch which it casts up. Jordan falls into it, and is lost there. 4. It was a punishment that answered to their sin. Burning lusts against nature were justly punished with this preternatural burning. Those that went after strange flesh were destroyed by strange fire, Jude 1:7. They persecuted the angels with their rabble, and made Lot afraid; and now God persecuted them with his tempest, and made them afraid with his storm, Ps 83:15. 5. It was designed for a standing revelation of the wrath of God against sin and sinners in all ages. It is, accordingly, often referred to in the scripture, and made a pattern of the ruin of Israel (De 29:23), of Babylon (Isa 13:19), of Edom (Jer 49:17,18), of Moab and Ammon, Zep 2:9. Nay, it was typical of *the vengeance of eternal fire* (Jude 1:7), and the ruin of all *that live ungodly* (2Pe 2:6), especially that despise the gospel, Mt 10:15. It is in allusion to this destruction that the place of the damned is often represented by a lake that burns, as Sodom did, with fire and brimstone. Let us learn from it, (1.) The evil of sin, and the hurtful nature of it. Iniquity tends to ruin. (2.) The terrors of the Lord. See what a fearful thing it is to fall into the hands of the living God!
 
-> <sup>26</sup> But his wife looked back from behind him, and she became a pillar of salt.  
+> **²⁶** But his wife looked back from behind him, and she became a pillar of salt.  
 
 This also is written for our admonition. Our Saviour refers to it (Lu 17:32), *Remember Lot's wife.* As by the example of Sodom the wicked are warned to turn from their wickedness, so by the example of Lot's wife the righteous are warned not to turn from their righteousness. See Eze 3:18,20. We have here,
 
@@ -80,9 +80,9 @@ I\. The sin of Lot's wife: *She looked back from behind him.* This seemed a smal
 
 II\. The punishment of Lot's wife for this sin. She was struck dead in the place; yet her body did not fall down, but stood fixed and erect like a pillar, or monument, not liable to waste nor decay, as human bodies exposed to the air are, but metamorphosed into a metallic substance which would last perpetually. Come, behold the goodness and severity of God (Ro 11:22), towards Lot, who went forward, goodness; towards his wife, who looked back, severity. Though she was nearly related to a righteous man, though better than her neighbours, and though a monument of distinguishing mercy in her deliverance out of Sodom, yet God did not connive at her disobedience; for great privileges will not secure us from the wrath of God if we do not carefully and faithfully improve them. This pillar of salt should season us. Since it is such a dangerous thing to look back, let us always press forward, Php 3:13,14.
 
-> <sup>27</sup> And Abraham gat up early in the morning to the place where he stood before the LORD:  
-> <sup>28</sup> And he looked toward Sodom and Gomorrah, and toward all the land of the plain, and beheld, and, lo, the smoke of the country went up as the smoke of a furnace.  
-> <sup>29</sup> And it came to pass, when God destroyed the cities of the plain, that God remembered Abraham, and sent Lot out of the midst of the overthrow, when he overthrew the cities in the which Lot dwelt.  
+> **²⁷** And Abraham gat up early in the morning to the place where he stood before the LORD:  
+> **²⁸** And he looked toward Sodom and Gomorrah, and toward all the land of the plain, and beheld, and, lo, the smoke of the country went up as the smoke of a furnace.  
+> **²⁹** And it came to pass, when God destroyed the cities of the plain, that God remembered Abraham, and sent Lot out of the midst of the overthrow, when he overthrew the cities in the which Lot dwelt.  
 
 Our communion with God consists in our gracious regard to him and his gracious regard to us; we have here therefore the communion that was between God and Abraham, in the event concerning Sodom, as before in the consultation concerning it, for communion with God is to be kept up in providences as well as in ordinances.
 
@@ -92,15 +92,15 @@ II\. Here is God's favourable regard to Abraham, Ge 19:29. As before, when Abrah
 
 ## Lot's Disgrace. (b. c. 1898.)
 
-> <sup>30</sup> And Lot went up out of Zoar, and dwelt in the mountain, and his two daughters with him; for he feared to dwell in Zoar: and he dwelt in a cave, he and his two daughters.  
-> <sup>31</sup> And the firstborn said unto the younger, Our father *is* old, and *there is* not a man in the earth to come in unto us after the manner of all the earth:  
-> <sup>32</sup> Come, let us make our father drink wine, and we will lie with him, that we may preserve seed of our father.  
-> <sup>33</sup> And they made their father drink wine that night: and the firstborn went in, and lay with her father; and he perceived not when she lay down, nor when she arose.  
-> <sup>34</sup> And it came to pass on the morrow, that the firstborn said unto the younger, Behold, I lay yesternight with my father: let us make him drink wine this night also; and go thou in, *and* lie with him, that we may preserve seed of our father.  
-> <sup>35</sup> And they made their father drink wine that night also: and the younger arose, and lay with him; and he perceived not when she lay down, nor when she arose.  
-> <sup>36</sup> Thus were both the daughters of Lot with child by their father.  
-> <sup>37</sup> And the firstborn bare a son, and called his name Moab: the same *is* the father of the Moabites unto this day.  
-> <sup>38</sup> And the younger, she also bare a son, and called his name Ben-ammi: the same *is* the father of the children of Ammon unto this day.  
+> **³⁰** And Lot went up out of Zoar, and dwelt in the mountain, and his two daughters with him; for he feared to dwell in Zoar: and he dwelt in a cave, he and his two daughters.  
+> **³¹** And the firstborn said unto the younger, Our father *is* old, and *there is* not a man in the earth to come in unto us after the manner of all the earth:  
+> **³²** Come, let us make our father drink wine, and we will lie with him, that we may preserve seed of our father.  
+> **³³** And they made their father drink wine that night: and the firstborn went in, and lay with her father; and he perceived not when she lay down, nor when she arose.  
+> **³⁴** And it came to pass on the morrow, that the firstborn said unto the younger, Behold, I lay yesternight with my father: let us make him drink wine this night also; and go thou in, *and* lie with him, that we may preserve seed of our father.  
+> **³⁵** And they made their father drink wine that night also: and the younger arose, and lay with him; and he perceived not when she lay down, nor when she arose.  
+> **³⁶** Thus were both the daughters of Lot with child by their father.  
+> **³⁷** And the firstborn bare a son, and called his name Moab: the same *is* the father of the Moabites unto this day.  
+> **³⁸** And the younger, she also bare a son, and called his name Ben-ammi: the same *is* the father of the children of Ammon unto this day.  
 
 Here is, I. The great trouble and distress that Lot was brought into after his deliverance, Ge 19:30. 1. He was frightened out of Zoar, durst not dwell there; probably because he was conscious to himself that it was a refuge of his own choosing and that herein he had foolishly prescribed to God, and therefore he could not but distrust his safety in it; or because he found it as wicked as Sodom, and therefore concluded it could not long survive it; or perhaps he observed the rise and increase of those waters which after the conflagration, perhaps from Jordan, began to overflow the plain, and which, mixing with the ruins, by degrees made the Dead Sea; in those waters he concluded Zoar must needs perish (though it had escaped the fire) because it stood upon the same flat. Note, Settlements and shelters of our own choosing, and in which we do not follow God, commonly prove uneasy to us. 2. He was forced to betake himself to the mountain, and to take up with a cave for his habitation there. Methinks it was strange that he did not return to Abraham, and put himself under his protection, to whom he had once and again owed his safety: but the truth is there are some good men that are not wise enough to know what is best for themselves. Observe, (1.) He was now glad to go to the mountain, the place which God had appointed for his shelter. Note, It is well if disappointment in our way drive us at last to God's way. (2.) He that, awhile ago, could not find room enough for himself and his stock in the whole land, but must jostle with Abraham, and get as far from him as he could, is now confined to a hole in a hill, where he has scarcely room to turn himself, and there he is solitary and trembling. Note, It is just with God to reduce those to poverty and restraint who have abused their liberty and plenty. See also in Lot what those bring themselves to, at last, that forsake the communion of saints for secular advantages; they will be beaten with their own rod.
 

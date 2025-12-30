@@ -8,22 +8,22 @@ We have here some intermission of David's troubles by Saul. Providence favoured 
 
 ## The Death of Samuel. (b. c. 1057.)
 
-> <sup>1</sup> And Samuel died; and all the Israelites were gathered together, and lamented him, and buried him in his house at Ramah. And David arose, and went down to the wilderness of Paran.  
+> **¹** And Samuel died; and all the Israelites were gathered together, and lamented him, and buried him in his house at Ramah. And David arose, and went down to the wilderness of Paran.  
 
 We have here a short account of Samuel's death and burial. 1. Though he was a great man, and one that was admirably well qualified for public service, yet he spent the latter end of his days in retirement and obscurity, not because he was superannuated (for he knew how to preside in a college of the prophets, 1Sa 19:20), but because Israel had rejected him, for which God thus justly chastised them, and because his desire was to be quiet and to enjoy himself and his God in the exercises of devotion now in his advanced years, and in this desire God graciously indulged him. Let old people be willing to rest themselves, though it look like burying themselves alive. 2. Though he was a firm friend to David, for which Saul hated him, as also for dealing plainly with him, yet he died in peace even in the worst of the days of the tyranny of Saul, who, he sometimes feared, would kill him, 1Sa 16:2. Though Saul loved him not, yet he feared him, as Herod did John, and feared the people, for all knew him to be a prophet. Thus is Saul restrained from hurting him. 3. All Israel lamented him; and they had reason, for they had all a loss in him. His personal merits commanded this honour to be done him at his death. His former services to the public, when he judged Israel, made this respect to his name and memory a just debt; it would have been very ungrateful to have withheld it. The sons of the prophets had lost the founder and president of their college, and whatever weakened them was a public loss. But that was not all: Samuel was a constant intercessor for Israel, prayed daily for them, 1Sa 12:23. If he go, they part with the best friend they have. The loss is the more grievous at this juncture when Saul has grown so outrageous and David is driven from his country; never more need of Samuel than now, yet now he is removed. We will hope that the Israelites lamented Samuel's death the more bitterly because they remembered against themselves their own sin and folly in rejecting him and desiring a king. Note, (1.) Those have hard hearts who can bury their faithful ministers with dry eyes, who are not sensible of the loss of those who have prayed for them and taught them the way of the Lord. (2.) When God's providence removes our relations and friends from us we ought to be humbled for our misconduct towards them while they were with us. 4. They buried him, not in the school of the prophets at Naioth, but in his own house (or perhaps in the garden pertaining to it) at Ramah, where he was born. 5. David, thereupon, went down to the wilderness of Paran, retiring perhaps to mourn the more solemnly for the death of Samuel. Or, rather, because now that he had lost so good a friend, who was (and he hoped would be) a great support to him, he apprehended his danger to be greater than ever, and therefore withdrew to a wilderness, out of the limits of the land of Israel; and now it was that he *dwelt in the tents of Kedar,* Ps 120:5. In some parts of this wilderness of Paran Israel wandered when they came out of Egypt. The place would bring to mind God's care concerning them, and David might improve that for his own encouragement, now in his wilderness-state.
 
 ## David Sends to Nabal. (b. c. 1057.)
 
-> <sup>2</sup> And *there was* a man in Maon, whose possessions *were* in Carmel; and the man *was* very great, and he had three thousand sheep, and a thousand goats: and he was shearing his sheep in Carmel.  
-> <sup>3</sup> Now the name of the man *was* Nabal; and the name of his wife Abigail: and *she was* a woman of good understanding, and of a beautiful countenance: but the man *was* churlish and evil in his doings; and he *was* of the house of Caleb.  
-> <sup>4</sup> And David heard in the wilderness that Nabal did shear his sheep.  
-> <sup>5</sup> And David sent out ten young men, and David said unto the young men, Get you up to Carmel, and go to Nabal, and greet him in my name:  
-> <sup>6</sup> And thus shall ye say to him that liveth *in prosperity,* Peace *be* both to thee, and peace *be* to thine house, and peace *be* unto all that thou hast.  
-> <sup>7</sup> And now I have heard that thou hast shearers: now thy shepherds which were with us, we hurt them not, neither was there ought missing unto them, all the while they were in Carmel.  
-> <sup>8</sup> Ask thy young men, and they will shew thee. Wherefore let the young men find favour in thine eyes: for we come in a good day: give, I pray thee, whatsoever cometh to thine hand unto thy servants, and to thy son David.  
-> <sup>9</sup> And when David's young men came, they spake to Nabal according to all those words in the name of David, and ceased.  
-> <sup>10</sup> And Nabal answered David's servants, and said, Who *is* David? and who *is* the son of Jesse? there be many servants now a days that break away every man from his master.  
-> <sup>11</sup> Shall I then take my bread, and my water, and my flesh that I have killed for my shearers, and give *it* unto men, whom I know not whence they *be?*  
+> **²** And *there was* a man in Maon, whose possessions *were* in Carmel; and the man *was* very great, and he had three thousand sheep, and a thousand goats: and he was shearing his sheep in Carmel.  
+> **³** Now the name of the man *was* Nabal; and the name of his wife Abigail: and *she was* a woman of good understanding, and of a beautiful countenance: but the man *was* churlish and evil in his doings; and he *was* of the house of Caleb.  
+> **⁴** And David heard in the wilderness that Nabal did shear his sheep.  
+> **⁵** And David sent out ten young men, and David said unto the young men, Get you up to Carmel, and go to Nabal, and greet him in my name:  
+> **⁶** And thus shall ye say to him that liveth *in prosperity,* Peace *be* both to thee, and peace *be* to thine house, and peace *be* unto all that thou hast.  
+> **⁷** And now I have heard that thou hast shearers: now thy shepherds which were with us, we hurt them not, neither was there ought missing unto them, all the while they were in Carmel.  
+> **⁸** Ask thy young men, and they will shew thee. Wherefore let the young men find favour in thine eyes: for we come in a good day: give, I pray thee, whatsoever cometh to thine hand unto thy servants, and to thy son David.  
+> **⁹** And when David's young men came, they spake to Nabal according to all those words in the name of David, and ceased.  
+> **¹⁰** And Nabal answered David's servants, and said, Who *is* David? and who *is* the son of Jesse? there be many servants now a days that break away every man from his master.  
+> **¹¹** Shall I then take my bread, and my water, and my flesh that I have killed for my shearers, and give *it* unto men, whom I know not whence they *be?*  
 
 Here begins the story of Nabal.
 
@@ -45,12 +45,12 @@ III\. Nabal's churlish answer to this modest petition, 1Sa 25:10,11. One could n
 
 ## Abigail Wise Resolution. (b. c. 1057.)
 
-> <sup>12</sup> So David's young men turned their way, and went again, and came and told him all those sayings.  
-> <sup>13</sup> And David said unto his men, Gird ye on every man his sword. And they girded on every man his sword; and David also girded on his sword: and there went up after David about four hundred men; and two hundred abode by the stuff.  
-> <sup>14</sup> But one of the young men told Abigail, Nabal's wife, saying, Behold, David sent messengers out of the wilderness to salute our master; and he railed on them.  
-> <sup>15</sup> But the men *were* very good unto us, and we were not hurt, neither missed we any thing, as long as we were conversant with them, when we were in the fields:  
-> <sup>16</sup> They were a wall unto us both by night and day, all the while we were with them keeping the sheep.  
-> <sup>17</sup> Now therefore know and consider what thou wilt do; for evil is determined against our master, and against all his household: for he *is such* a son of Belial, that *a man* cannot speak to him.  
+> **¹²** So David's young men turned their way, and went again, and came and told him all those sayings.  
+> **¹³** And David said unto his men, Gird ye on every man his sword. And they girded on every man his sword; and David also girded on his sword: and there went up after David about four hundred men; and two hundred abode by the stuff.  
+> **¹⁴** But one of the young men told Abigail, Nabal's wife, saying, Behold, David sent messengers out of the wilderness to salute our master; and he railed on them.  
+> **¹⁵** But the men *were* very good unto us, and we were not hurt, neither missed we any thing, as long as we were conversant with them, when we were in the fields:  
+> **¹⁶** They were a wall unto us both by night and day, all the while we were with them keeping the sheep.  
+> **¹⁷** Now therefore know and consider what thou wilt do; for evil is determined against our master, and against all his household: for he *is such* a son of Belial, that *a man* cannot speak to him.  
 
 Here is, I. The report made to David of the abuse Nabal had given to his messengers (1Sa 25:12): *They turned their way.* They showed their displeasure, as became them to do, by breaking off abruptly from such a churl, but prudently governed themselves so well as not to render railing for railing, not to call him as he deserved, much less to take by force what ought of right to have been given them, but came and told David that he might do as he thought fit. Christ's servants, when they are thus abused, must leave it to him to plead his own cause and wait till he appear in it. The servant showed his lord what affronts he had received, but did not return them, Lu 14:21.
 
@@ -60,20 +60,20 @@ III\. The account given of this matter to Abigail by one of the servants, who wa
 
 ## Abigail Meets David. (b. c. 1057.)
 
-> <sup>18</sup> Then Abigail made haste, and took two hundred loaves, and two bottles of wine, and five sheep ready dressed, and five measures of parched *corn,* and a hundred clusters of raisins, and two hundred cakes of figs, and laid *them* on asses.  
-> <sup>19</sup> And she said unto her servants, Go on before me; behold, I come after you. But she told not her husband Nabal.  
-> <sup>20</sup> And it was *so, as* she rode on the ass, that she came down by the covert of the hill, and, behold, David and his men came down against her; and she met them.  
-> <sup>21</sup> Now David had said, Surely in vain have I kept all that this *fellow* hath in the wilderness, so that nothing was missed of all that *pertained* unto him: and he hath requited me evil for good.  
-> <sup>22</sup> So and more also do God unto the enemies of David, if I leave of all that *pertain* to him by the morning light any that pisseth against the wall.  
-> <sup>23</sup> And when Abigail saw David, she hasted, and lighted off the ass, and fell before David on her face, and bowed herself to the ground,  
-> <sup>24</sup> And fell at his feet, and said, Upon me, my lord, *upon* me *let this* iniquity *be:* and let thine handmaid, I pray thee, speak in thine audience, and hear the words of thine handmaid.  
-> <sup>25</sup> Let not my lord, I pray thee, regard this man of Belial, *even* Nabal: for as his name *is,* so *is* he; Nabal *is* his name, and folly *is* with him: but I thine handmaid saw not the young men of my lord, whom thou didst send.  
-> <sup>26</sup> Now therefore, my lord, *as* the LORD liveth, and *as* thy soul liveth, seeing the LORD hath withholden thee from coming to *shed* blood, and from avenging thyself with thine own hand, now let thine enemies, and they that seek evil to my lord, be as Nabal.  
-> <sup>27</sup> And now this blessing which thine handmaid hath brought unto my lord, let it even be given unto the young men that follow my lord.  
-> <sup>28</sup> I pray thee, forgive the trespass of thine handmaid: for the LORD will certainly make my lord a sure house; because my lord fighteth the battles of the LORD, and evil hath not been found in thee *all* thy days.  
-> <sup>29</sup> Yet a man is risen to pursue thee, and to seek thy soul: but the soul of my lord shall be bound in the bundle of life with the LORD thy God; and the souls of thine enemies, them shall he sling out, *as out* of the middle of a sling.  
-> <sup>30</sup> And it shall come to pass, when the LORD shall have done to my lord according to all the good that he hath spoken concerning thee, and shall have appointed thee ruler over Israel;  
-> <sup>31</sup> That this shall be no grief unto thee, nor offence of heart unto my lord, either that thou hast shed blood causeless, or that my lord hath avenged himself: but when the LORD shall have dealt well with my lord, then remember thine handmaid.  
+> **¹⁸** Then Abigail made haste, and took two hundred loaves, and two bottles of wine, and five sheep ready dressed, and five measures of parched *corn,* and a hundred clusters of raisins, and two hundred cakes of figs, and laid *them* on asses.  
+> **¹⁹** And she said unto her servants, Go on before me; behold, I come after you. But she told not her husband Nabal.  
+> **²⁰** And it was *so, as* she rode on the ass, that she came down by the covert of the hill, and, behold, David and his men came down against her; and she met them.  
+> **²¹** Now David had said, Surely in vain have I kept all that this *fellow* hath in the wilderness, so that nothing was missed of all that *pertained* unto him: and he hath requited me evil for good.  
+> **²²** So and more also do God unto the enemies of David, if I leave of all that *pertain* to him by the morning light any that pisseth against the wall.  
+> **²³** And when Abigail saw David, she hasted, and lighted off the ass, and fell before David on her face, and bowed herself to the ground,  
+> **²⁴** And fell at his feet, and said, Upon me, my lord, *upon* me *let this* iniquity *be:* and let thine handmaid, I pray thee, speak in thine audience, and hear the words of thine handmaid.  
+> **²⁵** Let not my lord, I pray thee, regard this man of Belial, *even* Nabal: for as his name *is,* so *is* he; Nabal *is* his name, and folly *is* with him: but I thine handmaid saw not the young men of my lord, whom thou didst send.  
+> **²⁶** Now therefore, my lord, *as* the LORD liveth, and *as* thy soul liveth, seeing the LORD hath withholden thee from coming to *shed* blood, and from avenging thyself with thine own hand, now let thine enemies, and they that seek evil to my lord, be as Nabal.  
+> **²⁷** And now this blessing which thine handmaid hath brought unto my lord, let it even be given unto the young men that follow my lord.  
+> **²⁸** I pray thee, forgive the trespass of thine handmaid: for the LORD will certainly make my lord a sure house; because my lord fighteth the battles of the LORD, and evil hath not been found in thee *all* thy days.  
+> **²⁹** Yet a man is risen to pursue thee, and to seek thy soul: but the soul of my lord shall be bound in the bundle of life with the LORD thy God; and the souls of thine enemies, them shall he sling out, *as out* of the middle of a sling.  
+> **³⁰** And it shall come to pass, when the LORD shall have done to my lord according to all the good that he hath spoken concerning thee, and shall have appointed thee ruler over Israel;  
+> **³¹** That this shall be no grief unto thee, nor offence of heart unto my lord, either that thou hast shed blood causeless, or that my lord hath avenged himself: but when the LORD shall have dealt well with my lord, then remember thine handmaid.  
 
 We have here an account of Abigail's prudent management for the preserving of her husband and family from the destruction that was just coming upon them; and we find that she did her part admirably well and fully answered her character. The passion of fools often makes those breaches in a little time which the wise, with all their wisdom, have much ado to make up again. It is hard to say whether Abigail was more miserable in such a husband or Nabal happy in such a wife. A *virtuous woman is a crown to her husband,* to protect as well as adorn, and will *do him good and not evil.* Wisdom in such a case as this was better than weapons of war. 1. It was her wisdom that what she did she did quickly, and without delay; she made haste, 1Sa 25:18. It was no time to trifle or linger when all was in danger. Those that desire conditions of peace must send when the enemy is yet a great way off, Lu 14:32. 2. It was her wisdom that what she did she did herself, because, being a woman of great prudence and very happy address, she knew better how to manage it than any servant she had. The virtuous woman will herself *look well to the ways of her household,* and not devolve this duty wholly upon others.
 
@@ -105,10 +105,10 @@ II\. By a most obliging demeanour, and charming speech, she atones for the abusi
 
 ## David Blesses Abigail. (b. c. 1057.)
 
-> <sup>32</sup> And David said to Abigail, Blessed *be* the LORD God of Israel, which sent thee this day to meet me:  
-> <sup>33</sup> And blessed *be* thy advice, and blessed *be* thou, which hast kept me this day from coming to *shed* blood, and from avenging myself with mine own hand.  
-> <sup>34</sup> For in very deed, *as* the LORD God of Israel liveth, which hath kept me back from hurting thee, except thou hadst hasted and come to meet me, surely there had not been left unto Nabal by the morning light any that pisseth against the wall.  
-> <sup>35</sup> So David received of her hand *that* which she had brought him, and said unto her, Go up in peace to thine house; see, I have hearkened to thy voice, and have accepted thy person.  
+> **³²** And David said to Abigail, Blessed *be* the LORD God of Israel, which sent thee this day to meet me:  
+> **³³** And blessed *be* thy advice, and blessed *be* thou, which hast kept me this day from coming to *shed* blood, and from avenging myself with mine own hand.  
+> **³⁴** For in very deed, *as* the LORD God of Israel liveth, which hath kept me back from hurting thee, except thou hadst hasted and come to meet me, surely there had not been left unto Nabal by the morning light any that pisseth against the wall.  
+> **³⁵** So David received of her hand *that* which she had brought him, and said unto her, Go up in peace to thine house; see, I have hearkened to thy voice, and have accepted thy person.  
 
 *As an ear-ring of gold, and an ornament of fine gold, so is a wise reprover upon an obedient ear,* Pr 25:12. Abigail was a wise reprover of David's passion, and he gave an obedient ear to the reproof, according to his own principle (Ps 141:5): *Let the righteous smite me, it shall be a kindness.* Never was such an admonition either better given or better taken.
 
@@ -122,15 +122,15 @@ IV\. He dismissed her with an answer of peace, 1Sa 25:35. He does, in effect, ow
 
 ## David Marries Abigail. (b. c. 1057.)
 
-> <sup>36</sup> And Abigail came to Nabal; and, behold, he held a feast in his house, like the feast of a king; and Nabal's heart *was* merry within him, for he *was* very drunken: wherefore she told him nothing, less or more, until the morning light.  
-> <sup>37</sup> But it came to pass in the morning, when the wine was gone out of Nabal, and his wife had told him these things, that his heart died within him, and he became *as* a stone.  
-> <sup>38</sup> And it came to pass about ten days *after,* that the LORD smote Nabal, that he died.  
-> <sup>39</sup> And when David heard that Nabal was dead, he said, Blessed *be* the LORD, that hath pleaded the cause of my reproach from the hand of Nabal, and hath kept his servant from evil: for the LORD hath returned the wickedness of Nabal upon his own head. And David sent and communed with Abigail, to take her to him to wife.  
-> <sup>40</sup> And when the servants of David were come to Abigail to Carmel, they spake unto her, saying, David sent us unto thee, to take thee to him to wife.  
-> <sup>41</sup> And she arose, and bowed herself on *her* face to the earth, and said, Behold, *let* thine handmaid *be* a servant to wash the feet of the servants of my lord.  
-> <sup>42</sup> And Abigail hasted, and arose, and rode upon an ass, with five damsels of hers that went after her; and she went after the messengers of David, and became his wife.  
-> <sup>43</sup> David also took Ahinoam of Jezreel; and they were also both of them his wives.  
-> <sup>44</sup> But Saul had given Michal his daughter, David's wife, to Phalti the son of Laish, which *was* of Gallim.  
+> **³⁶** And Abigail came to Nabal; and, behold, he held a feast in his house, like the feast of a king; and Nabal's heart *was* merry within him, for he *was* very drunken: wherefore she told him nothing, less or more, until the morning light.  
+> **³⁷** But it came to pass in the morning, when the wine was gone out of Nabal, and his wife had told him these things, that his heart died within him, and he became *as* a stone.  
+> **³⁸** And it came to pass about ten days *after,* that the LORD smote Nabal, that he died.  
+> **³⁹** And when David heard that Nabal was dead, he said, Blessed *be* the LORD, that hath pleaded the cause of my reproach from the hand of Nabal, and hath kept his servant from evil: for the LORD hath returned the wickedness of Nabal upon his own head. And David sent and communed with Abigail, to take her to him to wife.  
+> **⁴⁰** And when the servants of David were come to Abigail to Carmel, they spake unto her, saying, David sent us unto thee, to take thee to him to wife.  
+> **⁴¹** And she arose, and bowed herself on *her* face to the earth, and said, Behold, *let* thine handmaid *be* a servant to wash the feet of the servants of my lord.  
+> **⁴²** And Abigail hasted, and arose, and rode upon an ass, with five damsels of hers that went after her; and she went after the messengers of David, and became his wife.  
+> **⁴³** David also took Ahinoam of Jezreel; and they were also both of them his wives.  
+> **⁴⁴** But Saul had given Michal his daughter, David's wife, to Phalti the son of Laish, which *was* of Gallim.  
 
 We are now to attend Nabal's funeral and Abigail's wedding.
 

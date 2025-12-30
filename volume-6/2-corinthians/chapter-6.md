@@ -8,16 +8,16 @@ In this chapter the apostle gives an account of his general errand to all to who
 
 ## Ministry of the Apostles. (a. d. 57.)
 
-> <sup>1</sup> We then, *as* workers together *with him,* beseech *you* also that ye receive not the grace of God in vain.  
-> <sup>2</sup> (For he saith, I have heard thee in a time accepted, and in the day of salvation have I succoured thee: behold, now *is* the accepted time; behold, now *is* the day of salvation.)  
-> <sup>3</sup> Giving no offence in any thing, that the ministry be not blamed:  
-> <sup>4</sup> But in all *things* approving ourselves as the ministers of God, in much patience, in afflictions, in necessities, in distresses,  
-> <sup>5</sup> In stripes, in imprisonments, in tumults, in labours, in watchings, in fastings;  
-> <sup>6</sup> By pureness, by knowledge, by longsuffering, by kindness, by the Holy Ghost, by love unfeigned,  
-> <sup>7</sup> By the word of truth, by the power of God, by the armour of righteousness on the right hand and on the left,  
-> <sup>8</sup> By honour and dishonour, by evil report and good report: as deceivers, and *yet* true;  
-> <sup>9</sup> As unknown, and *yet* well known; as dying, and, behold, we live; as chastened, and not killed;  
-> <sup>10</sup> As sorrowful, yet alway rejoicing; as poor, yet making many rich; as having nothing, and *yet* possessing all things.  
+> **¹** We then, *as* workers together *with him,* beseech *you* also that ye receive not the grace of God in vain.  
+> **²** (For he saith, I have heard thee in a time accepted, and in the day of salvation have I succoured thee: behold, now *is* the accepted time; behold, now *is* the day of salvation.)  
+> **³** Giving no offence in any thing, that the ministry be not blamed:  
+> **⁴** But in all *things* approving ourselves as the ministers of God, in much patience, in afflictions, in necessities, in distresses,  
+> **⁵** In stripes, in imprisonments, in tumults, in labours, in watchings, in fastings;  
+> **⁶** By pureness, by knowledge, by longsuffering, by kindness, by the Holy Ghost, by love unfeigned,  
+> **⁷** By the word of truth, by the power of God, by the armour of righteousness on the right hand and on the left,  
+> **⁸** By honour and dishonour, by evil report and good report: as deceivers, and *yet* true;  
+> **⁹** As unknown, and *yet* well known; as dying, and, behold, we live; as chastened, and not killed;  
+> **¹⁰** As sorrowful, yet alway rejoicing; as poor, yet making many rich; as having nothing, and *yet* possessing all things.  
 
 In these verses we have an account of the apostle's general errand and exhortation to all to whom he preached in every place where he came, with the several arguments and methods he used. Observe,
 
@@ -33,14 +33,14 @@ II\. The arguments and method which the apostle used. And here he tells them,
 
 ## Cautions against Mingling with Unbelievers. (a. d. 57.)
 
-> <sup>11</sup> O *ye* Corinthians, our mouth is open unto you, our heart is enlarged.  
-> <sup>12</sup> Ye are not straitened in us, but ye are straitened in your own bowels.  
-> <sup>13</sup> Now for a recompence in the same, (I speak as unto *my* children,) be ye also enlarged.  
-> <sup>14</sup> Be ye not unequally yoked together with unbelievers: for what fellowship hath righteousness with unrighteousness? and what communion hath light with darkness?  
-> <sup>15</sup> And what concord hath Christ with Belial? or what part hath he that believeth with an infidel?  
-> <sup>16</sup> And what agreement hath the temple of God with idols? for ye are the temple of the living God; as God hath said, I will dwell in them, and walk in *them;* and I will be their God, and they shall be my people.  
-> <sup>17</sup> Wherefore come out from among them, and be ye separate, saith the Lord, and touch not the unclean *thing;* and I will receive you,  
-> <sup>18</sup> And will be a Father unto you, and ye shall be my sons and daughters, saith the Lord Almighty.  
+> **¹¹** O *ye* Corinthians, our mouth is open unto you, our heart is enlarged.  
+> **¹²** Ye are not straitened in us, but ye are straitened in your own bowels.  
+> **¹³** Now for a recompence in the same, (I speak as unto *my* children,) be ye also enlarged.  
+> **¹⁴** Be ye not unequally yoked together with unbelievers: for what fellowship hath righteousness with unrighteousness? and what communion hath light with darkness?  
+> **¹⁵** And what concord hath Christ with Belial? or what part hath he that believeth with an infidel?  
+> **¹⁶** And what agreement hath the temple of God with idols? for ye are the temple of the living God; as God hath said, I will dwell in them, and walk in *them;* and I will be their God, and they shall be my people.  
+> **¹⁷** Wherefore come out from among them, and be ye separate, saith the Lord, and touch not the unclean *thing;* and I will receive you,  
+> **¹⁸** And will be a Father unto you, and ye shall be my sons and daughters, saith the Lord Almighty.  
 
 The apostle proceeds to address himself more particularly to the Corinthians, and cautions them against mingling with unbelievers. Here observe,
 

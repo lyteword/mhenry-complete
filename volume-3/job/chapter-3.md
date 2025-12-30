@@ -8,16 +8,16 @@ weight: 3
 
 ## Job Curses His Day. (b. c. 1520.)
 
-> <sup>1</sup> After this opened Job his mouth, and cursed his day.  
-> <sup>2</sup> And Job spake, and said,  
-> <sup>3</sup> Let the day perish wherein I was born, and the night *in which* it was said, There is a man child conceived.  
-> <sup>4</sup> Let that day be darkness; let not God regard it from above, neither let the light shine upon it.  
-> <sup>5</sup> Let darkness and the shadow of death stain it; let a cloud dwell upon it; let the blackness of the day terrify it.  
-> <sup>6</sup> As *for* that night, let darkness seize upon it; let it not be joined unto the days of the year, let it not come into the number of the months.  
-> <sup>7</sup> Lo, let that night be solitary, let no joyful voice come therein.  
-> <sup>8</sup> Let them curse it that curse the day, who are ready to raise up their mourning.  
-> <sup>9</sup> Let the stars of the twilight thereof be dark; let it look for light, but *have* none; neither let it see the dawning of the day:  
-> <sup>10</sup> Because it shut not up the doors of my *mother's* womb, nor hid sorrow from mine eyes.  
+> **¹** After this opened Job his mouth, and cursed his day.  
+> **²** And Job spake, and said,  
+> **³** Let the day perish wherein I was born, and the night *in which* it was said, There is a man child conceived.  
+> **⁴** Let that day be darkness; let not God regard it from above, neither let the light shine upon it.  
+> **⁵** Let darkness and the shadow of death stain it; let a cloud dwell upon it; let the blackness of the day terrify it.  
+> **⁶** As *for* that night, let darkness seize upon it; let it not be joined unto the days of the year, let it not come into the number of the months.  
+> **⁷** Lo, let that night be solitary, let no joyful voice come therein.  
+> **⁸** Let them curse it that curse the day, who are ready to raise up their mourning.  
+> **⁹** Let the stars of the twilight thereof be dark; let it look for light, but *have* none; neither let it see the dawning of the day:  
+> **¹⁰** Because it shut not up the doors of my *mother's* womb, nor hid sorrow from mine eyes.  
 
 Long was Job's heart hot within him; and, while he was musing, the fire burned, and the more for being stifled and suppressed. At length he spoke with his tongue, but not such a good word as David spoke after a long pause: *Lord, make me to know my end,* Ps 39:3,4. Seven days the prophet Ezekiel sat down astonished with the captives, and then (probably on the sabbath day) *the word of the Lord came to him,* Eze 3:15,16. So long Job and his friends sat thinking, but said nothing; *they* were afraid of speaking what they thought, lest they should grieve him, and *he* durst not give vent to his thoughts, lest he should offend them. They came to comfort him, but, finding his afflictions very extraordinary, they began to think comfort did not belong to him, suspecting him to be a hypocrite, and therefore they said nothing. But losers think they may have leave to speak, and therefore Job first gives vent to his thoughts. Unless they had been better, it would however have been well if he had kept them to himself. In short, he cursed his day, the day of his birth, wished he had never been born, could not think or speak of his own birth without regret and vexation. Whereas men usually observe the annual return of their birth-day with rejoicing, he looked upon it as the unhappiest day of the year, because the unhappiest of his life, being the inlet into all his woe. Now,
 
@@ -39,15 +39,15 @@ II\. Yet it was not so bad as Satan promised himself. Job cursed his day, but he
 
 ## Job's Complaint of Life. (b. c. 1520.)
 
-> <sup>11</sup> Why died I not from the womb? *why* did I *not* give up the ghost when I came out of the belly?  
-> <sup>12</sup> Why did the knees prevent me? or why the breasts that I should suck?  
-> <sup>13</sup> For now should I have lain still and been quiet, I should have slept: then had I been at rest,  
-> <sup>14</sup> With kings and counsellors of the earth, which built desolate places for themselves;  
-> <sup>15</sup> Or with princes that had gold, who filled their houses with silver:  
-> <sup>16</sup> Or as a hidden untimely birth I had not been; as infants *which* never saw light.  
-> <sup>17</sup> There the wicked cease *from* troubling; and there the weary be at rest.  
-> <sup>18</sup> *There* the prisoners rest together; they hear not the voice of the oppressor.  
-> <sup>19</sup> The small and great are there; and the servant *is* free from his master.  
+> **¹¹** Why died I not from the womb? *why* did I *not* give up the ghost when I came out of the belly?  
+> **¹²** Why did the knees prevent me? or why the breasts that I should suck?  
+> **¹³** For now should I have lain still and been quiet, I should have slept: then had I been at rest,  
+> **¹⁴** With kings and counsellors of the earth, which built desolate places for themselves;  
+> **¹⁵** Or with princes that had gold, who filled their houses with silver:  
+> **¹⁶** Or as a hidden untimely birth I had not been; as infants *which* never saw light.  
+> **¹⁷** There the wicked cease *from* troubling; and there the weary be at rest.  
+> **¹⁸** *There* the prisoners rest together; they hear not the voice of the oppressor.  
+> **¹⁹** The small and great are there; and the servant *is* free from his master.  
 
 Job, perhaps reflecting upon himself for his folly in wishing he had never been born, follows it, and thinks to mend it, with another, little better, that he had died as soon as he was born, which he enlarges upon in these verses. When our Saviour would set forth a very calamitous state of things he seems to allow such a saying as this, *Blessed are the barren, and the wombs that never bore, and the paps which never gave suck* (Lu 23:29); but blessing the barren womb is one thing and cursing the fruitful womb is another! It is good to make the best of afflictions, but it is not good to make the worst of mercies. Our rule is, *Bless, and curse not.* Life is often put for all good, and death for all evil; yet Job here very absurdly complains of life and its supports as a curse and plague to him, and covets death and the grave as the greatest and most desirable bliss. Surely Satan was deceived in Job when he applied that maxim to him, *All that a man hath will he give for his life;* for never any man valued life at a lower rate than he did.
 
@@ -57,13 +57,13 @@ I\. He ungratefully quarrels with life, and is angry that it was not taken from 
 
 II\. He passionately applauds death and the grave, and seems quite in love with them. To desire to die that we may be with Christ, that we may be free from sin, and that we may be *clothed upon with our house which is from heaven,* is the effect and evidence of grace; but to desire to die only that we may be quiet in the grave, and delivered from the troubles of this life, savours of corruption. Job's considerations here may be of good use to reconcile us to death when it comes, and to make us easy under the arrest of it; but they ought not to be made use of as a pretence to quarrel with life while it is continued, or to make us uneasy under the burdens of it. It is our wisdom and duty to make the best of that which is, be it living or dying, and so to *live to the Lord* and *die to the Lord,* and to be his in both, Ro 14:8. Job here frets himself with thinking that if he had but died as soon as he was born, and been carried from the womb to the grave, 1. His condition would have been as good as that of the best: I would have been (says he, Job 3:14) *with kings and counsellors of the earth,* whose pomp, power, and policy, cannot set them out of the reach of death, nor secure them from the grave, nor distinguish theirs from common dust in the grave. Even princes, who had gold in abundance, could not with it bribe Death to overlook them when he came with commission; and, though they filled their houses with silver, yet they were forced to leave it all behind them, no more to return to it. Some, by the *desolate places* which the kings and counsellors are here said *to build for themselves,* understand the sepulchres or monuments they prepared for themselves in their life-time; as Shebna (Isa 22:16) *hewed himself out a sepulchre;* and by the gold which the princes had, and the silver with which they filled their houses, they understand the treasures which, they say, it was usual to deposit in the graves of great men. Such arts have been used to preserve their dignity, if possible, on the other side death, and to keep themselves from lying even with those of inferior rank; but it will not do: death is, and will be, an irresistible leveller. *Mors sceptra ligonibus æquat—Death mingles sceptres with spades. Rich and poor meet together* in the grave; and there a *hidden untimely birth* (Job 3:16), a child that either never saw light or but just opened its eyes and peeped into the world, and, not liking it, closed them again and hastened out of it, lies as soft and easy, lies as high and safe, as kings and counsellors, and princes, that had gold. "And therefore," says Job, "would I had lain there in the dust, rather than to lie here in the ashes!" 2. His condition would have been much better than now it was (Job 3:13): "*Then should I have lain still, and been quiet,* which now I cannot do, I cannot be, but am still tossing and unquiet; then *I should have slept,* whereas now sleep departeth from my eyes; *then had I been at rest,* whereas now I am restless." Now that life and immortality are brought to a much clearer light by the gospel than before they were placed in good Christians can give a better account than this of the gain of death: "Then should I have been present with the Lord; then should I have seen his glory face to face, and no longer through a glass darkly." But all that poor Job dreamed of was rest and quietness in the grave out of the fear of evil tidings and out of the feeling of sore boils. *Then should I have been quiet;* and had he kept his temper, his even easy temper still, which he was in as recorded in the two foregoing chapters, entirely resigned to the holy will of God and acquiescing in it, he might have been quiet now; his soul, at least, might have dwelt at ease, even when his body lay in pain, Ps 25:13. Observe how finely he describes the repose of the grave, which (provided the soul also be at rest in God) may much assist our triumphs over it. (1.) Those that now are troubled will there be out of the reach of trouble (Job 3:17): *There the wicked cease from troubling.* When persecutors die they can no longer persecute; their *hatred and envy* will then *perish.* Herod had vexed the church, but, when he became a prey for worms, he ceased from troubling. When the persecuted die they are out of the danger of being any further troubled. Had Job been at rest in his grave, he would have had no disturbance from the Sabeans and Chaldeans, none of all his enemies would have created him any trouble. (2.) Those that are now toiled will there see the period of their toils. *There the weary are at rest.* Heaven is more than a rest to the souls of the saints, but the grave is a rest to their bodies. Their pilgrimage is a weary pilgrimage; sin and the world they are weary of; their services, sufferings, and expectations, they are wearied with; but in the grave they *rest from all their labours,* Re 14:13, Isa 57:23. They are easy there, and make no complaints; there believers sleep in Jesus. (3.) Those that were here enslaved are there at liberty. Death is the prisoner's discharge, the relief of the oppressed, and the servant's manumission (Job 3:18): *There the prisoners,* though they walk not at large, yet they *rest together,* and are not put to work, to grind in that prison-house. They are no more insulted and trampled upon, menaced and terrified, by their cruel task-masters: *They hear not the voice of the oppressor.* Those that were here doomed to perpetual servitude, that could call nothing their own, no, not their own bodies, are there no longer under command or control: *There the servant is free from his master,* which is a good reason why those that have power should use it moderately, and those that are in subjection should bear it patiently, yet a little while. (4.) Those that were at a vast distance from others are there upon a level (Job 3:19): *The small and great are there,* there the same, there all one, all alike free among the dead. The tedious pomp and state which attend the great are at an end there. All the inconveniences of a poor and low condition are likewise over; death and the grave know no difference.
 
-> <sup>20</sup> Wherefore is light given to him that is in misery, and life unto the bitter *in* soul;  
-> <sup>21</sup> Which long for death, but it *cometh* not; and dig for it more than for hid treasures;  
-> <sup>22</sup> Which rejoice exceedingly, *and* are glad, when they can find the grave?  
-> <sup>23</sup> *Why is light given* to a man whose way is hid, and whom God hath hedged in?  
-> <sup>24</sup> For my sighing cometh before I eat, and my roarings are poured out like the waters.  
-> <sup>25</sup> For the thing which I greatly feared is come upon me, and that which I was afraid of is come unto me.  
-> <sup>26</sup> I was not in safety, neither had I rest, neither was I quiet; yet trouble came.  
+> **²⁰** Wherefore is light given to him that is in misery, and life unto the bitter *in* soul;  
+> **²¹** Which long for death, but it *cometh* not; and dig for it more than for hid treasures;  
+> **²²** Which rejoice exceedingly, *and* are glad, when they can find the grave?  
+> **²³** *Why is light given* to a man whose way is hid, and whom God hath hedged in?  
+> **²⁴** For my sighing cometh before I eat, and my roarings are poured out like the waters.  
+> **²⁵** For the thing which I greatly feared is come upon me, and that which I was afraid of is come unto me.  
+> **²⁶** I was not in safety, neither had I rest, neither was I quiet; yet trouble came.  
 
 Job, finding it to no purpose to wish either that he had not been born or had died as soon as he was born, here complains that his life was now continued and not cut off. When men are set on quarrelling there is no end of it; the corrupt heart will carry on the humour. Having cursed the day of his birth, here he courts the day of his death. The beginning of this strife and impatience is as the letting forth of water.
 

@@ -10,13 +10,13 @@ This and the four following psalms are much of a piece, and the scope of them th
 
 To the chief musician. A psalm of David.
 
-> <sup>1</sup> Deliver me, O LORD, from the evil man: preserve me from the violent man;  
-> <sup>2</sup> Which imagine mischiefs in *their* heart; continually are they gathered together *for* war.  
-> <sup>3</sup> They have sharpened their tongues like a serpent; adders' poison *is* under their lips. Selah.  
-> <sup>4</sup> Keep me, O LORD, from the hands of the wicked; preserve me from the violent man; who have purposed to overthrow my goings.  
-> <sup>5</sup> The proud have hid a snare for me, and cords; they have spread a net by the wayside; they have set gins for me. Selah.  
-> <sup>6</sup> I said unto the LORD, Thou *art* my God: hear the voice of my supplications, O LORD.  
-> <sup>7</sup> O GOD the Lord, the strength of my salvation, thou hast covered my head in the day of battle.  
+> **¹** Deliver me, O LORD, from the evil man: preserve me from the violent man;  
+> **²** Which imagine mischiefs in *their* heart; continually are they gathered together *for* war.  
+> **³** They have sharpened their tongues like a serpent; adders' poison *is* under their lips. Selah.  
+> **⁴** Keep me, O LORD, from the hands of the wicked; preserve me from the violent man; who have purposed to overthrow my goings.  
+> **⁵** The proud have hid a snare for me, and cords; they have spread a net by the wayside; they have set gins for me. Selah.  
+> **⁶** I said unto the LORD, Thou *art* my God: hear the voice of my supplications, O LORD.  
+> **⁷** O GOD the Lord, the strength of my salvation, thou hast covered my head in the day of battle.  
 
 In *this,* as in other things, David was a type of Christ, that he suffered before he reigned, was humbled before he was exalted, and that as there were many who loved and valued him, and sought to do him honour, so there were many who hated and envied him, and sought to do him mischief, as appears by these verses, where,
 
@@ -28,12 +28,12 @@ III\. He triumphs in God, and thereby, in effect, he triumphs over his persecuto
 
 ## Shame and Confusion of Persecutors.
 
-> <sup>8</sup> Grant not, O LORD, the desires of the wicked: further not his wicked device; *lest* they exalt themselves. Selah.  
-> <sup>9</sup> *As for* the head of those that compass me about, let the mischief of their own lips cover them.  
-> <sup>10</sup> Let burning coals fall upon them: let them be cast into the fire; into deep pits, that they rise not up again.  
-> <sup>11</sup> Let not an evil speaker be established in the earth: evil shall hunt the violent man to overthrow *him.*  
-> <sup>12</sup> I know that the LORD will maintain the cause of the afflicted, *and* the right of the poor.  
-> <sup>13</sup> Surely the righteous shall give thanks unto thy name: the upright shall dwell in thy presence.  
+> **⁸** Grant not, O LORD, the desires of the wicked: further not his wicked device; *lest* they exalt themselves. Selah.  
+> **⁹** *As for* the head of those that compass me about, let the mischief of their own lips cover them.  
+> **¹⁰** Let burning coals fall upon them: let them be cast into the fire; into deep pits, that they rise not up again.  
+> **¹¹** Let not an evil speaker be established in the earth: evil shall hunt the violent man to overthrow *him.*  
+> **¹²** I know that the LORD will maintain the cause of the afflicted, *and* the right of the poor.  
+> **¹³** Surely the righteous shall give thanks unto thy name: the upright shall dwell in thy presence.  
 
 Here is the believing foresight David had,
 

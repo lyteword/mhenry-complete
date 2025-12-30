@@ -8,11 +8,11 @@ In this chapter the apostle gives further evidence of his love to the Thessaloni
 
 ## The Mission of Timothy. (a. d. 51.)
 
-> <sup>1</sup> Wherefore when we could no longer forbear, we thought it good to be left at Athens alone;  
-> <sup>2</sup> And sent Timotheus, our brother, and minister of God, and our fellowlabourer in the gospel of Christ, to establish you, and to comfort you concerning your faith:  
-> <sup>3</sup> That no man should be moved by these afflictions: for yourselves know that we are appointed thereunto.  
-> <sup>4</sup> For verily, when we were with you, we told you before that we should suffer tribulation; even as it came to pass, and ye know.  
-> <sup>5</sup> For this cause, when I could no longer forbear, I sent to know your faith, lest by some means the tempter have tempted you, and our labour be in vain.  
+> **¹** Wherefore when we could no longer forbear, we thought it good to be left at Athens alone;  
+> **²** And sent Timotheus, our brother, and minister of God, and our fellowlabourer in the gospel of Christ, to establish you, and to comfort you concerning your faith:  
+> **³** That no man should be moved by these afflictions: for yourselves know that we are appointed thereunto.  
+> **⁴** For verily, when we were with you, we told you before that we should suffer tribulation; even as it came to pass, and ye know.  
+> **⁵** For this cause, when I could no longer forbear, I sent to know your faith, lest by some means the tempter have tempted you, and our labour be in vain.  
 
 In these words the apostle gives an account of his sending Timothy to the Thessalonians. Though he was hindered from going to them himself, yet his love was such that he could not forbear sending Timothy to them. Though Timothy was very useful to him, and he could not well spare him, yet Paul was content, for their good, *to be left alone at Athens.* Note, Those ministers do not duly value the establishment and welfare of their people who cannot deny themselves in many things for that end. Observe,
 
@@ -32,11 +32,11 @@ III\. The motive inducing Paul to send Timothy for this end, namely, a godly fea
 
 ## The Mission of Timothy. (a. d. 51.)
 
-> <sup>6</sup> But now when Timotheus came from you unto us, and brought us good tidings of your faith and charity, and that ye have good remembrance of us always, desiring greatly to see us, as we also *to see* you:  
-> <sup>7</sup> Therefore, brethren, we were comforted over you in all our affliction and distress by your faith:  
-> <sup>8</sup> For now we live, if ye stand fast in the Lord.  
-> <sup>9</sup> For what thanks can we render to God again for you, for all the joy wherewith we joy for your sakes before our God;  
-> <sup>10</sup> Night and day praying exceedingly that we might see your face, and might perfect that which is lacking in your faith?  
+> **⁶** But now when Timotheus came from you unto us, and brought us good tidings of your faith and charity, and that ye have good remembrance of us always, desiring greatly to see us, as we also *to see* you:  
+> **⁷** Therefore, brethren, we were comforted over you in all our affliction and distress by your faith:  
+> **⁸** For now we live, if ye stand fast in the Lord.  
+> **⁹** For what thanks can we render to God again for you, for all the joy wherewith we joy for your sakes before our God;  
+> **¹⁰** Night and day praying exceedingly that we might see your face, and might perfect that which is lacking in your faith?  
 
 Here we have Paul's great satisfaction upon the return of Timothy with good tidings from the Thessalonians, in which we may observe,
 
@@ -48,9 +48,9 @@ III\. The effects of this were thankfulness and prayer to God on their behalf. O
 
 ## Apostolic Prayer. (a. d. 51.)
 
-> <sup>11</sup> Now God himself and our Father, and our Lord Jesus Christ, direct our way unto you.  
-> <sup>12</sup> And the Lord make you to increase and abound in love one toward another, and toward all *men,* even as we *do* toward you:  
-> <sup>13</sup> To the end he may stablish your hearts unblameable in holiness before God, even our Father, at the coming of our Lord Jesus Christ with all his saints.  
+> **¹¹** Now God himself and our Father, and our Lord Jesus Christ, direct our way unto you.  
+> **¹²** And the Lord make you to increase and abound in love one toward another, and toward all *men,* even as we *do* toward you:  
+> **¹³** To the end he may stablish your hearts unblameable in holiness before God, even our Father, at the coming of our Lord Jesus Christ with all his saints.  
 
 In these words we have the earnest prayer of the apostle. He desired to be instrumental in the further benefit of the Thessalonians; and the only way to be so while at a distance was by prayer for them, together with his writing or sending to them. He desired that their faith might be perfected, which he could not be the proper cause or author of; for he pretended not to dominion over their faith, nor to have the donation of it, and he therefore concludes with prayer for them. Observe,
 

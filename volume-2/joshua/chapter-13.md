@@ -8,12 +8,12 @@ At this chapter begins the account of the dividing of the land of Canaan among t
 
 ## The Distribution of Canaan. (b. c. 1445.)
 
-> <sup>1</sup> Now Joshua was old *and* stricken in years; and the LORD said unto him, Thou art old *and* stricken in years, and there remaineth yet very much land to be possessed.  
-> <sup>2</sup> This *is* the land that yet remaineth: all the borders of the Philistines, and all Geshuri,  
-> <sup>3</sup> From Sihor, which *is* before Egypt, even unto the borders of Ekron northward, *which* is counted to the Canaanite: five lords of the Philistines; the Gazathites, and the Ashdothites, the Eshkalonites, the Gittites, and the Ekronites; also the Avites:  
-> <sup>4</sup> From the south, all the land of the Canaanites, and Mearah that *is* beside the Sidonians, unto Aphek, to the borders of the Amorites:  
-> <sup>5</sup> And the land of the Giblites, and all Lebanon, toward the sunrising, from Baalgad under mount Hermon unto the entering into Hamath.  
-> <sup>6</sup> All the inhabitants of the hill country from Lebanon unto Misrephothmaim, *and* all the Sidonians, them will I drive out from before the children of Israel: only divide thou it by lot unto the Israelites for an inheritance, as I have commanded thee.  
+> **¹** Now Joshua was old *and* stricken in years; and the LORD said unto him, Thou art old *and* stricken in years, and there remaineth yet very much land to be possessed.  
+> **²** This *is* the land that yet remaineth: all the borders of the Philistines, and all Geshuri,  
+> **³** From Sihor, which *is* before Egypt, even unto the borders of Ekron northward, *which* is counted to the Canaanite: five lords of the Philistines; the Gazathites, and the Ashdothites, the Eshkalonites, the Gittites, and the Ekronites; also the Avites:  
+> **⁴** From the south, all the land of the Canaanites, and Mearah that *is* beside the Sidonians, unto Aphek, to the borders of the Amorites:  
+> **⁵** And the land of the Giblites, and all Lebanon, toward the sunrising, from Baalgad under mount Hermon unto the entering into Hamath.  
+> **⁶** All the inhabitants of the hill country from Lebanon unto Misrephothmaim, *and* all the Sidonians, them will I drive out from before the children of Israel: only divide thou it by lot unto the Israelites for an inheritance, as I have commanded thee.  
 
 Here, I. God puts Joshua in mind of his old age, Jos 13:1. 1. It is said that Joshua was *old and stricken in years,* and he and Caleb were at this time the only old men among the thousands of Israel, none except them of all those who were numbered at Mount Sinai being now alive. He had been a man of war from his youth (Ex 17:10); but now he yielded to the infirmities of age, with which it is in vain for the stoutest to think of contesting. It should seem Joshua had not the same strength and vigour in his old age that Moses had; all that come to old age do not find it alike good; generally, the days of old age are evil days, and such as there is no pleasure in, nor expectation of service from. 2. God takes notice of it to him: *God said to him, Thou art old.* Note, It is good for those who are *old and stricken in years* to be put in remembrance of their being so. Some have *gray hairs here and there upon them, and perceive it not* (Ho 7:9); they do not care to think of it, and therefore need to be told of it, that they may be quickened to do the work of life, and make preparation for death, which is coming towards them apace. But God mentions Joshua's age and growing infirmities, (1.) As a reason why he should now lay by the thoughts of pursuing the war; he cannot expect to see an end of it quickly, for there remained much land, more perhaps than he thought, to be possessed, in several parts remote from each other: and it was not fit that at his age he should be put upon the fatigue of renewing the war, and carrying it to such distant places; no, it was enough for him that he had reduced the body of the country. "Let him be gathered to rest with honour and the thanks of his people for the good services he had done them, and let the conquering of the skirts of the country be left for those that shall come after." As he had entered into the labours of Moses, so let others enter into his, and bring forth the top-stone, the doing of which was reserved for David long after. Observe, God considers the frame of his people, and would not have them burdened with work above their strength. It cannot be expected that old people should do as they have done for God and their country. (2.) As a reason why he should speedily apply himself to the dividing of that which he had conquered. That work must be done, and done quickly; it was necessary that he should preside in the doing of it, and therefore, he being *old and stricken in years,* and not likely to continue long, let him make this his concluding piece of service to God and Israel. All people, but especially old people, should set themselves to do that quickly which must be done before they die, lest death prevent them, Ec 9:10.
 
@@ -21,33 +21,33 @@ II\. He gives him a particular account of the land that yet remained unconquered
 
 III\. He promises that he would make the Israelites masters of all those countries that were yet unsubdued, though Joshua was old and not able to do it, old and not likely to live to see it done. Whatever becomes of us, and however we may be laid aside as despised broken vessels, God will do his own work in his own time (Jos 13:6): *I will drive them out.* The original is emphatic: "*It is I that will do it,* I that can do it when thou are dead and gone, and will do it if Israel be not wanting to themselves." "I will do it by my Word," so the Chaldee here, as in many other places, "by the eternal Word, the captain of the hosts of the Lord." This promise that he would drive them out from before the children of Israel plainly supposes it as the condition of the promise that the children of Israel must themselves attempt their extirpation, must go up against them, else they could not be said to be driven out before them; if afterwards Israel, through sloth, or cowardice, or affection to these idolaters, sit still and let them alone, they must blame themselves, and not God, if they be not driven out. We must work out our salvation, and then God will work in us and work with us; we must resist our spiritual enemies, and then God will tread them under our feet; we must go forth to our Christian work and warfare, and then God will go forth before us.
 
-> <sup>7</sup> Now therefore divide this land for an inheritance unto the nine tribes, and the half tribe of Manasseh,  
-> <sup>8</sup> With whom the Reubenites and the Gadites have received their inheritance, which Moses gave them, beyond Jordan eastward, *even* as Moses the servant of the LORD gave them;  
-> <sup>9</sup> From Aroer, that *is* upon the bank of the river Arnon, and the city that *is* in the midst of the river, and all the plain of Medeba unto Dibon;  
-> <sup>10</sup> And all the cities of Sihon king of the Amorites, which reigned in Heshbon, unto the border of the children of Ammon;  
-> <sup>11</sup> And Gilead, and the border of the Geshurites and Maachathites, and all mount Hermon, and all Bashan unto Salcah;  
-> <sup>12</sup> All the kingdom of Og in Bashan, which reigned in Ashtaroth and in Edrei, who remained of the remnant of the giants: for these did Moses smite, and cast them out.  
-> <sup>13</sup> Nevertheless the children of Israel expelled not the Geshurites, nor the Maachathites: but the Geshurites and the Maachathites dwell among the Israelites until this day.  
-> <sup>14</sup> Only unto the tribe of Levi he gave none inheritance; the sacrifices of the LORD God of Israel made by fire *are* their inheritance, as he said unto them.  
-> <sup>15</sup> And Moses gave unto the tribe of the children of Reuben *inheritance* according to their families.  
-> <sup>16</sup> And their coast was from Aroer, that *is* on the bank of the river Arnon, and the city that *is* in the midst of the river, and all the plain by Medeba;  
-> <sup>17</sup> Heshbon, and all her cities that *are* in the plain; Dibon, and Bamothbaal, and Bethbaalmeon,  
-> <sup>18</sup> And Jahazah, and Kedemoth, and Mephaath,  
-> <sup>19</sup> And Kirjathaim, and Sibmah, and Zarethshahar in the mount of the valley,  
-> <sup>20</sup> And Bethpeor, and Ashdothpisgah, and Bethjeshimoth,  
-> <sup>21</sup> And all the cities of the plain, and all the kingdom of Sihon king of the Amorites, which reigned in Heshbon, whom Moses smote with the princes of Midian, Evi, and Rekem, and Zur, and Hur, and Reba, *which were* dukes of Sihon, dwelling in the country.  
-> <sup>22</sup> Balaam also the son of Beor, the soothsayer, did the children of Israel slay with the sword among them that were slain by them.  
-> <sup>23</sup> And the border of the children of Reuben was Jordan, and the border *thereof.* This *was* the inheritance of the children of Reuben after their families, the cities and the villages thereof.  
-> <sup>24</sup> And Moses gave *inheritance* unto the tribe of Gad, *even* unto the children of Gad according to their families.  
-> <sup>25</sup> And their coast was Jazer, and all the cities of Gilead, and half the land of the children of Ammon, unto Aroer that *is* before Rabbah;  
-> <sup>26</sup> And from Heshbon unto Ramathmizpeh, and Betonim; and from Mahanaim unto the border of Debir;  
-> <sup>27</sup> And in the valley, Betharam, and Bethnimrah, and Succoth, and Zaphon, the rest of the kingdom of Sihon king of Heshbon, Jordan and *his* border, *even* unto the edge of the sea of Chinnereth on the other side Jordan eastward.  
-> <sup>28</sup> This *is* the inheritance of the children of Gad after their families, the cities, and their villages.  
-> <sup>29</sup> And Moses gave *inheritance* unto the half tribe of Manasseh: and *this* was *the possession* of the half tribe of the children of Manasseh by their families.  
-> <sup>30</sup> And their coast was from Mahanaim, all Bashan, all the kingdom of Og king of Bashan, and all the towns of Jair, which *are* in Bashan, threescore cities:  
-> <sup>31</sup> And half Gilead, and Ashtaroth, and Edrei, cities of the kingdom of Og in Bashan, *were pertaining* unto the children of Machir the son of Manasseh, *even* to the one half of the children of Machir by their families.  
-> <sup>32</sup> These *are the countries* which Moses did distribute for inheritance in the plains of Moab, on the other side Jordan, by Jericho, eastward.  
-> <sup>33</sup> But unto the tribe of Levi Moses gave not *any* inheritance: the LORD God of Israel *was* their inheritance, as he said unto them.  
+> **⁷** Now therefore divide this land for an inheritance unto the nine tribes, and the half tribe of Manasseh,  
+> **⁸** With whom the Reubenites and the Gadites have received their inheritance, which Moses gave them, beyond Jordan eastward, *even* as Moses the servant of the LORD gave them;  
+> **⁹** From Aroer, that *is* upon the bank of the river Arnon, and the city that *is* in the midst of the river, and all the plain of Medeba unto Dibon;  
+> **¹⁰** And all the cities of Sihon king of the Amorites, which reigned in Heshbon, unto the border of the children of Ammon;  
+> **¹¹** And Gilead, and the border of the Geshurites and Maachathites, and all mount Hermon, and all Bashan unto Salcah;  
+> **¹²** All the kingdom of Og in Bashan, which reigned in Ashtaroth and in Edrei, who remained of the remnant of the giants: for these did Moses smite, and cast them out.  
+> **¹³** Nevertheless the children of Israel expelled not the Geshurites, nor the Maachathites: but the Geshurites and the Maachathites dwell among the Israelites until this day.  
+> **¹⁴** Only unto the tribe of Levi he gave none inheritance; the sacrifices of the LORD God of Israel made by fire *are* their inheritance, as he said unto them.  
+> **¹⁵** And Moses gave unto the tribe of the children of Reuben *inheritance* according to their families.  
+> **¹⁶** And their coast was from Aroer, that *is* on the bank of the river Arnon, and the city that *is* in the midst of the river, and all the plain by Medeba;  
+> **¹⁷** Heshbon, and all her cities that *are* in the plain; Dibon, and Bamothbaal, and Bethbaalmeon,  
+> **¹⁸** And Jahazah, and Kedemoth, and Mephaath,  
+> **¹⁹** And Kirjathaim, and Sibmah, and Zarethshahar in the mount of the valley,  
+> **²⁰** And Bethpeor, and Ashdothpisgah, and Bethjeshimoth,  
+> **²¹** And all the cities of the plain, and all the kingdom of Sihon king of the Amorites, which reigned in Heshbon, whom Moses smote with the princes of Midian, Evi, and Rekem, and Zur, and Hur, and Reba, *which were* dukes of Sihon, dwelling in the country.  
+> **²²** Balaam also the son of Beor, the soothsayer, did the children of Israel slay with the sword among them that were slain by them.  
+> **²³** And the border of the children of Reuben was Jordan, and the border *thereof.* This *was* the inheritance of the children of Reuben after their families, the cities and the villages thereof.  
+> **²⁴** And Moses gave *inheritance* unto the tribe of Gad, *even* unto the children of Gad according to their families.  
+> **²⁵** And their coast was Jazer, and all the cities of Gilead, and half the land of the children of Ammon, unto Aroer that *is* before Rabbah;  
+> **²⁶** And from Heshbon unto Ramathmizpeh, and Betonim; and from Mahanaim unto the border of Debir;  
+> **²⁷** And in the valley, Betharam, and Bethnimrah, and Succoth, and Zaphon, the rest of the kingdom of Sihon king of Heshbon, Jordan and *his* border, *even* unto the edge of the sea of Chinnereth on the other side Jordan eastward.  
+> **²⁸** This *is* the inheritance of the children of Gad after their families, the cities, and their villages.  
+> **²⁹** And Moses gave *inheritance* unto the half tribe of Manasseh: and *this* was *the possession* of the half tribe of the children of Manasseh by their families.  
+> **³⁰** And their coast was from Mahanaim, all Bashan, all the kingdom of Og king of Bashan, and all the towns of Jair, which *are* in Bashan, threescore cities:  
+> **³¹** And half Gilead, and Ashtaroth, and Edrei, cities of the kingdom of Og in Bashan, *were pertaining* unto the children of Machir the son of Manasseh, *even* to the one half of the children of Machir by their families.  
+> **³²** These *are the countries* which Moses did distribute for inheritance in the plains of Moab, on the other side Jordan, by Jericho, eastward.  
+> **³³** But unto the tribe of Levi Moses gave not *any* inheritance: the LORD God of Israel *was* their inheritance, as he said unto them.  
 
 Here we have, I. Orders given to Joshua to assign to each tribe its portion of this land, including that which was yet unsubdued, which must be brought into the lot, in a believing confidence that it should be conquered when Israel was multiplied so as to have occasion for it (Jos 13:7): *Now divide this land.* Joshua thought all must be conquered before any must be divided. "No," said, God, "there is as much conquered as will serve your turn for the present; divide this, and make your best of it, and wait for the remainder hereafter." Note, We must take the comfort of what we have, though we cannot compass all we would have. Observe,
 

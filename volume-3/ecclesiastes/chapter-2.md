@@ -8,17 +8,17 @@ Solomon having pronounced all vanity, and particularly knowledge and learning, w
 
 ## Vanity of Worldly Pleasure.
 
-> <sup>1</sup> I said in mine heart, Go to now, I will prove thee with mirth, therefore enjoy pleasure: and, behold, this also *is* vanity.  
-> <sup>2</sup> I said of laughter, *It is* mad: and of mirth, What doeth it?  
-> <sup>3</sup> I sought in mine heart to give myself unto wine, yet acquainting mine heart with wisdom; and to lay hold on folly, till I might see what *was* that good for the sons of men, which they should do under the heaven all the days of their life.  
-> <sup>4</sup> I made me great works; I builded me houses; I planted me vineyards:  
-> <sup>5</sup> I made me gardens and orchards, and I planted trees in them of all *kind of* fruits:  
-> <sup>6</sup> I made me pools of water, to water therewith the wood that bringeth forth trees:  
-> <sup>7</sup> I got *me* servants and maidens, and had servants born in my house; also I had great possessions of great and small cattle above all that were in Jerusalem before me:  
-> <sup>8</sup> I gathered me also silver and gold, and the peculiar treasure of kings and of the provinces: I gat me men singers and women singers, and the delights of the sons of men, *as* musical instruments, and that of all sorts.  
-> <sup>9</sup> So I was great, and increased more than all that were before me in Jerusalem: also my wisdom remained with me.  
-> <sup>10</sup> And whatsoever mine eyes desired I kept not from them, I withheld not my heart from any joy; for my heart rejoiced in all my labour: and this was my portion of all my labour.  
-> <sup>11</sup> Then I looked on all the works that my hands had wrought, and on the labour that I had laboured to do: and, behold, all *was* vanity and vexation of spirit, and *there was* no profit under the sun.  
+> **¹** I said in mine heart, Go to now, I will prove thee with mirth, therefore enjoy pleasure: and, behold, this also *is* vanity.  
+> **²** I said of laughter, *It is* mad: and of mirth, What doeth it?  
+> **³** I sought in mine heart to give myself unto wine, yet acquainting mine heart with wisdom; and to lay hold on folly, till I might see what *was* that good for the sons of men, which they should do under the heaven all the days of their life.  
+> **⁴** I made me great works; I builded me houses; I planted me vineyards:  
+> **⁵** I made me gardens and orchards, and I planted trees in them of all *kind of* fruits:  
+> **⁶** I made me pools of water, to water therewith the wood that bringeth forth trees:  
+> **⁷** I got *me* servants and maidens, and had servants born in my house; also I had great possessions of great and small cattle above all that were in Jerusalem before me:  
+> **⁸** I gathered me also silver and gold, and the peculiar treasure of kings and of the provinces: I gat me men singers and women singers, and the delights of the sons of men, *as* musical instruments, and that of all sorts.  
+> **⁹** So I was great, and increased more than all that were before me in Jerusalem: also my wisdom remained with me.  
+> **¹⁰** And whatsoever mine eyes desired I kept not from them, I withheld not my heart from any joy; for my heart rejoiced in all my labour: and this was my portion of all my labour.  
+> **¹¹** Then I looked on all the works that my hands had wrought, and on the labour that I had laboured to do: and, behold, all *was* vanity and vexation of spirit, and *there was* no profit under the sun.  
 
 Solomon here, in pursuit of the *summum bonum*—*the felicity* of man, adjourns out of his study, his library, his elaboratory, his council-chamber, where he had in vain sought for it, into the park and the playhouse, his garden and his summer-house; he exchanges the company of the philosophers and grave senators for that of the wits and gallants, and the beaux-esprits, of his court, to try if he could find true satisfaction and happiness among them. Here he takes a great step downward, from the noble pleasures of the intellect to the brutal ones of sense; yet, if he resolve to make a thorough trial, he must knock at this door, because here a great part of mankind imagine they have found that which he was in quest of.
 
@@ -48,11 +48,11 @@ III\. Perceiving quickly that it was folly to give himself to wine, he next trie
 
 ## Superiority of Wisdom to Folly.
 
-> <sup>12</sup> And I turned myself to behold wisdom, and madness, and folly: for what *can* the man *do* that cometh after the king? *even* that which hath been already done.  
-> <sup>13</sup> Then I saw that wisdom excelleth folly, as far as light excelleth darkness.  
-> <sup>14</sup> The wise man's eyes *are* in his head; but the fool walketh in darkness: and I myself perceived also that one event happeneth to them all.  
-> <sup>15</sup> Then said I in my heart, As it happeneth to the fool, so it happeneth even to me; and why was I then more wise? Then I said in my heart, that this also *is* vanity.  
-> <sup>16</sup> For *there is* no remembrance of the wise more than of the fool for ever; seeing that which now *is* in the days to come shall all be forgotten. And how dieth the wise *man?* as the fool.  
+> **¹²** And I turned myself to behold wisdom, and madness, and folly: for what *can* the man *do* that cometh after the king? *even* that which hath been already done.  
+> **¹³** Then I saw that wisdom excelleth folly, as far as light excelleth darkness.  
+> **¹⁴** The wise man's eyes *are* in his head; but the fool walketh in darkness: and I myself perceived also that one event happeneth to them all.  
+> **¹⁵** Then said I in my heart, As it happeneth to the fool, so it happeneth even to me; and why was I then more wise? Then I said in my heart, that this also *is* vanity.  
+> **¹⁶** For *there is* no remembrance of the wise more than of the fool for ever; seeing that which now *is* in the days to come shall all be forgotten. And how dieth the wise *man?* as the fool.  
 
 Solomon having tried what satisfaction was to be had in learning first, and then in the pleasures of sense, and having also put both together, here compares them one with another and passes a judgment upon them.
 
@@ -64,16 +64,16 @@ III\. Yet he maintains that, in respect of lasting happiness and satisfaction, t
 
 ## Sources of Dissatisfaction; The Cheerful Use of Abundance.
 
-> <sup>17</sup> Therefore I hated life; because the work that is wrought under the sun *is* grievous unto me: for all *is* vanity and vexation of spirit.  
-> <sup>18</sup> Yea, I hated all my labour which I had taken under the sun: because I should leave it unto the man that shall be after me.  
-> <sup>19</sup> And who knoweth whether he shall be a wise *man* or a fool? yet shall he have rule over all my labour wherein I have laboured, and wherein I have shewed myself wise under the sun. This *is* also vanity.  
-> <sup>20</sup> Therefore I went about to cause my heart to despair of all the labour which I took under the sun.  
-> <sup>21</sup> For there is a man whose labour *is* in wisdom, and in knowledge, and in equity; yet to a man that hath not laboured therein shall he leave it *for* his portion. This also *is* vanity and a great evil.  
-> <sup>22</sup> For what hath man of all his labour, and of the vexation of his heart, wherein he hath laboured under the sun?  
-> <sup>23</sup> For all his days *are* sorrows, and his travail grief; yea, his heart taketh not rest in the night. This is also vanity.  
-> <sup>24</sup> *There is* nothing better for a man, *than* that he should eat and drink, and *that* he should make his soul enjoy good in his labour. This also I saw, that it *was* from the hand of God.  
-> <sup>25</sup> For who can eat, or who else can hasten *hereunto,* more than I?  
-> <sup>26</sup> For *God* giveth to a man that *is* good in his sight wisdom, and knowledge, and joy: but to the sinner he giveth travail, to gather and to heap up, that he may give to *him that is* good before God. This also *is* vanity and vexation of spirit.  
+> **¹⁷** Therefore I hated life; because the work that is wrought under the sun *is* grievous unto me: for all *is* vanity and vexation of spirit.  
+> **¹⁸** Yea, I hated all my labour which I had taken under the sun: because I should leave it unto the man that shall be after me.  
+> **¹⁹** And who knoweth whether he shall be a wise *man* or a fool? yet shall he have rule over all my labour wherein I have laboured, and wherein I have shewed myself wise under the sun. This *is* also vanity.  
+> **²⁰** Therefore I went about to cause my heart to despair of all the labour which I took under the sun.  
+> **²¹** For there is a man whose labour *is* in wisdom, and in knowledge, and in equity; yet to a man that hath not laboured therein shall he leave it *for* his portion. This also *is* vanity and a great evil.  
+> **²²** For what hath man of all his labour, and of the vexation of his heart, wherein he hath laboured under the sun?  
+> **²³** For all his days *are* sorrows, and his travail grief; yea, his heart taketh not rest in the night. This is also vanity.  
+> **²⁴** *There is* nothing better for a man, *than* that he should eat and drink, and *that* he should make his soul enjoy good in his labour. This also I saw, that it *was* from the hand of God.  
+> **²⁵** For who can eat, or who else can hasten *hereunto,* more than I?  
+> **²⁶** For *God* giveth to a man that *is* good in his sight wisdom, and knowledge, and joy: but to the sinner he giveth travail, to gather and to heap up, that he may give to *him that is* good before God. This also *is* vanity and vexation of spirit.  
 
 Business is a thing that wise men have pleasure in. They are in their element when they are in their business, and complain if they be out of business. They may sometimes be tired with their business, but they are not weary of it, nor willing to leave it off. Here therefore one would expect to have found the good that men should do, but Solomon tried this too; after a contemplative life and a voluptuous life, he betook himself to an active life, and found no more satisfaction in it than in the other; still it is all *vanity and vexation of spirit,* of which he gives an account in these verses, where observe,
 

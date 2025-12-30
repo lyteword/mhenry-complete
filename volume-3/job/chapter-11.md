@@ -8,12 +8,12 @@ Poor Job's wound's were yet bleeding, his sore still runs and ceases not, but no
 
 ## The Address of Zophar. (b. c. 1520.)
 
-> <sup>1</sup> Then answered Zophar the Naamathite, and said,  
-> <sup>2</sup> Should not the multitude of words be answered? and should a man full of talk be justified?  
-> <sup>3</sup> Should thy lies make men hold their peace? and when thou mockest, shall no man make thee ashamed?  
-> <sup>4</sup> For thou hast said, My doctrine *is* pure, and I am clean in thine eyes.  
-> <sup>5</sup> But oh that God would speak, and open his lips against thee;  
-> <sup>6</sup> And that he would show thee the secrets of wisdom, that *they are* double to that which is! Know therefore that God exacteth of thee *less* than thine iniquity *deserveth.*  
+> **¹** Then answered Zophar the Naamathite, and said,  
+> **²** Should not the multitude of words be answered? and should a man full of talk be justified?  
+> **³** Should thy lies make men hold their peace? and when thou mockest, shall no man make thee ashamed?  
+> **⁴** For thou hast said, My doctrine *is* pure, and I am clean in thine eyes.  
+> **⁵** But oh that God would speak, and open his lips against thee;  
+> **⁶** And that he would show thee the secrets of wisdom, that *they are* double to that which is! Know therefore that God exacteth of thee *less* than thine iniquity *deserveth.*  
 
 It is sad to see what intemperate passions even wise and good men are sometimes betrayed into by the heat of disputation, of which Zophar here is an instance. Eliphaz began with a very modest preface, Job 4:2. Bildad was a little more rough upon Job, Job 8:2. But Zophar falls upon him without mercy, and gives him very bad language: *Should a man full of talk be justified? And should thy lies make men hold their peace?* Is this the way to comfort Job? No, nor to convince him neither. Does this become one that appears as an advocate for God and his justice? *Tantæne animis coelestibus iræ?—In heavenly breasts can such resentment dwell?* Those that engage in controversy will find it very hard to keep their temper. All the wisdom, caution, and resolution they have will be little enough to prevent their breaking out into such indecencies as we here find Zophar guilty of.
 
@@ -27,12 +27,12 @@ III\. He appeals to God, and wishes him to appear against Job. So very confident
 
 2\. The unexceptionable justice of his proceedings. "Know therefore that, how sore soever the correction is that thou art under, *God exacteth of thee less than thy iniquity deserves,*" or (as some read it), "he *remits thee part of thy iniquity,* and does not deal with thee according to the full demerit of it." Note, (1.) When the debt of duty is not paid it is justice to insist upon the debt of punishment. (2.) Whatever punishment is inflicted upon us in this world we must own that it is less than our iniquities deserve, and therefore, instead of complaining of our troubles, we must be thankful that we are out of hell, La 3:39, Ps 103:10.
 
-> <sup>7</sup> Canst thou by searching find out God? canst thou find out the Almighty unto perfection?  
-> <sup>8</sup> *It is* as high as heaven; what canst thou do? deeper than hell; what canst thou know?  
-> <sup>9</sup> The measure thereof *is* longer than the earth, and broader than the sea.  
-> <sup>10</sup> If he cut off, and shut up, or gather together, then who can hinder him?  
-> <sup>11</sup> For he knoweth vain men: he seeth wickedness also; will he not then consider *it?*  
-> <sup>12</sup> For vain man would be wise, though man be born *like* a wild ass's colt.  
+> **⁷** Canst thou by searching find out God? canst thou find out the Almighty unto perfection?  
+> **⁸** *It is* as high as heaven; what canst thou do? deeper than hell; what canst thou know?  
+> **⁹** The measure thereof *is* longer than the earth, and broader than the sea.  
+> **¹⁰** If he cut off, and shut up, or gather together, then who can hinder him?  
+> **¹¹** For he knoweth vain men: he seeth wickedness also; will he not then consider *it?*  
+> **¹²** For vain man would be wise, though man be born *like* a wild ass's colt.  
 
 Zophar here speaks very good things concerning God and his greatness and glory, concerning man and his vanity and folly: these two compared together, and duly considered, will have a powerful influence upon our submission to all the dispensations of the divine Providence.
 
@@ -46,14 +46,14 @@ I\. See here what God is, and let him be adored.
 
 II\. See here what man is, and let him be humbled, Job 11:12. God sees this concerning vain man that he *would be wise,* would be thought so, *though he is born like a wild ass's colt,* so sottish and foolish, unteachable and untameable. See what man is. 1. He is a vain creature—*empty;* so the word is. God made him full, but he emptied himself, impoverished himself, and now he is *raca,* a creature that has nothing in him. 2. He is a foolish creature, has become *like the beasts that perish* (Ps 49:20,73:22), an idiot, born like an ass, the most stupid animal, an ass's colt, not yet brought to any service. If ever he come to be good for any thing, it is owing to the grace of Christ, who once, in the day of his triumph, served himself by an ass's colt. 3. He is a wilful ungovernable creature. An ass's colt may be made good for something, but the wild ass's colt will never be reclaimed, nor regards the crying of the driver. See Job 39:5-7. Man thinks himself as much at liberty, and his own master, as the wild ass's colt does, that is *used to the wilderness* (Jer 2:24), eager to gratify his own appetites and passions. 4. Yet he is a proud creature and self-conceited. He *would be wise,* would he thought so, values himself upon the honour of wisdom, though he will not submit to the laws of wisdom. He would be wise, that is, he reaches after forbidden wisdom, and, like his first parents, aiming to be wise above what is written, loses the tree of life for the tree of knowledge. Now is such a creature as this fit to contend with God or call him to an account? Did we but better know God and ourselves, we should better know how to conduct ourselves towards God.
 
-> <sup>13</sup> If thou prepare thine heart, and stretch out thine hands toward him;  
-> <sup>14</sup> If iniquity *be* in thine hand, put it far away, and let not wickedness dwell in thy tabernacles.  
-> <sup>15</sup> For then shalt thou lift up thy face without spot; yea, thou shalt be stedfast, and shalt not fear:  
-> <sup>16</sup> Because thou shalt forget *thy* misery, *and* remember *it* as waters *that* pass away:  
-> <sup>17</sup> And *thine* age shall be clearer than the noonday; thou shalt shine forth, thou shalt be as the morning.  
-> <sup>18</sup> And thou shalt be secure, because there is hope; yea, thou shalt dig *about thee, and* thou shalt take thy rest in safety.  
-> <sup>19</sup> Also thou shalt lie down, and none shall make *thee* afraid; yea, many shall make suit unto thee.  
-> <sup>20</sup> But the eyes of the wicked shall fail, and they shall not escape, and their hope *shall be as* the giving up of the ghost.  
+> **¹³** If thou prepare thine heart, and stretch out thine hands toward him;  
+> **¹⁴** If iniquity *be* in thine hand, put it far away, and let not wickedness dwell in thy tabernacles.  
+> **¹⁵** For then shalt thou lift up thy face without spot; yea, thou shalt be stedfast, and shalt not fear:  
+> **¹⁶** Because thou shalt forget *thy* misery, *and* remember *it* as waters *that* pass away:  
+> **¹⁷** And *thine* age shall be clearer than the noonday; thou shalt shine forth, thou shalt be as the morning.  
+> **¹⁸** And thou shalt be secure, because there is hope; yea, thou shalt dig *about thee, and* thou shalt take thy rest in safety.  
+> **¹⁹** Also thou shalt lie down, and none shall make *thee* afraid; yea, many shall make suit unto thee.  
+> **²⁰** But the eyes of the wicked shall fail, and they shall not escape, and their hope *shall be as* the giving up of the ghost.  
 
 Zophar, as the other two, here encourages Job to hope for better times if he would but come to a better temper.
 

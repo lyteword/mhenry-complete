@@ -8,12 +8,12 @@ In this chapter we have, I. A pressing exhortation to works of charity and bount
 
 ## The Obligations to Be Liberal; Answers to Objections against Liberality.
 
-> <sup>1</sup> Cast thy bread upon the waters: for thou shalt find it after many days.  
-> <sup>2</sup> Give a portion to seven, and also to eight; for thou knowest not what evil shall be upon the earth.  
-> <sup>3</sup> If the clouds be full of rain, they empty *themselves* upon the earth: and if the tree fall toward the south, or toward the north, in the place where the tree falleth, there it shall be.  
-> <sup>4</sup> He that observeth the wind shall not sow; and he that regardeth the clouds shall not reap.  
-> <sup>5</sup> As thou knowest not what *is* the way of the spirit, *nor* how the bones *do grow* in the womb of her that is with child: even so thou knowest not the works of God who maketh all.  
-> <sup>6</sup> In the morning sow thy seed, and in the evening withhold not thine hand: for thou knowest not whether shall prosper, either this or that, or whether they both *shall be* alike good.  
+> **¹** Cast thy bread upon the waters: for thou shalt find it after many days.  
+> **²** Give a portion to seven, and also to eight; for thou knowest not what evil shall be upon the earth.  
+> **³** If the clouds be full of rain, they empty *themselves* upon the earth: and if the tree fall toward the south, or toward the north, in the place where the tree falleth, there it shall be.  
+> **⁴** He that observeth the wind shall not sow; and he that regardeth the clouds shall not reap.  
+> **⁵** As thou knowest not what *is* the way of the spirit, *nor* how the bones *do grow* in the womb of her that is with child: even so thou knowest not the works of God who maketh all.  
+> **⁶** In the morning sow thy seed, and in the evening withhold not thine hand: for thou knowest not whether shall prosper, either this or that, or whether they both *shall be* alike good.  
 
 Solomon had often, in this book, pressed it upon rich people to take the comfort of their riches themselves; here he presses it upon them to do good to others with them and to abound in liberality to the poor, which will, another day, abound to their account. Observe,
 
@@ -41,10 +41,10 @@ III\. How he obviates the objections which might be made against this duty and t
 
 ## A Caution to the Young; Exhortation to Early Piety.
 
-> <sup>7</sup> Truly the light *is* sweet, and a pleasant *thing it is* for the eyes to behold the sun:  
-> <sup>8</sup> But if a man live many years, *and* rejoice in them all; yet let him remember the days of darkness; for they shall be many. All that cometh *is* vanity.  
-> <sup>9</sup> Rejoice, O young man, in thy youth; and let thy heart cheer thee in the days of thy youth, and walk in the ways of thine heart, and in the sight of thine eyes: but know thou, that for all these *things* God will bring thee into judgment.  
-> <sup>10</sup> Therefore remove sorrow from thy heart, and put away evil from thy flesh: for childhood and youth *are* vanity.  
+> **⁷** Truly the light *is* sweet, and a pleasant *thing it is* for the eyes to behold the sun:  
+> **⁸** But if a man live many years, *and* rejoice in them all; yet let him remember the days of darkness; for they shall be many. All that cometh *is* vanity.  
+> **⁹** Rejoice, O young man, in thy youth; and let thy heart cheer thee in the days of thy youth, and walk in the ways of thine heart, and in the sight of thine eyes: but know thou, that for all these *things* God will bring thee into judgment.  
+> **¹⁰** Therefore remove sorrow from thy heart, and put away evil from thy flesh: for childhood and youth *are* vanity.  
 
 Here is an admonition both to old people and to young people, to think of dying, and get ready for it. Having by many excellent precepts taught us how to live well, the preacher comes now, towards the close of his discourse, to teach us how to die well and to put us in mind of our latter end.
 

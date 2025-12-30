@@ -8,14 +8,14 @@ This chapter gives us a particular account what sort of progress the several tri
 
 ## Judah Attacks the Canaanites; The Punishment of Adoni-bezek. (b. c. 1425.)
 
-> <sup>1</sup> Now after the death of Joshua it came to pass, that the children of Israel asked the LORD, saying, Who shall go up for us against the Canaanites first, to fight against them?  
-> <sup>2</sup> And the LORD said, Judah shall go up: behold, I have delivered the land into his hand.  
-> <sup>3</sup> And Judah said unto Simeon his brother, Come up with me into my lot, that we may fight against the Canaanites; and I likewise will go with thee into thy lot. So Simeon went with him.  
-> <sup>4</sup> And Judah went up; and the LORD delivered the Canaanites and the Perizzites into their hand: and they slew of them in Bezek ten thousand men.  
-> <sup>5</sup> And they found Adoni-bezek in Bezek: and they fought against him, and they slew the Canaanites and the Perizzites.  
-> <sup>6</sup> But Adoni-bezek fled; and they pursued after him, and caught him, and cut off his thumbs and his great toes.  
-> <sup>7</sup> And Adoni-bezek said, Threescore and ten kings, having their thumbs and their great toes cut off, gathered *their meat* under my table: as I have done, so God hath requited me. And they brought him to Jerusalem, and there he died.  
-> <sup>8</sup> Now the children of Judah had fought against Jerusalem, and had taken it, and smitten it with the edge of the sword, and set the city on fire.  
+> **¹** Now after the death of Joshua it came to pass, that the children of Israel asked the LORD, saying, Who shall go up for us against the Canaanites first, to fight against them?  
+> **²** And the LORD said, Judah shall go up: behold, I have delivered the land into his hand.  
+> **³** And Judah said unto Simeon his brother, Come up with me into my lot, that we may fight against the Canaanites; and I likewise will go with thee into thy lot. So Simeon went with him.  
+> **⁴** And Judah went up; and the LORD delivered the Canaanites and the Perizzites into their hand: and they slew of them in Bezek ten thousand men.  
+> **⁵** And they found Adoni-bezek in Bezek: and they fought against him, and they slew the Canaanites and the Perizzites.  
+> **⁶** But Adoni-bezek fled; and they pursued after him, and caught him, and cut off his thumbs and his great toes.  
+> **⁷** And Adoni-bezek said, Threescore and ten kings, having their thumbs and their great toes cut off, gathered *their meat* under my table: as I have done, so God hath requited me. And they brought him to Jerusalem, and there he died.  
+> **⁸** Now the children of Judah had fought against Jerusalem, and had taken it, and smitten it with the edge of the sword, and set the city on fire.  
 
 Here, I. The children of Israel consult the oracle of God for direction which of all the tribes should first attempt to clear their country of the Canaanites, and to animate and encourage the rest. It was *after the death of Joshua.* While he lived he directed them, and all the tribes were obedient to him, but when he died he left no successor in the same authority that he had; but the people must consult the breast-plate of judgment, and thence receive the word of command; for God himself, as he was their King, so he was the Lord of their hosts. The question they ask is, *Who shall go up first?* Jdg 1:1. By this time, we may suppose, they were so multiplied that the places they were in possession of began to be too strait for them, and they must thrust out the enemy to make room; now they enquire who should first take up arms. Whether each tribe was ambitious of being first, and so strove for the honour of it, or whether each was afraid of being first, and so strove to decline it, does not appear; but by common consent the matter was referred to God himself, who is the fittest both to dispose of honours and to cut out work.
 
@@ -31,39 +31,39 @@ VI\. Particular notice is taken of the conquest of Jerusalem, Jdg 1:8. Our trans
 
 ## Conquests of Judah. (b. c. 1425.)
 
-> <sup>9</sup> And afterward the children of Judah went down to fight against the Canaanites, that dwelt in the mountain, and in the south, and in the valley.  
-> <sup>10</sup> And Judah went against the Canaanites that dwelt in Hebron: (now the name of Hebron before *was* Kirjath-arba:) and they slew Sheshai, and Ahiman, and Talmai.  
-> <sup>11</sup> And from thence he went against the inhabitants of Debir: and the name of Debir before *was* Kirjath-sepher:  
-> <sup>12</sup> And Caleb said, He that smiteth Kirjath-sepher, and taketh it, to him will I give Achsah my daughter to wife.  
-> <sup>13</sup> And Othniel the son of Kenaz, Caleb's younger brother, took it: and he gave him Achsah his daughter to wife.  
-> <sup>14</sup> And it came to pass, when she came *to him,* that she moved him to ask of her father a field: and she lighted from off *her* ass; and Caleb said unto her, What wilt thou?  
-> <sup>15</sup> And she said unto him, Give me a blessing: for thou hast given me a south land; give me also springs of water. And Caleb gave her the upper springs and the nether springs.  
-> <sup>16</sup> And the children of the Kenite, Moses' father in law, went up out of the city of palm trees with the children of Judah into the wilderness of Judah, which *lieth* in the south of Arad; and they went and dwelt among the people.  
-> <sup>17</sup> And Judah went with Simeon his brother, and they slew the Canaanites that inhabited Zephath, and utterly destroyed it. And the name of the city was called Hormah.  
-> <sup>18</sup> Also Judah took Gaza with the coast thereof, and Askelon with the coast thereof, and Ekron with the coast thereof.  
-> <sup>19</sup> And the LORD was with Judah; and he drave out *the inhabitants of* the mountain; but could not drive out the inhabitants of the valley, because they had chariots of iron.  
-> <sup>20</sup> And they gave Hebron unto Caleb, as Moses said: and he expelled thence the three sons of Anak.  
+> **⁹** And afterward the children of Judah went down to fight against the Canaanites, that dwelt in the mountain, and in the south, and in the valley.  
+> **¹⁰** And Judah went against the Canaanites that dwelt in Hebron: (now the name of Hebron before *was* Kirjath-arba:) and they slew Sheshai, and Ahiman, and Talmai.  
+> **¹¹** And from thence he went against the inhabitants of Debir: and the name of Debir before *was* Kirjath-sepher:  
+> **¹²** And Caleb said, He that smiteth Kirjath-sepher, and taketh it, to him will I give Achsah my daughter to wife.  
+> **¹³** And Othniel the son of Kenaz, Caleb's younger brother, took it: and he gave him Achsah his daughter to wife.  
+> **¹⁴** And it came to pass, when she came *to him,* that she moved him to ask of her father a field: and she lighted from off *her* ass; and Caleb said unto her, What wilt thou?  
+> **¹⁵** And she said unto him, Give me a blessing: for thou hast given me a south land; give me also springs of water. And Caleb gave her the upper springs and the nether springs.  
+> **¹⁶** And the children of the Kenite, Moses' father in law, went up out of the city of palm trees with the children of Judah into the wilderness of Judah, which *lieth* in the south of Arad; and they went and dwelt among the people.  
+> **¹⁷** And Judah went with Simeon his brother, and they slew the Canaanites that inhabited Zephath, and utterly destroyed it. And the name of the city was called Hormah.  
+> **¹⁸** Also Judah took Gaza with the coast thereof, and Askelon with the coast thereof, and Ekron with the coast thereof.  
+> **¹⁹** And the LORD was with Judah; and he drave out *the inhabitants of* the mountain; but could not drive out the inhabitants of the valley, because they had chariots of iron.  
+> **²⁰** And they gave Hebron unto Caleb, as Moses said: and he expelled thence the three sons of Anak.  
 
 We have here a further account of that glorious and successful campaign which Judah and Simeon made. 1. The lot of Judah was pretty well cleared of the Canaanites, yet not thoroughly. Those that *dwelt in the mountain* (the mountains that were round about Jerusalem) were driven out (Jdg 1:9,19), but those in the valley kept their ground against them, having *chariots of iron,* such as we read of, Jos 17:16. Here the men of Judah failed, and thereby spoiled the influence which otherwise their example hitherto might have had on the rest of the tribes, who followed them in this instance of their cowardice, rather than in all the other instances of their courage. They had iron chariots, and therefore it was thought not safe to attack them: but had not Israel God on their side, *whose chariots are thousands of angels* (Ps 68:17), before whom these iron chariots would be but as stubble to the fire? Had not God expressly promised by the oracle (Jdg 1:2) to give them success against the Canaanites in this very expedition, without excepting those that had iron chariots? Yet they suffered their fears to prevail against their faith, they could not trust God under any disadvantages, and therefore durst not face the iron chariots, but meanly withdrew their forces, when with one bold stroke they might have completed their victories; and it proved of pernicious consequence. They did run well, what hindered them? Ga 5:7. 2. Caleb was put in possession of Hebron, which, though given him by Joshua ten or twelve years before (as Dr. Lightfoot computes), yet being employed in public service, for the settling of the tribes, which he preferred before his own private interests, it seems he did not till now make himself master of; so well content was that good man to serve others, while he left himself to be served last; few are like-minded, for *all seek their own,* Php 2:20,21. Yet now the men of Judah all came in to his assistance for the reducing of Hebron (Jdg 1:10), slew the sons of Anak, and put him in possession of it, Jdg 1:20. They gave Hebron unto Caleb. And now Caleb, that he might return the kindness of his countrymen, is impatient to see Debir reduced and put into the hands of the men of Judah, to expedite which he proffers his daughter to the person that will undertake to command in the siege of that important place, Jdg 1:11,12. Othniel bravely undertakes it, and wins the town and the lady (Jdg 1:13), and by his wife's interest and management with her father gains a very good inheritance for himself and his family, Jdg 1:14,15. We had this passage before, Jos 15:16-19, where it was largely explained and improved. 3. Simeon got ground of the Canaanites in his border, Jdg 1:17,18. In the eastern part of Simeon's lot, they destroyed the Canaanites in Zephath, and called it *Hormah—destruction,* adding this to some other devoted cities not far off, which they had some time ago, with good reason, called by that name, Nu 21:2,3. And this perhaps was the complete performance of the vow they them made that they would utterly destroy these cities of the Canaanites in the south. In the western part they took Gaza, Askelon, and Ekron, cities of the Philistines; they gained present possession of the cities, but, not destroying the inhabitants, the Philistines in process of time recovered the cities, and proved inveterate enemies to the Israel of God, and no better could come of doing their work by the halves. 4. The Kenites gained a settlement in the tribe of Judah, choosing it there rather than in any other tribe, because it was the strongest, and there they hoped to be safe and quiet, Jdg 1:16. These were the posterity of Jethro, who either went with Israel when Moses invited them (Nu 10:29) or met them about the same place when they came up from their wanderings in the wilderness thirty-eight years after, and went with them then to Canaan, Moses having promised them that they should fare as Israel fared, Nu 10:32. They had at first seated themselves in the *city of palm-trees,* that is, Jericho, a city which never was to be rebuilt, and therefore the fitter for those who *dwelt in tents,* and did not mind building. But afterwards they removed into the wilderness of Judah, either out of their affection to that place, because solitary and retired, or out of their affection to that tribe, which perhaps had been in a particular manner kind to them. Yet we find the tent of Jael, who was of that family, far north, in the lot of Naphtali, when Sisera took shelter there, Jdg 4:17. This respect Israel showed them, to let them fix where they pleased, being a quiet people, who, wherever they were, were content with a little. Those that molested none were molested by none. *Blessed are the meek, for* thus *they shall inherit the earth.*
 
 ## The Israelites Mixed with the Canaanites. (b. c. 1425.)
 
-> <sup>21</sup> And the children of Benjamin did not drive out the Jebusites that inhabited Jerusalem; but the Jebusites dwell with the children of Benjamin in Jerusalem unto this day.  
-> <sup>22</sup> And the house of Joseph, they also went up against Bethel: and the LORD *was* with them.  
-> <sup>23</sup> And the house of Joseph sent to descry Bethel. (Now the name of the city before *was* Luz.)  
-> <sup>24</sup> And the spies saw a man come forth out of the city, and they said unto him, show us, we pray thee, the entrance into the city, and we will show thee mercy.  
-> <sup>25</sup> And when he showed them the entrance into the city, they smote the city with the edge of the sword; but they let go the man and all his family.  
-> <sup>26</sup> And the man went into the land of the Hittites, and built a city, and called the name thereof Luz: which *is* the name thereof unto this day.  
-> <sup>27</sup> Neither did Manasseh drive out *the inhabitants of* Beth-shean and her towns, nor Taanach and her towns, nor the inhabitants of Dor and her towns, nor the inhabitants of Ibleam and her towns, nor the inhabitants of Megiddo and her towns: but the Canaanites would dwell in that land.  
-> <sup>28</sup> And it came to pass, when Israel was strong, that they put the Canaanites to tribute, and did not utterly drive them out.  
-> <sup>29</sup> Neither did Ephraim drive out the Canaanites that dwelt in Gezer; but the Canaanites dwelt in Gezer among them.  
-> <sup>30</sup> Neither did Zebulun drive out the inhabitants of Kitron, nor the inhabitants of Nahalol; but the Canaanites dwelt among them, and became tributaries.  
-> <sup>31</sup> Neither did Asher drive out the inhabitants of Accho, nor the inhabitants of Zidon, nor of Ahlab, nor of Achzib, nor of Helbah, nor of Aphik, nor of Rehob:  
-> <sup>32</sup> But the Asherites dwelt among the Canaanites, the inhabitants of the land: for they did not drive them out.  
-> <sup>33</sup> Neither did Naphtali drive out the inhabitants of Beth-shemesh, nor the inhabitants of Beth-anath; but he dwelt among the Canaanites, the inhabitants of the land: nevertheless the inhabitants of Beth-shemesh and of Beth-anath became tributaries unto them.  
-> <sup>34</sup> And the Amorites forced the children of Dan into the mountain: for they would not suffer them to come down to the valley:  
-> <sup>35</sup> But the Amorites would dwell in mount Heres in Aijalon, and in Shaalbim: yet the hand of the house of Joseph prevailed, so that they became tributaries.  
-> <sup>36</sup> And the coast of the Amorites *was* from the going up to Akrabbim, from the rock, and upward.  
+> **²¹** And the children of Benjamin did not drive out the Jebusites that inhabited Jerusalem; but the Jebusites dwell with the children of Benjamin in Jerusalem unto this day.  
+> **²²** And the house of Joseph, they also went up against Bethel: and the LORD *was* with them.  
+> **²³** And the house of Joseph sent to descry Bethel. (Now the name of the city before *was* Luz.)  
+> **²⁴** And the spies saw a man come forth out of the city, and they said unto him, show us, we pray thee, the entrance into the city, and we will show thee mercy.  
+> **²⁵** And when he showed them the entrance into the city, they smote the city with the edge of the sword; but they let go the man and all his family.  
+> **²⁶** And the man went into the land of the Hittites, and built a city, and called the name thereof Luz: which *is* the name thereof unto this day.  
+> **²⁷** Neither did Manasseh drive out *the inhabitants of* Beth-shean and her towns, nor Taanach and her towns, nor the inhabitants of Dor and her towns, nor the inhabitants of Ibleam and her towns, nor the inhabitants of Megiddo and her towns: but the Canaanites would dwell in that land.  
+> **²⁸** And it came to pass, when Israel was strong, that they put the Canaanites to tribute, and did not utterly drive them out.  
+> **²⁹** Neither did Ephraim drive out the Canaanites that dwelt in Gezer; but the Canaanites dwelt in Gezer among them.  
+> **³⁰** Neither did Zebulun drive out the inhabitants of Kitron, nor the inhabitants of Nahalol; but the Canaanites dwelt among them, and became tributaries.  
+> **³¹** Neither did Asher drive out the inhabitants of Accho, nor the inhabitants of Zidon, nor of Ahlab, nor of Achzib, nor of Helbah, nor of Aphik, nor of Rehob:  
+> **³²** But the Asherites dwelt among the Canaanites, the inhabitants of the land: for they did not drive them out.  
+> **³³** Neither did Naphtali drive out the inhabitants of Beth-shemesh, nor the inhabitants of Beth-anath; but he dwelt among the Canaanites, the inhabitants of the land: nevertheless the inhabitants of Beth-shemesh and of Beth-anath became tributaries unto them.  
+> **³⁴** And the Amorites forced the children of Dan into the mountain: for they would not suffer them to come down to the valley:  
+> **³⁵** But the Amorites would dwell in mount Heres in Aijalon, and in Shaalbim: yet the hand of the house of Joseph prevailed, so that they became tributaries.  
+> **³⁶** And the coast of the Amorites *was* from the going up to Akrabbim, from the rock, and upward.  
 
 We are here told upon what terms the rest of the tribes stood with the Canaanites that remained.
 

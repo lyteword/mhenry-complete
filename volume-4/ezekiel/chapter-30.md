@@ -8,25 +8,25 @@ In this chapter we have, I. A continuation of the prophecy against Egypt, which 
 
 ## Prophecy against Egypt; Destruction of Egypt Foretold. (b. c. 572.)
 
-> <sup>1</sup> The word of the LORD came again unto me, saying,  
-> <sup>2</sup> Son of man, prophesy and say, Thus saith the Lord GOD; Howl ye, Woe worth the day!  
-> <sup>3</sup> For the day *is* near, even the day of the LORD *is* near, a cloudy day; it shall be the time of the heathen.  
-> <sup>4</sup> And the sword shall come upon Egypt, and great pain shall be in Ethiopia, when the slain shall fall in Egypt, and they shall take away her multitude, and her foundations shall be broken down.  
-> <sup>5</sup> Ethiopia, and Libya, and Lydia, and all the mingled people, and Chub, and the men of the land that is in league, shall fall with them by the sword.  
-> <sup>6</sup> Thus saith the LORD; They also that uphold Egypt shall fall; and the pride of her power shall come down: from the tower of Syene shall they fall in it by the sword, saith the Lord GOD.  
-> <sup>7</sup> And they shall be desolate in the midst of the countries *that are* desolate, and her cities shall be in the midst of the cities *that are* wasted.  
-> <sup>8</sup> And they shall know that I *am* the LORD, when I have set a fire in Egypt, and *when* all her helpers shall be destroyed.  
-> <sup>9</sup> In that day shall messengers go forth from me in ships to make the careless Ethiopians afraid, and great pain shall come upon them, as in the day of Egypt: for, lo, it cometh.  
-> <sup>10</sup> Thus saith the Lord GOD; I will also make the multitude of Egypt to cease by the hand of Nebuchadrezzar king of Babylon.  
-> <sup>11</sup> He and his people with him, the terrible of the nations, shall be brought to destroy the land: and they shall draw their swords against Egypt, and fill the land with the slain.  
-> <sup>12</sup> And I will make the rivers dry, and sell the land into the hand of the wicked: and I will make the land waste, and all that is therein, by the hand of strangers: I the LORD have spoken *it.*  
-> <sup>13</sup> Thus saith the Lord GOD; I will also destroy the idols, and I will cause *their* images to cease out of Noph; and there shall be no more a prince of the land of Egypt: and I will put a fear in the land of Egypt.  
-> <sup>14</sup> And I will make Pathros desolate, and will set fire in Zoan, and will execute judgments in No.  
-> <sup>15</sup> And I will pour my fury upon Sin, the strength of Egypt; and I will cut off the multitude of No.  
-> <sup>16</sup> And I will set fire in Egypt: Sin shall have great pain, and No shall be rent asunder, and Noph *shall have* distresses daily.  
-> <sup>17</sup> The young men of Aven and of Pi-beseth shall fall by the sword: and these *cities* shall go into captivity.  
-> <sup>18</sup> At Tehaphnehes also the day shall be darkened, when I shall break there the yokes of Egypt: and the pomp of her strength shall cease in her: as for her, a cloud shall cover her, and her daughters shall go into captivity.  
-> <sup>19</sup> Thus will I execute judgments in Egypt: and they shall know that I *am* the LORD.  
+> **¹** The word of the LORD came again unto me, saying,  
+> **²** Son of man, prophesy and say, Thus saith the Lord GOD; Howl ye, Woe worth the day!  
+> **³** For the day *is* near, even the day of the LORD *is* near, a cloudy day; it shall be the time of the heathen.  
+> **⁴** And the sword shall come upon Egypt, and great pain shall be in Ethiopia, when the slain shall fall in Egypt, and they shall take away her multitude, and her foundations shall be broken down.  
+> **⁵** Ethiopia, and Libya, and Lydia, and all the mingled people, and Chub, and the men of the land that is in league, shall fall with them by the sword.  
+> **⁶** Thus saith the LORD; They also that uphold Egypt shall fall; and the pride of her power shall come down: from the tower of Syene shall they fall in it by the sword, saith the Lord GOD.  
+> **⁷** And they shall be desolate in the midst of the countries *that are* desolate, and her cities shall be in the midst of the cities *that are* wasted.  
+> **⁸** And they shall know that I *am* the LORD, when I have set a fire in Egypt, and *when* all her helpers shall be destroyed.  
+> **⁹** In that day shall messengers go forth from me in ships to make the careless Ethiopians afraid, and great pain shall come upon them, as in the day of Egypt: for, lo, it cometh.  
+> **¹⁰** Thus saith the Lord GOD; I will also make the multitude of Egypt to cease by the hand of Nebuchadrezzar king of Babylon.  
+> **¹¹** He and his people with him, the terrible of the nations, shall be brought to destroy the land: and they shall draw their swords against Egypt, and fill the land with the slain.  
+> **¹²** And I will make the rivers dry, and sell the land into the hand of the wicked: and I will make the land waste, and all that is therein, by the hand of strangers: I the LORD have spoken *it.*  
+> **¹³** Thus saith the Lord GOD; I will also destroy the idols, and I will cause *their* images to cease out of Noph; and there shall be no more a prince of the land of Egypt: and I will put a fear in the land of Egypt.  
+> **¹⁴** And I will make Pathros desolate, and will set fire in Zoan, and will execute judgments in No.  
+> **¹⁵** And I will pour my fury upon Sin, the strength of Egypt; and I will cut off the multitude of No.  
+> **¹⁶** And I will set fire in Egypt: Sin shall have great pain, and No shall be rent asunder, and Noph *shall have* distresses daily.  
+> **¹⁷** The young men of Aven and of Pi-beseth shall fall by the sword: and these *cities* shall go into captivity.  
+> **¹⁸** At Tehaphnehes also the day shall be darkened, when I shall break there the yokes of Egypt: and the pomp of her strength shall cease in her: as for her, a cloud shall cover her, and her daughters shall go into captivity.  
+> **¹⁹** Thus will I execute judgments in Egypt: and they shall know that I *am* the LORD.  
 
 The prophecy of the destruction of Egypt is here very full and particular, as well as, in the general, very frightful. What can protect a provoking people when the righteous God comes forth to contend with them?
 
@@ -46,13 +46,13 @@ The close of this prediction leaves, 1. The land of Egypt mortified: *Thus will 
 
 ## Destruction of Egypt Foretold. (b. c. 572.)
 
-> <sup>20</sup> And it came to pass in the eleventh year, in the first *month,* in the seventh *day* of the month, *that* the word of the LORD came unto me, saying,  
-> <sup>21</sup> Son of man, I have broken the arm of Pharaoh king of Egypt; and, lo, it shall not be bound up to be healed, to put a roller to bind it, to make it strong to hold the sword.  
-> <sup>22</sup> Therefore thus saith the Lord GOD; Behold, I *am* against Pharaoh king of Egypt, and will break his arms, the strong, and that which was broken; and I will cause the sword to fall out of his hand.  
-> <sup>23</sup> And I will scatter the Egyptians among the nations, and will disperse them through the countries.  
-> <sup>24</sup> And I will strengthen the arms of the king of Babylon, and put my sword in his hand: but I will break Pharaoh's arms, and he shall groan before him with the groanings of a deadly wounded *man.*  
-> <sup>25</sup> But I will strengthen the arms of the king of Babylon, and the arms of Pharaoh shall fall down; and they shall know that I *am* the LORD, when I shall put my sword into the hand of the king of Babylon, and he shall stretch it out upon the land of Egypt.  
-> <sup>26</sup> And I will scatter the Egyptians among the nations, and disperse them among the countries; and they shall know that I *am* the LORD.  
+> **²⁰** And it came to pass in the eleventh year, in the first *month,* in the seventh *day* of the month, *that* the word of the LORD came unto me, saying,  
+> **²¹** Son of man, I have broken the arm of Pharaoh king of Egypt; and, lo, it shall not be bound up to be healed, to put a roller to bind it, to make it strong to hold the sword.  
+> **²²** Therefore thus saith the Lord GOD; Behold, I *am* against Pharaoh king of Egypt, and will break his arms, the strong, and that which was broken; and I will cause the sword to fall out of his hand.  
+> **²³** And I will scatter the Egyptians among the nations, and will disperse them through the countries.  
+> **²⁴** And I will strengthen the arms of the king of Babylon, and put my sword in his hand: but I will break Pharaoh's arms, and he shall groan before him with the groanings of a deadly wounded *man.*  
+> **²⁵** But I will strengthen the arms of the king of Babylon, and the arms of Pharaoh shall fall down; and they shall know that I *am* the LORD, when I shall put my sword into the hand of the king of Babylon, and he shall stretch it out upon the land of Egypt.  
+> **²⁶** And I will scatter the Egyptians among the nations, and disperse them among the countries; and they shall know that I *am* the LORD.  
 
 This short prophecy of the weakening of the power of Egypt was delivered about the time that the army of the Egyptians, which attempted to raise the siege of Jerusalem, was frustrated in its enterprises, and returned *re infectâ—without accomplishing their purpose;* whereupon the king of Babylon renewed the siege and carried his point. The kingdom of Egypt was very ancient, and had been for many ages considerable. That of Babylon had but lately arrived at its great pomp and power, being built upon the ruins of the kingdom of Assyria. Now it is with them as it is with families and states, some are growing up, others are declining and going back; one must increase and the others must of course decrease.
 

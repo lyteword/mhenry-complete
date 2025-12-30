@@ -8,14 +8,14 @@ When Abner was slain David was at a loss for a friend to perfect the reduction o
 
 ## Ish-bosheth Slain by His Servants. (b. c. 1048.)
 
-> <sup>1</sup> And when Saul's son heard that Abner was dead in Hebron, his hands were feeble, and all the Israelites were troubled.  
-> <sup>2</sup> And Saul's son had two men *that were* captains of bands: the name of the one *was* Baanah, and the name of the other Rechab, the sons of Rimmon a Beerothite, of the children of Benjamin: (for Beeroth also was reckoned to Benjamin:  
-> <sup>3</sup> And the Beerothites fled to Gittaim, and were sojourners there until this day.)  
-> <sup>4</sup> And Jonathan, Saul's son, had a son *that was* lame of *his* feet. He was five years old when the tidings came of Saul and Jonathan out of Jezreel, and his nurse took him up, and fled: and it came to pass, as she made haste to flee, that he fell, and became lame. And his name *was* Mephibosheth.  
-> <sup>5</sup> And the sons of Rimmon the Beerothite, Rechab and Baanah, went, and came about the heat of the day to the house of Ishbosheth, who lay on a bed at noon.  
-> <sup>6</sup> And they came thither into the midst of the house, *as though* they would have fetched wheat; and they smote him under the fifth *rib:* and Rechab and Baanah his brother escaped.  
-> <sup>7</sup> For when they came into the house, he lay on his bed in his bedchamber, and they smote him, and slew him, and beheaded him, and took his head, and gat them away through the plain all night.  
-> <sup>8</sup> And they brought the head of Ishbosheth unto David to Hebron, and said to the king, Behold the head of Ishbosheth the son of Saul thine enemy, which sought thy life; and the LORD hath avenged my lord the king this day of Saul, and of his seed.  
+> **¹** And when Saul's son heard that Abner was dead in Hebron, his hands were feeble, and all the Israelites were troubled.  
+> **²** And Saul's son had two men *that were* captains of bands: the name of the one *was* Baanah, and the name of the other Rechab, the sons of Rimmon a Beerothite, of the children of Benjamin: (for Beeroth also was reckoned to Benjamin:  
+> **³** And the Beerothites fled to Gittaim, and were sojourners there until this day.)  
+> **⁴** And Jonathan, Saul's son, had a son *that was* lame of *his* feet. He was five years old when the tidings came of Saul and Jonathan out of Jezreel, and his nurse took him up, and fled: and it came to pass, as she made haste to flee, that he fell, and became lame. And his name *was* Mephibosheth.  
+> **⁵** And the sons of Rimmon the Beerothite, Rechab and Baanah, went, and came about the heat of the day to the house of Ishbosheth, who lay on a bed at noon.  
+> **⁶** And they came thither into the midst of the house, *as though* they would have fetched wheat; and they smote him under the fifth *rib:* and Rechab and Baanah his brother escaped.  
+> **⁷** For when they came into the house, he lay on his bed in his bedchamber, and they smote him, and slew him, and beheaded him, and took his head, and gat them away through the plain all night.  
+> **⁸** And they brought the head of Ishbosheth unto David to Hebron, and said to the king, Behold the head of Ishbosheth the son of Saul thine enemy, which sought thy life; and the LORD hath avenged my lord the king this day of Saul, and of his seed.  
 
 Here is, I. The weakness of Saul's house. Still it grew weaker and weaker. 1. As for Ishbosheth, who was in possession of the throne, his hands were feeble, 2Sa 4:1. All the strength they ever had was from Abner's support, and now that he was dead he had no spirit left in him. Though Abner had, in a passion, deserted his interest, yet he hoped, by his means, to make good terms with David; but now even this hope fails him, and he sees himself forsaken by his friends and at the mercy of his enemies. All the Israelites that adhered to him were troubled and at a loss what to do, whether to proceed in their treaty with David or no. 2. As for Mephibosheth, who in the right of his father Jonathan had a prior title, his feet were lame, and he was unfit for any service, 2Sa 4:4. He was but five years old when his father and grandfather were killed. His nurse, hearing of the Philistines' victory, was apprehensive that, in pursuit of it, they would immediately send a party to Saul's house, to cut off all that pertained to it, and would especially aim at her young master, who was now next heir to the crown. Under the apprehension of this, she fled with the child in her arms, to secure it either in some secret place where he could not be found, or in some strong place where he could not be got at; and, making more haste than good speed, she fell with the child, and by the fall some bone was broken or put out, and not well set, so that he was lame of it as long as he lived, and unfit either for court or camp. See what sad accidents children are liable to in their infancy, the effect of which may be felt by them, to their great uneasiness, all their days. Even the children of princes and great men, the children of good men, for such a one Jonathan was, children that are well tended, and have nurses of their own to take care of them, yet are not always safe. What reason have we to be thankful to God for the preservation of our limbs and senses to us, through the many perils of the weak and helpless state of infancy, and to own his goodness in giving his angels a charge concerning us, to bear us up in their arms, out of which there is no danger of falling, Ps 91:12.
 
@@ -29,10 +29,10 @@ II\. The murder of Saul's son. We are here told,
 
 ## Ish-bosheth's Murderers Punished. (b. c. 1048.)
 
-> <sup>9</sup> And David answered Rechab and Baanah his brother, the sons of Rimmon the Beerothite, and said unto them, *As* the LORD liveth, who hath redeemed my soul out of all adversity,  
-> <sup>10</sup> When one told me, saying, Behold, Saul is dead, thinking to have brought good tidings, I took hold of him, and slew him in Ziklag, who *thought* that I would have given him a reward for his tidings:  
-> <sup>11</sup> How much more, when wicked men have slain a righteous person in his own house upon his bed? shall I not therefore now require his blood of your hand, and take you away from the earth?  
-> <sup>12</sup> And David commanded his young men, and they slew them, and cut off their hands and their feet, and hanged *them* up over the pool in Hebron. But they took the head of Ishbosheth, and buried *it* in the sepulchre of Abner in Hebron.  
+> **⁹** And David answered Rechab and Baanah his brother, the sons of Rimmon the Beerothite, and said unto them, *As* the LORD liveth, who hath redeemed my soul out of all adversity,  
+> **¹⁰** When one told me, saying, Behold, Saul is dead, thinking to have brought good tidings, I took hold of him, and slew him in Ziklag, who *thought* that I would have given him a reward for his tidings:  
+> **¹¹** How much more, when wicked men have slain a righteous person in his own house upon his bed? shall I not therefore now require his blood of your hand, and take you away from the earth?  
+> **¹²** And David commanded his young men, and they slew them, and cut off their hands and their feet, and hanged *them* up over the pool in Hebron. But they took the head of Ishbosheth, and buried *it* in the sepulchre of Abner in Hebron.  
 
 We have here justice done upon the murderers of Ish-bosheth.
 

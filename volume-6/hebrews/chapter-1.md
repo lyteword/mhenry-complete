@@ -8,9 +8,9 @@ In this chapter we have a twofold comparison stated: I. Between the evangelical 
 
 ## Law and Gospel Compared; Dignity and Glory of Christ. (a. d. 62.)
 
-> <sup>1</sup> God, who at sundry times and in divers manners spake in time past unto the fathers by the prophets,  
-> <sup>2</sup> Hath in these last days spoken unto us by *his* Son, whom he hath appointed heir of all things, by whom also he made the worlds;  
-> <sup>3</sup> Who being the brightness of *his* glory, and the express image of his person, and upholding all things by the word of his power, when he had by himself purged our sins, sat down on the right hand of the Majesty on high;  
+> **¹** God, who at sundry times and in divers manners spake in time past unto the fathers by the prophets,  
+> **²** Hath in these last days spoken unto us by *his* Son, whom he hath appointed heir of all things, by whom also he made the worlds;  
+> **³** Who being the brightness of *his* glory, and the express image of his person, and upholding all things by the word of his power, when he had by himself purged our sins, sat down on the right hand of the Majesty on high;  
 
 Here the apostle begins with a general declaration of the excellency of the gospel dispensation above that of the law, which he demonstrates from the different way and manner of God's communicating himself and his mind and will to men in the one and in the other: both these dispensations were of God, and both of them very good, but there is a great difference in the way of their coming from God. Observe,
 
@@ -34,17 +34,17 @@ Now it was by no less a person than this that God in these last days spoke to me
 
 ## The Dignity of Christ. (a. d. 62.)
 
-> <sup>4</sup> Being made so much better than the angels, as he hath by inheritance obtained a more excellent name than they.  
-> <sup>5</sup> For unto which of the angels said he at any time, Thou art my Son, this day have I begotten thee? And again, I will be to him a Father, and he shall be to me a Son?  
-> <sup>6</sup> And again, when he bringeth in the first-begotten into the world, he saith, And let all the angels of God worship him.  
-> <sup>7</sup> And of the angels he saith, Who maketh his angels spirits, and his ministers a flame of fire.  
-> <sup>8</sup> But unto the Son *he saith,* Thy throne, O God, *is* for ever and ever: a sceptre of righteousness *is* the sceptre of thy kingdom.  
-> <sup>9</sup> Thou hast loved righteousness, and hated iniquity; therefore God, *even* thy God, hath anointed thee with the oil of gladness above thy fellows.  
-> <sup>10</sup> And, Thou, Lord, in the beginning hast laid the foundation of the earth; and the heavens are the works of thine hands:  
-> <sup>11</sup> They shall perish; but thou remainest; and they all shall wax old as doth a garment;  
-> <sup>12</sup> And as a vesture shalt thou fold them up, and they shall be changed: but thou art the same, and thy years shall not fail.  
-> <sup>13</sup> But to which of the angels said he at any time, Sit on my right hand, until I make thine enemies thy footstool?  
-> <sup>14</sup> Are they not all ministering spirits, sent forth to minister for them who shall be heirs of salvation?  
+> **⁴** Being made so much better than the angels, as he hath by inheritance obtained a more excellent name than they.  
+> **⁵** For unto which of the angels said he at any time, Thou art my Son, this day have I begotten thee? And again, I will be to him a Father, and he shall be to me a Son?  
+> **⁶** And again, when he bringeth in the first-begotten into the world, he saith, And let all the angels of God worship him.  
+> **⁷** And of the angels he saith, Who maketh his angels spirits, and his ministers a flame of fire.  
+> **⁸** But unto the Son *he saith,* Thy throne, O God, *is* for ever and ever: a sceptre of righteousness *is* the sceptre of thy kingdom.  
+> **⁹** Thou hast loved righteousness, and hated iniquity; therefore God, *even* thy God, hath anointed thee with the oil of gladness above thy fellows.  
+> **¹⁰** And, Thou, Lord, in the beginning hast laid the foundation of the earth; and the heavens are the works of thine hands:  
+> **¹¹** They shall perish; but thou remainest; and they all shall wax old as doth a garment;  
+> **¹²** And as a vesture shalt thou fold them up, and they shall be changed: but thou art the same, and thy years shall not fail.  
+> **¹³** But to which of the angels said he at any time, Sit on my right hand, until I make thine enemies thy footstool?  
+> **¹⁴** Are they not all ministering spirits, sent forth to minister for them who shall be heirs of salvation?  
 
 The apostle, having proved the pre-eminence of the gospel above the law from the pre-eminence of the Lord Jesus Christ above the prophets, now proceeds to show that he is much superior not only to the prophets, but to the angels themselves. In this he obviates an objection that the Jewish zealots would be ready to make, that the law was not only delivered by men, *but ordained by angels* (Ga 3:19), who attended at the giving forth of the law, the hosts of heaven being drawn forth to attend the Lord Jehovah on that awful occasion. Now the angels are very glorious beings, far more glorious and excellent than men; the scripture always represents them as the most excellent of all creatures, and we know of no being but God himself that is higher than the angels; and therefore that law that was ordained by angels ought to be held in great esteem. To take off the force of this argument, the penman of this epistle proceeds to state the comparison between Jesus Christ and the holy angels, both in nature and office, and to prove that Christ is vastly superior to the angels themselves: *Being made so much better than the angels, as he hath by inheritance obtained a more excellent name than they.* Here observe,
 

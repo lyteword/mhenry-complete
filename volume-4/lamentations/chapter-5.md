@@ -8,22 +8,22 @@ This chapter, though it has the same number of verses with the 1st, 2nd, and 4th
 
 ## An Appeal to God; Complicated Sorrows. (b. c. 588.)
 
-> <sup>1</sup> Remember, O LORD, what is come upon us: consider, and behold our reproach.  
-> <sup>2</sup> Our inheritance is turned to strangers, our houses to aliens.  
-> <sup>3</sup> We are orphans and fatherless, our mothers *are* as widows.  
-> <sup>4</sup> We have drunken our water for money; our wood is sold unto us.  
-> <sup>5</sup> Our necks *are* under persecution: we labour, *and* have no rest.  
-> <sup>6</sup> We have given the hand *to* the Egyptians, *and to* the Assyrians, to be satisfied with bread.  
-> <sup>7</sup> Our fathers have sinned, *and are* not; and we have borne their iniquities.  
-> <sup>8</sup> Servants have ruled over us: *there is* none that doth deliver *us* out of their hand.  
-> <sup>9</sup> We gat our bread with *the peril of* our lives because of the sword of the wilderness.  
-> <sup>10</sup> Our skin was black like an oven because of the terrible famine.  
-> <sup>11</sup> They ravished the women in Zion, *and* the maids in the cities of Judah.  
-> <sup>12</sup> Princes are hanged up by their hand: the faces of elders were not honoured.  
-> <sup>13</sup> They took the young men to grind, and the children fell under the wood.  
-> <sup>14</sup> The elders have ceased from the gate, the young men from their music.  
-> <sup>15</sup> The joy of our heart is ceased; our dance is turned into mourning.  
-> <sup>16</sup> The crown is fallen *from* our head: woe unto us, that we have sinned!  
+> **¹** Remember, O LORD, what is come upon us: consider, and behold our reproach.  
+> **²** Our inheritance is turned to strangers, our houses to aliens.  
+> **³** We are orphans and fatherless, our mothers *are* as widows.  
+> **⁴** We have drunken our water for money; our wood is sold unto us.  
+> **⁵** Our necks *are* under persecution: we labour, *and* have no rest.  
+> **⁶** We have given the hand *to* the Egyptians, *and to* the Assyrians, to be satisfied with bread.  
+> **⁷** Our fathers have sinned, *and are* not; and we have borne their iniquities.  
+> **⁸** Servants have ruled over us: *there is* none that doth deliver *us* out of their hand.  
+> **⁹** We gat our bread with *the peril of* our lives because of the sword of the wilderness.  
+> **¹⁰** Our skin was black like an oven because of the terrible famine.  
+> **¹¹** They ravished the women in Zion, *and* the maids in the cities of Judah.  
+> **¹²** Princes are hanged up by their hand: the faces of elders were not honoured.  
+> **¹³** They took the young men to grind, and the children fell under the wood.  
+> **¹⁴** The elders have ceased from the gate, the young men from their music.  
+> **¹⁵** The joy of our heart is ceased; our dance is turned into mourning.  
+> **¹⁶** The crown is fallen *from* our head: woe unto us, that we have sinned!  
 
 *Is any afflicted? let him pray;* and let him in prayer pour out his complaint to God, and make known before him his trouble. The people of God do so here; being overwhelmed with grief, they give vent to their sorrows at the footstool of the throne of grace, and so give themselves ease. They complain not of evils feared, but of evils felt: "*Remember what has come upon us,* La 5:1. What was of old threatened against us, and was long in the coming, has now at length *come upon us,* and we are ready to sink under it. *Remember what is* past, *consider and behold* what is present, and *let not all the trouble* we are in *seem little to thee,* and not worth taking notice of," Ne 9:32. Note, As it is a great comfort to us, so it ought to be a sufficient one, in our troubles, that God sees, and considers, and remembers, all that *has come upon us;* and in our prayers we need only to recommend our case to his gracious and compassionate consideration. The one word in which all their grievances are summer up is *reproach: Consider, and behold our reproach.* The troubles they were in compared with their former dignity and plenty, were a greater reproach to them than they would have been to any other people, especially considering their relation to God and dependence upon him, and his former appearances for them; and therefore this they complain of very sensibly, because, as it was a reproach, it reflected upon the name and honour of that God who had owned them for his people. *And what wilt thou do unto thy great name?*
 
@@ -49,12 +49,12 @@ II\. They represent the reproach of trouble which they bear, in divers particula
 
 ## Unchangeableness of God; Prayer for Mercy and Grace. (b. c. 588.)
 
-> <sup>17</sup> For this our heart is faint; for these *things* our eyes are dim.  
-> <sup>18</sup> Because of the mountain of Zion, which is desolate, the foxes walk upon it.  
-> <sup>19</sup> Thou, O LORD, remainest for ever; thy throne from generation to generation.  
-> <sup>20</sup> Wherefore dost thou forget us for ever, *and* forsake us so long time?  
-> <sup>21</sup> Turn thou us unto thee, O LORD, and we shall be turned; renew our days as of old.  
-> <sup>22</sup> But thou hast utterly rejected us; thou art very wroth against us.  
+> **¹⁷** For this our heart is faint; for these *things* our eyes are dim.  
+> **¹⁸** Because of the mountain of Zion, which is desolate, the foxes walk upon it.  
+> **¹⁹** Thou, O LORD, remainest for ever; thy throne from generation to generation.  
+> **²⁰** Wherefore dost thou forget us for ever, *and* forsake us so long time?  
+> **²¹** Turn thou us unto thee, O LORD, and we shall be turned; renew our days as of old.  
+> **²²** But thou hast utterly rejected us; thou art very wroth against us.  
 
 Here, I. The people of God express the deep concern they had for the ruins of the temple, more than for any other of their calamities; the interests of God's house lay nearer their hearts than those of their own (La 5:17,18): *For this our heart is faint,* and sinks under the load of its own heaviness; *for these things our eyes are dim,* and our sight is gone, as is usual in a deliquium, or fainting fit. "It is *because of the mountain of Zion, which is desolate,* the holy mountain, and the temple built upon that mountain. For other desolations our hearts grieve and our eyes weep; but for this our hearts faint and our eyes are dim." Note, Nothing lies so heavily upon the spirits of good people as that which threatens the ruin of religion or weakens its interests; and it is a comfort if we can appeal to God that that afflicts us more than any temporal affliction to ourselves. "The people have polluted the *mountain of Zion* with their sins, and therefore God has justly made it *desolate,* to such a degree that *the foxes walk upon it* as freely and commonly as they do in the woods." It is sad indeed when the *mountain of Zion* has become *a portion for foxes* (Ps 63:10); but sin had first made it so, Eze 13:4.
 

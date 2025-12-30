@@ -8,13 +8,13 @@ In this chapter, we have an account of the birth and infancy of our Lord Jesus: 
 
 ## The Birth of Christ.
 
-> <sup>1</sup> And it came to pass in those days, that there went out a decree from Cæsar Augustus, that all the world should be taxed.  
-> <sup>2</sup> (*And* this taxing was first made when Cyrenius was governor of Syria.)  
-> <sup>3</sup> And all went to be taxed, every one into his own city.  
-> <sup>4</sup> And Joseph also went up from Galilee, out of the city of Nazareth, into Judæa, unto the city of David, which is called Bethlehem; (because he was of the house and lineage of David:)  
-> <sup>5</sup> To be taxed with Mary his espoused wife, being great with child.  
-> <sup>6</sup> And so it was, that, while they were there, the days were accomplished that she should be delivered.  
-> <sup>7</sup> And she brought forth her firstborn son, and wrapped him in swaddling clothes, and laid him in a manger; because there was no room for them in the inn.  
+> **¹** And it came to pass in those days, that there went out a decree from Cæsar Augustus, that all the world should be taxed.  
+> **²** (*And* this taxing was first made when Cyrenius was governor of Syria.)  
+> **³** And all went to be taxed, every one into his own city.  
+> **⁴** And Joseph also went up from Galilee, out of the city of Nazareth, into Judæa, unto the city of David, which is called Bethlehem; (because he was of the house and lineage of David:)  
+> **⁵** To be taxed with Mary his espoused wife, being great with child.  
+> **⁶** And so it was, that, while they were there, the days were accomplished that she should be delivered.  
+> **⁷** And she brought forth her firstborn son, and wrapped him in swaddling clothes, and laid him in a manger; because there was no room for them in the inn.  
 
 The *fulness of time* was now come, when God would send forth his Son, *made of a woman,* and *made under the law;* and it was foretold that he should be born at Bethlehem. Now here we have an account of the time, place, and manner of it.
 
@@ -50,19 +50,19 @@ III\. The circumstances of his birth, which were very mean, and under all possib
 
 ## Angels Appear to the Shepherds; Visit of the Shepherds to Christ.
 
-> <sup>8</sup> And there were in the same country shepherds abiding in the field, keeping watch over their flock by night.  
-> <sup>9</sup> And, lo, the angel of the Lord came upon them, and the glory of the Lord shone round about them: and they were sore afraid.  
-> <sup>10</sup> And the angel said unto them, Fear not: for, behold, I bring you good tidings of great joy, which shall be to all people.  
-> <sup>11</sup> For unto you is born this day in the city of David a Saviour, which is Christ the Lord.  
-> <sup>12</sup> And this *shall be* a sign unto you; Ye shall find the babe wrapped in swaddling clothes, lying in a manger.  
-> <sup>13</sup> And suddenly there was with the angel a multitude of the heavenly host praising God, and saying,  
-> <sup>14</sup> Glory to God in the highest, and on earth peace, good will toward men.  
-> <sup>15</sup> And it came to pass, as the angels were gone away from them into heaven, the shepherds said one to another, Let us now go even unto Bethlehem, and see this thing which is come to pass, which the Lord hath made known unto us.  
-> <sup>16</sup> And they came with haste, and found Mary, and Joseph, and the babe lying in a manger.  
-> <sup>17</sup> And when they had seen *it,* they made known abroad the saying which was told them concerning this child.  
-> <sup>18</sup> And all they that heard *it* wondered at those things which were told them by the shepherds.  
-> <sup>19</sup> But Mary kept all these things, and pondered *them* in her heart.  
-> <sup>20</sup> And the shepherds returned, glorifying and praising God for all the things that they had heard and seen, as it was told unto them.  
+> **⁸** And there were in the same country shepherds abiding in the field, keeping watch over their flock by night.  
+> **⁹** And, lo, the angel of the Lord came upon them, and the glory of the Lord shone round about them: and they were sore afraid.  
+> **¹⁰** And the angel said unto them, Fear not: for, behold, I bring you good tidings of great joy, which shall be to all people.  
+> **¹¹** For unto you is born this day in the city of David a Saviour, which is Christ the Lord.  
+> **¹²** And this *shall be* a sign unto you; Ye shall find the babe wrapped in swaddling clothes, lying in a manger.  
+> **¹³** And suddenly there was with the angel a multitude of the heavenly host praising God, and saying,  
+> **¹⁴** Glory to God in the highest, and on earth peace, good will toward men.  
+> **¹⁵** And it came to pass, as the angels were gone away from them into heaven, the shepherds said one to another, Let us now go even unto Bethlehem, and see this thing which is come to pass, which the Lord hath made known unto us.  
+> **¹⁶** And they came with haste, and found Mary, and Joseph, and the babe lying in a manger.  
+> **¹⁷** And when they had seen *it,* they made known abroad the saying which was told them concerning this child.  
+> **¹⁸** And all they that heard *it* wondered at those things which were told them by the shepherds.  
+> **¹⁹** But Mary kept all these things, and pondered *them* in her heart.  
+> **²⁰** And the shepherds returned, glorifying and praising God for all the things that they had heard and seen, as it was told unto them.  
 
 The meanest circumstances of Christ's humiliation were all along attended with some discoveries of his glory, to balance them, and take off the offence of them; for even when he humbled himself God did in some measure exalt him and give him earnests of his future exaltation. When we saw him *wrapped in swaddling clothes* and *laid in a manger,* we were tempted to say, "Surely this cannot be the *Son of God.*" But see his birth attended, as it is here, with a choir of angels, and we shall say, "Surely this cannot be the *Son of God.*" But see his birth attended, as it is here, with a choir of angels, and we shall say, "Surely it can be no other than the *Son of God,* concerning whom it was said, when he was *brought into the world, Let all the angels of God worship him,*" Heb 1:6.
 
@@ -84,10 +84,10 @@ VII\. The use which those made of these things, who did believe them. 1. The vir
 
 ## Christ Presented in the Temple.
 
-> <sup>21</sup> And when eight days were accomplished for the circumcising of the child, his name was called JESUS, which was so named of the angel before he was conceived in the womb.  
-> <sup>22</sup> And when the days of her purification according to the law of Moses were accomplished, they brought him to Jerusalem, to present *him* to the Lord;  
-> <sup>23</sup> (As it is written in the law of the Lord, Every male that openeth the womb shall be called holy to the Lord;)  
-> <sup>24</sup> And to offer a sacrifice according to that which is said in the law of the Lord, A pair of turtledoves, or two young pigeons.  
+> **²¹** And when eight days were accomplished for the circumcising of the child, his name was called JESUS, which was so named of the angel before he was conceived in the womb.  
+> **²²** And when the days of her purification according to the law of Moses were accomplished, they brought him to Jerusalem, to present *him* to the Lord;  
+> **²³** (As it is written in the law of the Lord, Every male that openeth the womb shall be called holy to the Lord;)  
+> **²⁴** And to offer a sacrifice according to that which is said in the law of the Lord, A pair of turtledoves, or two young pigeons.  
 
 Our Lord Jesus, being *made of a woman,* was *made under the law,* Ga 4:4. He was not only, as the son of a daughter of Adam, made under the law of *nature,* but as the son of a daughter of Abraham was made under the law of *Moses;* he put his neck under that yoke, though it was a heavy yoke, and a *shadow of good things to come.* Though its institutions were *beggarly elements,* and *rudiments of this world,* as the apostle calls them, Christ submitted to it, that he might with the better grace cancel it, and set it aside for us.
 
@@ -105,22 +105,22 @@ II\. He was *presented* in the temple. This was done with an eye to the law, and
 
 ## Christ and Simeon in the Temple; Anna in the Temple.
 
-> <sup>25</sup> And, behold, there was a man in Jerusalem, whose name *was* Simeon; and the same man *was* just and devout, waiting for the consolation of Israel: and the Holy Ghost was upon him.  
-> <sup>26</sup> And it was revealed unto him by the Holy Ghost, that he should not see death, before he had seen the Lord's Christ.  
-> <sup>27</sup> And he came by the Spirit into the temple: and when the parents brought in the child Jesus, to do for him after the custom of the law,  
-> <sup>28</sup> Then took he him up in his arms, and blessed God, and said,  
-> <sup>29</sup> Lord, now lettest thou thy servant depart in peace, according to thy word:  
-> <sup>30</sup> For mine eyes have seen thy salvation,  
-> <sup>31</sup> Which thou hast prepared before the face of all people;  
-> <sup>32</sup> A light to lighten the Gentiles, and the glory of thy people Israel.  
-> <sup>33</sup> And Joseph and his mother marvelled at those things which were spoken of him.  
-> <sup>34</sup> And Simeon blessed them, and said unto Mary his mother, Behold, this *child* is set for the fall and rising again of many in Israel; and for a sign which shall be spoken against;  
-> <sup>35</sup> (Yea, a sword shall pierce through thy own soul also,) that the thoughts of many hearts may be revealed.  
-> <sup>36</sup> And there was one Anna, a prophetess, the daughter of Phanuel, of the tribe of Aser: she was of a great age, and had lived with a husband seven years from her virginity;  
-> <sup>37</sup> And she *was* a widow of about fourscore and four years, which departed not from the temple, but served *God* with fastings and prayers night and day.  
-> <sup>38</sup> And she coming in that instant gave thanks likewise unto the Lord, and spake of him to all them that looked for redemption in Jerusalem.  
-> <sup>39</sup> And when they had performed all things according to the law of the Lord, they returned into Galilee, to their own city Nazareth.  
-> <sup>40</sup> And the child grew, and waxed strong in spirit, filled with wisdom: and the grace of God was upon him.  
+> **²⁵** And, behold, there was a man in Jerusalem, whose name *was* Simeon; and the same man *was* just and devout, waiting for the consolation of Israel: and the Holy Ghost was upon him.  
+> **²⁶** And it was revealed unto him by the Holy Ghost, that he should not see death, before he had seen the Lord's Christ.  
+> **²⁷** And he came by the Spirit into the temple: and when the parents brought in the child Jesus, to do for him after the custom of the law,  
+> **²⁸** Then took he him up in his arms, and blessed God, and said,  
+> **²⁹** Lord, now lettest thou thy servant depart in peace, according to thy word:  
+> **³⁰** For mine eyes have seen thy salvation,  
+> **³¹** Which thou hast prepared before the face of all people;  
+> **³²** A light to lighten the Gentiles, and the glory of thy people Israel.  
+> **³³** And Joseph and his mother marvelled at those things which were spoken of him.  
+> **³⁴** And Simeon blessed them, and said unto Mary his mother, Behold, this *child* is set for the fall and rising again of many in Israel; and for a sign which shall be spoken against;  
+> **³⁵** (Yea, a sword shall pierce through thy own soul also,) that the thoughts of many hearts may be revealed.  
+> **³⁶** And there was one Anna, a prophetess, the daughter of Phanuel, of the tribe of Aser: she was of a great age, and had lived with a husband seven years from her virginity;  
+> **³⁷** And she *was* a widow of about fourscore and four years, which departed not from the temple, but served *God* with fastings and prayers night and day.  
+> **³⁸** And she coming in that instant gave thanks likewise unto the Lord, and spake of him to all them that looked for redemption in Jerusalem.  
+> **³⁹** And when they had performed all things according to the law of the Lord, they returned into Galilee, to their own city Nazareth.  
+> **⁴⁰** And the child grew, and waxed strong in spirit, filled with wisdom: and the grace of God was upon him.  
 
 Even when he humbles himself, still Christ has honour done him to balance the offence of it. That we might not be stumbled at the *meanness of his birth, angels* then did him honour; and now, that we may not be offended at his being presented in the temple, like other children born in sin, and without any manner of solemnity peculiar to him, but silently, and in the crowd of other children, Simeon and Anna now do him honour, by the inspiration of the Holy Ghost.
 
@@ -172,18 +172,18 @@ Now, (1.) She *gave thanks likewise to the Lord,* just as Simeon, perhaps like h
 
 ## Christ Sitting with the Doctors.
 
-> <sup>41</sup> Now his parents went to Jerusalem every year at the feast of the passover.  
-> <sup>42</sup> And when he was twelve years old, they went up to Jerusalem after the custom of the feast.  
-> <sup>43</sup> And when they had fulfilled the days, as they returned, the child Jesus tarried behind in Jerusalem; and Joseph and his mother knew not *of it.*  
-> <sup>44</sup> But they, supposing him to have been in the company, went a day's journey; and they sought him among *their* kinsfolk and acquaintance.  
-> <sup>45</sup> And when they found him not, they turned back again to Jerusalem, seeking him.  
-> <sup>46</sup> And it came to pass, that after three days they found him in the temple, sitting in the midst of the doctors, both hearing them, and asking them questions.  
-> <sup>47</sup> And all that heard him were astonished at his understanding and answers.  
-> <sup>48</sup> And when they saw him, they were amazed: and his mother said unto him, Son, why hast thou thus dealt with us? behold, thy father and I have sought thee sorrowing.  
-> <sup>49</sup> And he said unto them, How is it that ye sought me? wist ye not that I must be about my Father's business?  
-> <sup>50</sup> And they understood not the saying which he spake unto them.  
-> <sup>51</sup> And he went down with them, and came to Nazareth, and was subject unto them: but his mother kept all these sayings in her heart.  
-> <sup>52</sup> And Jesus increased in wisdom and stature, and in favour with God and man.  
+> **⁴¹** Now his parents went to Jerusalem every year at the feast of the passover.  
+> **⁴²** And when he was twelve years old, they went up to Jerusalem after the custom of the feast.  
+> **⁴³** And when they had fulfilled the days, as they returned, the child Jesus tarried behind in Jerusalem; and Joseph and his mother knew not *of it.*  
+> **⁴⁴** But they, supposing him to have been in the company, went a day's journey; and they sought him among *their* kinsfolk and acquaintance.  
+> **⁴⁵** And when they found him not, they turned back again to Jerusalem, seeking him.  
+> **⁴⁶** And it came to pass, that after three days they found him in the temple, sitting in the midst of the doctors, both hearing them, and asking them questions.  
+> **⁴⁷** And all that heard him were astonished at his understanding and answers.  
+> **⁴⁸** And when they saw him, they were amazed: and his mother said unto him, Son, why hast thou thus dealt with us? behold, thy father and I have sought thee sorrowing.  
+> **⁴⁹** And he said unto them, How is it that ye sought me? wist ye not that I must be about my Father's business?  
+> **⁵⁰** And they understood not the saying which he spake unto them.  
+> **⁵¹** And he went down with them, and came to Nazareth, and was subject unto them: but his mother kept all these sayings in her heart.  
+> **⁵²** And Jesus increased in wisdom and stature, and in favour with God and man.  
 
 We have here the only passage of story recorded concerning our blessed Saviour, from his infancy to the day of his showing to Israel at twenty-nine years old, and therefore we are concerned to make much of this, for it is in vain to wish we had more. Here is,
 

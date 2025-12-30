@@ -8,15 +8,15 @@ This psalm is part of that which was delivered into the hand of Asaph and his br
 
 ## An Invitation to Praise and Honour God; A Call to Glorify God.
 
-> <sup>1</sup> O sing unto the LORD a new song: sing unto the LORD, all the earth.  
-> <sup>2</sup> Sing unto the LORD, bless his name; show forth his salvation from day to day.  
-> <sup>3</sup> Declare his glory among the heathen, his wonders among all people.  
-> <sup>4</sup> For the LORD *is* great, and greatly to be praised: he *is* to be feared above all gods.  
-> <sup>5</sup> For all the gods of the nations *are* idols: but the LORD made the heavens.  
-> <sup>6</sup> Honour and majesty *are* before him: strength and beauty *are* in his sanctuary.  
-> <sup>7</sup> Give unto the LORD, O ye kindreds of the people, give unto the LORD glory and strength.  
-> <sup>8</sup> Give unto the LORD the glory *due unto* his name: bring an offering, and come into his courts.  
-> <sup>9</sup> O worship the LORD in the beauty of holiness: fear before him, all the earth.  
+> **¹** O sing unto the LORD a new song: sing unto the LORD, all the earth.  
+> **²** Sing unto the LORD, bless his name; show forth his salvation from day to day.  
+> **³** Declare his glory among the heathen, his wonders among all people.  
+> **⁴** For the LORD *is* great, and greatly to be praised: he *is* to be feared above all gods.  
+> **⁵** For all the gods of the nations *are* idols: but the LORD made the heavens.  
+> **⁶** Honour and majesty *are* before him: strength and beauty *are* in his sanctuary.  
+> **⁷** Give unto the LORD, O ye kindreds of the people, give unto the LORD glory and strength.  
+> **⁸** Give unto the LORD the glory *due unto* his name: bring an offering, and come into his courts.  
+> **⁹** O worship the LORD in the beauty of holiness: fear before him, all the earth.  
 
 These verses will be best expounded by pious and devout affections working in our souls towards God, with a high veneration for his majesty and transcendent excellency. The call here given us to praise God is very lively, the expressions are raised and repeated, to all which the echo of a thankful heart should make agreeable returns.
 
@@ -32,10 +32,10 @@ II\. In the midst of these calls to praise God and give glory to him glorious th
 
 ## The Kingdom of Christ.
 
-> <sup>10</sup> Say among the heathen *that* the LORD reigneth: the world also shall be established that it shall not be moved: he shall judge the people righteously.  
-> <sup>11</sup> Let the heavens rejoice, and let the earth be glad; let the sea roar, and the fulness thereof.  
-> <sup>12</sup> Let the field be joyful, and all that *is* therein: then shall all the trees of the wood rejoice  
-> <sup>13</sup> Before the LORD: for he cometh, for he cometh to judge the earth: he shall judge the world with righteousness, and the people with his truth.  
+> **¹⁰** Say among the heathen *that* the LORD reigneth: the world also shall be established that it shall not be moved: he shall judge the people righteously.  
+> **¹¹** Let the heavens rejoice, and let the earth be glad; let the sea roar, and the fulness thereof.  
+> **¹²** Let the field be joyful, and all that *is* therein: then shall all the trees of the wood rejoice  
+> **¹³** Before the LORD: for he cometh, for he cometh to judge the earth: he shall judge the world with righteousness, and the people with his truth.  
 
 We have here instructions given to those who were to preach the gospel to the nations what to preach, or to those who had themselves received the gospel what account to give of it to their neighbours, what to *say among the heathen;* and it is an illustrious prophecy of the setting up of the kingdom of Christ upon the ruins of the devil's kingdom, which began immediately after his ascension and will continue in the doing till the mystery of God be finished.
 

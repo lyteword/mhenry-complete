@@ -8,15 +8,15 @@ This chapter is an occasional sermon, in which the prophet sings both of mercy a
 
 ## The Distress of Ahaz; Comfort Administered to Ahaz. (b. c. 740.)
 
-> <sup>1</sup> And it came to pass in the days of Ahaz the son of Jotham, the son of Uzziah, king of Judah, *that* Rezin the king of Syria, and Pekah the son of Remaliah, king of Israel, went up toward Jerusalem to war against it, but could not prevail against it.  
-> <sup>2</sup> And it was told the house of David, saying, Syria is confederate with Ephraim. And his heart was moved, and the heart of his people, as the trees of the wood are moved with the wind.  
-> <sup>3</sup> Then said the LORD unto Isaiah, Go forth now to meet Ahaz, thou, and Shear-jashub thy son, at the end of the conduit of the upper pool in the highway of the fuller's field;  
-> <sup>4</sup> And say unto him, Take heed, and be quiet; fear not, neither be fainthearted for the two tails of these smoking firebrands, for the fierce anger of Rezin with Syria, and of the son of Remaliah.  
-> <sup>5</sup> Because Syria, Ephraim, and the son of Remaliah, have taken evil counsel against thee, saying,  
-> <sup>6</sup> Let us go up against Judah, and vex it, and let us make a breach therein for us, and set a king in the midst of it, *even* the son of Tabeal:  
-> <sup>7</sup> Thus saith the Lord GOD, It shall not stand, neither shall it come to pass.  
-> <sup>8</sup> For the head of Syria *is* Damascus, and the head of Damascus *is* Rezin; and within threescore and five years shall Ephraim be broken, that it be not a people.  
-> <sup>9</sup> And the head of Ephraim *is* Samaria, and the head of Samaria *is* Remaliah's son. If ye will not believe, surely ye shall not be established.  
+> **¹** And it came to pass in the days of Ahaz the son of Jotham, the son of Uzziah, king of Judah, *that* Rezin the king of Syria, and Pekah the son of Remaliah, king of Israel, went up toward Jerusalem to war against it, but could not prevail against it.  
+> **²** And it was told the house of David, saying, Syria is confederate with Ephraim. And his heart was moved, and the heart of his people, as the trees of the wood are moved with the wind.  
+> **³** Then said the LORD unto Isaiah, Go forth now to meet Ahaz, thou, and Shear-jashub thy son, at the end of the conduit of the upper pool in the highway of the fuller's field;  
+> **⁴** And say unto him, Take heed, and be quiet; fear not, neither be fainthearted for the two tails of these smoking firebrands, for the fierce anger of Rezin with Syria, and of the son of Remaliah.  
+> **⁵** Because Syria, Ephraim, and the son of Remaliah, have taken evil counsel against thee, saying,  
+> **⁶** Let us go up against Judah, and vex it, and let us make a breach therein for us, and set a king in the midst of it, *even* the son of Tabeal:  
+> **⁷** Thus saith the Lord GOD, It shall not stand, neither shall it come to pass.  
+> **⁸** For the head of Syria *is* Damascus, and the head of Damascus *is* Rezin; and within threescore and five years shall Ephraim be broken, that it be not a people.  
+> **⁹** And the head of Ephraim *is* Samaria, and the head of Samaria *is* Remaliah's son. If ye will not believe, surely ye shall not be established.  
 
 The prophet Isaiah had his commission renewed in the year that king Uzziah died, Isa 6:1. Jotham his son reigned, and reigned well, sixteen years. All that time, no doubt, Isaiah prophesied as he was commanded, and yet we have not in this book any of his prophecies dated in the reign of Jotham; but this, which is put first, was in the days of Ahaz the son of Jotham. Many excellent useful sermons he preached which were not published and left upon record; for, if all that was memorable had been written, *the world could not have contained the books,* Joh 21:25. Perhaps in the reign of Ahaz, a wicked king, he had not opportunity to preach so much at court as in Jotham's time, and therefore then he wrote the more, for a testimony against them. Here is,
 
@@ -46,13 +46,13 @@ III\. The orders and directions given to Isaiah to go and encourage Ahaz in his 
 
 ## The Promise of Immanuel. (b. c. 740.)
 
-> <sup>10</sup> Moreover the LORD spake again unto Ahaz, saying,  
-> <sup>11</sup> Ask thee a sign of the LORD thy God; ask it either in the depth, or in the height above.  
-> <sup>12</sup> But Ahaz said, I will not ask, neither will I tempt the LORD.  
-> <sup>13</sup> And he said, Hear ye now, O house of David; *Is it* a small thing for you to weary men, but will ye weary my God also?  
-> <sup>14</sup> Therefore the Lord himself shall give you a sign; Behold, a virgin shall conceive, and bear a son, and shall call his name Immanuel.  
-> <sup>15</sup> Butter and honey shall he eat, that he may know to refuse the evil, and choose the good.  
-> <sup>16</sup> For before the child shall know to refuse the evil, and choose the good, the land that thou abhorrest shall be forsaken of both her kings.  
+> **¹⁰** Moreover the LORD spake again unto Ahaz, saying,  
+> **¹¹** Ask thee a sign of the LORD thy God; ask it either in the depth, or in the height above.  
+> **¹²** But Ahaz said, I will not ask, neither will I tempt the LORD.  
+> **¹³** And he said, Hear ye now, O house of David; *Is it* a small thing for you to weary men, but will ye weary my God also?  
+> **¹⁴** Therefore the Lord himself shall give you a sign; Behold, a virgin shall conceive, and bear a son, and shall call his name Immanuel.  
+> **¹⁵** Butter and honey shall he eat, that he may know to refuse the evil, and choose the good.  
+> **¹⁶** For before the child shall know to refuse the evil, and choose the good, the land that thou abhorrest shall be forsaken of both her kings.  
 
 Here, I. God, by the prophet, makes a gracious offer to Ahaz, to confirm the foregoing predictions, and his faith in them, by such sign or miracle as he should choose (Isa 7:10,11): *Ask thee a sign of the Lord thy God;* See here the divine faithfulness and veracity. God tells us nothing but what he is able and ready to prove. See his wonderful condescension to the children of men, in that he is so *willing to show to the heirs of promise the immutability of his counsel,* Heb 6:17. He considers our frame, and that, living in a world of sense, we are apt to require sensible proofs, which therefore he has favoured us with in sacramental signs and seals. Ahaz was a bad man, yet God is called the Lord his God, because he was a child of Abraham and David, and of the covenants made with them. See how gracious God is even to the evil and unthankful; Ahaz is bidden to choose his sign, as Gideon about the fleece (Jdg 6:37); let him ask for a sign in the air, or earth, or water, for God's power is the same in all.
 
@@ -68,15 +68,15 @@ IV\. The prophet, in God's name, gives them a sign: "You will not ask a sign, bu
 
 ## Judgments Announced. (b. c. 740.)
 
-> <sup>17</sup> The LORD shall bring upon thee, and upon thy people, and upon thy father's house, days that have not come, from the day that Ephraim departed from Judah; *even* the king of Assyria.  
-> <sup>18</sup> And it shall come to pass in that day, *that* the LORD shall hiss for the fly that *is* in the uttermost part of the rivers of Egypt, and for the bee that *is* in the land of Assyria.  
-> <sup>19</sup> And they shall come, and shall rest all of them in the desolate valleys, and in the holes of the rocks, and upon all thorns, and upon all bushes.  
-> <sup>20</sup> In the same day shall the Lord shave with a razor that is hired, *namely,* by them beyond the river, by the king of Assyria, the head, and the hair of the feet: and it shall also consume the beard.  
-> <sup>21</sup> And it shall come to pass in that day, *that* a man shall nourish a young cow, and two sheep;  
-> <sup>22</sup> And it shall come to pass, for the abundance of milk *that* they shall give he shall eat butter: for butter and honey shall every one eat that is left in the land.  
-> <sup>23</sup> And it shall come to pass in that day, *that* every place shall be, where there were a thousand vines at a thousand silverlings, it shall *even* be for briers and thorns.  
-> <sup>24</sup> With arrows and with bows shall *men* come thither; because all the land shall become briers and thorns.  
-> <sup>25</sup> And *on* all hills that shall be digged with the mattock, there shall not come thither the fear of briers and thorns: but it shall be for the sending forth of oxen, and for the treading of lesser cattle.  
+> **¹⁷** The LORD shall bring upon thee, and upon thy people, and upon thy father's house, days that have not come, from the day that Ephraim departed from Judah; *even* the king of Assyria.  
+> **¹⁸** And it shall come to pass in that day, *that* the LORD shall hiss for the fly that *is* in the uttermost part of the rivers of Egypt, and for the bee that *is* in the land of Assyria.  
+> **¹⁹** And they shall come, and shall rest all of them in the desolate valleys, and in the holes of the rocks, and upon all thorns, and upon all bushes.  
+> **²⁰** In the same day shall the Lord shave with a razor that is hired, *namely,* by them beyond the river, by the king of Assyria, the head, and the hair of the feet: and it shall also consume the beard.  
+> **²¹** And it shall come to pass in that day, *that* a man shall nourish a young cow, and two sheep;  
+> **²²** And it shall come to pass, for the abundance of milk *that* they shall give he shall eat butter: for butter and honey shall every one eat that is left in the land.  
+> **²³** And it shall come to pass in that day, *that* every place shall be, where there were a thousand vines at a thousand silverlings, it shall *even* be for briers and thorns.  
+> **²⁴** With arrows and with bows shall *men* come thither; because all the land shall become briers and thorns.  
+> **²⁵** And *on* all hills that shall be digged with the mattock, there shall not come thither the fear of briers and thorns: but it shall be for the sending forth of oxen, and for the treading of lesser cattle.  
 
 After the comfortable promises made to Ahaz as a branch of the house of David, here follow terrible threatenings against him, as a degenerate branch of that house; for though the loving-kindness of God shall not be utterly taken away, for the sake of David and the covenant made with him, yet his iniquity shall be *chastened with the rod,* and his sin with stripes. Let those that will not mix faith with the promises of God expect to hear the alarms of his threatenings.
 

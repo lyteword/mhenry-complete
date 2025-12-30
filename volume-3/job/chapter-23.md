@@ -8,13 +8,13 @@ This chapter begins Job's reply to Eliphaz. In this reply he takes no notice of 
 
 ## The Reply of Job to Eliphaz; Job Appeals from Man to God. (b. c. 1520.)
 
-> <sup>1</sup> Then Job answered and said,  
-> <sup>2</sup> Even to day *is* my complaint bitter: my stroke is heavier than my groaning.  
-> <sup>3</sup> Oh that I knew where I might find him! *that* I might come *even* to his seat!  
-> <sup>4</sup> I would order *my* cause before him, and fill my mouth with arguments.  
-> <sup>5</sup> I would know the words *which* he would answer me, and understand what he would say unto me.  
-> <sup>6</sup> Will he plead against me with *his* great power? No; but he would put *strength* in me.  
-> <sup>7</sup> There the righteous might dispute with him; so should I be delivered for ever from my judge.  
+> **¹** Then Job answered and said,  
+> **²** Even to day *is* my complaint bitter: my stroke is heavier than my groaning.  
+> **³** Oh that I knew where I might find him! *that* I might come *even* to his seat!  
+> **⁴** I would order *my* cause before him, and fill my mouth with arguments.  
+> **⁵** I would know the words *which* he would answer me, and understand what he would say unto me.  
+> **⁶** Will he plead against me with *his* great power? No; but he would put *strength* in me.  
+> **⁷** There the righteous might dispute with him; so should I be delivered for ever from my judge.  
 
 Job is confident that he has wrong done him by his friends, and therefore, ill as he is, he will not give up the cause, nor let them have the last word. Here,
 
@@ -32,11 +32,11 @@ III\. He comforts himself with the hope that God would deal favourably with him 
 
 ## Mystery of Providence. (b. c. 1520.)
 
-> <sup>8</sup> Behold, I go forward, but he *is* not *there;* and backward, but I cannot perceive him:  
-> <sup>9</sup> On the left hand, where he doth work, but I cannot behold *him:* he hideth himself on the right hand, that I cannot see *him:*  
-> <sup>10</sup> But he knoweth the way that I take: *when* he hath tried me, I shall come forth as gold.  
-> <sup>11</sup> My foot hath held his steps, his way have I kept, and not declined.  
-> <sup>12</sup> Neither have I gone back from the commandment of his lips; I have esteemed the words of his mouth more than my necessary *food.*  
+> **⁸** Behold, I go forward, but he *is* not *there;* and backward, but I cannot perceive him:  
+> **⁹** On the left hand, where he doth work, but I cannot behold *him:* he hideth himself on the right hand, that I cannot see *him:*  
+> **¹⁰** But he knoweth the way that I take: *when* he hath tried me, I shall come forth as gold.  
+> **¹¹** My foot hath held his steps, his way have I kept, and not declined.  
+> **¹²** Neither have I gone back from the commandment of his lips; I have esteemed the words of his mouth more than my necessary *food.*  
 
 Here, I. Job complains that he cannot understand the meaning of God's providences concerning him, but is quite at a loss about them (Job 23:8,9): *I go forward, but he is not there,* etc. Eliphaz had bid him acquaint himself with God. "So I would, with all my heart," says Job, "If I knew how to get acquainted with him." He had himself a great desire to appear before God, and get a hearing of his case, but the Judge was not to be found. Look which way he would, he could see no sign of God's appearing for him to clear up his innocency. Job, no doubt, believed that God is every where present; but three things he seems to complain of here:—1. That he could not fix his thoughts, nor form any clear judgment of things in his own mind. His mind was so hurried and discomposed with his troubles that he was like a man in a fright, or at his wits' end, who runs this way and that way, but, being in confusion, brings nothing to a head. By reason of the disorder and tumult his spirit was in he could not fasten upon that which he knew to be in God, and which, if he could but have mixed faith with it and dwelt upon it in his thoughts, would have been a support to him. It is the common complaint of those who are sick or melancholy that, when they would think of that which is good, they can make nothing of it. 2. That he could not find out the cause of his troubles, nor the sin which provoked God to contend with him. He took a view of his whole conversation, turned to every side of it, and could not perceive wherein he had sinned more than others, for which he should thus be punished more than others; nor could he discern what other end God should aim at in afflicting him thus. 3. That he could not foresee what would be in the end hereof, whether God would deliver him at all, nor, if he did, when or which way. He saw not his signs, nor was there any to tell him how long; as the church complains, Ps 74:9. He was quite at a loss to know what God designed to do with him; and, whatever conjecture he advanced, still something or other appeared against it.
 
@@ -52,11 +52,11 @@ II\. He satisfies himself with this, that God himself was a witness to his integ
 
 ## Job's Comfort in His Integrity. (b. c. 1520.)
 
-> <sup>13</sup> But he *is* in one *mind,* and who can turn him? and *what* his soul desireth, even *that* he doeth.  
-> <sup>14</sup> For he performeth *the thing that is* appointed for me: and many such *things are* with him.  
-> <sup>15</sup> Therefore am I troubled at his presence: when I consider, I am afraid of him.  
-> <sup>16</sup> For God maketh my heart soft, and the Almighty troubleth me:  
-> <sup>17</sup> Because I was not cut off before the darkness, *neither* hath he covered the darkness from my face.  
+> **¹³** But he *is* in one *mind,* and who can turn him? and *what* his soul desireth, even *that* he doeth.  
+> **¹⁴** For he performeth *the thing that is* appointed for me: and many such *things are* with him.  
+> **¹⁵** Therefore am I troubled at his presence: when I consider, I am afraid of him.  
+> **¹⁶** For God maketh my heart soft, and the Almighty troubleth me:  
+> **¹⁷** Because I was not cut off before the darkness, *neither* hath he covered the darkness from my face.  
 
 Some make Job to complain here that God dealt unjustly and unfairly with him in proceeding to punish him without the least relenting or relaxation, though he had such incontestable evidences to produce of his innocency. I am loth to think holy Job would charge the holy God with iniquity; but his complaint is indeed bitter and peevish, and he reasons himself into a sort of *patience per force,* which he cannot do without reflecting upon God as dealing hardly with him, but he must bear it because he cannot help it; the worst he says is that God deals unaccountably with him.
 

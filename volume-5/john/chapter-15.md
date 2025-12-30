@@ -8,14 +8,14 @@ It is generally agreed that Christ's discourse in this and the next chapter was 
 
 ## Christ the True Vine.
 
-> <sup>1</sup> I am the true vine, and my Father is the husbandman.  
-> <sup>2</sup> Every branch in me that beareth not fruit he taketh away: and every *branch* that beareth fruit, he purgeth it, that it may bring forth more fruit.  
-> <sup>3</sup> Now ye are clean through the word which I have spoken unto you.  
-> <sup>4</sup> Abide in me, and I in you. As the branch cannot bear fruit of itself, except it abide in the vine; no more can ye, except ye abide in me.  
-> <sup>5</sup> I am the vine, ye *are* the branches: He that abideth in me, and I in him, the same bringeth forth much fruit: for without me ye can do nothing.  
-> <sup>6</sup> If a man abide not in me, he is cast forth as a branch, and is withered; and men gather them, and cast *them* into the fire, and they are burned.  
-> <sup>7</sup> If ye abide in me, and my words abide in you, ye shall ask what ye will, and it shall be done unto you.  
-> <sup>8</sup> Herein is my Father glorified, that ye bear much fruit; so shall ye be my disciples.  
+> **¹** I am the true vine, and my Father is the husbandman.  
+> **²** Every branch in me that beareth not fruit he taketh away: and every *branch* that beareth fruit, he purgeth it, that it may bring forth more fruit.  
+> **³** Now ye are clean through the word which I have spoken unto you.  
+> **⁴** Abide in me, and I in you. As the branch cannot bear fruit of itself, except it abide in the vine; no more can ye, except ye abide in me.  
+> **⁵** I am the vine, ye *are* the branches: He that abideth in me, and I in him, the same bringeth forth much fruit: for without me ye can do nothing.  
+> **⁶** If a man abide not in me, he is cast forth as a branch, and is withered; and men gather them, and cast *them* into the fire, and they are burned.  
+> **⁷** If ye abide in me, and my words abide in you, ye shall ask what ye will, and it shall be done unto you.  
+> **⁸** Herein is my Father glorified, that ye bear much fruit; so shall ye be my disciples.  
 
 Here Christ discourses concerning the fruit, *the fruits of the Spirit,* which his disciples were to bring forth, under the similitude of a vine. Observe here,
 
@@ -51,15 +51,15 @@ II\. The duty taught us by this similitude, which is to *bring forth fruit,* and
 
 ## Christ's Love to His Disciples.
 
-> <sup>9</sup> As the Father hath loved me, so have I loved you: continue ye in my love.  
-> <sup>10</sup> If ye keep my commandments, ye shall abide in my love; even as I have kept my Father's commandments, and abide in his love.  
-> <sup>11</sup> These things have I spoken unto you, that my joy might remain in you, and *that* your joy might be full.  
-> <sup>12</sup> This is my commandment, That ye love one another, as I have loved you.  
-> <sup>13</sup> Greater love hath no man than this, that a man lay down his life for his friends.  
-> <sup>14</sup> Ye are my friends, if ye do whatsoever I command you.  
-> <sup>15</sup> Henceforth I call you not servants; for the servant knoweth not what his lord doeth: but I have called you friends; for all things that I have heard of my Father I have made known unto you.  
-> <sup>16</sup> Ye have not chosen me, but I have chosen you, and ordained you, that ye should go and bring forth fruit, and *that* your fruit should remain: that whatsoever ye shall ask of the Father in my name, he may give it you.  
-> <sup>17</sup> These things I command you, that ye love one another.  
+> **⁹** As the Father hath loved me, so have I loved you: continue ye in my love.  
+> **¹⁰** If ye keep my commandments, ye shall abide in my love; even as I have kept my Father's commandments, and abide in his love.  
+> **¹¹** These things have I spoken unto you, that my joy might remain in you, and *that* your joy might be full.  
+> **¹²** This is my commandment, That ye love one another, as I have loved you.  
+> **¹³** Greater love hath no man than this, that a man lay down his life for his friends.  
+> **¹⁴** Ye are my friends, if ye do whatsoever I command you.  
+> **¹⁵** Henceforth I call you not servants; for the servant knoweth not what his lord doeth: but I have called you friends; for all things that I have heard of my Father I have made known unto you.  
+> **¹⁶** Ye have not chosen me, but I have chosen you, and ordained you, that ye should go and bring forth fruit, and *that* your fruit should remain: that whatsoever ye shall ask of the Father in my name, he may give it you.  
+> **¹⁷** These things I command you, that ye love one another.  
 
 Christ, who is love itself, is here discoursing concerning love, a fourfold love.
 
@@ -103,14 +103,14 @@ IV\. Concerning the *disciples' love one to another,* enjoined as an evidence of
 
 ## Hatred and Persecution Foretold.
 
-> <sup>18</sup> If the world hate you, ye know that it hated me before *it hated* you.  
-> <sup>19</sup> If ye were of the world, the world would love his own: but because ye are not of the world, but I have chosen you out of the world, therefore the world hateth you.  
-> <sup>20</sup> Remember the word that I said unto you, The servant is not greater than his lord. If they have persecuted me, they will also persecute you; if they have kept my saying, they will keep yours also.  
-> <sup>21</sup> But all these things will they do unto you for my name's sake, because they know not him that sent me.  
-> <sup>22</sup> If I had not come and spoken unto them, they had not had sin: but now they have no cloak for their sin.  
-> <sup>23</sup> He that hateth me hateth my Father also.  
-> <sup>24</sup> If I had not done among them the works which none other man did, they had not had sin: but now have they both seen and hated both me and my Father.  
-> <sup>25</sup> But *this cometh to pass,* that the word might be fulfilled that is written in their law, They hated me without a cause.  
+> **¹⁸** If the world hate you, ye know that it hated me before *it hated* you.  
+> **¹⁹** If ye were of the world, the world would love his own: but because ye are not of the world, but I have chosen you out of the world, therefore the world hateth you.  
+> **²⁰** Remember the word that I said unto you, The servant is not greater than his lord. If they have persecuted me, they will also persecute you; if they have kept my saying, they will keep yours also.  
+> **²¹** But all these things will they do unto you for my name's sake, because they know not him that sent me.  
+> **²²** If I had not come and spoken unto them, they had not had sin: but now they have no cloak for their sin.  
+> **²³** He that hateth me hateth my Father also.  
+> **²⁴** If I had not done among them the works which none other man did, they had not had sin: but now have they both seen and hated both me and my Father.  
+> **²⁵** But *this cometh to pass,* that the word might be fulfilled that is written in their law, They hated me without a cause.  
 
 Here Christ discourses concerning *hatred,* which is the character and genius of the devil's kingdom, as love is of the kingdom of Christ. Observe here,
 
@@ -156,8 +156,8 @@ Much more may those hug themselves whom the world hates, but whom Christ loves.
 
 ## The Comforter Announced.
 
-> <sup>26</sup> But when the Comforter is come, whom I will send unto you from the Father, *even* the Spirit of truth, which proceedeth from the Father, he shall testify of me:  
-> <sup>27</sup> And ye also shall bear witness, because ye have been with me from the beginning.  
+> **²⁶** But when the Comforter is come, whom I will send unto you from the Father, *even* the Spirit of truth, which proceedeth from the Father, he shall testify of me:  
+> **²⁷** And ye also shall bear witness, because ye have been with me from the beginning.  
 
 Christ having spoken of the great opposition which his gospel was likely to meet with in the world, and the hardships that would be put upon the preachers of it, lest any should fear that they and it would be run down by that violent torrent, he here intimates to all those that were well-wishers to his cause and interest what effectual provision was made for supporting it, both by the principal testimony of the Spirit (Joh 15:26), and the subordinate testimony of the apostles (Joh 15:27), and testimonies are the proper supports of truth.
 

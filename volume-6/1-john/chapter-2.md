@@ -8,8 +8,8 @@ Here the apostle encourages against sins of infirmity (1Jo 2:1,2), shows the tru
 
 ## Christ the Propitiation. (a. d. 80.)
 
-> <sup>1</sup> My little children, these things write I unto you, that ye sin not. And if any man sin, we have an advocate with the Father, Jesus Christ the righteous:  
-> <sup>2</sup> And he is the propitiation for our sins: and not for ours only, but also for *the sins of* the whole world.  
+> **¹** My little children, these things write I unto you, that ye sin not. And if any man sin, we have an advocate with the Father, Jesus Christ the righteous:  
+> **²** And he is the propitiation for our sins: and not for ours only, but also for *the sins of* the whole world.  
 
 These verses relate to the concluding subject of the foregoing chapter, in which the apostle proceeds upon the supposition of the real Christian's sin. And here he gives them both dissuasion and support.
 
@@ -19,10 +19,10 @@ II\. The believer's support and relief in case of sin: *And (or but) if any man 
 
 ## The Believer's Duty. (a. d. 80.)
 
-> <sup>3</sup> And hereby we do know that we know him, if we keep his commandments.  
-> <sup>4</sup> He that saith, I know him, and keepeth not his commandments, is a liar, and the truth is not in him.  
-> <sup>5</sup> But whoso keepeth his word, in him verily is the love of God perfected: hereby know we that we are in him.  
-> <sup>6</sup> He that saith he abideth in him ought himself also so to walk, even as he walked.  
+> **³** And hereby we do know that we know him, if we keep his commandments.  
+> **⁴** He that saith, I know him, and keepeth not his commandments, is a liar, and the truth is not in him.  
+> **⁵** But whoso keepeth his word, in him verily is the love of God perfected: hereby know we that we are in him.  
+> **⁶** He that saith he abideth in him ought himself also so to walk, even as he walked.  
 
 These verses may seem to relate to the 1Jo 1:7, between which and these verses there occurred an incidental discourse concerning the believer's duty and relief in case of sin, occasioned by the mention of one of the believer's privileges—his being cleansed from sin by the Mediator's blood. In that verse the apostle asserts the beneficial consequence of *walking in the light: "We have then fellowship with one another,* such divine fellowship and communion as are the prerogative of the church of Christ." Here now succeeds the trial or test of our light and of our love.
 
@@ -32,11 +32,11 @@ II\. The trial of our love: *But whoso keepeth his word in him verily is the lov
 
 ## The Law of Love. (a. d. 80.)
 
-> <sup>7</sup> Brethren, I write no new commandment unto you, but an old commandment which ye had from the beginning. The old commandment is the word which ye have heard from the beginning.  
-> <sup>8</sup> Again, a new commandment I write unto you, which thing is true in him and in you: because the darkness is past, and the true light now shineth.  
-> <sup>9</sup> He that saith he is in the light, and hateth his brother, is in darkness even until now.  
-> <sup>10</sup> He that loveth his brother abideth in the light, and there is none occasion of stumbling in him.  
-> <sup>11</sup> But he that hateth his brother is in darkness, and walketh in darkness, and knoweth not whither he goeth, because that darkness hath blinded his eyes.  
+> **⁷** Brethren, I write no new commandment unto you, but an old commandment which ye had from the beginning. The old commandment is the word which ye have heard from the beginning.  
+> **⁸** Again, a new commandment I write unto you, which thing is true in him and in you: because the darkness is past, and the true light now shineth.  
+> **⁹** He that saith he is in the light, and hateth his brother, is in darkness even until now.  
+> **¹⁰** He that loveth his brother abideth in the light, and there is none occasion of stumbling in him.  
+> **¹¹** But he that hateth his brother is in darkness, and walketh in darkness, and knoweth not whither he goeth, because that darkness hath blinded his eyes.  
 
 The seventh verse may be supposed either to look backward to what immediately preceded (and then it is *walking as Christ walked* that is here represented as *no new, but an old commandment;* it is that which the apostles would certainly inculcate wherever they brought Christ's gospel), or to look forward to what the apostle is now going to recommend, and that is the law of fraternal love; this is the message *heard from the beginning* (1Jo 3:11), and *the old commandment,* 2Jo 1:5. Now, while the apostle addresses himself to the recommendation of such a practice, he is ready to give an instance thereof in his affectionate appellation: "*Brethren,* you who are dear to me in the bond of that love to which I would solicit you;" and so the precept of fraternal love is recommended,
 
@@ -46,12 +46,12 @@ II\. As a new one: "*Again,* to constrain you to this duty the more, *a new comm
 
 ## Against the Love of the World. (a. d. 80.)
 
-> <sup>12</sup> I write unto you, little children, because your sins are forgiven you for his name's sake.  
-> <sup>13</sup> I write unto you, fathers, because ye have known him *that is* from the beginning. I write unto you, young men, because ye have overcome the wicked one. I write unto you, little children, because ye have known the Father.  
-> <sup>14</sup> I have written unto you, fathers, because ye have known him *that is* from the beginning. I have written unto you, young men, because ye are strong, and the word of God abideth in you, and ye have overcome the wicked one.  
-> <sup>15</sup> Love not the world, neither the things *that are* in the world. If any man love the world, the love of the Father is not in him.  
-> <sup>16</sup> For all that *is* in the world, the lust of the flesh, and the lust of the eyes, and the pride of life, is not of the Father, but is of the world.  
-> <sup>17</sup> And the world passeth away, and the lust thereof: but he that doeth the will of God abideth for ever.  
+> **¹²** I write unto you, little children, because your sins are forgiven you for his name's sake.  
+> **¹³** I write unto you, fathers, because ye have known him *that is* from the beginning. I write unto you, young men, because ye have overcome the wicked one. I write unto you, little children, because ye have known the Father.  
+> **¹⁴** I have written unto you, fathers, because ye have known him *that is* from the beginning. I have written unto you, young men, because ye are strong, and the word of God abideth in you, and ye have overcome the wicked one.  
+> **¹⁵** Love not the world, neither the things *that are* in the world. If any man love the world, the love of the Father is not in him.  
+> **¹⁶** For all that *is* in the world, the lust of the flesh, and the lust of the eyes, and the pride of life, is not of the Father, but is of the world.  
+> **¹⁷** And the world passeth away, and the lust thereof: but he that doeth the will of God abideth for ever.  
 
 This new command of holy love, with the incentives thereto, may possibly be directed to the several ranks of disciples that are here accosted. The several graduates in the Christian university, the catholic church, must be sure to preserve the bond of sacred love. Or, there being an important dehortation and dissuasion to follow, without the observance of which vital religion in the love of God and love of the brethren cannot subsist, the apostle may justly seem to preface it with a solemn address to the several forms or orders in the school of Christ: let the infants or minors, the adults, the seniors (or the *adepti,* the *teleioi,* the most *perfect*), in the Christian institution, know that they must *not love this world;* and so,
 
@@ -77,8 +77,8 @@ From the whole of these verses we should observe the purity and spirituality of 
 
 ## Concerning Antichrist. (a. d. 80.)
 
-> <sup>18</sup> Little children, it is the last time: and as ye have heard that antichrist shall come, even now are there many antichrists; whereby we know that it is the last time.  
-> <sup>19</sup> They went out from us, but they were not of us; for if they had been of us, they would *no doubt* have continued with us: but *they went out,* that they might be made manifest that they were not all of us.  
+> **¹⁸** Little children, it is the last time: and as ye have heard that antichrist shall come, even now are there many antichrists; whereby we know that it is the last time.  
+> **¹⁹** They went out from us, but they were not of us; for if they had been of us, they would *no doubt* have continued with us: but *they went out,* that they might be made manifest that they were not all of us.  
 
 Here is, I. A moral prognostication of the time; the end is coming: *Little children, it is the last time,* 1Jo 2:18. Some may suppose that the apostle here addresses the first rank of Christians again; the juniors are most apt to be seduced, and therefore, "*Little children,* you that are young in religion, take heed to yourselves that you be not corrupted." But it may be, as elsewhere, a universal appellation, introductive of an alarm to all Christians: "*Little children, it is the last time;* our Jewish polity in church and state is hastening to an end; the Mosaic institution and discipline are just upon vanishing away; Daniel's weeks are now expiring; the destruction of the Hebrew city and sanctuary is approaching, *the end whereof must be with a flood, and to the end of the war desolations are determined,*" Da 9:26. It is meet that the disciples should be warned of the haste and end of time, and apprised as much as may be of the prophetic periods of time.
 
@@ -88,14 +88,14 @@ III\. Some account of these seducers or antichrists. 1. More positively. They we
 
 ## Concerning Antichrist. (a. d. 80.)
 
-> <sup>20</sup> But ye have an unction from the Holy One, and ye know all things.  
-> <sup>21</sup> I have not written unto you because ye know not the truth, but because ye know it, and that no lie is of the truth.  
-> <sup>22</sup> Who is a liar but he that denieth that Jesus is the Christ? He is antichrist, that denieth the Father and the Son.  
-> <sup>23</sup> Whosoever denieth the Son, the same hath not the Father: *(but) he that acknowledgeth the Son hath the Father also.*  
-> <sup>24</sup> Let that therefore abide in you, which ye have heard from the beginning. If that which ye have heard from the beginning shall remain in you, ye also shall continue in the Son, and in the Father.  
-> <sup>25</sup> And this is the promise that he hath promised us, *even* eternal life.  
-> <sup>26</sup> These *things* have I written unto you concerning them that seduce you.  
-> <sup>27</sup> But the anointing which ye have received of him abideth in you, and ye need not that any man teach you: but as the same anointing teacheth you of all things, and is truth, and is no lie, and even as it hath taught you, ye shall abide in him.  
+> **²⁰** But ye have an unction from the Holy One, and ye know all things.  
+> **²¹** I have not written unto you because ye know not the truth, but because ye know it, and that no lie is of the truth.  
+> **²²** Who is a liar but he that denieth that Jesus is the Christ? He is antichrist, that denieth the Father and the Son.  
+> **²³** Whosoever denieth the Son, the same hath not the Father: *(but) he that acknowledgeth the Son hath the Father also.*  
+> **²⁴** Let that therefore abide in you, which ye have heard from the beginning. If that which ye have heard from the beginning shall remain in you, ye also shall continue in the Son, and in the Father.  
+> **²⁵** And this is the promise that he hath promised us, *even* eternal life.  
+> **²⁶** These *things* have I written unto you concerning them that seduce you.  
+> **²⁷** But the anointing which ye have received of him abideth in you, and ye need not that any man teach you: but as the same anointing teacheth you of all things, and is truth, and is no lie, and even as it hath taught you, ye shall abide in him.  
 
 Here, I. The apostle encourages the disciples (to whom he writes) in these dangerous times, in this hour of seducers; he encourages them in the assurance of their stability in this day of apostasy: *But you have an unction from the Holy One, and you know all* things. We see, 1. The blessing wherewith they were enriched—an unguent from heaven: *You have an unction.* True Christians are anointed ones, their name intimates as much. They are anointed with the oil of grace, with gifts and spiritual endowments, by the Spirit of grace. They are anointed into a similitude of their Lord's offices, as subordinate prophets, priests, and kings, unto God. The Holy Spirit is compared to oil, as well as to fire and water; and the communication of his salvific grace is our anointing. 2. From whom this blessing comes—*from the Holy One,* either from the Holy Ghost or from the Lord Christ, as Re 3:7, *These things saith he that is holy—the Holy One.* The Lord Christ is glorious in his holiness. The Lord Christ disposes of the graces of the divine Spirit, and he anoints the disciples to make them like himself, and to secure them in his interest. 3. The effect of this unction—it is a spiritual eye-salve; it enlightens and strengthens the eyes of the understanding: "*And* thereby *you know all things* (1Jo 2:20), all these things concerning Christ and his religion; it was promised and given you for that end," Joh 14:26. The Lord Christ does not deal alike by all his professed disciples; some are more anointed than others. There is great danger lest those that are not thus anointed should be so far from being true to Christ that they should, on the contrary, turn antichrists, and prove adversaries to Christ's person, and kingdom, and glory.
 
@@ -113,8 +113,8 @@ IV\. Hereupon the apostle advises and persuades the disciples to continue in the
 
 ## Christ's Second Appearance. (a. d. 80.)
 
-> <sup>28</sup> And now, little children, abide in him; that, when he shall appear, we may have confidence, and not be ashamed before him at his coming.  
-> <sup>29</sup> If ye know that he is righteous, ye know that every one that doeth righteousness is born of him.  
+> **²⁸** And now, little children, abide in him; that, when he shall appear, we may have confidence, and not be ashamed before him at his coming.  
+> **²⁹** If ye know that he is righteous, ye know that every one that doeth righteousness is born of him.  
 
 From the blessing of the sacred unction the apostle proceeds in his advice and exhortation to constancy in and with Christ: *And now, little children, abide in him,* 1Jo 2:28. The apostle repeats his kind appellation, *little children,* which I suppose does not so much denote their diminutiveness as his affection, and therefore, I judge, may be rendered *dear children.* He would persuade by love, and prevail by endearment as well as by reason. "Not only the love of Christ, but the love of you, constrains us to inculcate your perseverance, and that *you would abide in him,* in the truth relating to his person, and in your union with him and allegiance to him." Evangelical privileges are obligatory to evangelical duties; and those that are anointed by the Lord Jesus are highly obliged to abide with him in opposition to all adversaries whatever. This duty of perseverance and constancy in trying times is strongly urged by the two following considerations:—1. From the consideration of his return at the great day of account: *That when he shall appear we may have confidence, and not be ashamed before him at his coming,* 1Jo 2:28. It is here taken for granted that the Lord Jesus will come again. This was part of that truth they had heard from the beginning. And, when he shall come again, he will publicly appear, be manifested to all. When he was here before, he came privately, in comparison. He proceeded from a womb, and was introduced into a stable: but, when he shall come again, he will come from the opened heavens, and every eye shall see him; and then those who have continued with him throughout all their temptations shall have confidence, assurance, and joy, in the sight of him. They shall lift up their heads with unspeakable triumph, as knowing that their complete redemption comes along with him. On the contrary, those that have deserted him *shall be ashamed before him;* they shall be ashamed of themselves, ashamed of their unbelief, their cowardice, ingratitude, temerity, and folly, in forsaking so glorious a Redeemer. They shall be ashamed of their hopes, expectations, and pretences, and ashamed of all the wages of unrighteousness, by which they were induced to desert him: *That we may have confidence, and may not be ashamed.* The apostle includes himself in the number. "Let not us be ashamed of you," as well as, "you will not be ashamed of yourselves." Or *me aischynthomen ap autou*—*that we be not ashamed* (made ashamed, or put to shame) *by him at his coming.* At his public appearance he will shame all those who have abandoned him, he will disclaim all acquaintance with them, will cover them with shame and confusion, will abandon them to darkness, devils, and endless despair, by professing before men and angels that he is ashamed of them, Mk 8:38. To the same advice and exhortation he proceeds, 2. From the consideration of the dignity of those who still adhere to Christ and his religion: *If you know that he is righteous, you know that every one that doeth righteousness is born of him,* 1Jo 2:29. The particle here rendered *if* seems not to be *vox dubitantis,* but *concedentis;* not so much a conditional particle, as a suppositional one, if I may call it so, a note of allowance or concession, and so seems to be of the same import with our English *inasmuch,* or *whereas,* or *since.* So the sense runs more clearly: *Since you know that he is righteous, you know that every one that doeth righteousness is born of him.* He that doeth righteousness may here be justly enough assumed as another name for him that abideth in Christ. For he that abideth in Christ abideth in the law and love of Christ, and consequently in his allegiance and obedience to him; and so must do, or work, or practise, righteousness, or the parts of gospel holiness. Now such a one must needs *be born of him.* He is renewed by the Spirit of Christ, after the image of Christ, *created in Christ Jesus unto good works, which God hath fore-ordained that he should walk in them,* Eph 2:10. "*Since then you know that the Lord Christ is righteous* (righteous in his quality and capacity, the Lord our righteousness, and the Lord our sanctifier or our sanctification, as 1Co 1:30), you cannot but know thereupon" (or know you, it is for your consideration and regard) "that he who by the continued practice of Christianity abideth in him is born of him." The new spiritual nature is derived from the Lord Christ. He that is constant to the practice of religion in trying times gives good evidence that he is born from above, from the Lord Christ. The Lord Christ is an everlasting Father. It is a great privilege and dignity to be born of him. Those that are so are the children of God. *To as many as received him to them gave he power to become the sons of God,* Joh 1:12. And this introduces the context of the following chapter.
 

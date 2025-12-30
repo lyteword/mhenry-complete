@@ -8,30 +8,30 @@ In this chapter we have, I. The notice Christ took, and the approbation he gave,
 
 ## Christ Commendeth the Poor Widow.
 
-> <sup>1</sup> And he looked up, and saw the rich men casting their gifts into the treasury.  
-> <sup>2</sup> And he saw also a certain poor widow casting in thither two mites.  
-> <sup>3</sup> And he said, Of a truth I say unto you, that this poor widow hath cast in more than they all:  
-> <sup>4</sup> For all these have of their abundance cast in unto the offerings of God: but she of her penury hath cast in all the living that she had.  
+> **¹** And he looked up, and saw the rich men casting their gifts into the treasury.  
+> **²** And he saw also a certain poor widow casting in thither two mites.  
+> **³** And he said, Of a truth I say unto you, that this poor widow hath cast in more than they all:  
+> **⁴** For all these have of their abundance cast in unto the offerings of God: but she of her penury hath cast in all the living that she had.  
 
 This short passage of story we had before in Mark. It is thus recorded twice, to teach us, 1. That *charity* to the poor is a *main matter* in religion. Our Lord Jesus took all occasions to commend it and recommend it. He had just mentioned the barbarity of the scribes, who devoured *poor widows* (Lu 20:1-47); and perhaps this is designed as an aggravation of it, that the poor widows were the best benefactors to the public funds, of which the scribes had the disposal. 2. That Jesus Christ has his eye upon us, to observe what we give to the poor, and what we contribute to works of piety and charity. Christ, though intent upon his preaching, looked up, to see what *gifts were cast into the treasury,* Lu 21:1. He observes whether we give largely and liberally, in proportion to what we have, or whether we be sneaking and paltry in it; nay, his eye goes further, he observes whether we give charitably and with a willing mind, or grudgingly and with reluctance. This should make us afraid of coming short of our duty in this matter; men may be deceived with excuses which Christ knows to be frivolous. And this should encourage us to be abundant in it, without desiring that men should know it; it is enough that Christ does; he sees in secret, and will reward openly. 3. That Christ observes and accepts the charity of the poor in a particular manner. Those that have nothing *to give* may yet *do* a great deal in charity by ministering to the poor, and helping them, and begging for them, that cannot *help* themselves, or *beg* for themselves. But here was one that was herself poor and yet *gave* what little she had to the treasury. It was but *two mites,* which make a farthing; but Christ magnified it as a piece of charity exceeding all the rest: *She has cast in more than they all.* Christ does not blame her for indiscretion, in giving what she wanted herself, nor for vanity in giving among the rich to the treasury; but commended her liberality, and her willingness to part with what little she had for the glory of God, which proceeded from a belief of and dependence upon God's providence to take care of her. *Jehovah-jireh—the Lord will provide.* 4. That, whatever may be called *the offerings of God,* we ought to have a respect for, and to our power, yea, and beyond our power, to contribute cheerfully to. These have *cast in unto the offerings of God.* What is given to the support of the ministry and the gospel, to the spreading and propagating of religion, the education of youth, the release of prisoners, the relief of widows and strangers, and the maintenance of poor families, is given to the *offerings of God,* and it shall be so accepted and recompensed.
 
 ## Judgments Predicted.
 
-> <sup>5</sup> And as some spake of the temple, how it was adorned with goodly stones and gifts, he said,  
-> <sup>6</sup> *As for* these things which ye behold, the days will come, in the which there shall not be left one stone upon another, that shall not be thrown down.  
-> <sup>7</sup> And they asked him, saying, Master, but when shall these things be? and what sign *will there be* when these things shall come to pass?  
-> <sup>8</sup> And he said, Take heed that ye be not deceived: for many shall come in my name, saying, I am *Christ;* and the time draweth near: go ye not therefore after them.  
-> <sup>9</sup> But when ye shall hear of wars and commotions, be not terrified: for these things must first come to pass; but the end *is* not by and by.  
-> <sup>10</sup> Then said he unto them, Nation shall rise against nation, and kingdom against kingdom:  
-> <sup>11</sup> And great earthquakes shall be in divers places, and famines, and pestilences; and fearful sights and great signs shall there be from heaven.  
-> <sup>12</sup> But before all these, they shall lay their hands on you, and persecute *you,* delivering *you* up to the synagogues, and into prisons, being brought before kings and rulers for my name's sake.  
-> <sup>13</sup> And it shall turn to you for a testimony.  
-> <sup>14</sup> Settle *it* therefore in your hearts, not to meditate before what ye shall answer:  
-> <sup>15</sup> For I will give you a mouth and wisdom, which all your adversaries shall not be able to gainsay nor resist.  
-> <sup>16</sup> And ye shall be betrayed both by parents, and brethren, and kinsfolks, and friends; and *some* of you shall they cause to be put to death.  
-> <sup>17</sup> And ye shall be hated of all *men* for my name's sake.  
-> <sup>18</sup> But there shall not a hair of your head perish.  
-> <sup>19</sup> In your patience possess ye your souls.  
+> **⁵** And as some spake of the temple, how it was adorned with goodly stones and gifts, he said,  
+> **⁶** *As for* these things which ye behold, the days will come, in the which there shall not be left one stone upon another, that shall not be thrown down.  
+> **⁷** And they asked him, saying, Master, but when shall these things be? and what sign *will there be* when these things shall come to pass?  
+> **⁸** And he said, Take heed that ye be not deceived: for many shall come in my name, saying, I am *Christ;* and the time draweth near: go ye not therefore after them.  
+> **⁹** But when ye shall hear of wars and commotions, be not terrified: for these things must first come to pass; but the end *is* not by and by.  
+> **¹⁰** Then said he unto them, Nation shall rise against nation, and kingdom against kingdom:  
+> **¹¹** And great earthquakes shall be in divers places, and famines, and pestilences; and fearful sights and great signs shall there be from heaven.  
+> **¹²** But before all these, they shall lay their hands on you, and persecute *you,* delivering *you* up to the synagogues, and into prisons, being brought before kings and rulers for my name's sake.  
+> **¹³** And it shall turn to you for a testimony.  
+> **¹⁴** Settle *it* therefore in your hearts, not to meditate before what ye shall answer:  
+> **¹⁵** For I will give you a mouth and wisdom, which all your adversaries shall not be able to gainsay nor resist.  
+> **¹⁶** And ye shall be betrayed both by parents, and brethren, and kinsfolks, and friends; and *some* of you shall they cause to be put to death.  
+> **¹⁷** And ye shall be hated of all *men* for my name's sake.  
+> **¹⁸** But there shall not a hair of your head perish.  
+> **¹⁹** In your patience possess ye your souls.  
 
 See here, I. With what admiration some spoke of the external pomp and magnificence of the temple, and they were some of Christ's own disciples too; and they took notice of it to him *how it was adorned with goodly stones and gifts,* Lu 21:5. The outside was built up with goodly stones, and within it was beautified and enriched with the *presents* that were offered up for that purpose, and were *hung up* in it. They thought their Master should be as much affected with those things as they were, and should as much regret the destruction of them as they did. When we *speak of the temple,* it should be of the presence of God in it, and of the ordinances of God administered in it, and the communion which his people there have with him. It is a poor thing, when we speak of the church, to let our discourse dwell upon its pomps and revenues, and the dignities and powers of its officers and rulers; for the king's daughter is all *glorious within.*
 
@@ -61,15 +61,15 @@ IV\. With what clearness and fulness Christ answers their enquiries, as far as w
 
 ## Judgments Predicted.
 
-> <sup>20</sup> And when ye shall see Jerusalem compassed with armies, then know that the desolation thereof is nigh.  
-> <sup>21</sup> Then let them which are in Judæa flee to the mountains; and let them which are in the midst of it depart out; and let not them that are in the countries enter thereinto.  
-> <sup>22</sup> For these be the days of vengeance, that all things which are written may be fulfilled.  
-> <sup>23</sup> But woe unto them that are with child, and to them that give suck, in those days! for there shall be great distress in the land, and wrath upon this people.  
-> <sup>24</sup> And they shall fall by the edge of the sword, and shall be led away captive into all nations: and Jerusalem shall be trodden down of the Gentiles, until the times of the Gentiles be fulfilled.  
-> <sup>25</sup> And there shall be signs in the sun, and in the moon, and in the stars; and upon the earth distress of nations, with perplexity; the sea and the waves roaring;  
-> <sup>26</sup> Men's hearts failing them for fear, and for looking after those things which are coming on the earth: for the powers of heaven shall be shaken.  
-> <sup>27</sup> And then shall they see the Son of man coming in a cloud with power and great glory.  
-> <sup>28</sup> And when these things begin to come to pass, then look up, and lift up your heads; for your redemption draweth nigh.  
+> **²⁰** And when ye shall see Jerusalem compassed with armies, then know that the desolation thereof is nigh.  
+> **²¹** Then let them which are in Judæa flee to the mountains; and let them which are in the midst of it depart out; and let not them that are in the countries enter thereinto.  
+> **²²** For these be the days of vengeance, that all things which are written may be fulfilled.  
+> **²³** But woe unto them that are with child, and to them that give suck, in those days! for there shall be great distress in the land, and wrath upon this people.  
+> **²⁴** And they shall fall by the edge of the sword, and shall be led away captive into all nations: and Jerusalem shall be trodden down of the Gentiles, until the times of the Gentiles be fulfilled.  
+> **²⁵** And there shall be signs in the sun, and in the moon, and in the stars; and upon the earth distress of nations, with perplexity; the sea and the waves roaring;  
+> **²⁶** Men's hearts failing them for fear, and for looking after those things which are coming on the earth: for the powers of heaven shall be shaken.  
+> **²⁷** And then shall they see the Son of man coming in a cloud with power and great glory.  
+> **²⁸** And when these things begin to come to pass, then look up, and lift up your heads; for your redemption draweth nigh.  
 
 Having given them an idea of the times for about thirty-eight years next ensuing, he here comes to show them what all those things would issue in at last, namely, the destruction of Jerusalem, and the utter dispersion of the Jewish nation, which would be a little day of judgment, a type and figure of Christ's second coming, which was not so fully spoken of here as in the parallel place (Mt 24:1-51), yet glanced at; for the destruction of Jerusalem would be as it were the destruction of the world to those whose hearts were bound up in it.
 
@@ -91,16 +91,16 @@ VIII\. Here is one word of prediction that looks further than the destruction of
 
 ## Judgments Predicted.
 
-> <sup>29</sup> And he spake to them a parable; Behold the fig tree, and all the trees;  
-> <sup>30</sup> When they now shoot forth, ye see and know of your own selves that summer is now nigh at hand.  
-> <sup>31</sup> So likewise ye, when ye see these things come to pass, know ye that the kingdom of God is nigh at hand.  
-> <sup>32</sup> Verily I say unto you, This generation shall not pass away, till all be fulfilled.  
-> <sup>33</sup> Heaven and earth shall pass away: but my words shall not pass away.  
-> <sup>34</sup> And take heed to yourselves, lest at any time your hearts be overcharged with surfeiting, and drunkenness, and cares of this life, and *so* that day come upon you unawares.  
-> <sup>35</sup> For as a snare shall it come on all them that dwell on the face of the whole earth.  
-> <sup>36</sup> Watch ye therefore, and pray always, that ye may be accounted worthy to escape all these things that shall come to pass, and to stand before the Son of man.  
-> <sup>37</sup> And in the day time he was teaching in the temple; and at night he went out, and abode in the mount that is called *the mount* of Olives.  
-> <sup>38</sup> And all the people came early in the morning to him in the temple, for to hear him.  
+> **²⁹** And he spake to them a parable; Behold the fig tree, and all the trees;  
+> **³⁰** When they now shoot forth, ye see and know of your own selves that summer is now nigh at hand.  
+> **³¹** So likewise ye, when ye see these things come to pass, know ye that the kingdom of God is nigh at hand.  
+> **³²** Verily I say unto you, This generation shall not pass away, till all be fulfilled.  
+> **³³** Heaven and earth shall pass away: but my words shall not pass away.  
+> **³⁴** And take heed to yourselves, lest at any time your hearts be overcharged with surfeiting, and drunkenness, and cares of this life, and *so* that day come upon you unawares.  
+> **³⁵** For as a snare shall it come on all them that dwell on the face of the whole earth.  
+> **³⁶** Watch ye therefore, and pray always, that ye may be accounted worthy to escape all these things that shall come to pass, and to stand before the Son of man.  
+> **³⁷** And in the day time he was teaching in the temple; and at night he went out, and abode in the mount that is called *the mount* of Olives.  
+> **³⁸** And all the people came early in the morning to him in the temple, for to hear him.  
 
 Here, in the close of this discourse,
 

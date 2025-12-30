@@ -8,47 +8,47 @@ The scope of this chapter is the same with that of the two foregoing chapters, b
 
 ## The Prophet's Personal Affliction. (b. c. 588.)
 
-> <sup>1</sup> I *am* the man *that* hath seen affliction by the rod of his wrath.  
-> <sup>2</sup> He hath led me, and brought *me into* darkness, but not *into* light.  
-> <sup>3</sup> Surely against me is he turned; he turneth his hand *against me* all the day.  
-> <sup>4</sup> My flesh and my skin hath he made old; he hath broken my bones.  
-> <sup>5</sup> He hath builded against me, and compassed *me* with gall and travail.  
-> <sup>6</sup> He hath set me in dark places, as *they that be* dead of old.  
-> <sup>7</sup> He hath hedged me about, that I cannot get out: he hath made my chain heavy.  
-> <sup>8</sup> Also when I cry and shout, he shutteth out my prayer.  
-> <sup>9</sup> He hath inclosed my ways with hewn stone, he hath made my paths crooked.  
-> <sup>10</sup> He *was* unto me *as* a bear lying in wait, *and as* a lion in secret places.  
-> <sup>11</sup> He hath turned aside my ways, and pulled me in pieces: he hath made me desolate.  
-> <sup>12</sup> He hath bent his bow, and set me as a mark for the arrow.  
-> <sup>13</sup> He hath caused the arrows of his quiver to enter into my reins.  
-> <sup>14</sup> I was a derision to all my people; *and* their song all the day.  
-> <sup>15</sup> He hath filled me with bitterness, he hath made me drunken with wormwood.  
-> <sup>16</sup> He hath also broken my teeth with gravel stones, he hath covered me with ashes.  
-> <sup>17</sup> And thou hast removed my soul far off from peace: I forgat prosperity.  
-> <sup>18</sup> And I said, My strength and my hope is perished from the LORD:  
-> <sup>19</sup> Remembering mine affliction and my misery, the wormwood and the gall.  
-> <sup>20</sup> My soul hath *them* still in remembrance, and is humbled in me.  
+> **¹** I *am* the man *that* hath seen affliction by the rod of his wrath.  
+> **²** He hath led me, and brought *me into* darkness, but not *into* light.  
+> **³** Surely against me is he turned; he turneth his hand *against me* all the day.  
+> **⁴** My flesh and my skin hath he made old; he hath broken my bones.  
+> **⁵** He hath builded against me, and compassed *me* with gall and travail.  
+> **⁶** He hath set me in dark places, as *they that be* dead of old.  
+> **⁷** He hath hedged me about, that I cannot get out: he hath made my chain heavy.  
+> **⁸** Also when I cry and shout, he shutteth out my prayer.  
+> **⁹** He hath inclosed my ways with hewn stone, he hath made my paths crooked.  
+> **¹⁰** He *was* unto me *as* a bear lying in wait, *and as* a lion in secret places.  
+> **¹¹** He hath turned aside my ways, and pulled me in pieces: he hath made me desolate.  
+> **¹²** He hath bent his bow, and set me as a mark for the arrow.  
+> **¹³** He hath caused the arrows of his quiver to enter into my reins.  
+> **¹⁴** I was a derision to all my people; *and* their song all the day.  
+> **¹⁵** He hath filled me with bitterness, he hath made me drunken with wormwood.  
+> **¹⁶** He hath also broken my teeth with gravel stones, he hath covered me with ashes.  
+> **¹⁷** And thou hast removed my soul far off from peace: I forgat prosperity.  
+> **¹⁸** And I said, My strength and my hope is perished from the LORD:  
+> **¹⁹** Remembering mine affliction and my misery, the wormwood and the gall.  
+> **²⁰** My soul hath *them* still in remembrance, and is humbled in me.  
 
 The title of the Ps 102:1-28 might very fitly be prefixed to this chapter—*The prayer of the afflicted, when he is overwhelmed, and pours out his complaint before the Lord;* for it is very feelingly and fluently that the complaint is here poured out. Let us observe the particulars of it. The prophet complains, 1. That God is angry. This gives both birth and bitterness to the affliction (La 3:1): *I am the man,* the remarkable man, *that has seen affliction,* and has felt it sensibly, *by the rod of his wrath.* Note, God is sometimes angry with his own people; yet it is to be complained of, not as a sword to cut off, by only as a rod to correct; it is to them *the rod of his wrath,* a chastening which, though grievous for the present, will in the issue be advantageous. By this rod we must expect to *see affliction,* and, if we be made to see more than ordinary affliction by that rod, we must not quarrel, for we are sure that the anger is just and affliction mild and mixed with mercy. 2. That he is at a loss and altogether in the dark. Darkness is put for great trouble and perplexity, the want both of comfort and of direction; this was the case of the complainant (La 3:2): "*He has led me* by his providence, and an unaccountable chain of events, *into darkness and not into light,* the darkness I feared and not into the light I hoped for." And (La 3:6), *He has set me in dark places,* dark as the grave, *like those that are dead of old,* that are quite forgotten, nobody knows who or what they were. Note, The Israel of God, though children of light, sometimes *walk in darkness.* 3. That God appears against him as an enemy, as a professed enemy. God had been for him, but no "*Surely against me is he turned* (La 3:3), as far as I can discern; for *his hand is turned against me all the day. I am chastened every morning,*" Ps 73:14. And, when God's hand is continually turned against us, we are tempted to think that his heart is turned against us too. God had said once (Ho 5:14), *I will be as a lion to the house of Judah,* and now he has made his word good (La 3:10): "*He was unto me as a bear lying in wait,* surprising me with his judgments, *and as a lion in secret places;* so that which way soever I went I was in continual fear of being set upon and could never think myself safe." Do men shoot at those thy are enemies to? *He has bent his bow,* the bow that was ordained against the church's prosecutors, that is bent against her sons, La 3:12. *He has set me as a mark for his arrow,* which he aims at, and will be sure to hit, and then *the arrows of his quiver enter into my reins,* give me a mortal wound, an inward wound, La 3:13. Note, God has many arrows in his quiver, and they fly swiftly and pierce deeply. 4. That he is as one sorely afflicted both in body and mind. The Jewish state may now be fitly compared to a man wrinkled with age, for which there is no remedy (La 3:4): "*My flesh and my skin has he made old;* they are wasted and withered, and I look like one that is ready to drop into the grave; nay, *he has broken my bones,* and so disabled me to help myself, La 3:15. *He has filled me with bitterness,* a bitter sense of his calamities." God has access to the spirit, and can so embitter that as thereby to embitter all the enjoyments; as, when the stomach is foul, whatever is eaten sours in it: "*He has made me drunk with wormwood,* so intoxicated me with the sense of my afflictions that I know not what to say or do. *He has* mingled *gravel* with my bread, so that *my teeth* are *broken* with it (La 3:16) and what I eat is neither pleasant nor nourishing. *He has covered me with ashes,* as mourners used to be, or (as some read it) *he has fed me with ashes. I have eaten ashes like bread,*" Ps 102:9. 5. That he is not able to discern any way of escape or deliverance (La 3:5): "*He has built against me,* as forts and batteries are built against a besieged city. Where there was a way open it is now quite made up: *He has compassed me* on ever side *with gall and travel;* I vex, and fret, and tire myself, to find a way of escape, but can find none, La 3:7. *He has hedged me about, that I cannot get out.*" When Jerusalem was besieged it was said to be *compassed in on every side,* Lu 19:43. "I am chained; and as some notorious malefactors are double-fettered, and loaded with irons, so he *has made my chain heavy. He has* also (La 3:9) *enclosed my ways with hewn stone,* not only hedged up my way *with thorns* (Ho 2:6), but stopped it up with a stone wall, which cannot be broken through, so that *my paths are made crooked;* I traverse to and fro, to the right hand, to the left, to try to get forward, but am still turned back." It is just with God to make those who walk in the crooked paths of sin, crossing God's laws, walk in the crooked paths of affliction, crossing their designs and breaking their measures. So (La 3:11), "*He has turned aside my ways;* he has blasted all my counsels, ruined my projects, so that I am necessitated to yield to my own ruin. He has *pulled me in pieces;* he has torn and is gone away (Ho 5:14), and has *made me desolate,* has deprived me of all society and all comfort in my own soul." 6. That God turns a deaf ear to his prayers (La 3:8): "*When I cry and shout,* as one in earnest, as one that would make him hear, yet he *shuts out my prayer* and will not suffer it to have access to him." God's ear is wont to be open to the prayers of his people, and his door of mercy to those that knock at it; but now both are shut, even to one that *cries and shouts.* Thus sometimes God seems to be angry even against *the prayers of his people* (Ps 80:4), and their case is deplorable indeed when they are denied not only the benefit of an answer, but the comfort of acceptance. 7. That his neighbours make a laughing matter of his troubles (La 3:14): *I was a derision to all my people,* to all the wicked among them, who made themselves an one another merry with the public judgments, and particularly the prophet Jeremiah's griefs. I am their song, their *neginath,* or hand-instrument of music, their *tabret* (Job 17:6), that they play upon, as Nero on his harp when Rome was on fire. 8. That he was ready to despair of relief and deliverance: "Thou hast not only taken peace from me, but hast *removed my soul far off from peace* (La 3:17), so that it is not only not within reach, but not within view. *I forget prosperity;* it is so long since I had it, and so unlikely that I should ever recover it, that I have lost the idea of it. I have been so inured to sorrow and servitude that I know not what joy and liberty mean. I have even given up all for gone, concluding, *My strength and my hope have perished from the Lord* (La 3:18); I can no longer stay myself upon God as my support, for I do not find that he gives me encouragement to do so; nor can I look for his appearing in my behalf, so as to put an end to my troubles, for the case seems remediless, and even my God inexorable." Without doubt it was his infirmity to say this (Ps 77:10), for with God there is *everlasting strength,* and he is his people's never-failing hope, whatever they may think. 9. That grief returned upon every remembrance of his troubles, and his reflections were as melancholy as his prospects, La 3:19,20. Did he endeavour as Job did (Job 9:27), to *forget his complaint?* Alas! it was to no purpose; he remembers, upon all occasions, *the affliction and the misery, the wormwood and the gall.* Thus emphatically does he speak of his affliction, for thus did he think of it, thus heavily did it lie when he reviewed it! It was an affliction that was misery itself. *My affliction and my transgression* (so some read it), my trouble and my sin that brought it upon me; this was *the wormwood and the gall* in *the affliction and the misery.* It is sin that makes the cup of affliction a bitter cup. *My soul has them still in remembrance.* The captives in Babylon had all the miseries of the siege in their mind continually and the flames and ruins of Jerusalem still before their eyes, and *wept when* they *remembered Zion;* nay, they could *never forget Jerusalem,* Ps 137:1,5. *My soul,* having *them in remembrance, is humbled in me,* not only oppressed with a sense of the trouble, but in bitterness for sin. Note, It becomes us to have humble hearts under humbling providences, and to renew our penitent humiliations for sin upon every remembrance of our afflictions and miseries. Thus we may get good by former corrections and prevent further.
 
 ## Words of Comfort to Israel; The Benefit of Afflictions; Comfort to the Afflicted. (b. c. 588.)
 
-> <sup>21</sup> This I recall to my mind, therefore have I hope.  
-> <sup>22</sup> *It is of* the LORD's mercies that we are not consumed, because his compassions fail not.  
-> <sup>23</sup> *They are* new every morning: great *is* thy faithfulness.  
-> <sup>24</sup> The LORD *is* my portion, saith my soul; therefore will I hope in him.  
-> <sup>25</sup> The LORD *is* good unto them that wait for him, to the soul *that* seeketh him.  
-> <sup>26</sup> *It is* good that *a man* should both hope and quietly wait for the salvation of the LORD.  
-> <sup>27</sup> *It is* good for a man that he bear the yoke in his youth.  
-> <sup>28</sup> He sitteth alone and keepeth silence, because he hath borne *it* upon him.  
-> <sup>29</sup> He putteth his mouth in the dust; if so be there may be hope.  
-> <sup>30</sup> He giveth *his* cheek to him that smiteth him: he is filled full with reproach.  
-> <sup>31</sup> For the Lord will not cast off for ever:  
-> <sup>32</sup> But though he cause grief, yet will he have compassion according to the multitude of his mercies.  
-> <sup>33</sup> For he doth not afflict willingly nor grieve the children of men.  
-> <sup>34</sup> To crush under his feet all the prisoners of the earth,  
-> <sup>35</sup> To turn aside the right of a man before the face of the most High,  
-> <sup>36</sup> To subvert a man in his cause, the Lord approveth not.  
+> **²¹** This I recall to my mind, therefore have I hope.  
+> **²²** *It is of* the LORD's mercies that we are not consumed, because his compassions fail not.  
+> **²³** *They are* new every morning: great *is* thy faithfulness.  
+> **²⁴** The LORD *is* my portion, saith my soul; therefore will I hope in him.  
+> **²⁵** The LORD *is* good unto them that wait for him, to the soul *that* seeketh him.  
+> **²⁶** *It is* good that *a man* should both hope and quietly wait for the salvation of the LORD.  
+> **²⁷** *It is* good for a man that he bear the yoke in his youth.  
+> **²⁸** He sitteth alone and keepeth silence, because he hath borne *it* upon him.  
+> **²⁹** He putteth his mouth in the dust; if so be there may be hope.  
+> **³⁰** He giveth *his* cheek to him that smiteth him: he is filled full with reproach.  
+> **³¹** For the Lord will not cast off for ever:  
+> **³²** But though he cause grief, yet will he have compassion according to the multitude of his mercies.  
+> **³³** For he doth not afflict willingly nor grieve the children of men.  
+> **³⁴** To crush under his feet all the prisoners of the earth,  
+> **³⁵** To turn aside the right of a man before the face of the most High,  
+> **³⁶** To subvert a man in his cause, the Lord approveth not.  
 
 Here the clouds begin to disperse and the sky to clear up; the complaint was very melancholy in the former part of the chapter, and yet here the tune is altered and the mourners in Zion begin to look a little pleasant. But for hope, the heart would break. To save the heart from being quite broken, here is something *called to mind,* which gives ground for *hope* (La 3:21), which refers to what comes after, not to what goes before. *I make to return to my heart* (so the margin words it); what we have had in our hearts, and have laid to our hearts, is sometimes as if it were quite lost and forgotten, till God by his grace make it return to our hearts, that it may be ready to us when we have occasion to use it. "*I recall* it *to mind; therefore have I hope,* and am kept from downright despair." Let us see what these things are which he calls to mind.
 
@@ -70,11 +70,11 @@ VIII\. That though he makes use of men as his hand, or rather instruments in his
 
 ## The Duties of the Afflicted. (b. c. 588.)
 
-> <sup>37</sup> Who *is* he *that* saith, and it cometh to pass, *when* the Lord commandeth *it* not?  
-> <sup>38</sup> Out of the mouth of the most High proceedeth not evil and good?  
-> <sup>39</sup> Wherefore doth a living man complain, a man for the punishment of his sins?  
-> <sup>40</sup> Let us search and try our ways, and turn again to the LORD.  
-> <sup>41</sup> Let us lift up our heart with *our* hands unto God in the heavens.  
+> **³⁷** Who *is* he *that* saith, and it cometh to pass, *when* the Lord commandeth *it* not?  
+> **³⁸** Out of the mouth of the most High proceedeth not evil and good?  
+> **³⁹** Wherefore doth a living man complain, a man for the punishment of his sins?  
+> **⁴⁰** Let us search and try our ways, and turn again to the LORD.  
+> **⁴¹** Let us lift up our heart with *our* hands unto God in the heavens.  
 
 That we may be entitled to the comforts administered to the afflicted in the La 3:21-36, and may taste the sweetness of them, we have here the duties of an afflicted state prescribed to us, in the performance of which we may expect those comforts.
 
@@ -88,19 +88,19 @@ IV\. We must offer up ourselves to God, and our best affections and services, in
 
 ## Complaining to God. (b. c. 588.)
 
-> <sup>42</sup> We have transgressed and have rebelled: thou hast not pardoned.  
-> <sup>43</sup> Thou hast covered with anger, and persecuted us: thou hast slain, thou hast not pitied.  
-> <sup>44</sup> Thou hast covered thyself with a cloud, that *our* prayer should not pass through.  
-> <sup>45</sup> Thou hast made us *as* the offscouring and refuse in the midst of the people.  
-> <sup>46</sup> All our enemies have opened their mouths against us.  
-> <sup>47</sup> Fear and a snare is come upon us, desolation and destruction.  
-> <sup>48</sup> Mine eye runneth down with rivers of water for the destruction of the daughter of my people.  
-> <sup>49</sup> Mine eye trickleth down, and ceaseth not, without any intermission,  
-> <sup>50</sup> Till the LORD look down, and behold from heaven.  
-> <sup>51</sup> Mine eye affecteth mine heart because of all the daughters of my city.  
-> <sup>52</sup> Mine enemies chased me sore, like a bird, without cause.  
-> <sup>53</sup> They have cut off my life in the dungeon, and cast a stone upon me.  
-> <sup>54</sup> Waters flowed over mine head; *then* I said, I am cut off.  
+> **⁴²** We have transgressed and have rebelled: thou hast not pardoned.  
+> **⁴³** Thou hast covered with anger, and persecuted us: thou hast slain, thou hast not pitied.  
+> **⁴⁴** Thou hast covered thyself with a cloud, that *our* prayer should not pass through.  
+> **⁴⁵** Thou hast made us *as* the offscouring and refuse in the midst of the people.  
+> **⁴⁶** All our enemies have opened their mouths against us.  
+> **⁴⁷** Fear and a snare is come upon us, desolation and destruction.  
+> **⁴⁸** Mine eye runneth down with rivers of water for the destruction of the daughter of my people.  
+> **⁴⁹** Mine eye trickleth down, and ceaseth not, without any intermission,  
+> **⁵⁰** Till the LORD look down, and behold from heaven.  
+> **⁵¹** Mine eye affecteth mine heart because of all the daughters of my city.  
+> **⁵²** Mine enemies chased me sore, like a bird, without cause.  
+> **⁵³** They have cut off my life in the dungeon, and cast a stone upon me.  
+> **⁵⁴** Waters flowed over mine head; *then* I said, I am cut off.  
 
 It is easier to chide ourselves for complaining than to chide ourselves out of it. The prophet had owned that a living man should not complain, as if he checked himself for his complaints in the former part of the chapter; and yet here the clouds return after the rain and the wound bleeds afresh; for great pains must be taken with a troubled spirit to bring it into temper.
 
@@ -120,18 +120,18 @@ II\. They complain of the afflictions they are under, not without some reflectio
 
 ## God's Goodness Acknowledged; An Appeal to God. (b. c. 588.)
 
-> <sup>55</sup> I called upon thy name, O LORD, out of the low dungeon.  
-> <sup>56</sup> Thou hast heard my voice: hide not thine ear at my breathing, at my cry.  
-> <sup>57</sup> Thou drewest near in the day *that* I called upon thee: thou saidst, Fear not.  
-> <sup>58</sup> O Lord, thou hast pleaded the causes of my soul; thou hast redeemed my life.  
-> <sup>59</sup> O LORD, thou hast seen my wrong: judge thou my cause.  
-> <sup>60</sup> Thou hast seen all their vengeance *and* all their imaginations against me.  
-> <sup>61</sup> Thou hast heard their reproach, O LORD, *and* all their imaginations against me;  
-> <sup>62</sup> The lips of those that rose up against me, and their device against me all the day.  
-> <sup>63</sup> Behold their sitting down, and their rising up; I *am* their music.  
-> <sup>64</sup> Render unto them a recompence, O LORD, according to the work of their hands.  
-> <sup>65</sup> Give them sorrow of heart, thy curse unto them.  
-> <sup>66</sup> Persecute and destroy them in anger from under the heavens of the LORD.  
+> **⁵⁵** I called upon thy name, O LORD, out of the low dungeon.  
+> **⁵⁶** Thou hast heard my voice: hide not thine ear at my breathing, at my cry.  
+> **⁵⁷** Thou drewest near in the day *that* I called upon thee: thou saidst, Fear not.  
+> **⁵⁸** O Lord, thou hast pleaded the causes of my soul; thou hast redeemed my life.  
+> **⁵⁹** O LORD, thou hast seen my wrong: judge thou my cause.  
+> **⁶⁰** Thou hast seen all their vengeance *and* all their imaginations against me.  
+> **⁶¹** Thou hast heard their reproach, O LORD, *and* all their imaginations against me;  
+> **⁶²** The lips of those that rose up against me, and their device against me all the day.  
+> **⁶³** Behold their sitting down, and their rising up; I *am* their music.  
+> **⁶⁴** Render unto them a recompence, O LORD, according to the work of their hands.  
+> **⁶⁵** Give them sorrow of heart, thy curse unto them.  
+> **⁶⁶** Persecute and destroy them in anger from under the heavens of the LORD.  
 
 We may observe throughout this chapter a struggle in the prophet's breast between sense and faith, fear and hope; he complains and then comforts himself, yet drops his comforts and returns again to his complaints, as Ps 42:1-11. But, as there, so here, faith gets the last word and comes off a conqueror; for in these verses he concludes with some comfort. And here are two things with which he comforts himself:—
 

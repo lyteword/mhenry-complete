@@ -10,12 +10,12 @@ The psalm is a prayer, a solemn address to God, at a time when the psalmist was 
 
 To the chief musician upon Nehiloth. A psalm of David.
 
-> <sup>1</sup> Give ear to my words, O LORD, consider my meditation.  
-> <sup>2</sup> Hearken unto the voice of my cry, my King, and my God: for unto thee will I pray.  
-> <sup>3</sup> My voice shalt thou hear in the morning, O LORD; in the morning will I direct *my prayer* unto thee, and will look up.  
-> <sup>4</sup> For thou *art* not a God that hath pleasure in wickedness: neither shall evil dwell with thee.  
-> <sup>5</sup> The foolish shall not stand in thy sight: thou hatest all workers of iniquity.  
-> <sup>6</sup> Thou shalt destroy them that speak leasing: the LORD will abhor the bloody and deceitful man.  
+> **¹** Give ear to my words, O LORD, consider my meditation.  
+> **²** Hearken unto the voice of my cry, my King, and my God: for unto thee will I pray.  
+> **³** My voice shalt thou hear in the morning, O LORD; in the morning will I direct *my prayer* unto thee, and will look up.  
+> **⁴** For thou *art* not a God that hath pleasure in wickedness: neither shall evil dwell with thee.  
+> **⁵** The foolish shall not stand in thy sight: thou hatest all workers of iniquity.  
+> **⁶** Thou shalt destroy them that speak leasing: the LORD will abhor the bloody and deceitful man.  
 
 The title of this psalm has nothing in it peculiar but that it is said to be upon *Nehiloth,* a word nowhere else used. It is conjectured (and it is but a conjecture) that is signifies *wind*—instruments, with which this psalm was sung, as *Neginoth* was supposed to signify the *stringed*—instruments. In Ps 5:1-6 David had an eye to God,
 
@@ -31,12 +31,12 @@ In singing Ps 5:1-6, and praying them over, we must engage and stir up ourselves
 
 ## Delight in Public Worship; Happiness of the Righteous.
 
-> <sup>7</sup> But as for me, I will come *into* thy house in the multitude of thy mercy: *and* in thy fear will I worship toward thy holy temple.  
-> <sup>8</sup> Lead me, O LORD, in thy righteousness because of mine enemies; make thy way straight before my face.  
-> <sup>9</sup> For *there is* no faithfulness in their mouth; their inward part *is* very wickedness; their throat *is* an open sepulchre; they flatter with their tongue.  
-> <sup>10</sup> Destroy thou them, O God; let them fall by their own counsels; cast them out in the multitude of their transgressions; for they have rebelled against thee.  
-> <sup>11</sup> But let all those that put their trust in thee rejoice: let them ever shout for joy, because thou defendest them: let them also that love thy name be joyful in thee.  
-> <sup>12</sup> For thou, LORD, wilt bless the righteous; with favour wilt thou compass him as *with* a shield.  
+> **⁷** But as for me, I will come *into* thy house in the multitude of thy mercy: *and* in thy fear will I worship toward thy holy temple.  
+> **⁸** Lead me, O LORD, in thy righteousness because of mine enemies; make thy way straight before my face.  
+> **⁹** For *there is* no faithfulness in their mouth; their inward part *is* very wickedness; their throat *is* an open sepulchre; they flatter with their tongue.  
+> **¹⁰** Destroy thou them, O God; let them fall by their own counsels; cast them out in the multitude of their transgressions; for they have rebelled against thee.  
+> **¹¹** But let all those that put their trust in thee rejoice: let them ever shout for joy, because thou defendest them: let them also that love thy name be joyful in thee.  
+> **¹²** For thou, LORD, wilt bless the righteous; with favour wilt thou compass him as *with* a shield.  
 
 In Ps 7-12 David gives three characters—of himself, of his enemies, and of all the people of God, and subjoins a prayer to each of them.
 

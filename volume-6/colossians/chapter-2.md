@@ -8,9 +8,9 @@ I\. The apostle expresses concern for the Colossians, Col 2:1-3. II. He repeats 
 
 ## Paul's Concern for the Colossians. (a. d. 62.)
 
-> <sup>1</sup> For I would that ye knew what great conflict I have for you, and *for* them at Laodicea, and *for* as many as have not seen my face in the flesh;  
-> <sup>2</sup> That their hearts might be comforted, being knit together in love, and unto all riches of the full assurance of understanding, to the acknowledgement of the mystery of God, and of the Father, and of Christ;  
-> <sup>3</sup> In whom are hid all the treasures of wisdom and knowledge.  
+> **¹** For I would that ye knew what great conflict I have for you, and *for* them at Laodicea, and *for* as many as have not seen my face in the flesh;  
+> **²** That their hearts might be comforted, being knit together in love, and unto all riches of the full assurance of understanding, to the acknowledgement of the mystery of God, and of the Father, and of Christ;  
+> **³** In whom are hid all the treasures of wisdom and knowledge.  
 
 We may observe here the great concern which Paul had for these Colossians and the other churches which he had not any personal knowledge of. The apostle had never been at Colosse, and the church planted there was not of his planting; and yet he had as tender a care of it as if it had been the only people of his charge (Col 2:1): *For I would that you knew what great conflict I have for you, and for those at Laodicea, and for as many as have not seen my face in the flesh.* Observe, 1. Paul's care of the church was such as amounted to a conflict. He was in a sort of agony, and had a constant fear respecting what would become of them. Herein he was a follower of his Master, who was in an agony for us, and was *heard in that he feared.* (2.) We may keep up a communion by faith, hope, and holy love, even with those churches and fellow-christians of whom we have no personal knowledge, and with whom we have no conversation. We can think, and pray, and be concerned for one another, at the greatest distance; and those we never saw in the flesh we may hope to meet in heaven. But,
 
@@ -28,15 +28,15 @@ II\. His concern for them is repeated (Col 2:5): *Though I am absent in the fles
 
 ## The Glory of the Christian Economy. (a. d. 62.)
 
-> <sup>4</sup> And this I say, lest any man should beguile you with enticing words.  
-> <sup>5</sup> For though I be absent in the flesh, yet am I with you in the spirit, joying and beholding your order, and the stedfastness of your faith in Christ.  
-> <sup>6</sup> As ye have therefore received Christ Jesus the Lord, *so* walk ye in him:  
-> <sup>7</sup> Rooted and built up in him, and stablished in the faith, as ye have been taught, abounding therein with thanksgiving.  
-> <sup>8</sup> Beware lest any man spoil you through philosophy and vain deceit, after the tradition of men, after the rudiments of the world, and not after Christ.  
-> <sup>9</sup> For in him dwelleth all the fulness of the Godhead bodily.  
-> <sup>10</sup> And ye are complete in him, which is the head of all principality and power:  
-> <sup>11</sup> In whom also ye are circumcised with the circumcision made without hands, in putting off the body of the sins of the flesh by the circumcision of Christ:  
-> <sup>12</sup> Buried with him in baptism, wherein also ye are risen with *him* through the faith of the operation of God, who hath raised him from the dead.  
+> **⁴** And this I say, lest any man should beguile you with enticing words.  
+> **⁵** For though I be absent in the flesh, yet am I with you in the spirit, joying and beholding your order, and the stedfastness of your faith in Christ.  
+> **⁶** As ye have therefore received Christ Jesus the Lord, *so* walk ye in him:  
+> **⁷** Rooted and built up in him, and stablished in the faith, as ye have been taught, abounding therein with thanksgiving.  
+> **⁸** Beware lest any man spoil you through philosophy and vain deceit, after the tradition of men, after the rudiments of the world, and not after Christ.  
+> **⁹** For in him dwelleth all the fulness of the Godhead bodily.  
+> **¹⁰** And ye are complete in him, which is the head of all principality and power:  
+> **¹¹** In whom also ye are circumcised with the circumcision made without hands, in putting off the body of the sins of the flesh by the circumcision of Christ:  
+> **¹²** Buried with him in baptism, wherein also ye are risen with *him* through the faith of the operation of God, who hath raised him from the dead.  
 
 The apostle cautions the Colossians against deceivers (Col 2:4): *And this I say lest any man beguile you with enticing words;* and Col 2:8, *Lest any man spoil you.* He insists so much upon the perfection of Christ and the gospel revelation, to preserve them from the ensnaring insinuations of those who would corrupt their principles. Note, 1. The way in which Satan spoils souls is by beguiling them. He deceives them, and by this means slays them. He is the *old serpent who beguiled Eve through his subtlety,* 2Co 11:3. He could not ruin us if he did not cheat us; and he could not cheat us but by our own fault and folly. 2. Satan's agents, who aim to spoil them, beguile them with enticing words. See the danger of enticing words; how many are ruined by the flattery of those who lie in wait to deceive, and by the false disguises and fair appearances of evil principles and wicked practices. *By good words, and fair speeches, they deceive the hearts of the simple,* Ro 16:18. "You ought to stand upon your guard against enticing words, and be aware and afraid of those who would entice you to any evil; for that which they aim at is to spoil you." *If sinners entice thee, consent thou not,* Pr 1:10. Observe,
 
@@ -50,9 +50,9 @@ II\. The fair warning given us of our danger: *Beware lest any man spoil you thr
 
 ## The Glory of the Christian Economy. (a. d. 62.)
 
-> <sup>13</sup> And you, being dead in your sins and the uncircumcision of your flesh, hath he quickened together with him, having forgiven you all trespasses;  
-> <sup>14</sup> Blotting out the handwriting of ordinances that was against us, which was contrary to us, and took it out of the way, nailing it to his cross;  
-> <sup>15</sup> *And* having spoiled principalities and powers, he made a show of them openly, triumphing over them in it.  
+> **¹³** And you, being dead in your sins and the uncircumcision of your flesh, hath he quickened together with him, having forgiven you all trespasses;  
+> **¹⁴** Blotting out the handwriting of ordinances that was against us, which was contrary to us, and took it out of the way, nailing it to his cross;  
+> **¹⁵** *And* having spoiled principalities and powers, he made a show of them openly, triumphing over them in it.  
 
 The apostle here represents the privileges we Christians have above the Jews, which are very great.
 
@@ -66,14 +66,14 @@ IV\. He has obtained a glorious victory for us over the powers of darkness: *And
 
 ## The Glory of the Christian Economy. (a. d. 62.)
 
-> <sup>16</sup> Let no man therefore judge you in meat, or in drink, or in respect of a holyday, or of the new moon, or of the sabbath *days:*  
-> <sup>17</sup> Which are a shadow of things to come; but the body *is* of Christ.  
-> <sup>18</sup> Let no man beguile you of your reward in a voluntary humility and worshipping of angels, intruding into those things which he hath not seen, vainly puffed up by his fleshly mind,  
-> <sup>19</sup> And not holding the Head, from which all the body by joints and bands having nourishment ministered, and knit together, increaseth with the increase of God.  
-> <sup>20</sup> Wherefore if ye be dead with Christ from the rudiments of the world, why, as though living in the world, are ye subject to ordinances,  
-> <sup>21</sup> (Touch not; taste not; handle not;  
-> <sup>22</sup> Which all are to perish with the using;) after the commandments and doctrines of men?  
-> <sup>23</sup> Which things have indeed a show of wisdom in will worship, and humility, and neglecting of the body; not in any honour to the satisfying of the flesh.  
+> **¹⁶** Let no man therefore judge you in meat, or in drink, or in respect of a holyday, or of the new moon, or of the sabbath *days:*  
+> **¹⁷** Which are a shadow of things to come; but the body *is* of Christ.  
+> **¹⁸** Let no man beguile you of your reward in a voluntary humility and worshipping of angels, intruding into those things which he hath not seen, vainly puffed up by his fleshly mind,  
+> **¹⁹** And not holding the Head, from which all the body by joints and bands having nourishment ministered, and knit together, increaseth with the increase of God.  
+> **²⁰** Wherefore if ye be dead with Christ from the rudiments of the world, why, as though living in the world, are ye subject to ordinances,  
+> **²¹** (Touch not; taste not; handle not;  
+> **²²** Which all are to perish with the using;) after the commandments and doctrines of men?  
+> **²³** Which things have indeed a show of wisdom in will worship, and humility, and neglecting of the body; not in any honour to the satisfying of the flesh.  
 
 The apostle concludes the chapter with exhortations to proper duty, which he infers from the foregoing discourse.
 

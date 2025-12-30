@@ -8,13 +8,13 @@ At this chapter begins the story of Samson, the last of the judges of Israel who
 
 ## An Angel Appears to Manoah's Wife. (b. c. 1161.)
 
-> <sup>1</sup> And the children of Israel did evil again in the sight of the LORD; and the LORD delivered them into the hand of the Philistines forty years.  
-> <sup>2</sup> And there was a certain man of Zorah, of the family of the Danites, whose name *was* Manoah; and his wife *was* barren, and bare not.  
-> <sup>3</sup> And the angel of the LORD appeared unto the woman, and said unto her, Behold now, thou *art* barren, and bearest not: but thou shalt conceive, and bear a son.  
-> <sup>4</sup> Now therefore beware, I pray thee, and drink not wine nor strong drink, and eat not any unclean *thing:*  
-> <sup>5</sup> For, lo, thou shalt conceive, and bear a son; and no razor shall come on his head: for the child shall be a Nazarite unto God from the womb: and he shall begin to deliver Israel out of the hand of the Philistines.  
-> <sup>6</sup> Then the woman came and told her husband, saying, A man of God came unto me, and his countenance *was* like the countenance of an angel of God, very terrible: but I asked him not whence he *was,* neither told he me his name:  
-> <sup>7</sup> But he said unto me, Behold, thou shalt conceive, and bear a son; and now drink no wine nor strong drink, neither eat any unclean *thing:* for the child shall be a Nazarite to God from the womb to the day of his death.  
+> **¹** And the children of Israel did evil again in the sight of the LORD; and the LORD delivered them into the hand of the Philistines forty years.  
+> **²** And there was a certain man of Zorah, of the family of the Danites, whose name *was* Manoah; and his wife *was* barren, and bare not.  
+> **³** And the angel of the LORD appeared unto the woman, and said unto her, Behold now, thou *art* barren, and bearest not: but thou shalt conceive, and bear a son.  
+> **⁴** Now therefore beware, I pray thee, and drink not wine nor strong drink, and eat not any unclean *thing:*  
+> **⁵** For, lo, thou shalt conceive, and bear a son; and no razor shall come on his head: for the child shall be a Nazarite unto God from the womb: and he shall begin to deliver Israel out of the hand of the Philistines.  
+> **⁶** Then the woman came and told her husband, saying, A man of God came unto me, and his countenance *was* like the countenance of an angel of God, very terrible: but I asked him not whence he *was,* neither told he me his name:  
+> **⁷** But he said unto me, Behold, thou shalt conceive, and bear a son; and now drink no wine nor strong drink, neither eat any unclean *thing:* for the child shall be a Nazarite to God from the womb to the day of his death.  
 
 The first verse gives us a short account, such as we have too often met with already, of the great distress that Israel was in, which gave occasion for the raising up of a deliverer. They did evil, as they had done, *in the sight of the Lord,* and then God delivered them, as he had done, into the hands of their enemies. If there had been no sin, there would have needed no Saviour; but sin was suffered to abound, that grace might much more abound. The enemies God now sold them to were the Philistines, their next neighbours, that lay among them, the first and chief of the nations which were devoted to destruction, but which God *left to prove them* (Jdg 3:1,3), *the five lords of the Philistines,* an inconsiderable people in comparison with Israel (they had but five cities of any note), and yet, when God made use of them as the staff in his hand, they were very oppressive and vexatious. And this trouble lasted longer than any yet: it continued forty years, though probably not always alike violent. When Israel was in this distress Samson was born; and here we have his birth foretold by an angel. Observe,
 
@@ -26,13 +26,13 @@ III\. The report which Manoah's wife, in a transport of joy, brings in all haste
 
 ## The Angel's Appearance to Manoah. (b. c. 1161.)
 
-> <sup>8</sup> Then Manoah intreated the LORD, and said, O my Lord, let the man of God which thou didst send come again unto us, and teach us what we shall do unto the child that shall be born.  
-> <sup>9</sup> And God hearkened to the voice of Manoah; and the angel of God came again unto the woman as she sat in the field: but Manoah her husband *was* not with her.  
-> <sup>10</sup> And the woman made haste, and ran, and showed her husband, and said unto him, Behold, the man hath appeared unto me, that came unto me the *other* day.  
-> <sup>11</sup> And Manoah arose, and went after his wife, and came to the man, and said unto him, *Art* thou the man that spakest unto the woman? And he said, I *am.*  
-> <sup>12</sup> And Manoah said, Now let thy words come to pass. How shall we order the child, and *how* shall we do unto him?  
-> <sup>13</sup> And the angel of the LORD said unto Manoah, Of all that I said unto the woman let her beware.  
-> <sup>14</sup> She may not eat of any *thing* that cometh of the vine, neither let her drink wine or strong drink, nor eat any unclean *thing:* all that I commanded her let her observe.  
+> **⁸** Then Manoah intreated the LORD, and said, O my Lord, let the man of God which thou didst send come again unto us, and teach us what we shall do unto the child that shall be born.  
+> **⁹** And God hearkened to the voice of Manoah; and the angel of God came again unto the woman as she sat in the field: but Manoah her husband *was* not with her.  
+> **¹⁰** And the woman made haste, and ran, and showed her husband, and said unto him, Behold, the man hath appeared unto me, that came unto me the *other* day.  
+> **¹¹** And Manoah arose, and went after his wife, and came to the man, and said unto him, *Art* thou the man that spakest unto the woman? And he said, I *am.*  
+> **¹²** And Manoah said, Now let thy words come to pass. How shall we order the child, and *how* shall we do unto him?  
+> **¹³** And the angel of the LORD said unto Manoah, Of all that I said unto the woman let her beware.  
+> **¹⁴** She may not eat of any *thing* that cometh of the vine, neither let her drink wine or strong drink, nor eat any unclean *thing:* all that I commanded her let her observe.  
 
 We have here an account of a second visit which the angel of God made to Manoah and his wife.
 
@@ -50,15 +50,15 @@ II\. God graciously granted it: *God hearkened to the voice of Manoah,* Jdg 13:9
 
 ## Manoah's Alarm. (b. c. 1161.)
 
-> <sup>15</sup> And Manoah said unto the angel of the LORD, I pray thee, let us detain thee, until we shall have made ready a kid for thee.  
-> <sup>16</sup> And the angel of the LORD said unto Manoah, Though thou detain me, I will not eat of thy bread: and if thou wilt offer a burnt offering, thou must offer it unto the LORD. For Manoah knew not that he *was* an angel of the LORD.  
-> <sup>17</sup> And Manoah said unto the angel of the LORD, What *is* thy name, that when thy sayings come to pass we may do thee honour?  
-> <sup>18</sup> And the angel of the LORD said unto him, Why askest thou thus after my name, seeing it *is* secret?  
-> <sup>19</sup> So Manoah took a kid with a meat offering, and offered *it* upon a rock unto the LORD: and *the angel* did wondrously; and Manoah and his wife looked on.  
-> <sup>20</sup> For it came to pass, when the flame went up toward heaven from off the altar, that the angel of the LORD ascended in the flame of the altar. And Manoah and his wife looked on *it,* and fell on their faces to the ground.  
-> <sup>21</sup> But the angel of the LORD did no more appear to Manoah and to his wife. Then Manoah knew that he *was* an angel of the LORD.  
-> <sup>22</sup> And Manoah said unto his wife, We shall surely die, because we have seen God.  
-> <sup>23</sup> But his wife said unto him, If the LORD were pleased to kill us, he would not have received a burnt offering and a meat offering at our hands, neither would he have showed us all these *things,* nor would as at this time have told us *such things* as these.  
+> **¹⁵** And Manoah said unto the angel of the LORD, I pray thee, let us detain thee, until we shall have made ready a kid for thee.  
+> **¹⁶** And the angel of the LORD said unto Manoah, Though thou detain me, I will not eat of thy bread: and if thou wilt offer a burnt offering, thou must offer it unto the LORD. For Manoah knew not that he *was* an angel of the LORD.  
+> **¹⁷** And Manoah said unto the angel of the LORD, What *is* thy name, that when thy sayings come to pass we may do thee honour?  
+> **¹⁸** And the angel of the LORD said unto him, Why askest thou thus after my name, seeing it *is* secret?  
+> **¹⁹** So Manoah took a kid with a meat offering, and offered *it* upon a rock unto the LORD: and *the angel* did wondrously; and Manoah and his wife looked on.  
+> **²⁰** For it came to pass, when the flame went up toward heaven from off the altar, that the angel of the LORD ascended in the flame of the altar. And Manoah and his wife looked on *it,* and fell on their faces to the ground.  
+> **²¹** But the angel of the LORD did no more appear to Manoah and to his wife. Then Manoah knew that he *was* an angel of the LORD.  
+> **²²** And Manoah said unto his wife, We shall surely die, because we have seen God.  
+> **²³** But his wife said unto him, If the LORD were pleased to kill us, he would not have received a burnt offering and a meat offering at our hands, neither would he have showed us all these *things,* nor would as at this time have told us *such things* as these.  
 
 We have here an account,
 
@@ -74,8 +74,8 @@ II\. We have an account of the impressions which this vision made upon Manoah an
 
 ## The Birth of Samson. (b. c. 1161.)
 
-> <sup>24</sup> And the woman bare a son, and called his name Samson: and the child grew, and the LORD blessed him.  
-> <sup>25</sup> And the Spirit of the LORD began to move him at times in the camp of Dan between Zorah and Eshtaol.  
+> **²⁴** And the woman bare a son, and called his name Samson: and the child grew, and the LORD blessed him.  
+> **²⁵** And the Spirit of the LORD began to move him at times in the camp of Dan between Zorah and Eshtaol.  
 
 Here is, 1. Samson's birth. The woman that had been long barren bore a son, according to the promise; for no word of God shall fall to the ground. Hath he spoken, and shall he not make it good? 2. His name, *Samson,* has been derived by some, from *Shemesh, the sun,* turned into a diminutive, *sol exiguus*—*the sun in miniature,* perhaps because, being born like Moses to be a deliverer, he was like him exceedingly fair, his face shone like a little sun; or his parents so named him in remembrance of the shining countenance of that man of God who brought them the notice of him; though they knew not his name, yet thus, now that his sayings had come to pass, they did him honour. A little sun, because a Nazarite born (for the Nazarites were as *rubies* and *sapphires,* La 4:7, and because of his great strength. The sun is compared to a *strong man* Ps 19:5); why should not a strong man then be compared to the sun when he goes forth in his strength? A little sun, because the glory of, and a light to, his people Israel, a type of Christ, the Sun of righteousness. 3. His childhood. He grew more than is usual in strength and stature, far out-grew other children of his age; and not in that only, but in other instances, it appeared that the Lord blessed him, qualified him, both in body and mind, for something great and extraordinary. Children of promise shall have the blessing. 4. His youth. When he grew up a little *the Spirit of the Lord began to move him,* Jdg 13:25. This was an evidence that the Lord blessed him. Where God gives his blessing he gives his Spirit to qualify for the blessing. Those are blessed indeed in whom the Spirit of grace begins to work betimes, in the days of their childhood. If the *Spirit be poured out upon our offspring,* they will spring up as *willows by the water courses,* Isa 44:3,4. The Spirit of God moved Samson in the camp of Dan, that is, in the general muster of the trained bands of that tribe, who probably had formed a camp between Zorah and Eshtaol, near the place where he lived, to oppose the incursions of the Philistines; there Samson, when a child, appeared among them, and signalized himself by some very brave actions, excelling them all in manly exercises and trials of strength: and probably he showed himself more than ordinarily zealous against the enemies of his country, and discovered more of a public spirit than could be expected in a child. The Spirit moved him *at times,* not at all times, but as the wind blows, when he listed, to show that what he did was not from himself, for then he could have done it at any time. Strong men think themselves greatly animated by wine (Ps 78:65), but Samson drank no wine, and yet excelled in strength and courage, and every thing that was bold and brave, for he had the Spirit of God moving him; therefore *be not drunk with wine, but be filled with the Spirit,* who will come to those that are sober and temperate.
 

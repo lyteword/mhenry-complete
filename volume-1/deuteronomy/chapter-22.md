@@ -8,23 +8,23 @@ The laws of this chapter provide, I. For the preservation of charity and good ne
 
 ## Kindness and Humanity. (b. c. 1451.)
 
-> <sup>1</sup> Thou shalt not see thy brother's ox or his sheep go astray, and hide thyself from them: thou shalt in any case bring them again unto thy brother.  
-> <sup>2</sup> And if thy brother *be* not nigh unto thee, or if thou know him not, then thou shalt bring it unto thine own house, and it shall be with thee until thy brother seek after it, and thou shalt restore it to him again.  
-> <sup>3</sup> In like manner shalt thou do with his ass; and so shalt thou do with his raiment; and with all lost thing of thy brother's, which he hath lost, and thou hast found, shalt thou do likewise: thou mayest not hide thyself.  
-> <sup>4</sup> Thou shalt not see thy brother's ass or his ox fall down by the way, and hide thyself from them: thou shalt surely help him to lift *them* up again.  
+> **¹** Thou shalt not see thy brother's ox or his sheep go astray, and hide thyself from them: thou shalt in any case bring them again unto thy brother.  
+> **²** And if thy brother *be* not nigh unto thee, or if thou know him not, then thou shalt bring it unto thine own house, and it shall be with thee until thy brother seek after it, and thou shalt restore it to him again.  
+> **³** In like manner shalt thou do with his ass; and so shalt thou do with his raiment; and with all lost thing of thy brother's, which he hath lost, and thou hast found, shalt thou do likewise: thou mayest not hide thyself.  
+> **⁴** Thou shalt not see thy brother's ass or his ox fall down by the way, and hide thyself from them: thou shalt surely help him to lift *them* up again.  
 
 The kindness that was commanded to be shown in reference to an enemy (Ex 23:4,5, etc.) is here required to be much more done for a neighbour, though he were not an Israelite, for the law is consonant to natural equity. 1. That strayed cattle should be brought back, either to the owner or to the pasture out of which they had gone astray, De 22:1,2. This must be done in pity to the very cattle, which, while they wandered, were exposed; and in civility and respect to the owner, nay, and in justice to him, for it was doing as we would be done by, which is one of the fundamental laws of equity. Note, Religion teaches us to be neighbourly, and to be ready to do all good offices, as we have opportunity, to all men. In doing this, (1.) They must not mind trouble, but, if they knew who the owner was, must take it back themselves; for, if they should only send notice to the owner to come and look after it himself, some mischief might befal it ere he could reach it. (2.) They must not mind expense, but, if they knew not who the owner was, must take it home and feed it till the owner was found. If such care must be taken of a neighbour's ox or ass going astray, much more of himself going astray from God and his duty; we should do our utmost to convert him (Jam 5:19), and restore him, considering ourselves, Ga 6:1. 2. That lost goods should be brought to the owner, De 22:3. The Jews say, "He that found the lost goods was to give public notice of them by the common crier three or four times," according to the usage with us; if the owner could not be found, he that found the goods might convert them to his own use; but (say some learned writers in this case) he would do very well to give the value of the goods to the poor. 3. That cattle in distress should be helped, De 22:4. This must be done both in compassion to the brute-creatures (for a *merciful man regardeth the life of a beast,* though it be not his own) and in love and friendship to our neighbour, not knowing how soon we may have occasion for his help. If one member may say to another, "I have at present no need of thee," it cannot say, "I never shall."
 
 ## Various Prohibitions. (b. c. 1451.)
 
-> <sup>5</sup> The woman shall not wear that which pertaineth unto a man, neither shall a man put on a woman's garment: for all that do so *are* abomination unto the LORD thy God.  
-> <sup>6</sup> If a bird's nest chance to be before thee in the way in any tree, or on the ground, *whether they be* young ones, or eggs, and the dam sitting upon the young, or upon the eggs, thou shalt not take the dam with the young:  
-> <sup>7</sup> *But* thou shalt in any wise let the dam go, and take the young to thee; that it may be well with thee, and *that* thou mayest prolong *thy* days.  
-> <sup>8</sup> When thou buildest a new house, then thou shalt make a battlement for thy roof, that thou bring not blood upon thine house, if any man fall from thence.  
-> <sup>9</sup> Thou shalt not sow thy vineyard with divers seeds: lest the fruit of thy seed which thou hast sown, and the fruit of thy vineyard, be defiled.  
-> <sup>10</sup> Thou shalt not plow with an ox and an ass together.  
-> <sup>11</sup> Thou shalt not wear a garment of divers sorts, *as* of woollen and linen together.  
-> <sup>12</sup> Thou shalt make thee fringes upon the four quarters of thy vesture, wherewith thou coverest *thyself.*  
+> **⁵** The woman shall not wear that which pertaineth unto a man, neither shall a man put on a woman's garment: for all that do so *are* abomination unto the LORD thy God.  
+> **⁶** If a bird's nest chance to be before thee in the way in any tree, or on the ground, *whether they be* young ones, or eggs, and the dam sitting upon the young, or upon the eggs, thou shalt not take the dam with the young:  
+> **⁷** *But* thou shalt in any wise let the dam go, and take the young to thee; that it may be well with thee, and *that* thou mayest prolong *thy* days.  
+> **⁸** When thou buildest a new house, then thou shalt make a battlement for thy roof, that thou bring not blood upon thine house, if any man fall from thence.  
+> **⁹** Thou shalt not sow thy vineyard with divers seeds: lest the fruit of thy seed which thou hast sown, and the fruit of thy vineyard, be defiled.  
+> **¹⁰** Thou shalt not plow with an ox and an ass together.  
+> **¹¹** Thou shalt not wear a garment of divers sorts, *as* of woollen and linen together.  
+> **¹²** Thou shalt make thee fringes upon the four quarters of thy vesture, wherewith thou coverest *thyself.*  
 
 Here are several laws in these verses which seem to stoop very low, and to take cognizance of things mean and minute. Men's laws commonly do not so: *De minimis non curat lex—The law takes no cognizance of little things;* but because God's providence extends itself to the smallest affairs, his precepts do so, that even in them we may be *in the fear of the Lord,* as we are under his eye and care. And yet the significancy and tendency of these statutes, which seem little, are such that, notwithstanding their minuteness, being fond among the things of God's law, which he has written to us, they are to be accounted great things.
 
@@ -40,24 +40,24 @@ V\. The law concerning fringes upon their garments, and memorandums of the comma
 
 ## The Punishment of Fornication. (b. c. 1451.)
 
-> <sup>13</sup> If any man take a wife, and go in unto her, and hate her,  
-> <sup>14</sup> And give occasions of speech against her, and bring up an evil name upon her, and say, I took this woman, and when I came to her, I found her not a maid:  
-> <sup>15</sup> Then shall the father of the damsel, and her mother, take and bring forth *the tokens of* the damsel's virginity unto the elders of the city in the gate:  
-> <sup>16</sup> And the damsel's father shall say unto the elders, I gave my daughter unto this man to wife, and he hateth her;  
-> <sup>17</sup> And, lo, he hath given occasions of speech *against her,* saying, I found not thy daughter a maid; and yet these *are the tokens of* my daughter's virginity. And they shall spread the cloth before the elders of the city.  
-> <sup>18</sup> And the elders of that city shall take that man and chastise him;  
-> <sup>19</sup> And they shall amerce him in a hundred *shekels* of silver, and give *them* unto the father of the damsel, because he hath brought up an evil name upon a virgin of Israel: and she shall be his wife; he may not put her away all his days.  
-> <sup>20</sup> But if this thing be true, *and the tokens of* virginity be not found for the damsel:  
-> <sup>21</sup> Then they shall bring out the damsel to the door of her father's house, and the men of her city shall stone her with stones that she die: because she hath wrought folly in Israel, to play the whore in her father's house: so shalt thou put evil away from among you.  
-> <sup>22</sup> If a man be found lying with a woman married to a husband, then they shall both of them die, *both* the man that lay with the woman, and the woman: so shalt thou put away evil from Israel.  
-> <sup>23</sup> If a damsel *that is* a virgin be betrothed unto a husband, and a man find her in the city, and lie with her;  
-> <sup>24</sup> Then ye shall bring them both out unto the gate of that city, and ye shall stone them with stones that they die; the damsel, because she cried not, *being* in the city; and the man, because he hath humbled his neighbour's wife: so thou shalt put away evil from among you.  
-> <sup>25</sup> But if a man find a betrothed damsel in the field, and the man force her, and lie with her: then the man only that lay with her shall die:  
-> <sup>26</sup> But unto the damsel thou shalt do nothing; *there is* in the damsel no sin *worthy* of death: for as when a man riseth against his neighbour, and slayeth him, even so *is* this matter:  
-> <sup>27</sup> For he found her in the field, *and* the betrothed damsel cried, and *there was* none to save her.  
-> <sup>28</sup> If a man find a damsel *that is* a virgin, which is not betrothed, and lay hold on her, and lie with her, and they be found;  
-> <sup>29</sup> Then the man that lay with her shall give unto the damsel's father fifty *shekels* of silver, and she shall be his wife; because he hath humbled her, he may not put her away all his days.  
-> <sup>30</sup> A man shall not take his father's wife, nor discover his father's skirt.  
+> **¹³** If any man take a wife, and go in unto her, and hate her,  
+> **¹⁴** And give occasions of speech against her, and bring up an evil name upon her, and say, I took this woman, and when I came to her, I found her not a maid:  
+> **¹⁵** Then shall the father of the damsel, and her mother, take and bring forth *the tokens of* the damsel's virginity unto the elders of the city in the gate:  
+> **¹⁶** And the damsel's father shall say unto the elders, I gave my daughter unto this man to wife, and he hateth her;  
+> **¹⁷** And, lo, he hath given occasions of speech *against her,* saying, I found not thy daughter a maid; and yet these *are the tokens of* my daughter's virginity. And they shall spread the cloth before the elders of the city.  
+> **¹⁸** And the elders of that city shall take that man and chastise him;  
+> **¹⁹** And they shall amerce him in a hundred *shekels* of silver, and give *them* unto the father of the damsel, because he hath brought up an evil name upon a virgin of Israel: and she shall be his wife; he may not put her away all his days.  
+> **²⁰** But if this thing be true, *and the tokens of* virginity be not found for the damsel:  
+> **²¹** Then they shall bring out the damsel to the door of her father's house, and the men of her city shall stone her with stones that she die: because she hath wrought folly in Israel, to play the whore in her father's house: so shalt thou put evil away from among you.  
+> **²²** If a man be found lying with a woman married to a husband, then they shall both of them die, *both* the man that lay with the woman, and the woman: so shalt thou put away evil from Israel.  
+> **²³** If a damsel *that is* a virgin be betrothed unto a husband, and a man find her in the city, and lie with her;  
+> **²⁴** Then ye shall bring them both out unto the gate of that city, and ye shall stone them with stones that they die; the damsel, because she cried not, *being* in the city; and the man, because he hath humbled his neighbour's wife: so thou shalt put away evil from among you.  
+> **²⁵** But if a man find a betrothed damsel in the field, and the man force her, and lie with her: then the man only that lay with her shall die:  
+> **²⁶** But unto the damsel thou shalt do nothing; *there is* in the damsel no sin *worthy* of death: for as when a man riseth against his neighbour, and slayeth him, even so *is* this matter:  
+> **²⁷** For he found her in the field, *and* the betrothed damsel cried, and *there was* none to save her.  
+> **²⁸** If a man find a damsel *that is* a virgin, which is not betrothed, and lay hold on her, and lie with her, and they be found;  
+> **²⁹** Then the man that lay with her shall give unto the damsel's father fifty *shekels* of silver, and she shall be his wife; because he hath humbled her, he may not put her away all his days.  
+> **³⁰** A man shall not take his father's wife, nor discover his father's skirt.  
 
 These laws relate to the seventh commandment, laying a restraint by laying a penalty upon those fleshly lusts which war against the soul.
 

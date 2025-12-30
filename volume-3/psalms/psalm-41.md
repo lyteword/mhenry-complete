@@ -10,10 +10,10 @@ God's kindness and truth have often been the support and comfort of the saints w
 
 To the chief musician. A psalm of David.
 
-> <sup>1</sup> Blessed *is* he that considereth the poor: the LORD will deliver him in time of trouble.  
-> <sup>2</sup> The LORD will preserve him, and keep him alive; *and* he shall be blessed upon the earth: and thou wilt not deliver him unto the will of his enemies.  
-> <sup>3</sup> The LORD will strengthen him upon the bed of languishing: thou wilt make all his bed in his sickness.  
-> <sup>4</sup> I said, LORD, be merciful unto me: heal my soul; for I have sinned against thee.  
+> **¹** Blessed *is* he that considereth the poor: the LORD will deliver him in time of trouble.  
+> **²** The LORD will preserve him, and keep him alive; *and* he shall be blessed upon the earth: and thou wilt not deliver him unto the will of his enemies.  
+> **³** The LORD will strengthen him upon the bed of languishing: thou wilt make all his bed in his sickness.  
+> **⁴** I said, LORD, be merciful unto me: heal my soul; for I have sinned against thee.  
 
 In these verses we have,
 
@@ -27,15 +27,15 @@ II\. David's prayer, directed and encouraged by these promises (Ps 41:4): *I sai
 
 ## David Complains of His Enemies; David's Comfort in God.
 
-> <sup>5</sup> Mine enemies speak evil of me, When shall he die, and his name perish?  
-> <sup>6</sup> And if he come to see *me,* he speaketh vanity: his heart gathereth iniquity to itself; *when* he goeth abroad, he telleth *it.*  
-> <sup>7</sup> All that hate me whisper together against me: against me do they devise my hurt.  
-> <sup>8</sup> An evil disease, *say they,* cleaveth fast unto him: and *now* that he lieth he shall rise up no more.  
-> <sup>9</sup> Yea, mine own familiar friend, in whom I trusted, which did eat of my bread, hath lifted up *his* heel against me.  
-> <sup>10</sup> But thou, O LORD, be merciful unto me, and raise me up, that I may requite them.  
-> <sup>11</sup> By this I know that thou favourest me, because mine enemy doth not triumph over me.  
-> <sup>12</sup> And as for me, thou upholdest me in mine integrity, and settest me before thy face for ever.  
-> <sup>13</sup> Blessed *be* the LORD God of Israel from everlasting, and to everlasting. Amen, and Amen.  
+> **⁵** Mine enemies speak evil of me, When shall he die, and his name perish?  
+> **⁶** And if he come to see *me,* he speaketh vanity: his heart gathereth iniquity to itself; *when* he goeth abroad, he telleth *it.*  
+> **⁷** All that hate me whisper together against me: against me do they devise my hurt.  
+> **⁸** An evil disease, *say they,* cleaveth fast unto him: and *now* that he lieth he shall rise up no more.  
+> **⁹** Yea, mine own familiar friend, in whom I trusted, which did eat of my bread, hath lifted up *his* heel against me.  
+> **¹⁰** But thou, O LORD, be merciful unto me, and raise me up, that I may requite them.  
+> **¹¹** By this I know that thou favourest me, because mine enemy doth not triumph over me.  
+> **¹²** And as for me, thou upholdest me in mine integrity, and settest me before thy face for ever.  
+> **¹³** Blessed *be* the LORD God of Israel from everlasting, and to everlasting. Amen, and Amen.  
 
 David often complains of the insolent conduct of his enemies towards him when he was sick, which, as it was very barbarous in them, so it could not but be very grievous to him. They had not indeed arrived at that modern pitch of wickedness of poisoning his meat and drink, or giving him something to make him sick; but, when he was sick, they insulted over him (Ps 41:5): *My enemies speak evil of me,* designing thereby to grieve his spirit, to ruin his reputation, and so to sink his interest. Let us enquire,
 

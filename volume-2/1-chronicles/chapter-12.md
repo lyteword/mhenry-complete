@@ -8,28 +8,28 @@ What the mighty men did towards making David king we read in the foregoing chapt
 
 ## David's Army. (b. c. 1055.)
 
-> <sup>1</sup> Now these *are* they that came to David to Ziklag, while he yet kept himself close because of Saul the son of Kish: and they *were* among the mighty men, helpers of the war.  
-> <sup>2</sup> *They were* armed with bows, and could use both the right hand and the left in *hurling* stones and *shooting* arrows out of a bow, *even* of Saul's brethren of Benjamin.  
-> <sup>3</sup> The chief *was* Ahiezer, then Joash, the sons of Shemaah the Gibeathite; and Jeziel, and Pelet, the sons of Azmaveth; and Berachah, and Jehu the Antothite,  
-> <sup>4</sup> And Ismaiah the Gibeonite, a mighty man among the thirty, and over the thirty; and Jeremiah, and Jahaziel, and Johanan, and Josabad the Gederathite,  
-> <sup>5</sup> Eluzai, and Jerimoth, and Bealiah, and Shemariah, and Shephatiah the Haruphite,  
-> <sup>6</sup> Elkanah, and Jesiah, and Azareel, and Joezer, and Jashobeam, the Korhites,  
-> <sup>7</sup> And Joelah, and Zebadiah, the sons of Jeroham of Gedor.  
-> <sup>8</sup> And of the Gadites there separated themselves unto David into the hold to the wilderness men of might, *and* men of war *fit* for the battle, that could handle shield and buckler, whose faces *were like* the faces of lions, and *were* as swift as the roes upon the mountains;  
-> <sup>9</sup> Ezer the first, Obadiah the second, Eliab the third,  
-> <sup>10</sup> Mishmannah the fourth, Jeremiah the fifth,  
-> <sup>11</sup> Attai the sixth, Eliel the seventh,  
-> <sup>12</sup> Johanan the eighth, Elzabad the ninth,  
-> <sup>13</sup> Jeremiah the tenth, Machbanai the eleventh.  
-> <sup>14</sup> These *were* of the sons of Gad, captains of the host: one of the least *was* over a hundred, and the greatest over a thousand.  
-> <sup>15</sup> These *are* they that went over Jordan in the first month, when it had overflown all his banks; and they put to flight all *them* of the valleys, *both* toward the east, and toward the west.  
-> <sup>16</sup> And there came of the children of Benjamin and Judah to the hold unto David.  
-> <sup>17</sup> And David went out to meet them, and answered and said unto them, If ye be come peaceably unto me to help me, mine heart shall be knit unto you: but if *ye be come* to betray me to mine enemies, seeing *there is* no wrong in mine hands, the God of our fathers look *thereon,* and rebuke *it.*  
-> <sup>18</sup> Then the spirit came upon Amasai, *who was* chief of the captains, *and he said,* Thine *are we,* David, and on thy side, thou son of Jesse: peace, peace *be* unto thee, and peace *be* to thine helpers; for thy God helpeth thee. Then David received them, and made them captains of the band.  
-> <sup>19</sup> And there fell *some* of Manasseh to David, when he came with the Philistines against Saul to battle: but they helped them not: for the lords of the Philistines upon advisement sent him away, saying, He will fall to his master Saul to *the jeopardy of* our heads.  
-> <sup>20</sup> As he went to Ziklag, there fell to him of Manasseh, Adnah, and Jozabad, and Jediael, and Michael, and Jozabad, and Elihu, and Zilthai, captains of the thousands that *were* of Manasseh.  
-> <sup>21</sup> And they helped David against the band *of the rovers:* for they *were* all mighty men of valour, and were captains in the host.  
-> <sup>22</sup> For at *that* time day by day there came to David to help him, until *it was* a great host, like the host of God.  
+> **¹** Now these *are* they that came to David to Ziklag, while he yet kept himself close because of Saul the son of Kish: and they *were* among the mighty men, helpers of the war.  
+> **²** *They were* armed with bows, and could use both the right hand and the left in *hurling* stones and *shooting* arrows out of a bow, *even* of Saul's brethren of Benjamin.  
+> **³** The chief *was* Ahiezer, then Joash, the sons of Shemaah the Gibeathite; and Jeziel, and Pelet, the sons of Azmaveth; and Berachah, and Jehu the Antothite,  
+> **⁴** And Ismaiah the Gibeonite, a mighty man among the thirty, and over the thirty; and Jeremiah, and Jahaziel, and Johanan, and Josabad the Gederathite,  
+> **⁵** Eluzai, and Jerimoth, and Bealiah, and Shemariah, and Shephatiah the Haruphite,  
+> **⁶** Elkanah, and Jesiah, and Azareel, and Joezer, and Jashobeam, the Korhites,  
+> **⁷** And Joelah, and Zebadiah, the sons of Jeroham of Gedor.  
+> **⁸** And of the Gadites there separated themselves unto David into the hold to the wilderness men of might, *and* men of war *fit* for the battle, that could handle shield and buckler, whose faces *were like* the faces of lions, and *were* as swift as the roes upon the mountains;  
+> **⁹** Ezer the first, Obadiah the second, Eliab the third,  
+> **¹⁰** Mishmannah the fourth, Jeremiah the fifth,  
+> **¹¹** Attai the sixth, Eliel the seventh,  
+> **¹²** Johanan the eighth, Elzabad the ninth,  
+> **¹³** Jeremiah the tenth, Machbanai the eleventh.  
+> **¹⁴** These *were* of the sons of Gad, captains of the host: one of the least *was* over a hundred, and the greatest over a thousand.  
+> **¹⁵** These *are* they that went over Jordan in the first month, when it had overflown all his banks; and they put to flight all *them* of the valleys, *both* toward the east, and toward the west.  
+> **¹⁶** And there came of the children of Benjamin and Judah to the hold unto David.  
+> **¹⁷** And David went out to meet them, and answered and said unto them, If ye be come peaceably unto me to help me, mine heart shall be knit unto you: but if *ye be come* to betray me to mine enemies, seeing *there is* no wrong in mine hands, the God of our fathers look *thereon,* and rebuke *it.*  
+> **¹⁸** Then the spirit came upon Amasai, *who was* chief of the captains, *and he said,* Thine *are we,* David, and on thy side, thou son of Jesse: peace, peace *be* unto thee, and peace *be* to thine helpers; for thy God helpeth thee. Then David received them, and made them captains of the band.  
+> **¹⁹** And there fell *some* of Manasseh to David, when he came with the Philistines against Saul to battle: but they helped them not: for the lords of the Philistines upon advisement sent him away, saying, He will fall to his master Saul to *the jeopardy of* our heads.  
+> **²⁰** As he went to Ziklag, there fell to him of Manasseh, Adnah, and Jozabad, and Jediael, and Michael, and Jozabad, and Elihu, and Zilthai, captains of the thousands that *were* of Manasseh.  
+> **²¹** And they helped David against the band *of the rovers:* for they *were* all mighty men of valour, and were captains in the host.  
+> **²²** For at *that* time day by day there came to David to help him, until *it was* a great host, like the host of God.  
 
 We have here an account of those that appeared and acted as David's friends, upon the death of Saul, to bring about the revolution. All the forces he had, while he was persecuted, was but 600 men, who served for his guards; but, when the time had come that he must begin to act offensively, Providence brought in more to his assistance. Even while he *kept himself close, because of Saul* (1Ch 12:1), while he did not appear, to invite or encourage his friends and well-wishers to come in to him (not foreseeing that the death of Saul was so near), God was inclining and preparing them to come over to him with seasonable succours. Those that trust God to do his work for them in his own way and time shall find his providence outdoing all their forecast and contrivance. The war was God's, and he found out helpers of the war, whose forwardness to act for the man God designed for the government is here recorded to their honour.
 
@@ -53,24 +53,24 @@ IV\. Some of Manasseh likewise joined with him, 1Ch 12:19. Providence gave them 
 
 ## David's Army. (b. c. 1048.)
 
-> <sup>23</sup> And these *are* the numbers of the bands *that were* ready armed to the war, *and* came to David to Hebron, to turn the kingdom of Saul to him, according to the word of the LORD.  
-> <sup>24</sup> The children of Judah that bare shield and spear *were* six thousand and eight hundred, ready armed to the war.  
-> <sup>25</sup> Of the children of Simeon, mighty men of valour for the war, seven thousand and one hundred.  
-> <sup>26</sup> Of the children of Levi four thousand and six hundred.  
-> <sup>27</sup> And Jehoiada *was* the leader of the Aaronites, and with him *were* three thousand and seven hundred;  
-> <sup>28</sup> And Zadok, a young man mighty of valour, and of his father's house twenty and two captains.  
-> <sup>29</sup> And of the children of Benjamin, the kindred of Saul, three thousand: for hitherto the greatest part of them had kept the ward of the house of Saul.  
-> <sup>30</sup> And of the children of Ephraim twenty thousand and eight hundred, mighty men of valour, famous throughout the house of their fathers.  
-> <sup>31</sup> And of the half tribe of Manasseh eighteen thousand, which were expressed by name, to come and make David king.  
-> <sup>32</sup> And of the children of Issachar, *which were men* that had understanding of the times, to know what Israel ought to do; the heads of them *were* two hundred; and all their brethren *were* at their commandment.  
-> <sup>33</sup> Of Zebulun, such as went forth to battle, expert in war, with all instruments of war, fifty thousand, which could keep rank: *they were* not of double heart.  
-> <sup>34</sup> And of Naphtali a thousand captains, and with them with shield and spear thirty and seven thousand.  
-> <sup>35</sup> And of the Danites expert in war twenty and eight thousand and six hundred.  
-> <sup>36</sup> And of Asher, such as went forth to battle, expert in war, forty thousand.  
-> <sup>37</sup> And on the other side of Jordan, of the Reubenites, and the Gadites, and of the half tribe of Manasseh, with all manner of instruments of war for the battle, a hundred and twenty thousand.  
-> <sup>38</sup> All these men of war, that could keep rank, came with a perfect heart to Hebron, to make David king over all Israel: and all the rest also of Israel *were* of one heart to make David king.  
-> <sup>39</sup> And there they were with David three days, eating and drinking: for their brethren had prepared for them.  
-> <sup>40</sup> Moreover they that were nigh them, *even* unto Issachar and Zebulun and Naphtali, brought bread on asses, and on camels, and on mules, and on oxen, *and* meat, meal, cakes of figs, and bunches of raisins, and wine, and oil, and oxen, and sheep abundantly: for *there was* joy in Israel.  
+> **²³** And these *are* the numbers of the bands *that were* ready armed to the war, *and* came to David to Hebron, to turn the kingdom of Saul to him, according to the word of the LORD.  
+> **²⁴** The children of Judah that bare shield and spear *were* six thousand and eight hundred, ready armed to the war.  
+> **²⁵** Of the children of Simeon, mighty men of valour for the war, seven thousand and one hundred.  
+> **²⁶** Of the children of Levi four thousand and six hundred.  
+> **²⁷** And Jehoiada *was* the leader of the Aaronites, and with him *were* three thousand and seven hundred;  
+> **²⁸** And Zadok, a young man mighty of valour, and of his father's house twenty and two captains.  
+> **²⁹** And of the children of Benjamin, the kindred of Saul, three thousand: for hitherto the greatest part of them had kept the ward of the house of Saul.  
+> **³⁰** And of the children of Ephraim twenty thousand and eight hundred, mighty men of valour, famous throughout the house of their fathers.  
+> **³¹** And of the half tribe of Manasseh eighteen thousand, which were expressed by name, to come and make David king.  
+> **³²** And of the children of Issachar, *which were men* that had understanding of the times, to know what Israel ought to do; the heads of them *were* two hundred; and all their brethren *were* at their commandment.  
+> **³³** Of Zebulun, such as went forth to battle, expert in war, with all instruments of war, fifty thousand, which could keep rank: *they were* not of double heart.  
+> **³⁴** And of Naphtali a thousand captains, and with them with shield and spear thirty and seven thousand.  
+> **³⁵** And of the Danites expert in war twenty and eight thousand and six hundred.  
+> **³⁶** And of Asher, such as went forth to battle, expert in war, forty thousand.  
+> **³⁷** And on the other side of Jordan, of the Reubenites, and the Gadites, and of the half tribe of Manasseh, with all manner of instruments of war for the battle, a hundred and twenty thousand.  
+> **³⁸** All these men of war, that could keep rank, came with a perfect heart to Hebron, to make David king over all Israel: and all the rest also of Israel *were* of one heart to make David king.  
+> **³⁹** And there they were with David three days, eating and drinking: for their brethren had prepared for them.  
+> **⁴⁰** Moreover they that were nigh them, *even* unto Issachar and Zebulun and Naphtali, brought bread on asses, and on camels, and on mules, and on oxen, *and* meat, meal, cakes of figs, and bunches of raisins, and wine, and oil, and oxen, and sheep abundantly: for *there was* joy in Israel.  
 
 We have here an account of those who were active in perfecting the settlement of David upon the throne, after the death of Ishbosheth. We read (1Ch 11:1, and before 2Sa 5:1) that *all the tribes of Israel came,* either themselves or by their representatives, to Hebron, to make David king; now here we have an account of the quota which every tribe brought in *ready armed to the war,* in case there should be any opposition, 1Ch 12:23. We may observe here,
 

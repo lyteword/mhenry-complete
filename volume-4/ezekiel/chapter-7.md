@@ -8,21 +8,21 @@ In this chapter the approaching ruin of the land of Israel is most particularly 
 
 ## The Desolation of Israel. (b. c. 594.)
 
-> <sup>1</sup> Moreover the word of the LORD came unto me, saying,  
-> <sup>2</sup> Also, thou son of man, thus saith the Lord GOD unto the land of Israel; An end, the end is come upon the four corners of the land.  
-> <sup>3</sup> Now *is* the end *come* upon thee, and I will send mine anger upon thee, and will judge thee according to thy ways, and will recompense upon thee all thine abominations.  
-> <sup>4</sup> And mine eye shall not spare thee, neither will I have pity: but I will recompense thy ways upon thee, and thine abominations shall be in the midst of thee: and ye shall know that I *am* the LORD.  
-> <sup>5</sup> Thus saith the Lord GOD; An evil, an only evil, behold, is come.  
-> <sup>6</sup> An end is come, the end is come: it watcheth for thee; behold, it is come.  
-> <sup>7</sup> The morning is come unto thee, O thou that dwellest in the land: the time is come, the day of trouble *is* near, and not the sounding again of the mountains.  
-> <sup>8</sup> Now will I shortly pour out my fury upon thee, and accomplish mine anger upon thee: and I will judge thee according to thy ways, and will recompense thee for all thine abominations.  
-> <sup>9</sup> And mine eye shall not spare, neither will I have pity: I will recompense thee according to thy ways and thine abominations *that* are in the midst of thee; and ye shall know that I *am* the LORD that smiteth.  
-> <sup>10</sup> Behold the day, behold, it is come: the morning is gone forth; the rod hath blossomed, pride hath budded.  
-> <sup>11</sup> Violence is risen up into a rod of wickedness: none of them *shall remain,* nor of their multitude, nor of any of theirs: neither *shall there be* wailing for them.  
-> <sup>12</sup> The time is come, the day draweth near: let not the buyer rejoice, nor the seller mourn: for wrath *is* upon all the multitude thereof.  
-> <sup>13</sup> For the seller shall not return to that which is sold, although they were yet alive: for the vision *is* touching the whole multitude thereof, *which* shall not return; neither shall any strengthen himself in the iniquity of his life.  
-> <sup>14</sup> They have blown the trumpet, even to make all ready; but none goeth to the battle: for my wrath *is* upon all the multitude thereof.  
-> <sup>15</sup> The sword *is* without, and the pestilence and the famine within: he that *is* in the field shall die with the sword; and he that *is* in the city, famine and pestilence shall devour him.  
+> **¹** Moreover the word of the LORD came unto me, saying,  
+> **²** Also, thou son of man, thus saith the Lord GOD unto the land of Israel; An end, the end is come upon the four corners of the land.  
+> **³** Now *is* the end *come* upon thee, and I will send mine anger upon thee, and will judge thee according to thy ways, and will recompense upon thee all thine abominations.  
+> **⁴** And mine eye shall not spare thee, neither will I have pity: but I will recompense thy ways upon thee, and thine abominations shall be in the midst of thee: and ye shall know that I *am* the LORD.  
+> **⁵** Thus saith the Lord GOD; An evil, an only evil, behold, is come.  
+> **⁶** An end is come, the end is come: it watcheth for thee; behold, it is come.  
+> **⁷** The morning is come unto thee, O thou that dwellest in the land: the time is come, the day of trouble *is* near, and not the sounding again of the mountains.  
+> **⁸** Now will I shortly pour out my fury upon thee, and accomplish mine anger upon thee: and I will judge thee according to thy ways, and will recompense thee for all thine abominations.  
+> **⁹** And mine eye shall not spare, neither will I have pity: I will recompense thee according to thy ways and thine abominations *that* are in the midst of thee; and ye shall know that I *am* the LORD that smiteth.  
+> **¹⁰** Behold the day, behold, it is come: the morning is gone forth; the rod hath blossomed, pride hath budded.  
+> **¹¹** Violence is risen up into a rod of wickedness: none of them *shall remain,* nor of their multitude, nor of any of theirs: neither *shall there be* wailing for them.  
+> **¹²** The time is come, the day draweth near: let not the buyer rejoice, nor the seller mourn: for wrath *is* upon all the multitude thereof.  
+> **¹³** For the seller shall not return to that which is sold, although they were yet alive: for the vision *is* touching the whole multitude thereof, *which* shall not return; neither shall any strengthen himself in the iniquity of his life.  
+> **¹⁴** They have blown the trumpet, even to make all ready; but none goeth to the battle: for my wrath *is* upon all the multitude thereof.  
+> **¹⁵** The sword *is* without, and the pestilence and the famine within: he that *is* in the field shall die with the sword; and he that *is* in the city, famine and pestilence shall devour him.  
 
 We have here fair warning given of the destruction of the land of Israel, which was now hastening on apace. God, by the prophet, not only sends notice of it, but will have it inculcated in the same expressions, to show that the thing is certain, that it is near, that the prophet is himself affected with it and desires they should be so too, but finds them deaf, and stupid, and unaffected. When the town is on fire men do no seek for fine words and quaint expressions in which to give an account of it, but cry about the streets, with a loud and lamentable voice, "Fire! fire!" So the prophet here proclaims, *An end! an end! it has come, it has come; behold, it has come. He that hath ears to hear let him hear.*
 
@@ -40,13 +40,13 @@ VI\. There is no escape from these judgments nor fence against them, for they sh
 
 ## The Desolation of Israel. (b. c. 594.)
 
-> <sup>16</sup> But they that escape of them shall escape, and shall be on the mountains like doves of the valleys, all of them mourning, every one for his iniquity.  
-> <sup>17</sup> All hands shall be feeble, and all knees shall be weak *as* water.  
-> <sup>18</sup> They shall also gird *themselves* with sackcloth, and horror shall cover them; and shame *shall be* upon all faces, and baldness upon all their heads.  
-> <sup>19</sup> They shall cast their silver in the streets, and their gold shall be removed: their silver and their gold shall not be able to deliver them in the day of the wrath of the LORD: they shall not satisfy their souls, neither fill their bowels: because it is the stumbling-block of their iniquity.  
-> <sup>20</sup> As for the beauty of his ornament, he set it in majesty: but they made the images of their abominations *and* of their detestable things therein: therefore have I set it far from them.  
-> <sup>21</sup> And I will give it into the hands of the strangers for a prey, and to the wicked of the earth for a spoil; and they shall pollute it.  
-> <sup>22</sup> My face will I turn also from them, and they shall pollute my secret *place:* for the robbers shall enter into it, and defile it.  
+> **¹⁶** But they that escape of them shall escape, and shall be on the mountains like doves of the valleys, all of them mourning, every one for his iniquity.  
+> **¹⁷** All hands shall be feeble, and all knees shall be weak *as* water.  
+> **¹⁸** They shall also gird *themselves* with sackcloth, and horror shall cover them; and shame *shall be* upon all faces, and baldness upon all their heads.  
+> **¹⁹** They shall cast their silver in the streets, and their gold shall be removed: their silver and their gold shall not be able to deliver them in the day of the wrath of the LORD: they shall not satisfy their souls, neither fill their bowels: because it is the stumbling-block of their iniquity.  
+> **²⁰** As for the beauty of his ornament, he set it in majesty: but they made the images of their abominations *and* of their detestable things therein: therefore have I set it far from them.  
+> **²¹** And I will give it into the hands of the strangers for a prey, and to the wicked of the earth for a spoil; and they shall pollute it.  
+> **²²** My face will I turn also from them, and they shall pollute my secret *place:* for the robbers shall enter into it, and defile it.  
 
 We have attended the fate of those that are cut off, and are now to attend the flight of those that have an opportunity of escaping the danger; some of them *shall escape* (Eze 7:16), but what the better? As good die once as, in a miserable life, die a thousand deaths, and escape only like Cain to be *fugitives and vagabonds,* and afraid of being slain by every one they meet; so shall these be.
 
@@ -58,11 +58,11 @@ III\. God's temple shall stand them in no stead, Eze 7:20-22. This they had prid
 
 ## The Desolation of Israel. (b. c. 594.)
 
-> <sup>23</sup> Make a chain: for the land is full of bloody crimes, and the city is full of violence.  
-> <sup>24</sup> Wherefore I will bring the worst of the heathen, and they shall possess their houses: I will also make the pomp of the strong to cease; and their holy places shall be defiled.  
-> <sup>25</sup> Destruction cometh; and they shall seek peace, and *there shall be* none.  
-> <sup>26</sup> Mischief shall come upon mischief, and rumour shall be upon rumour; then shall they seek a vision of the prophet; but the law shall perish from the priest, and counsel from the ancients.  
-> <sup>27</sup> The king shall mourn, and the prince shall be clothed with desolation, and the hands of the people of the land shall be troubled: I will do unto them after their way, and according to their deserts will I judge them; and they shall know that I *am* the LORD.  
+> **²³** Make a chain: for the land is full of bloody crimes, and the city is full of violence.  
+> **²⁴** Wherefore I will bring the worst of the heathen, and they shall possess their houses: I will also make the pomp of the strong to cease; and their holy places shall be defiled.  
+> **²⁵** Destruction cometh; and they shall seek peace, and *there shall be* none.  
+> **²⁶** Mischief shall come upon mischief, and rumour shall be upon rumour; then shall they seek a vision of the prophet; but the law shall perish from the priest, and counsel from the ancients.  
+> **²⁷** The king shall mourn, and the prince shall be clothed with desolation, and the hands of the people of the land shall be troubled: I will do unto them after their way, and according to their deserts will I judge them; and they shall know that I *am* the LORD.  
 
 Here is, I. The prisoner arraigned: *Make a chain,* in which to drag the criminal to the bar, and set him before the tribunal of divine justice; let him stand in fetters (as a notorious malefactor), stand pinioned to receive his doom. Note, Those that break the bands of God's law *asunder,* and *cast away those cords from them,* will find themselves bound and held by the chains of his judgments, which they cannot break nor cast from them. The chain signified the siege of Jerusalem, or the slavery of those that were carried into captivity, or that they were all bound over to the righteous judgment of God, *reserved in chains.*
 

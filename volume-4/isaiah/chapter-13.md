@@ -8,11 +8,11 @@ Hitherto the prophecies of this book related only to Judah and Israel, and Jerus
 
 ## The Doom of Babylon. (b. c. 739.)
 
-> <sup>1</sup> The burden of Babylon, which Isaiah the son of Amoz did see.  
-> <sup>2</sup> Lift ye up a banner upon the high mountain, exalt the voice unto them, shake the hand, that they may go into the gates of the nobles.  
-> <sup>3</sup> I have commanded my sanctified ones, I have also called my mighty ones for mine anger, *even* them that rejoice in my highness.  
-> <sup>4</sup> The noise of a multitude in the mountains, like as of a great people; a tumultuous noise of the kingdoms of nations gathered together: the LORD of hosts mustereth the host of the battle.  
-> <sup>5</sup> They come from a far country, from the end of heaven, *even* the LORD, and the weapons of his indignation, to destroy the whole land.  
+> **¹** The burden of Babylon, which Isaiah the son of Amoz did see.  
+> **²** Lift ye up a banner upon the high mountain, exalt the voice unto them, shake the hand, that they may go into the gates of the nobles.  
+> **³** I have commanded my sanctified ones, I have also called my mighty ones for mine anger, *even* them that rejoice in my highness.  
+> **⁴** The noise of a multitude in the mountains, like as of a great people; a tumultuous noise of the kingdoms of nations gathered together: the LORD of hosts mustereth the host of the battle.  
+> **⁵** They come from a far country, from the end of heaven, *even* the LORD, and the weapons of his indignation, to destroy the whole land.  
 
 The general title of this book was, *The vision of Isaiah the son of Amoz,* Isa 1:1. Here we have that which Isaiah saw, which was represented to his mind as clearly and fully as if he had seen it with his bodily eyes; but the particular inscription of this sermon is *the burden of Babylon.* 1. It is a burden, a lesson they were to learn (so some understand it), but they would be loth to learn it, and it would be a burden to their memories, or a load which should lie heavily upon them and under which they should sink. Those that will not make the word of God their rest (Isa 28:12, Jer 6:16) shall find it made a burden to them. 2. It is the burden of Babylon or Babel, which at this time was a dependent upon the Assyrian monarchy (the metropolis of which was Nineveh), but soon after revolted from it and became a monarchy of itself, and a very potent one, in Nebuchadnezzar. This prophet afterwards foretold the captivity of the Jews in Babylon, Isa 39:6. Here he foretels the reprisals God would make upon Babylon for the wrongs done to his people. In these verses a summons is given to those powerful and warlike nations whom God would make us of as the instruments of his wrath for the destruction of Babylon: he afterwards names them (Isa 13:17) the *Medes,* who, in conjunction with the Persians, under the command of Darius and Cyrus, were the ruin of the Babylonian monarchy.
 
@@ -24,19 +24,19 @@ III\. The summons given them is effectual, their obedience ready, and they make 
 
 ## The Doom of Babylon. (b. c. 739.)
 
-> <sup>6</sup> Howl ye; for the day of the LORD *is* at hand; it shall come as a destruction from the Almighty.  
-> <sup>7</sup> Therefore shall all hands be faint, and every man's heart shall melt:  
-> <sup>8</sup> And they shall be afraid: pangs and sorrows shall take hold of them; they shall be in pain as a woman that travaileth: they shall be amazed one at another; their faces *shall be as* flames.  
-> <sup>9</sup> Behold, the day of the LORD cometh, cruel both with wrath and fierce anger, to lay the land desolate: and he shall destroy the sinners thereof out of it.  
-> <sup>10</sup> For the stars of heaven and the constellations thereof shall not give their light: the sun shall be darkened in his going forth, and the moon shall not cause her light to shine.  
-> <sup>11</sup> And I will punish the world for *their* evil, and the wicked for their iniquity; and I will cause the arrogancy of the proud to cease, and will lay low the haughtiness of the terrible.  
-> <sup>12</sup> I will make a man more precious than fine gold; even a man than the golden wedge of Ophir.  
-> <sup>13</sup> Therefore I will shake the heavens, and the earth shall remove out of her place, in the wrath of the LORD of hosts, and in the day of his fierce anger.  
-> <sup>14</sup> And it shall be as the chased roe, and as a sheep that no man taketh up: they shall every man turn to his own people, and flee every one into his own land.  
-> <sup>15</sup> Every one that is found shall be thrust through; and every one that is joined *unto them* shall fall by the sword.  
-> <sup>16</sup> Their children also shall be dashed to pieces before their eyes; their houses shall be spoiled, and their wives ravished.  
-> <sup>17</sup> Behold, I will stir up the Medes against them, which shall not regard silver; and *as for* gold, they shall not delight in it.  
-> <sup>18</sup> *Their* bows also shall dash the young men to pieces; and they shall have no pity on the fruit of the womb; their eye shall not spare children.  
+> **⁶** Howl ye; for the day of the LORD *is* at hand; it shall come as a destruction from the Almighty.  
+> **⁷** Therefore shall all hands be faint, and every man's heart shall melt:  
+> **⁸** And they shall be afraid: pangs and sorrows shall take hold of them; they shall be in pain as a woman that travaileth: they shall be amazed one at another; their faces *shall be as* flames.  
+> **⁹** Behold, the day of the LORD cometh, cruel both with wrath and fierce anger, to lay the land desolate: and he shall destroy the sinners thereof out of it.  
+> **¹⁰** For the stars of heaven and the constellations thereof shall not give their light: the sun shall be darkened in his going forth, and the moon shall not cause her light to shine.  
+> **¹¹** And I will punish the world for *their* evil, and the wicked for their iniquity; and I will cause the arrogancy of the proud to cease, and will lay low the haughtiness of the terrible.  
+> **¹²** I will make a man more precious than fine gold; even a man than the golden wedge of Ophir.  
+> **¹³** Therefore I will shake the heavens, and the earth shall remove out of her place, in the wrath of the LORD of hosts, and in the day of his fierce anger.  
+> **¹⁴** And it shall be as the chased roe, and as a sheep that no man taketh up: they shall every man turn to his own people, and flee every one into his own land.  
+> **¹⁵** Every one that is found shall be thrust through; and every one that is joined *unto them* shall fall by the sword.  
+> **¹⁶** Their children also shall be dashed to pieces before their eyes; their houses shall be spoiled, and their wives ravished.  
+> **¹⁷** Behold, I will stir up the Medes against them, which shall not regard silver; and *as for* gold, they shall not delight in it.  
+> **¹⁸** *Their* bows also shall dash the young men to pieces; and they shall have no pity on the fruit of the womb; their eye shall not spare children.  
 
 We have here a very elegant and lively description of the terrible confusion and desolation which should be made in Babylon by the descent which the Medes and Persians should make upon it. Those that were now secure and easy were bidden to *howl* and make sad lamentation; for,
 
@@ -58,10 +58,10 @@ VIII\. The enemy that God will send against them shall be inexorable, probably b
 
 ## The Doom of Babylon. (b. c. 739.)
 
-> <sup>19</sup> And Babylon, the glory of kingdoms, the beauty of the Chaldees' excellency, shall be as when God overthrew Sodom and Gomorrah.  
-> <sup>20</sup> It shall never be inhabited, neither shall it be dwelt in from generation to generation: neither shall the Arabian pitch tent there; neither shall the shepherds make their fold there.  
-> <sup>21</sup> But wild beasts of the desert shall lie there; and their houses shall be full of doleful creatures; and owls shall dwell there, and satyrs shall dance there.  
-> <sup>22</sup> And the wild beasts of the islands shall cry in their desolate houses, and dragons in *their* pleasant palaces: and her time *is* near to come, and her days shall not be prolonged.  
+> **¹⁹** And Babylon, the glory of kingdoms, the beauty of the Chaldees' excellency, shall be as when God overthrew Sodom and Gomorrah.  
+> **²⁰** It shall never be inhabited, neither shall it be dwelt in from generation to generation: neither shall the Arabian pitch tent there; neither shall the shepherds make their fold there.  
+> **²¹** But wild beasts of the desert shall lie there; and their houses shall be full of doleful creatures; and owls shall dwell there, and satyrs shall dance there.  
+> **²²** And the wild beasts of the islands shall cry in their desolate houses, and dragons in *their* pleasant palaces: and her time *is* near to come, and her days shall not be prolonged.  
 
 The great havoc and destruction which it was foretold should be made by the Medes and Persians in Babylon here end in the final destruction of it. 1. It is allowed that Babylon was a noble city. It was *the glory of kingdoms and the beauty of the Chaldees' excellency;* it was that *head of gold* (Da 2:37,38); it was called *the lady of kingdoms* (Isa 47:5), *the praise of the whole earth* (Jer 51:41), *like a pleasant roe* (so the word signifies); but it shall be as a *chased roe,* Isa 13:14. The Chaldeans gloried in the beauty and wealth of this their metropolis. 2. It is foretold that it should be wholly destroyed, like Sodom and Gomorrah; not so miraculously, nor so suddenly, but as effectually, though gradually; and the destruction should come upon them as that upon Sodom, when they were secure, eating and drinking, Lu 17:28,29. Babylon was taken when Belshazzar was in his revels; and, though Cyrus and Darius did not demolish it, yet by degrees it wasted away and in process of time it went all to ruin. It is foretold here (Isa 13:20) *that it shall never be inhabited;* in Adrian's time nothing remained but the wall. And whereas it is prophesied concerning Nineveh, that great city, that when it should be deserted and left desolate yet flocks should lie down in the midst of it, it is here said concerning Babylon that *the Arabians,* who were *shepherds, should not make their folds there;* the country about should be so barren that there would be no grazing there; no, not for sheep. Nay, it shall be the receptacle of *wild beasts,* that affect solitude; the houses of Babylon, where the sons and daughters of pleasure used to rendezvous, *shall be full of doleful creatures, owls and satyrs,* that are themselves frightened thither, as to a place proper for them, and by whom all others are frightened thence. Historians say that this was fulfilled in the letter. Benjamin Bar-Jona, in his Itinerary, speaking of Babel, has these words: "This is that Babel which was of old thirty miles in breadth; it is now laid waste. There are yet to be seen the ruins of a palace of Nebuchadnezzar, but the sons of men dare not enter in, for fear of serpents and scorpions, which possess the place." Let none be proud of their pompous palaces, for they know not but they may become worse than cottages; nor let any think that *their houses shall endure for ever* (Ps 49:11), when perhaps nothing may remain but the ruins and reproaches of them. 3. It is intimated that this destruction should come shortly (Isa 13:22): *Her time is near to come.* This prophecy of the destruction of Babylon was intended for the support and comfort of the people of God when they were captives there and grievously oppressed; and the accomplishment of the prophecy was nearly 200 years after the time when it was delivered; yet it followed soon after the time for which it was calculated. When the people of Israel were groaning under the heavy yoke of Babylonish tyranny, sitting down in tears by the rivers of Babylon and upbraided with the songs of Zion, when their insolent oppressors were most haughty and arrogant (Isa 13:11), then let them know, for their comfort, that Babylon's time, her day to fall, is near to come, and the days of her prosperity shall not be prolonged, as they have been. When God begins with her he will make an end. Thus it is said of the destruction of the New-Testament Babylon, whereof the former was a type, *In one hour has her judgment come.*
 

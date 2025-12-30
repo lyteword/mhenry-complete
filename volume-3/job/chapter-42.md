@@ -8,12 +8,12 @@ Solomon says, "Better is the end of a thing than the beginning thereof," Ec 7:8.
 
 ## Job's Humble Confession. (b. c. 1520.)
 
-> <sup>1</sup> Then Job answered the LORD, and said,  
-> <sup>2</sup> I know that thou canst do every *thing,* and *that* no thought can be withholden from thee.  
-> <sup>3</sup> Who *is* he that hideth counsel without knowledge? therefore have I uttered that I understood not; things too wonderful for me, which I knew not.  
-> <sup>4</sup> Hear, I beseech thee, and I will speak: I will demand of thee, and declare thou unto me.  
-> <sup>5</sup> I have heard of thee by the hearing of the ear: but now mine eye seeth thee.  
-> <sup>6</sup> Wherefore I abhor *myself,* and repent in dust and ashes.  
+> **¹** Then Job answered the LORD, and said,  
+> **²** I know that thou canst do every *thing,* and *that* no thought can be withholden from thee.  
+> **³** Who *is* he that hideth counsel without knowledge? therefore have I uttered that I understood not; things too wonderful for me, which I knew not.  
+> **⁴** Hear, I beseech thee, and I will speak: I will demand of thee, and declare thou unto me.  
+> **⁵** I have heard of thee by the hearing of the ear: but now mine eye seeth thee.  
+> **⁶** Wherefore I abhor *myself,* and repent in dust and ashes.  
 
 The words of Job justifying himself were ended, Job 31:40. After that he said no more to that purport. The words of Job judging and condemning himself began, Job 40:4,5. Here he goes on with words to the same purport. Though his patience had not its perfect work, his repentance for his impatience had. He is here thoroughly humbled for his folly and unadvised speaking, and it was forgiven him. Good men will see and own their faults at last, though it may be some difficulty to bring them to do this. *Then,* when God had said all that to him concerning his own greatness and power appearing in the creatures, *then Job answered the Lord* (Job 42:1), not by way of contradiction (he had promised not so to answer again, Job 40:5), but by way of submission; and thus we must all answer the calls of God.
 
@@ -31,9 +31,9 @@ IV\. He puts himself into the posture of a penitent, and therein goes upon a rig
 
 ## God's Vindication of Job. (b. c. 1520.)
 
-> <sup>7</sup> And it was *so,* that after the LORD had spoken these words unto Job, the LORD said to Eliphaz the Temanite, My wrath is kindled against thee, and against thy two friends: for ye have not spoken of me *the thing that is* right, as my servant Job *hath.*  
-> <sup>8</sup> Therefore take unto you now seven bullocks and seven rams, and go to my servant Job, and offer up for yourselves a burnt offering; and my servant Job shall pray for you: for him will I accept: lest I deal with you *after your* folly, in that ye have not spoken of me *the thing which is* right, like my servant Job.  
-> <sup>9</sup> So Eliphaz the Temanite and Bildad the Shuhite *and* Zophar the Naamathite went, and did according as the LORD commanded them: the LORD also accepted Job.  
+> **⁷** And it was *so,* that after the LORD had spoken these words unto Job, the LORD said to Eliphaz the Temanite, My wrath is kindled against thee, and against thy two friends: for ye have not spoken of me *the thing that is* right, as my servant Job *hath.*  
+> **⁸** Therefore take unto you now seven bullocks and seven rams, and go to my servant Job, and offer up for yourselves a burnt offering; and my servant Job shall pray for you: for him will I accept: lest I deal with you *after your* folly, in that ye have not spoken of me *the thing which is* right, like my servant Job.  
+> **⁹** So Eliphaz the Temanite and Bildad the Shuhite *and* Zophar the Naamathite went, and did according as the LORD commanded them: the LORD also accepted Job.  
 
 Job, in his discourses, had complained very much of the censures of his friends and their hard usage of him, and had appealed to God as Judge between him and them, and thought it hard that judgment was not immediately given upon the appeal. While God was catechising Job out of the whirlwind one would have thought that he only was in the wrong, and that the cause would certainly go against him; but here, to our great surprise, we find it quite otherwise, and the definitive sentence given in Job's favour. Wherefore judge nothing before the time. Those who are truly righteous before God may have their righteousness clouded and eclipsed by great and uncommon afflictions, by the severe censures of men, by their own frailties and foolish passions, by the sharp reproofs of the word and conscience, and the deep humiliation of their own spirits under the sense of God's terrors; and yet, in due time, these clouds shall all blow over, and God will *bring forth their righteousness as the light and their judgment as the noon-day,* Ps 37:6. He cleared Job's righteousness here, because he, like an honest man, held it fast and would not let it go. We have here,
 
@@ -47,14 +47,14 @@ II\. The acquiescence of Job's friends in this judgment given, Job 42:9. They we
 
 ## Job's Renewed Prosperity; The Death of Job. (b. c. 1520.)
 
-> <sup>10</sup> And the LORD turned the captivity of Job, when he prayed for his friends: also the LORD gave Job twice as much as he had before.  
-> <sup>11</sup> Then came there unto him all his brethren, and all his sisters, and all they that had been of his acquaintance before, and did eat bread with him in his house: and they bemoaned him, and comforted him over all the evil that the LORD had brought upon him: every man also gave him a piece of money, and every one an earring of gold.  
-> <sup>12</sup> So the LORD blessed the latter end of Job more than his beginning: for he had fourteen thousand sheep, and six thousand camels, and a thousand yoke of oxen, and a thousand she asses.  
-> <sup>13</sup> He had also seven sons and three daughters.  
-> <sup>14</sup> And he called the name of the first, Jemima; and the name of the second, Kezia; and the name of the third, Keren-happuch.  
-> <sup>15</sup> And in all the land were no women found *so* fair as the daughters of Job: and their father gave them inheritance among their brethren.  
-> <sup>16</sup> After this lived Job a hundred and forty years, and saw his sons, and his sons' sons, *even* four generations.  
-> <sup>17</sup> So Job died, *being* old and full of days.  
+> **¹⁰** And the LORD turned the captivity of Job, when he prayed for his friends: also the LORD gave Job twice as much as he had before.  
+> **¹¹** Then came there unto him all his brethren, and all his sisters, and all they that had been of his acquaintance before, and did eat bread with him in his house: and they bemoaned him, and comforted him over all the evil that the LORD had brought upon him: every man also gave him a piece of money, and every one an earring of gold.  
+> **¹²** So the LORD blessed the latter end of Job more than his beginning: for he had fourteen thousand sheep, and six thousand camels, and a thousand yoke of oxen, and a thousand she asses.  
+> **¹³** He had also seven sons and three daughters.  
+> **¹⁴** And he called the name of the first, Jemima; and the name of the second, Kezia; and the name of the third, Keren-happuch.  
+> **¹⁵** And in all the land were no women found *so* fair as the daughters of Job: and their father gave them inheritance among their brethren.  
+> **¹⁶** After this lived Job a hundred and forty years, and saw his sons, and his sons' sons, *even* four generations.  
+> **¹⁷** So Job died, *being* old and full of days.  
 
 *You have heard of the patience of Job* (says the apostle, Jam 5:11) *and have seen the end of the Lord,* that is, what end the Lord, at length, put to his troubles. In the beginning of this book we had Job's patience under his troubles, for an example; here, in the close, for our encouragement to follow that example, we have the happy issue of his troubles and the prosperous condition to which he was restored after them, which confirms us in counting those happy which endure. Perhaps, too, the extraordinary prosperity which Job was crowned with after his afflictions was intended to be to us Christians a type and figure of the glory and happiness of heaven, which the afflictions of this present time are working for us, and in which they will issue at last; this will be more than double to all the delights and satisfactions we now enjoy, as Job's after-prosperity was to his former, though then he was the greatest of all the men of the east. He that rightly endures temptation, when he is tried, shall receive a *crown of life* (Jam 1:12), as Job, when he was tried, received all the wealth, and honour, and comfort, which here we have an account of.
 

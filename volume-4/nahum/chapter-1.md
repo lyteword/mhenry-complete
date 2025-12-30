@@ -8,19 +8,19 @@ In this chapter we have, I. The inscription of the book, Na 1:1. II. A magnifice
 
 ## Inscription of the Book. (b. c. 710.)
 
-> <sup>1</sup> The burden of Nineveh. The book of the vision of Nahum the Elkoshite.  
+> **¹** The burden of Nineveh. The book of the vision of Nahum the Elkoshite.  
 
 This title directs us to consider, 1. The great city against which the word of the Lord is here delivered; it is the *burden of Nineveh,* not only a prophecy, and a weighty one, but a burdensome prophecy, a dead weight to Nineveh, a mill-stone hanged about its neck. Nineveh was the place concerned, and the Assyrian monarchy, which that was the royal seat of. About 100 years before this Jonah had, in God's name, foretold the speedy overthrow of this great city; but then the Ninevites repented and were spared, and that decree did not *bring forth.* The Ninevites then saw clearly how much it was to their advantage to turn from their evil way; it was the saving of their city; and yet, soon after, they returned to it again; it became worse than ever, *a bloody city,* and *full of lies* and *robbery.* They repented of their repentance, returned with the dog to his vomit, and at length grew worse than ever they had been. Then God sent them not this prophet, as Jonah, but this prophecy, to read them their doom, which was now irreversible. Note, The reprieve will not be continued if the repentance be not continued in. If men turn from the good they began to do, they can expect no other than that God should turn from the favour he began to show, Jer 18:10. 2. The poor prophet by whom the word of the Lord is here delivered: It is *the book of the vision of Nahum the Elkoshite.* The burden of Nineveh was what the prophet plainly foresaw, for it was his vision, and what he left upon record (it is the *book of the vision*), that, when he was gone, the event might be compared with the prediction and might confirm it. All the account we have of the prophet himself is that he was an *Elkoshite,* of the town called *Elkes,* or *Elcos,* which, Jerome says, was in Galilee. Some observe that the scripture ordinarily says little of the prophets themselves, that our faith might not stand upon their authority, but upon that of the blessed Spirit by whom their prophecies were indited.
 
 ## The Judgment of Nineveh; The Awful Power of God. (b. c. 710.)
 
-> <sup>2</sup> God *is* jealous, and the LORD revengeth; the LORD revengeth, and *is* furious; the LORD will take vengeance on his adversaries, and he reserveth *wrath* for his enemies.  
-> <sup>3</sup> The LORD *is* slow to anger, and great in power, and will not at all acquit *the wicked:* the LORD hath his way in the whirlwind and in the storm, and the clouds *are* the dust of his feet.  
-> <sup>4</sup> He rebuketh the sea, and maketh it dry, and drieth up all the rivers: Bashan languisheth, and Carmel, and the flower of Lebanon languisheth.  
-> <sup>5</sup> The mountains quake at him, and the hills melt, and the earth is burned at his presence, yea, the world, and all that dwell therein.  
-> <sup>6</sup> Who can stand before his indignation? and who can abide in the fierceness of his anger? his fury is poured out like fire, and the rocks are thrown down by him.  
-> <sup>7</sup> The LORD *is* good, a strong hold in the day of trouble; and he knoweth them that trust in him.  
-> <sup>8</sup> But with an overrunning flood he will make an utter end of the place thereof, and darkness shall pursue his enemies.  
+> **²** God *is* jealous, and the LORD revengeth; the LORD revengeth, and *is* furious; the LORD will take vengeance on his adversaries, and he reserveth *wrath* for his enemies.  
+> **³** The LORD *is* slow to anger, and great in power, and will not at all acquit *the wicked:* the LORD hath his way in the whirlwind and in the storm, and the clouds *are* the dust of his feet.  
+> **⁴** He rebuketh the sea, and maketh it dry, and drieth up all the rivers: Bashan languisheth, and Carmel, and the flower of Lebanon languisheth.  
+> **⁵** The mountains quake at him, and the hills melt, and the earth is burned at his presence, yea, the world, and all that dwell therein.  
+> **⁶** Who can stand before his indignation? and who can abide in the fierceness of his anger? his fury is poured out like fire, and the rocks are thrown down by him.  
+> **⁷** The LORD *is* good, a strong hold in the day of trouble; and he knoweth them that trust in him.  
+> **⁸** But with an overrunning flood he will make an utter end of the place thereof, and darkness shall pursue his enemies.  
 
 Nineveh knows not God, that God that contends with her, and therefore is here told what a God he is; and it is good for us all to mix faith with that which is here said concerning him, which speaks a great deal of terror to the wicked and comfort to good people; for this glorious description of the Sovereign of the world, like the pillar of cloud and fire, has a bright side towards Israel and a dark side towards the Egyptians. Let each take his portion from it; let sinners read it and tremble; let saints read it and triumph. The wrath of God is here revealed from heaven against him enemies, his favour and mercy are here assured to his faithful loyal subjects, and his almighty power in both, making his wrath very terrible and his favour very desirable.
 
@@ -36,13 +36,13 @@ III\. He is a God of infinite mercy; and in the midst of all this wrath mercy is
 
 ## Destruction of the Assyrian Army; Overthrow of Sennacherib. (b. c. 710.)
 
-> <sup>9</sup> What do ye imagine against the LORD? he will make an utter end: affliction shall not rise up the second time.  
-> <sup>10</sup> For while *they be* folden together *as* thorns, and while they are drunken *as* drunkards, they shall be devoured as stubble fully dry.  
-> <sup>11</sup> There is *one* come out of thee, that imagineth evil against the LORD, a wicked counsellor.  
-> <sup>12</sup> Thus saith the LORD; Though *they be* quiet, and likewise many, yet thus shall they be cut down, when he shall pass through. Though I have afflicted thee, I will afflict thee no more.  
-> <sup>13</sup> For now will I break his yoke from off thee, and will burst thy bonds in sunder.  
-> <sup>14</sup> And the LORD hath given a commandment concerning thee, *that* no more of thy name be sown: out of the house of thy gods will I cut off the graven image and the molten image: I will make thy grave; for thou art vile.  
-> <sup>15</sup> Behold upon the mountains the feet of him that bringeth good tidings, that publisheth peace! O Judah, keep thy solemn feasts, perform thy vows: for the wicked shall no more pass through thee; he is utterly cut off.  
+> **⁹** What do ye imagine against the LORD? he will make an utter end: affliction shall not rise up the second time.  
+> **¹⁰** For while *they be* folden together *as* thorns, and while they are drunken *as* drunkards, they shall be devoured as stubble fully dry.  
+> **¹¹** There is *one* come out of thee, that imagineth evil against the LORD, a wicked counsellor.  
+> **¹²** Thus saith the LORD; Though *they be* quiet, and likewise many, yet thus shall they be cut down, when he shall pass through. Though I have afflicted thee, I will afflict thee no more.  
+> **¹³** For now will I break his yoke from off thee, and will burst thy bonds in sunder.  
+> **¹⁴** And the LORD hath given a commandment concerning thee, *that* no more of thy name be sown: out of the house of thy gods will I cut off the graven image and the molten image: I will make thy grave; for thou art vile.  
+> **¹⁵** Behold upon the mountains the feet of him that bringeth good tidings, that publisheth peace! O Judah, keep thy solemn feasts, perform thy vows: for the wicked shall no more pass through thee; he is utterly cut off.  
 
 These verses seem to point at the destruction of the army of the Assyrians under Sennacherib, which may well be reckoned a part of the burden of Nineveh, the head city of the Assyrian empire, and a pledge of the destruction of Nineveh itself about 100 years after; and this was an event which Isaiah, with whom probably this prophet was contemporary, spoke much of. Now observe here,
 

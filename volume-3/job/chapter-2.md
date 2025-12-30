@@ -8,12 +8,12 @@ We left Job honourably acquitted upon a fair trial between God and Satan concern
 
 ## Satan Again Permitted to Afflict Job. (b. c. 1520.)
 
-> <sup>1</sup> Again there was a day when the sons of God came to present themselves before the LORD, and Satan came also among them to present himself before the LORD.  
-> <sup>2</sup> And the LORD said unto Satan, From whence comest thou? And Satan answered the LORD, and said, From going to and fro in the earth, and from walking up and down in it.  
-> <sup>3</sup> And the LORD said unto Satan, Hast thou considered my servant Job, that *there is* none like him in the earth, a perfect and an upright man, one that feareth God, and escheweth evil? and still he holdeth fast his integrity, although thou movedst me against him, to destroy him without cause.  
-> <sup>4</sup> And Satan answered the LORD, and said, Skin for skin, yea, all that a man hath will he give for his life.  
-> <sup>5</sup> But put forth thine hand now, and touch his bone and his flesh, and he will curse thee to thy face.  
-> <sup>6</sup> And the LORD said unto Satan, Behold, he *is* in thine hand; but save his life.  
+> **¹** Again there was a day when the sons of God came to present themselves before the LORD, and Satan came also among them to present himself before the LORD.  
+> **²** And the LORD said unto Satan, From whence comest thou? And Satan answered the LORD, and said, From going to and fro in the earth, and from walking up and down in it.  
+> **³** And the LORD said unto Satan, Hast thou considered my servant Job, that *there is* none like him in the earth, a perfect and an upright man, one that feareth God, and escheweth evil? and still he holdeth fast his integrity, although thou movedst me against him, to destroy him without cause.  
+> **⁴** And Satan answered the LORD, and said, Skin for skin, yea, all that a man hath will he give for his life.  
+> **⁵** But put forth thine hand now, and touch his bone and his flesh, and he will curse thee to thy face.  
+> **⁶** And the LORD said unto Satan, Behold, he *is* in thine hand; but save his life.  
 
 Satan, that sworn enemy to God and all good men, is here pushing forward his malicious prosecution of Job, whom he hated because God loved him, and did all he could to separate between him and his God, to sow discord and make mischief between them, urging God to afflict him and then urging him to blaspheme God. One would have thought that he had enough of his former attempt upon Job, in which he was so shamefully baffled and disappointed; but malice is restless: the devil and his instruments are so. Those that calumniate good people, and accuse them falsely, will have their saying, though the evidence to the contrary be ever so plain and full and they have been cast in the issue which they themselves have put it upon. Satan will have Job's cause called over again. The malicious, unreasonable, importunity of that great persecutor of the saints is represented (Re 12:10) by his accusing them before our God day and night, still repeating and urging that against them which has been many a time answered: so did Satan here accuse Job day after day. Here is,
 
@@ -29,10 +29,10 @@ V\. A permission granted to Satan to make this trial, Job 2:6. Satan would have 
 
 ## Job Smitten with Disease; The Affliction of Job. (b. c. 1520.)
 
-> <sup>7</sup> So went Satan forth from the presence of the LORD, and smote Job with sore boils from the sole of his foot unto his crown.  
-> <sup>8</sup> And he took him a potsherd to scrape himself withal; and he sat down among the ashes.  
-> <sup>9</sup> Then said his wife unto him, Dost thou still retain thine integrity? curse God, and die.  
-> <sup>10</sup> But he said unto her, Thou speakest as one of the foolish women speaketh. What? shall we receive good at the hand of God, and shall we not receive evil? In all this did not Job sin with his lips.  
+> **⁷** So went Satan forth from the presence of the LORD, and smote Job with sore boils from the sole of his foot unto his crown.  
+> **⁸** And he took him a potsherd to scrape himself withal; and he sat down among the ashes.  
+> **⁹** Then said his wife unto him, Dost thou still retain thine integrity? curse God, and die.  
+> **¹⁰** But he said unto her, Thou speakest as one of the foolish women speaketh. What? shall we receive good at the hand of God, and shall we not receive evil? In all this did not Job sin with his lips.  
 
 The devil, having got leave to tear and worry poor Job, presently fell to work with him, as a tormentor first and then as a tempter. His own children he tempts first, and draws them to sin, and afterwards torments, when thereby he has brought them to ruin; but this child of God he tormented with an affliction, and then tempted to make a bad use of his affliction. That which he aimed at was to make Job curse God; now here we are told what course he took both to move him to it and move it to him, both to give him the provocation, else he would not have thought of it: thus artfully in the temptation managed with all the subtlety of the old serpent, who is here playing the same game against Job that he played against our first parents (Ge 3:1-24), aiming to seduce him from his allegiance to his God and to rob him of his integrity.
 
@@ -64,9 +64,9 @@ IV\. Thus, in a good measure, Job still held fast his integrity, and Satan's des
 
 ## Job Visited by His Friends. (b. c. 1520.)
 
-> <sup>11</sup> Now when Job's three friends heard of all this evil that was come upon him, they came every one from his own place; Eliphaz the Temanite, and Bildad the Shuhite, and Zophar the Naamathite: for they had made an appointment together to come to mourn with him and to comfort him.  
-> <sup>12</sup> And when they lifted up their eyes afar off, and knew him not, they lifted up their voice, and wept; and they rent every one his mantle, and sprinkled dust upon their heads toward heaven.  
-> <sup>13</sup> So they sat down with him upon the ground seven days and seven nights, and none spake a word unto him: for they saw that *his* grief was very great.  
+> **¹¹** Now when Job's three friends heard of all this evil that was come upon him, they came every one from his own place; Eliphaz the Temanite, and Bildad the Shuhite, and Zophar the Naamathite: for they had made an appointment together to come to mourn with him and to comfort him.  
+> **¹²** And when they lifted up their eyes afar off, and knew him not, they lifted up their voice, and wept; and they rent every one his mantle, and sprinkled dust upon their heads toward heaven.  
+> **¹³** So they sat down with him upon the ground seven days and seven nights, and none spake a word unto him: for they saw that *his* grief was very great.  
 
 We have here an account of the kind visit which Job's three friends paid him in his affliction. The news of his extraordinary troubles spread into all parts, he being an eminent man both for greatness and goodness, and the circumstances of his troubles being very uncommon. Some, who were his enemies, triumphed in his calamities, Job 16:10,19:18,30:1, etc. Perhaps they made ballads on him. But his friends concerned themselves for him, and endeavoured to comfort him. *A friend loveth at all times, and a brother is born for adversity.* Three of them are here named (Job 2:11), Eliphaz, Bildad, and Zophar. We shall afterwards meet with a fourth, who it should seem was present at the whole conference, namely, Elihu. Whether he came as a friend of Job or only as an auditor does not appear. These three are said to be his *friends,* his intimate acquaintance, as David and Solomon had each of them one in their court that was called *the king's friend.* These three were eminently wise and good men, as appears by their discourses. They were old men, very old, had a great reputation for knowledge, and much deference was paid to their judgment, Job 32:6. It is probable that they were men of figure in their country-princes, or heads of houses. Now observe,
 

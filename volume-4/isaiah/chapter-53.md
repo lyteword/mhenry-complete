@@ -8,9 +8,9 @@ The two great things which the Spirit of Christ in the Old-Testament prophets te
 
 ## The Humiliation of the Messiah. (b. c. 706.)
 
-> <sup>1</sup> Who hath believed our report? and to whom is the arm of the LORD revealed?  
-> <sup>2</sup> For he shall grow up before him as a tender plant, and as a root out of a dry ground: he hath no form nor comeliness; and when we shall see him, *there is* no beauty that we should desire him.  
-> <sup>3</sup> He is despised and rejected of men; a man of sorrows, and acquainted with grief: and we hid as it were *our* faces from him; he was despised, and we esteemed him not.  
+> **¹** Who hath believed our report? and to whom is the arm of the LORD revealed?  
+> **²** For he shall grow up before him as a tender plant, and as a root out of a dry ground: he hath no form nor comeliness; and when we shall see him, *there is* no beauty that we should desire him.  
+> **³** He is despised and rejected of men; a man of sorrows, and acquainted with grief: and we hid as it were *our* faces from him; he was despised, and we esteemed him not.  
 
 The prophet, in the close of the former chapter, had foreseen and foretold the kind reception which the gospel of Christ should find among the Gentiles, that nations and their kings should bid it welcome, that those who had not seen him should believe in him; and though they had not any prophecies among them of gospel grace, which might raise their expectations, and dispose them to entertain it, yet upon the first notice of it they should give it its due weight and consideration. Now here he foretels, with wonder, the unbelief of the Jews, notwithstanding the previous notices they had of the coming of the Messiah in the Old Testament and the opportunity they had of being personally acquainted with him. Observe here,
 
@@ -26,12 +26,12 @@ Thus, being *made sin for us,* he underwent the sentence sin had subjected us to
 
 ## The Humiliation of the Messiah. (b. c. 706.)
 
-> <sup>4</sup> Surely he hath borne our griefs, and carried our sorrows: yet we did esteem him stricken, smitten of God, and afflicted.  
-> <sup>5</sup> But he *was* wounded for our transgressions, *he was* bruised for our iniquities: the chastisement of our peace *was* upon him; and with his stripes we are healed.  
-> <sup>6</sup> All we like sheep have gone astray; we have turned every one to his own way; and the LORD hath laid on him the iniquity of us all.  
-> <sup>7</sup> He was oppressed, and he was afflicted, yet he opened not his mouth: he is brought as a lamb to the slaughter, and as a sheep before her shearers is dumb, so he openeth not his mouth.  
-> <sup>8</sup> He was taken from prison and from judgment: and who shall declare his generation? for he was cut off out of the land of the living: for the transgression of my people was he stricken.  
-> <sup>9</sup> And he made his grave with the wicked, and with the rich in his death; because he had done no violence, neither *was any* deceit in his mouth.  
+> **⁴** Surely he hath borne our griefs, and carried our sorrows: yet we did esteem him stricken, smitten of God, and afflicted.  
+> **⁵** But he *was* wounded for our transgressions, *he was* bruised for our iniquities: the chastisement of our peace *was* upon him; and with his stripes we are healed.  
+> **⁶** All we like sheep have gone astray; we have turned every one to his own way; and the LORD hath laid on him the iniquity of us all.  
+> **⁷** He was oppressed, and he was afflicted, yet he opened not his mouth: he is brought as a lamb to the slaughter, and as a sheep before her shearers is dumb, so he openeth not his mouth.  
+> **⁸** He was taken from prison and from judgment: and who shall declare his generation? for he was cut off out of the land of the living: for the transgression of my people was he stricken.  
+> **⁹** And he made his grave with the wicked, and with the rich in his death; because he had done no violence, neither *was any* deceit in his mouth.  
 
 In these verses we have,
 
@@ -61,9 +61,9 @@ Of this generation of his let us pray, as Moses did for Israel, *The Lord God of
 
 ## The Exaltation of the Messiah; The Triumph of the Messiah. (b. c. 706.)
 
-> <sup>10</sup> Yet it pleased the LORD to bruise him; he hath put *him* to grief: when thou shalt make his soul an offering for sin, he shall see *his* seed, he shall prolong *his* days, and the pleasure of the LORD shall prosper in his hand.  
-> <sup>11</sup> He shall see of the travail of his soul, *and* shall be satisfied: by his knowledge shall my righteous servant justify many; for he shall bear their iniquities.  
-> <sup>12</sup> Therefore will I divide him *a portion* with the great, and he shall divide the spoil with the strong; because he hath poured out his soul unto death: and he was numbered with the transgressors; and he bare the sin of many, and made intercession for the transgressors.  
+> **¹⁰** Yet it pleased the LORD to bruise him; he hath put *him* to grief: when thou shalt make his soul an offering for sin, he shall see *his* seed, he shall prolong *his* days, and the pleasure of the LORD shall prosper in his hand.  
+> **¹¹** He shall see of the travail of his soul, *and* shall be satisfied: by his knowledge shall my righteous servant justify many; for he shall bear their iniquities.  
+> **¹²** Therefore will I divide him *a portion* with the great, and he shall divide the spoil with the strong; because he hath poured out his soul unto death: and he was numbered with the transgressors; and he bare the sin of many, and made intercession for the transgressors.  
 
 In the Isa 53:19 the prophet had testified very particularly of the sufferings of Christ, yet mixing some hints of the happy issue of them; here he again mentions his sufferings, but largely foretels the glory that should follow. We may observe, in these verses,
 

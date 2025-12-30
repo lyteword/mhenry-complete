@@ -8,15 +8,15 @@ This chapter is added to Solomon's proverbs, some think because it is of the sam
 
 ## Maternal Counsels to King Lemuel.
 
-> <sup>1</sup> The words of king Lemuel, the prophecy that his mother taught him.  
-> <sup>2</sup> What, my son? and what, the son of my womb? and what, the son of my vows?  
-> <sup>3</sup> Give not thy strength unto women, nor thy ways to that which destroyeth kings.  
-> <sup>4</sup> *It is* not for kings, O Lemuel, *it is* not for kings to drink wine; nor for princes strong drink:  
-> <sup>5</sup> Lest they drink, and forget the law, and pervert the judgment of any of the afflicted.  
-> <sup>6</sup> Give strong drink unto him that is ready to perish, and wine unto those that be of heavy hearts.  
-> <sup>7</sup> Let him drink, and forget his poverty, and remember his misery no more.  
-> <sup>8</sup> Open thy mouth for the dumb in the cause of all such as are appointed to destruction.  
-> <sup>9</sup> Open thy mouth, judge righteously, and plead the cause of the poor and needy.  
+> **¹** The words of king Lemuel, the prophecy that his mother taught him.  
+> **²** What, my son? and what, the son of my womb? and what, the son of my vows?  
+> **³** Give not thy strength unto women, nor thy ways to that which destroyeth kings.  
+> **⁴** *It is* not for kings, O Lemuel, *it is* not for kings to drink wine; nor for princes strong drink:  
+> **⁵** Lest they drink, and forget the law, and pervert the judgment of any of the afflicted.  
+> **⁶** Give strong drink unto him that is ready to perish, and wine unto those that be of heavy hearts.  
+> **⁷** Let him drink, and forget his poverty, and remember his misery no more.  
+> **⁸** Open thy mouth for the dumb in the cause of all such as are appointed to destruction.  
+> **⁹** Open thy mouth, judge righteously, and plead the cause of the poor and needy.  
 
 Most interpreters are of opinion that Lemuel is Solomon; the name signifies one that is *for God,* or *devoted to God;* and so it agrees well enough with that honourable name which, by divine appointment, was given to Solomon (2Sa 12:25), *Jedediah—beloved of the Lord.* Lemuel is supposed to be a pretty, fond, endearing name, by which his mother used to call him; and so much did he value himself upon the interest he had in his mother's affections that he was not ashamed to call himself by it. One would the rather incline to think it is Solomon that here tells us what *his mother taught him* because he tells us (Pr 4:4) what his father taught him. But some think (and the conjecture is not improbable) that Lemuel was a prince of some neighbouring country, whose mother was a daughter of Israel, perhaps of the house of David, and taught him these good lessons. Note, 1. It is the duty of mothers, as well as fathers, to teach their children what is good, that they may do it, and what is evil, that they may avoid it; when they are young and tender they are most under the mother's eye, and she has then an opportunity of moulding and fashioning their minds well, which she ought not to let slip. 2. Even kings must be catechised; the greatest of men is less than the least of the ordinances of God. 3. Those that have grown up to maturity should often call to mind, and make mention of, the good instructions they received when they were children, for their own admonition, the edification of others, and the honour of those who were the guides of their youth.
 
@@ -30,28 +30,28 @@ III\. The counsel she gives him to do good. 1. He must do good with his wealth. 
 
 ## The Virtuous Woman.
 
-> <sup>10</sup> Who can find a virtuous woman? for her price *is* far above rubies.  
-> <sup>11</sup> The heart of her husband doth safely trust in her, so that he shall have no need of spoil.  
-> <sup>12</sup> She will do him good and not evil all the days of her life.  
-> <sup>13</sup> She seeketh wool, and flax, and worketh willingly with her hands.  
-> <sup>14</sup> She is like the merchants' ships; she bringeth her food from afar.  
-> <sup>15</sup> She riseth also while it is yet night, and giveth meat to her household, and a portion to her maidens.  
-> <sup>16</sup> She considereth a field, and buyeth it: with the fruit of her hands she planteth a vineyard.  
-> <sup>17</sup> She girdeth her loins with strength, and strengtheneth her arms.  
-> <sup>18</sup> She perceiveth that her merchandise *is* good: her candle goeth not out by night.  
-> <sup>19</sup> She layeth her hands to the spindle, and her hands hold the distaff.  
-> <sup>20</sup> She stretcheth out her hand to the poor; yea, she reacheth forth her hands to the needy.  
-> <sup>21</sup> She is not afraid of the snow for her household: for all her household *are* clothed with scarlet.  
-> <sup>22</sup> She maketh herself coverings of tapestry; her clothing *is* silk and purple.  
-> <sup>23</sup> Her husband is known in the gates, when he sitteth among the elders of the land.  
-> <sup>24</sup> She maketh fine linen, and selleth *it;* and delivereth girdles unto the merchant.  
-> <sup>25</sup> Strength and honour *are* her clothing; and she shall rejoice in time to come.  
-> <sup>26</sup> She openeth her mouth with wisdom; and in her tongue *is* the law of kindness.  
-> <sup>27</sup> She looketh well to the ways of her household, and eateth not the bread of idleness.  
-> <sup>28</sup> Her children arise up, and call her blessed; her husband *also,* and he praiseth her.  
-> <sup>29</sup> Many daughters have done virtuously, but thou excellest them all.  
-> <sup>30</sup> Favour *is* deceitful, and beauty *is* vain: *but* a woman *that* feareth the LORD, she shall be praised.  
-> <sup>31</sup> Give her of the fruit of her hands; and let her own works praise her in the gates.  
+> **¹⁰** Who can find a virtuous woman? for her price *is* far above rubies.  
+> **¹¹** The heart of her husband doth safely trust in her, so that he shall have no need of spoil.  
+> **¹²** She will do him good and not evil all the days of her life.  
+> **¹³** She seeketh wool, and flax, and worketh willingly with her hands.  
+> **¹⁴** She is like the merchants' ships; she bringeth her food from afar.  
+> **¹⁵** She riseth also while it is yet night, and giveth meat to her household, and a portion to her maidens.  
+> **¹⁶** She considereth a field, and buyeth it: with the fruit of her hands she planteth a vineyard.  
+> **¹⁷** She girdeth her loins with strength, and strengtheneth her arms.  
+> **¹⁸** She perceiveth that her merchandise *is* good: her candle goeth not out by night.  
+> **¹⁹** She layeth her hands to the spindle, and her hands hold the distaff.  
+> **²⁰** She stretcheth out her hand to the poor; yea, she reacheth forth her hands to the needy.  
+> **²¹** She is not afraid of the snow for her household: for all her household *are* clothed with scarlet.  
+> **²²** She maketh herself coverings of tapestry; her clothing *is* silk and purple.  
+> **²³** Her husband is known in the gates, when he sitteth among the elders of the land.  
+> **²⁴** She maketh fine linen, and selleth *it;* and delivereth girdles unto the merchant.  
+> **²⁵** Strength and honour *are* her clothing; and she shall rejoice in time to come.  
+> **²⁶** She openeth her mouth with wisdom; and in her tongue *is* the law of kindness.  
+> **²⁷** She looketh well to the ways of her household, and eateth not the bread of idleness.  
+> **²⁸** Her children arise up, and call her blessed; her husband *also,* and he praiseth her.  
+> **²⁹** Many daughters have done virtuously, but thou excellest them all.  
+> **³⁰** Favour *is* deceitful, and beauty *is* vain: *but* a woman *that* feareth the LORD, she shall be praised.  
+> **³¹** Give her of the fruit of her hands; and let her own works praise her in the gates.  
 
 This description of the *virtuous woman* is designed to show what wives the women should make and what wives the men should choose; it consists of twenty-two verses, each beginning with a letter of the Hebrew alphabet in order, as some of the *Psalms,* which makes some think it was no part of the lesson which Lemuel's mother taught him, but a poem by itself, written by some other hand, and perhaps had been commonly repeated among the pious Jews, for the ease of which it was made alphabetical. We have the abridgment of it in the New Testament (1Ti 2:9,10,1Pe 3:1-6), where the duty prescribed to wives agrees with this description of a good wife; and with good reason is so much stress laid upon it, since it contributes as much as any one thing to the keeping up of religion in families, and the entail of it upon posterity, that the mothers be wise and good; and of what consequence it is to the wealth and outward prosperity of a house every one is sensible. He that will thrive must ask his wife leave. Here is,
 

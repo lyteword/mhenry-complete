@@ -8,10 +8,10 @@ In this chapter we have a further, and no less terrible, denunciation of the jud
 
 ## The Representation of Jerusalem's Ruin. (b. c. 594.)
 
-> <sup>1</sup> And thou, son of man, take thee a sharp knife, take thee a barber's razor, and cause *it* to pass upon thine head and upon thy beard: then take thee balances to weigh, and divide the *hair.*  
-> <sup>2</sup> Thou shalt burn with fire a third part in the midst of the city, when the days of the siege are fulfilled: and thou shalt take a third part, *and* smite about it with a knife: and a third part thou shalt scatter in the wind; and I will draw out a sword after them.  
-> <sup>3</sup> Thou shalt also take thereof a few in number, and bind them in thy skirts.  
-> <sup>4</sup> Then take of them again, and cast them into the midst of the fire, and burn them in the fire; *for* thereof shall a fire come forth into all the house of Israel.  
+> **¹** And thou, son of man, take thee a sharp knife, take thee a barber's razor, and cause *it* to pass upon thine head and upon thy beard: then take thee balances to weigh, and divide the *hair.*  
+> **²** Thou shalt burn with fire a third part in the midst of the city, when the days of the siege are fulfilled: and thou shalt take a third part, *and* smite about it with a knife: and a third part thou shalt scatter in the wind; and I will draw out a sword after them.  
+> **³** Thou shalt also take thereof a few in number, and bind them in thy skirts.  
+> **⁴** Then take of them again, and cast them into the midst of the fire, and burn them in the fire; *for* thereof shall a fire come forth into all the house of Israel.  
 
 We have here the sign by which the utter destruction of Jerusalem is set forth; and here, as before, the prophet is himself the sign, that the people might see how much he affected himself with, and interested himself in, the case of Jerusalem, and how it lay to his heart, even when he foretold the desolations of it. He was so much concerned about it as to take what was done to it as done to himself, so far was he from desiring the woeful day.
 
@@ -25,19 +25,19 @@ IV\. He must preserve a small quantity of the third sort that were to be *scatte
 
 ## The Guilt of Jerusalem; The Punishment of Jerusalem. (b. c. 594.)
 
-> <sup>5</sup> Thus saith the Lord GOD; This *is* Jerusalem: I have set it in the midst of the nations and countries *that are* round about her.  
-> <sup>6</sup> And she hath changed my judgments into wickedness more than the nations, and my statutes more than the countries that *are* round about her: for they have refused my judgments and my statutes, they have not walked in them.  
-> <sup>7</sup> Therefore thus saith the Lord GOD; Because ye multiplied more than the nations that *are* round about you, *and* have not walked in my statutes, neither have kept my judgments, neither have done according to the judgments of the nations that *are* round about you;  
-> <sup>8</sup> Therefore thus saith the Lord GOD; Behold, I, even I, *am* against thee, and will execute judgments in the midst of thee in the sight of the nations.  
-> <sup>9</sup> And I will do in thee that which I have not done, and whereunto I will not do any more the like, because of all thine abominations.  
-> <sup>10</sup> Therefore the fathers shall eat the sons in the midst of thee, and the sons shall eat their fathers; and I will execute judgments in thee, and the whole remnant of thee will I scatter into all the winds.  
-> <sup>11</sup> Wherefore, *as* I live, saith the Lord GOD; Surely, because thou hast defiled my sanctuary with all thy detestable things, and with all thine abominations, therefore will I also diminish *thee;* neither shall mine eye spare, neither will I have any pity.  
-> <sup>12</sup> A third part of thee shall die with the pestilence, and with famine shall they be consumed in the midst of thee: and a third part shall fall by the sword round about thee; and I will scatter a third part into all the winds, and I will draw out a sword after them.  
-> <sup>13</sup> Thus shall mine anger be accomplished, and I will cause my fury to rest upon them, and I will be comforted: and they shall know that I the LORD have spoken *it* in my zeal, when I have accomplished my fury in them.  
-> <sup>14</sup> Moreover I will make thee waste, and a reproach among the nations that *are* round about thee, in the sight of all that pass by.  
-> <sup>15</sup> So it shall be a reproach and a taunt, an instruction and an astonishment unto the nations that *are* round about thee, when I shall execute judgments in thee in anger and in fury and in furious rebukes. I the LORD have spoken *it.*  
-> <sup>16</sup> When I shall send upon them the evil arrows of famine, which shall be for *their* destruction, *and* which I will send to destroy you: and I will increase the famine upon you, and will break your staff of bread:  
-> <sup>17</sup> So will I send upon you famine and evil beasts, and they shall bereave thee; and pestilence and blood shall pass through thee; and I will bring the sword upon thee. I the LORD have spoken *it.*  
+> **⁵** Thus saith the Lord GOD; This *is* Jerusalem: I have set it in the midst of the nations and countries *that are* round about her.  
+> **⁶** And she hath changed my judgments into wickedness more than the nations, and my statutes more than the countries that *are* round about her: for they have refused my judgments and my statutes, they have not walked in them.  
+> **⁷** Therefore thus saith the Lord GOD; Because ye multiplied more than the nations that *are* round about you, *and* have not walked in my statutes, neither have kept my judgments, neither have done according to the judgments of the nations that *are* round about you;  
+> **⁸** Therefore thus saith the Lord GOD; Behold, I, even I, *am* against thee, and will execute judgments in the midst of thee in the sight of the nations.  
+> **⁹** And I will do in thee that which I have not done, and whereunto I will not do any more the like, because of all thine abominations.  
+> **¹⁰** Therefore the fathers shall eat the sons in the midst of thee, and the sons shall eat their fathers; and I will execute judgments in thee, and the whole remnant of thee will I scatter into all the winds.  
+> **¹¹** Wherefore, *as* I live, saith the Lord GOD; Surely, because thou hast defiled my sanctuary with all thy detestable things, and with all thine abominations, therefore will I also diminish *thee;* neither shall mine eye spare, neither will I have any pity.  
+> **¹²** A third part of thee shall die with the pestilence, and with famine shall they be consumed in the midst of thee: and a third part shall fall by the sword round about thee; and I will scatter a third part into all the winds, and I will draw out a sword after them.  
+> **¹³** Thus shall mine anger be accomplished, and I will cause my fury to rest upon them, and I will be comforted: and they shall know that I the LORD have spoken *it* in my zeal, when I have accomplished my fury in them.  
+> **¹⁴** Moreover I will make thee waste, and a reproach among the nations that *are* round about thee, in the sight of all that pass by.  
+> **¹⁵** So it shall be a reproach and a taunt, an instruction and an astonishment unto the nations that *are* round about thee, when I shall execute judgments in thee in anger and in fury and in furious rebukes. I the LORD have spoken *it.*  
+> **¹⁶** When I shall send upon them the evil arrows of famine, which shall be for *their* destruction, *and* which I will send to destroy you: and I will increase the famine upon you, and will break your staff of bread:  
+> **¹⁷** So will I send upon you famine and evil beasts, and they shall bereave thee; and pestilence and blood shall pass through thee; and I will bring the sword upon thee. I the LORD have spoken *it.*  
 
 We have here the explanation of the foregoing similitude: *This is Jerusalem.* Thus it is usual in scripture language to give the name of the thing signified to the sign; as when Christ said, *This is my body.* The prophet's head, which was to be shaved, signified Jerusalem, which by the judgments of God was now to be stripped of all its ornaments, to be emptied of all its inhabitants, and to be set *naked and bare,* to be *shaved with a razor that is hired,* Isa 7:20. The head of one that was a priest, a prophet, a holy person, was fittest to represent Jerusalem the holy city. Now the contents of these verses are much the same with what we have often met with, and still shall, in the writings of the prophets. Here we have,
 

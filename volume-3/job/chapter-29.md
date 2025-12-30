@@ -8,12 +8,12 @@ After that excellent discourse concerning wisdom in the foregoing chapter Job sa
 
 ## Former Prosperity of Job. (b. c. 1520.)
 
-> <sup>1</sup> Moreover Job continued his parable, and said,  
-> <sup>2</sup> Oh that I were as *in* months past, as *in* the days *when* God preserved me;  
-> <sup>3</sup> When his candle shined upon my head, *and when* by his light I walked *through* darkness;  
-> <sup>4</sup> As I was in the days of my youth, when the secret of God *was* upon my tabernacle;  
-> <sup>5</sup> When the Almighty *was* yet with me, *when* my children *were* about me;  
-> <sup>6</sup> When I washed my steps with butter, and the rock poured me out rivers of oil;  
+> **¹** Moreover Job continued his parable, and said,  
+> **²** Oh that I were as *in* months past, as *in* the days *when* God preserved me;  
+> **³** When his candle shined upon my head, *and when* by his light I walked *through* darkness;  
+> **⁴** As I was in the days of my youth, when the secret of God *was* upon my tabernacle;  
+> **⁵** When the Almighty *was* yet with me, *when* my children *were* about me;  
+> **⁶** When I washed my steps with butter, and the rock poured me out rivers of oil;  
 
 Losers may have leave to speak, and there is nothing they speak of more feelingly than of the comforts they are stripped of. Their former prosperity is one of the most pleasing subjects of their thoughts and talk. It was so to Job, who begins here with a wish (Job 29:2): *O that I were as in months past!* so he brings in this account of his prosperity. His wish is, 1. "O that I were in as good a state as I was in then, that I had as much wealth, honour, and pleasure, as I had then!" This he wishes, from a concern he had, not so much for his ease, as for his reputation and the glory of his God, which he thought were eclipsed by his present sufferings. "O that I might be restored to my prosperity, and then the censures and reproaches of my friends would be effectually silenced, even upon their own principles, and for ever rolled away!" If this be our end in desiring life, health, and prosperity, that God may be glorified, and the credit of our holy profession rescued, preserved, and advanced, the desire is not only natural, but spiritual. 2. "O that I were in as good a frame of spirit as I was in then!" That which Job complained most of now was a load upon his spirits, through God's withdrawing from him; and therefore he wishes he now had his spirit as much enlarged and encouraged in the service of God as he had then and that he had as much freedom and fellowship with him as then thought himself happy in. This was *in the days of his youth* (Job 29:4), when he was in the prime of his time for the enjoyment of those things and could relish them with the highest gust. Note, Those that prosper in the days of their youth know not what black and cloudy days they are yet reserved for. Two things made the months past pleasant to Job:—
 
@@ -21,17 +21,17 @@ I\. That he had comfort in his God. This was the chief thing he rejoiced in, in 
 
 II\. That he had comfort in his family. Every thing was agreeable there: he had both mouths for his meat and meat for his mouths; the want of either is a great affliction. 1. He had a numerous offspring to enjoy his estate: *My children were about me.* He had many children, enough to compass him round, and they were observant of him and obsequious to him; they were about him, to know what he would have and wherein they might serve him. It is a comfort to tender parents to see their children about them. Job speaks very feelingly of this comfort now that he was deprived of it. He thought it an instance of God's being with him that his children were about him; and yet reckon amiss if, when we have lost our children, we cannot comfort ourselves with this, that we have not lost our God. 2. He had a plentiful estate for the support of this numerous family, Job 29:6. His dairy abounded to such a degree that he might, if he pleased, *wash his steps with butter;* and his olive-yards were so fruitful, beyond expectation, that it seemed as if the *rock poured him out rivers of oil.* He reckons his wealth, not by his silver and gold, which were for hoarding, but by his butter and oil, which were for use; for what is an estate good for unless we take the good of it ourselves and do good with it to others?
 
-> <sup>7</sup> When I went out to the gate through the city, *when* I prepared my seat in the street!  
-> <sup>8</sup> The young men saw me, and hid themselves: and the aged arose, *and* stood up.  
-> <sup>9</sup> The princes refrained talking, and laid *their* hand on their mouth.  
-> <sup>10</sup> The nobles held their peace, and their tongue cleaved to the roof of their mouth.  
-> <sup>11</sup> When the ear heard *me,* then it blessed me; and when the eye saw *me,* it gave witness to me:  
-> <sup>12</sup> Because I delivered the poor that cried, and the fatherless, and *him that had* none to help him.  
-> <sup>13</sup> The blessing of him that was ready to perish came upon me: and I caused the widow's heart to sing for joy.  
-> <sup>14</sup> I put on righteousness, and it clothed me: my judgment *was* as a robe and a diadem.  
-> <sup>15</sup> I was eyes to the blind, and feet *was* I to the lame.  
-> <sup>16</sup> I *was* a father to the poor: and the cause *which* I knew not I searched out.  
-> <sup>17</sup> And I brake the jaws of the wicked, and plucked the spoil out of his teeth.  
+> **⁷** When I went out to the gate through the city, *when* I prepared my seat in the street!  
+> **⁸** The young men saw me, and hid themselves: and the aged arose, *and* stood up.  
+> **⁹** The princes refrained talking, and laid *their* hand on their mouth.  
+> **¹⁰** The nobles held their peace, and their tongue cleaved to the roof of their mouth.  
+> **¹¹** When the ear heard *me,* then it blessed me; and when the eye saw *me,* it gave witness to me:  
+> **¹²** Because I delivered the poor that cried, and the fatherless, and *him that had* none to help him.  
+> **¹³** The blessing of him that was ready to perish came upon me: and I caused the widow's heart to sing for joy.  
+> **¹⁴** I put on righteousness, and it clothed me: my judgment *was* as a robe and a diadem.  
+> **¹⁵** I was eyes to the blind, and feet *was* I to the lame.  
+> **¹⁶** I *was* a father to the poor: and the cause *which* I knew not I searched out.  
+> **¹⁷** And I brake the jaws of the wicked, and plucked the spoil out of his teeth.  
 
 We have here Job in a post of honour and power. Though he had comfort enough in his own house, yet he did not confine himself to that. We are not born for ourselves, but for the public. When any business was to be done in the gate, the place of judgment, Job *went out to* it *through the city* (Job 29:7), not in an affectation of pomp, but in an affection to justice. Observe, Judgment was administered in the gate, in the street, in the places of concourse, to which every man might have a free access, that every one who would might be a witness to all that was said and done, and that when judgment was given against the guilty others might hear and fear. Job being a prince, a judge, a magistrate, a man in authority, among the children of the east, we are here told,
 
@@ -47,14 +47,14 @@ II\. What a great deal of good he did in his place. He was very serviceable to h
 
 4\. He valued himself by the check he gave to the violence of proud and evil men (Job 29:17): *I broke the jaws of the wicked.* He does not say that he broke their necks. He did not take away their lives, but he broke their jaws, he took away their power of doing mischief; he humbled them, mortified them, and curbed their insolence, and so plucked the spoil out of their teeth, delivered the persons and estates of honest men from being made a prey of by them. When they had got the spoil between their teeth, and were greedily swallowing it down, he bravely rescued it, as David did the lamb out of the mouth of the lion, not fearing, though they roared and raged like a lion disappointed of his prey. Good magistrates must thus be a terror and restraint to evil-doers and a protection to the innocent, and, in order to this, they have need to arm themselves with zeal, and resolution, and an undaunted courage. A judge upon the bench has as much need to be bold and brave as a commander in the field.
 
-> <sup>18</sup> Then I said, I shall die in my nest, and I shall multiply *my* days as the sand.  
-> <sup>19</sup> My root *was* spread out by the waters, and the dew lay all night upon my branch.  
-> <sup>20</sup> My glory *was* fresh in me, and my bow was renewed in my hand.  
-> <sup>21</sup> Unto me *men* gave ear, and waited, and kept silence at my counsel.  
-> <sup>22</sup> After my words they spake not again; and my speech dropped upon them.  
-> <sup>23</sup> And they waited for me as for the rain; and they opened their mouth wide *as* for the latter rain.  
-> <sup>24</sup> *If* I laughed on them, they believed *it* not; and the light of my countenance they cast not down.  
-> <sup>25</sup> I chose out their way, and sat chief, and dwelt as a king in the army, as one *that* comforteth the mourners.  
+> **¹⁸** Then I said, I shall die in my nest, and I shall multiply *my* days as the sand.  
+> **¹⁹** My root *was* spread out by the waters, and the dew lay all night upon my branch.  
+> **²⁰** My glory *was* fresh in me, and my bow was renewed in my hand.  
+> **²¹** Unto me *men* gave ear, and waited, and kept silence at my counsel.  
+> **²²** After my words they spake not again; and my speech dropped upon them.  
+> **²³** And they waited for me as for the rain; and they opened their mouth wide *as* for the latter rain.  
+> **²⁴** *If* I laughed on them, they believed *it* not; and the light of my countenance they cast not down.  
+> **²⁵** I chose out their way, and sat chief, and dwelt as a king in the army, as one *that* comforteth the mourners.  
 
 That which crowned Job's prosperity was the pleasing prospect he had of the continuance of it. Though he knew, in general, that he was liable to trouble, and therefore was not secure (Job 3:26, *I was not in safety, neither had I rest*), yet he had no particular occasion for fear, but as much reason as ever any man had to count upon the lengthening out of his tranquility.
 

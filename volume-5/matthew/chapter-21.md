@@ -8,17 +8,17 @@ The death and resurrection of Jesus Christ are the two main hinges upon which th
 
 ## Christ's Entrance into Jerusalem.
 
-> <sup>1</sup> And when they drew nigh unto Jerusalem, and were come to Bethphage, unto the mount of Olives, then sent Jesus two disciples,  
-> <sup>2</sup> Saying unto them, Go into the village over against you, and straightway ye shall find an ass tied, and a colt with her: loose *them,* and bring *them* unto me.  
-> <sup>3</sup> And if any *man* say ought unto you, ye shall say, The Lord hath need of them; and straightway he will send them.  
-> <sup>4</sup> All this was done, that it might be fulfilled which was spoken by the prophet, saying,  
-> <sup>5</sup> Tell ye the daughter of Sion, Behold, thy King cometh unto thee, meek, and sitting upon an ass, and a colt the foal of an ass.  
-> <sup>6</sup> And the disciples went, and did as Jesus commanded them,  
-> <sup>7</sup> And brought the ass, and the colt, and put on them their clothes, and they set *him* thereon.  
-> <sup>8</sup> And a very great multitude spread their garments in the way; others cut down branches from the trees, and strawed *them* in the way.  
-> <sup>9</sup> And the multitudes that went before, and that followed, cried, saying, Hosanna to the Son of David: Blessed *is* he that cometh in the name of the Lord; Hosanna in the highest.  
-> <sup>10</sup> And when he was come into Jerusalem, all the city was moved, saying, Who is this?  
-> <sup>11</sup> And the multitude said, This is Jesus the prophet of Nazareth of Galilee.  
+> **¹** And when they drew nigh unto Jerusalem, and were come to Bethphage, unto the mount of Olives, then sent Jesus two disciples,  
+> **²** Saying unto them, Go into the village over against you, and straightway ye shall find an ass tied, and a colt with her: loose *them,* and bring *them* unto me.  
+> **³** And if any *man* say ought unto you, ye shall say, The Lord hath need of them; and straightway he will send them.  
+> **⁴** All this was done, that it might be fulfilled which was spoken by the prophet, saying,  
+> **⁵** Tell ye the daughter of Sion, Behold, thy King cometh unto thee, meek, and sitting upon an ass, and a colt the foal of an ass.  
+> **⁶** And the disciples went, and did as Jesus commanded them,  
+> **⁷** And brought the ass, and the colt, and put on them their clothes, and they set *him* thereon.  
+> **⁸** And a very great multitude spread their garments in the way; others cut down branches from the trees, and strawed *them* in the way.  
+> **⁹** And the multitudes that went before, and that followed, cried, saying, Hosanna to the Son of David: Blessed *is* he that cometh in the name of the Lord; Hosanna in the highest.  
+> **¹⁰** And when he was come into Jerusalem, all the city was moved, saying, Who is this?  
+> **¹¹** And the multitude said, This is Jesus the prophet of Nazareth of Galilee.  
 
 All the four evangelists take notice of this passage of Christ's *riding in triumph into Jerusalem,* five days before his death. The passover was on the fourteenth day of the month, and this was the tenth; on which day the law appointed that the paschal lamb should be taken up (Ex 12:3), and set apart for that service; on that day therefore Christ our Passover, who was to be sacrificed for us, was publicly showed. So that this was the prelude to his passion. He had lodged at Bethany, a village not far from Jerusalem, for some time; at a supper there the night before Mary had *anointed his feet,* Joh 12:3. But, as usual with ambassadors, he deferred his public entry till some time after his arrival. Our Lord Jesus travelled much, and his custom was to travel on foot from Galilee to Jerusalem, some scores of miles, which was both humbling and toilsome; many a dirty weary step he had when *he went about doing good.* How ill does it become Christians to be inordinately solicitous about their own ease and state, when their Master had so little of either! Yet once in his life he rode in triumph; and it was now when he went into Jerusalem, to suffer and die, as if that were the pleasure and preferment he courted; and then he thought himself begin to look great.
 
@@ -78,12 +78,12 @@ Upon this commotion we are further told,
 
 ## The Profaners of the Temple Punished.
 
-> <sup>12</sup> And Jesus went into the temple of God, and cast out all them that sold and bought in the temple, and overthrew the tables of the money-changers, and the seats of them that sold doves,  
-> <sup>13</sup> And said unto them, It is written, My house shall be called the house of prayer; but ye have made it a den of thieves.  
-> <sup>14</sup> And the blind and the lame came to him in the temple; and he healed them.  
-> <sup>15</sup> And when the chief priests and scribes saw the wonderful things that he did, and the children crying in the temple, and saying, Hosanna to the Son of David; they were sore displeased,  
-> <sup>16</sup> And said unto him, Hearest thou what these say? And Jesus saith unto them, Yea; have ye never read, Out of the mouth of babes and sucklings thou hast perfected praise?  
-> <sup>17</sup> And he left them, and went out of the city into Bethany; and he lodged there.  
+> **¹²** And Jesus went into the temple of God, and cast out all them that sold and bought in the temple, and overthrew the tables of the money-changers, and the seats of them that sold doves,  
+> **¹³** And said unto them, It is written, My house shall be called the house of prayer; but ye have made it a den of thieves.  
+> **¹⁴** And the blind and the lame came to him in the temple; and he healed them.  
+> **¹⁵** And when the chief priests and scribes saw the wonderful things that he did, and the children crying in the temple, and saying, Hosanna to the Son of David; they were sore displeased,  
+> **¹⁶** And said unto him, Hearest thou what these say? And Jesus saith unto them, Yea; have ye never read, Out of the mouth of babes and sucklings thou hast perfected praise?  
+> **¹⁷** And he left them, and went out of the city into Bethany; and he lodged there.  
 
 When Christ came into Jerusalem, he did not go up to the court or the palace, though he came in as a King, but *into the temple;* for his kingdom is spiritual, and *not of this world;* it is in holy things that he rules, in the temple of God that he exercises authority. Now, what did he do there?
 
@@ -121,11 +121,11 @@ Observe, (1.) The children were in the temple, perhaps playing there; no wonder,
 
 ## The Barren Fig-Tree Cursed.
 
-> <sup>18</sup> Now in the morning as he returned into the city, he hungered.  
-> <sup>19</sup> And when he saw a fig tree in the way, he came to it, and found nothing thereon, but leaves only, and said unto it, Let no fruit grow on thee henceforward for ever. And presently the fig tree withered away.  
-> <sup>20</sup> And when the disciples saw *it,* they marvelled, saying, How soon is the fig tree withered away!  
-> <sup>21</sup> Jesus answered and said unto them, Verily I say unto you, If ye have faith, and doubt not, ye shall not only do this *which is done* to the fig tree, but also if ye shall say unto this mountain, Be thou removed, and be thou cast into the sea; it shall be done.  
-> <sup>22</sup> And all things, whatsoever ye shall ask in prayer, believing, ye shall receive.  
+> **¹⁸** Now in the morning as he returned into the city, he hungered.  
+> **¹⁹** And when he saw a fig tree in the way, he came to it, and found nothing thereon, but leaves only, and said unto it, Let no fruit grow on thee henceforward for ever. And presently the fig tree withered away.  
+> **²⁰** And when the disciples saw *it,* they marvelled, saying, How soon is the fig tree withered away!  
+> **²¹** Jesus answered and said unto them, Verily I say unto you, If ye have faith, and doubt not, ye shall not only do this *which is done* to the fig tree, but also if ye shall say unto this mountain, Be thou removed, and be thou cast into the sea; it shall be done.  
+> **²²** And all things, whatsoever ye shall ask in prayer, believing, ye shall receive.  
 
 Observe,
 
@@ -155,11 +155,11 @@ Observe, [1.] The description of this wonder-working faith; *If ye have faith, a
 
 ## Christ Questioned as to His Authority.
 
-> <sup>23</sup> And when he was come into the temple, the chief priests and the elders of the people came unto him as he was teaching, and said, By what authority doest thou these things? and who gave thee this authority?  
-> <sup>24</sup> And Jesus answered and said unto them, I also will ask you one thing, which if ye tell me, I in like wise will tell you by what authority I do these things.  
-> <sup>25</sup> The baptism of John, whence was it? from heaven, or of men? And they reasoned with themselves, saying, If we shall say, From heaven; he will say unto us, Why did ye not then believe him?  
-> <sup>26</sup> But if we shall say, Of men; we fear the people; for all hold John as a prophet.  
-> <sup>27</sup> And they answered Jesus, and said, We cannot tell. And he said unto them, Neither tell I you by what authority I do these things.  
+> **²³** And when he was come into the temple, the chief priests and the elders of the people came unto him as he was teaching, and said, By what authority doest thou these things? and who gave thee this authority?  
+> **²⁴** And Jesus answered and said unto them, I also will ask you one thing, which if ye tell me, I in like wise will tell you by what authority I do these things.  
+> **²⁵** The baptism of John, whence was it? from heaven, or of men? And they reasoned with themselves, saying, If we shall say, From heaven; he will say unto us, Why did ye not then believe him?  
+> **²⁶** But if we shall say, Of men; we fear the people; for all hold John as a prophet.  
+> **²⁷** And they answered Jesus, and said, We cannot tell. And he said unto them, Neither tell I you by what authority I do these things.  
 
 Our Lord Jesus (like St. Paul after him) preached his gospel *with much contention;* his first appearance was in a dispute with *the doctors in the temple, when he was twelve years old;* and here, just before he died, we have him engaged in controversy. In this sense, he was like Jeremiah, *a man of contention; not striving, but striven with.* The great contenders with him, were, *the chief priests and the elders,* the judges of two distinct courts: the chief priests presided in the ecclesiastical court, in all matters of the Lord, as they are called; the elders of the people were judges of the civil courts, in temporal matters. See an idea of both, 2Ch 19:5,8,11. These joined to attack Christ thinking they should find or make him obnoxious either to the one or to the other. See how woefully degenerate that generation was, when the governors both in church and state, who should have been the great promoters of the Messiah's kingdom, were the great opposers of it! Here we have them disturbing him when he was preaching, Mt 21:23. They would neither receive his instructions themselves, nor let others receive them. Observe,
 
@@ -197,11 +197,11 @@ Thus Christ avoided the snare they laid for him, and justified himself in refusi
 
 ## The Parable of the Two Sons.
 
-> <sup>28</sup> But what think ye? A *certain* man had two sons; and he came to the first, and said, Son, go work to day in my vineyard.  
-> <sup>29</sup> He answered and said, I will not: but afterward he repented, and went.  
-> <sup>30</sup> And he came to the second, and said likewise. And he answered and said, I *go,* sir: and went not.  
-> <sup>31</sup> Whether of them twain did the will of *his* father? They say unto him, The first. Jesus saith unto them, Verily I say unto you, That the publicans and the harlots go into the kingdom of God before you.  
-> <sup>32</sup> For John came unto you in the way of righteousness, and ye believed him not: but the publicans and the harlots believed him: and ye, when ye had seen *it,* repented not afterward, that ye might believe him.  
+> **²⁸** But what think ye? A *certain* man had two sons; and he came to the first, and said, Son, go work to day in my vineyard.  
+> **²⁹** He answered and said, I will not: but afterward he repented, and went.  
+> **³⁰** And he came to the second, and said likewise. And he answered and said, I *go,* sir: and went not.  
+> **³¹** Whether of them twain did the will of *his* father? They say unto him, The first. Jesus saith unto them, Verily I say unto you, That the publicans and the harlots go into the kingdom of God before you.  
+> **³²** For John came unto you in the way of righteousness, and ye believed him not: but the publicans and the harlots believed him: and ye, when ye had seen *it,* repented not afterward, that ye might believe him.  
 
 As Christ instructed his disciples by parables, which made the instructions the more easy, so sometimes he convinced his adversaries by parables, which bring reproofs more close, and make men, or ever they are aware, to reprove themselves. Thus Nathan convinced David by a parable (2Sa 22:1), and the woman of Tekoa surprised him in like manner, 2Sa 14:2: Reproving parables are appeals to the offenders themselves, and judge them out of their own mouths. This Christ designs here, as appears by the first words (Mt 21:28), *But what think you?*
 
@@ -247,20 +247,20 @@ In Christ's application of this parable, observe.
 
 ## The Parable of the Wicked Husbandmen.
 
-> <sup>33</sup> Hear another parable: There was a certain householder, which planted a vineyard, and hedged it round about, and digged a winepress in it, and built a tower, and let it out to husbandmen, and went into a far country:  
-> <sup>34</sup> And when the time of the fruit drew near, he sent his servants to the husbandmen, that they might receive the fruits of it.  
-> <sup>35</sup> And the husbandmen took his servants, and beat one, and killed another, and stoned another.  
-> <sup>36</sup> Again, he sent other servants more than the first: and they did unto them likewise.  
-> <sup>37</sup> But last of all he sent unto them his son, saying, They will reverence my son.  
-> <sup>38</sup> But when the husbandmen saw the son, they said among themselves, This is the heir; come, let us kill him, and let us seize on his inheritance.  
-> <sup>39</sup> And they caught him, and cast *him* out of the vineyard, and slew *him.*  
-> <sup>40</sup> When the lord therefore of the vineyard cometh, what will he do unto those husbandmen?  
-> <sup>41</sup> They say unto him, He will miserably destroy those wicked men, and will let out *his* vineyard unto other husbandmen, which shall render him the fruits in their seasons.  
-> <sup>42</sup> Jesus saith unto them, Did ye never read in the scriptures, The stone which the builders rejected, the same is become the head of the corner: this is the Lord's doing, and it is marvellous in our eyes?  
-> <sup>43</sup> Therefore say I unto you, The kingdom of God shall be taken from you, and given to a nation bringing forth the fruits thereof.  
-> <sup>44</sup> And whosoever shall fall on this stone shall be broken: but on whomsoever it shall fall, it will grind him to powder.  
-> <sup>45</sup> And when the chief priests and Pharisees had heard his parables, they perceived that he spake of them.  
-> <sup>46</sup> But when they sought to lay hands on him, they feared the multitude, because they took him for a prophet.  
+> **³³** Hear another parable: There was a certain householder, which planted a vineyard, and hedged it round about, and digged a winepress in it, and built a tower, and let it out to husbandmen, and went into a far country:  
+> **³⁴** And when the time of the fruit drew near, he sent his servants to the husbandmen, that they might receive the fruits of it.  
+> **³⁵** And the husbandmen took his servants, and beat one, and killed another, and stoned another.  
+> **³⁶** Again, he sent other servants more than the first: and they did unto them likewise.  
+> **³⁷** But last of all he sent unto them his son, saying, They will reverence my son.  
+> **³⁸** But when the husbandmen saw the son, they said among themselves, This is the heir; come, let us kill him, and let us seize on his inheritance.  
+> **³⁹** And they caught him, and cast *him* out of the vineyard, and slew *him.*  
+> **⁴⁰** When the lord therefore of the vineyard cometh, what will he do unto those husbandmen?  
+> **⁴¹** They say unto him, He will miserably destroy those wicked men, and will let out *his* vineyard unto other husbandmen, which shall render him the fruits in their seasons.  
+> **⁴²** Jesus saith unto them, Did ye never read in the scriptures, The stone which the builders rejected, the same is become the head of the corner: this is the Lord's doing, and it is marvellous in our eyes?  
+> **⁴³** Therefore say I unto you, The kingdom of God shall be taken from you, and given to a nation bringing forth the fruits thereof.  
+> **⁴⁴** And whosoever shall fall on this stone shall be broken: but on whomsoever it shall fall, it will grind him to powder.  
+> **⁴⁵** And when the chief priests and Pharisees had heard his parables, they perceived that he spake of them.  
+> **⁴⁶** But when they sought to lay hands on him, they feared the multitude, because they took him for a prophet.  
 
 This parable plainly sets forth the sin and ruin of the Jewish nation; they and their leaders are the husbandmen here; and what is spoken for conviction to them, is spoken for caution to all that enjoy the privileges of the visible church, not to be high-minded, but fear.
 

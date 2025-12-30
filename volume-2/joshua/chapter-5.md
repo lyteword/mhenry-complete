@@ -8,15 +8,15 @@ Israel have now got over Jordan, and the waters which had opened before them, to
 
 ## The Circumcision of the Israelites. (b. c. 1451.)
 
-> <sup>1</sup> And it came to pass, when all the kings of the Amorites, which *were* on the side of Jordan westward, and all the kings of the Canaanites, which *were* by the sea, heard that the LORD had dried up the waters of Jordan from before the children of Israel, until we were passed over, that their heart melted, neither was there spirit in them any more, because of the children of Israel.  
-> <sup>2</sup> At that time the LORD said unto Joshua, Make thee sharp knives, and circumcise again the children of Israel the second time.  
-> <sup>3</sup> And Joshua made him sharp knives, and circumcised the children of Israel at the hill of the foreskins.  
-> <sup>4</sup> And this *is* the cause why Joshua did circumcise: All the people that came out of Egypt, *that were* males, *even* all the men of war, died in the wilderness by the way, after they came out of Egypt.  
-> <sup>5</sup> Now all the people that came out were circumcised: but all the people *that were* born in the wilderness by the way as they came forth out of Egypt, *them* they had not circumcised.  
-> <sup>6</sup> For the children of Israel walked forty years in the wilderness, till all the people *that were* men of war, which came out of Egypt, were consumed, because they obeyed not the voice of the LORD: unto whom the LORD sware that he would not shew them the land, which the LORD sware unto their fathers that he would give us, a land that floweth with milk and honey.  
-> <sup>7</sup> And their children, *whom* he raised up in their stead, them Joshua circumcised: for they were uncircumcised, because they had not circumcised them by the way.  
-> <sup>8</sup> And it came to pass, when they had done circumcising all the people, that they abode in their places in the camp, till they were whole.  
-> <sup>9</sup> And the LORD said unto Joshua, This day have I rolled away the reproach of Egypt from off you. Wherefore the name of the place is called Gilgal unto this day.  
+> **¹** And it came to pass, when all the kings of the Amorites, which *were* on the side of Jordan westward, and all the kings of the Canaanites, which *were* by the sea, heard that the LORD had dried up the waters of Jordan from before the children of Israel, until we were passed over, that their heart melted, neither was there spirit in them any more, because of the children of Israel.  
+> **²** At that time the LORD said unto Joshua, Make thee sharp knives, and circumcise again the children of Israel the second time.  
+> **³** And Joshua made him sharp knives, and circumcised the children of Israel at the hill of the foreskins.  
+> **⁴** And this *is* the cause why Joshua did circumcise: All the people that came out of Egypt, *that were* males, *even* all the men of war, died in the wilderness by the way, after they came out of Egypt.  
+> **⁵** Now all the people that came out were circumcised: but all the people *that were* born in the wilderness by the way as they came forth out of Egypt, *them* they had not circumcised.  
+> **⁶** For the children of Israel walked forty years in the wilderness, till all the people *that were* men of war, which came out of Egypt, were consumed, because they obeyed not the voice of the LORD: unto whom the LORD sware that he would not shew them the land, which the LORD sware unto their fathers that he would give us, a land that floweth with milk and honey.  
+> **⁷** And their children, *whom* he raised up in their stead, them Joshua circumcised: for they were uncircumcised, because they had not circumcised them by the way.  
+> **⁸** And it came to pass, when they had done circumcising all the people, that they abode in their places in the camp, till they were whole.  
+> **⁹** And the LORD said unto Joshua, This day have I rolled away the reproach of Egypt from off you. Wherefore the name of the place is called Gilgal unto this day.  
 
 A vast show, no doubt, the numerous camp of Israel made in the plains of Jericho, where now they had pitched their tents. *Who can count the dust of Jacob?* That which had long been the *church in the wilderness has now come up from the wilderness, leaning upon her beloved, and looks forth as the morning, fair as the moon, clear as the sun, and terrible as an army with banners.* How terrible she was in the eyes of her enemies we are here told, Jos 5:1. How fair and clear she was made in the eyes of her friends, by the rolling away of the reproach of Egypt, we are told in the following verses.
 
@@ -34,9 +34,9 @@ II\. The opportunity which this gave to the Israelites to circumcise those among
 
 ## The Ceasing of the Manna. (b. c. 1451.)
 
-> <sup>10</sup> And the children of Israel encamped in Gilgal, and kept the passover on the fourteenth day of the month at even in the plains of Jericho.  
-> <sup>11</sup> And they did eat of the old corn of the land on the morrow after the passover, unleavened cakes, and parched *corn* in the selfsame day.  
-> <sup>12</sup> And the manna ceased on the morrow after they had eaten of the old corn of the land; neither had the children of Israel manna any more; but they did eat of the fruit of the land of Canaan that year.  
+> **¹⁰** And the children of Israel encamped in Gilgal, and kept the passover on the fourteenth day of the month at even in the plains of Jericho.  
+> **¹¹** And they did eat of the old corn of the land on the morrow after the passover, unleavened cakes, and parched *corn* in the selfsame day.  
+> **¹²** And the manna ceased on the morrow after they had eaten of the old corn of the land; neither had the children of Israel manna any more; but they did eat of the fruit of the land of Canaan that year.  
 
 We may well imagine that the people of Canaan were astonished, and that when they observed the motions of the enemy they could not but think them very strange. When soldiers take the field they are apt to think themselves excused from religious exercises (they have not time nor thought to attend to them), yet Joshua opens the campaign with one act of devotion after another. What was afterwards said to another Joshua might truly be said to this, *Hear now, O Joshua! thou and thy fellows that sit before thee are men wondered at* (Zec 3:8), and yet indeed he took the right method. That is likely to end well which begins with God. Here is,
 
@@ -50,9 +50,9 @@ II\. Provision made for their camp of the *corn of the land,* and the *ceasing o
 
 ## The Captain of the Lord's Host. (b. c. 1451.)
 
-> <sup>13</sup> And it came to pass, when Joshua was by Jericho, that he lifted up his eyes and looked, and, behold, there stood a man over against him with his sword drawn in his hand: and Joshua went unto him, and said unto him, *Art* thou for us, or for our adversaries?  
-> <sup>14</sup> And he said, Nay; but *as* captain of the host of the LORD am I now come. And Joshua fell on his face to the earth, and did worship, and said unto him, What saith my lord unto his servant?  
-> <sup>15</sup> And the captain of the LORD's host said unto Joshua, Loose thy shoe from off thy foot; for the place whereon thou standest *is* holy. And Joshua did so.  
+> **¹³** And it came to pass, when Joshua was by Jericho, that he lifted up his eyes and looked, and, behold, there stood a man over against him with his sword drawn in his hand: and Joshua went unto him, and said unto him, *Art* thou for us, or for our adversaries?  
+> **¹⁴** And he said, Nay; but *as* captain of the host of the LORD am I now come. And Joshua fell on his face to the earth, and did worship, and said unto him, What saith my lord unto his servant?  
+> **¹⁵** And the captain of the LORD's host said unto Joshua, Loose thy shoe from off thy foot; for the place whereon thou standest *is* holy. And Joshua did so.  
 
 We have hitherto found God often speaking to Joshua, but we read not till now of any appearance of God's glory to him; now that his difficulties increased his encouragements were increased in proportion. Observe,
 

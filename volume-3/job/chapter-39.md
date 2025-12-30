@@ -8,18 +8,18 @@ God proceeds here to show Job what little reason he had to charge him with unkin
 
 ## Man's Ignorance of the Animal Creation; Description of the Wild Goat, Hind, Wild Ass, and Unicorn. (b. c. 1520.)
 
-> <sup>1</sup> Knowest thou the time when the wild goats of the rock bring forth? *or* canst thou mark when the hinds do calve?  
-> <sup>2</sup> Canst thou number the months *that* they fulfil? or knowest thou the time when they bring forth?  
-> <sup>3</sup> They bow themselves, they bring forth their young ones, they cast out their sorrows.  
-> <sup>4</sup> Their young ones are in good liking, they grow up with corn; they go forth, and return not unto them.  
-> <sup>5</sup> Who hath sent out the wild ass free? or who hath loosed the bands of the wild ass?  
-> <sup>6</sup> Whose house I have made the wilderness, and the barren land his dwellings.  
-> <sup>7</sup> He scorneth the multitude of the city, neither regardeth he the crying of the driver.  
-> <sup>8</sup> The range of the mountains *is* his pasture, and he searcheth after every green thing.  
-> <sup>9</sup> Will the unicorn be willing to serve thee, or abide by thy crib?  
-> <sup>10</sup> Canst thou bind the unicorn with his band in the furrow? or will he harrow the valleys after thee?  
-> <sup>11</sup> Wilt thou trust him, because his strength *is* great? or wilt thou leave thy labour to him?  
-> <sup>12</sup> Wilt thou believe him, that he will bring home thy seed, and gather *it into* thy barn?  
+> **¹** Knowest thou the time when the wild goats of the rock bring forth? *or* canst thou mark when the hinds do calve?  
+> **²** Canst thou number the months *that* they fulfil? or knowest thou the time when they bring forth?  
+> **³** They bow themselves, they bring forth their young ones, they cast out their sorrows.  
+> **⁴** Their young ones are in good liking, they grow up with corn; they go forth, and return not unto them.  
+> **⁵** Who hath sent out the wild ass free? or who hath loosed the bands of the wild ass?  
+> **⁶** Whose house I have made the wilderness, and the barren land his dwellings.  
+> **⁷** He scorneth the multitude of the city, neither regardeth he the crying of the driver.  
+> **⁸** The range of the mountains *is* his pasture, and he searcheth after every green thing.  
+> **⁹** Will the unicorn be willing to serve thee, or abide by thy crib?  
+> **¹⁰** Canst thou bind the unicorn with his band in the furrow? or will he harrow the valleys after thee?  
+> **¹¹** Wilt thou trust him, because his strength *is* great? or wilt thou leave thy labour to him?  
+> **¹²** Wilt thou believe him, that he will bring home thy seed, and gather *it into* thy barn?  
 
 God here shows Job what little acquaintance he had with the untamed creatures that run wild in the deserts and live at large, but are the care of the divine Providence. As,
 
@@ -31,12 +31,12 @@ III\. The unicorn—*rhem,* a strong creature (Nu 23:22), a stately proud creatu
 
 ## Description of the Peacock and Ostrich. (b. c. 1520.)
 
-> <sup>13</sup> *Gavest thou* the goodly wings unto the peacocks? or wings and feathers unto the ostrich?  
-> <sup>14</sup> Which leaveth her eggs in the earth, and warmeth them in dust,  
-> <sup>15</sup> And forgetteth that the foot may crush them, or that the wild beast may break them.  
-> <sup>16</sup> She is hardened against her young ones, as though *they were* not hers: her labour is in vain without fear;  
-> <sup>17</sup> Because God hath deprived her of wisdom, neither hath he imparted to her understanding.  
-> <sup>18</sup> What time she lifteth up herself on high, she scorneth the horse and his rider.  
+> **¹³** *Gavest thou* the goodly wings unto the peacocks? or wings and feathers unto the ostrich?  
+> **¹⁴** Which leaveth her eggs in the earth, and warmeth them in dust,  
+> **¹⁵** And forgetteth that the foot may crush them, or that the wild beast may break them.  
+> **¹⁶** She is hardened against her young ones, as though *they were* not hers: her labour is in vain without fear;  
+> **¹⁷** Because God hath deprived her of wisdom, neither hath he imparted to her understanding.  
+> **¹⁸** What time she lifteth up herself on high, she scorneth the horse and his rider.  
 
 The ostrich is a wonderful animal, a very large bird, but it never flies. Some have called it *a winged camel.* God here gives an account of it, and observes,
 
@@ -50,23 +50,23 @@ II\. Something that is peculiar to itself,
 
 ## Description of the War-Horse. (b. c. 1520.)
 
-> <sup>19</sup> Hast thou given the horse strength? hast thou clothed his neck with thunder?  
-> <sup>20</sup> Canst thou make him afraid as a grasshopper? the glory of his nostrils *is* terrible.  
-> <sup>21</sup> He paweth in the valley, and rejoiceth in *his* strength: he goeth on to meet the armed men.  
-> <sup>22</sup> He mocketh at fear, and is not affrighted; neither turneth he back from the sword.  
-> <sup>23</sup> The quiver rattleth against him, the glittering spear and the shield.  
-> <sup>24</sup> He swalloweth the ground with fierceness and rage: neither believeth he that *it is* the sound of the trumpet.  
-> <sup>25</sup> He saith among the trumpets, Ha, ha; and he smelleth the battle afar off, the thunder of the captains, and the shouting.  
+> **¹⁹** Hast thou given the horse strength? hast thou clothed his neck with thunder?  
+> **²⁰** Canst thou make him afraid as a grasshopper? the glory of his nostrils *is* terrible.  
+> **²¹** He paweth in the valley, and rejoiceth in *his* strength: he goeth on to meet the armed men.  
+> **²²** He mocketh at fear, and is not affrighted; neither turneth he back from the sword.  
+> **²³** The quiver rattleth against him, the glittering spear and the shield.  
+> **²⁴** He swalloweth the ground with fierceness and rage: neither believeth he that *it is* the sound of the trumpet.  
+> **²⁵** He saith among the trumpets, Ha, ha; and he smelleth the battle afar off, the thunder of the captains, and the shouting.  
 
 God, having displayed his own power in those creatures that are strong and despise man, here shows it in one scarcely inferior to any of them in strength, and yet very tame and serviceable to man, and that is the horse, especially *the horse that is prepared against the day of battle* and is serviceable to man at a time when he has more than ordinary occasion for his service. It seems, there was, in Job's country, a noble generous breed of horses. Job, it is probable, kept many, though they are not mentioned among his possessions, cattle for use in husbandry being there valued more than those for state and war, which alone horses were then reserved for, and they were not then put to such mean services as with us they are commonly put to. Concerning the great horse, that stately beast, it is here observed, 1. That he has a great deal of strength and spirit (Job 39:19): *Hast thou given the horse strength?* He uses his strength for man, but has it not from him: God gave it to him, who is the fountain of all the powers of nature, and yet he himself *delights not in the strength of the horse* (Ps 147:10), but has told us that *a horse is a vain thing for safety,* Ps 33:17. For running, drawing, and carrying, no creature that is ordinarily in the service of man has so much strength as the horse has, nor is of so stout and bold a spirit, not to be made afraid as a grasshopper, but daring and forward to face danger. It is a mercy to man to have such a servant, which, though very strong, submits to the management of a child, and rebels not against his owner. But let not the strength of a horse be trusted to, Ho 14:3, Ps 20:7, Isa 31:1,3. 2. That his neck and nostrils look great. His neck is *clothed with thunder,* with a large and flowing mane, which makes him formidable and is an ornament to him. *The glory of his nostrils,* when he snorts, flings up his head, and throws foam about, *is terrible,* Job 39:20. Perhaps there might be at that time, and in that country, a more stately breed of horses than any we have now. 3. That he is very fierce and furious in battle, and charges with an undaunted courage, though he pushes on in imminent danger of his life. (1.) See how frolicsome he is (Job 39:21): *He paws in the valley,* scarcely knowing what ground he stands upon. He is proud of his strength, and he has much more reason to be so as using his strength in the service of man, and under his direction, than the wild ass that uses it in contempt of man, and in a revolt from him Job 39:8. (2.) See how forward he is to engage: *He goes on to meet the armed men,* animated, not by the goodness of the cause, or the prospect of honour, but only by *the sound of the trumpet, the thunder of the captains, and the shouting* of the soldiers, which are as bellows to the fire of his innate courage, and make him spring forward with the utmost eagerness, as if he cried, *Ha! ha!* Job 39:25. How wonderfully are the brute-creatures fitted for and inclined to the services for which they were designed. (3.) See how fearless he is, how he despises death and the most threatening dangers, (Job 39:22): *He mocks at fear,* and makes a jest of it; slash at him with a sword, rattle the quiver, brandish the spear, to drive him back, he will not retreat, but press forward, and even inspires courage into his rider. (4.) See how furious he is. He curvets and prances, and runs on with so much violence and heat against the enemy that one would think he even *swallowed the ground with fierceness and rage,* Job 39:24. High mettle is the praise of a horse rather than of a man, whom fierceness and rage ill become. This description of the war-horse will help to explain that character which is given of presumptuous sinners, Jer 8:6. *Every one turneth to his course, as the horse rusheth into the battle.* When a man's heart is fully set in him to do evil, and he is carried on in a wicked way by the violence of inordinate appetites and passions, there is no making him afraid of the wrath of God and the fatal consequences of sin. Let his own conscience set before him the curse of the law, the death that is the wages of sin, and all the terrors of the Almighty in battle-array; he mocks at this fear, and is not affrighted, neither turns he back from the flaming sword of the cherubim. Let ministers lift up their voice like a trumpet, to proclaim the wrath of God against him, *he believes not that it is the sound of the trumpet,* nor that God and his heralds are in earnest with him; but what will be in the end hereof it is easy to foresee.
 
 ## Description of the Hawk and Eagle. (b. c. 1520.)
 
-> <sup>26</sup> Doth the hawk fly by thy wisdom, *and* stretch her wings toward the south?  
-> <sup>27</sup> Doth the eagle mount up at thy command, and make her nest on high?  
-> <sup>28</sup> She dwelleth and abideth on the rock, upon the crag of the rock, and the strong place.  
-> <sup>29</sup> From thence she seeketh the prey, *and* her eyes behold afar off.  
-> <sup>30</sup> Her young ones also suck up blood: and where the slain *are,* there *is* she.  
+> **²⁶** Doth the hawk fly by thy wisdom, *and* stretch her wings toward the south?  
+> **²⁷** Doth the eagle mount up at thy command, and make her nest on high?  
+> **²⁸** She dwelleth and abideth on the rock, upon the crag of the rock, and the strong place.  
+> **²⁹** From thence she seeketh the prey, *and* her eyes behold afar off.  
+> **³⁰** Her young ones also suck up blood: and where the slain *are,* there *is* she.  
 
 The birds of the air are proofs of the wonderful power and providences of God, as well as the beasts of the earth; God here refers particularly to two stately ones:—1. The *hawk,* a noble bird of great strength and sagacity, and yet a bird of prey, Job 39:26. This bird is here taken notice of for her flight, which is swift and strong, and especially for the course she steers *towards the south,* whither she follows the sun in winter, out of the colder countries in the north, especially when she is to cast her plumes and renew them. This is her wisdom, and it was God that gave her this wisdom, not man. Perhaps the extraordinary wisdom of the hawk's flight after her prey was not used then for men's diversion and recreation, as it has been since. It is a pity that the reclaimed hawk, which is taught to fly at man's command and to make him sport, should at any time be abused to the dishonour of God, since it is from God that she receives that wisdom which makes her flight entertaining and serviceable. 2. The *eagle,* a royal bird, and yet a bird of prey too, the permission of which, nay, the giving of power to which, may help to reconcile us to the prosperity of oppressors among men. The eagle is here taken notice of, (1.) For the height of her flight. No bird soars so high, has so strong a wind, nor can so well bear the light of the sun. Now, "*Doth she mount at thy command?* Job 39:27. Is it by any strength she has from thee? or dost thou direct her flight? No; it is by the natural power and instinct God has given her that she will soar out of thy sight, much more out of thy call." (2.) For the strength of her nest. Her house is her castle and strong-hold; she makes it *on high* and *on the rock, the crag of the rock* (Job 39:28), which sets her and her young out of the reach of danger. Secure sinners think themselves as safe in their sins as the eagle in her nest on high, in the *clefts of the rock; but I will bring thee down thence, saith the Lord,* Jer 49:16. The higher bad men sit above the resentments of the earth the nearer they ought to think themselves to the vengeance of Heaven. (3.) For her quicksightedness (Job 39:29): *Her eyes behold afar off,* not upwards, but downwards, in quest of her prey. In this she is an emblem of a hypocrite, who, while, in the profession of religion, he seems to rise towards heaven, keeps his eye and heart upon the prey on earth, some temporal advantage, some widow's house or other that he hopes to devour, under pretence of devotion. (4.) For the way she has of maintaining herself and her young. She preys upon living animals, which she seizes and tears to pieces, and thence carries to her young ones, which are taught to *suck up blood;* they do it by instinct, and know no better; but for men that have reason and conscience to thirst after blood is what could scarcely be believed if there had not been in every age wretched instances of it. She also preys upon the dead bodies of men: *Where the slain are, there is she,* These birds of prey (in another sense than the horse, Job 39:25) *smell the battle afar off.* Therefore, when a great slaughter is to be made among the enemies of the church, the fowls are invited to *the supper of the great God, to eat the flesh of kings and captains,* Re 19:17,18. Our Saviour refers to this instinct of the eagle, Mt 24:28. *Wheresoever the carcase is, there will the eagles be gathered together.* Every creature will make towards that which is its proper food; for he that provides the creatures their food has implanted in them that inclination. These and many such instances of natural power and sagacity in the inferior creatures, which we cannot account for, oblige us to confess our own weakness and ignorance and to give glory to God as the fountain of all being, power, wisdom, and perfection.
 

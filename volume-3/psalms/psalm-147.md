@@ -8,17 +8,17 @@ This is another psalm of praise. Some think it was penned after the return of th
 
 ## A Call to Praise God; Reasons for Praise.
 
-> <sup>1</sup> Praise ye the LORD: for *it is* good to sing praises unto our God; for *it is* pleasant; *and* praise is comely.  
-> <sup>2</sup> The LORD doth build up Jerusalem: he gathereth together the outcasts of Israel.  
-> <sup>3</sup> He healeth the broken in heart, and bindeth up their wounds.  
-> <sup>4</sup> He telleth the number of the stars; he calleth them all by *their* names.  
-> <sup>5</sup> Great *is* our Lord, and of great power: his understanding *is* infinite.  
-> <sup>6</sup> The LORD lifteth up the meek: he casteth the wicked down to the ground.  
-> <sup>7</sup> Sing unto the LORD with thanksgiving; sing praise upon the harp unto our God:  
-> <sup>8</sup> Who covereth the heaven with clouds, who prepareth rain for the earth, who maketh grass to grow upon the mountains.  
-> <sup>9</sup> He giveth to the beast his food, *and* to the young ravens which cry.  
-> <sup>10</sup> He delighteth not in the strength of the horse: he taketh not pleasure in the legs of a man.  
-> <sup>11</sup> The LORD taketh pleasure in them that fear him, in those that hope in his mercy.  
+> **¹** Praise ye the LORD: for *it is* good to sing praises unto our God; for *it is* pleasant; *and* praise is comely.  
+> **²** The LORD doth build up Jerusalem: he gathereth together the outcasts of Israel.  
+> **³** He healeth the broken in heart, and bindeth up their wounds.  
+> **⁴** He telleth the number of the stars; he calleth them all by *their* names.  
+> **⁵** Great *is* our Lord, and of great power: his understanding *is* infinite.  
+> **⁶** The LORD lifteth up the meek: he casteth the wicked down to the ground.  
+> **⁷** Sing unto the LORD with thanksgiving; sing praise upon the harp unto our God:  
+> **⁸** Who covereth the heaven with clouds, who prepareth rain for the earth, who maketh grass to grow upon the mountains.  
+> **⁹** He giveth to the beast his food, *and* to the young ravens which cry.  
+> **¹⁰** He delighteth not in the strength of the horse: he taketh not pleasure in the legs of a man.  
+> **¹¹** The LORD taketh pleasure in them that fear him, in those that hope in his mercy.  
 
 Here, I. The duty of praise is recommended to us. It is not without reason that we are thus called to it again and again: *Praise you the Lord* (Ps 147:1), and again (Ps 147:7), *Sing unto the Lord with thanksgiving, sing praise upon the harp to our God* (let all our praises be directed to him and centre in him), *for it is good* to do so; it is our duty, and therefore good in itself; it is our interest, and therefore good for us. It is acceptable to our Creator and it answers the end of our creation. The law for it is holy, just, and good; the practice of it will turn to a good account. It is good, for 1. It is pleasant. Holy joy or delight are required as the principle of it, and that is pleasant to us as men; giving glory to God is the design and business of it, and that is pleasant to us as saints that are devoted to his honour. Praising God is work that is its own wages; it is heaven upon earth; it is what we should be in as in our element. 2. It is comely; it is that which becomes us as reasonable creatures, much more as people in covenant with God. In giving honour to God we really do ourselves a great deal of honour.
 
@@ -38,15 +38,15 @@ II\. God is recommended to us as the proper object of our most exalted and enlar
 
 ## Jerusalem and Zion Called to Praise to God; God's Favour to Israel.
 
-> <sup>12</sup> Praise the LORD, O Jerusalem; praise thy God, O Zion.  
-> <sup>13</sup> For he hath strengthened the bars of thy gates; he hath blessed thy children within thee.  
-> <sup>14</sup> He maketh peace *in* thy borders, *and* filleth thee with the finest of the wheat.  
-> <sup>15</sup> He sendeth forth his commandment *upon* earth: his word runneth very swiftly.  
-> <sup>16</sup> He giveth snow like wool: he scattereth the hoarfrost like ashes.  
-> <sup>17</sup> He casteth forth his ice like morsels: who can stand before his cold?  
-> <sup>18</sup> He sendeth out his word, and melteth them: he causeth his wind to blow, *and* the waters flow.  
-> <sup>19</sup> He showeth his word unto Jacob, his statutes and his judgments unto Israel.  
-> <sup>20</sup> He hath not dealt so with any nation: and *as for his* judgments, they have not known them. Praise ye the LORD.  
+> **¹²** Praise the LORD, O Jerusalem; praise thy God, O Zion.  
+> **¹³** For he hath strengthened the bars of thy gates; he hath blessed thy children within thee.  
+> **¹⁴** He maketh peace *in* thy borders, *and* filleth thee with the finest of the wheat.  
+> **¹⁵** He sendeth forth his commandment *upon* earth: his word runneth very swiftly.  
+> **¹⁶** He giveth snow like wool: he scattereth the hoarfrost like ashes.  
+> **¹⁷** He casteth forth his ice like morsels: who can stand before his cold?  
+> **¹⁸** He sendeth out his word, and melteth them: he causeth his wind to blow, *and* the waters flow.  
+> **¹⁹** He showeth his word unto Jacob, his statutes and his judgments unto Israel.  
+> **²⁰** He hath not dealt so with any nation: and *as for his* judgments, they have not known them. Praise ye the LORD.  
 
 Jerusalem, and Zion, the holy city, the holy hill, are here called upon to *praise God,* Ps 147:12. For where should praise be offered up to God but where his altar is? Where may we expect that glory should be given to him but in the beauty of holiness? Let the inhabitants of Jerusalem praise the Lord in their own houses; let the priests and Levites, who attend in Zion, the city of their solemnities, in a special manner praise the Lord. They have more cause to do it than others, and they lie under greater obligations to do it than others; for it is their business, it is their profession. "*Praise thy God, O Zion!* he is thine, and therefore thou art bound to praise him; his being thine includes all happiness, so that thou canst never want matter for praise." Jerusalem and Zion must praise God,
 

@@ -8,9 +8,9 @@ Solomon, in this chapter, for a further proof of the vanity of this world, gives
 
 ## Mysteries in Providence.
 
-> <sup>1</sup> For all this I considered in my heart even to declare all this, that the righteous, and the wise, and their works, *are* in the hand of God: no man knoweth either love or hatred *by* all *that is* before them.  
-> <sup>2</sup> All *things come* alike to all: *there is* one event to the righteous, and to the wicked; to the good and to the clean, and to the unclean; to him that sacrificeth, and to him that sacrificeth not: as *is* the good, so *is* the sinner; *and* he that sweareth, as *he* that feareth an oath.  
-> <sup>3</sup> This *is* an evil among all *things* that are done under the sun, that *there is* one event unto all: yea, also the heart of the sons of men is full of evil, and madness *is* in their heart while they live, and after that *they go* to the dead.  
+> **¹** For all this I considered in my heart even to declare all this, that the righteous, and the wise, and their works, *are* in the hand of God: no man knoweth either love or hatred *by* all *that is* before them.  
+> **²** All *things come* alike to all: *there is* one event to the righteous, and to the wicked; to the good and to the clean, and to the unclean; to him that sacrificeth, and to him that sacrificeth not: as *is* the good, so *is* the sinner; *and* he that sweareth, as *he* that feareth an oath.  
+> **³** This *is* an evil among all *things* that are done under the sun, that *there is* one event unto all: yea, also the heart of the sons of men is full of evil, and madness *is* in their heart while they live, and after that *they go* to the dead.  
 
 It has been observed concerning those who have pretended to search for the philosophers' stone that, though they could never find what they sought for, yet in the search they have hit upon many other useful discoveries and experiments. Thus Solomon, when, in the close of the foregoing chapter, he *applied his heart to know the work of God,* and took a great deal of pains to search into it, though he despaired of finding it out, yet he found out that which abundantly recompensed him for the search, and gave him some satisfaction, which he here gives us; *for* therefore *he considered all this in his heart,* and weighed it deliberately, that he might *declare* it for the good of others. Note, What we are *to declare* we should first *consider;* think twice before we speak once; and what we have *considered* we should then *declare. I believed, therefore have I spoken.*
 
@@ -32,13 +32,13 @@ V\. For the further clearing of this great difficulty, as he began this discours
 
 ## The Consequences of Death; The Proper Enjoyment of Life.
 
-> <sup>4</sup> For to him that is joined to all the living there is hope: for a living dog is better than a dead lion.  
-> <sup>5</sup> For the living know that they shall die: but the dead know not any thing, neither have they any more a reward; for the memory of them is forgotten.  
-> <sup>6</sup> Also their love, and their hatred, and their envy, is now perished; neither have they any more a portion for ever in any *thing* that is done under the sun.  
-> <sup>7</sup> Go thy way, eat thy bread with joy, and drink thy wine with a merry heart; for God now accepteth thy works.  
-> <sup>8</sup> Let thy garments be always white; and let thy head lack no ointment.  
-> <sup>9</sup> Live joyfully with the wife whom thou lovest all the days of the life of thy vanity, which he hath given thee under the sun, all the days of thy vanity: for that *is* thy portion in *this* life, and in thy labour which thou takest under the sun.  
-> <sup>10</sup> Whatsoever thy hand findeth to do, do *it* with thy might; for *there is* no work, nor device, nor knowledge, nor wisdom, in the grave, whither thou goest.  
+> **⁴** For to him that is joined to all the living there is hope: for a living dog is better than a dead lion.  
+> **⁵** For the living know that they shall die: but the dead know not any thing, neither have they any more a reward; for the memory of them is forgotten.  
+> **⁶** Also their love, and their hatred, and their envy, is now perished; neither have they any more a portion for ever in any *thing* that is done under the sun.  
+> **⁷** Go thy way, eat thy bread with joy, and drink thy wine with a merry heart; for God now accepteth thy works.  
+> **⁸** Let thy garments be always white; and let thy head lack no ointment.  
+> **⁹** Live joyfully with the wife whom thou lovest all the days of the life of thy vanity, which he hath given thee under the sun, all the days of thy vanity: for that *is* thy portion in *this* life, and in thy labour which thou takest under the sun.  
+> **¹⁰** Whatsoever thy hand findeth to do, do *it* with thy might; for *there is* no work, nor device, nor knowledge, nor wisdom, in the grave, whither thou goest.  
 
 Solomon, in a fret, had *praised the dead more than the living* (Ec 4:2); but here, considering the advantages of life to prepare for death and make sure the hope of a better life, he seems to be of another mind.
 
@@ -58,8 +58,8 @@ II\. Hence he infers that it is our wisdom to make the best use of life that we 
 
 ## The Disappointment of Hopes.
 
-> <sup>11</sup> I returned, and saw under the sun, that the race *is* not to the swift, nor the battle to the strong, neither yet bread to the wise, nor yet riches to men of understanding, nor yet favour to men of skill; but time and chance happeneth to them all.  
-> <sup>12</sup> For man also knoweth not his time: as the fishes that are taken in an evil net, and as the birds that are caught in the snare; so *are* the sons of men snared in an evil time, when it falleth suddenly upon them.  
+> **¹¹** I returned, and saw under the sun, that the race *is* not to the swift, nor the battle to the strong, neither yet bread to the wise, nor yet riches to men of understanding, nor yet favour to men of skill; but time and chance happeneth to them all.  
+> **¹²** For man also knoweth not his time: as the fishes that are taken in an evil net, and as the birds that are caught in the snare; so *are* the sons of men snared in an evil time, when it falleth suddenly upon them.  
 
 The preacher here, for a further proof of the vanity of the world, and to convince us that *all our works are in the hand of God,* and not in our own hand, shows the uncertainty and contingency of future events, and how often they contradict the prospects we have of them. He had exhorted us (Ec 9:10) to do what we have to do *with all our might;* but here he reminds us that, when we have done all, we must leave the issue with God, and not be confident of the success.
 
@@ -73,12 +73,12 @@ II\. We are often surprised with the evils we were in little fear of (Ec 9:12): 
 
 ## The Advantages of Wisdom.
 
-> <sup>13</sup> This wisdom have I seen also under the sun, and it *seemed* great unto me:  
-> <sup>14</sup> *There was* a little city, and few men within it; and there came a great king against it, and besieged it, and built great bulwarks against it:  
-> <sup>15</sup> Now there was found in it a poor wise man, and he by his wisdom delivered the city; yet no man remembered that same poor man.  
-> <sup>16</sup> Then said I, Wisdom *is* better than strength: nevertheless the poor man's wisdom *is* despised, and his words are not heard.  
-> <sup>17</sup> The words of wise *men are* heard in quiet more than the cry of him that ruleth among fools.  
-> <sup>18</sup> Wisdom *is* better than weapons of war: but one sinner destroyeth much good.  
+> **¹³** This wisdom have I seen also under the sun, and it *seemed* great unto me:  
+> **¹⁴** *There was* a little city, and few men within it; and there came a great king against it, and besieged it, and built great bulwarks against it:  
+> **¹⁵** Now there was found in it a poor wise man, and he by his wisdom delivered the city; yet no man remembered that same poor man.  
+> **¹⁶** Then said I, Wisdom *is* better than strength: nevertheless the poor man's wisdom *is* despised, and his words are not heard.  
+> **¹⁷** The words of wise *men are* heard in quiet more than the cry of him that ruleth among fools.  
+> **¹⁸** Wisdom *is* better than weapons of war: but one sinner destroyeth much good.  
 
 Solomon still recommends wisdom to us as necessary to the preserving of our peace and the perfecting of our business, notwithstanding the vanities and crosses which human affairs are subject to. He had said (Ec 9:11), *Bread is not always to the wise;* yet he would not therefore be thought either to disparage, or to discourage, wisdom, no, he still retains his principle, that *wisdom excels folly as much as light excels darkness* (Ec 2:13), and we ought to love and embrace it, and be governed by it, for the sake of its own intrinsic worth, and the capacity it gives us of being serviceable to others, though we ourselves should not get wealth and preferment by it. This wisdom, that is, this which he here describes, wisdom which enables a man to serve his country out of pure affection to its interests, when he himself gains no advantage by it, no, not so much as thanks for his pains, or the reputation of it, this is the wisdom which, Solomon says, *seemed great unto him,* Ec 9:13. A public spirit, in a private sphere, is wisdom which those who understand things that differ cannot but look upon as very magnificent.
 

@@ -8,53 +8,53 @@ It had been often said that the tribe of Levi should have "no inheritance with t
 
 ## The Cities of the Levites. (b. c. 1444.)
 
-> <sup>1</sup> Then came near the heads of the fathers of the Levites unto Eleazar the priest, and unto Joshua the son of Nun, and unto the heads of the fathers of the tribes of the children of Israel;  
-> <sup>2</sup> And they spake unto them at Shiloh in the land of Canaan, saying, The LORD commanded by the hand of Moses to give us cities to dwell in, with the suburbs thereof for our cattle.  
-> <sup>3</sup> And the children of Israel gave unto the Levites out of their inheritance, at the commandment of the LORD, these cities and their suburbs.  
-> <sup>4</sup> And the lot came out for the families of the Kohathites: and the children of Aaron the priest, *which were* of the Levites, had by lot out of the tribe of Judah, and out of the tribe of Simeon, and out of the tribe of Benjamin, thirteen cities.  
-> <sup>5</sup> And the rest of the children of Kohath *had* by lot out of the families of the tribe of Ephraim, and out of the tribe of Dan, and out of the half tribe of Manasseh, ten cities.  
-> <sup>6</sup> And the children of Gershon *had* by lot out of the families of the tribe of Issachar, and out of the tribe of Asher, and out of the tribe of Naphtali, and out of the half tribe of Manasseh in Bashan, thirteen cities.  
-> <sup>7</sup> The children of Merari by their families *had* out of the tribe of Reuben, and out of the tribe of Gad, and out of the tribe of Zebulun, twelve cities.  
-> <sup>8</sup> And the children of Israel gave by lot unto the Levites these cities with their suburbs, as the LORD commanded by the hand of Moses.  
+> **¹** Then came near the heads of the fathers of the Levites unto Eleazar the priest, and unto Joshua the son of Nun, and unto the heads of the fathers of the tribes of the children of Israel;  
+> **²** And they spake unto them at Shiloh in the land of Canaan, saying, The LORD commanded by the hand of Moses to give us cities to dwell in, with the suburbs thereof for our cattle.  
+> **³** And the children of Israel gave unto the Levites out of their inheritance, at the commandment of the LORD, these cities and their suburbs.  
+> **⁴** And the lot came out for the families of the Kohathites: and the children of Aaron the priest, *which were* of the Levites, had by lot out of the tribe of Judah, and out of the tribe of Simeon, and out of the tribe of Benjamin, thirteen cities.  
+> **⁵** And the rest of the children of Kohath *had* by lot out of the families of the tribe of Ephraim, and out of the tribe of Dan, and out of the half tribe of Manasseh, ten cities.  
+> **⁶** And the children of Gershon *had* by lot out of the families of the tribe of Issachar, and out of the tribe of Asher, and out of the tribe of Naphtali, and out of the half tribe of Manasseh in Bashan, thirteen cities.  
+> **⁷** The children of Merari by their families *had* out of the tribe of Reuben, and out of the tribe of Gad, and out of the tribe of Zebulun, twelve cities.  
+> **⁸** And the children of Israel gave by lot unto the Levites these cities with their suburbs, as the LORD commanded by the hand of Moses.  
 
 Here is, I. The Levites' petition presented to this general convention of the states, now sitting at Shiloh, Jos 21:1,2. Observe, 1. They had not their lot assigned them till they made their claim. There is an inheritance provided for all the saints, that royal priesthood, but then they must petition for it. *Ask, and it shall be given you.* Joshua had quickened the rest of the tribes who were slack to put in their claims, but the Levites, it may be supposed, knew their duty and interest better than the rest, and were therefore forward in this matter, when it came to their turn, without being called upon. They build their claim upon a very good foundation, not their own merits nor services, but the divine precept: "*The Lord commanded by the hand of Moses to give us cities,* commanded you to grant them, which implied a command to us to ask them." Note, The maintenance of ministers is not an arbitrary thing, left purely to the good-will of the people, who may let them starve if they please; no, as the God of Israel commanded that the Levites should be well provided for, so has the Lord Jesus, the King of the Christian church, ordained, and a perpetual ordinance it is that *those who preach the gospel should live of the gospel* (1Co 9:14), and should live comfortably. 2. They did not make their claim till all the rest of the tribes were provided for, and then they did it immediately. There was some reason for it; every tribe must first know their own, else they would not know what they gave the Levites, and so it could not be such a reasonable service as it ought to be. But it is also an instance of their humility, modesty, and patience (and Levites should be examples of these and other virtues), that they were willing to be served last, and they fared never the worse for it. Let not God's ministers complain if at any time they find themselves postponed in men's thoughts and cares, but let them make sure of the favour of God and the honour that comes from him, and then they may well enough afford to bear the slights and neglects of men.
 
 II\. The Levites' petition granted immediately, without any dispute, the princes of Israel being perhaps ashamed that they needed to be called upon in this matter, and that the motion had not been made among themselves for the settling of the Levites. 1. The children of Israel are said to give the cities for the Levites. God had appointed how many they should be in all, forty-eight. It is probable that Joshua and the princes, upon consideration of the extent and value of the lot of each tribe as it was laid before them, had appointed how many cities should be taken out of each; and then the fathers of the several tribes themselves agreed which they should be, and therefore are said to give them, as an offering, to the Lord; so God had appointed. Nu 35:8, *Every one shall give of his cities to the Levites.* Here God tried their generosity, and it was found to praise and honour, for it appears by the following catalogue that the cities they gave to the Levites were generally some of the best and most considerable in each tribe. And it is probable that they had an eye to the situation of them, taking care they should be so dispersed as that no part of the country should be too far distant from a Levites' city. 2. They gave them *at the commandment of the Lord,* that is, with an eye to the command and in obedience to it, which was it that sanctified the grant. They gave the number that God commanded, and it was well this matter was settled that the Levites might not ask more nor the Israelites offer less. They gave them also with their suburbs, or glebe-lands, belonging to them, so many cubits by measure from the walls of the city, as God had commanded (Nu 35:4,5), and did not go about to cut them short. 3. When the forty-eight cities were pitched upon, they were divided into four lots, as they lay next together, and then by lot were determined to the four several families of the tribe of Levi. When the Israelites had surrendered the cities into the hand of God, he would himself have the distributing of them among his servants. (1.) The family of Aaron, who were the only priests, had for their share the thirteen cities that were given by the tribes of Judah, Simeon, and Benjamin, Jos 21:4. God in wisdom ordered it thus, that though Jerusalem itself was not one of their cities, it being as yet in the possession of the Jebusites (and those generous tribes would not mock the Levites, who had another warfare to mind, with a city that must be recovered by the sword before it could be enjoyed), yet the cities that fell to their lot were those which lay next to Jerusalem, because that was to be, in process of time, the holy city, where their business would chiefly lie. (2.) The Kohathite-Levites (among whom were the posterity of Moses, though never distinguished from them) had the cities that lay in the lot of Dan, which lay next to Judah, and in that of Ephraim, and the half-tribe of Manasseh, which lay next to Benjamin. So those who descended from Aaron's father joined nearest to Aaron's sons. (3.) Gershon was the eldest son of Levi, and therefore, though the younger house of the Kohathites was preferred before his, yet his children had the precedency of the other family of Merari, Jos 21:6. (4.) The Merarites, the youngest house, had their lot last, and it lay furthest off, Jos 21:7. The rest of the sons of Jacob had a lot for every tribe only, but Levi, God's tribe, had a lot for each of its families; for there is a particular providence directing and attending the removals and settlements of ministers, and appointing where those shall fix who are to be the lights of the world.
 
-> <sup>9</sup> And they gave out of the tribe of the children of Judah, and out of the tribe of the children of Simeon, these cities which are *here* mentioned by name,  
-> <sup>10</sup> Which the children of Aaron, *being* of the families of the Kohathites, *who were* of the children of Levi, had: for theirs was the first lot.  
-> <sup>11</sup> And they gave them the city of Arba the father of Anak, which *city is* Hebron, in the hill *country* of Judah, with the suburbs thereof round about it.  
-> <sup>12</sup> But the fields of the city, and the villages thereof, gave they to Caleb the son of Jephunneh for his possession.  
-> <sup>13</sup> Thus they gave to the children of Aaron the priest Hebron with her suburbs, *to be* a city of refuge for the slayer; and Libnah with her suburbs,  
-> <sup>14</sup> And Jattir with her suburbs, and Eshtemoa with her suburbs,  
-> <sup>15</sup> And Holon with her suburbs, and Debir with her suburbs,  
-> <sup>16</sup> And Ain with her suburbs, and Juttah with her suburbs, *and* Beth-shemesh with her suburbs; nine cities out of those two tribes.  
-> <sup>17</sup> And out of the tribe of Benjamin, Gibeon with her suburbs, Geba with her suburbs,  
-> <sup>18</sup> Anathoth with her suburbs, and Almon with her suburbs; four cities.  
-> <sup>19</sup> All the cities of the children of Aaron, the priests, *were* thirteen cities with their suburbs.  
-> <sup>20</sup> And the families of the children of Kohath, the Levites which remained of the children of Kohath, even they had the cities of their lot out of the tribe of Ephraim.  
-> <sup>21</sup> For they gave them Shechem with her suburbs in mount Ephraim, *to be* a city of refuge for the slayer; and Gezer with her suburbs,  
-> <sup>22</sup> And Kibzaim with her suburbs, and Beth-horon with her suburbs; four cities.  
-> <sup>23</sup> And out of the tribe of Dan, Eltekeh with her suburbs, Gibbethon with her suburbs,  
-> <sup>24</sup> Aijalon with her suburbs, Gath-rimmon with her suburbs; four cities.  
-> <sup>25</sup> And out of the half tribe of Manasseh, Tanach with her suburbs, and Gath-rimmon with her suburbs; two cities.  
-> <sup>26</sup> All the cities *were* ten with their suburbs for the families of the children of Kohath that remained.  
-> <sup>27</sup> And unto the children of Gershon, of the families of the Levites, out of the *other* half tribe of Manasseh *they gave* Golan in Bashan with her suburbs, *to be* a city of refuge for the slayer; and Beesh-terah with her suburbs; two cities.  
-> <sup>28</sup> And out of the tribe of Issachar, Kishon with her suburbs, Dabareh with her suburbs,  
-> <sup>29</sup> Jarmuth with her suburbs, En-gannim with her suburbs; four cities.  
-> <sup>30</sup> And out of the tribe of Asher, Mishal with her suburbs, Abdon with her suburbs,  
-> <sup>31</sup> Helkath with her suburbs, and Rehob with her suburbs; four cities.  
-> <sup>32</sup> And out of the tribe of Naphtali, Kedesh in Galilee with her suburbs, *to be* a city of refuge for the slayer; and Hammoth-dor with her suburbs, and Kartan with her suburbs; three cities.  
-> <sup>33</sup> All the cities of the Gershonites according to their families *were* thirteen cities with their suburbs.  
-> <sup>34</sup> And unto the families of the children of Merari, the rest of the Levites, out of the tribe of Zebulun, Jokneam with her suburbs, and Kartah with her suburbs,  
-> <sup>35</sup> Dimnah with her suburbs, Nahalal with her suburbs; four cities.  
-> <sup>36</sup> And out of the tribe of Reuben, Bezer with her suburbs, and Jahazah with her suburbs,  
-> <sup>37</sup> Kedemoth with her suburbs, and Mephaath with her suburbs; four cities.  
-> <sup>38</sup> And out of the tribe of Gad, Ramoth in Gilead with her suburbs, *to be* a city of refuge for the slayer; and Mahanaim with her suburbs,  
-> <sup>39</sup> Heshbon with her suburbs, Jazer with her suburbs; four cities in all.  
-> <sup>40</sup> So all the cities for the children of Merari by their families, which were remaining of the families of the Levites, were *by* their lot twelve cities.  
-> <sup>41</sup> All the cities of the Levites within the possession of the children of Israel *were* forty and eight cities with their suburbs.  
-> <sup>42</sup> These cities were every one with their suburbs round about them: thus *were* all these cities.  
+> **⁹** And they gave out of the tribe of the children of Judah, and out of the tribe of the children of Simeon, these cities which are *here* mentioned by name,  
+> **¹⁰** Which the children of Aaron, *being* of the families of the Kohathites, *who were* of the children of Levi, had: for theirs was the first lot.  
+> **¹¹** And they gave them the city of Arba the father of Anak, which *city is* Hebron, in the hill *country* of Judah, with the suburbs thereof round about it.  
+> **¹²** But the fields of the city, and the villages thereof, gave they to Caleb the son of Jephunneh for his possession.  
+> **¹³** Thus they gave to the children of Aaron the priest Hebron with her suburbs, *to be* a city of refuge for the slayer; and Libnah with her suburbs,  
+> **¹⁴** And Jattir with her suburbs, and Eshtemoa with her suburbs,  
+> **¹⁵** And Holon with her suburbs, and Debir with her suburbs,  
+> **¹⁶** And Ain with her suburbs, and Juttah with her suburbs, *and* Beth-shemesh with her suburbs; nine cities out of those two tribes.  
+> **¹⁷** And out of the tribe of Benjamin, Gibeon with her suburbs, Geba with her suburbs,  
+> **¹⁸** Anathoth with her suburbs, and Almon with her suburbs; four cities.  
+> **¹⁹** All the cities of the children of Aaron, the priests, *were* thirteen cities with their suburbs.  
+> **²⁰** And the families of the children of Kohath, the Levites which remained of the children of Kohath, even they had the cities of their lot out of the tribe of Ephraim.  
+> **²¹** For they gave them Shechem with her suburbs in mount Ephraim, *to be* a city of refuge for the slayer; and Gezer with her suburbs,  
+> **²²** And Kibzaim with her suburbs, and Beth-horon with her suburbs; four cities.  
+> **²³** And out of the tribe of Dan, Eltekeh with her suburbs, Gibbethon with her suburbs,  
+> **²⁴** Aijalon with her suburbs, Gath-rimmon with her suburbs; four cities.  
+> **²⁵** And out of the half tribe of Manasseh, Tanach with her suburbs, and Gath-rimmon with her suburbs; two cities.  
+> **²⁶** All the cities *were* ten with their suburbs for the families of the children of Kohath that remained.  
+> **²⁷** And unto the children of Gershon, of the families of the Levites, out of the *other* half tribe of Manasseh *they gave* Golan in Bashan with her suburbs, *to be* a city of refuge for the slayer; and Beesh-terah with her suburbs; two cities.  
+> **²⁸** And out of the tribe of Issachar, Kishon with her suburbs, Dabareh with her suburbs,  
+> **²⁹** Jarmuth with her suburbs, En-gannim with her suburbs; four cities.  
+> **³⁰** And out of the tribe of Asher, Mishal with her suburbs, Abdon with her suburbs,  
+> **³¹** Helkath with her suburbs, and Rehob with her suburbs; four cities.  
+> **³²** And out of the tribe of Naphtali, Kedesh in Galilee with her suburbs, *to be* a city of refuge for the slayer; and Hammoth-dor with her suburbs, and Kartan with her suburbs; three cities.  
+> **³³** All the cities of the Gershonites according to their families *were* thirteen cities with their suburbs.  
+> **³⁴** And unto the families of the children of Merari, the rest of the Levites, out of the tribe of Zebulun, Jokneam with her suburbs, and Kartah with her suburbs,  
+> **³⁵** Dimnah with her suburbs, Nahalal with her suburbs; four cities.  
+> **³⁶** And out of the tribe of Reuben, Bezer with her suburbs, and Jahazah with her suburbs,  
+> **³⁷** Kedemoth with her suburbs, and Mephaath with her suburbs; four cities.  
+> **³⁸** And out of the tribe of Gad, Ramoth in Gilead with her suburbs, *to be* a city of refuge for the slayer; and Mahanaim with her suburbs,  
+> **³⁹** Heshbon with her suburbs, Jazer with her suburbs; four cities in all.  
+> **⁴⁰** So all the cities for the children of Merari by their families, which were remaining of the families of the Levites, were *by* their lot twelve cities.  
+> **⁴¹** All the cities of the Levites within the possession of the children of Israel *were* forty and eight cities with their suburbs.  
+> **⁴²** These cities were every one with their suburbs round about them: thus *were* all these cities.  
 
 We have here a particular account of the cities which were given to the children of Levi out of the several tribes, not only to be occupied and inhabited by them, as tenants to the several tribes in which they lay—no, their interest in them was not dependent and precarious, but to be owned and possessed by them as lords and proprietors, and as having the same title to them that the rest of the tribes had to their cities or lands, as appears by the law which preserved the house in the Levites' cities from being alienated any longer than till the year of jubilee, Le 25:32,33. Yet it is probable that the Levites having only the cities and suburbs, while the land about pertained to the tribes in which they lay, those of that tribe, for the convenience of occupying that land, might commonly rent houses of the Levites, as they could spare them in their cities, and so live among them as their tenants. Several things may be observed in this account, besides what was observed in the law concerning it, Nu 35:1-34.
 
@@ -70,9 +70,9 @@ V\. That the number of them in all was more than of most of the tribes, except J
 
 Upon the whole, it appears that effectual care was taken that the Levites should live both comfortably and usefully: and those, whether ministers or others, for whom Providence has done well, must look upon themselves as obliged thereby to do good, and, according as their capacity and opportunity are, to serve their generation.
 
-> <sup>43</sup> And the LORD gave unto Israel all the land which he sware to give unto their fathers; and they possessed it, and dwelt therein.  
-> <sup>44</sup> And the LORD gave them rest round about, according to all that he sware unto their fathers: and there stood not a man of all their enemies before them; the LORD delivered all their enemies into their hand.  
-> <sup>45</sup> There failed not ought of any good thing which the LORD had spoken unto the house of Israel; all came to pass.  
+> **⁴³** And the LORD gave unto Israel all the land which he sware to give unto their fathers; and they possessed it, and dwelt therein.  
+> **⁴⁴** And the LORD gave them rest round about, according to all that he sware unto their fathers: and there stood not a man of all their enemies before them; the LORD delivered all their enemies into their hand.  
+> **⁴⁵** There failed not ought of any good thing which the LORD had spoken unto the house of Israel; all came to pass.  
 
 We have here the conclusion of this whole matter, the foregoing history summed up, and, to make it appear the more bright, compared with the promise of which it was the full accomplishment. God's word and his works mutually illustrate each other. The performance makes the promise appear very true and the promise makes the performance appear very kind.
 

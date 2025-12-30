@@ -8,11 +8,11 @@ Many humbling confounding questions God had put to Job, in the foregoing chapter
 
 ## Job's Humble Submission. (b. c. 1520.)
 
-> <sup>1</sup> Moreover the LORD answered Job, and said,  
-> <sup>2</sup> Shall he that contendeth with the Almighty instruct *him?* he that reproveth God, let him answer it.  
-> <sup>3</sup> Then Job answered the LORD, and said,  
-> <sup>4</sup> Behold, I am vile; what shall I answer thee? I will lay mine hand upon my mouth.  
-> <sup>5</sup> Once have I spoken; but I will not answer: yea, twice; but I will proceed no further.  
+> **¹** Moreover the LORD answered Job, and said,  
+> **²** Shall he that contendeth with the Almighty instruct *him?* he that reproveth God, let him answer it.  
+> **³** Then Job answered the LORD, and said,  
+> **⁴** Behold, I am vile; what shall I answer thee? I will lay mine hand upon my mouth.  
+> **⁵** Once have I spoken; but I will not answer: yea, twice; but I will proceed no further.  
 
 Here is, I. A humbling challenge which God gave to Job. After he had heaped up many hard questions upon him, to show him, by his manifest ignorance in the works of nature, what an incompetent judge he was of the methods and designs of Providence, he clenches the nail with one demand more, which stands by itself here as the application of the whole. It should seem, God paused awhile, as Elihu had done, to give Job time to say what he had to say, or to think of what God had said; but Job was in such confusion that he remained silent, and therefore God here put him upon replying, Job 40:1,2. This is not said to be spoken *out of the whirlwind,* as before; and therefore some think God said it in a still small voice, which wrought more upon Job than the whirlwind did, as upon Elijah, 1Ki 19:12,13. *My doctrine shall drop as the rain,* and then it does wonders. Though Job had not spoken any thing, yet God is said to answer him; for he knows men's thoughts, and can return a suitable answer to their silence. Here, 1. God puts a convincing question to him: "*Shall he that contendeth with the Almighty instruct him?* Shall he pretend to dictate to God's wisdom or prescribe to his will? Shall God receive instruction from every peevish complainer, and change the measures he has taken to please him?" It is a question with disdain. *Shall any teach God knowledge?* Job 21:22. It is intimated that those who quarrel with God do, in effect, go about to teach him how to mend his work. For if we contend with men like ourselves, as not having done well, we ought to instruct them how to do better; but is it a thing to be suffered that any man should teach his Maker? He that contends with God is justly looked upon as his enemy; and shall he pretend so far to have prevailed in the contest as to prescribe to him? We are ignorant and short-sighted, but before him all things are naked and open; we are depending creatures, but he is the sovereign Creator; and shall we pretend to instruct him? Some read it, *Is it any wisdom to contend with the Almighty?* The answer is easy. No; it is the greatest folly in the world. Is it wisdom to contend with him whom it will certainly be our ruin to oppose and unspeakably our interest to submit to? 2. He demands a speedy reply to it: "*He that reproaches God let him answer* this question to his own conscience, and answer it thus, *Far be it from me to contend with the Almighty* or to *instruct him.* Let him answer all those questions which I have put, if he can. Let him answer for his presumption and insolence, answer it at God's bar, to his confusion." Those have high thoughts of themselves, and mean thoughts of God, who reprove any thing he says or does.
 
@@ -20,15 +20,15 @@ II\. Job's humble submission thereupon. Now Job came to himself, and began to me
 
 ## Divine Justice and Power; God's Dominion over the Proud. (b. c. 1520.)
 
-> <sup>6</sup> Then answered the LORD unto Job out of the whirlwind, and said,  
-> <sup>7</sup> Gird up thy loins now like a man: I will demand of thee, and declare thou unto me.  
-> <sup>8</sup> Wilt thou also disannul my judgment? wilt thou condemn me, that thou mayest be righteous?  
-> <sup>9</sup> Hast thou an arm like God? or canst thou thunder with a voice like him?  
-> <sup>10</sup> Deck thyself now *with* majesty and excellency; and array thyself with glory and beauty.  
-> <sup>11</sup> Cast abroad the rage of thy wrath: and behold every one *that is* proud, and abase him.  
-> <sup>12</sup> Look on every one *that is* proud, *and* bring him low; and tread down the wicked in their place.  
-> <sup>13</sup> Hide them in the dust together; *and* bind their faces in secret.  
-> <sup>14</sup> Then will I also confess unto thee that thine own right hand can save thee.  
+> **⁶** Then answered the LORD unto Job out of the whirlwind, and said,  
+> **⁷** Gird up thy loins now like a man: I will demand of thee, and declare thou unto me.  
+> **⁸** Wilt thou also disannul my judgment? wilt thou condemn me, that thou mayest be righteous?  
+> **⁹** Hast thou an arm like God? or canst thou thunder with a voice like him?  
+> **¹⁰** Deck thyself now *with* majesty and excellency; and array thyself with glory and beauty.  
+> **¹¹** Cast abroad the rage of thy wrath: and behold every one *that is* proud, and abase him.  
+> **¹²** Look on every one *that is* proud, *and* bring him low; and tread down the wicked in their place.  
+> **¹³** Hide them in the dust together; *and* bind their faces in secret.  
+> **¹⁴** Then will I also confess unto thee that thine own right hand can save thee.  
 
 Job was greatly humbled for what God had already said, but not sufficiently; he was brought low, but not low enough; and therefore God here proceeds to reason with him in the same manner and to the same purport as before, Job 40:6. Observe, 1. Those who duly receive what they have heard from God, and profit by it, shall hear more from him. 2. Those who are truly convinced of sin, and penitent for it, yet have need to be more thoroughly convinced and to be made more deeply penitent. Those who are under convictions, who have their sins set in order before their eyes and their hearts broken for them, must learn from this instance not to catch at comfort too soon; it will be everlasting when it comes, and therefore it is necessary that we be prepared for it by deep humiliation, that the wound be searched to the bottom and not skinned over, and that we do not make more haste out of our convictions than good speed. When our hearts begin to melt and relent within us, let those considerations be dwelt upon and pursued which will help to make a thorough effectual thaw of it.
 
@@ -52,16 +52,16 @@ IV\. That we cannot vie with God for dominion over the proud, Job 40:11-14. here
 
 ## Description of Behemoth. (b. c. 1520.)
 
-> <sup>15</sup> Behold now behemoth, which I made with thee; he eateth grass as an ox.  
-> <sup>16</sup> Lo now, his strength *is* in his loins, and his force *is* in the navel of his belly.  
-> <sup>17</sup> He moveth his tail like a cedar: the sinews of his stones are wrapped together.  
-> <sup>18</sup> His bones *are as* strong pieces of brass; his bones *are* like bars of iron.  
-> <sup>19</sup> He *is* the chief of the ways of God: he that made him can make his sword to approach *unto him.*  
-> <sup>20</sup> Surely the mountains bring him forth food, where all the beasts of the field play.  
-> <sup>21</sup> He lieth under the shady trees, in the covert of the reed, and fens.  
-> <sup>22</sup> The shady trees cover him *with* their shadow; the willows of the brook compass him about.  
-> <sup>23</sup> Behold, he drinketh up a river, *and* hasteth not: he trusteth that he can draw up Jordan into his mouth.  
-> <sup>24</sup> He taketh it with his eyes: *his* nose pierceth through snares.  
+> **¹⁵** Behold now behemoth, which I made with thee; he eateth grass as an ox.  
+> **¹⁶** Lo now, his strength *is* in his loins, and his force *is* in the navel of his belly.  
+> **¹⁷** He moveth his tail like a cedar: the sinews of his stones are wrapped together.  
+> **¹⁸** His bones *are as* strong pieces of brass; his bones *are* like bars of iron.  
+> **¹⁹** He *is* the chief of the ways of God: he that made him can make his sword to approach *unto him.*  
+> **²⁰** Surely the mountains bring him forth food, where all the beasts of the field play.  
+> **²¹** He lieth under the shady trees, in the covert of the reed, and fens.  
+> **²²** The shady trees cover him *with* their shadow; the willows of the brook compass him about.  
+> **²³** Behold, he drinketh up a river, *and* hasteth not: he trusteth that he can draw up Jordan into his mouth.  
+> **²⁴** He taketh it with his eyes: *his* nose pierceth through snares.  
 
 God, for the further proving of his own power and disproving of Job's pretensions, concludes his discourse with the description of two vast and mighty animals, far exceeding man in bulk and strength, one he calls *behemoth,* the other *leviathan.* In these verses we have the former described. "*Behold now behemoth,* and consider whether thou art able to contend with him who made that beast and gave him all the power he has, and whether it is not thy wisdom rather to submit to him and make thy peace with him." *Behemoth* signifies *beasts* in general, but must here be meant of some one particular species. Some understand it of the *bull;* others of an amphibious animal, well known (they say) in Egypt, called the *river-horse (hippopotamus*), living among the fish in the river Nile, but coming out to feed upon the earth. But I confess I see no reason to depart from the ancient and most generally received opinion, that it is the elephant that is here described, which is a very strong stately creature, of very large stature above any other, of wonderful sagacity, and of so great a reputation in the animal kingdom that among so many four-footed beasts as we have had the natural history of (Job 38:1-39:30) we can scarcely suppose this should be omitted. Observe,
 

@@ -8,26 +8,26 @@ The scope of this chapter is to prosecute the exhortation given to Israel in the
 
 ## Invitations and Warnings. (b. c. 790.)
 
-> <sup>1</sup> Hear ye this word which I take up against you, *even* a lamentation, O house of Israel.  
-> <sup>2</sup> The virgin of Israel is fallen; she shall no more rise: she is forsaken upon her land; *there is* none to raise her up.  
-> <sup>3</sup> For thus saith the Lord GOD; The city that went out *by* a thousand shall leave a hundred, and that which went forth *by* a hundred shall leave ten, to the house of Israel.  
+> **¹** Hear ye this word which I take up against you, *even* a lamentation, O house of Israel.  
+> **²** The virgin of Israel is fallen; she shall no more rise: she is forsaken upon her land; *there is* none to raise her up.  
+> **³** For thus saith the Lord GOD; The city that went out *by* a thousand shall leave a hundred, and that which went forth *by* a hundred shall leave ten, to the house of Israel.  
 
 This chapter begins, as those two next foregoing began, with, *Hear this word.* Where God has a mouth to speak we must have an ear to hear; it is our duty, it is our interest, yet so stupid are most men that they need to be again and again called upon to *hear the word of the Lord,* to give audience, to give attention. *Hear this word.* this convincing awakening word must be heard and heeded, as well as words of comfort and peace; the word that is taken up against us, as well as that which makes for us; for, whether we hear or forbear, the word of God shall take effect, and not a tittle of it shall fall to the ground. It is the *word which I take up*—not the prophet only, but the God that sent him. It is *the word that the Lord has spoken,* Am 3:1. The word to be heard is *a lamentation,* a lamentable account of the present calamitous state of the kingdom of Israel, and a lamentable prediction of its utter destruction. Their condition is sad: *The virgin of Israel has fallen* (Am 5:2), has come down from what she was; that state, though not pure and chaste as a virgin, yet was beautiful and gay, and had its charms; she looked high herself, and was courted by many as a virgin; but *she has fallen* into contempt and poverty, and is universally slighted. Nay, and their condition is helpless: *She shall no more rise,* shall never recover her former dignity again. God had lately begun to *cut Israel short* (2Ki 10:32), and, because they repented not, it was not long before he *cut Israel down.* 1. Their princes, that should have helped them up, were disabled: *She is forsaken upon her land.* Not only those she was in alliance with abroad failed her, but her friends at home deserted her; she would not have been carried captive into a strange land if she had not first been *forsaken upon her own land* and *thrown to the ground* there, and all her true interests abandoned by those that should have had them at heart. *There is none to raise her up,* none that can do it, not that cares to lend her a hand. 2. Their people, that should have helped them up, were diminished, Am 5:3. "The city that had a militia, 1000 strong, and, in the beginning of the war, had furnished out 1000 effective men, able-bodied and well-armed, when they come to review their troops after the battle, shall find but 100 *left;* and, in proportion, the city that sent out 100 shall have but *ten* come back, so great a slaughter shall be made, and so few left to the house of Israel for the public service and safety." Scarcely one in ten shall escape of the hands that should relieve this abject, this dejected, nation. Note, The lessening of the numbers of God's spiritual Israel, by death or desertion, is just a matter for lamentation; for *by whom shall Jacob arise,* by whom shall the decays of piety be repaired, when he is thus *made small?*
 
 ## God's Message to Israel; The Aggravated Sins of Israel; Warnings and Exhortations; Exhortations and Encouragements. (b. c. 790.)
 
-> <sup>4</sup> For thus saith the LORD unto the house of Israel, Seek ye me, and ye shall live:  
-> <sup>5</sup> But seek not Bethel, nor enter into Gilgal, and pass not to Beer-sheba: for Gilgal shall surely go into captivity, and Bethel shall come to nought.  
-> <sup>6</sup> Seek the LORD, and ye shall live; lest he break out like fire in the house of Joseph, and devour *it,* and *there be* none to quench *it* in Bethel.  
-> <sup>7</sup> Ye who turn judgment to wormwood, and leave off righteousness in the earth,  
-> <sup>8</sup> *Seek him* that maketh the seven stars and Orion, and turneth the shadow of death into the morning, and maketh the day dark with night: that calleth for the waters of the sea, and poureth them out upon the face of the earth: The LORD *is* his name:  
-> <sup>9</sup> That strengtheneth the spoiled against the strong, so that the spoiled shall come against the fortress.  
-> <sup>10</sup> They hate him that rebuketh in the gate, and they abhor him that speaketh uprightly.  
-> <sup>11</sup> Forasmuch therefore as your treading *is* upon the poor, and ye take from him burdens of wheat: ye have built houses of hewn stone, but ye shall not dwell in them; ye have planted pleasant vineyards, but ye shall not drink wine of them.  
-> <sup>12</sup> For I know your manifold transgressions and your mighty sins: they afflict the just, they take a bribe, and they turn aside the poor in the gate *from their right.*  
-> <sup>13</sup> Therefore the prudent shall keep silence in that time; for it *is* an evil time.  
-> <sup>14</sup> Seek good, and not evil, that ye may live: and so the LORD, the God of hosts, shall be with you, as ye have spoken.  
-> <sup>15</sup> Hate the evil, and love the good, and establish judgment in the gate: it may be that the LORD God of hosts will be gracious unto the remnant of Joseph.  
+> **⁴** For thus saith the LORD unto the house of Israel, Seek ye me, and ye shall live:  
+> **⁵** But seek not Bethel, nor enter into Gilgal, and pass not to Beer-sheba: for Gilgal shall surely go into captivity, and Bethel shall come to nought.  
+> **⁶** Seek the LORD, and ye shall live; lest he break out like fire in the house of Joseph, and devour *it,* and *there be* none to quench *it* in Bethel.  
+> **⁷** Ye who turn judgment to wormwood, and leave off righteousness in the earth,  
+> **⁸** *Seek him* that maketh the seven stars and Orion, and turneth the shadow of death into the morning, and maketh the day dark with night: that calleth for the waters of the sea, and poureth them out upon the face of the earth: The LORD *is* his name:  
+> **⁹** That strengtheneth the spoiled against the strong, so that the spoiled shall come against the fortress.  
+> **¹⁰** They hate him that rebuketh in the gate, and they abhor him that speaketh uprightly.  
+> **¹¹** Forasmuch therefore as your treading *is* upon the poor, and ye take from him burdens of wheat: ye have built houses of hewn stone, but ye shall not dwell in them; ye have planted pleasant vineyards, but ye shall not drink wine of them.  
+> **¹²** For I know your manifold transgressions and your mighty sins: they afflict the just, they take a bribe, and they turn aside the poor in the gate *from their right.*  
+> **¹³** Therefore the prudent shall keep silence in that time; for it *is* an evil time.  
+> **¹⁴** Seek good, and not evil, that ye may live: and so the LORD, the God of hosts, shall be with you, as ye have spoken.  
+> **¹⁵** Hate the evil, and love the good, and establish judgment in the gate: it may be that the LORD God of hosts will be gracious unto the remnant of Joseph.  
 
 This is a message from God to the house of Israel, in which,
 
@@ -47,11 +47,11 @@ III\. They are told their duty, and have great encouragement to set about it in 
 
 ## Threatenings and Reproofs. (b. c. 790.)
 
-> <sup>16</sup> Therefore the LORD, the God of hosts, the Lord, saith thus; Wailing *shall be* in all streets; and they shall say in all the highways, Alas! alas! and they shall call the husbandman to mourning, and such as are skilful of lamentation to wailing.  
-> <sup>17</sup> And in all vineyards *shall be* wailing: for I will pass through thee, saith the LORD.  
-> <sup>18</sup> Woe unto you that desire the day of the LORD! to what end *is* it for you? the day of the LORD *is* darkness, and not light.  
-> <sup>19</sup> As if a man did flee from a lion, and a bear met him; or went into the house, and leaned his hand on the wall, and a serpent bit him.  
-> <sup>20</sup> *Shall* not the day of the LORD *be* darkness, and not light? even very dark, and no brightness in it?  
+> **¹⁶** Therefore the LORD, the God of hosts, the Lord, saith thus; Wailing *shall be* in all streets; and they shall say in all the highways, Alas! alas! and they shall call the husbandman to mourning, and such as are skilful of lamentation to wailing.  
+> **¹⁷** And in all vineyards *shall be* wailing: for I will pass through thee, saith the LORD.  
+> **¹⁸** Woe unto you that desire the day of the LORD! to what end *is* it for you? the day of the LORD *is* darkness, and not light.  
+> **¹⁹** As if a man did flee from a lion, and a bear met him; or went into the house, and leaned his hand on the wall, and a serpent bit him.  
+> **²⁰** *Shall* not the day of the LORD *be* darkness, and not light? even very dark, and no brightness in it?  
 
 Here is, I. A very terrible threatening of destruction approaching, Am 5:16,17. Since they would not take the right course to obtain the favour of God, God would take an effectual course to make them feel the weight of his displeasure. The threatening is introduced with more than ordinary solemnity, to strike an awe upon them; it is not the word of the prophet only (if so, it might be made light of) but it is the *Lord Jehovah,* who has an infinite eternal being; it is the *God of hosts,* who has a boundless irresistible power, and it is *Adonai—the Lord,* who has an absolute incontestable sovereignty, and a universal dominion; it is he who says it, who can and will make his words good, and he has said, 1. That the land of Israel shall be put in mourning, true mourning, that all places shall be filled with lamentation for the calamities coming upon them. Look into the cities, and *wailing shall be in all streets,* in the great streets, in the by-streets. Look into the country, and *they shall say in all the highways, Alas! alas!* we are all undone! The lamentation shall be so great as not to be confined within doors, nor kept within the bounds of decency, but it shall be proclaimed in the streets and highways, and shall run wild. The husbandman shall be called from the plough by the calamities of his country to the natural expressions of mourning; and, because those who will come short of the merits of the cause, such as are skilful of lamentation shall be called to artificial mourning, to put accents upon the lamentations of the real mourners with their *Ahone, ahone.* Even in all vineyards, where there used to be nothing but mirth and pleasure, there shall be general wailing, when a foreign force invades the country, lays all waste, and there is no making any head against it, no weapons left but prayers and tears. 2. That the land of Israel shall be brought to ruin, and the advances of that ruin are the occasion of all this wailing: *I will pass through thee,* as the destroying angel passed through the land of Egypt to destroy the first-born, but then passed over the houses of the Israelites. God's judgments had often passed by them, but now they shall pass through them, shall run them through.
 
@@ -59,13 +59,13 @@ II\. A just and severe reproof to those who made light of these threatenings, an
 
 ## Hypocritical Services Rejected; Threatenings against Israel. (b. c. 790.)
 
-> <sup>21</sup> I hate, I despise your feast days, and I will not smell in your solemn assemblies.  
-> <sup>22</sup> Though ye offer me burnt offerings and your meat offerings, I will not accept *them:* neither will I regard the peace offerings of your fat beasts.  
-> <sup>23</sup> Take thou away from me the noise of thy songs; for I will not hear the melody of thy viols.  
-> <sup>24</sup> But let judgment run down as waters, and righteousness as a mighty stream.  
-> <sup>25</sup> Have ye offered unto me sacrifices and offerings in the wilderness forty years, O house of Israel?  
-> <sup>26</sup> But ye have borne the tabernacle of your Moloch and Chiun your images, the star of your god, which ye made to yourselves.  
-> <sup>27</sup> Therefore will I cause you to go into captivity beyond Damascus, saith the LORD, whose name *is* The God of hosts.  
+> **²¹** I hate, I despise your feast days, and I will not smell in your solemn assemblies.  
+> **²²** Though ye offer me burnt offerings and your meat offerings, I will not accept *them:* neither will I regard the peace offerings of your fat beasts.  
+> **²³** Take thou away from me the noise of thy songs; for I will not hear the melody of thy viols.  
+> **²⁴** But let judgment run down as waters, and righteousness as a mighty stream.  
+> **²⁵** Have ye offered unto me sacrifices and offerings in the wilderness forty years, O house of Israel?  
+> **²⁶** But ye have borne the tabernacle of your Moloch and Chiun your images, the star of your god, which ye made to yourselves.  
+> **²⁷** Therefore will I cause you to go into captivity beyond Damascus, saith the LORD, whose name *is* The God of hosts.  
 
 The scope of these verses is to show how little God valued their shows of devotion, nay, how much he detested them, while they went on in their sins. Observe,
 

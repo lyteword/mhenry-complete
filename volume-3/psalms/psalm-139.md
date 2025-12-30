@@ -10,12 +10,12 @@ Some of the Jewish doctors are of opinion that this is the most excellent of all
 
 To the chief musician. A psalm of David.
 
-> <sup>1</sup> O LORD, thou hast searched me, and known *me.*  
-> <sup>2</sup> Thou knowest my downsitting and mine uprising, thou understandest my thought afar off.  
-> <sup>3</sup> Thou compassest my path and my lying down, and art acquainted *with* all my ways.  
-> <sup>4</sup> For *there is* not a word in my tongue, *but,* lo, O LORD, thou knowest it altogether.  
-> <sup>5</sup> Thou hast beset me behind and before, and laid thine hand upon me.  
-> <sup>6</sup> *Such* knowledge *is* too wonderful for me; it is high, I cannot *attain* unto it.  
+> **¹** O LORD, thou hast searched me, and known *me.*  
+> **²** Thou knowest my downsitting and mine uprising, thou understandest my thought afar off.  
+> **³** Thou compassest my path and my lying down, and art acquainted *with* all my ways.  
+> **⁴** For *there is* not a word in my tongue, *but,* lo, O LORD, thou knowest it altogether.  
+> **⁵** Thou hast beset me behind and before, and laid thine hand upon me.  
+> **⁶** *Such* knowledge *is* too wonderful for me; it is high, I cannot *attain* unto it.  
 
 David here lays down this great doctrine, That the God with whom we have to do has a perfect knowledge of us, and that all the motions and actions both of our inward and of our outward man are naked and open before him.
 
@@ -29,16 +29,16 @@ IV\. He speaks of it with admiration (Ps 139:6): *It is too wonderful for me; it
 
 ## The Omniscience of God.
 
-> <sup>7</sup> Whither shall I go from thy spirit? or whither shall I flee from thy presence?  
-> <sup>8</sup> If I ascend up into heaven, thou *art* there: if I make my bed in hell, behold, thou *art there.*  
-> <sup>9</sup> *If* I take the wings of the morning, *and* dwell in the uttermost parts of the sea;  
-> <sup>10</sup> Even there shall thy hand lead me, and thy right hand shall hold me.  
-> <sup>11</sup> If I say, Surely the darkness shall cover me; even the night shall be light about me.  
-> <sup>12</sup> Yea, the darkness hideth not from thee; but the night shineth as the day: the darkness and the light *are* both alike *to thee.*  
-> <sup>13</sup> For thou hast possessed my reins: thou hast covered me in my mother's womb.  
-> <sup>14</sup> I will praise thee; for I am fearfully *and* wonderfully made: marvellous *are* thy works; and *that* my soul knoweth right well.  
-> <sup>15</sup> My substance was not hid from thee, when I was made in secret, *and* curiously wrought in the lowest parts of the earth.  
-> <sup>16</sup> Thine eyes did see my substance, yet being unperfect; and in thy book all *my members* were written, *which* in continuance were fashioned, when *as yet there was* none of them.  
+> **⁷** Whither shall I go from thy spirit? or whither shall I flee from thy presence?  
+> **⁸** If I ascend up into heaven, thou *art* there: if I make my bed in hell, behold, thou *art there.*  
+> **⁹** *If* I take the wings of the morning, *and* dwell in the uttermost parts of the sea;  
+> **¹⁰** Even there shall thy hand lead me, and thy right hand shall hold me.  
+> **¹¹** If I say, Surely the darkness shall cover me; even the night shall be light about me.  
+> **¹²** Yea, the darkness hideth not from thee; but the night shineth as the day: the darkness and the light *are* both alike *to thee.*  
+> **¹³** For thou hast possessed my reins: thou hast covered me in my mother's womb.  
+> **¹⁴** I will praise thee; for I am fearfully *and* wonderfully made: marvellous *are* thy works; and *that* my soul knoweth right well.  
+> **¹⁵** My substance was not hid from thee, when I was made in secret, *and* curiously wrought in the lowest parts of the earth.  
+> **¹⁶** Thine eyes did see my substance, yet being unperfect; and in thy book all *my members* were written, *which* in continuance were fashioned, when *as yet there was* none of them.  
 
 It is of great use to us to know the certainty of the things wherein we have been instructed, that we may not only believe them, but be able to tell why we believe them, and to give a reason of the hope that is in us. David is sure that God perfectly knows him and all his ways,
 
@@ -56,14 +56,14 @@ II\. Because he is the work of his hands. He that framed the engine knows all th
 
 ## The Omniscience of God.
 
-> <sup>17</sup> How precious also are thy thoughts unto me, O God! how great is the sum of them!  
-> <sup>18</sup> *If* I should count them, they are more in number than the sand: when I awake, I am still with thee.  
-> <sup>19</sup> Surely thou wilt slay the wicked, O God: depart from me therefore, ye bloody men.  
-> <sup>20</sup> For they speak against thee wickedly, *and* thine enemies take *thy name* in vain.  
-> <sup>21</sup> Do not I hate them, O LORD, that hate thee? and am not I grieved with those that rise up against thee?  
-> <sup>22</sup> I hate them with perfect hatred: I count them mine enemies.  
-> <sup>23</sup> Search me, O God, and know my heart: try me, and know my thoughts:  
-> <sup>24</sup> And see if *there be any* wicked way in me, and lead me in the way everlasting.  
+> **¹⁷** How precious also are thy thoughts unto me, O God! how great is the sum of them!  
+> **¹⁸** *If* I should count them, they are more in number than the sand: when I awake, I am still with thee.  
+> **¹⁹** Surely thou wilt slay the wicked, O God: depart from me therefore, ye bloody men.  
+> **²⁰** For they speak against thee wickedly, *and* thine enemies take *thy name* in vain.  
+> **²¹** Do not I hate them, O LORD, that hate thee? and am not I grieved with those that rise up against thee?  
+> **²²** I hate them with perfect hatred: I count them mine enemies.  
+> **²³** Search me, O God, and know my heart: try me, and know my thoughts:  
+> **²⁴** And see if *there be any* wicked way in me, and lead me in the way everlasting.  
 
 Here the psalmist makes application of the doctrine of God's omniscience, divers ways.
 

@@ -8,20 +8,20 @@ In this chapter we have, I. The peaceable times Israel enjoyed under the governm
 
 ## Government of Tola and Jair. (b. c. 1183.)
 
-> <sup>1</sup> And after Abimelech there arose to defend Israel Tola the son of Puah, the son of Dodo, a man of Issachar; and he dwelt in Shamir in mount Ephraim.  
-> <sup>2</sup> And he judged Israel twenty and three years, and died, and was buried in Shamir.  
-> <sup>3</sup> And after him arose Jair, a Gileadite, and judged Israel twenty and two years.  
-> <sup>4</sup> And he had thirty sons that rode on thirty ass colts, and they had thirty cities, which are called Havoth-jair unto this day, which *are* in the land of Gilead.  
-> <sup>5</sup> And Jair died, and was buried in Camon.  
+> **¹** And after Abimelech there arose to defend Israel Tola the son of Puah, the son of Dodo, a man of Issachar; and he dwelt in Shamir in mount Ephraim.  
+> **²** And he judged Israel twenty and three years, and died, and was buried in Shamir.  
+> **³** And after him arose Jair, a Gileadite, and judged Israel twenty and two years.  
+> **⁴** And he had thirty sons that rode on thirty ass colts, and they had thirty cities, which are called Havoth-jair unto this day, which *are* in the land of Gilead.  
+> **⁵** And Jair died, and was buried in Camon.  
 
 Quiet and peaceable reigns, though the best to live in, are the worst to write of, as yielding least variety of matter for the historian to entertain his reader with; such were the reigns of these two judges, Tola and Jair, who make but a small figure and take up but a very little room in this history. But no doubt they were both *raised up of God* to serve their country in the quality of judges, not pretending, as Abimelech had done, to the grandeur of kings, nor, like him, taking the honour they had to themselves, but being called of God to it. 1. Concerning Tola it is said that he arose after Abimelech to defend Israel, Jdg 10:1. After Abimelech had debauched Israel by his wickedness, disquieted and disturbed them by his restless ambition, and, by the mischiefs he brought on them, exposed them to enemies from abroad, God animated this good man to appear for the reforming of abuses, the putting down of idolatry, the appeasing of tumults, and the healing of the wounds given to the state by Abimelech's usurpation. Thus he saved them from themselves, and guarded them against their enemies. He was of the tribe of Issachar, a tribe disposed to serve, for he *bowed his shoulder to bear* (Ge 49:14,15), yet one of that tribe is here raised up to rule; for those that humble themselves shall be exalted. He bore the name of him that was ancestor to the first family of that tribe; of the sons of Issachar Tola was the first, Ge 46:13, Nu 26:23. It signifies a *worm,* yet, being the name of his ancestor, he was not ashamed of it. Though he was of Issachar, yet, when he was raised up to the government, he came and dwelt in Mount Ephraim, which was more in the heart of the country, that the people might the more conveniently resort to him for judgment. He judged Israel twenty-three years (Jdg 10:2), kept things in good order, but did not any thing very memorable. 2. Jair was a Gileadite, so was his next successor Jephthah, both of that half tribe of the tribe of Manasseh which lay on the other side Jordan; though they seemed separated from their brethren, yet God took care, while the honour of the government was shifted from tribe to tribe and before it settled in Judah, that those who lay remote should sometimes share in it, *putting more abundant honour on that part which lacked.* Jair bore the name of a very famous man of the same tribe who in Moses's time was very active in reducing this country, Nu 32:41, Jos 13:30. That which is chiefly remarkable concerning this Jair is the increase and honour of his family: *He had thirty sons,* Jdg 10:4. And, (1.) They had good preferments, for they *rode on thirty ass colts;* that is, they were judges itinerant, who, as deputies to their father, rode from place to place in their several circuits to administer justice. We find afterwards that Samuel made his sons judges, though he could not make them good ones, 1Sa 8:1-3. (2.) They had good possessions, every one a city, out of those that were called, from their ancestor of the same name with their father, *Havoth-jair—the villages of Jair;* yet they are called *cities,* either because those young gentlemen to whom they were assigned enlarged and fortified them, and so improved them into cities, or because they were as well pleased with their lot in those country towns as if they had been cities compact together and fenced with gates and bars. Villages are cities to a contented mind.
 
 ## Israel Oppressed by the Ammonites. (b. c. 1161.)
 
-> <sup>6</sup> And the children of Israel did evil again in the sight of the LORD, and served Baalim, and Ashtaroth, and the gods of Syria, and the gods of Zidon, and the gods of Moab, and the gods of the children of Ammon, and the gods of the Philistines, and forsook the LORD, and served not him.  
-> <sup>7</sup> And the anger of the LORD was hot against Israel, and he sold them into the hands of the Philistines, and into the hands of the children of Ammon.  
-> <sup>8</sup> And that year they vexed and oppressed the children of Israel: eighteen years, all the children of Israel that *were* on the other side Jordan in the land of the Amorites, which *is* in Gilead.  
-> <sup>9</sup> Moreover the children of Ammon passed over Jordan to fight also against Judah, and against Benjamin, and against the house of Ephraim; so that Israel was sore distressed.  
+> **⁶** And the children of Israel did evil again in the sight of the LORD, and served Baalim, and Ashtaroth, and the gods of Syria, and the gods of Zidon, and the gods of Moab, and the gods of the children of Ammon, and the gods of the Philistines, and forsook the LORD, and served not him.  
+> **⁷** And the anger of the LORD was hot against Israel, and he sold them into the hands of the Philistines, and into the hands of the children of Ammon.  
+> **⁸** And that year they vexed and oppressed the children of Israel: eighteen years, all the children of Israel that *were* on the other side Jordan in the land of the Amorites, which *is* in Gilead.  
+> **⁹** Moreover the children of Ammon passed over Jordan to fight also against Judah, and against Benjamin, and against the house of Ephraim; so that Israel was sore distressed.  
 
 While those two judges, Tola and Jair, presided in the affairs of Israel, things went well, but afterwards,
 
@@ -31,15 +31,15 @@ II\. God renewed his judgments upon them, bringing them under the power of oppre
 
 ## The Repentance and Reformation of Israel. (b. c. 1161.)
 
-> <sup>10</sup> And the children of Israel cried unto the LORD, saying, We have sinned against thee, both because we have forsaken our God, and also served Baalim.  
-> <sup>11</sup> And the LORD said unto the children of Israel, *Did* not *I deliver you* from the Egyptians, and from the Amorites, from the children of Ammon, and from the Philistines?  
-> <sup>12</sup> The Zidonians also, and the Amalekites, and the Maonites, did oppress you; and ye cried to me, and I delivered you out of their hand.  
-> <sup>13</sup> Yet ye have forsaken me, and served other gods: wherefore I will deliver you no more.  
-> <sup>14</sup> Go and cry unto the gods which ye have chosen; let them deliver you in the time of your tribulation.  
-> <sup>15</sup> And the children of Israel said unto the LORD, We have sinned: do thou unto us whatsoever seemeth good unto thee; deliver us only, we pray thee, this day.  
-> <sup>16</sup> And they put away the strange gods from among them, and served the LORD: and his soul was grieved for the misery of Israel.  
-> <sup>17</sup> Then the children of Ammon were gathered together, and encamped in Gilead. And the children of Israel assembled themselves together, and encamped in Mizpeh.  
-> <sup>18</sup> And the people *and* princes of Gilead said one to another, What man *is he* that will begin to fight against the children of Ammon? he shall be head over all the inhabitants of Gilead.  
+> **¹⁰** And the children of Israel cried unto the LORD, saying, We have sinned against thee, both because we have forsaken our God, and also served Baalim.  
+> **¹¹** And the LORD said unto the children of Israel, *Did* not *I deliver you* from the Egyptians, and from the Amorites, from the children of Ammon, and from the Philistines?  
+> **¹²** The Zidonians also, and the Amalekites, and the Maonites, did oppress you; and ye cried to me, and I delivered you out of their hand.  
+> **¹³** Yet ye have forsaken me, and served other gods: wherefore I will deliver you no more.  
+> **¹⁴** Go and cry unto the gods which ye have chosen; let them deliver you in the time of your tribulation.  
+> **¹⁵** And the children of Israel said unto the LORD, We have sinned: do thou unto us whatsoever seemeth good unto thee; deliver us only, we pray thee, this day.  
+> **¹⁶** And they put away the strange gods from among them, and served the LORD: and his soul was grieved for the misery of Israel.  
+> **¹⁷** Then the children of Ammon were gathered together, and encamped in Gilead. And the children of Israel assembled themselves together, and encamped in Mizpeh.  
+> **¹⁸** And the people *and* princes of Gilead said one to another, What man *is he* that will begin to fight against the children of Ammon? he shall be head over all the inhabitants of Gilead.  
 
 Here is, I. A humble confession which Israel make to God in their distress, Jdg 10:10. Now they own themselves guilty, like a malefactor upon the rack, and promise reformation, like a child under the rod. They not only complain of the distress, but acknowledge it is their own sin that has brought them into the distress; therefore God is righteous, and they have no reason to repine. They confess their omissions, for in them their sin began—"We have forsaken our God," and their commissions—"We have served Baalim, and herein have done foolishly, treacherously, and very wickedly."
 

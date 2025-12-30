@@ -8,29 +8,29 @@ David, having given charge concerning the building of the temple, in this and th
 
 ## The Numbering of the Levites. (b. c. 1015.)
 
-> <sup>1</sup> So when David was old and full of days, he made Solomon his son king over Israel.  
-> <sup>2</sup> And he gathered together all the princes of Israel, with the priests and the Levites.  
-> <sup>3</sup> Now the Levites were numbered from the age of thirty years and upward: and their number by their polls, man by man, was thirty and eight thousand.  
-> <sup>4</sup> Of which, twenty and four thousand *were* to set forward the work of the house of the LORD; and six thousand *were* officers and judges:  
-> <sup>5</sup> Moreover four thousand *were* porters; and four thousand praised the LORD with the instruments which I made, *said David,* to praise *therewith.*  
-> <sup>6</sup> And David divided them into courses among the sons of Levi, *namely,* Gershon, Kohath, and Merari.  
-> <sup>7</sup> Of the Gershonites *were,* Laadan, and Shimei.  
-> <sup>8</sup> The sons of Laadan; the chief *was* Jehiel, and Zetham, and Joel, three.  
-> <sup>9</sup> The sons of Shimei; Shelomith, and Haziel, and Haran, three. These *were* the chief of the fathers of Laadan.  
-> <sup>10</sup> And the sons of Shimei *were,* Jahath, Zina, and Jeush, and Beriah. These four *were* the sons of Shimei.  
-> <sup>11</sup> And Jahath was the chief, and Zizah the second: but Jeush and Beriah had not many sons; therefore they were in one reckoning, according to *their* father's house.  
-> <sup>12</sup> The sons of Kohath; Amram, Izhar, Hebron, and Uzziel, four.  
-> <sup>13</sup> The sons of Amram; Aaron and Moses: and Aaron was separated, that he should sanctify the most holy things, he and his sons for ever, to burn incense before the LORD, to minister unto him, and to bless in his name for ever.  
-> <sup>14</sup> Now *concerning* Moses the man of God, his sons were named of the tribe of Levi.  
-> <sup>15</sup> The sons of Moses *were,* Gershom, and Eliezer.  
-> <sup>16</sup> Of the sons of Gershom, Shebuel *was* the chief.  
-> <sup>17</sup> And the sons of Eliezer *were,* Rehabiah the chief. And Eliezer had none other sons; but the sons of Rehabiah were very many.  
-> <sup>18</sup> Of the sons of Izhar; Shelomith the chief.  
-> <sup>19</sup> Of the sons of Hebron; Jeriah the first, Amariah the second, Jahaziel the third, and Jekameam the fourth.  
-> <sup>20</sup> Of the sons of Uzziel; Michah the first, and Jesiah the second.  
-> <sup>21</sup> The sons of Merari; Mahli, and Mushi. The sons of Mahli; Eleazar, and Kish.  
-> <sup>22</sup> And Eleazar died, and had no sons, but daughters: and their brethren the sons of Kish took them.  
-> <sup>23</sup> The sons of Mushi; Mahli, and Eder, and Jeremoth, three.  
+> **¹** So when David was old and full of days, he made Solomon his son king over Israel.  
+> **²** And he gathered together all the princes of Israel, with the priests and the Levites.  
+> **³** Now the Levites were numbered from the age of thirty years and upward: and their number by their polls, man by man, was thirty and eight thousand.  
+> **⁴** Of which, twenty and four thousand *were* to set forward the work of the house of the LORD; and six thousand *were* officers and judges:  
+> **⁵** Moreover four thousand *were* porters; and four thousand praised the LORD with the instruments which I made, *said David,* to praise *therewith.*  
+> **⁶** And David divided them into courses among the sons of Levi, *namely,* Gershon, Kohath, and Merari.  
+> **⁷** Of the Gershonites *were,* Laadan, and Shimei.  
+> **⁸** The sons of Laadan; the chief *was* Jehiel, and Zetham, and Joel, three.  
+> **⁹** The sons of Shimei; Shelomith, and Haziel, and Haran, three. These *were* the chief of the fathers of Laadan.  
+> **¹⁰** And the sons of Shimei *were,* Jahath, Zina, and Jeush, and Beriah. These four *were* the sons of Shimei.  
+> **¹¹** And Jahath was the chief, and Zizah the second: but Jeush and Beriah had not many sons; therefore they were in one reckoning, according to *their* father's house.  
+> **¹²** The sons of Kohath; Amram, Izhar, Hebron, and Uzziel, four.  
+> **¹³** The sons of Amram; Aaron and Moses: and Aaron was separated, that he should sanctify the most holy things, he and his sons for ever, to burn incense before the LORD, to minister unto him, and to bless in his name for ever.  
+> **¹⁴** Now *concerning* Moses the man of God, his sons were named of the tribe of Levi.  
+> **¹⁵** The sons of Moses *were,* Gershom, and Eliezer.  
+> **¹⁶** Of the sons of Gershom, Shebuel *was* the chief.  
+> **¹⁷** And the sons of Eliezer *were,* Rehabiah the chief. And Eliezer had none other sons; but the sons of Rehabiah were very many.  
+> **¹⁸** Of the sons of Izhar; Shelomith the chief.  
+> **¹⁹** Of the sons of Hebron; Jeriah the first, Amariah the second, Jahaziel the third, and Jekameam the fourth.  
+> **²⁰** Of the sons of Uzziel; Michah the first, and Jesiah the second.  
+> **²¹** The sons of Merari; Mahli, and Mushi. The sons of Mahli; Eleazar, and Kish.  
+> **²²** And Eleazar died, and had no sons, but daughters: and their brethren the sons of Kish took them.  
+> **²³** The sons of Mushi; Mahli, and Eder, and Jeremoth, three.  
 
 Here we have, I. The crown entailed, according to the divine appointment, 1Ch 23:1. David made Solomon king, not to reign with him, or reign under him, but only to reign after him. This he did, 1. When he was old and full of days. He was but seventy years old when he died, and yet he was full of days, *satur dierum—satisfied with living* in this world. When he found himself going off, he made provision for the welfare of the kingdom after his decease, and pleased himself with the hopeful prospect of a happy settlement both in church and state. 2. He did it in parliament, in a solemn assembly of all the princes of Israel, which made Adonijah's attempt to break in upon Solomon's title and set it aside, notwithstanding this public recognition and establishment of it, the more impudent, impious, and ridiculous. Note, The settling or securing of the crown in the interests of the temple is a great blessing to the people and a great satisfaction to those who are themselves leaving the world.
 
@@ -42,15 +42,15 @@ IV\. The Levites mustered, and disposed of into their respective families and ki
 
 ## The Office of the Levites. (b. c. 1015.)
 
-> <sup>24</sup> These *were* the sons of Levi after the house of their fathers; *even* the chief of the fathers, as they were counted by number of names by their polls, that did the work for the service of the house of the LORD, from the age of twenty years and upward.  
-> <sup>25</sup> For David said, The LORD God of Israel hath given rest unto his people, that they may dwell in Jerusalem for ever:  
-> <sup>26</sup> And also unto the Levites; they shall no *more* carry the tabernacle, nor any vessels of it for the service thereof.  
-> <sup>27</sup> For by the last words of David the Levites *were* numbered from twenty years old and above:  
-> <sup>28</sup> Because their office *was* to wait on the sons of Aaron for the service of the house of the LORD, in the courts, and in the chambers, and in the purifying of all holy things, and the work of the service of the house of God;  
-> <sup>29</sup> Both for the showbread, and for the fine flour for meat offering, and for the unleavened cakes, and for *that which is baked in* the pan, and for that which is fried, and for all manner of measure and size;  
-> <sup>30</sup> And to stand every morning to thank and praise the LORD, and likewise at even;  
-> <sup>31</sup> And to offer all burnt sacrifices unto the LORD in the sabbaths, in the new moons, and on the set feasts, by number, according to the order commanded unto them, continually before the LORD:  
-> <sup>32</sup> And that they should keep the charge of the tabernacle of the congregation, and the charge of the holy *place,* and the charge of the sons of Aaron their brethren, in the service of the house of the LORD.  
+> **²⁴** These *were* the sons of Levi after the house of their fathers; *even* the chief of the fathers, as they were counted by number of names by their polls, that did the work for the service of the house of the LORD, from the age of twenty years and upward.  
+> **²⁵** For David said, The LORD God of Israel hath given rest unto his people, that they may dwell in Jerusalem for ever:  
+> **²⁶** And also unto the Levites; they shall no *more* carry the tabernacle, nor any vessels of it for the service thereof.  
+> **²⁷** For by the last words of David the Levites *were* numbered from twenty years old and above:  
+> **²⁸** Because their office *was* to wait on the sons of Aaron for the service of the house of the LORD, in the courts, and in the chambers, and in the purifying of all holy things, and the work of the service of the house of God;  
+> **²⁹** Both for the showbread, and for the fine flour for meat offering, and for the unleavened cakes, and for *that which is baked in* the pan, and for that which is fried, and for all manner of measure and size;  
+> **³⁰** And to stand every morning to thank and praise the LORD, and likewise at even;  
+> **³¹** And to offer all burnt sacrifices unto the LORD in the sabbaths, in the new moons, and on the set feasts, by number, according to the order commanded unto them, continually before the LORD:  
+> **³²** And that they should keep the charge of the tabernacle of the congregation, and the charge of the holy *place,* and the charge of the sons of Aaron their brethren, in the service of the house of the LORD.  
 
 Here is, I. An alteration made in the computation of the effective men of the Levites—that whereas, in Moses's time, they were not enlisted, or taken into service, till they were thirty-years old, nor admitted as probationers till twenty-five (Nu 8:24), David ordered, by direction from God, that they should be numbered *for the service of the house of the Lord,* from the age of twenty years and upwards, 1Ch 23:24. This order he confirmed by his last words, 1Ch 23:27. When he put his last hand to the draught of this establishment he expressly appointed this to be done for ever after; yet not he; but the Lord. 1. Perhaps the young Levites, having no work appointed them till twenty-five years old, had many of them got a habit of idleness, or grew addicted to their pleasures, which proved both a blemish to their reputation and a hindrance to their usefulness afterwards, to prevent which inconvenience they are set to work, and brought under discipline, at twenty-years old. Those that will be eminent must learn to take care and take care betimes. 2. When the work of the Levites was to carry burdens, heavy burdens, the tabernacle and the furniture of it, God would not call any to it till they had come to their full strength; for he considers our frame, and, in service as well as sufferings, will lay no more upon us than we are able to bear. But now God had given rest to his people, and made Jerusalem his dwelling-place for ever, so that there was no more occasion to carry the tabernacle and the vessels thereof, the service was much easier, and what would not over-work them nor over-load them if they entered upon it at twenty-years old. 3. Now the people of Israel were multiplied, and there was a more general resort to Jerusalem, and would be when the temple was built, than had ever been at Shiloh, or Nob, or Gibeon; it was therefore requisite there should be more hands employed in the temple-service, that every Israelite who brought an offering might find a Levite ready to assist him. When more work is to be done it is a pity but there should be more workmen fetched in for the doing of it. When the harvest is plenteous why should the labourers be few?
 

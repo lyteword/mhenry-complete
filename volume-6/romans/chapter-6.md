@@ -8,29 +8,29 @@ The apostle having at large asserted, opened, and proved, the great doctrine of 
 
 ## On Sanctification. (a. d. 58.)
 
-> <sup>1</sup> What shall we say then? Shall we continue in sin, that grace may abound?  
-> <sup>2</sup> God forbid. How shall we, that are dead to sin, live any longer therein?  
-> <sup>3</sup> Know ye not, that so many of us as were baptized into Jesus Christ were baptized into his death?  
-> <sup>4</sup> Therefore we are buried with him by baptism into death: that like as Christ was raised up from the dead by the glory of the Father, even so we also should walk in newness of life.  
-> <sup>5</sup> For if we have been planted together in the likeness of his death, we shall be also *in the likeness* of *his* resurrection:  
-> <sup>6</sup> Knowing this, that our old man is crucified with *him,* that the body of sin might be destroyed, that henceforth we should not serve sin.  
-> <sup>7</sup> For he that is dead is freed from sin.  
-> <sup>8</sup> Now if we be dead with Christ, we believe that we shall also live with him:  
-> <sup>9</sup> Knowing that Christ being raised from the dead dieth no more; death hath no more dominion over him.  
-> <sup>10</sup> For in that he died, he died unto sin once: but in that he liveth, he liveth unto God.  
-> <sup>11</sup> Likewise reckon ye also yourselves to be dead indeed unto sin, but alive unto God through Jesus Christ our Lord.  
-> <sup>12</sup> Let not sin therefore reign in your mortal body, that ye should obey it in the lusts thereof.  
-> <sup>13</sup> Neither yield ye your members *as* instruments of unrighteousness unto sin: but yield yourselves unto God, as those that are alive from the dead, and your members *as* instruments of righteousness unto God.  
-> <sup>14</sup> For sin shall not have dominion over you: for ye are not under the law, but under grace.  
-> <sup>15</sup> What then? shall we sin, because we are not under the law, but under grace? God forbid.  
-> <sup>16</sup> Know ye not, that to whom ye yield yourselves servants to obey, his servants ye are to whom ye obey; whether of sin unto death, or of obedience unto righteousness?  
-> <sup>17</sup> But God be thanked, that ye were the servants of sin, but ye have obeyed from the heart that form of doctrine which was delivered you.  
-> <sup>18</sup> Being then made free from sin, ye became the servants of righteousness.  
-> <sup>19</sup> I speak after the manner of men because of the infirmity of your flesh: for as ye have yielded your members servants to uncleanness and to iniquity unto iniquity; even so now yield your members servants to righteousness unto holiness.  
-> <sup>20</sup> For when ye were the servants of sin, ye were free from righteousness.  
-> <sup>21</sup> What fruit had ye then in those things whereof ye are now ashamed? for the end of those things *is* death.  
-> <sup>22</sup> But now being made free from sin, and become servants to God, ye have your fruit unto holiness, and the end everlasting life.  
-> <sup>23</sup> For the wages of sin *is* death; but the gift of God *is* eternal life through Jesus Christ our Lord.  
+> **¹** What shall we say then? Shall we continue in sin, that grace may abound?  
+> **²** God forbid. How shall we, that are dead to sin, live any longer therein?  
+> **³** Know ye not, that so many of us as were baptized into Jesus Christ were baptized into his death?  
+> **⁴** Therefore we are buried with him by baptism into death: that like as Christ was raised up from the dead by the glory of the Father, even so we also should walk in newness of life.  
+> **⁵** For if we have been planted together in the likeness of his death, we shall be also *in the likeness* of *his* resurrection:  
+> **⁶** Knowing this, that our old man is crucified with *him,* that the body of sin might be destroyed, that henceforth we should not serve sin.  
+> **⁷** For he that is dead is freed from sin.  
+> **⁸** Now if we be dead with Christ, we believe that we shall also live with him:  
+> **⁹** Knowing that Christ being raised from the dead dieth no more; death hath no more dominion over him.  
+> **¹⁰** For in that he died, he died unto sin once: but in that he liveth, he liveth unto God.  
+> **¹¹** Likewise reckon ye also yourselves to be dead indeed unto sin, but alive unto God through Jesus Christ our Lord.  
+> **¹²** Let not sin therefore reign in your mortal body, that ye should obey it in the lusts thereof.  
+> **¹³** Neither yield ye your members *as* instruments of unrighteousness unto sin: but yield yourselves unto God, as those that are alive from the dead, and your members *as* instruments of righteousness unto God.  
+> **¹⁴** For sin shall not have dominion over you: for ye are not under the law, but under grace.  
+> **¹⁵** What then? shall we sin, because we are not under the law, but under grace? God forbid.  
+> **¹⁶** Know ye not, that to whom ye yield yourselves servants to obey, his servants ye are to whom ye obey; whether of sin unto death, or of obedience unto righteousness?  
+> **¹⁷** But God be thanked, that ye were the servants of sin, but ye have obeyed from the heart that form of doctrine which was delivered you.  
+> **¹⁸** Being then made free from sin, ye became the servants of righteousness.  
+> **¹⁹** I speak after the manner of men because of the infirmity of your flesh: for as ye have yielded your members servants to uncleanness and to iniquity unto iniquity; even so now yield your members servants to righteousness unto holiness.  
+> **²⁰** For when ye were the servants of sin, ye were free from righteousness.  
+> **²¹** What fruit had ye then in those things whereof ye are now ashamed? for the end of those things *is* death.  
+> **²²** But now being made free from sin, and become servants to God, ye have your fruit unto holiness, and the end everlasting life.  
+> **²³** For the wages of sin *is* death; but the gift of God *is* eternal life through Jesus Christ our Lord.  
 
 The apostle's transition, which joins this discourse with the former, is observable: "*What shall we say then?* Ro 6:1. What use shall we make of this sweet and comfortable doctrine? Shall we do evil that good may come, as some say we do? Ro 3:8. *Shall we continue in sin that grace may abound?* Shall we hence take encouragement to sin with so much the more boldness, because the more sin we commit the more will the grace of God be magnified in our pardon? Is this a use to be made of it?" No, it is an abuse, and the apostle startles at the thought of it (Ro 6:2): "*God forbid;* far be it from us to think such a thought." He entertains the objection as Christ did the devil's blackest temptation (Mt 4:10): *Get thee hence, Satan.* Those opinions that give any countenance to sin, or open a door to practical immoralities, how specious and plausible soever they be rendered, by the pretension of advancing free grace, are to be rejected with the greatest abhorrence; for the truth as it is in Jesus is a truth *according to godliness,* Tit 1:1. The apostle is very full in pressing the necessity of holiness in this chapter, which may be reduced to two heads:—His exhortations to holiness, which show the nature of it; and his motives or arguments to enforce those exhortations, which show the necessity of it.
 

@@ -8,16 +8,16 @@ In the close of the foregoing chapter we had a general prediction of the utter r
 
 ## Vision of the Good and Bad Figs; Promises and Threatenings. (b. c. 599.)
 
-> <sup>1</sup> The LORD shewed me, and, behold, two baskets of figs *were* set before the temple of the LORD, after that Nebuchadrezzar king of Babylon had carried away captive Jeconiah the son of Jehoiakim king of Judah, and the princes of Judah, with the carpenters and smiths, from Jerusalem, and had brought them to Babylon.  
-> <sup>2</sup> One basket *had* very good figs, *even* like the figs *that are* first ripe: and the other basket *had* very naughty figs, which could not be eaten, they were so bad.  
-> <sup>3</sup> Then said the LORD unto me, What seest thou, Jeremiah? And I said, Figs; the good figs, very good; and the evil, very evil, that cannot be eaten, they are so evil.  
-> <sup>4</sup> Again the word of the LORD came unto me, saying,  
-> <sup>5</sup> Thus saith the LORD, the God of Israel; Like these good figs, so will I acknowledge them that are carried away captive of Judah, whom I have sent out of this place into the land of the Chaldeans for *their* good.  
-> <sup>6</sup> For I will set mine eyes upon them for good, and I will bring them again to this land: and I will build them, and not pull *them* down; and I will plant them, and not pluck *them* up.  
-> <sup>7</sup> And I will give them a heart to know me, that I *am* the LORD: and they shall be my people, and I will be their God: for they shall return unto me with their whole heart.  
-> <sup>8</sup> And as the evil figs, which cannot be eaten, they are so evil; surely thus saith the LORD, So will I give Zedekiah the king of Judah, and his princes, and the residue of Jerusalem, that remain in this land, and them that dwell in the land of Egypt:  
-> <sup>9</sup> And I will deliver them to be removed into all the kingdoms of the earth for *their* hurt, *to be* a reproach and a proverb, a taunt and a curse, in all places whither I shall drive them.  
-> <sup>10</sup> And I will send the sword, the famine, and the pestilence, among them, till they be consumed from off the land that I gave unto them and to their fathers.  
+> **¹** The LORD shewed me, and, behold, two baskets of figs *were* set before the temple of the LORD, after that Nebuchadrezzar king of Babylon had carried away captive Jeconiah the son of Jehoiakim king of Judah, and the princes of Judah, with the carpenters and smiths, from Jerusalem, and had brought them to Babylon.  
+> **²** One basket *had* very good figs, *even* like the figs *that are* first ripe: and the other basket *had* very naughty figs, which could not be eaten, they were so bad.  
+> **³** Then said the LORD unto me, What seest thou, Jeremiah? And I said, Figs; the good figs, very good; and the evil, very evil, that cannot be eaten, they are so evil.  
+> **⁴** Again the word of the LORD came unto me, saying,  
+> **⁵** Thus saith the LORD, the God of Israel; Like these good figs, so will I acknowledge them that are carried away captive of Judah, whom I have sent out of this place into the land of the Chaldeans for *their* good.  
+> **⁶** For I will set mine eyes upon them for good, and I will bring them again to this land: and I will build them, and not pull *them* down; and I will plant them, and not pluck *them* up.  
+> **⁷** And I will give them a heart to know me, that I *am* the LORD: and they shall be my people, and I will be their God: for they shall return unto me with their whole heart.  
+> **⁸** And as the evil figs, which cannot be eaten, they are so evil; surely thus saith the LORD, So will I give Zedekiah the king of Judah, and his princes, and the residue of Jerusalem, that remain in this land, and them that dwell in the land of Egypt:  
+> **⁹** And I will deliver them to be removed into all the kingdoms of the earth for *their* hurt, *to be* a reproach and a proverb, a taunt and a curse, in all places whither I shall drive them.  
+> **¹⁰** And I will send the sword, the famine, and the pestilence, among them, till they be consumed from off the land that I gave unto them and to their fathers.  
 
 This short chapter helps us to put a very comfortable construction upon a great many long ones, by showing us that the same providence which to some is a *savour of death unto death* may by the grace and blessing of God be made to others a *savour of life unto life;* and that, though God's people share with others in the same calamity, yet it is not the same to them that it is to others, but is designed for their good and shall issue in their good; to them it is a correcting rod in the hand of a tender Father, while to others it is an avenging sword in the hand of a righteous Judge. Observe,
 

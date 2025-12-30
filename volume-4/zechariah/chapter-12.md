@@ -8,14 +8,14 @@ The apostle (Ga 4:25,26) distinguishes between "Jerusalem which now is, and is i
 
 ## The Security of the Church; Punishment of the Church's Enemies; Promises to Judah. (b. c. 500.)
 
-> <sup>1</sup> The burden of the word of the LORD for Israel, saith the LORD, which stretcheth forth the heavens, and layeth the foundation of the earth, and formeth the spirit of man within him.  
-> <sup>2</sup> Behold, I will make Jerusalem a cup of trembling unto all the people round about, when they shall be in the siege both against Judah *and* against Jerusalem.  
-> <sup>3</sup> And in that day will I make Jerusalem a burdensome stone for all people: all that burden themselves with it shall be cut in pieces, though all the people of the earth be gathered together against it.  
-> <sup>4</sup> In that day, saith the LORD, I will smite every horse with astonishment, and his rider with madness: and I will open mine eyes upon the house of Judah, and will smite every horse of the people with blindness.  
-> <sup>5</sup> And the governors of Judah shall say in their heart, The inhabitants of Jerusalem *shall be* my strength in the LORD of hosts their God.  
-> <sup>6</sup> In that day will I make the governors of Judah like a hearth of fire among the wood, and like a torch of fire in a sheaf; and they shall devour all the people round about, on the right hand and on the left: and Jerusalem shall be inhabited again in her own place, *even* in Jerusalem.  
-> <sup>7</sup> The LORD also shall save the tents of Judah first, that the glory of the house of David and the glory of the inhabitants of Jerusalem do not magnify *themselves* against Judah.  
-> <sup>8</sup> In that day shall the LORD defend the inhabitants of Jerusalem; and he that is feeble among them at that day shall be as David; and the house of David *shall be* as God, as the angel of the LORD before them.  
+> **¹** The burden of the word of the LORD for Israel, saith the LORD, which stretcheth forth the heavens, and layeth the foundation of the earth, and formeth the spirit of man within him.  
+> **²** Behold, I will make Jerusalem a cup of trembling unto all the people round about, when they shall be in the siege both against Judah *and* against Jerusalem.  
+> **³** And in that day will I make Jerusalem a burdensome stone for all people: all that burden themselves with it shall be cut in pieces, though all the people of the earth be gathered together against it.  
+> **⁴** In that day, saith the LORD, I will smite every horse with astonishment, and his rider with madness: and I will open mine eyes upon the house of Judah, and will smite every horse of the people with blindness.  
+> **⁵** And the governors of Judah shall say in their heart, The inhabitants of Jerusalem *shall be* my strength in the LORD of hosts their God.  
+> **⁶** In that day will I make the governors of Judah like a hearth of fire among the wood, and like a torch of fire in a sheaf; and they shall devour all the people round about, on the right hand and on the left: and Jerusalem shall be inhabited again in her own place, *even* in Jerusalem.  
+> **⁷** The LORD also shall save the tents of Judah first, that the glory of the house of David and the glory of the inhabitants of Jerusalem do not magnify *themselves* against Judah.  
+> **⁸** In that day shall the LORD defend the inhabitants of Jerusalem; and he that is feeble among them at that day shall be as David; and the house of David *shall be* as God, as the angel of the LORD before them.  
 
 Here is, I. The title of this charter of promises made to God's Israel; it is the *burden of the word of the Lord,* a divine prediction; it is of weight in the delivery of it; it is to be pressed upon people, and will be very pressing in the accomplishment of it; it is a *burden,* a heavy burden, to all the church's enemies, like that *talent of lead,* Zec 5:7,8. But it is *for Israel;* it is for their comfort and benefit. As even the *fiery law* (De 33:2), so the fiery prophecies and fiery providences that come from God's right hand, come for them; the word that speaks terror to their enemies speaks peace to them, as the pillar of cloud and fire, which turned a bright side towards the Israelites, to direct and encourage them, but a black side towards the Egyptians, to terrify and dispirit them. Happy are those that have even the burdens of God's word for them, as well as the blessings of it.
 
@@ -41,12 +41,12 @@ III\. The promises themselves that are here made them, by which the church shall
 
 ## Promises to Judah; Evangelical Predictions. (b. c. 500.)
 
-> <sup>9</sup> And it shall come to pass in that day, *that* I will seek to destroy all the nations that come against Jerusalem.  
-> <sup>10</sup> And I will pour upon the house of David, and upon the inhabitants of Jerusalem, the spirit of grace and of supplications: and they shall look upon me whom they have pierced, and they shall mourn for him, as one mourneth for *his* only *son,* and shall be in bitterness for him, as one that is in bitterness for *his* firstborn.  
-> <sup>11</sup> In that day shall there be a great mourning in Jerusalem, as the mourning of Hadadrimmon in the valley of Megiddon.  
-> <sup>12</sup> And the land shall mourn, every family apart; the family of the house of David apart, and their wives apart; the family of the house of Nathan apart, and their wives apart;  
-> <sup>13</sup> The family of the house of Levi apart, and their wives apart; the family of Shimei apart, and their wives apart;  
-> <sup>14</sup> All the families that remain, every family apart, and their wives apart.  
+> **⁹** And it shall come to pass in that day, *that* I will seek to destroy all the nations that come against Jerusalem.  
+> **¹⁰** And I will pour upon the house of David, and upon the inhabitants of Jerusalem, the spirit of grace and of supplications: and they shall look upon me whom they have pierced, and they shall mourn for him, as one mourneth for *his* only *son,* and shall be in bitterness for him, as one that is in bitterness for *his* firstborn.  
+> **¹¹** In that day shall there be a great mourning in Jerusalem, as the mourning of Hadadrimmon in the valley of Megiddon.  
+> **¹²** And the land shall mourn, every family apart; the family of the house of David apart, and their wives apart; the family of the house of Nathan apart, and their wives apart;  
+> **¹³** The family of the house of Levi apart, and their wives apart; the family of Shimei apart, and their wives apart;  
+> **¹⁴** All the families that remain, every family apart, and their wives apart.  
 
 The *day* here spoken of is the day of Jerusalem's defence and deliverance, that glorious day when God will appear for the salvation of his people, which, if it do refer to the successes which the Jews had against their enemies in the time of the Maccabees, yet certainly looks further, to the *gospel-day,* to Christ's victories over the powers of darkness and the great salvation he has wrought for his chosen. Now we have here an account of two remarkable works designed *in that day.*
 

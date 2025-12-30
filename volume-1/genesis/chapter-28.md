@@ -8,11 +8,11 @@ We have here, I. Jacob parting with his parents, to go to Padan-aram; the charge
 
 ## Jacob Dismissed with a Blessing. (b. c. 1760.)
 
-> <sup>1</sup> And Isaac called Jacob, and blessed him, and charged him, and said unto him, Thou shalt not take a wife of the daughters of Canaan.  
-> <sup>2</sup> Arise, go to Padan-aram, to the house of Bethuel thy mother's father; and take thee a wife from thence of the daughters of Laban thy mother's brother.  
-> <sup>3</sup> And God Almighty bless thee, and make thee fruitful, and multiply thee, that thou mayest be a multitude of people;  
-> <sup>4</sup> And give thee the blessing of Abraham, to thee, and to thy seed with thee; that thou mayest inherit the land wherein thou art a stranger, which God gave unto Abraham.  
-> <sup>5</sup> And Isaac sent away Jacob: and he went to Padan-aram unto Laban, son of Bethuel the Syrian, the brother of Rebekah, Jacob's and Esau's mother.  
+> **¹** And Isaac called Jacob, and blessed him, and charged him, and said unto him, Thou shalt not take a wife of the daughters of Canaan.  
+> **²** Arise, go to Padan-aram, to the house of Bethuel thy mother's father; and take thee a wife from thence of the daughters of Laban thy mother's brother.  
+> **³** And God Almighty bless thee, and make thee fruitful, and multiply thee, that thou mayest be a multitude of people;  
+> **⁴** And give thee the blessing of Abraham, to thee, and to thy seed with thee; that thou mayest inherit the land wherein thou art a stranger, which God gave unto Abraham.  
+> **⁵** And Isaac sent away Jacob: and he went to Padan-aram unto Laban, son of Bethuel the Syrian, the brother of Rebekah, Jacob's and Esau's mother.  
 
 Jacob had no sooner obtained the blessing than immediately he was forced to flee from his country; and, as it if were not enough that he was a stranger and sojourner there, he must go to be more so, and no better than an exile, in another country. Now *Jacob fled into Syria,* Ho 12:12. He was blessed with plenty of corn and wine, and yet he went away poor, was blessed with government, and yet went out to service, a hard service. This was, 1. Perhaps to correct him for his dealing fraudulently with his father. The blessing shall be confirmed to him, and yet he shall smart for the indirect course he took to obtain it. While there is such an alloy as there is of sin in our duties, we must expect an alloy of trouble in our comforts. However, 2. It was to teach us that those who inherit the blessing must expect persecution; those who have peace in Christ shall have tribulation in the world, Joh 16:33. Being told of this before, we must not think it strange, and, being assured of a recompence hereafter, we must not think it hard. We may observe, likewise, that God's providences often seem to contradict his promises, and to go cross to them; and yet, when the mystery of God shall be finished, we shall see that all was for the best, and that cross providences did but render the promises and the accomplishment of them the more illustrious. Now Jacob is here dismissed by his father,
 
@@ -26,21 +26,21 @@ II\. With a solemn blessing, Ge 28:3,4. He had before blessed him unwittingly; n
 
 Jacob, having taken leave of his father, was hastened away with all speed, lest his brother should find an opportunity to do him a mischief, and away he went to Padan-aram, Ge 28:5. How unlike was his taking a wife thence to his father's! Isaac had servants and camels sent to fetch his; Jacob must go himself, go alone, and go afoot, to fetch his: he must go too in a fright from his father's house, not knowing when he might return. Note, If God, in his providence, disable us, we must be content, though we cannot keep up the state and grandeur of our ancestors. We should be more in care to maintain their piety than to maintain their dignity, and to be as good as they were than to be as great. Rebekah is here called *Jacob's and Esau's mother.* Jacob is named first, not only because he had always been his mother's darling, but because he was now make his father's heir, and Esau was, in this sense, set aside. Note, The time will come when piety will have precedency, whatever it has now.
 
-> <sup>6</sup> When Esau saw that Isaac had blessed Jacob, and sent him away to Padan-aram, to take him a wife from thence; and that as he blessed him he gave him a charge, saying, Thou shalt not take a wife of the daughters of Canaan;  
-> <sup>7</sup> And that Jacob obeyed his father and his mother, and was gone to Padan-aram;  
-> <sup>8</sup> And Esau seeing that the daughters of Canaan pleased not Isaac his father;  
-> <sup>9</sup> Then went Esau unto Ishmael, and took unto the wives which he had Mahalath the daughter of Ishmael Abraham's son, the sister of Nebajoth, to be his wife.  
+> **⁶** When Esau saw that Isaac had blessed Jacob, and sent him away to Padan-aram, to take him a wife from thence; and that as he blessed him he gave him a charge, saying, Thou shalt not take a wife of the daughters of Canaan;  
+> **⁷** And that Jacob obeyed his father and his mother, and was gone to Padan-aram;  
+> **⁸** And Esau seeing that the daughters of Canaan pleased not Isaac his father;  
+> **⁹** Then went Esau unto Ishmael, and took unto the wives which he had Mahalath the daughter of Ishmael Abraham's son, the sister of Nebajoth, to be his wife.  
 
 This passage concerning Esau comes in in the midst of Jacob's story, either, 1. To show the influence of a good example. Esau, though the greater man, now begins to think Jacob the better man, and disdains not to take him for his pattern in this particular instance of marrying with a daughter of Abraham. The elder children should give to the younger an example of tractableness and obedience; it is bad if they do not: but it is some alleviation if they take the example of it from them, as Esau here did from Jacob. Or, 2. To show the folly of an after-wit. Esau did well, but he did it when it was too late, He *saw that the daughters of Canaan pleased not his father,* and he might have seen that long ago if he had consulted his father's judgment as much as he did his palate. And how did he now mend the matter? Why, truly, so as to make bad worse. (1.) He married a daughter of Ishmael, the son of the bond-woman, who was cast out, and was not to inherit with Isaac and his seed, thus joining with a family which God had rejected, and seeking to strengthen his own pretensions by the aid of another pretender. (2.) He took a third wife, while, for aught that appears, his other two were neither dead nor divorced. (3.) He did it only to please his father, not to please God. Now that Jacob was sent into a far country Esau would be all in all at home, and he hoped so to humour his father as to prevail with him to make a new will, and entail the promise upon him, revoking the settlement lately made upon Jacob. And thus, [1.] He was wise when it was too late, like Israel that would venture when the decree had gone forth against them (Nu 14:40), and the foolish virgins, Mt 25:11. [2.] He rested in a partial reformation, and thought, by pleasing his parents in one thing, to atone for all his other miscarriages. It is not said that when he saw how obedient Jacob was, and how willing to please his parents, he repented of his malicious design against him: no, it appeared afterwards that he persisted in that, and retained his malice. Note, Carnal hearts are apt to think themselves as good as they should be, because perhaps, in some one particular instance, they are not so bad as they have been. Thus Micah retains his idols, but thinks himself happy in having a Levite to be his priest, Jdg 17:13.
 
 ## Jacob's Vision at Bethel. (b. c. 1760.)
 
-> <sup>10</sup> And Jacob went out from Beer-sheba, and went toward Haran.  
-> <sup>11</sup> And he lighted upon a certain place, and tarried there all night, because the sun was set; and he took of the stones of that place, and put *them for* his pillows, and lay down in that place to sleep.  
-> <sup>12</sup> And he dreamed, and behold a ladder set up on the earth, and the top of it reached to heaven: and behold the angels of God ascending and descending on it.  
-> <sup>13</sup> And, behold, the LORD stood above it, and said, I *am* the LORD God of Abraham thy father, and the God of Isaac: the land whereon thou liest, to thee will I give it, and to thy seed;  
-> <sup>14</sup> And thy seed shall be as the dust of the earth, and thou shalt spread abroad to the west, and to the east, and to the north, and to the south: and in thee and in thy seed shall all the families of the earth be blessed.  
-> <sup>15</sup> And, behold, I *am* with thee, and will keep thee in all *places* whither thou goest, and will bring thee again into this land; for I will not leave thee, until I have done *that* which I have spoken to thee of.  
+> **¹⁰** And Jacob went out from Beer-sheba, and went toward Haran.  
+> **¹¹** And he lighted upon a certain place, and tarried there all night, because the sun was set; and he took of the stones of that place, and put *them for* his pillows, and lay down in that place to sleep.  
+> **¹²** And he dreamed, and behold a ladder set up on the earth, and the top of it reached to heaven: and behold the angels of God ascending and descending on it.  
+> **¹³** And, behold, the LORD stood above it, and said, I *am* the LORD God of Abraham thy father, and the God of Isaac: the land whereon thou liest, to thee will I give it, and to thy seed;  
+> **¹⁴** And thy seed shall be as the dust of the earth, and thou shalt spread abroad to the west, and to the east, and to the north, and to the south: and in thee and in thy seed shall all the families of the earth be blessed.  
+> **¹⁵** And, behold, I *am* with thee, and will keep thee in all *places* whither thou goest, and will bring thee again into this land; for I will not leave thee, until I have done *that* which I have spoken to thee of.  
 
 We have here Jacob upon his journey towards Syria, in a very desolate condition, like one that was sent to seek his fortune; but we find that, though he was alone, yet he was not alone, for *the Father was with him,* Joh 16:32. If what is here recorded happened (as it should seem it did) the first night, he had made a long day's journey from Beersheba to Bethel, above forty miles. Providence brought him to a convenient place, probably shaded with trees, to rest himself in that night; and there he had,
 
@@ -58,13 +58,13 @@ II\. In his hard lodging he had a pleasant dream. Any Israelite indeed would be 
 
 ## Jacob's Vow. (b. c. 1760.)
 
-> <sup>16</sup> And Jacob awaked out of his sleep, and he said, Surely the LORD is in this place; and I knew *it* not.  
-> <sup>17</sup> And he was afraid, and said, How dreadful *is* this place! this *is* none other but the house of God, and this *is* the gate of heaven.  
-> <sup>18</sup> And Jacob rose up early in the morning, and took the stone that he had put *for* his pillows, and set it up *for* a pillar, and poured oil upon the top of it.  
-> <sup>19</sup> And he called the name of that place Beth-el: but the name of that city *was called* Luz at the first.  
-> <sup>20</sup> And Jacob vowed a vow, saying, If God will be with me, and will keep me in this way that I go, and will give me bread to eat, and raiment to put on,  
-> <sup>21</sup> So that I come again to my father's house in peace; then shall the LORD be my God:  
-> <sup>22</sup> And this stone, which I have set *for* a pillar, shall be God's house: and of all that thou shalt give me I will surely give the tenth unto thee.  
+> **¹⁶** And Jacob awaked out of his sleep, and he said, Surely the LORD is in this place; and I knew *it* not.  
+> **¹⁷** And he was afraid, and said, How dreadful *is* this place! this *is* none other but the house of God, and this *is* the gate of heaven.  
+> **¹⁸** And Jacob rose up early in the morning, and took the stone that he had put *for* his pillows, and set it up *for* a pillar, and poured oil upon the top of it.  
+> **¹⁹** And he called the name of that place Beth-el: but the name of that city *was called* Luz at the first.  
+> **²⁰** And Jacob vowed a vow, saying, If God will be with me, and will keep me in this way that I go, and will give me bread to eat, and raiment to put on,  
+> **²¹** So that I come again to my father's house in peace; then shall the LORD be my God:  
+> **²²** And this stone, which I have set *for* a pillar, shall be God's house: and of all that thou shalt give me I will surely give the tenth unto thee.  
 
 God manifested himself and his favour to Jacob when he was asleep and purely passive; for the spirit, like the wind, blows when and where he listeth, and God's grace, like the dew, tarrieth not for the sons of men, Mic 5:7. But Jacob applied himself to the improvement of the visit God had made him when he was awake; and we may well think he awaked, as the prophet did (Jer 31:26), and behold his sleep was sweet to him. Here is much of Jacob's devotion on this occasion.
 

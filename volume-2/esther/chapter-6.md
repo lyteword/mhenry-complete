@@ -8,9 +8,9 @@ It is a very surprising scene that opens in this chapter. Haman, when he hoped t
 
 ## The Record of Mordecai's Loyalty. (b. c. 510.)
 
-> <sup>1</sup> On that night could not the king sleep, and he commanded to bring the book of records of the chronicles; and they were read before the king.  
-> <sup>2</sup> And it was found written, that Mordecai had told of Bigthana and Teresh, two of the king's chamberlains, the keepers of the door, who sought to lay hand on the king Ahasuerus.  
-> <sup>3</sup> And the king said, What honour and dignity hath been done to Mordecai for this? Then said the king's servants that ministered unto him, There is nothing done for him.  
+> **¹** On that night could not the king sleep, and he commanded to bring the book of records of the chronicles; and they were read before the king.  
+> **²** And it was found written, that Mordecai had told of Bigthana and Teresh, two of the king's chamberlains, the keepers of the door, who sought to lay hand on the king Ahasuerus.  
+> **³** And the king said, What honour and dignity hath been done to Mordecai for this? Then said the king's servants that ministered unto him, There is nothing done for him.  
 
 Now Satan put it into the heart of Haman to contrive Mordecai's death we read in the foregoing chapter; how God put it into the heart of the king to contrive Mordecai's honour we are here told. Now, if the king's word will prevail above Haman's (for, though Haman be a great man, the king in the throne must be above him), much more will the *counsel of God stand,* whatever *devices there are in men's hearts.* It is to no purpose therefore for Haman to oppose it, when both God and the king will have Mordecai honoured, and in this juncture too, when his preferment, and Haman's disappointment, would help to ripen the great affair of the Jewish deliverance for the effort that Esther was to make towards it the next day. Sometimes delay may prove to have been good conduct. Stay awhile, and we may have done the sooner. *Cunctando restituit rem—He conquered by delay.* Let us trace the steps which Providence took towards the advancement of Mordecai.
 
@@ -26,14 +26,14 @@ V\. The servants informed him that nothing had been done to Mordecai for that em
 
 ## The Honour Conferred on Mordecai. (b. c. 510.)
 
-> <sup>4</sup> And the king said, Who *is* in the court? Now Haman was come into the outward court of the king's house, to speak unto the king to hang Mordecai on the gallows that he had prepared for him.  
-> <sup>5</sup> And the king's servants said unto him, Behold, Haman standeth in the court. And the king said, Let him come in.  
-> <sup>6</sup> So Haman came in. And the king said unto him, What shall be done unto the man whom the king delighteth to honour? Now Haman thought in his heart, To whom would the king delight to do honour more than to myself?  
-> <sup>7</sup> And Haman answered the king, For the man whom the king delighteth to honour,  
-> <sup>8</sup> Let the royal apparel be brought which the king *useth* to wear, and the horse that the king rideth upon, and the crown royal which is set upon his head:  
-> <sup>9</sup> And let this apparel and horse be delivered to the hand of one of the king's most noble princes, that they may array the man *withal* whom the king delighteth to honour, and bring him on horseback through the street of the city, and proclaim before him, Thus shall it be done to the man whom the king delighteth to honour.  
-> <sup>10</sup> Then the king said to Haman, Make haste, *and* take the apparel and the horse, as thou hast said, and do even so to Mordecai the Jew, that sitteth at the king's gate: let nothing fail of all that thou hast spoken.  
-> <sup>11</sup> Then took Haman the apparel and the horse, and arrayed Mordecai, and brought him on horseback through the street of the city, and proclaimed before him, Thus shall it be done unto the man whom the king delighteth to honour.  
+> **⁴** And the king said, Who *is* in the court? Now Haman was come into the outward court of the king's house, to speak unto the king to hang Mordecai on the gallows that he had prepared for him.  
+> **⁵** And the king's servants said unto him, Behold, Haman standeth in the court. And the king said, Let him come in.  
+> **⁶** So Haman came in. And the king said unto him, What shall be done unto the man whom the king delighteth to honour? Now Haman thought in his heart, To whom would the king delight to do honour more than to myself?  
+> **⁷** And Haman answered the king, For the man whom the king delighteth to honour,  
+> **⁸** Let the royal apparel be brought which the king *useth* to wear, and the horse that the king rideth upon, and the crown royal which is set upon his head:  
+> **⁹** And let this apparel and horse be delivered to the hand of one of the king's most noble princes, that they may array the man *withal* whom the king delighteth to honour, and bring him on horseback through the street of the city, and proclaim before him, Thus shall it be done to the man whom the king delighteth to honour.  
+> **¹⁰** Then the king said to Haman, Make haste, *and* take the apparel and the horse, as thou hast said, and do even so to Mordecai the Jew, that sitteth at the king's gate: let nothing fail of all that thou hast spoken.  
+> **¹¹** Then took Haman the apparel and the horse, and arrayed Mordecai, and brought him on horseback through the street of the city, and proclaimed before him, Thus shall it be done unto the man whom the king delighteth to honour.  
 
 It is now morning, and people begin to stir.
 
@@ -51,9 +51,9 @@ VI\. Haman dares not dispute nor so much as seem to dislike the king's order, bu
 
 ## Haman Cast Down. (b. c. 510.)
 
-> <sup>12</sup> And Mordecai came again to the king's gate. But Haman hasted to his house mourning, and having his head covered.  
-> <sup>13</sup> And Haman told Zeresh his wife and all his friends every *thing* that had befallen him. Then said his wise men and Zeresh his wife unto him, If Mordecai *be* of the seed of the Jews, before whom thou hast begun to fall, thou shalt not prevail against him, but shalt surely fall before him.  
-> <sup>14</sup> And while they *were* yet talking with him, came the king's chamberlains, and hasted to bring Haman unto the banquet that Esther had prepared.  
+> **¹²** And Mordecai came again to the king's gate. But Haman hasted to his house mourning, and having his head covered.  
+> **¹³** And Haman told Zeresh his wife and all his friends every *thing* that had befallen him. Then said his wise men and Zeresh his wife unto him, If Mordecai *be* of the seed of the Jews, before whom thou hast begun to fall, thou shalt not prevail against him, but shalt surely fall before him.  
+> **¹⁴** And while they *were* yet talking with him, came the king's chamberlains, and hasted to bring Haman unto the banquet that Esther had prepared.  
 
 We may here observe,
 

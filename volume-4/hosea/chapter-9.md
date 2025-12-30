@@ -8,12 +8,12 @@ In this chapter, I. God threatens to deprive this degenerate seed of Israel of a
 
 ## Threatenings of Judgment. (b. c. 740.)
 
-> <sup>1</sup> Rejoice not, O Israel, for joy, as *other* people: for thou hast gone a whoring from thy God, thou hast loved a reward upon every corn-floor.  
-> <sup>2</sup> The floor and the winepress shall not feed them, and the new wine shall fail in her.  
-> <sup>3</sup> They shall not dwell in the LORD's land; but Ephraim shall return to Egypt, and they shall eat unclean *things* in Assyria.  
-> <sup>4</sup> They shall not offer wine *offerings* to the LORD, neither shall they be pleasing unto him: their sacrifices *shall be* unto them as the bread of mourners; all that eat thereof shall be polluted: for their bread for their soul shall not come into the house of the LORD.  
-> <sup>5</sup> What will ye do in the solemn day, and in the day of the feast of the LORD?  
-> <sup>6</sup> For, lo, they are gone because of destruction: Egypt shall gather them up, Memphis shall bury them: the pleasant *places* for their silver, nettles shall possess them: thorns *shall be* in their tabernacles.  
+> **¹** Rejoice not, O Israel, for joy, as *other* people: for thou hast gone a whoring from thy God, thou hast loved a reward upon every corn-floor.  
+> **²** The floor and the winepress shall not feed them, and the new wine shall fail in her.  
+> **³** They shall not dwell in the LORD's land; but Ephraim shall return to Egypt, and they shall eat unclean *things* in Assyria.  
+> **⁴** They shall not offer wine *offerings* to the LORD, neither shall they be pleasing unto him: their sacrifices *shall be* unto them as the bread of mourners; all that eat thereof shall be polluted: for their bread for their soul shall not come into the house of the LORD.  
+> **⁵** What will ye do in the solemn day, and in the day of the feast of the LORD?  
+> **⁶** For, lo, they are gone because of destruction: Egypt shall gather them up, Memphis shall bury them: the pleasant *places* for their silver, nettles shall possess them: thorns *shall be* in their tabernacles.  
 
 Here, I. The people of Israel are charged with spiritual adultery: *O Israel! thou hast gone a whoring from thy God,* Ho 9:1. Their covenant with God was a marriage-covenant, by which they were joined to him as their God, renouncing all others. But when they set up idols and worshipped them, when they fled to creatures for succour and put a confidence in them, they *went a whoring from God* as their God, and honoured the pretenders and rivals with the affection, adoration, and confidence, which were due to God only. Other people were idolaters, but that sin was not, in them, going a whoring from God, as it was in Israel that had been married to him. Note, The sins of those who have made a profession of religion and relation to God are more provoking to him than the sins of others. As a proof of their going a whoring from God, it is charged upon them that *they loved a reward upon every corn-floor.* 1. They loved to give rewards to their idols, in the offerings and first-fruits they presented to them out of every corn-floor. They took a strange pleasure in serving their idols with that which they would have grudged to consecrate to God and employ in his service. Note, It is common for those that are niggardly in the expenses of their religion to be very prodigal in spending upon their lusts. Or, 2. They loved to receive rewards from their idols; and such they reckoned the fruits of the earth to be: *These are my rewards, which my lovers have given me,* Ho 2:12. Note, Those are directly disposed to spiritual idolatry that love a reward in the corn-floor better than a reward in the favour of God and eternal life.
 
@@ -35,10 +35,10 @@ III\. They are threatened with destroying judgments for their spiritual whoredom
 
 ## Threatenings of Judgment. (b. c. 740.)
 
-> <sup>7</sup> The days of visitation are come, the days of recompence are come; Israel shall know *it:* the prophet *is* a fool, the spiritual man *is* mad, for the multitude of thine iniquity, and the great hatred.  
-> <sup>8</sup> The watchman of Ephraim *was* with my God: *but* the prophet *is* a snare of a fowler in all his ways, *and* hatred in the house of his God.  
-> <sup>9</sup> They have deeply corrupted *themselves,* as in the days of Gibeah: *therefore* he will remember their iniquity, he will visit their sins.  
-> <sup>10</sup> I found Israel like grapes in the wilderness; I saw your fathers as the first ripe in the fig tree at her first time: *but* they went to Baal-peor, and separated themselves unto *that* shame; and *their* abominations were according as they loved.  
+> **⁷** The days of visitation are come, the days of recompence are come; Israel shall know *it:* the prophet *is* a fool, the spiritual man *is* mad, for the multitude of thine iniquity, and the great hatred.  
+> **⁸** The watchman of Ephraim *was* with my God: *but* the prophet *is* a snare of a fowler in all his ways, *and* hatred in the house of his God.  
+> **⁹** They have deeply corrupted *themselves,* as in the days of Gibeah: *therefore* he will remember their iniquity, he will visit their sins.  
+> **¹⁰** I found Israel like grapes in the wilderness; I saw your fathers as the first ripe in the fig tree at her first time: *but* they went to Baal-peor, and separated themselves unto *that* shame; and *their* abominations were according as they loved.  
 
 For their further awakening, it is here threatened,
 
@@ -52,13 +52,13 @@ IV\. That God will now reckon with them for the sins of their fathers, which the
 
 ## Threatenings of Judgment. (b. c. 740.)
 
-> <sup>11</sup> *As for* Ephraim, their glory shall fly away like a bird, from the birth, and from the womb, and from the conception.  
-> <sup>12</sup> Though they bring up their children, yet will I bereave them, *that there shall* not *be* a man *left:* yea, woe also to them when I depart from them!  
-> <sup>13</sup> Ephraim, as I saw Tyrus, *is* planted in a pleasant place: but Ephraim shall bring forth his children to the murderer.  
-> <sup>14</sup> Give them, O LORD: what wilt thou give? give them a miscarrying womb and dry breasts.  
-> <sup>15</sup> All their wickedness *is* in Gilgal: for there I hated them: for the wickedness of their doings I will drive them out of mine house, I will love them no more: all their princes *are* revolters.  
-> <sup>16</sup> Ephraim is smitten, their root is dried up, they shall bear no fruit: yea, though they bring forth, yet will I slay *even* the beloved *fruit* of their womb.  
-> <sup>17</sup> My God will cast them away, because they did not hearken unto him: and they shall be wanderers among the nations.  
+> **¹¹** *As for* Ephraim, their glory shall fly away like a bird, from the birth, and from the womb, and from the conception.  
+> **¹²** Though they bring up their children, yet will I bereave them, *that there shall* not *be* a man *left:* yea, woe also to them when I depart from them!  
+> **¹³** Ephraim, as I saw Tyrus, *is* planted in a pleasant place: but Ephraim shall bring forth his children to the murderer.  
+> **¹⁴** Give them, O LORD: what wilt thou give? give them a miscarrying womb and dry breasts.  
+> **¹⁵** All their wickedness *is* in Gilgal: for there I hated them: for the wickedness of their doings I will drive them out of mine house, I will love them no more: all their princes *are* revolters.  
+> **¹⁶** Ephraim is smitten, their root is dried up, they shall bear no fruit: yea, though they bring forth, yet will I slay *even* the beloved *fruit* of their womb.  
+> **¹⁷** My God will cast them away, because they did not hearken unto him: and they shall be wanderers among the nations.  
 
 In the foregoing verses we saw the sin of Israel derived from their fathers; here we see the punishment of Israel derived to their children; for, as death entered by sin at first, so it is still entailed with it. We may observe, in these verses,
 

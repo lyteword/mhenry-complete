@@ -10,12 +10,12 @@ Some think David penned this psalm before his coming to the throne, when he was 
 
 A psalm of David.
 
-> <sup>1</sup> The LORD *is* my light and my salvation; whom shall I fear? the LORD *is* the strength of my life; of whom shall I be afraid?  
-> <sup>2</sup> When the wicked, *even* mine enemies and my foes, came upon me to eat up my flesh, they stumbled and fell.  
-> <sup>3</sup> Though a host should encamp against me, my heart shall not fear: though war should rise against me, in this *will* I *be* confident.  
-> <sup>4</sup> One *thing* have I desired of the LORD, that will I seek after; that I may dwell in the house of the LORD all the days of my life, to behold the beauty of the LORD, and to enquire in his temple.  
-> <sup>5</sup> For in the time of trouble he shall hide me in his pavilion: in the secret of his tabernacle shall he hide me; he shall set me up upon a rock.  
-> <sup>6</sup> And now shall mine head be lifted up above mine enemies round about me: therefore will I offer in his tabernacle sacrifices of joy; I will sing, yea, I will sing praises unto the LORD.  
+> **¹** The LORD *is* my light and my salvation; whom shall I fear? the LORD *is* the strength of my life; of whom shall I be afraid?  
+> **²** When the wicked, *even* mine enemies and my foes, came upon me to eat up my flesh, they stumbled and fell.  
+> **³** Though a host should encamp against me, my heart shall not fear: though war should rise against me, in this *will* I *be* confident.  
+> **⁴** One *thing* have I desired of the LORD, that will I seek after; that I may dwell in the house of the LORD all the days of my life, to behold the beauty of the LORD, and to enquire in his temple.  
+> **⁵** For in the time of trouble he shall hide me in his pavilion: in the secret of his tabernacle shall he hide me; he shall set me up upon a rock.  
+> **⁶** And now shall mine head be lifted up above mine enemies round about me: therefore will I offer in his tabernacle sacrifices of joy; I will sing, yea, I will sing praises unto the LORD.  
 
 We may observe here,
 
@@ -35,14 +35,14 @@ III\. With what a gracious earnestness he prays for a constant communion with Go
 
 ## Confidence in Divine Goodness.
 
-> <sup>7</sup> Hear, O LORD, *when* I cry with my voice: have mercy also upon me, and answer me.  
-> <sup>8</sup> *When thou saidst,* Seek ye my face; my heart said unto thee, Thy face, LORD, will I seek.  
-> <sup>9</sup> Hide not thy face *far* from me; put not thy servant away in anger: thou hast been my help; leave me not, neither forsake me, O God of my salvation.  
-> <sup>10</sup> When my father and my mother forsake me, then the LORD will take me up.  
-> <sup>11</sup> Teach me thy way, O LORD, and lead me in a plain path, because of mine enemies.  
-> <sup>12</sup> Deliver me not over unto the will of mine enemies: for false witnesses are risen up against me, and such as breathe out cruelty.  
-> <sup>13</sup> *I had fainted,* unless I had believed to see the goodness of the LORD in the land of the living.  
-> <sup>14</sup> Wait on the LORD: be of good courage, and he shall strengthen thine heart: wait, I say, on the LORD.  
+> **⁷** Hear, O LORD, *when* I cry with my voice: have mercy also upon me, and answer me.  
+> **⁸** *When thou saidst,* Seek ye my face; my heart said unto thee, Thy face, LORD, will I seek.  
+> **⁹** Hide not thy face *far* from me; put not thy servant away in anger: thou hast been my help; leave me not, neither forsake me, O God of my salvation.  
+> **¹⁰** When my father and my mother forsake me, then the LORD will take me up.  
+> **¹¹** Teach me thy way, O LORD, and lead me in a plain path, because of mine enemies.  
+> **¹²** Deliver me not over unto the will of mine enemies: for false witnesses are risen up against me, and such as breathe out cruelty.  
+> **¹³** *I had fainted,* unless I had believed to see the goodness of the LORD in the land of the living.  
+> **¹⁴** Wait on the LORD: be of good courage, and he shall strengthen thine heart: wait, I say, on the LORD.  
 
 David in these verses expresses,
 

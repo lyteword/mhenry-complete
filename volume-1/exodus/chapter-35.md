@@ -8,25 +8,25 @@ What should have been said and done upon Moses' coming down the first time from 
 
 ## Orders Concerning the Tabernacle. (b. c. 1491.)
 
-> <sup>1</sup> And Moses gathered all the congregation of the children of Israel together, and said unto them, These *are* the words which the LORD hath commanded, that *ye* should do them.  
-> <sup>2</sup> Six days shall work be done, but on the seventh day there shall be to you an holy day, a sabbath of rest to the LORD: whosoever doeth work therein shall be put to death.  
-> <sup>3</sup> Ye shall kindle no fire throughout your habitations upon the sabbath day.  
-> <sup>4</sup> And Moses spake unto all the congregation of the children of Israel, saying, This *is* the thing which the LORD commanded, saying,  
-> <sup>5</sup> Take ye from among you an offering unto the LORD: whosoever *is* of a willing heart, let him bring it, an offering of the LORD; gold, and silver, and brass,  
-> <sup>6</sup> And blue, and purple, and scarlet, and fine linen, and goats' *hair,*  
-> <sup>7</sup> And rams' skins dyed red, and badgers' skins, and shittim wood,  
-> <sup>8</sup> And oil for the light, and spices for anointing oil, and for the sweet incense,  
-> <sup>9</sup> And onyx stones, and stones to be set for the ephod, and for the breastplate.  
-> <sup>10</sup> And every wise hearted among you shall come, and make all that the LORD hath commanded;  
-> <sup>11</sup> The tabernacle, his tent, and his covering, his taches, and his boards, his bars, his pillars, and his sockets,  
-> <sup>12</sup> The ark, and the staves thereof, *with* the mercy seat, and the vail of the covering,  
-> <sup>13</sup> The table, and his staves, and all his vessels, and the showbread,  
-> <sup>14</sup> The candlestick also for the light, and his furniture, and his lamps, with the oil for the light,  
-> <sup>15</sup> And the incense altar, and his staves, and the anointing oil, and the sweet incense, and the hanging for the door at the entering in of the tabernacle,  
-> <sup>16</sup> The altar of burnt offering, with his brazen grate, his staves, and all his vessels, the laver and his foot,  
-> <sup>17</sup> The hangings of the court, his pillars, and their sockets, and the hanging for the door of the court,  
-> <sup>18</sup> The pins of the tabernacle, and the pins of the court, and their cords,  
-> <sup>19</sup> The cloths of service, to do service in the holy *place,* the holy garments for Aaron the priest, and the garments of his sons, to minister in the priest's office.  
+> **¹** And Moses gathered all the congregation of the children of Israel together, and said unto them, These *are* the words which the LORD hath commanded, that *ye* should do them.  
+> **²** Six days shall work be done, but on the seventh day there shall be to you an holy day, a sabbath of rest to the LORD: whosoever doeth work therein shall be put to death.  
+> **³** Ye shall kindle no fire throughout your habitations upon the sabbath day.  
+> **⁴** And Moses spake unto all the congregation of the children of Israel, saying, This *is* the thing which the LORD commanded, saying,  
+> **⁵** Take ye from among you an offering unto the LORD: whosoever *is* of a willing heart, let him bring it, an offering of the LORD; gold, and silver, and brass,  
+> **⁶** And blue, and purple, and scarlet, and fine linen, and goats' *hair,*  
+> **⁷** And rams' skins dyed red, and badgers' skins, and shittim wood,  
+> **⁸** And oil for the light, and spices for anointing oil, and for the sweet incense,  
+> **⁹** And onyx stones, and stones to be set for the ephod, and for the breastplate.  
+> **¹⁰** And every wise hearted among you shall come, and make all that the LORD hath commanded;  
+> **¹¹** The tabernacle, his tent, and his covering, his taches, and his boards, his bars, his pillars, and his sockets,  
+> **¹²** The ark, and the staves thereof, *with* the mercy seat, and the vail of the covering,  
+> **¹³** The table, and his staves, and all his vessels, and the showbread,  
+> **¹⁴** The candlestick also for the light, and his furniture, and his lamps, with the oil for the light,  
+> **¹⁵** And the incense altar, and his staves, and the anointing oil, and the sweet incense, and the hanging for the door at the entering in of the tabernacle,  
+> **¹⁶** The altar of burnt offering, with his brazen grate, his staves, and all his vessels, the laver and his foot,  
+> **¹⁷** The hangings of the court, his pillars, and their sockets, and the hanging for the door of the court,  
+> **¹⁸** The pins of the tabernacle, and the pins of the court, and their cords,  
+> **¹⁹** The cloths of service, to do service in the holy *place,* the holy garments for Aaron the priest, and the garments of his sons, to minister in the priest's office.  
 
 It was said in general (Ex 34:32), *Moses gave them in commandment all that the Lord has spoken with him.* But, the erecting and furnishing of the tabernacle being the work to which they were now immediately to apply themselves, there is particular mention of the orders given concerning it.
 
@@ -44,16 +44,16 @@ IV\. He orders preparation to be made for the setting up of the tabernacle. Two 
 
 ## The Contributions for the Tabernacle. (b. c. 1491.)
 
-> <sup>20</sup> And all the congregation of the children of Israel departed from the presence of Moses.  
-> <sup>21</sup> And they came, every one whose heart stirred him up, and every one whom his spirit made willing, *and* they brought the LORD's offering to the work of the tabernacle of the congregation, and for all his service, and for the holy garments.  
-> <sup>22</sup> And they came, both men and women, as many as were willing hearted, *and* brought bracelets, and earrings, and rings, and tablets, all jewels of gold: and every man that offered *offered* an offering of gold unto the LORD.  
-> <sup>23</sup> And every man, with whom was found blue, and purple, and scarlet, and fine linen, and goats' *hair,* and red skins of rams, and badgers' skins, brought *them.*  
-> <sup>24</sup> Every one that did offer an offering of silver and brass brought the LORD's offering: and every man, with whom was found shittim wood for any work of the service, brought *it.*  
-> <sup>25</sup> And all the women that were wise hearted did spin with their hands, and brought that which they had spun, *both* of blue, and of purple, *and* of scarlet, and of fine linen.  
-> <sup>26</sup> And all the women whose heart stirred them up in wisdom spun goats' *hair.*  
-> <sup>27</sup> And the rulers brought onyx stones, and stones to be set, for the ephod, and for the breastplate;  
-> <sup>28</sup> And spice, and oil for the light, and for the anointing oil, and for the sweet incense.  
-> <sup>29</sup> The children of Israel brought a willing offering unto the LORD, every man and woman, whose heart made them willing to bring for all manner of work, which the LORD had commanded to be made by the hand of Moses.  
+> **²⁰** And all the congregation of the children of Israel departed from the presence of Moses.  
+> **²¹** And they came, every one whose heart stirred him up, and every one whom his spirit made willing, *and* they brought the LORD's offering to the work of the tabernacle of the congregation, and for all his service, and for the holy garments.  
+> **²²** And they came, both men and women, as many as were willing hearted, *and* brought bracelets, and earrings, and rings, and tablets, all jewels of gold: and every man that offered *offered* an offering of gold unto the LORD.  
+> **²³** And every man, with whom was found blue, and purple, and scarlet, and fine linen, and goats' *hair,* and red skins of rams, and badgers' skins, brought *them.*  
+> **²⁴** Every one that did offer an offering of silver and brass brought the LORD's offering: and every man, with whom was found shittim wood for any work of the service, brought *it.*  
+> **²⁵** And all the women that were wise hearted did spin with their hands, and brought that which they had spun, *both* of blue, and of purple, *and* of scarlet, and of fine linen.  
+> **²⁶** And all the women whose heart stirred them up in wisdom spun goats' *hair.*  
+> **²⁷** And the rulers brought onyx stones, and stones to be set, for the ephod, and for the breastplate;  
+> **²⁸** And spice, and oil for the light, and for the anointing oil, and for the sweet incense.  
+> **²⁹** The children of Israel brought a willing offering unto the LORD, every man and woman, whose heart made them willing to bring for all manner of work, which the LORD had commanded to be made by the hand of Moses.  
 
 Moses having made known to them the will of God, they went home and immediately put in practice what they had heard, Ex 35:20. O that every congregation would thus depart from the hearing of the word of God, with a full resolution to be *doers of the same!* Observe here,
 
@@ -61,12 +61,12 @@ I\. The offerings that were brought for the service of the tabernacle (Ex 35:21,
 
 II\. The work that was done for the service of the tabernacle (Ex 35:25): *The women did spin with their hands.* Some spun fine work, of blue and purple; others coarse work, of goats' hair, and yet theirs also is said to be done in wisdom, Ex 35:26. As it is not only rich gifts, so it is not only fine work that God accepts. Notice is here taken of the good women's work for God, as well as of Bezaleel's and Aholiab's. The meanest hand for the honour of God, shall have an honourable recompence. Mary's anointing of Christ's head shall be told for a memorial (Mt 26:13); and a record is kept of the women that laboured in the gospel tabernacle (Php 4:3), and were helpers to Paul in Christ Jesus, Ro 16:3. It is part of the character of the virtuous woman that she layeth *her hands to the spindle,* Pr 31:19. This employment was here turned to a pious use, as it may be still (though we have no hangings to make for the tabernacle) by the imitation of the charity of Dorcas, who made coats and garments for poor widows, Ac 9:39. Even those that are not in a capacity to give in charity may yet work in charity; and thus the poor may relieve the poor, and those that have nothing but their limbs and senses may be very charitable in the labour of love.
 
-> <sup>30</sup> And Moses said unto the children of Israel, See, the LORD hath called by name Bezaleel the son of Uri, the son of Hur, of the tribe of Judah;  
-> <sup>31</sup> And he hath filled him with the spirit of God, in wisdom, in understanding, and in knowledge, and in all manner of workmanship;  
-> <sup>32</sup> And to devise curious works, to work in gold, and in silver, and in brass,  
-> <sup>33</sup> And in the cutting of stones, to set *them,* and in carving of wood, to make any manner of cunning work.  
-> <sup>34</sup> And he hath put in his heart that he may teach, *both* he, and Aholiab, the son of Ahisamach, of the tribe of Dan.  
-> <sup>35</sup> Them hath he filled with wisdom of heart, to work all manner of work, of the engraver, and of the cunning workman, and of the embroiderer, in blue, and in purple, in scarlet, and in fine linen, and of the weaver, *even* of them that do any work, and of those that devise cunning work.  
+> **³⁰** And Moses said unto the children of Israel, See, the LORD hath called by name Bezaleel the son of Uri, the son of Hur, of the tribe of Judah;  
+> **³¹** And he hath filled him with the spirit of God, in wisdom, in understanding, and in knowledge, and in all manner of workmanship;  
+> **³²** And to devise curious works, to work in gold, and in silver, and in brass,  
+> **³³** And in the cutting of stones, to set *them,* and in carving of wood, to make any manner of cunning work.  
+> **³⁴** And he hath put in his heart that he may teach, *both* he, and Aholiab, the son of Ahisamach, of the tribe of Dan.  
+> **³⁵** Them hath he filled with wisdom of heart, to work all manner of work, of the engraver, and of the cunning workman, and of the embroiderer, in blue, and in purple, in scarlet, and in fine linen, and of the weaver, *even* of them that do any work, and of those that devise cunning work.  
 
 Here is the divine appointment of the master-workmen, that there might be no strife for the office, and that all who were employed in the work might take direction from, and give account to, these general inspectors; for God is the God of order and not of confusion. Observe, 1. Those whom God called by name to this service he *filled with the Spirit of God,* to qualify them for it, Ex 35:30,31. Skill in secular employments is God's gift, and comes from above, Jam 1:17. From him the faculty is, and the improvement of it. To his honour therefore all knowledge must be devoted, and we must study how to serve him with it. The work was extraordinary which Bezaleel was designed for, and therefore he was qualified in an extraordinary manner for it; thus when the apostles were appointed to be master-builders in setting up the gospel tabernacle they were *filled with the Spirit of God in wisdom and understanding.* 2. The were appointed, not only to devise, but to work (Ex 35:32), *to work all manner of work,* Ex 35:35. Those of eminent gifts, that are capable of directing others, must not think that these will excuse them in idleness. Many are ingenious enough in cutting out work for other people, and can tell what this man and that man should do, but the burdens they bind on others they themselves *will not touch with one of their fingers.* These will fall under the character of slothful servants. 3. They were not only to devise and work themselves, but they were to teach others, Ex 35:34. Not only had Bezaleel power to command, but he was to take pains to instruct. Those that rule should teach; and those to whom God had given knowledge should be willing to communicate it for the benefit of others, not coveting to monopolize it.
 

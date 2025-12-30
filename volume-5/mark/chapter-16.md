@@ -8,14 +8,14 @@ In this chapter, we have a short account of the resurrection and ascension of th
 
 ## The Women at the Sepulchre; The Apostles Reproved.
 
-> <sup>1</sup> And when the sabbath was past, Mary Magdalene, and Mary the *mother* of James, and Salome, had bought sweet spices, that they might come and anoint him.  
-> <sup>2</sup> And very early in the morning the first *day* of the week, they came unto the sepulchre at the rising of the sun.  
-> <sup>3</sup> And they said among themselves, Who shall roll us away the stone from the door of the sepulchre?  
-> <sup>4</sup> And when they looked, they saw that the stone was rolled away: for it was very great.  
-> <sup>5</sup> And entering into the sepulchre, they saw a young man sitting on the right side, clothed in a long white garment; and they were affrighted.  
-> <sup>6</sup> And he saith unto them, Be not affrighted: Ye seek Jesus of Nazareth, which was crucified: he is risen; he is not here: behold the place where they laid him.  
-> <sup>7</sup> But go your way, tell his disciples and Peter that he goeth before you into Galilee: there shall ye see him, as he said unto you.  
-> <sup>8</sup> And they went out quickly, and fled from the sepulchre; for they trembled and were amazed: neither said they any thing to any *man;* for they were afraid.  
+> **¹** And when the sabbath was past, Mary Magdalene, and Mary the *mother* of James, and Salome, had bought sweet spices, that they might come and anoint him.  
+> **²** And very early in the morning the first *day* of the week, they came unto the sepulchre at the rising of the sun.  
+> **³** And they said among themselves, Who shall roll us away the stone from the door of the sepulchre?  
+> **⁴** And when they looked, they saw that the stone was rolled away: for it was very great.  
+> **⁵** And entering into the sepulchre, they saw a young man sitting on the right side, clothed in a long white garment; and they were affrighted.  
+> **⁶** And he saith unto them, Be not affrighted: Ye seek Jesus of Nazareth, which was crucified: he is risen; he is not here: behold the place where they laid him.  
+> **⁷** But go your way, tell his disciples and Peter that he goeth before you into Galilee: there shall ye see him, as he said unto you.  
+> **⁸** And they went out quickly, and fled from the sepulchre; for they trembled and were amazed: neither said they any thing to any *man;* for they were afraid.  
 
 Never was there such a *sabbath* since the sabbath was first instituted as this was, which the first words of this chapter tell us was *now past;* during all this sabbath our Lord Jesus lay in the grave. It was *to him* a sabbath of *rest,* but a *silent* sabbath, it was to his disciples a melancholy sabbath, spent in tears and fears. Never were the sabbath services in the temple such an *abomination to God,* though they had been often so, as they were now, when the chief priests, who presided in them, had their hands full of blood, the blood of Christ. Well, this sabbath is over, and the first day of the week is the first day of a new world. We have here,
 
@@ -43,11 +43,11 @@ IV\. The account which the women did bring of this to the disciples (Mk 16:8); T
 
 ## Christ's Appearances to Mary Magdalene and the Two Disciples.
 
-> <sup>9</sup> Now when *Jesus* was risen early the first *day* of the week, he appeared first to Mary Magdalene, out of whom he had cast seven devils.  
-> <sup>10</sup> *And* she went and told them that had been with him, as they mourned and wept.  
-> <sup>11</sup> And they, when they had heard that he was alive, and had been seen of her, believed not.  
-> <sup>12</sup> After that he appeared in another form unto two of them, as they walked, and went into the country.  
-> <sup>13</sup> And they went and told *it* unto the residue: neither believed they them.  
+> **⁹** Now when *Jesus* was risen early the first *day* of the week, he appeared first to Mary Magdalene, out of whom he had cast seven devils.  
+> **¹⁰** *And* she went and told them that had been with him, as they mourned and wept.  
+> **¹¹** And they, when they had heard that he was alive, and had been seen of her, believed not.  
+> **¹²** After that he appeared in another form unto two of them, as they walked, and went into the country.  
+> **¹³** And they went and told *it* unto the residue: neither believed they them.  
 
 We have here a very short account of two of Christ's appearances, and the little credit which the report of them gained with the disciples.
 
@@ -65,11 +65,11 @@ II\. He appeared to two of the disciples, *as they went into the country,* Mk 16
 
 ## Christ's Appearance to the Eleven.
 
-> <sup>14</sup> Afterward he appeared unto the eleven as they sat at meat, and upbraided them with their unbelief and hardness of heart, because they believed not them which had seen him after he was risen.  
-> <sup>15</sup> And he said unto them, Go ye into all the world, and preach the gospel to every creature.  
-> <sup>16</sup> He that believeth and is baptized shall be saved; but he that believeth not shall be damned.  
-> <sup>17</sup> And these signs shall follow them that believe; In my name shall they cast out devils; they shall speak with new tongues;  
-> <sup>18</sup> They shall take up serpents; and if they drink any deadly thing, it shall not hurt them; they shall lay hands on the sick, and they shall recover.  
+> **¹⁴** Afterward he appeared unto the eleven as they sat at meat, and upbraided them with their unbelief and hardness of heart, because they believed not them which had seen him after he was risen.  
+> **¹⁵** And he said unto them, Go ye into all the world, and preach the gospel to every creature.  
+> **¹⁶** He that believeth and is baptized shall be saved; but he that believeth not shall be damned.  
+> **¹⁷** And these signs shall follow them that believe; In my name shall they cast out devils; they shall speak with new tongues;  
+> **¹⁸** They shall take up serpents; and if they drink any deadly thing, it shall not hurt them; they shall lay hands on the sick, and they shall recover.  
 
 Here is, I. The *conviction* which Christ gave his apostles of the truth of his resurrection (Mk 16:14); He *appeared to them* himself, when they were all together, *as they sat at meat,* which gave him an opportunity to *eat and drink with them,* for their full satisfaction; see Ac 10:41. And still, when he appeared to them, he *upbraided them with their unbelief and hardness of heart,* for even at the general meeting in *Galilee, some doubted,* as we find Mt 28:17. Note, The evidences of the truth of the gospel are so full, that those who receive it not, may justly be *upbraided* with their unbelief; and it is owing not to any weakness or deficiency in the proofs, but to the *hardness of their heart,* its senselessness and stupidity. Though they had not till now seen him themselves, they are justly blamed *because they believed not them who had seen him after he was risen;* and perhaps it was owing in part to the *pride of their hearts,* that they did not; for they thought, "If indeed he be risen, to *whom should he delight to do* the *honour* of showing himself but to us?" And if he *pass them by,* and show himself to *others* first, they cannot believe it is he. Thus many disbelieve the doctrine of Christ, because they think it *below them* to give credit to such as he had chosen to be the witnesses and publishers of it. Observe, It will not suffice for an excuse of our infidelity in the great day, to say, "*We did not see him* after he was risen," for we ought to have believed the testimony of those who did see him.
 
@@ -83,8 +83,8 @@ II\. The *commission* which he gave them to set up his kingdom among men by the 
 
 ## The Ascension.
 
-> <sup>19</sup> So then after the Lord had spoken unto them, he was received up into heaven, and sat on the right hand of God.  
-> <sup>20</sup> And they went forth, and preached every where, the Lord working with *them,* and confirming the word with signs following. Amen.  
+> **¹⁹** So then after the Lord had spoken unto them, he was received up into heaven, and sat on the right hand of God.  
+> **²⁰** And they went forth, and preached every where, the Lord working with *them,* and confirming the word with signs following. Amen.  
 
 Here is, 1. Christ *welcomed* into the *upper world* (Mk 16:19): *After the Lord had spoken* what he had to say to his disciples, he *went up into heaven,* in a cloud; which we have a particular account of (Ac 1:9), and he had not only an admission, but an abundant *entrance,* into his kingdom there; he was *received up,* received in state, with loud acclamations of the heavenly hosts; and he *sat on the right hand of God:* sitting in a posture of *rest,* for now he had finished his work, and a posture of *rule,* for now he took possession of his kingdom; he sat *at the right hand of God,* which denotes the sovereign dignity he is advanced to, and the universal agency he is entrusted with. Whatever God does concerning us, gives to us, or accepts from us, it is *by his Son.* Now he is glorified with the glory he had before the world.
 

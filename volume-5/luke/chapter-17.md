@@ -8,16 +8,16 @@ In this chapter we have, I. Some particular discourses which Christ had with his
 
 ## The Treatment of Offences.
 
-> <sup>1</sup> Then said he unto the disciples, It is impossible but that offences will come: but woe *unto him,* through whom they come!  
-> <sup>2</sup> It were better for him that a millstone were hanged about his neck, and he cast into the sea, than that he should offend one of these little ones.  
-> <sup>3</sup> Take heed to yourselves: If thy brother trespass against thee, rebuke him; and if he repent, forgive him.  
-> <sup>4</sup> And if he trespass against thee seven times in a day, and seven times in a day turn again to thee, saying, I repent; thou shalt forgive him.  
-> <sup>5</sup> And the apostles said unto the Lord, Increase our faith.  
-> <sup>6</sup> And the Lord said, If ye had faith as a grain of mustard seed, ye might say unto this sycamine tree, Be thou plucked up by the root, and be thou planted in the sea; and it should obey you.  
-> <sup>7</sup> But which of you, having a servant plowing or feeding cattle, will say unto him by and by, when he is come from the field, Go and sit down to meat?  
-> <sup>8</sup> And will not rather say unto him, Make ready wherewith I may sup, and gird thyself, and serve me, till I have eaten and drunken; and afterward thou shalt eat and drink?  
-> <sup>9</sup> Doth he thank that servant because he did the things that were commanded him? I trow not.  
-> <sup>10</sup> So likewise ye, when ye shall have done all those things which are commanded you, say, We are unprofitable servants: we have done that which was our duty to do.  
+> **¹** Then said he unto the disciples, It is impossible but that offences will come: but woe *unto him,* through whom they come!  
+> **²** It were better for him that a millstone were hanged about his neck, and he cast into the sea, than that he should offend one of these little ones.  
+> **³** Take heed to yourselves: If thy brother trespass against thee, rebuke him; and if he repent, forgive him.  
+> **⁴** And if he trespass against thee seven times in a day, and seven times in a day turn again to thee, saying, I repent; thou shalt forgive him.  
+> **⁵** And the apostles said unto the Lord, Increase our faith.  
+> **⁶** And the Lord said, If ye had faith as a grain of mustard seed, ye might say unto this sycamine tree, Be thou plucked up by the root, and be thou planted in the sea; and it should obey you.  
+> **⁷** But which of you, having a servant plowing or feeding cattle, will say unto him by and by, when he is come from the field, Go and sit down to meat?  
+> **⁸** And will not rather say unto him, Make ready wherewith I may sup, and gird thyself, and serve me, till I have eaten and drunken; and afterward thou shalt eat and drink?  
+> **⁹** Doth he thank that servant because he did the things that were commanded him? I trow not.  
+> **¹⁰** So likewise ye, when ye shall have done all those things which are commanded you, say, We are unprofitable servants: we have done that which was our duty to do.  
 
 We are here taught,
 
@@ -37,15 +37,15 @@ IV\. That, whatever we do in the service of Christ, we must be very humble, and 
 
 ## The Ten Lepers.
 
-> <sup>11</sup> And it came to pass, as he went to Jerusalem, that he passed through the midst of Samaria and Galilee.  
-> <sup>12</sup> And as he entered into a certain village, there met him ten men that were lepers, which stood afar off:  
-> <sup>13</sup> And they lifted up *their* voices, and said, Jesus, Master, have mercy on us.  
-> <sup>14</sup> And when he saw *them,* he said unto them, Go show yourselves unto the priests. And it came to pass, that, as they went, they were cleansed.  
-> <sup>15</sup> And one of them, when he saw that he was healed, turned back, and with a loud voice glorified God,  
-> <sup>16</sup> And fell down on *his* face at his feet, giving him thanks: and he was a Samaritan.  
-> <sup>17</sup> And Jesus answering said, Were there not ten cleansed? but where *are* the nine?  
-> <sup>18</sup> There are not found that returned to give glory to God, save this stranger.  
-> <sup>19</sup> And he said unto him, Arise, go thy way: thy faith hath made thee whole.  
+> **¹¹** And it came to pass, as he went to Jerusalem, that he passed through the midst of Samaria and Galilee.  
+> **¹²** And as he entered into a certain village, there met him ten men that were lepers, which stood afar off:  
+> **¹³** And they lifted up *their* voices, and said, Jesus, Master, have mercy on us.  
+> **¹⁴** And when he saw *them,* he said unto them, Go show yourselves unto the priests. And it came to pass, that, as they went, they were cleansed.  
+> **¹⁵** And one of them, when he saw that he was healed, turned back, and with a loud voice glorified God,  
+> **¹⁶** And fell down on *his* face at his feet, giving him thanks: and he was a Samaritan.  
+> **¹⁷** And Jesus answering said, Were there not ten cleansed? but where *are* the nine?  
+> **¹⁸** There are not found that returned to give glory to God, save this stranger.  
+> **¹⁹** And he said unto him, Arise, go thy way: thy faith hath made thee whole.  
 
 We have here an account of the cure of ten lepers, which we had not in any other of the evangelists. The leprosy was a disease which the Jews supposed to be inflicted for the punishment of some particular sin, and to be, more than other diseases, a mark of God's displeasure; and therefore Christ, who came to take away sin, and turn away wrath, took particular care to cleanse the lepers that fell in his way. Christ was now in his way to Jerusalem, about the mid-way, where he had little acquaintance in comparison with what he had either at Jerusalem or in Galilee. He was now in the frontier-country, the marches that lay between Samaria and Galilee. He went that road to find out these lepers, and to cure them; for he is *found of them that sought him not.* Observe,
 
@@ -65,24 +65,24 @@ V\. Christ took notice of this one that had thus distinguished himself; for, it 
 
 ## The Progress of Christ's Kingdom; Destruction of Jerusalem.
 
-> <sup>20</sup> And when he was demanded of the Pharisees, when the kingdom of God should come, he answered them and said, The kingdom of God cometh not with observation:  
-> <sup>21</sup> Neither shall they say, Lo here! or, lo there! for, behold, the kingdom of God is within you.  
-> <sup>22</sup> And he said unto the disciples, The days will come, when ye shall desire to see one of the days of the Son of man, and ye shall not see *it.*  
-> <sup>23</sup> And they shall say to you, See here; or, see there: go not after *them,* nor follow *them.*  
-> <sup>24</sup> For as the lightning, that lighteneth out of the one *part* under heaven, shineth unto the other *part* under heaven; so shall also the Son of man be in his day.  
-> <sup>25</sup> But first must he suffer many things, and be rejected of this generation.  
-> <sup>26</sup> And as it was in the days of Noe, so shall it be also in the days of the Son of man.  
-> <sup>27</sup> They did eat, they drank, they married wives, they were given in marriage, until the day that Noe entered into the ark, and the flood came, and destroyed them all.  
-> <sup>28</sup> Likewise also as it was in the days of Lot; they did eat, they drank, they bought, they sold, they planted, they builded;  
-> <sup>29</sup> But the same day that Lot went out of Sodom it rained fire and brimstone from heaven, and destroyed *them* all.  
-> <sup>30</sup> Even thus shall it be in the day when the Son of man is revealed.  
-> <sup>31</sup> In that day, he which shall be upon the housetop, and his stuff in the house, let him not come down to take it away: and he that is in the field, let him likewise not return back.  
-> <sup>32</sup> Remember Lot's wife.  
-> <sup>33</sup> Whosoever shall seek to save his life shall lose it; and whosoever shall lose his life shall preserve it.  
-> <sup>34</sup> I tell you, in that night there shall be two *men* in one bed; the one shall be taken, and the other shall be left.  
-> <sup>35</sup> Two *women* shall be grinding together; the one shall be taken, and the other left.  
-> <sup>36</sup> Two *men* shall be in the field; the one shall be taken, and the other left.  
-> <sup>37</sup> And they answered and said unto him, Where, Lord? And he said unto them, Wheresoever the body *is,* thither will the eagles be gathered together.  
+> **²⁰** And when he was demanded of the Pharisees, when the kingdom of God should come, he answered them and said, The kingdom of God cometh not with observation:  
+> **²¹** Neither shall they say, Lo here! or, lo there! for, behold, the kingdom of God is within you.  
+> **²²** And he said unto the disciples, The days will come, when ye shall desire to see one of the days of the Son of man, and ye shall not see *it.*  
+> **²³** And they shall say to you, See here; or, see there: go not after *them,* nor follow *them.*  
+> **²⁴** For as the lightning, that lighteneth out of the one *part* under heaven, shineth unto the other *part* under heaven; so shall also the Son of man be in his day.  
+> **²⁵** But first must he suffer many things, and be rejected of this generation.  
+> **²⁶** And as it was in the days of Noe, so shall it be also in the days of the Son of man.  
+> **²⁷** They did eat, they drank, they married wives, they were given in marriage, until the day that Noe entered into the ark, and the flood came, and destroyed them all.  
+> **²⁸** Likewise also as it was in the days of Lot; they did eat, they drank, they bought, they sold, they planted, they builded;  
+> **²⁹** But the same day that Lot went out of Sodom it rained fire and brimstone from heaven, and destroyed *them* all.  
+> **³⁰** Even thus shall it be in the day when the Son of man is revealed.  
+> **³¹** In that day, he which shall be upon the housetop, and his stuff in the house, let him not come down to take it away: and he that is in the field, let him likewise not return back.  
+> **³²** Remember Lot's wife.  
+> **³³** Whosoever shall seek to save his life shall lose it; and whosoever shall lose his life shall preserve it.  
+> **³⁴** I tell you, in that night there shall be two *men* in one bed; the one shall be taken, and the other shall be left.  
+> **³⁵** Two *women* shall be grinding together; the one shall be taken, and the other left.  
+> **³⁶** Two *men* shall be in the field; the one shall be taken, and the other left.  
+> **³⁷** And they answered and said unto him, Where, Lord? And he said unto them, Wheresoever the body *is,* thither will the eagles be gathered together.  
 
 We have here a discourse of Christ's concerning the *kingdom of God,* that is, the kingdom of the Messiah, which was now shortly to be *set up,* and of which there was great expectation.
 

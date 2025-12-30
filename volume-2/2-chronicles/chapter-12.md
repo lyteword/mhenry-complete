@@ -8,18 +8,18 @@ This chapter gives us a more full account of the reign of Rehoboam than we had b
 
 ## Abijah's Reign over Judah. (b. c. 970.)
 
-> <sup>1</sup> And it came to pass, when Rehoboam had established the kingdom, and had strengthened himself, he forsook the law of the LORD, and all Israel with him.  
-> <sup>2</sup> And it came to pass, *that* in the fifth year of king Rehoboam Shishak king of Egypt came up against Jerusalem, because they had transgressed against the LORD,  
-> <sup>3</sup> With twelve hundred chariots, and threescore thousand horsemen: and the people *were* without number that came with him out of Egypt; the Lubims, the Sukkiims, and the Ethiopians.  
-> <sup>4</sup> And he took the fenced cities which *pertained* to Judah, and came to Jerusalem.  
-> <sup>5</sup> Then came Shemaiah the prophet to Rehoboam, and *to* the princes of Judah, that were gathered together to Jerusalem because of Shishak, and said unto them, Thus saith the LORD, Ye have forsaken me, and therefore have I also left you in the hand of Shishak.  
-> <sup>6</sup> Whereupon the princes of Israel and the king humbled themselves; and they said, The LORD *is* righteous.  
-> <sup>7</sup> And when the LORD saw that they humbled themselves, the word of the LORD came to Shemaiah, saying, They have humbled themselves; *therefore* I will not destroy them, but I will grant them some deliverance; and my wrath shall not be poured out upon Jerusalem by the hand of Shishak.  
-> <sup>8</sup> Nevertheless they shall be his servants; that they may know my service, and the service of the kingdoms of the countries.  
-> <sup>9</sup> So Shishak king of Egypt came up against Jerusalem, and took away the treasures of the house of the LORD, and the treasures of the king's house; he took all: he carried away also the shields of gold which Solomon had made.  
-> <sup>10</sup> Instead of which king Rehoboam made shields of brass, and committed *them* to the hands of the chief of the guard, that kept the entrance of the king's house.  
-> <sup>11</sup> And when the king entered into the house of the LORD, the guard came and fetched them, and brought them again into the guard chamber.  
-> <sup>12</sup> And when he humbled himself, the wrath of the LORD turned from him, that he would not destroy *him* altogether: and also in Judah things went well.  
+> **¹** And it came to pass, when Rehoboam had established the kingdom, and had strengthened himself, he forsook the law of the LORD, and all Israel with him.  
+> **²** And it came to pass, *that* in the fifth year of king Rehoboam Shishak king of Egypt came up against Jerusalem, because they had transgressed against the LORD,  
+> **³** With twelve hundred chariots, and threescore thousand horsemen: and the people *were* without number that came with him out of Egypt; the Lubims, the Sukkiims, and the Ethiopians.  
+> **⁴** And he took the fenced cities which *pertained* to Judah, and came to Jerusalem.  
+> **⁵** Then came Shemaiah the prophet to Rehoboam, and *to* the princes of Judah, that were gathered together to Jerusalem because of Shishak, and said unto them, Thus saith the LORD, Ye have forsaken me, and therefore have I also left you in the hand of Shishak.  
+> **⁶** Whereupon the princes of Israel and the king humbled themselves; and they said, The LORD *is* righteous.  
+> **⁷** And when the LORD saw that they humbled themselves, the word of the LORD came to Shemaiah, saying, They have humbled themselves; *therefore* I will not destroy them, but I will grant them some deliverance; and my wrath shall not be poured out upon Jerusalem by the hand of Shishak.  
+> **⁸** Nevertheless they shall be his servants; that they may know my service, and the service of the kingdoms of the countries.  
+> **⁹** So Shishak king of Egypt came up against Jerusalem, and took away the treasures of the house of the LORD, and the treasures of the king's house; he took all: he carried away also the shields of gold which Solomon had made.  
+> **¹⁰** Instead of which king Rehoboam made shields of brass, and committed *them* to the hands of the chief of the guard, that kept the entrance of the king's house.  
+> **¹¹** And when the king entered into the house of the LORD, the guard came and fetched them, and brought them again into the guard chamber.  
+> **¹²** And when he humbled himself, the wrath of the LORD turned from him, that he would not destroy *him* altogether: and also in Judah things went well.  
 
 Israel was very much disgraced and weakened by being divided into two kingdoms; yet the kingdom of Judah, having both the temple and the royal city, both the house of David and the house of Aaron, might have done very well if they had continued in the way of their duty; but here we have all out of order there.
 
@@ -45,10 +45,10 @@ V\. Upon the profession they made of repentance God showed them some favour, sav
 
 ## Jeroboam Defeated by Abijah. (b. c. 965.)
 
-> <sup>13</sup> So king Rehoboam strengthened himself in Jerusalem, and reigned: for Rehoboam *was* one and forty years old when he began to reign, and he reigned seventeen years in Jerusalem, the city which the LORD had chosen out of all the tribes of Israel, to put his name there. And his mother's name *was* Naamah an Ammonitess.  
-> <sup>14</sup> And he did evil, because he prepared not his heart to seek the LORD.  
-> <sup>15</sup> Now the acts of Rehoboam, first and last, *are* they not written in the book of Shemaiah the prophet, and of Iddo the seer concerning genealogies? And *there were* wars between Rehoboam and Jeroboam continually.  
-> <sup>16</sup> And Rehoboam slept with his fathers, and was buried in the city of David: and Abijah his son reigned in his stead.  
+> **¹³** So king Rehoboam strengthened himself in Jerusalem, and reigned: for Rehoboam *was* one and forty years old when he began to reign, and he reigned seventeen years in Jerusalem, the city which the LORD had chosen out of all the tribes of Israel, to put his name there. And his mother's name *was* Naamah an Ammonitess.  
+> **¹⁴** And he did evil, because he prepared not his heart to seek the LORD.  
+> **¹⁵** Now the acts of Rehoboam, first and last, *are* they not written in the book of Shemaiah the prophet, and of Iddo the seer concerning genealogies? And *there were* wars between Rehoboam and Jeroboam continually.  
+> **¹⁶** And Rehoboam slept with his fathers, and was buried in the city of David: and Abijah his son reigned in his stead.  
 
 The story of Rehoboam's reign is here concluded, much as the story of the other reigns concludes. Two things especially are observable here:—1. That he was at length pretty well *fixed in his kingdom,* 2Ch 12:13. His fenced cities in Judah did not answer his expectation, so he now *strengthened himself in Jerusalem,* which he made it his business to fortify, and there he reigned seventeen years, in *the city which the Lord had chosen to put his name there.* This intimates his honour and privilege, that he had his royal seat in the holy city, which yet was but an aggravation of his impiety—near the temple, but far from God. Frequent skirmishes there were between his subjects and Jeroboam's, such as amounted to *continual wars,* (2Ch 12:15), but he held his own, and reigned, and, as it should seem, did not so grossly *forsake the law of God* as he had done (2Ch 12:1) in his fourth year. 2. That he was never rightly fixed in his religion, 2Ch 12:14. He never quite cast off God; and yet in this he did evil, that he *prepared not, he engaged not, his heart to seek the Lord.* See what the fault is laid upon. (1.) He did not serve the Lord because he did not seek the Lord. He did not pray, as Solomon did, for wisdom and grace. If we prayed better, we should be every way better. Or he did not consult the word of God, did not seek to that as his oracle, nor take directions from it. (2.) He made nothing of his religion because he did not set his heart to it, never minded it with any closeness of application, and never any hearty disposition to it, nor ever came up to a steady resolution in it. What little goodness he had was transient and passed away like the morning cloud. He did evil because he was never determined for that which is good. Those are easily drawn by Satan to any evil who are wavering and inconstant in that which is good and are never persuaded to make religion their business.
 

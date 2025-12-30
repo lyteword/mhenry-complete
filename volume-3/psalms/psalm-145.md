@@ -10,15 +10,15 @@ The five foregoing psalms were all of a piece, all full of prayers; this, and th
 
 David's *psalm* of praise.
 
-> <sup>1</sup> I will extol thee, my God, O king; and I will bless thy name for ever and ever.  
-> <sup>2</sup> Every day will I bless thee; and I will praise thy name for ever and ever.  
-> <sup>3</sup> Great *is* the LORD, and greatly to be praised; and his greatness *is* unsearchable.  
-> <sup>4</sup> One generation shall praise thy works to another, and shall declare thy mighty acts.  
-> <sup>5</sup> I will speak of the glorious honour of thy majesty, and of thy wondrous works.  
-> <sup>6</sup> And *men* shall speak of the might of thy terrible acts: and I will declare thy greatness.  
-> <sup>7</sup> They shall abundantly utter the memory of thy great goodness, and shall sing of thy righteousness.  
-> <sup>8</sup> The LORD *is* gracious, and full of compassion; slow to anger, and of great mercy.  
-> <sup>9</sup> The LORD *is* good to all: and his tender mercies *are* over all his works.  
+> **¹** I will extol thee, my God, O king; and I will bless thy name for ever and ever.  
+> **²** Every day will I bless thee; and I will praise thy name for ever and ever.  
+> **³** Great *is* the LORD, and greatly to be praised; and his greatness *is* unsearchable.  
+> **⁴** One generation shall praise thy works to another, and shall declare thy mighty acts.  
+> **⁵** I will speak of the glorious honour of thy majesty, and of thy wondrous works.  
+> **⁶** And *men* shall speak of the might of thy terrible acts: and I will declare thy greatness.  
+> **⁷** They shall abundantly utter the memory of thy great goodness, and shall sing of thy righteousness.  
+> **⁸** The LORD *is* gracious, and full of compassion; slow to anger, and of great mercy.  
+> **⁹** The LORD *is* good to all: and his tender mercies *are* over all his works.  
 
 The entitling of this *David's psalm of praise* may intimate not only that he was the penman of it, but that he took a particular pleasure in it and sung it often; it was his companion wherever he went. In this former part of the psalm God's glorious attributes are praised, as, in the latter part of the psalm, his kingdom and the administration of it. Observe,
 
@@ -36,18 +36,18 @@ II\. What we must give to God the glory of.
 
 ## Grateful Acknowledgments.
 
-> <sup>10</sup> All thy works shall praise thee, O LORD; and thy saints shall bless thee.  
-> <sup>11</sup> They shall speak of the glory of thy kingdom, and talk of thy power;  
-> <sup>12</sup> To make known to the sons of men his mighty acts, and the glorious majesty of his kingdom.  
-> <sup>13</sup> Thy kingdom *is* an everlasting kingdom, and thy dominion *endureth* throughout all generations.  
-> <sup>14</sup> The LORD upholdeth all that fall, and raiseth up all *those that be* bowed down.  
-> <sup>15</sup> The eyes of all wait upon thee; and thou givest them their meat in due season.  
-> <sup>16</sup> Thou openest thine hand, and satisfiest the desire of every living thing.  
-> <sup>17</sup> The LORD *is* righteous in all his ways, and holy in all his works.  
-> <sup>18</sup> The LORD *is* nigh unto all them that call upon him, to all that call upon him in truth.  
-> <sup>19</sup> He will fulfil the desire of them that fear him: he also will hear their cry, and will save them.  
-> <sup>20</sup> The LORD preserveth all them that love him: but all the wicked will he destroy.  
-> <sup>21</sup> My mouth shall speak the praise of the LORD: and let all flesh bless his holy name for ever and ever.  
+> **¹⁰** All thy works shall praise thee, O LORD; and thy saints shall bless thee.  
+> **¹¹** They shall speak of the glory of thy kingdom, and talk of thy power;  
+> **¹²** To make known to the sons of men his mighty acts, and the glorious majesty of his kingdom.  
+> **¹³** Thy kingdom *is* an everlasting kingdom, and thy dominion *endureth* throughout all generations.  
+> **¹⁴** The LORD upholdeth all that fall, and raiseth up all *those that be* bowed down.  
+> **¹⁵** The eyes of all wait upon thee; and thou givest them their meat in due season.  
+> **¹⁶** Thou openest thine hand, and satisfiest the desire of every living thing.  
+> **¹⁷** The LORD *is* righteous in all his ways, and holy in all his works.  
+> **¹⁸** The LORD *is* nigh unto all them that call upon him, to all that call upon him in truth.  
+> **¹⁹** He will fulfil the desire of them that fear him: he also will hear their cry, and will save them.  
+> **²⁰** The LORD preserveth all them that love him: but all the wicked will he destroy.  
+> **²¹** My mouth shall speak the praise of the LORD: and let all flesh bless his holy name for ever and ever.  
 
 The greatness and goodness of him who is *optimus et maximus*—*the best and greatest* of beings, were celebrated in the former part of the psalm; here, in these verses, we are taught to give him *the glory of his kingdom,* in the administration of which his greatness and goodness shine so clearly, so very brightly. Observe, as before,
 

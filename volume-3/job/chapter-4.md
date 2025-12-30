@@ -8,12 +8,12 @@ Job having warmly given vent to his passion, and so broken the ice, his friends 
 
 ## The Address of Eliphaz. (b. c. 1520.)
 
-> <sup>1</sup> Then Eliphaz the Temanite answered and said,  
-> <sup>2</sup> *If* we assay to commune with thee, wilt thou be grieved? but who can withhold himself from speaking?  
-> <sup>3</sup> Behold, thou hast instructed many, and thou hast strengthened the weak hands.  
-> <sup>4</sup> Thy words have upholden him that was falling, and thou hast strengthened the feeble knees.  
-> <sup>5</sup> But now it is come upon thee, and thou faintest; it toucheth thee, and thou art troubled.  
-> <sup>6</sup> *Is* not *this* thy fear, thy confidence, thy hope, and the uprightness of thy ways?  
+> **¹** Then Eliphaz the Temanite answered and said,  
+> **²** *If* we assay to commune with thee, wilt thou be grieved? but who can withhold himself from speaking?  
+> **³** Behold, thou hast instructed many, and thou hast strengthened the weak hands.  
+> **⁴** Thy words have upholden him that was falling, and thou hast strengthened the feeble knees.  
+> **⁵** But now it is come upon thee, and thou faintest; it toucheth thee, and thou art troubled.  
+> **⁶** *Is* not *this* thy fear, thy confidence, thy hope, and the uprightness of thy ways?  
 
 In these verses,
 
@@ -29,11 +29,11 @@ II\. He exhibits a twofold charge against Job.
 
 2\. As to his general character before this affliction. He charges him with wickedness and false-heartedness, and this article of his charge was utterly groundless and unjust. How unkindly does he banter him, and upbraid him with the great profession of religion he had made, as if it had all now come to nothing and proved a sham (Job 4:6): "*Is not this thy fear, thy confidence, thy hope, and the uprightness of thy ways?* Does it not all appear now to be a mere pretence? For, hadst thou been sincere in it, God would not thus have afflicted thee, nor wouldst thou have behaved thus under the affliction." This was the very thing Satan aimed at, to prove Job a hypocrite, and disprove the character God had given of him. When he could not himself do this to God, but he still saw and said, *Job is perfect and upright,* then he endeavoured, by his friends, to do it to Job himself, and to persuade him to confess himself a hypocrite. Could he have gained that point he would have triumphed. *Habes confitentem reum—Out of thy own mouth will I condemn thee.* But, by the grace of God, Job was enabled to hold fast his integrity, and would not bear false witness against himself. Note, Those that pass rash and uncharitable censures upon their brethren, and condemn them as hypocrites, do Satan's work, and serve his interest, more than they are aware of. I know not how it comes to pass that Job 4:6 is differently read in several editions of our common English Bibles; the original, and all the ancient versions, put *thy hope* before *the uprightness of thy ways.* So does the Geneva, and most of the editions of the last translation; but I find one of the first, in 1612, has it, *Is not this thy fear, thy confidence, the uprightness of thy ways, and thy hope?* Both the Assembly's Annotations and Mr. Pool's have that reading: and an edition in 1660 reads it, "*Is not thy fear thy confidence, and the uprightness of thy ways thy hope?* Does it not appear now that all the religion both of thy devotion and of thy conversation was only in hope and confidence that thou shouldst grow rich by it? Was it not all mercenary?" The very thing that Satan suggested. *Is not thy religion thy hope, and are not thy ways thy confidence?* so Mr. Broughton. Or, "Was it not? Didst thou not think that that would be thy protection? But thou art deceived." Or, "Would it not have been so? If it had been sincere, would it not have kept thee from this despair?" It is true, *if thou faint in the day of adversity, thy strength,* thy grace, *is small* (Pr 24:10); but it does not therefore follow that thou hast no grace, no strength at all. A man's character is not to be taken from a single act.
 
-> <sup>7</sup> Remember, I pray thee, who *ever* perished, being innocent? or where were the righteous cut off?  
-> <sup>8</sup> Even as I have seen, they that plow iniquity, and sow wickedness, reap the same.  
-> <sup>9</sup> By the blast of God they perish, and by the breath of his nostrils are they consumed.  
-> <sup>10</sup> The roaring of the lion, and the voice of the fierce lion, and the teeth of the young lions, are broken.  
-> <sup>11</sup> The old lion perisheth for lack of prey, and the stout lion's whelps are scattered abroad.  
+> **⁷** Remember, I pray thee, who *ever* perished, being innocent? or where were the righteous cut off?  
+> **⁸** Even as I have seen, they that plow iniquity, and sow wickedness, reap the same.  
+> **⁹** By the blast of God they perish, and by the breath of his nostrils are they consumed.  
+> **¹⁰** The roaring of the lion, and the voice of the fierce lion, and the teeth of the young lions, are broken.  
+> **¹¹** The old lion perisheth for lack of prey, and the stout lion's whelps are scattered abroad.  
 
 Eliphaz here advances another argument to prove Job a hypocrite, and will have not only his impatience under his afflictions to be evidence against him but even his afflictions themselves, being so very great and extraordinary, and there being no prospect at all of his deliverance out of them. To strengthen his argument he here lays down these two principles, which seem plausible enough:—
 
@@ -45,16 +45,16 @@ II\. That wicked men were often thus ruined. For the proof of this he vouches hi
 
 2\. He speaks particularly of tyrants and cruel oppressors, under the similitude of lions, Job 4:10,11. Observe, (1.) How he describes their cruelty and oppression. The Hebrew tongue has five several names for lions, and they are all here used to set forth the terrible tearing power, fierceness, and cruelty, of proud oppressors. They roar, and rend, and prey upon all about them, and bring up their young ones to do so too, Eze 19:3. The devil is a roaring lion; and they partake of his nature, and do his lusts. They are strong as lions, and subtle (Ps 10:9,17:12); and, as far as they prevail, they lay all desolate about them. (2.) How he describes their destruction, the destruction both of their power and of their persons. They shall be restrained from doing further hurt and reckoned with for the hurt they have done. An effectual course shall be taken, [1.] That they shall not terrify. The voice of their roaring shall be stopped. [2.] That they shall not tear. God will disarm them, will take away their power to do hurt: *The teeth of the young lions are broken.* See Ps 3:7. Thus shall the remainder of wrath be restrained. [3.] That they shall not enrich themselves with the spoil of their neighbours. Even *the old lion* is famished, and *perishes for lack of prey.* Those that have surfeited on spoil and rapine are perhaps reduced to such straits as to die of hunger at last. [4.] That they shall not, as they promise themselves, leave a succession: *The stout lion's whelps are scattered abroad,* to seek for food themselves, which the old ones used to bring in for them, Na 2:12. *The lion did tear in pieces for his whelps,* but now they must shift for themselves. Perhaps Eliphaz intended, in this, to reflect upon Job, as if he, being the *greatest of all the men of the east,* had got his estate by spoil and used his power in oppressing his neighbours, but now his power and estate were gone, and his family was scattered: if so, it was a pity that a man whom God praised should be thus abused.
 
-> <sup>12</sup> Now a thing was secretly brought to me, and mine ear received a little thereof.  
-> <sup>13</sup> In thoughts from the visions of the night, when deep sleep falleth on men,  
-> <sup>14</sup> Fear came upon me, and trembling, which made all my bones to shake.  
-> <sup>15</sup> Then a spirit passed before my face; the hair of my flesh stood up:  
-> <sup>16</sup> It stood still, but I could not discern the form thereof: an image *was* before mine eyes, *there was* silence, and I heard a voice, *saying,*  
-> <sup>17</sup> Shall mortal man be more just than God? shall a man be more pure than his maker?  
-> <sup>18</sup> Behold, he put no trust in his servants; and his angels he charged with folly:  
-> <sup>19</sup> How much less *in* them that dwell in houses of clay, whose foundation *is* in the dust, *which* are crushed before the moth?  
-> <sup>20</sup> They are destroyed from morning to evening: they perish for ever without any regarding *it.*  
-> <sup>21</sup> Doth not their excellency *which is* in them go away? they die, even without wisdom.  
+> **¹²** Now a thing was secretly brought to me, and mine ear received a little thereof.  
+> **¹³** In thoughts from the visions of the night, when deep sleep falleth on men,  
+> **¹⁴** Fear came upon me, and trembling, which made all my bones to shake.  
+> **¹⁵** Then a spirit passed before my face; the hair of my flesh stood up:  
+> **¹⁶** It stood still, but I could not discern the form thereof: an image *was* before mine eyes, *there was* silence, and I heard a voice, *saying,*  
+> **¹⁷** Shall mortal man be more just than God? shall a man be more pure than his maker?  
+> **¹⁸** Behold, he put no trust in his servants; and his angels he charged with folly:  
+> **¹⁹** How much less *in* them that dwell in houses of clay, whose foundation *is* in the dust, *which* are crushed before the moth?  
+> **²⁰** They are destroyed from morning to evening: they perish for ever without any regarding *it.*  
+> **²¹** Doth not their excellency *which is* in them go away? they die, even without wisdom.  
 
 Eliphaz, having undertaken to convince Job of the sin and folly of his discontent and impatience, here vouches a vision he had been favoured with, which he relates to Job for his conviction. What comes immediately from God all men will pay a particular deference to, and Job, no doubt, as much as any. Some think Eliphaz had this vision now *lately,* since he came to Job, putting words into his mouth wherewith to reason with him; and it would have been well if he had kept to the purport of this vision, which would serve for a ground on which to reprove Job for his murmuring, but not to condemn him as a hypocrite. Others think he had it *formerly;* for God did, in this way, often communicate his mind to the children of men in those first ages of the world, Job 33:15. Probably God had sent Eliphaz this messenger and message some time or other, when he was himself in an unquiet discontented frame, to calm and pacify him. Note, As we should comfort others with that wherewith we have been comforted (2Co 1:4), so we should endeavour to convince others with that which has been powerful to convince us. The people of God had not then any written word to quote, and therefore God sometimes notified to them even common truths by the extraordinary ways of revelation. We that have Bibles have there (thanks be to God) a more sure word to depend upon than even visions and voices, 2Pe 1:19. Observe,
 

@@ -10,8 +10,8 @@ This psalm is concerning the kingdom of Jesus Christ, I. His providential kingdo
 
 A psalm of David.
 
-> <sup>1</sup> The earth *is* the LORD's, and the fulness thereof; the world, and they that dwell therein.  
-> <sup>2</sup> For he hath founded it upon the seas, and established it upon the floods.  
+> **¹** The earth *is* the LORD's, and the fulness thereof; the world, and they that dwell therein.  
+> **²** For he hath founded it upon the seas, and established it upon the floods.  
 
 Here is, I. God's absolute propriety in this part of the creation where our lot is cast, Ps 24:1. We are not to think that the heavens, even the heavens only, are the Lord's, and the numerous and bright inhabitants of the upper world, and that this earth, being so small and inconsiderable a part of the creation, and at such a distance from the royal palace above, is neglected, and that he claims no interest in it. No, even the earth is his, and this lower world; and, though he has prepared the throne of his glory in the heavens, yet his kingdom rules over all, and even the worms of this earth are not below his cognizance, nor from under his dominion. 1. When God gave the earth to the children of men he still reserved to himself the property, and only let it out to them as tenants, or usufructuaries: *The earth is the Lord's and the fulness thereof.* The mines that are lodged in the bowels of it, even the richest, the fruits it produces, all the beasts of the forest and the cattle upon a thousand hills, our lands and houses, and all the improvements that are made of this earth by the skill and industry of man, are all his. These indeed, in the kingdom of grace, are justly looked upon as emptiness; for they are vanity of vanities, nothing to a soul; but, in the kingdom of providence, they are fulness. *The earth is full of God's riches, so is the great and wide sea also.* All the parts and regions of the earth are the Lord's, all under his eye, all in his hand: so that, wherever a child of God goes, he may comfort himself with this, that he does not go off his Father's ground. That which falls to our share of the earth and its productions is but lent to us; it is the Lord's; what is our own against all the world is not so against his claims. That which is most remote from us, as that which passes through the paths of the sea, or is hidden in the bottom of it, is the Lord's and he knows where to find it. 2. The habitable part of this earth (Pr 8:31) is his in a special manner—*the world and those that dwell therein.* We ourselves are not our own, our bodies, our souls, are not. *All souls are mine,* says God; for he is the former of our bodies and the Father of our spirits. Our tongues are not our own; they are to be at his service. Even those of the children of men that know him not, nor own their relation to him, are his. Now this comes in here to show that, though God is graciously pleased to accept the devotions and services of his peculiar chosen people (Ps 24:3-5), it is not because he needs them, or can be benefited by them, for the earth is his and all in it, Ex 19:5, Ps 50:12. It is likewise to be applied to the dominion Christ has, as Mediator, over the utmost parts of the earth, which are given him for his possession: the Father loveth the Son and hath given all things into his hand, power over all flesh. The apostle quotes this scripture twice together in his discourse about things offered to idols, 1Co 10:26,28. "If it be sold in the shambles, eat it, and ask no questions; *for the earth is the Lord's;* it is God's good creature, and you have a right to it. But, if one tell you it was offered to an idol, forbear, *for the earth is the Lord's,* and there is enough besides." This is a good reason why we should be content with our allotment in this world, and not envy others theirs; *the earth is the Lord's,* and may he not do what he will with his own, and give to some more of it, to others less, as it pleases him?
 
@@ -19,10 +19,10 @@ II\. The ground of this propriety. The earth is his by an indisputable title, *f
 
 ## The Character of True Israelites.
 
-> <sup>3</sup> Who shall ascend into the hill of the LORD? or who shall stand in his holy place?  
-> <sup>4</sup> He that hath clean hands, and a pure heart; who hath not lifted up his soul unto vanity, nor sworn deceitfully.  
-> <sup>5</sup> He shall receive the blessing from the LORD, and righteousness from the God of his salvation.  
-> <sup>6</sup> This *is* the generation of them that seek him, that seek thy face, O Jacob. Selah.  
+> **³** Who shall ascend into the hill of the LORD? or who shall stand in his holy place?  
+> **⁴** He that hath clean hands, and a pure heart; who hath not lifted up his soul unto vanity, nor sworn deceitfully.  
+> **⁵** He shall receive the blessing from the LORD, and righteousness from the God of his salvation.  
+> **⁶** This *is* the generation of them that seek him, that seek thy face, O Jacob. Selah.  
 
 From this world, and the fulness thereof, the psalmist's meditations rise, of a sudden to the great things of another world, the foundation of which is not on the seas, nor on the floods. The things of this world God has given to the children of men and we are much indebted to his providence for them; but they will not make a portion for us. And therefore,
 
@@ -36,10 +36,10 @@ II\. An answer to this enquiry, in which we have,
 
 ## The King of Glory.
 
-> <sup>7</sup> Lift up your heads, O ye gates; and be ye lift up, ye everlasting doors; and the King of glory shall come in.  
-> <sup>8</sup> Who *is* this King of glory? The LORD strong and mighty, the LORD mighty in battle.  
-> <sup>9</sup> Lift up your heads, O ye gates; even lift *them* up, ye everlasting doors; and the King of glory shall come in.  
-> <sup>10</sup> Who is this King of glory? The LORD of hosts, he *is* the King of glory. Selah.  
+> **⁷** Lift up your heads, O ye gates; and be ye lift up, ye everlasting doors; and the King of glory shall come in.  
+> **⁸** Who *is* this King of glory? The LORD strong and mighty, the LORD mighty in battle.  
+> **⁹** Lift up your heads, O ye gates; even lift *them* up, ye everlasting doors; and the King of glory shall come in.  
+> **¹⁰** Who is this King of glory? The LORD of hosts, he *is* the King of glory. Selah.  
 
 What is spoken once is spoken a second time in these verses; such repetitions are usual in songs, and have much beauty in them. Here is, 1. Entrance once and again demanded for the King of glory; the doors and gates are to be thrown open, thrown wide open, to give him admission, for behold he stands at the door and knocks, ready to come in. 2. Enquiry once and again made concerning this mighty prince, in whose name entrance is demanded: *Who is this King of glory?* As, when any knock at our door, it is common to ask, *Who is there?* 3. Satisfaction once and again given concerning the royal person that makes the demand: *It is the Lord, strong and mighty, the Lord, mighty in battle, the Lord of hosts,* Ps 24:8,10. Now,
 

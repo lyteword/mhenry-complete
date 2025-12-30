@@ -8,16 +8,16 @@ In this chapter we have, I. Christ confirming the doctrine he had preached in th
 
 ## The Healing of the Centurion's Servant.
 
-> <sup>1</sup> Now when he had ended all his sayings in the audience of the people, he entered into Capernaum.  
-> <sup>2</sup> And a certain centurion's servant, who was dear unto him, was sick, and ready to die.  
-> <sup>3</sup> And when he heard of Jesus, he sent unto him the elders of the Jews, beseeching him that he would come and heal his servant.  
-> <sup>4</sup> And when they came to Jesus, they besought him instantly, saying, That he was worthy for whom he should do this:  
-> <sup>5</sup> For he loveth our nation, and he hath built us a synagogue.  
-> <sup>6</sup> Then Jesus went with them. And when he was now not far from the house, the centurion sent friends to him, saying unto him, Lord, trouble not thyself: for I am not worthy that thou shouldest enter under my roof:  
-> <sup>7</sup> Wherefore neither thought I myself worthy to come unto thee: but say in a word, and my servant shall be healed.  
-> <sup>8</sup> For I also am a man set under authority, having under me soldiers, and I say unto one, Go, and he goeth; and to another, Come, and he cometh; and to my servant, Do this, and he doeth *it.*  
-> <sup>9</sup> When Jesus heard these things, he marvelled at him, and turned him about, and said unto the people that followed him, I say unto you, I have not found so great faith, no, not in Israel.  
-> <sup>10</sup> And they that were sent, returning to the house, found the servant whole that had been sick.  
+> **¹** Now when he had ended all his sayings in the audience of the people, he entered into Capernaum.  
+> **²** And a certain centurion's servant, who was dear unto him, was sick, and ready to die.  
+> **³** And when he heard of Jesus, he sent unto him the elders of the Jews, beseeching him that he would come and heal his servant.  
+> **⁴** And when they came to Jesus, they besought him instantly, saying, That he was worthy for whom he should do this:  
+> **⁵** For he loveth our nation, and he hath built us a synagogue.  
+> **⁶** Then Jesus went with them. And when he was now not far from the house, the centurion sent friends to him, saying unto him, Lord, trouble not thyself: for I am not worthy that thou shouldest enter under my roof:  
+> **⁷** Wherefore neither thought I myself worthy to come unto thee: but say in a word, and my servant shall be healed.  
+> **⁸** For I also am a man set under authority, having under me soldiers, and I say unto one, Go, and he goeth; and to another, Come, and he cometh; and to my servant, Do this, and he doeth *it.*  
+> **⁹** When Jesus heard these things, he marvelled at him, and turned him about, and said unto the people that followed him, I say unto you, I have not found so great faith, no, not in Israel.  
+> **¹⁰** And they that were sent, returning to the house, found the servant whole that had been sick.  
 
 Some difference there is between this story of the cure of the centurion's servant as it is related here and as we had it in Mt 8:5, etc. There it was said that the centurion came to Christ; here it is said that he sent to him first some of the *elders of the Jews* (Lu 7:3), and afterwards some other *friends,* Lu 7:6. But it is a rule that *we are said to do that which we do by another—Quod facimus per alium, id ipsum facere judicamur.* The centurion might be said to do that which he did by his proxies; as a man takes possession by his attorney. But it is probable that the centurion himself came at last, when Christ said to him (Mt 8:13), *As thou hast believed, so be it done unto thee.*
 
@@ -41,14 +41,14 @@ VIII\. The cure was *presently* and *perfectly* wrought (Lu 7:10). *They that we
 
 ## The Widow of Nain.
 
-> <sup>11</sup> And it came to pass the day after, that he went into a city called Nain; and many of his disciples went with him, and much people.  
-> <sup>12</sup> Now when he came nigh to the gate of the city, behold, there was a dead man carried out, the only son of his mother, and she was a widow: and much people of the city was with her.  
-> <sup>13</sup> And when the Lord saw her, he had compassion on her, and said unto her, Weep not.  
-> <sup>14</sup> And he came and touched the bier: and they that bare *him* stood still. And he said, Young man, I say unto thee, Arise.  
-> <sup>15</sup> And he that was dead sat up, and began to speak. And he delivered him to his mother.  
-> <sup>16</sup> And there came a fear on all: and they glorified God, saying, That a great prophet is risen up among us; and, That God hath visited his people.  
-> <sup>17</sup> And this rumour of him went forth throughout all Judæa, and throughout all the region round about.  
-> <sup>18</sup> And the disciples of John showed him of all these things.  
+> **¹¹** And it came to pass the day after, that he went into a city called Nain; and many of his disciples went with him, and much people.  
+> **¹²** Now when he came nigh to the gate of the city, behold, there was a dead man carried out, the only son of his mother, and she was a widow: and much people of the city was with her.  
+> **¹³** And when the Lord saw her, he had compassion on her, and said unto her, Weep not.  
+> **¹⁴** And he came and touched the bier: and they that bare *him* stood still. And he said, Young man, I say unto thee, Arise.  
+> **¹⁵** And he that was dead sat up, and began to speak. And he delivered him to his mother.  
+> **¹⁶** And there came a fear on all: and they glorified God, saying, That a great prophet is risen up among us; and, That God hath visited his people.  
+> **¹⁷** And this rumour of him went forth throughout all Judæa, and throughout all the region round about.  
+> **¹⁸** And the disciples of John showed him of all these things.  
 
 We have here the story of Christ's raising to life a widow's son at Nain, that was dead and in the carrying out to be buried, which Matthew and Mark had made no mention of; only, in the general, Matthew had recorded it, in Christ's answer to the disciples of John, that *the dead were raised* up, Mt 11:5. Observe,
 
@@ -70,23 +70,23 @@ IV\. What influence it had upon the people (Lu 7:16): *There came a fear on all;
 
 ## John's Message to Jesus; The Ministry of John and of Christ.
 
-> <sup>19</sup> And John calling *unto him* two of his disciples sent *them* to Jesus, saying, Art thou he that should come? or look we for another?  
-> <sup>20</sup> When the men were come unto him, they said, John Baptist hath sent us unto thee, saying, Art thou he that should come? or look we for another?  
-> <sup>21</sup> And in that same hour he cured many of *their* infirmities and plagues, and of evil spirits; and unto many *that were* blind he gave sight.  
-> <sup>22</sup> Then Jesus answering said unto them, Go your way, and tell John what things ye have seen and heard; how that the blind see, the lame walk, the lepers are cleansed, the deaf hear, the dead are raised, to the poor the gospel is preached.  
-> <sup>23</sup> And blessed is *he,* whosoever shall not be offended in me.  
-> <sup>24</sup> And when the messengers of John were departed, he began to speak unto the people concerning John, What went ye out into the wilderness for to see? A reed shaken with the wind?  
-> <sup>25</sup> But what went ye out for to see? A man clothed in soft raiment? Behold, they which are gorgeously apparelled, and live delicately, are in kings' courts.  
-> <sup>26</sup> But what went ye out for to see? A prophet? Yea, I say unto you, and much more than a prophet.  
-> <sup>27</sup> This is *he,* of whom it is written, Behold, I send my messenger before thy face, which shall prepare thy way before thee.  
-> <sup>28</sup> For I say unto you, Among those that are born of women there is not a greater prophet than John the Baptist: but he that is least in the kingdom of God is greater than he.  
-> <sup>29</sup> And all the people that heard *him,* and the publicans, justified God, being baptized with the baptism of John.  
-> <sup>30</sup> But the Pharisees and lawyers rejected the counsel of God against themselves, being not baptized of him.  
-> <sup>31</sup> And the Lord said, Whereunto then shall I liken the men of this generation? and to what are they like?  
-> <sup>32</sup> They are like unto children sitting in the marketplace, and calling one to another, and saying, We have piped unto you, and ye have not danced; we have mourned to you, and ye have not wept.  
-> <sup>33</sup> For John the Baptist came neither eating bread nor drinking wine; and ye say, He hath a devil.  
-> <sup>34</sup> The Son of man is come eating and drinking; and ye say, Behold a gluttonous man, and a winebibber, a friend of publicans and sinners!  
-> <sup>35</sup> But wisdom is justified of all her children.  
+> **¹⁹** And John calling *unto him* two of his disciples sent *them* to Jesus, saying, Art thou he that should come? or look we for another?  
+> **²⁰** When the men were come unto him, they said, John Baptist hath sent us unto thee, saying, Art thou he that should come? or look we for another?  
+> **²¹** And in that same hour he cured many of *their* infirmities and plagues, and of evil spirits; and unto many *that were* blind he gave sight.  
+> **²²** Then Jesus answering said unto them, Go your way, and tell John what things ye have seen and heard; how that the blind see, the lame walk, the lepers are cleansed, the deaf hear, the dead are raised, to the poor the gospel is preached.  
+> **²³** And blessed is *he,* whosoever shall not be offended in me.  
+> **²⁴** And when the messengers of John were departed, he began to speak unto the people concerning John, What went ye out into the wilderness for to see? A reed shaken with the wind?  
+> **²⁵** But what went ye out for to see? A man clothed in soft raiment? Behold, they which are gorgeously apparelled, and live delicately, are in kings' courts.  
+> **²⁶** But what went ye out for to see? A prophet? Yea, I say unto you, and much more than a prophet.  
+> **²⁷** This is *he,* of whom it is written, Behold, I send my messenger before thy face, which shall prepare thy way before thee.  
+> **²⁸** For I say unto you, Among those that are born of women there is not a greater prophet than John the Baptist: but he that is least in the kingdom of God is greater than he.  
+> **²⁹** And all the people that heard *him,* and the publicans, justified God, being baptized with the baptism of John.  
+> **³⁰** But the Pharisees and lawyers rejected the counsel of God against themselves, being not baptized of him.  
+> **³¹** And the Lord said, Whereunto then shall I liken the men of this generation? and to what are they like?  
+> **³²** They are like unto children sitting in the marketplace, and calling one to another, and saying, We have piped unto you, and ye have not danced; we have mourned to you, and ye have not wept.  
+> **³³** For John the Baptist came neither eating bread nor drinking wine; and ye say, He hath a devil.  
+> **³⁴** The Son of man is come eating and drinking; and ye say, Behold a gluttonous man, and a winebibber, a friend of publicans and sinners!  
+> **³⁵** But wisdom is justified of all her children.  
 
 All this discourse concerning John Baptist, occasioned by his sending to ask whether he was the Messiah or no, we had, much as it is here related, Mt 11:2-19.
 
@@ -126,21 +126,21 @@ III\. We have here the just censure of the men of that generation, who were not 
 
 ## Christ in the House of the Pharisee.
 
-> <sup>36</sup> And one of the Pharisees desired him that he would eat with him. And he went into the Pharisee's house, and sat down to meat.  
-> <sup>37</sup> And, behold, a woman in the city, which was a sinner, when she knew that *Jesus* sat at meat in the Pharisee's house, brought an alabaster box of ointment,  
-> <sup>38</sup> And stood at his feet behind *him* weeping, and began to wash his feet with tears, and did wipe *them* with the hairs of her head, and kissed his feet, and anointed *them* with the ointment.  
-> <sup>39</sup> Now when the Pharisee which had bidden him saw *it,* he spake within himself, saying, This man, if he were a prophet, would have known who and what manner of woman *this is* that toucheth him: for she is a sinner.  
-> <sup>40</sup> And Jesus answering said unto him, Simon, I have somewhat to say unto thee. And he saith, Master, say on.  
-> <sup>41</sup> There was a certain creditor which had two debtors: the one owed five hundred pence, and the other fifty.  
-> <sup>42</sup> And when they had nothing to pay, he frankly forgave them both. Tell me therefore, which of them will love him most?  
-> <sup>43</sup> Simon answered and said, I suppose that *he,* to whom he forgave most. And he said unto him, Thou hast rightly judged.  
-> <sup>44</sup> And he turned to the woman, and said unto Simon, Seest thou this woman? I entered into thine house, thou gavest me no water for my feet: but she hath washed my feet with tears, and wiped *them* with the hairs of her head.  
-> <sup>45</sup> Thou gavest me no kiss: but this woman since the time I came in hath not ceased to kiss my feet.  
-> <sup>46</sup> My head with oil thou didst not anoint: but this woman hath anointed my feet with ointment.  
-> <sup>47</sup> Wherefore I say unto thee, Her sins, which are many, are forgiven; for she loved much: but to whom little is forgiven, *the same* loveth little.  
-> <sup>48</sup> And he said unto her, Thy sins are forgiven.  
-> <sup>49</sup> And they that sat at meat with him began to say within themselves, Who is this that forgiveth sins also?  
-> <sup>50</sup> And he said to the woman, Thy faith hath saved thee; go in peace.  
+> **³⁶** And one of the Pharisees desired him that he would eat with him. And he went into the Pharisee's house, and sat down to meat.  
+> **³⁷** And, behold, a woman in the city, which was a sinner, when she knew that *Jesus* sat at meat in the Pharisee's house, brought an alabaster box of ointment,  
+> **³⁸** And stood at his feet behind *him* weeping, and began to wash his feet with tears, and did wipe *them* with the hairs of her head, and kissed his feet, and anointed *them* with the ointment.  
+> **³⁹** Now when the Pharisee which had bidden him saw *it,* he spake within himself, saying, This man, if he were a prophet, would have known who and what manner of woman *this is* that toucheth him: for she is a sinner.  
+> **⁴⁰** And Jesus answering said unto him, Simon, I have somewhat to say unto thee. And he saith, Master, say on.  
+> **⁴¹** There was a certain creditor which had two debtors: the one owed five hundred pence, and the other fifty.  
+> **⁴²** And when they had nothing to pay, he frankly forgave them both. Tell me therefore, which of them will love him most?  
+> **⁴³** Simon answered and said, I suppose that *he,* to whom he forgave most. And he said unto him, Thou hast rightly judged.  
+> **⁴⁴** And he turned to the woman, and said unto Simon, Seest thou this woman? I entered into thine house, thou gavest me no water for my feet: but she hath washed my feet with tears, and wiped *them* with the hairs of her head.  
+> **⁴⁵** Thou gavest me no kiss: but this woman since the time I came in hath not ceased to kiss my feet.  
+> **⁴⁶** My head with oil thou didst not anoint: but this woman hath anointed my feet with ointment.  
+> **⁴⁷** Wherefore I say unto thee, Her sins, which are many, are forgiven; for she loved much: but to whom little is forgiven, *the same* loveth little.  
+> **⁴⁸** And he said unto her, Thy sins are forgiven.  
+> **⁴⁹** And they that sat at meat with him began to say within themselves, Who is this that forgiveth sins also?  
+> **⁵⁰** And he said to the woman, Thy faith hath saved thee; go in peace.  
 
 When and where this passage of story happened does not appear; this evangelist does not observe order of time in his narrative so much as the other evangelists do; but it comes in here, upon occasion of Christ's being reproached as *a friend to publicans and sinners,* to show that it was only for their good, and to bring them to repentance, that he conversed with them; and that those whom he admitted hear him were reformed, or in a hopeful way to be so. Who this woman was that here testified so great an affection to Christ does not appear; it is commonly said to be Mary Magdalene, but I find no ground in scripture for it: she is described (Lu 8:2, Mk 16:9) to be one *out of whom Christ had cast seven devils;* but that is not mentioned here, and therefore it is probable that it was not she. Now observe here,
 

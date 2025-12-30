@@ -8,13 +8,13 @@ This chapter goes on with the burden of Nineveh, and concludes it. I. The sins o
 
 ## The Judgment of Nineveh. (b. c. 710.)
 
-> <sup>1</sup> Woe to the bloody city! it *is* all full of lies *and* robbery; the prey departeth not;  
-> <sup>2</sup> The noise of a whip, and the noise of the rattling of the wheels, and of the pransing horses, and of the jumping chariots.  
-> <sup>3</sup> The horseman lifteth up both the bright sword and the glittering spear: and *there is* a multitude of slain, and a great number of carcases; and *there is* none end of *their* corpses; they stumble upon their corpses:  
-> <sup>4</sup> Because of the multitude of the whoredoms of the well-favoured harlot, the mistress of witchcrafts, that selleth nations through her whoredoms, and families through her witchcrafts.  
-> <sup>5</sup> Behold, I *am* against thee, saith the LORD of hosts; and I will discover thy skirts upon thy face, and I will shew the nations thy nakedness, and the kingdoms thy shame.  
-> <sup>6</sup> And I will cast abominable filth upon thee, and make thee vile, and will set thee as a gazing-stock.  
-> <sup>7</sup> And it shall come to pass, *that* all they that look upon thee shall flee from thee, and say, Nineveh is laid waste: who will bemoan her? whence shall I seek comforters for thee?  
+> **¹** Woe to the bloody city! it *is* all full of lies *and* robbery; the prey departeth not;  
+> **²** The noise of a whip, and the noise of the rattling of the wheels, and of the pransing horses, and of the jumping chariots.  
+> **³** The horseman lifteth up both the bright sword and the glittering spear: and *there is* a multitude of slain, and a great number of carcases; and *there is* none end of *their* corpses; they stumble upon their corpses:  
+> **⁴** Because of the multitude of the whoredoms of the well-favoured harlot, the mistress of witchcrafts, that selleth nations through her whoredoms, and families through her witchcrafts.  
+> **⁵** Behold, I *am* against thee, saith the LORD of hosts; and I will discover thy skirts upon thy face, and I will shew the nations thy nakedness, and the kingdoms thy shame.  
+> **⁶** And I will cast abominable filth upon thee, and make thee vile, and will set thee as a gazing-stock.  
+> **⁷** And it shall come to pass, *that* all they that look upon thee shall flee from thee, and say, Nineveh is laid waste: who will bemoan her? whence shall I seek comforters for thee?  
 
 Here is, I. Nineveh arraigned and indicted. It is a high charge that is here drawn up against that great city, and neither her numbers nor her grandeur shall secure her from prosecution. 1. It is a *city of blood,* in which a great deal of innocent blood is shed by unrighteous war, or under colour and pretence of public justice, or by suffering barbarous murders to go unpunished; for this the righteous God will make inquisition. 2. *It is all full of lies;* truth is banished from among them; there is no such thing as honesty; one knows not whom to believe nor whom to trust. 3. It is all full of *robbery* and rapine; no man cares what mischief he does, nor to whom he does it: *The prey departs not,* that is, they never know when they have got enough by spoil and oppression. They shed blood, and told lies, in pursuit of the prey, that they might enrich themselves. 4. There is a *multitude of whoredoms* in it, that is, idolatries, spiritual whoredoms, by which she defiled herself, and to which she seduced the neighbouring nations, as a well-favoured harlot, and sold and ruined *nations through her whoredoms.* 5. She is a *mistress of witchcrafts,* and by them she *sells families,* Na 3:4. That which Nineveh aimed at was a universal monarchy, to be the metropolis of the world, and to have all her neighbours under her feet; to compass this, she used not only arms, but arts, compelling some, deluding others, into subjection to her, and wheedling them as a harlot by her charms to lay their necks under her yoke, suggesting to them that it would be for their advantage. She courted them to join with her in her idolatrous rites, to tie them the faster to her interests, and made use of her wealth, power, and greatness, to draw people into alliances with her, by which she gained advantages over them, and made a hand of them. These were her whoredoms, like those of Tyre, Isa 23:15,17. These were her witchcrafts, with which she unaccountably gained dominion. And for this that God has a quarrel with her who, having *made of one blood all nations of men,* never designed one to be a nation of tyrants and another of slaves, and who claims it as his own prerogative to be universal Monarch.
 
@@ -26,18 +26,18 @@ II\. Nineveh condemned to ruin upon this indictment. Woe to this bloody city! Na
 
 ## The Judgment of Nineveh. (b. c. 710.)
 
-> <sup>8</sup> Art thou better than populous No, that was situate among the rivers, *that had* the waters round about it, whose rampart *was* the sea, *and* her wall *was* from the sea?  
-> <sup>9</sup> Ethiopia and Egypt *were* her strength, and *it was* infinite; Put and Lubim were thy helpers.  
-> <sup>10</sup> Yet *was* she carried away, she went into captivity: her young children also were dashed in pieces at the top of all the streets: and they cast lots for her honourable men, and all her great men were bound in chains.  
-> <sup>11</sup> Thou also shalt be drunken: thou shalt be hid, thou also shalt seek strength because of the enemy.  
-> <sup>12</sup> All thy strong holds *shall be like* fig trees with the first-ripe figs: if they be shaken, they shall even fall into the mouth of the eater.  
-> <sup>13</sup> Behold, thy people in the midst of thee *are* women: the gates of thy land shall be set wide open unto thine enemies: the fire shall devour thy bars.  
-> <sup>14</sup> Draw thee waters for the siege, fortify thy strong holds: go into clay, and tread the mortar, make strong the brick-kiln.  
-> <sup>15</sup> There shall the fire devour thee; the sword shall cut thee off, it shall eat thee up like the cankerworm: make thyself many as the cankerworm, make thyself many as the locusts.  
-> <sup>16</sup> Thou hast multiplied thy merchants above the stars of heaven: the cankerworm spoileth, and flieth away.  
-> <sup>17</sup> Thy crowned *are* as the locusts, and thy captains as the great grasshoppers, which camp in the hedges in the cold day, *but* when the sun ariseth they flee away, and their place is not known where they *are.*  
-> <sup>18</sup> Thy shepherds slumber, O king of Assyria: thy nobles shall dwell *in the dust:* thy people is scattered upon the mountains, and no man gathereth *them.*  
-> <sup>19</sup> *There is* no healing of thy bruise; thy wound is grievous: all that hear the bruit of thee shall clap the hands over thee: for upon whom hath not thy wickedness passed continually?  
+> **⁸** Art thou better than populous No, that was situate among the rivers, *that had* the waters round about it, whose rampart *was* the sea, *and* her wall *was* from the sea?  
+> **⁹** Ethiopia and Egypt *were* her strength, and *it was* infinite; Put and Lubim were thy helpers.  
+> **¹⁰** Yet *was* she carried away, she went into captivity: her young children also were dashed in pieces at the top of all the streets: and they cast lots for her honourable men, and all her great men were bound in chains.  
+> **¹¹** Thou also shalt be drunken: thou shalt be hid, thou also shalt seek strength because of the enemy.  
+> **¹²** All thy strong holds *shall be like* fig trees with the first-ripe figs: if they be shaken, they shall even fall into the mouth of the eater.  
+> **¹³** Behold, thy people in the midst of thee *are* women: the gates of thy land shall be set wide open unto thine enemies: the fire shall devour thy bars.  
+> **¹⁴** Draw thee waters for the siege, fortify thy strong holds: go into clay, and tread the mortar, make strong the brick-kiln.  
+> **¹⁵** There shall the fire devour thee; the sword shall cut thee off, it shall eat thee up like the cankerworm: make thyself many as the cankerworm, make thyself many as the locusts.  
+> **¹⁶** Thou hast multiplied thy merchants above the stars of heaven: the cankerworm spoileth, and flieth away.  
+> **¹⁷** Thy crowned *are* as the locusts, and thy captains as the great grasshoppers, which camp in the hedges in the cold day, *but* when the sun ariseth they flee away, and their place is not known where they *are.*  
+> **¹⁸** Thy shepherds slumber, O king of Assyria: thy nobles shall dwell *in the dust:* thy people is scattered upon the mountains, and no man gathereth *them.*  
+> **¹⁹** *There is* no healing of thy bruise; thy wound is grievous: all that hear the bruit of thee shall clap the hands over thee: for upon whom hath not thy wickedness passed continually?  
 
 Nineveh has been told that God is against her, and then none can be for her, to stand her in any stead; yet she sets God himself at defiance, and his power and justice, and says, *I shall have peace.* Threatened folks live long; therefore here the prophet largely shows how vain her confidences would prove and insufficient to ward off the judgment of God. To convince them of this,
 

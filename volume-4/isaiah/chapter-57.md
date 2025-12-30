@@ -8,8 +8,8 @@ The prophet, in this chapter, makes his observations, I. Upon the deaths of good
 
 ## Death of the Righteous. (b. c. 706.)
 
-> <sup>1</sup> The righteous perisheth, and no man layeth *it* to heart: and merciful men *are* taken away, none considering that the righteous is taken away from the evil *to come.*  
-> <sup>2</sup> He shall enter into peace: they shall rest in their beds, *each one* walking *in* his uprightness.  
+> **¹** The righteous perisheth, and no man layeth *it* to heart: and merciful men *are* taken away, none considering that the righteous is taken away from the evil *to come.*  
+> **²** He shall enter into peace: they shall rest in their beds, *each one* walking *in* his uprightness.  
 
 The prophet, in the close of the foregoing chapter, had condemned the watchmen for their ignorance and sottishness; here he shows the general stupidity and senselessness of the people likewise. No wonder they were inconsiderate when their watchmen were so, who should have awakened them to consideration. We may observe here,
 
@@ -25,16 +25,16 @@ III\. The happiness of the righteous in their removal.
 
 ## A Charge against the People. (b. c. 706.)
 
-> <sup>3</sup> But draw near hither, ye sons of the sorceress, the seed of the adulterer and the whore.  
-> <sup>4</sup> Against whom do ye sport yourselves? against whom make ye a wide mouth, *and* draw out the tongue? *are* ye not children of transgression, a seed of falsehood,  
-> <sup>5</sup> Enflaming yourselves with idols under every green tree, slaying the children in the valleys under the clifts of the rocks?  
-> <sup>6</sup> Among the smooth *stones* of the stream *is* thy portion; they, they *are* thy lot: even to them hast thou poured a drink offering, thou hast offered a meat offering. Should I receive comfort in these?  
-> <sup>7</sup> Upon a lofty and high mountain hast thou set thy bed: even thither wentest thou up to offer sacrifice.  
-> <sup>8</sup> Behind the doors also and the posts hast thou set up thy remembrance: for thou hast discovered *thyself to another* than me, and art gone up; thou hast enlarged thy bed, and made thee *a covenant* with them; thou lovedst their bed where thou sawest *it.*  
-> <sup>9</sup> And thou wentest to the king with ointment, and didst increase thy perfumes, and didst send thy messengers far off, and didst debase *thyself even* unto hell.  
-> <sup>10</sup> Thou art wearied in the greatness of thy way; *yet* saidst thou not, There is no hope: thou hast found the life of thine hand; therefore thou wast not grieved.  
-> <sup>11</sup> And of whom hast thou been afraid or feared, that thou hast lied, and hast not remembered me, nor laid *it* to thy heart? have not I held my peace even of old, and thou fearest me not?  
-> <sup>12</sup> I will declare thy righteousness, and thy works; for they shall not profit thee.  
+> **³** But draw near hither, ye sons of the sorceress, the seed of the adulterer and the whore.  
+> **⁴** Against whom do ye sport yourselves? against whom make ye a wide mouth, *and* draw out the tongue? *are* ye not children of transgression, a seed of falsehood,  
+> **⁵** Enflaming yourselves with idols under every green tree, slaying the children in the valleys under the clifts of the rocks?  
+> **⁶** Among the smooth *stones* of the stream *is* thy portion; they, they *are* thy lot: even to them hast thou poured a drink offering, thou hast offered a meat offering. Should I receive comfort in these?  
+> **⁷** Upon a lofty and high mountain hast thou set thy bed: even thither wentest thou up to offer sacrifice.  
+> **⁸** Behind the doors also and the posts hast thou set up thy remembrance: for thou hast discovered *thyself to another* than me, and art gone up; thou hast enlarged thy bed, and made thee *a covenant* with them; thou lovedst their bed where thou sawest *it.*  
+> **⁹** And thou wentest to the king with ointment, and didst increase thy perfumes, and didst send thy messengers far off, and didst debase *thyself even* unto hell.  
+> **¹⁰** Thou art wearied in the greatness of thy way; *yet* saidst thou not, There is no hope: thou hast found the life of thine hand; therefore thou wast not grieved.  
+> **¹¹** And of whom hast thou been afraid or feared, that thou hast lied, and hast not remembered me, nor laid *it* to thy heart? have not I held my peace even of old, and thou fearest me not?  
+> **¹²** I will declare thy righteousness, and thy works; for they shall not profit thee.  
 
 We have here a high charge, but a just one no doubt, drawn up against that wicked generation out of which God's righteous ones were removed, because the world was not worthy of them. Observe,
 
@@ -54,10 +54,10 @@ IV\. Here is God's resolution to call them to an account, though he had long bor
 
 ## Vanity of Idols; Divine Greatness and Condescension. (b. c. 706.)
 
-> <sup>13</sup> When thou criest, let thy companies deliver thee; but the wind shall carry them all away; vanity shall take *them:* but he that putteth his trust in me shall possess the land, and shall inherit my holy mountain;  
-> <sup>14</sup> And shall say, Cast ye up, cast ye up, prepare the way, take up the stumbling block out of the way of my people.  
-> <sup>15</sup> For thus saith the high and lofty One that inhabiteth eternity, whose name *is* Holy; I dwell in the high and holy *place,* with him also *that is* of a contrite and humble spirit, to revive the spirit of the humble, and to revive the heart of the contrite ones.  
-> <sup>16</sup> For I will not contend for ever, neither will I be always wroth: for the spirit should fail before me, and the souls *which* I have made.  
+> **¹³** When thou criest, let thy companies deliver thee; but the wind shall carry them all away; vanity shall take *them:* but he that putteth his trust in me shall possess the land, and shall inherit my holy mountain;  
+> **¹⁴** And shall say, Cast ye up, cast ye up, prepare the way, take up the stumbling block out of the way of my people.  
+> **¹⁵** For thus saith the high and lofty One that inhabiteth eternity, whose name *is* Holy; I dwell in the high and holy *place,* with him also *that is* of a contrite and humble spirit, to revive the spirit of the humble, and to revive the heart of the contrite ones.  
+> **¹⁶** For I will not contend for ever, neither will I be always wroth: for the spirit should fail before me, and the souls *which* I have made.  
 
 Here, I. God shows how insufficient idols and creatures were to relieve and succour those that worshipped them and confided in them (Isa 57:13): "*When thou criest* in thy distress and anguish, lamentest thy misery and callest for help, *let thy companies deliver thee,* thy idol-gods which thou hast heaped to thyself companies of, the troops of the confederate forces which thou hast relied so much upon, let them deliver thee if they can; expect no other relief than what they can give." Thus God said to Israel, when in their trouble they called upon him (Jdg 10:14), *Go, and cry to the gods which you have chosen, let them deliver you.* But in vain is salvation hoped for from them: *The wind shall carry them all away,* the wind of God's wrath, that breath of his mouth which shall slay the wicked; they have made themselves as chaff, and therefore the wind will of course hurry them away. Vanity they are, and *vanity shall take them* away, to vanity they shall be reduced, and vanity shall be their recompence. Both the idols and their worshippers shall come to nothing.
 
@@ -75,11 +75,11 @@ II\. He shows that there was a sufficiency, an all-sufficiency, in him for the c
 
 ## The Divine Forbearance and Mercy. (b. c. 706.)
 
-> <sup>17</sup> For the iniquity of his covetousness was I wroth, and smote him: I hid me, and was wroth, and he went on frowardly in the way of his heart.  
-> <sup>18</sup> I have seen his ways, and will heal him: I will lead him also, and restore comforts unto him and to his mourners.  
-> <sup>19</sup> I create the fruit of the lips; Peace, peace to *him that is* far off, and to *him that is* near, saith the LORD; and I will heal him.  
-> <sup>20</sup> But the wicked *are* like the troubled sea, when it cannot rest, whose waters cast up mire and dirt.  
-> <sup>21</sup> *There is* no peace, saith my God, to the wicked.  
+> **¹⁷** For the iniquity of his covetousness was I wroth, and smote him: I hid me, and was wroth, and he went on frowardly in the way of his heart.  
+> **¹⁸** I have seen his ways, and will heal him: I will lead him also, and restore comforts unto him and to his mourners.  
+> **¹⁹** I create the fruit of the lips; Peace, peace to *him that is* far off, and to *him that is* near, saith the LORD; and I will heal him.  
+> **²⁰** But the wicked *are* like the troubled sea, when it cannot rest, whose waters cast up mire and dirt.  
+> **²¹** *There is* no peace, saith my God, to the wicked.  
 
 The body of the people of Israel, in this account of God's dealings with them, is spoken of as a particular person (Isa 57:17,18), but divided into two sorts, differently dealt with—some who were sons of peace, to whom peace is spoken (Isa 57:19), and others who were not, who have nothing to do with peace, Isa 57:20,21. Observe here,
 

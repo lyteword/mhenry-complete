@@ -10,17 +10,17 @@ This is one of the penitential psalms; it is full of grief and complaint from th
 
 A psalm of David to bring to remembrance.
 
-> <sup>1</sup> O LORD, rebuke me not in thy wrath: neither chasten me in thy hot displeasure.  
-> <sup>2</sup> For thine arrows stick fast in me, and thy hand presseth me sore.  
-> <sup>3</sup> *There is* no soundness in my flesh because of thine anger; neither *is there any* rest in my bones because of my sin.  
-> <sup>4</sup> For mine iniquities are gone over mine head: as a heavy burden they are too heavy for me.  
-> <sup>5</sup> My wounds stink *and* are corrupt because of my foolishness.  
-> <sup>6</sup> I am troubled; I am bowed down greatly; I go mourning all the day long.  
-> <sup>7</sup> For my loins are filled with a loathsome *disease:* and *there is* no soundness in my flesh.  
-> <sup>8</sup> I am feeble and sore broken: I have roared by reason of the disquietness of my heart.  
-> <sup>9</sup> Lord, all my desire *is* before thee; and my groaning is not hid from thee.  
-> <sup>10</sup> My heart panteth, my strength faileth me: as for the light of mine eyes, it also is gone from me.  
-> <sup>11</sup> My lovers and my friends stand aloof from my sore; and my kinsmen stand afar off.  
+> **¹** O LORD, rebuke me not in thy wrath: neither chasten me in thy hot displeasure.  
+> **²** For thine arrows stick fast in me, and thy hand presseth me sore.  
+> **³** *There is* no soundness in my flesh because of thine anger; neither *is there any* rest in my bones because of my sin.  
+> **⁴** For mine iniquities are gone over mine head: as a heavy burden they are too heavy for me.  
+> **⁵** My wounds stink *and* are corrupt because of my foolishness.  
+> **⁶** I am troubled; I am bowed down greatly; I go mourning all the day long.  
+> **⁷** For my loins are filled with a loathsome *disease:* and *there is* no soundness in my flesh.  
+> **⁸** I am feeble and sore broken: I have roared by reason of the disquietness of my heart.  
+> **⁹** Lord, all my desire *is* before thee; and my groaning is not hid from thee.  
+> **¹⁰** My heart panteth, my strength faileth me: as for the light of mine eyes, it also is gone from me.  
+> **¹¹** My lovers and my friends stand aloof from my sore; and my kinsmen stand afar off.  
 
 The title of this psalm is very observable; it is a psalm *to bring to remembrance;* the 70th psalm, which was likewise penned in a day of affliction, is so entitled. It is designed, 1. To bring to his own remembrance. We will suppose it penned when he was sick and in pain, and then it teaches us that times of sickness are times to bring to remembrance, to bring the sin to remembrance, for which God contended with us, to awaken our consciences to deal faithfully and plainly with us, and set our sins in order before us, for our humiliation. *In a day of adversity consider.* Or we may suppose it penned after his recovery, but designed as a record of the convictions he was under and the workings of his heart when he was in affliction, that upon every review of this psalm he might call to mind the good impressions then made upon him and make a fresh improvement of them. To the same purport was the writing of Hezekiah when he had been sick. 2. To put others in mind of the same things which he was himself mindful of, and to teach them what to think and what to say when they are sick and in affliction; let them think as he did, and speak as he did.
 
@@ -44,17 +44,17 @@ In singing this, and praying it over, whatever burden lies upon our spirits, we 
 
 ## Sorrowful Complaints.
 
-> <sup>12</sup> They also that seek after my life lay snares *for me:* and they that seek my hurt speak mischievous things, and imagine deceits all the day long.  
-> <sup>13</sup> But I, as a deaf *man,* heard not; and *I was* as a dumb man *that* openeth not his mouth.  
-> <sup>14</sup> Thus I was as a man that heareth not, and in whose mouth *are* no reproofs.  
-> <sup>15</sup> For in thee, O LORD, do I hope: thou wilt hear, O Lord my God.  
-> <sup>16</sup> For I said, *Hear me,* lest *otherwise* they should rejoice over me: when my foot slippeth, they magnify *themselves* against me.  
-> <sup>17</sup> For I *am* ready to halt, and my sorrow *is* continually before me.  
-> <sup>18</sup> For I will declare mine iniquity; I will be sorry for my sin.  
-> <sup>19</sup> But mine enemies *are* lively, *and* they are strong: and they that hate me wrongfully are multiplied.  
-> <sup>20</sup> They also that render evil for good are mine adversaries; because I follow *the thing that* good *is.*  
-> <sup>21</sup> Forsake me not, O LORD: O my God, be not far from me.  
-> <sup>22</sup> Make haste to help me, O Lord my salvation.  
+> **¹²** They also that seek after my life lay snares *for me:* and they that seek my hurt speak mischievous things, and imagine deceits all the day long.  
+> **¹³** But I, as a deaf *man,* heard not; and *I was* as a dumb man *that* openeth not his mouth.  
+> **¹⁴** Thus I was as a man that heareth not, and in whose mouth *are* no reproofs.  
+> **¹⁵** For in thee, O LORD, do I hope: thou wilt hear, O Lord my God.  
+> **¹⁶** For I said, *Hear me,* lest *otherwise* they should rejoice over me: when my foot slippeth, they magnify *themselves* against me.  
+> **¹⁷** For I *am* ready to halt, and my sorrow *is* continually before me.  
+> **¹⁸** For I will declare mine iniquity; I will be sorry for my sin.  
+> **¹⁹** But mine enemies *are* lively, *and* they are strong: and they that hate me wrongfully are multiplied.  
+> **²⁰** They also that render evil for good are mine adversaries; because I follow *the thing that* good *is.*  
+> **²¹** Forsake me not, O LORD: O my God, be not far from me.  
+> **²²** Make haste to help me, O Lord my salvation.  
 
 In these verses,
 

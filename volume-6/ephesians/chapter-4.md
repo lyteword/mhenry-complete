@@ -8,27 +8,27 @@ We have gone through the former part of this epistle, which consists of several 
 
 ## Consistency Enforced. (a. d. 61.)
 
-> <sup>1</sup> I therefore, the prisoner of the Lord, beseech you that ye walk worthy of the vocation wherewith ye are called,  
+> **¹** I therefore, the prisoner of the Lord, beseech you that ye walk worthy of the vocation wherewith ye are called,  
 
 This is a general exhortation to walk as becomes our Christian profession. Paul was now a prisoner at Rome; and he was the *prisoner of the Lord,* or in the Lord, which signifies as much as for the Lord. See of this, Eph 3:1. He mentions this once and again, to show that he was not ashamed of his bonds, well knowing that he suffered not as an evil doer: and likewise to recommend what he wrote to them with the greater tenderness and with some special advantage. It was a doctrine he thought worth suffering for, and therefore surely they should think it worthy their serious regards and their dutiful observance. We have here the petition of a poor prisoner, one of Christ's prisoners: "*I therefore, the prisoner of the Lord, beseech you,*" etc. Considering what God has done for you, and to what a state and condition he has called you, as has been discoursed before, I now come with an earnest request to you (not to send me relief, nor to use your interest for the obtaining of my liberty, the first thing which poor prisoners are wont to solicit from their friends, but) that you would approve yourselves good Christians, and live up to your profession and calling; *That you walk worthily,* agreeably, suitably, and congruously to those happy circumstances into which the grace of God has brought you, whom he has converted from heathenism to Christianity. Observe, Christians ought to accommodate themselves to the gospel by which they are called, and to the glory to which they are called; both are their vocation. We are called Christians; we must answer that name, and live like Christians. We are called to God's kingdom and glory; that kingdom and glory therefore we must mind, and walk as becomes the heirs of them.
 
 ## Exhortation to Unity; Persuasives to Unity. (a. d. 61.)
 
-> <sup>2</sup> With all lowliness and meekness, with longsuffering, forbearing one another in love;  
-> <sup>3</sup> Endeavouring to keep the unity of the Spirit in the bond of peace.  
-> <sup>4</sup> *There is* one body, and one Spirit, even as ye are called in one hope of your calling;  
-> <sup>5</sup> One Lord, one faith, one baptism,  
-> <sup>6</sup> One God and Father of all, who *is* above all, and through all, and in you all.  
-> <sup>7</sup> But unto every one of us is given grace according to the measure of the gift of Christ.  
-> <sup>8</sup> Wherefore he saith, When he ascended up on high, he led captivity captive, and gave gifts unto men.  
-> <sup>9</sup> (Now that he ascended, what is it but that he also descended first into the lower parts of the earth?  
-> <sup>10</sup> He that descended is the same also that ascended up far above all heavens, that he might fill all things.)  
-> <sup>11</sup> And he gave some, apostles; and some, prophets; and some, evangelists; and some, pastors and teachers;  
-> <sup>12</sup> For the perfecting of the saints, for the work of the ministry, for the edifying of the body of Christ:  
-> <sup>13</sup> Till we all come in the unity of the faith, and of the knowledge of the Son of God, unto a perfect man, unto the measure of the stature of the fulness of Christ:  
-> <sup>14</sup> That we *henceforth* be no more children, tossed to and fro, and carried about with every wind of doctrine, by the sleight of men, *and* cunning craftiness, whereby they lie in wait to deceive;  
-> <sup>15</sup> But speaking the truth in love, may grow up into him in all things, which is the head, *even* Christ:  
-> <sup>16</sup> From whom the whole body fitly joined together and compacted by that which every joint supplieth, according to the effectual working in the measure of every part, maketh increase of the body unto the edifying of itself in love.  
+> **²** With all lowliness and meekness, with longsuffering, forbearing one another in love;  
+> **³** Endeavouring to keep the unity of the Spirit in the bond of peace.  
+> **⁴** *There is* one body, and one Spirit, even as ye are called in one hope of your calling;  
+> **⁵** One Lord, one faith, one baptism,  
+> **⁶** One God and Father of all, who *is* above all, and through all, and in you all.  
+> **⁷** But unto every one of us is given grace according to the measure of the gift of Christ.  
+> **⁸** Wherefore he saith, When he ascended up on high, he led captivity captive, and gave gifts unto men.  
+> **⁹** (Now that he ascended, what is it but that he also descended first into the lower parts of the earth?  
+> **¹⁰** He that descended is the same also that ascended up far above all heavens, that he might fill all things.)  
+> **¹¹** And he gave some, apostles; and some, prophets; and some, evangelists; and some, pastors and teachers;  
+> **¹²** For the perfecting of the saints, for the work of the ministry, for the edifying of the body of Christ:  
+> **¹³** Till we all come in the unity of the faith, and of the knowledge of the Son of God, unto a perfect man, unto the measure of the stature of the fulness of Christ:  
+> **¹⁴** That we *henceforth* be no more children, tossed to and fro, and carried about with every wind of doctrine, by the sleight of men, *and* cunning craftiness, whereby they lie in wait to deceive;  
+> **¹⁵** But speaking the truth in love, may grow up into him in all things, which is the head, *even* Christ:  
+> **¹⁶** From whom the whole body fitly joined together and compacted by that which every joint supplieth, according to the effectual working in the measure of every part, maketh increase of the body unto the edifying of itself in love.  
 
 Here the apostle proceeds to more particular exhortations. Two he enlarges upon in this chapter:—To unity an love, purity and holiness, which Christians should very much study. We do not *walk worthy of the vocation wherewith we are called* if we be not faithful friends to all Christians, and sworn enemies to all sin.
 
@@ -48,22 +48,22 @@ III\. The motives proper to promote this Christian unity and concord. The apostl
 
 ## Exhortation to Purity and Holiness; Cautions against Sin; Against Grieving the Spirit. (a. d. 61.)
 
-> <sup>17</sup> This I say therefore, and testify in the Lord, that ye henceforth walk not as other Gentiles walk, in the vanity of their mind,  
-> <sup>18</sup> Having the understanding darkened, being alienated from the life of God through the ignorance that is in them, because of the blindness of their heart:  
-> <sup>19</sup> Who being past feeling have given themselves over unto lasciviousness, to work all uncleanness with greediness.  
-> <sup>20</sup> But ye have not so learned Christ;  
-> <sup>21</sup> If so be that ye have heard him, and have been taught by him, as the truth is in Jesus:  
-> <sup>22</sup> That ye put off concerning the former conversation the old man, which is corrupt according to the deceitful lusts;  
-> <sup>23</sup> And be renewed in the spirit of your mind;  
-> <sup>24</sup> And that ye put on the new man, which after God is created in righteousness and true holiness.  
-> <sup>25</sup> Wherefore putting away lying, speak every man truth with his neighbour: for we are members one of another.  
-> <sup>26</sup> Be ye angry, and sin not: let not the sun go down upon your wrath:  
-> <sup>27</sup> Neither give place to the devil.  
-> <sup>28</sup> Let him that stole steal no more: but rather let him labour, working with *his* hands the thing which is good, that he may have to give to him that needeth.  
-> <sup>29</sup> Let no corrupt communication proceed out of your mouth, but that which is good to the use of edifying, that it may minister grace unto the hearers.  
-> <sup>30</sup> And grieve not the holy Spirit of God, whereby ye are sealed unto the day of redemption.  
-> <sup>31</sup> Let all bitterness, and wrath, and anger, and clamour, and evil speaking, be put away from you, with all malice:  
-> <sup>32</sup> And be ye kind one to another, tenderhearted, forgiving one another, even as God for Christ's sake hath forgiven you.  
+> **¹⁷** This I say therefore, and testify in the Lord, that ye henceforth walk not as other Gentiles walk, in the vanity of their mind,  
+> **¹⁸** Having the understanding darkened, being alienated from the life of God through the ignorance that is in them, because of the blindness of their heart:  
+> **¹⁹** Who being past feeling have given themselves over unto lasciviousness, to work all uncleanness with greediness.  
+> **²⁰** But ye have not so learned Christ;  
+> **²¹** If so be that ye have heard him, and have been taught by him, as the truth is in Jesus:  
+> **²²** That ye put off concerning the former conversation the old man, which is corrupt according to the deceitful lusts;  
+> **²³** And be renewed in the spirit of your mind;  
+> **²⁴** And that ye put on the new man, which after God is created in righteousness and true holiness.  
+> **²⁵** Wherefore putting away lying, speak every man truth with his neighbour: for we are members one of another.  
+> **²⁶** Be ye angry, and sin not: let not the sun go down upon your wrath:  
+> **²⁷** Neither give place to the devil.  
+> **²⁸** Let him that stole steal no more: but rather let him labour, working with *his* hands the thing which is good, that he may have to give to him that needeth.  
+> **²⁹** Let no corrupt communication proceed out of your mouth, but that which is good to the use of edifying, that it may minister grace unto the hearers.  
+> **³⁰** And grieve not the holy Spirit of God, whereby ye are sealed unto the day of redemption.  
+> **³¹** Let all bitterness, and wrath, and anger, and clamour, and evil speaking, be put away from you, with all malice:  
+> **³²** And be ye kind one to another, tenderhearted, forgiving one another, even as God for Christ's sake hath forgiven you.  
 
 The apostle having gone through his exhortation to mutual love, unity, and concord, in the Eph 2:16, there follows in these an exhortation to Christian purity and holiness of heart and life, and that both more general (Eph 4:17-24) and in several particular instances, Eph 4:25-32. This is solemnly introduced: "*This I say therefore, and testify in the Lord;* that is, seeing the matter is as above described, seeing you are members of Christ's body and partakers of such gifts, this I urge upon your consciences, and bear witness to as your duty in the Lord's name, and by virtue of the authority I have derived from him." Consider,
 

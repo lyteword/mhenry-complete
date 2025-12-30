@@ -8,14 +8,14 @@ How Nehemiah wrestled with God and prevailed we read in the foregoing chapter; n
 
 ## Nehemiah's Request to the King. (b. c. 445.)
 
-> <sup>1</sup> And it came to pass in the month Nisan, in the twentieth year of Artaxerxes the king, *that* wine *was* before him: and I took up the wine, and gave *it* unto the king. Now I had not been *beforetime* sad in his presence.  
-> <sup>2</sup> Wherefore the king said unto me, Why *is* thy countenance sad, seeing thou *art* not sick? this *is* nothing *else* but sorrow of heart. Then I was very sore afraid,  
-> <sup>3</sup> And said unto the king, Let the king live for ever: why should not my countenance be sad, when the city, the place of my fathers' sepulchres, *lieth* waste, and the gates thereof are consumed with fire?  
-> <sup>4</sup> Then the king said unto me, For what dost thou make request? So I prayed to the God of heaven.  
-> <sup>5</sup> And I said unto the king, If it please the king, and if thy servant have found favour in thy sight, that thou wouldest send me unto Judah, unto the city of my fathers' sepulchres, that I may build it.  
-> <sup>6</sup> And the king said unto me, (the queen also sitting by him,) For how long shall thy journey be? and when wilt thou return? So it pleased the king to send me; and I set him a time.  
-> <sup>7</sup> Moreover I said unto the king, If it please the king, let letters be given me to the governors beyond the river, that they may convey me over till I come into Judah;  
-> <sup>8</sup> And a letter unto Asaph the keeper of the king's forest, that he may give me timber to make beams for the gates of the palace which *appertained* to the house, and for the wall of the city, and for the house that I shall enter into. And the king granted me, according to the good hand of my God upon me.  
+> **¹** And it came to pass in the month Nisan, in the twentieth year of Artaxerxes the king, *that* wine *was* before him: and I took up the wine, and gave *it* unto the king. Now I had not been *beforetime* sad in his presence.  
+> **²** Wherefore the king said unto me, Why *is* thy countenance sad, seeing thou *art* not sick? this *is* nothing *else* but sorrow of heart. Then I was very sore afraid,  
+> **³** And said unto the king, Let the king live for ever: why should not my countenance be sad, when the city, the place of my fathers' sepulchres, *lieth* waste, and the gates thereof are consumed with fire?  
+> **⁴** Then the king said unto me, For what dost thou make request? So I prayed to the God of heaven.  
+> **⁵** And I said unto the king, If it please the king, and if thy servant have found favour in thy sight, that thou wouldest send me unto Judah, unto the city of my fathers' sepulchres, that I may build it.  
+> **⁶** And the king said unto me, (the queen also sitting by him,) For how long shall thy journey be? and when wilt thou return? So it pleased the king to send me; and I set him a time.  
+> **⁷** Moreover I said unto the king, If it please the king, let letters be given me to the governors beyond the river, that they may convey me over till I come into Judah;  
+> **⁸** And a letter unto Asaph the keeper of the king's forest, that he may give me timber to make beams for the gates of the palace which *appertained* to the house, and for the wall of the city, and for the house that I shall enter into. And the king granted me, according to the good hand of my God upon me.  
 
 When Nehemiah had prayed for the relief of his countrymen, and perhaps in David's words (Ps 51:18, *Build thou the walls of Jerusalem*), he did not sit still and say, "Let God now do his own work, for I have no more to do," but set himself to forecast what he could do towards it. Our prayers must be seconded with our serious endeavours, else we mock God. Nearly four months passed, from Chisleu to Nisan (from November to March), before Nehemiah made his application to the king for leave to go to Jerusalem, either because the winter was not a proper time for such a journey, and he would not make the motion till he could pursue it, or because it was so long before his month of waiting came, and there was no coming into the king's presence uncalled, Es 4:11. Now that he attended the king's table he hoped to have his ear. We are not thus limited to certain moments in our addresses to the King of kings, but have liberty of access to him at all times; to the throne of grace we never come unseasonably. Now here is,
 
@@ -33,18 +33,18 @@ VI\. The king's great favour to him in asking him *when he would return,* Ne 2:6
 
 ## Nehemiah's Journey to Jerusalem; the Malice of Sanballat, etc. (b. c. 445.)
 
-> <sup>9</sup> Then I came to the governors beyond the river, and gave them the king's letters. Now the king had sent captains of the army and horsemen with me.  
-> <sup>10</sup> When Sanballat the Horonite, and Tobiah the servant, the Ammonite, heard *of it,* it grieved them exceedingly that there was come a man to seek the welfare of the children of Israel.  
-> <sup>11</sup> So I came to Jerusalem, and was there three days.  
-> <sup>12</sup> And I arose in the night, I and some few men with me; neither told I *any* man what my God had put in my heart to do at Jerusalem: neither *was there any* beast with me, save the beast that I rode upon.  
-> <sup>13</sup> And I went out by night by the gate of the valley, even before the dragon well, and to the dung port, and viewed the walls of Jerusalem, which were broken down, and the gates thereof were consumed with fire.  
-> <sup>14</sup> Then I went on to the gate of the fountain, and to the king's pool: but *there was* no place for the beast *that was* under me to pass.  
-> <sup>15</sup> Then went I up in the night by the brook, and viewed the wall, and turned back, and entered by the gate of the valley, and *so* returned.  
-> <sup>16</sup> And the rulers knew not whither I went, or what I did; neither had I as yet told *it* to the Jews, nor to the priests, nor to the nobles, nor to the rulers, nor to the rest that did the work.  
-> <sup>17</sup> Then said I unto them, Ye see the distress that we *are* in, how Jerusalem *lieth* waste, and the gates thereof are burned with fire: come, and let us build up the wall of Jerusalem, that we be no more a reproach.  
-> <sup>18</sup> Then I told them of the hand of my God which was good upon me; as also the king's words that he had spoken unto me. And they said, Let us rise up and build. So they strengthened their hands for *this* good *work.*  
-> <sup>19</sup> But when Sanballat the Horonite, and Tobiah the servant, the Ammonite, and Geshem the Arabian, heard *it,* they laughed us to scorn, and despised us, and said, What *is* this thing that ye do? will ye rebel against the king?  
-> <sup>20</sup> Then answered I them, and said unto them, The God of heaven, he will prosper us; therefore we his servants will arise and build: but ye have no portion, nor right, nor memorial, in Jerusalem.  
+> **⁹** Then I came to the governors beyond the river, and gave them the king's letters. Now the king had sent captains of the army and horsemen with me.  
+> **¹⁰** When Sanballat the Horonite, and Tobiah the servant, the Ammonite, heard *of it,* it grieved them exceedingly that there was come a man to seek the welfare of the children of Israel.  
+> **¹¹** So I came to Jerusalem, and was there three days.  
+> **¹²** And I arose in the night, I and some few men with me; neither told I *any* man what my God had put in my heart to do at Jerusalem: neither *was there any* beast with me, save the beast that I rode upon.  
+> **¹³** And I went out by night by the gate of the valley, even before the dragon well, and to the dung port, and viewed the walls of Jerusalem, which were broken down, and the gates thereof were consumed with fire.  
+> **¹⁴** Then I went on to the gate of the fountain, and to the king's pool: but *there was* no place for the beast *that was* under me to pass.  
+> **¹⁵** Then went I up in the night by the brook, and viewed the wall, and turned back, and entered by the gate of the valley, and *so* returned.  
+> **¹⁶** And the rulers knew not whither I went, or what I did; neither had I as yet told *it* to the Jews, nor to the priests, nor to the nobles, nor to the rulers, nor to the rest that did the work.  
+> **¹⁷** Then said I unto them, Ye see the distress that we *are* in, how Jerusalem *lieth* waste, and the gates thereof are burned with fire: come, and let us build up the wall of Jerusalem, that we be no more a reproach.  
+> **¹⁸** Then I told them of the hand of my God which was good upon me; as also the king's words that he had spoken unto me. And they said, Let us rise up and build. So they strengthened their hands for *this* good *work.*  
+> **¹⁹** But when Sanballat the Horonite, and Tobiah the servant, the Ammonite, and Geshem the Arabian, heard *it,* they laughed us to scorn, and despised us, and said, What *is* this thing that ye do? will ye rebel against the king?  
+> **²⁰** Then answered I them, and said unto them, The God of heaven, he will prosper us; therefore we his servants will arise and build: but ye have no portion, nor right, nor memorial, in Jerusalem.  
 
 We are here told,
 

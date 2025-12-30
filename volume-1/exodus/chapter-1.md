@@ -8,23 +8,23 @@ We have here, I. God's kindness to Israel, in multiplying them exceedingly, (Ex 
 
 ## The Israelites Oppressed in Egypt. (b. c. 1588.)
 
-> <sup>1</sup> Now these *are* the names of the children of Israel, which came into Egypt; every man and his household came with Jacob.  
-> <sup>2</sup> Reuben, Simeon, Levi, and Judah,  
-> <sup>3</sup> Issachar, Zebulun, and Benjamin,  
-> <sup>4</sup> Dan, and Naphtali, Gad, and Asher.  
-> <sup>5</sup> And all the souls that came out of the loins of Jacob were seventy souls: for Joseph was in Egypt *already.*  
-> <sup>6</sup> And Joseph died, and all his brethren, and all that generation.  
-> <sup>7</sup> And the children of Israel were fruitful, and increased abundantly, and multiplied, and waxed exceeding mighty; and the land was filled with them.  
+> **¹** Now these *are* the names of the children of Israel, which came into Egypt; every man and his household came with Jacob.  
+> **²** Reuben, Simeon, Levi, and Judah,  
+> **³** Issachar, Zebulun, and Benjamin,  
+> **⁴** Dan, and Naphtali, Gad, and Asher.  
+> **⁵** And all the souls that came out of the loins of Jacob were seventy souls: for Joseph was in Egypt *already.*  
+> **⁶** And Joseph died, and all his brethren, and all that generation.  
+> **⁷** And the children of Israel were fruitful, and increased abundantly, and multiplied, and waxed exceeding mighty; and the land was filled with them.  
 
 In these verses we have, 1. A recital of the names of the *twelve patriarchs,* as they are called, Ac 7:8. Their names are often repeated in scripture, that they may not sound uncouth to us, as other hard names, but that, by their occurring so frequently, they may become familiar to us; and to show how precious God's spiritual Israel are to him, and how much he delights in them. 2. The account which was kept of the number of Jacob's family, when they went down into Egypt; they were in all *seventy souls* (Ex 1:5). according to the computation we had, Ge 46:27. This was just the number of the nations by which the earth was peopled, according to the account given, Ge 10:1-32 *For when the Most High separated the sons of Adam, he set the bounds of the people according to the number of the children of Israel,* as Moses observes, De 32:8. Notice is here taken of this that their increase in Egypt might appear the more wonderful. Note, It is good for those whose latter end greatly increases often to remember how small their beginning was, Job 8:7. 3. The death of Joseph, Ex 1:6. *All that generation* by degrees wore off. Perhaps all Jacob's sons died much about the same time; for there was not more than seven years' difference in age between the eldest and the youngest of them, except Benjamin; and, when death comes into a family, sometimes it makes a full end in a little time. When Joseph, the stay of the family, died, the rest went off apace. Note, We must look upon ourselves and our brethren, and all we converse with, as dying and hastening out of the world. This generation passeth away, as that did which went before. 4. The strange increase of Israel in Egypt, Ex 1:7. Here are four words used to express it: They *were fruitful,* and *increased abundantly,* like fishes or insects, so that they *multiplied;* and, being generally healthful and strong, they *waxed exceedingly mighty,* so that they began almost to outnumber the natives, for the land was in all places filled with them, at least Goshen, their own allotment. Observe, (1.) Though, no doubt, they increased considerably before, yet, it should seem, it was not till after the death of Joseph that it began to be taken notice of as extraordinary. Thus, when they lost the benefit of his protection, God made their numbers their defence, and they became better able than they had been to shift for themselves. If God continue our friends and relations to us while we most need them, and remove them when they can be better spared, let us own that he is wise, and not complain that he is hard upon us. After the death of Christ, our Joseph, his gospel Israel began most remarkably to increase: and his death had an influence upon it; it was like the sowing of a corn of wheat, which, if it die, bringeth forth much fruit, Joh 12:24. (2.) This wonderful increase was the fulfillment of the promise long before made unto the fathers. From the call of Abraham, when God first told him he would make of him a great nation, to the deliverance of his seed out of Egypt, it was 430 years, during the first 215 of which they were increased but to seventy, but, in the latter half, those seventy multiplied to 600,000 fighting men. Note, [1.] Sometimes God's providences may seem for a great while to thwart his promises, and to go counter to them, that his people's faith may be tried, and his own power the more magnified. [2.] Though the performance of God's promises is sometimes slow, yet it is always sure; *at the end it shall speak, and not lie,* Hab 2:3.
 
-> <sup>8</sup> Now there arose up a new king over Egypt, which knew not Joseph.  
-> <sup>9</sup> And he said unto his people, Behold, the people of the children of Israel *are* more and mightier than we:  
-> <sup>10</sup> Come on, let us deal wisely with them; lest they multiply, and it come to pass, that, when there falleth out any war, they join also unto our enemies, and fight against us, and *so* get them up out of the land.  
-> <sup>11</sup> Therefore they did set over them taskmasters to afflict them with their burdens. And they built for Pharaoh treasure cities, Pithom and Raamses.  
-> <sup>12</sup> But the more they afflicted them, the more they multiplied and grew. And they were grieved because of the children of Israel.  
-> <sup>13</sup> And the Egyptians made the children of Israel to serve with rigour:  
-> <sup>14</sup> And they made their lives bitter with hard bondage, in mortar, and in brick, and in all manner of service in the field: all their service, wherein they made them serve, *was* with rigour.  
+> **⁸** Now there arose up a new king over Egypt, which knew not Joseph.  
+> **⁹** And he said unto his people, Behold, the people of the children of Israel *are* more and mightier than we:  
+> **¹⁰** Come on, let us deal wisely with them; lest they multiply, and it come to pass, that, when there falleth out any war, they join also unto our enemies, and fight against us, and *so* get them up out of the land.  
+> **¹¹** Therefore they did set over them taskmasters to afflict them with their burdens. And they built for Pharaoh treasure cities, Pithom and Raamses.  
+> **¹²** But the more they afflicted them, the more they multiplied and grew. And they were grieved because of the children of Israel.  
+> **¹³** And the Egyptians made the children of Israel to serve with rigour:  
+> **¹⁴** And they made their lives bitter with hard bondage, in mortar, and in brick, and in all manner of service in the field: all their service, wherein they made them serve, *was* with rigour.  
 
 The land of Egypt here, at length, becomes to Israel a house of bondage, though hitherto it had been a happy shelter and settlement for them. Note, The place of our satisfaction may soon become the place of our affliction, and that may prove the greatest cross to us of which we said, *This same shall comfort us.* Those may prove our sworn enemies whose parents were our faithful friends; nay, the same persons that loved us may possibly turn to hate us: therefore cease from man, and say not concerning any place on this side heaven, *This is my rest for ever.* Observe here,
 
@@ -36,14 +36,14 @@ III\. The method they took to suppress them, and check their growth, Ex 1:11,13,
 
 IV\. The wonderful increase of the Israelites, notwithstanding the oppressions they groaned under (Ex 1:12): *The more they afflicted them the more they multiplied,* sorely to the grief and vexation of the Egyptians. Note, 1. Times of affliction have often been the church's growing times, *Sub pondere crescit—Being pressed, it grows.* Christianity spread most when it was persecuted: the blood of the martyrs was the seed of the church. 2. Those that take counsel against the Lord and his Israel do but imagine a vain thing (Ps 2:1), and create so much the greater vexation to themselves: hell and earth cannot diminish those whom Heaven will increase.
 
-> <sup>15</sup> And the king of Egypt spake to the Hebrew midwives, of which the name of the one *was* Shiphrah, and the name of the other Puah:  
-> <sup>16</sup> And he said, When ye do the office of a midwife to the Hebrew women, and see *them* upon the stools; if it *be* a son, then ye shall kill him: but if it *be* a daughter, then she shall live.  
-> <sup>17</sup> But the midwives feared God, and did not as the king of Egypt commanded them, but saved the men children alive.  
-> <sup>18</sup> And the king of Egypt called for the midwives, and said unto them, Why have ye done this thing, and have saved the men children alive?  
-> <sup>19</sup> And the midwives said unto Pharaoh, Because the Hebrew women *are* not as the Egyptian women; for they *are* lively, and are delivered ere the midwives come in unto them.  
-> <sup>20</sup> Therefore God dealt well with the midwives: and the people multiplied, and waxed very mighty.  
-> <sup>21</sup> And it came to pass, because the midwives feared God, that he made them houses.  
-> <sup>22</sup> And Pharaoh charged all his people, saying, Every son that is born ye shall cast into the river, and every daughter ye shall save alive.  
+> **¹⁵** And the king of Egypt spake to the Hebrew midwives, of which the name of the one *was* Shiphrah, and the name of the other Puah:  
+> **¹⁶** And he said, When ye do the office of a midwife to the Hebrew women, and see *them* upon the stools; if it *be* a son, then ye shall kill him: but if it *be* a daughter, then she shall live.  
+> **¹⁷** But the midwives feared God, and did not as the king of Egypt commanded them, but saved the men children alive.  
+> **¹⁸** And the king of Egypt called for the midwives, and said unto them, Why have ye done this thing, and have saved the men children alive?  
+> **¹⁹** And the midwives said unto Pharaoh, Because the Hebrew women *are* not as the Egyptian women; for they *are* lively, and are delivered ere the midwives come in unto them.  
+> **²⁰** Therefore God dealt well with the midwives: and the people multiplied, and waxed very mighty.  
+> **²¹** And it came to pass, because the midwives feared God, that he made them houses.  
+> **²²** And Pharaoh charged all his people, saying, Every son that is born ye shall cast into the river, and every daughter ye shall save alive.  
 
 The Egyptians' indignation at Israel's increase, notwithstanding the many hardships they put upon them, drove them at length to the most barbarous and inhuman methods of suppressing them, by the murder of their children. It was strange that they did not rather pick quarrels with the grown men, against whom they might perhaps find some occasion: to be thus bloody towards the infants, whom all must own to be innocents, was a sin which they had to cloak for. Note, 1. There is more cruelty in the corrupt heart of man than one would imagine, Ro 3:15,16. The enmity that is in the seed of the serpent against the seed of the woman divests men of humanity itself, and makes them forget all pity. One would not think it possible that ever men should be so barbarous and blood-thirsty as the persecutors of God's people have been, Re 17:6. 2. Even confessed innocence is no defence against the old enmity. What blood so guiltless as that of a child new-born? Yet that is prodigally shed like water, and sucked with delight like milk or honey. Pharaoh and Herod sufficiently proved themselves agents for that *great red dragon, who stood to devour the man-child as soon as it was born,* Re 12:3,4. Pilate delivered Christ to be crucified, after he had confessed that he found no fault in him. It is well for us that, though man can kill the body, this is all he can do. Two bloody edicts are here signed for the destruction of all the male children that were born to the Hebrews.
 

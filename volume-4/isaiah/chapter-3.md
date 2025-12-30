@@ -8,14 +8,14 @@ The prophet, in this chapter, goes on to foretel the desolations that were comin
 
 ## Judgments Denounced. (b. c. 758.)
 
-> <sup>1</sup> For, behold, the Lord, the LORD of hosts, doth take away from Jerusalem and from Judah the stay and the staff, the whole stay of bread, and the whole stay of water,  
-> <sup>2</sup> The mighty man, and the man of war, the judge, and the prophet, and the prudent, and the ancient,  
-> <sup>3</sup> The captain of fifty, and the honourable man, and the counsellor, and the cunning artificer, and the eloquent orator.  
-> <sup>4</sup> And I will give children *to be* their princes, and babes shall rule over them.  
-> <sup>5</sup> And the people shall be oppressed, every one by another, and every one by his neighbour: the child shall behave himself proudly against the ancient, and the base against the honourable.  
-> <sup>6</sup> When a man shall take hold of his brother of the house of his father, *saying,* Thou hast clothing, be thou our ruler, and *let* this ruin *be* under thy hand:  
-> <sup>7</sup> In that day shall he swear, saying, I will not be a healer; for in my house *is* neither bread nor clothing: make me not a ruler of the people.  
-> <sup>8</sup> For Jerusalem is ruined, and Judah is fallen: because their tongue and their doings *are* against the LORD, to provoke the eyes of his glory.  
+> **¹** For, behold, the Lord, the LORD of hosts, doth take away from Jerusalem and from Judah the stay and the staff, the whole stay of bread, and the whole stay of water,  
+> **²** The mighty man, and the man of war, the judge, and the prophet, and the prudent, and the ancient,  
+> **³** The captain of fifty, and the honourable man, and the counsellor, and the cunning artificer, and the eloquent orator.  
+> **⁴** And I will give children *to be* their princes, and babes shall rule over them.  
+> **⁵** And the people shall be oppressed, every one by another, and every one by his neighbour: the child shall behave himself proudly against the ancient, and the base against the honourable.  
+> **⁶** When a man shall take hold of his brother of the house of his father, *saying,* Thou hast clothing, be thou our ruler, and *let* this ruin *be* under thy hand:  
+> **⁷** In that day shall he swear, saying, I will not be a healer; for in my house *is* neither bread nor clothing: make me not a ruler of the people.  
+> **⁸** For Jerusalem is ruined, and Judah is fallen: because their tongue and their doings *are* against the LORD, to provoke the eyes of his glory.  
 
 The prophet, in the close of the foregoing chapter, had given a necessary caution to all not to put confidence in man, or any creature; he had also given a general reason for that caution, taken from the frailty of human life and the vanity and weakness of human powers. Here he gives a particular reason for it—God was now about to ruin all their creature-confidences, so that they should meet with nothing but disappointments in all their expectations from them (Isa 3:1): *The stay and the staff* shall be taken away, all their supports, of what kind soever, all the things they trusted to and looked for help and relief from. Their church and kingdom had now grown old and were going to decay, and they were (after the manner of aged men, Zec 8:4) leaning on a staff: now God threatens to take away their staff, and then they must fall of course, to take away the stays of both the city and the country, of Jerusalem and of Judah, which are indeed stays to one another, and, if one fail, the other feels from it. He that does this is *the Lord, the Lord of hosts—Adon,* the Lord that is himself the stay or foundation; if that stay depart, all other stays certainly break under us, for he is the strength of them all. He that is the Lord, the ruler, that has authority to do it, and the Lord of hosts, that has the ability to do it, he shall take away the stay and the staff. St. Jerome refers this to the sensible decay of the Jewish nation after they had crucified our Saviour, Ro 11:9,10. I rather take it as a warning to all nations not to provoke God; for if they make him their enemy, he can and will thus make them miserable. Let us view the particulars.
 
@@ -39,13 +39,13 @@ VI\. It is some stay, some support, to hope that, though matters may be now ill-
 
 ## Judgments Denounced.. (b. c. 758.)
 
-> <sup>9</sup> The show of their countenance doth witness against them; and they declare their sin as Sodom, they hide *it* not. Woe unto their soul! for they have rewarded evil unto themselves.  
-> <sup>10</sup> Say ye to the righteous, that *it shall be* well *with him:* for they shall eat the fruit of their doings.  
-> <sup>11</sup> Woe unto the wicked! *it shall be* ill *with him:* for the reward of his hands shall be given him.  
-> <sup>12</sup> *As for* my people, children *are* their oppressors, and women rule over them. O my people, they which lead thee cause *thee* to err, and destroy the way of thy paths.  
-> <sup>13</sup> The LORD standeth up to plead, and standeth to judge the people.  
-> <sup>14</sup> The LORD will enter into judgment with the ancients of his people, and the princes thereof: for ye have eaten up the vineyard; the spoil of the poor *is* in your houses.  
-> <sup>15</sup> What mean ye *that* ye beat my people to pieces, and grind the faces of the poor? saith the Lord GOD of hosts.  
+> **⁹** The show of their countenance doth witness against them; and they declare their sin as Sodom, they hide *it* not. Woe unto their soul! for they have rewarded evil unto themselves.  
+> **¹⁰** Say ye to the righteous, that *it shall be* well *with him:* for they shall eat the fruit of their doings.  
+> **¹¹** Woe unto the wicked! *it shall be* ill *with him:* for the reward of his hands shall be given him.  
+> **¹²** *As for* my people, children *are* their oppressors, and women rule over them. O my people, they which lead thee cause *thee* to err, and destroy the way of thy paths.  
+> **¹³** The LORD standeth up to plead, and standeth to judge the people.  
+> **¹⁴** The LORD will enter into judgment with the ancients of his people, and the princes thereof: for ye have eaten up the vineyard; the spoil of the poor *is* in your houses.  
+> **¹⁵** What mean ye *that* ye beat my people to pieces, and grind the faces of the poor? saith the Lord GOD of hosts.  
 
 Here God proceeds in his controversy with his people. Observe,
 
@@ -57,17 +57,17 @@ III\. The distinction that shall be made between particular persons, in the pros
 
 ## The Vanity of the Daughters of Zion. (b. c. 758.)
 
-> <sup>16</sup> Moreover the LORD saith, Because the daughters of Zion are haughty, and walk with stretched forth necks and wanton eyes, walking and mincing *as* they go, and making a tinkling with their feet:  
-> <sup>17</sup> Therefore the Lord will smite with a scab the crown of the head of the daughters of Zion, and the LORD will discover their secret parts.  
-> <sup>18</sup> In that day the Lord will take away the bravery of *their* tinkling ornaments *about their feet,* and *their* cauls, and *their* round tires like the moon,  
-> <sup>19</sup> The chains, and the bracelets, and the mufflers,  
-> <sup>20</sup> The bonnets, and the ornaments of the legs, and the headbands, and the tablets, and the earrings,  
-> <sup>21</sup> The rings, and nose jewels,  
-> <sup>22</sup> The changeable suits of apparel, and the mantles, and the wimples, and the crisping pins,  
-> <sup>23</sup> The glasses, and the fine linen, and the hoods, and the veils.  
-> <sup>24</sup> And it shall come to pass, *that* instead of sweet smell there shall be stink; and instead of a girdle a rent; and instead of well set hair baldness; and instead of a stomacher a girding of sackcloth; *and* burning instead of beauty.  
-> <sup>25</sup> Thy men shall fall by the sword, and thy mighty in the war.  
-> <sup>26</sup> And her gates shall lament and mourn; and she *being* desolate shall sit upon the ground.  
+> **¹⁶** Moreover the LORD saith, Because the daughters of Zion are haughty, and walk with stretched forth necks and wanton eyes, walking and mincing *as* they go, and making a tinkling with their feet:  
+> **¹⁷** Therefore the Lord will smite with a scab the crown of the head of the daughters of Zion, and the LORD will discover their secret parts.  
+> **¹⁸** In that day the Lord will take away the bravery of *their* tinkling ornaments *about their feet,* and *their* cauls, and *their* round tires like the moon,  
+> **¹⁹** The chains, and the bracelets, and the mufflers,  
+> **²⁰** The bonnets, and the ornaments of the legs, and the headbands, and the tablets, and the earrings,  
+> **²¹** The rings, and nose jewels,  
+> **²²** The changeable suits of apparel, and the mantles, and the wimples, and the crisping pins,  
+> **²³** The glasses, and the fine linen, and the hoods, and the veils.  
+> **²⁴** And it shall come to pass, *that* instead of sweet smell there shall be stink; and instead of a girdle a rent; and instead of well set hair baldness; and instead of a stomacher a girding of sackcloth; *and* burning instead of beauty.  
+> **²⁵** Thy men shall fall by the sword, and thy mighty in the war.  
+> **²⁶** And her gates shall lament and mourn; and she *being* desolate shall sit upon the ground.  
 
 The prophet's business was to show all sorts of people what they had contributed to the national guilt and what share they must expect in the national judgments that were coming. Here he reproves and warns the daughters of Zion, tells the ladies of their faults; and Moses, in the law, having denounced God's wrath against *the tender and delicate woman* (the prophets being a comment upon the law, De 28:56), he here tells them how they shall smart by the calamities that are coming upon them. Observe,
 

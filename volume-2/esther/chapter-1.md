@@ -8,15 +8,15 @@ Several things in this chapter itself are very instructive and of great use; but
 
 ## The Feast of Ahasuerus. (b. c. 519.)
 
-> <sup>1</sup> Now it came to pass in the days of Ahasuerus, (this *is* Ahasuerus which reigned, from India even unto Ethiopia, *over* an hundred and seven and twenty provinces:)  
-> <sup>2</sup> *That* in those days, when the king Ahasuerus sat on the throne of his kingdom, which *was* in Shushan the palace,  
-> <sup>3</sup> In the third year of his reign, he made a feast unto all his princes and his servants; the power of Persia and Media, the nobles and princes of the provinces, *being* before him:  
-> <sup>4</sup> When he showed the riches of his glorious kingdom and the honour of his excellent majesty many days, *even* a hundred and fourscore days.  
-> <sup>5</sup> And when these days were expired, the king made a feast unto all the people that were present in Shushan the palace, both unto great and small, seven days, in the court of the garden of the king's palace;  
-> <sup>6</sup> *Where were* white, green, and blue, *hangings,* fastened with cords of fine linen and purple to silver rings and pillars of marble: the beds *were of* gold and silver, upon a pavement of red, and blue, and white, and black, marble.  
-> <sup>7</sup> And they gave *them* drink in vessels of gold, (the vessels being diverse one from another,) and royal wine in abundance, according to the state of the king.  
-> <sup>8</sup> And the drinking *was* according to the law; none did compel: for so the king had appointed to all the officers of his house, that they should do according to every man's pleasure.  
-> <sup>9</sup> Also Vashti the queen made a feast for the women *in* the royal house which *belonged* to king Ahasuerus.  
+> **¹** Now it came to pass in the days of Ahasuerus, (this *is* Ahasuerus which reigned, from India even unto Ethiopia, *over* an hundred and seven and twenty provinces:)  
+> **²** *That* in those days, when the king Ahasuerus sat on the throne of his kingdom, which *was* in Shushan the palace,  
+> **³** In the third year of his reign, he made a feast unto all his princes and his servants; the power of Persia and Media, the nobles and princes of the provinces, *being* before him:  
+> **⁴** When he showed the riches of his glorious kingdom and the honour of his excellent majesty many days, *even* a hundred and fourscore days.  
+> **⁵** And when these days were expired, the king made a feast unto all the people that were present in Shushan the palace, both unto great and small, seven days, in the court of the garden of the king's palace;  
+> **⁶** *Where were* white, green, and blue, *hangings,* fastened with cords of fine linen and purple to silver rings and pillars of marble: the beds *were of* gold and silver, upon a pavement of red, and blue, and white, and black, marble.  
+> **⁷** And they gave *them* drink in vessels of gold, (the vessels being diverse one from another,) and royal wine in abundance, according to the state of the king.  
+> **⁸** And the drinking *was* according to the law; none did compel: for so the king had appointed to all the officers of his house, that they should do according to every man's pleasure.  
+> **⁹** Also Vashti the queen made a feast for the women *in* the royal house which *belonged* to king Ahasuerus.  
 
 Which of the kings of Persia this Ahasuerus was the learned are not agreed. Mordecai is said to have been one of those that were *carried* captive from *Jerusalem* (Es 2:5,6), whence it should seem that this Ahasuerus was one of the first kings of that empire. Dr. Lightfoot thinks that he was that Artaxerxes who hindered the building of the temple, who is called also *Ahasuerus* (Ezr 4:6,7), after his great-grandfather of the Medes, Da 9:1. We have here an account,
 
@@ -28,19 +28,19 @@ III\. Of the good order which in some respects was kept there notwithstanding. W
 
 ## Vashti's Refusal to Appear; Vashti Divorced. (b. c. 519.)
 
-> <sup>10</sup> On the seventh day, when the heart of the king was merry with wine, he commanded Mehuman, Biztha, Harbona, Bigtha, and Abagtha, Zethar, and Carcas, the seven chamberlains that served in the presence of Ahasuerus the king,  
-> <sup>11</sup> To bring Vashti the queen before the king with the crown royal, to show the people and the princes her beauty: for she *was* fair to look on.  
-> <sup>12</sup> But the queen Vashti refused to come at the king's commandment by *his* chamberlains: therefore was the king very wroth, and his anger burned in him.  
-> <sup>13</sup> Then the king said to the wise men, which knew the times, (for so *was* the king's manner toward all that knew law and judgment:  
-> <sup>14</sup> And the next unto him *was* Carshena, Shethar, Admatha, Tarshish, Meres, Marsena, *and* Memucan, the seven princes of Persia and Media, which saw the king's face, *and* which sat the first in the kingdom;)  
-> <sup>15</sup> What shall we do unto the queen Vashti according to law, because she hath not performed the commandment of the king Ahasuerus by the chamberlains?  
-> <sup>16</sup> And Memucan answered before the king and the princes, Vashti the queen hath not done wrong to the king only, but also to all the princes, and to all the people that *are* in all the provinces of the king Ahasuerus.  
-> <sup>17</sup> For *this* deed of the queen shall come abroad unto all women, so that they shall despise their husbands in their eyes, when it shall be reported, The king Ahasuerus commanded Vashti the queen to be brought in before him, but she came not.  
-> <sup>18</sup> *Likewise* shall the ladies of Persia and Media say this day unto all the king's princes, which have heard of the deed of the queen. Thus *shall there arise* too much contempt and wrath.  
-> <sup>19</sup> If it please the king, let there go a royal commandment from him, and let it be written among the laws of the Persians and the Medes, that it be not altered, That Vashti come no more before king Ahasuerus; and let the king give her royal estate unto another that is better than she.  
-> <sup>20</sup> And when the king's decree which he shall make shall be published throughout all his empire, (for it is great,) all the wives shall give to their husbands honour, both to great and small.  
-> <sup>21</sup> And the saying pleased the king and the princes; and the king did according to the word of Memucan:  
-> <sup>22</sup> For he sent letters into all the king's provinces, into every province according to the writing thereof, and to every people after their language, that every man should bear rule in his own house, and that *it* should be published according to the language of every people.  
+> **¹⁰** On the seventh day, when the heart of the king was merry with wine, he commanded Mehuman, Biztha, Harbona, Bigtha, and Abagtha, Zethar, and Carcas, the seven chamberlains that served in the presence of Ahasuerus the king,  
+> **¹¹** To bring Vashti the queen before the king with the crown royal, to show the people and the princes her beauty: for she *was* fair to look on.  
+> **¹²** But the queen Vashti refused to come at the king's commandment by *his* chamberlains: therefore was the king very wroth, and his anger burned in him.  
+> **¹³** Then the king said to the wise men, which knew the times, (for so *was* the king's manner toward all that knew law and judgment:  
+> **¹⁴** And the next unto him *was* Carshena, Shethar, Admatha, Tarshish, Meres, Marsena, *and* Memucan, the seven princes of Persia and Media, which saw the king's face, *and* which sat the first in the kingdom;)  
+> **¹⁵** What shall we do unto the queen Vashti according to law, because she hath not performed the commandment of the king Ahasuerus by the chamberlains?  
+> **¹⁶** And Memucan answered before the king and the princes, Vashti the queen hath not done wrong to the king only, but also to all the princes, and to all the people that *are* in all the provinces of the king Ahasuerus.  
+> **¹⁷** For *this* deed of the queen shall come abroad unto all women, so that they shall despise their husbands in their eyes, when it shall be reported, The king Ahasuerus commanded Vashti the queen to be brought in before him, but she came not.  
+> **¹⁸** *Likewise* shall the ladies of Persia and Media say this day unto all the king's princes, which have heard of the deed of the queen. Thus *shall there arise* too much contempt and wrath.  
+> **¹⁹** If it please the king, let there go a royal commandment from him, and let it be written among the laws of the Persians and the Medes, that it be not altered, That Vashti come no more before king Ahasuerus; and let the king give her royal estate unto another that is better than she.  
+> **²⁰** And when the king's decree which he shall make shall be published throughout all his empire, (for it is great,) all the wives shall give to their husbands honour, both to great and small.  
+> **²¹** And the saying pleased the king and the princes; and the king did according to the word of Memucan:  
+> **²²** For he sent letters into all the king's provinces, into every province according to the writing thereof, and to every people after their language, that every man should bear rule in his own house, and that *it* should be published according to the language of every people.  
 
 We have here a damp to all the mirth of Ahasuerus's feast; it ended in heaviness, not as Job's children's feast by a wind from the wilderness, not as Belshazzar's by a hand-writing on the wall, but by his own folly. An unhappy falling out there was, at the end of the feast, between the king and queen, which broke off the feast abruptly, and sent the guests away silent and ashamed.
 

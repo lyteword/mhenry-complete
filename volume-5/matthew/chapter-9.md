@@ -8,14 +8,14 @@ We have in this chapter remarkable instances of the power and pity of the Lord J
 
 ## Christ Heals a Man Sick of the Palsy.
 
-> <sup>1</sup> And he entered into a ship, and passed over, and came into his own city.  
-> <sup>2</sup> And, behold, they brought to him a man sick of the palsy, lying on a bed: and Jesus seeing their faith said unto the sick of the palsy; Son, be of good cheer; thy sins be forgiven thee.  
-> <sup>3</sup> And, behold, certain of the scribes said within themselves, This *man* blasphemeth.  
-> <sup>4</sup> And Jesus knowing their thoughts said, Wherefore think ye evil in your hearts?  
-> <sup>5</sup> For whether is easier, to say, *Thy* sins be forgiven thee; or to say, Arise, and walk?  
-> <sup>6</sup> But that ye may know that the Son of man hath power on earth to forgive sins, (then saith he to the sick of the palsy,) Arise, take up thy bed, and go unto thine house.  
-> <sup>7</sup> And he arose, and departed to his house.  
-> <sup>8</sup> But when the multitudes saw *it,* they marvelled, and glorified God, which had given such power unto men.  
+> **¹** And he entered into a ship, and passed over, and came into his own city.  
+> **²** And, behold, they brought to him a man sick of the palsy, lying on a bed: and Jesus seeing their faith said unto the sick of the palsy; Son, be of good cheer; thy sins be forgiven thee.  
+> **³** And, behold, certain of the scribes said within themselves, This *man* blasphemeth.  
+> **⁴** And Jesus knowing their thoughts said, Wherefore think ye evil in your hearts?  
+> **⁵** For whether is easier, to say, *Thy* sins be forgiven thee; or to say, Arise, and walk?  
+> **⁶** But that ye may know that the Son of man hath power on earth to forgive sins, (then saith he to the sick of the palsy,) Arise, take up thy bed, and go unto thine house.  
+> **⁷** And he arose, and departed to his house.  
+> **⁸** But when the multitudes saw *it,* they marvelled, and glorified God, which had given such power unto men.  
 
 The first words of this chapter oblige us to look back to the close of that which precedes it, where we find the Gadarenes so resenting the loss of their swine, that they were disgusted with Christ's company, and besought him to *depart out of their coasts.* Now here it follows, *He entered into a ship, and passed over.* They bid him begone, and he took them at their word, and we never read that he came into their coasts again. Now here observe, 1. His justice—that he left them. Note, Christ will not tarry long where he is not welcome. In righteous judgment, he forsakes those places and persons that are weary of him, but abides with those that covet and court his stay. *If the unbeliever will depart* from Christ, *let him depart;* it is at his peril, 1Co 7:15. 2. His patience—that he did not leave some destroying judgment behind him, to punish them, as they deserved, for their contempt and contumacy. How easily, how justly, might he have sent them after their swine, who were already so much under the devil's power. The provocation, indeed, was very great: but he put it up, and passed it by; and, without any angry resentments or upbraidings, he *entered into a ship, and passed over.* This was the day of his patience; he came not to *destroy men's lives,* but to save them; not to kill, but to cure. Spiritual judgments agree more with the constitution of gospel times; yet some observe, that in those bloody wars which the Romans made upon the Jews, which began not many years after this, they first besieged the town of Gadara, where these Gadarenes dwelt. Note, Those that drive Christ from them, draw all miseries upon them. Woe unto us, if God depart from us.
 
@@ -45,11 +45,11 @@ VI\. The impression which this made upon the multitude (Mt 9:8); they *marvelled
 
 ## Matthew Called.
 
-> <sup>9</sup> And as Jesus passed forth from thence, he saw a man, named Matthew, sitting at the receipt of custom: and he saith unto him, Follow me. And he arose, and followed him.  
-> <sup>10</sup> And it came to pass, as Jesus sat at meat in the house, behold, many publicans and sinners came and sat down with him and his disciples.  
-> <sup>11</sup> And when the Pharisees saw *it,* they said unto his disciples, Why eateth your Master with publicans and sinners?  
-> <sup>12</sup> But when Jesus heard *that,* he said unto them, They that be whole need not a physician, but they that are sick.  
-> <sup>13</sup> But go ye and learn what *that* meaneth, I will have mercy, and not sacrifice: for I am not come to call the righteous, but sinners to repentance.  
+> **⁹** And as Jesus passed forth from thence, he saw a man, named Matthew, sitting at the receipt of custom: and he saith unto him, Follow me. And he arose, and followed him.  
+> **¹⁰** And it came to pass, as Jesus sat at meat in the house, behold, many publicans and sinners came and sat down with him and his disciples.  
+> **¹¹** And when the Pharisees saw *it,* they said unto his disciples, Why eateth your Master with publicans and sinners?  
+> **¹²** But when Jesus heard *that,* he said unto them, They that be whole need not a physician, but they that are sick.  
+> **¹³** But go ye and learn what *that* meaneth, I will have mercy, and not sacrifice: for I am not come to call the righteous, but sinners to repentance.  
 
 In these verses we have an account of the grace and favour of Christ to poor publicans, particularly to Matthew. What he did to the bodies of people was to make way for a kind design upon their souls. Now observe here,
 
@@ -79,10 +79,10 @@ IV\. The defence that Christ made for himself and his disciples, in justificatio
 
 ## Christ's Reply to the Disciples of John.
 
-> <sup>14</sup> Then came to him the disciples of John, saying, Why do we and the Pharisees fast oft, but thy disciples fast not?  
-> <sup>15</sup> And Jesus said unto them, Can the children of the bridechamber mourn, as long as the bridegroom is with them? but the days will come, when the bridegroom shall be taken from them, and then shall they fast.  
-> <sup>16</sup> No man putteth a piece of new cloth unto an old garment, for that which is put in to fill it up taketh from the garment, and the rent is made worse.  
-> <sup>17</sup> Neither do men put new wine into old bottles: else the bottles break, and the wine runneth out, and the bottles perish: but they put new wine into new bottles, and both are preserved.  
+> **¹⁴** Then came to him the disciples of John, saying, Why do we and the Pharisees fast oft, but thy disciples fast not?  
+> **¹⁵** And Jesus said unto them, Can the children of the bridechamber mourn, as long as the bridegroom is with them? but the days will come, when the bridegroom shall be taken from them, and then shall they fast.  
+> **¹⁶** No man putteth a piece of new cloth unto an old garment, for that which is put in to fill it up taketh from the garment, and the rent is made worse.  
+> **¹⁷** Neither do men put new wine into old bottles: else the bottles break, and the wine runneth out, and the bottles perish: but they put new wine into new bottles, and both are preserved.  
 
 The objections which were made against Christ and his disciples gave occasion to some of the most profitable of his discourses; thus are the interests of truth often served, even by the opposition it meets with from gainsayers, and thus the wisdom of Christ brings good out of evil. This is the third instance of it in this chapter; his discourse of his power to forgive sin, and his readiness to receive sinners, was occasioned by the cavils of the scribes and Pharisees; so here, from a reflection upon the conduct of his family, arose a discourse concerning his tenderness for it. Observe,
 
@@ -106,15 +106,15 @@ Now his argument is taken from the common usage of joy and rejoicing during the 
 
 ## The Ruler's Daughter Raised.
 
-> <sup>18</sup> While he spake these things unto them, behold, there came a certain ruler, and worshipped him, saying, My daughter is even now dead: but come and lay thy hand upon her, and she shall live.  
-> <sup>19</sup> And Jesus arose, and followed him, and *so did* his disciples.  
-> <sup>20</sup> And, behold, a woman, which was diseased with an issue of blood twelve years, came behind *him,* and touched the hem of his garment:  
-> <sup>21</sup> For she said within herself, If I may but touch his garment, I shall be whole.  
-> <sup>22</sup> But Jesus turned him about, and when he saw her, he said, Daughter, be of good comfort; thy faith hath made thee whole. And the woman was made whole from that hour.  
-> <sup>23</sup> And when Jesus came into the ruler's house, and saw the minstrels and the people making a noise,  
-> <sup>24</sup> He said unto them, Give place: for the maid is not dead, but sleepeth. And they laughed him to scorn.  
-> <sup>25</sup> But when the people were put forth, he went in, and took her by the hand, and the maid arose.  
-> <sup>26</sup> And the fame hereof went abroad into all that land.  
+> **¹⁸** While he spake these things unto them, behold, there came a certain ruler, and worshipped him, saying, My daughter is even now dead: but come and lay thy hand upon her, and she shall live.  
+> **¹⁹** And Jesus arose, and followed him, and *so did* his disciples.  
+> **²⁰** And, behold, a woman, which was diseased with an issue of blood twelve years, came behind *him,* and touched the hem of his garment:  
+> **²¹** For she said within herself, If I may but touch his garment, I shall be whole.  
+> **²²** But Jesus turned him about, and when he saw her, he said, Daughter, be of good comfort; thy faith hath made thee whole. And the woman was made whole from that hour.  
+> **²³** And when Jesus came into the ruler's house, and saw the minstrels and the people making a noise,  
+> **²⁴** He said unto them, Give place: for the maid is not dead, but sleepeth. And they laughed him to scorn.  
+> **²⁵** But when the people were put forth, he went in, and took her by the hand, and the maid arose.  
+> **²⁶** And the fame hereof went abroad into all that land.  
 
 We have here two passages of history put together; that of the raising of Jairus's daughter to life, and that of the curing of the woman that had *the bloody issue,* as he was going to Jairus's house, which is introduced in a parenthesis, in the midst of the other; for Christ's miracles were thick sown, and interwoven; *the work of him that sent* him was his daily work. He was called to do these good works from speaking the things foregoing, in answer to the cavils of the Pharisees, Mt 9:18: *While he spake these things;* and we may suppose it is a pleasing interruption given to that unpleasant work of disputation, which, though sometimes needful, a good man will gladly leave, to go about a work of devotion or charity. Here is,
 
@@ -150,14 +150,14 @@ VII\. The general notice that was taken of this miracle, though it was wrought p
 
 ## Two Blind and a Dumb Man Healed.
 
-> <sup>27</sup> And when Jesus departed thence, two blind men followed him, crying, and saying, *Thou* Son of David, have mercy on us.  
-> <sup>28</sup> And when he was come into the house, the blind men came to him: and Jesus saith unto them, Believe ye that I am able to do this? They said unto him, Yea, Lord.  
-> <sup>29</sup> Then touched he their eyes, saying, According to your faith be it unto you.  
-> <sup>30</sup> And their eyes were opened; and Jesus straitly charged them, saying, See *that* no man know *it.*  
-> <sup>31</sup> But they, when they were departed, spread abroad his fame in all that country.  
-> <sup>32</sup> As they went out, behold, they brought to him a dumb man possessed with a devil.  
-> <sup>33</sup> And when the devil was cast out, the dumb spake: and the multitudes marvelled, saying, It was never so seen in Israel.  
-> <sup>34</sup> But the Pharisees said, He casteth out devils through the prince of the devils.  
+> **²⁷** And when Jesus departed thence, two blind men followed him, crying, and saying, *Thou* Son of David, have mercy on us.  
+> **²⁸** And when he was come into the house, the blind men came to him: and Jesus saith unto them, Believe ye that I am able to do this? They said unto him, Yea, Lord.  
+> **²⁹** Then touched he their eyes, saying, According to your faith be it unto you.  
+> **³⁰** And their eyes were opened; and Jesus straitly charged them, saying, See *that* no man know *it.*  
+> **³¹** But they, when they were departed, spread abroad his fame in all that country.  
+> **³²** As they went out, behold, they brought to him a dumb man possessed with a devil.  
+> **³³** And when the devil was cast out, the dumb spake: and the multitudes marvelled, saying, It was never so seen in Israel.  
+> **³⁴** But the Pharisees said, He casteth out devils through the prince of the devils.  
 
 In these verses we have an account of two more miracles wrought together by our Saviour.
 
@@ -195,10 +195,10 @@ II\. The healing of a *dumb man,* that was *possessed with a devil.* And here ob
 
 ## Jesus Preaching throughout the Country.
 
-> <sup>35</sup> And Jesus went about all the cities and villages, teaching in their synagogues, and preaching the gospel of the kingdom, and healing every sickness and every disease among the people.  
-> <sup>36</sup> But when he saw the multitudes, he was moved with compassion on them, because they fainted, and were scattered abroad, as sheep having no shepherd.  
-> <sup>37</sup> Then saith he unto his disciples, The harvest truly *is* plenteous, but the labourers *are* few;  
-> <sup>38</sup> Pray ye therefore the Lord of the harvest, that he will send forth labourers into his harvest.  
+> **³⁵** And Jesus went about all the cities and villages, teaching in their synagogues, and preaching the gospel of the kingdom, and healing every sickness and every disease among the people.  
+> **³⁶** But when he saw the multitudes, he was moved with compassion on them, because they fainted, and were scattered abroad, as sheep having no shepherd.  
+> **³⁷** Then saith he unto his disciples, The harvest truly *is* plenteous, but the labourers *are* few;  
+> **³⁸** Pray ye therefore the Lord of the harvest, that he will send forth labourers into his harvest.  
 
 Here is, I. A conclusion of the foregoing account of Christ's preaching and miracles (Mt 9:35); *He went about all the cities teaching and healing.* This is the same we had before, Mt 4:23. There it ushers in the more particular record of Christ's preaching (Mt 5:1-7:29) and of his cures (Mt 8:1-9:38), and here it is elegantly repeated in the close of these instances, as the *quod erat demonstrandum—the point to be proved;* as if the evangelist should say, "Now I hope I have made it out, by an induction of particulars, that Christ preached and healed; for you have had the heads of his sermons, and some few instances of his cures, which were wrought to confirm his doctrine: and *these were written that you might believe.*" Some think that this was a second perambulation in Galilee, like the former; he visited again those whom he had before preached to. Though the Pharisees cavilled at him and opposed him, he went on with his work; he *preached the gospel of the kingdom.* He told them of a kingdom of grace and glory, now to be set up under the government of a Mediator: this was gospel indeed, *good news, glad tidings of great joy.*
 

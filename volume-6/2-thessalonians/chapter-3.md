@@ -8,11 +8,11 @@ In the close of the foregoing chapter, the apostle had prayed earnestly for the 
 
 ## The Apostle's Pious Request. (a. d. 52.)
 
-> <sup>1</sup> Finally, brethren, pray for us, that the word of the Lord may have *free* course, and be glorified, even as *it is* with you:  
-> <sup>2</sup> And that we may be delivered from unreasonable and wicked men: for all *men* have not faith.  
-> <sup>3</sup> But the Lord is faithful, who shall stablish you, and keep *you* from evil.  
-> <sup>4</sup> And we have confidence in the Lord touching you, that ye both do and will do the things which we command you.  
-> <sup>5</sup> And the Lord direct your hearts into the love of God, and into the patient waiting for Christ.  
+> **¹** Finally, brethren, pray for us, that the word of the Lord may have *free* course, and be glorified, even as *it is* with you:  
+> **²** And that we may be delivered from unreasonable and wicked men: for all *men* have not faith.  
+> **³** But the Lord is faithful, who shall stablish you, and keep *you* from evil.  
+> **⁴** And we have confidence in the Lord touching you, that ye both do and will do the things which we command you.  
+> **⁵** And the Lord direct your hearts into the love of God, and into the patient waiting for Christ.  
 
 In these words observe,
 
@@ -30,16 +30,16 @@ III\. He makes a short prayer for them, 2Th 3:5. It is a prayer for spiritual bl
 
 ## Cautions to the Disorderly. (a. d. 52.)
 
-> <sup>6</sup> Now we command you, brethren, in the name of our Lord Jesus Christ, that ye withdraw yourselves from every brother that walketh disorderly, and not after the tradition which he received of us.  
-> <sup>7</sup> For yourselves know how ye ought to follow us: for we behaved not ourselves disorderly among you;  
-> <sup>8</sup> Neither did we eat any man's bread for nought; but wrought with labour and travail night and day, that we might not be chargeable to any of you:  
-> <sup>9</sup> Not because we have not power, but to make ourselves an ensample unto you to follow us.  
-> <sup>10</sup> For even when we were with you, this we commanded you, that if any would not work, neither should he eat.  
-> <sup>11</sup> For we hear that there are some which walk among you disorderly, working not at all, but are busybodies.  
-> <sup>12</sup> Now them that are such we command and exhort by our Lord Jesus Christ, that with quietness they work, and eat their own bread.  
-> <sup>13</sup> But ye, brethren, be not weary in well doing.  
-> <sup>14</sup> And if any man obey not our word by this epistle, note that man, and have no company with him, that he may be ashamed.  
-> <sup>15</sup> Yet count *him* not as an enemy, but admonish *him* as a brother.  
+> **⁶** Now we command you, brethren, in the name of our Lord Jesus Christ, that ye withdraw yourselves from every brother that walketh disorderly, and not after the tradition which he received of us.  
+> **⁷** For yourselves know how ye ought to follow us: for we behaved not ourselves disorderly among you;  
+> **⁸** Neither did we eat any man's bread for nought; but wrought with labour and travail night and day, that we might not be chargeable to any of you:  
+> **⁹** Not because we have not power, but to make ourselves an ensample unto you to follow us.  
+> **¹⁰** For even when we were with you, this we commanded you, that if any would not work, neither should he eat.  
+> **¹¹** For we hear that there are some which walk among you disorderly, working not at all, but are busybodies.  
+> **¹²** Now them that are such we command and exhort by our Lord Jesus Christ, that with quietness they work, and eat their own bread.  
+> **¹³** But ye, brethren, be not weary in well doing.  
+> **¹⁴** And if any man obey not our word by this epistle, note that man, and have no company with him, that he may be ashamed.  
+> **¹⁵** Yet count *him* not as an enemy, but admonish *him* as a brother.  
 
 The apostle having commended their obedience for the time past, and mentioned his confidence in their obedience for the time to come, proceeds to give them commands and directions to some who were faulty, correcting some things that were amiss among them. Observe, The best society of Christians may have some faulty persons among them, and some things that ought to be reformed. Perfection is not to be found on this side heaven: but evil manners beget good laws; the disorders that Paul heard of as existing among the Thessalonians occasioned the good laws we find in these verses, which are of constant use to us, and all others whom they may concern. Observe,
 
@@ -63,9 +63,9 @@ II\. The good laws which were occasioned by these evil manners, concerning which
 
 ## Apostolic Benediction. (a. d. 52.)
 
-> <sup>16</sup> Now the Lord of peace himself give you peace always by all means. The Lord *be* with you all.  
-> <sup>17</sup> The salutation of Paul with mine own hand, which is the token in every epistle: so I write.  
-> <sup>18</sup> The grace of our Lord Jesus Christ *be* with you all. Amen.  
+> **¹⁶** Now the Lord of peace himself give you peace always by all means. The Lord *be* with you all.  
+> **¹⁷** The salutation of Paul with mine own hand, which is the token in every epistle: so I write.  
+> **¹⁸** The grace of our Lord Jesus Christ *be* with you all. Amen.  
 
 In this conclusion of the epistle we have the apostle's benediction and prayers for these Thessalonians. Let us desire them for ourselves and our friend. There are three blessings pronounced upon them, or desired for them:—
 

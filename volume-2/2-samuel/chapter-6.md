@@ -8,11 +8,11 @@ The obscurity of the ark, during the reign of Saul, had been as great a grievanc
 
 ## The Removal of the Ark. (b. c. 1045.)
 
-> <sup>1</sup> Again, David gathered together all *the* chosen *men* of Israel, thirty thousand.  
-> <sup>2</sup> And David arose, and went with all the people that *were* with him from Baale of Judah, to bring up from thence the ark of God, whose name is called by the name of the LORD of hosts that dwelleth *between* the cherubims.  
-> <sup>3</sup> And they set the ark of God upon a new cart, and brought it out of the house of Abinadab that *was* in Gibeah: and Uzzah and Ahio, the sons of Abinadab, drave the new cart.  
-> <sup>4</sup> And they brought it out of the house of Abinadab which *was* at Gibeah, accompanying the ark of God: and Ahio went before the ark.  
-> <sup>5</sup> And David and all the house of Israel played before the LORD on all manner of *instruments made of* fir wood, even on harps, and on psalteries, and on timbrels, and on cornets, and on cymbals.  
+> **¹** Again, David gathered together all *the* chosen *men* of Israel, thirty thousand.  
+> **²** And David arose, and went with all the people that *were* with him from Baale of Judah, to bring up from thence the ark of God, whose name is called by the name of the LORD of hosts that dwelleth *between* the cherubims.  
+> **³** And they set the ark of God upon a new cart, and brought it out of the house of Abinadab that *was* in Gibeah: and Uzzah and Ahio, the sons of Abinadab, drave the new cart.  
+> **⁴** And they brought it out of the house of Abinadab which *was* at Gibeah, accompanying the ark of God: and Ahio went before the ark.  
+> **⁵** And David and all the house of Israel played before the LORD on all manner of *instruments made of* fir wood, even on harps, and on psalteries, and on timbrels, and on cornets, and on cymbals.  
 
 We have not heard a word of the ark since it was lodged in Kirjath-jearim, immediately after its return out of its captivity among the Philistines (1Sa 7:1,2), except that, once, Saul called for it, 1Sa 14:18. That which in former days had made so great a figure is now thrown aside, as a neglected thing, for many years. And, if now the ark was for so many years in a house, let it not seem strange that we find the church so long in the wilderness, Re 12:14. Perpetual visibility is no mark of the true church. God is graciously present with the souls of his people even when they want the external tokens of his presence. But now that David is settled in the throne the honour of the ark begins to revive, and *Israel's care of it to flourish again, wherein also,* no doubt, the good people among them *had been careful, but they lacked opportunity.* See Php 4:10.
 
@@ -26,12 +26,12 @@ IV\. Here is an error that they were guilty of in this matter, that they carried
 
 ## Uzzah Slain for Touching the Ark; The Ark in the House of Obed-edom. (b. c. 1045.)
 
-> <sup>6</sup> And when they came to Nachon's threshingfloor, Uzzah put forth *his hand* to the ark of God, and took hold of it; for the oxen shook *it.*  
-> <sup>7</sup> And the anger of the LORD was kindled against Uzzah; and God smote him there for *his* error; and there he died by the ark of God.  
-> <sup>8</sup> And David was displeased, because the LORD had made a breach upon Uzzah: and he called the name of the place Perez-uzzah to this day.  
-> <sup>9</sup> And David was afraid of the LORD that day, and said, How shall the ark of the LORD come to me?  
-> <sup>10</sup> So David would not remove the ark of the LORD unto him into the city of David: but David carried it aside into the house of Obed-edom the Gittite.  
-> <sup>11</sup> And the ark of the LORD continued in the house of Obed-edom the Gittite three months: and the LORD blessed Obed-edom, and all his household.  
+> **⁶** And when they came to Nachon's threshingfloor, Uzzah put forth *his hand* to the ark of God, and took hold of it; for the oxen shook *it.*  
+> **⁷** And the anger of the LORD was kindled against Uzzah; and God smote him there for *his* error; and there he died by the ark of God.  
+> **⁸** And David was displeased, because the LORD had made a breach upon Uzzah: and he called the name of the place Perez-uzzah to this day.  
+> **⁹** And David was afraid of the LORD that day, and said, How shall the ark of the LORD come to me?  
+> **¹⁰** So David would not remove the ark of the LORD unto him into the city of David: but David carried it aside into the house of Obed-edom the Gittite.  
+> **¹¹** And the ark of the LORD continued in the house of Obed-edom the Gittite three months: and the LORD blessed Obed-edom, and all his household.  
 
 We have here Uzzah struck dead for touching the ark, when it was upon its journey towards the city of David, a sad providence, which damped their mirth, stopped the progress of the ark, and for the present, dispersed this great assembly, which had come together to attend it, and sent them home in a fright.
 
@@ -43,14 +43,14 @@ III\. David's feelings on the infliction of this stroke were keen, and perhaps n
 
 ## Michal Despises David. (b. c. 1045.)
 
-> <sup>12</sup> And it was told king David, saying, The LORD hath blessed the house of Obed-edom, and all that *pertaineth* unto him, because of the ark of God. So David went and brought up the ark of God from the house of Obed-edom into the city of David with gladness.  
-> <sup>13</sup> And it was *so,* that when they that bare the ark of the LORD had gone six paces, he sacrificed oxen and fatlings.  
-> <sup>14</sup> And David danced before the LORD with all *his* might; and David *was* girded with a linen ephod.  
-> <sup>15</sup> So David and all the house of Israel brought up the ark of the LORD with shouting, and with the sound of the trumpet.  
-> <sup>16</sup> And as the ark of the LORD came into the city of David, Michal Saul's daughter looked through a window, and saw king David leaping and dancing before the LORD; and she despised him in her heart.  
-> <sup>17</sup> And they brought in the ark of the LORD, and set it in his place, in the midst of the tabernacle that David had pitched for it: and David offered burnt offerings and peace offerings before the LORD.  
-> <sup>18</sup> And as soon as David had made an end of offering burnt offerings and peace offerings, he blessed the people in the name of the LORD of hosts.  
-> <sup>19</sup> And he dealt among all the people, *even* among the whole multitude of Israel, as well to the women as men, to every one a cake of bread, and a good piece *of flesh,* and a flagon *of wine.* So all the people departed every one to his house.  
+> **¹²** And it was told king David, saying, The LORD hath blessed the house of Obed-edom, and all that *pertaineth* unto him, because of the ark of God. So David went and brought up the ark of God from the house of Obed-edom into the city of David with gladness.  
+> **¹³** And it was *so,* that when they that bare the ark of the LORD had gone six paces, he sacrificed oxen and fatlings.  
+> **¹⁴** And David danced before the LORD with all *his* might; and David *was* girded with a linen ephod.  
+> **¹⁵** So David and all the house of Israel brought up the ark of the LORD with shouting, and with the sound of the trumpet.  
+> **¹⁶** And as the ark of the LORD came into the city of David, Michal Saul's daughter looked through a window, and saw king David leaping and dancing before the LORD; and she despised him in her heart.  
+> **¹⁷** And they brought in the ark of the LORD, and set it in his place, in the midst of the tabernacle that David had pitched for it: and David offered burnt offerings and peace offerings before the LORD.  
+> **¹⁸** And as soon as David had made an end of offering burnt offerings and peace offerings, he blessed the people in the name of the LORD of hosts.  
+> **¹⁹** And he dealt among all the people, *even* among the whole multitude of Israel, as well to the women as men, to every one a cake of bread, and a good piece *of flesh,* and a flagon *of wine.* So all the people departed every one to his house.  
 
 We have here the second attempt to bring the ark home to the city of David; and this succeeded, though the former miscarried.
 
@@ -60,10 +60,10 @@ II\. Let us see how David managed the matter now. 1. He rectified the former err
 
 ## David Expostulates with Michal. (b. c. 1045.)
 
-> <sup>20</sup> Then David returned to bless his household. And Michal the daughter of Saul came out to meet David, and said, How glorious was the king of Israel to day, who uncovered himself to day in the eyes of the handmaids of his servants, as one of the vain fellows shamelessly uncovereth himself!  
-> <sup>21</sup> And David said unto Michal, *It was* before the LORD, which chose me before thy father, and before all his house, to appoint me ruler over the people of the LORD, over Israel: therefore will I play before the LORD.  
-> <sup>22</sup> And I will yet be more vile than thus, and will be base in mine own sight: and of the maidservants which thou hast spoken of, of them shall I be had in honour.  
-> <sup>23</sup> Therefore Michal the daughter of Saul had no child unto the day of her death.  
+> **²⁰** Then David returned to bless his household. And Michal the daughter of Saul came out to meet David, and said, How glorious was the king of Israel to day, who uncovered himself to day in the eyes of the handmaids of his servants, as one of the vain fellows shamelessly uncovereth himself!  
+> **²¹** And David said unto Michal, *It was* before the LORD, which chose me before thy father, and before all his house, to appoint me ruler over the people of the LORD, over Israel: therefore will I play before the LORD.  
+> **²²** And I will yet be more vile than thus, and will be base in mine own sight: and of the maidservants which thou hast spoken of, of them shall I be had in honour.  
+> **²³** Therefore Michal the daughter of Saul had no child unto the day of her death.  
 
 David, having dismissed the congregation with a blessing, *returned to bless his household* (2Sa 6:20), that is, to pray with them and for them, and to offer up his family thanksgiving for this national mercy. Ministers must not think that their public performances will excuse them from their family-worship; but when they have, with their instructions and prayers, blessed the solemn assemblies, they must return in the same manner to bless their households, for with them they are in a particular manner charged. David, though he had prophets, and priests, and Levites, about him, to be his chaplains, yet did not devolve the work upon them, but himself *blessed his household.* It is angels' work to worship God, and therefore surely that can be no disparagement to the greatest of men.
 

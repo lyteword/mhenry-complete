@@ -8,42 +8,42 @@ In this chapter, I. Orders are given for the setting up of the tabernacle and th
 
 ## The Rearing of the Tabernacle. (b. c. 1491.)
 
-> <sup>1</sup> And the LORD spake unto Moses, saying,  
-> <sup>2</sup> On the first day of the first month shalt thou set up the tabernacle of the tent of the congregation.  
-> <sup>3</sup> And thou shalt put therein the ark of the testimony, and cover the ark with the vail.  
-> <sup>4</sup> And thou shalt bring in the table, and set in order the things that are to be set in order upon it; and thou shalt bring in the candlestick, and light the lamps thereof.  
-> <sup>5</sup> And thou shalt set the altar of gold for the incense before the ark of the testimony, and put the hanging of the door to the tabernacle.  
-> <sup>6</sup> And thou shalt set the altar of the burnt offering before the door of the tabernacle of the tent of the congregation.  
-> <sup>7</sup> And thou shalt set the laver between the tent of the congregation and the altar, and shalt put water therein.  
-> <sup>8</sup> And thou shalt set up the court round about, and hang up the hanging at the court gate.  
-> <sup>9</sup> And thou shalt take the anointing oil, and anoint the tabernacle, and all that *is* therein, and shalt hallow it, and all the vessels thereof: and it shall be holy.  
-> <sup>10</sup> And thou shalt anoint the altar of the burnt offering, and all his vessels, and sanctify the altar: and it shall be an altar most holy.  
-> <sup>11</sup> And thou shalt anoint the laver and his foot, and sanctify it.  
-> <sup>12</sup> And thou shalt bring Aaron and his sons unto the door of the tabernacle of the congregation, and wash them with water.  
-> <sup>13</sup> And thou shalt put upon Aaron the holy garments, and anoint him, and sanctify him; that he may minister unto me in the priest's office.  
-> <sup>14</sup> And thou shalt bring his sons, and clothe them with coats:  
-> <sup>15</sup> And thou shalt anoint them, as thou didst anoint their father, that they may minister unto me in the priest's office: for their anointing shall surely be an everlasting priesthood throughout their generations.  
+> **¹** And the LORD spake unto Moses, saying,  
+> **²** On the first day of the first month shalt thou set up the tabernacle of the tent of the congregation.  
+> **³** And thou shalt put therein the ark of the testimony, and cover the ark with the vail.  
+> **⁴** And thou shalt bring in the table, and set in order the things that are to be set in order upon it; and thou shalt bring in the candlestick, and light the lamps thereof.  
+> **⁵** And thou shalt set the altar of gold for the incense before the ark of the testimony, and put the hanging of the door to the tabernacle.  
+> **⁶** And thou shalt set the altar of the burnt offering before the door of the tabernacle of the tent of the congregation.  
+> **⁷** And thou shalt set the laver between the tent of the congregation and the altar, and shalt put water therein.  
+> **⁸** And thou shalt set up the court round about, and hang up the hanging at the court gate.  
+> **⁹** And thou shalt take the anointing oil, and anoint the tabernacle, and all that *is* therein, and shalt hallow it, and all the vessels thereof: and it shall be holy.  
+> **¹⁰** And thou shalt anoint the altar of the burnt offering, and all his vessels, and sanctify the altar: and it shall be an altar most holy.  
+> **¹¹** And thou shalt anoint the laver and his foot, and sanctify it.  
+> **¹²** And thou shalt bring Aaron and his sons unto the door of the tabernacle of the congregation, and wash them with water.  
+> **¹³** And thou shalt put upon Aaron the holy garments, and anoint him, and sanctify him; that he may minister unto me in the priest's office.  
+> **¹⁴** And thou shalt bring his sons, and clothe them with coats:  
+> **¹⁵** And thou shalt anoint them, as thou didst anoint their father, that they may minister unto me in the priest's office: for their anointing shall surely be an everlasting priesthood throughout their generations.  
 
 The materials and furniture of the tabernacle had been viewed severally and approved, and now they must be put together. 1. God here directs Moses to set up the tabernacle and the utensils of it in their places. Though the work of the tabernacle was finished, and every thing ready for rearing, and the people, no doubt, were very desirous to see it up, yet Moses will not erect it till he has express orders for doing so. It is good to see God going before us in every step, Ps 37:23. The time for doing this is fixed to *the first day of the first month* (Ex 40:2), which wanted but fourteen days of a year since they came out of Egypt; and a good year's work there was done in it. Probably the work was made ready but just at the end of the year, so that the appointing of this day gave no delay, or next to none, to this good work. We must not put off any necessary duty under pretence of waiting for some remarkable day; the present season is the most convenient. But the tabernacle happening to be set up *on the first day of the first month* intimates that it is good to begin the year with some good work. Let him that is the first have the first; and let the things of his kingdom be first sought. In Hezekiah's time we find they began to sanctify the temple *on the first day of the first month,* 2Ch 29:17. The new moon (which by their computation was the first day of every month) was observed by them with some solemnity; and therefore this first new moon of the year was thus made remarkable. Note, When a new year begins, we should think of serving God more and better than we did the year before. Moses is particularly ordered to set up the tabernacle itself first, in which God would dwell and would be served (Ex 40:2), then to put the ark in its place, and draw the veil before it (Ex 40:3), then to fix the table, and the candlestick, and the altar of incense, without the veil (Ex 40:4,5), and to fix the hanging of the door before the door. Then in the court he must place the altar of burnt offering, and the laver (Ex 40:6,7); and, lastly, he must set up the curtains of the court, and a hanging for a court-gate. And all this would be easily done in one day, many hands no doubt being employed in it under the direction of Moses. 2. He directs Moses, when he had set up the tabernacle and all the furniture of it, to consecrate it and them, by anointing them with the oil which was prepared for the purpose, Ex 30:25-29, etc. It was there ordered that this should be done; here it was ordered that it should be done now, Ex 40:9-11. Observe, Every thing was sanctified when it was put in its proper place, and not till then, for till then it was not fit for the use to which it was to be sanctified. As every thing is beautiful in its season, so is every thing in its place. 3. He directs him to consecrate Aaron and his sons. When the goods were brought into God's house, they were marked first, and then servants were hired to bear the vessels of the Lord; and those must be clean who were put into that office, Ex 40:12-15. The law which was now ordered to be put in execution we had before, Ex 29:1-46 Thus in the visible church, which is God's tabernacle among men, it is requisite that there be ministers to keep the charge of the sanctuary, and that they receive the anointing.
 
-> <sup>16</sup> Thus did Moses: according to all that the LORD commanded him, so did he.  
-> <sup>17</sup> And it came to pass in the first month in the second year, on the first *day* of the month, *that* the tabernacle was reared up.  
-> <sup>18</sup> And Moses reared up the tabernacle, and fastened his sockets, and set up the boards thereof, and put in the bars thereof, and reared up his pillars.  
-> <sup>19</sup> And he spread abroad the tent over the tabernacle, and put the covering of the tent above upon it; as the LORD commanded Moses.  
-> <sup>20</sup> And he took and put the testimony into the ark, and set the staves on the ark, and put the mercy seat above upon the ark:  
-> <sup>21</sup> And he brought the ark into the tabernacle, and set up the vail of the covering, and covered the ark of the testimony; as the LORD commanded Moses.  
-> <sup>22</sup> And he put the table in the tent of the congregation, upon the side of the tabernacle northward, without the vail.  
-> <sup>23</sup> And he set the bread in order upon it before the LORD; as the LORD had commanded Moses.  
-> <sup>24</sup> And he put the candlestick in the tent of the congregation, over against the table, on the side of the tabernacle southward.  
-> <sup>25</sup> And he lighted the lamps before the LORD; as the LORD commanded Moses.  
-> <sup>26</sup> And he put the golden altar in the tent of the congregation before the vail:  
-> <sup>27</sup> And he burnt sweet incense thereon; as the LORD commanded Moses.  
-> <sup>28</sup> And he set up the hanging *at* the door of the tabernacle.  
-> <sup>29</sup> And he put the altar of burnt offering *by* the door of the tabernacle of the tent of the congregation, and offered upon it the burnt offering and the meat offering; as the LORD commanded Moses.  
-> <sup>30</sup> And he set the laver between the tent of the congregation and the altar, and put water there, to wash *withal.*  
-> <sup>31</sup> And Moses and Aaron and his sons washed their hands and their feet thereat:  
-> <sup>32</sup> When they went into the tent of the congregation, and when they came near unto the altar, they washed; as the LORD commanded Moses.  
-> <sup>33</sup> And he reared up the court round about the tabernacle and the altar, and set up the hanging of the court gate. So Moses finished the work.  
+> **¹⁶** Thus did Moses: according to all that the LORD commanded him, so did he.  
+> **¹⁷** And it came to pass in the first month in the second year, on the first *day* of the month, *that* the tabernacle was reared up.  
+> **¹⁸** And Moses reared up the tabernacle, and fastened his sockets, and set up the boards thereof, and put in the bars thereof, and reared up his pillars.  
+> **¹⁹** And he spread abroad the tent over the tabernacle, and put the covering of the tent above upon it; as the LORD commanded Moses.  
+> **²⁰** And he took and put the testimony into the ark, and set the staves on the ark, and put the mercy seat above upon the ark:  
+> **²¹** And he brought the ark into the tabernacle, and set up the vail of the covering, and covered the ark of the testimony; as the LORD commanded Moses.  
+> **²²** And he put the table in the tent of the congregation, upon the side of the tabernacle northward, without the vail.  
+> **²³** And he set the bread in order upon it before the LORD; as the LORD had commanded Moses.  
+> **²⁴** And he put the candlestick in the tent of the congregation, over against the table, on the side of the tabernacle southward.  
+> **²⁵** And he lighted the lamps before the LORD; as the LORD commanded Moses.  
+> **²⁶** And he put the golden altar in the tent of the congregation before the vail:  
+> **²⁷** And he burnt sweet incense thereon; as the LORD commanded Moses.  
+> **²⁸** And he set up the hanging *at* the door of the tabernacle.  
+> **²⁹** And he put the altar of burnt offering *by* the door of the tabernacle of the tent of the congregation, and offered upon it the burnt offering and the meat offering; as the LORD commanded Moses.  
+> **³⁰** And he set the laver between the tent of the congregation and the altar, and put water there, to wash *withal.*  
+> **³¹** And Moses and Aaron and his sons washed their hands and their feet thereat:  
+> **³²** When they went into the tent of the congregation, and when they came near unto the altar, they washed; as the LORD commanded Moses.  
+> **³³** And he reared up the court round about the tabernacle and the altar, and set up the hanging of the court gate. So Moses finished the work.  
 
 When the tabernacle and the furniture of it were prepared, they did not put off the rearing of it till they came to Canaan, though they now hoped to be there very shortly; but, in obedience to the will of God, they set it up in the midst of their camp, while they were in the wilderness. Those that are unsettled in the world must not think that this will excuse them in their continued irreligion; as if it were enough to begin to serve God when they begin to be settled in the world. No; a tabernacle for God is a very needful and profitable companion even in a wilderness, especially considering that our carcases may fall in that wilderness, and we may be fixed in another world before we come to fix in this.
 
@@ -51,11 +51,11 @@ The rearing of the tabernacle was a good day's work; the consecrating of it, and
 
 ## The Tabernacle Filled with Glory. (b. c. 1491.)
 
-> <sup>34</sup> Then a cloud covered the tent of the congregation, and the glory of the LORD filled the tabernacle.  
-> <sup>35</sup> And Moses was not able to enter into the tent of the congregation, because the cloud abode thereon, and the glory of the LORD filled the tabernacle.  
-> <sup>36</sup> And when the cloud was taken up from over the tabernacle, the children of Israel went onward in all their journeys:  
-> <sup>37</sup> But if the cloud were not taken up, then they journeyed not till the day that it was taken up.  
-> <sup>38</sup> For the cloud of the LORD *was* upon the tabernacle by day, and fire was on it by night, in the sight of all the house of Israel, throughout all their journeys.  
+> **³⁴** Then a cloud covered the tent of the congregation, and the glory of the LORD filled the tabernacle.  
+> **³⁵** And Moses was not able to enter into the tent of the congregation, because the cloud abode thereon, and the glory of the LORD filled the tabernacle.  
+> **³⁶** And when the cloud was taken up from over the tabernacle, the children of Israel went onward in all their journeys:  
+> **³⁷** But if the cloud were not taken up, then they journeyed not till the day that it was taken up.  
+> **³⁸** For the cloud of the LORD *was* upon the tabernacle by day, and fire was on it by night, in the sight of all the house of Israel, throughout all their journeys.  
 
 As when, in the creation, God had finished this earth, which he designed for man's habitation, he made man, and put him in possession of it, so when Moses had finished the tabernacle, which was designed for God's dwelling-place among men, God came and took possession of it. The *shechinah,* the divine eternal Word, though not yet made flesh, yet, as a prelude to that event, came and dwelt among them, Joh 1:14. This was henceforward the *place of his throne,* and *the place of the soles of his feet* (Eze 43:7); here he resided, here he ruled. By the visible tokens of God's coming among them to take possession of the tabernacle he testified both the return of his favour to them, which they had forfeited by the golden calf (Ex 33:7), and his gracious acceptance of all the expense they had been at, and all the care and pains they had taken about the tabernacle. Thus God owned them, showed himself well pleased with what they had done, and abundantly rewarded them. Note, God will dwell with those that prepare him a habitation. The broken and contrite heart, the clean and holy heart, that is furnished for his service, and devoted to his honour, shall be his *rest for ever;* here will Christ dwell by faith, Eph 3:17. Where God has a throne and an altar in the soul, there is a living temple. And God will be sure to own and crown the operations of his own grace and the observance of his own appointments.
 

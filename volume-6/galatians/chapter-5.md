@@ -8,18 +8,18 @@ In this chapter the apostle comes to make application of his foregoing discourse
 
 ## Exhortation to Stedfastness; Persuasives to Stedfastness. (a. d. 56.)
 
-> <sup>1</sup> Stand fast therefore in the liberty wherewith Christ hath made us free, and be not entangled again with the yoke of bondage.  
-> <sup>2</sup> Behold, I Paul say unto you, that if ye be circumcised, Christ shall profit you nothing.  
-> <sup>3</sup> For I testify again to every man that is circumcised, that he is a debtor to do the whole law.  
-> <sup>4</sup> Christ is become of no effect unto you, whosoever of you are justified by the law; ye are fallen from grace.  
-> <sup>5</sup> For we through the Spirit wait for the hope of righteousness by faith.  
-> <sup>6</sup> For in Jesus Christ neither circumcision availeth any thing, nor uncircumcision; but faith which worketh by love.  
-> <sup>7</sup> Ye did run well; who did hinder you that ye should not obey the truth?  
-> <sup>8</sup> This persuasion *cometh* not of him that calleth you.  
-> <sup>9</sup> A little leaven leaveneth the whole lump.  
-> <sup>10</sup> I have confidence in you through the Lord, that ye will be none otherwise minded: but he that troubleth you shall bear his judgment, whosoever he be.  
-> <sup>11</sup> And I, brethren, if I yet preach circumcision, why do I yet suffer persecution? then is the offence of the cross ceased.  
-> <sup>12</sup> I would they were even cut off which trouble you.  
+> **¹** Stand fast therefore in the liberty wherewith Christ hath made us free, and be not entangled again with the yoke of bondage.  
+> **²** Behold, I Paul say unto you, that if ye be circumcised, Christ shall profit you nothing.  
+> **³** For I testify again to every man that is circumcised, that he is a debtor to do the whole law.  
+> **⁴** Christ is become of no effect unto you, whosoever of you are justified by the law; ye are fallen from grace.  
+> **⁵** For we through the Spirit wait for the hope of righteousness by faith.  
+> **⁶** For in Jesus Christ neither circumcision availeth any thing, nor uncircumcision; but faith which worketh by love.  
+> **⁷** Ye did run well; who did hinder you that ye should not obey the truth?  
+> **⁸** This persuasion *cometh* not of him that calleth you.  
+> **⁹** A little leaven leaveneth the whole lump.  
+> **¹⁰** I have confidence in you through the Lord, that ye will be none otherwise minded: but he that troubleth you shall bear his judgment, whosoever he be.  
+> **¹¹** And I, brethren, if I yet preach circumcision, why do I yet suffer persecution? then is the offence of the cross ceased.  
+> **¹²** I would they were even cut off which trouble you.  
 
 In the former part of this chapter the apostle cautions the Galatians to take heed of the judaizing teachers, who endeavoured to bring them back under the bondage of the law. He had been arguing against them before, and had largely shown how contrary the principles and spirit of those teachers were to the spirit of the gospel; and now this is as it were the general inference or application of all that discourse. Since it appeared by what had been said that we can be justified only by faith in Jesus Christ, and not by the righteousness of the law, and that the law of Moses was no longer in force, nor Christians under any obligation to submit to it, therefore he would have them to *stand fast in the liberty wherewith Christ hath made us free, and not to be again entangled with the yoke of bondage.* Here observe, 1. Under the gospel we are enfranchised, we are brought into a state of liberty, wherein we are freed from the yoke of the ceremonial law and from the curse of the moral law; so that we are no longer tied to the observance of the one, nor tied up to the rigour of the other, which curses every one that continues not in all things written therein to do them, Ga 3:10. 2. We owe this liberty to Jesus Christ. It is he who *has made us free;* by his merits he has satisfied the demands of the broken law, and by his authority as a king he has discharged us from the obligation of those carnal ordinances which were imposed on the Jews. And, 3. It is therefore our duty to *stand fast in this liberty,* constantly and faithfully to adhere to the gospel and to the liberty of it, and not to suffer ourselves, upon any consideration, *to be again entangled in the yoke of bondage,* nor persuaded to return back to the law of Moses. This is the general caution or exhortation, which in the Ga 5:13-26 the apostle enforces by several reasons or arguments. As,
 
@@ -45,20 +45,20 @@ VIII\. To dissuade these Christians from hearkening to their judaizing teachers,
 
 ## Practical Godliness Enforced; Works of the Flesh and of the Spirit; The Fruits of the Spirit. (a. d. 56.)
 
-> <sup>13</sup> For, brethren, ye have been called unto liberty; only *use* not liberty for an occasion to the flesh, but by love serve one another.  
-> <sup>14</sup> For all the law is fulfilled in one word, *even* in this; Thou shalt love thy neighbour as thyself.  
-> <sup>15</sup> But if ye bite and devour one another, take heed that ye be not consumed one of another.  
-> <sup>16</sup> *This* I say then, Walk in the Spirit, and ye shall not fulfil the lust of the flesh.  
-> <sup>17</sup> For the flesh lusteth against the Spirit, and the Spirit against the flesh: and these are contrary the one to the other: so that ye cannot do the things that ye would.  
-> <sup>18</sup> But if ye be led of the Spirit, ye are not under the law.  
-> <sup>19</sup> Now the works of the flesh are manifest, which are *these;* Adultery, fornication, uncleanness, lasciviousness,  
-> <sup>20</sup> Idolatry, witchcraft, hatred, variance, emulations, wrath, strife, seditions, heresies,  
-> <sup>21</sup> Envyings, murders, drunkenness, revellings, and such like: of the which I tell you before, as I have also told *you* in time past, that they which do such things shall not inherit the kingdom of God.  
-> <sup>22</sup> But the fruit of the Spirit is love, joy, peace, longsuffering, gentleness, goodness, faith,  
-> <sup>23</sup> Meekness, temperance: against such there is no law.  
-> <sup>24</sup> And they that are Christ's have crucified the flesh with the affections and lusts.  
-> <sup>25</sup> If we live in the Spirit, let us also walk in the Spirit.  
-> <sup>26</sup> Let us not be desirous of vain glory, provoking one another, envying one another.  
+> **¹³** For, brethren, ye have been called unto liberty; only *use* not liberty for an occasion to the flesh, but by love serve one another.  
+> **¹⁴** For all the law is fulfilled in one word, *even* in this; Thou shalt love thy neighbour as thyself.  
+> **¹⁵** But if ye bite and devour one another, take heed that ye be not consumed one of another.  
+> **¹⁶** *This* I say then, Walk in the Spirit, and ye shall not fulfil the lust of the flesh.  
+> **¹⁷** For the flesh lusteth against the Spirit, and the Spirit against the flesh: and these are contrary the one to the other: so that ye cannot do the things that ye would.  
+> **¹⁸** But if ye be led of the Spirit, ye are not under the law.  
+> **¹⁹** Now the works of the flesh are manifest, which are *these;* Adultery, fornication, uncleanness, lasciviousness,  
+> **²⁰** Idolatry, witchcraft, hatred, variance, emulations, wrath, strife, seditions, heresies,  
+> **²¹** Envyings, murders, drunkenness, revellings, and such like: of the which I tell you before, as I have also told *you* in time past, that they which do such things shall not inherit the kingdom of God.  
+> **²²** But the fruit of the Spirit is love, joy, peace, longsuffering, gentleness, goodness, faith,  
+> **²³** Meekness, temperance: against such there is no law.  
+> **²⁴** And they that are Christ's have crucified the flesh with the affections and lusts.  
+> **²⁵** If we live in the Spirit, let us also walk in the Spirit.  
+> **²⁶** Let us not be desirous of vain glory, provoking one another, envying one another.  
 
 In the latter part of this chapter the apostle comes to exhort these Christians to serious practical godliness, as the best antidote against the snares of the false teachers. Two things especially he presses upon them:—
 

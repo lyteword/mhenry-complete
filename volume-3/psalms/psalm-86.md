@@ -10,13 +10,13 @@ This psalm is entitled "a prayer of David;" probably it was not penned upon any 
 
 A Prayer of David.
 
-> <sup>1</sup> Bow down thine ear, O LORD, hear me: for I *am* poor and needy.  
-> <sup>2</sup> Preserve my soul; for I *am* holy: O thou my God, save thy servant that trusteth in thee.  
-> <sup>3</sup> Be merciful unto me, O Lord: for I cry unto thee daily.  
-> <sup>4</sup> Rejoice the soul of thy servant: for unto thee, O Lord, do I lift up my soul.  
-> <sup>5</sup> For thou, Lord, *art* good, and ready to forgive; and plenteous in mercy unto all them that call upon thee.  
-> <sup>6</sup> Give ear, O LORD, unto my prayer; and attend to the voice of my supplications.  
-> <sup>7</sup> In the day of my trouble I will call upon thee: for thou wilt answer me.  
+> **¹** Bow down thine ear, O LORD, hear me: for I *am* poor and needy.  
+> **²** Preserve my soul; for I *am* holy: O thou my God, save thy servant that trusteth in thee.  
+> **³** Be merciful unto me, O Lord: for I cry unto thee daily.  
+> **⁴** Rejoice the soul of thy servant: for unto thee, O Lord, do I lift up my soul.  
+> **⁵** For thou, Lord, *art* good, and ready to forgive; and plenteous in mercy unto all them that call upon thee.  
+> **⁶** Give ear, O LORD, unto my prayer; and attend to the voice of my supplications.  
+> **⁷** In the day of my trouble I will call upon thee: for thou wilt answer me.  
 
 This psalm was published under the title of *a prayer of David;* not as if David sung all his prayers, but into some of his songs he inserted prayers; for a psalm will admit the expressions of any pious and devout affections. But it is observable how very plain the language of this psalm is, and how little there is in it of poetic flights or figures, in comparison with some other psalms; for the flourishes of wit are not the proper ornaments of prayer. Now here we may observe,
 
@@ -26,16 +26,16 @@ II\. The pleas with which he enforces these petitions. 1. He pleads his relation
 
 ## Petitions and Praises; Prayer for Mercy and Grace.
 
-> <sup>8</sup> Among the gods *there is* none like unto thee, O Lord; neither *are there any works* like unto thy works.  
-> <sup>9</sup> All nations whom thou hast made shall come and worship before thee, O Lord; and shall glorify thy name.  
-> <sup>10</sup> For thou *art* great, and doest wondrous things: thou *art* God alone.  
-> <sup>11</sup> Teach me thy way, O LORD; I will walk in thy truth: unite my heart to fear thy name.  
-> <sup>12</sup> I will praise thee, O Lord my God, with all my heart: and I will glorify thy name for evermore.  
-> <sup>13</sup> For great *is* thy mercy toward me: and thou hast delivered my soul from the lowest hell.  
-> <sup>14</sup> O God, the proud are risen against me, and the assemblies of violent *men* have sought after my soul; and have not set thee before them.  
-> <sup>15</sup> But thou, O Lord, *art* a God full of compassion, and gracious, longsuffering, and plenteous in mercy and truth.  
-> <sup>16</sup> O turn unto me, and have mercy upon me; give thy strength unto thy servant, and save the son of thine handmaid.  
-> <sup>17</sup> show me a token for good; that they which hate me may see *it,* and be ashamed: because thou, LORD, hast holpen me, and comforted me.  
+> **⁸** Among the gods *there is* none like unto thee, O Lord; neither *are there any works* like unto thy works.  
+> **⁹** All nations whom thou hast made shall come and worship before thee, O Lord; and shall glorify thy name.  
+> **¹⁰** For thou *art* great, and doest wondrous things: thou *art* God alone.  
+> **¹¹** Teach me thy way, O LORD; I will walk in thy truth: unite my heart to fear thy name.  
+> **¹²** I will praise thee, O Lord my God, with all my heart: and I will glorify thy name for evermore.  
+> **¹³** For great *is* thy mercy toward me: and thou hast delivered my soul from the lowest hell.  
+> **¹⁴** O God, the proud are risen against me, and the assemblies of violent *men* have sought after my soul; and have not set thee before them.  
+> **¹⁵** But thou, O Lord, *art* a God full of compassion, and gracious, longsuffering, and plenteous in mercy and truth.  
+> **¹⁶** O turn unto me, and have mercy upon me; give thy strength unto thy servant, and save the son of thine handmaid.  
+> **¹⁷** show me a token for good; that they which hate me may see *it,* and be ashamed: because thou, LORD, hast holpen me, and comforted me.  
 
 David is here going on in his prayer.
 

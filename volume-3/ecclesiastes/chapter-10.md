@@ -8,9 +8,9 @@ This chapter seems to be like Solomon's proverbs, a collection of wise sayings a
 
 ## The Advantages of Wisdom.
 
-> <sup>1</sup> Dead flies cause the ointment of the apothecary to send forth a stinking savour: *so doth* a little folly him that is in reputation for wisdom *and* honour.  
-> <sup>2</sup> A wise man's heart *is* at his right hand; but a fool's heart at his left.  
-> <sup>3</sup> Yea also, when he that is a fool walketh by the way, his wisdom faileth *him,* and he saith to every one *that* he *is* a fool.  
+> **¹** Dead flies cause the ointment of the apothecary to send forth a stinking savour: *so doth* a little folly him that is in reputation for wisdom *and* honour.  
+> **²** A wise man's heart *is* at his right hand; but a fool's heart at his left.  
+> **³** Yea also, when he that is a fool walketh by the way, his wisdom faileth *him,* and he saith to every one *that* he *is* a fool.  
 
 In these verses Solomon shows,
 
@@ -22,14 +22,14 @@ III\. How apt fools are at every turn to proclaim their own folly, and expose th
 
 ## Mutual Duties of Princes and Subjects.
 
-> <sup>4</sup> If the spirit of the ruler rise up against thee, leave not thy place; for yielding pacifieth great offences.  
-> <sup>5</sup> There is an evil *which* I have seen under the sun, as an error *which* proceedeth from the ruler:  
-> <sup>6</sup> Folly is set in great dignity, and the rich sit in low place.  
-> <sup>7</sup> I have seen servants upon horses, and princes walking as servants upon the earth.  
-> <sup>8</sup> He that diggeth a pit shall fall into it; and whoso breaketh a hedge, a serpent shall bite him.  
-> <sup>9</sup> Whoso removeth stones shall be hurt therewith; *and* he that cleaveth wood shall be endangered thereby.  
-> <sup>10</sup> If the iron be blunt, and he do not whet the edge, then must he put to more strength: but wisdom *is* profitable to direct.  
-> <sup>11</sup> Surely the serpent will bite without enchantment; and a babbler is no better.  
+> **⁴** If the spirit of the ruler rise up against thee, leave not thy place; for yielding pacifieth great offences.  
+> **⁵** There is an evil *which* I have seen under the sun, as an error *which* proceedeth from the ruler:  
+> **⁶** Folly is set in great dignity, and the rich sit in low place.  
+> **⁷** I have seen servants upon horses, and princes walking as servants upon the earth.  
+> **⁸** He that diggeth a pit shall fall into it; and whoso breaketh a hedge, a serpent shall bite him.  
+> **⁹** Whoso removeth stones shall be hurt therewith; *and* he that cleaveth wood shall be endangered thereby.  
+> **¹⁰** If the iron be blunt, and he do not whet the edge, then must he put to more strength: but wisdom *is* profitable to direct.  
+> **¹¹** Surely the serpent will bite without enchantment; and a babbler is no better.  
 
 The scope of these verses is to keep subjects loyal and dutiful to the government. In Solomon's reign the people were very rich, and lived in prosperity, which perhaps made them proud and petulant, and when the taxes were high, though they had enough to pay them with, it is probable that many conducted themselves insolently towards the government and threatened to rebel. To such Solomon here gives some necessary cautions.
 
@@ -43,10 +43,10 @@ II\. Let not subjects commence a quarrel with their prince, though the public ad
 
 ## The Contemptibleness of Folly.
 
-> <sup>12</sup> The words of a wise man's mouth *are* gracious; but the lips of a fool will swallow up himself.  
-> <sup>13</sup> The beginning of the words of his mouth *is* foolishness: and the end of his talk *is* mischievous madness.  
-> <sup>14</sup> A fool also is full of words: a man cannot tell what shall be; and what shall be after him, who can tell him?  
-> <sup>15</sup> The labour of the foolish wearieth every one of them, because he knoweth not how to go to the city.  
+> **¹²** The words of a wise man's mouth *are* gracious; but the lips of a fool will swallow up himself.  
+> **¹³** The beginning of the words of his mouth *is* foolishness: and the end of his talk *is* mischievous madness.  
+> **¹⁴** A fool also is full of words: a man cannot tell what shall be; and what shall be after him, who can tell him?  
+> **¹⁵** The labour of the foolish wearieth every one of them, because he knoweth not how to go to the city.  
 
 Solomon, having shown the benefit of wisdom, and of what great advantage it is to us in the management of our affairs, here shows the mischief of folly and how it exposes men, which perhaps comes in as a reflection upon those rulers who *set folly in great dignity.*
 
@@ -58,11 +58,11 @@ II\. Fools toil a great deal to no purpose (Ec 10:15); *The labour of the foolis
 
 ## Mutual Duties of Princes and Subjects.
 
-> <sup>16</sup> Woe to thee, O land, when thy king *is* a child, and thy princes eat in the morning!  
-> <sup>17</sup> Blessed *art* thou, O land, when thy king *is* the son of nobles, and thy princes eat in due season, for strength, and not for drunkenness!  
-> <sup>18</sup> By much slothfulness the building decayeth; and through idleness of the hands the house droppeth through.  
-> <sup>19</sup> A feast is made for laughter, and wine maketh merry: but money answereth all *things.*  
-> <sup>20</sup> Curse not the king, no not in thy thought; and curse not the rich in thy bedchamber: for a bird of the air shall carry the voice, and that which hath wings shall tell the matter.  
+> **¹⁶** Woe to thee, O land, when thy king *is* a child, and thy princes eat in the morning!  
+> **¹⁷** Blessed *art* thou, O land, when thy king *is* the son of nobles, and thy princes eat in due season, for strength, and not for drunkenness!  
+> **¹⁸** By much slothfulness the building decayeth; and through idleness of the hands the house droppeth through.  
+> **¹⁹** A feast is made for laughter, and wine maketh merry: but money answereth all *things.*  
+> **²⁰** Curse not the king, no not in thy thought; and curse not the rich in thy bedchamber: for a bird of the air shall carry the voice, and that which hath wings shall tell the matter.  
 
 Solomon here observes,
 

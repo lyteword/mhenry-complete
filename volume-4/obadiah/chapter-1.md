@@ -8,15 +8,15 @@ This book is wholly concerning Edom, a nation nearly allied and near adjoining t
 
 ## The Doom of Edom. (b. c. 587.)
 
-> <sup>1</sup> The vision of Obadiah. Thus saith the Lord GOD concerning Edom; We have heard a rumour from the LORD, and an ambassador is sent among the heathen, Arise ye, and let us rise up against her in battle.  
-> <sup>2</sup> Behold, I have made thee small among the heathen: thou art greatly despised.  
-> <sup>3</sup> The pride of thine heart hath deceived thee, thou that dwellest in the clefts of the rock, whose habitation *is* high; that saith in his heart, Who shall bring me down to the ground?  
-> <sup>4</sup> Though thou exalt *thyself* as the eagle, and though thou set thy nest among the stars, thence will I bring thee down, saith the LORD.  
-> <sup>5</sup> If thieves came to thee, if robbers by night, (how art thou cut off!) would they not have stolen till they had enough? if the grape-gatherers came to thee, would they not leave *some* grapes?  
-> <sup>6</sup> How are *the things* of Esau searched out! *how* are his hidden things sought up!  
-> <sup>7</sup> All the men of thy confederacy have brought thee *even* to the border: the men that were at peace with thee have deceived thee, *and* prevailed against thee; *they that eat* thy bread have laid a wound under thee: *there is* none understanding in him.  
-> <sup>8</sup> Shall I not in that day, saith the LORD, even destroy the wise *men* out of Edom, and understanding out of the mount of Esau?  
-> <sup>9</sup> And thy mighty *men,* O Teman, shall be dismayed, to the end that every one of the mount of Esau may be cut off by slaughter.  
+> **¹** The vision of Obadiah. Thus saith the Lord GOD concerning Edom; We have heard a rumour from the LORD, and an ambassador is sent among the heathen, Arise ye, and let us rise up against her in battle.  
+> **²** Behold, I have made thee small among the heathen: thou art greatly despised.  
+> **³** The pride of thine heart hath deceived thee, thou that dwellest in the clefts of the rock, whose habitation *is* high; that saith in his heart, Who shall bring me down to the ground?  
+> **⁴** Though thou exalt *thyself* as the eagle, and though thou set thy nest among the stars, thence will I bring thee down, saith the LORD.  
+> **⁵** If thieves came to thee, if robbers by night, (how art thou cut off!) would they not have stolen till they had enough? if the grape-gatherers came to thee, would they not leave *some* grapes?  
+> **⁶** How are *the things* of Esau searched out! *how* are his hidden things sought up!  
+> **⁷** All the men of thy confederacy have brought thee *even* to the border: the men that were at peace with thee have deceived thee, *and* prevailed against thee; *they that eat* thy bread have laid a wound under thee: *there is* none understanding in him.  
+> **⁸** Shall I not in that day, saith the LORD, even destroy the wise *men* out of Edom, and understanding out of the mount of Esau?  
+> **⁹** And thy mighty *men,* O Teman, shall be dismayed, to the end that every one of the mount of Esau may be cut off by slaughter.  
 
 Edom is the nation against which this prophecy is levelled, and which, some think, is put for all the enemies of Israel, that shall be brought down first or last. The rabbin by Edom understand Rome. Rome Christians they understand it of, and have an implacable enmity to it a such; but, if we understand it of Rome antichristian, we shall find the passages of it applicable enough. And though Edom was mortified in the times of the Maccabees, as it had been before by Jehoshaphat, yet its destruction seems to have been typical, as their father Esau's rejection, and to have had further reference to the destruction of the enemies of the gospel-church; for so shall all God's enemies perish; and we find (Isa 34:5) the *sword of the Lord* coming down *upon Idumea,* to signify the general day of God's recompences for the controversy of Zion, Ob 1:8. Some have well observed that it could not but be a great temptation to the people of Israel, when they saw themselves, who were the children of beloved Jacob, in trouble, and the Edomites, not only prospering, but triumphing over them in their troubles; and therefore God gives them a prospect of the destruction of Edom, which should be total and final, and of a happy issue of their own correction. Now we may observe here,
 
@@ -38,13 +38,13 @@ II\. A prediction of the success of that war. Edom shall certainly be subdued, a
 
 ## The Guilt of Edom. (b. c. 587.)
 
-> <sup>10</sup> For *thy* violence against thy brother Jacob shame shall cover thee, and thou shalt be cut off for ever.  
-> <sup>11</sup> In the day that thou stoodest on the other side, in the day that the strangers carried away captive his forces, and foreigners entered into his gates, and cast lots upon Jerusalem, even thou *wast* as one of them.  
-> <sup>12</sup> But thou shouldest not have looked on the day of thy brother in the day that he became a stranger; neither shouldest thou have rejoiced over the children of Judah in the day of their destruction; neither shouldest thou have spoken proudly in the day of distress.  
-> <sup>13</sup> Thou shouldest not have entered into the gate of my people in the day of their calamity; yea, thou shouldest not have looked on their affliction in the day of their calamity, nor have laid *hands* on their substance in the day of their calamity;  
-> <sup>14</sup> Neither shouldest thou have stood in the crossway, to cut off those of his that did escape; neither shouldest thou have delivered up those of his that did remain in the day of distress.  
-> <sup>15</sup> For the day of the LORD *is* near upon all the heathen: as thou hast done, it shall be done unto thee: thy reward shall return upon thine own head.  
-> <sup>16</sup> For as ye have drunk upon my holy mountain, *so* shall all the heathen drink continually, yea, they shall drink, and they shall swallow down, and they shall be as though they had not been.  
+> **¹⁰** For *thy* violence against thy brother Jacob shame shall cover thee, and thou shalt be cut off for ever.  
+> **¹¹** In the day that thou stoodest on the other side, in the day that the strangers carried away captive his forces, and foreigners entered into his gates, and cast lots upon Jerusalem, even thou *wast* as one of them.  
+> **¹²** But thou shouldest not have looked on the day of thy brother in the day that he became a stranger; neither shouldest thou have rejoiced over the children of Judah in the day of their destruction; neither shouldest thou have spoken proudly in the day of distress.  
+> **¹³** Thou shouldest not have entered into the gate of my people in the day of their calamity; yea, thou shouldest not have looked on their affliction in the day of their calamity, nor have laid *hands* on their substance in the day of their calamity;  
+> **¹⁴** Neither shouldest thou have stood in the crossway, to cut off those of his that did escape; neither shouldest thou have delivered up those of his that did remain in the day of distress.  
+> **¹⁵** For the day of the LORD *is* near upon all the heathen: as thou hast done, it shall be done unto thee: thy reward shall return upon thine own head.  
+> **¹⁶** For as ye have drunk upon my holy mountain, *so* shall all the heathen drink continually, yea, they shall drink, and they shall swallow down, and they shall be as though they had not been.  
 
 When we have read Edom's doom, no less than utter ruin, it is natural to ask, *Why, what evil has he done?* What is the ground of God's controversy with him? Many things, no doubt, were amiss in Edom; they were a sinful people, and *a people laden with iniquity.* But that one single crime which is laid to their charge, as filling their measure and bringing this ruin upon them, that for which they here stand indicted, of which they are convicted, and for which they are condemned, is the injury they had done to the people of God (Ob 1:10): "It is *for thy violence against thy brother Jacob,* that ancient and hereditary grudge which thou hast borne to the people of Israel, that all this *shame shall cover thee* and *thou shalt be cut off for ever.*" Note, Injuries to men are affronts to God, the righteous God, that loveth righteousness and hateth wickedness; and, as the Judge of all the earth, he will give redress to those that suffer wrong and take vengeance on those that do wrong. All violence, all *unrighteousness, is sin;* but it is a great aggravation of the violence if it be done either, 1. Against any of our own people; it is violence *against thy brother,* thy near relation, to whom thou shouldst be a *goël—a redeemer,* whom it is thy duty to right if others wronged him; how wicked is it then for thee thyself to wrong him! Thou *slanderest* and abusest *thy own mother's son;* this makes the sin *exceedingly sinful,* Ps 50:20. Or, 2. Much more if it be done against any of God's people; "it is thy brother Jacob that is in covenant with God, and dear to him. Thou hatest him whom God has loved, and because God espouses and will plead with jealousy, and in whose interests God is pleased so far to interest himself that he takes the violence done to him as done to himself. *Whoso touches Jacob touches the apple of the eye of Jacob's God.*" So that it is *crimen læsæ majestatis—high treason,* for which, as for high treason, let Edom expect an ignominious punishment: *Shame shall cover thee,* and a ruining one; *thou shalt be cut off for ever.*
 
@@ -60,11 +60,11 @@ II\. What the shame is that shall cover them for this violence of theirs. 1. The
 
 ## Promises to Israel and Judah. (b. c. 587.)
 
-> <sup>17</sup> But upon mount Zion shall be deliverance, and there shall be holiness; and the house of Jacob shall possess their possessions.  
-> <sup>18</sup> And the house of Jacob shall be a fire, and the house of Joseph a flame, and the house of Esau for stubble, and they shall kindle in them, and devour them; and there shall not be *any* remaining of the house of Esau; for the LORD hath spoken *it.*  
-> <sup>19</sup> And *they of* the south shall possess the mount of Esau; and *they of* the plain the Philistines: and they shall possess the fields of Ephraim, and the fields of Samaria: and Benjamin *shall possess* Gilead.  
-> <sup>20</sup> And the captivity of this host of the children of Israel *shall possess* that of the Canaanites, *even* unto Zarephath; and the captivity of Jerusalem, which *is* in Sepharad, shall possess the cities of the south.  
-> <sup>21</sup> And saviours shall come up on mount Zion to judge the mount of Esau; and the kingdom shall be the LORD's.  
+> **¹⁷** But upon mount Zion shall be deliverance, and there shall be holiness; and the house of Jacob shall possess their possessions.  
+> **¹⁸** And the house of Jacob shall be a fire, and the house of Joseph a flame, and the house of Esau for stubble, and they shall kindle in them, and devour them; and there shall not be *any* remaining of the house of Esau; for the LORD hath spoken *it.*  
+> **¹⁹** And *they of* the south shall possess the mount of Esau; and *they of* the plain the Philistines: and they shall possess the fields of Ephraim, and the fields of Samaria: and Benjamin *shall possess* Gilead.  
+> **²⁰** And the captivity of this host of the children of Israel *shall possess* that of the Canaanites, *even* unto Zarephath; and the captivity of Jerusalem, which *is* in Sepharad, shall possess the cities of the south.  
+> **²¹** And saviours shall come up on mount Zion to judge the mount of Esau; and the kingdom shall be the LORD's.  
 
 After the destruction of the church's enemies is threatened, which will be completely accomplished in the great day of recompence, and that judgment for which Christ came once, and will come again, into this world, here follow precious promises of the salvation of the church, with which this prophecy concludes, and those of Joel and Amos did, which, however they might be in part fulfilled in the return of the Jews out of Babylon notwithstanding the triumphs of Edom in their captivity, as if it were perpetual, are yet, doubtless, to have their full accomplishment in that great salvation wrought out by Jesus Christ, to which all the prophets bore witness. It is promised here,
 

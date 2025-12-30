@@ -10,10 +10,10 @@ David was in distress when he penned this psalm, pursued, it is most likely, by 
 
 A psalm of David.
 
-> <sup>1</sup> LORD, I cry unto thee: make haste unto me; give ear unto my voice, when I cry unto thee.  
-> <sup>2</sup> Let my prayer be set forth before thee *as* incense; *and* the lifting up of my hands *as* the evening sacrifice.  
-> <sup>3</sup> Set a watch, O LORD, before my mouth; keep the door of my lips.  
-> <sup>4</sup> Incline not my heart to *any* evil thing, to practise wicked works with men that work iniquity: and let me not eat of their dainties.  
+> **¹** LORD, I cry unto thee: make haste unto me; give ear unto my voice, when I cry unto thee.  
+> **²** Let my prayer be set forth before thee *as* incense; *and* the lifting up of my hands *as* the evening sacrifice.  
+> **³** Set a watch, O LORD, before my mouth; keep the door of my lips.  
+> **⁴** Incline not my heart to *any* evil thing, to practise wicked works with men that work iniquity: and let me not eat of their dainties.  
 
 Mercy to accept what we do well, and grace to keep us from doing ill, are the two things which we are here taught by David's example to pray to God for.
 
@@ -23,12 +23,12 @@ II\. David was in fear of sin, and he begs of God that he might be kept from sin
 
 ## Reproofs of the Righteous; Complaints and Petitions.
 
-> <sup>5</sup> Let the righteous smite me; *it shall be* a kindness: and let him reprove me; *it shall be* an excellent oil, *which* shall not break my head: for yet my prayer also *shall be* in their calamities.  
-> <sup>6</sup> When their judges are overthrown in stony places, they shall hear my words; for they are sweet.  
-> <sup>7</sup> Our bones are scattered at the grave's mouth, as when one cutteth and cleaveth *wood* upon the earth.  
-> <sup>8</sup> But mine eyes *are* unto thee, O GOD the Lord: in thee is my trust; leave not my soul destitute.  
-> <sup>9</sup> Keep me from the snares *which* they have laid for me, and the gins of the workers of iniquity.  
-> <sup>10</sup> Let the wicked fall into their own nets, whilst that I withal escape.  
+> **⁵** Let the righteous smite me; *it shall be* a kindness: and let him reprove me; *it shall be* an excellent oil, *which* shall not break my head: for yet my prayer also *shall be* in their calamities.  
+> **⁶** When their judges are overthrown in stony places, they shall hear my words; for they are sweet.  
+> **⁷** Our bones are scattered at the grave's mouth, as when one cutteth and cleaveth *wood* upon the earth.  
+> **⁸** But mine eyes *are* unto thee, O GOD the Lord: in thee is my trust; leave not my soul destitute.  
+> **⁹** Keep me from the snares *which* they have laid for me, and the gins of the workers of iniquity.  
+> **¹⁰** Let the wicked fall into their own nets, whilst that I withal escape.  
 
 Here, I. David desires to be told of his faults. His enemies reproached him with that which was false, which he could not but complain of; yet, at the same time, he desired his friends would reprove him for that which was really amiss in him, particularly if there was any thing that gave the least colour to those reproaches (Ps 141:5): *let the righteous smite me; it shall be a kindness.* The *righteous God* (so some); "I will welcome the rebukes of his providence, and be so far from quarrelling with them that I will receive them as tokens of love and improve them as means of grace, and will pray for those that are the instruments of my trouble." But it is commonly taken for the reproofs given by righteous men; and it best becomes those that are themselves righteous to reprove the unrighteousness of others, and from them reproof will be best taken. But if the reproof be just, though the reprover be not so, we must make a good use of it and learn obedience by it. We are here taught how to receive the reproofs of the righteous and wise. 1. We must desire to be reproved for whatever is amiss in us, or is done amiss by us: "Lord, put it into the heart of the righteous to smite me and reprove me. If my own heart does not *smite me,* as it ought, let my friend do it; let me never fall under that dreadful judgment of being let alone in sin." 2. We must account it a piece of friendship. We must not only bear it patiently, but take it as a kindness; for *reproofs of instruction are the way of life* (Pr 6:23), are means of good to us, to bring us to repentance for the sins we have committed, and to prevent relapses into sin. Though reproofs cut, it is in order to a cure, and therefore they are much more desirable than the kisses of an enemy (Pr 27:6) or the song of fools, Ec 7:5. David blessed God for Abigail's seasonable admonition, 1Sa 25:32. 3. We must reckon ourselves helped and healed by it: It *shall be as an excellent oil* to a wound, to mollify it and close it up; *it shall not break my head,* as some reckon it to do, who could as well bear to have their heads broken as to be told of their faults; but, says David, "I am not of that mind; it is my sin that has broken my head, that has broken my bones, Ps 51:8. The reproof is an excellent oil, to cure the bruises sin has given me. It shall not *break my head,* if it may but help to break my heart." 4. We must requite the kindness of those that deal thus faithfully, thus friendly with us, at least by our *prayers for them in their calamities,* and hereby we must show that we take it kindly. Dr. Hammond gives quite another reading of this verse: "*Reproach will bruise me that am righteous, and rebuke me; but that poisonous oil shall not break my head* (shall not destroy me, shall not do me the mischief intended), *for yet my prayer shall be in their mischiefs,* that God would preserve me from them, and my prayer shall not be in vain."
 

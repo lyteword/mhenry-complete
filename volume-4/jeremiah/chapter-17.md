@@ -8,10 +8,10 @@ In this chapter, I. God convicts the Jews of the sin of idolatry by the notoriou
 
 ## The Guilt of Judah. (b. c. 605.)
 
-> <sup>1</sup> The sin of Judah *is* written with a pen of iron, *and* with the point of a diamond: *it is* graven upon the table of their heart, and upon the horns of your altars;  
-> <sup>2</sup> Whilst their children remember their altars and their groves by the green trees upon the high hills.  
-> <sup>3</sup> O my mountain in the field, I will give thy substance *and* all thy treasures to the spoil, *and* thy high places for sin, throughout all thy borders.  
-> <sup>4</sup> And thou, even thyself, shalt discontinue from thine heritage that I gave thee; and I will cause thee to serve thine enemies in the land which thou knowest not: for ye have kindled a fire in mine anger, *which* shall burn for ever.  
+> **¹** The sin of Judah *is* written with a pen of iron, *and* with the point of a diamond: *it is* graven upon the table of their heart, and upon the horns of your altars;  
+> **²** Whilst their children remember their altars and their groves by the green trees upon the high hills.  
+> **³** O my mountain in the field, I will give thy substance *and* all thy treasures to the spoil, *and* thy high places for sin, throughout all thy borders.  
+> **⁴** And thou, even thyself, shalt discontinue from thine heritage that I gave thee; and I will cause thee to serve thine enemies in the land which thou knowest not: for ye have kindled a fire in mine anger, *which* shall burn for ever.  
 
 The people had asked (Jer 16:10), *What is our iniquity, and what is our sin?* as if they could not be charged with any thing worth speaking of, for which God should enter into judgment with them; their challenge was answered there, but here we have a further reply to it, in which,
 
@@ -21,13 +21,13 @@ II\. The indictment being thus fully proved, the judgment is affirmed and the se
 
 ## True and False Confidence; Deceitfulness of the Heart; Unlawful Gains. (b. c. 605.)
 
-> <sup>5</sup> Thus saith the LORD; Cursed *be* the man that trusteth in man, and maketh flesh his arm, and whose heart departeth from the LORD.  
-> <sup>6</sup> For he shall be like the heath in the desert, and shall not see when good cometh; but shall inhabit the parched places in the wilderness, *in* a salt land and not inhabited.  
-> <sup>7</sup> Blessed *is* the man that trusteth in the LORD, and whose hope the LORD is.  
-> <sup>8</sup> For he shall be as a tree planted by the waters, and *that* spreadeth out her roots by the river, and shall not see when heat cometh, but her leaf shall be green; and shall not be careful in the year of drought, neither shall cease from yielding fruit.  
-> <sup>9</sup> The heart *is* deceitful above all *things,* and desperately wicked: who can know it?  
-> <sup>10</sup> I the LORD search the heart, *I* try the reins, even to give every man according to his ways, *and* according to the fruit of his doings.  
-> <sup>11</sup> *As* the partridge sitteth *on eggs,* and hatcheth *them* not; *so* he that getteth riches, and not by right, shall leave them in the midst of his days, and at his end shall be a fool.  
+> **⁵** Thus saith the LORD; Cursed *be* the man that trusteth in man, and maketh flesh his arm, and whose heart departeth from the LORD.  
+> **⁶** For he shall be like the heath in the desert, and shall not see when good cometh; but shall inhabit the parched places in the wilderness, *in* a salt land and not inhabited.  
+> **⁷** Blessed *is* the man that trusteth in the LORD, and whose hope the LORD is.  
+> **⁸** For he shall be as a tree planted by the waters, and *that* spreadeth out her roots by the river, and shall not see when heat cometh, but her leaf shall be green; and shall not be careful in the year of drought, neither shall cease from yielding fruit.  
+> **⁹** The heart *is* deceitful above all *things,* and desperately wicked: who can know it?  
+> **¹⁰** I the LORD search the heart, *I* try the reins, even to give every man according to his ways, *and* according to the fruit of his doings.  
+> **¹¹** *As* the partridge sitteth *on eggs,* and hatcheth *them* not; *so* he that getteth riches, and not by right, shall leave them in the midst of his days, and at his end shall be a fool.  
 
 It is excellent doctrine that is preached in these verses, and of general concern and use to us all, and it does not appear to have any particular reference to the present state of Judah and Jerusalem. The prophet's sermons were not all prophetical, but some of them practical; yet this discourse, which probably we have here only the heads of, would be of singular use to them by way of caution not to misplace their confidence in the day of their distress. Let us all learn what we are taught here,
 
@@ -45,13 +45,13 @@ IV\. Concerning the curse that attends wealth unjustly gotten. Fraud and violenc
 
 ## God's Justice Acknowledged; The Prophet's Appeal of God. (b. c. 605.)
 
-> <sup>12</sup> A glorious high throne from the beginning *is* the place of our sanctuary.  
-> <sup>13</sup> O LORD, the hope of Israel, all that forsake thee shall be ashamed, *and* they that depart from me shall be written in the earth, because they have forsaken the LORD, the fountain of living waters.  
-> <sup>14</sup> Heal me, O LORD, and I shall be healed; save me, and I shall be saved: for thou *art* my praise.  
-> <sup>15</sup> Behold, they say unto me, Where *is* the word of the LORD? let it come now.  
-> <sup>16</sup> As for me, I have not hastened from *being* a pastor to follow thee: neither have I desired the woeful day; thou knowest: that which came out of my lips was *right* before thee.  
-> <sup>17</sup> Be not a terror unto me: thou *art* my hope in the day of evil.  
-> <sup>18</sup> Let them be confounded that persecute me, but let not me be confounded: let them be dismayed, but let not me be dismayed: bring upon them the day of evil, and destroy them with double destruction.  
+> **¹²** A glorious high throne from the beginning *is* the place of our sanctuary.  
+> **¹³** O LORD, the hope of Israel, all that forsake thee shall be ashamed, *and* they that depart from me shall be written in the earth, because they have forsaken the LORD, the fountain of living waters.  
+> **¹⁴** Heal me, O LORD, and I shall be healed; save me, and I shall be saved: for thou *art* my praise.  
+> **¹⁵** Behold, they say unto me, Where *is* the word of the LORD? let it come now.  
+> **¹⁶** As for me, I have not hastened from *being* a pastor to follow thee: neither have I desired the woeful day; thou knowest: that which came out of my lips was *right* before thee.  
+> **¹⁷** Be not a terror unto me: thou *art* my hope in the day of evil.  
+> **¹⁸** Let them be confounded that persecute me, but let not me be confounded: let them be dismayed, but let not me be dismayed: bring upon them the day of evil, and destroy them with double destruction.  
 
 Here, as often before, we have the prophet retired for private meditation, and *alone with God.* Those ministers that would have comfort in their work must be much so. In his converse here with God and his own heart he takes the liberty which devout souls sometimes use in their soliloquies, to pass from one thing to another, without tying themselves too strictly to the laws of method and coherence.
 
@@ -69,15 +69,15 @@ VI\. He humbly begs of God that he would own him, and protect him, and carry him
 
 ## Sabbath-Sanctification. (b. c. 600.)
 
-> <sup>19</sup> Thus said the LORD unto me; Go and stand in the gate of the children of the people, whereby the kings of Judah come in, and by the which they go out, and in all the gates of Jerusalem;  
-> <sup>20</sup> And say unto them, Hear ye the word of the LORD, ye kings of Judah, and all Judah, and all the inhabitants of Jerusalem, that enter in by these gates:  
-> <sup>21</sup> Thus saith the LORD; Take heed to yourselves, and bear no burden on the sabbath day, nor bring *it* in by the gates of Jerusalem;  
-> <sup>22</sup> Neither carry forth a burden out of your houses on the sabbath day, neither do ye any work, but hallow ye the sabbath day, as I commanded your fathers.  
-> <sup>23</sup> But they obeyed not, neither inclined their ear, but made their neck stiff, that they might not hear, nor receive instruction.  
-> <sup>24</sup> And it shall come to pass, if ye diligently hearken unto me, saith the LORD, to bring in no burden through the gates of this city on the sabbath day, but hallow the sabbath day, to do no work therein;  
-> <sup>25</sup> Then shall there enter into the gates of this city kings and princes sitting upon the throne of David, riding in chariots and on horses, they, and their princes, the men of Judah, and the inhabitants of Jerusalem: and this city shall remain for ever.  
-> <sup>26</sup> And they shall come from the cities of Judah, and from the places about Jerusalem, and from the land of Benjamin, and from the plain, and from the mountains, and from the south, bringing burnt offerings, and sacrifices, and meat offerings, and incense, and bringing sacrifices of praise, unto the house of the LORD.  
-> <sup>27</sup> But if ye will not hearken unto me to hallow the sabbath day, and not to bear a burden, even entering in at the gates of Jerusalem on the sabbath day; then will I kindle a fire in the gates thereof, and it shall devour the palaces of Jerusalem, and it shall not be quenched.  
+> **¹⁹** Thus said the LORD unto me; Go and stand in the gate of the children of the people, whereby the kings of Judah come in, and by the which they go out, and in all the gates of Jerusalem;  
+> **²⁰** And say unto them, Hear ye the word of the LORD, ye kings of Judah, and all Judah, and all the inhabitants of Jerusalem, that enter in by these gates:  
+> **²¹** Thus saith the LORD; Take heed to yourselves, and bear no burden on the sabbath day, nor bring *it* in by the gates of Jerusalem;  
+> **²²** Neither carry forth a burden out of your houses on the sabbath day, neither do ye any work, but hallow ye the sabbath day, as I commanded your fathers.  
+> **²³** But they obeyed not, neither inclined their ear, but made their neck stiff, that they might not hear, nor receive instruction.  
+> **²⁴** And it shall come to pass, if ye diligently hearken unto me, saith the LORD, to bring in no burden through the gates of this city on the sabbath day, but hallow the sabbath day, to do no work therein;  
+> **²⁵** Then shall there enter into the gates of this city kings and princes sitting upon the throne of David, riding in chariots and on horses, they, and their princes, the men of Judah, and the inhabitants of Jerusalem: and this city shall remain for ever.  
+> **²⁶** And they shall come from the cities of Judah, and from the places about Jerusalem, and from the land of Benjamin, and from the plain, and from the mountains, and from the south, bringing burnt offerings, and sacrifices, and meat offerings, and incense, and bringing sacrifices of praise, unto the house of the LORD.  
+> **²⁷** But if ye will not hearken unto me to hallow the sabbath day, and not to bear a burden, even entering in at the gates of Jerusalem on the sabbath day; then will I kindle a fire in the gates thereof, and it shall devour the palaces of Jerusalem, and it shall not be quenched.  
 
 These verses are a sermon concerning sabbath-sanctification. It is a word which the prophet *received from the Lord,* and was ordered to deliver in the most solemn and public manner to the people; for they were sent not only to reprove sin, and to press obedience, in general, but they must descend to particulars. This message concerning the sabbath was probably sent in the days of Josiah, for the furtherance of that work of reformation which he set on foot; for the promises here (Jer 17:25,26) are such as I think we scarcely find when things come nearer to the extremity. This message must be proclaimed in all the places of concourse, and therefore in*the gates,* not only because through them people were continually passing and repassing, but because in them they kept their courts and laid up their stores. It must be proclaimed (as the king or queen is usually proclaimed) at the court-gate first, the gate *by which the kings of Judah come in and go out,* Jer 17:19. Let them be told their duty first, particularly this duty; for, if sabbaths be not sanctified as they should be, *the rulers of Judah are to be contended with* (so they were, Ne 13:17), for they are certainly wanting in their duty. He must also preach it *in all the gates of Jerusalem.* It is a matter of great and general concern; therefore let all take notice of it. Let the *kings of Judah* hear the *word of the Lord* (for, high as they are, he is above them), *and all the inhabitants of Jerusalem,* for, mean as they are, he takes notice of them, and of what they say and do on sabbath days. Observe,
 

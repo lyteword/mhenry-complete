@@ -8,15 +8,15 @@ In this chapter provision is made, I. For the putting away of the guilt of blood
 
 ## Undetected Murder. (b. c. 1451.)
 
-> <sup>1</sup> If *one* be found slain in the land which the LORD thy God giveth thee to possess it, lying in the field, *and* it be not known who hath slain him:  
-> <sup>2</sup> Then thy elders and thy judges shall come forth, and they shall measure unto the cities which *are* round about him that is slain:  
-> <sup>3</sup> And it shall be, *that* the city *which is* next unto the slain man, even the elders of that city shall take a heifer, which hath not been wrought with, *and* which hath not drawn in the yoke;  
-> <sup>4</sup> And the elders of that city shall bring down the heifer unto a rough valley, which is neither eared nor sown, and shall strike off the heifer's neck there in the valley:  
-> <sup>5</sup> And the priests the sons of Levi shall come near; for them the LORD thy God hath chosen to minister unto him, and to bless in the name of the LORD; and by their word shall every controversy and every stroke be *tried:*  
-> <sup>6</sup> And all the elders of that city, *that are* next unto the slain *man,* shall wash their hands over the heifer that is beheaded in the valley:  
-> <sup>7</sup> And they shall answer and say, Our hands have not shed this blood, neither have our eyes seen *it.*  
-> <sup>8</sup> Be merciful, O LORD, unto thy people Israel, whom thou hast redeemed, and lay not innocent blood unto thy people of Israel's charge. And the blood shall be forgiven them.  
-> <sup>9</sup> So shalt thou put away the *guilt of* innocent blood from among you, when thou shalt do *that which is* right in the sight of the LORD.  
+> **¹** If *one* be found slain in the land which the LORD thy God giveth thee to possess it, lying in the field, *and* it be not known who hath slain him:  
+> **²** Then thy elders and thy judges shall come forth, and they shall measure unto the cities which *are* round about him that is slain:  
+> **³** And it shall be, *that* the city *which is* next unto the slain man, even the elders of that city shall take a heifer, which hath not been wrought with, *and* which hath not drawn in the yoke;  
+> **⁴** And the elders of that city shall bring down the heifer unto a rough valley, which is neither eared nor sown, and shall strike off the heifer's neck there in the valley:  
+> **⁵** And the priests the sons of Levi shall come near; for them the LORD thy God hath chosen to minister unto him, and to bless in the name of the LORD; and by their word shall every controversy and every stroke be *tried:*  
+> **⁶** And all the elders of that city, *that are* next unto the slain *man,* shall wash their hands over the heifer that is beheaded in the valley:  
+> **⁷** And they shall answer and say, Our hands have not shed this blood, neither have our eyes seen *it.*  
+> **⁸** Be merciful, O LORD, unto thy people Israel, whom thou hast redeemed, and lay not innocent blood unto thy people of Israel's charge. And the blood shall be forgiven them.  
+> **⁹** So shalt thou put away the *guilt of* innocent blood from among you, when thou shalt do *that which is* right in the sight of the LORD.  
 
 Care had been taken by some preceding laws for the vigorous and effectual persecution of a wilful murderer (De 19:11-13, etc.), the putting of whom to death was the putting away of the guilt of blood from the land; but if this could not be done, the murderer not being discovered, they must not think that the land was in no danger of contracting any pollution because it was not through any neglect of theirs that the murderer was unpunished; no, a great solemnity is here provided for the putting away of the guilt, as an expression of their dread and detestation of that sin.
 
@@ -30,11 +30,11 @@ II\. Directions are given concerning what is to be done in this case. Observe,
 
 ## The Case of Captive Women. (b. c. 1451.)
 
-> <sup>10</sup> When thou goest forth to war against thine enemies, and the LORD thy God hath delivered them into thine hands, and thou hast taken them captive,  
-> <sup>11</sup> And seest among the captives a beautiful woman, and hast a desire unto her, that thou wouldest have her to thy wife;  
-> <sup>12</sup> Then thou shalt bring her home to thine house; and she shall shave her head, and pare her nails;  
-> <sup>13</sup> And she shall put the raiment of her captivity from off her, and shall remain in thine house, and bewail her father and her mother a full month: and after that thou shalt go in unto her, and be her husband, and she shall be thy wife.  
-> <sup>14</sup> And it shall be, if thou have no delight in her, then thou shalt let her go whither she will; but thou shalt not sell her at all for money, thou shalt not make merchandise of her, because thou hast humbled her.  
+> **¹⁰** When thou goest forth to war against thine enemies, and the LORD thy God hath delivered them into thine hands, and thou hast taken them captive,  
+> **¹¹** And seest among the captives a beautiful woman, and hast a desire unto her, that thou wouldest have her to thy wife;  
+> **¹²** Then thou shalt bring her home to thine house; and she shall shave her head, and pare her nails;  
+> **¹³** And she shall put the raiment of her captivity from off her, and shall remain in thine house, and bewail her father and her mother a full month: and after that thou shalt go in unto her, and be her husband, and she shall be thy wife.  
+> **¹⁴** And it shall be, if thou have no delight in her, then thou shalt let her go whither she will; but thou shalt not sell her at all for money, thou shalt not make merchandise of her, because thou hast humbled her.  
 
 By this law a soldier is allowed to marry his captive if he pleased. For the hardness of their hearts Moses gave them this permission, lest, if they had not had liberty given them to marry such, they should have taken liberty to defile themselves with them, and by such wickedness the camp would have been troubled. The man is supposed to have a wife already, and to take this wife for a secondary wife, as the Jews called them. This indulgence of men's inordinate desires, in which their hearts walked after their eyes, is by no means agreeable to the law of Christ, which therefore in this respect, among others, far exceeds in glory the law of Moses. The gospel permits not him that has one wife to take another, for *from the beginning it was not so.* The gospel forbids looking upon a woman, though a beautiful one, to lust after her, and commands the mortifying and denying of all irregular desires, though it be as uneasy as the cutting off of a right hand; so much does our holy religion, more than that of the Jews, advance the honour and support the dominion of the soul over the body, the spirit over the flesh, consonant to the glorious discovery it makes of life and immortality, and the better hope.
 
@@ -46,9 +46,9 @@ II\. That they should not abuse the poor captive. 1. She must have time to *bewa
 
 ## The Right of the Firstborn. (b. c. 1451.)
 
-> <sup>15</sup> If a man have two wives, one beloved, and another hated, and they have born him children, *both* the beloved and the hated; and *if* the firstborn son be hers that was hated:  
-> <sup>16</sup> Then it shall be, when he maketh his sons to inherit *that* which he hath, *that* he may not make the son of the beloved firstborn before the son of the hated, *which is indeed* the firstborn:  
-> <sup>17</sup> But he shall acknowledge the son of the hated *for* the firstborn, by giving him a double portion of all that he hath: for he *is* the beginning of his strength; the right of the firstborn *is* his.  
+> **¹⁵** If a man have two wives, one beloved, and another hated, and they have born him children, *both* the beloved and the hated; and *if* the firstborn son be hers that was hated:  
+> **¹⁶** Then it shall be, when he maketh his sons to inherit *that* which he hath, *that* he may not make the son of the beloved firstborn before the son of the hated, *which is indeed* the firstborn:  
+> **¹⁷** But he shall acknowledge the son of the hated *for* the firstborn, by giving him a double portion of all that he hath: for he *is* the beginning of his strength; the right of the firstborn *is* his.  
 
 This law restrains men from disinheriting their eldest sons out of mere caprice, and without just provocation.
 
@@ -58,12 +58,12 @@ II\. The law in this case is still binding on parents; they must give their chil
 
 ## Punishment of a Rebellious Son; Burial of Malefactors. (b. c. 1451.)
 
-> <sup>18</sup> If a man have a stubborn and rebellious son, which will not obey the voice of his father, or the voice of his mother, and *that,* when they have chastened him, will not hearken unto them:  
-> <sup>19</sup> Then shall his father and his mother lay hold on him, and bring him out unto the elders of his city, and unto the gate of his place;  
-> <sup>20</sup> And they shall say unto the elders of his city, This our son *is* stubborn and rebellious, he will not obey our voice; *he is* a glutton, and a drunkard.  
-> <sup>21</sup> And all the men of his city shall stone him with stones, that he die: so shalt thou put evil away from among you; and all Israel shall hear, and fear.  
-> <sup>22</sup> And if a man have committed a sin worthy of death, and he be to be put to death, and thou hang him on a tree:  
-> <sup>23</sup> His body shall not remain all night upon the tree, but thou shalt in any wise bury him that day; (for he that is hanged *is* accursed of God;) that thy land be not defiled, which the LORD thy God giveth thee *for* an inheritance.  
+> **¹⁸** If a man have a stubborn and rebellious son, which will not obey the voice of his father, or the voice of his mother, and *that,* when they have chastened him, will not hearken unto them:  
+> **¹⁹** Then shall his father and his mother lay hold on him, and bring him out unto the elders of his city, and unto the gate of his place;  
+> **²⁰** And they shall say unto the elders of his city, This our son *is* stubborn and rebellious, he will not obey our voice; *he is* a glutton, and a drunkard.  
+> **²¹** And all the men of his city shall stone him with stones, that he die: so shalt thou put evil away from among you; and all Israel shall hear, and fear.  
+> **²²** And if a man have committed a sin worthy of death, and he be to be put to death, and thou hang him on a tree:  
+> **²³** His body shall not remain all night upon the tree, but thou shalt in any wise bury him that day; (for he that is hanged *is* accursed of God;) that thy land be not defiled, which the LORD thy God giveth thee *for* an inheritance.  
 
 Here is, I. A law for the punishing of a rebellious son. Having in the former law provided that parents should not deprive their children of their right, it was fit that it should next be provided that children withdraw not the honour and duty which are owing to their parents, for there is no partiality in the divine law. Observe,
 

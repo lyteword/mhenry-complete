@@ -8,12 +8,12 @@ We are now to attend the second banquet to which the king and Haman were invited
 
 ## Haman Accused by Esther. (b. c. 510.)
 
-> <sup>1</sup> So the king and Haman came to banquet with Esther the queen.  
-> <sup>2</sup> And the king said again unto Esther on the second day at the banquet of wine, What *is* thy petition, queen Esther? and it shall be granted thee: and what *is* thy request? and it shall be performed, *even* to the half of the kingdom.  
-> <sup>3</sup> Then Esther the queen answered and said, If I have found favour in thy sight, O king, and if it please the king, let my life be given me at my petition, and my people at my request:  
-> <sup>4</sup> For we are sold, I and my people, to be destroyed, to be slain, and to perish. But if we had been sold for bondmen and bondwomen, I had held my tongue, although the enemy could not countervail the king's damage.  
-> <sup>5</sup> Then the king Ahasuerus answered and said unto Esther the queen, Who is he, and where is he, that durst presume in his heart to do so?  
-> <sup>6</sup> And Esther said, The adversary and enemy *is* this wicked Haman. Then Haman was afraid before the king and the queen.  
+> **¹** So the king and Haman came to banquet with Esther the queen.  
+> **²** And the king said again unto Esther on the second day at the banquet of wine, What *is* thy petition, queen Esther? and it shall be granted thee: and what *is* thy request? and it shall be performed, *even* to the half of the kingdom.  
+> **³** Then Esther the queen answered and said, If I have found favour in thy sight, O king, and if it please the king, let my life be given me at my petition, and my people at my request:  
+> **⁴** For we are sold, I and my people, to be destroyed, to be slain, and to perish. But if we had been sold for bondmen and bondwomen, I had held my tongue, although the enemy could not countervail the king's damage.  
+> **⁵** Then the king Ahasuerus answered and said unto Esther the queen, Who is he, and where is he, that durst presume in his heart to do so?  
+> **⁶** And Esther said, The adversary and enemy *is* this wicked Haman. Then Haman was afraid before the king and the queen.  
 
 The king in humour, and Haman out of humour, meet at Esther's table. Now,
 
@@ -33,10 +33,10 @@ V\. Haman is soon apprehensive of his danger: *He was afraid before the king and
 
 ## The King Incensed Against Haman; Haman Hanged upon His Own Gallows. (b. c. 510.)
 
-> <sup>7</sup> And the king arising from the banquet of wine in his wrath *went* into the palace garden: and Haman stood up to make request for his life to Esther the queen; for he saw that there was evil determined against him by the king.  
-> <sup>8</sup> Then the king returned out of the palace garden into the place of the banquet of wine; and Haman was fallen upon the bed whereon Esther *was.* Then said the king, Will he force the queen also before me in the house? As the word went out of the king's mouth, they covered Haman's face.  
-> <sup>9</sup> And Harbonah, one of the chamberlains, said before the king, Behold also, the gallows fifty cubits high, which Haman had made for Mordecai, who had spoken good for the king, standeth in the house of Haman. Then the king said, Hang him thereon.  
-> <sup>10</sup> So they hanged Haman on the gallows that he had prepared for Mordecai. Then was the king's wrath pacified.  
+> **⁷** And the king arising from the banquet of wine in his wrath *went* into the palace garden: and Haman stood up to make request for his life to Esther the queen; for he saw that there was evil determined against him by the king.  
+> **⁸** Then the king returned out of the palace garden into the place of the banquet of wine; and Haman was fallen upon the bed whereon Esther *was.* Then said the king, Will he force the queen also before me in the house? As the word went out of the king's mouth, they covered Haman's face.  
+> **⁹** And Harbonah, one of the chamberlains, said before the king, Behold also, the gallows fifty cubits high, which Haman had made for Mordecai, who had spoken good for the king, standeth in the house of Haman. Then the king said, Hang him thereon.  
+> **¹⁰** So they hanged Haman on the gallows that he had prepared for Mordecai. Then was the king's wrath pacified.  
 
 Here, I. The king retires in anger. He rose from table in a great passion, and *went into the palace garden* to cool himself and to consider what was to be done, Es 7:7. He sent not for his *seven wise counsellors who knew the times,* being ashamed to consult them about the undoing of that which he had rashly done without their knowledge or advice; but he went to walk in the garden awhile, to compare in his thoughts what Esther had now informed him of with what had formerly passed between him and Haman. And we may suppose him, 1. Vexed at himself, that he should be such a fool as to doom a guiltless nation to destruction, and his own queen among the rest, upon the base suggestions of a self-seeking man, without examining the truth of his allegations. Those that do things with self-will reflect upon them afterwards with self-reproach. 2. Vexed at Haman whom he had laid in his bosom, that he should be such a villain as to abuse his interest in him to draw him to consent to so wicked a measure. When he saw himself betrayed by one he had caressed he was full of indignation at him; yet he would say nothing till he had taken time for second thoughts, to see whether they would make the matter better or worse than it first appeared, that he might proceed accordingly. When we are angry we should pause awhile before we come to any resolution, as those that have *a rule over our own spirits* and are governed by reason.
 

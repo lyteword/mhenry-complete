@@ -8,15 +8,15 @@ Perhaps, in reading some of the foregoing chapters, we may have been tempted to 
 
 ## Proverb of the Sour Grapes; Reply to the Sour Grapes; Divine Judgments Vindicated. (b. c. 593.)
 
-> <sup>1</sup> The word of the LORD came unto me again, saying,  
-> <sup>2</sup> What mean ye, that ye use this proverb concerning the land of Israel, saying, The fathers have eaten sour grapes, and the children's teeth are set on edge?  
-> <sup>3</sup> *As* I live, saith the Lord GOD, ye shall not have *occasion* any more to use this proverb in Israel.  
-> <sup>4</sup> Behold, all souls are mine; as the soul of the father, so also the soul of the son is mine: the soul that sinneth, it shall die.  
-> <sup>5</sup> But if a man be just, and do that which is lawful and right,  
-> <sup>6</sup> *And* hath not eaten upon the mountains, neither hath lifted up his eyes to the idols of the house of Israel, neither hath defiled his neighbour's wife, neither hath come near to a menstruous woman,  
-> <sup>7</sup> And hath not oppressed any, *but* hath restored to the debtor his pledge, hath spoiled none by violence, hath given his bread to the hungry, and hath covered the naked with a garment;  
-> <sup>8</sup> He *that* hath not given forth upon usury, neither hath taken any increase, *that* hath withdrawn his hand from iniquity, hath executed true judgment between man and man,  
-> <sup>9</sup> Hath walked in my statutes, and hath kept my judgments, to deal truly; he *is* just, he shall surely live, saith the Lord GOD.  
+> **¹** The word of the LORD came unto me again, saying,  
+> **²** What mean ye, that ye use this proverb concerning the land of Israel, saying, The fathers have eaten sour grapes, and the children's teeth are set on edge?  
+> **³** *As* I live, saith the Lord GOD, ye shall not have *occasion* any more to use this proverb in Israel.  
+> **⁴** Behold, all souls are mine; as the soul of the father, so also the soul of the son is mine: the soul that sinneth, it shall die.  
+> **⁵** But if a man be just, and do that which is lawful and right,  
+> **⁶** *And* hath not eaten upon the mountains, neither hath lifted up his eyes to the idols of the house of Israel, neither hath defiled his neighbour's wife, neither hath come near to a menstruous woman,  
+> **⁷** And hath not oppressed any, *but* hath restored to the debtor his pledge, hath spoiled none by violence, hath given his bread to the hungry, and hath covered the naked with a garment;  
+> **⁸** He *that* hath not given forth upon usury, neither hath taken any increase, *that* hath withdrawn his hand from iniquity, hath executed true judgment between man and man,  
+> **⁹** Hath walked in my statutes, and hath kept my judgments, to deal truly; he *is* just, he shall surely live, saith the Lord GOD.  
 
 Evil manners, we say, beget good laws; and in like manner sometimes unjust reflections occasion just vindications; evil proverbs beget good prophecies. Here is,
 
@@ -38,17 +38,17 @@ II\. A just reproof of, and reply to, this proverb: *What mean you* by using it?
 
 ## The Ways of God Justified; God's Vindication of Himself. (b. c. 593.)
 
-> <sup>10</sup> If he beget a son *that is* a robber, a shedder of blood, and *that* doeth the like to *any* one of these *things,*  
-> <sup>11</sup> And that doeth not any of those *duties,* but even hath eaten upon the mountains, and defiled his neighbour's wife,  
-> <sup>12</sup> Hath oppressed the poor and needy, hath spoiled by violence, hath not restored the pledge, and hath lifted up his eyes to the idols, hath committed abomination,  
-> <sup>13</sup> Hath given forth upon usury, and hath taken increase: shall he then live? he shall not live: he hath done all these abominations; he shall surely die; his blood shall be upon him.  
-> <sup>14</sup> Now, lo, *if* he beget a son, that seeth all his father's sins which he hath done, and considereth, and doeth not such like,  
-> <sup>15</sup> *That* hath not eaten upon the mountains, neither hath lifted up his eyes to the idols of the house of Israel, hath not defiled his neighbour's wife,  
-> <sup>16</sup> Neither hath oppressed any, hath not withholden the pledge, neither hath spoiled by violence, *but* hath given his bread to the hungry, and hath covered the naked with a garment,  
-> <sup>17</sup> *That* hath taken off his hand from the poor, *that* hath not received usury nor increase, hath executed my judgments, hath walked in my statutes; he shall not die for the iniquity of his father, he shall surely live.  
-> <sup>18</sup> *As for* his father, because he cruelly oppressed, spoiled his brother by violence, and did *that* which *is* not good among his people, lo, even he shall die in his iniquity.  
-> <sup>19</sup> Yet say ye, Why? doth not the son bear the iniquity of the father? When the son hath done that which is lawful and right, *and* hath kept all my statutes, and hath done them, he shall surely live.  
-> <sup>20</sup> The soul that sinneth, it shall die. The son shall not bear the iniquity of the father, neither shall the father bear the iniquity of the son: the righteousness of the righteous shall be upon him, and the wickedness of the wicked shall be upon him.  
+> **¹⁰** If he beget a son *that is* a robber, a shedder of blood, and *that* doeth the like to *any* one of these *things,*  
+> **¹¹** And that doeth not any of those *duties,* but even hath eaten upon the mountains, and defiled his neighbour's wife,  
+> **¹²** Hath oppressed the poor and needy, hath spoiled by violence, hath not restored the pledge, and hath lifted up his eyes to the idols, hath committed abomination,  
+> **¹³** Hath given forth upon usury, and hath taken increase: shall he then live? he shall not live: he hath done all these abominations; he shall surely die; his blood shall be upon him.  
+> **¹⁴** Now, lo, *if* he beget a son, that seeth all his father's sins which he hath done, and considereth, and doeth not such like,  
+> **¹⁵** *That* hath not eaten upon the mountains, neither hath lifted up his eyes to the idols of the house of Israel, hath not defiled his neighbour's wife,  
+> **¹⁶** Neither hath oppressed any, hath not withholden the pledge, neither hath spoiled by violence, *but* hath given his bread to the hungry, and hath covered the naked with a garment,  
+> **¹⁷** *That* hath taken off his hand from the poor, *that* hath not received usury nor increase, hath executed my judgments, hath walked in my statutes; he shall not die for the iniquity of his father, he shall surely live.  
+> **¹⁸** *As for* his father, because he cruelly oppressed, spoiled his brother by violence, and did *that* which *is* not good among his people, lo, even he shall die in his iniquity.  
+> **¹⁹** Yet say ye, Why? doth not the son bear the iniquity of the father? When the son hath done that which is lawful and right, *and* hath kept all my statutes, and hath done them, he shall surely live.  
+> **²⁰** The soul that sinneth, it shall die. The son shall not bear the iniquity of the father, neither shall the father bear the iniquity of the son: the righteousness of the righteous shall be upon him, and the wickedness of the wicked shall be upon him.  
 
 God, by the prophet, having laid down the general rule of judgment, that he will render eternal life to those that *patiently continue in well-doing,* but indignation and wrath to those that do not *obey the truth,* but *obey unrighteousness* (Ro 2:7,8), comes, in these verses, to show that men's parentage and relation shall not alter the case either one way or other.
 
@@ -62,15 +62,15 @@ II\. He appeals to themselves then whether they did not wrong God with their pro
 
 ## Encouragement to Repentance. (b. c. 593.)
 
-> <sup>21</sup> But if the wicked will turn from all his sins that he hath committed, and keep all my statutes, and do that which is lawful and right, he shall surely live, he shall not die.  
-> <sup>22</sup> All his transgressions that he hath committed, they shall not be mentioned unto him: in his righteousness that he hath done he shall live.  
-> <sup>23</sup> Have I any pleasure at all that the wicked should die? saith the Lord GOD: *and* not that he should return from his ways, and live?  
-> <sup>24</sup> But when the righteous turneth away from his righteousness, and committeth iniquity, *and* doeth according to all the abominations that the wicked *man* doeth, shall he live? All his righteousness that he hath done shall not be mentioned: in his trespass that he hath trespassed, and in his sin that he hath sinned, in them shall he die.  
-> <sup>25</sup> Yet ye say, The way of the Lord is not equal. Hear now, O house of Israel; Is not my way equal? are not your ways unequal?  
-> <sup>26</sup> When a righteous *man* turneth away from his righteousness, and committeth iniquity, and dieth in them; for his iniquity that he hath done shall he die.  
-> <sup>27</sup> Again, when the wicked *man* turneth away from his wickedness that he hath committed, and doeth that which is lawful and right, he shall save his soul alive.  
-> <sup>28</sup> Because he considereth, and turneth away from all his transgressions that he hath committed, he shall surely live, he shall not die.  
-> <sup>29</sup> Yet saith the house of Israel, The way of the Lord is not equal. O house of Israel, are not my ways equal? are not your ways unequal?  
+> **²¹** But if the wicked will turn from all his sins that he hath committed, and keep all my statutes, and do that which is lawful and right, he shall surely live, he shall not die.  
+> **²²** All his transgressions that he hath committed, they shall not be mentioned unto him: in his righteousness that he hath done he shall live.  
+> **²³** Have I any pleasure at all that the wicked should die? saith the Lord GOD: *and* not that he should return from his ways, and live?  
+> **²⁴** But when the righteous turneth away from his righteousness, and committeth iniquity, *and* doeth according to all the abominations that the wicked *man* doeth, shall he live? All his righteousness that he hath done shall not be mentioned: in his trespass that he hath trespassed, and in his sin that he hath sinned, in them shall he die.  
+> **²⁵** Yet ye say, The way of the Lord is not equal. Hear now, O house of Israel; Is not my way equal? are not your ways unequal?  
+> **²⁶** When a righteous *man* turneth away from his righteousness, and committeth iniquity, and dieth in them; for his iniquity that he hath done shall he die.  
+> **²⁷** Again, when the wicked *man* turneth away from his wickedness that he hath committed, and doeth that which is lawful and right, he shall save his soul alive.  
+> **²⁸** Because he considereth, and turneth away from all his transgressions that he hath committed, he shall surely live, he shall not die.  
+> **²⁹** Yet saith the house of Israel, The way of the Lord is not equal. O house of Israel, are not my ways equal? are not your ways unequal?  
 
 We have here another rule of judgment which God will go by in dealing with us, by which is further demonstrated the equity of his government. The former showed that God will reward or punish according to the change made in the family or succession, for the better or for the worse; here he shows that he will reward or punish according to the change made in the person himself, whether for the better or the worse. While we are in this world we are in a state of probation; the time of trial lasts as long as the time of life, and according as we are found at last it will be with us to eternity. Now see here,
 
@@ -90,9 +90,9 @@ II\. An appeal to the consciences even of the house of Israel, though very corru
 
 ## Warning against Apostasy. (b. c. 593.)
 
-> <sup>30</sup> Therefore I will judge you, O house of Israel, every one according to his ways, saith the Lord GOD. Repent, and turn *yourselves* from all your transgressions; so iniquity shall not be your ruin.  
-> <sup>31</sup> Cast away from you all your transgressions, whereby ye have transgressed; and make you a new heart and a new spirit: for why will ye die, O house of Israel?  
-> <sup>32</sup> For I have no pleasure in the death of him that dieth, saith the Lord GOD: wherefore turn *yourselves,* and live ye.  
+> **³⁰** Therefore I will judge you, O house of Israel, every one according to his ways, saith the Lord GOD. Repent, and turn *yourselves* from all your transgressions; so iniquity shall not be your ruin.  
+> **³¹** Cast away from you all your transgressions, whereby ye have transgressed; and make you a new heart and a new spirit: for why will ye die, O house of Israel?  
+> **³²** For I have no pleasure in the death of him that dieth, saith the Lord GOD: wherefore turn *yourselves,* and live ye.  
 
 We have here the conclusion and application of this whole matter. After a fair trial at the bar of right reason the verdict is brought in on God's side; it appears that *his ways are equal.* Judgment therefore is next to be given; and one would think it should be a judgment of condemnation, nothing short of *Go, you cursed, into everlasting fire.* But, behold, a miracle of mercy; the day of grace and divine patience is yet lengthened out; and therefore, though God will at last judge *every one according to his ways,* yet he waits to be gracious, and closes all with a call to repentance and a promise of pardon upon repentance.
 

@@ -8,42 +8,42 @@ Solomon here continues to appear great both at home and abroad. We had this acco
 
 ## The Queen of Sheba Visit Solomon. (b. c. 992.)
 
-> <sup>1</sup> And when the queen of Sheba heard of the fame of Solomon, she came to prove Solomon with hard questions at Jerusalem, with a very great company, and camels that bare spices, and gold in abundance, and precious stones: and when she was come to Solomon, she communed with him of all that was in her heart.  
-> <sup>2</sup> And Solomon told her all her questions: and there was nothing hid from Solomon which he told her not.  
-> <sup>3</sup> And when the queen of Sheba had seen the wisdom of Solomon, and the house that he had built,  
-> <sup>4</sup> And the meat of his table, and the sitting of his servants, and the attendance of his ministers, and their apparel; his cupbearers also, and their apparel; and his ascent by which he went up into the house of the LORD; there was no more spirit in her.  
-> <sup>5</sup> And she said to the king, *It was* a true report which I heard in mine own land of thine acts, and of thy wisdom:  
-> <sup>6</sup> Howbeit I believed not their words, until I came, and mine eyes had seen *it:* and, behold, the one half of the greatness of thy wisdom was not told me: *for* thou exceedest the fame that I heard.  
-> <sup>7</sup> Happy *are* thy men, and happy *are* these thy servants, which stand continually before thee, and hear thy wisdom.  
-> <sup>8</sup> Blessed be the LORD thy God, which delighted in thee to set thee on his throne, *to be* king for the LORD thy God: because thy God loved Israel, to establish them for ever, therefore made he thee king over them, to do judgment and justice.  
-> <sup>9</sup> And she gave the king a hundred and twenty talents of gold, and of spices great abundance, and precious stones: neither was there any such spice as the queen of Sheba gave king Solomon.  
-> <sup>10</sup> And the servants also of Huram, and the servants of Solomon, which brought gold from Ophir, brought algum trees and precious stones.  
-> <sup>11</sup> And the king made *of* the algum trees terraces to the house of the LORD, and to the king's palace, and harps and psalteries for singers: and there were none such seen before in the land of Judah.  
-> <sup>12</sup> And king Solomon gave to the queen of Sheba all her desire, whatsoever she asked, beside *that* which she had brought unto the king. So she turned, and went away to her own land, she and her servants.  
+> **¹** And when the queen of Sheba heard of the fame of Solomon, she came to prove Solomon with hard questions at Jerusalem, with a very great company, and camels that bare spices, and gold in abundance, and precious stones: and when she was come to Solomon, she communed with him of all that was in her heart.  
+> **²** And Solomon told her all her questions: and there was nothing hid from Solomon which he told her not.  
+> **³** And when the queen of Sheba had seen the wisdom of Solomon, and the house that he had built,  
+> **⁴** And the meat of his table, and the sitting of his servants, and the attendance of his ministers, and their apparel; his cupbearers also, and their apparel; and his ascent by which he went up into the house of the LORD; there was no more spirit in her.  
+> **⁵** And she said to the king, *It was* a true report which I heard in mine own land of thine acts, and of thy wisdom:  
+> **⁶** Howbeit I believed not their words, until I came, and mine eyes had seen *it:* and, behold, the one half of the greatness of thy wisdom was not told me: *for* thou exceedest the fame that I heard.  
+> **⁷** Happy *are* thy men, and happy *are* these thy servants, which stand continually before thee, and hear thy wisdom.  
+> **⁸** Blessed be the LORD thy God, which delighted in thee to set thee on his throne, *to be* king for the LORD thy God: because thy God loved Israel, to establish them for ever, therefore made he thee king over them, to do judgment and justice.  
+> **⁹** And she gave the king a hundred and twenty talents of gold, and of spices great abundance, and precious stones: neither was there any such spice as the queen of Sheba gave king Solomon.  
+> **¹⁰** And the servants also of Huram, and the servants of Solomon, which brought gold from Ophir, brought algum trees and precious stones.  
+> **¹¹** And the king made *of* the algum trees terraces to the house of the LORD, and to the king's palace, and harps and psalteries for singers: and there were none such seen before in the land of Judah.  
+> **¹²** And king Solomon gave to the queen of Sheba all her desire, whatsoever she asked, beside *that* which she had brought unto the king. So she turned, and went away to her own land, she and her servants.  
 
 This passage of story had been largely considered in the Kings; yet, because our Saviour has proposed it as an example to us in our enquiries after him (Mt 12:42), we must not pass it over without observing briefly, 1. *Those who honour God he will honour,* 1Sa 2:30. Solomon had greatly honoured God, in building, beautifying, and dedicating the temple; all his wisdom and all his wealth were employed for the making of that a consummate piece: and now God made his wisdom and wealth to redound greatly to his reputation. The way to have both the credit and comfort of all our endowments and all our enjoyments is to consecrate them to God and use them for him. 2. Those who know the worth of true wisdom will grudge no pains nor cost to obtain it. The queen of Sheba put herself to a great deal of trouble and expense to hear the wisdom of Solomon; and yet, learning from him to serve God and do her duty, she thought herself well paid for her pains. Heavenly wisdom is that *pearl of great price* which is a good bargain to purchase by parting with all that we have. 3. As every man has received the gift so he ought to minister the same for the edification of others, as he has opportunity. Solomon was communicative of his wisdom and willing to teach others what he knew himself. Being taught of God, freely he had received, and freely he gave. Let those that are rich in wisdom, as well as wealth, learn *to do good* and *be ready to distribute. Give to every one that asketh.* 4. Good order in a family, a great family, especially in the things of God, and a regular discharge of the duties of religious worship, are highly expedient, and to be much admired wherever found. The queen of Sheba was exceedingly affected to see the propriety with which Solomon's servants attended him and with which both he and they attended in the house of God. David's ascent to the house of the Lord was also pleasant and interesting, Ps 42:4. 5. Those are happy who have the opportunity of a constant converse with such as are knowing, wise, and good. The queen of Sheba thought Solomon's servants happy who continually *heard his wisdom;* for, it seems, even to them he was communicative. And it is observable that the posterity of those who had places in his court were willing to have the names of their ancestors forgotten, and thought themselves sufficiently distinguished and dignified when they were called the *children of Solomon's servants* (Ezr 2:55, Ne 7:57); so eminent were they that it was honour enough to be named from them. 6. We ought to rejoice and give God thanks for the gifts, graces, and usefulness, of others. The queen of Sheba blessed God for the honour he put upon Solomon, and the favour he did to Israel, in advancing him to the throne, 2Ch 9:8. By giving God the praise of the prosperity of others, we share in the comfort of it; whereas, by envying the prosperity of others, we lose the comfort even of our own. The happiness of both king and kingdom she traces up to the fountain of all bliss, the divine favour: it was because *thy God delighted in thee* and because he *loved Israel.* Those mercies are doubly sweet in which we can taste the kindness and good will of God as our God. 7. It becomes those that are wise and good to be generous according to their place and power. The queen of Sheba was so to Solomon, Solomon was so to her, 2Ch 9:9,12. They both knew how to value wisdom, and therefore were neither of them covetous of their money, but cultivated the acquaintance and confirmed the friendship they had contracted by mutual presents. Our Lord Jesus has promised to give us all our desire: *Ask, and it shall be given you.* Let us study what we shall render to him, and not think any thing too much to do, or suffer, or part with, for him.
 
 ## The Magnificence of Solomon; the Death of Solomon. (b. c. 975.)
 
-> <sup>13</sup> Now the weight of gold that came to Solomon in one year was six hundred and threescore and six talents of gold;  
-> <sup>14</sup> Beside *that which* chapmen and merchants brought. And all the kings of Arabia and governors of the country brought gold and silver to Solomon.  
-> <sup>15</sup> And king Solomon made two hundred targets *of* beaten gold: six hundred *shekels* of beaten gold went to one target.  
-> <sup>16</sup> And three hundred shields *made he of* beaten gold: three hundred *shekels* of gold went to one shield. And the king put them in the house of the forest of Lebanon.  
-> <sup>17</sup> Moreover the king made a great throne of ivory, and overlaid it with pure gold.  
-> <sup>18</sup> And *there were* six steps to the throne, with a footstool of gold, *which were* fastened to the throne, and stays on each side of the sitting place, and two lions standing by the stays:  
-> <sup>19</sup> And twelve lions stood there on the one side and on the other upon the six steps. There was not the like made in any kingdom.  
-> <sup>20</sup> And all the drinking vessels of king Solomon *were of* gold, and all the vessels of the house of the forest of Lebanon *were of* pure gold: none *were of* silver; it was *not* any thing accounted of in the days of Solomon.  
-> <sup>21</sup> For the king's ships went to Tarshish with the servants of Huram: every three years once came the ships of Tarshish bringing gold, and silver, ivory, and apes, and peacocks.  
-> <sup>22</sup> And king Solomon passed all the kings of the earth in riches and wisdom.  
-> <sup>23</sup> And all the kings of the earth sought the presence of Solomon, to hear his wisdom, that God had put in his heart.  
-> <sup>24</sup> And they brought every man his present, vessels of silver, and vessels of gold, and raiment, harness, and spices, horses, and mules, a rate year by year.  
-> <sup>25</sup> And Solomon had four thousand stalls for horses and chariots, and twelve thousand horsemen; whom he bestowed in the chariot cities, and with the king at Jerusalem.  
-> <sup>26</sup> And he reigned over all the kings from the river even unto the land of the Philistines, and to the border of Egypt.  
-> <sup>27</sup> And the king made silver in Jerusalem as stones, and cedar trees made he as the sycamore trees that *are* in the low plains in abundance.  
-> <sup>28</sup> And they brought unto Solomon horses out of Egypt, and out of all lands.  
-> <sup>29</sup> Now the rest of the acts of Solomon, first and last, *are* they not written in the book of Nathan the prophet, and in the prophecy of Ahijah the Shilonite, and in the visions of Iddo the seer against Jeroboam the son of Nebat?  
-> <sup>30</sup> And Solomon reigned in Jerusalem over all Israel forty years.  
-> <sup>31</sup> And Solomon slept with his fathers, and he was buried in the city of David his father: and Rehoboam his son reigned in his stead.  
+> **¹³** Now the weight of gold that came to Solomon in one year was six hundred and threescore and six talents of gold;  
+> **¹⁴** Beside *that which* chapmen and merchants brought. And all the kings of Arabia and governors of the country brought gold and silver to Solomon.  
+> **¹⁵** And king Solomon made two hundred targets *of* beaten gold: six hundred *shekels* of beaten gold went to one target.  
+> **¹⁶** And three hundred shields *made he of* beaten gold: three hundred *shekels* of gold went to one shield. And the king put them in the house of the forest of Lebanon.  
+> **¹⁷** Moreover the king made a great throne of ivory, and overlaid it with pure gold.  
+> **¹⁸** And *there were* six steps to the throne, with a footstool of gold, *which were* fastened to the throne, and stays on each side of the sitting place, and two lions standing by the stays:  
+> **¹⁹** And twelve lions stood there on the one side and on the other upon the six steps. There was not the like made in any kingdom.  
+> **²⁰** And all the drinking vessels of king Solomon *were of* gold, and all the vessels of the house of the forest of Lebanon *were of* pure gold: none *were of* silver; it was *not* any thing accounted of in the days of Solomon.  
+> **²¹** For the king's ships went to Tarshish with the servants of Huram: every three years once came the ships of Tarshish bringing gold, and silver, ivory, and apes, and peacocks.  
+> **²²** And king Solomon passed all the kings of the earth in riches and wisdom.  
+> **²³** And all the kings of the earth sought the presence of Solomon, to hear his wisdom, that God had put in his heart.  
+> **²⁴** And they brought every man his present, vessels of silver, and vessels of gold, and raiment, harness, and spices, horses, and mules, a rate year by year.  
+> **²⁵** And Solomon had four thousand stalls for horses and chariots, and twelve thousand horsemen; whom he bestowed in the chariot cities, and with the king at Jerusalem.  
+> **²⁶** And he reigned over all the kings from the river even unto the land of the Philistines, and to the border of Egypt.  
+> **²⁷** And the king made silver in Jerusalem as stones, and cedar trees made he as the sycamore trees that *are* in the low plains in abundance.  
+> **²⁸** And they brought unto Solomon horses out of Egypt, and out of all lands.  
+> **²⁹** Now the rest of the acts of Solomon, first and last, *are* they not written in the book of Nathan the prophet, and in the prophecy of Ahijah the Shilonite, and in the visions of Iddo the seer against Jeroboam the son of Nebat?  
+> **³⁰** And Solomon reigned in Jerusalem over all Israel forty years.  
+> **³¹** And Solomon slept with his fathers, and he was buried in the city of David his father: and Rehoboam his son reigned in his stead.  
 
 We have here Solomon in his throne, and Solomon in his grave; for the throne would not secure him from the grave. *Mors sceptra ligonibus aequat*—*Death wrenches from the hand the sceptre as well as the spade.*
 

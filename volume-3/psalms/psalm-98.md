@@ -10,9 +10,9 @@ This psalm is to the same purport with the Ps 96:1-13, Ps 97:1-12; it is a proph
 
 A psalm.
 
-> <sup>1</sup> O sing unto the LORD a new song; for he hath done marvellous things: his right hand, and his holy arm, hath gotten him the victory.  
-> <sup>2</sup> The LORD hath made known his salvation: his righteousness hath he openly showed in the sight of the heathen.  
-> <sup>3</sup> He hath remembered his mercy and his truth toward the house of Israel: all the ends of the earth have seen the salvation of our God.  
+> **¹** O sing unto the LORD a new song; for he hath done marvellous things: his right hand, and his holy arm, hath gotten him the victory.  
+> **²** The LORD hath made known his salvation: his righteousness hath he openly showed in the sight of the heathen.  
+> **³** He hath remembered his mercy and his truth toward the house of Israel: all the ends of the earth have seen the salvation of our God.  
 
 We are here called upon again to *sing unto the Lord a new song,* as before, Ps 96:1. "Sing a most excellent song, the best song you have." Let the song of Christ's love be like Solomon's on that subject, a *song of songs.* A song of praise for redeeming love is a *new song,* such a song as had not been sung before; for this is a mystery which was hidden from ages and generations. Converts sing a *new song,* very different from what they had sung; they change their wonder and change their joy, and therefore change their note. If the grace of God put a new heart into our breasts, it will therewith put a new song into our mouths. In the new Jerusalem there will be new songs sung, that will be new to eternity, and never wax old. Let this new song be sung to the praise of God, in consideration of these four things:—
 
@@ -26,12 +26,12 @@ IV\. The accomplishment of the prophecies and promises of the Old Testament, in 
 
 ## An Invitation to Praise.
 
-> <sup>4</sup> Make a joyful noise unto the LORD, all the earth: make a loud noise, and rejoice, and sing praise.  
-> <sup>5</sup> Sing unto the LORD with the harp; with the harp, and the voice of a psalm.  
-> <sup>6</sup> With trumpets and sound of cornet make a joyful noise before the LORD, the King.  
-> <sup>7</sup> Let the sea roar, and the fulness thereof; the world, and they that dwell therein.  
-> <sup>8</sup> Let the floods clap *their* hands: let the hills be joyful together  
-> <sup>9</sup> Before the LORD; for he cometh to judge the earth: with righteousness shall he judge the world, and the people with equity.  
+> **⁴** Make a joyful noise unto the LORD, all the earth: make a loud noise, and rejoice, and sing praise.  
+> **⁵** Sing unto the LORD with the harp; with the harp, and the voice of a psalm.  
+> **⁶** With trumpets and sound of cornet make a joyful noise before the LORD, the King.  
+> **⁷** Let the sea roar, and the fulness thereof; the world, and they that dwell therein.  
+> **⁸** Let the floods clap *their* hands: let the hills be joyful together  
+> **⁹** Before the LORD; for he cometh to judge the earth: with righteousness shall he judge the world, and the people with equity.  
 
 The setting up of the kingdom of Christ is here represented as a matter of joy and praise.
 

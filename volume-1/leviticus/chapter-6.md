@@ -8,13 +8,13 @@ The first seven verses of this chapter might fitly have been added to the forego
 
 ## Law of the Trespass-Offering. (b. c. 1490.)
 
-> <sup>1</sup> And the LORD spake unto Moses, saying,  
-> <sup>2</sup> If a soul sin, and commit a trespass against the LORD, and lie unto his neighbour in that which was delivered him to keep, or in fellowship, or in a thing taken away by violence, or hath deceived his neighbour;  
-> <sup>3</sup> Or have found that which was lost, and lieth concerning it, and sweareth falsely; in any of all these that a man doeth, sinning therein:  
-> <sup>4</sup> Then it shall be, because he hath sinned, and is guilty, that he shall restore that which he took violently away, or the thing which he hath deceitfully gotten, or that which was delivered him to keep, or the lost thing which he found,  
-> <sup>5</sup> Or all that about which he hath sworn falsely; he shall even restore it in the principal, and shall add the fifth part more thereto, *and* give it unto him to whom it appertaineth, in the day of his trespass offering.  
-> <sup>6</sup> And he shall bring his trespass offering unto the LORD, a ram without blemish out of the flock, with thy estimation, for a trespass offering, unto the priest:  
-> <sup>7</sup> And the priest shall make an atonement for him before the LORD: and it shall be forgiven him for any thing of all that he hath done in trespassing therein.  
+> **¹** And the LORD spake unto Moses, saying,  
+> **²** If a soul sin, and commit a trespass against the LORD, and lie unto his neighbour in that which was delivered him to keep, or in fellowship, or in a thing taken away by violence, or hath deceived his neighbour;  
+> **³** Or have found that which was lost, and lieth concerning it, and sweareth falsely; in any of all these that a man doeth, sinning therein:  
+> **⁴** Then it shall be, because he hath sinned, and is guilty, that he shall restore that which he took violently away, or the thing which he hath deceitfully gotten, or that which was delivered him to keep, or the lost thing which he found,  
+> **⁵** Or all that about which he hath sworn falsely; he shall even restore it in the principal, and shall add the fifth part more thereto, *and* give it unto him to whom it appertaineth, in the day of his trespass offering.  
+> **⁶** And he shall bring his trespass offering unto the LORD, a ram without blemish out of the flock, with thy estimation, for a trespass offering, unto the priest:  
+> **⁷** And the priest shall make an atonement for him before the LORD: and it shall be forgiven him for any thing of all that he hath done in trespassing therein.  
 
 This is the latter part of the law of the trespass-offering: the former part, which concerned trespasses about holy things, we had in the close of the foregoing chapter; this concerns trespasses in common things. Observe here,
 
@@ -24,12 +24,12 @@ II\. The trespass-offering appointed. 1. *In the day of his trespass-offering* h
 
 ## Law of the Burnt-Offering. (b. c. 1490.)
 
-> <sup>8</sup> And the LORD spake unto Moses, saying,  
-> <sup>9</sup> Command Aaron and his sons, saying, This *is* the law of the burnt offering: It *is* the burnt offering, because of the burning upon the altar all night unto the morning, and the fire of the altar shall be burning in it.  
-> <sup>10</sup> And the priest shall put on his linen garment, and his linen breeches shall he put upon his flesh, and take up the ashes which the fire hath consumed with the burnt offering on the altar, and he shall put them beside the altar.  
-> <sup>11</sup> And he shall put off his garments, and put on other garments, and carry forth the ashes without the camp unto a clean place.  
-> <sup>12</sup> And the fire upon the altar shall be burning in it; it shall not be put out: and the priest shall burn wood on it every morning, and lay the burnt offering in order upon it; and he shall burn thereon the fat of the peace offerings.  
-> <sup>13</sup> The fire shall ever be burning upon the altar; it shall never go out.  
+> **⁸** And the LORD spake unto Moses, saying,  
+> **⁹** Command Aaron and his sons, saying, This *is* the law of the burnt offering: It *is* the burnt offering, because of the burning upon the altar all night unto the morning, and the fire of the altar shall be burning in it.  
+> **¹⁰** And the priest shall put on his linen garment, and his linen breeches shall he put upon his flesh, and take up the ashes which the fire hath consumed with the burnt offering on the altar, and he shall put them beside the altar.  
+> **¹¹** And he shall put off his garments, and put on other garments, and carry forth the ashes without the camp unto a clean place.  
+> **¹²** And the fire upon the altar shall be burning in it; it shall not be put out: and the priest shall burn wood on it every morning, and lay the burnt offering in order upon it; and he shall burn thereon the fat of the peace offerings.  
+> **¹³** The fire shall ever be burning upon the altar; it shall never go out.  
 
 Hitherto we have had the instructions which Moses was directed to give to the people concerning the sacrifices; but here begin the instructions he was to give to the priests; he must *command Aaron and his sons,* Le 6:9. The priests were rulers in the house of God, but these rulers must be ruled; and those that had the command of others must themselves be commanded. Let ministers remember that not only commissions, but commands, were given to Aaron and his sons, who must be in subjection to them.
 
@@ -41,16 +41,16 @@ II\. The priest must take care of the fire upon the altar, that it be kept *alwa
 
 ## Law of the Meat-Offering. (b. c. 1490.)
 
-> <sup>14</sup> And this *is* the law of the meat offering: the sons of Aaron shall offer it before the LORD, before the altar.  
-> <sup>15</sup> And he shall take of it his handful, of the flour of the meat offering, and of the oil thereof, and all the frankincense which *is* upon the meat offering, and shall burn *it* upon the altar *for* a sweet savour, *even* the memorial of it, unto the LORD.  
-> <sup>16</sup> And the remainder thereof shall Aaron and his sons eat: with unleavened bread shall it be eaten in the holy place; in the court of the tabernacle of the congregation they shall eat it.  
-> <sup>17</sup> It shall not be baken with leaven. I have given it *unto them for* their portion of my offerings made by fire; it *is* most holy, as *is* the sin offering, and as the trespass offering.  
-> <sup>18</sup> All the males among the children of Aaron shall eat of it. *It shall be* a statute for ever in your generations concerning the offerings of the LORD made by fire: every one that toucheth them shall be holy.  
-> <sup>19</sup> And the LORD spake unto Moses, saying,  
-> <sup>20</sup> This *is* the offering of Aaron and of his sons, which they shall offer unto the LORD in the day when he is anointed; the tenth part of an ephah of fine flour for a meat offering perpetual, half of it in the morning, and half thereof at night.  
-> <sup>21</sup> In a pan it shall be made with oil; *and when it is* baken, thou shalt bring it in: *and* the baken pieces of the meat offering shalt thou offer *for* a sweet savour unto the LORD.  
-> <sup>22</sup> And the priest of his sons that is anointed in his stead shall offer it: *it is* a statute for ever unto the LORD; it shall be wholly burnt.  
-> <sup>23</sup> For every meat offering for the priest shall be wholly burnt: it shall not be eaten.  
+> **¹⁴** And this *is* the law of the meat offering: the sons of Aaron shall offer it before the LORD, before the altar.  
+> **¹⁵** And he shall take of it his handful, of the flour of the meat offering, and of the oil thereof, and all the frankincense which *is* upon the meat offering, and shall burn *it* upon the altar *for* a sweet savour, *even* the memorial of it, unto the LORD.  
+> **¹⁶** And the remainder thereof shall Aaron and his sons eat: with unleavened bread shall it be eaten in the holy place; in the court of the tabernacle of the congregation they shall eat it.  
+> **¹⁷** It shall not be baken with leaven. I have given it *unto them for* their portion of my offerings made by fire; it *is* most holy, as *is* the sin offering, and as the trespass offering.  
+> **¹⁸** All the males among the children of Aaron shall eat of it. *It shall be* a statute for ever in your generations concerning the offerings of the LORD made by fire: every one that toucheth them shall be holy.  
+> **¹⁹** And the LORD spake unto Moses, saying,  
+> **²⁰** This *is* the offering of Aaron and of his sons, which they shall offer unto the LORD in the day when he is anointed; the tenth part of an ephah of fine flour for a meat offering perpetual, half of it in the morning, and half thereof at night.  
+> **²¹** In a pan it shall be made with oil; *and when it is* baken, thou shalt bring it in: *and* the baken pieces of the meat offering shalt thou offer *for* a sweet savour unto the LORD.  
+> **²²** And the priest of his sons that is anointed in his stead shall offer it: *it is* a statute for ever unto the LORD; it shall be wholly burnt.  
+> **²³** For every meat offering for the priest shall be wholly burnt: it shall not be eaten.  
 
 The meat-offering was either that which was offered by the people or that by the priests at their consecration. Now,
 
@@ -64,13 +64,13 @@ II\. As to the consecration meat-offering, which was offered for the priests the
 
 ## Law of the Sin-Offering. (b. c. 1490.)
 
-> <sup>24</sup> And the LORD spake unto Moses, saying,  
-> <sup>25</sup> Speak unto Aaron and to his sons, saying, This *is* the law of the sin offering: In the place where the burnt offering is killed shall the sin offering be killed before the LORD: it *is* most holy.  
-> <sup>26</sup> The priest that offereth it for sin shall eat it: in the holy place shall it be eaten, in the court of the tabernacle of the congregation.  
-> <sup>27</sup> Whatsoever shall touch the flesh thereof shall be holy: and when there is sprinkled of the blood thereof upon any garment, thou shalt wash that whereon it was sprinkled in the holy place.  
-> <sup>28</sup> But the earthen vessel wherein it is sodden shall be broken: and if it be sodden in a brazen pot, it shall be both scoured, and rinsed in water.  
-> <sup>29</sup> All the males among the priests shall eat thereof: it *is* most holy.  
-> <sup>30</sup> And no sin offering, whereof *any* of the blood is brought into the tabernacle of the congregation to reconcile *withal* in the holy *place,* shall be eaten: it shall be burnt in the fire.  
+> **²⁴** And the LORD spake unto Moses, saying,  
+> **²⁵** Speak unto Aaron and to his sons, saying, This *is* the law of the sin offering: In the place where the burnt offering is killed shall the sin offering be killed before the LORD: it *is* most holy.  
+> **²⁶** The priest that offereth it for sin shall eat it: in the holy place shall it be eaten, in the court of the tabernacle of the congregation.  
+> **²⁷** Whatsoever shall touch the flesh thereof shall be holy: and when there is sprinkled of the blood thereof upon any garment, thou shalt wash that whereon it was sprinkled in the holy place.  
+> **²⁸** But the earthen vessel wherein it is sodden shall be broken: and if it be sodden in a brazen pot, it shall be both scoured, and rinsed in water.  
+> **²⁹** All the males among the priests shall eat thereof: it *is* most holy.  
+> **³⁰** And no sin offering, whereof *any* of the blood is brought into the tabernacle of the congregation to reconcile *withal* in the holy *place,* shall be eaten: it shall be burnt in the fire.  
 
 We have here so much of the law of the sin-offering as did peculiarly concern the priests that offered it. As, 1. That it must be killed *in the place where the burnt-offering was killed* (Le 6:25), that is, on the north side of the altar (Le 1:11), which, some think typified the crucifying of Christ on mount Calvary, which was on the north side of Jerusalem. 2. That the priest who offered it for the sinner was (with his sons, or other priests, Le 6:29) to eat the flesh of it, after the blood and fat had been offered to God, in the *court of the tabernacle,* Le 6:26. Hereby they were to *bear the iniquity of the congregation,* as it is explained, Le 10:17. 3. The blood of the sin-offering was with great reverence to be washed out of the clothes on which it happened to light (Le 6:27), which signified the awful regard we ought to have to the blood of Christ, not counting it a common thing; that blood must be sprinkled on the conscience, not on the raiment. 4. The vessel in which the flesh of the sin-offering was boiled must be broken if it were an earthen one, and, if a brazen one, well washed, Le 6:28. This intimated that the defilement was not wholly taken away by the offering, but did rather cleave to it, such was the weakness and deficiency of those sacrifices; but the blood of Christ thoroughly cleanses from all sin, and after it there needs no cleansing. 5. That all this must be understood of the common sin-offerings, not of those for the priest, or the body of the congregation, either occasional, or stated upon the day of atonement; for it had been before ordained, and was now ratified, that if the blood of the offering was brought into the holy place, as it was in those extraordinary cases, the flesh was not to be eaten, but burnt without the camp, Le 6:30. Hence the apostle infers the advantage we have under the gospel above what they had under the law; for though the blood of Christ was *brought into the tabernacle, to reconcile within the holy place,* yet we have a right by faith to *eat of the altar* (Heb 13:10-12), and so to take the comfort of the great propitiation.
 

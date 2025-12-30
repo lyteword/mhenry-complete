@@ -8,16 +8,16 @@ One would have thought that the threatenings in the close of the foregoing chapt
 
 ## Promises to the Penitent. (b. c. 1451.)
 
-> <sup>1</sup> And it shall come to pass, when all these things are come upon thee, the blessing and the curse, which I have set before thee, and thou shalt call *them* to mind among all the nations, whither the LORD thy God hath driven thee,  
-> <sup>2</sup> And shalt return unto the LORD thy God, and shalt obey his voice according to all that I command thee this day, thou and thy children, with all thine heart, and with all thy soul;  
-> <sup>3</sup> That then the LORD thy God will turn thy captivity, and have compassion upon thee, and will return and gather thee from all the nations, whither the LORD thy God hath scattered thee.  
-> <sup>4</sup> If *any* of thine be driven out unto the outmost *parts* of heaven, from thence will the LORD thy God gather thee, and from thence will he fetch thee:  
-> <sup>5</sup> And the LORD thy God will bring thee into the land which thy fathers possessed, and thou shalt possess it; and he will do thee good, and multiply thee above thy fathers.  
-> <sup>6</sup> And the LORD thy God will circumcise thine heart, and the heart of thy seed, to love the LORD thy God with all thine heart, and with all thy soul, that thou mayest live.  
-> <sup>7</sup> And the LORD thy God will put all these curses upon thine enemies, and on them that hate thee, which persecuted thee.  
-> <sup>8</sup> And thou shalt return and obey the voice of the LORD, and do all his commandments which I command thee this day.  
-> <sup>9</sup> And the LORD thy God will make thee plenteous in every work of thine hand, in the fruit of thy body, and in the fruit of thy cattle, and in the fruit of thy land, for good: for the LORD will again rejoice over thee for good, as he rejoiced over thy fathers:  
-> <sup>10</sup> If thou shalt hearken unto the voice of the LORD thy God, to keep his commandments and his statutes which are written in this book of the law, *and* if thou turn unto the LORD thy God with all thine heart, and with all thy soul.  
+> **¹** And it shall come to pass, when all these things are come upon thee, the blessing and the curse, which I have set before thee, and thou shalt call *them* to mind among all the nations, whither the LORD thy God hath driven thee,  
+> **²** And shalt return unto the LORD thy God, and shalt obey his voice according to all that I command thee this day, thou and thy children, with all thine heart, and with all thy soul;  
+> **³** That then the LORD thy God will turn thy captivity, and have compassion upon thee, and will return and gather thee from all the nations, whither the LORD thy God hath scattered thee.  
+> **⁴** If *any* of thine be driven out unto the outmost *parts* of heaven, from thence will the LORD thy God gather thee, and from thence will he fetch thee:  
+> **⁵** And the LORD thy God will bring thee into the land which thy fathers possessed, and thou shalt possess it; and he will do thee good, and multiply thee above thy fathers.  
+> **⁶** And the LORD thy God will circumcise thine heart, and the heart of thy seed, to love the LORD thy God with all thine heart, and with all thy soul, that thou mayest live.  
+> **⁷** And the LORD thy God will put all these curses upon thine enemies, and on them that hate thee, which persecuted thee.  
+> **⁸** And thou shalt return and obey the voice of the LORD, and do all his commandments which I command thee this day.  
+> **⁹** And the LORD thy God will make thee plenteous in every work of thine hand, in the fruit of thy body, and in the fruit of thy cattle, and in the fruit of thy land, for good: for the LORD will again rejoice over thee for good, as he rejoiced over thy fathers:  
+> **¹⁰** If thou shalt hearken unto the voice of the LORD thy God, to keep his commandments and his statutes which are written in this book of the law, *and* if thou turn unto the LORD thy God with all thine heart, and with all thy soul.  
 
 These verses may be considered either as a conditional promise or as an absolute prediction.
 
@@ -33,10 +33,10 @@ II\. This may also be considered as a prediction of the repentance and restorati
 
 ## The Advantages of Revelation. (b. c. 1451.)
 
-> <sup>11</sup> For this commandment which I command thee this day, it *is* not hidden from thee, neither *is* it far off.  
-> <sup>12</sup> It *is* not in heaven, that thou shouldest say, Who shall go up for us to heaven, and bring it unto us, that we may hear it, and do it?  
-> <sup>13</sup> Neither *is* it beyond the sea, that thou shouldest say, Who shall go over the sea for us, and bring it unto us, that we may hear it, and do it?  
-> <sup>14</sup> But the word *is* very nigh unto thee, in thy mouth, and in thy heart, that thou mayest do it.  
+> **¹¹** For this commandment which I command thee this day, it *is* not hidden from thee, neither *is* it far off.  
+> **¹²** It *is* not in heaven, that thou shouldest say, Who shall go up for us to heaven, and bring it unto us, that we may hear it, and do it?  
+> **¹³** Neither *is* it beyond the sea, that thou shouldest say, Who shall go over the sea for us, and bring it unto us, that we may hear it, and do it?  
+> **¹⁴** But the word *is* very nigh unto thee, in thy mouth, and in thy heart, that thou mayest do it.  
 
 Moses here urges them to obedience from the consideration of the plainness and easiness of the command.
 
@@ -44,12 +44,12 @@ I\. This is true of the law of Moses. They could never plead in excuse of their 
 
 II\. This is true of the gospel of Christ, to which the apostle applies it, and makes it the language of the *righteousness which is of faith,* Ro 10:6-8. And many think this is principally intended by Moses here; for he *wrote of Christ,* Joh 5:46. This is God's commandment now under the gospel that we *believe in the name of his Son Jesus Christ,* 1Jo 3:23. If we ask, as the blind man did, *Lord, who is he?* or where is he, that we may believe on him? (Joh 9:36), this scripture gives an answer, We need not go up to heaven, to fetch him thence, for he has come down thence in his incarnation; nor down to the deep, to fetch him thence, for thence he has come up in his resurrection. But the word is nigh us, and Christ in that word; so that if we believe with the heart that the promises of the incarnation and resurrection of the Messiah are fulfilled in our Lord Jesus, and receive him accordingly, and confess him with our mouth, we have then Christ with us, and we shall be saved. He is near, very near, that justifies us. The law was plain and easy, but the gospel much more so.
 
-> <sup>15</sup> See, I have set before thee this day life and good, and death and evil;  
-> <sup>16</sup> In that I command thee this day to love the LORD thy God, to walk in his ways, and to keep his commandments and his statutes and his judgments, that thou mayest live and multiply: and the LORD thy God shall bless thee in the land whither thou goest to possess it.  
-> <sup>17</sup> But if thine heart turn away, so that thou wilt not hear, but shalt be drawn away, and worship other gods, and serve them;  
-> <sup>18</sup> I denounce unto you this day, that ye shall surely perish, *and that* ye shall not prolong *your* days upon the land, whither thou passest over Jordan to go to possess it.  
-> <sup>19</sup> I call heaven and earth to record this day against you, *that* I have set before you life and death, blessing and cursing: therefore choose life, that both thou and thy seed may live:  
-> <sup>20</sup> That thou mayest love the LORD thy God, *and* that thou mayest obey his voice, and that thou mayest cleave unto him: for he *is* thy life, and the length of thy days: that thou mayest dwell in the land which the LORD sware unto thy fathers, to Abraham, to Isaac, and to Jacob, to give them.  
+> **¹⁵** See, I have set before thee this day life and good, and death and evil;  
+> **¹⁶** In that I command thee this day to love the LORD thy God, to walk in his ways, and to keep his commandments and his statutes and his judgments, that thou mayest live and multiply: and the LORD thy God shall bless thee in the land whither thou goest to possess it.  
+> **¹⁷** But if thine heart turn away, so that thou wilt not hear, but shalt be drawn away, and worship other gods, and serve them;  
+> **¹⁸** I denounce unto you this day, that ye shall surely perish, *and that* ye shall not prolong *your* days upon the land, whither thou passest over Jordan to go to possess it.  
+> **¹⁹** I call heaven and earth to record this day against you, *that* I have set before you life and death, blessing and cursing: therefore choose life, that both thou and thy seed may live:  
+> **²⁰** That thou mayest love the LORD thy God, *and* that thou mayest obey his voice, and that thou mayest cleave unto him: for he *is* thy life, and the length of thy days: that thou mayest dwell in the land which the LORD sware unto thy fathers, to Abraham, to Isaac, and to Jacob, to give them.  
 
 Moses here concludes with a very bright light, and a very strong fire, that, if possible, what he had been preaching of might find entrance into the understanding and affections of this unthinking people. What could be said more moving, and more likely to make deep and lasting impressions? The manner of his treating with them is so rational, so prudent, so affectionate, and every way so apt to gain the point, that it abundantly shows him to be in earnest, and leaves them inexcusable in their disobedience.
 

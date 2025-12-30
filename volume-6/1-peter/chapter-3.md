@@ -8,13 +8,13 @@ Wherein the apostle describes the duties of husbands and wives one to another, b
 
 ## Duties of Husbands and Wives. (a. d. 66.)
 
-> <sup>1</sup> Likewise, ye wives, *be* in subjection to your own husbands; that, if any obey not the word, they also may without the word be won by the conversation of the wives;  
-> <sup>2</sup> While they behold your chaste conversation *coupled* with fear.  
-> <sup>3</sup> Whose adorning let it not be that outward *adorning* of plaiting the hair, and of wearing of gold, or of putting on of apparel;  
-> <sup>4</sup> But *let it be* the hidden man of the heart, in that which is not corruptible, *even the ornament* of a meek and quiet spirit, which is in the sight of God of great price.  
-> <sup>5</sup> For after this manner in the old time the holy women also, who trusted in God, adorned themselves, being in subjection unto their own husbands:  
-> <sup>6</sup> Even as Sara obeyed Abraham, calling him lord: whose daughters ye are, as long as ye do well, and are not afraid with any amazement.  
-> <sup>7</sup> Likewise, ye husbands, dwell with *them* according to knowledge, giving honour unto the wife, as unto the weaker vessel, and as being heirs together of the grace of life; that your prayers be not hindered.  
+> **¹** Likewise, ye wives, *be* in subjection to your own husbands; that, if any obey not the word, they also may without the word be won by the conversation of the wives;  
+> **²** While they behold your chaste conversation *coupled* with fear.  
+> **³** Whose adorning let it not be that outward *adorning* of plaiting the hair, and of wearing of gold, or of putting on of apparel;  
+> **⁴** But *let it be* the hidden man of the heart, in that which is not corruptible, *even the ornament* of a meek and quiet spirit, which is in the sight of God of great price.  
+> **⁵** For after this manner in the old time the holy women also, who trusted in God, adorned themselves, being in subjection unto their own husbands:  
+> **⁶** Even as Sara obeyed Abraham, calling him lord: whose daughters ye are, as long as ye do well, and are not afraid with any amazement.  
+> **⁷** Likewise, ye husbands, dwell with *them* according to knowledge, giving honour unto the wife, as unto the weaker vessel, and as being heirs together of the grace of life; that your prayers be not hindered.  
 
 The apostle having treated of the duties of subjects to their sovereigns, and of servants to their masters, proceeds to explain the duty of husbands and wives.
 
@@ -40,14 +40,14 @@ II\. The husband's duty to the wife comes next to be considered.
 
 ## Duties towards Friends and Enemies. (a. d. 66.)
 
-> <sup>8</sup> Finally, *be ye* all of one mind, having compassion one of another, love as brethren, *be* pitiful, *be* courteous:  
-> <sup>9</sup> Not rendering evil for evil, or railing for railing: but contrariwise blessing; knowing that ye are thereunto called, that ye should inherit a blessing.  
-> <sup>10</sup> For he that will love life, and see good days, let him refrain his tongue from evil, and his lips that they speak no guile:  
-> <sup>11</sup> Let him eschew evil, and do good; let him seek peace, and ensue it.  
-> <sup>12</sup> For the eyes of the Lord *are* over the righteous, and his ears *are open* unto their prayers: but the face of the Lord *is* against them that do evil.  
-> <sup>13</sup> And who *is* he that will harm you, if ye be followers of that which is good?  
-> <sup>14</sup> But and if ye suffer for righteousness' sake, happy *are ye:* and be not afraid of their terror, neither be troubled;  
-> <sup>15</sup> But sanctify the Lord God in your hearts: and *be* ready always to *give* an answer to every man that asketh you a reason of the hope that is in you with meekness and fear:  
+> **⁸** Finally, *be ye* all of one mind, having compassion one of another, love as brethren, *be* pitiful, *be* courteous:  
+> **⁹** Not rendering evil for evil, or railing for railing: but contrariwise blessing; knowing that ye are thereunto called, that ye should inherit a blessing.  
+> **¹⁰** For he that will love life, and see good days, let him refrain his tongue from evil, and his lips that they speak no guile:  
+> **¹¹** Let him eschew evil, and do good; let him seek peace, and ensue it.  
+> **¹²** For the eyes of the Lord *are* over the righteous, and his ears *are open* unto their prayers: but the face of the Lord *is* against them that do evil.  
+> **¹³** And who *is* he that will harm you, if ye be followers of that which is good?  
+> **¹⁴** But and if ye suffer for righteousness' sake, happy *are ye:* and be not afraid of their terror, neither be troubled;  
+> **¹⁵** But sanctify the Lord God in your hearts: and *be* ready always to *give* an answer to every man that asketh you a reason of the hope that is in you with meekness and fear:  
 
 The apostle here passes from special to more general exhortations.
 
@@ -65,16 +65,16 @@ II\. He instructs us how to behave towards enemies. The apostle knew that Christ
 
 ## Good Conscience and Good Conversation. (a. d. 66.)
 
-> <sup>16</sup> Having a good conscience; that, whereas they speak evil of you, as of evildoers, they may be ashamed that falsely accuse your good conversation in Christ.  
-> <sup>17</sup> For *it is* better, if the will of God be so, that ye suffer for well doing, than for evil doing.  
+> **¹⁶** Having a good conscience; that, whereas they speak evil of you, as of evildoers, they may be ashamed that falsely accuse your good conversation in Christ.  
+> **¹⁷** For *it is* better, if the will of God be so, that ye suffer for well doing, than for evil doing.  
 
 The confession of a Christian's faith cannot credibly be supported but by the two means here specified—*a good conscience* and a *good conversation.* conscience is good when it does its office well, when it is kept pure and uncorrupt, and clear from guilt; then it will justify you, though men accuse you. *A good conversation in Christ* is a holy life, according to the doctrine and example of Christ. "Look well to your conscience, and to your conversation; and then, though men speak evil of you, and falsely accuse you as evil-doers, you will clear yourselves, and bring them to shame. Perhaps you may think it hard to suffer for well-doing, for keeping a good conscience and a good conversation; but be not discouraged, for it is better for you, though worse for your enemies, that you suffer for well-doing than for evil-doing." Learn, 1. The most conscientious persons cannot escape the censures and slanders of evil men; they will speak evil of them, as of evil-doers, and charge them with crimes which their very souls abhor: Christ and his apostles were so used. 2. A good conscience and a good conversation are the best means to secure a good name; these give a solid reputation and a lasting one. 3. False accusation generally turns to the accuser's shame, by discovering at last the accuser's indiscretion, injustice, falsehood, and uncharitableness. 4. It is sometimes the will of God that good people should suffer for well-doing, for their honesty and for their faith. 5. As well-doing sometimes exposes a good man to suffering, so evil-doing will not exempt an evil man from it. The apostle supposes here that a man may suffer for both. If the sufferings of good people for well-doing be so severe, what will the sufferings of wicked people be for evil-doing? It is a sad condition which that person is in upon whom sin and suffering meet together at the same time; sin makes sufferings to be extreme, unprofitable, comfortless, and destructive.
 
 ## Christ's Sufferings. (a. d. 66.)
 
-> <sup>18</sup> For Christ also hath once suffered for sins, the just for the unjust, that he might bring us to God, being put to death in the flesh, but quickened by the Spirit:  
-> <sup>19</sup> By which also he went and preached unto the spirits in prison;  
-> <sup>20</sup> Which sometime were disobedient, when once the longsuffering of God waited in the days of Noah, while the ark was a preparing, wherein few, that is, eight souls were saved by water.  
+> **¹⁸** For Christ also hath once suffered for sins, the just for the unjust, that he might bring us to God, being put to death in the flesh, but quickened by the Spirit:  
+> **¹⁹** By which also he went and preached unto the spirits in prison;  
+> **²⁰** Which sometime were disobedient, when once the longsuffering of God waited in the days of Noah, while the ark was a preparing, wherein few, that is, eight souls were saved by water.  
 
 Here, I. The example of Christ is proposed as an argument for patience under sufferings, the strength of which will be discerned if we consider the several points contained in the words; observe therefore, 1. Jesus Christ himself was not exempted from sufferings in this life, though he had no guilt of his own and could have declined all suffering if he had pleased. 2. The reason or meritorious cause of Christ's suffering was the sins of men: *Christ suffered for sins.* The sufferings of Christ were a true and proper punishment; this punishment was suffered to expiate and to make an atonement for sin; and it extends to all sin. 3. In the case of our Lord's suffering, it was the just that suffered for the unjust; he substituted himself in our room and stead, and bore our iniquities. He that knew no sin suffered instead of those that knew no righteousness. 4. The merit and perfection of Christ's sacrifice were such that for him to suffer once was enough. The legal sacrifices were repeated from day to day, and from year to year; but the sacrifice of Christ, once offered, purgeth away sin, Heb 7:27,9:26,28,10:10,12,14. 5. The blessed end or design of our Lord's sufferings was to bring us to God, to reconcile us to God, to give us access to the Father, to render us and our services acceptable, and to bring us to eternal glory, Eph 2:13,18,3:12, Heb 10:21,22. 6. The issue and event of Christ's suffering, as to himself, were these, he was put to death in his human nature, but he was quickened and raised again by the Spirit. Now, if Christ was not exempted from sufferings, why should Christians expect it? If he suffered, to expiate sins, why should not we be content when our sufferings are only for trial and correction, but not for expiation? If he, though perfectly just, why should not we, who are all criminals? If he once suffered, and then entered into glory, shall not we be patient under trouble, since it will be but a little time and we shall follow him to glory? If he *suffered, to bring us to God,* shall not we submit to difficulties, since they are of so much use to quicken us in our return to God, and in the performance of our duty to him?
 
@@ -86,8 +86,8 @@ II\. The apostle passes from the example of Christ to that of the old world, and
 
 ## Christian Baptism. (a. d. 66.)
 
-> <sup>21</sup> The like figure whereunto *even* baptism doth also now save us (not the putting away of the filth of the flesh, but the answer of a good conscience toward God,) by the resurrection of Jesus Christ:  
-> <sup>22</sup> Who is gone into heaven, and is on the right hand of God; angels and authorities and powers being made subject unto him.  
+> **²¹** The like figure whereunto *even* baptism doth also now save us (not the putting away of the filth of the flesh, but the answer of a good conscience toward God,) by the resurrection of Jesus Christ:  
+> **²²** Who is gone into heaven, and is on the right hand of God; angels and authorities and powers being made subject unto him.  
 
 Noah's salvation in the ark upon the water prefigured the salvation of all good Christians in the church by baptism; that temporal salvation by the ark was a type, the antitype whereunto is the eternal salvation of believers by baptism, to prevent mistakes about which the apostle,
 

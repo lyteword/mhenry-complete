@@ -8,19 +8,19 @@ The laws which Moses had hitherto been repeating and urging mostly concerned the
 
 ## The Cities of Refuge. (b. c. 1451.)
 
-> <sup>1</sup> When the LORD thy God hath cut off the nations, whose land the LORD thy God giveth thee, and thou succeedest them, and dwellest in their cities, and in their houses;  
-> <sup>2</sup> Thou shalt separate three cities for thee in the midst of thy land, which the LORD thy God giveth thee to possess it.  
-> <sup>3</sup> Thou shalt prepare thee a way, and divide the coasts of thy land, which the LORD thy God giveth thee to inherit, into three parts, that every slayer may flee thither.  
-> <sup>4</sup> And this *is* the case of the slayer, which shall flee thither, that he may live: Whoso killeth his neighbour ignorantly, whom he hated not in time past;  
-> <sup>5</sup> As when a man goeth into the wood with his neighbour to hew wood, and his hand fetcheth a stroke with the axe to cut down the tree, and the head slippeth from the helve, and lighteth upon his neighbour, that he die; he shall flee unto one of those cities, and live:  
-> <sup>6</sup> Lest the avenger of the blood pursue the slayer, while his heart is hot, and overtake him, because the way is long, and slay him; whereas he *was* not worthy of death, inasmuch as he hated him not in time past.  
-> <sup>7</sup> Wherefore I command thee, saying, Thou shalt separate three cities for thee.  
-> <sup>8</sup> And if the LORD thy God enlarge thy coast, as he hath sworn unto thy fathers, and give thee all the land which he promised to give unto thy fathers;  
-> <sup>9</sup> If thou shalt keep all these commandments to do them, which I command thee this day, to love the LORD thy God, and to walk ever in his ways; then shalt thou add three cities more for thee, beside these three:  
-> <sup>10</sup> That innocent blood be not shed in thy land, which the LORD thy God giveth thee *for* an inheritance, and *so* blood be upon thee.  
-> <sup>11</sup> But if any man hate his neighbour, and lie in wait for him, and rise up against him, and smite him mortally that he die, and fleeth into one of these cities:  
-> <sup>12</sup> Then the elders of his city shall send and fetch him thence, and deliver him into the hand of the avenger of blood, that he may die.  
-> <sup>13</sup> Thine eye shall not pity him, but thou shalt put away *the guilt of* innocent blood from Israel, that it may go well with thee.  
+> **¹** When the LORD thy God hath cut off the nations, whose land the LORD thy God giveth thee, and thou succeedest them, and dwellest in their cities, and in their houses;  
+> **²** Thou shalt separate three cities for thee in the midst of thy land, which the LORD thy God giveth thee to possess it.  
+> **³** Thou shalt prepare thee a way, and divide the coasts of thy land, which the LORD thy God giveth thee to inherit, into three parts, that every slayer may flee thither.  
+> **⁴** And this *is* the case of the slayer, which shall flee thither, that he may live: Whoso killeth his neighbour ignorantly, whom he hated not in time past;  
+> **⁵** As when a man goeth into the wood with his neighbour to hew wood, and his hand fetcheth a stroke with the axe to cut down the tree, and the head slippeth from the helve, and lighteth upon his neighbour, that he die; he shall flee unto one of those cities, and live:  
+> **⁶** Lest the avenger of the blood pursue the slayer, while his heart is hot, and overtake him, because the way is long, and slay him; whereas he *was* not worthy of death, inasmuch as he hated him not in time past.  
+> **⁷** Wherefore I command thee, saying, Thou shalt separate three cities for thee.  
+> **⁸** And if the LORD thy God enlarge thy coast, as he hath sworn unto thy fathers, and give thee all the land which he promised to give unto thy fathers;  
+> **⁹** If thou shalt keep all these commandments to do them, which I command thee this day, to love the LORD thy God, and to walk ever in his ways; then shalt thou add three cities more for thee, beside these three:  
+> **¹⁰** That innocent blood be not shed in thy land, which the LORD thy God giveth thee *for* an inheritance, and *so* blood be upon thee.  
+> **¹¹** But if any man hate his neighbour, and lie in wait for him, and rise up against him, and smite him mortally that he die, and fleeth into one of these cities:  
+> **¹²** Then the elders of his city shall send and fetch him thence, and deliver him into the hand of the avenger of blood, that he may die.  
+> **¹³** Thine eye shall not pity him, but thou shalt put away *the guilt of* innocent blood from Israel, that it may go well with thee.  
 
 It was one of the precepts given to the sons of Noah that *whoso sheddeth man's blood by man shall his blood be shed,* that is, by the avenger of blood, Ge 9:6. Now here we have the law settled between blood and blood, between the blood of the murdered and the blood of the murderer, and effectual provision made,
 
@@ -36,14 +36,14 @@ II\. It is provided that the cities of refuge should be no sanctuary or shelter 
 
 ## False Witnesses. (b. c. 1451.)
 
-> <sup>14</sup> Thou shalt not remove thy neighbour's landmark, which they of old time have set in thine inheritance, which thou shalt inherit in the land that the LORD thy God giveth thee to possess it.  
-> <sup>15</sup> One witness shall not rise up against a man for any iniquity, or for any sin, in any sin that he sinneth: at the mouth of two witnesses, or at the mouth of three witnesses, shall the matter be established.  
-> <sup>16</sup> If a false witness rise up against any man to testify against him *that which is* wrong;  
-> <sup>17</sup> Then both the men, between whom the controversy *is,* shall stand before the LORD, before the priests and the judges, which shall be in those days;  
-> <sup>18</sup> And the judges shall make diligent inquisition: and, behold, *if* the witness *be* a false witness, *and* hath testified falsely against his brother;  
-> <sup>19</sup> Then shall ye do unto him, as he had thought to have done unto his brother: so shalt thou put the evil away from among you.  
-> <sup>20</sup> And those which remain shall hear, and fear, and shall henceforth commit no more any such evil among you.  
-> <sup>21</sup> And thine eye shall not pity; *but* life *shall go* for life, eye for eye, tooth for tooth, hand for hand, foot for foot.  
+> **¹⁴** Thou shalt not remove thy neighbour's landmark, which they of old time have set in thine inheritance, which thou shalt inherit in the land that the LORD thy God giveth thee to possess it.  
+> **¹⁵** One witness shall not rise up against a man for any iniquity, or for any sin, in any sin that he sinneth: at the mouth of two witnesses, or at the mouth of three witnesses, shall the matter be established.  
+> **¹⁶** If a false witness rise up against any man to testify against him *that which is* wrong;  
+> **¹⁷** Then both the men, between whom the controversy *is,* shall stand before the LORD, before the priests and the judges, which shall be in those days;  
+> **¹⁸** And the judges shall make diligent inquisition: and, behold, *if* the witness *be* a false witness, *and* hath testified falsely against his brother;  
+> **¹⁹** Then shall ye do unto him, as he had thought to have done unto his brother: so shalt thou put the evil away from among you.  
+> **²⁰** And those which remain shall hear, and fear, and shall henceforth commit no more any such evil among you.  
+> **²¹** And thine eye shall not pity; *but* life *shall go* for life, eye for eye, tooth for tooth, hand for hand, foot for foot.  
 
 Here is a statute for the preventing of frauds and perjuries; for the divine law takes care of men's rights and properties, and has made a hedge about them. Such a friend is it to human society and men's civil interest.
 

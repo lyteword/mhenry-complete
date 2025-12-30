@@ -8,23 +8,23 @@ Our Saviour having finished his public discourses, in which he "endured the cont
 
 ## Christ Washing the Disciples' Feet; Necessity of Obedience.
 
-> <sup>1</sup> Now before the feast of the passover, when Jesus knew that his hour was come that he should depart out of this world unto the Father, having loved his own which were in the world, he loved them unto the end.  
-> <sup>2</sup> And supper being ended, the devil having now put into the heart of Judas Iscariot, Simon's *son,* to betray him;  
-> <sup>3</sup> Jesus knowing that the Father had given all things into his hands, and that he was come from God, and went to God;  
-> <sup>4</sup> He riseth from supper, and laid aside his garments; and took a towel, and girded himself.  
-> <sup>5</sup> After that he poureth water into a bason, and began to wash the disciples' feet, and to wipe *them* with the towel wherewith he was girded.  
-> <sup>6</sup> Then cometh he to Simon Peter: and Peter saith unto him, Lord, dost thou wash my feet?  
-> <sup>7</sup> Jesus answered and said unto him, What I do thou knowest not now; but thou shalt know hereafter.  
-> <sup>8</sup> Peter saith unto him, Thou shalt never wash my feet. Jesus answered him, If I wash thee not, thou hast no part with me.  
-> <sup>9</sup> Simon Peter saith unto him, Lord, not my feet only, but also *my* hands and *my* head.  
-> <sup>10</sup> Jesus saith to him, He that is washed needeth not save to wash *his* feet, but is clean every whit: and ye are clean, but not all.  
-> <sup>11</sup> For he knew who should betray him; therefore said he, Ye are not all clean.  
-> <sup>12</sup> So after he had washed their feet, and had taken his garments, and was set down again, he said unto them, Know ye what I have done to you?  
-> <sup>13</sup> Ye call me Master and Lord: and ye say well; for *so* I am.  
-> <sup>14</sup> If I then, *your* Lord and Master, have washed your feet; ye also ought to wash one another's feet.  
-> <sup>15</sup> For I have given you an example, that ye should do as I have done to you.  
-> <sup>16</sup> Verily, verily, I say unto you, The servant is not greater than his lord; neither he that is sent greater than he that sent him.  
-> <sup>17</sup> If ye know these things, happy are ye if ye do them.  
+> **¹** Now before the feast of the passover, when Jesus knew that his hour was come that he should depart out of this world unto the Father, having loved his own which were in the world, he loved them unto the end.  
+> **²** And supper being ended, the devil having now put into the heart of Judas Iscariot, Simon's *son,* to betray him;  
+> **³** Jesus knowing that the Father had given all things into his hands, and that he was come from God, and went to God;  
+> **⁴** He riseth from supper, and laid aside his garments; and took a towel, and girded himself.  
+> **⁵** After that he poureth water into a bason, and began to wash the disciples' feet, and to wipe *them* with the towel wherewith he was girded.  
+> **⁶** Then cometh he to Simon Peter: and Peter saith unto him, Lord, dost thou wash my feet?  
+> **⁷** Jesus answered and said unto him, What I do thou knowest not now; but thou shalt know hereafter.  
+> **⁸** Peter saith unto him, Thou shalt never wash my feet. Jesus answered him, If I wash thee not, thou hast no part with me.  
+> **⁹** Simon Peter saith unto him, Lord, not my feet only, but also *my* hands and *my* head.  
+> **¹⁰** Jesus saith to him, He that is washed needeth not save to wash *his* feet, but is clean every whit: and ye are clean, but not all.  
+> **¹¹** For he knew who should betray him; therefore said he, Ye are not all clean.  
+> **¹²** So after he had washed their feet, and had taken his garments, and was set down again, he said unto them, Know ye what I have done to you?  
+> **¹³** Ye call me Master and Lord: and ye say well; for *so* I am.  
+> **¹⁴** If I then, *your* Lord and Master, have washed your feet; ye also ought to wash one another's feet.  
+> **¹⁵** For I have given you an example, that ye should do as I have done to you.  
+> **¹⁶** Verily, verily, I say unto you, The servant is not greater than his lord; neither he that is sent greater than he that sent him.  
+> **¹⁷** If ye know these things, happy are ye if ye do them.  
 
 It has generally been taken for granted by commentators that Christ's washing his disciples' feet, and the discourse that followed it, were the same night in which he was betrayed, and at the same sitting wherein he ate the passover and instituted the Lord's supper; but whether before the solemnity began, or after it was all over, or between the eating of the passover and the institution of the Lord's supper, they are not agreed. This evangelist, making it his business to gather up those passages which the others had omitted, industriously omits those which the others had recorded, which occasions some difficulty in putting them together. If it was then, we suppose that *Judas went out* (Joh 13:30) to get his men ready that were to apprehend the Lord Jesus in the garden. But Dr. Lightfoot is clearly of opinion that this was done and said, even all that is recorded to the end of Joh 3:31-14:33, not at the passover supper, for it is here said (Joh 13:1) to be *before the feast of the passover,* but at the supper in Bethany, two days before the passover (of which we read Mt 26:2-6), at which Mary the second time anointed Christ's head with the remainder of her box of ointment. Or, it might be at some other supper the night before the passover, not as that was in the house of Simon the leper, but in his own lodgings, where he had none but his disciples about him, and could be more free with them.
 
@@ -126,19 +126,19 @@ IV\. Christ washed his disciples' feet to set before us an example. This explica
 
 ## The Treachery of Judas Foretold; The Anxiety of the Disciples.
 
-> <sup>18</sup> I speak not of you all: I know whom I have chosen: but that the scripture may be fulfilled, He that eateth bread with me hath lifted up his heel against me.  
-> <sup>19</sup> Now I tell you before it come, that, when it is come to pass, ye may believe that I am *he.*  
-> <sup>20</sup> Verily, verily, I say unto you, He that receiveth whomsoever I send receiveth me; and he that receiveth me receiveth him that sent me.  
-> <sup>21</sup> When Jesus had thus said, he was troubled in spirit, and testified, and said, Verily, verily, I say unto you, that one of you shall betray me.  
-> <sup>22</sup> Then the disciples looked one on another, doubting of whom he spake.  
-> <sup>23</sup> Now there was leaning on Jesus' bosom one of his disciples, whom Jesus loved.  
-> <sup>24</sup> Simon Peter therefore beckoned to him, that he should ask who it should be of whom he spake.  
-> <sup>25</sup> He then lying on Jesus' breast saith unto him, Lord, who is it?  
-> <sup>26</sup> Jesus answered, He it is, to whom I shall give a sop, when I have dipped *it.* And when he had dipped the sop, he gave *it* to Judas Iscariot, *the son* of Simon.  
-> <sup>27</sup> And after the sop Satan entered into him. Then said Jesus unto him, That thou doest, do quickly.  
-> <sup>28</sup> Now no man at the table knew for what intent he spake this unto him.  
-> <sup>29</sup> For some *of them* thought, because Judas had the bag, that Jesus had said unto him, Buy *those things* that we have need of against the feast; or, that he should give something to the poor.  
-> <sup>30</sup> He then having received the sop went immediately out: and it was night.  
+> **¹⁸** I speak not of you all: I know whom I have chosen: but that the scripture may be fulfilled, He that eateth bread with me hath lifted up his heel against me.  
+> **¹⁹** Now I tell you before it come, that, when it is come to pass, ye may believe that I am *he.*  
+> **²⁰** Verily, verily, I say unto you, He that receiveth whomsoever I send receiveth me; and he that receiveth me receiveth him that sent me.  
+> **²¹** When Jesus had thus said, he was troubled in spirit, and testified, and said, Verily, verily, I say unto you, that one of you shall betray me.  
+> **²²** Then the disciples looked one on another, doubting of whom he spake.  
+> **²³** Now there was leaning on Jesus' bosom one of his disciples, whom Jesus loved.  
+> **²⁴** Simon Peter therefore beckoned to him, that he should ask who it should be of whom he spake.  
+> **²⁵** He then lying on Jesus' breast saith unto him, Lord, who is it?  
+> **²⁶** Jesus answered, He it is, to whom I shall give a sop, when I have dipped *it.* And when he had dipped the sop, he gave *it* to Judas Iscariot, *the son* of Simon.  
+> **²⁷** And after the sop Satan entered into him. Then said Jesus unto him, That thou doest, do quickly.  
+> **²⁸** Now no man at the table knew for what intent he spake this unto him.  
+> **²⁹** For some *of them* thought, because Judas had the bag, that Jesus had said unto him, Buy *those things* that we have need of against the feast; or, that he should give something to the poor.  
+> **³⁰** He then having received the sop went immediately out: and it was night.  
 
 We have here the discovery of Judas's plot to betray his Master. Christ knew it from the beginning; but now first he discovered it to his disciples, who did not expect Christ should be betrayed, though he had often told them so, much less did they suspect that one of them should do it. Now here,
 
@@ -188,11 +188,11 @@ VII\. Judas himself, instead of being convinced hereby of his wickedness, was th
 
 ## Christ's Departure Predicted.
 
-> <sup>31</sup> Therefore, when he was gone out, Jesus said, Now is the Son of man glorified, and God is glorified in him.  
-> <sup>32</sup> If God be glorified in him, God shall also glorify him in himself, and shall straightway glorify him.  
-> <sup>33</sup> Little children, yet a little while I am with you. Ye shall seek me: and as I said unto the Jews, Whither I go, ye cannot come; so now I say to you.  
-> <sup>34</sup> A new commandment I give unto you, That ye love one another; as I have loved you, that ye also love one another.  
-> <sup>35</sup> By this shall all *men* know that ye are my disciples, if ye have love one to another.  
+> **³¹** Therefore, when he was gone out, Jesus said, Now is the Son of man glorified, and God is glorified in him.  
+> **³²** If God be glorified in him, God shall also glorify him in himself, and shall straightway glorify him.  
+> **³³** Little children, yet a little while I am with you. Ye shall seek me: and as I said unto the Jews, Whither I go, ye cannot come; so now I say to you.  
+> **³⁴** A new commandment I give unto you, That ye love one another; as I have loved you, that ye also love one another.  
+> **³⁵** By this shall all *men* know that ye are my disciples, if ye have love one to another.  
 
 This and what follows, to the end of Joh 13:31-14:33, was Christ's table-talk with his disciples. When supper was done, Judas went out; but what did the Master and his disciples do, whom he left sitting at table? They applied themselves to profitable discourse, to teach us as much as we can to make conversation with our friends at table serviceable to religion. Christ begins this discourse. The more forward we are humbly to promote that communication which is good, and to the use of edifying, the more like we are to Jesus Christ. Those especially that by their place, reputation, and gifts, *command the company,* to whom *men give ear,* ought to use the interest they have in other respects as an opportunity of doing them good. Now our Lord Jesus discourses with them (and probably discourses much more largely than is here recorded),
 
@@ -222,9 +222,9 @@ II\. He discourses with them concerning the great duty of brotherly love (Joh 13
 
 ## Peter's Self-Confidence.
 
-> <sup>36</sup> Simon Peter said unto him, Lord, whither goest thou? Jesus answered him, Whither I go, thou canst not follow me now; but thou shalt follow me afterwards.  
-> <sup>37</sup> Peter said unto him, Lord, why cannot I follow thee now? I will lay down my life for thy sake.  
-> <sup>38</sup> Jesus answered him, Wilt thou lay down thy life for my sake? Verily, verily, I say unto thee, The cock shall not crow, till thou hast denied me thrice.  
+> **³⁶** Simon Peter said unto him, Lord, whither goest thou? Jesus answered him, Whither I go, thou canst not follow me now; but thou shalt follow me afterwards.  
+> **³⁷** Peter said unto him, Lord, why cannot I follow thee now? I will lay down my life for thy sake.  
+> **³⁸** Jesus answered him, Wilt thou lay down thy life for my sake? Verily, verily, I say unto thee, The cock shall not crow, till thou hast denied me thrice.  
 
 In these verses we have,
 

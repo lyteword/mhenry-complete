@@ -8,48 +8,48 @@ Two things Providence is here bringing about:—I. The advancement of Joseph. II
 
 ## Pharaoh's Portentous Dream. (b. c. 1715.)
 
-> <sup>1</sup> And it came to pass at the end of two full years, that Pharaoh dreamed: and, behold, he stood by the river.  
-> <sup>2</sup> And, behold, there came up out of the river seven well favoured kine and fatfleshed; and they fed in a meadow.  
-> <sup>3</sup> And, behold, seven other kine came up after them out of the river, ill favoured and leanfleshed; and stood by the *other* kine upon the brink of the river.  
-> <sup>4</sup> And the ill favoured and leanfleshed kine did eat up the seven well favoured and fat kine. So Pharaoh awoke.  
-> <sup>5</sup> And he slept and dreamed the second time: and, behold, seven ears of corn came up upon one stalk, rank and good.  
-> <sup>6</sup> And, behold, seven thin ears and blasted with the east wind sprung up after them.  
-> <sup>7</sup> And the seven thin ears devoured the seven rank and full ears. And Pharaoh awoke, and, behold, *it was* a dream.  
-> <sup>8</sup> And it came to pass in the morning that his spirit was troubled; and he sent and called for all the magicians of Egypt, and all the wise men thereof: and Pharaoh told them his dreams; but *there was* none that could interpret them unto Pharaoh.  
+> **¹** And it came to pass at the end of two full years, that Pharaoh dreamed: and, behold, he stood by the river.  
+> **²** And, behold, there came up out of the river seven well favoured kine and fatfleshed; and they fed in a meadow.  
+> **³** And, behold, seven other kine came up after them out of the river, ill favoured and leanfleshed; and stood by the *other* kine upon the brink of the river.  
+> **⁴** And the ill favoured and leanfleshed kine did eat up the seven well favoured and fat kine. So Pharaoh awoke.  
+> **⁵** And he slept and dreamed the second time: and, behold, seven ears of corn came up upon one stalk, rank and good.  
+> **⁶** And, behold, seven thin ears and blasted with the east wind sprung up after them.  
+> **⁷** And the seven thin ears devoured the seven rank and full ears. And Pharaoh awoke, and, behold, *it was* a dream.  
+> **⁸** And it came to pass in the morning that his spirit was troubled; and he sent and called for all the magicians of Egypt, and all the wise men thereof: and Pharaoh told them his dreams; but *there was* none that could interpret them unto Pharaoh.  
 
 Observe, 1. The delay of Joseph's enlargement. It was not till *the end of two full years* (Ge 41:1); so long he waited after he had entrusted the chief butler with his case and began to have some prospect of relief. Note, We have need of patience, not only bearing, but waiting, patience. Joseph lay in prison until the time that his word came, Ps 105:19. There is a time set for the deliverance of God's people; that time will come, though it seem to tarry; and, when it comes, it will appear to have been the best time, and therefore we ought to wait for it (Hab 2:3), and not think two full years too long to continue waiting. 2. The means of Joseph's enlargement, which were Pharaoh's dreams, here related. If we were to look upon them as ordinary dreams, we might observe from them the follies and absurdities of a roving working fancy, how it represents to itself tame cows as beasts of prey (nay, more ravenous than any, eating up those of their own kind), and ears of corn as devouring one another. Surely in the multitude of dreams, nay, even in one dream, there are divers vanities, Ec 5:7. Now that God no longer speaks to us in that way, I think it is no matter how little we either heed them or tell them. Foolish dreams related can make no better than foolish talk. But these dreams which Pharaoh dreamed carried their own evidence with them that they were sent of God; and therefore, when he awoke, his spirit was troubled, Ge 41:8. It cannot but put us into a concern to receive any extraordinary message from heaven, because we are conscious to ourselves that we have no reason to expect any good tidings thence. His magicians were puzzled, the rules of their art failed them: these dreams of Pharaoh, it seems, did not fall within the compass of them, so that they could not offer at the interpretation of them. This was to make Joseph's performance by the Spirit of God the more admirable. Human reason, prudence, and foresight, must be nonplussed, that divine revelation may appear the more glorious in the contrivance of our redemption, 1Co 2:13,14. Compare with this story, Da 2:27,4:7,5:8. Joseph's own dreams were the occasion of his troubles, and now Pharaoh's dreams were the occasion of his enlargement.
 
 ## Joseph Brought before Pharaoh. (b. c. 1715.)
 
-> <sup>9</sup> Then spake the chief butler unto Pharaoh, saying, I do remember my faults this day:  
-> <sup>10</sup> Pharaoh was wroth with his servants, and put me in ward in the captain of the guard's house, *both* me and the chief baker:  
-> <sup>11</sup> And we dreamed a dream in one night, I and he; we dreamed each man according to the interpretation of his dream.  
-> <sup>12</sup> And *there was* there with us a young man, a Hebrew, servant to the captain of the guard; and we told him, and he interpreted to us our dreams; to each man according to his dream he did interpret.  
-> <sup>13</sup> And it came to pass, as he interpreted to us, so it was; me he restored unto mine office, and him he hanged.  
-> <sup>14</sup> Then Pharaoh sent and called Joseph, and they brought him hastily out of the dungeon: and he shaved *himself,* and changed his raiment, and came in unto Pharaoh.  
-> <sup>15</sup> And Pharaoh said unto Joseph, I have dreamed a dream, and *there is* none that can interpret it: and I have heard say of thee, *that* thou canst understand a dream to interpret it.  
-> <sup>16</sup> And Joseph answered Pharaoh, saying, *It is* not in me: God shall give Pharaoh an answer of peace.  
+> **⁹** Then spake the chief butler unto Pharaoh, saying, I do remember my faults this day:  
+> **¹⁰** Pharaoh was wroth with his servants, and put me in ward in the captain of the guard's house, *both* me and the chief baker:  
+> **¹¹** And we dreamed a dream in one night, I and he; we dreamed each man according to the interpretation of his dream.  
+> **¹²** And *there was* there with us a young man, a Hebrew, servant to the captain of the guard; and we told him, and he interpreted to us our dreams; to each man according to his dream he did interpret.  
+> **¹³** And it came to pass, as he interpreted to us, so it was; me he restored unto mine office, and him he hanged.  
+> **¹⁴** Then Pharaoh sent and called Joseph, and they brought him hastily out of the dungeon: and he shaved *himself,* and changed his raiment, and came in unto Pharaoh.  
+> **¹⁵** And Pharaoh said unto Joseph, I have dreamed a dream, and *there is* none that can interpret it: and I have heard say of thee, *that* thou canst understand a dream to interpret it.  
+> **¹⁶** And Joseph answered Pharaoh, saying, *It is* not in me: God shall give Pharaoh an answer of peace.  
 
 Here is, 1. The recommending of Joseph to Pharaoh for an interpreter. The chief butler did it more in compliment to Pharaoh, to oblige him, than in gratitude to Joseph, or in compassion for his case. He makes a fair confession (Ge 41:9): "*I remember my faults this day,* in forgetting Joseph." Note, It is best to remember our duty, and to do it in its time; but, if we have neglected that, it is next best to remember our faults, and repent of them, and do our duty at last; better late than never. Some think he means his faults against Pharaoh, for which he was imprisoned; and then he would insinuate that, though Pharaoh had forgiven him, he had not forgiven himself. The story he had to tell was, in short, That there was an obscure young man in the king's prison, who had very properly interpreted his dream, and the chief baker's (the event corresponding in each with the interpretation), and that he would recommend him to the king his master for an interpreter. Note, God's time for the enlargement of his people will appear at last to be the fittest time. If the chief butler had at first used his interest for Joseph's enlargement, and had obtained it, it is probable that upon his release he would have gone back to *the land of the Hebrews* again, which he spoke of so feelingly (Ge 40:15), and then he would neither have been so blessed himself, nor such a blessing to his family, as afterwards he proved. But staying two years longer, and coming out now upon this occasion, at last, to interpret the king's dreams, way was made for his very great preferment. Those that patiently wait for God shall be paid for their waiting, not only principal but interest, La 3:26. 2. The introducing of Joseph to Pharaoh. The king's business requires haste. Joseph is sent for out of the dungeon with all speed; Pharaoh's order discharged him both from his imprisonment and from his servitude, and made him a candidate for some of the highest trusts at court. The king can scarcely allow him time, but that decency required it, to shave himself, and to change his raiment, Ge 41:14. It is done with all possible expedition, and Joseph is brought in, perhaps almost as much surprised as Peter was, Ac 12:9. So suddenly is his captivity brought back that he is as one that dreams, Ps 126:1. Pharaoh immediately, without enquiring who or whence he was, tells him his business, that he expected he should interpret his dream, Ge 41:15. To which, Joseph makes him a very modest decent reply, (Ge 41:16), in which, (1.) He gives honour to God. "It is not in me, God must give it." Note, Great gifts appear most graceful and illustrious when those that have them use them humbly, and take not the praise of them to themselves, but give it to God. To such God gives more grace. (2.) He shows respect to Pharaoh, and hearty good-will to him and his government, in supposing that the interpretation would be an answer of peace. Note, Those that consult God's oracles may expect an answer of peace. If Joseph be made the interpreter, hope the best.
 
 ## Joseph Interprets Pharaoh's Dream. (b. c. 1715.)
 
-> <sup>17</sup> And Pharaoh said unto Joseph, In my dream, behold, I stood upon the bank of the river:  
-> <sup>18</sup> And, behold, there came up out of the river seven kine, fatfleshed and well favoured; and they fed in a meadow:  
-> <sup>19</sup> And, behold, seven other kine came up after them, poor and very ill favoured and leanfleshed, such as I never saw in all the land of Egypt for badness:  
-> <sup>20</sup> And the lean and the ill favoured kine did eat up the first seven fat kine:  
-> <sup>21</sup> And when they had eaten them up, it could not be known that they had eaten them; but they *were* still ill favoured, as at the beginning. So I awoke.  
-> <sup>22</sup> And I saw in my dream, and, behold, seven ears came up in one stalk, full and good:  
-> <sup>23</sup> And, behold, seven ears, withered, thin, *and* blasted with the east wind, sprung up after them:  
-> <sup>24</sup> And the thin ears devoured the seven good ears: and I told *this* unto the magicians; but *there was* none that could declare *it* to me.  
-> <sup>25</sup> And Joseph said unto Pharaoh, The dream of Pharaoh *is* one: God hath showed Pharaoh what he *is* about to do.  
-> <sup>26</sup> The seven good kine *are* seven years; and the seven good ears *are* seven years: the dream *is* one.  
-> <sup>27</sup> And the seven thin and ill favoured kine that came up after them *are* seven years; and the seven empty ears blasted with the east wind shall be seven years of famine.  
-> <sup>28</sup> This *is* the thing which I have spoken unto Pharaoh: What God *is* about to do he showeth unto Pharaoh.  
-> <sup>29</sup> Behold, there come seven years of great plenty throughout all the land of Egypt:  
-> <sup>30</sup> And there shall arise after them seven years of famine; and all the plenty shall be forgotten in the land of Egypt; and the famine shall consume the land;  
-> <sup>31</sup> And the plenty shall not be known in the land by reason of that famine following; for it *shall be* very grievous.  
-> <sup>32</sup> And for that the dream was doubled unto Pharaoh twice; *it is* because the thing *is* established by God, and God will shortly bring it to pass.  
+> **¹⁷** And Pharaoh said unto Joseph, In my dream, behold, I stood upon the bank of the river:  
+> **¹⁸** And, behold, there came up out of the river seven kine, fatfleshed and well favoured; and they fed in a meadow:  
+> **¹⁹** And, behold, seven other kine came up after them, poor and very ill favoured and leanfleshed, such as I never saw in all the land of Egypt for badness:  
+> **²⁰** And the lean and the ill favoured kine did eat up the first seven fat kine:  
+> **²¹** And when they had eaten them up, it could not be known that they had eaten them; but they *were* still ill favoured, as at the beginning. So I awoke.  
+> **²²** And I saw in my dream, and, behold, seven ears came up in one stalk, full and good:  
+> **²³** And, behold, seven ears, withered, thin, *and* blasted with the east wind, sprung up after them:  
+> **²⁴** And the thin ears devoured the seven good ears: and I told *this* unto the magicians; but *there was* none that could declare *it* to me.  
+> **²⁵** And Joseph said unto Pharaoh, The dream of Pharaoh *is* one: God hath showed Pharaoh what he *is* about to do.  
+> **²⁶** The seven good kine *are* seven years; and the seven good ears *are* seven years: the dream *is* one.  
+> **²⁷** And the seven thin and ill favoured kine that came up after them *are* seven years; and the seven empty ears blasted with the east wind shall be seven years of famine.  
+> **²⁸** This *is* the thing which I have spoken unto Pharaoh: What God *is* about to do he showeth unto Pharaoh.  
+> **²⁹** Behold, there come seven years of great plenty throughout all the land of Egypt:  
+> **³⁰** And there shall arise after them seven years of famine; and all the plenty shall be forgotten in the land of Egypt; and the famine shall consume the land;  
+> **³¹** And the plenty shall not be known in the land by reason of that famine following; for it *shall be* very grievous.  
+> **³²** And for that the dream was doubled unto Pharaoh twice; *it is* because the thing *is* established by God, and God will shortly bring it to pass.  
 
 Here, I. Pharaoh relates his dream. He dreamt that he stood upon the bank of the river Nile, and saw the kine, both the fat ones and the lean ones, come out of the river. For the kingdom of Egypt had no rain, as appears, Zec 14:18, but the plenty of the year depended upon the overflowing of the river, and it was about one certain time of the year that it overflowed. If it rose to fifteen or sixteen cubits, there was plenty; if to twelve or thirteen only, or under, there was scarcity. See how many ways Providence has of dispensing its gifts; yet, whatever the second causes are, our dependence is still the same upon the first Cause, who makes every creature that to us that it is, be it rain or river.
 
@@ -57,19 +57,19 @@ II\. Joseph interprets his dream, and tells him that it signified seven years of
 
 ## Joseph's Exaltation. (b. c. 1715.)
 
-> <sup>33</sup> Now therefore let Pharaoh look out a man discreet and wise, and set him over the land of Egypt.  
-> <sup>34</sup> Let Pharaoh do *this,* and let him appoint officers over the land, and take up the fifth part of the land of Egypt in the seven plenteous years.  
-> <sup>35</sup> And let them gather all the food of those good years that come, and lay up corn under the hand of Pharaoh, and let them keep food in the cities.  
-> <sup>36</sup> And that food shall be for store to the land against the seven years of famine, which shall be in the land of Egypt; that the land perish not through the famine.  
-> <sup>37</sup> And the thing was good in the eyes of Pharaoh, and in the eyes of all his servants.  
-> <sup>38</sup> And Pharaoh said unto his servants, Can we find *such a one* as this *is,* a man in whom the Spirit of God *is?*  
-> <sup>39</sup> And Pharaoh said unto Joseph, Forasmuch as God hath showed thee all this, *there is* none so discreet and wise as thou *art:*  
-> <sup>40</sup> Thou shalt be over my house, and according unto thy word shall all my people be ruled: only in the throne will I be greater than thou.  
-> <sup>41</sup> And Pharaoh said unto Joseph, See, I have set thee over all the land of Egypt.  
-> <sup>42</sup> And Pharaoh took off his ring from his hand, and put it upon Joseph's hand, and arrayed him in vestures of fine linen, and put a gold chain about his neck;  
-> <sup>43</sup> And he made him to ride in the second chariot which he had; and they cried before him, Bow the knee: and he made him *ruler* over all the land of Egypt.  
-> <sup>44</sup> And Pharaoh said unto Joseph, I *am* Pharaoh, and without thee shall no man lift up his hand or foot in all the land of Egypt.  
-> <sup>45</sup> And Pharaoh called Joseph's name Zaphnath-paaneah; and he gave him to wife Asenath the daughter of Poti-pherah priest of On. And Joseph went out over *all* the land of Egypt.  
+> **³³** Now therefore let Pharaoh look out a man discreet and wise, and set him over the land of Egypt.  
+> **³⁴** Let Pharaoh do *this,* and let him appoint officers over the land, and take up the fifth part of the land of Egypt in the seven plenteous years.  
+> **³⁵** And let them gather all the food of those good years that come, and lay up corn under the hand of Pharaoh, and let them keep food in the cities.  
+> **³⁶** And that food shall be for store to the land against the seven years of famine, which shall be in the land of Egypt; that the land perish not through the famine.  
+> **³⁷** And the thing was good in the eyes of Pharaoh, and in the eyes of all his servants.  
+> **³⁸** And Pharaoh said unto his servants, Can we find *such a one* as this *is,* a man in whom the Spirit of God *is?*  
+> **³⁹** And Pharaoh said unto Joseph, Forasmuch as God hath showed thee all this, *there is* none so discreet and wise as thou *art:*  
+> **⁴⁰** Thou shalt be over my house, and according unto thy word shall all my people be ruled: only in the throne will I be greater than thou.  
+> **⁴¹** And Pharaoh said unto Joseph, See, I have set thee over all the land of Egypt.  
+> **⁴²** And Pharaoh took off his ring from his hand, and put it upon Joseph's hand, and arrayed him in vestures of fine linen, and put a gold chain about his neck;  
+> **⁴³** And he made him to ride in the second chariot which he had; and they cried before him, Bow the knee: and he made him *ruler* over all the land of Egypt.  
+> **⁴⁴** And Pharaoh said unto Joseph, I *am* Pharaoh, and without thee shall no man lift up his hand or foot in all the land of Egypt.  
+> **⁴⁵** And Pharaoh called Joseph's name Zaphnath-paaneah; and he gave him to wife Asenath the daughter of Poti-pherah priest of On. And Joseph went out over *all* the land of Egypt.  
 
 Here is, I. The good advice that Joseph gave to Pharaoh, which was, 1. That in the years of plenty he should lay up for the years of famine, buy up corn when it was cheap, that he might both enrich himself and supply the country when it would be dear and scarce. Note, Fair warning should always be followed with good counsel. Therefore the prudent man foresees the evil, that he may hide himself. God has in his word told us of a day of trial and exigence before us, when we shall need all the grace we can get, and all little enough, "Now, therefore, provide accordingly." Note, further, Times of gathering must be diligently improved, because there will come a time of spending. Let us go to the ant, and learn of her this wisdom, Pr 6:6-8. 2. Because that which is everybody's work commonly proves nobody's work, he advises Pharaoh to appoint officers who should make it their business, and to select some one person to preside in the affair, Ge 41:33. Probably, if Joseph had not advised this, it would not have been done; Pharaoh's counsellors could no more improve the dream than his magicians interpret it; therefore it is said of him (Ps 105:22) that he *taught the senators, wisdom.* Hence we may justly infer with Solomon (Ec 4:13), *Better is a poor and a wise child than an old and foolish king.*
 
@@ -77,18 +77,18 @@ II\. The great honour that Pharaoh did to Joseph. 1. He gave him an honourable t
 
 ## The Famine in Egypt and Canaan. (b. c. 1706.)
 
-> <sup>46</sup> And Joseph *was* thirty years old when he stood before Pharaoh king of Egypt. And Joseph went out from the presence of Pharaoh, and went throughout all the land of Egypt.  
-> <sup>47</sup> And in the seven plenteous years the earth brought forth by handfuls.  
-> <sup>48</sup> And he gathered up all the food of the seven years, which were in the land of Egypt, and laid up the food in the cities: the food of the field, which *was* round about every city, laid he up in the same.  
-> <sup>49</sup> And Joseph gathered corn as the sand of the sea, very much, until he left numbering; for *it was* without number.  
-> <sup>50</sup> And unto Joseph were born two sons before the years of famine came, which Asenath the daughter of Poti-pherah priest of On bare unto him.  
-> <sup>51</sup> And Joseph called the name of the firstborn Manasseh: For God, *said he,* hath made me forget all my toil, and all my father's house.  
-> <sup>52</sup> And the name of the second called he Ephraim: For God hath caused me to be fruitful in the land of my affliction.  
-> <sup>53</sup> And the seven years of plenteousness, that was in the land of Egypt, were ended.  
-> <sup>54</sup> And the seven years of dearth began to come, according as Joseph had said: and the dearth was in all lands; but in all the land of Egypt there was bread.  
-> <sup>55</sup> And when all the land of Egypt was famished, the people cried to Pharaoh for bread: and Pharaoh said unto all the Egyptians, Go unto Joseph; what he saith to you, do.  
-> <sup>56</sup> And the famine was over all the face of the earth: and Joseph opened all the storehouses, and sold unto the Egyptians; and the famine waxed sore in the land of Egypt.  
-> <sup>57</sup> And all countries came into Egypt to Joseph for to buy *corn;* because that the famine was *so* sore in all lands.  
+> **⁴⁶** And Joseph *was* thirty years old when he stood before Pharaoh king of Egypt. And Joseph went out from the presence of Pharaoh, and went throughout all the land of Egypt.  
+> **⁴⁷** And in the seven plenteous years the earth brought forth by handfuls.  
+> **⁴⁸** And he gathered up all the food of the seven years, which were in the land of Egypt, and laid up the food in the cities: the food of the field, which *was* round about every city, laid he up in the same.  
+> **⁴⁹** And Joseph gathered corn as the sand of the sea, very much, until he left numbering; for *it was* without number.  
+> **⁵⁰** And unto Joseph were born two sons before the years of famine came, which Asenath the daughter of Poti-pherah priest of On bare unto him.  
+> **⁵¹** And Joseph called the name of the firstborn Manasseh: For God, *said he,* hath made me forget all my toil, and all my father's house.  
+> **⁵²** And the name of the second called he Ephraim: For God hath caused me to be fruitful in the land of my affliction.  
+> **⁵³** And the seven years of plenteousness, that was in the land of Egypt, were ended.  
+> **⁵⁴** And the seven years of dearth began to come, according as Joseph had said: and the dearth was in all lands; but in all the land of Egypt there was bread.  
+> **⁵⁵** And when all the land of Egypt was famished, the people cried to Pharaoh for bread: and Pharaoh said unto all the Egyptians, Go unto Joseph; what he saith to you, do.  
+> **⁵⁶** And the famine was over all the face of the earth: and Joseph opened all the storehouses, and sold unto the Egyptians; and the famine waxed sore in the land of Egypt.  
+> **⁵⁷** And all countries came into Egypt to Joseph for to buy *corn;* because that the famine was *so* sore in all lands.  
 
 Observe here, I. The building of Joseph's family in the birth of two sons, Manasseh and Ephraim, Ge 41:50-52. In the names he gave them, he owned the divine Providence giving this happy turn to his affairs, 1. He was made to forget his misery, Job 11:16. We should bear our afflictions when they are present as those that know not but Providence may so outweigh them by after-comforts as that we may even forget them when they are past. But could he be so unnatural as to *forget all his father's house?* He means the unkindness he received from his brethren, or perhaps the wealth and honour he expected from his father, with the birthright. The robes he now wore made him forget the coat of divers colours which he wore in his father's house. 2. He was made *fruitful in the land of his affliction.* It had been the land of his affliction, and in some sense it was still so, for it was not Canaan, the land of promise. His distance from his father was still his affliction. Note, Light is sometimes sown for the righteous in a barren and unlikely soil; and yet if God sow it, and water it, it will come up again. The afflictions of the saints promote their fruitfulness. *Ephraim* signifies *fruitfulness,* and *Manasseh forgetfulness,* for these two often go together; when Jeshurun waxed fat, he forgot God his Maker.
 

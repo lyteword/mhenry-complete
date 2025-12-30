@@ -8,21 +8,21 @@ In this chapter we have the further preparation of the prophet for the work to w
 
 ## The Prophet Ordered to Eat the Roll; Instructions Given to the Prophet; The Prophet's Instructions; Ezekiel's Reluctance to Be a Reprover. (b. c. 595.)
 
-> <sup>1</sup> Moreover he said unto me, Son of man, eat that thou findest; eat this roll, and go speak unto the house of Israel.  
-> <sup>2</sup> So I opened my mouth, and he caused me to eat that roll.  
-> <sup>3</sup> And he said unto me, Son of man, cause thy belly to eat, and fill thy bowels with this roll that I give thee. Then did I eat *it;* and it was in my mouth as honey for sweetness.  
-> <sup>4</sup> And he said unto me, Son of man, go, get thee unto the house of Israel, and speak with my words unto them.  
-> <sup>5</sup> For thou *art* not sent to a people of a strange speech and of a hard language, *but* to the house of Israel;  
-> <sup>6</sup> Not to many people of a strange speech and of a hard language, whose words thou canst not understand. Surely, had I sent thee to them, they would have hearkened unto thee.  
-> <sup>7</sup> But the house of Israel will not hearken unto thee; for they will not hearken unto me: for all the house of Israel *are* impudent and hard-hearted.  
-> <sup>8</sup> Behold, I have made thy face strong against their faces, and thy forehead strong against their foreheads.  
-> <sup>9</sup> As an adamant harder than flint have I made thy forehead: fear them not, neither be dismayed at their looks, though they *be* a rebellious house.  
-> <sup>10</sup> Moreover he said unto me, Son of man, all my words that I shall speak unto thee receive in thine heart, and hear with thine ears.  
-> <sup>11</sup> And go, get thee to them of the captivity, unto the children of thy people, and speak unto them, and tell them, Thus saith the Lord GOD; whether they will hear, or whether they will forbear.  
-> <sup>12</sup> Then the spirit took me up, and I heard behind me a voice of a great rushing, *saying,* Blessed *be* the glory of the LORD from his place.  
-> <sup>13</sup> *I heard* also the noise of the wings of the living creatures that touched one another, and the noise of the wheels over against them, and a noise of a great rushing.  
-> <sup>14</sup> So the spirit lifted me up, and took me away, and I went in bitterness, in the heat of my spirit; but the hand of the LORD was strong upon me.  
-> <sup>15</sup> Then I came to them of the captivity at Tel-abib, that dwelt by the river of Chebar, and I sat where they sat, and remained there astonished among them seven days.  
+> **¹** Moreover he said unto me, Son of man, eat that thou findest; eat this roll, and go speak unto the house of Israel.  
+> **²** So I opened my mouth, and he caused me to eat that roll.  
+> **³** And he said unto me, Son of man, cause thy belly to eat, and fill thy bowels with this roll that I give thee. Then did I eat *it;* and it was in my mouth as honey for sweetness.  
+> **⁴** And he said unto me, Son of man, go, get thee unto the house of Israel, and speak with my words unto them.  
+> **⁵** For thou *art* not sent to a people of a strange speech and of a hard language, *but* to the house of Israel;  
+> **⁶** Not to many people of a strange speech and of a hard language, whose words thou canst not understand. Surely, had I sent thee to them, they would have hearkened unto thee.  
+> **⁷** But the house of Israel will not hearken unto thee; for they will not hearken unto me: for all the house of Israel *are* impudent and hard-hearted.  
+> **⁸** Behold, I have made thy face strong against their faces, and thy forehead strong against their foreheads.  
+> **⁹** As an adamant harder than flint have I made thy forehead: fear them not, neither be dismayed at their looks, though they *be* a rebellious house.  
+> **¹⁰** Moreover he said unto me, Son of man, all my words that I shall speak unto thee receive in thine heart, and hear with thine ears.  
+> **¹¹** And go, get thee to them of the captivity, unto the children of thy people, and speak unto them, and tell them, Thus saith the Lord GOD; whether they will hear, or whether they will forbear.  
+> **¹²** Then the spirit took me up, and I heard behind me a voice of a great rushing, *saying,* Blessed *be* the glory of the LORD from his place.  
+> **¹³** *I heard* also the noise of the wings of the living creatures that touched one another, and the noise of the wheels over against them, and a noise of a great rushing.  
+> **¹⁴** So the spirit lifted me up, and took me away, and I went in bitterness, in the heat of my spirit; but the hand of the LORD was strong upon me.  
+> **¹⁵** Then I came to them of the captivity at Tel-abib, that dwelt by the river of Chebar, and I sat where they sat, and remained there astonished among them seven days.  
 
 These verses are fitly joined by some translators to the foregoing chapter, as being of a piece with it and a continuation of the same vision. The prophets received the word from God that they might deliver it to the people of God, furnished themselves that they might furnish them with the knowledge of the mind and will of God. Now here the prophet is taught,
 
@@ -50,12 +50,12 @@ II\. How he must deliver that divine revelation to others which he himself had r
 
 ## The Watchman's Office. (b. c. 595.)
 
-> <sup>16</sup> And it came to pass at the end of seven days, that the word of the LORD came unto me, saying,  
-> <sup>17</sup> Son of man, I have made thee a watchman unto the house of Israel: therefore hear the word at my mouth, and give them warning from me.  
-> <sup>18</sup> When I say unto the wicked, Thou shalt surely die; and thou givest him not warning, nor speakest to warn the wicked from his wicked way, to save his life; the same wicked *man* shall die in his iniquity; but his blood will I require at thine hand.  
-> <sup>19</sup> Yet if thou warn the wicked, and he turn not from his wickedness, nor from his wicked way, he shall die in his iniquity; but thou hast delivered thy soul.  
-> <sup>20</sup> Again, When a righteous *man* doth turn from his righteousness, and commit iniquity, and I lay a stumbling-block before him, he shall die: because thou hast not given him warning, he shall die in his sin, and his righteousness which he hath done shall not be remembered; but his blood will I require at thine hand.  
-> <sup>21</sup> Nevertheless if thou warn the righteous *man,* that the righteous sin not, and he doth not sin, he shall surely live, because he is warned; also thou hast delivered thy soul.  
+> **¹⁶** And it came to pass at the end of seven days, that the word of the LORD came unto me, saying,  
+> **¹⁷** Son of man, I have made thee a watchman unto the house of Israel: therefore hear the word at my mouth, and give them warning from me.  
+> **¹⁸** When I say unto the wicked, Thou shalt surely die; and thou givest him not warning, nor speakest to warn the wicked from his wicked way, to save his life; the same wicked *man* shall die in his iniquity; but his blood will I require at thine hand.  
+> **¹⁹** Yet if thou warn the wicked, and he turn not from his wickedness, nor from his wicked way, he shall die in his iniquity; but thou hast delivered thy soul.  
+> **²⁰** Again, When a righteous *man* doth turn from his righteousness, and commit iniquity, and I lay a stumbling-block before him, he shall die: because thou hast not given him warning, he shall die in his sin, and his righteousness which he hath done shall not be remembered; but his blood will I require at thine hand.  
+> **²¹** Nevertheless if thou warn the righteous *man,* that the righteous sin not, and he doth not sin, he shall surely live, because he is warned; also thou hast delivered thy soul.  
 
 These further instructions God gave to the prophet *at the end of seven days,* that is, on the seventh day after the vision he had; and it is very probably that both that and this were on the sabbath day, which *the house of Israel,* even in their captivity, observed as well as they could in those circumstances. We do not find that their conquerors and oppressors tied them to any constant service, as their Egyptian task-masters had formerly done, but that they might observe the sabbath-rest for a sign to distinguish between them and their neighbours; but for the sabbath-work they had not the convenience of temple or synagogue, only it should seem they had a *place by the river side where prayer was wont to be made* (as Ac 16:13); there they met on the sabbath day; there their enemies upbraided them with *the songs of Zion* (Ps 137:1,3); there Ezekiel met them, and *the word of the Lord* then and there *came to* him. He that had been musing and meditating on the things of God all the week was fit to speak to the people in God's name on the sabbath day, and disposed to hear God speak to him. This sabbath day Ezekiel was not so honoured with visions of the glory of God as he had been the sabbath before; but he is plainly, and by a very common similitude, told his duty, which he is to communicate to the people. Note, Raptures and transports of joy are not the daily bread of God's children, however they may upon special occasions be feasted with them. We must not deny but that we have truly communion with God (1Jo 1:3) though we have it not always so sensibly as at some times. And, though the mysteries of the kingdom of heaven may sometimes be looked into, yet ordinarily it is plain preaching that is most for edification. God here tells the prophet what his office was, and what the duty of that office; and this (we may suppose) he was to tell the people, that they might attend to what he said and improve it accordingly. Note, It is good for people to know and consider what a charge their ministers have of them and what an account they must shortly give of that charge. Observe,
 
@@ -73,12 +73,12 @@ II\. What is the duty of this office. The work of a watchman is to take notice a
 
 ## The People's Contumacy Predicted. (b. c. 595.)
 
-> <sup>22</sup> And the hand of the LORD was there upon me; and he said unto me, Arise, go forth into the plain, and I will there talk with thee.  
-> <sup>23</sup> Then I arose, and went forth into the plain: and, behold, the glory of the LORD stood there, as the glory which I saw by the river of Chebar: and I fell on my face.  
-> <sup>24</sup> Then the spirit entered into me, and set me upon my feet, and spake with me, and said unto me, Go, shut thyself within thine house.  
-> <sup>25</sup> But thou, O son of man, behold, they shall put bands upon thee, and shall bind thee with them, and thou shalt not go out among them:  
-> <sup>26</sup> And I will make thy tongue cleave to the roof of thy mouth, that thou shalt be dumb, and shalt not be to them a reprover: for they *are* a rebellious house.  
-> <sup>27</sup> But when I speak with thee, I will open thy mouth, and thou shalt say unto them, Thus saith the Lord GOD; He that heareth, let him hear; and he that forbeareth, let him forbear: for they *are* a rebellious house.  
+> **²²** And the hand of the LORD was there upon me; and he said unto me, Arise, go forth into the plain, and I will there talk with thee.  
+> **²³** Then I arose, and went forth into the plain: and, behold, the glory of the LORD stood there, as the glory which I saw by the river of Chebar: and I fell on my face.  
+> **²⁴** Then the spirit entered into me, and set me upon my feet, and spake with me, and said unto me, Go, shut thyself within thine house.  
+> **²⁵** But thou, O son of man, behold, they shall put bands upon thee, and shall bind thee with them, and thou shalt not go out among them:  
+> **²⁶** And I will make thy tongue cleave to the roof of thy mouth, that thou shalt be dumb, and shalt not be to them a reprover: for they *are* a rebellious house.  
+> **²⁷** But when I speak with thee, I will open thy mouth, and thou shalt say unto them, Thus saith the Lord GOD; He that heareth, let him hear; and he that forbeareth, let him forbear: for they *are* a rebellious house.  
 
 After all this large and magnificent discovery which God had made of himself to the prophet, and the full instructions he had given him how to deal with those to whom he sent him with an ample commission, we should have expected presently to see him preaching the word of God to a great congregation of Israel; but here we find it quite otherwise. his work here, at first, seems not at all proportionable to the pomp of his call.
 

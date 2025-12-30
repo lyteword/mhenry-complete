@@ -10,12 +10,12 @@ The foregoing psalm is supposed to have been penned as late as the captivity in 
 
 A Prayer of Moses the man of God.
 
-> <sup>1</sup> Lord, thou hast been our dwelling place in all generations.  
-> <sup>2</sup> Before the mountains were brought forth, or ever thou hadst formed the earth and the world, even from everlasting to everlasting, thou *art* God.  
-> <sup>3</sup> Thou turnest man to destruction; and sayest, Return, ye children of men.  
-> <sup>4</sup> For a thousand years in thy sight *are but* as yesterday when it is past, and *as* a watch in the night.  
-> <sup>5</sup> Thou carriest them away as with a flood; they are *as* a sleep: in the morning *they are* like grass *which* groweth up.  
-> <sup>6</sup> In the morning it flourisheth, and groweth up; in the evening it is cut down, and withereth.  
+> **¹** Lord, thou hast been our dwelling place in all generations.  
+> **²** Before the mountains were brought forth, or ever thou hadst formed the earth and the world, even from everlasting to everlasting, thou *art* God.  
+> **³** Thou turnest man to destruction; and sayest, Return, ye children of men.  
+> **⁴** For a thousand years in thy sight *are but* as yesterday when it is past, and *as* a watch in the night.  
+> **⁵** Thou carriest them away as with a flood; they are *as* a sleep: in the morning *they are* like grass *which* groweth up.  
+> **⁶** In the morning it flourisheth, and groweth up; in the evening it is cut down, and withereth.  
 
 This psalm is entitled *a prayer of Moses.* Where, and in what volume, it was preserved from Moses's time till the collection of psalms was begun to be made, is uncertain; but, being divinely inspired, it was under a special protection: perhaps it was written in the book of Jasher, or the book of the wars of the Lord. Moses taught the people of Israel to pray, and put words into their mouths which they might make use of in turning to the Lord. Moses is here called *the man of God,* because he was a prophet, the father of prophets, and an eminent type of the great prophet. In these verses we are taught,
 
@@ -31,11 +31,11 @@ V\. To see the frailty of man, and his vanity even at his best estate (Ps 90:5,6
 
 ## Penitent Submission.
 
-> <sup>7</sup> For we are consumed by thine anger, and by thy wrath are we troubled.  
-> <sup>8</sup> Thou hast set our iniquities before thee, our secret *sins* in the light of thy countenance.  
-> <sup>9</sup> For all our days are passed away in thy wrath: we spend our years as a tale *that is told.*  
-> <sup>10</sup> The days of our years *are* threescore years and ten; and if by reason of strength *they be* fourscore years, yet *is* their strength labour and sorrow; for it is soon cut off, and we fly away.  
-> <sup>11</sup> Who knoweth the power of thine anger? even according to thy fear, *so is* thy wrath.  
+> **⁷** For we are consumed by thine anger, and by thy wrath are we troubled.  
+> **⁸** Thou hast set our iniquities before thee, our secret *sins* in the light of thy countenance.  
+> **⁹** For all our days are passed away in thy wrath: we spend our years as a tale *that is told.*  
+> **¹⁰** The days of our years *are* threescore years and ten; and if by reason of strength *they be* fourscore years, yet *is* their strength labour and sorrow; for it is soon cut off, and we fly away.  
+> **¹¹** Who knoweth the power of thine anger? even according to thy fear, *so is* thy wrath.  
 
 Moses had, in the Ps 90:1-6, lamented the frailty of human life in general; the children of men *are as a sleep and as the grass.* But here he teaches the people of Israel to confess before God that righteous sentence of death which they were under in a special manner, and which by their sins they had brought upon themselves. Their share in the common lot of mortality was not enough, but they are, and must live and die, under peculiar tokens of God's displeasure. Here they speak of themselves: *We* Israelites *are consumed and troubled,* and *our days have passed away.*
 
@@ -49,12 +49,12 @@ IV\. They are taught by all this to stand in awe of the wrath of God (Ps 90:11):
 
 ## Prayers for Mercy.
 
-> <sup>12</sup> So teach *us* to number our days, that we may apply *our* hearts unto wisdom.  
-> <sup>13</sup> Return, O LORD, how long? and let it repent thee concerning thy servants.  
-> <sup>14</sup> O satisfy us early with thy mercy; that we may rejoice and be glad all our days.  
-> <sup>15</sup> Make us glad according to the days *wherein* thou hast afflicted us, *and* the years *wherein* we have seen evil.  
-> <sup>16</sup> Let thy work appear unto thy servants, and thy glory unto their children.  
-> <sup>17</sup> And let the beauty of the LORD our God be upon us: and establish thou the work of our hands upon us; yea, the work of our hands establish thou it.  
+> **¹²** So teach *us* to number our days, that we may apply *our* hearts unto wisdom.  
+> **¹³** Return, O LORD, how long? and let it repent thee concerning thy servants.  
+> **¹⁴** O satisfy us early with thy mercy; that we may rejoice and be glad all our days.  
+> **¹⁵** Make us glad according to the days *wherein* thou hast afflicted us, *and* the years *wherein* we have seen evil.  
+> **¹⁶** Let thy work appear unto thy servants, and thy glory unto their children.  
+> **¹⁷** And let the beauty of the LORD our God be upon us: and establish thou the work of our hands upon us; yea, the work of our hands establish thou it.  
 
 These are the petitions of this prayer, grounded upon the foregoing meditations and acknowledgments. *Is any afflicted? Let him* learn thus to *pray.* Four things they are here directed to pray for:—
 

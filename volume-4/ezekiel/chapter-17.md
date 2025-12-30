@@ -8,27 +8,27 @@ God was, in the foregoing chapter, reckoning with the people of Judah, and bring
 
 ## The Parable of the Eagles; The Parable Explained; Ruin of Zedekiah Predicted. (b. c. 593.)
 
-> <sup>1</sup> And the word of the LORD came unto me, saying,  
-> <sup>2</sup> Son of man, put forth a riddle, and speak a parable unto the house of Israel;  
-> <sup>3</sup> And say, Thus saith the Lord GOD; A great eagle with great wings, long-winged, full of feathers, which had divers colours, came unto Lebanon, and took the highest branch of the cedar:  
-> <sup>4</sup> He cropped off the top of his young twigs, and carried it into a land of traffick; he set it in a city of merchants.  
-> <sup>5</sup> He took also of the seed of the land, and planted it in a fruitful field; he placed *it* by great waters, *and* set it *as* a willow tree.  
-> <sup>6</sup> And it grew, and became a spreading vine of low stature, whose branches turned toward him, and the roots thereof were under him: so it became a vine, and brought forth branches, and shot forth sprigs.  
-> <sup>7</sup> There was also another great eagle with great wings and many feathers: and, behold, this vine did bend her roots toward him, and shot forth her branches toward him, that he might water it by the furrows of her plantation.  
-> <sup>8</sup> It was planted in a good soil by great waters, that it might bring forth branches, and that it might bear fruit, that it might be a goodly vine.  
-> <sup>9</sup> Say thou, Thus saith the Lord GOD; Shall it prosper? shall he not pull up the roots thereof, and cut off the fruit thereof, that it wither? it shall wither in all the leaves of her spring, even without great power or many people to pluck it up by the roots thereof.  
-> <sup>10</sup> Yea, behold, *being* planted, shall it prosper? shall it not utterly wither, when the east wind toucheth it? it shall wither in the furrows where it grew.  
-> <sup>11</sup> Moreover the word of the LORD came unto me, saying,  
-> <sup>12</sup> Say now to the rebellious house, Know ye not what these *things mean?* tell *them,* Behold, the king of Babylon is come to Jerusalem, and hath taken the king thereof, and the princes thereof, and led them with him to Babylon;  
-> <sup>13</sup> And hath taken of the king's seed, and made a covenant with him, and hath taken an oath of him: he hath also taken the mighty of the land:  
-> <sup>14</sup> That the kingdom might be base, that it might not lift itself up, *but* that by keeping of his covenant it might stand.  
-> <sup>15</sup> But he rebelled against him in sending his ambassadors into Egypt, that they might give him horses and much people. Shall he prosper? shall he escape that doeth such *things?* or shall he break the covenant, and be delivered?  
-> <sup>16</sup> *As* I live, saith the Lord GOD, surely in the place *where* the king *dwelleth* that made him king, whose oath he despised, and whose covenant he brake, *even* with him in the midst of Babylon he shall die.  
-> <sup>17</sup> Neither shall Pharaoh with *his* mighty army and great company make for him in the war, by casting up mounts, and building forts, to cut off many persons:  
-> <sup>18</sup> Seeing he despised the oath by breaking the covenant, when, lo, he had given his hand, and hath done all these *things,* he shall not escape.  
-> <sup>19</sup> Therefore thus saith the Lord GOD; *As* I live, surely mine oath that he hath despised, and my covenant that he hath broken, even it will I recompense upon his own head.  
-> <sup>20</sup> And I will spread my net upon him, and he shall be taken in my snare, and I will bring him to Babylon, and will plead with him there for his trespass that he hath trespassed against me.  
-> <sup>21</sup> And all his fugitives with all his bands shall fall by the sword, and they that remain shall be scattered toward all winds: and ye shall know that I the LORD have spoken *it.*  
+> **¹** And the word of the LORD came unto me, saying,  
+> **²** Son of man, put forth a riddle, and speak a parable unto the house of Israel;  
+> **³** And say, Thus saith the Lord GOD; A great eagle with great wings, long-winged, full of feathers, which had divers colours, came unto Lebanon, and took the highest branch of the cedar:  
+> **⁴** He cropped off the top of his young twigs, and carried it into a land of traffick; he set it in a city of merchants.  
+> **⁵** He took also of the seed of the land, and planted it in a fruitful field; he placed *it* by great waters, *and* set it *as* a willow tree.  
+> **⁶** And it grew, and became a spreading vine of low stature, whose branches turned toward him, and the roots thereof were under him: so it became a vine, and brought forth branches, and shot forth sprigs.  
+> **⁷** There was also another great eagle with great wings and many feathers: and, behold, this vine did bend her roots toward him, and shot forth her branches toward him, that he might water it by the furrows of her plantation.  
+> **⁸** It was planted in a good soil by great waters, that it might bring forth branches, and that it might bear fruit, that it might be a goodly vine.  
+> **⁹** Say thou, Thus saith the Lord GOD; Shall it prosper? shall he not pull up the roots thereof, and cut off the fruit thereof, that it wither? it shall wither in all the leaves of her spring, even without great power or many people to pluck it up by the roots thereof.  
+> **¹⁰** Yea, behold, *being* planted, shall it prosper? shall it not utterly wither, when the east wind toucheth it? it shall wither in the furrows where it grew.  
+> **¹¹** Moreover the word of the LORD came unto me, saying,  
+> **¹²** Say now to the rebellious house, Know ye not what these *things mean?* tell *them,* Behold, the king of Babylon is come to Jerusalem, and hath taken the king thereof, and the princes thereof, and led them with him to Babylon;  
+> **¹³** And hath taken of the king's seed, and made a covenant with him, and hath taken an oath of him: he hath also taken the mighty of the land:  
+> **¹⁴** That the kingdom might be base, that it might not lift itself up, *but* that by keeping of his covenant it might stand.  
+> **¹⁵** But he rebelled against him in sending his ambassadors into Egypt, that they might give him horses and much people. Shall he prosper? shall he escape that doeth such *things?* or shall he break the covenant, and be delivered?  
+> **¹⁶** *As* I live, saith the Lord GOD, surely in the place *where* the king *dwelleth* that made him king, whose oath he despised, and whose covenant he brake, *even* with him in the midst of Babylon he shall die.  
+> **¹⁷** Neither shall Pharaoh with *his* mighty army and great company make for him in the war, by casting up mounts, and building forts, to cut off many persons:  
+> **¹⁸** Seeing he despised the oath by breaking the covenant, when, lo, he had given his hand, and hath done all these *things,* he shall not escape.  
+> **¹⁹** Therefore thus saith the Lord GOD; *As* I live, surely mine oath that he hath despised, and my covenant that he hath broken, even it will I recompense upon his own head.  
+> **²⁰** And I will spread my net upon him, and he shall be taken in my snare, and I will bring him to Babylon, and will plead with him there for his trespass that he hath trespassed against me.  
+> **²¹** And all his fugitives with all his bands shall fall by the sword, and they that remain shall be scattered toward all winds: and ye shall know that I the LORD have spoken *it.*  
 
 We must take all these verses together, that we may have the parable and the explanation of it at one view before us, because they will illustrate one another. 1. The prophet is appointed to *put forth a riddle* to the *house of Israel* (Eze 17:2), not to puzzle them, as Samson's riddle was put forth to the Philistines, not to hide the mind of God from them in obscurity, or to leave them in uncertainty about it, one advancing one conjecture and another another, as is usual in expounding riddles; no, he is immediately to tell them the meaning of it. *Let him that speaks in an unknown tongue pray that he may interpret,* 1Co 14:13. But he must deliver this message in a riddle or parable that they might take the more notice of it, might be the more affected with it themselves, and might the better remember it and tell it to others. For these reasons God often used similitudes by his servants the prophets, and Christ himself *opened his mouth in parables.* Riddles and parables are used for an amusement to ourselves and an entertainment to our friends. The prophet must make use of these to see if in this dress the things of God might find acceptance, and insinuate themselves into the minds of a careless people. Note, Ministers should study to find out acceptable words, and try various methods to do good; and, as far as they have reason to think will be for edification, should both bring that which is familiar into their preaching and their preaching too into their familiar discourse, that there may not be so vast a dissimilitude as with some there is between what they say in the pulpit and what they say out. 2. He is appointed to expound this riddle to *the rebellious house,* Eze 17:12. Though being *rebellious* they might justly have been left in ignorance, to see and hear and not perceive, yet the thing shall be explained to them: *Know you not what these things mean?* Those that knew the story, and what was now in agitation, might make a shrewd guess at the meaning of this riddle, but, that they might be left without excuse, he is to give it to them in plain terms, stripped of the metaphor. But the enigma was first propounded for them to study on awhile, and to send to their friends at Jerusalem, that they might enquire after and expect the solution of it some time after.
 
@@ -52,9 +52,9 @@ V\. God here threatens Zedekiah with the utter destruction of him and his kingdo
 
 ## Promises of Mercy. (b. c. 593.)
 
-> <sup>22</sup> Thus saith the Lord GOD; I will also take of the highest branch of the high cedar, and will set *it;* I will crop off from the top of his young twigs a tender one, and will plant *it* upon a high mountain and eminent:  
-> <sup>23</sup> In the mountain of the height of Israel will I plant it: and it shall bring forth boughs, and bear fruit, and be a goodly cedar: and under it shall dwell all fowl of every wing; in the shadow of the branches thereof shall they dwell.  
-> <sup>24</sup> And all the trees of the field shall know that I the LORD have brought down the high tree, have exalted the low tree, have dried up the green tree, and have made the dry tree to flourish: I the LORD have spoken and have done *it.*  
+> **²²** Thus saith the Lord GOD; I will also take of the highest branch of the high cedar, and will set *it;* I will crop off from the top of his young twigs a tender one, and will plant *it* upon a high mountain and eminent:  
+> **²³** In the mountain of the height of Israel will I plant it: and it shall bring forth boughs, and bear fruit, and be a goodly cedar: and under it shall dwell all fowl of every wing; in the shadow of the branches thereof shall they dwell.  
+> **²⁴** And all the trees of the field shall know that I the LORD have brought down the high tree, have exalted the low tree, have dried up the green tree, and have made the dry tree to flourish: I the LORD have spoken and have done *it.*  
 
 When the royal family of Judah was brought to desolation by the captivity of Jehoiachin and Zedekiah it might be asked, "What has now become of the covenant of royalty made with David, that *his children should sit upon his throne for evermore?* Do the *sure mercies of David* prove thus unsure?" To this it is sufficient for the silencing of the objectors to answer that the promise was conditional. If *they will keep my covenant,* then they shall continue, Ps 132:12. But David's posterity broke the condition, and so forfeited the promise. But the unbelief of man shall not invalidate the promise of God. He will find out another *seed of David* in which it shall be accomplished; and that is promised in these verses.
 

@@ -8,17 +8,17 @@ The laws recorded in this chapter relate to the fifth and sixth commandments; an
 
 ## Judicial Laws. (b. c. 1491.)
 
-> <sup>1</sup> Now these *are* the judgments which thou shalt set before them.  
-> <sup>2</sup> If thou buy an Hebrew servant, six years he shall serve: and in the seventh he shall go out free for nothing.  
-> <sup>3</sup> If he came in by himself, he shall go out by himself: if he were married, then his wife shall go out with him.  
-> <sup>4</sup> If his master have given him a wife, and she have born him sons or daughters; the wife and her children shall be her master's, and he shall go out by himself.  
-> <sup>5</sup> And if the servant shall plainly say, I love my master, my wife, and my children; I will not go out free:  
-> <sup>6</sup> Then his master shall bring him unto the judges; he shall also bring him to the door, or unto the door post; and his master shall bore his ear through with an awl; and he shall serve him for ever.  
-> <sup>7</sup> And if a man sell his daughter to be a maidservant, she shall not go out as the menservants do.  
-> <sup>8</sup> If she please not her master, who hath betrothed her to himself, then shall he let her be redeemed: to sell her unto a strange nation he shall have no power, seeing he hath dealt deceitfully with her.  
-> <sup>9</sup> And if he have betrothed her unto his son, he shall deal with her after the manner of daughters.  
-> <sup>10</sup> If he take him another *wife;* her food, her raiment, and her duty of marriage, shall he not diminish.  
-> <sup>11</sup> And if he do not these three unto her, then shall she go out free without money.  
+> **¹** Now these *are* the judgments which thou shalt set before them.  
+> **²** If thou buy an Hebrew servant, six years he shall serve: and in the seventh he shall go out free for nothing.  
+> **³** If he came in by himself, he shall go out by himself: if he were married, then his wife shall go out with him.  
+> **⁴** If his master have given him a wife, and she have born him sons or daughters; the wife and her children shall be her master's, and he shall go out by himself.  
+> **⁵** And if the servant shall plainly say, I love my master, my wife, and my children; I will not go out free:  
+> **⁶** Then his master shall bring him unto the judges; he shall also bring him to the door, or unto the door post; and his master shall bore his ear through with an awl; and he shall serve him for ever.  
+> **⁷** And if a man sell his daughter to be a maidservant, she shall not go out as the menservants do.  
+> **⁸** If she please not her master, who hath betrothed her to himself, then shall he let her be redeemed: to sell her unto a strange nation he shall have no power, seeing he hath dealt deceitfully with her.  
+> **⁹** And if he have betrothed her unto his son, he shall deal with her after the manner of daughters.  
+> **¹⁰** If he take him another *wife;* her food, her raiment, and her duty of marriage, shall he not diminish.  
+> **¹¹** And if he do not these three unto her, then shall she go out free without money.  
 
 The Ex 21:1 is the general title of the laws contained in this and the two following chapters, some of them relating to the religious worship of God, but most of them relating to matters between man and man. Their government being purely a Theocracy, that which in other states is to be settled by human prudence was directed among them by a divine appointment, so that the constitution of their government was peculiarly adapted to make them happy. These laws are called *judgments,* because they are framed in infinite wisdom and equity, and because their magistrates were to give judgment according to the people. In the doubtful cases that had hitherto occurred, Moses had particularly enquired of God for them, as appeared, Ex 18:15; but now God gave him statutes in general by which to determine particular cases, which likewise he must apply to other like cases that might happen, which, falling under the same reason, fell under the same rule. He begins with the laws concerning servants, commanding mercy and moderation towards them. The Israelites had lately been servants themselves; and now that they had become, not only their own masters, but masters of servants, too, lest they should abuse their servants, as they themselves had been abused and ruled with rigour by the Egyptian task-masters, provision was made by these laws for the mild and gentle usage of servants. Note, If those who have had power over us have been injurious to us this will not in the least excuse us if we be in like manner injurious to those who are under our power, but will rather aggravate our crime, because, in that case, we may the more easily put our souls into their soul's stead. Here is,
 
@@ -30,16 +30,16 @@ I\. A law concerning men-servants, sold, either by themselves or their parents, 
 
 Concerning maid-servants, whom their parents, through extreme poverty, had sold, when they were very young, to such as they hoped would marry them when they grew up; if they did not, yet they must not sell them to strangers, but rather study how to make them amends for the disappointment; if they did, they must maintain them handsomely, Ex 21:7-11. Thus did God provide for the comfort and reputation of the daughters of Israel, and has taught husbands to *give honour to their wives* (be their extraction ever so mean) as to the *weaker vessels,* 1Pe 3:7.
 
-> <sup>12</sup> He that smiteth a man, so that he die, shall be surely put to death.  
-> <sup>13</sup> And if a man lie not in wait, but God deliver *him* into his hand; then I will appoint thee a place whither he shall flee.  
-> <sup>14</sup> But if a man come presumptuously upon his neighbour, to slay him with guile; thou shalt take him from mine altar, that he may die.  
-> <sup>15</sup> And he that smiteth his father, or his mother, shall be surely put to death.  
-> <sup>16</sup> And he that stealeth a man, and selleth him, or if he be found in his hand, he shall surely be put to death.  
-> <sup>17</sup> And he that curseth his father, or his mother, shall surely be put to death.  
-> <sup>18</sup> And if men strive together, and one smite another with a stone, or with *his* fist, and he die not, but keepeth *his* bed:  
-> <sup>19</sup> If he rise again, and walk abroad upon his staff, then shall he that smote *him* be quit: only he shall pay *for* the loss of his time, and shall cause *him* to be thoroughly healed.  
-> <sup>20</sup> And if a man smite his servant, or his maid, with a rod, and he die under his hand; he shall be surely punished.  
-> <sup>21</sup> Notwithstanding, if he continue a day or two, he shall not be punished: for he *is* his money.  
+> **¹²** He that smiteth a man, so that he die, shall be surely put to death.  
+> **¹³** And if a man lie not in wait, but God deliver *him* into his hand; then I will appoint thee a place whither he shall flee.  
+> **¹⁴** But if a man come presumptuously upon his neighbour, to slay him with guile; thou shalt take him from mine altar, that he may die.  
+> **¹⁵** And he that smiteth his father, or his mother, shall be surely put to death.  
+> **¹⁶** And he that stealeth a man, and selleth him, or if he be found in his hand, he shall surely be put to death.  
+> **¹⁷** And he that curseth his father, or his mother, shall surely be put to death.  
+> **¹⁸** And if men strive together, and one smite another with a stone, or with *his* fist, and he die not, but keepeth *his* bed:  
+> **¹⁹** If he rise again, and walk abroad upon his staff, then shall he that smote *him* be quit: only he shall pay *for* the loss of his time, and shall cause *him* to be thoroughly healed.  
+> **²⁰** And if a man smite his servant, or his maid, with a rod, and he die under his hand; he shall be surely punished.  
+> **²¹** Notwithstanding, if he continue a day or two, he shall not be punished: for he *is* his money.  
 
 Here is, I. A law concerning murder. He had lately said, *Thou shalt not kill;* here he provides, 1. For the punishing of wilful murder (Ex 21:12): *He that smiteth a man,* whether upon a sudden passion or in malice prepense, *so that he die,* the government must take care that the murderer be *put to death,* according to that ancient law (Ge 9:6), *Whoso sheddeth man's blood, by man shall his blood be shed.* God, who by his providence gives and maintains life, thus by his law protects it; so that mercy shown to a wilful murderer is real cruelty to all mankind besides: such a one, God here says, shall be taken even *from his altar* (Ex 21:14), to which he might flee for protection; and, if God will not shelter him, let him *flee to the pit, and let no man stay him.* 2. For the relief of such as killed by accident, *per infortunium—by misfortune,* or *chance-medley,* as our law expresses it, when a man, in doing a lawful act, without intent of hurt to any, happens to kill another, or, as it is here described, *God delivers him into his hand;* for nothing comes to pass by chance; what seems to us purely casual is ordered by the divine Providence, for wise and holy ends secret to us. In this case God provided cities of refuge for the protection of those whose infelicity it was, but not their fault, to occasion the death of another, Ex 21:13. With us, who know no avengers of blood but the magistrates, the law itself is a sufficient sanctuary for those whose minds are innocent, though their hands are guilty, and there needs no other.
 
@@ -51,21 +51,21 @@ IV\. Care is here taken that satisfaction be made for hurt done to a person, tho
 
 V\. Direction is given what should be done if a servant died by his master's correction. This servant must not be an Israelite, but a Gentile slave, as the negroes to our planters; and it is supposed that he smite him with a rod, and not with any thing that was likely to give a mortal wound; yet, if he died under his hand, he should be punished for his cruelty, at the discretion of the judges, upon consideration of circumstances, Ex 21:20. But, if he continued a day or two after the correction given, the master was supposed to suffer enough by losing his servant, Ex 21:21. Our law makes the death of a servant, by his master's reasonable beating of him, but *chance-medley.* Yet let all masters take heed of tyrannizing over their servants; the gospel teaches them even to forbear and moderate threatenings (Eph 6:9), considering with holy Job, *What shall I do, when God riseth up?* Job 31:13-15.
 
-> <sup>22</sup> If men strive, and hurt a woman with child, so that her fruit depart *from her,* and yet no mischief follow: he shall be surely punished, according as the woman's husband will lay upon him; and he shall pay as the judges *determine.*  
-> <sup>23</sup> And if *any* mischief follow, then thou shalt give life for life,  
-> <sup>24</sup> Eye for eye, tooth for tooth, hand for hand, foot for foot,  
-> <sup>25</sup> Burning for burning, wound for wound, stripe for stripe.  
-> <sup>26</sup> And if a man smite the eye of his servant, or the eye of his maid, that it perish; he shall let him go free for his eye's sake.  
-> <sup>27</sup> And if he smite out his manservant's tooth, or his maidservant's tooth; he shall let him go free for his tooth's sake.  
-> <sup>28</sup> If an ox gore a man or a woman, that they die: then the ox shall be surely stoned, and his flesh shall not be eaten; but the owner of the ox *shall be* quit.  
-> <sup>29</sup> But if the ox were wont to push with his horn in time past, and it hath been testified to his owner, and he hath not kept him in, but that he hath killed a man or a woman; the ox shall be stoned, and his owner also shall be put to death.  
-> <sup>30</sup> If there be laid on him a sum of money, then he shall give for the ransom of his life whatsoever is laid upon him.  
-> <sup>31</sup> Whether he have gored a son, or have gored a daughter, according to this judgment shall it be done unto him.  
-> <sup>32</sup> If the ox shall push a manservant or a maidservant; he shall give unto their master thirty shekels of silver, and the ox shall be stoned.  
-> <sup>33</sup> And if a man shall open a pit, or if a man shall dig a pit, and not cover it, and an ox or an ass fall therein;  
-> <sup>34</sup> The owner of the pit shall make *it* good, *and* give money unto the owner of them; and the dead *beast* shall be his.  
-> <sup>35</sup> And if one man's ox hurt another's, that he die; then they shall sell the live ox, and divide the money of it; and the dead *ox* also they shall divide.  
-> <sup>36</sup> Or if it be known that the ox hath used to push in time past, and his owner hath not kept him in; he shall surely pay ox for ox; and the dead shall be his own.  
+> **²²** If men strive, and hurt a woman with child, so that her fruit depart *from her,* and yet no mischief follow: he shall be surely punished, according as the woman's husband will lay upon him; and he shall pay as the judges *determine.*  
+> **²³** And if *any* mischief follow, then thou shalt give life for life,  
+> **²⁴** Eye for eye, tooth for tooth, hand for hand, foot for foot,  
+> **²⁵** Burning for burning, wound for wound, stripe for stripe.  
+> **²⁶** And if a man smite the eye of his servant, or the eye of his maid, that it perish; he shall let him go free for his eye's sake.  
+> **²⁷** And if he smite out his manservant's tooth, or his maidservant's tooth; he shall let him go free for his tooth's sake.  
+> **²⁸** If an ox gore a man or a woman, that they die: then the ox shall be surely stoned, and his flesh shall not be eaten; but the owner of the ox *shall be* quit.  
+> **²⁹** But if the ox were wont to push with his horn in time past, and it hath been testified to his owner, and he hath not kept him in, but that he hath killed a man or a woman; the ox shall be stoned, and his owner also shall be put to death.  
+> **³⁰** If there be laid on him a sum of money, then he shall give for the ransom of his life whatsoever is laid upon him.  
+> **³¹** Whether he have gored a son, or have gored a daughter, according to this judgment shall it be done unto him.  
+> **³²** If the ox shall push a manservant or a maidservant; he shall give unto their master thirty shekels of silver, and the ox shall be stoned.  
+> **³³** And if a man shall open a pit, or if a man shall dig a pit, and not cover it, and an ox or an ass fall therein;  
+> **³⁴** The owner of the pit shall make *it* good, *and* give money unto the owner of them; and the dead *beast* shall be his.  
+> **³⁵** And if one man's ox hurt another's, that he die; then they shall sell the live ox, and divide the money of it; and the dead *ox* also they shall divide.  
+> **³⁶** Or if it be known that the ox hath used to push in time past, and his owner hath not kept him in; he shall surely pay ox for ox; and the dead shall be his own.  
 
 Observe here,
 

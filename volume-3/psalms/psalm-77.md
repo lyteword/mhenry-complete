@@ -10,16 +10,16 @@ This psalm, according to the method of many other psalms, begins with sorrowful 
 
 To the chief musician, to Jeduthun. A psalm of Asaph.
 
-> <sup>1</sup> I cried unto God with my voice, *even* unto God with my voice; and he gave ear unto me.  
-> <sup>2</sup> In the day of my trouble I sought the Lord: my sore ran in the night, and ceased not: my soul refused to be comforted.  
-> <sup>3</sup> I remembered God, and was troubled: I complained, and my spirit was overwhelmed. Selah.  
-> <sup>4</sup> Thou holdest mine eyes waking: I am so troubled that I cannot speak.  
-> <sup>5</sup> I have considered the days of old, the years of ancient times.  
-> <sup>6</sup> I call to remembrance my song in the night: I commune with mine own heart: and my spirit made diligent search.  
-> <sup>7</sup> Will the Lord cast off for ever? and will he be favourable no more?  
-> <sup>8</sup> Is his mercy clean gone for ever? doth *his* promise fail for evermore?  
-> <sup>9</sup> Hath God forgotten to be gracious? hath he in anger shut up his tender mercies? Selah.  
-> <sup>10</sup> And I said, This *is* my infirmity: *but I will remember* the years of the right hand of the most High.  
+> **¹** I cried unto God with my voice, *even* unto God with my voice; and he gave ear unto me.  
+> **²** In the day of my trouble I sought the Lord: my sore ran in the night, and ceased not: my soul refused to be comforted.  
+> **³** I remembered God, and was troubled: I complained, and my spirit was overwhelmed. Selah.  
+> **⁴** Thou holdest mine eyes waking: I am so troubled that I cannot speak.  
+> **⁵** I have considered the days of old, the years of ancient times.  
+> **⁶** I call to remembrance my song in the night: I commune with mine own heart: and my spirit made diligent search.  
+> **⁷** Will the Lord cast off for ever? and will he be favourable no more?  
+> **⁸** Is his mercy clean gone for ever? doth *his* promise fail for evermore?  
+> **⁹** Hath God forgotten to be gracious? hath he in anger shut up his tender mercies? Selah.  
+> **¹⁰** And I said, This *is* my infirmity: *but I will remember* the years of the right hand of the most High.  
 
 We have here the lively portraiture of a good man under prevailing melancholy, fallen into and sinking in that horrible pit and that miry clay, but struggling to get out. Drooping saints, that are of a sorrowful spirit, may here as in a glass see their own faces. The conflict which the psalmist had with his griefs and fears seems to have been over when he penned this record of it; for he says (Ps 77:1), *I cried unto God, and he gave ear unto me,* which, while the struggle lasted, he had not the comfortable sense of, as he had afterwards; but he inserts it in the beginning of his narrative as an intimation that his trouble did not end in despair; for God heard him, and, at length, he knew that he heard him. Observe,
 
@@ -35,16 +35,16 @@ V\. His melancholy fears and apprehensions: "*I communed with my own heart,* Ps 
 
 ## Acknowledgments of the Divine Majesty, of God's Wonders Wrought for Israel.
 
-> <sup>11</sup> I will remember the works of the LORD: surely I will remember thy wonders of old.  
-> <sup>12</sup> I will meditate also of all thy work, and talk of thy doings.  
-> <sup>13</sup> Thy way, O God, *is* in the sanctuary: who *is so* great a God as *our* God?  
-> <sup>14</sup> Thou *art* the God that doest wonders: thou hast declared thy strength among the people.  
-> <sup>15</sup> Thou hast with *thine* arm redeemed thy people, the sons of Jacob and Joseph. Selah.  
-> <sup>16</sup> The waters saw thee, O God, the waters saw thee; they were afraid: the depths also were troubled.  
-> <sup>17</sup> The clouds poured out water: the skies sent out a sound: thine arrows also went abroad.  
-> <sup>18</sup> The voice of thy thunder *was* in the heaven: the lightnings lightened the world: the earth trembled and shook.  
-> <sup>19</sup> Thy way *is* in the sea, and thy path in the great waters, and thy footsteps are not known.  
-> <sup>20</sup> Thou leddest thy people like a flock by the hand of Moses and Aaron.  
+> **¹¹** I will remember the works of the LORD: surely I will remember thy wonders of old.  
+> **¹²** I will meditate also of all thy work, and talk of thy doings.  
+> **¹³** Thy way, O God, *is* in the sanctuary: who *is so* great a God as *our* God?  
+> **¹⁴** Thou *art* the God that doest wonders: thou hast declared thy strength among the people.  
+> **¹⁵** Thou hast with *thine* arm redeemed thy people, the sons of Jacob and Joseph. Selah.  
+> **¹⁶** The waters saw thee, O God, the waters saw thee; they were afraid: the depths also were troubled.  
+> **¹⁷** The clouds poured out water: the skies sent out a sound: thine arrows also went abroad.  
+> **¹⁸** The voice of thy thunder *was* in the heaven: the lightnings lightened the world: the earth trembled and shook.  
+> **¹⁹** Thy way *is* in the sea, and thy path in the great waters, and thy footsteps are not known.  
+> **²⁰** Thou leddest thy people like a flock by the hand of Moses and Aaron.  
 
 The psalmist here recovers himself out of the great distress and plague he was in, and silences his own fears of God's casting off his people by the remembrance of the great things he had done for them formerly, which though he had in vain tried to quiet himself with (Ps 77:5,6) yet he tried again, and, upon this second trial, found it not in vain. It is good to persevere in the proper means for the strengthening of faith, though they do not prove effectual at first: "*I will remember, surely I will,* what God has done for his people of old, till I can thence infer a happy issue of the present dark dispensation," Ps 77:11,12. Note, 1. The works of the Lord, for his people, have been wondrous works. 2. They are recorded for us, that they may be remembered by us. 3. That we may have benefit by the remembrance of them we must meditate upon them, and dwell upon them in our thoughts, and must talk of them, that we may inform ourselves and others further concerning them. 4. The due remembrance of the works of God will be a powerful antidote against distrust of his promise and goodness; for he is God and changes not. If he begin, he will finish his work and bring forth the top-stone.
 

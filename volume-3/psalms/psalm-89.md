@@ -10,25 +10,25 @@ Many psalms that begin with complaint and prayer end with joy and praise, but th
 
 Maschil of Ethan the Ezrahite.
 
-> <sup>1</sup> I will sing of the mercies of the LORD for ever: with my mouth will I make known thy faithfulness to all generations.  
-> <sup>2</sup> For I have said, Mercy shall be built up for ever: thy faithfulness shalt thou establish in the very heavens.  
-> <sup>3</sup> I have made a covenant with my chosen, I have sworn unto David my servant,  
-> <sup>4</sup> Thy seed will I establish for ever, and build up thy throne to all generations. Selah.  
+> **¹** I will sing of the mercies of the LORD for ever: with my mouth will I make known thy faithfulness to all generations.  
+> **²** For I have said, Mercy shall be built up for ever: thy faithfulness shalt thou establish in the very heavens.  
+> **³** I have made a covenant with my chosen, I have sworn unto David my servant,  
+> **⁴** Thy seed will I establish for ever, and build up thy throne to all generations. Selah.  
 
 The psalmist has a very sad complaint to make of the deplorable condition of the family of David at this time, and yet he begins the psalm with songs of praise; for we must, in every thing, in every state, give thanks; thus we must glorify the Lord in the fire. We think, when we are in trouble, that we get ease by complaining; but we do more—we get joy, by praising. Let our complaints therefore be turned into thanksgivings; and in these verses we find that which will be matter of praise and thanksgiving for us in the worst of times, whether upon a personal or a public account, 1. However it be, the everlasting God is good and true, Ps 89:1. Though we may find it hard to reconcile present dark providences with the goodness and truth of God, yet we must abide by this principle, That God's mercies are inexhaustible and his truth is inviolable; and these must be the matter of our joy and praise: "*I will sing of the mercies of the Lord for ever,* sing a praising song to God's honour, a pleasant song for my own solace, and *Maschil,* an instructive song, for the edification of others." We may be for ever singing God's mercies, and yet the subject will not be drawn dry. We must sing of God's mercies as long as we live, train up others to sing of them when we are gone, and hope to be singing them in heaven world without end; and this is *singing of the mercies of the Lord for ever. With my mouth,* and with my pen (for by that also do we speak), *will I make known thy faithfulness to all generations,* assuring posterity, from my own observation and experience, that God is true to every word that he has spoken, that they may learn to *put their trust in God,* Ps 78:6. 2. However it be, the everlasting covenant is firm and sure, Ps 89:2-4. Here we have, (1.) The psalmist's faith and hope: "Things now look black, and threaten the utter extirpation of the house of David; but *I have said,* and I have warrant from the word of God to say it, that *mercy shall be built up for ever.*" As the goodness of God's nature is to be the matter of our song (Ps 89:1), so much more the mercy that is built for us in the covenant; it is still increasing, like a house in the building up, and shall still continue our rest for ever, like a house built up. It shall be built up for ever; for the everlasting habitations we hope for in the new Jerusalem are of this building. If mercy shall be built for ever, then the *tabernacle of David, which has fallen down,* shall *be raised out of its ruins,* and *built up as in the days of old,* Am 9:11. *Therefore* mercy shall be built up for ever, because *thy faithfulness shalt thou establish in the very heavens.* Though our expectations are in some particular instances disappointed, yet God's promises are not disannulled; they are *established in the very heavens* (that is, in his eternal counsels); they are above the changes of this lower region and out of the reach of the opposition of hell and earth. The stability of the material heavens is an emblem of the truth of God's word; the heavens may be clouded by vapours arising out of the earth, but they cannot be touched, they cannot be changed. (2.) An abstract of the covenant upon which this faith and hope are built: *I have said it,* says the psalmist, for *God hath sworn it,* that the heirs of promise might be entirely satisfied of the immutability of his counsel. He brings in God speaking (Ps 89:3), owning, to the comfort of his people, "*I have made a covenant,* and therefore will make it good." The covenant is made with David; the covenant of royalty is made with him, as the father of his family, and with his seed through him and for his sake, representing the covenant of grace made with Christ as head of the church and with all believers as his spiritual seed. David is here called *God's chosen* and *his servant;* and, as God is not changeable to recede from his own choice, so he is not unrighteous to cast off one that served him. Two things encourage the psalmist to build his faith on this covenant:—[1.] The ratification of it; it was confirmed with an oath: *The Lord has sworn, and he will not repent.* [2.] The perpetuity of it; the blessings of the covenant were not only secured to David himself, but were entailed on his family; it was promised that his family should continue—*Thy seed will I establish for ever,* so that *David shall not want a son to reign* (Jer 33:20,21); and that it should continue a royal family—*I will build up thy throne to all generations,* to all the generations of time. This has its accomplishment only in Christ, of the seed of David, who lives for ever, to whom God has given the throne of his father David, and of the increase of whose government and peace there shall be no end. Of this covenant the psalmist will return to speak more largely, Ps 89:19, etc.
 
 ## The Divine Power and Justice; The Glory of God Celebrated.
 
-> <sup>5</sup> And the heavens shall praise thy wonders, O LORD: thy faithfulness also in the congregation of the saints.  
-> <sup>6</sup> For who in the heaven can be compared unto the LORD? *who* among the sons of the mighty can be likened unto the LORD?  
-> <sup>7</sup> God is greatly to be feared in the assembly of the saints, and to be had in reverence of all *them that are* about him.  
-> <sup>8</sup> O LORD God of hosts, who *is* a strong LORD like unto thee? or to thy faithfulness round about thee?  
-> <sup>9</sup> Thou rulest the raging of the sea: when the waves thereof arise, thou stillest them.  
-> <sup>10</sup> Thou hast broken Rahab in pieces, as one that is slain; thou hast scattered thine enemies with thy strong arm.  
-> <sup>11</sup> The heavens *are* thine, the earth also *is* thine: *as for* the world and the fulness thereof, thou hast founded them.  
-> <sup>12</sup> The north and the south thou hast created them: Tabor and Hermon shall rejoice in thy name.  
-> <sup>13</sup> Thou hast a mighty arm: strong is thy hand, *and* high is thy right hand.  
-> <sup>14</sup> Justice and judgment *are* the habitation of thy throne: mercy and truth shall go before thy face.  
+> **⁵** And the heavens shall praise thy wonders, O LORD: thy faithfulness also in the congregation of the saints.  
+> **⁶** For who in the heaven can be compared unto the LORD? *who* among the sons of the mighty can be likened unto the LORD?  
+> **⁷** God is greatly to be feared in the assembly of the saints, and to be had in reverence of all *them that are* about him.  
+> **⁸** O LORD God of hosts, who *is* a strong LORD like unto thee? or to thy faithfulness round about thee?  
+> **⁹** Thou rulest the raging of the sea: when the waves thereof arise, thou stillest them.  
+> **¹⁰** Thou hast broken Rahab in pieces, as one that is slain; thou hast scattered thine enemies with thy strong arm.  
+> **¹¹** The heavens *are* thine, the earth also *is* thine: *as for* the world and the fulness thereof, thou hast founded them.  
+> **¹²** The north and the south thou hast created them: Tabor and Hermon shall rejoice in thy name.  
+> **¹³** Thou hast a mighty arm: strong is thy hand, *and* high is thy right hand.  
+> **¹⁴** Justice and judgment *are* the habitation of thy throne: mercy and truth shall go before thy face.  
 
 These verses are full of the praises of God. Observe,
 
@@ -40,10 +40,10 @@ III\. What we ought, in our praises, to give God the glory of. Several things ar
 
 ## The Blessedness of Israel Declared.
 
-> <sup>15</sup> Blessed *is* the people that know the joyful sound: they shall walk, O LORD, in the light of thy countenance.  
-> <sup>16</sup> In thy name shall they rejoice all the day: and in thy righteousness shall they be exalted.  
-> <sup>17</sup> For thou *art* the glory of their strength: and in thy favour our horn shall be exalted.  
-> <sup>18</sup> For the LORD *is* our defence; and the Holy One of Israel *is* our king.  
+> **¹⁵** Blessed *is* the people that know the joyful sound: they shall walk, O LORD, in the light of thy countenance.  
+> **¹⁶** In thy name shall they rejoice all the day: and in thy righteousness shall they be exalted.  
+> **¹⁷** For thou *art* the glory of their strength: and in thy favour our horn shall be exalted.  
+> **¹⁸** For the LORD *is* our defence; and the Holy One of Israel *is* our king.  
 
 The psalmist, having largely shown the blessedness of the God of Israel, here shows the blessedness of the Israel of God. As *there is none like unto the God of Jeshurun, so, happy art thou, O Israel! there is none like unto thee, O people!* especially as a type of the gospel-Israel, consisting of all true believers, whose happiness is here described.
 
@@ -59,25 +59,25 @@ V\. Their relation to God is their protection and safety (Ps 89:18): "*For our s
 
 ## God's Covenant with David.
 
-> <sup>19</sup> Then thou spakest in vision to thy holy one, and saidst, I have laid help upon *one that is* mighty; I have exalted *one* chosen out of the people.  
-> <sup>20</sup> I have found David my servant; with my holy oil have I anointed him:  
-> <sup>21</sup> With whom my hand shall be established: mine arm also shall strengthen him.  
-> <sup>22</sup> The enemy shall not exact upon him; nor the son of wickedness afflict him.  
-> <sup>23</sup> And I will beat down his foes before his face, and plague them that hate him.  
-> <sup>24</sup> But my faithfulness and my mercy *shall be* with him: and in my name shall his horn be exalted.  
-> <sup>25</sup> I will set his hand also in the sea, and his right hand in the rivers.  
-> <sup>26</sup> He shall cry unto me, Thou *art* my father, my God, and the rock of my salvation.  
-> <sup>27</sup> Also I will make him *my* firstborn, higher than the kings of the earth.  
-> <sup>28</sup> My mercy will I keep for him for evermore, and my covenant shall stand fast with him.  
-> <sup>29</sup> His seed also will I make *to endure* for ever, and his throne as the days of heaven.  
-> <sup>30</sup> If his children forsake my law, and walk not in my judgments;  
-> <sup>31</sup> If they break my statutes, and keep not my commandments;  
-> <sup>32</sup> Then will I visit their transgression with the rod, and their iniquity with stripes.  
-> <sup>33</sup> Nevertheless my lovingkindness will I not utterly take from him, nor suffer my faithfulness to fail.  
-> <sup>34</sup> My covenant will I not break, nor alter the thing that is gone out of my lips.  
-> <sup>35</sup> Once have I sworn by my holiness that I will not lie unto David.  
-> <sup>36</sup> His seed shall endure for ever, and his throne as the sun before me.  
-> <sup>37</sup> It shall be established for ever as the moon, and *as* a faithful witness in heaven. Selah.  
+> **¹⁹** Then thou spakest in vision to thy holy one, and saidst, I have laid help upon *one that is* mighty; I have exalted *one* chosen out of the people.  
+> **²⁰** I have found David my servant; with my holy oil have I anointed him:  
+> **²¹** With whom my hand shall be established: mine arm also shall strengthen him.  
+> **²²** The enemy shall not exact upon him; nor the son of wickedness afflict him.  
+> **²³** And I will beat down his foes before his face, and plague them that hate him.  
+> **²⁴** But my faithfulness and my mercy *shall be* with him: and in my name shall his horn be exalted.  
+> **²⁵** I will set his hand also in the sea, and his right hand in the rivers.  
+> **²⁶** He shall cry unto me, Thou *art* my father, my God, and the rock of my salvation.  
+> **²⁷** Also I will make him *my* firstborn, higher than the kings of the earth.  
+> **²⁸** My mercy will I keep for him for evermore, and my covenant shall stand fast with him.  
+> **²⁹** His seed also will I make *to endure* for ever, and his throne as the days of heaven.  
+> **³⁰** If his children forsake my law, and walk not in my judgments;  
+> **³¹** If they break my statutes, and keep not my commandments;  
+> **³²** Then will I visit their transgression with the rod, and their iniquity with stripes.  
+> **³³** Nevertheless my lovingkindness will I not utterly take from him, nor suffer my faithfulness to fail.  
+> **³⁴** My covenant will I not break, nor alter the thing that is gone out of my lips.  
+> **³⁵** Once have I sworn by my holiness that I will not lie unto David.  
+> **³⁶** His seed shall endure for ever, and his throne as the sun before me.  
+> **³⁷** It shall be established for ever as the moon, and *as* a faithful witness in heaven. Selah.  
 
 The covenant God made with David and his seed was mentioned before (Ps 89:3,4); but in these verses it is enlarged upon, and pleaded with God, for favour to the royal family, now almost sunk and ruined; yet certainly it looks at Christ, and has its accomplishment in him much more than in David; nay, some passages here are scarcely applicable at all to David, but must be understood of Christ only (who is therefore called *David our king,* Ho 3:5), and very great and precious promises they are which are here made to the Redeemer, which are strong foundations for the faith and hope of the redeemed to build upon. The comforts of our redemption flow from the covenant of redemption; all our springs are in that, Isa 55:3. *I will make an everlasting covenant with you, even the sure mercies of David,* Ac 13:34. Now here we have an account of those sure mercies. Observe,
 
@@ -101,21 +101,21 @@ III\. The promises made to this chosen one, to David in the type and the Son of 
 
 ## Complaints and Expostulations; David's Expostulation with God.
 
-> <sup>38</sup> But thou hast cast off and abhorred, thou hast been wroth with thine anointed.  
-> <sup>39</sup> Thou hast made void the covenant of thy servant: thou hast profaned his crown *by casting it* to the ground.  
-> <sup>40</sup> Thou hast broken down all his hedges; thou hast brought his strong holds to ruin.  
-> <sup>41</sup> All that pass by the way spoil him: he is a reproach to his neighbours.  
-> <sup>42</sup> Thou hast set up the right hand of his adversaries; thou hast made all his enemies to rejoice.  
-> <sup>43</sup> Thou hast also turned the edge of his sword, and hast not made him to stand in the battle.  
-> <sup>44</sup> Thou hast made his glory to cease, and cast his throne down to the ground.  
-> <sup>45</sup> The days of his youth hast thou shortened: thou hast covered him with shame. Selah.  
-> <sup>46</sup> How long, LORD? wilt thou hide thyself for ever? shall thy wrath burn like fire?  
-> <sup>47</sup> Remember how short my time is: wherefore hast thou made all men in vain?  
-> <sup>48</sup> What man *is he that* liveth, and shall not see death? shall he deliver his soul from the hand of the grave? Selah.  
-> <sup>49</sup> Lord, where *are* thy former lovingkindnesses, *which* thou swarest unto David in thy truth?  
-> <sup>50</sup> Remember, Lord, the reproach of thy servants; *how* I do bear in my bosom *the reproach of* all the mighty people;  
-> <sup>51</sup> Wherewith thine enemies have reproached, O LORD; wherewith they have reproached the footsteps of thine anointed.  
-> <sup>52</sup> Blessed *be* the LORD for evermore. Amen, and Amen.  
+> **³⁸** But thou hast cast off and abhorred, thou hast been wroth with thine anointed.  
+> **³⁹** Thou hast made void the covenant of thy servant: thou hast profaned his crown *by casting it* to the ground.  
+> **⁴⁰** Thou hast broken down all his hedges; thou hast brought his strong holds to ruin.  
+> **⁴¹** All that pass by the way spoil him: he is a reproach to his neighbours.  
+> **⁴²** Thou hast set up the right hand of his adversaries; thou hast made all his enemies to rejoice.  
+> **⁴³** Thou hast also turned the edge of his sword, and hast not made him to stand in the battle.  
+> **⁴⁴** Thou hast made his glory to cease, and cast his throne down to the ground.  
+> **⁴⁵** The days of his youth hast thou shortened: thou hast covered him with shame. Selah.  
+> **⁴⁶** How long, LORD? wilt thou hide thyself for ever? shall thy wrath burn like fire?  
+> **⁴⁷** Remember how short my time is: wherefore hast thou made all men in vain?  
+> **⁴⁸** What man *is he that* liveth, and shall not see death? shall he deliver his soul from the hand of the grave? Selah.  
+> **⁴⁹** Lord, where *are* thy former lovingkindnesses, *which* thou swarest unto David in thy truth?  
+> **⁵⁰** Remember, Lord, the reproach of thy servants; *how* I do bear in my bosom *the reproach of* all the mighty people;  
+> **⁵¹** Wherewith thine enemies have reproached, O LORD; wherewith they have reproached the footsteps of thine anointed.  
+> **⁵²** Blessed *be* the LORD for evermore. Amen, and Amen.  
 
 In these verses we have,
 

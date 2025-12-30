@@ -8,10 +8,10 @@ Jacob is here removing to Egypt in his old age, forced thither by a famine, and 
 
 ## Jacob Sacrifices at Beersheba. (b. c. 1707.)
 
-> <sup>1</sup> And Israel took his journey with all that he had, and came to Beer-sheba, and offered sacrifices unto the God of his father Isaac.  
-> <sup>2</sup> And God spake unto Israel in the visions of the night, and said, Jacob, Jacob. And he said, Here *am* I.  
-> <sup>3</sup> And he said, I *am* God, the God of thy father: fear not to go down into Egypt; for I will there make of thee a great nation:  
-> <sup>4</sup> I will go down with thee into Egypt; and I will also surely bring thee up *again:* and Joseph shall put his hand upon thine eyes.  
+> **¹** And Israel took his journey with all that he had, and came to Beer-sheba, and offered sacrifices unto the God of his father Isaac.  
+> **²** And God spake unto Israel in the visions of the night, and said, Jacob, Jacob. And he said, Here *am* I.  
+> **³** And he said, I *am* God, the God of thy father: fear not to go down into Egypt; for I will there make of thee a great nation:  
+> **⁴** I will go down with thee into Egypt; and I will also surely bring thee up *again:* and Joseph shall put his hand upon thine eyes.  
 
 The divine precept is, *In all thy ways acknowledge God;* and the promise annexed to it is, *He shall direct thy paths.* Jacob has here a very great concern before him, not only a journey, but a removal, to settle in another country, a change which was very surprising to him (for he never had any other thoughts than to live and die in Canaan), and which would be of great consequence to his family for a long time to come. Now here we are told,
 
@@ -27,41 +27,41 @@ II\. How God directed his paths: *In the visions of the night* (probably the ver
 
 ## Jacob's Removal to Egypt. (b. c. 1706.)
 
-> <sup>5</sup> And Jacob rose up from Beer-sheba: and the sons of Israel carried Jacob their father, and their little ones, and their wives, in the wagons which Pharaoh had sent to carry him.  
-> <sup>6</sup> And they took their cattle, and their goods, which they had gotten in the land of Canaan, and came into Egypt, Jacob, and all his seed with him:  
-> <sup>7</sup> His sons, and his sons' sons with him, his daughters, and his sons' daughters, and all his seed brought he with him into Egypt.  
-> <sup>8</sup> And these *are* the names of the children of Israel, which came into Egypt, Jacob and his sons: Reuben, Jacob's firstborn.  
-> <sup>9</sup> And the sons of Reuben; Hanoch, and Phallu, and Hezron, and Carmi.  
-> <sup>10</sup> And the sons of Simeon; Jemuel, and Jamin, and Ohad, and Jachin, and Zohar, and Shaul the son of a Canaanitish woman.  
-> <sup>11</sup> And the sons of Levi; Gershon, Kohath, and Merari.  
-> <sup>12</sup> And the sons of Judah; Er, and Onan, and Shelah, and Pharez, and Zerah: but Er and Onan died in the land of Canaan. And the sons of Pharez were Hezron and Hamul.  
-> <sup>13</sup> And the sons of Issachar; Tola, and Phuvah, and Job, and Shimron.  
-> <sup>14</sup> And the sons of Zebulun; Sered, and Elon, and Jahleel.  
-> <sup>15</sup> These *be* the sons of Leah, which she bare unto Jacob in Padan-aram, with his daughter Dinah: all the souls of his sons and his daughters *were* thirty and three.  
-> <sup>16</sup> And the sons of Gad; Ziphion, and Haggi, Shuni, and Ezbon, Eri, and Arodi, and Areli.  
-> <sup>17</sup> And the sons of Asher; Jimnah, and Ishuah, and Isui, and Beriah, and Serah their sister: and the sons of Beriah; Heber, and Malchiel.  
-> <sup>18</sup> These *are* the sons of Zilpah, whom Laban gave to Leah his daughter, and these she bare unto Jacob, *even* sixteen souls.  
-> <sup>19</sup> The sons of Rachel Jacob's wife; Joseph, and Benjamin.  
-> <sup>20</sup> And unto Joseph in the land of Egypt were born Manasseh and Ephraim, which Asenath the daughter of Poti-pherah priest of On bare unto him.  
-> <sup>21</sup> And the sons of Benjamin *were* Belah, and Becher, and Ashbel, Gera, and Naaman, Ehi, and Rosh, Muppim, and Huppim, and Ard.  
-> <sup>22</sup> These *are* the sons of Rachel, which were born to Jacob: all the souls *were* fourteen.  
-> <sup>23</sup> And the sons of Dan; Hushim.  
-> <sup>24</sup> And the sons of Naphtali; Jahzeel, and Guni, and Jezer, and Shillem.  
-> <sup>25</sup> These *are* the sons of Bilhah, which Laban gave unto Rachel his daughter, and she bare these unto Jacob: all the souls *were* seven.  
-> <sup>26</sup> All the souls that came with Jacob into Egypt, which came out of his loins, besides Jacob's sons' wives, all the souls *were* threescore and six;  
-> <sup>27</sup> And the sons of Joseph, which were born him in Egypt, *were* two souls: all the souls of the house of Jacob, which came into Egypt, *were* threescore and ten.  
+> **⁵** And Jacob rose up from Beer-sheba: and the sons of Israel carried Jacob their father, and their little ones, and their wives, in the wagons which Pharaoh had sent to carry him.  
+> **⁶** And they took their cattle, and their goods, which they had gotten in the land of Canaan, and came into Egypt, Jacob, and all his seed with him:  
+> **⁷** His sons, and his sons' sons with him, his daughters, and his sons' daughters, and all his seed brought he with him into Egypt.  
+> **⁸** And these *are* the names of the children of Israel, which came into Egypt, Jacob and his sons: Reuben, Jacob's firstborn.  
+> **⁹** And the sons of Reuben; Hanoch, and Phallu, and Hezron, and Carmi.  
+> **¹⁰** And the sons of Simeon; Jemuel, and Jamin, and Ohad, and Jachin, and Zohar, and Shaul the son of a Canaanitish woman.  
+> **¹¹** And the sons of Levi; Gershon, Kohath, and Merari.  
+> **¹²** And the sons of Judah; Er, and Onan, and Shelah, and Pharez, and Zerah: but Er and Onan died in the land of Canaan. And the sons of Pharez were Hezron and Hamul.  
+> **¹³** And the sons of Issachar; Tola, and Phuvah, and Job, and Shimron.  
+> **¹⁴** And the sons of Zebulun; Sered, and Elon, and Jahleel.  
+> **¹⁵** These *be* the sons of Leah, which she bare unto Jacob in Padan-aram, with his daughter Dinah: all the souls of his sons and his daughters *were* thirty and three.  
+> **¹⁶** And the sons of Gad; Ziphion, and Haggi, Shuni, and Ezbon, Eri, and Arodi, and Areli.  
+> **¹⁷** And the sons of Asher; Jimnah, and Ishuah, and Isui, and Beriah, and Serah their sister: and the sons of Beriah; Heber, and Malchiel.  
+> **¹⁸** These *are* the sons of Zilpah, whom Laban gave to Leah his daughter, and these she bare unto Jacob, *even* sixteen souls.  
+> **¹⁹** The sons of Rachel Jacob's wife; Joseph, and Benjamin.  
+> **²⁰** And unto Joseph in the land of Egypt were born Manasseh and Ephraim, which Asenath the daughter of Poti-pherah priest of On bare unto him.  
+> **²¹** And the sons of Benjamin *were* Belah, and Becher, and Ashbel, Gera, and Naaman, Ehi, and Rosh, Muppim, and Huppim, and Ard.  
+> **²²** These *are* the sons of Rachel, which were born to Jacob: all the souls *were* fourteen.  
+> **²³** And the sons of Dan; Hushim.  
+> **²⁴** And the sons of Naphtali; Jahzeel, and Guni, and Jezer, and Shillem.  
+> **²⁵** These *are* the sons of Bilhah, which Laban gave unto Rachel his daughter, and she bare these unto Jacob: all the souls *were* seven.  
+> **²⁶** All the souls that came with Jacob into Egypt, which came out of his loins, besides Jacob's sons' wives, all the souls *were* threescore and six;  
+> **²⁷** And the sons of Joseph, which were born him in Egypt, *were* two souls: all the souls of the house of Jacob, which came into Egypt, *were* threescore and ten.  
 
 Old Jacob is here flitting. Little did he think of ever leaving Canaan; he expected, no doubt, *to die in his nest,* and to leave his seed in actual possession of the promised land: but Providence orders it otherwise. Note, Those that think themselves well settled may yet be unsettled in a little time. Even old people, who think of no other removal than that to the grave (which Jacob had much upon his heart, Ge 37:35,42:38), sometimes live to see great changes in their family. It is good to be ready, not only for the grave, but for whatever may happen betwixt us and the grave. Observe, 1. How Jacob was conveyed; not in a chariot, though chariots were then used, but in a waggon, Ge 46:5. Jacob had the character of a plain man, who did not affect any thing stately or magnificent; his son rode in a chariot (Ge 41:43), but a waggon would serve him. 2. The removal of what he had with him. (1.) His effects (Ge 46:6), *cattle and goods;* these he took with him that he might not wholly be beholden to Pharaoh for a livelihood, and that it might not afterwards be said of them, "that they came beggars to Egypt." (2.) His family, *all his seed,* Ge 46:7. It is probable that they had continued to live together in common with their father; and therefore when he went they all went, which perhaps they were the more willing to do, because, though they had heard that the land of Canaan was promised them, yet, to this day, they had none of it in possession. We have here a particular account of the names of Jacob's family, *his sons' sons,* most of whom are afterwards mentioned as heads of houses in the several tribes. See Nu 26:5-65, etc. Bishop Patrick observes that Issachar called his eldest son *Tola,* which signifies a *worm,* probably because when he was born he was a very little weak child, a worm, and no man, not likely to live; and yet there sprang from him a very numerous offspring, 1Ch 7:2. Note, Living and dying do not go by probability. The whole number that went down into Egypt was sixty-six (Ge 46:26), to which add Joseph and his two sons, who were there before, and Jacob himself, the head of the family, and you have the number of seventy, Ge 46:27. The LXX. makes them seventy-five, and Stephen follows them (Ac 7:14), the reason of which we leave to the conjecture of the critics; but let us observe, [1.] Masters of families ought to take care of all under their charge, and to provide for those of their own house food convenient both for body and soul. When Jacob himself removed to a land of plenty, he would not leave any of his children behind him to starve in a barren land. [2.] Though the accomplishment of promises is always sure, yet it is often slow. It was now 215 years since God had promised Abraham to make of him a great nation (Ge 12:2); and yet that branch of his seed on which the promise was entailed had increased only to seventy, of which this particular account is kept, that the power of God in multiplying these seventy to so vast a multitude, even in Egypt, may appear the more illustrious. When God pleases, *a little one shall become a thousand,* Isa 60:22.
 
 ## Meeting between Jacob and Joseph. (b. c. 1706.)
 
-> <sup>28</sup> And he sent Judah before him unto Joseph, to direct his face unto Goshen; and they came into the land of Goshen.  
-> <sup>29</sup> And Joseph made ready his chariot, and went up to meet Israel his father, to Goshen, and presented himself unto him; and he fell on his neck, and wept on his neck a good while.  
-> <sup>30</sup> And Israel said unto Joseph, Now let me die, since I have seen thy face, because thou *art* yet alive.  
-> <sup>31</sup> And Joseph said unto his brethren, and unto his father's house, I will go up, and show Pharaoh, and say unto him, My brethren, and my father's house, which *were* in the land of Canaan, are come unto me;  
-> <sup>32</sup> And the men *are* shepherds, for their trade hath been to feed cattle; and they have brought their flocks, and their herds, and all that they have.  
-> <sup>33</sup> And it shall come to pass, when Pharaoh shall call you, and shall say, What *is* your occupation?  
-> <sup>34</sup> That ye shall say, Thy servants' trade hath been about cattle from our youth even until now, both we, *and* also our fathers: that ye may dwell in the land of Goshen; for every shepherd *is* an abomination unto the Egyptians.  
+> **²⁸** And he sent Judah before him unto Joseph, to direct his face unto Goshen; and they came into the land of Goshen.  
+> **²⁹** And Joseph made ready his chariot, and went up to meet Israel his father, to Goshen, and presented himself unto him; and he fell on his neck, and wept on his neck a good while.  
+> **³⁰** And Israel said unto Joseph, Now let me die, since I have seen thy face, because thou *art* yet alive.  
+> **³¹** And Joseph said unto his brethren, and unto his father's house, I will go up, and show Pharaoh, and say unto him, My brethren, and my father's house, which *were* in the land of Canaan, are come unto me;  
+> **³²** And the men *are* shepherds, for their trade hath been to feed cattle; and they have brought their flocks, and their herds, and all that they have.  
+> **³³** And it shall come to pass, when Pharaoh shall call you, and shall say, What *is* your occupation?  
+> **³⁴** That ye shall say, Thy servants' trade hath been about cattle from our youth even until now, both we, *and* also our fathers: that ye may dwell in the land of Goshen; for every shepherd *is* an abomination unto the Egyptians.  
 
 We have here, I. The joyful meeting between Jacob and his son Joseph, in which observe,
 

@@ -8,12 +8,12 @@ The passages of story recorded in this chapter oblige us to look back. I. We rea
 
 ## A Famine in Israel; the Shunammite's Possessions Restored. (b. c. 886.)
 
-> <sup>1</sup> Then spake Elisha unto the woman, whose son he had restored to life, saying, Arise, and go thou and thine household, and sojourn wheresoever thou canst sojourn: for the LORD hath called for a famine; and it shall also come upon the land seven years.  
-> <sup>2</sup> And the woman arose, and did after the saying of the man of God: and she went with her household, and sojourned in the land of the Philistines seven years.  
-> <sup>3</sup> And it came to pass at the seven years' end, that the woman returned out of the land of the Philistines: and she went forth to cry unto the king for her house and for her land.  
-> <sup>4</sup> And the king talked with Gehazi the servant of the man of God, saying, Tell me, I pray thee, all the great things that Elisha hath done.  
-> <sup>5</sup> And it came to pass, as he was telling the king how he had restored a dead body to life, that, behold, the woman, whose son he had restored to life, cried to the king for her house and for her land. And Gehazi said, My lord, O king, this *is* the woman, and this *is* her son, whom Elisha restored to life.  
-> <sup>6</sup> And when the king asked the woman, she told him. So the king appointed unto her a certain officer, saying, Restore all that *was* hers, and all the fruits of the field since the day that she left the land, even until now.  
+> **¹** Then spake Elisha unto the woman, whose son he had restored to life, saying, Arise, and go thou and thine household, and sojourn wheresoever thou canst sojourn: for the LORD hath called for a famine; and it shall also come upon the land seven years.  
+> **²** And the woman arose, and did after the saying of the man of God: and she went with her household, and sojourned in the land of the Philistines seven years.  
+> **³** And it came to pass at the seven years' end, that the woman returned out of the land of the Philistines: and she went forth to cry unto the king for her house and for her land.  
+> **⁴** And the king talked with Gehazi the servant of the man of God, saying, Tell me, I pray thee, all the great things that Elisha hath done.  
+> **⁵** And it came to pass, as he was telling the king how he had restored a dead body to life, that, behold, the woman, whose son he had restored to life, cried to the king for her house and for her land. And Gehazi said, My lord, O king, this *is* the woman, and this *is* her son, whom Elisha restored to life.  
+> **⁶** And when the king asked the woman, she told him. So the king appointed unto her a certain officer, saying, Restore all that *was* hers, and all the fruits of the field since the day that she left the land, even until now.  
 
 Here we have,
 
@@ -25,15 +25,15 @@ III\. Her petition to the king at her return, favoured by the seasonableness of 
 
 ## Hazael's Barbarity Predicted. (b. c. 885.)
 
-> <sup>7</sup> And Elisha came to Damascus; and Benhadad the king of Syria was sick; and it was told him, saying, The man of God is come hither.  
-> <sup>8</sup> And the king said unto Hazael, Take a present in thine hand, and go, meet the man of God, and enquire of the LORD by him, saying, Shall I recover of this disease?  
-> <sup>9</sup> So Hazael went to meet him, and took a present with him, even of every good thing of Damascus, forty camels' burden, and came and stood before him, and said, Thy son Benhadad king of Syria hath sent me to thee, saying, Shall I recover of this disease?  
-> <sup>10</sup> And Elisha said unto him, Go, say unto him, Thou mayest certainly recover: howbeit the LORD hath showed me that he shall surely die.  
-> <sup>11</sup> And he settled his countenance stedfastly, until he was ashamed: and the man of God wept.  
-> <sup>12</sup> And Hazael said, Why weepeth my lord? And he answered, Because I know the evil that thou wilt do unto the children of Israel: their strong holds wilt thou set on fire, and their young men wilt thou slay with the sword, and wilt dash their children, and rip up their women with child.  
-> <sup>13</sup> And Hazael said, But what, *is* thy servant a dog, that he should do this great thing? And Elisha answered, The LORD hath showed me that thou *shalt be* king over Syria.  
-> <sup>14</sup> So he departed from Elisha, and came to his master; who said to him, What said Elisha to thee? And he answered, He told me *that* thou shouldest surely recover.  
-> <sup>15</sup> And it came to pass on the morrow, that he took a thick cloth, and dipped *it* in water, and spread *it* on his face, so that he died: and Hazael reigned in his stead.  
+> **⁷** And Elisha came to Damascus; and Benhadad the king of Syria was sick; and it was told him, saying, The man of God is come hither.  
+> **⁸** And the king said unto Hazael, Take a present in thine hand, and go, meet the man of God, and enquire of the LORD by him, saying, Shall I recover of this disease?  
+> **⁹** So Hazael went to meet him, and took a present with him, even of every good thing of Damascus, forty camels' burden, and came and stood before him, and said, Thy son Benhadad king of Syria hath sent me to thee, saying, Shall I recover of this disease?  
+> **¹⁰** And Elisha said unto him, Go, say unto him, Thou mayest certainly recover: howbeit the LORD hath showed me that he shall surely die.  
+> **¹¹** And he settled his countenance stedfastly, until he was ashamed: and the man of God wept.  
+> **¹²** And Hazael said, Why weepeth my lord? And he answered, Because I know the evil that thou wilt do unto the children of Israel: their strong holds wilt thou set on fire, and their young men wilt thou slay with the sword, and wilt dash their children, and rip up their women with child.  
+> **¹³** And Hazael said, But what, *is* thy servant a dog, that he should do this great thing? And Elisha answered, The LORD hath showed me that thou *shalt be* king over Syria.  
+> **¹⁴** So he departed from Elisha, and came to his master; who said to him, What said Elisha to thee? And he answered, He told me *that* thou shouldest surely recover.  
+> **¹⁵** And it came to pass on the morrow, that he took a thick cloth, and dipped *it* in water, and spread *it* on his face, so that he died: and Hazael reigned in his stead.  
 
 Here, I. We may enquire what brought Elisha to Damascus, the chief city of Syria. Was he sent to any but the *lost sheep of the house of Israel?* It seems he was. Perhaps he went to pay a visit to Naaman his convert, and to confirm him in his choice of the true religion, which was the more needful now because, it should seem, he was not out of his place (for Hazael is supposed to be captain of that host); either he resigned it or was turned out of it, because he would not bow, or not bow heartily, in the house of Rimmon. Some think he went to Damascus upon account of the famine, or rather he went thither in obedience to the orders God gave Elijah, 1Ki 19:15, "*Go to Damascus to anoint Hazael,* thou, or thy successor."
 
@@ -61,15 +61,15 @@ V\. What mischief Hazael did to his master hereupon. If he took any occasion to 
 
 ## The Reign of Jehoram. (b. c. 884.)
 
-> <sup>16</sup> And in the fifth year of Joram the son of Ahab king of Israel, Jehoshaphat *being* then king of Judah, Jehoram the son of Jehoshaphat king of Judah began to reign.  
-> <sup>17</sup> Thirty and two years old was he when he began to reign; and he reigned eight years in Jerusalem.  
-> <sup>18</sup> And he walked in the way of the kings of Israel, as did the house of Ahab: for the daughter of Ahab was his wife: and he did evil in the sight of the LORD.  
-> <sup>19</sup> Yet the LORD would not destroy Judah for David his servant's sake, as he promised him to give him alway a light, *and* to his children.  
-> <sup>20</sup> In his days Edom revolted from under the hand of Judah, and made a king over themselves.  
-> <sup>21</sup> So Joram went over to Zair, and all the chariots with him: and he rose by night, and smote the Edomites which compassed him about, and the captains of the chariots: and the people fled into their tents.  
-> <sup>22</sup> Yet Edom revolted from under the hand of Judah unto this day. Then Libnah revolted at the same time.  
-> <sup>23</sup> And the rest of the acts of Joram, and all that he did, *are* they not written in the book of the chronicles of the kings of Judah?  
-> <sup>24</sup> And Joram slept with his fathers, and was buried with his fathers in the city of David: and Ahaziah his son reigned in his stead.  
+> **¹⁶** And in the fifth year of Joram the son of Ahab king of Israel, Jehoshaphat *being* then king of Judah, Jehoram the son of Jehoshaphat king of Judah began to reign.  
+> **¹⁷** Thirty and two years old was he when he began to reign; and he reigned eight years in Jerusalem.  
+> **¹⁸** And he walked in the way of the kings of Israel, as did the house of Ahab: for the daughter of Ahab was his wife: and he did evil in the sight of the LORD.  
+> **¹⁹** Yet the LORD would not destroy Judah for David his servant's sake, as he promised him to give him alway a light, *and* to his children.  
+> **²⁰** In his days Edom revolted from under the hand of Judah, and made a king over themselves.  
+> **²¹** So Joram went over to Zair, and all the chariots with him: and he rose by night, and smote the Edomites which compassed him about, and the captains of the chariots: and the people fled into their tents.  
+> **²²** Yet Edom revolted from under the hand of Judah unto this day. Then Libnah revolted at the same time.  
+> **²³** And the rest of the acts of Joram, and all that he did, *are* they not written in the book of the chronicles of the kings of Judah?  
+> **²⁴** And Joram slept with his fathers, and was buried with his fathers in the city of David: and Ahaziah his son reigned in his stead.  
 
 We have here a brief account of the life and reign of Jehoram (or Joram), one of the worst of the kings of Judah, but the son and successor of Jehoshaphat, one of the best. Note, 1. Parents cannot give grace to their children. Many that have themselves been godly have had the grief and shame of seeing those that came forth out of their bowels wicked and vile. Let not the families that are thus afflicted think it strange. 2. If the children of good parents prove wicked, commonly they are worse than others. The unclean spirit brings in seven others more wicked than himself, Lu 11:26. 3. A nation is sometimes justly punished with the miseries of a bad reign for not improving the blessings and advantages of a good one.
 
@@ -87,11 +87,11 @@ V\. The conclusion of this impious and inglorious reign, 2Ki 8:23,24. Nothing pe
 
 ## The Reign of Ahaziah. (b. c. 884.)
 
-> <sup>25</sup> In the twelfth year of Joram the son of Ahab king of Israel did Ahaziah the son of Jehoram king of Judah begin to reign.  
-> <sup>26</sup> Two and twenty years old *was* Ahaziah when he began to reign; and he reigned one year in Jerusalem. And his mother's name *was* Athaliah, the daughter of Omri king of Israel.  
-> <sup>27</sup> And he walked in the way of the house of Ahab, and did evil in the sight of the LORD, as *did* the house of Ahab: for he *was* the son in law of the house of Ahab.  
-> <sup>28</sup> And he went with Joram the son of Ahab to the war against Hazael king of Syria in Ramoth-gilead; and the Syrians wounded Joram.  
-> <sup>29</sup> And king Joram went back to be healed in Jezreel of the wounds which the Syrians had given him at Ramah, when he fought against Hazael king of Syria. And Ahaziah the son of Jehoram king of Judah went down to see Joram the son of Ahab in Jezreel, because he was sick.  
+> **²⁵** In the twelfth year of Joram the son of Ahab king of Israel did Ahaziah the son of Jehoram king of Judah begin to reign.  
+> **²⁶** Two and twenty years old *was* Ahaziah when he began to reign; and he reigned one year in Jerusalem. And his mother's name *was* Athaliah, the daughter of Omri king of Israel.  
+> **²⁷** And he walked in the way of the house of Ahab, and did evil in the sight of the LORD, as *did* the house of Ahab: for he *was* the son in law of the house of Ahab.  
+> **²⁸** And he went with Joram the son of Ahab to the war against Hazael king of Syria in Ramoth-gilead; and the Syrians wounded Joram.  
+> **²⁹** And king Joram went back to be healed in Jezreel of the wounds which the Syrians had given him at Ramah, when he fought against Hazael king of Syria. And Ahaziah the son of Jehoram king of Judah went down to see Joram the son of Ahab in Jezreel, because he was sick.  
 
 As among common persons there are some that we call *little men,* who make no figure, are little regarded, as less valued, so among kings there are some whom, in comparison with others, we may call *little kings.* This Ahaziah was one of these; he looks mean in the history, and in God's account vile, because wicked. It is too plain an evidence of the affinity between Jehoshaphat and Ahab that they had the same names in their families at the same time, in which, we may suppose, they designed to compliment one another. Ahab had two sons, Ahaziah and Jehoram, who reigned successively; Jehoshaphat had a son and grandson named Jehoram and Ahaziah, who, in like manner, reigned successively. Names indeed do not make natures, but it was a bad omen to Jehoshaphat's family to borrow names from Ahab's; or, if he lent the names to that wretched family, he could not communicate with them the devotion of their significations, *Ahaziah—Taking hold of the Lord,* and *Jehoram—The Lord exalted.* Ahaziah king of Israel had reigned but two years, Ahaziah king of Judah reigned but one. We are here told that his relation to Ahab's family was the occasion, 1. Of his wickedness (2Ki 8:27): *He walked in the way of the house of Ahab,* that idolatrous bloody house; for his mother was Ahab's daughter (2Ki 8:26), so that he sucked in wickedness with his milk. *Partus sequitur ventrem—The child may be expected to resemble the mother.* When men choose wives for themselves they must remember they are choosing mothers for their children, and are concerned to choose accordingly. 2. Of his fall. Joram, his mother's brother, courted him to join with him for the recovery of Ramoth-Gilead, an attempt fatal to Ahab; so it was to Joram his son, for in that expedition he was wounded (2Ki 8:28), and returned to Jezreel to be cured, leaving his army there in possession of the place. Ahaziah likewise returned, but went to Jezreel to see how Jehoram did, 2Ki 8:29. Providence so ordered it, that he who had been debauched by the house of Ahab might be cut off with them, when the measure of their iniquity was full, as we shall find in the next chapter. Those who partake with sinners in their sins must expect to partake with them in their plagues.
 

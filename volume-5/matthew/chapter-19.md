@@ -8,8 +8,8 @@ In this chapter, we have, I. Christ changing his quarters, leaving Galilee, and 
 
 ## Christ Leaves Galilee and Enters Judea.
 
-> <sup>1</sup> And it came to pass, *that* when Jesus had finished these sayings, he departed from Galilee, and came into the coasts of Judea beyond Jordan;  
-> <sup>2</sup> And great multitudes followed him; and he healed them there.  
+> **¹** And it came to pass, *that* when Jesus had finished these sayings, he departed from Galilee, and came into the coasts of Judea beyond Jordan;  
+> **²** And great multitudes followed him; and he healed them there.  
 
 We have here an account of Christ's removal. Observe,
 
@@ -21,16 +21,16 @@ We have here an account of Christ's removal. Observe,
 
 ## The Law of Divorce.
 
-> <sup>3</sup> The Pharisees also came unto him, tempting him, and saying unto him, Is it lawful for a man to put away his wife for every cause?  
-> <sup>4</sup> And he answered and said unto them, Have ye not read, that he which made *them* at the beginning made them male and female,  
-> <sup>5</sup> And said, For this cause shall a man leave father and mother, and shall cleave to his wife: and they twain shall be one flesh?  
-> <sup>6</sup> Wherefore they are no more twain, but one flesh. What therefore God hath joined together, let not man put asunder.  
-> <sup>7</sup> They say unto him, Why did Moses then command to give a writing of divorcement, and to put her away?  
-> <sup>8</sup> He saith unto them, Moses because of the hardness of your hearts suffered you to put away your wives: but from the beginning it was not so.  
-> <sup>9</sup> And I say unto you, Whosoever shall put away his wife, except *it be* for fornication, and shall marry another, committeth adultery: and whoso marrieth her which is put away doth commit adultery.  
-> <sup>10</sup> His disciples say unto him, If the case of the man be so with *his* wife, it is not good to marry.  
-> <sup>11</sup> But he said unto them, All *men* cannot receive this saying, save *they* to whom it is given.  
-> <sup>12</sup> For there are some eunuchs, which were so born from *their* mother's womb: and there are some eunuchs, which were made eunuchs of men: and there be eunuchs, which have made themselves eunuchs for the kingdom of heaven's sake. He that is able to receive *it,* let him receive *it.*  
+> **³** The Pharisees also came unto him, tempting him, and saying unto him, Is it lawful for a man to put away his wife for every cause?  
+> **⁴** And he answered and said unto them, Have ye not read, that he which made *them* at the beginning made them male and female,  
+> **⁵** And said, For this cause shall a man leave father and mother, and shall cleave to his wife: and they twain shall be one flesh?  
+> **⁶** Wherefore they are no more twain, but one flesh. What therefore God hath joined together, let not man put asunder.  
+> **⁷** They say unto him, Why did Moses then command to give a writing of divorcement, and to put her away?  
+> **⁸** He saith unto them, Moses because of the hardness of your hearts suffered you to put away your wives: but from the beginning it was not so.  
+> **⁹** And I say unto you, Whosoever shall put away his wife, except *it be* for fornication, and shall marry another, committeth adultery: and whoso marrieth her which is put away doth commit adultery.  
+> **¹⁰** His disciples say unto him, If the case of the man be so with *his* wife, it is not good to marry.  
+> **¹¹** But he said unto them, All *men* cannot receive this saying, save *they* to whom it is given.  
+> **¹²** For there are some eunuchs, which were so born from *their* mother's womb: and there are some eunuchs, which were made eunuchs of men: and there be eunuchs, which have made themselves eunuchs for the kingdom of heaven's sake. He that is able to receive *it,* let him receive *it.*  
 
 We have here the law of Christ in the case of divorce, occasioned, as some other declarations of his will, by a dispute with *the Pharisees.* So patiently did he endure the contradiction of sinners, that he turned it into instructions to his own disciples! Observe, here
 
@@ -86,9 +86,9 @@ Now, [1.] This affection to the single state must be given of God; for none can 
 
 ## Christ's Tenderness to Children.
 
-> <sup>13</sup> Then were there brought unto him little children, that he should put *his* hands on them, and pray: and the disciples rebuked them.  
-> <sup>14</sup> But Jesus said, Suffer little children, and forbid them not, to come unto me: for of such is the kingdom of heaven.  
-> <sup>15</sup> And he laid *his* hands on them, and departed thence.  
+> **¹³** Then were there brought unto him little children, that he should put *his* hands on them, and pray: and the disciples rebuked them.  
+> **¹⁴** But Jesus said, Suffer little children, and forbid them not, to come unto me: for of such is the kingdom of heaven.  
+> **¹⁵** And he laid *his* hands on them, and departed thence.  
 
 We have here the welcome which Christ gave to some little children that were brought to him. Observe,
 
@@ -108,13 +108,13 @@ Methinks it has something observable in it, that, when he had done this, he depa
 
 ## The Rich Ruler's Enquiry; The Rich Ruler's Disappointment.
 
-> <sup>16</sup> And, behold, one came and said unto him, Good Master, what good thing shall I do, that I may have eternal life?  
-> <sup>17</sup> And he said unto him, Why callest thou me good? *there is* none good but one, *that is,* God: but if thou wilt enter into life, keep the commandments.  
-> <sup>18</sup> He saith unto him, Which? Jesus said, Thou shalt do no murder, Thou shalt not commit adultery, Thou shalt not steal, Thou shalt not bear false witness,  
-> <sup>19</sup> Honour thy father and *thy* mother: and, Thou shalt love thy neighbour as thyself.  
-> <sup>20</sup> The young man saith unto him, All these things have I kept from my youth up: what lack I yet?  
-> <sup>21</sup> Jesus said unto him, If thou wilt be perfect, go *and* sell that thou hast, and give to the poor, and thou shalt have treasure in heaven: and come *and* follow me.  
-> <sup>22</sup> But when the young man heard that saying, he went away sorrowful: for he had great possessions.  
+> **¹⁶** And, behold, one came and said unto him, Good Master, what good thing shall I do, that I may have eternal life?  
+> **¹⁷** And he said unto him, Why callest thou me good? *there is* none good but one, *that is,* God: but if thou wilt enter into life, keep the commandments.  
+> **¹⁸** He saith unto him, Which? Jesus said, Thou shalt do no murder, Thou shalt not commit adultery, Thou shalt not steal, Thou shalt not bear false witness,  
+> **¹⁹** Honour thy father and *thy* mother: and, Thou shalt love thy neighbour as thyself.  
+> **²⁰** The young man saith unto him, All these things have I kept from my youth up: what lack I yet?  
+> **²¹** Jesus said unto him, If thou wilt be perfect, go *and* sell that thou hast, and give to the poor, and thou shalt have treasure in heaven: and come *and* follow me.  
+> **²²** But when the young man heard that saying, he went away sorrowful: for he had great possessions.  
 
 Here is an account of what passed between Christ and a hopeful young gentleman that addressed himself to him upon a serious errand; he said to be a *young man* (Mt 19:20); and I called him a *gentleman,* not only because he had great possessions, but because he was a ruler (Lu 18:18), a magistrate, a justice of peace in his country; it is probable that he had abilities beyond his years, else his youth would have debarred him from the magistracy.
 
@@ -172,14 +172,14 @@ Yet something of honesty there was in it, that, when he did not like the terms, 
 
 ## The Recompense of Christ's Followers.
 
-> <sup>23</sup> Then said Jesus unto his disciples, Verily I say unto you, That a rich man shall hardly enter into the kingdom of heaven.  
-> <sup>24</sup> And again I say unto you, It is easier for a camel to go through the eye of a needle, than for a rich man to enter into the kingdom of God.  
-> <sup>25</sup> When his disciples heard *it,* they were exceedingly amazed, saying, Who then can be saved?  
-> <sup>26</sup> But Jesus beheld *them,* and said unto them, With men this is impossible; but with God all things are possible.  
-> <sup>27</sup> Then answered Peter and said unto him, Behold, we have forsaken all, and followed thee; what shall we have therefore?  
-> <sup>28</sup> And Jesus said unto them, Verily I say unto you, That ye which have followed me, in the regeneration when the Son of man shall sit in the throne of his glory, ye also shall sit upon twelve thrones, judging the twelve tribes of Israel.  
-> <sup>29</sup> And every one that hath forsaken houses, or brethren, or sisters, or father, or mother, or wife, or children, or lands, for my name's sake, shall receive a hundredfold, and shall inherit everlasting life.  
-> <sup>30</sup> But many *that are* first shall be last; and the last *shall be* first.  
+> **²³** Then said Jesus unto his disciples, Verily I say unto you, That a rich man shall hardly enter into the kingdom of heaven.  
+> **²⁴** And again I say unto you, It is easier for a camel to go through the eye of a needle, than for a rich man to enter into the kingdom of God.  
+> **²⁵** When his disciples heard *it,* they were exceedingly amazed, saying, Who then can be saved?  
+> **²⁶** But Jesus beheld *them,* and said unto them, With men this is impossible; but with God all things are possible.  
+> **²⁷** Then answered Peter and said unto him, Behold, we have forsaken all, and followed thee; what shall we have therefore?  
+> **²⁸** And Jesus said unto them, Verily I say unto you, That ye which have followed me, in the regeneration when the Son of man shall sit in the throne of his glory, ye also shall sit upon twelve thrones, judging the twelve tribes of Israel.  
+> **²⁹** And every one that hath forsaken houses, or brethren, or sisters, or father, or mother, or wife, or children, or lands, for my name's sake, shall receive a hundredfold, and shall inherit everlasting life.  
+> **³⁰** But many *that are* first shall be last; and the last *shall be* first.  
 
 We have here Christ's discourse with his disciples upon occasion of the rich man's breaking with Christ.
 

@@ -8,33 +8,33 @@ This chapter is a summary of Israel's conquests. I. Their conquests under Moses,
 
 ## Summary of Israel's Conquests. (b. c. 1450.)
 
-> <sup>1</sup> Now these *are* the kings of the land, which the children of Israel smote, and possessed their land on the other side Jordan toward the rising of the sun, from the river Arnon unto mount Hermon, and all the plain on the east:  
-> <sup>2</sup> Sihon king of the Amorites, who dwelt in Heshbon, *and* ruled from Aroer, which *is* upon the bank of the river Arnon, and from the middle of the river, and from half Gilead, even unto the river Jabbok, *which is* the border of the children of Ammon;  
-> <sup>3</sup> And from the plain to the sea of Chinneroth on the east, and unto the sea of the plain, *even* the salt sea on the east, the way to Beth-jeshimoth; and from the south, under Ashdoth-pisgah:  
-> <sup>4</sup> And the coast of Og king of Bashan, *which was* of the remnant of the giants, that dwelt at Ashtaroth and at Edrei,  
-> <sup>5</sup> And reigned in mount Hermon, and in Salcah, and in all Bashan, unto the border of the Geshurites and the Maachathites, and half Gilead, the border of Sihon king of Heshbon.  
-> <sup>6</sup> Them did Moses the servant of the LORD and the children of Israel smite: and Moses the servant of the LORD gave it *for* a possession unto the Reubenites, and the Gadites, and the half tribe of Manasseh.  
+> **¹** Now these *are* the kings of the land, which the children of Israel smote, and possessed their land on the other side Jordan toward the rising of the sun, from the river Arnon unto mount Hermon, and all the plain on the east:  
+> **²** Sihon king of the Amorites, who dwelt in Heshbon, *and* ruled from Aroer, which *is* upon the bank of the river Arnon, and from the middle of the river, and from half Gilead, even unto the river Jabbok, *which is* the border of the children of Ammon;  
+> **³** And from the plain to the sea of Chinneroth on the east, and unto the sea of the plain, *even* the salt sea on the east, the way to Beth-jeshimoth; and from the south, under Ashdoth-pisgah:  
+> **⁴** And the coast of Og king of Bashan, *which was* of the remnant of the giants, that dwelt at Ashtaroth and at Edrei,  
+> **⁵** And reigned in mount Hermon, and in Salcah, and in all Bashan, unto the border of the Geshurites and the Maachathites, and half Gilead, the border of Sihon king of Heshbon.  
+> **⁶** Them did Moses the servant of the LORD and the children of Israel smite: and Moses the servant of the LORD gave it *for* a possession unto the Reubenites, and the Gadites, and the half tribe of Manasseh.  
 
 Joshua, or whoever else is the historian before he comes to sum up the new conquests Israel had made, in these verses receives their former conquests in Moses's time, under whom they became masters of the great and potent kingdoms of Sihon and Og. Note, Fresh mercies must not drown the remembrance of former mercies, nor must the glory of the present instruments of good to the church be suffered to eclipse and diminish the just honour of those who have gone before them, and who were the blessings and ornaments of their day. Joshua's services and achievements are confessedly great, but let not those under Moses be overlooked and forgotten, since God was the same who wrought both, and both put together proclaim him the Alpha and Omega of Israel's great salvation. Here is, 1. A description of this conquered country, the measure and bounds of it in general (Jos 12:1): *From the river Arnon* in the south, to *Mount Hermon* in the north. In particular, here is a description of the kingdom of Sihon (Jos 12:2,3), and that of Og, Jos 12:4,5. Moses had described this country very particularly (De 2:36,3:4, etc.), and this description here agrees with his. King Og is said to dwell at Ashtaroth and Edrei (Jos 12:4), probably because they were both his royal cities; he had palaces in both, and resided sometimes in one and sometimes in the other; one perhaps was his summer seat and the other his winter seat. But Israel took both from him, and made one grave to serve him that could not be content with one palace. 2. The distribution of this country. Moses assigned it to the two tribes and a half, at their request, and divided it among them (Jos 12:6), of which we had the story at large, Nu 32:1-42. The dividing of it when it was conquered by Moses is here mentioned as an example to Joshua what he must do now that he had conquered the country on this side Jordan. Moses, in his time, gave to one part of Israel a very rich and fruitful country, but it was on the outside of Jordan; but Joshua gave to all Israel the holy land, the mountain of God's sanctuary, within Jordan: so the law conferred upon some few of God's spiritual Israel external temporal blessings, which were earnests of good things to come; but our Lord Jesus, the true Joshua, has provided for all the children of promise spiritual blessings—the privileges of the sanctuary, and the heavenly Canaan. The triumphs and grants of the law were glorious, but those of the gospel far exceed in glory.
 
-> <sup>7</sup> And these *are* the kings of the country which Joshua and the children of Israel smote on this side Jordan on the west, from Baal-gad in the valley of Lebanon even unto the mount Halak, that goeth up to Seir; which Joshua gave unto the tribes of Israel *for* a possession according to their divisions;  
-> <sup>8</sup> In the mountains, and in the valleys, and in the plains, and in the springs, and in the wilderness, and in the south country; the Hittites, the Amorites, and the Canaanites, the Perizzites, the Hivites, and the Jebusites:  
-> <sup>9</sup> The king of Jericho, one; the king of Ai, which *is* beside Beth-el, one;  
-> <sup>10</sup> The king of Jerusalem, one; the king of Hebron, one;  
-> <sup>11</sup> The king of Jarmuth, one; the king of Lachish, one;  
-> <sup>12</sup> The king of Eglon, one; the king of Gezer, one;  
-> <sup>13</sup> The king of Debir, one; the king of Geder, one;  
-> <sup>14</sup> The king of Hormah, one; the king of Arad, one;  
-> <sup>15</sup> The king of Libnah, one; the king of Adullam, one;  
-> <sup>16</sup> The king of Makkedah, one; the king of Beth-el, one;  
-> <sup>17</sup> The king of Tappuah, one; the king of Hepher, one;  
-> <sup>18</sup> The king of Aphek, one; the king of Lasharon, one;  
-> <sup>19</sup> The king of Madon, one; the king of Hazor, one;  
-> <sup>20</sup> The king of Shimron-meron, one; the king of Achshaph, one;  
-> <sup>21</sup> The king of Taanach, one; the king of Megiddo, one;  
-> <sup>22</sup> The king of Kedesh, one; the king of Jokneam of Carmel, one;  
-> <sup>23</sup> The king of Dor in the coast of Dor, one; the king of the nations of Gilgal, one;  
-> <sup>24</sup> The king of Tirzah, one: all the kings thirty and one.  
+> **⁷** And these *are* the kings of the country which Joshua and the children of Israel smote on this side Jordan on the west, from Baal-gad in the valley of Lebanon even unto the mount Halak, that goeth up to Seir; which Joshua gave unto the tribes of Israel *for* a possession according to their divisions;  
+> **⁸** In the mountains, and in the valleys, and in the plains, and in the springs, and in the wilderness, and in the south country; the Hittites, the Amorites, and the Canaanites, the Perizzites, the Hivites, and the Jebusites:  
+> **⁹** The king of Jericho, one; the king of Ai, which *is* beside Beth-el, one;  
+> **¹⁰** The king of Jerusalem, one; the king of Hebron, one;  
+> **¹¹** The king of Jarmuth, one; the king of Lachish, one;  
+> **¹²** The king of Eglon, one; the king of Gezer, one;  
+> **¹³** The king of Debir, one; the king of Geder, one;  
+> **¹⁴** The king of Hormah, one; the king of Arad, one;  
+> **¹⁵** The king of Libnah, one; the king of Adullam, one;  
+> **¹⁶** The king of Makkedah, one; the king of Beth-el, one;  
+> **¹⁷** The king of Tappuah, one; the king of Hepher, one;  
+> **¹⁸** The king of Aphek, one; the king of Lasharon, one;  
+> **¹⁹** The king of Madon, one; the king of Hazor, one;  
+> **²⁰** The king of Shimron-meron, one; the king of Achshaph, one;  
+> **²¹** The king of Taanach, one; the king of Megiddo, one;  
+> **²²** The king of Kedesh, one; the king of Jokneam of Carmel, one;  
+> **²³** The king of Dor in the coast of Dor, one; the king of the nations of Gilgal, one;  
+> **²⁴** The king of Tirzah, one: all the kings thirty and one.  
 
 We have here a breviate of Joshua's conquests.
 

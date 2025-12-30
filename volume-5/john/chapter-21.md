@@ -8,20 +8,20 @@ The evangelist seemed to have concluded his history with the foregoing chapter; 
 
 ## Christ with His Disciples.
 
-> <sup>1</sup> After these things Jesus showed himself again to the disciples at the sea of Tiberias; and on this wise showed he *himself.*  
-> <sup>2</sup> There were together Simon Peter, and Thomas called Didymus, and Nathanael of Cana in Galilee, and the *sons* of Zebedee, and two other of his disciples.  
-> <sup>3</sup> Simon Peter saith unto them, I go a fishing. They say unto him, We also go with thee. They went forth, and entered into a ship immediately; and that night they caught nothing.  
-> <sup>4</sup> But when the morning was now come, Jesus stood on the shore: but the disciples knew not that it was Jesus.  
-> <sup>5</sup> Then Jesus saith unto them, Children, have ye any meat? They answered him, No.  
-> <sup>6</sup> And he said unto them, Cast the net on the right side of the ship, and ye shall find. They cast therefore, and now they were not able to draw it for the multitude of fishes.  
-> <sup>7</sup> Therefore that disciple whom Jesus loved saith unto Peter, It is the Lord. Now when Simon Peter heard that it was the Lord, he girt *his* fisher's coat *unto him,* (for he was naked,) and did cast himself into the sea.  
-> <sup>8</sup> And the other disciples came in a little ship; (for they were not far from land, but as it were two hundred cubits,) dragging the net with fishes.  
-> <sup>9</sup> As soon then as they were come to land, they saw a fire of coals there, and fish laid thereon, and bread.  
-> <sup>10</sup> Jesus saith unto them, Bring of the fish which ye have now caught.  
-> <sup>11</sup> Simon Peter went up, and drew the net to land full of great fishes, a hundred and fifty and three: and for all there were so many, yet was not the net broken.  
-> <sup>12</sup> Jesus saith unto them, Come *and* dine. And none of the disciples durst ask him, Who art thou? knowing that it was the Lord.  
-> <sup>13</sup> Jesus then cometh, and taketh bread, and giveth them, and fish likewise.  
-> <sup>14</sup> This is now the third time that Jesus showed himself to his disciples, after that he was risen from the dead.  
+> **¹** After these things Jesus showed himself again to the disciples at the sea of Tiberias; and on this wise showed he *himself.*  
+> **²** There were together Simon Peter, and Thomas called Didymus, and Nathanael of Cana in Galilee, and the *sons* of Zebedee, and two other of his disciples.  
+> **³** Simon Peter saith unto them, I go a fishing. They say unto him, We also go with thee. They went forth, and entered into a ship immediately; and that night they caught nothing.  
+> **⁴** But when the morning was now come, Jesus stood on the shore: but the disciples knew not that it was Jesus.  
+> **⁵** Then Jesus saith unto them, Children, have ye any meat? They answered him, No.  
+> **⁶** And he said unto them, Cast the net on the right side of the ship, and ye shall find. They cast therefore, and now they were not able to draw it for the multitude of fishes.  
+> **⁷** Therefore that disciple whom Jesus loved saith unto Peter, It is the Lord. Now when Simon Peter heard that it was the Lord, he girt *his* fisher's coat *unto him,* (for he was naked,) and did cast himself into the sea.  
+> **⁸** And the other disciples came in a little ship; (for they were not far from land, but as it were two hundred cubits,) dragging the net with fishes.  
+> **⁹** As soon then as they were come to land, they saw a fire of coals there, and fish laid thereon, and bread.  
+> **¹⁰** Jesus saith unto them, Bring of the fish which ye have now caught.  
+> **¹¹** Simon Peter went up, and drew the net to land full of great fishes, a hundred and fifty and three: and for all there were so many, yet was not the net broken.  
+> **¹²** Jesus saith unto them, Come *and* dine. And none of the disciples durst ask him, Who art thou? knowing that it was the Lord.  
+> **¹³** Jesus then cometh, and taketh bread, and giveth them, and fish likewise.  
+> **¹⁴** This is now the third time that Jesus showed himself to his disciples, after that he was risen from the dead.  
 
 We have here an account of Christ's appearance to his disciples at the sea of Tiberias. Now, 1. Let us compare this appearance with those that *went before,* In those Christ showed himself to his disciples when they were met in a solemn assembly (it should seem, for religious worship) upon a Lord's day, and when they were all together, perhaps expecting his appearing; but in this he showed himself to some of them occasionally, upon a week-day, when they were fishing, and little thought of it. Christ has many ways of making himself known to his people usually in his ordinances, but sometimes by his Spirit he visits them when they are employed in common business, as the *shepherds* who were *keeping their flocks by night* (Lu 2:8), even so *here also,* Ge 16:13. 2. Let us compare it with that which followed at the mountain in Galilee, where Christ had appointed them to meet him, Mt 28:16. Thitherward they moved as soon as the days of unleavened bread were over, and disposed of themselves as they saw fit, till the time fixed for this interview, or general rendezvous. Now this appearance was while they were waiting for that, that they might not be weary of waiting. Christ is often better than his word, but never worse, often anticipates and outdoes the believing expectations of his people, but never disappoints them. As to the particulars of the story, we may observe,
 
@@ -73,11 +73,11 @@ The evangelist leaves them at dinner, and makes this remark (Joh 21:14): *This i
 
 ## Christ's Discourse with Peter.
 
-> <sup>15</sup> So when they had dined, Jesus saith to Simon Peter, Simon, *son* of Jonas, lovest thou me more than these? He saith unto him, Yea, Lord; thou knowest that I love thee. He saith unto him, Feed my lambs.  
-> <sup>16</sup> He saith to him again the second time, Simon, *son* of Jonas, lovest thou me? He saith unto him, Yea, Lord; thou knowest that I love thee. He saith unto him, Feed my sheep.  
-> <sup>17</sup> He saith unto him the third time, Simon, *son* of Jonas, lovest thou me? Peter was grieved because he said unto him the third time, Lovest thou me? And he said unto him, Lord, thou knowest all things; thou knowest that I love thee. Jesus saith unto him, Feed my sheep.  
-> <sup>18</sup> Verily, verily, I say unto thee, When thou wast young, thou girdedst thyself, and walkedst whither thou wouldest: but when thou shalt be old, thou shalt stretch forth thy hands, and another shall gird thee, and carry *thee* whither thou wouldest not.  
-> <sup>19</sup> This spake he, signifying by what death he should glorify God. And when he had spoken this, he saith unto him, Follow me.  
+> **¹⁵** So when they had dined, Jesus saith to Simon Peter, Simon, *son* of Jonas, lovest thou me more than these? He saith unto him, Yea, Lord; thou knowest that I love thee. He saith unto him, Feed my lambs.  
+> **¹⁶** He saith to him again the second time, Simon, *son* of Jonas, lovest thou me? He saith unto him, Yea, Lord; thou knowest that I love thee. He saith unto him, Feed my sheep.  
+> **¹⁷** He saith unto him the third time, Simon, *son* of Jonas, lovest thou me? Peter was grieved because he said unto him the third time, Lovest thou me? And he said unto him, Lord, thou knowest all things; thou knowest that I love thee. Jesus saith unto him, Feed my sheep.  
+> **¹⁸** Verily, verily, I say unto thee, When thou wast young, thou girdedst thyself, and walkedst whither thou wouldest: but when thou shalt be old, thou shalt stretch forth thy hands, and another shall gird thee, and carry *thee* whither thou wouldest not.  
+> **¹⁹** This spake he, signifying by what death he should glorify God. And when he had spoken this, he saith unto him, Follow me.  
 
 We have here Christ's discourse with Peter after dinner, so much of it as relates to himself, in which,
 
@@ -121,12 +121,12 @@ II\. Christ, having thus appointed Peter his doing work, next appoints him his s
 
 ## Christ's Conference with Peter; Conclusion of John's Gospel.
 
-> <sup>20</sup> Then Peter, turning about, seeth the disciple whom Jesus loved following; which also leaned on his breast at supper, and said, Lord, which is he that betrayeth thee?  
-> <sup>21</sup> Peter seeing him saith to Jesus, Lord, and what *shall* this man *do?*  
-> <sup>22</sup> Jesus saith unto him, If I will that he tarry till I come, what *is that* to thee? follow thou me.  
-> <sup>23</sup> Then went this saying abroad among the brethren, that that disciple should not die: yet Jesus said not unto him, He shall not die; but, If I will that he tarry till I come, what *is that* to thee?  
-> <sup>24</sup> This is the disciple which testifieth of these things, and wrote these things: and we know that his testimony is true.  
-> <sup>25</sup> And there are also many other things which Jesus did, the which, if they should be written every one, I suppose that even the world itself could not contain the books that should be written. Amen.  
+> **²⁰** Then Peter, turning about, seeth the disciple whom Jesus loved following; which also leaned on his breast at supper, and said, Lord, which is he that betrayeth thee?  
+> **²¹** Peter seeing him saith to Jesus, Lord, and what *shall* this man *do?*  
+> **²²** Jesus saith unto him, If I will that he tarry till I come, what *is that* to thee? follow thou me.  
+> **²³** Then went this saying abroad among the brethren, that that disciple should not die: yet Jesus said not unto him, He shall not die; but, If I will that he tarry till I come, what *is that* to thee?  
+> **²⁴** This is the disciple which testifieth of these things, and wrote these things: and we know that his testimony is true.  
+> **²⁵** And there are also many other things which Jesus did, the which, if they should be written every one, I suppose that even the world itself could not contain the books that should be written. Amen.  
 
 In these verses, we have,
 

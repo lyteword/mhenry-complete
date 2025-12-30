@@ -8,12 +8,12 @@ Job had sometimes complained of his friends that they were so eager in disputing
 
 ## Job's Protestation of His Sincerity. (b. c. 1520.)
 
-> <sup>1</sup> Moreover Job continued his parable, and said,  
-> <sup>2</sup> *As* God liveth, *who* hath taken away my judgment; and the Almighty, *who* hath vexed my soul;  
-> <sup>3</sup> All the while my breath *is* in me, and the spirit of God *is* in my nostrils;  
-> <sup>4</sup> My lips shall not speak wickedness, nor my tongue utter deceit.  
-> <sup>5</sup> God forbid that I should justify you: till I die I will not remove mine integrity from me.  
-> <sup>6</sup> My righteousness I hold fast, and will not let it go: my heart shall not reproach *me* so long as I live.  
+> **¹** Moreover Job continued his parable, and said,  
+> **²** *As* God liveth, *who* hath taken away my judgment; and the Almighty, *who* hath vexed my soul;  
+> **³** All the while my breath *is* in me, and the spirit of God *is* in my nostrils;  
+> **⁴** My lips shall not speak wickedness, nor my tongue utter deceit.  
+> **⁵** God forbid that I should justify you: till I die I will not remove mine integrity from me.  
+> **⁶** My righteousness I hold fast, and will not let it go: my heart shall not reproach *me* so long as I live.  
 
 Job's discourse here is called a *parable (mashal*), the title of Solomon's proverbs, because it was grave and weighty, and very instructive, and he spoke as one having authority. It comes from a word that signifies *to rule,* or *have dominion;* and some think it intimates that Job now triumphed over his opponents, and spoke as one that had baffled them. We say of an excellent preacher that he knows how *dominari in concionibus—to command his hearers.* Job did so here. A long strife there had been between Job and his friends; they seemed disposed to have the matter compromised; and therefore, since an *oath for confirmation is an end of strife* (Heb 6:16), Job here backs all he had said in maintenance of his own integrity with a solemn oath, to silence contradiction, and take the blame entirely upon himself if he prevaricated. Observe,
 
@@ -27,10 +27,10 @@ Job complained much of the reproaches of his friends; but (says he) *my heart sh
 
 ## Condition of Hypocrites. (b. c. 1520.)
 
-> <sup>7</sup> Let mine enemy be as the wicked, and he that riseth up against me as the unrighteous.  
-> <sup>8</sup> For what *is* the hope of the hypocrite, though he hath gained, when God taketh away his soul?  
-> <sup>9</sup> Will God hear his cry when trouble cometh upon him?  
-> <sup>10</sup> Will he delight himself in the Almighty? will he always call upon God?  
+> **⁷** Let mine enemy be as the wicked, and he that riseth up against me as the unrighteous.  
+> **⁸** For what *is* the hope of the hypocrite, though he hath gained, when God taketh away his soul?  
+> **⁹** Will God hear his cry when trouble cometh upon him?  
+> **¹⁰** Will he delight himself in the Almighty? will he always call upon God?  
 
 Job having solemnly protested the satisfaction he had in his integrity, for the further clearing of himself, here expresses the dread he had of being found a hypocrite.
 
@@ -46,19 +46,19 @@ II\. He gives us the reasons of it.
 
 ## Heritage of the Wicked. (b. c. 1520.)
 
-> <sup>11</sup> I will teach you by the hand of God: *that* which *is* with the Almighty will I not conceal.  
-> <sup>12</sup> Behold, all ye yourselves have seen *it;* why then are ye thus altogether vain?  
-> <sup>13</sup> This *is* the portion of a wicked man with God, and the heritage of oppressors, *which* they shall receive of the Almighty.  
-> <sup>14</sup> If his children be multiplied, *it is* for the sword: and his offspring shall not be satisfied with bread.  
-> <sup>15</sup> Those that remain of him shall be buried in death: and his widows shall not weep.  
-> <sup>16</sup> Though he heap up silver as the dust, and prepare raiment as the clay;  
-> <sup>17</sup> He may prepare *it,* but the just shall put *it* on, and the innocent shall divide the silver.  
-> <sup>18</sup> He buildeth his house as a moth, and as a booth *that* the keeper maketh.  
-> <sup>19</sup> The rich man shall lie down, but he shall not be gathered: he openeth his eyes, and he *is* not.  
-> <sup>20</sup> Terrors take hold on him as waters, a tempest stealeth him away in the night.  
-> <sup>21</sup> The east wind carrieth him away, and he departeth: and as a storm hurleth him out of his place.  
-> <sup>22</sup> For *God* shall cast upon him, and not spare: he would fain flee out of his hand.  
-> <sup>23</sup> *Men* shall clap their hands at him, and shall hiss him out of his place.  
+> **¹¹** I will teach you by the hand of God: *that* which *is* with the Almighty will I not conceal.  
+> **¹²** Behold, all ye yourselves have seen *it;* why then are ye thus altogether vain?  
+> **¹³** This *is* the portion of a wicked man with God, and the heritage of oppressors, *which* they shall receive of the Almighty.  
+> **¹⁴** If his children be multiplied, *it is* for the sword: and his offspring shall not be satisfied with bread.  
+> **¹⁵** Those that remain of him shall be buried in death: and his widows shall not weep.  
+> **¹⁶** Though he heap up silver as the dust, and prepare raiment as the clay;  
+> **¹⁷** He may prepare *it,* but the just shall put *it* on, and the innocent shall divide the silver.  
+> **¹⁸** He buildeth his house as a moth, and as a booth *that* the keeper maketh.  
+> **¹⁹** The rich man shall lie down, but he shall not be gathered: he openeth his eyes, and he *is* not.  
+> **²⁰** Terrors take hold on him as waters, a tempest stealeth him away in the night.  
+> **²¹** The east wind carrieth him away, and he departeth: and as a storm hurleth him out of his place.  
+> **²²** For *God* shall cast upon him, and not spare: he would fain flee out of his hand.  
+> **²³** *Men* shall clap their hands at him, and shall hiss him out of his place.  
 
 Job's friends had seen a great deal of the misery and destruction that attend wicked people, especially oppressors; and Job, while the heat of disputation lasted, had said as much, and with as much assurance, of their prosperity; but now that the heat of the battle was nearly over he was willing to own how far he agreed with them, and where the difference between his opinion and theirs lay. 1. He agreed with them that wicked people are miserable people, that God will surely reckon with cruel oppressors, and one time or other, one way or other, his justice will make reprisals upon them for all the affronts they have put upon God and all the wrongs they have done to their neighbours. This truth is abundantly confirmed by the entire concurrence even of these angry disputants in it. But, 2. In *this* they differed—they held that these deserved judgments are presently and visibly brought upon wicked oppressors, that *they travail with pain all their days,* that in prosperity *the destroyer comes upon them,* that they *shall not be rich,* nor their *branch green,* and that *their destruction shall be accomplished before their time* (so Eliphaz, Job 15:20,21,29,32), that the *steps of their strength shall be straitened,* that *terrors shall make them afraid on every side* (so Bildad, Job 18:7,11), that he himself *shall vomit up his riches,* and that *in the fulness of his sufficiency he shall be in straits,* so Zophar, Job 20:15,22. Now Job held that, in many cases, judgments do not fall upon them quickly, but are deferred for some time. That vengeance strikes slowly he had already shown (Job 21:1-34,24:1-25); now he comes to show that it strikes surely and severely, and that reprieves are no pardons.
 

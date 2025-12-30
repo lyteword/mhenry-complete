@@ -8,14 +8,14 @@ In this chapter we have, I. The parable of the importunate widow, designed to te
 
 ## The Unjust Judge.
 
-> <sup>1</sup> And he spake a parable unto them *to this end,* that men ought always to pray, and not to faint;  
-> <sup>2</sup> Saying, There was in a city a judge, which feared not God, neither regarded man:  
-> <sup>3</sup> And there was a widow in that city; and she came unto him, saying, Avenge me of mine adversary.  
-> <sup>4</sup> And he would not for a while: but afterward he said within himself, Though I fear not God, nor regard man;  
-> <sup>5</sup> Yet because this widow troubleth me, I will avenge her, lest by her continual coming she weary me.  
-> <sup>6</sup> And the Lord said, Hear what the unjust judge saith.  
-> <sup>7</sup> And shall not God avenge his own elect, which cry day and night unto him, though he bear long with them?  
-> <sup>8</sup> I tell you that he will avenge them speedily. Nevertheless when the Son of man cometh, shall he find faith on the earth?  
+> **¹** And he spake a parable unto them *to this end,* that men ought always to pray, and not to faint;  
+> **²** Saying, There was in a city a judge, which feared not God, neither regarded man:  
+> **³** And there was a widow in that city; and she came unto him, saying, Avenge me of mine adversary.  
+> **⁴** And he would not for a while: but afterward he said within himself, Though I fear not God, nor regard man;  
+> **⁵** Yet because this widow troubleth me, I will avenge her, lest by her continual coming she weary me.  
+> **⁶** And the Lord said, Hear what the unjust judge saith.  
+> **⁷** And shall not God avenge his own elect, which cry day and night unto him, though he bear long with them?  
+> **⁸** I tell you that he will avenge them speedily. Nevertheless when the Son of man cometh, shall he find faith on the earth?  
 
 This parable has its key hanging at the door; the drift and design of it are *prefixed.* Christ spoke it with this intent, to teach us that *men ought always to pray and not to faint,* Lu 18:1. It supposes that all God's people are *praying* people; all God's children keep up both a *constant* and an *occasional* correspondence with him, send to him *statedly,* and upon *every emergency.* It is our privilege and honour that we *may* pray. It is our duty; we *ought to pray,* we sin if we neglect it. It is to be our constant work; we ought *always* to pray, it is that which *the duty of every day requires.* We must pray, and never grow weary of praying, nor think of leaving it off till it comes to be swallowed up in everlasting praise. But that which seems particularly designed here is to teach us constancy and perseverance in our requests for some spiritual mercies that we are in pursuit of, relating either to ourselves or to the church of God. When we are praying for strength against our spiritual enemies, our lusts and corruptions, which are our worst enemies, we must continue instant in prayer, must pray and *not faint,* for we shall not *seek God's face in vain.* So we must likewise in our prayers for the deliverance of the people of God out of the hands of their persecutors and oppressors.
 
@@ -45,12 +45,12 @@ II\. He applies this for the encouragement of God's praying people to pray with 
 
 ## The Pharisee and the Publican.
 
-> <sup>9</sup> And he spake this parable unto certain which trusted in themselves that they were righteous, and despised others:  
-> <sup>10</sup> Two men went up into the temple to pray; the one a Pharisee, and the other a publican.  
-> <sup>11</sup> The Pharisee stood and prayed thus with himself, God, I thank thee, that I am not as other men *are,* extortioners, unjust, adulterers, or even as this publican.  
-> <sup>12</sup> I fast twice in the week, I give tithes of all that I possess.  
-> <sup>13</sup> And the publican, standing afar off, would not lift up so much as *his* eyes unto heaven, but smote upon his breast, saying, God be merciful to me a sinner.  
-> <sup>14</sup> I tell you, this man went down to his house justified *rather* than the other: for every one that exalteth himself shall be abased; and he that humbleth himself shall be exalted.  
+> **⁹** And he spake this parable unto certain which trusted in themselves that they were righteous, and despised others:  
+> **¹⁰** Two men went up into the temple to pray; the one a Pharisee, and the other a publican.  
+> **¹¹** The Pharisee stood and prayed thus with himself, God, I thank thee, that I am not as other men *are,* extortioners, unjust, adulterers, or even as this publican.  
+> **¹²** I fast twice in the week, I give tithes of all that I possess.  
+> **¹³** And the publican, standing afar off, would not lift up so much as *his* eyes unto heaven, but smote upon his breast, saying, God be merciful to me a sinner.  
+> **¹⁴** I tell you, this man went down to his house justified *rather* than the other: for every one that exalteth himself shall be abased; and he that humbleth himself shall be exalted.  
 
 The scope of this parable likewise is prefixed to it, and we are told (Lu 18:9) who they were whom it was levelled at, and for whom it was calculated. He designed it for the conviction of some who *trusted in themselves that they were righteous, and despised others.* They were such as had, 1. A great conceit of themselves, and of their own goodness; they thought themselves as holy as they needed to be, and holier than all their neighbours, and such as might serve for examples to them all. But that was not all; 2. They had a confidence in themselves before God, and not only had a high opinion of their own righteousness, but depended upon the merit of it, whenever they addressed God, as their plea: They *trusted in themselves as being righteous;* they thought they had made God their debtor, and might demand any thing from him; and, 3. They despised others, and looked upon them with contempt, as not worthy to be compared with them. Now Christ by this parable would show such their folly, and that thereby they shut themselves out from acceptance with God. This is called a *parable,* though there be nothing of similitude in it; but it is rather a description of the different temper and language of those that *proudly justify themselves,* and those that *humbly condemn themselves;* and their different standing before God. It is matter of fact every day.
 
@@ -72,27 +72,27 @@ IV\. Here is the publican's *acceptance with God.* We have seen how differently 
 
 ## Christ's Attention to Children.
 
-> <sup>15</sup> And they brought unto him also infants, that he would touch them: but when *his* disciples saw *it,* they rebuked them.  
-> <sup>16</sup> But Jesus called them *unto him,* and said, Suffer little children to come unto me, and forbid them not: for of such is the kingdom of God.  
-> <sup>17</sup> Verily I say unto you, Whosoever shall not receive the kingdom of God as a little child shall in no wise enter therein.  
+> **¹⁵** And they brought unto him also infants, that he would touch them: but when *his* disciples saw *it,* they rebuked them.  
+> **¹⁶** But Jesus called them *unto him,* and said, Suffer little children to come unto me, and forbid them not: for of such is the kingdom of God.  
+> **¹⁷** Verily I say unto you, Whosoever shall not receive the kingdom of God as a little child shall in no wise enter therein.  
 
 This passage of story we had both in Matthew and Mark; it very fitly follows here after the story of the publican, as a confirmation of the truth which was to be illustrated by that parable, that those shall be accepted with God, and honoured, who humble themselves, and for them Christ has *blessings in store,* the choicest and best of blessings. Observe here, 1. Those who are themselves blessed in Christ should desire to have their children also blessed in him, and should hereby testify the true honour they have for Christ, by their making use of him, and the true love they have for their children, by their concern about their souls. They brought to him *infants,* very young, not able to go, sucking children, as some think. None are too little, too young, to bring to Christ, who knows how to show kindness to them that are not capable of doing service to him. 2. One gracious touch of Christ's will make our children happy. They *brought infants to him, that he might touch them* in token of the application of his grace and Spirit to them, for that always makes way for his *blessing,* which likewise they expected: see Isa 44:3. *I will first pour my Spirit upon thy seed, and* then *my blessing upon thine offspring.* 3. It is no strange thing for those who make their application to Jesus Christ, for themselves or for their children, to meet with discouragement, even from those who should countenance and encourage them: *When the disciples saw it,* they thought, if this were admitted, it would bring endless trouble upon their Master, and therefore they *rebuked them,* and frowned upon them. The spouse complained of *the watchmen,* So 3:3,5:7. 4. Many whom the disciples rebuke the Master invites: *Jesus called them unto him,* when, upon the disciples' check, they were retiring. They did not *appeal* from the disciples to the Master, but the Master took cognizance of their despised cause. 5. It is the mind of Christ that *little children* should be brought to him, and presented as living sacrifices to his honour: "*Suffer little children to come to me, and forbid them not;* let nothing be done to hinder them, for they shall be as welcome as any." *The promise* is *to us, and to our seed;* and therefore he that has the dispensing of promised blessings will bid them welcome to him with us. 6. The children of those who belong to the kingdom of God do likewise belong to that kingdom, as the children of freemen are freemen. If the parents be members of the visible church, the children are so too; for, if the root be holy, the branches are so. 7. So welcome are *children* to Christ that those grown people are most welcome to him who have in them most of the disposition of children (Lu 18:17): *Whosoever shall not receive the kingdom of God as a little child,* that is, receive the benefits of it with humility and thankfulness, not pretending to merit them as the Pharisee did, but gladly owning himself indebted to free grace for them, as the publican did; unless a man be brought to this self-denying frame he shall *in no wise enter* into that kingdom. They must receive the kingdom of God as *children,* receive their estates by descent and inheritance, not by purchase, and call it their Father's gift.
 
 ## Riches a Spiritual Hindrance.
 
-> <sup>18</sup> And a certain ruler asked him, saying, Good Master, what shall I do to inherit eternal life?  
-> <sup>19</sup> And Jesus said unto him, Why callest thou me good? none *is* good, save one, *that is,* God.  
-> <sup>20</sup> Thou knowest the commandments, Do not commit adultery, Do not kill, Do not steal, Do not bear false witness, Honour thy father and thy mother.  
-> <sup>21</sup> And he said, All these have I kept from my youth up.  
-> <sup>22</sup> Now when Jesus heard these things, he said unto him, Yet lackest thou one thing: sell all that thou hast, and distribute unto the poor, and thou shalt have treasure in heaven: and come, follow me.  
-> <sup>23</sup> And when he heard this, he was very sorrowful: for he was very rich.  
-> <sup>24</sup> And when Jesus saw that he was very sorrowful, he said, How hardly shall they that have riches enter into the kingdom of God!  
-> <sup>25</sup> For it is easier for a camel to go through a needle's eye, than for a rich man to enter into the kingdom of God.  
-> <sup>26</sup> And they that heard *it* said, Who then can be saved?  
-> <sup>27</sup> And he said, The things which are impossible with men are possible with God.  
-> <sup>28</sup> Then Peter said, Lo, we have left all, and followed thee.  
-> <sup>29</sup> And he said unto them, Verily I say unto you, There is no man that hath left house, or parents, or brethren, or wife, or children, for the kingdom of God's sake,  
-> <sup>30</sup> Who shall not receive manifold more in this present time, and in the world to come life everlasting.  
+> **¹⁸** And a certain ruler asked him, saying, Good Master, what shall I do to inherit eternal life?  
+> **¹⁹** And Jesus said unto him, Why callest thou me good? none *is* good, save one, *that is,* God.  
+> **²⁰** Thou knowest the commandments, Do not commit adultery, Do not kill, Do not steal, Do not bear false witness, Honour thy father and thy mother.  
+> **²¹** And he said, All these have I kept from my youth up.  
+> **²²** Now when Jesus heard these things, he said unto him, Yet lackest thou one thing: sell all that thou hast, and distribute unto the poor, and thou shalt have treasure in heaven: and come, follow me.  
+> **²³** And when he heard this, he was very sorrowful: for he was very rich.  
+> **²⁴** And when Jesus saw that he was very sorrowful, he said, How hardly shall they that have riches enter into the kingdom of God!  
+> **²⁵** For it is easier for a camel to go through a needle's eye, than for a rich man to enter into the kingdom of God.  
+> **²⁶** And they that heard *it* said, Who then can be saved?  
+> **²⁷** And he said, The things which are impossible with men are possible with God.  
+> **²⁸** Then Peter said, Lo, we have left all, and followed thee.  
+> **²⁹** And he said unto them, Verily I say unto you, There is no man that hath left house, or parents, or brethren, or wife, or children, for the kingdom of God's sake,  
+> **³⁰** Who shall not receive manifold more in this present time, and in the world to come life everlasting.  
 
 In these verses we have,
 
@@ -122,10 +122,10 @@ II\. Christ's discourse with his disciples upon this occasion, in which we may o
 
 ## Christ's Suffering Foretold.
 
-> <sup>31</sup> Then he took *unto him* the twelve, and said unto them, Behold, we go up to Jerusalem, and all things that are written by the prophets concerning the Son of man shall be accomplished.  
-> <sup>32</sup> For he shall be delivered unto the Gentiles, and shall be mocked, and spitefully entreated, and spitted on:  
-> <sup>33</sup> And they shall scourge *him,* and put him to death: and the third day he shall rise again.  
-> <sup>34</sup> And they understood none of these things: and this saying was hid from them, neither knew they the things which were spoken.  
+> **³¹** Then he took *unto him* the twelve, and said unto them, Behold, we go up to Jerusalem, and all things that are written by the prophets concerning the Son of man shall be accomplished.  
+> **³²** For he shall be delivered unto the Gentiles, and shall be mocked, and spitefully entreated, and spitted on:  
+> **³³** And they shall scourge *him,* and put him to death: and the third day he shall rise again.  
+> **³⁴** And they understood none of these things: and this saying was hid from them, neither knew they the things which were spoken.  
 
 Here is, I. The notice Christ gave to his disciples of his sufferings and death approaching, and of the glorious issue of them, which he himself had a perfect sight and foreknowledge of, and thought it necessary to give them warning of, that it might be the less surprise and terror to them. Two things here are which we had not in the other evangelists:—1. The *sufferings* of Christ are here spoken of as the *fulfilling of the scriptures,* with which consideration Christ reconciled himself to them, and would reconcile them: *All things that are written by the prophets concerning the Son of man,* especially the hardships he should undergo, *shall be accomplished.* Note, The Spirit of Christ, in the Old-Testament prophets, *testified beforehand his sufferings,* and *the glory that should follow,* 1Pe 1:11. This proves that the scriptures are the *word* of *God,* for they had their exact and full accomplishment; and that Jesus Christ was *sent of God,* for they had their accomplishment *in him;* this was *he that should come,* for whatever was *foretold* concerning the Messiah was verified in him; and he would submit to any thing for the fulfilling of scripture, that not one jot or tittle of that should fall to the ground. This makes the *offence of the cross to cease,* and puts an honour upon it. *Thus it was written, and thus it behoved Christ to suffer,* thus it became him. 2. The ignominy and disgrace done to Christ in his sufferings are here most insisted upon. The other evangelists had said that he should be *mocked;* but here it is added, *He shall be spitefully treated,* *hybristhesetai*—*he shall be loaded with contumely and contempt,* shall have all possible reproach put upon him. This was that part of his sufferings by which in a spiritual manner he satisfied God's justice for the injury we had done him in his honour by sin. Here is one particular instance of disgrace done him, that *he was spit upon,* which had been particularly foretold, Isa 50:6. But here, as always, when Christ spoke of his sufferings and death, he foretold his resurrection as that which took off both the terror and reproach of his sufferings: *The third day he shall rise again.*
 
@@ -133,15 +133,15 @@ II\. The confusion that the disciples were hereby put into. This was so contrary
 
 ## Sight Restored to the Blind.
 
-> <sup>35</sup> And it came to pass, that as he was come nigh unto Jericho, a certain blind man sat by the way side begging:  
-> <sup>36</sup> And hearing the multitude pass by, he asked what it meant.  
-> <sup>37</sup> And they told him, that Jesus of Nazareth passeth by.  
-> <sup>38</sup> And he cried, saying, Jesus, *thou* Son of David, have mercy on me.  
-> <sup>39</sup> And they which went before rebuked him, that he should hold his peace: but he cried so much the more, *Thou* Son of David, have mercy on me.  
-> <sup>40</sup> And Jesus stood, and commanded him to be brought unto him: and when he was come near, he asked him,  
-> <sup>41</sup> Saying, What wilt thou that I shall do unto thee? And he said, Lord, that I may receive my sight.  
-> <sup>42</sup> And Jesus said unto him, Receive thy sight: thy faith hath saved thee.  
-> <sup>43</sup> And immediately he received his sight, and followed him, glorifying God: and all the people, when they saw *it,* gave praise unto God.  
+> **³⁵** And it came to pass, that as he was come nigh unto Jericho, a certain blind man sat by the way side begging:  
+> **³⁶** And hearing the multitude pass by, he asked what it meant.  
+> **³⁷** And they told him, that Jesus of Nazareth passeth by.  
+> **³⁸** And he cried, saying, Jesus, *thou* Son of David, have mercy on me.  
+> **³⁹** And they which went before rebuked him, that he should hold his peace: but he cried so much the more, *Thou* Son of David, have mercy on me.  
+> **⁴⁰** And Jesus stood, and commanded him to be brought unto him: and when he was come near, he asked him,  
+> **⁴¹** Saying, What wilt thou that I shall do unto thee? And he said, Lord, that I may receive my sight.  
+> **⁴²** And Jesus said unto him, Receive thy sight: thy faith hath saved thee.  
+> **⁴³** And immediately he received his sight, and followed him, glorifying God: and all the people, when they saw *it,* gave praise unto God.  
 
 Christ came not only to bring *light* to a *dark* world, and so to set before us the *objects* we are to have in view, but also to give *sight* to blind *souls,* and by healing the *organ* to enable them to view those objects. As a token of this, he cured many of their bodily blindness: we have now an account of one to whom he *gave sight* near Jericho. Mark gives us an account of one, and names him, whom he cured *as he went out of Jericho,* Mk 10:46. Matthew speaks of two whom he cured *as they departed* from Jericho, Mt 20:30. Luke says it was *en to eggizein auton*—*when he was near* to Jericho, which might be when he was going out of it as well as when he was coming into it. Observe,
 

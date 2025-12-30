@@ -8,11 +8,11 @@ The apostle, having spoken in the end of the foregoing chapter concerning the re
 
 ## The Coming of Christ. (a. d. 51.)
 
-> <sup>1</sup> But of the times and the seasons, brethren, ye have no need that I write unto you.  
-> <sup>2</sup> For yourselves know perfectly that the day of the Lord so cometh as a thief in the night.  
-> <sup>3</sup> For when they shall say, Peace and safety; then sudden destruction cometh upon them, as travail upon a woman with child; and they shall not escape.  
-> <sup>4</sup> But ye, brethren, are not in darkness, that that day should overtake you as a thief.  
-> <sup>5</sup> Ye are all the children of light, and the children of the day: we are not of the night, nor of darkness.  
+> **¹** But of the times and the seasons, brethren, ye have no need that I write unto you.  
+> **²** For yourselves know perfectly that the day of the Lord so cometh as a thief in the night.  
+> **³** For when they shall say, Peace and safety; then sudden destruction cometh upon them, as travail upon a woman with child; and they shall not escape.  
+> **⁴** But ye, brethren, are not in darkness, that that day should overtake you as a thief.  
+> **⁵** Ye are all the children of light, and the children of the day: we are not of the night, nor of darkness.  
 
 In these words observe,
 
@@ -26,11 +26,11 @@ IV\. He tells them how comfortable this day will be to the righteous, 1Th 5:4,5.
 
 ## Watchfulness and Sobriety. (a. d. 51.)
 
-> <sup>6</sup> Therefore let us not sleep, as *do* others; but let us watch and be sober.  
-> <sup>7</sup> For they that sleep sleep in the night; and they that be drunken are drunken in the night.  
-> <sup>8</sup> But let us, who are of the day, be sober, putting on the breastplate of faith and love; and for a helmet, the hope of salvation.  
-> <sup>9</sup> For God hath not appointed us to wrath, but to obtain salvation by our Lord Jesus Christ,  
-> <sup>10</sup> Who died for us, that, whether we wake or sleep, we should live together with him.  
+> **⁶** Therefore let us not sleep, as *do* others; but let us watch and be sober.  
+> **⁷** For they that sleep sleep in the night; and they that be drunken are drunken in the night.  
+> **⁸** But let us, who are of the day, be sober, putting on the breastplate of faith and love; and for a helmet, the hope of salvation.  
+> **⁹** For God hath not appointed us to wrath, but to obtain salvation by our Lord Jesus Christ,  
+> **¹⁰** Who died for us, that, whether we wake or sleep, we should live together with him.  
 
 On what had been said, the apostle grounds seasonable exhortations to several needful duties.
 
@@ -40,11 +40,11 @@ II\. To be well armed as well as watchful: to put on the whole armour of God. Th
 
 ## Various Exhortations; Duty towards Fellow-Christians. (a. d. 51.)
 
-> <sup>11</sup> Wherefore comfort yourselves together, and edify one another, even as also ye do.  
-> <sup>12</sup> And we beseech you, brethren, to know them which labour among you, and are over you in the Lord, and admonish you;  
-> <sup>13</sup> And to esteem them very highly in love for their work's sake. *And* be at peace among yourselves.  
-> <sup>14</sup> Now we exhort you, brethren, warn them that are unruly, comfort the feebleminded, support the weak, be patient toward all *men.*  
-> <sup>15</sup> See that none render evil for evil unto any *man;* but ever follow that which is good, both among yourselves, and to all *men.*  
+> **¹¹** Wherefore comfort yourselves together, and edify one another, even as also ye do.  
+> **¹²** And we beseech you, brethren, to know them which labour among you, and are over you in the Lord, and admonish you;  
+> **¹³** And to esteem them very highly in love for their work's sake. *And* be at peace among yourselves.  
+> **¹⁴** Now we exhort you, brethren, warn them that are unruly, comfort the feebleminded, support the weak, be patient toward all *men.*  
+> **¹⁵** See that none render evil for evil unto any *man;* but ever follow that which is good, both among yourselves, and to all *men.*  
 
 In these words the apostle exhorts the Thessalonians to several duties.
 
@@ -60,24 +60,24 @@ III\. He gives divers other exhortations touching the duty Christians owe to one
 
 ## Various Short Exhortations. (a. d. 51.)
 
-> <sup>16</sup> Rejoice evermore.  
-> <sup>17</sup> Pray without ceasing.  
-> <sup>18</sup> In every thing give thanks: for this is the will of God in Christ Jesus concerning you.  
-> <sup>19</sup> Quench not the Spirit.  
-> <sup>20</sup> Despise not prophesyings.  
-> <sup>21</sup> Prove all things; hold fast that which is good.  
-> <sup>22</sup> Abstain from all appearance of evil.  
+> **¹⁶** Rejoice evermore.  
+> **¹⁷** Pray without ceasing.  
+> **¹⁸** In every thing give thanks: for this is the will of God in Christ Jesus concerning you.  
+> **¹⁹** Quench not the Spirit.  
+> **²⁰** Despise not prophesyings.  
+> **²¹** Prove all things; hold fast that which is good.  
+> **²²** Abstain from all appearance of evil.  
 
 Here we have divers short exhortations, that will not burden our memories, but will be of great use to direct the motions of our hearts and lives; for the duties are of great importance, and we may observe how they are connected together, and have a dependence upon one another. 1. *Rejoice evermore,* 1Th 5:16. This must be understood of spiritual joy; for we must rejoice in our creature-comforts as if we rejoiced not, and must not expect to live many years, and rejoice in them all; but, if we do rejoice in God, we may do that evermore. In him our joy will be full; and it is our fault if we have not a continual feast. If we are sorrowful upon any worldly account, yet still we may always rejoice, 2Co 6:10. Note, A religious life is a pleasant life, it is a life of constant joy. 2. *Pray without ceasing,* 1Th 5:17. Note, The way to rejoice evermore is to pray without ceasing. We should rejoice more if we prayed more. We should keep up stated times for prayer, and continue instant in prayer. We should pray always, and not faint: pray without weariness, and continue in prayer, till we come to that world where prayer shall be swallowed up in praise. The meaning is not that men should do nothing but pray, but that nothing else we do should hinder prayer in its proper season. Prayer will help forward and not hinder all other lawful business, and every good work. 3. *In every thing give thanks,* 1Th 5:18. If we pray without ceasing, we shall not want matter for thanksgiving *in every thing.* As we must in every thing make our requests known to God by supplications, so we must not omit thanksgiving, Php 4:6. We should be thankful in every condition, even in adversity as well as prosperity. It is never so bad with us but it might be worse. If we have ever so much occasion to make our humble complaints to God, we never can have any reason to complain of God, and have always much reason to praise and give thanks: the apostle says, This is the *will of God in Christ Jesus concerning us, that we give thanks,* seeing God is reconciled to us in Christ Jesus; in him, through him, and for his sake, he allows us to rejoice evermore, and appoints us in every thing to give thanks. It is pleasing to God. 4. *Quench not the Spirit* (1Th 5:19), for it is this Spirit of grace and supplication that helpeth our infirmities, that assisteth us in our prayers and thanksgivings. Christians are said to *be baptized with the Holy Ghost and with fire.* He worketh as fire, by enlightening, enlivening, and purifying the souls of men. We must be careful not to quench this holy fire. As fire is put out by withdrawing fuel, so we quench the Spirit if we do not stir up our spirits, and all that is within us, to comply with the motions of the good Spirit; and as fire is quenched by pouring water, or putting a great quantity of dirt upon it, so we must be careful not to quench the Holy Spirit by indulging carnal lusts and affections, or minding only earthly things. 5. *Despise not prophesyings* (1Th 5:20); for, if we neglect the means of grace, we forfeit the Spirit of grace. By *prophesyings* here we are to understand the preaching of the word, the interpreting and applying of the scriptures; and this we must not despise, but should prize and value, because it is the ordinance of God, appointed of him for our furtherance and increase in knowledge and grace, in holiness and comfort. We must not despise preaching, though it be plain, and not with enticing words of men's wisdom, and though we be told no more than what we knew before. It is useful, and many times needful, to have our minds stirred up, our affections and resolutions excited, to those things that we knew before to be our interest and our duty. 6. *Prove all things, but hold fast that which is good,* 1Th 5:21. This is a needful caution, to prove all things; for, though we must put a value on preaching, we must not take things upon trust from the preacher, but try them by the law and the testimony. We must search the scriptures, whether what they say be true or not. We must not believe every spirit, but must try the spirits. But we must not be always trying, always unsettled; no, at length we must be settled, and hold fast that which is good. When we are satisfied that any thing is right, and true, and good, we must hold it fast, and not let it go, whatever opposition or whatever persecution we meet with for the sake thereof. Note, The doctrines of human infallibility, implicit faith, and blind obedience, are not the doctrines of the Bible. Every Christian has and ought to have, the judgment of discretion, and should have *his senses exercised in discerning between good and evil,* truth and falsehood, Heb 5:13,14. And proving all things must be in order to holding fast that which is good. We must not always be seekers, or fluctuating in our minds, *like children tossed to and fro with every wind of doctrine.* 7. *Abstain from all appearance of evil,* 1Th 5:22. This is a good means to prevent our being deceived with false doctrines, or unsettled in our faith; for our Saviour has told us (Joh 7:17), *If a man will do his will, he shall know of the doctrine whether it be of God.* Corrupt affections indulged in the heart, and evil practices allowed of in the life, will greatly tend to promote fatal errors in the mind; whereas purity of heart, and integrity of life, will dispose men to receive the truth in the love of it. We should therefore abstain from evil, and all appearances of evil, from sin, and that which looks like sin, leads to it, and borders upon it. He who is not shy of the appearances of sin, who shuns not the occasions of sin, and who avoids not the temptations and approaches to sin, will not long abstain from the actual commission of sin.
 
 ## Paul's Prayer for the Thessalonians. (a. d. 51.)
 
-> <sup>23</sup> And the very God of peace sanctify you wholly; and *I pray God* your whole spirit and soul and body be preserved blameless unto the coming of our Lord Jesus Christ.  
-> <sup>24</sup> Faithful *is* he that calleth you, who also will do *it.*  
-> <sup>25</sup> Brethren, pray for us.  
-> <sup>26</sup> Greet all the brethren with a holy kiss.  
-> <sup>27</sup> I charge you by the Lord that this epistle be read unto all the holy brethren.  
-> <sup>28</sup> The grace of our Lord Jesus Christ *be* with you. Amen.  
+> **²³** And the very God of peace sanctify you wholly; and *I pray God* your whole spirit and soul and body be preserved blameless unto the coming of our Lord Jesus Christ.  
+> **²⁴** Faithful *is* he that calleth you, who also will do *it.*  
+> **²⁵** Brethren, pray for us.  
+> **²⁶** Greet all the brethren with a holy kiss.  
+> **²⁷** I charge you by the Lord that this epistle be read unto all the holy brethren.  
+> **²⁸** The grace of our Lord Jesus Christ *be* with you. Amen.  
 
 In these words, which conclude this epistle, observe,
 

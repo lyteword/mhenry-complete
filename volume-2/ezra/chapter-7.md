@@ -8,16 +8,16 @@ Ezra's precious name saluted us, at first, in the title of the book, but in the 
 
 ## Ezra's Arrival at Jerusalem. (b. c. 457.)
 
-> <sup>1</sup> Now after these things, in the reign of Artaxerxes king of Persia, Ezra the son of Seraiah, the son of Azariah, the son of Hilkiah,  
-> <sup>2</sup> The son of Shallum, the son of Zadok, the son of Ahitub,  
-> <sup>3</sup> The son of Amariah, the son of Azariah, the son of Meraioth,  
-> <sup>4</sup> The son of Zerahiah, the son of Uzzi, the son of Bukki,  
-> <sup>5</sup> The son of Abishua, the son of Phinehas, the son of Eleazar, the son of Aaron the chief priest:  
-> <sup>6</sup> This Ezra went up from Babylon; and he *was* a ready scribe in the law of Moses, which the LORD God of Israel had given: and the king granted him all his request, according to the hand of the LORD his God upon him.  
-> <sup>7</sup> And there went up *some* of the children of Israel, and of the priests, and the Levites, and the singers, and the porters, and the Nethinims, unto Jerusalem, in the seventh year of Artaxerxes the king.  
-> <sup>8</sup> And he came to Jerusalem in the fifth month, which *was* in the seventh year of the king.  
-> <sup>9</sup> For upon the first *day* of the first month began he to go up from Babylon, and on the first *day* of the fifth month came he to Jerusalem, according to the good hand of his God upon him.  
-> <sup>10</sup> For Ezra had prepared his heart to seek the law of the LORD, and to do *it,* and to teach in Israel statutes and judgments.  
+> **¹** Now after these things, in the reign of Artaxerxes king of Persia, Ezra the son of Seraiah, the son of Azariah, the son of Hilkiah,  
+> **²** The son of Shallum, the son of Zadok, the son of Ahitub,  
+> **³** The son of Amariah, the son of Azariah, the son of Meraioth,  
+> **⁴** The son of Zerahiah, the son of Uzzi, the son of Bukki,  
+> **⁵** The son of Abishua, the son of Phinehas, the son of Eleazar, the son of Aaron the chief priest:  
+> **⁶** This Ezra went up from Babylon; and he *was* a ready scribe in the law of Moses, which the LORD God of Israel had given: and the king granted him all his request, according to the hand of the LORD his God upon him.  
+> **⁷** And there went up *some* of the children of Israel, and of the priests, and the Levites, and the singers, and the porters, and the Nethinims, unto Jerusalem, in the seventh year of Artaxerxes the king.  
+> **⁸** And he came to Jerusalem in the fifth month, which *was* in the seventh year of the king.  
+> **⁹** For upon the first *day* of the first month began he to go up from Babylon, and on the first *day* of the fifth month came he to Jerusalem, according to the good hand of his God upon him.  
+> **¹⁰** For Ezra had prepared his heart to seek the law of the LORD, and to do *it,* and to teach in Israel statutes and judgments.  
 
 Here is, I. Ezra's pedigree. He was one of the sons of Aaron, a priest. Him God chose to be an instrument of good to Israel, that he might put honour upon the priesthood, the glory of which had been much eclipsed by the captivity. He is said to be *the son of Seraiah,* that Seraiah, as is supposed, whom the king of Babylon put to death when he sacked Jerusalem, 2Ki 25:18,21. If we take the shortest computation, it was seventy-five years since Seraiah died; many reckon it much longer, and, because they suppose Ezra called out in the prime of his time to public service, do therefore think that Seraiah was not his immediate parent, but his grandfather or great-grandfather, but that he was the first eminent person that occurred in his genealogy upwards, which is carried up here as high as Aaron, yet leaving out many for brevity-sake, which may be supplied from 1Ch 6:4-81, etc. He was a younger brother, or his father was Jozadak, the father of Jeshua, so that he was not high priest, but nearly allied to the high priest.
 
@@ -27,22 +27,22 @@ III\. His expedition to Jerusalem for the good of his country: *He went up from 
 
 ## The Decree of Artaxerxes. (b. c. 457.)
 
-> <sup>11</sup> Now this *is* the copy of the letter that the king Artaxerxes gave unto Ezra the priest, the scribe, *even* a scribe of the words of the commandments of the LORD, and of his statutes to Israel.  
-> <sup>12</sup> Artaxerxes, king of kings, unto Ezra the priest, a scribe of the law of the God of heaven, perfect *peace,* and at such a time.  
-> <sup>13</sup> I make a decree, that all they of the people of Israel, and *of* his priests and Levites, in my realm, which are minded of their own freewill to go up to Jerusalem, go with thee.  
-> <sup>14</sup> Forasmuch as thou art sent of the king, and of his seven counsellors, to enquire concerning Judah and Jerusalem, according to the law of thy God which *is* in thine hand;  
-> <sup>15</sup> And to carry the silver and gold, which the king and his counsellors have freely offered unto the God of Israel, whose habitation *is* in Jerusalem,  
-> <sup>16</sup> And all the silver and gold that thou canst find in all the province of Babylon, with the freewill offering of the people, and of the priests, offering willingly for the house of their God which *is* in Jerusalem:  
-> <sup>17</sup> That thou mayest buy speedily with this money bullocks, rams, lambs, with their meat offerings and their drink offerings, and offer them upon the altar of the house of your God which *is* in Jerusalem.  
-> <sup>18</sup> And whatsoever shall seem good to thee, and to thy brethren, to do with the rest of the silver and the gold, that do after the will of your God.  
-> <sup>19</sup> The vessels also that are given thee for the service of the house of thy God, *those* deliver thou before the God of Jerusalem.  
-> <sup>20</sup> And whatsoever more shall be needful for the house of thy God, which thou shalt have occasion to bestow, bestow *it* out of the king's treasure house.  
-> <sup>21</sup> And I, *even* I Artaxerxes the king, do make a decree to all the treasurers which *are* beyond the river, that whatsoever Ezra the priest, the scribe of the law of the God of heaven, shall require of you, it be done speedily,  
-> <sup>22</sup> Unto a hundred talents of silver, and to a hundred measures of wheat, and to a hundred baths of wine, and to an hundred baths of oil, and salt without prescribing *how much.*  
-> <sup>23</sup> Whatsoever is commanded by the God of heaven, let it be diligently done for the house of the God of heaven: for why should there be wrath against the realm of the king and his sons?  
-> <sup>24</sup> Also we certify you, that touching any of the priests and Levites, singers, porters, Nethinims, or ministers of this house of God, it shall not be lawful to impose toll, tribute, or custom, upon them.  
-> <sup>25</sup> And thou, Ezra, after the wisdom of thy God, that *is* in thine hand, set magistrates and judges, which may judge all the people that *are* beyond the river, all such as know the laws of thy God; and teach ye them that know *them* not.  
-> <sup>26</sup> And whosoever will not do the law of thy God, and the law of the king, let judgment be executed speedily upon him, whether *it be* unto death, or to banishment, or to confiscation of goods, or to imprisonment.  
+> **¹¹** Now this *is* the copy of the letter that the king Artaxerxes gave unto Ezra the priest, the scribe, *even* a scribe of the words of the commandments of the LORD, and of his statutes to Israel.  
+> **¹²** Artaxerxes, king of kings, unto Ezra the priest, a scribe of the law of the God of heaven, perfect *peace,* and at such a time.  
+> **¹³** I make a decree, that all they of the people of Israel, and *of* his priests and Levites, in my realm, which are minded of their own freewill to go up to Jerusalem, go with thee.  
+> **¹⁴** Forasmuch as thou art sent of the king, and of his seven counsellors, to enquire concerning Judah and Jerusalem, according to the law of thy God which *is* in thine hand;  
+> **¹⁵** And to carry the silver and gold, which the king and his counsellors have freely offered unto the God of Israel, whose habitation *is* in Jerusalem,  
+> **¹⁶** And all the silver and gold that thou canst find in all the province of Babylon, with the freewill offering of the people, and of the priests, offering willingly for the house of their God which *is* in Jerusalem:  
+> **¹⁷** That thou mayest buy speedily with this money bullocks, rams, lambs, with their meat offerings and their drink offerings, and offer them upon the altar of the house of your God which *is* in Jerusalem.  
+> **¹⁸** And whatsoever shall seem good to thee, and to thy brethren, to do with the rest of the silver and the gold, that do after the will of your God.  
+> **¹⁹** The vessels also that are given thee for the service of the house of thy God, *those* deliver thou before the God of Jerusalem.  
+> **²⁰** And whatsoever more shall be needful for the house of thy God, which thou shalt have occasion to bestow, bestow *it* out of the king's treasure house.  
+> **²¹** And I, *even* I Artaxerxes the king, do make a decree to all the treasurers which *are* beyond the river, that whatsoever Ezra the priest, the scribe of the law of the God of heaven, shall require of you, it be done speedily,  
+> **²²** Unto a hundred talents of silver, and to a hundred measures of wheat, and to a hundred baths of wine, and to an hundred baths of oil, and salt without prescribing *how much.*  
+> **²³** Whatsoever is commanded by the God of heaven, let it be diligently done for the house of the God of heaven: for why should there be wrath against the realm of the king and his sons?  
+> **²⁴** Also we certify you, that touching any of the priests and Levites, singers, porters, Nethinims, or ministers of this house of God, it shall not be lawful to impose toll, tribute, or custom, upon them.  
+> **²⁵** And thou, Ezra, after the wisdom of thy God, that *is* in thine hand, set magistrates and judges, which may judge all the people that *are* beyond the river, all such as know the laws of thy God; and teach ye them that know *them* not.  
+> **²⁶** And whosoever will not do the law of thy God, and the law of the king, let judgment be executed speedily upon him, whether *it be* unto death, or to banishment, or to confiscation of goods, or to imprisonment.  
 
 We have here the commission which the Persian emperor granted to Ezra, giving him authority to act for the good of the Jews; and it is very ample and full, and beyond what could have been expected. The commission runs, we suppose, in the usual form: *Artaxerxes, King of kings.* This however is too high a title for any mortal man to assume; he was indeed king of some kings, but to speak as if he were king of all kings was to usurp *his* prerogative who hath *all power both in heaven and in earth.* He sends greeting to his trusty and well-beloved Ezra, whom he calls a *scribe of the law of the God of heaven* (Ezr 7:12), a title which (it seems by this) Ezra valued himself by, and desired no other, no, not when he was advanced to the proconsular dignity. He reckoned it more his honour to be a *scribe of God's law* than to be a peer or prince of the empire. Let us observe the articles of this commission.
 
@@ -66,8 +66,8 @@ VII\. He empowers Ezra to nominate and appoint judges and magistrates for all th
 
 ## Ezra's Thankfulness to God. (b. c. 457.)
 
-> <sup>27</sup> Blessed *be* the LORD God of our fathers, which hath put *such a thing* as this in the king's heart, to beautify the house of the LORD which *is* in Jerusalem:  
-> <sup>28</sup> And hath extended mercy unto me before the king, and his counsellors, and before all the king's mighty princes. And I was strengthened as the hand of the LORD my God *was* upon me, and I gathered together out of Israel chief men to go up with me.  
+> **²⁷** Blessed *be* the LORD God of our fathers, which hath put *such a thing* as this in the king's heart, to beautify the house of the LORD which *is* in Jerusalem:  
+> **²⁸** And hath extended mercy unto me before the king, and his counsellors, and before all the king's mighty princes. And I was strengthened as the hand of the LORD my God *was* upon me, and I gathered together out of Israel chief men to go up with me.  
 
 Ezra cannot proceed in his story without inserting his thankful acknowledgement of the goodness of God to him and his people in this matter. As soon as he has concluded the king's commission, instead of subjoining, *God save the king* (though that would have been proper enough), he adds, *Blessed be the Lord;* for we must *in every thing give thanks,* and, whatever occurrences please us, we must own God's hand in them, and praise his name. Two things Ezra blessed God for:—1. For his commission. We suppose he kissed the king's hand for it, but that was not all: *Blessed be God* (says he) *that put such a thing as this into the king's heart.* God can put things into men's hearts which would not arise there of themselves, and into their heads too, both by his providence and by his grace, in things *pertaining both to life and godliness.* If any good appear to be in our own hearts, or in the hearts of others, we must own it was God that put it there, and bless him for it; for it is he that *worketh in us both to will and to do* that which is good. When princes and magistrates act for the suppression of vice, and the encouragement of religion, we must thank God that *put it into their hearts* to do so, as much as if they had granted us some particular favour. When God's house was built Ezra rejoiced in what was done to beautify it. We read not of any orders given to paint or gild it, or to garnish it with precious stones, but to be sure that the ordinances of God were administered there constantly, and carefully, and exactly according to the institution; and that was indeed the beautifying of the temple. 2. For the encouragement he had to act in pursuance of his commission (Ezr 7:28): *He has extended mercy to me.* The king, in the honour he did him, we may suppose, had an eye to his merit, and preferred him because he looked upon him to be a very sensible ingenious man; but he himself ascribes his preferment purely to God's mercy. It was this that recommended him to the favour of his prince. Ezra himself was a man of courage, yet he attributed his encouragement not to his own heart, but to God's hand: "I was strengthened to undertake the services, *as the hand of the Lord my God was upon me* to direct and support me." If God gives us his hand, we are bold and cheerful; if he withdraws it, we are weak as water. Whatever service we are enabled to do for God and our generation, God must have all the glory of it. Strength for it is derived from him, and therefore the praise of it must be given to him.
 

@@ -8,13 +8,13 @@ Great service Elisha had done, in the foregoing chapter, for the three kings: to
 
 ## The Increase of the Widow's Oil. (b. c. 894.)
 
-> <sup>1</sup> Now there cried a certain woman of the wives of the sons of the prophets unto Elisha, saying, Thy servant my husband is dead; and thou knowest that thy servant did fear the LORD: and the creditor is come to take unto him my two sons to be bondmen.  
-> <sup>2</sup> And Elisha said unto her, What shall I do for thee? tell me, what hast thou in the house? And she said, Thine handmaid hath not any thing in the house, save a pot of oil.  
-> <sup>3</sup> Then he said, Go, borrow thee vessels abroad of all thy neighbours, *even* empty vessels; borrow not a few.  
-> <sup>4</sup> And when thou art come in, thou shalt shut the door upon thee and upon thy sons, and shalt pour out into all those vessels, and thou shalt set aside that which is full.  
-> <sup>5</sup> So she went from him, and shut the door upon her and upon her sons, who brought *the vessels* to her; and she poured out.  
-> <sup>6</sup> And it came to pass, when the vessels were full, that she said unto her son, Bring me yet a vessel. And he said unto her, *There is* not a vessel more. And the oil stayed.  
-> <sup>7</sup> Then she came and told the man of God. And he said, Go, sell the oil, and pay thy debt, and live thou and thy children of the rest.  
+> **¹** Now there cried a certain woman of the wives of the sons of the prophets unto Elisha, saying, Thy servant my husband is dead; and thou knowest that thy servant did fear the LORD: and the creditor is come to take unto him my two sons to be bondmen.  
+> **²** And Elisha said unto her, What shall I do for thee? tell me, what hast thou in the house? And she said, Thine handmaid hath not any thing in the house, save a pot of oil.  
+> **³** Then he said, Go, borrow thee vessels abroad of all thy neighbours, *even* empty vessels; borrow not a few.  
+> **⁴** And when thou art come in, thou shalt shut the door upon thee and upon thy sons, and shalt pour out into all those vessels, and thou shalt set aside that which is full.  
+> **⁵** So she went from him, and shut the door upon her and upon her sons, who brought *the vessels* to her; and she poured out.  
+> **⁶** And it came to pass, when the vessels were full, that she said unto her son, Bring me yet a vessel. And he said unto her, *There is* not a vessel more. And the oil stayed.  
+> **⁷** Then she came and told the man of God. And he said, Go, sell the oil, and pay thy debt, and live thou and thy children of the rest.  
 
 Elisha's miracles were for use, not for show; this recorded here was an act of real charity. Such also were the miracles of Christ, not only great wonders, but great favours to those for whom they were wrought. God magnifies his goodness with his power.
 
@@ -32,16 +32,16 @@ II\. He effectually relieves this poor widow's distress, and puts her in a way b
 
 ## The Shunammite's Hospitality. (b. c. 893.)
 
-> <sup>8</sup> And it fell on a day, that Elisha passed to Shunem, where *was* a great woman; and she constrained him to eat bread. And *so* it was, *that* as oft as he passed by, he turned in thither to eat bread.  
-> <sup>9</sup> And she said unto her husband, Behold now, I perceive that this *is* a holy man of God, which passeth by us continually.  
-> <sup>10</sup> Let us make a little chamber, I pray thee, on the wall; and let us set for him there a bed, and a table, and a stool, and a candlestick: and it shall be, when he cometh to us, that he shall turn in thither.  
-> <sup>11</sup> And it fell on a day, that he came thither, and he turned into the chamber, and lay there.  
-> <sup>12</sup> And he said to Gehazi his servant, Call this Shunammite. And when he had called her, she stood before him.  
-> <sup>13</sup> And he said unto him, Say now unto her, Behold, thou hast been careful for us with all this care; what *is* to be done for thee? wouldest thou be spoken for to the king, or to the captain of the host? And she answered, I dwell among mine own people.  
-> <sup>14</sup> And he said, What then *is* to be done for her? And Gehazi answered, Verily she hath no child, and her husband is old.  
-> <sup>15</sup> And he said, Call her. And when he had called her, she stood in the door.  
-> <sup>16</sup> And he said, About this season, according to the time of life, thou shalt embrace a son. And she said, Nay, my lord, *thou* man of God, do not lie unto thine handmaid.  
-> <sup>17</sup> And the woman conceived, and bare a son at that season that Elisha had said unto her, according to the time of life.  
+> **⁸** And it fell on a day, that Elisha passed to Shunem, where *was* a great woman; and she constrained him to eat bread. And *so* it was, *that* as oft as he passed by, he turned in thither to eat bread.  
+> **⁹** And she said unto her husband, Behold now, I perceive that this *is* a holy man of God, which passeth by us continually.  
+> **¹⁰** Let us make a little chamber, I pray thee, on the wall; and let us set for him there a bed, and a table, and a stool, and a candlestick: and it shall be, when he cometh to us, that he shall turn in thither.  
+> **¹¹** And it fell on a day, that he came thither, and he turned into the chamber, and lay there.  
+> **¹²** And he said to Gehazi his servant, Call this Shunammite. And when he had called her, she stood before him.  
+> **¹³** And he said unto him, Say now unto her, Behold, thou hast been careful for us with all this care; what *is* to be done for thee? wouldest thou be spoken for to the king, or to the captain of the host? And she answered, I dwell among mine own people.  
+> **¹⁴** And he said, What then *is* to be done for her? And Gehazi answered, Verily she hath no child, and her husband is old.  
+> **¹⁵** And he said, Call her. And when he had called her, she stood in the door.  
+> **¹⁶** And he said, About this season, according to the time of life, thou shalt embrace a son. And she said, Nay, my lord, *thou* man of God, do not lie unto thine handmaid.  
+> **¹⁷** And the woman conceived, and bare a son at that season that Elisha had said unto her, according to the time of life.  
 
 The giving of a son to such as were old, and had been long childless, was an ancient instance of the divine power and favour, in the case of Abraham, and Isaac, and Manoah, and Elkanah; we find it here among the wonders wrought by Elisha. This was wrought in recompence for the kind entertainment which a good woman gave him, as the promise of a son was given to Abraham when he entertained angels. Observe here,
 
@@ -51,26 +51,26 @@ II\. Elisha's gratitude for this kindness. Being exceedingly pleased with the qu
 
 ## The Death of the Shunammite's Son; The Shunammite's Son Restored. (b. c. 887.)
 
-> <sup>18</sup> And when the child was grown, it fell on a day, that he went out to his father to the reapers.  
-> <sup>19</sup> And he said unto his father, My head, my head. And he said to a lad, Carry him to his mother.  
-> <sup>20</sup> And when he had taken him, and brought him to his mother, he sat on her knees till noon, and *then* died.  
-> <sup>21</sup> And she went up, and laid him on the bed of the man of God, and shut *the door* upon him, and went out.  
-> <sup>22</sup> And she called unto her husband, and said, Send me, I pray thee, one of the young men, and one of the asses, that I may run to the man of God, and come again.  
-> <sup>23</sup> And he said, Wherefore wilt thou go to him to day? *it is* neither new moon, nor sabbath. And she said, *It shall be* well.  
-> <sup>24</sup> Then she saddled an ass, and said to her servant, Drive, and go forward; slack not *thy* riding for me, except I bid thee.  
-> <sup>25</sup> So she went and came unto the man of God to mount Carmel. And it came to pass, when the man of God saw her afar off, that he said to Gehazi his servant, Behold, *yonder is* that Shunammite:  
-> <sup>26</sup> Run now, I pray thee, to meet her, and say unto her, *Is it* well with thee? *is it* well with thy husband? *is it* well with the child? And she answered, *It is* well.  
-> <sup>27</sup> And when she came to the man of God to the hill, she caught him by the feet: but Gehazi came near to thrust her away. And the man of God said, Let her alone; for her soul *is* vexed within her: and the LORD hath hid *it* from me, and hath not told me.  
-> <sup>28</sup> Then she said, Did I desire a son of my lord? did I not say, Do not deceive me?  
-> <sup>29</sup> Then he said to Gehazi, Gird up thy loins, and take my staff in thine hand, and go thy way: if thou meet any man, salute him not; and if any salute thee, answer him not again: and lay my staff upon the face of the child.  
-> <sup>30</sup> And the mother of the child said, *As* the LORD liveth, and *as* thy soul liveth, I will not leave thee. And he arose, and followed her.  
-> <sup>31</sup> And Gehazi passed on before them, and laid the staff upon the face of the child; but *there was* neither voice, nor hearing. Wherefore he went again to meet him, and told him, saying, The child is not awaked.  
-> <sup>32</sup> And when Elisha was come into the house, behold, the child was dead, *and* laid upon his bed.  
-> <sup>33</sup> He went in therefore, and shut the door upon them twain, and prayed unto the LORD.  
-> <sup>34</sup> And he went up, and lay upon the child, and put his mouth upon his mouth, and his eyes upon his eyes, and his hands upon his hands: and he stretched himself upon the child; and the flesh of the child waxed warm.  
-> <sup>35</sup> Then he returned, and walked in the house to and fro; and went up, and stretched himself upon him: and the child sneezed seven times, and the child opened his eyes.  
-> <sup>36</sup> And he called Gehazi, and said, Call this Shunammite. So he called her. And when she was come in unto him, he said, Take up thy son.  
-> <sup>37</sup> Then she went in, and fell at his feet, and bowed herself to the ground, and took up her son, and went out.  
+> **¹⁸** And when the child was grown, it fell on a day, that he went out to his father to the reapers.  
+> **¹⁹** And he said unto his father, My head, my head. And he said to a lad, Carry him to his mother.  
+> **²⁰** And when he had taken him, and brought him to his mother, he sat on her knees till noon, and *then* died.  
+> **²¹** And she went up, and laid him on the bed of the man of God, and shut *the door* upon him, and went out.  
+> **²²** And she called unto her husband, and said, Send me, I pray thee, one of the young men, and one of the asses, that I may run to the man of God, and come again.  
+> **²³** And he said, Wherefore wilt thou go to him to day? *it is* neither new moon, nor sabbath. And she said, *It shall be* well.  
+> **²⁴** Then she saddled an ass, and said to her servant, Drive, and go forward; slack not *thy* riding for me, except I bid thee.  
+> **²⁵** So she went and came unto the man of God to mount Carmel. And it came to pass, when the man of God saw her afar off, that he said to Gehazi his servant, Behold, *yonder is* that Shunammite:  
+> **²⁶** Run now, I pray thee, to meet her, and say unto her, *Is it* well with thee? *is it* well with thy husband? *is it* well with the child? And she answered, *It is* well.  
+> **²⁷** And when she came to the man of God to the hill, she caught him by the feet: but Gehazi came near to thrust her away. And the man of God said, Let her alone; for her soul *is* vexed within her: and the LORD hath hid *it* from me, and hath not told me.  
+> **²⁸** Then she said, Did I desire a son of my lord? did I not say, Do not deceive me?  
+> **²⁹** Then he said to Gehazi, Gird up thy loins, and take my staff in thine hand, and go thy way: if thou meet any man, salute him not; and if any salute thee, answer him not again: and lay my staff upon the face of the child.  
+> **³⁰** And the mother of the child said, *As* the LORD liveth, and *as* thy soul liveth, I will not leave thee. And he arose, and followed her.  
+> **³¹** And Gehazi passed on before them, and laid the staff upon the face of the child; but *there was* neither voice, nor hearing. Wherefore he went again to meet him, and told him, saying, The child is not awaked.  
+> **³²** And when Elisha was come into the house, behold, the child was dead, *and* laid upon his bed.  
+> **³³** He went in therefore, and shut the door upon them twain, and prayed unto the LORD.  
+> **³⁴** And he went up, and lay upon the child, and put his mouth upon his mouth, and his eyes upon his eyes, and his hands upon his hands: and he stretched himself upon the child; and the flesh of the child waxed warm.  
+> **³⁵** Then he returned, and walked in the house to and fro; and went up, and stretched himself upon him: and the child sneezed seven times, and the child opened his eyes.  
+> **³⁶** And he called Gehazi, and said, Call this Shunammite. So he called her. And when she was come in unto him, he said, Take up thy son.  
+> **³⁷** Then she went in, and fell at his feet, and bowed herself to the ground, and took up her son, and went out.  
 
 We may well suppose that, after the birth of this son, the prophet was doubly welcome to the good Shunammite. He had thought himself indebted to her, but henceforth, as long as she lives, she will think herself in his debt, and that she can never do too much for him. We may also suppose that the child was very dear to the prophet, as the son of his prayers, and very dear to the parents, as the son of their old age. But here is,
 
@@ -96,13 +96,13 @@ III\. The raising of the child to life again. We may suppose that the woman gave
 
 ## The Miracle on the Poisoned Pottage; the Miracle on the Barley Loaves. (b. c. 887.)
 
-> <sup>38</sup> And Elisha came again to Gilgal: and *there was* a dearth in the land; and the sons of the prophets *were* sitting before him: and he said unto his servant, Set on the great pot, and seethe pottage for the sons of the prophets.  
-> <sup>39</sup> And one went out into the field to gather herbs, and found a wild vine, and gathered thereof wild gourds his lap full, and came and shred *them* into the pot of pottage: for they knew *them* not.  
-> <sup>40</sup> So they poured out for the men to eat. And it came to pass, as they were eating of the pottage, that they cried out, and said, O *thou* man of God, *there is* death in the pot. And they could not eat *thereof.*  
-> <sup>41</sup> But he said, Then bring meal. And he cast *it* into the pot; and he said, Pour out for the people, that they may eat. And there was no harm in the pot.  
-> <sup>42</sup> And there came a man from Baal-shalisha, and brought the man of God bread of the firstfruits, twenty loaves of barley, and full ears of corn in the husk thereof. And he said, Give unto the people, that they may eat.  
-> <sup>43</sup> And his servitor said, What, should I set this before an hundred men? He said again, Give the people, that they may eat: for thus saith the LORD, They shall eat, and shall leave *thereof.*  
-> <sup>44</sup> So he set *it* before them, and they did eat, and left *thereof,* according to the word of the LORD.  
+> **³⁸** And Elisha came again to Gilgal: and *there was* a dearth in the land; and the sons of the prophets *were* sitting before him: and he said unto his servant, Set on the great pot, and seethe pottage for the sons of the prophets.  
+> **³⁹** And one went out into the field to gather herbs, and found a wild vine, and gathered thereof wild gourds his lap full, and came and shred *them* into the pot of pottage: for they knew *them* not.  
+> **⁴⁰** So they poured out for the men to eat. And it came to pass, as they were eating of the pottage, that they cried out, and said, O *thou* man of God, *there is* death in the pot. And they could not eat *thereof.*  
+> **⁴¹** But he said, Then bring meal. And he cast *it* into the pot; and he said, Pour out for the people, that they may eat. And there was no harm in the pot.  
+> **⁴²** And there came a man from Baal-shalisha, and brought the man of God bread of the firstfruits, twenty loaves of barley, and full ears of corn in the husk thereof. And he said, Give unto the people, that they may eat.  
+> **⁴³** And his servitor said, What, should I set this before an hundred men? He said again, Give the people, that they may eat: for thus saith the LORD, They shall eat, and shall leave *thereof.*  
+> **⁴⁴** So he set *it* before them, and they did eat, and left *thereof,* according to the word of the LORD.  
 
 We have here Elisha in his place, in his element, among the sons of the prophets, teaching them, and, as a father, providing for them; and happy it was for them that they had one over them who naturally cared for their state, under whom they were well fed and well taught. There was a dearth in the land, for the wickedness of those that dwelt therein, the same that we read of, 2Ki 8:1. It continued seven years, just as long again as that in Elijah's time. A famine of bread there was, but not of hearing the word of God, for Elisha had the sons of the prophets sitting before him, to hear his wisdom, who were taught, that they might teach others. Two instances we have here of the care he took about their meat. Christ twice fed those to whom he preached. Elisha was in the more care about it now because of the dearth, that the sons of the prophets might not be ashamed in this evil time, but, even in *the days of famine, might be satisfied,* Ps 37:19.
 

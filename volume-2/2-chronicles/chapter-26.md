@@ -8,21 +8,21 @@ This chapter gives us an account of the reign of Uzziah (Azariah he was called i
 
 ## Uzziah's Prosperity. (b. c. 800.)
 
-> <sup>1</sup> Then all the people of Judah took Uzziah, who *was* sixteen years old, and made him king in the room of his father Amaziah.  
-> <sup>2</sup> He built Eloth, and restored it to Judah, after that the king slept with his fathers.  
-> <sup>3</sup> Sixteen years old *was* Uzziah when he began to reign, and he reigned fifty and two years in Jerusalem. His mother's name also *was* Jecoliah of Jerusalem.  
-> <sup>4</sup> And he did *that which was* right in the sight of the LORD, according to all that his father Amaziah did.  
-> <sup>5</sup> And he sought God in the days of Zechariah, who had understanding in the visions of God: and as long as he sought the LORD, God made him to prosper.  
-> <sup>6</sup> And he went forth and warred against the Philistines, and brake down the wall of Gath, and the wall of Jabneh, and the wall of Ashdod, and built cities about Ashdod, and among the Philistines.  
-> <sup>7</sup> And God helped him against the Philistines, and against the Arabians that dwelt in Gur-baal, and the Mehunims.  
-> <sup>8</sup> And the Ammonites gave gifts to Uzziah: and his name spread abroad *even* to the entering in of Egypt; for he strengthened *himself* exceedingly.  
-> <sup>9</sup> Moreover Uzziah built towers in Jerusalem at the corner gate, and at the valley gate, and at the turning *of the wall,* and fortified them.  
-> <sup>10</sup> Also he built towers in the desert, and digged many wells: for he had much cattle, both in the low country, and in the plains: husbandmen *also,* and vine dressers in the mountains, and in Carmel: for he loved husbandry.  
-> <sup>11</sup> Moreover Uzziah had a host of fighting men, that went out to war by bands, according to the number of their account by the hand of Jeiel the scribe and Maaseiah the ruler, under the hand of Hananiah, *one* of the king's captains.  
-> <sup>12</sup> The whole number of the chief of the fathers of the mighty men of valour *were* two thousand and six hundred.  
-> <sup>13</sup> And under their hand *was* an army, three hundred thousand and seven thousand and five hundred, that made war with mighty power, to help the king against the enemy.  
-> <sup>14</sup> And Uzziah prepared for them throughout all the host shields, and spears, and helmets, and habergeons, and bows, and slings *to cast* stones.  
-> <sup>15</sup> And he made in Jerusalem engines, invented by cunning men, to be on the towers and upon the bulwarks, to shoot arrows and great stones withal. And his name spread far abroad; for he was marvellously helped, till he was strong.  
+> **¹** Then all the people of Judah took Uzziah, who *was* sixteen years old, and made him king in the room of his father Amaziah.  
+> **²** He built Eloth, and restored it to Judah, after that the king slept with his fathers.  
+> **³** Sixteen years old *was* Uzziah when he began to reign, and he reigned fifty and two years in Jerusalem. His mother's name also *was* Jecoliah of Jerusalem.  
+> **⁴** And he did *that which was* right in the sight of the LORD, according to all that his father Amaziah did.  
+> **⁵** And he sought God in the days of Zechariah, who had understanding in the visions of God: and as long as he sought the LORD, God made him to prosper.  
+> **⁶** And he went forth and warred against the Philistines, and brake down the wall of Gath, and the wall of Jabneh, and the wall of Ashdod, and built cities about Ashdod, and among the Philistines.  
+> **⁷** And God helped him against the Philistines, and against the Arabians that dwelt in Gur-baal, and the Mehunims.  
+> **⁸** And the Ammonites gave gifts to Uzziah: and his name spread abroad *even* to the entering in of Egypt; for he strengthened *himself* exceedingly.  
+> **⁹** Moreover Uzziah built towers in Jerusalem at the corner gate, and at the valley gate, and at the turning *of the wall,* and fortified them.  
+> **¹⁰** Also he built towers in the desert, and digged many wells: for he had much cattle, both in the low country, and in the plains: husbandmen *also,* and vine dressers in the mountains, and in Carmel: for he loved husbandry.  
+> **¹¹** Moreover Uzziah had a host of fighting men, that went out to war by bands, according to the number of their account by the hand of Jeiel the scribe and Maaseiah the ruler, under the hand of Hananiah, *one* of the king's captains.  
+> **¹²** The whole number of the chief of the fathers of the mighty men of valour *were* two thousand and six hundred.  
+> **¹³** And under their hand *was* an army, three hundred thousand and seven thousand and five hundred, that made war with mighty power, to help the king against the enemy.  
+> **¹⁴** And Uzziah prepared for them throughout all the host shields, and spears, and helmets, and habergeons, and bows, and slings *to cast* stones.  
+> **¹⁵** And he made in Jerusalem engines, invented by cunning men, to be on the towers and upon the bulwarks, to shoot arrows and great stones withal. And his name spread far abroad; for he was marvellously helped, till he was strong.  
 
 We have here an account of two things concerning Uzziah:—
 
@@ -36,14 +36,14 @@ II\. His prosperity.
 
 ## Uzziah's Sin and Punishment. (b. c. 763.)
 
-> <sup>16</sup> But when he was strong, his heart was lifted up to *his* destruction: for he transgressed against the LORD his God, and went into the temple of the LORD to burn incense upon the altar of incense.  
-> <sup>17</sup> And Azariah the priest went in after him, and with him fourscore priests of the LORD, *that were* valiant men:  
-> <sup>18</sup> And they withstood Uzziah the king, and said unto him, *It appertaineth* not unto thee, Uzziah, to burn incense unto the LORD, but to the priests the sons of Aaron, that are consecrated to burn incense: go out of the sanctuary; for thou hast trespassed; neither *shall it be* for thine honour from the LORD God.  
-> <sup>19</sup> Then Uzziah was wroth, and *had* a censer in his hand to burn incense: and while he was wroth with the priests, the leprosy even rose up in his forehead before the priests in the house of the LORD, from beside the incense altar.  
-> <sup>20</sup> And Azariah the chief priest, and all the priests, looked upon him, and, behold, he *was* leprous in his forehead, and they thrust him out from thence; yea, himself hasted also to go out, because the LORD had smitten him.  
-> <sup>21</sup> And Uzziah the king was a leper unto the day of his death, and dwelt in a several house, *being* a leper; for he was cut off from the house of the LORD: and Jotham his son *was* over the king's house, judging the people of the land.  
-> <sup>22</sup> Now the rest of the acts of Uzziah, first and last, did Isaiah the prophet, the son of Amoz, write.  
-> <sup>23</sup> So Uzziah slept with his fathers, and they buried him with his fathers in the field of the burial which *belonged* to the kings; for they said, He *is* a leper: and Jotham his son reigned in his stead.  
+> **¹⁶** But when he was strong, his heart was lifted up to *his* destruction: for he transgressed against the LORD his God, and went into the temple of the LORD to burn incense upon the altar of incense.  
+> **¹⁷** And Azariah the priest went in after him, and with him fourscore priests of the LORD, *that were* valiant men:  
+> **¹⁸** And they withstood Uzziah the king, and said unto him, *It appertaineth* not unto thee, Uzziah, to burn incense unto the LORD, but to the priests the sons of Aaron, that are consecrated to burn incense: go out of the sanctuary; for thou hast trespassed; neither *shall it be* for thine honour from the LORD God.  
+> **¹⁹** Then Uzziah was wroth, and *had* a censer in his hand to burn incense: and while he was wroth with the priests, the leprosy even rose up in his forehead before the priests in the house of the LORD, from beside the incense altar.  
+> **²⁰** And Azariah the chief priest, and all the priests, looked upon him, and, behold, he *was* leprous in his forehead, and they thrust him out from thence; yea, himself hasted also to go out, because the LORD had smitten him.  
+> **²¹** And Uzziah the king was a leper unto the day of his death, and dwelt in a several house, *being* a leper; for he was cut off from the house of the LORD: and Jotham his son *was* over the king's house, judging the people of the land.  
+> **²²** Now the rest of the acts of Uzziah, first and last, did Isaiah the prophet, the son of Amoz, write.  
+> **²³** So Uzziah slept with his fathers, and they buried him with his fathers in the field of the burial which *belonged* to the kings; for they said, He *is* a leper: and Jotham his son reigned in his stead.  
 
 Here is the only blot we find on the name of king Uzziah, and it is such a one as lies not on any other of the kings. Whoredom, murder, oppression, persecution, and especially idolatry, gave characters to the bad kings and some of them blemishes to the good ones, David himself not excepted, witness the matter of Uriah. But we find not Uzziah charged with any of these; and yet he *transgressed against the Lord his God,* and fell under the marks of his displeasure in consequence, not, as other kings, in vexatious wars or rebellions, but an incurable disease.
 

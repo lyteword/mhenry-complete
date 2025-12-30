@@ -10,9 +10,9 @@ It does not appear upon what occasion this psalm was penned nor whether upon any
 
 To the chief musician. A psalm of David.
 
-> <sup>1</sup> The fool hath said in his heart, *There is* no God. They are corrupt, they have done abominable works, *there is* none that doeth good.  
-> <sup>2</sup> The LORD looked down from heaven upon the children of men, to see if there were any that did understand, *and* seek God.  
-> <sup>3</sup> They are all gone aside, they are *all* together become filthy: *there is* none that doeth good, no, not one.  
+> **¹** The fool hath said in his heart, *There is* no God. They are corrupt, they have done abominable works, *there is* none that doeth good.  
+> **²** The LORD looked down from heaven upon the children of men, to see if there were any that did understand, *and* seek God.  
+> **³** They are all gone aside, they are *all* together become filthy: *there is* none that doeth good, no, not one.  
 
 If we apply our hearts as Solomon did (Ec 7:25) *to search out the wickedness of folly, even of foolishness and madness,* these verses will assist us in the search and will show us that sin is exceedingly sinful. Sin is the disease of mankind, and it appears here to be malignant and epidemic.
 
@@ -26,10 +26,10 @@ If we apply our hearts as Solomon did (Ec 7:25) *to search out the wickedness of
 
 In singing this let us lament the corruption of our own nature, and see what need we have of the grace of God; and, since that which is born of the flesh is flesh, let us not marvel that we are told we must be born again.
 
-> <sup>4</sup> Have all the workers of iniquity no knowledge? who eat up my people *as* they eat bread, and call not upon the LORD.  
-> <sup>5</sup> There were they in great fear: for God *is* in the generation of the righteous.  
-> <sup>6</sup> Ye have shamed the counsel of the poor, because the LORD *is* his refuge.  
-> <sup>7</sup> Oh that the salvation of Israel *were come* out of Zion! when the LORD bringeth back the captivity of his people, Jacob shall rejoice, *and* Israel shall be glad.  
+> **⁴** Have all the workers of iniquity no knowledge? who eat up my people *as* they eat bread, and call not upon the LORD.  
+> **⁵** There were they in great fear: for God *is* in the generation of the righteous.  
+> **⁶** Ye have shamed the counsel of the poor, because the LORD *is* his refuge.  
+> **⁷** Oh that the salvation of Israel *were come* out of Zion! when the LORD bringeth back the captivity of his people, Jacob shall rejoice, *and* Israel shall be glad.  
 
 In these verses the psalmist endeavours,
 

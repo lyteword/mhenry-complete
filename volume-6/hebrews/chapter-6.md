@@ -8,14 +8,14 @@ In this chapter the apostle proceeds to persuade the Hebrews to make a better pr
 
 ## Advancement in Holiness; First Principles. (a. d. 62.)
 
-> <sup>1</sup> Therefore leaving the principles of the doctrine of Christ, let us go on unto perfection; not laying again the foundation of repentance from dead works, and of faith toward God,  
-> <sup>2</sup> Of the doctrine of baptisms, and of laying on of hands, and of resurrection of the dead, and of eternal judgment.  
-> <sup>3</sup> And this will we do, if God permit.  
-> <sup>4</sup> For *it is* impossible for those who were once enlightened, and have tasted of the heavenly gift, and were made partakers of the Holy Ghost,  
-> <sup>5</sup> And have tasted the good word of God, and the powers of the world to come,  
-> <sup>6</sup> If they shall fall away, to renew them again unto repentance; seeing they crucify to themselves the Son of God afresh, and put *him* to an open shame.  
-> <sup>7</sup> For the earth which drinketh in the rain that cometh oft upon it, and bringeth forth herbs meet for them by whom it is dressed, receiveth blessing from God:  
-> <sup>8</sup> But that which beareth thorns and briers *is* rejected, and *is* nigh unto cursing; whose end *is* to be burned.  
+> **¹** Therefore leaving the principles of the doctrine of Christ, let us go on unto perfection; not laying again the foundation of repentance from dead works, and of faith toward God,  
+> **²** Of the doctrine of baptisms, and of laying on of hands, and of resurrection of the dead, and of eternal judgment.  
+> **³** And this will we do, if God permit.  
+> **⁴** For *it is* impossible for those who were once enlightened, and have tasted of the heavenly gift, and were made partakers of the Holy Ghost,  
+> **⁵** And have tasted the good word of God, and the powers of the world to come,  
+> **⁶** If they shall fall away, to renew them again unto repentance; seeing they crucify to themselves the Son of God afresh, and put *him* to an open shame.  
+> **⁷** For the earth which drinketh in the rain that cometh oft upon it, and bringeth forth herbs meet for them by whom it is dressed, receiveth blessing from God:  
+> **⁸** But that which beareth thorns and briers *is* rejected, and *is* nigh unto cursing; whose end *is* to be burned.  
 
 We have here the apostle's advice to the Hebrews—that they would grow up from a state of childhood to the fullness of the stature of the new man in Christ. He declares his readiness to assist them all he could in their spiritual progress; and, for their greater encouragement, he puts himself with them: *Let us go on.* Here observe, In order to their growth, Christians must leave the principles of the doctrine of Christ. How must they leave them? They must not lose them, they must not despise them, they must not forget them. They must lay them up in their hearts, and lay them as the foundation of all their profession and expectation; but they must not rest and stay in them, they must not be always laying the foundation, they must go on, and build upon it. There must be a superstructure; for the foundation is laid on purpose to support the building. Here it may be enquired, Why did the apostle resolve to set strong meat before the Hebrews, when he knew they were but babes? *Answer.* 1. Though some of them were but weak, yet others of them had gained more strength; and they must be provided for suitably. And, as those who are grown Christians must be willing to hear the plainest truths preached for the sake of the weak, so the weak must be willing to hear the more difficult and mysterious truths preached for the sake of those who are strong. 2. He hoped they would be growing in their spiritual strength and stature, and so be able to digest stronger meat.
 
@@ -45,18 +45,18 @@ III\. He shows that this spiritual growth is the surest way to prevent that drea
 
 ## Cautions against Apostasy; The Divine Promise and Oath. (a. d. 62.)
 
-> <sup>9</sup> But, beloved, we are persuaded better things of you, and things that accompany salvation, though we thus speak.  
-> <sup>10</sup> For God *is* not unrighteous to forget your work and labour of love, which ye have showed toward his name, in that ye have ministered to the saints, and do minister.  
-> <sup>11</sup> And we desire that every one of you do show the same diligence to the full assurance of hope unto the end:  
-> <sup>12</sup> That ye be not slothful, but followers of them who through faith and patience inherit the promises.  
-> <sup>13</sup> For when God made promise to Abraham, because he could swear by no greater, he sware by himself,  
-> <sup>14</sup> Saying, Surely blessing I will bless thee, and multiplying I will multiply thee.  
-> <sup>15</sup> And so, after he had patiently endured, he obtained the promise.  
-> <sup>16</sup> For men verily swear by the greater: and an oath for confirmation *is* to them an end of all strife.  
-> <sup>17</sup> Wherein God, willing more abundantly to show unto the heirs of promise the immutability of his counsel, confirmed *it* by an oath:  
-> <sup>18</sup> That by two immutable things, in which *it was* impossible for God to lie, we might have a strong consolation, who have fled for refuge to lay hold upon the hope set before us:  
-> <sup>19</sup> Which *hope* we have as an anchor of the soul, both sure and stedfast, and which entereth into that within the veil;  
-> <sup>20</sup> Whither the forerunner is for us entered, *even* Jesus, made a high priest for ever after the order of Melchisedec.  
+> **⁹** But, beloved, we are persuaded better things of you, and things that accompany salvation, though we thus speak.  
+> **¹⁰** For God *is* not unrighteous to forget your work and labour of love, which ye have showed toward his name, in that ye have ministered to the saints, and do minister.  
+> **¹¹** And we desire that every one of you do show the same diligence to the full assurance of hope unto the end:  
+> **¹²** That ye be not slothful, but followers of them who through faith and patience inherit the promises.  
+> **¹³** For when God made promise to Abraham, because he could swear by no greater, he sware by himself,  
+> **¹⁴** Saying, Surely blessing I will bless thee, and multiplying I will multiply thee.  
+> **¹⁵** And so, after he had patiently endured, he obtained the promise.  
+> **¹⁶** For men verily swear by the greater: and an oath for confirmation *is* to them an end of all strife.  
+> **¹⁷** Wherein God, willing more abundantly to show unto the heirs of promise the immutability of his counsel, confirmed *it* by an oath:  
+> **¹⁸** That by two immutable things, in which *it was* impossible for God to lie, we might have a strong consolation, who have fled for refuge to lay hold upon the hope set before us:  
+> **¹⁹** Which *hope* we have as an anchor of the soul, both sure and stedfast, and which entereth into that within the veil;  
+> **²⁰** Whither the forerunner is for us entered, *even* Jesus, made a high priest for ever after the order of Melchisedec.  
 
 The apostle, having applied himself to the fears of the Hebrews, in order to excite their diligence and prevent their apostasy, now proceeds to apply himself to their hopes, and candidly declares the good hope he had concerning them, that they would persevere; and proposes to them the great encouragements they had in the way of their duty.
 

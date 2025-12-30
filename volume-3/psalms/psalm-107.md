@@ -8,15 +8,15 @@ The psalmist, having in the two foregoing psalms celebrated the wisdom, power, a
 
 ## Exhortation to Celebrate God's Praises.
 
-> <sup>1</sup> O give thanks unto the LORD, for *he is* good: for his mercy *endureth* for ever.  
-> <sup>2</sup> Let the redeemed of the LORD say *so,* whom he hath redeemed from the hand of the enemy;  
-> <sup>3</sup> And gathered them out of the lands, from the east, and from the west, from the north, and from the south.  
-> <sup>4</sup> They wandered in the wilderness in a solitary way; they found no city to dwell in.  
-> <sup>5</sup> Hungry and thirsty, their soul fainted in them.  
-> <sup>6</sup> Then they cried unto the LORD in their trouble, *and* he delivered them out of their distresses.  
-> <sup>7</sup> And he led them forth by the right way, that they might go to a city of habitation.  
-> <sup>8</sup> Oh that *men* would praise the LORD *for* his goodness, and *for* his wonderful works to the children of men!  
-> <sup>9</sup> For he satisfieth the longing soul, and filleth the hungry soul with goodness.  
+> **¹** O give thanks unto the LORD, for *he is* good: for his mercy *endureth* for ever.  
+> **²** Let the redeemed of the LORD say *so,* whom he hath redeemed from the hand of the enemy;  
+> **³** And gathered them out of the lands, from the east, and from the west, from the north, and from the south.  
+> **⁴** They wandered in the wilderness in a solitary way; they found no city to dwell in.  
+> **⁵** Hungry and thirsty, their soul fainted in them.  
+> **⁶** Then they cried unto the LORD in their trouble, *and* he delivered them out of their distresses.  
+> **⁷** And he led them forth by the right way, that they might go to a city of habitation.  
+> **⁸** Oh that *men* would praise the LORD *for* his goodness, and *for* his wonderful works to the children of men!  
+> **⁹** For he satisfieth the longing soul, and filleth the hungry soul with goodness.  
 
 Here is, I. A general call to all to give thanks to God, Ps 107:1. Let all that sing this psalm, or pray over it, set themselves herein to *give thanks to the Lord;* and those that have not any special matter for praise may furnish themselves with matter enough from God's universal goodness. In the fountain *he is good;* in the streams *his mercy endures for ever* and never fails.
 
@@ -24,24 +24,24 @@ II\. A particular demand hereof from *the redeemed of the Lord,* which may well 
 
 ## The Divine Goodness towards Prisoners.
 
-> <sup>10</sup> Such as sit in darkness and in the shadow of death, *being* bound in affliction and iron;  
-> <sup>11</sup> Because they rebelled against the words of God, and contemned the counsel of the most High:  
-> <sup>12</sup> Therefore he brought down their heart with labour; they fell down, and *there was* none to help.  
-> <sup>13</sup> Then they cried unto the LORD in their trouble, *and* he saved them out of their distresses.  
-> <sup>14</sup> He brought them out of darkness and the shadow of death, and brake their bands in sunder.  
-> <sup>15</sup> Oh that *men* would praise the LORD *for* his goodness, and *for* his wonderful works to the children of men!  
-> <sup>16</sup> For he hath broken the gates of brass, and cut the bars of iron in sunder.  
+> **¹⁰** Such as sit in darkness and in the shadow of death, *being* bound in affliction and iron;  
+> **¹¹** Because they rebelled against the words of God, and contemned the counsel of the most High:  
+> **¹²** Therefore he brought down their heart with labour; they fell down, and *there was* none to help.  
+> **¹³** Then they cried unto the LORD in their trouble, *and* he saved them out of their distresses.  
+> **¹⁴** He brought them out of darkness and the shadow of death, and brake their bands in sunder.  
+> **¹⁵** Oh that *men* would praise the LORD *for* his goodness, and *for* his wonderful works to the children of men!  
+> **¹⁶** For he hath broken the gates of brass, and cut the bars of iron in sunder.  
 
 We are to take notice of the goodness of God towards prisoners and captives. Observe, 1. A description of this affliction. Prisoners are said to *sit in darkness* (Ps 107:10), in dark dungeons, close prisons, which intimates that they are desolate and disconsolate; they sit *in the shadow of death,* which intimates not only great distress and trouble, but great danger. Prisoners are many times appointed to die; they sit despairing to get out, but resolving to make the best of it. They are *bound in affliction, and* many times *in iron,* as Joseph. Thus sore a calamity is imprisonment, which should make us prize liberty, and be thankful for it. 2. The cause of this affliction, Ps 107:11. It is *because they rebelled against the words of God.* Wilful sin is rebellion against the words of God; it is a contradiction to his truths and a violation of his laws. *They contemned the counsel of the Most High,* and thought they neither needed it nor could be the better for it; and those that will not be counselled cannot be helped. Those that despise prophesying, that regard not the admonitions of their own consciences nor the just reproofs of their friends, contemn the counsel of the Most High, and for this they are bound in affliction, both to punish them for and to reclaim them from their rebellions. 3. The design of this affliction, and that is to bring *down their heart* (Ps 107:12), to humble them for sin, to make them low in their own eyes, to cast down every high, proud, aspiring thought. Afflicting providences must be improved as humbling providences; and we not only lose the benefit of them, but thwart God's designs and walk contrary to him in them if our hearts be unhumbled and unbroken, as high and hard as ever under them. Is the estate brought down with labour, the honour sunk? Have those that exalted themselves fallen down, and is there none to help them? Let this bring down the spirit to confess sin, to accept the punishment of it, and humbly to sue for mercy and grace. 4. The duty of this afflicted state, and that is to pray (Ps 107:13): *Then they cried unto the Lord in their trouble,* though before perhaps they had neglected him. Prisoners have time to pray, who, when they were at liberty, could not find time; they see they have need of God's help, though formerly they thought they could do well enough without him. Sense will make men cry when they are in trouble, but grace will direct them to cry unto the Lord, from whom the affliction comes and who alone can remove it. 5. Their deliverance out of the affliction: *They cried unto the Lord, and he saved them,* Ps 107:13. *He brought them out of darkness into light,* welcome light, and then doubly sweet and pleasant, *brought them out of the shadow of death* to the comforts of life, and their liberty was to them life from the dead, Ps 107:14. Were they *fettered? He broke their bands asunder.* Were they imprisoned in strong castles? *He broke the gates of brass* and the *bars of iron* wherewith those gates were made fast; he did not put back, but *cut in sunder.* Note, When God will work deliverance the greatest difficulties that lie in the way shall be made nothing of. Gates of brass and bars of iron, as they cannot keep him out from his people (he was with Joseph in the prison), so they cannot keep them in when the time, the set-time, for their enlargement, comes. 6. The return that is required from those whose bands God has loosed (Ps 107:15): *Let them praise the Lord for his goodness,* and take occasion from their own experience of it, and share in it, to bless him for that goodness which the earth is full of, *the world and those that dwell therein.*
 
 ## The Divine Goodness towards the Afflicted.
 
-> <sup>17</sup> Fools because of their transgression, and because of their iniquities, are afflicted.  
-> <sup>18</sup> Their soul abhorreth all manner of meat; and they draw near unto the gates of death.  
-> <sup>19</sup> Then they cry unto the LORD in their trouble, *and* he saveth them out of their distresses.  
-> <sup>20</sup> He sent his word, and healed them, and delivered *them* from their destructions.  
-> <sup>21</sup> Oh that *men* would praise the LORD *for* his goodness, and *for* his wonderful works to the children of men!  
-> <sup>22</sup> And let them sacrifice the sacrifices of thanksgiving, and declare his works with rejoicing.  
+> **¹⁷** Fools because of their transgression, and because of their iniquities, are afflicted.  
+> **¹⁸** Their soul abhorreth all manner of meat; and they draw near unto the gates of death.  
+> **¹⁹** Then they cry unto the LORD in their trouble, *and* he saveth them out of their distresses.  
+> **²⁰** He sent his word, and healed them, and delivered *them* from their destructions.  
+> **²¹** Oh that *men* would praise the LORD *for* his goodness, and *for* his wonderful works to the children of men!  
+> **²²** And let them sacrifice the sacrifices of thanksgiving, and declare his works with rejoicing.  
 
 Bodily sickness is another of the calamities of this life which gives us an opportunity of experiencing the goodness of God in recovering us, and of that the psalmist speaks in these verses, where we may observe,
 
@@ -51,16 +51,16 @@ II\. That it is by the power and mercy of God that we are recovered from sicknes
 
 ## The Divine Goodness to Mariners.
 
-> <sup>23</sup> They that go down to the sea in ships, that do business in great waters;  
-> <sup>24</sup> These see the works of the LORD, and his wonders in the deep.  
-> <sup>25</sup> For he commandeth, and raiseth the stormy wind, which lifteth up the waves thereof.  
-> <sup>26</sup> They mount up to the heaven, they go down again to the depths: their soul is melted because of trouble.  
-> <sup>27</sup> They reel to and fro, and stagger like a drunken man, and are at their wits' end.  
-> <sup>28</sup> Then they cry unto the LORD in their trouble, and he bringeth them out of their distresses.  
-> <sup>29</sup> He maketh the storm a calm, so that the waves thereof are still.  
-> <sup>30</sup> Then are they glad because they be quiet; so he bringeth them unto their desired haven.  
-> <sup>31</sup> Oh that *men* would praise the LORD *for* his goodness, and *for* his wonderful works to the children of men!  
-> <sup>32</sup> Let them exalt him also in the congregation of the people, and praise him in the assembly of the elders.  
+> **²³** They that go down to the sea in ships, that do business in great waters;  
+> **²⁴** These see the works of the LORD, and his wonders in the deep.  
+> **²⁵** For he commandeth, and raiseth the stormy wind, which lifteth up the waves thereof.  
+> **²⁶** They mount up to the heaven, they go down again to the depths: their soul is melted because of trouble.  
+> **²⁷** They reel to and fro, and stagger like a drunken man, and are at their wits' end.  
+> **²⁸** Then they cry unto the LORD in their trouble, and he bringeth them out of their distresses.  
+> **²⁹** He maketh the storm a calm, so that the waves thereof are still.  
+> **³⁰** Then are they glad because they be quiet; so he bringeth them unto their desired haven.  
+> **³¹** Oh that *men* would praise the LORD *for* his goodness, and *for* his wonderful works to the children of men!  
+> **³²** Let them exalt him also in the congregation of the people, and praise him in the assembly of the elders.  
 
 The psalmist here calls upon those to give glory to God who are delivered from dangers at sea. Though the Israelites dealt not much in merchandise, yet their neighbours the Tyrians and Zidonians did, and for them perhaps this part of the psalm was especially calculated.
 
@@ -70,17 +70,17 @@ II\. It especially appears in storms at sea, which are much more terrible than a
 
 ## Wonders of Divine Providence.
 
-> <sup>33</sup> He turneth rivers into a wilderness, and the watersprings into dry ground;  
-> <sup>34</sup> A fruitful land into barrenness, for the wickedness of them that dwell therein.  
-> <sup>35</sup> He turneth the wilderness into a standing water, and dry ground into watersprings.  
-> <sup>36</sup> And there he maketh the hungry to dwell, that they may prepare a city for habitation;  
-> <sup>37</sup> And sow the fields, and plant vineyards, which may yield fruits of increase.  
-> <sup>38</sup> He blesseth them also, so that they are multiplied greatly; and suffereth not their cattle to decrease.  
-> <sup>39</sup> Again, they are minished and brought low through oppression, affliction, and sorrow.  
-> <sup>40</sup> He poureth contempt upon princes, and causeth them to wander in the wilderness, *where there is* no way.  
-> <sup>41</sup> Yet setteth he the poor on high from affliction, and maketh *him* families like a flock.  
-> <sup>42</sup> The righteous shall see *it,* and rejoice: and all iniquity shall stop her mouth.  
-> <sup>43</sup> Whoso *is* wise, and will observe these *things,* even they shall understand the lovingkindness of the LORD.  
+> **³³** He turneth rivers into a wilderness, and the watersprings into dry ground;  
+> **³⁴** A fruitful land into barrenness, for the wickedness of them that dwell therein.  
+> **³⁵** He turneth the wilderness into a standing water, and dry ground into watersprings.  
+> **³⁶** And there he maketh the hungry to dwell, that they may prepare a city for habitation;  
+> **³⁷** And sow the fields, and plant vineyards, which may yield fruits of increase.  
+> **³⁸** He blesseth them also, so that they are multiplied greatly; and suffereth not their cattle to decrease.  
+> **³⁹** Again, they are minished and brought low through oppression, affliction, and sorrow.  
+> **⁴⁰** He poureth contempt upon princes, and causeth them to wander in the wilderness, *where there is* no way.  
+> **⁴¹** Yet setteth he the poor on high from affliction, and maketh *him* families like a flock.  
+> **⁴²** The righteous shall see *it,* and rejoice: and all iniquity shall stop her mouth.  
+> **⁴³** Whoso *is* wise, and will observe these *things,* even they shall understand the lovingkindness of the LORD.  
 
 The psalmist, having given God the glory of the providential reliefs granted to persons in distress, here gives him the glory of the revolutions of providence, and the surprising changes it sometimes makes in the affairs of the children of men.
 

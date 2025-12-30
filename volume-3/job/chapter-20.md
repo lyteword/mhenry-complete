@@ -8,15 +8,15 @@ One would have thought that such an excellent confession of faith as Job made, i
 
 ## Second Address of Zophar; Destruction of the Wicked. (b. c. 1520.)
 
-> <sup>1</sup> Then answered Zophar the Naamathite, and said,  
-> <sup>2</sup> Therefore do my thoughts cause me to answer, and for *this* I make haste.  
-> <sup>3</sup> I have heard the check of my reproach, and the spirit of my understanding causeth me to answer.  
-> <sup>4</sup> Knowest thou *not* this of old, since man was placed upon earth,  
-> <sup>5</sup> That the triumphing of the wicked *is* short, and the joy of the hypocrite *but* for a moment?  
-> <sup>6</sup> Though his excellency mount up to the heavens, and his head reach unto the clouds;  
-> <sup>7</sup> *Yet* he shall perish for ever like his own dung: they which have seen him shall say, Where *is* he?  
-> <sup>8</sup> He shall fly away as a dream, and shall not be found: yea, he shall be chased away as a vision of the night.  
-> <sup>9</sup> The eye also *which* saw him shall *see him* no more; neither shall his place any more behold him.  
+> **¹** Then answered Zophar the Naamathite, and said,  
+> **²** Therefore do my thoughts cause me to answer, and for *this* I make haste.  
+> **³** I have heard the check of my reproach, and the spirit of my understanding causeth me to answer.  
+> **⁴** Knowest thou *not* this of old, since man was placed upon earth,  
+> **⁵** That the triumphing of the wicked *is* short, and the joy of the hypocrite *but* for a moment?  
+> **⁶** Though his excellency mount up to the heavens, and his head reach unto the clouds;  
+> **⁷** *Yet* he shall perish for ever like his own dung: they which have seen him shall say, Where *is* he?  
+> **⁸** He shall fly away as a dream, and shall not be found: yea, he shall be chased away as a vision of the night.  
+> **⁹** The eye also *which* saw him shall *see him* no more; neither shall his place any more behold him.  
 
 Here, I. Zophar begins very passionately, and seems to be in a great heat at what Job had said. Being resolved to condemn Job for a bad man, he was much displeased that he talked so like a good man, and, as it should seem, broke in upon him, and began abruptly (Job 20:2): *Therefore do my thoughts cause me to answer.* He takes no notice of what Job had said to move their pity, or to evidence his own integrity, but fastens upon the reproof he gave them in the close of his discourse, counts that a reproach, and thinks himself *therefore* obliged to answer, because Job had bidden them be afraid of the sword, that he might not seem to be frightened by his menaces. The best counsel is too often ill taken from an antagonist, and therefore usually may be well spared. Zophar seemed more in haste to speak than became a wise man; but he excuses his haste with two things:—1. That Job had given him strong provocation (Job 20:3): "*I have heard the check of my reproach,* and cannot bear to hear it any longer." Job's friends, I doubt, had spirits too high to deal with a man in his low condition; and high spirits are impatient of contradiction, and think themselves affronted if all about them do not say as they say; they cannot bear a check but they call it *the check of their reproach,* and then they are bound in honour to return it, if not to draw upon him that gave it. 2. That his own heart gave him a strong instigation. His thoughts caused him to answer (Job 20:2), for *out of the abundance of the heart the mouth speaks;* but he fathers the instigation (Job 20:3) upon *the spirit of his understanding:* that indeed should cause us to answer; we should rightly apprehend a thing and duly consider it before we speak of it; but whether it did so here or no is a question. Men often mistake the dictates of their passion for the dictates of their reason, and therefore think they do well to be angry.
 
@@ -30,19 +30,19 @@ II\. Zophar proceeds very plainly to show the ruin and destruction of wicked peo
 
 ## Misery of the Wicked. (b. c. 1520.)
 
-> <sup>10</sup> His children shall seek to please the poor, and his hands shall restore their goods.  
-> <sup>11</sup> His bones are full *of the sin* of his youth, which shall lie down with him in the dust.  
-> <sup>12</sup> Though wickedness be sweet in his mouth, *though* he hide it under his tongue;  
-> <sup>13</sup> *Though* he spare it, and forsake it not; but keep it still within his mouth:  
-> <sup>14</sup> *Yet* his meat in his bowels is turned, *it is* the gall of asps within him.  
-> <sup>15</sup> He hath swallowed down riches, and he shall vomit them up again: God shall cast them out of his belly.  
-> <sup>16</sup> He shall suck the poison of asps: the viper's tongue shall slay him.  
-> <sup>17</sup> He shall not see the rivers, the floods, the brooks of honey and butter.  
-> <sup>18</sup> That which he laboured for shall he restore, and shall not swallow *it* down: according to *his* substance *shall* the restitution *be,* and he shall not rejoice *therein.*  
-> <sup>19</sup> Because he hath oppressed *and* hath forsaken the poor; *because* he hath violently taken away a house which he builded not;  
-> <sup>20</sup> Surely he shall not feel quietness in his belly, he shall not save of that which he desired.  
-> <sup>21</sup> There shall none of his meat be left; therefore shall no man look for his goods.  
-> <sup>22</sup> In the fulness of his sufficiency he shall be in straits: every hand of the wicked shall come upon him.  
+> **¹⁰** His children shall seek to please the poor, and his hands shall restore their goods.  
+> **¹¹** His bones are full *of the sin* of his youth, which shall lie down with him in the dust.  
+> **¹²** Though wickedness be sweet in his mouth, *though* he hide it under his tongue;  
+> **¹³** *Though* he spare it, and forsake it not; but keep it still within his mouth:  
+> **¹⁴** *Yet* his meat in his bowels is turned, *it is* the gall of asps within him.  
+> **¹⁵** He hath swallowed down riches, and he shall vomit them up again: God shall cast them out of his belly.  
+> **¹⁶** He shall suck the poison of asps: the viper's tongue shall slay him.  
+> **¹⁷** He shall not see the rivers, the floods, the brooks of honey and butter.  
+> **¹⁸** That which he laboured for shall he restore, and shall not swallow *it* down: according to *his* substance *shall* the restitution *be,* and he shall not rejoice *therein.*  
+> **¹⁹** Because he hath oppressed *and* hath forsaken the poor; *because* he hath violently taken away a house which he builded not;  
+> **²⁰** Surely he shall not feel quietness in his belly, he shall not save of that which he desired.  
+> **²¹** There shall none of his meat be left; therefore shall no man look for his goods.  
+> **²²** In the fulness of his sufficiency he shall be in straits: every hand of the wicked shall come upon him.  
 
 The instances here given of the miserable condition of the wicked man in this world are expressed with great fulness and fluency of language, and the same thing returned to again and repeated in other words. Let us therefore reduce the particulars to their proper heads, and observe,
 
@@ -64,13 +64,13 @@ II\. What his punishment is for this wickedness.
 
 4\. He shall be dispossessed of his estate; that shall sink and dwindle away to nothing, so that *he shall not rejoice therein,* Job 20:18. He shall not only never rejoice truly, but not long rejoice at all. (1.) What he has unjustly swallowed he shall be compelled to disgorge (Job 20:15): *He swallowed down riches,* and then thought himself sure of them, and that they were as much his own as the meat he had eaten; but he was deceived: *he shall vomit them up again;* his own conscience perhaps may make him so uneasy in the keeping of what he has gotten that, for the quiet of his own mind, he shall make restitution, and that not with the pleasure of a virtue, but the pain of a vomit, and with the utmost reluctancy. Or, if he do not himself refund what he has violently taken away, God will, by his providence, force him to it, and bring it about, one way or other, that ill-gotten goods shall return to the right owners: *God shall cast them out of his belly,* while yet the love of the sin is not cast out of his heart. So loud shall the clamours of the poor, whom he has impoverished, be against him, that he shall be forced to send his children to them to soothe them and beg their pardon (Job 20:10): *His children shall seek to please the poor,* while his own hands shall restore them their goods with shame (Job 20:18): *That which he laboured for,* by all the arts of oppression, *shall he restore,* and shall not so swallow it down as to digest it; it shall not stay with him, but *according to his shame shall the restitution be;* having gotten a great deal unjustly, he shall restore a great deal, so that when every one has his own he will have but little left for himself. To be made to restore what was unjustly gotten, by the sanctifying grace of God, as Zaccheus was, is a great mercy; he voluntarily and cheerfully restored four-fold, and yet had a great deal left to *give to the poor,* Lu 19:8. But to be forced to restore, as Judas was, merely by the horrors of a despairing conscience, has none of that benefit and comfort attending it, for he *threw down the pieces of silver and went and hanged himself.* (2.) He shall be stripped of all he has and become a beggar. He that spoiled others shall himself be spoiled (Isa 33:1); for *every hand of the wicked shall be upon him.* The innocent, whom he has wronged, sit down by their loss, saying, as David, *Wickedness proceedeth from the wicked, but my hand shall not be upon him,* 1Sa 24:13. But though they have forgiven him, though they will make no reprisals, divine justice will, and often makes the wicked to avenge the quarrel of the righteous, and squeezes and crushes one bad man by the hand of another upon him. Thus, when he is plucked on all sides, *he shall not save of that which he desired* (Job 20:20), not only he shall not save it all, but he shall save nothing of it. *There shall none of his meat* (which he coveted so much, and fed upon with so much pleasure) *be left,* Job 20:21. All his neighbours and relations shall look upon him to be in such bad circumstances that, when he is dead, no man shall look for his goods, none of his kindred shall expect to be a penny the better for him, nor be willing to take out letters of administration for what he leaves behind him. In all this Zophar reflects upon Job, who had lost all and was reduced to the last extremity.
 
-> <sup>23</sup> *When* he is about to fill his belly, *God* shall cast the fury of his wrath upon him, and shall rain *it* upon him while he is eating.  
-> <sup>24</sup> He shall flee from the iron weapon, *and* the bow of steel shall strike him through.  
-> <sup>25</sup> It is drawn, and cometh out of the body; yea, the glittering sword cometh out of his gall: terrors *are* upon him.  
-> <sup>26</sup> All darkness *shall be* hid in his secret places: a fire not blown shall consume him; it shall go ill with him that is left in his tabernacle.  
-> <sup>27</sup> The heaven shall reveal his iniquity; and the earth shall rise up against him.  
-> <sup>28</sup> The increase of his house shall depart, *and his goods* shall flow away in the day of his wrath.  
-> <sup>29</sup> This *is* the portion of a wicked man from God, and the heritage appointed unto him by God.  
+> **²³** *When* he is about to fill his belly, *God* shall cast the fury of his wrath upon him, and shall rain *it* upon him while he is eating.  
+> **²⁴** He shall flee from the iron weapon, *and* the bow of steel shall strike him through.  
+> **²⁵** It is drawn, and cometh out of the body; yea, the glittering sword cometh out of his gall: terrors *are* upon him.  
+> **²⁶** All darkness *shall be* hid in his secret places: a fire not blown shall consume him; it shall go ill with him that is left in his tabernacle.  
+> **²⁷** The heaven shall reveal his iniquity; and the earth shall rise up against him.  
+> **²⁸** The increase of his house shall depart, *and his goods* shall flow away in the day of his wrath.  
+> **²⁹** This *is* the portion of a wicked man from God, and the heritage appointed unto him by God.  
 
 Zophar, having described the many embarrassments and vexations which commonly attend the wicked practices of oppressors and cruel men, here comes to show their utter ruin at last.
 

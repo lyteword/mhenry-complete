@@ -8,9 +8,9 @@ Hagar is the person mostly concerned in the story of this chapter, an obscure Eg
 
 ## Abram, Sarai, and Hagar. (b. c. 1911.)
 
-> <sup>1</sup> Now Sarai Abram's wife bare him no children: and she had a handmaid, an Egyptian, whose name *was* Hagar.  
-> <sup>2</sup> And Sarai said unto Abram, Behold now, the LORD hath restrained me from bearing: I pray thee, go in unto my maid; it may be that I may obtain children by her. And Abram hearkened to the voice of Sarai.  
-> <sup>3</sup> And Sarai Abram's wife took Hagar her maid the Egyptian, after Abram had dwelt ten years in the land of Canaan, and gave her to her husband Abram to be his wife.  
+> **¹** Now Sarai Abram's wife bare him no children: and she had a handmaid, an Egyptian, whose name *was* Hagar.  
+> **²** And Sarai said unto Abram, Behold now, the LORD hath restrained me from bearing: I pray thee, go in unto my maid; it may be that I may obtain children by her. And Abram hearkened to the voice of Sarai.  
+> **³** And Sarai Abram's wife took Hagar her maid the Egyptian, after Abram had dwelt ten years in the land of Canaan, and gave her to her husband Abram to be his wife.  
 
 We have here the marriage of Abram to Hagar, who was his secondary wife. Herein, though some excuse may be made for him, he cannot be justified, for *from the beginning it was not so;* and, when it was so, it seems to have proceeded from an irregular desire to build up families for the speedier peopling of the world and the church. Certainly it must not be so now. Christ has reduced this matter to the first institution, and makes the marriage union to be between one man and one woman only. Now,
 
@@ -26,9 +26,9 @@ II\. The inducement to it was Sarai's barrenness.
 
 4\. Abram's compliance with Sarai's proposal, we have reason to think, was from an earnest desire of the promised seed, on whom the covenant should be entailed. God had told him that his heir should be a son of his body, but had not yet told him that it should be a son by Sarai; therefore he thought, "Why not by Hagar, since Sarai herself proposed it?" Note, (1.) Foul temptations may have very fair pretences, and be coloured with that which is very plausible. (2.) Fleshly wisdom, as it anticipates God's time of mercy, so it puts us out of God's way. (3.) This would be happily prevented if we would ask counsel of God by the word and by prayer, before we attempt that which is important and suspicious. Herein Abram was wanting; he married without God's consent. *This persuasion came not of him that called him.*
 
-> <sup>4</sup> And he went in unto Hagar, and she conceived: and when she saw that she had conceived, her mistress was despised in her eyes.  
-> <sup>5</sup> And Sarai said unto Abram, My wrong *be* upon thee: I have given my maid into thy bosom; and when she saw that she had conceived, I was despised in her eyes: the LORD judge between me and thee.  
-> <sup>6</sup> But Abram said unto Sarai, Behold, thy maid *is* in thy hand; do to her as it pleaseth thee. And when Sarai dealt hardly with her, she fled from her face.  
+> **⁴** And he went in unto Hagar, and she conceived: and when she saw that she had conceived, her mistress was despised in her eyes.  
+> **⁵** And Sarai said unto Abram, My wrong *be* upon thee: I have given my maid into thy bosom; and when she saw that she had conceived, I was despised in her eyes: the LORD judge between me and thee.  
+> **⁶** But Abram said unto Sarai, Behold, thy maid *is* in thy hand; do to her as it pleaseth thee. And when Sarai dealt hardly with her, she fled from her face.  
 
 We have here the immediate bad consequences of Abram's unhappy marriage to Hagar. A great deal of mischief it made quickly. When we do not well both sin and trouble lie at the door; and we may thank ourselves for the guilt and grief that follow us when we go out of the way of our duty. See it in this story.
 
@@ -38,9 +38,9 @@ II\. Abram is clamoured upon, and cannot be easy while Sarai is out of humour; s
 
 III\. Hagar is afflicted, and driven from the house, Ge 16:6. Observe, 1. Abram's meekness resigns the matter of the maid-servant to Sarai, whose proper province it was to rule that part of the family: *Thy maid is in thy hand.* Though she was his wife, he would not countenance nor protect her in any thing that was disrespectful to Sarai, for whom he still retained the same affection that ever he had. Note, Those who would keep up peace and love must return soft answers to hard accusations. Husbands and wives particularly should agree, and endeavour not to be both angry together. *Yielding pacifies great offenses.* See Pr 15:1. 2. Sarai's passion will be revenged upon Hagar: *She dealt hardly with her,* not only confining her to her usual place and work as a servant, but probably making her to serve with rigour. Note, God takes notice of, and is displeased with, the hardships which harsh masters unreasonably put upon their servants. They ought to forbear threatening, with Job's thought, *Did not he that made me make him?* Job 31:15. 3. Hagar's pride cannot bear it, her high spirit having become impatient of rebuke: *She fled from her face.* She not only avoided her wrath for the present, as David did Saul's, but she totally deserted her service, and ran away from the house, forgetting, (1.) What wrong she hereby did to her mistress, whose servant she was, and to her master, whose wife she was. Note, Pride will hardly be restrained by *any* bonds of duty, no, not by *many.* (2.) That she herself had first given the provocation, by despising her mistress. Note, Those that suffer for their faults ought to bear their sufferings patiently, 1Pe 2:20.
 
-> <sup>7</sup> And the angel of the LORD found her by a fountain of water in the wilderness, by the fountain in the way to Shur.  
-> <sup>8</sup> And he said, Hagar, Sarai's maid, whence camest thou? and whither wilt thou go? And she said, I flee from the face of my mistress Sarai.  
-> <sup>9</sup> And the angel of the LORD said unto her, Return to thy mistress, and submit thyself under her hands.  
+> **⁷** And the angel of the LORD found her by a fountain of water in the wilderness, by the fountain in the way to Shur.  
+> **⁸** And he said, Hagar, Sarai's maid, whence camest thou? and whither wilt thou go? And she said, I flee from the face of my mistress Sarai.  
+> **⁹** And the angel of the LORD said unto her, Return to thy mistress, and submit thyself under her hands.  
 
 Here is the first mention we have in scripture of an angel's appearance. Hagar was a type of the law, which was *given by the disposition of angels; but the world to come is not put in subjection to them,* Heb 2:5. Observe,
 
@@ -58,11 +58,11 @@ II\. How he examined her, Ge 16:8. Observe,
 
 ## The Promise Concerning Ishmael. (b. c. 1911.)
 
-> <sup>10</sup> And the angel of the LORD said unto her, I will multiply thy seed exceedingly, that it shall not be numbered for multitude.  
-> <sup>11</sup> And the angel of the LORD said unto her, Behold, thou *art* with child, and shalt bear a son, and shalt call his name Ishmael; because the LORD hath heard thy affliction.  
-> <sup>12</sup> And he will be a wild man; his hand *will be* against every man, and every man's hand against him; and he shall dwell in the presence of all his brethren.  
-> <sup>13</sup> And she called the name of the LORD that spake unto her, Thou God seest me: for she said, Have I also here looked after him that seeth me?  
-> <sup>14</sup> Wherefore the well was called Beer-lahai-roi; behold, *it is* between Kadesh and Bered.  
+> **¹⁰** And the angel of the LORD said unto her, I will multiply thy seed exceedingly, that it shall not be numbered for multitude.  
+> **¹¹** And the angel of the LORD said unto her, Behold, thou *art* with child, and shalt bear a son, and shalt call his name Ishmael; because the LORD hath heard thy affliction.  
+> **¹²** And he will be a wild man; his hand *will be* against every man, and every man's hand against him; and he shall dwell in the presence of all his brethren.  
+> **¹³** And she called the name of the LORD that spake unto her, Thou God seest me: for she said, Have I also here looked after him that seeth me?  
+> **¹⁴** Wherefore the well was called Beer-lahai-roi; behold, *it is* between Kadesh and Bered.  
 
 We may suppose that the angel having given Hagar that good counsel (Ge 16:9) to *return to her mistress* she immediately promised to do so, and was setting her face homeward; and then the angel went on to encourage her with an assurance of the mercy God had in store for her and her seed: for God will meet those with mercy that are returning to their duty. *I said, I will confess, and thou forgavest,* Ps 32:5. Here is,
 
@@ -78,8 +78,8 @@ III\. The name which this gave to the place: *Beer-lahai-roi, The well of him th
 
 ## The Birth of Ishmael. (b. c. 1911.)
 
-> <sup>15</sup> And Hagar bare Abram a son: and Abram called his son's name, which Hagar bare, Ishmael.  
-> <sup>16</sup> And Abram *was* fourscore and six years old, when Hagar bare Ishmael to Abram.  
+> **¹⁵** And Hagar bare Abram a son: and Abram called his son's name, which Hagar bare, Ishmael.  
+> **¹⁶** And Abram *was* fourscore and six years old, when Hagar bare Ishmael to Abram.  
 
 It is here taken for granted, though not expressly recorded, that Hagar did as the angel commanded her, returning to her mistress and submitting herself; and then, in the fulness of time, she brought forth her son. Note, Those who obey divine precepts shall have the comfort of divine promises. This was the son of the bond-woman that was *born after the flesh* (Ga 4:23), representing the unbelieving Jews, Ga 4:25. Note, 1. Many who can call Abraham father are yet *born after the flesh,* Mt 3:9. 2. The carnal seed in the church are sooner brought forth than the spiritual. It is an easier thing to persuade men to assume the form of godliness than to submit to the power of godliness.
 

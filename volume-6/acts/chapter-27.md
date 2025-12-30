@@ -8,17 +8,17 @@ This whole chapter is taken up with an account of Paul's voyage towards Rome, wh
 
 ## Paul's Voyage towards Rome.
 
-> <sup>1</sup> And when it was determined that we should sail into Italy, they delivered Paul and certain other prisoners unto *one* named Julius, a centurion of Augustus' band.  
-> <sup>2</sup> And entering into a ship of Adramyttium, we launched, meaning to sail by the coasts of Asia; *one* Aristarchus, a Macedonian of Thessalonica, being with us.  
-> <sup>3</sup> And the next *day* we touched at Sidon. And Julius courteously entreated Paul, and gave *him* liberty to go unto his friends to refresh himself.  
-> <sup>4</sup> And when we had launched from thence, we sailed under Cyprus, because the winds were contrary.  
-> <sup>5</sup> And when we had sailed over the sea of Cilicia and Pamphylia, we came to Myra, *a city* of Lycia.  
-> <sup>6</sup> And there the centurion found a ship of Alexandria sailing into Italy; and he put us therein.  
-> <sup>7</sup> And when we had sailed slowly many days, and scarce were come over against Cnidus, the wind not suffering us, we sailed under Crete, over against Salmone;  
-> <sup>8</sup> And, hardly passing it, came unto a place which is called The fair havens; nigh whereunto was the city *of* Lasea.  
-> <sup>9</sup> Now when much time was spent, and when sailing was now dangerous, because the fast was now already past, Paul admonished *them,*  
-> <sup>10</sup> And said unto them, Sirs, I perceive that this voyage will be with hurt and much damage, not only of the lading and ship, but also of our lives.  
-> <sup>11</sup> Nevertheless the centurion believed the master and the owner of the ship, more than those things which were spoken by Paul.  
+> **¹** And when it was determined that we should sail into Italy, they delivered Paul and certain other prisoners unto *one* named Julius, a centurion of Augustus' band.  
+> **²** And entering into a ship of Adramyttium, we launched, meaning to sail by the coasts of Asia; *one* Aristarchus, a Macedonian of Thessalonica, being with us.  
+> **³** And the next *day* we touched at Sidon. And Julius courteously entreated Paul, and gave *him* liberty to go unto his friends to refresh himself.  
+> **⁴** And when we had launched from thence, we sailed under Cyprus, because the winds were contrary.  
+> **⁵** And when we had sailed over the sea of Cilicia and Pamphylia, we came to Myra, *a city* of Lycia.  
+> **⁶** And there the centurion found a ship of Alexandria sailing into Italy; and he put us therein.  
+> **⁷** And when we had sailed slowly many days, and scarce were come over against Cnidus, the wind not suffering us, we sailed under Crete, over against Salmone;  
+> **⁸** And, hardly passing it, came unto a place which is called The fair havens; nigh whereunto was the city *of* Lasea.  
+> **⁹** Now when much time was spent, and when sailing was now dangerous, because the fast was now already past, Paul admonished *them,*  
+> **¹⁰** And said unto them, Sirs, I perceive that this voyage will be with hurt and much damage, not only of the lading and ship, but also of our lives.  
+> **¹¹** Nevertheless the centurion believed the master and the owner of the ship, more than those things which were spoken by Paul.  
 
 It does not appear how long it was after Paul's conference with Agrippa that he was sent away for Rome, pursuant to his appeal to Cæsar; but it is likely they took the first convenience they could hear of to do it; in the mean time Paul is in the midst of his friends at Cæsarea—they comforts to him, and he a blessing to them. But here we are told,
 
@@ -30,15 +30,15 @@ III\. What advice Paul gave them with reference to that part of their voyage the
 
 ## Paul's Voyage towards Rome.
 
-> <sup>12</sup> And because the haven was not commodious to winter in, the more part advised to depart thence also, if by any means they might attain to Phenice, *and there* to winter; *which is* an haven of Crete, and lieth toward the south west and north west.  
-> <sup>13</sup> And when the south wind blew softly, supposing that they had obtained *their* purpose, loosing *thence,* they sailed close by Crete.  
-> <sup>14</sup> But not long after there arose against it a tempestuous wind, called Euroclydon.  
-> <sup>15</sup> And when the ship was caught, and could not bear up into the wind, we let *her* drive.  
-> <sup>16</sup> And running under a certain island which is called Clauda, we had much work to come by the boat:  
-> <sup>17</sup> Which when they had taken up, they used helps, undergirding the ship; and, fearing lest they should fall into the quicksands, strake sail, and so were driven.  
-> <sup>18</sup> And we being exceedingly tossed with a tempest, the next *day* they lightened the ship;  
-> <sup>19</sup> And the third *day* we cast out with our own hands the tackling of the ship.  
-> <sup>20</sup> And when neither sun nor stars in many days appeared, and no small tempest lay on *us,* all hope that we should be saved was then taken away.  
+> **¹²** And because the haven was not commodious to winter in, the more part advised to depart thence also, if by any means they might attain to Phenice, *and there* to winter; *which is* an haven of Crete, and lieth toward the south west and north west.  
+> **¹³** And when the south wind blew softly, supposing that they had obtained *their* purpose, loosing *thence,* they sailed close by Crete.  
+> **¹⁴** But not long after there arose against it a tempestuous wind, called Euroclydon.  
+> **¹⁵** And when the ship was caught, and could not bear up into the wind, we let *her* drive.  
+> **¹⁶** And running under a certain island which is called Clauda, we had much work to come by the boat:  
+> **¹⁷** Which when they had taken up, they used helps, undergirding the ship; and, fearing lest they should fall into the quicksands, strake sail, and so were driven.  
+> **¹⁸** And we being exceedingly tossed with a tempest, the next *day* they lightened the ship;  
+> **¹⁹** And the third *day* we cast out with our own hands the tackling of the ship.  
+> **²⁰** And when neither sun nor stars in many days appeared, and no small tempest lay on *us,* all hope that we should be saved was then taken away.  
 
 In these verses we have,
 
@@ -54,30 +54,30 @@ II\. The ship in a storm presently, a dreadful storm. They looked at second caus
 
 ## Paul's Voyage towards Rome.
 
-> <sup>21</sup> But after long abstinence Paul stood forth in the midst of them, and said, Sirs, ye should have hearkened unto me, and not have loosed from Crete, and to have gained this harm and loss.  
-> <sup>22</sup> And now I exhort you to be of good cheer: for there shall be no loss of *any man's* life among you, but of the ship.  
-> <sup>23</sup> For there stood by me this night the angel of God, whose I am, and whom I serve,  
-> <sup>24</sup> Saying, Fear not, Paul; thou must be brought before Cæsar: and, lo, God hath given thee all them that sail with thee.  
-> <sup>25</sup> Wherefore, sirs, be of good cheer: for I believe God, that it shall be even as it was told me.  
-> <sup>26</sup> Howbeit we must be cast upon a certain island.  
-> <sup>27</sup> But when the fourteenth night was come, as we were driven up and down in Adria, about midnight the shipmen deemed that they drew near to some country;  
-> <sup>28</sup> And sounded, and found *it* twenty fathoms: and when they had gone a little further, they sounded again, and found *it* fifteen fathoms.  
-> <sup>29</sup> Then fearing lest we should have fallen upon rocks, they cast four anchors out of the stern, and wished for the day.  
-> <sup>30</sup> And as the shipmen were about to flee out of the ship, when they had let down the boat into the sea, under colour as though they would have cast anchors out of the foreship,  
-> <sup>31</sup> Paul said to the centurion and to the soldiers, Except these abide in the ship, ye cannot be saved.  
-> <sup>32</sup> Then the soldiers cut off the ropes of the boat, and let her fall off.  
-> <sup>33</sup> And while the day was coming on, Paul besought *them* all to take meat, saying, This day is the fourteenth day that ye have tarried and continued fasting, having taken nothing.  
-> <sup>34</sup> Wherefore I pray you to take *some* meat: for this is for your health: for there shall not a hair fall from the head of any of you.  
-> <sup>35</sup> And when he had thus spoken, he took bread, and gave thanks to God in presence of them all: and when he had broken *it,* he began to eat.  
-> <sup>36</sup> Then were they all of good cheer, and they also took *some* meat.  
-> <sup>37</sup> And we were in all in the ship two hundred threescore and sixteen souls.  
-> <sup>38</sup> And when they had eaten enough, they lightened the ship, and cast out the wheat into the sea.  
-> <sup>39</sup> And when it was day, they knew not the land: but they discovered a certain creek with a shore, into the which they were minded, if it were possible, to thrust in the ship.  
-> <sup>40</sup> And when they had taken up the anchors, they committed *themselves* unto the sea, and loosed the rudder bands, and hoised up the mainsail to the wind, and made toward shore.  
-> <sup>41</sup> And falling into a place where two seas met, they ran the ship aground; and the forepart stuck fast, and remained unmoveable, but the hinder part was broken with the violence of the waves.  
-> <sup>42</sup> And the soldiers' counsel was to kill the prisoners, lest any of them should swim out, and escape.  
-> <sup>43</sup> But the centurion, willing to save Paul, kept them from *their* purpose; and commanded that they which could swim should cast *themselves* first *into the sea,* and get to land:  
-> <sup>44</sup> And the rest, some on boards, and some on *broken pieces* of the ship. And so it came to pass, that they escaped all safe to land.  
+> **²¹** But after long abstinence Paul stood forth in the midst of them, and said, Sirs, ye should have hearkened unto me, and not have loosed from Crete, and to have gained this harm and loss.  
+> **²²** And now I exhort you to be of good cheer: for there shall be no loss of *any man's* life among you, but of the ship.  
+> **²³** For there stood by me this night the angel of God, whose I am, and whom I serve,  
+> **²⁴** Saying, Fear not, Paul; thou must be brought before Cæsar: and, lo, God hath given thee all them that sail with thee.  
+> **²⁵** Wherefore, sirs, be of good cheer: for I believe God, that it shall be even as it was told me.  
+> **²⁶** Howbeit we must be cast upon a certain island.  
+> **²⁷** But when the fourteenth night was come, as we were driven up and down in Adria, about midnight the shipmen deemed that they drew near to some country;  
+> **²⁸** And sounded, and found *it* twenty fathoms: and when they had gone a little further, they sounded again, and found *it* fifteen fathoms.  
+> **²⁹** Then fearing lest we should have fallen upon rocks, they cast four anchors out of the stern, and wished for the day.  
+> **³⁰** And as the shipmen were about to flee out of the ship, when they had let down the boat into the sea, under colour as though they would have cast anchors out of the foreship,  
+> **³¹** Paul said to the centurion and to the soldiers, Except these abide in the ship, ye cannot be saved.  
+> **³²** Then the soldiers cut off the ropes of the boat, and let her fall off.  
+> **³³** And while the day was coming on, Paul besought *them* all to take meat, saying, This day is the fourteenth day that ye have tarried and continued fasting, having taken nothing.  
+> **³⁴** Wherefore I pray you to take *some* meat: for this is for your health: for there shall not a hair fall from the head of any of you.  
+> **³⁵** And when he had thus spoken, he took bread, and gave thanks to God in presence of them all: and when he had broken *it,* he began to eat.  
+> **³⁶** Then were they all of good cheer, and they also took *some* meat.  
+> **³⁷** And we were in all in the ship two hundred threescore and sixteen souls.  
+> **³⁸** And when they had eaten enough, they lightened the ship, and cast out the wheat into the sea.  
+> **³⁹** And when it was day, they knew not the land: but they discovered a certain creek with a shore, into the which they were minded, if it were possible, to thrust in the ship.  
+> **⁴⁰** And when they had taken up the anchors, they committed *themselves* unto the sea, and loosed the rudder bands, and hoised up the mainsail to the wind, and made toward shore.  
+> **⁴¹** And falling into a place where two seas met, they ran the ship aground; and the forepart stuck fast, and remained unmoveable, but the hinder part was broken with the violence of the waves.  
+> **⁴²** And the soldiers' counsel was to kill the prisoners, lest any of them should swim out, and escape.  
+> **⁴³** But the centurion, willing to save Paul, kept them from *their* purpose; and commanded that they which could swim should cast *themselves* first *into the sea,* and get to land:  
+> **⁴⁴** And the rest, some on boards, and some on *broken pieces* of the ship. And so it came to pass, that they escaped all safe to land.  
 
 We have here the issue of the distress of Paul and his fellow-travellers; they escaped with their lives and that was all, and that was for Paul's sake. We are here told (Ac 27:37) what number there were on board—mariners, merchants, soldiers, prisoners, and other passengers, in all two hundred and seventy-six souls; this is taken notice of to make us the more concerned for them in reading the story, that they were such a considerable number, whose lives were now in the utmost jeopardy, and one Paul among them worth more than all the rest. We left them in despair, giving up themselves for gone. Whether they *called every man on his God,* as Jonah's mariners did, we are not told; it is well if this laudable practice in a storm was not gone out of fashion and made a jest of. However, Paul among these seamen was not, like Jonah among his, the cause of the storm, but the comforter in the storm, and as much a credit to the profession of an apostle as Jonah was a blemish to the character of a prophet. Now here we have,
 

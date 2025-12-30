@@ -8,29 +8,29 @@ In this chapter we have the history of the reign, I. Of Manasseh, who reigned lo
 
 ## The Reign of Manasseh. (b. c. 662.)
 
-> <sup>1</sup> Manasseh *was* twelve years old when he began to reign, and he reigned fifty and five years in Jerusalem:  
-> <sup>2</sup> But did *that which was* evil in the sight of the LORD, like unto the abominations of the heathen, whom the LORD had cast out before the children of Israel.  
-> <sup>3</sup> For he built again the high places which Hezekiah his father had broken down, and he reared up altars for Baalim, and made groves, and worshipped all the host of heaven, and served them.  
-> <sup>4</sup> Also he built altars in the house of the LORD, whereof the LORD had said, In Jerusalem shall my name be for ever.  
-> <sup>5</sup> And he built altars for all the host of heaven in the two courts of the house of the LORD.  
-> <sup>6</sup> And he caused his children to pass through the fire in the valley of the son of Hinnom: also he observed times, and used enchantments, and used witchcraft, and dealt with a familiar spirit, and with wizards: he wrought much evil in the sight of the LORD, to provoke him to anger.  
-> <sup>7</sup> And he set a carved image, the idol which he had made, in the house of God, of which God had said to David and to Solomon his son, In this house, and in Jerusalem, which I have chosen before all the tribes of Israel, will I put my name for ever:  
-> <sup>8</sup> Neither will I any more remove the foot of Israel from out of the land which I have appointed for your fathers; so that they will take heed to do all that I have commanded them, according to the whole law and the statutes and the ordinances by the hand of Moses.  
-> <sup>9</sup> So Manasseh made Judah and the inhabitants of Jerusalem to err, *and* to do worse than the heathen, whom the LORD had destroyed before the children of Israel.  
-> <sup>10</sup> And the LORD spake to Manasseh, and to his people: but they would not hearken.  
+> **¹** Manasseh *was* twelve years old when he began to reign, and he reigned fifty and five years in Jerusalem:  
+> **²** But did *that which was* evil in the sight of the LORD, like unto the abominations of the heathen, whom the LORD had cast out before the children of Israel.  
+> **³** For he built again the high places which Hezekiah his father had broken down, and he reared up altars for Baalim, and made groves, and worshipped all the host of heaven, and served them.  
+> **⁴** Also he built altars in the house of the LORD, whereof the LORD had said, In Jerusalem shall my name be for ever.  
+> **⁵** And he built altars for all the host of heaven in the two courts of the house of the LORD.  
+> **⁶** And he caused his children to pass through the fire in the valley of the son of Hinnom: also he observed times, and used enchantments, and used witchcraft, and dealt with a familiar spirit, and with wizards: he wrought much evil in the sight of the LORD, to provoke him to anger.  
+> **⁷** And he set a carved image, the idol which he had made, in the house of God, of which God had said to David and to Solomon his son, In this house, and in Jerusalem, which I have chosen before all the tribes of Israel, will I put my name for ever:  
+> **⁸** Neither will I any more remove the foot of Israel from out of the land which I have appointed for your fathers; so that they will take heed to do all that I have commanded them, according to the whole law and the statutes and the ordinances by the hand of Moses.  
+> **⁹** So Manasseh made Judah and the inhabitants of Jerusalem to err, *and* to do worse than the heathen, whom the LORD had destroyed before the children of Israel.  
+> **¹⁰** And the LORD spake to Manasseh, and to his people: but they would not hearken.  
 
 We have here an account of the great wickedness of Manasseh. It is the same almost word for word with that which we had 2Ki 21:1-9, and took a melancholy view of. It is no such pleasing subject that we should delight to dwell upon it again. This foolish young prince, in contradiction to the good example and good education his father gave him, abandoned himself to all impiety, transcribed the abominations of the heathen (2Ch 33:2), ruined the established religion, unravelled his father's glorious reformation (2Ch 33:3), profaned the house of God with his idolatry (2Ch 33:4,5), dedicated his children to Moloch, and made the devil's lying oracles his guides and his counsellors, 2Ch 33:6. In contempt of the choice God had made of Sion to be his rest for ever and Israel to be his covenant-people (2Ch 33:8), and the fair terms he stood upon with God, he embraced other gods, profaned God's chosen temple, and debauched his chosen people. He *made them to err,* and *do worse than the heathen* (2Ch 33:9); for, if the unclean spirit returns, he brings with him *seven other spirits more wicked than himself.* That which aggravated the sin of Manasseh was that God *spoke to him and his people* by the prophets, *but they would not hearken,* 2Ch 33:10. We may here admire the grace of God in speaking to them, and their obstinacy in turning a deaf ear to him, that either their badness did not quite turn away his goodness, but still he waited to be gracious, or that his goodness did not turn them from their badness, but still they hated to be reformed. Now from this let us learn, 1. That it is no new thing, but a very sad thing, for the children of godly parents to turn aside from that good way of God in which they have been trained. Parents may give many good things to their children, but they cannot give them grace. 2. Corruptions in worship are such diseases of the church as it is very apt to relapse into again even when they seem to be cured. 3. The god of this world has strangely blinded men's minds, and has a wonderful power over those that are led captive by him; else he could not draw them from God, their best friend, to depend upon their sworn enemy.
 
-> <sup>11</sup> Wherefore the LORD brought upon them the captains of the host of the king of Assyria, which took Manasseh among the thorns, and bound him with fetters, and carried him to Babylon.  
-> <sup>12</sup> And when he was in affliction, he besought the LORD his God, and humbled himself greatly before the God of his fathers,  
-> <sup>13</sup> And prayed unto him: and he was intreated of him, and heard his supplication, and brought him again to Jerusalem into his kingdom. Then Manasseh knew that the LORD he *was* God.  
-> <sup>14</sup> Now after this he built a wall without the city of David, on the west side of Gihon, in the valley, even to the entering in at the fish gate, and compassed about Ophel, and raised it up a very great height, and put captains of war in all the fenced cities of Judah.  
-> <sup>15</sup> And he took away the strange gods, and the idol out of the house of the LORD, and all the altars that he had built in the mount of the house of the LORD, and in Jerusalem, and cast *them* out of the city.  
-> <sup>16</sup> And he repaired the altar of the LORD, and sacrificed thereon peace offerings and thank offerings, and commanded Judah to serve the LORD God of Israel.  
-> <sup>17</sup> Nevertheless the people did sacrifice still in the high places, *yet* unto the LORD their God only.  
-> <sup>18</sup> Now the rest of the acts of Manasseh, and his prayer unto his God, and the words of the seers that spake to him in the name of the LORD God of Israel, behold, they *are written* in the book of the kings of Israel.  
-> <sup>19</sup> His prayer also, and *how God* was intreated of him, and all his sin, and his trespass, and the places wherein he built high places, and set up groves and graven images, before he was humbled: behold, they *are* written among the sayings of the seers.  
-> <sup>20</sup> So Manasseh slept with his fathers, and they buried him in his own house: and Amon his son reigned in his stead.  
+> **¹¹** Wherefore the LORD brought upon them the captains of the host of the king of Assyria, which took Manasseh among the thorns, and bound him with fetters, and carried him to Babylon.  
+> **¹²** And when he was in affliction, he besought the LORD his God, and humbled himself greatly before the God of his fathers,  
+> **¹³** And prayed unto him: and he was intreated of him, and heard his supplication, and brought him again to Jerusalem into his kingdom. Then Manasseh knew that the LORD he *was* God.  
+> **¹⁴** Now after this he built a wall without the city of David, on the west side of Gihon, in the valley, even to the entering in at the fish gate, and compassed about Ophel, and raised it up a very great height, and put captains of war in all the fenced cities of Judah.  
+> **¹⁵** And he took away the strange gods, and the idol out of the house of the LORD, and all the altars that he had built in the mount of the house of the LORD, and in Jerusalem, and cast *them* out of the city.  
+> **¹⁶** And he repaired the altar of the LORD, and sacrificed thereon peace offerings and thank offerings, and commanded Judah to serve the LORD God of Israel.  
+> **¹⁷** Nevertheless the people did sacrifice still in the high places, *yet* unto the LORD their God only.  
+> **¹⁸** Now the rest of the acts of Manasseh, and his prayer unto his God, and the words of the seers that spake to him in the name of the LORD God of Israel, behold, they *are written* in the book of the kings of Israel.  
+> **¹⁹** His prayer also, and *how God* was intreated of him, and all his sin, and his trespass, and the places wherein he built high places, and set up groves and graven images, before he was humbled: behold, they *are* written among the sayings of the seers.  
+> **²⁰** So Manasseh slept with his fathers, and they buried him in his own house: and Amon his son reigned in his stead.  
 
 We have seen Manasseh by his wickedness undoing the good that his father had done; here we have him by repentance undoing the evil that he himself had done. It is strange that this was not so much as mentioned in the book of *Kings,* nor does any thing appear there to the contrary but that he persisted and perished in his son. But perhaps the reason was because the design of that history was to show the wickedness of the nation which brought destruction upon them; and this repentance of Manasseh and the benefit of it, being personal only and not national, is overlooked there; yet here it is fully related, and a memorable instance it is of the riches of God's pardoning mercy and the power of his renewing grace. Here is,
 
@@ -48,11 +48,11 @@ V\. His prosperity, in some measure, after his repentance. He might plainly see 
 
 ## The Reign and Death of Amon. (b. c. 641.)
 
-> <sup>21</sup> Amon *was* two and twenty years old when he began to reign, and reigned two years in Jerusalem.  
-> <sup>22</sup> But he did *that which was* evil in the sight of the LORD, as did Manasseh his father: for Amon sacrificed unto all the carved images which Manasseh his father had made, and served them;  
-> <sup>23</sup> And humbled not himself before the LORD, as Manasseh his father had humbled himself; but Amon trespassed more and more.  
-> <sup>24</sup> And his servants conspired against him, and slew him in his own house.  
-> <sup>25</sup> But the people of the land slew all them that had conspired against king Amon; and the people of the land made Josiah his son king in his stead.  
+> **²¹** Amon *was* two and twenty years old when he began to reign, and reigned two years in Jerusalem.  
+> **²²** But he did *that which was* evil in the sight of the LORD, as did Manasseh his father: for Amon sacrificed unto all the carved images which Manasseh his father had made, and served them;  
+> **²³** And humbled not himself before the LORD, as Manasseh his father had humbled himself; but Amon trespassed more and more.  
+> **²⁴** And his servants conspired against him, and slew him in his own house.  
+> **²⁵** But the people of the land slew all them that had conspired against king Amon; and the people of the land made Josiah his son king in his stead.  
 
 We have little recorded concerning Amon, but enough unless it were better. Here is,
 

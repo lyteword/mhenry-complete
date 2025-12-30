@@ -10,14 +10,14 @@ We are not told either who was the penmen of this psalm or when and upon what oc
 
 To the chief musician for the sons of Korah, Maschil.
 
-> <sup>1</sup> We have heard with our ears, O God, our fathers have told us, *what* work thou didst in their days, in the times of old.  
-> <sup>2</sup> *How* thou didst drive out the heathen with thy hand, and plantedst them; *how* thou didst afflict the people, and cast them out.  
-> <sup>3</sup> For they got not the land in possession by their own sword, neither did their own arm save them: but thy right hand, and thine arm, and the light of thy countenance, because thou hadst a favour unto them.  
-> <sup>4</sup> Thou art my King, O God: command deliverances for Jacob.  
-> <sup>5</sup> Through thee will we push down our enemies: through thy name will we tread them under that rise up against us.  
-> <sup>6</sup> For I will not trust in my bow, neither shall my sword save me.  
-> <sup>7</sup> But thou hast saved us from our enemies, and hast put them to shame that hated us.  
-> <sup>8</sup> In God we boast all the day long, and praise thy name for ever. Selah.  
+> **¹** We have heard with our ears, O God, our fathers have told us, *what* work thou didst in their days, in the times of old.  
+> **²** *How* thou didst drive out the heathen with thy hand, and plantedst them; *how* thou didst afflict the people, and cast them out.  
+> **³** For they got not the land in possession by their own sword, neither did their own arm save them: but thy right hand, and thine arm, and the light of thy countenance, because thou hadst a favour unto them.  
+> **⁴** Thou art my King, O God: command deliverances for Jacob.  
+> **⁵** Through thee will we push down our enemies: through thy name will we tread them under that rise up against us.  
+> **⁶** For I will not trust in my bow, neither shall my sword save me.  
+> **⁷** But thou hast saved us from our enemies, and hast put them to shame that hated us.  
+> **⁸** In God we boast all the day long, and praise thy name for ever. Selah.  
 
 Some observe that most of the psalms that are entitled *Maschil—psalms of instruction,* are sorrowful psalms; for afflictions give instructions, and sorrow of spirit opens the ear to them. *Blessed is the man whom thou chastenest and teachest.*
 
@@ -45,14 +45,14 @@ II\. The good use they make of this record, and had formerly made of it, in cons
 
 ## Afflicted Condition of Israel.
 
-> <sup>9</sup> But thou hast cast off, and put us to shame; and goest not forth with our armies.  
-> <sup>10</sup> Thou makest us to turn back from the enemy: and they which hate us spoil for themselves.  
-> <sup>11</sup> Thou hast given us like sheep *appointed* for meat; and hast scattered us among the heathen.  
-> <sup>12</sup> Thou sellest thy people for nought, and dost not increase *thy wealth* by their price.  
-> <sup>13</sup> Thou makest us a reproach to our neighbours, a scorn and a derision to them that are round about us.  
-> <sup>14</sup> Thou makest us a byword among the heathen, a shaking of the head among the people.  
-> <sup>15</sup> My confusion *is* continually before me, and the shame of my face hath covered me,  
-> <sup>16</sup> For the voice of him that reproacheth and blasphemeth; by reason of the enemy and avenger.  
+> **⁹** But thou hast cast off, and put us to shame; and goest not forth with our armies.  
+> **¹⁰** Thou makest us to turn back from the enemy: and they which hate us spoil for themselves.  
+> **¹¹** Thou hast given us like sheep *appointed* for meat; and hast scattered us among the heathen.  
+> **¹²** Thou sellest thy people for nought, and dost not increase *thy wealth* by their price.  
+> **¹³** Thou makest us a reproach to our neighbours, a scorn and a derision to them that are round about us.  
+> **¹⁴** Thou makest us a byword among the heathen, a shaking of the head among the people.  
+> **¹⁵** My confusion *is* continually before me, and the shame of my face hath covered me,  
+> **¹⁶** For the voice of him that reproacheth and blasphemeth; by reason of the enemy and avenger.  
 
 The people of God here complain to him of the low and afflicted condition that they were now in, under the prevailing power of their enemies and oppressors, which was the more grievous to them because *they* were now trampled upon, who had always been used, in their struggles with their neighbours, to win the day and get the upper hand, and because those were now their oppressors whom they had many a time triumphed over and made tributaries, and especially because they had boasted in their God with great assurance that he would still protect and prosper them, which made the distress they were in, and the disgrace they were under, the more shameful. Let us see what the complaint is.
 
@@ -66,16 +66,16 @@ IV\. That they were loaded with contempt, and all possible ignominy was put upon
 
 ## Israel's Appeal to God.
 
-> <sup>17</sup> All this is come upon us; yet have we not forgotten thee, neither have we dealt falsely in thy covenant.  
-> <sup>18</sup> Our heart is not turned back, neither have our steps declined from thy way;  
-> <sup>19</sup> Though thou hast sore broken us in the place of dragons, and covered us with the shadow of death.  
-> <sup>20</sup> If we have forgotten the name of our God, or stretched out our hands to a strange god;  
-> <sup>21</sup> Shall not God search this out? for he knoweth the secrets of the heart.  
-> <sup>22</sup> Yea, for thy sake are we killed all the day long; we are counted as sheep for the slaughter.  
-> <sup>23</sup> Awake, why sleepest thou, O Lord? arise, cast *us* not off for ever.  
-> <sup>24</sup> Wherefore hidest thou thy face, *and* forgettest our affliction and our oppression?  
-> <sup>25</sup> For our soul is bowed down to the dust: our belly cleaveth unto the earth.  
-> <sup>26</sup> Arise for our help, and redeem us for thy mercies' sake.  
+> **¹⁷** All this is come upon us; yet have we not forgotten thee, neither have we dealt falsely in thy covenant.  
+> **¹⁸** Our heart is not turned back, neither have our steps declined from thy way;  
+> **¹⁹** Though thou hast sore broken us in the place of dragons, and covered us with the shadow of death.  
+> **²⁰** If we have forgotten the name of our God, or stretched out our hands to a strange god;  
+> **²¹** Shall not God search this out? for he knoweth the secrets of the heart.  
+> **²²** Yea, for thy sake are we killed all the day long; we are counted as sheep for the slaughter.  
+> **²³** Awake, why sleepest thou, O Lord? arise, cast *us* not off for ever.  
+> **²⁴** Wherefore hidest thou thy face, *and* forgettest our affliction and our oppression?  
+> **²⁵** For our soul is bowed down to the dust: our belly cleaveth unto the earth.  
+> **²⁶** Arise for our help, and redeem us for thy mercies' sake.  
 
 The people of God, being greatly afflicted and oppressed, here apply to him; whither else should they go?
 

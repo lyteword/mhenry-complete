@@ -8,21 +8,21 @@ It is a pity that this chapter and the foregoing should be parted, and read asun
 
 ## Joseph Discovers Himself to His Brethren. (b. c. 1707.)
 
-> <sup>1</sup> Then Joseph could not refrain himself before all them that stood by him; and he cried, Cause every man to go out from me. And there stood no man with him, while Joseph made himself known unto his brethren.  
-> <sup>2</sup> And he wept aloud: and the Egyptians and the house of Pharaoh heard.  
-> <sup>3</sup> And Joseph said unto his brethren, I *am* Joseph; doth my father yet live? And his brethren could not answer him; for they were troubled at his presence.  
-> <sup>4</sup> And Joseph said unto his brethren, Come near to me, I pray you. And they came near. And he said, I *am* Joseph your brother, whom ye sold into Egypt.  
-> <sup>5</sup> Now therefore be not grieved, nor angry with yourselves, that ye sold me hither: for God did send me before you to preserve life.  
-> <sup>6</sup> For these two years *hath* the famine *been* in the land: and yet *there are* five years, in the which *there shall* neither *be* earing nor harvest.  
-> <sup>7</sup> And God sent me before you to preserve you a posterity in the earth, and to save your lives by a great deliverance.  
-> <sup>8</sup> So now *it was* not you *that* sent me hither, but God: and he hath made me a father to Pharaoh, and lord of all his house, and a ruler throughout all the land of Egypt.  
-> <sup>9</sup> Haste ye, and go up to my father, and say unto him, Thus saith thy son Joseph, God hath made me lord of all Egypt: come down unto me, tarry not:  
-> <sup>10</sup> And thou shalt dwell in the land of Goshen, and thou shalt be near unto me, thou, and thy children, and thy children's children, and thy flocks, and thy herds, and all that thou hast:  
-> <sup>11</sup> And there will I nourish thee; for yet *there are* five years of famine; lest thou, and thy household, and all that thou hast, come to poverty.  
-> <sup>12</sup> And, behold, your eyes see, and the eyes of my brother Benjamin, that *it is* my mouth that speaketh unto you.  
-> <sup>13</sup> And ye shall tell my father of all my glory in Egypt, and of all that ye have seen; and ye shall haste and bring down my father hither.  
-> <sup>14</sup> And he fell upon his brother Benjamin's neck, and wept; and Benjamin wept upon his neck.  
-> <sup>15</sup> Moreover he kissed all his brethren, and wept upon them: and after that his brethren talked with him.  
+> **¹** Then Joseph could not refrain himself before all them that stood by him; and he cried, Cause every man to go out from me. And there stood no man with him, while Joseph made himself known unto his brethren.  
+> **²** And he wept aloud: and the Egyptians and the house of Pharaoh heard.  
+> **³** And Joseph said unto his brethren, I *am* Joseph; doth my father yet live? And his brethren could not answer him; for they were troubled at his presence.  
+> **⁴** And Joseph said unto his brethren, Come near to me, I pray you. And they came near. And he said, I *am* Joseph your brother, whom ye sold into Egypt.  
+> **⁵** Now therefore be not grieved, nor angry with yourselves, that ye sold me hither: for God did send me before you to preserve life.  
+> **⁶** For these two years *hath* the famine *been* in the land: and yet *there are* five years, in the which *there shall* neither *be* earing nor harvest.  
+> **⁷** And God sent me before you to preserve you a posterity in the earth, and to save your lives by a great deliverance.  
+> **⁸** So now *it was* not you *that* sent me hither, but God: and he hath made me a father to Pharaoh, and lord of all his house, and a ruler throughout all the land of Egypt.  
+> **⁹** Haste ye, and go up to my father, and say unto him, Thus saith thy son Joseph, God hath made me lord of all Egypt: come down unto me, tarry not:  
+> **¹⁰** And thou shalt dwell in the land of Goshen, and thou shalt be near unto me, thou, and thy children, and thy children's children, and thy flocks, and thy herds, and all that thou hast:  
+> **¹¹** And there will I nourish thee; for yet *there are* five years of famine; lest thou, and thy household, and all that thou hast, come to poverty.  
+> **¹²** And, behold, your eyes see, and the eyes of my brother Benjamin, that *it is* my mouth that speaketh unto you.  
+> **¹³** And ye shall tell my father of all my glory in Egypt, and of all that ye have seen; and ye shall haste and bring down my father hither.  
+> **¹⁴** And he fell upon his brother Benjamin's neck, and wept; and Benjamin wept upon his neck.  
+> **¹⁵** Moreover he kissed all his brethren, and wept upon them: and after that his brethren talked with him.  
 
 Judah and his brethren were waiting for an answer, and could not but be amazed to discover, instead of the gravity of a judge, the natural affection of a father or brother.
 
@@ -40,15 +40,15 @@ VI\. Endearments were interchanged between him and his brethren. He began with t
 
 ## Pharaoh's Kindness to Joseph. (b. c. 1707.)
 
-> <sup>16</sup> And the fame thereof was heard in Pharaoh's house, saying, Joseph's brethren are come: and it pleased Pharaoh well, and his servants.  
-> <sup>17</sup> And Pharaoh said unto Joseph, Say unto thy brethren, This do ye; lade your beasts, and go, get you unto the land of Canaan;  
-> <sup>18</sup> And take your father and your households, and come unto me: and I will give you the good of the land of Egypt, and ye shall eat the fat of the land.  
-> <sup>19</sup> Now thou art commanded, this do ye; take you wagons out of the land of Egypt for your little ones, and for your wives, and bring your father, and come.  
-> <sup>20</sup> Also regard not your stuff; for the good of all the land of Egypt *is* yours.  
-> <sup>21</sup> And the children of Israel did so: and Joseph gave them wagons, according to the commandment of Pharaoh, and gave them provision for the way.  
-> <sup>22</sup> To all of them he gave each man changes of raiment; but to Benjamin he gave three hundred *pieces* of silver, and five changes of raiment.  
-> <sup>23</sup> And to his father he sent after this *manner;* ten asses laden with the good things of Egypt, and ten she asses laden with corn and bread and meat for his father by the way.  
-> <sup>24</sup> So he sent his brethren away, and they departed: and he said unto them, See that ye fall not out by the way.  
+> **¹⁶** And the fame thereof was heard in Pharaoh's house, saying, Joseph's brethren are come: and it pleased Pharaoh well, and his servants.  
+> **¹⁷** And Pharaoh said unto Joseph, Say unto thy brethren, This do ye; lade your beasts, and go, get you unto the land of Canaan;  
+> **¹⁸** And take your father and your households, and come unto me: and I will give you the good of the land of Egypt, and ye shall eat the fat of the land.  
+> **¹⁹** Now thou art commanded, this do ye; take you wagons out of the land of Egypt for your little ones, and for your wives, and bring your father, and come.  
+> **²⁰** Also regard not your stuff; for the good of all the land of Egypt *is* yours.  
+> **²¹** And the children of Israel did so: and Joseph gave them wagons, according to the commandment of Pharaoh, and gave them provision for the way.  
+> **²²** To all of them he gave each man changes of raiment; but to Benjamin he gave three hundred *pieces* of silver, and five changes of raiment.  
+> **²³** And to his father he sent after this *manner;* ten asses laden with the good things of Egypt, and ten she asses laden with corn and bread and meat for his father by the way.  
+> **²⁴** So he sent his brethren away, and they departed: and he said unto them, See that ye fall not out by the way.  
 
 Here is, 1. The kindness of Pharaoh to Joseph, and to his relations for his sake: he bade his brethren welcome (Ge 45:16), though it was a time of scarcity, and they were likely to be a charge to him. Nay, because it pleased Pharaoh, it pleased his servants, too, at least they pretended to be pleased because Pharaoh was. He engaged Joseph to send for his father down to Egypt, and promised to furnish them with all conveniences both for his removal thither and his settlement there. If the good of all the land of Egypt (as it was not better stocked than any other land, thanks to Joseph, under God) would suffice him, he was welcome to it all, it was all his own, even *the fat of the land* (Ge 45:18), so that they need not *regard their stuff,* Ge 45:20. What they had in Canaan he reckoned but stuff, in comparison with what he had for them in Egypt; and therefore if they should be constrained to leave some of that behind them, let them not be discontented; Egypt would afford them enough to make up the losses of their removal. Thus those for whom Christ intends shares in his heavenly glory ought not to regard the stuff of this world: The best of its enjoyments are but stuff, but lumber; we cannot make sure of it while we are here, much less can we carry it away with us; let us not therefore be solicitous about it, nor set our eyes or hearts upon it. There are better things reserved for us in that blessed land whither our Joseph has gone to prepare a place.
 
@@ -56,10 +56,10 @@ II\. The kindness of Joseph to his father and brethren. Pharaoh was respectful t
 
 ## The History of Joseph. (b. c. 1707.)
 
-> <sup>25</sup> And they went up out of Egypt, and came into the land of Canaan unto Jacob their father,  
-> <sup>26</sup> And told him, saying, Joseph *is* yet alive, and he *is* governor over all the land of Egypt. And Jacob's heart fainted, for he believed them not.  
-> <sup>27</sup> And they told him all the words of Joseph, which he had said unto them: and when he saw the wagons which Joseph had sent to carry him, the spirit of Jacob their father revived:  
-> <sup>28</sup> And Israel said, *It is* enough; Joseph my son *is* yet alive: I will go and see him before I die.  
+> **²⁵** And they went up out of Egypt, and came into the land of Canaan unto Jacob their father,  
+> **²⁶** And told him, saying, Joseph *is* yet alive, and he *is* governor over all the land of Egypt. And Jacob's heart fainted, for he believed them not.  
+> **²⁷** And they told him all the words of Joseph, which he had said unto them: and when he saw the wagons which Joseph had sent to carry him, the spirit of Jacob their father revived:  
+> **²⁸** And Israel said, *It is* enough; Joseph my son *is* yet alive: I will go and see him before I die.  
 
 We have here the good news brought to Jacob. 1. The relation of it, at first, sunk his spirits. When, without any preamble, his sons came in, crying, *Joseph is yet alive,* each striving which should first proclaim it, perhaps he thought they bantered him, and the affront grieved him; or the very mention of Joseph's name revived his sorrow, so that his heart fainted, Ge 45:26. It was a good while before he came to himself. He was in such care and fear about the rest of them that at this time it would have been joy enough to him to hear that Simeon was released, and that Benjamin had come safely home (for he had been ready to despair concerning both these); but to hear that *Joseph is alive* is too good news to be true; he faints, for he believes it not. Note, We faint, because we do not believe; David himself had fainted if he had not believed, Ps 27:13. 2. The confirmation of it, by degrees, revived his spirit. Jacob had easily believed his sons formerly when they told him, *Joseph is dead;* but he can hardly believe them now that they tell him, *Joseph is alive.* Weak and tender spirits are influenced more by fear than hope, and are more apt to receive impressions that are discouraging than those that are encouraging. But at length Jacob is convinced of the truth of the story, especially when he sees the waggons which were sent to carry him (for seeing is believing), then his *spirit revived.* Death is as the waggons which are sent to fetch us to Christ: the very sight of it approaching should revive us. Now Jacob is called Israel (Ge 45:28), for he begins to recover his wonted vigour. (1.) It pleases him to think that Joseph is alive. He says nothing of Joseph's glory, of which they told him; it was enough to him that Joseph was alive. Note, Those that would be content with less degrees of comfort are best prepared for greater. (2.) It pleases him to think of going to see him. Though he was old, and the journey long, yet he would go to see Joseph, because Joseph's business would not permit him to come to see him. Observe, He says, "*I will go and see him,*" not, "I will go and live with him;" Jacob was old, and did not expect to live long; "But I will go and see him *before I die,* and then let me depart in peace; let my eyes be refreshed with this sight before they are closed, and then it is *enough,* I need no more to make me happy in this world." Note, It is good for us all to make death familiar to us, and to speak of it as near, that we may think how little we have to do before we die, that we may do it with all our might, and may enjoy our comforts as those that must quickly die, and leave them.
 

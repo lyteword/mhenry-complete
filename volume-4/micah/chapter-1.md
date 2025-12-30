@@ -8,13 +8,13 @@ In this chapter we have, I. The title of the book (Mic 1:1) and a preface demand
 
 ## Judgments Predicted. (b. c. 743.)
 
-> <sup>1</sup> The word of the LORD that came to Micah the Morasthite in the days of Jotham, Ahaz, *and* Hezekiah, kings of Judah, which he saw concerning Samaria and Jerusalem.  
-> <sup>2</sup> Hear, all ye people; hearken, O earth, and all that therein is: and let the Lord GOD be witness against you, the Lord from his holy temple.  
-> <sup>3</sup> For, behold, the LORD cometh forth out of his place, and will come down, and tread upon the high places of the earth.  
-> <sup>4</sup> And the mountains shall be molten under him, and the valleys shall be cleft, as wax before the fire, *and* as the waters *that are* poured down a steep place.  
-> <sup>5</sup> For the transgression of Jacob *is* all this, and for the sins of the house of Israel. What *is* the transgression of Jacob? *is it* not Samaria? and what *are* the high places of Judah? *are they* not Jerusalem?  
-> <sup>6</sup> Therefore I will make Samaria as a heap of the field, *and* as plantings of a vineyard: and I will pour down the stones thereof into the valley, and I will discover the foundations thereof.  
-> <sup>7</sup> And all the graven images thereof shall be beaten to pieces, and all the hires thereof shall be burned with the fire, and all the idols thereof will I lay desolate: for she gathered *it* of the hire of a harlot, and they shall return to the hire of an harlot.  
+> **¹** The word of the LORD that came to Micah the Morasthite in the days of Jotham, Ahaz, *and* Hezekiah, kings of Judah, which he saw concerning Samaria and Jerusalem.  
+> **²** Hear, all ye people; hearken, O earth, and all that therein is: and let the Lord GOD be witness against you, the Lord from his holy temple.  
+> **³** For, behold, the LORD cometh forth out of his place, and will come down, and tread upon the high places of the earth.  
+> **⁴** And the mountains shall be molten under him, and the valleys shall be cleft, as wax before the fire, *and* as the waters *that are* poured down a steep place.  
+> **⁵** For the transgression of Jacob *is* all this, and for the sins of the house of Israel. What *is* the transgression of Jacob? *is it* not Samaria? and what *are* the high places of Judah? *are they* not Jerusalem?  
+> **⁶** Therefore I will make Samaria as a heap of the field, *and* as plantings of a vineyard: and I will pour down the stones thereof into the valley, and I will discover the foundations thereof.  
+> **⁷** And all the graven images thereof shall be beaten to pieces, and all the hires thereof shall be burned with the fire, and all the idols thereof will I lay desolate: for she gathered *it* of the hire of a harlot, and they shall return to the hire of an harlot.  
 
 Here is, I. A general account of this prophet and his prophecy, Mic 1:1. This is prefixed for the satisfaction of all that read and hear the prophecy of this book, who will give the more credit to it when they know the author and his authority. 1. The prophecy is the *word of the Lord;* it is a divine revelation. Note, What is written in the Bible, and what is preached by the ministers of Christ according to what is written there, must be heard and received, not as the word of dying men, which we may be judges of, but as the word of the living God, which we must be judged by, for so it is. This word of the Lord came to the prophet, came plainly, came powerfully, came in a preventing way, and he saw it, saw the vision in which it was conveyed to him, saw the things themselves which he foretold, with as much clearness and certainty as if they had been already accomplished. 2. The prophet is Micah the Morasthite; his name *Micah* is a contraction of Micaiah, the name of a prophet some ages before (in Ahab's time, 1Ki 22:8); his surname, the *Morasthite,* signifies that he was born, or lived, at Moresheth, which is mentioned here (Mic 1:14), or Mareshah, which is mentioned Mic 1:15, Jos 15:44. The place of his abode is mentioned, that any one might enquire in that place, at that time, and might find there was, or had been, such a one there, who was generally reputed to be a prophet. 3. The date of his prophecy is in the reigns of three kings of Judah—Jotham, Ahaz, and Hezekiah. Ahaz was one of the worst of Judah's kings, and Hezekiah one of the best; such variety of times pass over God's ministers, times that frown and times that smile, to each of which they must study to accommodate themselves, and to arm themselves against the temptations of both. The promises and threatenings of this book are interwoven, by which it appears that even in the wicked reign he preached comfort, and said *to the righteous* then that it should be *well with them;* and that in the pious reign he preached conviction, and said to the wicked then that it should be *ill with them;* for, however the times change, the word of the Lord is still the same. 4. The parties concerned in this prophecy; it is *concerning Samaria and Jerusalem,* the head cities of the two kingdoms of Israel and Judah, under the influence of which the kingdoms themselves were. Though the ten tribes have deserted the houses both of David and Aaron, yet God is pleased to send prophets to them.
 
@@ -28,15 +28,15 @@ V\. The punishment made to answer the sin, in the particular destruction of the 
 
 ## Judgments Predicted. (b. c. 743.)
 
-> <sup>8</sup> Therefore I will wail and howl, I will go stripped and naked: I will make a wailing like the dragons, and mourning as the owls.  
-> <sup>9</sup> For her wound *is* incurable; for it is come unto Judah; he is come unto the gate of my people, *even* to Jerusalem.  
-> <sup>10</sup> Declare ye *it* not at Gath, weep ye not at all: in the house of Aphrah roll thyself in the dust.  
-> <sup>11</sup> Pass ye away, thou inhabitant of Saphir, having thy shame naked: the inhabitant of Zaanan came not forth in the mourning of Beth-ezel; he shall receive of you his standing.  
-> <sup>12</sup> For the inhabitant of Maroth waited carefully for good: but evil came down from the LORD unto the gate of Jerusalem.  
-> <sup>13</sup> O thou inhabitant of Lachish, bind the chariot to the swift beast: she *is* the beginning of the sin to the daughter of Zion: for the transgressions of Israel were found in thee.  
-> <sup>14</sup> Therefore shalt thou give presents to Moresheth-gath: the houses of Achzib *shall be* a lie to the kings of Israel.  
-> <sup>15</sup> Yet will I bring an heir unto thee, O inhabitant of Mareshah: he shall come unto Adullam the glory of Israel.  
-> <sup>16</sup> Make thee bald, and poll thee for thy delicate children; enlarge thy baldness as the eagle; for they are gone into captivity from thee.  
+> **⁸** Therefore I will wail and howl, I will go stripped and naked: I will make a wailing like the dragons, and mourning as the owls.  
+> **⁹** For her wound *is* incurable; for it is come unto Judah; he is come unto the gate of my people, *even* to Jerusalem.  
+> **¹⁰** Declare ye *it* not at Gath, weep ye not at all: in the house of Aphrah roll thyself in the dust.  
+> **¹¹** Pass ye away, thou inhabitant of Saphir, having thy shame naked: the inhabitant of Zaanan came not forth in the mourning of Beth-ezel; he shall receive of you his standing.  
+> **¹²** For the inhabitant of Maroth waited carefully for good: but evil came down from the LORD unto the gate of Jerusalem.  
+> **¹³** O thou inhabitant of Lachish, bind the chariot to the swift beast: she *is* the beginning of the sin to the daughter of Zion: for the transgressions of Israel were found in thee.  
+> **¹⁴** Therefore shalt thou give presents to Moresheth-gath: the houses of Achzib *shall be* a lie to the kings of Israel.  
+> **¹⁵** Yet will I bring an heir unto thee, O inhabitant of Mareshah: he shall come unto Adullam the glory of Israel.  
+> **¹⁶** Make thee bald, and poll thee for thy delicate children; enlarge thy baldness as the eagle; for they are gone into captivity from thee.  
 
 We have here a long train of mourners attending the funeral of a ruined kingdom.
 

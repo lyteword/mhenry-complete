@@ -8,17 +8,17 @@ David is the man whom God now delights to honour, for he is a man after his own 
 
 ## Goliath's Challenge to Israel. (b. c. 1060.)
 
-> <sup>1</sup> Now the Philistines gathered together their armies to battle, and were gathered together at Shochoh, which *belongeth* to Judah, and pitched between Shochoh and Azekah, in Ephes-dammim.  
-> <sup>2</sup> And Saul and the men of Israel were gathered together, and pitched by the valley of Elah, and set the battle in array against the Philistines.  
-> <sup>3</sup> And the Philistines stood on a mountain on the one side, and Israel stood on a mountain on the other side: and *there was* a valley between them.  
-> <sup>4</sup> And there went out a champion out of the camp of the Philistines, named Goliath, of Gath, whose height *was* six cubits and a span.  
-> <sup>5</sup> And *he had* a helmet of brass upon his head, and he *was* armed with a coat of mail; and the weight of the coat *was* five thousand shekels of brass.  
-> <sup>6</sup> And *he had* greaves of brass upon his legs, and a target of brass between his shoulders.  
-> <sup>7</sup> And the staff of his spear *was* like a weaver's beam; and his spear's head *weighed* six hundred shekels of iron: and one bearing a shield went before him.  
-> <sup>8</sup> And he stood and cried unto the armies of Israel, and said unto them, Why are ye come out to set *your* battle in array? *am* not I a Philistine, and ye servants to Saul? choose you a man for you, and let him come down to me.  
-> <sup>9</sup> If he be able to fight with me, and to kill me, then will we be your servants: but if I prevail against him, and kill him, then shall ye be our servants, and serve us.  
-> <sup>10</sup> And the Philistine said, I defy the armies of Israel this day; give me a man, that we may fight together.  
-> <sup>11</sup> When Saul and all Israel heard those words of the Philistine, they were dismayed, and greatly afraid.  
+> **¹** Now the Philistines gathered together their armies to battle, and were gathered together at Shochoh, which *belongeth* to Judah, and pitched between Shochoh and Azekah, in Ephes-dammim.  
+> **²** And Saul and the men of Israel were gathered together, and pitched by the valley of Elah, and set the battle in array against the Philistines.  
+> **³** And the Philistines stood on a mountain on the one side, and Israel stood on a mountain on the other side: and *there was* a valley between them.  
+> **⁴** And there went out a champion out of the camp of the Philistines, named Goliath, of Gath, whose height *was* six cubits and a span.  
+> **⁵** And *he had* a helmet of brass upon his head, and he *was* armed with a coat of mail; and the weight of the coat *was* five thousand shekels of brass.  
+> **⁶** And *he had* greaves of brass upon his legs, and a target of brass between his shoulders.  
+> **⁷** And the staff of his spear *was* like a weaver's beam; and his spear's head *weighed* six hundred shekels of iron: and one bearing a shield went before him.  
+> **⁸** And he stood and cried unto the armies of Israel, and said unto them, Why are ye come out to set *your* battle in array? *am* not I a Philistine, and ye servants to Saul? choose you a man for you, and let him come down to me.  
+> **⁹** If he be able to fight with me, and to kill me, then will we be your servants: but if I prevail against him, and kill him, then shall ye be our servants, and serve us.  
+> **¹⁰** And the Philistine said, I defy the armies of Israel this day; give me a man, that we may fight together.  
+> **¹¹** When Saul and all Israel heard those words of the Philistine, they were dismayed, and greatly afraid.  
 
 It was not long ago that the Philistines were soundly beaten, and put to the worse, before Israel, and they would have been totally routed if Saul's rashness had not prevented; but here we have them making head again. Observe,
 
@@ -36,25 +36,25 @@ II\. How they defied Israel with their champion Goliath, whom they were almost a
 
 ## David Comes to the Camp of Israel. (b. c. 1060.)
 
-> <sup>12</sup> Now David *was* the son of that Ephrathite of Bethlehem-judah, whose name *was* Jesse; and he had eight sons: and the man went among men *for* an old man in the days of Saul.  
-> <sup>13</sup> And the three eldest sons of Jesse went *and* followed Saul to the battle: and the names of his three sons that went to the battle *were* Eliab the firstborn, and next unto him Abinadab, and the third Shammah.  
-> <sup>14</sup> And David *was* the youngest: and the three eldest followed Saul.  
-> <sup>15</sup> But David went and returned from Saul to feed his father's sheep at Bethlehem.  
-> <sup>16</sup> And the Philistine drew near morning and evening, and presented himself forty days.  
-> <sup>17</sup> And Jesse said unto David his son, Take now for thy brethren an ephah of this parched *corn,* and these ten loaves, and run to the camp to thy brethren;  
-> <sup>18</sup> And carry these ten cheeses unto the captain of *their* thousand, and look how thy brethren fare, and take their pledge.  
-> <sup>19</sup> Now Saul, and they, and all the men of Israel, *were* in the valley of Elah, fighting with the Philistines.  
-> <sup>20</sup> And David rose up early in the morning, and left the sheep with a keeper, and took, and went, as Jesse had commanded him; and he came to the trench, as the host was going forth to the fight, and shouted for the battle.  
-> <sup>21</sup> For Israel and the Philistines had put the battle in array, army against army.  
-> <sup>22</sup> And David left his carriage in the hand of the keeper of the carriage, and ran into the army, and came and saluted his brethren.  
-> <sup>23</sup> And as he talked with them, behold, there came up the champion, the Philistine of Gath, Goliath by name, out of the armies of the Philistines, and spake according to the same words: and David heard *them.*  
-> <sup>24</sup> And all the men of Israel, when they saw the man, fled from him, and were sore afraid.  
-> <sup>25</sup> And the men of Israel said, Have ye seen this man that is come up? surely to defy Israel is he come up: and it shall be, *that* the man who killeth him, the king will enrich him with great riches, and will give him his daughter, and make his father's house free in Israel.  
-> <sup>26</sup> And David spake to the men that stood by him, saying, What shall be done to the man that killeth this Philistine, and taketh away the reproach from Israel? for who *is* this uncircumcised Philistine, that he should defy the armies of the living God?  
-> <sup>27</sup> And the people answered him after this manner, saying, So shall it be done to the man that killeth him.  
-> <sup>28</sup> And Eliab his eldest brother heard when he spake unto the men; and Eliab's anger was kindled against David, and he said, Why camest thou down hither? and with whom hast thou left those few sheep in the wilderness? I know thy pride, and the naughtiness of thine heart; for thou art come down that thou mightest see the battle.  
-> <sup>29</sup> And David said, What have I now done? *Is there* not a cause?  
-> <sup>30</sup> And he turned from him toward another, and spake after the same manner: and the people answered him again after the former manner.  
+> **¹²** Now David *was* the son of that Ephrathite of Bethlehem-judah, whose name *was* Jesse; and he had eight sons: and the man went among men *for* an old man in the days of Saul.  
+> **¹³** And the three eldest sons of Jesse went *and* followed Saul to the battle: and the names of his three sons that went to the battle *were* Eliab the firstborn, and next unto him Abinadab, and the third Shammah.  
+> **¹⁴** And David *was* the youngest: and the three eldest followed Saul.  
+> **¹⁵** But David went and returned from Saul to feed his father's sheep at Bethlehem.  
+> **¹⁶** And the Philistine drew near morning and evening, and presented himself forty days.  
+> **¹⁷** And Jesse said unto David his son, Take now for thy brethren an ephah of this parched *corn,* and these ten loaves, and run to the camp to thy brethren;  
+> **¹⁸** And carry these ten cheeses unto the captain of *their* thousand, and look how thy brethren fare, and take their pledge.  
+> **¹⁹** Now Saul, and they, and all the men of Israel, *were* in the valley of Elah, fighting with the Philistines.  
+> **²⁰** And David rose up early in the morning, and left the sheep with a keeper, and took, and went, as Jesse had commanded him; and he came to the trench, as the host was going forth to the fight, and shouted for the battle.  
+> **²¹** For Israel and the Philistines had put the battle in array, army against army.  
+> **²²** And David left his carriage in the hand of the keeper of the carriage, and ran into the army, and came and saluted his brethren.  
+> **²³** And as he talked with them, behold, there came up the champion, the Philistine of Gath, Goliath by name, out of the armies of the Philistines, and spake according to the same words: and David heard *them.*  
+> **²⁴** And all the men of Israel, when they saw the man, fled from him, and were sore afraid.  
+> **²⁵** And the men of Israel said, Have ye seen this man that is come up? surely to defy Israel is he come up: and it shall be, *that* the man who killeth him, the king will enrich him with great riches, and will give him his daughter, and make his father's house free in Israel.  
+> **²⁶** And David spake to the men that stood by him, saying, What shall be done to the man that killeth this Philistine, and taketh away the reproach from Israel? for who *is* this uncircumcised Philistine, that he should defy the armies of the living God?  
+> **²⁷** And the people answered him after this manner, saying, So shall it be done to the man that killeth him.  
+> **²⁸** And Eliab his eldest brother heard when he spake unto the men; and Eliab's anger was kindled against David, and he said, Why camest thou down hither? and with whom hast thou left those few sheep in the wilderness? I know thy pride, and the naughtiness of thine heart; for thou art come down that thou mightest see the battle.  
+> **²⁹** And David said, What have I now done? *Is there* not a cause?  
+> **³⁰** And he turned from him toward another, and spake after the same manner: and the people answered him again after the former manner.  
 
 Forty days the two armies lay encamped facing one another, each advantageously posted, but neither forward to engage. Either they were parleying and treating of an accommodation or they were waiting for recruits; and perhaps there were frequent skirmishes between small detached parties. All this while, twice a day, morning and evening, did the insulting champion appear in the field and repeat his challenge, his own heart growing more and more proud for his not being answered and the people of Israel more and more timorous, while God designed hereby to ripen him for destruction and to make Israel's deliverance the more illustrious. All this while David is keeping his father's sheep, but at the end of forty days Providence brings him to the field to win and wear the laurel which no other Israelite dares venture for. We have in these verses,
 
@@ -78,15 +78,15 @@ III\. David's dutiful obedience to his father's command. His prudence and care m
 
 ## David Meets Goliath. (b. c. 1060.)
 
-> <sup>31</sup> And when the words were heard which David spake, they rehearsed *them* before Saul: and he sent for him.  
-> <sup>32</sup> And David said to Saul, Let no man's heart fail because of him; thy servant will go and fight with this Philistine.  
-> <sup>33</sup> And Saul said to David, Thou art not able to go against this Philistine to fight with him: for thou *art but* a youth, and he a man of war from his youth.  
-> <sup>34</sup> And David said unto Saul, Thy servant kept his father's sheep, and there came a lion, and a bear, and took a lamb out of the flock:  
-> <sup>35</sup> And I went out after him, and smote him, and delivered *it* out of his mouth: and when he arose against me, I caught *him* by his beard, and smote him, and slew him.  
-> <sup>36</sup> Thy servant slew both the lion and the bear: and this uncircumcised Philistine shall be as one of them, seeing he hath defied the armies of the living God.  
-> <sup>37</sup> David said moreover, The LORD that delivered me out of the paw of the lion, and out of the paw of the bear, he will deliver me out of the hand of this Philistine. And Saul said unto David, Go, and the LORD be with thee.  
-> <sup>38</sup> And Saul armed David with his armour, and he put a helmet of brass upon his head; also he armed him with a coat of mail.  
-> <sup>39</sup> And David girded his sword upon his armour, and he assayed to go; for he had not proved *it.* And David said unto Saul, I cannot go with these; for I have not proved *them.* And David put them off him.  
+> **³¹** And when the words were heard which David spake, they rehearsed *them* before Saul: and he sent for him.  
+> **³²** And David said to Saul, Let no man's heart fail because of him; thy servant will go and fight with this Philistine.  
+> **³³** And Saul said to David, Thou art not able to go against this Philistine to fight with him: for thou *art but* a youth, and he a man of war from his youth.  
+> **³⁴** And David said unto Saul, Thy servant kept his father's sheep, and there came a lion, and a bear, and took a lamb out of the flock:  
+> **³⁵** And I went out after him, and smote him, and delivered *it* out of his mouth: and when he arose against me, I caught *him* by his beard, and smote him, and slew him.  
+> **³⁶** Thy servant slew both the lion and the bear: and this uncircumcised Philistine shall be as one of them, seeing he hath defied the armies of the living God.  
+> **³⁷** David said moreover, The LORD that delivered me out of the paw of the lion, and out of the paw of the bear, he will deliver me out of the hand of this Philistine. And Saul said unto David, Go, and the LORD be with thee.  
+> **³⁸** And Saul armed David with his armour, and he put a helmet of brass upon his head; also he armed him with a coat of mail.  
+> **³⁹** And David girded his sword upon his armour, and he assayed to go; for he had not proved *it.* And David said unto Saul, I cannot go with these; for I have not proved *them.* And David put them off him.  
 
 David is at length presented to Saul for his champion (1Sa 17:31) and he bravely undertakes to fight the Philistine (1Sa 17:32): *Let no man's heart fail because of him.* It would have reflected too much upon the valour of his prince if he had said, *Let not thy heart fail;* therefore he speaks generally: *Let no man's heart fail.* A little shepherd, come but this morning from keeping sheep, has more courage than all the mighty men of Israel, and encourages them. Thus does God often send good words to his Israel, and do great things for them, by the weak and foolish things of the world. David only desires a commission from Saul to go and fight with the Philistine, but says nothing to him of the reward he had proposed, because that was not the thing he was ambitious of, but only the honour of serving God and his country: nor would he seem to question Saul's generosity. Two things David had to do with Saul:—
 
@@ -100,14 +100,14 @@ II\. To get clear of the armour wherewith Saul would, by all means, have him dre
 
 ## David Kills Goliath. (b. c. 1060.)
 
-> <sup>40</sup> And he took his staff in his hand, and chose him five smooth stones out of the brook, and put them in a shepherd's bag which he had, even in a scrip; and his sling *was* in his hand: and he drew near to the Philistine.  
-> <sup>41</sup> And the Philistine came on and drew near unto David; and the man that bare the shield *went* before him.  
-> <sup>42</sup> And when the Philistine looked about, and saw David, he disdained him: for he was *but* a youth, and ruddy, and of a fair countenance.  
-> <sup>43</sup> And the Philistine said unto David, *Am* I a dog, that thou comest to me with staves? And the Philistine cursed David by his gods.  
-> <sup>44</sup> And the Philistine said to David, Come to me, and I will give thy flesh unto the fowls of the air, and to the beasts of the field.  
-> <sup>45</sup> Then said David to the Philistine, Thou comest to me with a sword, and with a spear, and with a shield: but I come to thee in the name of the LORD of hosts, the God of the armies of Israel, whom thou hast defied.  
-> <sup>46</sup> This day will the LORD deliver thee into mine hand; and I will smite thee, and take thine head from thee; and I will give the carcases of the host of the Philistines this day unto the fowls of the air, and to the wild beasts of the earth; that all the earth may know that there is a God in Israel.  
-> <sup>47</sup> And all this assembly shall know that the LORD saveth not with sword and spear: for the battle *is* the LORD's, and he will give you into our hands.  
+> **⁴⁰** And he took his staff in his hand, and chose him five smooth stones out of the brook, and put them in a shepherd's bag which he had, even in a scrip; and his sling *was* in his hand: and he drew near to the Philistine.  
+> **⁴¹** And the Philistine came on and drew near unto David; and the man that bare the shield *went* before him.  
+> **⁴²** And when the Philistine looked about, and saw David, he disdained him: for he was *but* a youth, and ruddy, and of a fair countenance.  
+> **⁴³** And the Philistine said unto David, *Am* I a dog, that thou comest to me with staves? And the Philistine cursed David by his gods.  
+> **⁴⁴** And the Philistine said to David, Come to me, and I will give thy flesh unto the fowls of the air, and to the beasts of the field.  
+> **⁴⁵** Then said David to the Philistine, Thou comest to me with a sword, and with a spear, and with a shield: but I come to thee in the name of the LORD of hosts, the God of the armies of Israel, whom thou hast defied.  
+> **⁴⁶** This day will the LORD deliver thee into mine hand; and I will smite thee, and take thine head from thee; and I will give the carcases of the host of the Philistines this day unto the fowls of the air, and to the wild beasts of the earth; that all the earth may know that there is a God in Israel.  
+> **⁴⁷** And all this assembly shall know that the LORD saveth not with sword and spear: for the battle *is* the LORD's, and he will give you into our hands.  
 
 We are now coming near this famous combat, and have in these verses the preparations and remonstrances made on both sides.
 
@@ -119,17 +119,17 @@ II\. The conference which precedes the encounter, in which observe,
 
 2\. How very pious David was. His speech savours nothing of ostentation, but God is all in all in it, 1Sa 17:45-47. (1.) He derives his authority from God: "*I come to thee* by warrant and commission from heaven, *in the name of the Lord,* who has called me to and anointed me for this undertaking, who, by his universal providence, is the *Lord of hosts,* of all hosts, and therefore has power to do what he pleases, and, by the special grace of his covenant, is *the God of the armies of Israel,* and therefore has engaged and will employ his power for their protection, and against thee who hast impiously defied them." The name of God David relied on, as Goliath did on his sword and spear. See Ps 20:7,118:10,11. (2.) He depends for success upon God, 1Sa 17:46. David speaks with as much assurance as Goliath had done, but upon better ground; it is his faith that says, "*This day will the Lord deliver thee into my hand,* and not only thy carcase, but the carcases of the host of the Philistines, shall be given to the birds and beasts of prey." (3.) He devotes the praise and glory of all to God. He did not, like Goliath, seek his own honour, but the honour of God, not doubting but by the success of this action, [1.] All the world should be made to know that there is a God, and that the God of Israel is the one only living and true God, and all other pretended deities are vanity and a lie. [2.] All Israel (whom he calls not this army, but *this assembly,* or church, because they were now religiously attending the *goings of their God and King,* as they used to do *in the sanctuary*) shall *know that the Lord saveth not with sword and spear* (1Sa 17:47), but can, when he pleases, save without either and against both, Ps 46:9. David addresses himself to this combat rather as a priest that was going to offer a sacrifice to the justice of God than as a soldier that was going to engage an enemy of his country.
 
-> <sup>48</sup> And it came to pass, when the Philistine arose, and came and drew nigh to meet David, that David hasted, and ran toward the army to meet the Philistine.  
-> <sup>49</sup> And David put his hand in his bag, and took thence a stone, and slang *it,* and smote the Philistine in his forehead, that the stone sunk into his forehead; and he fell upon his face to the earth.  
-> <sup>50</sup> So David prevailed over the Philistine with a sling and with a stone, and smote the Philistine, and slew him; but *there was* no sword in the hand of David.  
-> <sup>51</sup> Therefore David ran, and stood upon the Philistine, and took his sword, and drew it out of the sheath thereof, and slew him, and cut off his head therewith. And when the Philistines saw their champion was dead, they fled.  
-> <sup>52</sup> And the men of Israel and of Judah arose, and shouted, and pursued the Philistines, until thou come to the valley, and to the gates of Ekron. And the wounded of the Philistines fell down by the way to Shaaraim, even unto Gath, and unto Ekron.  
-> <sup>53</sup> And the children of Israel returned from chasing after the Philistines, and they spoiled their tents.  
-> <sup>54</sup> And David took the head of the Philistine, and brought it to Jerusalem; but he put his armour in his tent.  
-> <sup>55</sup> And when Saul saw David go forth against the Philistine, he said unto Abner, the captain of the host, Abner, whose son *is* this youth? And Abner said, *As* thy soul liveth, O king, I cannot tell.  
-> <sup>56</sup> And the king said, Enquire thou whose son the stripling *is.*  
-> <sup>57</sup> And as David returned from the slaughter of the Philistine, Abner took him, and brought him before Saul with the head of the Philistine in his hand.  
-> <sup>58</sup> And Saul said to him, Whose son *art* thou, *thou* young man? And David answered, I *am* the son of thy servant Jesse the Bethlehemite.  
+> **⁴⁸** And it came to pass, when the Philistine arose, and came and drew nigh to meet David, that David hasted, and ran toward the army to meet the Philistine.  
+> **⁴⁹** And David put his hand in his bag, and took thence a stone, and slang *it,* and smote the Philistine in his forehead, that the stone sunk into his forehead; and he fell upon his face to the earth.  
+> **⁵⁰** So David prevailed over the Philistine with a sling and with a stone, and smote the Philistine, and slew him; but *there was* no sword in the hand of David.  
+> **⁵¹** Therefore David ran, and stood upon the Philistine, and took his sword, and drew it out of the sheath thereof, and slew him, and cut off his head therewith. And when the Philistines saw their champion was dead, they fled.  
+> **⁵²** And the men of Israel and of Judah arose, and shouted, and pursued the Philistines, until thou come to the valley, and to the gates of Ekron. And the wounded of the Philistines fell down by the way to Shaaraim, even unto Gath, and unto Ekron.  
+> **⁵³** And the children of Israel returned from chasing after the Philistines, and they spoiled their tents.  
+> **⁵⁴** And David took the head of the Philistine, and brought it to Jerusalem; but he put his armour in his tent.  
+> **⁵⁵** And when Saul saw David go forth against the Philistine, he said unto Abner, the captain of the host, Abner, whose son *is* this youth? And Abner said, *As* thy soul liveth, O king, I cannot tell.  
+> **⁵⁶** And the king said, Enquire thou whose son the stripling *is.*  
+> **⁵⁷** And as David returned from the slaughter of the Philistine, Abner took him, and brought him before Saul with the head of the Philistine in his hand.  
+> **⁵⁸** And Saul said to him, Whose son *art* thou, *thou* young man? And David answered, I *am* the son of thy servant Jesse the Bethlehemite.  
 
 Here is 1. The engagement between the two champions, 1Sa 17:48. To this engagement the Philistine advanced with a great deal of state and gravity; if he must encounter a pigmy, yet it shall be with the magnificence of a giant and a grandee. This is intimated in the manner of expression: He *arose, and came, and drew nigh,* like a stalking mountain, overlaid with brass and iron, *to meet David.* David advanced with no less activity and cheerfulness, as one that aimed more to do execution than to make a figure: He *hasted, and ran,* being lightly clad, to *meet the Philistine.* We may imagine with what tenderness and compassion the Israelites saw such a pleasing youth as this throwing himself into the mouth of destruction, but he knew whom he had believed and for whom he acted. 2. The fall of Goliath in this engagement. He was in no haste, because in no fear, but confident that he should soon at one stroke cleave his adversary's head; but, while he was preparing to do it solemnly, David did his business effectually, without any parade: he slang a stone which hit him in the forehead, and, in the twinkling of an eye, fetched him to the ground, 1Sa 17:49. Goliath knew there were famous slingers in Israel (Jdg 20:16), yet was either so forgetful or presumptuous as to go with the beaver of his helmet open, and thither, to the only part left exposed, not so much David's art as God's providence directed the stone, and brought it with such force that it sunk into his head, notwithstanding the impudence with which his forehead was brazened. See how frail and uncertain life is, even when it thinks itself best fortified, and how quickly, how easily, and with how small a matter, the passage may be opened for life to go out and death to enter. Goliath himself *has not power over the spirit to retain the spirit,* Ec 8:8. Let not the strong man glory in his strength, nor the armed man in his armour. See how God resists the proud and pours contempt upon those that bid defiance to him and his people. None ever hardened his heart against God and prospered. One of the Rabbin thinks that when Goliath said to David, *Come, and I will give thy flesh to the fowls of the air,* he threw up his head so hastily that his helmet fell off, and so left his broad forehead a fair mark for David. To complete the execution, David drew Goliath's own sword, a two-handed weapon for David, and with it *cut off his head,* 1Sa 17:51. What need had David to take a sword of his own? his enemy's sword shall serve his purpose, when he has occasion for one. God is greatly glorified when his proud enemies are cut off with their own sword and he makes *their own tongues to fall upon them,* Ps 64:8. David's victory over Goliath was typical of the triumphs of the son of David over Satan and all the powers of darkness, whom he *spoiled, and made a show of them openly* (Col 2:15), and we through him are *more than conquerors.* 3. The defeat of the Philistines' army hereupon. They relied wholly upon the strength of their champion, and therefore, when they saw him slain, they did not, as Goliath had offered, throw down their arms and surrender themselves servants to Israel (1Sa 17:9), but took to their heels, being wholly dispirited, and thinking it to no purpose to oppose one before whom such a mighty man had fallen: *They fled* (1Sa 17:51), and this put life into the Israelites, who *shouted and pursued them* (David, it is probable, leading them on in the pursuit) even to the gates of their own cities, 1Sa 17:52. In their return from the chase they seized all the baggage, plundered the tents (1Sa 17:53), and enriched themselves with the spoil. 4. David's disposal of his trophies, 1Sa 17:54. He brought the head of the Philistine to Jerusalem, to be a terror to the Jebusites, who held the strong-hold of Sion: it is probable that he carried it in triumph to other cities. *His armour he laid up in his tent;* only the sword was preserved behind the ephod in the tabernacle, as consecrated to God, and a memorial of the victory to his honour, 1Sa 21:9. 5. The notice that was taken of David. Though he had been at court formerly, yet, having been for some time absent (1Sa 17:15), Saul had forgotten him, being melancholy and mindless, and little thinking that his musician would have spirit enough to be his champion; and therefore, as if he had never seen him before, he asked whose son he was. Abner was a stranger to him, but brought him to Saul (1Sa 17:57), and he gave a modest account of himself, 1Sa 17:58. And now he was introduced to the court with much greater advantages than before, in which he owned God's hand performing all things for him.
 

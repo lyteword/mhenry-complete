@@ -8,22 +8,22 @@ Perhaps Job was so clear, and so well satisfied, in the goodness of his own caus
 
 ## Second Address of Eliphaz. (b. c. 1520.)
 
-> <sup>1</sup> Then answered Eliphaz the Temanite, and said,  
-> <sup>2</sup> Should a wise man utter vain knowledge, and fill his belly with the east wind?  
-> <sup>3</sup> Should he reason with unprofitable talk? or with speeches wherewith he can do no good?  
-> <sup>4</sup> Yea, thou castest off fear, and restrainest prayer before God.  
-> <sup>5</sup> For thy mouth uttereth thine iniquity, and thou choosest the tongue of the crafty.  
-> <sup>6</sup> Thine own mouth condemneth thee, and not I: yea, thine own lips testify against thee.  
-> <sup>7</sup> *Art* thou the first man *that* was born? or wast thou made before the hills?  
-> <sup>8</sup> Hast thou heard the secret of God? and dost thou restrain wisdom to thyself?  
-> <sup>9</sup> What knowest thou, that we know not? *what* understandest thou, which *is* not in us?  
-> <sup>10</sup> With us *are* both the grayheaded and very aged men, much elder than thy father.  
-> <sup>11</sup> *Are* the consolations of God small with thee? is there any secret thing with thee?  
-> <sup>12</sup> Why doth thine heart carry thee away? and what do thy eyes wink at,  
-> <sup>13</sup> That thou turnest thy spirit against God, and lettest *such* words go out of thy mouth?  
-> <sup>14</sup> What *is* man, that he should be clean? and *he which is* born of a woman, that he should be righteous?  
-> <sup>15</sup> Behold, he putteth no trust in his saints; yea, the heavens are not clean in his sight.  
-> <sup>16</sup> How much more abominable and filthy *is* man, which drinketh iniquity like water?  
+> **¹** Then answered Eliphaz the Temanite, and said,  
+> **²** Should a wise man utter vain knowledge, and fill his belly with the east wind?  
+> **³** Should he reason with unprofitable talk? or with speeches wherewith he can do no good?  
+> **⁴** Yea, thou castest off fear, and restrainest prayer before God.  
+> **⁵** For thy mouth uttereth thine iniquity, and thou choosest the tongue of the crafty.  
+> **⁶** Thine own mouth condemneth thee, and not I: yea, thine own lips testify against thee.  
+> **⁷** *Art* thou the first man *that* was born? or wast thou made before the hills?  
+> **⁸** Hast thou heard the secret of God? and dost thou restrain wisdom to thyself?  
+> **⁹** What knowest thou, that we know not? *what* understandest thou, which *is* not in us?  
+> **¹⁰** With us *are* both the grayheaded and very aged men, much elder than thy father.  
+> **¹¹** *Are* the consolations of God small with thee? is there any secret thing with thee?  
+> **¹²** Why doth thine heart carry thee away? and what do thy eyes wink at,  
+> **¹³** That thou turnest thy spirit against God, and lettest *such* words go out of thy mouth?  
+> **¹⁴** What *is* man, that he should be clean? and *he which is* born of a woman, that he should be righteous?  
+> **¹⁵** Behold, he putteth no trust in his saints; yea, the heavens are not clean in his sight.  
+> **¹⁶** How much more abominable and filthy *is* man, which drinketh iniquity like water?  
 
 Eliphaz here falls very foul upon Job, because he contradicted what he and his colleagues had said, and did not acquiesce in it and applaud it, as they expected. Proud people are apt thus to take it very much amiss if they may not have leave to dictate and give law to all about them, and to censure those as ignorant and obstinate, and all that is naught, who cannot in every thing say as they say. Several great crimes Eliphaz here charges Job with, only because he would not own himself a hypocrite.
 
@@ -43,25 +43,25 @@ V\. He charges him with opposition to God himself and to religion (Job 15:12,13)
 
 VI\. He charges him with justifying himself to such a degree as even to deny his share in the common corruption and pollution of the human nature (Job 15:14): *What is man, that he should be clean?* that is, that he should pretend to be so, or that any should expect to find him so. What is *he that is born of a woman,* a sinful woman, *that he should be righteous?* Note, 1. Righteousness is cleanness; it makes us acceptable to God and easy to ourselves, Ps 18:24. 2. Man, in his fallen state, cannot pretend to be clean and righteous before God, either to acquit himself to God's justice or recommend himself to his favour. 3. He is to be adjudged unclean and unrighteous because born of a woman, from whom he derives a corrupt nature, which is both his guilt and his pollution. With these plain truths Eliphaz thinks to convince Job, whereas he had just now said the same (Job 14:4): *Who can bring a clean thing out of an unclean?* But does it therefore follow that Job is a hypocrite, and a wicked man, which is all that he denied? By no means. Though man, as born of a woman, is not clean, yet, as born again of the Spirit, he is clean. 4. Further to evince this he here shows, (1.) That the brightest creatures are imperfect and impure before God, Job 15:15. God places no confidence in saints and angels; he employs both, but trusts neither with his service, without giving them fresh supplies of strength and wisdom for it, as knowing they are not sufficient of themselves, neither more nor better than his grace makes them. He takes no complacency in the heavens themselves. How pure soever they seem to us, in his eye they have many a speck and many a flaw: *The heavens are not clean in his sight.* If the stars (says Mr. Caryl) have no light in the sight of the sun, what light has the sun in the sight of God! See Isa 24:23. (2.) That man is much more so (Job 15:16): *How much more abominable and filthy is man!* If saints are not to be trusted, much less sinners. If the heavens are not pure, which are as God made them, much less man, who is degenerated. Nay, he is abominable and filthy in the sight of God, and if ever he repent he is so in his own sight, and therefore he abhors himself. Sin is an odious thing, it makes men hateful. The body of sin is so, and is therefore called *a dead body,* a loathsome thing. Is it not a filthy thing, and enough to make any one sick, to see a man eating swine's food or drinking some nauseous and offensive stuff? Such is the filthiness of man that he *drinks iniquity* (that abominable thing which the Lord hates) as greedily, and with as much pleasure, as a man drinks water when he is thirsty. It is his constant drink; it is natural to sinners to commit iniquity. It gratifies, but does not satisfy, the appetites of the old man. It is like water to a man in a dropsy. The more men sin the more they would sin.
 
-> <sup>17</sup> I will show thee, hear me; and that *which* I have seen I will declare;  
-> <sup>18</sup> Which wise men have told from their fathers, and have not hid *it:*  
-> <sup>19</sup> Unto whom alone the earth was given, and no stranger passed among them.  
-> <sup>20</sup> The wicked man travaileth with pain all *his* days, and the number of years is hidden to the oppressor.  
-> <sup>21</sup> A dreadful sound *is* in his ears: in prosperity the destroyer shall come upon him.  
-> <sup>22</sup> He believeth not that he shall return out of darkness, and he is waited for of the sword.  
-> <sup>23</sup> He wandereth abroad for bread, *saying,* Where *is it?* he knoweth that the day of darkness is ready at his hand.  
-> <sup>24</sup> Trouble and anguish shall make him afraid; they shall prevail against him, as a king ready to the battle.  
-> <sup>25</sup> For he stretcheth out his hand against God, and strengtheneth himself against the Almighty.  
-> <sup>26</sup> He runneth upon him, *even* on *his* neck, upon the thick bosses of his bucklers:  
-> <sup>27</sup> Because he covereth his face with his fatness, and maketh collops of fat on *his* flanks.  
-> <sup>28</sup> And he dwelleth in desolate cities, *and* in houses which no man inhabiteth, which are ready to become heaps.  
-> <sup>29</sup> He shall not be rich, neither shall his substance continue, neither shall he prolong the perfection thereof upon the earth.  
-> <sup>30</sup> He shall not depart out of darkness; the flame shall dry up his branches, and by the breath of his mouth shall he go away.  
-> <sup>31</sup> Let not him that is deceived trust in vanity: for vanity shall be his recompence.  
-> <sup>32</sup> It shall be accomplished before his time, and his branch shall not be green.  
-> <sup>33</sup> He shall shake off his unripe grape as the vine, and shall cast off his flower as the olive.  
-> <sup>34</sup> For the congregation of hypocrites *shall be* desolate, and fire shall consume the tabernacles of bribery.  
-> <sup>35</sup> They conceive mischief, and bring forth vanity, and their belly prepareth deceit.  
+> **¹⁷** I will show thee, hear me; and that *which* I have seen I will declare;  
+> **¹⁸** Which wise men have told from their fathers, and have not hid *it:*  
+> **¹⁹** Unto whom alone the earth was given, and no stranger passed among them.  
+> **²⁰** The wicked man travaileth with pain all *his* days, and the number of years is hidden to the oppressor.  
+> **²¹** A dreadful sound *is* in his ears: in prosperity the destroyer shall come upon him.  
+> **²²** He believeth not that he shall return out of darkness, and he is waited for of the sword.  
+> **²³** He wandereth abroad for bread, *saying,* Where *is it?* he knoweth that the day of darkness is ready at his hand.  
+> **²⁴** Trouble and anguish shall make him afraid; they shall prevail against him, as a king ready to the battle.  
+> **²⁵** For he stretcheth out his hand against God, and strengtheneth himself against the Almighty.  
+> **²⁶** He runneth upon him, *even* on *his* neck, upon the thick bosses of his bucklers:  
+> **²⁷** Because he covereth his face with his fatness, and maketh collops of fat on *his* flanks.  
+> **²⁸** And he dwelleth in desolate cities, *and* in houses which no man inhabiteth, which are ready to become heaps.  
+> **²⁹** He shall not be rich, neither shall his substance continue, neither shall he prolong the perfection thereof upon the earth.  
+> **³⁰** He shall not depart out of darkness; the flame shall dry up his branches, and by the breath of his mouth shall he go away.  
+> **³¹** Let not him that is deceived trust in vanity: for vanity shall be his recompence.  
+> **³²** It shall be accomplished before his time, and his branch shall not be green.  
+> **³³** He shall shake off his unripe grape as the vine, and shall cast off his flower as the olive.  
+> **³⁴** For the congregation of hypocrites *shall be* desolate, and fire shall consume the tabernacles of bribery.  
+> **³⁵** They conceive mischief, and bring forth vanity, and their belly prepareth deceit.  
 
 Eliphaz, having reproved Job for his answers, here comes to maintain his own thesis, upon which he built his censure of Job. His opinion is that those who are wicked are certainly miserable, whence he would infer that those who are miserable are certainly wicked, and that therefore Job was so. Observe,
 

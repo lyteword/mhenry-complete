@@ -8,10 +8,10 @@ After the inscription (1Ti 1:1,2) we have, I. The charge given to Timothy, 1Ti 1
 
 ## The Inscription and Apostolic Benediction. (a. d. 64.)
 
-> <sup>1</sup> Paul, an apostle of Jesus Christ by the commandment of God our Saviour, and Lord Jesus Christ, *which is* our hope;  
-> <sup>2</sup> Unto Timothy, *my* own son in the faith: Grace, mercy, *and* peace, from God our Father and Jesus Christ our Lord.  
-> <sup>3</sup> As I besought thee to abide still at Ephesus, when I went into Macedonia, that thou mightest charge some that they teach no other doctrine,  
-> <sup>4</sup> Neither give heed to fables and endless genealogies, which minister questions, rather than godly edifying which is in faith: *so do.*  
+> **¹** Paul, an apostle of Jesus Christ by the commandment of God our Saviour, and Lord Jesus Christ, *which is* our hope;  
+> **²** Unto Timothy, *my* own son in the faith: Grace, mercy, *and* peace, from God our Father and Jesus Christ our Lord.  
+> **³** As I besought thee to abide still at Ephesus, when I went into Macedonia, that thou mightest charge some that they teach no other doctrine,  
+> **⁴** Neither give heed to fables and endless genealogies, which minister questions, rather than godly edifying which is in faith: *so do.*  
 
 Here is, I. The inscription of the epistle, from whom it is sent: *Paul an apostle of Jesus Christ,* constituted an apostle *by the commandment of God our Saviour, and Lord Jesus Christ.* His credentials were unquestionable. He had not only a commission, but a commandment, not only from God our Saviour, but from Jesus Christ: he was a preacher of the gospel of Christ, and a minister of the kingdom of Christ. Observe, God is our Saviour.—*Jesus Christ, who is our hope.* Observe, Jesus Christ is a Christian's hope; our hope is in him, all our hope of eternal life is built upon him; Christ is in us the hope of glory, Col 1:27. He calls Timothy his own son, because he had been an instrument of his conversion, and because he had been a son that served him, served with him in the gospel, Php 2:22. Timothy had not been wanting in the duty of a son to Paul, and Paul was not wanting in the care and tenderness of a father to him.
 
@@ -21,13 +21,13 @@ III\. Paul tells Timothy what was the end of his appointing him to this office: 
 
 ## Timothy Reminded of His Charge. (a. d. 64.)
 
-> <sup>5</sup> Now the end of the commandment is charity out of a pure heart, and *of* a good conscience, and *of* faith unfeigned:  
-> <sup>6</sup> From which some having swerved have turned aside unto vain jangling;  
-> <sup>7</sup> Desiring to be teachers of the law; understanding neither what they say, nor whereof they affirm.  
-> <sup>8</sup> But we know that the law *is* good, if a man use it lawfully;  
-> <sup>9</sup> Knowing this, that the law is not made for a righteous man, but for the lawless and disobedient, for the ungodly and for sinners, for unholy and profane, for murderers of fathers and murderers of mothers, for manslayers,  
-> <sup>10</sup> For whoremongers, for them that defile themselves with mankind, for menstealers, for liars, for perjured persons, and if there be any other thing that is contrary to sound doctrine;  
-> <sup>11</sup> According to the glorious gospel of the blessed God, which was committed to my trust.  
+> **⁵** Now the end of the commandment is charity out of a pure heart, and *of* a good conscience, and *of* faith unfeigned:  
+> **⁶** From which some having swerved have turned aside unto vain jangling;  
+> **⁷** Desiring to be teachers of the law; understanding neither what they say, nor whereof they affirm.  
+> **⁸** But we know that the law *is* good, if a man use it lawfully;  
+> **⁹** Knowing this, that the law is not made for a righteous man, but for the lawless and disobedient, for the ungodly and for sinners, for unholy and profane, for murderers of fathers and murderers of mothers, for manslayers,  
+> **¹⁰** For whoremongers, for them that defile themselves with mankind, for menstealers, for liars, for perjured persons, and if there be any other thing that is contrary to sound doctrine;  
+> **¹¹** According to the glorious gospel of the blessed God, which was committed to my trust.  
 
 Here the apostle instructs Timothy how to guard against the judaizing teachers, or others who mingled fables and endless genealogies with the gospel. He shows the use of the law, and the glory of the gospel.
 
@@ -41,12 +41,12 @@ II\. He shows the glory and grace of the gospel. Paul's epithets are expressive 
 
 ## Perverters Reproved. (a. d. 64.)
 
-> <sup>12</sup> And I thank Christ Jesus our Lord, who hath enabled me, for that he counted me faithful, putting me into the ministry;  
-> <sup>13</sup> Who was before a blasphemer, and a persecutor, and injurious: but I obtained mercy, because I did *it* ignorantly in unbelief.  
-> <sup>14</sup> And the grace of our Lord was exceeding abundant with faith and love which is in Christ Jesus.  
-> <sup>15</sup> This *is* a faithful saying, and worthy of all acceptation, that Christ Jesus came into the world to save sinners; of whom I am chief.  
-> <sup>16</sup> Howbeit for this cause I obtained mercy, that in me first Jesus Christ might show forth all longsuffering, for a pattern to them which should hereafter believe on him to life everlasting.  
-> <sup>17</sup> Now unto the King eternal, immortal, invisible, the only wise God, *be* honour and glory for ever and ever. Amen.  
+> **¹²** And I thank Christ Jesus our Lord, who hath enabled me, for that he counted me faithful, putting me into the ministry;  
+> **¹³** Who was before a blasphemer, and a persecutor, and injurious: but I obtained mercy, because I did *it* ignorantly in unbelief.  
+> **¹⁴** And the grace of our Lord was exceeding abundant with faith and love which is in Christ Jesus.  
+> **¹⁵** This *is* a faithful saying, and worthy of all acceptation, that Christ Jesus came into the world to save sinners; of whom I am chief.  
+> **¹⁶** Howbeit for this cause I obtained mercy, that in me first Jesus Christ might show forth all longsuffering, for a pattern to them which should hereafter believe on him to life everlasting.  
+> **¹⁷** Now unto the King eternal, immortal, invisible, the only wise God, *be* honour and glory for ever and ever. Amen.  
 
 Here the apostle, I. Returns thanks to Jesus Christ for putting him into the ministry. Observe, 1. It is Christ's work to put men into the ministry, Ac 26:16,17. God condemned the false prophets among the Jews in these words, *I have not sent these prophets, yet they ran: I have not spoken to them, yet they prophesied,* Jer 23:21. Ministers, properly speaking, cannot make themselves ministers; for it is Christ's work, as king and head, prophet and teacher, of his church. 2. Those whom he puts into the ministry he fits for it; whom he calls he qualifies. Those ministers who are no way fit for their work, nor have ability for it, are not of Christ's putting into the ministry, though there are different qualifications as to gifts and graces. 3. Christ gives not only ability, but fidelity, to those whom he puts into the ministry: He *counted me faithful;* and none are counted faithful but those whom he makes so. Christ's ministers are trusty servants, and they ought to be so, having so great a trust committed to them. 4. A call to the ministry is a great favour, for which those who are so called ought to give thanks to Jesus Christ: *I thank Christ Jesus our Lord, who hath put me into the ministry.*
 
@@ -68,9 +68,9 @@ II\. The more to magnify the grace of Christ in putting him into the ministry, h
 
 ## Paul's Charge to Timothy. (a. d. 64.)
 
-> <sup>18</sup> This charge I commit unto thee, son Timothy, according to the prophecies which went before on thee, that thou by them mightest war a good warfare;  
-> <sup>19</sup> Holding faith, and a good conscience; which some having put away concerning faith have made shipwreck:  
-> <sup>20</sup> Of whom is Hymenæus and Alexander; whom I have delivered unto Satan, that they may learn not to blaspheme.  
+> **¹⁸** This charge I commit unto thee, son Timothy, according to the prophecies which went before on thee, that thou by them mightest war a good warfare;  
+> **¹⁹** Holding faith, and a good conscience; which some having put away concerning faith have made shipwreck:  
+> **²⁰** Of whom is Hymenæus and Alexander; whom I have delivered unto Satan, that they may learn not to blaspheme.  
 
 Here is the charge he gives to Timothy to proceed in his work with resolution, 1Ti 1:18. Observe here, The gospel is a charge committed to the ministers of it; it is committed to their trust, to see that it be duly applied according to the intent and meaning of it, and the design of its great Author. It seems, there had been prophecies before concerning Timothy, that he should be taken into the ministry, and should prove eminent in the work of the ministry; this encouraged Paul to commit this charge to him. Observe, 1. The ministry is a warfare, it is a good warfare against sin and Satan: and under the banner of the Lord Jesus, who is the Captain of our salvation (Heb 2:10), and in his cause, and against his enemies, ministers are in a particular manner engaged. 2. Ministers must war this good warfare, must execute their office diligently and courageously, notwithstanding oppositions and discouragements. 3. The prophecies which went before concerning Timothy are here mentioned as a motive to stir him up to a vigorous and conscientious discharge of his duty; so the good hopes that others have entertained concerning us should excite us to our duty: *That thou by them mightest war a good warfare.* 4. We must hold both faith and a good conscience: *Holding faith and a good conscience,* 1Ti 1:19. Those that put away a good conscience will soon make shipwreck of faith. Let us live up to the directions of a renewed enlightened conscience, and keep conscience void of offence (Ac 24:16), a conscience not debauched by any vice or sin, and this will be a means of preserving us sound in the faith; we must look to the one as well a the other, for the mystery of the faith must be held in a pure conscience, 1Ti 3:9. As for those who had made shipwreck of the faith, he specifies two, *Hymeneus and Alexander,* who had made a profession of the Christian religion, but had quitted that profession; and Paul had delivered them to Satan, had declared them to belong to the kingdom of Satan, and, as some think, had, by an extraordinary power, delivered them to be terrified or tormented by Satan, *that they might learn not to blaspheme* not to contradict or revile the doctrine of Christ and the good ways of the Lord. Observe, The primary design of the highest censure in the primitive church was to prevent further sin and to reclaim the sinner. In this case it was for the destruction of the flesh, that the spirit might be saved in the day of the Lord Jesus, 1Co 5:5. Observe, (1.) Those who love the service and work of Satan are justly delivered over to the power of Satan: *Whom I have delivered over to Satan.* (2.) God can, if he please, work by contraries: Hymeneus and Alexander are delivered to Satan, that they may learn not to blaspheme, when one would rather think they would learn of Satan to blaspheme the more. (3.) Those who have put away a good conscience, and made shipwreck of faith, will not stick at any thing, blasphemy not excepted. (4.) Therefore let us hold faith and a good conscience, if we would keep clear of blasphemy; for, if we once let go our hold of these, we do not know where we shall stop.
 

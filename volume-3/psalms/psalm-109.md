@@ -10,11 +10,11 @@ Whether David penned this psalm when he was persecuted by Saul, or when his son 
 
 To the chief Musician. A psalm of David.
 
-> <sup>1</sup> Hold not thy peace, O God of my praise;  
-> <sup>2</sup> For the mouth of the wicked and the mouth of the deceitful are opened against me: they have spoken against me with a lying tongue.  
-> <sup>3</sup> They compassed me about also with words of hatred; and fought against me without a cause.  
-> <sup>4</sup> For my love they are my adversaries: but I *give myself unto* prayer.  
-> <sup>5</sup> And they have rewarded me evil for good, and hatred for my love.  
+> **¹** Hold not thy peace, O God of my praise;  
+> **²** For the mouth of the wicked and the mouth of the deceitful are opened against me: they have spoken against me with a lying tongue.  
+> **³** They compassed me about also with words of hatred; and fought against me without a cause.  
+> **⁴** For my love they are my adversaries: but I *give myself unto* prayer.  
+> **⁵** And they have rewarded me evil for good, and hatred for my love.  
 
 It is the unspeakable comfort of all good people that, whoever is against them, God is for them, and to him they may apply as to one that is pleased to concern himself for them. Thus David here.
 
@@ -26,21 +26,21 @@ III\. He resolves to keep close to his duty and take the comfort of that: *But I
 
 ## Prophetic Imprecations.
 
-> <sup>6</sup> Set thou a wicked man over him: and let Satan stand at his right hand.  
-> <sup>7</sup> When he shall be judged, let him be condemned: and let his prayer become sin.  
-> <sup>8</sup> Let his days be few; *and* let another take his office.  
-> <sup>9</sup> Let his children be fatherless, and his wife a widow.  
-> <sup>10</sup> Let his children be continually vagabonds, and beg: let them seek *their bread* also out of their desolate places.  
-> <sup>11</sup> Let the extortioner catch all that he hath; and let the strangers spoil his labour.  
-> <sup>12</sup> Let there be none to extend mercy unto him: neither let there be any to favour his fatherless children.  
-> <sup>13</sup> Let his posterity be cut off; *and* in the generation following let their name be blotted out.  
-> <sup>14</sup> Let the iniquity of his fathers be remembered with the LORD; and let not the sin of his mother be blotted out.  
-> <sup>15</sup> Let them be before the LORD continually, that he may cut off the memory of them from the earth.  
-> <sup>16</sup> Because that he remembered not to show mercy, but persecuted the poor and needy man, that he might even slay the broken in heart.  
-> <sup>17</sup> As he loved cursing, so let it come unto him: as he delighted not in blessing, so let it be far from him.  
-> <sup>18</sup> As he clothed himself with cursing like as with his garment, so let it come into his bowels like water, and like oil into his bones.  
-> <sup>19</sup> Let it be unto him as the garment *which* covereth him, and for a girdle wherewith he is girded continually.  
-> <sup>20</sup> *Let* this *be* the reward of mine adversaries from the LORD, and of them that speak evil against my soul.  
+> **⁶** Set thou a wicked man over him: and let Satan stand at his right hand.  
+> **⁷** When he shall be judged, let him be condemned: and let his prayer become sin.  
+> **⁸** Let his days be few; *and* let another take his office.  
+> **⁹** Let his children be fatherless, and his wife a widow.  
+> **¹⁰** Let his children be continually vagabonds, and beg: let them seek *their bread* also out of their desolate places.  
+> **¹¹** Let the extortioner catch all that he hath; and let the strangers spoil his labour.  
+> **¹²** Let there be none to extend mercy unto him: neither let there be any to favour his fatherless children.  
+> **¹³** Let his posterity be cut off; *and* in the generation following let their name be blotted out.  
+> **¹⁴** Let the iniquity of his fathers be remembered with the LORD; and let not the sin of his mother be blotted out.  
+> **¹⁵** Let them be before the LORD continually, that he may cut off the memory of them from the earth.  
+> **¹⁶** Because that he remembered not to show mercy, but persecuted the poor and needy man, that he might even slay the broken in heart.  
+> **¹⁷** As he loved cursing, so let it come unto him: as he delighted not in blessing, so let it be far from him.  
+> **¹⁸** As he clothed himself with cursing like as with his garment, so let it come into his bowels like water, and like oil into his bones.  
+> **¹⁹** Let it be unto him as the garment *which* covereth him, and for a girdle wherewith he is girded continually.  
+> **²⁰** *Let* this *be* the reward of mine adversaries from the LORD, and of them that speak evil against my soul.  
 
 David here fastens upon some one particular person that was worse than the rest of his enemies, and the ringleader of them, and in a devout and pious manner, not from a principle of malice and revenge, but in a holy zeal for God and against sin and with an eye to the enemies of Christ, particularly Judas who betrayed him, whose sin was greater than Pilate's that condemned him (Joh 19:11), he imprecates and predicts his destruction, foresees and pronounces him completely miserable, and such a one as our Saviour calls him, *A son of perdition.* Calvin speaks of it as a detestable piece of sacrilege, common in his time among Franciscan friars and other monks, that if any one had malice against a neighbour he might hire some of them to curse him every day, which he would do in the words of these verses; and particularly he tells of a lady in France who, being at variance with her own and only son, hired a parcel of friars to curse him in these words. Greater impiety can scarcely be imagined than to vent a devilish passion in the language of sacred writ, to kindle strife with coals snatched from God's altar, and to call for fire from heaven with a tongue set on fire of hell.
 
@@ -54,17 +54,17 @@ II\. The ground of these imprecations bespeaks them very just, though they sound
 
 ## Humble Petitions; Triumphing in God.
 
-> <sup>21</sup> But do thou for me, O GOD the Lord, for thy name's sake: because thy mercy *is* good, deliver thou me.  
-> <sup>22</sup> For I *am* poor and needy, and my heart is wounded within me.  
-> <sup>23</sup> I am gone like the shadow when it declineth: I am tossed up and down as the locust.  
-> <sup>24</sup> My knees are weak through fasting; and my flesh faileth of fatness.  
-> <sup>25</sup> I became also a reproach unto them: *when* they looked upon me they shaked their heads.  
-> <sup>26</sup> Help me, O LORD my God: O save me according to thy mercy:  
-> <sup>27</sup> That they may know that this *is* thy hand; *that* thou, LORD, hast done it.  
-> <sup>28</sup> Let them curse, but bless thou: when they arise, let them be ashamed; but let thy servant rejoice.  
-> <sup>29</sup> Let mine adversaries be clothed with shame, and let them cover themselves with their own confusion, as with a mantle.  
-> <sup>30</sup> I will greatly praise the LORD with my mouth; yea, I will praise him among the multitude.  
-> <sup>31</sup> For he shall stand at the right hand of the poor, to save *him* from those that condemn his soul.  
+> **²¹** But do thou for me, O GOD the Lord, for thy name's sake: because thy mercy *is* good, deliver thou me.  
+> **²²** For I *am* poor and needy, and my heart is wounded within me.  
+> **²³** I am gone like the shadow when it declineth: I am tossed up and down as the locust.  
+> **²⁴** My knees are weak through fasting; and my flesh faileth of fatness.  
+> **²⁵** I became also a reproach unto them: *when* they looked upon me they shaked their heads.  
+> **²⁶** Help me, O LORD my God: O save me according to thy mercy:  
+> **²⁷** That they may know that this *is* thy hand; *that* thou, LORD, hast done it.  
+> **²⁸** Let them curse, but bless thou: when they arise, let them be ashamed; but let thy servant rejoice.  
+> **²⁹** Let mine adversaries be clothed with shame, and let them cover themselves with their own confusion, as with a mantle.  
+> **³⁰** I will greatly praise the LORD with my mouth; yea, I will praise him among the multitude.  
+> **³¹** For he shall stand at the right hand of the poor, to save *him* from those that condemn his soul.  
 
 David, having denounced God's wrath against his enemies, here takes God's comforts to himself, but in a very humble manner, and without boasting.
 

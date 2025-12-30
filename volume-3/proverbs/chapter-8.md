@@ -8,17 +8,17 @@ The word of God is two-fold, and, in both senses, is wisdom; for a word without 
 
 ## The Invitation of Wisdom.
 
-> <sup>1</sup> Doth not wisdom cry? and understanding put forth her voice?  
-> <sup>2</sup> She standeth in the top of high places, by the way in the places of the paths.  
-> <sup>3</sup> She crieth at the gates, at the entry of the city, at the coming in at the doors.  
-> <sup>4</sup> Unto you, O men, I call; and my voice *is* to the sons of man.  
-> <sup>5</sup> O ye simple, understand wisdom: and, ye fools, be ye of an understanding heart.  
-> <sup>6</sup> Hear; for I will speak of excellent things; and the opening of my lips *shall be* right things.  
-> <sup>7</sup> For my mouth shall speak truth; and wickedness *is* an abomination to my lips.  
-> <sup>8</sup> All the words of my mouth *are* in righteousness; *there is* nothing froward or perverse in them.  
-> <sup>9</sup> They *are* all plain to him that understandeth, and right to them that find knowledge.  
-> <sup>10</sup> Receive my instruction, and not silver; and knowledge rather than choice gold.  
-> <sup>11</sup> For wisdom *is* better than rubies; and all the things that may be desired are not to be compared to it.  
+> **¹** Doth not wisdom cry? and understanding put forth her voice?  
+> **²** She standeth in the top of high places, by the way in the places of the paths.  
+> **³** She crieth at the gates, at the entry of the city, at the coming in at the doors.  
+> **⁴** Unto you, O men, I call; and my voice *is* to the sons of man.  
+> **⁵** O ye simple, understand wisdom: and, ye fools, be ye of an understanding heart.  
+> **⁶** Hear; for I will speak of excellent things; and the opening of my lips *shall be* right things.  
+> **⁷** For my mouth shall speak truth; and wickedness *is* an abomination to my lips.  
+> **⁸** All the words of my mouth *are* in righteousness; *there is* nothing froward or perverse in them.  
+> **⁹** They *are* all plain to him that understandeth, and right to them that find knowledge.  
+> **¹⁰** Receive my instruction, and not silver; and knowledge rather than choice gold.  
+> **¹¹** For wisdom *is* better than rubies; and all the things that may be desired are not to be compared to it.  
 
 The will of God revealed to us for our salvation is here largely represented to us as easy to be known and understood, that none may have an excuse for their ignorance or error, and as worthy to be embraced, that none may have an excuse for their carelessness and unbelief.
 
@@ -30,16 +30,16 @@ III\. From all this he infers that the right knowledge of those things, such as 
 
 ## The Advantages of Wisdom.
 
-> <sup>12</sup> I wisdom dwell with prudence, and find out knowledge of witty inventions.  
-> <sup>13</sup> The fear of the LORD *is* to hate evil: pride, and arrogancy, and the evil way, and the froward mouth, do I hate.  
-> <sup>14</sup> Counsel *is* mine, and sound wisdom: I *am* understanding; I have strength.  
-> <sup>15</sup> By me kings reign, and princes decree justice.  
-> <sup>16</sup> By me princes rule, and nobles, *even* all the judges of the earth.  
-> <sup>17</sup> I love them that love me; and those that seek me early shall find me.  
-> <sup>18</sup> Riches and honour *are* with me; *yea,* durable riches and righteousness.  
-> <sup>19</sup> My fruit *is* better than gold, yea, than fine gold; and my revenue than choice silver.  
-> <sup>20</sup> I lead in the way of righteousness, in the midst of the paths of judgment:  
-> <sup>21</sup> That I may cause those that love me to inherit substance; and I will fill their treasures.  
+> **¹²** I wisdom dwell with prudence, and find out knowledge of witty inventions.  
+> **¹³** The fear of the LORD *is* to hate evil: pride, and arrogancy, and the evil way, and the froward mouth, do I hate.  
+> **¹⁴** Counsel *is* mine, and sound wisdom: I *am* understanding; I have strength.  
+> **¹⁵** By me kings reign, and princes decree justice.  
+> **¹⁶** By me princes rule, and nobles, *even* all the judges of the earth.  
+> **¹⁷** I love them that love me; and those that seek me early shall find me.  
+> **¹⁸** Riches and honour *are* with me; *yea,* durable riches and righteousness.  
+> **¹⁹** My fruit *is* better than gold, yea, than fine gold; and my revenue than choice silver.  
+> **²⁰** I lead in the way of righteousness, in the midst of the paths of judgment:  
+> **²¹** That I may cause those that love me to inherit substance; and I will fill their treasures.  
 
 Wisdom here is Christ, *in whom are hidden all the treasures of wisdom and knowledge;* it is Christ in the word and Christ in the heart, not only Christ revealed to us, but Christ revealed in us. It is the word of God, the whole compass of divine revelation; it is God the Word, in whom all divine revelation centres; it is the soul formed by the word; it is Christ formed in the soul; it is religion in the purity and power of it. Glorious things are here spoken of this excellent person, this excellent thing.
 
@@ -63,16 +63,16 @@ IV\. It will make all those happy, truly happy, that receive and embrace it.
 
 ## Wisdom Eternal and Divine.
 
-> <sup>22</sup> The LORD possessed me in the beginning of his way, before his works of old.  
-> <sup>23</sup> I was set up from everlasting, from the beginning, or ever the earth was.  
-> <sup>24</sup> When *there were* no depths, I was brought forth; when *there were* no fountains abounding with water.  
-> <sup>25</sup> Before the mountains were settled, before the hills was I brought forth:  
-> <sup>26</sup> While as yet he had not made the earth, nor the fields, nor the highest part of the dust of the world.  
-> <sup>27</sup> When he prepared the heavens, I *was* there: when he set a compass upon the face of the depth:  
-> <sup>28</sup> When he established the clouds above: when he strengthened the fountains of the deep:  
-> <sup>29</sup> When he gave to the sea his decree, that the waters should not pass his commandment: when he appointed the foundations of the earth:  
-> <sup>30</sup> Then I was by him, *as* one brought up *with him:* and I was daily *his* delight, rejoicing always before him;  
-> <sup>31</sup> Rejoicing in the habitable part of his earth; and my delights *were* with the sons of men.  
+> **²²** The LORD possessed me in the beginning of his way, before his works of old.  
+> **²³** I was set up from everlasting, from the beginning, or ever the earth was.  
+> **²⁴** When *there were* no depths, I was brought forth; when *there were* no fountains abounding with water.  
+> **²⁵** Before the mountains were settled, before the hills was I brought forth:  
+> **²⁶** While as yet he had not made the earth, nor the fields, nor the highest part of the dust of the world.  
+> **²⁷** When he prepared the heavens, I *was* there: when he set a compass upon the face of the depth:  
+> **²⁸** When he established the clouds above: when he strengthened the fountains of the deep:  
+> **²⁹** When he gave to the sea his decree, that the waters should not pass his commandment: when he appointed the foundations of the earth:  
+> **³⁰** Then I was by him, *as* one brought up *with him:* and I was daily *his* delight, rejoicing always before him;  
+> **³¹** Rejoicing in the habitable part of his earth; and my delights *were* with the sons of men.  
 
 That it is an intelligent and divine person that here speaks seems very plain, and that it is not meant of a mere essential property of the divine nature, for Wisdom here has personal properties and actions; and that intelligent divine person can be no other than the Son of God himself, to whom the principal things here spoken of wisdom are attributed in other scriptures, and we must explain scripture by itself. If Solomon himself designed only the praise of wisdom as it is an attribute of God, by which he made the world and governs it, so to recommend to men the study of that wisdom which belongs to them, yet the Spirit of God, who indited what he wrote, carried him, as David often, to such expressions as could agree to no other than the Son of God, and would lead us into the knowledge of great things concerning him. All divine revelation is *the revelation of Jesus Christ, which God gave unto him,* and here we are told who and what he is, as God, designed in the eternal counsels to be the Mediator between God and man. The best exposition of these verses we have in the Joh 1:1-4 of St. John's gospel. *In the beginning was the Word,* etc. Concerning the Son of God observe here,
 
@@ -88,11 +88,11 @@ V\. The gracious concern he had for mankind, Pr 8:31. Wisdom *rejoiced,* not so 
 
 ## Wisdom's Exhortation.
 
-> <sup>32</sup> Now therefore hearken unto me, O ye children: for blessed *are they that* keep my ways.  
-> <sup>33</sup> Hear instruction, and be wise, and refuse it not.  
-> <sup>34</sup> Blessed *is* the man that heareth me, watching daily at my gates, waiting at the posts of my doors.  
-> <sup>35</sup> For whoso findeth me findeth life, and shall obtain favour of the LORD.  
-> <sup>36</sup> But he that sinneth against me wrongeth his own soul: all they that hate me love death.  
+> **³²** Now therefore hearken unto me, O ye children: for blessed *are they that* keep my ways.  
+> **³³** Hear instruction, and be wise, and refuse it not.  
+> **³⁴** Blessed *is* the man that heareth me, watching daily at my gates, waiting at the posts of my doors.  
+> **³⁵** For whoso findeth me findeth life, and shall obtain favour of the LORD.  
+> **³⁶** But he that sinneth against me wrongeth his own soul: all they that hate me love death.  
 
 We have here the application of Wisdom's discourse; the design and tendency of it is to bring us all into an entire subjection to the laws of religion, to make us wise and good, not to fill our heads with speculations, or our tongues with disputes, but to rectify what is amiss in our hearts and lives. In order to this, here is,
 

@@ -8,18 +8,18 @@ We have four things in the story of this chapter. I. A war with the king of Sodo
 
 ## Lot Taken Captive. (b. c. 1913.)
 
-> <sup>1</sup> And it came to pass in the days of Amraphel king of Shinar, Arioch king of Ellasar, Chedorlaomer king of Elam, and Tidal king of nations;  
-> <sup>2</sup> *That these* made war with Bera king of Sodom, and with Birsha king of Gomorrah, Shinab king of Admah, and Shemeber king of Zeboiim, and the king of Bela, which is Zoar.  
-> <sup>3</sup> All these were joined together in the vale of Siddim, which is the salt sea.  
-> <sup>4</sup> Twelve years they served Chedorlaomer, and in the thirteenth year they rebelled.  
-> <sup>5</sup> And in the fourteenth year came Chedorlaomer, and the kings that *were* with him, and smote the Rephaims in Ashteroth Karnaim, and the Zuzims in Ham, and the Emims in Shaveh Kiriathaim,  
-> <sup>6</sup> And the Horites in their mount Seir, unto El-paran, which *is* by the wilderness.  
-> <sup>7</sup> And they returned, and came to En-mishpat, which *is* Kadesh, and smote all the country of the Amalekites, and also the Amorites, that dwelt in Hazezontamar.  
-> <sup>8</sup> And there went out the king of Sodom, and the king of Gomorrah, and the king of Admah, and the king of Zeboiim, and the king of Bela (the same *is* Zoar;) and they joined battle with them in the vale of Siddim;  
-> <sup>9</sup> With Chedorlaomer the king of Elam, and with Tidal king of nations, and Amraphel king of Shinar, and Arioch king of Ellasar; four kings with five.  
-> <sup>10</sup> And the vale of Siddim *was full of* slimepits; and the kings of Sodom and Gomorrah fled, and fell there; and they that remained fled to the mountain.  
-> <sup>11</sup> And they took all the goods of Sodom and Gomorrah, and all their victuals, and went their way.  
-> <sup>12</sup> And they took Lot, Abram's brother's son, who dwelt in Sodom, and his goods, and departed.  
+> **¹** And it came to pass in the days of Amraphel king of Shinar, Arioch king of Ellasar, Chedorlaomer king of Elam, and Tidal king of nations;  
+> **²** *That these* made war with Bera king of Sodom, and with Birsha king of Gomorrah, Shinab king of Admah, and Shemeber king of Zeboiim, and the king of Bela, which is Zoar.  
+> **³** All these were joined together in the vale of Siddim, which is the salt sea.  
+> **⁴** Twelve years they served Chedorlaomer, and in the thirteenth year they rebelled.  
+> **⁵** And in the fourteenth year came Chedorlaomer, and the kings that *were* with him, and smote the Rephaims in Ashteroth Karnaim, and the Zuzims in Ham, and the Emims in Shaveh Kiriathaim,  
+> **⁶** And the Horites in their mount Seir, unto El-paran, which *is* by the wilderness.  
+> **⁷** And they returned, and came to En-mishpat, which *is* Kadesh, and smote all the country of the Amalekites, and also the Amorites, that dwelt in Hazezontamar.  
+> **⁸** And there went out the king of Sodom, and the king of Gomorrah, and the king of Admah, and the king of Zeboiim, and the king of Bela (the same *is* Zoar;) and they joined battle with them in the vale of Siddim;  
+> **⁹** With Chedorlaomer the king of Elam, and with Tidal king of nations, and Amraphel king of Shinar, and Arioch king of Ellasar; four kings with five.  
+> **¹⁰** And the vale of Siddim *was full of* slimepits; and the kings of Sodom and Gomorrah fled, and fell there; and they that remained fled to the mountain.  
+> **¹¹** And they took all the goods of Sodom and Gomorrah, and all their victuals, and went their way.  
+> **¹²** And they took Lot, Abram's brother's son, who dwelt in Sodom, and his goods, and departed.  
 
 We have here an account of the first war that ever we read of in scripture, which (though the wars of the nations make the greatest figure in history) we should not have had the history of if Abram and Lot had not been concerned in it. Now, concerning this war, we may observe,
 
@@ -31,10 +31,10 @@ III\. The progress and success of the war. The four kings laid the neighbouring 
 
 ## Lot Taken Captive, and Rescued. (b. c. 1913.)
 
-> <sup>13</sup> And there came one that had escaped, and told Abram the Hebrew; for he dwelt in the plain of Mamre the Amorite, brother of Eshcol, and brother of Aner: and these *were* confederate with Abram.  
-> <sup>14</sup> And when Abram heard that his brother was taken captive, he armed his trained *servants,* born in his own house, three hundred and eighteen, and pursued *them* unto Dan.  
-> <sup>15</sup> And he divided himself against them, he and his servants, by night, and smote them, and pursued them unto Hobah, which *is* on the left hand of Damascus.  
-> <sup>16</sup> And he brought back all the goods, and also brought again his brother Lot, and his goods, and the women also, and the people.  
+> **¹³** And there came one that had escaped, and told Abram the Hebrew; for he dwelt in the plain of Mamre the Amorite, brother of Eshcol, and brother of Aner: and these *were* confederate with Abram.  
+> **¹⁴** And when Abram heard that his brother was taken captive, he armed his trained *servants,* born in his own house, three hundred and eighteen, and pursued *them* unto Dan.  
+> **¹⁵** And he divided himself against them, he and his servants, by night, and smote them, and pursued them unto Hobah, which *is* on the left hand of Damascus.  
+> **¹⁶** And he brought back all the goods, and also brought again his brother Lot, and his goods, and the women also, and the people.  
 
 We have here an account of the only military action we ever find Abram engaged in, and this he was prompted to, not by his avarice or ambition, but purely by a principle of charity; it was not to enrich himself, but to help his friend. Never was any military expedition undertaken, prosecuted, and finished, more honourably than this of Abram's. Here we have,
 
@@ -54,10 +54,10 @@ V\. His success was very considerable, Ge 14:15,16. He defeated his enemies, and
 
 ## Abram's Interview with Melchizedek. (b. c. 1913.)
 
-> <sup>17</sup> And the king of Sodom went out to meet him after his return from the slaughter of Chedorlaomer, and of the kings that *were* with him, at the valley of Shaveh, which *is* the king's dale.  
-> <sup>18</sup> And Melchizedek king of Salem brought forth bread and wine: and he *was* the priest of the most high God.  
-> <sup>19</sup> And he blessed him, and said, Blessed *be* Abram of the most high God, possessor of heaven and earth:  
-> <sup>20</sup> And blessed be the most high God, which hath delivered thine enemies into thy hand. And he gave him tithes of all.  
+> **¹⁷** And the king of Sodom went out to meet him after his return from the slaughter of Chedorlaomer, and of the kings that *were* with him, at the valley of Shaveh, which *is* the king's dale.  
+> **¹⁸** And Melchizedek king of Salem brought forth bread and wine: and he *was* the priest of the most high God.  
+> **¹⁹** And he blessed him, and said, Blessed *be* Abram of the most high God, possessor of heaven and earth:  
+> **²⁰** And blessed be the most high God, which hath delivered thine enemies into thy hand. And he gave him tithes of all.  
 
 This paragraph begins with the mention of the respect which the king of Sodom paid to Abram at his return from the slaughter of the kings; but, before a particular account is given of this, the story of Melchizedek is briefly related, concerning whom observe,
 
@@ -71,10 +71,10 @@ IV\. What was done to him: *Abram gave him tithes of all,* that is, of the spoil
 
 ## Abram's Disinterestedness. (b. c. 1913.)
 
-> <sup>21</sup> And the king of Sodom said unto Abram, Give me the persons, and take the goods to thyself.  
-> <sup>22</sup> And Abram said to the king of Sodom, I have lift up mine hand unto the LORD, the most high God, the possessor of heaven and earth,  
-> <sup>23</sup> That I will not *take* from a thread even to a shoelatchet, and that I will not take any thing that *is* thine, lest thou shouldest say, I have made Abram rich:  
-> <sup>24</sup> Save only that which the young men have eaten, and the portion of the men which went with me, Aner, Eshcol, and Mamre; let them take their portion.  
+> **²¹** And the king of Sodom said unto Abram, Give me the persons, and take the goods to thyself.  
+> **²²** And Abram said to the king of Sodom, I have lift up mine hand unto the LORD, the most high God, the possessor of heaven and earth,  
+> **²³** That I will not *take* from a thread even to a shoelatchet, and that I will not take any thing that *is* thine, lest thou shouldest say, I have made Abram rich:  
+> **²⁴** Save only that which the young men have eaten, and the portion of the men which went with me, Aner, Eshcol, and Mamre; let them take their portion.  
 
 We have here an account of what passed between Abram and the king of Sodom, who succeeded him that fell in the battle (Ge 14:10), and thought himself obliged to do this honour to Abram, in return for the good services he had done him. Here is,
 

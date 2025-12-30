@@ -8,60 +8,60 @@ In this chapter we have an account of the posterity of Esau, who, from him, were
 
 ## The Generations of Esau. (b. c. 1780.)
 
-> <sup>1</sup> Now these *are* the generations of Esau, who *is* Edom.  
-> <sup>2</sup> Esau took his wives of the daughters of Canaan; Adah the daughter of Elon the Hittite, and Aholibamah the daughter of Anah the daughter of Zibeon the Hivite;  
-> <sup>3</sup> And Bashemath Ishmael's daughter, sister of Nebajoth.  
-> <sup>4</sup> And Adah bare to Esau Eliphaz; and Bashemath bare Reuel;  
-> <sup>5</sup> And Aholibamah bare Jeush, and Jaalam, and Korah: these *are* the sons of Esau, which were born unto him in the land of Canaan.  
-> <sup>6</sup> And Esau took his wives, and his sons, and his daughters, and all the persons of his house, and his cattle, and all his beasts, and all his substance, which he had got in the land of Canaan; and went into the country from the face of his brother Jacob.  
-> <sup>7</sup> For their riches were more than that they might dwell together; and the land wherein they were strangers could not bear them because of their cattle.  
-> <sup>8</sup> Thus dwelt Esau in mount Seir: Esau *is* Edom.  
+> **¹** Now these *are* the generations of Esau, who *is* Edom.  
+> **²** Esau took his wives of the daughters of Canaan; Adah the daughter of Elon the Hittite, and Aholibamah the daughter of Anah the daughter of Zibeon the Hivite;  
+> **³** And Bashemath Ishmael's daughter, sister of Nebajoth.  
+> **⁴** And Adah bare to Esau Eliphaz; and Bashemath bare Reuel;  
+> **⁵** And Aholibamah bare Jeush, and Jaalam, and Korah: these *are* the sons of Esau, which were born unto him in the land of Canaan.  
+> **⁶** And Esau took his wives, and his sons, and his daughters, and all the persons of his house, and his cattle, and all his beasts, and all his substance, which he had got in the land of Canaan; and went into the country from the face of his brother Jacob.  
+> **⁷** For their riches were more than that they might dwell together; and the land wherein they were strangers could not bear them because of their cattle.  
+> **⁸** Thus dwelt Esau in mount Seir: Esau *is* Edom.  
 
 Observe here, 1. Concerning Esau himself, Ge 36:1. He is called *Edom* (and again, Ge 36:8), that name by which was perpetuated the remembrance of the foolish bargain he made, when he sold his birthright for *that red, that red pottage.* The very mention of that name is enough to intimate the reason why his family is turned off with such a short account. Note, If men do a wrong thing they must thank themselves, when it is, long afterwards, remembered against them to their reproach. 2. Concerning his wives, and the children they bore him in the land of Canaan. He had three wives, and, by them all, but five sons: many a one has more by one wife. God in his providence often disappoints those who take indirect courses to build up a family; yet here the promise prevailed, and Esau's family was built up. 3. Concerning his removal to mount Seir, which was the country God had given him for a possession, when he reserved Canaan for the seed of Jacob. God owns it, long afterwards: *I gave to Esau mount Seir* (De 2:5, Jos 24:4), which was the reason why the Edomites must not be disturbed in their possession. Those that have not a right by promise, such as Jacob had, to Canaan, may have a very good title by providence to their estates, such as Esau had to mount Seir. Esau had begun to settle among his wives' relations, in Seir, before Jacob came from Padan-aram, Ge 32:3. Isaac, it is likely, had sent him thither (as Abraham in his life-time had sent the sons of the concubines from Isaac his son into the east country, Ge 26:6), that Jacob might have the clearer way made for him to the possession of the promised land. During the life of Isaac, however, Esau had probably still some effects remaining in Canaan; but, after his death, he wholly withdrew to mount Seir, took with him what came to his share of his father's personal estate, and left Canaan to Jacob, not only because he had the promise of it, but because Esau perceived that if they should continue to thrive as they had begun there would not be room for both. *Thus dwelt Esau in Mount Seir,* Ge 36:8. Note, Whatever opposition may be made, God's word will be accomplished, and even those that have opposed it will see themselves, some time or other, under a necessity of yielding to it, and acquiescing in it. Esau had struggled for Canaan, but now he tamely retires to mount Seir; for God's counsels shall certainly stand, concerning the times before appointed, and the bounds of our habitation.
 
 ## The Dukes of Edom. (b. c. 1729.)
 
-> <sup>9</sup> And these *are* the generations of Esau the father of the Edomites in mount Seir:  
-> <sup>10</sup> These *are* the names of Esau's sons; Eliphaz the son of Adah the wife of Esau, Reuel the son of Bashemath the wife of Esau.  
-> <sup>11</sup> And the sons of Eliphaz were Teman, Omar, Zepho, and Gatam, and Kenaz.  
-> <sup>12</sup> And Timna was concubine to Eliphaz Esau's son; and she bare to Eliphaz Amalek: these *were* the sons of Adah Esau's wife.  
-> <sup>13</sup> And these *are* the sons of Reuel; Nahath, and Zerah, Shammah, and Mizzah: these were the sons of Bashemath Esau's wife.  
-> <sup>14</sup> And these were the sons of Aholibamah, the daughter of Anah the daughter of Zibeon, Esau's wife: and she bare to Esau Jeush, and Jaalam, and Korah.  
-> <sup>15</sup> These *were* dukes of the sons of Esau: the sons of Eliphaz the firstborn *son* of Esau; duke Teman, duke Omar, duke Zepho, duke Kenaz,  
-> <sup>16</sup> Duke Korah, duke Gatam, *and* duke Amalek: these *are* the dukes *that came* of Eliphaz in the land of Edom; these *were* the sons of Adah.  
-> <sup>17</sup> And these *are* the sons of Reuel Esau's son; duke Nahath, duke Zerah, duke Shammah, duke Mizzah: these *are* the dukes *that came* of Reuel in the land of Edom; these *are* the sons of Bashemath Esau's wife.  
-> <sup>18</sup> And these *are* the sons of Aholibamah Esau's wife; duke Jeush, duke Jaalam, duke Korah: these *were* the dukes *that came* of Aholibamah the daughter of Anah, Esau's wife.  
-> <sup>19</sup> These *are* the sons of Esau, who *is* Edom, and these *are* their dukes.  
+> **⁹** And these *are* the generations of Esau the father of the Edomites in mount Seir:  
+> **¹⁰** These *are* the names of Esau's sons; Eliphaz the son of Adah the wife of Esau, Reuel the son of Bashemath the wife of Esau.  
+> **¹¹** And the sons of Eliphaz were Teman, Omar, Zepho, and Gatam, and Kenaz.  
+> **¹²** And Timna was concubine to Eliphaz Esau's son; and she bare to Eliphaz Amalek: these *were* the sons of Adah Esau's wife.  
+> **¹³** And these *are* the sons of Reuel; Nahath, and Zerah, Shammah, and Mizzah: these were the sons of Bashemath Esau's wife.  
+> **¹⁴** And these were the sons of Aholibamah, the daughter of Anah the daughter of Zibeon, Esau's wife: and she bare to Esau Jeush, and Jaalam, and Korah.  
+> **¹⁵** These *were* dukes of the sons of Esau: the sons of Eliphaz the firstborn *son* of Esau; duke Teman, duke Omar, duke Zepho, duke Kenaz,  
+> **¹⁶** Duke Korah, duke Gatam, *and* duke Amalek: these *are* the dukes *that came* of Eliphaz in the land of Edom; these *were* the sons of Adah.  
+> **¹⁷** And these *are* the sons of Reuel Esau's son; duke Nahath, duke Zerah, duke Shammah, duke Mizzah: these *are* the dukes *that came* of Reuel in the land of Edom; these *are* the sons of Bashemath Esau's wife.  
+> **¹⁸** And these *are* the sons of Aholibamah Esau's wife; duke Jeush, duke Jaalam, duke Korah: these *were* the dukes *that came* of Aholibamah the daughter of Anah, Esau's wife.  
+> **¹⁹** These *are* the sons of Esau, who *is* Edom, and these *are* their dukes.  
 
 Observe here, 1. That only the names of Esau's sons and grandsons are recorded, only their names, not their history; for it is the church that Moses preserves the records of, not the record of those that are without. Those elders that lived by faith alone obtained a good report. It is Sion that produces the men of renown, not Seir, Ps 87:5. Nor does the genealogy go any further than the third and fourth generation; the very names of all after are buried in oblivion. It is only the pedigree of the Israelites, who were to be the heirs of Canaan, and of whom were to come the promised seed, and the holy seed, that is drawn out to any length, as far as there was occasion for it, even of all the tribes till Canaan was divided among them, and of the royal line till Christ came. 2. That these sons and grandsons of Esau are called *dukes,* Ge 36:15-19. Probably they were military commanders, dukes, or captains, that had soldiers under them; for Esau and his family lived *by the sword,* Ge 27:40. Note, Titles of honour have been more ancient out of the church than in it. Esau's sons were dukes when Jacob's sons were but plain shepherds, Ge 47:3. This is not a reason why such titles should not be used among Christians; but it is a reason why men should not overvalue themselves, or others, for the sake of them. There is an honour that comes from God, and a name in his house that is infinitely more valuable. Edomites may be dukes with men, but Israelites indeed are made to our God kings and priests. 3. We may suppose those dukes had numerous families of children and servants that were their dukedoms. God promised to multiply Jacob, and to enrich him; yet Esau increases, and is enriched first. Note, It is no new thing for the men of this world to be full of children, and to have their bellies too *filled with hidden treasures,* Ps 17:14. God's promise to Jacob began to work late, but the effect of it remained longer, and it had its complete accomplishment in the spiritual Israel.
 
-> <sup>20</sup> These *are* the sons of Seir the Horite, who inhabited the land; Lotan, and Shobal, and Zibeon, and Anah,  
-> <sup>21</sup> And Dishon, and Ezer, and Dishan: these *are* the dukes of the Horites, the children of Seir in the land of Edom.  
-> <sup>22</sup> And the children of Lotan were Hori and Hemam; and Lotan's sister *was* Timna.  
-> <sup>23</sup> And the children of Shobal *were* these; Alvan, and Manahath, and Ebal, Shepho, and Onam.  
-> <sup>24</sup> And these *are* the children of Zibeon; both Ajah, and Anah: this *was that* Anah that found the mules in the wilderness, as he fed the asses of Zibeon his father.  
-> <sup>25</sup> And the children of Anah *were* these; Dishon, and Aholibamah the daughter of Anah.  
-> <sup>26</sup> And these *are* the children of Dishon; Hemdan, and Eshban, and Ithran, and Cheran.  
-> <sup>27</sup> The children of Ezer *are* these; Bilhan, and Zaavan, and Akan.  
-> <sup>28</sup> The children of Dishan *are* these; Uz, and Aran.  
-> <sup>29</sup> These *are* the dukes *that came* of the Horites; duke Lotan, duke Shobal, duke Zibeon, duke Anah,  
-> <sup>30</sup> Duke Dishon, duke Ezer, duke Dishan: these *are* the dukes *that came* of Hori, among their dukes in the land of Seir.  
+> **²⁰** These *are* the sons of Seir the Horite, who inhabited the land; Lotan, and Shobal, and Zibeon, and Anah,  
+> **²¹** And Dishon, and Ezer, and Dishan: these *are* the dukes of the Horites, the children of Seir in the land of Edom.  
+> **²²** And the children of Lotan were Hori and Hemam; and Lotan's sister *was* Timna.  
+> **²³** And the children of Shobal *were* these; Alvan, and Manahath, and Ebal, Shepho, and Onam.  
+> **²⁴** And these *are* the children of Zibeon; both Ajah, and Anah: this *was that* Anah that found the mules in the wilderness, as he fed the asses of Zibeon his father.  
+> **²⁵** And the children of Anah *were* these; Dishon, and Aholibamah the daughter of Anah.  
+> **²⁶** And these *are* the children of Dishon; Hemdan, and Eshban, and Ithran, and Cheran.  
+> **²⁷** The children of Ezer *are* these; Bilhan, and Zaavan, and Akan.  
+> **²⁸** The children of Dishan *are* these; Uz, and Aran.  
+> **²⁹** These *are* the dukes *that came* of the Horites; duke Lotan, duke Shobal, duke Zibeon, duke Anah,  
+> **³⁰** Duke Dishon, duke Ezer, duke Dishan: these *are* the dukes *that came* of Hori, among their dukes in the land of Seir.  
 
 In the midst of this genealogy of the Edomites here is inserted the genealogy of the Horites, those Canaanites, or Hittites (compare Ge 26:34), that were the natives of Mount Seir. Mention is made of them, Ge 14:6, and of their interest in Mount Seir, before the Edomites took possession of it, De 2:12,22. This comes in here, not only to give light to the story, but to be a standing reflection upon the Edomites for intermarrying with them, by which, it is probable, they learned their way, and corrupted themselves. Esau having sold his birthright, and lost his blessing, and entered into alliance with the Hittites, his posterity and the sons of Seir are here reckoned together. Note, Those that treacherously desert God's church are justly numbered with those that were never in it; apostate Edomites stand on the same ground with accursed Horites. Particular notice is taken of one Anah who fed the asses of Zibeon his father (Ge 36:24), and yet is called *duke Anah,* Ge 36:29. Note, Those that expect to rise high should begin low. An honourable descent should not keep men from an honest employment, nor a mean employment hinder any man's preferment. This Anah was not only industrious in his business, but ingenious too, and successful; for he found *mules,* or (as some read it) *waters, hot-baths,* in the wilderness. Those that are diligent in their business sometimes find more advantages than they expected.
 
-> <sup>31</sup> And these *are* the kings that reigned in the land of Edom, before there reigned any king over the children of Israel.  
-> <sup>32</sup> And Bela the son of Beor reigned in Edom: and the name of his city *was* Dinhabah.  
-> <sup>33</sup> And Bela died, and Jobab the son of Zerah of Bozrah reigned in his stead.  
-> <sup>34</sup> And Jobab died, and Husham of the land of Temani reigned in his stead.  
-> <sup>35</sup> And Husham died, and Hadad the son of Bedad, who smote Midian in the field of Moab, reigned in his stead: and the name of his city *was* Avith.  
-> <sup>36</sup> And Hadad died, and Samlah of Masrekah reigned in his stead.  
-> <sup>37</sup> And Samlah died, and Saul of Rehoboth *by* the river reigned in his stead.  
-> <sup>38</sup> And Saul died, and Baal-hanan the son of Achbor reigned in his stead.  
-> <sup>39</sup> And Baal-hanan the son of Achbor died, and Hadar reigned in his stead: and the name of his city *was* Pau; and his wife's name *was* Mehetabel, the daughter of Matred, the daughter of Mezahab.  
-> <sup>40</sup> And these *are* the names of the dukes *that came* of Esau, according to their families, after their places, by their names; duke Timnah, duke Alvah, duke Jetheth,  
-> <sup>41</sup> Duke Aholibamah, duke Elah, duke Pinon,  
-> <sup>42</sup> Duke Kenaz, duke Teman, duke Mibzar,  
-> <sup>43</sup> Duke Magdiel, duke Iram: these *be* the dukes of Edom, according to their habitations in the land of their possession: he *is* Esau the father of the Edomites.  
+> **³¹** And these *are* the kings that reigned in the land of Edom, before there reigned any king over the children of Israel.  
+> **³²** And Bela the son of Beor reigned in Edom: and the name of his city *was* Dinhabah.  
+> **³³** And Bela died, and Jobab the son of Zerah of Bozrah reigned in his stead.  
+> **³⁴** And Jobab died, and Husham of the land of Temani reigned in his stead.  
+> **³⁵** And Husham died, and Hadad the son of Bedad, who smote Midian in the field of Moab, reigned in his stead: and the name of his city *was* Avith.  
+> **³⁶** And Hadad died, and Samlah of Masrekah reigned in his stead.  
+> **³⁷** And Samlah died, and Saul of Rehoboth *by* the river reigned in his stead.  
+> **³⁸** And Saul died, and Baal-hanan the son of Achbor reigned in his stead.  
+> **³⁹** And Baal-hanan the son of Achbor died, and Hadar reigned in his stead: and the name of his city *was* Pau; and his wife's name *was* Mehetabel, the daughter of Matred, the daughter of Mezahab.  
+> **⁴⁰** And these *are* the names of the dukes *that came* of Esau, according to their families, after their places, by their names; duke Timnah, duke Alvah, duke Jetheth,  
+> **⁴¹** Duke Aholibamah, duke Elah, duke Pinon,  
+> **⁴²** Duke Kenaz, duke Teman, duke Mibzar,  
+> **⁴³** Duke Magdiel, duke Iram: these *be* the dukes of Edom, according to their habitations in the land of their possession: he *is* Esau the father of the Edomites.  
 
 By degrees, it seems, the Edomites wormed out the Horites, obtained full possession of the country, and had a government of their own. 1. They were ruled by kings, who governed the whole country, and seem to have come to the throne by election, and not by lineal descent; so bishop Patrick observes. These kings reigned in *Edom before there reigned any king over the children of Israel,* that is, before Moses's time, for *he was king in Jeshurun,* De 33:5. God had lately promised *Jacob that kings should come out of his loins* (Ge 35:11), yet Esau's blood becomes royal long before any of Jacob's did. Note, In external prosperity and honour, the children of the covenant are often cast behind, and those that are out of covenant get the start. The triumphing of the wicked may be quick, but it is short; soon ripe, and as soon rotten: but the products of the promise, though they are slow, are sure and lasting; *at the end it shall speak, and not lie.* We may suppose it was a great trial to the faith of God's Israel to hear of the pomp and power of the kings of Edom, while they were bond-slaves in Egypt; but those that look for great things from God must be content to wait for them; God's time is the best time. 2. They were afterwards governed by dukes, again here named, who, I suppose, ruled all at the same time in several places in the country. Either they set up this form of government in conformity to the Horites, who had used it (Ge 36:29), or God's providence reduced them to it, as some conjecture, to correct them for their unkindness to Israel, in refusing them a passage though their country, Nu 20:18. Note, When power is abused, it is just with God to weaken it, by turning it into divers channels. *For the transgression of a land, many are the princes thereof.* Sin brought Edom from kings to dukes, from crowns to coronets. We read of the dukes of Edom (Ex 15:15), yet, long afterwards, of their kings again. 3. Mount Seir is called *the land of their possession,* Ge 36:43. While the Israelites dwelt in the house of bondage, and their Canaan was only the land of promise, the Edomites dwelt in their own habitations, and Seir was in their possession. Note, The children of this world have their all in hand, and nothing in hope (Lu 16:25); while the children of God have their all in hope, and next to nothing in hand. But, all things considered, it is better to have Canaan in promise than mount Seir in possession.
 

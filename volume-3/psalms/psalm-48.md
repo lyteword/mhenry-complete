@@ -10,13 +10,13 @@ This psalm, as the two former, is a triumphant song; some think it was penned on
 
 A song *and* psalm for the sons of Korah.
 
-> <sup>1</sup> Great *is* the LORD, and greatly to be praised in the city of our God, *in* the mountain of his holiness.  
-> <sup>2</sup> Beautiful for situation, the joy of the whole earth, *is* mount Zion, *on* the sides of the north, the city of the great King.  
-> <sup>3</sup> God is known in her palaces for a refuge.  
-> <sup>4</sup> For, lo, the kings were assembled, they passed by together.  
-> <sup>5</sup> They saw *it, and* so they marvelled; they were troubled, *and* hasted away.  
-> <sup>6</sup> Fear took hold upon them there, *and* pain, as of a woman in travail.  
-> <sup>7</sup> Thou breakest the ships of Tarshish with an east wind.  
+> **¹** Great *is* the LORD, and greatly to be praised in the city of our God, *in* the mountain of his holiness.  
+> **²** Beautiful for situation, the joy of the whole earth, *is* mount Zion, *on* the sides of the north, the city of the great King.  
+> **³** God is known in her palaces for a refuge.  
+> **⁴** For, lo, the kings were assembled, they passed by together.  
+> **⁵** They saw *it, and* so they marvelled; they were troubled, *and* hasted away.  
+> **⁶** Fear took hold upon them there, *and* pain, as of a woman in travail.  
+> **⁷** Thou breakest the ships of Tarshish with an east wind.  
 
 The psalmist is designing to praise Jerusalem and to set forth the grandeur of that city; but he begins with the praises of God and his greatness (Ps 48:1), and ends with the praises of God and his goodness, Ps 48:14. For, whatever is the subject of our praises, God must be both the Alpha and Omega of them. And, particularly, whatever is said to the honour of the church must redound to the honour of the church's God.
 
@@ -28,13 +28,13 @@ II\. That the kings of the earth were afraid of it. That God was known in their 
 
 ## God's Care of His Church.
 
-> <sup>8</sup> As we have heard, so have we seen in the city of the LORD of hosts, in the city of our God: God will establish it for ever. Selah.  
-> <sup>9</sup> We have thought of thy lovingkindness, O God, in the midst of thy temple.  
-> <sup>10</sup> According to thy name, O God, so *is* thy praise unto the ends of the earth: thy right hand is full of righteousness.  
-> <sup>11</sup> Let mount Zion rejoice, let the daughters of Judah be glad, because of thy judgments.  
-> <sup>12</sup> Walk about Zion, and go round about her: tell the towers thereof.  
-> <sup>13</sup> Mark ye well her bulwarks, consider her palaces; that ye may tell *it* to the generation following.  
-> <sup>14</sup> For this God *is* our God for ever and ever: he will be our guide *even* unto death.  
+> **⁸** As we have heard, so have we seen in the city of the LORD of hosts, in the city of our God: God will establish it for ever. Selah.  
+> **⁹** We have thought of thy lovingkindness, O God, in the midst of thy temple.  
+> **¹⁰** According to thy name, O God, so *is* thy praise unto the ends of the earth: thy right hand is full of righteousness.  
+> **¹¹** Let mount Zion rejoice, let the daughters of Judah be glad, because of thy judgments.  
+> **¹²** Walk about Zion, and go round about her: tell the towers thereof.  
+> **¹³** Mark ye well her bulwarks, consider her palaces; that ye may tell *it* to the generation following.  
+> **¹⁴** For this God *is* our God for ever and ever: he will be our guide *even* unto death.  
 
 We have here the good use and improvement which the people of God are taught to make of his late glorious and gracious appearances for them against their enemies, that they might work for their good.
 

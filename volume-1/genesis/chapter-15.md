@@ -8,7 +8,7 @@ In this chapter we have a solemn treaty between God and Abram concerning a coven
 
 ## God's Covenant with Abram. (b. c. 1913.)
 
-> <sup>1</sup> After these things the word of the LORD came unto Abram in a vision, saying, Fear not, Abram: I *am* thy shield, *and* thy exceeding great reward.  
+> **¹** After these things the word of the LORD came unto Abram in a vision, saying, Fear not, Abram: I *am* thy shield, *and* thy exceeding great reward.  
 
 Observe here, I. The time when God made this treaty with Abram: *After these things.* 1. After that famous act of generous charity which Abram had done, in rescuing his friends and neighbours out of distress, and that, *not for price nor reward.* After this, God made him this gracious visit. Note, Those that show favour to men shall find favour with God. 2. After that victory which he had obtained over four kings. Lest Abram should be too much elevated and pleased with that, God comes to him, to tell him he had better things in store for him. Note, A believing converse with spiritual blessings is an excellent means to keep us from being too much taken up with temporal enjoyments. The gifts of common providence are not comparable to those of covenant love.
 
@@ -22,11 +22,11 @@ III\. The gracious assurance God gave him of his favour to him.
 
 3\. He assured him of safety and happiness, that he should for ever be, (1.) As safe as God himself could keep him: *I am thy shield,* or, somewhat more emphatically, *I am a shield to thee,* present with thee, actually caring for thee. See 1Ch 17:24. Not only the God of Israel, but a God to Israel. Note, The consideration of this, that God himself is, and will be, a shield to his people to secure them from all destructive evils, a shield ready to them and a shield round about them, should be sufficient to silence all their perplexing tormenting fears. (2.) As happy as God himself could make him: I will be *thy exceedingly great reward;* not only thy rewarder, but thy reward. Abram had generously refused the rewards which the king of Sodom offered him, and here God comes, and tells him he shall be no loser by it. Note, [1.] The rewards of believing obedience and self-denial are exceedingly great, 1Co 2:9. [2.] God himself is the chosen and promised felicity of holy souls—chosen in this world, promised in a better. He is the *portion of their inheritance and their cup.*
 
-> <sup>2</sup> And Abram said, Lord GOD, what wilt thou give me, seeing I go childless, and the steward of my house *is* this Eliezer of Damascus?  
-> <sup>3</sup> And Abram said, Behold, to me thou hast given no seed: and, lo, one born in my house is mine heir.  
-> <sup>4</sup> And, behold, the word of the LORD *came* unto him, saying, This shall not be thine heir; but he that shall come forth out of thine own bowels shall be thine heir.  
-> <sup>5</sup> And he brought him forth abroad, and said, Look now toward heaven, and tell the stars, if thou be able to number them: and he said unto him, So shall thy seed be.  
-> <sup>6</sup> And he believed in the LORD; and he counted it to him for righteousness.  
+> **²** And Abram said, Lord GOD, what wilt thou give me, seeing I go childless, and the steward of my house *is* this Eliezer of Damascus?  
+> **³** And Abram said, Behold, to me thou hast given no seed: and, lo, one born in my house is mine heir.  
+> **⁴** And, behold, the word of the LORD *came* unto him, saying, This shall not be thine heir; but he that shall come forth out of thine own bowels shall be thine heir.  
+> **⁵** And he brought him forth abroad, and said, Look now toward heaven, and tell the stars, if thou be able to number them: and he said unto him, So shall thy seed be.  
+> **⁶** And he believed in the LORD; and he counted it to him for righteousness.  
 
 We have here the assurance given to Abram of a numerous offspring which should descend from him, in which observe,
 
@@ -36,11 +36,11 @@ II\. God's gracious answer to this complaint. To the first part of the complaint
 
 III\. Abram's firm belief of the promise God now made him, and God's favourable acceptance of his faith, Ge 15:6. 1. He *believed in the Lord,* that is, he believed the truth of that promise which God had now made him, resting upon the irresistible power and the inviolable faithfulness of him that made it. *Hath he spoken, and shall he not make it good?* Note, Those who would have the comfort of the promises must mix faith with the promises. See how the apostle magnifies this faith of Abram, and makes it a standing example, Ro 4:19-21. *He was not weak in faith; he staggered not at the promise;* he was *strong in faith; he was fully persuaded.* The Lord work such a faith in every one of us! Some think that his believing in the Lord respected, not only the Lord promising, but the Lord promised, the Lord Jesus, the Mediator of the new covenant. He *believed in him,* that is, received and embraced the divine revelation concerning him, and *rejoiced to see his day,* though at so great a distance, Joh 8:56. 2. *God counted it to him for righteousness;* that is, upon the score of this he was accepted of God, and, as the rest of the patriarchs, by faith he *obtained witness that he was righteous,* Heb 11:4. This is urged in the New Testament to prove that we are justified by faith without the works of the law (Ro 4:4, Ga 3:6); for Abram was so justified while he was yet uncircumcised. If Abram, that was so rich in good works, was not justified by them, but by his faith, much less can we, that are so poor in them. This faith, which was imputed to Abram for righteousness, had lately struggled with unbelief (Ge 15:2), and, coming off a conqueror, it was thus crowned, thus honoured. Note, A fiducial practical acceptance of, and dependence upon, God's promise of grace and glory, in and through Christ, is that which, according to the tenour of the new covenant, gives us a right to all the blessings contained in that promise. All believers are justified as Abram was, and it was his faith that was *counted to him for righteousness.*
 
-> <sup>7</sup> And he said unto him, I *am* the LORD that brought thee out of Ur of the Chaldees, to give thee this land to inherit it.  
-> <sup>8</sup> And he said, Lord GOD, whereby shall I know that I shall inherit it?  
-> <sup>9</sup> And he said unto him, Take me an heifer of three years old, and a she goat of three years old, and a ram of three years old, and a turtledove, and a young pigeon.  
-> <sup>10</sup> And he took unto him all these, and divided them in the midst, and laid each piece one against another: but the birds divided he not.  
-> <sup>11</sup> And when the fowls came down upon the carcases, Abram drove them away.  
+> **⁷** And he said unto him, I *am* the LORD that brought thee out of Ur of the Chaldees, to give thee this land to inherit it.  
+> **⁸** And he said, Lord GOD, whereby shall I know that I shall inherit it?  
+> **⁹** And he said unto him, Take me an heifer of three years old, and a she goat of three years old, and a ram of three years old, and a turtledove, and a young pigeon.  
+> **¹⁰** And he took unto him all these, and divided them in the midst, and laid each piece one against another: but the birds divided he not.  
+> **¹¹** And when the fowls came down upon the carcases, Abram drove them away.  
 
 We have here the assurance given to Abram of the land of Canaan for an inheritance.
 
@@ -56,11 +56,11 @@ II\. Abram desires a sign: *Whereby shall I know that I shall inherit it?* Ge 15
 
 III\. God directs Abram to make preparations for a sacrifice, intending by that to give him a sign, and Abram makes preparation accordingly (Ge 15:9-11): *Take me a heifer,* etc. Perhaps Abram expected some extraordinary sign from heaven; but God gives him a sign upon a sacrifice. Note, Those that would receive the assurances of God's favour, and would have their faith confirmed, must attend instituted ordinances, and expect to meet with God in them. Observe, 1. God appointed that each of the beasts used for this service should be three years old, because then they were at their full growth and strength: God must be served with the best we have, for he is the best. 2. We do not read that God gave Abram particular directions how to manage these beasts and fowls, knowing that he was so well versed in the law and custom of sacrifices that he needed not any particular directions; or perhaps instructions were given him, which he carefully observed, thought they are not recorded: at least it was intimated to him that they must be prepared for the solemnity of ratifying a covenant; and he well knew the manner of preparing them. 3. Abram took as God appointed him, though as yet he knew not how these things should become a sign to him. This was not the first instance of Abram's implicit obedience. He divided the beasts in the midst, according to the ceremony used in confirming covenants, Jer 34:18,19, where it is said, They cut *the calf in twain, and passed between the parts.* 4. Abram, having prepared according to God's appointment, now set himself to wait for the sign God might give him by these, like the prophet upon his watch-tower, Hab 2:1. While God's appearing to own his sacrifice was deferred, Abram continued waiting, and his expectations were raised by the delay; when *the fowls came down upon the carcases* to prey upon them, as common and neglected things, *Abram drove them away* (Ge 15:11), believing that the vision would, at the end, *speak, and not lie.* Note, A very watchful eye must be kept upon our spiritual sacrifices, that nothing be suffered to prey upon them and render them unfit for God's acceptance. When vain thoughts, like these fowls, come down upon our sacrifices, we must drive them away, and not suffer them to lodge within us, but *attend on God without distraction.*
 
-> <sup>12</sup> And when the sun was going down, a deep sleep fell upon Abram; and, lo, an horror of great darkness fell upon him.  
-> <sup>13</sup> And he said unto Abram, Know of a surety that thy seed shall be a stranger in a land *that is* not theirs, and shall serve them; and they shall afflict them four hundred years;  
-> <sup>14</sup> And also that nation, whom they shall serve, will I judge: and afterward shall they come out with great substance.  
-> <sup>15</sup> And thou shalt go to thy fathers in peace; thou shalt be buried in a good old age.  
-> <sup>16</sup> But in the fourth generation they shall come hither again: for the iniquity of the Amorites *is* not yet full.  
+> **¹²** And when the sun was going down, a deep sleep fell upon Abram; and, lo, an horror of great darkness fell upon him.  
+> **¹³** And he said unto Abram, Know of a surety that thy seed shall be a stranger in a land *that is* not theirs, and shall serve them; and they shall afflict them four hundred years;  
+> **¹⁴** And also that nation, whom they shall serve, will I judge: and afterward shall they come out with great substance.  
+> **¹⁵** And thou shalt go to thy fathers in peace; thou shalt be buried in a good old age.  
+> **¹⁶** But in the fourth generation they shall come hither again: for the iniquity of the Amorites *is* not yet full.  
 
 We have here a full and particular discovery made to Abram of God's purposes concerning his seed. Observe,
 
@@ -88,11 +88,11 @@ III\. The prediction itself. Several things are here foretold.
 
 (2.) He shall be *buried in a good old age.* Perhaps mention is made of his burial here, where the land of Canaan is promised him, because a burying place was the first possession he had in it. He shall not only die in peace, but die in honour, die, and be buried decently; not only die in peace, but die in season, Job 5:26. Note, [1.] Old age is a blessing. It is promised in the fifth commandment; it is pleasing to nature; and it affords a great opportunity for usefulness. [2.] Especially, if it be a good old age. Theirs may be called a good old age, *First,* That are old and healthful, not loaded with such distempers as make them weary of life. *Secondly,* That are old and holy, old disciples (Ac 21:16), whose hoary head is *found in the way of righteousness* (Pr 16:31), old and useful, old and exemplary for godliness; theirs is indeed a good old age.
 
-> <sup>17</sup> And it came to pass, that, when the sun went down, and it was dark, behold a smoking furnace, and a burning lamp that passed between those pieces.  
-> <sup>18</sup> In the same day the LORD made a covenant with Abram, saying, Unto thy seed have I given this land, from the river of Egypt unto the great river, the river Euphrates:  
-> <sup>19</sup> The Kenites, and the Kenizzites, and the Kadmonites,  
-> <sup>20</sup> And the Hittites, and the Perizzites, and the Rephaims,  
-> <sup>21</sup> And the Amorites, and the Canaanites, and the Girgashites, and the Jebusites.  
+> **¹⁷** And it came to pass, that, when the sun went down, and it was dark, behold a smoking furnace, and a burning lamp that passed between those pieces.  
+> **¹⁸** In the same day the LORD made a covenant with Abram, saying, Unto thy seed have I given this land, from the river of Egypt unto the great river, the river Euphrates:  
+> **¹⁹** The Kenites, and the Kenizzites, and the Kadmonites,  
+> **²⁰** And the Hittites, and the Perizzites, and the Rephaims,  
+> **²¹** And the Amorites, and the Canaanites, and the Girgashites, and the Jebusites.  
 
 Here is, I. The covenant ratified (Ge 15:17); the sign which Abram desired was given, at length, when the sun had gone down, so that it was dark; for that was a dark dispensation.
 

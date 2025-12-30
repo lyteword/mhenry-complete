@@ -8,18 +8,18 @@ In this chapter we have divers excellent discourses of our Saviour's upon variou
 
 ## Christ's Charge to His Apostles.
 
-> <sup>1</sup> In the mean time, when there were gathered together an innumerable multitude of people, insomuch that they trode one upon another, he began to say unto his disciples first of all, Beware ye of the leaven of the Pharisees, which is hypocrisy.  
-> <sup>2</sup> For there is nothing covered, that shall not be revealed; neither hid, that shall not be known.  
-> <sup>3</sup> Therefore whatsoever ye have spoken in darkness shall be heard in the light; and that which ye have spoken in the ear in closets shall be proclaimed upon the housetops.  
-> <sup>4</sup> And I say unto you my friends, Be not afraid of them that kill the body, and after that have no more that they can do.  
-> <sup>5</sup> But I will forewarn you whom ye shall fear: Fear him, which after he hath killed hath power to cast into hell; yea, I say unto you, Fear him.  
-> <sup>6</sup> Are not five sparrows sold for two farthings, and not one of them is forgotten before God?  
-> <sup>7</sup> But even the very hairs of your head are all numbered. Fear not therefore: ye are of more value than many sparrows.  
-> <sup>8</sup> Also I say unto you, Whosoever shall confess me before men, him shall the Son of man also confess before the angels of God:  
-> <sup>9</sup> But he that denieth me before men shall be denied before the angels of God.  
-> <sup>10</sup> And whosoever shall speak a word against the Son of man, it shall be forgiven him: but unto him that blasphemeth against the Holy Ghost it shall not be forgiven.  
-> <sup>11</sup> And when they bring you unto the synagogues, and *unto* magistrates, and powers, take ye no thought how or what thing ye shall answer, or what ye shall say:  
-> <sup>12</sup> For the Holy Ghost shall teach you in the same hour what ye ought to say.  
+> **¹** In the mean time, when there were gathered together an innumerable multitude of people, insomuch that they trode one upon another, he began to say unto his disciples first of all, Beware ye of the leaven of the Pharisees, which is hypocrisy.  
+> **²** For there is nothing covered, that shall not be revealed; neither hid, that shall not be known.  
+> **³** Therefore whatsoever ye have spoken in darkness shall be heard in the light; and that which ye have spoken in the ear in closets shall be proclaimed upon the housetops.  
+> **⁴** And I say unto you my friends, Be not afraid of them that kill the body, and after that have no more that they can do.  
+> **⁵** But I will forewarn you whom ye shall fear: Fear him, which after he hath killed hath power to cast into hell; yea, I say unto you, Fear him.  
+> **⁶** Are not five sparrows sold for two farthings, and not one of them is forgotten before God?  
+> **⁷** But even the very hairs of your head are all numbered. Fear not therefore: ye are of more value than many sparrows.  
+> **⁸** Also I say unto you, Whosoever shall confess me before men, him shall the Son of man also confess before the angels of God:  
+> **⁹** But he that denieth me before men shall be denied before the angels of God.  
+> **¹⁰** And whosoever shall speak a word against the Son of man, it shall be forgiven him: but unto him that blasphemeth against the Holy Ghost it shall not be forgiven.  
+> **¹¹** And when they bring you unto the synagogues, and *unto* magistrates, and powers, take ye no thought how or what thing ye shall answer, or what ye shall say:  
+> **¹²** For the Holy Ghost shall teach you in the same hour what ye ought to say.  
 
 We find here, I. A vast auditory that was got together to hear Christ preach. The *scribes* and *Pharisees* sought *to accuse him,* and do him mischief; but the people, who were not under the bias of their prejudices and jealousies, still *admired* him, attended on him, and did him honour. *In the mean time* (Lu 12:1), while he was in the Pharisee's house, contending with them that sought to ensnare him, the people got together for an afternoon sermon, a sermon after *dinner,* after dinner with a Pharisee; and he would not disappoint them. Though in the morning sermon, when they were *gathered thickly together* (Lu 11:29), he had severely reproved them, as an *evil generation that seek a sign,* yet they renewed their attendance on him; so much better could the people bear *their* reproofs than the Pharisees *theirs.* The more the Pharisees strove to drive the people from Christ, the more flocking there was to him. Here was an *innumerable multitude of people gathered together, so that they trade one upon another,* in labouring to get foremost, and to come within hearing. It is a good sight to see people thus forward to hear the word, and venture upon inconvenience and danger rather than miss an opportunity for their souls. Who are these that thus *fly as the doves to their windows?* Isa 60:8. When the net is cast where there is such a multitude of fish, it may be hoped that some will be enclosed.
 
@@ -47,15 +47,15 @@ II\. The instructions which he gave his followers, in the hearing of this audito
 
 ## Worldly-mindedness Exposed.
 
-> <sup>13</sup> And one of the company said unto him, Master, speak to my brother, that he divide the inheritance with me.  
-> <sup>14</sup> And he said unto him, Man, who made me a judge or a divider over you?  
-> <sup>15</sup> And he said unto them, Take heed, and beware of covetousness: for a man's life consisteth not in the abundance of the things which he possesseth.  
-> <sup>16</sup> And he spake a parable unto them, saying, The ground of a certain rich man brought forth plentifully:  
-> <sup>17</sup> And he thought within himself, saying, What shall I do, because I have no room where to bestow my fruits?  
-> <sup>18</sup> And he said, This will I do: I will pull down my barns, and build greater; and there will I bestow all my fruits and my goods.  
-> <sup>19</sup> And I will say to my soul, Soul, thou hast much goods laid up for many years; take thine ease, eat, drink, *and* be merry.  
-> <sup>20</sup> But God said unto him, *Thou* fool, this night thy soul shall be required of thee: then whose shall those things be, which thou hast provided?  
-> <sup>21</sup> So *is* he that layeth up treasure for himself, and is not rich toward God.  
+> **¹³** And one of the company said unto him, Master, speak to my brother, that he divide the inheritance with me.  
+> **¹⁴** And he said unto him, Man, who made me a judge or a divider over you?  
+> **¹⁵** And he said unto them, Take heed, and beware of covetousness: for a man's life consisteth not in the abundance of the things which he possesseth.  
+> **¹⁶** And he spake a parable unto them, saying, The ground of a certain rich man brought forth plentifully:  
+> **¹⁷** And he thought within himself, saying, What shall I do, because I have no room where to bestow my fruits?  
+> **¹⁸** And he said, This will I do: I will pull down my barns, and build greater; and there will I bestow all my fruits and my goods.  
+> **¹⁹** And I will say to my soul, Soul, thou hast much goods laid up for many years; take thine ease, eat, drink, *and* be merry.  
+> **²⁰** But God said unto him, *Thou* fool, this night thy soul shall be required of thee: then whose shall those things be, which thou hast provided?  
+> **²¹** So *is* he that layeth up treasure for himself, and is not rich toward God.  
 
 We have in these verses,
 
@@ -105,25 +105,25 @@ III\. The necessary caution which Christ took occasion from this to give to his 
 
 ## Inordinate Care Reproved.
 
-> <sup>22</sup> And he said unto his disciples, Therefore I say unto you, Take no thought for your life, what ye shall eat; neither for the body, what ye shall put on.  
-> <sup>23</sup> The life is more than meat, and the body *is more* than raiment.  
-> <sup>24</sup> Consider the ravens: for they neither sow nor reap; which neither have storehouse nor barn; and God feedeth them: how much more are ye better than the fowls?  
-> <sup>25</sup> And which of you with taking thought can add to his stature one cubit?  
-> <sup>26</sup> If ye then be not able to do that thing which is least, why take ye thought for the rest?  
-> <sup>27</sup> Consider the lilies how they grow: they toil not, they spin not; and yet I say unto you, that Solomon in all his glory was not arrayed like one of these.  
-> <sup>28</sup> If then God so clothe the grass, which is to day in the field, and to morrow is cast into the oven; how much more *will he clothe* you, O ye of little faith?  
-> <sup>29</sup> And seek not ye what ye shall eat, or what ye shall drink, neither be ye of doubtful mind.  
-> <sup>30</sup> For all these things do the nations of the world seek after: and your Father knoweth that ye have need of these things.  
-> <sup>31</sup> But rather seek ye the kingdom of God; and all these things shall be added unto you.  
-> <sup>32</sup> Fear not, little flock; for it is your Father's good pleasure to give you the kingdom.  
-> <sup>33</sup> Sell that ye have, and give alms; provide yourselves bags which wax not old, a treasure in the heavens that faileth not, where no thief approacheth, neither moth corrupteth.  
-> <sup>34</sup> For where your treasure is, there will your heart be also.  
-> <sup>35</sup> Let your loins be girded about, and *your* lights burning;  
-> <sup>36</sup> And ye yourselves like unto men that wait for their lord, when he will return from the wedding; that when he cometh and knocketh, they may open unto him immediately.  
-> <sup>37</sup> Blessed *are* those servants, whom the lord when he cometh shall find watching: verily I say unto you, that he shall gird himself, and make them to sit down to meat, and will come forth and serve them.  
-> <sup>38</sup> And if he shall come in the second watch, or come in the third watch, and find *them* so, blessed are those servants.  
-> <sup>39</sup> And this know, that if the goodman of the house had known what hour the thief would come, he would have watched, and not have suffered his house to be broken through.  
-> <sup>40</sup> Be ye therefore ready also: for the Son of man cometh at an hour when ye think not.  
+> **²²** And he said unto his disciples, Therefore I say unto you, Take no thought for your life, what ye shall eat; neither for the body, what ye shall put on.  
+> **²³** The life is more than meat, and the body *is more* than raiment.  
+> **²⁴** Consider the ravens: for they neither sow nor reap; which neither have storehouse nor barn; and God feedeth them: how much more are ye better than the fowls?  
+> **²⁵** And which of you with taking thought can add to his stature one cubit?  
+> **²⁶** If ye then be not able to do that thing which is least, why take ye thought for the rest?  
+> **²⁷** Consider the lilies how they grow: they toil not, they spin not; and yet I say unto you, that Solomon in all his glory was not arrayed like one of these.  
+> **²⁸** If then God so clothe the grass, which is to day in the field, and to morrow is cast into the oven; how much more *will he clothe* you, O ye of little faith?  
+> **²⁹** And seek not ye what ye shall eat, or what ye shall drink, neither be ye of doubtful mind.  
+> **³⁰** For all these things do the nations of the world seek after: and your Father knoweth that ye have need of these things.  
+> **³¹** But rather seek ye the kingdom of God; and all these things shall be added unto you.  
+> **³²** Fear not, little flock; for it is your Father's good pleasure to give you the kingdom.  
+> **³³** Sell that ye have, and give alms; provide yourselves bags which wax not old, a treasure in the heavens that faileth not, where no thief approacheth, neither moth corrupteth.  
+> **³⁴** For where your treasure is, there will your heart be also.  
+> **³⁵** Let your loins be girded about, and *your* lights burning;  
+> **³⁶** And ye yourselves like unto men that wait for their lord, when he will return from the wedding; that when he cometh and knocketh, they may open unto him immediately.  
+> **³⁷** Blessed *are* those servants, whom the lord when he cometh shall find watching: verily I say unto you, that he shall gird himself, and make them to sit down to meat, and will come forth and serve them.  
+> **³⁸** And if he shall come in the second watch, or come in the third watch, and find *them* so, blessed are those servants.  
+> **³⁹** And this know, that if the goodman of the house had known what hour the thief would come, he would have watched, and not have suffered his house to be broken through.  
+> **⁴⁰** Be ye therefore ready also: for the Son of man cometh at an hour when ye think not.  
 
 Our Lord Jesus is here inculcating some needful useful lessons upon his disciples, which he had before taught them, and had occasion afterwards to press upon them; for they need to have *precept upon precept, and line upon line: "Therefore,* because there are so many that are ruined by covetousness, and an inordinate affection to the wealth of this world, *I say unto you,* my disciples, take heed of it." *Thou, O man of God, flee these things,* as well as thou, O man of the world, 1Ti 6:11.
 
@@ -167,19 +167,19 @@ III\. He charges them to get ready, and to keep in a readiness for Christ's comi
 
 ## Vigilance and Exertion Inculcated.
 
-> <sup>41</sup> Then Peter said unto him, Lord, speakest thou this parable unto us, or even to all?  
-> <sup>42</sup> And the Lord said, Who then is that faithful and wise steward, whom *his* lord shall make ruler over his household, to give *them their* portion of meat in due season?  
-> <sup>43</sup> Blessed *is* that servant, whom his lord when he cometh shall find so doing.  
-> <sup>44</sup> Of a truth I say unto you, that he will make him ruler over all that he hath.  
-> <sup>45</sup> But and if that servant say in his heart, My lord delayeth his coming; and shall begin to beat the menservants and maidens, and to eat and drink, and to be drunken;  
-> <sup>46</sup> The lord of that servant will come in a day when he looketh not for *him,* and at a hour when he is not aware, and will cut him in sunder, and will appoint him his portion with the unbelievers.  
-> <sup>47</sup> And that servant, which knew his lord's will, and prepared not *himself,* neither did according to his will, shall be beaten with many *stripes.*  
-> <sup>48</sup> But he that knew not, and did commit things worthy of stripes, shall be beaten with few *stripes.* For unto whomsoever much is given, of him shall be much required: and to whom men have committed much, of him they will ask the more.  
-> <sup>49</sup> I am come to send fire on the earth; and what will I, if it be already kindled?  
-> <sup>50</sup> But I have a baptism to be baptized with; and how am I straitened till it be accomplished!  
-> <sup>51</sup> Suppose ye that I am come to give peace on earth? I tell you, Nay; but rather division:  
-> <sup>52</sup> For from henceforth there shall be five in one house divided, three against two, and two against three.  
-> <sup>53</sup> The father shall be divided against the son, and the son against the father; the mother against the daughter, and the daughter against the mother; the mother in law against her daughter in law, and the daughter in law against her mother in law.  
+> **⁴¹** Then Peter said unto him, Lord, speakest thou this parable unto us, or even to all?  
+> **⁴²** And the Lord said, Who then is that faithful and wise steward, whom *his* lord shall make ruler over his household, to give *them their* portion of meat in due season?  
+> **⁴³** Blessed *is* that servant, whom his lord when he cometh shall find so doing.  
+> **⁴⁴** Of a truth I say unto you, that he will make him ruler over all that he hath.  
+> **⁴⁵** But and if that servant say in his heart, My lord delayeth his coming; and shall begin to beat the menservants and maidens, and to eat and drink, and to be drunken;  
+> **⁴⁶** The lord of that servant will come in a day when he looketh not for *him,* and at a hour when he is not aware, and will cut him in sunder, and will appoint him his portion with the unbelievers.  
+> **⁴⁷** And that servant, which knew his lord's will, and prepared not *himself,* neither did according to his will, shall be beaten with many *stripes.*  
+> **⁴⁸** But he that knew not, and did commit things worthy of stripes, shall be beaten with few *stripes.* For unto whomsoever much is given, of him shall be much required: and to whom men have committed much, of him they will ask the more.  
+> **⁴⁹** I am come to send fire on the earth; and what will I, if it be already kindled?  
+> **⁵⁰** But I have a baptism to be baptized with; and how am I straitened till it be accomplished!  
+> **⁵¹** Suppose ye that I am come to give peace on earth? I tell you, Nay; but rather division:  
+> **⁵²** For from henceforth there shall be five in one house divided, three against two, and two against three.  
+> **⁵³** The father shall be divided against the son, and the son against the father; the mother against the daughter, and the daughter against the mother; the mother in law against her daughter in law, and the daughter in law against her mother in law.  
 
 Here is, I. Peter's question, which he put to Christ upon occasion of the foregoing parable (Lu 12:41): "*Lord, speakest thou this parable to us* that are thy constant followers, to us that are ministers, *or also to all* that come to be taught by thee, to all the hearers, and in them to all Christians?" Peter was now, as often, spokesman for the disciples. We have reason to bless God that there are some such forward men, that have a gift of utterance; let those that are such take heed of being proud. Now Peter desires Christ to explain himself, and to direct the arrow of the foregoing parable to the mark he intended. He calls it a *parable,* because it was not only figurative, but weighty, solid, and instructive. Lord, said Peter, was it intended for *us,* or for *all?* To this Christ gives a direct answer (Mk 13:37): *What I say unto you, I say unto all.* Yet here he seems to show that the apostles were primarily concerned in it. Note, We are all concerned to take to ourselves what Christ in his word designs for us, and to enquire accordingly concerning it: *Speakest thou this to us?* To me? Speak, Lord, for thy servant hears. Doth this word belong to me? Speak it to *my heart.*
 
@@ -205,12 +205,12 @@ III\. A further discourse concerning his own sufferings, which he expected, and 
 
 ## Reconciliation to God.
 
-> <sup>54</sup> And he said also to the people, When ye see a cloud rise out of the west, straightway ye say, There cometh a shower; and so it is.  
-> <sup>55</sup> And when *ye see* the south wind blow, ye say, There will be heat; and it cometh to pass.  
-> <sup>56</sup> *Ye* hypocrites, ye can discern the face of the sky and of the earth; but how is it that ye do not discern this time?  
-> <sup>57</sup> Yea, and why even of yourselves judge ye not what is right?  
-> <sup>58</sup> When thou goest with thine adversary to the magistrate, *as thou art* in the way, give diligence that thou mayest be delivered from him; lest he hale thee to the judge, and the judge deliver thee to the officer, and the officer cast thee into prison.  
-> <sup>59</sup> I tell thee, thou shalt not depart thence, till thou hast paid the very last mite.  
+> **⁵⁴** And he said also to the people, When ye see a cloud rise out of the west, straightway ye say, There cometh a shower; and so it is.  
+> **⁵⁵** And when *ye see* the south wind blow, ye say, There will be heat; and it cometh to pass.  
+> **⁵⁶** *Ye* hypocrites, ye can discern the face of the sky and of the earth; but how is it that ye do not discern this time?  
+> **⁵⁷** Yea, and why even of yourselves judge ye not what is right?  
+> **⁵⁸** When thou goest with thine adversary to the magistrate, *as thou art* in the way, give diligence that thou mayest be delivered from him; lest he hale thee to the judge, and the judge deliver thee to the officer, and the officer cast thee into prison.  
+> **⁵⁹** I tell thee, thou shalt not depart thence, till thou hast paid the very last mite.  
 
 Having given his disciples *their* lesson in the foregoing verses, here Christ turns to *the people,* and gives them *theirs,* Lu 12:54. He *said also to the people:* he preached *ad populum—to the people,* as well as *ad clerum—to the clergy.* In general, he would have them be as wise in the affairs of their souls as they are in their outward affairs. Two things he specifies:—
 

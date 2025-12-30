@@ -8,13 +8,13 @@ In the foregoing chapter we had David conquering, yea, more than a conqueror. In
 
 ## The Death of Saul. (b. c. 1055.)
 
-> <sup>1</sup> Now the Philistines fought against Israel: and the men of Israel fled from before the Philistines, and fell down slain in mount Gilboa.  
-> <sup>2</sup> And the Philistines followed hard upon Saul and upon his sons; and the Philistines slew Jonathan, and Abinadab, and Melchi-shua, Saul's sons.  
-> <sup>3</sup> And the battle went sore against Saul, and the archers hit him; and he was sore wounded of the archers.  
-> <sup>4</sup> Then said Saul unto his armourbearer, Draw thy sword, and thrust me through therewith; lest these uncircumcised come and thrust me through, and abuse me. But his armourbearer would not; for he was sore afraid. Therefore Saul took a sword, and fell upon it.  
-> <sup>5</sup> And when his armourbearer saw that Saul was dead, he fell likewise upon his sword, and died with him.  
-> <sup>6</sup> So Saul died, and his three sons, and his armourbearer, and all his men, that same day together.  
-> <sup>7</sup> And when the men of Israel that *were* on the other side of the valley, and *they* that *were* on the other side Jordan, saw that the men of Israel fled, and that Saul and his sons were dead, they forsook the cities, and fled; and the Philistines came and dwelt in them.  
+> **¹** Now the Philistines fought against Israel: and the men of Israel fled from before the Philistines, and fell down slain in mount Gilboa.  
+> **²** And the Philistines followed hard upon Saul and upon his sons; and the Philistines slew Jonathan, and Abinadab, and Melchi-shua, Saul's sons.  
+> **³** And the battle went sore against Saul, and the archers hit him; and he was sore wounded of the archers.  
+> **⁴** Then said Saul unto his armourbearer, Draw thy sword, and thrust me through therewith; lest these uncircumcised come and thrust me through, and abuse me. But his armourbearer would not; for he was sore afraid. Therefore Saul took a sword, and fell upon it.  
+> **⁵** And when his armourbearer saw that Saul was dead, he fell likewise upon his sword, and died with him.  
+> **⁶** So Saul died, and his three sons, and his armourbearer, and all his men, that same day together.  
+> **⁷** And when the men of Israel that *were* on the other side of the valley, and *they* that *were* on the other side Jordan, saw that the men of Israel fled, and that Saul and his sons were dead, they forsook the cities, and fled; and the Philistines came and dwelt in them.  
 
 The day of recompence has now come, in which Saul must account for the blood of the Amalekites which he had sinfully spared, and that of the priests which he had more sinfully spilt; that of David too, which he would have spilt, must come into the account. Now his day has come to fall, as David foresaw, when he should descend into battle and perish, 1Sa 26:10. Come and see the *righteous judgments of God.*
 
@@ -30,12 +30,12 @@ V\. The country was put into such confusion by the rout of Saul's army that the 
 
 ## The Disposal of Saul's Body. (b. c. 1055.)
 
-> <sup>8</sup> And it came to pass on the morrow, when the Philistines came to strip the slain, that they found Saul and his three sons fallen in mount Gilboa.  
-> <sup>9</sup> And they cut off his head, and stripped off his armour, and sent into the land of the Philistines round about, to publish *it in* the house of their idols, and among the people.  
-> <sup>10</sup> And they put his armour in the house of Ashtaroth: and they fastened his body to the wall of Beth-shan.  
-> <sup>11</sup> And when the inhabitants of Jabesh-gilead heard of that which the Philistines had done to Saul;  
-> <sup>12</sup> All the valiant men arose, and went all night, and took the body of Saul and the bodies of his sons from the wall of Beth-shan, and came to Jabesh, and burnt them there.  
-> <sup>13</sup> And they took their bones, and buried *them* under a tree at Jabesh, and fasted seven days.  
+> **⁸** And it came to pass on the morrow, when the Philistines came to strip the slain, that they found Saul and his three sons fallen in mount Gilboa.  
+> **⁹** And they cut off his head, and stripped off his armour, and sent into the land of the Philistines round about, to publish *it in* the house of their idols, and among the people.  
+> **¹⁰** And they put his armour in the house of Ashtaroth: and they fastened his body to the wall of Beth-shan.  
+> **¹¹** And when the inhabitants of Jabesh-gilead heard of that which the Philistines had done to Saul;  
+> **¹²** All the valiant men arose, and went all night, and took the body of Saul and the bodies of his sons from the wall of Beth-shan, and came to Jabesh, and burnt them there.  
+> **¹³** And they took their bones, and buried *them* under a tree at Jabesh, and fasted seven days.  
 
 The scripture makes no mention of the souls of Saul and his sons, what became of them after they were dead (secret things belong not to us), but of their bodies only.
 

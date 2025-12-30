@@ -10,16 +10,16 @@ This psalm was penned upon a particular occasion, as appears by the title, and y
 
 A psalm of David when he changed his behaviour before Abimelech, who drove him away, and he departed.
 
-> <sup>1</sup> I will bless the LORD at all times: his praise *shall* continually *be* in my mouth.  
-> <sup>2</sup> My soul shall make her boast in the LORD: the humble shall hear *thereof,* and be glad.  
-> <sup>3</sup> O magnify the LORD with me, and let us exalt his name together.  
-> <sup>4</sup> I sought the LORD, and he heard me, and delivered me from all my fears.  
-> <sup>5</sup> They looked unto him, and were lightened: and their faces were not ashamed.  
-> <sup>6</sup> This poor man cried, and the LORD heard *him,* and saved him out of all his troubles.  
-> <sup>7</sup> The angel of the LORD encampeth round about them that fear him, and delivereth them.  
-> <sup>8</sup> O taste and see that the LORD *is* good: blessed *is* the man *that* trusteth in him.  
-> <sup>9</sup> O fear the LORD, ye his saints: for *there is* no want to them that fear him.  
-> <sup>10</sup> The young lions do lack, and suffer hunger: but they that seek the LORD shall not want any good *thing.*  
+> **¹** I will bless the LORD at all times: his praise *shall* continually *be* in my mouth.  
+> **²** My soul shall make her boast in the LORD: the humble shall hear *thereof,* and be glad.  
+> **³** O magnify the LORD with me, and let us exalt his name together.  
+> **⁴** I sought the LORD, and he heard me, and delivered me from all my fears.  
+> **⁵** They looked unto him, and were lightened: and their faces were not ashamed.  
+> **⁶** This poor man cried, and the LORD heard *him,* and saved him out of all his troubles.  
+> **⁷** The angel of the LORD encampeth round about them that fear him, and delivereth them.  
+> **⁸** O taste and see that the LORD *is* good: blessed *is* the man *that* trusteth in him.  
+> **⁹** O fear the LORD, ye his saints: for *there is* no want to them that fear him.  
+> **¹⁰** The young lions do lack, and suffer hunger: but they that seek the LORD shall not want any good *thing.*  
 
 The title of this psalm tells us both who penned it and upon what occasion it was penned. David, being forced to flee from his country, which was made too hot for him by the rage of Saul, sought shelter as near it as he could, in the land of the Philistines. There it was soon discovered who he was, and he was brought before the king, who, in the narrative, is called *Achish* (his proper name), here *Abimelech* (his title); and lest he should be treated as a spy, or one that came thither upon design, he feigned himself to be a madman (such there have been in every age, that even by idiots men might be taught to give God thanks for the use of their reason), that Achish might dismiss him as a contemptible man, rather than take cognizance of him as a dangerous man. And it had the effect he desired; by this stratagem he escaped the hand that otherwise would have handled him roughly. Now, 1. We cannot justify David in this dissimulation. It ill became an honest man to feign himself to be what he was not, and a man of honour to feign himself to be a fool and a mad-man. If, in sport, we mimic those who have not so good an understanding as we think we have, we forget that God might have made their case ours. 2. Yet we cannot but wonder at the composure of his spirit, and how far he was from any change of that, when he changed his behaviour. Even when he was in that fright, or rather in that danger only, his heart was so fixed, trusting in God, that even then he penned this excellent psalm, which has as much in it of the marks of a calm sedate spirit as any psalm in all the book; and there is something curious too in the composition, for it is what is called an alphabetical psalm, that is, a psalm in which every verse begins with each letter in its order as it stands in the Hebrew alphabet. Happy are those who can thus keep their temper, and keep their graces in exercise, even when they are tempted to change their behaviour. In this former part of the psalm,
 
@@ -39,18 +39,18 @@ II\. He calls upon others to join with him herein. He expects they will (Ps 34:2
 
 ## An Exhortation to Fear God; The Privileges of the Righteous.
 
-> <sup>11</sup> Come, ye children, hearken unto me: I will teach you the fear of the LORD.  
-> <sup>12</sup> What man *is he that* desireth life, *and* loveth *many* days, that he may see good?  
-> <sup>13</sup> Keep thy tongue from evil, and thy lips from speaking guile.  
-> <sup>14</sup> Depart from evil, and do good; seek peace, and pursue it.  
-> <sup>15</sup> The eyes of the LORD *are* upon the righteous, and his ears *are open* unto their cry.  
-> <sup>16</sup> The face of the LORD *is* against them that do evil, to cut off the remembrance of them from the earth.  
-> <sup>17</sup> *The righteous* cry, and the LORD heareth, and delivereth them out of all their troubles.  
-> <sup>18</sup> The LORD *is* nigh unto them that are of a broken heart; and saveth such as be of a contrite spirit.  
-> <sup>19</sup> Many *are* the afflictions of the righteous: but the LORD delivereth him out of them all.  
-> <sup>20</sup> He keepeth all his bones: not one of them is broken.  
-> <sup>21</sup> Evil shall slay the wicked: and they that hate the righteous shall be desolate.  
-> <sup>22</sup> The LORD redeemeth the soul of his servants: and none of them that trust in him shall be desolate.  
+> **¹¹** Come, ye children, hearken unto me: I will teach you the fear of the LORD.  
+> **¹²** What man *is he that* desireth life, *and* loveth *many* days, that he may see good?  
+> **¹³** Keep thy tongue from evil, and thy lips from speaking guile.  
+> **¹⁴** Depart from evil, and do good; seek peace, and pursue it.  
+> **¹⁵** The eyes of the LORD *are* upon the righteous, and his ears *are open* unto their cry.  
+> **¹⁶** The face of the LORD *is* against them that do evil, to cut off the remembrance of them from the earth.  
+> **¹⁷** *The righteous* cry, and the LORD heareth, and delivereth them out of all their troubles.  
+> **¹⁸** The LORD *is* nigh unto them that are of a broken heart; and saveth such as be of a contrite spirit.  
+> **¹⁹** Many *are* the afflictions of the righteous: but the LORD delivereth him out of them all.  
+> **²⁰** He keepeth all his bones: not one of them is broken.  
+> **²¹** Evil shall slay the wicked: and they that hate the righteous shall be desolate.  
+> **²²** The LORD redeemeth the soul of his servants: and none of them that trust in him shall be desolate.  
 
 David, in this latter part of the psalm, undertakes to teach children. Though a man of war, and anointed to be king, he did not think it below him; though now he had his head so full of cares and his hands of business, yet he could find heart and time to give good counsel to young people, from his own experience. It does not appear that he had now any children of his own, at least any that were grown up to a capacity of being taught; but, by divine inspiration, he instructs the children of his people. Those that were in years would not be taught by him, though he had offered them his service (Ps 32:8); but he had hopes that the tender branches will be more easily bent and that children and young people will be more tractable, and therefore he calls together a congregation of them (Ps 34:11): "*Come, you children,* that are now in your learning age, and are now to lay up a stock of knowledge which you must live upon all your days, you children that are foolish and ignorant, and need to be taught." Perhaps he intends especially those children whose parents neglected to instruct and catechise them; and it is as great a piece of charity to put those children to school whose parents are not in a capacity to teach them as to feed those children whose parents have not bread for them. Observe, 1. What he expects from them: "*Hearken unto me,* leave your play, lay by your toys, and hear what I have to say to you; not only give me the hearing, but observe and obey me." 2. What he undertakes to teach them—*the fear of the Lord,* inclusive of all the duties of religion. David was a famous musician, a statesman, a soldier; but he does not say to the children, "I will teach you to play on the harp, or to handle the sword or spear, or to draw the bow, or I will teach you the maxims of state policy;" but I will teach you *the fear of the Lord,* which is better than all arts and sciences, better than all burnt-offerings and sacrifices. That is it which we should be solicitous both to learn ourselves and to teach our children.
 

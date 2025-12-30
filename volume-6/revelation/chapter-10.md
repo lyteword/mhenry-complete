@@ -8,13 +8,13 @@ This chapter is an introduction to the latter part of the prophecies of this boo
 
 ## The Seven Thunders. (a. d. 95.)
 
-> <sup>1</sup> And I saw another mighty angel come down from heaven, clothed with a cloud: and a rainbow *was* upon his head, and his face *was* as it were the sun, and his feet as pillars of fire:  
-> <sup>2</sup> And he had in his hand a little book open: and he set his right foot upon the sea, and *his* left *foot* on the earth,  
-> <sup>3</sup> And cried with a loud voice, as *when* a lion roareth: and when he had cried, seven thunders uttered their voices.  
-> <sup>4</sup> And when the seven thunders had uttered their voices, I was about to write: and I heard a voice from heaven saying unto me, Seal up those things which the seven thunders uttered, and write them not.  
-> <sup>5</sup> And the angel which I saw stand upon the sea and upon the earth lifted up his hand to heaven,  
-> <sup>6</sup> And sware by him that liveth for ever and ever, who created heaven, and the things that therein are, and the earth, and the things that therein are, and the sea, and the things which are therein, that there should be time no longer:  
-> <sup>7</sup> But in the days of the voice of the seventh angel, when he shall begin to sound, the mystery of God should be finished, as he hath declared to his servants the prophets.  
+> **¹** And I saw another mighty angel come down from heaven, clothed with a cloud: and a rainbow *was* upon his head, and his face *was* as it were the sun, and his feet as pillars of fire:  
+> **²** And he had in his hand a little book open: and he set his right foot upon the sea, and *his* left *foot* on the earth,  
+> **³** And cried with a loud voice, as *when* a lion roareth: and when he had cried, seven thunders uttered their voices.  
+> **⁴** And when the seven thunders had uttered their voices, I was about to write: and I heard a voice from heaven saying unto me, Seal up those things which the seven thunders uttered, and write them not.  
+> **⁵** And the angel which I saw stand upon the sea and upon the earth lifted up his hand to heaven,  
+> **⁶** And sware by him that liveth for ever and ever, who created heaven, and the things that therein are, and the earth, and the things that therein are, and the sea, and the things which are therein, that there should be time no longer:  
+> **⁷** But in the days of the voice of the seventh angel, when he shall begin to sound, the mystery of God should be finished, as he hath declared to his servants the prophets.  
 
 Here we have an account of another vision the apostle was favoured with, between the sounding of the sixth trumpet and that of the seventh. And we observe,
 
@@ -30,10 +30,10 @@ V\. The solemn oath taken by this mighty angel. 1. The manner of his swearing: *
 
 ## The Little Book. (a. d. 95.)
 
-> <sup>8</sup> And the voice which I heard from heaven spake unto me again, and said, Go *and* take the little book which is open in the hand of the angel which standeth upon the sea and upon the earth.  
-> <sup>9</sup> And I went unto the angel, and said unto him, Give me the little book. And he said unto me, Take *it,* and eat it up; and it shall make thy belly bitter, but it shall be in thy mouth sweet as honey.  
-> <sup>10</sup> And I took the little book out of the angel's hand, and ate it up; and it was in my mouth sweet as honey: and as soon as I had eaten it, my belly was bitter.  
-> <sup>11</sup> And he said unto me, Thou must prophesy again before many peoples, and nations, and tongues, and kings.  
+> **⁸** And the voice which I heard from heaven spake unto me again, and said, Go *and* take the little book which is open in the hand of the angel which standeth upon the sea and upon the earth.  
+> **⁹** And I went unto the angel, and said unto him, Give me the little book. And he said unto me, Take *it,* and eat it up; and it shall make thy belly bitter, but it shall be in thy mouth sweet as honey.  
+> **¹⁰** And I took the little book out of the angel's hand, and ate it up; and it was in my mouth sweet as honey: and as soon as I had eaten it, my belly was bitter.  
+> **¹¹** And he said unto me, Thou must prophesy again before many peoples, and nations, and tongues, and kings.  
 
 Here we have, I. A strict charge given to the apostle, which was, 1. That he should *go and take the little book* out of the hands of that mighty angel mentioned before. This charge was given, not by the angel himself who stood upon the earth, but by the same voice from heaven that in the Re 10:4 had lain an injunction upon him not to write what he had discerned by the seven thunders. 2. To eat the book; this part of the charge was given by the angel himself, hinting to the apostle that before he should publish what he had discovered he must more thoroughly digest the predictions, and be in himself suitably affected with them.
 

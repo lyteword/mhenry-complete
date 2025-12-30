@@ -8,13 +8,13 @@ This chapter continues the history of the succession in the kingdoms both of Jud
 
 ## The Reign of Amaziah. (b. c. 828.)
 
-> <sup>1</sup> In the second year of Joash son of Jehoahaz king of Israel reigned Amaziah the son of Joash king of Judah.  
-> <sup>2</sup> He was twenty and five years old when he began to reign, and reigned twenty and nine years in Jerusalem. And his mother's name *was* Jehoaddan of Jerusalem.  
-> <sup>3</sup> And he did *that which was* right in the sight of the LORD, yet not like David his father: he did according to all things as Joash his father did.  
-> <sup>4</sup> Howbeit the high places were not taken away: as yet the people did sacrifice and burnt incense on the high places.  
-> <sup>5</sup> And it came to pass, as soon as the kingdom was confirmed in his hand, that he slew his servants which had slain the king his father.  
-> <sup>6</sup> But the children of the murderers he slew not: according unto that which is written in the book of the law of Moses, wherein the LORD commanded, saying, The fathers shall not be put to death for the children, nor the children be put to death for the fathers; but every man shall be put to death for his own sin.  
-> <sup>7</sup> He slew of Edom in the valley of salt ten thousand, and took Selah by war, and called the name of it Joktheel unto this day.  
+> **¹** In the second year of Joash son of Jehoahaz king of Israel reigned Amaziah the son of Joash king of Judah.  
+> **²** He was twenty and five years old when he began to reign, and reigned twenty and nine years in Jerusalem. And his mother's name *was* Jehoaddan of Jerusalem.  
+> **³** And he did *that which was* right in the sight of the LORD, yet not like David his father: he did according to all things as Joash his father did.  
+> **⁴** Howbeit the high places were not taken away: as yet the people did sacrifice and burnt incense on the high places.  
+> **⁵** And it came to pass, as soon as the kingdom was confirmed in his hand, that he slew his servants which had slain the king his father.  
+> **⁶** But the children of the murderers he slew not: according unto that which is written in the book of the law of Moses, wherein the LORD commanded, saying, The fathers shall not be put to death for the children, nor the children be put to death for the fathers; but every man shall be put to death for his own sin.  
+> **⁷** He slew of Edom in the valley of salt ten thousand, and took Selah by war, and called the name of it Joktheel unto this day.  
 
 Amaziah, the son and successor of Joash, is the king whom here we have an account of. Let us take a view of him,
 
@@ -24,13 +24,13 @@ II\. On the bench; and there we have him doing justice on the traitors that murd
 
 III\. In the field; and there we find him triumphing over the Edomites, 2Ki 14:7. Edom had *revolted from under the hand of Judah* in Joram's time, 2Ki 8:22. Now he makes war upon them to bring them back to their allegiance, kills 10,000 and takes the chief city of Arabia the stony (called *Selah*—*a rock*), and gave it a new name. We shall find a larger account of this expedition, 2Ch 25:5-13, etc.
 
-> <sup>8</sup> Then Amaziah sent messengers to Jehoash, the son of Jehoahaz son of Jehu, king of Israel, saying, Come, let us look one another in the face.  
-> <sup>9</sup> And Jehoash the king of Israel sent to Amaziah king of Judah, saying, The thistle that *was* in Lebanon sent to the cedar that *was* in Lebanon, saying, Give thy daughter to my son to wife: and there passed by a wild beast that *was* in Lebanon, and trode down the thistle.  
-> <sup>10</sup> Thou hast indeed smitten Edom, and thine heart hath lifted thee up: glory *of this,* and tarry at home: for why shouldest thou meddle to *thy* hurt, that thou shouldest fall, *even* thou, and Judah with thee?  
-> <sup>11</sup> But Amaziah would not hear. Therefore Jehoash king of Israel went up; and he and Amaziah king of Judah looked one another in the face at Beth-shemesh, which *belongeth* to Judah.  
-> <sup>12</sup> And Judah was put to the worse before Israel; and they fled every man to their tents.  
-> <sup>13</sup> And Jehoash king of Israel took Amaziah king of Judah, the son of Jehoash the son of Ahaziah, at Beth-shemesh, and came to Jerusalem, and brake down the wall of Jerusalem from the gate of Ephraim unto the corner gate, four hundred cubits.  
-> <sup>14</sup> And he took all the gold and silver, and all the vessels that were found in the house of the LORD, and in the treasures of the king's house, and hostages, and returned to Samaria.  
+> **⁸** Then Amaziah sent messengers to Jehoash, the son of Jehoahaz son of Jehu, king of Israel, saying, Come, let us look one another in the face.  
+> **⁹** And Jehoash the king of Israel sent to Amaziah king of Judah, saying, The thistle that *was* in Lebanon sent to the cedar that *was* in Lebanon, saying, Give thy daughter to my son to wife: and there passed by a wild beast that *was* in Lebanon, and trode down the thistle.  
+> **¹⁰** Thou hast indeed smitten Edom, and thine heart hath lifted thee up: glory *of this,* and tarry at home: for why shouldest thou meddle to *thy* hurt, that thou shouldest fall, *even* thou, and Judah with thee?  
+> **¹¹** But Amaziah would not hear. Therefore Jehoash king of Israel went up; and he and Amaziah king of Judah looked one another in the face at Beth-shemesh, which *belongeth* to Judah.  
+> **¹²** And Judah was put to the worse before Israel; and they fled every man to their tents.  
+> **¹³** And Jehoash king of Israel took Amaziah king of Judah, the son of Jehoash the son of Ahaziah, at Beth-shemesh, and came to Jerusalem, and brake down the wall of Jerusalem from the gate of Ephraim unto the corner gate, four hundred cubits.  
+> **¹⁴** And he took all the gold and silver, and all the vessels that were found in the house of the LORD, and in the treasures of the king's house, and hostages, and returned to Samaria.  
 
 For several successions after the division of the kingdoms that of Judah suffered much by the *enmity* of Israel. After Asa's time, for several successions, it suffered more by the *friendship* of Israel, and by the alliance and affinity made with them. But now we meet with hostility between them again, which had not been for some ages before.
 
@@ -42,24 +42,24 @@ III\. Amaziah persisted in his resolution, and the issue was bad; he had better 
 
 ## Reign of Jeroboam, King of Israel. (b. c. 825.)
 
-> <sup>15</sup> Now the rest of the acts of Jehoash which he did, and his might, and how he fought with Amaziah king of Judah, *are* they not written in the book of the chronicles of the kings of Israel?  
-> <sup>16</sup> And Jehoash slept with his fathers, and was buried in Samaria with the kings of Israel; and Jeroboam his son reigned in his stead.  
-> <sup>17</sup> And Amaziah the son of Joash king of Judah lived after the death of Jehoash son of Jehoahaz king of Israel fifteen years.  
-> <sup>18</sup> And the rest of the acts of Amaziah, *are* they not written in the book of the chronicles of the kings of Judah?  
-> <sup>19</sup> Now they made a conspiracy against him in Jerusalem: and he fled to Lachish; but they sent after him to Lachish, and slew him there.  
-> <sup>20</sup> And they brought him on horses: and he was buried at Jerusalem with his fathers in the city of David.  
-> <sup>21</sup> And all the people of Judah took Azariah, which *was* sixteen years old, and made him king instead of his father Amaziah.  
-> <sup>22</sup> He built Elath, and restored it to Judah, after that the king slept with his fathers.  
+> **¹⁵** Now the rest of the acts of Jehoash which he did, and his might, and how he fought with Amaziah king of Judah, *are* they not written in the book of the chronicles of the kings of Israel?  
+> **¹⁶** And Jehoash slept with his fathers, and was buried in Samaria with the kings of Israel; and Jeroboam his son reigned in his stead.  
+> **¹⁷** And Amaziah the son of Joash king of Judah lived after the death of Jehoash son of Jehoahaz king of Israel fifteen years.  
+> **¹⁸** And the rest of the acts of Amaziah, *are* they not written in the book of the chronicles of the kings of Judah?  
+> **¹⁹** Now they made a conspiracy against him in Jerusalem: and he fled to Lachish; but they sent after him to Lachish, and slew him there.  
+> **²⁰** And they brought him on horses: and he was buried at Jerusalem with his fathers in the city of David.  
+> **²¹** And all the people of Judah took Azariah, which *was* sixteen years old, and made him king instead of his father Amaziah.  
+> **²²** He built Elath, and restored it to Judah, after that the king slept with his fathers.  
 
 Here are three kings brought to their graves in these few verses:—1. Joash king of Israel, 2Ki 14:15,16. We attended his funeral once before, 2Ki 13:12,13. But, because the historian had occasion to give a further account of his life and actions, he again mentions his death and burial. 2. Amaziah king of Judah. Fifteen years he survived his conqueror the king of Israel, 2Ki 14:17. A man may live a great while after he has been shamed, may be thoroughly mortified (as Amaziah no doubt was) and yet not dead. His acts are said to be found written in his annals (2Ki 14:18), but not his might; for his cruelty when he was a conqueror over the Edomites, and his insolence when he challenged the king of Israel, showed him void of true courage. He was slain by his own subjects, who hated him for his maladministration (2Ki 14:19) and made Jerusalem too hot for him, the ignominious breach made in their walls being occasioned by his folly and presumption. He fled to Lachish. How long he continued concealed or sheltered there we are not told, but, at last, he was there murdered, 2Ki 14:19. No further did the rage of the rebels extend, for they brought him in a chariot to Jerusalem, and buried him there among his ancestors. 3. Azariah succeeded Amaziah, but not till twelve years after his father's death, for Amaziah died in the fifteenth year of Jeroboam (as appears by comparing 2Ki 14:23,2Ki 13:2), but Azariah did not begin his reign till the twenty-seventh of Jeroboam (2Ki 15:1), for he was but four years old at the death of his father, so that, for twelve years, till he came to be sixteen, the government was in the hands of protectors. He reigned very long (2Ki 15:2) and yet the account of his reign is here industriously huddled up, and broken off abruptly (2Ki 14:22): *He built Elath* (which had belonged to the Edomites, but, it is probable, was recovered by his father, 2Ki 14:7), *after that the king slept with his fathers,* as if that had been all he did that was worth mentioning, or rather it is meant of king Amaziah: he built it soon after Amaziah died.
 
-> <sup>23</sup> In the fifteenth year of Amaziah the son of Joash king of Judah Jeroboam the son of Joash king of Israel began to reign in Samaria, *and reigned* forty and one years.  
-> <sup>24</sup> And he did *that which was* evil in the sight of the LORD: he departed not from all the sins of Jeroboam the son of Nebat, who made Israel to sin.  
-> <sup>25</sup> He restored the coast of Israel from the entering of Hamath unto the sea of the plain, according to the word of the LORD God of Israel, which he spake by the hand of his servant Jonah, the son of Amittai, the prophet, which *was* of Gath-hepher.  
-> <sup>26</sup> For the LORD saw the affliction of Israel, *that it was* very bitter: for *there was* not any shut up, nor any left, nor any helper for Israel.  
-> <sup>27</sup> And the LORD said not that he would blot out the name of Israel from under heaven: but he saved them by the hand of Jeroboam the son of Joash.  
-> <sup>28</sup> Now the rest of the acts of Jeroboam, and all that he did, and his might, how he warred, and how he recovered Damascus, and Hamath, *which belonged* to Judah, for Israel, are they not written in the book of the chronicles of the kings of Israel?  
-> <sup>29</sup> And Jeroboam slept with his fathers, *even* with the kings of Israel; and Zachariah his son reigned in his stead.  
+> **²³** In the fifteenth year of Amaziah the son of Joash king of Judah Jeroboam the son of Joash king of Israel began to reign in Samaria, *and reigned* forty and one years.  
+> **²⁴** And he did *that which was* evil in the sight of the LORD: he departed not from all the sins of Jeroboam the son of Nebat, who made Israel to sin.  
+> **²⁵** He restored the coast of Israel from the entering of Hamath unto the sea of the plain, according to the word of the LORD God of Israel, which he spake by the hand of his servant Jonah, the son of Amittai, the prophet, which *was* of Gath-hepher.  
+> **²⁶** For the LORD saw the affliction of Israel, *that it was* very bitter: for *there was* not any shut up, nor any left, nor any helper for Israel.  
+> **²⁷** And the LORD said not that he would blot out the name of Israel from under heaven: but he saved them by the hand of Jeroboam the son of Joash.  
+> **²⁸** Now the rest of the acts of Jeroboam, and all that he did, and his might, how he warred, and how he recovered Damascus, and Hamath, *which belonged* to Judah, for Israel, are they not written in the book of the chronicles of the kings of Israel?  
+> **²⁹** And Jeroboam slept with his fathers, *even* with the kings of Israel; and Zachariah his son reigned in his stead.  
 
 Here is an account of the reign of Jeroboam the second. I doubt it is an indication of the affection and adherence of the house of Jehu to the sins of *Jeroboam the son of Nebat, who made Israel to sin,* that they called an heir-apparent to the crown by his name, thinking that an honourable name which in the book of God is infamous and stigmatized as much as any.
 

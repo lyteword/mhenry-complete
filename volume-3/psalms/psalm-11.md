@@ -10,9 +10,9 @@ In this psalm we have David's struggle with and triumph over a strong temptation
 
 To the chief musician. A psalm of David.
 
-> <sup>1</sup> In the LORD put I my trust: how say ye to my soul, Flee *as* a bird to your mountain?  
-> <sup>2</sup> For, lo, the wicked bend *their* bow, they make ready their arrow upon the string, that they may privily shoot at the upright in heart.  
-> <sup>3</sup> If the foundations be destroyed, what can the righteous do?  
+> **¹** In the LORD put I my trust: how say ye to my soul, Flee *as* a bird to your mountain?  
+> **²** For, lo, the wicked bend *their* bow, they make ready their arrow upon the string, that they may privily shoot at the upright in heart.  
+> **³** If the foundations be destroyed, what can the righteous do?  
 
 Here is, I. David's fixed resolution to make God his confidence: *In the Lord put I my trust,* Ps 11:1. Those that truly fear God and serve him are welcome to put their trust in him, and shall not be made ashamed of their doing so. And it is the character of the saints, who have taken God for their God, that they make him their hope. Even when they have other things to stay themselves upon, yet they do not, they dare not, stay upon them, but on God only. Gold is not their hope, nor are horses and chariots their confidence, but God only; and therefore, when second causes frown, yet their hopes do not fail them, because the first cause is still the same, is ever so. The psalmist, before he gives an account of the temptation he was in to distrust God, records his resolution to trust in him, as that which he was resolved to live and die by.
 
@@ -22,10 +22,10 @@ II\. His resentment of a temptation to the contrary: "*How say you to my soul,* 
 
 2\. It may be taken as a taunt wherewith his enemies bantered him, upbraiding him with the professions he used to make of confidence in God, and scornfully bidding him try what stead that would stand him in now. "You say, God is your mountain; flee to him now, and see what the better you will be." Thus they endeavoured to shame the counsel of the poor, saying, There is *no help for them in God,* Ps 14:6, Ps 3:2. The confidence and comfort which the saints have in God, when all the hopes and joys in the creature fail them, are a riddle to a carnal world and are ridiculed accordingly. Taking it thus, the Ps 11:2,3 are David's answer to this sarcasm, in which, (1.) He complains of the malice of those who did thus abuse him (Ps 11:2): *They bend their bow and make ready their arrows;* and we are told (Ps 64:3) what their arrows are, even bitter words, such words as these, by which they endeavour to discourage hope in God, which David felt as a sword in his bones. (2.) He resists the temptation with a gracious abhorrence, Ps 11:3. He looks upon this suggestion as striking at the foundations which every Israelite builds upon: "If you destroy the foundations, if you take good people off from their hope in God, if you can persuade them that their religion is a cheat and a jest and can banter them out of that, you ruin them, and break their hearts indeed, and make them of all men the most miserable." The principles of religion are the foundations on which the faith and hope of the righteous are built. These we are concerned, in interest as well as duty, to hold fast against all temptations to infidelity; for, if these be destroyed, if we let these go, *What can the righteous do?* Good people would be undone if they had not a God to go to, a God to trust to, and a future bliss to hope for.
 
-> <sup>4</sup> The LORD *is* in his holy temple, the LORD's throne *is* in heaven: his eyes behold, his eyelids try, the children of men.  
-> <sup>5</sup> The LORD trieth the righteous: but the wicked and him that loveth violence his soul hateth.  
-> <sup>6</sup> Upon the wicked he shall rain snares, fire and brimstone, and a horrible tempest: *this shall be* the portion of their cup.  
-> <sup>7</sup> For the righteous LORD loveth righteousness; his countenance doth behold the upright.  
+> **⁴** The LORD *is* in his holy temple, the LORD's throne *is* in heaven: his eyes behold, his eyelids try, the children of men.  
+> **⁵** The LORD trieth the righteous: but the wicked and him that loveth violence his soul hateth.  
+> **⁶** Upon the wicked he shall rain snares, fire and brimstone, and a horrible tempest: *this shall be* the portion of their cup.  
+> **⁷** For the righteous LORD loveth righteousness; his countenance doth behold the upright.  
 
 The shaking of a tree (they say) makes it take the deeper and faster root. The attempt of David's enemies to discourage his confidence in God engages him to cleave so much the more closely to his first principles, and to review them, which he here does, abundantly to his own satisfaction and the silencing of all temptations to infidelity. That which was shocking to his faith, and has been so to the faith of many, was the prosperity of wicked people in their wicked ways, and the straits and distresses which the best men are sometimes reduced to: hence such an evil thought as this was apt to arise, *Surely it is vain to serve God,* and we may call the proud happy. But, in order to stifle and shame all such thoughts, we are here called to consider,
 

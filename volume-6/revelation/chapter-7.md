@@ -8,18 +8,18 @@ The things contained in this chapter came in after the opening of the six seals,
 
 ## The Vision of Heaven. (a. d. 95.)
 
-> <sup>1</sup> And after these things I saw four angels standing on the four corners of the earth, holding the four winds of the earth, that the wind should not blow on the earth, nor on the sea, nor on any tree.  
-> <sup>2</sup> And I saw another angel ascending from the east, having the seal of the living God: and he cried with a loud voice to the four angels, to whom it was given to hurt the earth and the sea,  
-> <sup>3</sup> Saying, Hurt not the earth, neither the sea, nor the trees, till we have sealed the servants of our God in their foreheads.  
-> <sup>4</sup> And I heard the number of them which were sealed: *and there were* sealed a hundred *and* forty *and* four thousand of all the tribes of the children of Israel.  
-> <sup>5</sup> Of the tribe of Juda *were* sealed twelve thousand. Of the tribe of Reuben *were* sealed twelve thousand. Of the tribe of Gad *were* sealed twelve thousand.  
-> <sup>6</sup> Of the tribe of Aser *were* sealed twelve thousand. Of the tribe of Nepthalim *were* sealed twelve thousand. Of the tribe of Manasses *were* sealed twelve thousand.  
-> <sup>7</sup> Of the tribe of Simeon *were* sealed twelve thousand. Of the tribe of Levi *were* sealed twelve thousand. Of the tribe of Issachar *were* sealed twelve thousand.  
-> <sup>8</sup> Of the tribe of Zabulon *were* sealed twelve thousand. Of the tribe of Joseph *were* sealed twelve thousand. Of the tribe of Benjamin *were* sealed twelve thousand.  
-> <sup>9</sup> After this I beheld, and, lo, a great multitude, which no man could number, of all nations, and kindreds, and people, and tongues, stood before the throne, and before the Lamb, clothed with white robes, and palms in their hands;  
-> <sup>10</sup> And cried with a loud voice, saying, Salvation to our God which sitteth upon the throne, and unto the Lamb.  
-> <sup>11</sup> And all the angels stood round about the throne, and *about* the elders and the four beasts, and fell before the throne on their faces, and worshipped God,  
-> <sup>12</sup> Saying, Amen: Blessing, and glory, and wisdom, and thanksgiving, and honour, and power, and might, *be* unto our God for ever and ever. Amen.  
+> **¹** And after these things I saw four angels standing on the four corners of the earth, holding the four winds of the earth, that the wind should not blow on the earth, nor on the sea, nor on any tree.  
+> **²** And I saw another angel ascending from the east, having the seal of the living God: and he cried with a loud voice to the four angels, to whom it was given to hurt the earth and the sea,  
+> **³** Saying, Hurt not the earth, neither the sea, nor the trees, till we have sealed the servants of our God in their foreheads.  
+> **⁴** And I heard the number of them which were sealed: *and there were* sealed a hundred *and* forty *and* four thousand of all the tribes of the children of Israel.  
+> **⁵** Of the tribe of Juda *were* sealed twelve thousand. Of the tribe of Reuben *were* sealed twelve thousand. Of the tribe of Gad *were* sealed twelve thousand.  
+> **⁶** Of the tribe of Aser *were* sealed twelve thousand. Of the tribe of Nepthalim *were* sealed twelve thousand. Of the tribe of Manasses *were* sealed twelve thousand.  
+> **⁷** Of the tribe of Simeon *were* sealed twelve thousand. Of the tribe of Levi *were* sealed twelve thousand. Of the tribe of Issachar *were* sealed twelve thousand.  
+> **⁸** Of the tribe of Zabulon *were* sealed twelve thousand. Of the tribe of Joseph *were* sealed twelve thousand. Of the tribe of Benjamin *were* sealed twelve thousand.  
+> **⁹** After this I beheld, and, lo, a great multitude, which no man could number, of all nations, and kindreds, and people, and tongues, stood before the throne, and before the Lamb, clothed with white robes, and palms in their hands;  
+> **¹⁰** And cried with a loud voice, saying, Salvation to our God which sitteth upon the throne, and unto the Lamb.  
+> **¹¹** And all the angels stood round about the throne, and *about* the elders and the four beasts, and fell before the throne on their faces, and worshipped God,  
+> **¹²** Saying, Amen: Blessing, and glory, and wisdom, and thanksgiving, and honour, and power, and might, *be* unto our God for ever and ever. Amen.  
 
 Here we have, I. An account of the restraint laid upon the winds. By these winds we suppose are meant those errors and corruptions in religion which would occasion a great deal of trouble and mischief to the church of God. Sometimes the Holy Spirit is compared to the wind: here the spirits of error are compared to *the four winds,* contrary one to another, but doing much hurt to the church, the garden and vineyard of God, breaking the branches and blasting the fruits of his plantation. The devil is called *the prince of the power of the air;* he, by a great wind, overthrew the house of Job's eldest son. Errors are as wind, by which those who are unstable are shaken, and carried *to and fro,* Eph 4:14. Observe, 1. These are called *the winds of the earth,* because they blow only in these lower regions near the earth; heaven is always clear and free from them. 2. They are restrained by the ministry of angels, *standing on the four corners of the earth,* intimating that the spirit of error cannot go forth till God permits it, and that the angels minister to the good of the church by restraining its enemies. 3. Their restraint was only for a season, and that was *till the servants of God were sealed in their foreheads.* God has a particular care and concern for his own servants in times of temptation and corruption, and he has a way to secure them from the common infection; he first establishes them, and then he tries them; he has the timing of their trials in his own hand.
 
@@ -33,11 +33,11 @@ III\. We have the songs of saints and angels on this occasion, Re 7:9-12, where 
 
 ## Honour and Happiness of the Saints. (a. d. 95.)
 
-> <sup>13</sup> And one of the elders answered, saying unto me, What are these which are arrayed in white robes? and whence came they?  
-> <sup>14</sup> And I said unto him, Sir, thou knowest. And he said to me, These are they which came out of great tribulation, and have washed their robes, and made them white in the blood of the Lamb.  
-> <sup>15</sup> Therefore are they before the throne of God, and serve him day and night in his temple: and he that sitteth on the throne shall dwell among them.  
-> <sup>16</sup> They shall hunger no more, neither thirst any more; neither shall the sun light on them, nor any heat.  
-> <sup>17</sup> For the Lamb which is in the midst of the throne shall feed them, and shall lead them unto living fountains of waters: and God shall wipe away all tears from their eyes.  
+> **¹³** And one of the elders answered, saying unto me, What are these which are arrayed in white robes? and whence came they?  
+> **¹⁴** And I said unto him, Sir, thou knowest. And he said to me, These are they which came out of great tribulation, and have washed their robes, and made them white in the blood of the Lamb.  
+> **¹⁵** Therefore are they before the throne of God, and serve him day and night in his temple: and he that sitteth on the throne shall dwell among them.  
+> **¹⁶** They shall hunger no more, neither thirst any more; neither shall the sun light on them, nor any heat.  
+> **¹⁷** For the Lamb which is in the midst of the throne shall feed them, and shall lead them unto living fountains of waters: and God shall wipe away all tears from their eyes.  
 
 Here we have a description of the honour and happiness of those who have faithfully served the Lord Jesus Christ, and suffered for him. Observe,
 

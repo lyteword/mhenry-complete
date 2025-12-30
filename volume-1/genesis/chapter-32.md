@@ -8,17 +8,17 @@ We have here Jacob still upon his journey towards Canaan. Never did so many memo
 
 ## Jacob Pursuing His Journey. (b. c. 1739.)
 
-> <sup>1</sup> And Jacob went on his way, and the angels of God met him.  
-> <sup>2</sup> And when Jacob saw them, he said, This *is* God's host: and he called the name of that place Mahanaim.  
+> **¹** And Jacob went on his way, and the angels of God met him.  
+> **²** And when Jacob saw them, he said, This *is* God's host: and he called the name of that place Mahanaim.  
 
 Jacob, having got clear of Laban, pursues his journey homewards towards Canaan: when God has helped us through difficulties we should go on our way heaven-ward with so much the more cheerfulness and resolution. Now, 1. Here is Jacob's convoy in his journey (Ge 32:1): *The angels of God met him,* in a visible appearance, whether in a vision by day or in a dream by night, as when he saw them upon the ladder (Ge 28:12), is uncertain. Note, Those that keep in a good way have always a good guard; angels themselves are ministering spirits for their safety, Heb 1:14. Where Jacob pitched his tents, they pitched theirs about him, Ps 34:7. They met him, to bid him welcome to Canaan again; a more honourable reception this was than ever any prince had, that was met by the magistrates of a city in their formalities. They met him to congratulate him on his arrival, as well as on his escape from Laban; for they have pleasure in the prosperity of God's servants. They had invisibly attended him all along, but now they appeared to him, because he had greater dangers before him than those he had hitherto encountered. Note, When God designs his people for extraordinary trials, he prepares them by extraordinary comforts. We should think it had been more seasonable for these angels to have appeared to him amidst the perplexity and agitation occasioned first by Laban, and afterwards by Esau, than in this calm and quiet interval, when he saw not himself in any imminent peril; but God will have us, when we are in peace, to provide for trouble, and, when trouble comes, to live upon former observations and experiences; for *we walk by faith, not by sight.* God's people, at death, are returning to Canaan, to their Father's house; and then the angels of God will meet them, to congratulate them on the happy finishing of their servitude, and to carry them to their rest. 2. The comfortable notice he took of this convoy, Ge 32:2. *This is God's host,* and therefore, (1.) It is a powerful host; very great is he that is thus attended, and very safe that is thus guarded. (2.) God must have the praise of this protection: "This I may thank God for, for it is his host." A good man may with an eye of faith see the same that Jacob saw with his bodily eyes, by believing that promise (Ps 91:11), *He shall give his angels charge over thee.* What need have we to dispute whether every particular saint has a guardian angel, when we are sure he has a guard of angels about him? To preserve the remembrance of this favour, Jacob gave a name to the place from it, *Mahanaim, two hosts,* or *two camps.* That is, say some of the rabbin, one host of the guardian angels of Mesopotamia, who conducted Jacob thence, and delivered him safely to the other host of the angels of Canaan, who met him upon the borders where he now was. Rather, they appeared to him in two hosts, one on either side, or one in the front and the other in the rear, to protect him from Laban behind and Esau before, that they might be a complete guard. Thus he is *compassed* with God's favour. Perhaps in allusion to this the church is called *Mahanaim, two armies,* So 6:13. Here were Jacob's family, which made one army, representing the church militant and itinerant on earth; and the angels, another army, representing the church triumphant and at rest in heaven.
 
-> <sup>3</sup> And Jacob sent messengers before him to Esau his brother unto the land of Seir, the country of Edom.  
-> <sup>4</sup> And he commanded them, saying, Thus shall ye speak unto my lord Esau; Thy servant Jacob saith thus, I have sojourned with Laban, and stayed there until now:  
-> <sup>5</sup> And I have oxen, and asses, flocks, and menservants, and womenservants: and I have sent to tell my lord, that I may find grace in thy sight.  
-> <sup>6</sup> And the messengers returned to Jacob, saying, We came to thy brother Esau, and also he cometh to meet thee, and four hundred men with him.  
-> <sup>7</sup> Then Jacob was greatly afraid and distressed: and he divided the people that *was* with him, and the flocks, and herds, and the camels, into two bands;  
-> <sup>8</sup> And said, If Esau come to the one company, and smite it, then the other company which is left shall escape.  
+> **³** And Jacob sent messengers before him to Esau his brother unto the land of Seir, the country of Edom.  
+> **⁴** And he commanded them, saying, Thus shall ye speak unto my lord Esau; Thy servant Jacob saith thus, I have sojourned with Laban, and stayed there until now:  
+> **⁵** And I have oxen, and asses, flocks, and menservants, and womenservants: and I have sent to tell my lord, that I may find grace in thy sight.  
+> **⁶** And the messengers returned to Jacob, saying, We came to thy brother Esau, and also he cometh to meet thee, and four hundred men with him.  
+> **⁷** Then Jacob was greatly afraid and distressed: and he divided the people that *was* with him, and the flocks, and herds, and the camels, into two bands;  
+> **⁸** And said, If Esau come to the one company, and smite it, then the other company which is left shall escape.  
 
 Now that Jacob was re-entering Canaan God, by the vision of angels, reminded him of the friends he had when he left it, and thence he takes occasion to remind himself of the enemies he had, particularly Esau. It is probable that Rebekah had sent him word of Esau's settlement in Seir, and of the continuance of his enmity to him. What shall poor Jacob do? He longs to see his father, and yet he dreads to see his brother. He rejoices to see Canaan again, and yet cannot but rejoice with trembling because of Esau.
 
@@ -30,10 +30,10 @@ III\. He puts himself into the best posture of defence that his present circumst
 
 ## Jacob's Prayer. (b. c. 1739.)
 
-> <sup>9</sup> And Jacob said, O God of my father Abraham, and God of my father Isaac, the LORD which saidst unto me, Return unto thy country, and to thy kindred, and I will deal well with thee:  
-> <sup>10</sup> I am not worthy of the least of all the mercies, and of all the truth, which thou hast showed unto thy servant; for with my staff I passed over this Jordan; and now I am become two bands.  
-> <sup>11</sup> Deliver me, I pray thee, from the hand of my brother, from the hand of Esau: for I fear him, lest he will come and smite me, *and* the mother with the children.  
-> <sup>12</sup> And thou saidst, I will surely do thee good, and make thy seed as the sand of the sea, which cannot be numbered for multitude.  
+> **⁹** And Jacob said, O God of my father Abraham, and God of my father Isaac, the LORD which saidst unto me, Return unto thy country, and to thy kindred, and I will deal well with thee:  
+> **¹⁰** I am not worthy of the least of all the mercies, and of all the truth, which thou hast showed unto thy servant; for with my staff I passed over this Jordan; and now I am become two bands.  
+> **¹¹** Deliver me, I pray thee, from the hand of my brother, from the hand of Esau: for I fear him, lest he will come and smite me, *and* the mother with the children.  
+> **¹²** And thou saidst, I will surely do thee good, and make thy seed as the sand of the sea, which cannot be numbered for multitude.  
 
 Our rule is to call upon God in the time of trouble; we have here an example to this rule, and the success encourages us to follow this example. It was now a time of Jacob's trouble, but he shall be saved out of it; and here we have him praying for that salvation, Jer 30:7. In his distress he sought the Lord, and he heard him. Note, Times of fear should be times of prayer; whatever frightens us should drive us to our knees, to our God. Jacob had lately seen his guard of angels, but, in this distress, he applied to God, not to them; he knew they were his fellow-servants, Re 22:9. Nor did he consult Laban's *teraphim;* it was enough for him that he had a God to go to. To him he addresses himself with all possible solemnity, so running for safety into the name of the Lord, *as a strong tower,* Pr 18:10. This prayer is the more remarkable because it won him the honour of being an *Israel, a prince with God,* and the father of the praying remnant, who are hence called *the seed of Jacob,* to whom he never said, *Seek you me in vain.* Now it is worth while to enquire what there was extraordinary in this prayer, that it should gain the petitioner all this honour.
 
@@ -55,17 +55,17 @@ II\. The pleas are many, and very powerful; never was cause better ordered, Job 
 
 ## Jacob's Present to Esau. (b. c. 1739.)
 
-> <sup>13</sup> And he lodged there that same night; and took of that which came to his hand a present for Esau his brother;  
-> <sup>14</sup> Two hundred she goats, and twenty he goats, two hundred ewes, and twenty rams,  
-> <sup>15</sup> Thirty milch camels with their colts, forty kine, and ten bulls, twenty she asses, and ten foals.  
-> <sup>16</sup> And he delivered *them* into the hand of his servants, every drove by themselves; and said unto his servants, Pass over before me, and put a space betwixt drove and drove.  
-> <sup>17</sup> And he commanded the foremost, saying, When Esau my brother meeteth thee, and asketh thee, saying, Whose *art* thou? and whither goest thou? and whose *are* these before thee?  
-> <sup>18</sup> Then thou shalt say, *They be* thy servant Jacob's; it *is* a present sent unto my lord Esau: and, behold, also he *is* behind us.  
-> <sup>19</sup> And so commanded he the second, and the third, and all that followed the droves, saying, On this manner shall ye speak unto Esau, when ye find him.  
-> <sup>20</sup> And say ye moreover, Behold, thy servant Jacob *is* behind us. For he said, I will appease him with the present that goeth before me, and afterward I will see his face; peradventure he will accept of me.  
-> <sup>21</sup> So went the present over before him: and himself lodged that night in the company.  
-> <sup>22</sup> And he rose up that night, and took his two wives, and his two womenservants, and his eleven sons, and passed over the ford Jabbok.  
-> <sup>23</sup> And he took them, and sent them over the brook, and sent over that he had.  
+> **¹³** And he lodged there that same night; and took of that which came to his hand a present for Esau his brother;  
+> **¹⁴** Two hundred she goats, and twenty he goats, two hundred ewes, and twenty rams,  
+> **¹⁵** Thirty milch camels with their colts, forty kine, and ten bulls, twenty she asses, and ten foals.  
+> **¹⁶** And he delivered *them* into the hand of his servants, every drove by themselves; and said unto his servants, Pass over before me, and put a space betwixt drove and drove.  
+> **¹⁷** And he commanded the foremost, saying, When Esau my brother meeteth thee, and asketh thee, saying, Whose *art* thou? and whither goest thou? and whose *are* these before thee?  
+> **¹⁸** Then thou shalt say, *They be* thy servant Jacob's; it *is* a present sent unto my lord Esau: and, behold, also he *is* behind us.  
+> **¹⁹** And so commanded he the second, and the third, and all that followed the droves, saying, On this manner shall ye speak unto Esau, when ye find him.  
+> **²⁰** And say ye moreover, Behold, thy servant Jacob *is* behind us. For he said, I will appease him with the present that goeth before me, and afterward I will see his face; peradventure he will accept of me.  
+> **²¹** So went the present over before him: and himself lodged that night in the company.  
+> **²²** And he rose up that night, and took his two wives, and his two womenservants, and his eleven sons, and passed over the ford Jabbok.  
+> **²³** And he took them, and sent them over the brook, and sent over that he had.  
 
 Jacob, having piously made God his friend by a prayer, is here prudently endeavouring to make Esau his friend by a present. He had prayed to God to deliver him from the hand of Esau, for he feared him; but neither did his fear sink into such a despair as dispirits for the use of means, nor did his prayer make him presume upon God's mercy, without the use of means. Note, When we have prayed to God for any mercy, we must second our prayers with our endeavours; else, instead of trusting god, we tempt him; we must so depend upon God's providence as to make use of our own prudence. "Help thyself, and God will help thee;" God answers our prayers by teaching us to order our affairs with discretion. To pacify Esau,
 
@@ -75,15 +75,15 @@ II\. He sent him a very humble message, which he ordered his servants to deliver
 
 ## Jacob Wrestles with an Angel. (b. c. 1739.)
 
-> <sup>24</sup> And Jacob was left alone; and there wrestled a man with him until the breaking of the day.  
-> <sup>25</sup> And when he saw that he prevailed not against him, he touched the hollow of his thigh; and the hollow of Jacob's thigh was out of joint, as he wrestled with him.  
-> <sup>26</sup> And he said, Let me go, for the day breaketh. And he said, I will not let thee go, except thou bless me.  
-> <sup>27</sup> And he said unto him, What *is* thy name? And he said, Jacob.  
-> <sup>28</sup> And he said, Thy name shall be called no more Jacob, but Israel: for as a prince hast thou power with God and with men, and hast prevailed.  
-> <sup>29</sup> And Jacob asked *him,* and said, Tell *me,* I pray thee, thy name. And he said, Wherefore *is* it *that* thou dost ask after my name? And he blessed him there.  
-> <sup>30</sup> And Jacob called the name of the place Peniel: for I have seen God face to face, and my life is preserved.  
-> <sup>31</sup> And as he passed over Penuel the sun rose upon him, and he halted upon his thigh.  
-> <sup>32</sup> Therefore the children of Israel eat not *of* the sinew which shrank, which *is* upon the hollow of the thigh, unto this day: because he touched the hollow of Jacob's thigh in the sinew that shrank.  
+> **²⁴** And Jacob was left alone; and there wrestled a man with him until the breaking of the day.  
+> **²⁵** And when he saw that he prevailed not against him, he touched the hollow of his thigh; and the hollow of Jacob's thigh was out of joint, as he wrestled with him.  
+> **²⁶** And he said, Let me go, for the day breaketh. And he said, I will not let thee go, except thou bless me.  
+> **²⁷** And he said unto him, What *is* thy name? And he said, Jacob.  
+> **²⁸** And he said, Thy name shall be called no more Jacob, but Israel: for as a prince hast thou power with God and with men, and hast prevailed.  
+> **²⁹** And Jacob asked *him,* and said, Tell *me,* I pray thee, thy name. And he said, Wherefore *is* it *that* thou dost ask after my name? And he blessed him there.  
+> **³⁰** And Jacob called the name of the place Peniel: for I have seen God face to face, and my life is preserved.  
+> **³¹** And as he passed over Penuel the sun rose upon him, and he halted upon his thigh.  
+> **³²** Therefore the children of Israel eat not *of* the sinew which shrank, which *is* upon the hollow of the thigh, unto this day: because he touched the hollow of Jacob's thigh in the sinew that shrank.  
 
 We have here the remarkable story of Jacob's wrestling with the angel and prevailing, which is referred to, Ho 12:4. Very early in the morning, a great while before day, Jacob had helped his wives and his children over the river, and he desired to be private, and was left alone, that he might again more fully spread his cares and fears before God in prayer. Note, We ought to continue instant in prayer, always to pray and not to faint: frequency and importunity in prayer prepare us for mercy. While Jacob was earnest in prayer, *stirring up himself to take hold on God,* an angel takes hold on him. Some think this was a created angel, the *angel of his presence* (Isa 63:9), one of those that *always behold the face of our Father* and attend on the *shechinah,* or the divine Majesty, which probably Jacob had also in view. Others think it was Michael our prince, the eternal Word, the angel of the covenant, who is indeed the Lord of the angels, who often appeared in a human shape before he assumed the human nature for a perpetuity; whichsoever it was, we are sure *God's name was in him,* Ex 23:21. Observe,
 

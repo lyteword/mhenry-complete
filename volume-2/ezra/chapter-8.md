@@ -8,26 +8,26 @@ This chapter gives us a more particular narrative of Ezra's journey to Jerusalem
 
 ## The Journey of Ezra and Others. (b. c. 457.)
 
-> <sup>1</sup> These *are* now the chief of their fathers, and *this is* the genealogy of them that went up with me from Babylon, in the reign of Artaxerxes the king.  
-> <sup>2</sup> Of the sons of Phinehas; Gershom: of the sons of Ithamar; Daniel: of the sons of David; Hattush.  
-> <sup>3</sup> Of the sons of Shechaniah, of the sons of Pharosh; Zechariah: and with him were reckoned by genealogy of the males a hundred and fifty.  
-> <sup>4</sup> Of the sons of Pahath-moab; Elihoenai the son of Zerahiah, and with him two hundred males.  
-> <sup>5</sup> Of the sons of Shechaniah; the son of Jahaziel, and with him three hundred males.  
-> <sup>6</sup> Of the sons also of Adin; Ebed the son of Jonathan, and with him fifty males.  
-> <sup>7</sup> And of the sons of Elam; Jeshaiah the son of Athaliah, and with him seventy males.  
-> <sup>8</sup> And of the sons of Shephatiah; Zebadiah the son of Michael, and with him fourscore males.  
-> <sup>9</sup> Of the sons of Joab; Obadiah the son of Jehiel, and with him two hundred and eighteen males.  
-> <sup>10</sup> And of the sons of Shelomith; the son of Josiphiah, and with him a hundred and threescore males.  
-> <sup>11</sup> And of the sons of Bebai; Zechariah the son of Bebai, and with him twenty and eight males.  
-> <sup>12</sup> And of the sons of Azgad; Johanan the son of Hakkatan, and with him a hundred and ten males.  
-> <sup>13</sup> And of the last sons of Adonikam, whose names *are* these, Eliphelet, Jeiel, and Shemaiah, and with them threescore males.  
-> <sup>14</sup> Of the sons also of Bigvai; Uthai, and Zabbud, and with them seventy males.  
-> <sup>15</sup> And I gathered them together to the river that runneth to Ahava; and there abode we in tents three days: and I viewed the people, and the priests, and found there none of the sons of Levi.  
-> <sup>16</sup> Then sent I for Eliezer, for Ariel, for Shemaiah, and for Elnathan, and for Jarib, and for Elnathan, and for Nathan, and for Zechariah, and for Meshullam, chief men; also for Joiarib, and for Elnathan, men of understanding.  
-> <sup>17</sup> And I sent them with commandment unto Iddo the chief at the place Casiphia, and I told them what they should say unto Iddo, *and* to his brethren the Nethinims, at the place Casiphia, that they should bring unto us ministers for the house of our God.  
-> <sup>18</sup> And by the good hand of our God upon us they brought us a man of understanding, of the sons of Mahli, the son of Levi, the son of Israel; and Sherebiah, with his sons and his brethren, eighteen;  
-> <sup>19</sup> And Hashabiah, and with him Jeshaiah of the sons of Merari, his brethren and their sons, twenty;  
-> <sup>20</sup> Also of the Nethinims, whom David and the princes had appointed for the service of the Levites, two hundred and twenty Nethinims: all of them were expressed by name.  
+> **¹** These *are* now the chief of their fathers, and *this is* the genealogy of them that went up with me from Babylon, in the reign of Artaxerxes the king.  
+> **²** Of the sons of Phinehas; Gershom: of the sons of Ithamar; Daniel: of the sons of David; Hattush.  
+> **³** Of the sons of Shechaniah, of the sons of Pharosh; Zechariah: and with him were reckoned by genealogy of the males a hundred and fifty.  
+> **⁴** Of the sons of Pahath-moab; Elihoenai the son of Zerahiah, and with him two hundred males.  
+> **⁵** Of the sons of Shechaniah; the son of Jahaziel, and with him three hundred males.  
+> **⁶** Of the sons also of Adin; Ebed the son of Jonathan, and with him fifty males.  
+> **⁷** And of the sons of Elam; Jeshaiah the son of Athaliah, and with him seventy males.  
+> **⁸** And of the sons of Shephatiah; Zebadiah the son of Michael, and with him fourscore males.  
+> **⁹** Of the sons of Joab; Obadiah the son of Jehiel, and with him two hundred and eighteen males.  
+> **¹⁰** And of the sons of Shelomith; the son of Josiphiah, and with him a hundred and threescore males.  
+> **¹¹** And of the sons of Bebai; Zechariah the son of Bebai, and with him twenty and eight males.  
+> **¹²** And of the sons of Azgad; Johanan the son of Hakkatan, and with him a hundred and ten males.  
+> **¹³** And of the last sons of Adonikam, whose names *are* these, Eliphelet, Jeiel, and Shemaiah, and with them threescore males.  
+> **¹⁴** Of the sons also of Bigvai; Uthai, and Zabbud, and with them seventy males.  
+> **¹⁵** And I gathered them together to the river that runneth to Ahava; and there abode we in tents three days: and I viewed the people, and the priests, and found there none of the sons of Levi.  
+> **¹⁶** Then sent I for Eliezer, for Ariel, for Shemaiah, and for Elnathan, and for Jarib, and for Elnathan, and for Nathan, and for Zechariah, and for Meshullam, chief men; also for Joiarib, and for Elnathan, men of understanding.  
+> **¹⁷** And I sent them with commandment unto Iddo the chief at the place Casiphia, and I told them what they should say unto Iddo, *and* to his brethren the Nethinims, at the place Casiphia, that they should bring unto us ministers for the house of our God.  
+> **¹⁸** And by the good hand of our God upon us they brought us a man of understanding, of the sons of Mahli, the son of Levi, the son of Israel; and Sherebiah, with his sons and his brethren, eighteen;  
+> **¹⁹** And Hashabiah, and with him Jeshaiah of the sons of Merari, his brethren and their sons, twenty;  
+> **²⁰** Also of the Nethinims, whom David and the princes had appointed for the service of the Levites, two hundred and twenty Nethinims: all of them were expressed by name.  
 
 Ezra, having received his commission from the king, beats up for volunteers, as it were, sets up an ensign to assemble the outcasts of Israel and the dispersed of Judah, Isa 11:12. "Whoever of the sons of Sion, that *swell with the daughters of Babylon,* is disposed to go to Jerusalem, now that the temple there is finished and the temple-service set a-going, now is their time." Now one would think that under such a leader, with such encouragements, all the Jews should at length have *shaken themselves from their dust,* and *loosed the bands of their neck,* according to that call, Isa 52:1,2, etc. I wonder how any of them could read that chapter and yet stay behind. But multitudes did. They loved their ease better than their religion, thought themselves well off where they were, and either believed not that Jerusalem would better their condition or durst not go thither through any difficulties. But here we are told,
 
@@ -37,9 +37,9 @@ II\. That the Levites who went in this company were in a manner pressed into the
 
 ## Ezra's Fast. (b. c. 457.)
 
-> <sup>21</sup> Then I proclaimed a fast there, at the river of Ahava, that we might afflict ourselves before our God, to seek of him a right way for us, and for our little ones, and for all our substance.  
-> <sup>22</sup> For I was ashamed to require of the king a band of soldiers and horsemen to help us against the enemy in the way: because we had spoken unto the king, saying, The hand of our God *is* upon all them for good that seek him; but his power and his wrath *is* against all them that forsake him.  
-> <sup>23</sup> So we fasted and besought our God for this: and he was intreated of us.  
+> **²¹** Then I proclaimed a fast there, at the river of Ahava, that we might afflict ourselves before our God, to seek of him a right way for us, and for our little ones, and for all our substance.  
+> **²²** For I was ashamed to require of the king a band of soldiers and horsemen to help us against the enemy in the way: because we had spoken unto the king, saying, The hand of our God *is* upon all them for good that seek him; but his power and his wrath *is* against all them that forsake him.  
+> **²³** So we fasted and besought our God for this: and he was intreated of us.  
 
 Ezra has procured Levites to go along with him; but what will that avail, unless he have God with him? That is therefore his chief care. In all our ways we must acknowledge God, and in those particularly wherein we are endeavouring to serve the interest of his kingdom among men. Ezra does so here. Observe,
 
@@ -51,24 +51,24 @@ III\. The good success of their doing so (Ezr 8:23): *We besought our God* by jo
 
 ## Ezra's Care of the Temple Treasure. (b. c. 457.)
 
-> <sup>24</sup> Then I separated twelve of the chief of the priests, Sherebiah, Hashabiah, and ten of their brethren with them,  
-> <sup>25</sup> And weighed unto them the silver, and the gold, and the vessels, *even* the offering of the house of our God, which the king, and his counsellors, and his lords, and all Israel *there* present, had offered:  
-> <sup>26</sup> I even weighed unto their hand six hundred and fifty talents of silver, and silver vessels a hundred talents, *and* of gold a hundred talents;  
-> <sup>27</sup> Also twenty basons of gold, of a thousand drams; and two vessels of fine copper, precious as gold.  
-> <sup>28</sup> And I said unto them, Ye *are* holy unto the LORD; the vessels *are* holy also; and the silver and the gold *are* a freewill offering unto the LORD God of your fathers.  
-> <sup>29</sup> Watch ye, and keep *them,* until ye weigh *them* before the chief of the priests and the Levites, and chief of the fathers of Israel, at Jerusalem, in the chambers of the house of the LORD.  
-> <sup>30</sup> So took the priests and the Levites the weight of the silver, and the gold, and the vessels, to bring *them* to Jerusalem unto the house of our God.  
+> **²⁴** Then I separated twelve of the chief of the priests, Sherebiah, Hashabiah, and ten of their brethren with them,  
+> **²⁵** And weighed unto them the silver, and the gold, and the vessels, *even* the offering of the house of our God, which the king, and his counsellors, and his lords, and all Israel *there* present, had offered:  
+> **²⁶** I even weighed unto their hand six hundred and fifty talents of silver, and silver vessels a hundred talents, *and* of gold a hundred talents;  
+> **²⁷** Also twenty basons of gold, of a thousand drams; and two vessels of fine copper, precious as gold.  
+> **²⁸** And I said unto them, Ye *are* holy unto the LORD; the vessels *are* holy also; and the silver and the gold *are* a freewill offering unto the LORD God of your fathers.  
+> **²⁹** Watch ye, and keep *them,* until ye weigh *them* before the chief of the priests and the Levites, and chief of the fathers of Israel, at Jerusalem, in the chambers of the house of the LORD.  
+> **³⁰** So took the priests and the Levites the weight of the silver, and the gold, and the vessels, to bring *them* to Jerusalem unto the house of our God.  
 
 We have here an account of the particular care which Ezra took of the treasure he had with him, that belonged to God's sanctuary, Observe, 1. Having committed the keeping of it to God, he committed the keeping of it to proper men, whose business it was to watch it, though without God they would have waked in vain. Note, Our prayers must always be seconded with our endeavours; the care of Christ's gospel, his church, and ordinances, must not be so left with him but that it must also be *committed to faithful men,* 2Ti 2:2. 2. Having prayed to God to preserve all the substance they had with them, he shows himself especially solicitous for that part of it which belonged to the house of God and was an offering to him. Do we expect that God should, by his providence, keep that which belongs to us? Let us, by his grace, keep that which belongs to him. Let God's honour and interest be our care; and then we may expect that our lives and comforts will be his. Observe, (1.) The persons to whom he delivered the offerings of the house of God. Twelve chief priests, and as many Levites, he appointed to this trust (Ezr 8:24,30), who were bound by their office to take care of the things of God, and were in a particular manner to have the benefit of these sacred treasures. Ezra tells them why he put those things into their hands (Ezr 8:28): *You are holy unto the Lord, the vessels are holy also;* and who so fit to take care of holy things as holy persons? Those that have the dignity and honour of the priesthood must take along with them the trust and duty of it. The prophet is foretelling the return of God's people and ministers out of Babylon, when he gives the solemn charge (Isa 52:11), *Be you clean that bear the vessels of the Lord.* (2.) The great exactness with which he lodged this trust in their hands: He *weighed to them the silver, the gold, and the vessels* (Ezr 8:25), because he expected to have it from them again by weight. In all trust, but especially sacred ones, we ought to be punctual, and preserve a right understanding on both sides. In Zerubbabel's time the vessels were delivered by number, here by weight, that all might be forth-coming and it might easily appear if any were missing, to intimate that such as are entrusted with holy things (as all the stewards of the mysteries of God are) are concerned to remember, both in receiving their trust and in discharging it, that they must shortly give a very particular account of it, that they may be faithful to it and so give up their account with joy. (3.) The charge he gave them with these treasures (Ezr 8:29): "*Watch you, and keep them,* that they be not lost, nor embezzled, nor mingled with the other articles. Keep them together; keep them by themselves; keep them safely, till you weigh them in the temple, before the great men there," hereby intimating how much it was their concern to be careful and faithful and how much it would be their honour to be found so. Thus when Paul charges Timothy with the gospel treasure he bids him keep it *until the appearing of Jesus Christ,* and his appearing before him to give account of his trust, when his fidelity would be his crown.
 
 ## Ezra's Arrival at Jerusalem. (b. c. 457.)
 
-> <sup>31</sup> Then we departed from the river of Ahava on the twelfth *day* of the first month, to go unto Jerusalem: and the hand of our God was upon us, and he delivered us from the hand of the enemy, and of such as lay in wait by the way.  
-> <sup>32</sup> And we came to Jerusalem, and abode there three days.  
-> <sup>33</sup> Now on the fourth day was the silver and the gold and the vessels weighed in the house of our God by the hand of Meremoth the son of Uriah the priest; and with him *was* Eleazar the son of Phinehas; and with them *was* Jozabad the son of Jeshua, and Noadiah the son of Binnui, Levites;  
-> <sup>34</sup> By number *and* by weight of every one: and all the weight was written at that time.  
-> <sup>35</sup> *Also* the children of those that had been carried away, which were come out of the captivity, offered burnt offerings unto the God of Israel, twelve bullocks for all Israel, ninety and six rams, seventy and seven lambs, twelve he goats *for* a sin offering: all *this was* a burnt offering unto the LORD.  
-> <sup>36</sup> And they delivered the king's commissions unto the king's lieutenants, and to the governors on this side the river: and they furthered the people, and the house of God.  
+> **³¹** Then we departed from the river of Ahava on the twelfth *day* of the first month, to go unto Jerusalem: and the hand of our God was upon us, and he delivered us from the hand of the enemy, and of such as lay in wait by the way.  
+> **³²** And we came to Jerusalem, and abode there three days.  
+> **³³** Now on the fourth day was the silver and the gold and the vessels weighed in the house of our God by the hand of Meremoth the son of Uriah the priest; and with him *was* Eleazar the son of Phinehas; and with them *was* Jozabad the son of Jeshua, and Noadiah the son of Binnui, Levites;  
+> **³⁴** By number *and* by weight of every one: and all the weight was written at that time.  
+> **³⁵** *Also* the children of those that had been carried away, which were come out of the captivity, offered burnt offerings unto the God of Israel, twelve bullocks for all Israel, ninety and six rams, seventy and seven lambs, twelve he goats *for* a sin offering: all *this was* a burnt offering unto the LORD.  
+> **³⁶** And they delivered the king's commissions unto the king's lieutenants, and to the governors on this side the river: and they furthered the people, and the house of God.  
 
 We are now to attend Ezra to Jerusalem, a journey of about four months in all; but his multitude made his marches slow and his stages short. Now here we are told,
 

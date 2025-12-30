@@ -8,14 +8,14 @@ In this chapter, I. The Ephraimites are reproved and threatened for their pride 
 
 ## Ephraim Reproved and Threatened; The Punishment of Ephraim; (b. c. 725.)
 
-> <sup>1</sup> Woe to the crown of pride, to the drunkards of Ephraim, whose glorious beauty *is* a fading flower, which *are* on the head of the fat valleys of them that are overcome with wine!  
-> <sup>2</sup> Behold, the Lord hath a mighty and strong one, *which* as a tempest of hail *and* a destroying storm, as a flood of mighty waters overflowing, shall cast down to the earth with the hand.  
-> <sup>3</sup> The crown of pride, the drunkards of Ephraim, shall be trodden under feet:  
-> <sup>4</sup> And the glorious beauty, which *is* on the head of the fat valley, shall be a fading flower, *and* as the hasty fruit before the summer; which *when* he that looketh upon it seeth, while it is yet in his hand he eateth it up.  
-> <sup>5</sup> In that day shall the LORD of hosts be for a crown of glory, and for a diadem of beauty, unto the residue of his people,  
-> <sup>6</sup> And for a spirit of judgment to him that sitteth in judgment, and for strength to them that turn the battle to the gate.  
-> <sup>7</sup> But they also have erred through wine, and through strong drink are out of the way; the priest and the prophet have erred through strong drink, they are swallowed up of wine, they are out of the way through strong drink; they err in vision, they stumble *in* judgment.  
-> <sup>8</sup> For all tables are full of vomit *and* filthiness, *so that there is* no place *clean.*  
+> **¹** Woe to the crown of pride, to the drunkards of Ephraim, whose glorious beauty *is* a fading flower, which *are* on the head of the fat valleys of them that are overcome with wine!  
+> **²** Behold, the Lord hath a mighty and strong one, *which* as a tempest of hail *and* a destroying storm, as a flood of mighty waters overflowing, shall cast down to the earth with the hand.  
+> **³** The crown of pride, the drunkards of Ephraim, shall be trodden under feet:  
+> **⁴** And the glorious beauty, which *is* on the head of the fat valley, shall be a fading flower, *and* as the hasty fruit before the summer; which *when* he that looketh upon it seeth, while it is yet in his hand he eateth it up.  
+> **⁵** In that day shall the LORD of hosts be for a crown of glory, and for a diadem of beauty, unto the residue of his people,  
+> **⁶** And for a spirit of judgment to him that sitteth in judgment, and for strength to them that turn the battle to the gate.  
+> **⁷** But they also have erred through wine, and through strong drink are out of the way; the priest and the prophet have erred through strong drink, they are swallowed up of wine, they are out of the way through strong drink; they err in vision, they stumble *in* judgment.  
+> **⁸** For all tables are full of vomit *and* filthiness, *so that there is* no place *clean.*  
 
 Here, I. The prophet warns the kingdom of the ten tribes of the judgments that were coming upon them for their sins, which were soon after executed by the king of Assyria, who laid their country waste, and carried the people into captivity. Ephraim had his name from *fruitfulness,* their soil being very fertile and the products of it abundant and the best of the kind; they had a great many *fat valleys* (Isa 28:1,4), and Samaria, which was situated on a hill, was, as it were, *on the head of the fat valleys.* Their country was rich and pleasant, and as the garden of the Lord: it was the glory of Canaan, as that was the glory of all lands; their harvest and vintage were the *glorious beauty* on the head of their valleys, which were covered over with corn and vines. Now observe,
 
@@ -31,11 +31,11 @@ II\. He next turns to the kingdom of Judah, whom he calls the *residue of his pe
 
 ## The Degeneracy of Judah. (b. c. 725.)
 
-> <sup>9</sup> Whom shall he teach knowledge? and whom shall he make to understand doctrine? *them that are* weaned from the milk, *and* drawn from the breasts.  
-> <sup>10</sup> For precept *must be* upon precept, precept upon precept; line upon line, line upon line; here a little, *and* there a little:  
-> <sup>11</sup> For with stammering lips and another tongue will he speak to this people.  
-> <sup>12</sup> To whom he said, This *is* the rest *wherewith* ye may cause the weary to rest; and this *is* the refreshing: yet they would not hear.  
-> <sup>13</sup> But the word of the LORD was unto them precept upon precept, precept upon precept; line upon line, line upon line; here a little, *and* there a little; that they might go, and fall backward, and be broken, and snared, and taken.  
+> **⁹** Whom shall he teach knowledge? and whom shall he make to understand doctrine? *them that are* weaned from the milk, *and* drawn from the breasts.  
+> **¹⁰** For precept *must be* upon precept, precept upon precept; line upon line, line upon line; here a little, *and* there a little:  
+> **¹¹** For with stammering lips and another tongue will he speak to this people.  
+> **¹²** To whom he said, This *is* the rest *wherewith* ye may cause the weary to rest; and this *is* the refreshing: yet they would not hear.  
+> **¹³** But the word of the LORD was unto them precept upon precept, precept upon precept; line upon line, line upon line; here a little, *and* there a little; that they might go, and fall backward, and be broken, and snared, and taken.  
 
 The prophet here complains of the wretched stupidity of this people, that they were unteachable and made no improvement of the means of grace which they possessed; they still continued as they were, their mistakes not rectified, their hearts not renewed, nor their lives reformed. Observe,
 
@@ -49,15 +49,15 @@ IV\. How severely God would reckon with them for this. 1. He would deprive them 
 
 ## Judgments Announced; The Corner-stone in Zion. (b. c. 725.)
 
-> <sup>14</sup> Wherefore hear the word of the LORD, ye scornful men, that rule this people which *is* in Jerusalem.  
-> <sup>15</sup> Because ye have said, We have made a covenant with death, and with hell are we at agreement; when the overflowing scourge shall pass through, it shall not come unto us: for we have made lies our refuge, and under falsehood have we hid ourselves:  
-> <sup>16</sup> Therefore thus saith the Lord GOD, Behold, I lay in Zion for a foundation a stone, a tried stone, a precious corner *stone,* a sure foundation: he that believeth shall not make haste.  
-> <sup>17</sup> Judgment also will I lay to the line, and righteousness to the plummet: and the hail shall sweep away the refuge of lies, and the waters shall overflow the hiding place.  
-> <sup>18</sup> And your covenant with death shall be disannulled, and your agreement with hell shall not stand; when the overflowing scourge shall pass through, then ye shall be trodden down by it.  
-> <sup>19</sup> From the time that it goeth forth it shall take you: for morning by morning shall it pass over, by day and by night: and it shall be a vexation only *to* understand the report.  
-> <sup>20</sup> For the bed is shorter than that *a man* can stretch himself *on it:* and the covering narrower than that he can wrap himself *in it.*  
-> <sup>21</sup> For the LORD shall rise up as *in* mount Perazim, he shall be wroth as *in* the valley of Gibeon, that he may do his work, his strange work; and bring to pass his act, his strange act.  
-> <sup>22</sup> Now therefore be ye not mockers, lest your bands be made strong: for I have heard from the Lord GOD of hosts a consumption, even determined upon the whole earth.  
+> **¹⁴** Wherefore hear the word of the LORD, ye scornful men, that rule this people which *is* in Jerusalem.  
+> **¹⁵** Because ye have said, We have made a covenant with death, and with hell are we at agreement; when the overflowing scourge shall pass through, it shall not come unto us: for we have made lies our refuge, and under falsehood have we hid ourselves:  
+> **¹⁶** Therefore thus saith the Lord GOD, Behold, I lay in Zion for a foundation a stone, a tried stone, a precious corner *stone,* a sure foundation: he that believeth shall not make haste.  
+> **¹⁷** Judgment also will I lay to the line, and righteousness to the plummet: and the hail shall sweep away the refuge of lies, and the waters shall overflow the hiding place.  
+> **¹⁸** And your covenant with death shall be disannulled, and your agreement with hell shall not stand; when the overflowing scourge shall pass through, then ye shall be trodden down by it.  
+> **¹⁹** From the time that it goeth forth it shall take you: for morning by morning shall it pass over, by day and by night: and it shall be a vexation only *to* understand the report.  
+> **²⁰** For the bed is shorter than that *a man* can stretch himself *on it:* and the covering narrower than that he can wrap himself *in it.*  
+> **²¹** For the LORD shall rise up as *in* mount Perazim, he shall be wroth as *in* the valley of Gibeon, that he may do his work, his strange work; and bring to pass his act, his strange act.  
+> **²²** Now therefore be ye not mockers, lest your bands be made strong: for I have heard from the Lord GOD of hosts a consumption, even determined upon the whole earth.  
 
 The prophet, having reproved those that made a jest of the word of God, here goes on to reprove those that made a jest of the judgments of God, and set them at defiance; for he is a jealous God, and will not suffer either his ordinances or his providences to be brought into contempt. He addressed himself to *the scornful men who ruled in Jerusalem,* who were the magistrates of the city, Isa 28:14. It is bad with a people when their thrones of judgment become the seats of the scornful, when rulers are scorners; but that the rulers of Jerusalem should be men of such a character, that they should make light of God's judgments and scorn to take notice of the tokens of his displeasure, is very sad. Who will be mourners in Zion if they are scorners? Observe,
 
@@ -81,13 +81,13 @@ II\. How God, by the prophet, awakens them out of this sleep, and shows them the
 
 ## Husbandry a Divine Art. (b. c. 725.)
 
-> <sup>23</sup> Give ye ear, and hear my voice; hearken, and hear my speech.  
-> <sup>24</sup> Doth the plowman plow all day to sow? doth he open and break the clods of his ground?  
-> <sup>25</sup> When he hath made plain the face thereof, doth he not cast abroad the fitches, and scatter the cummin, and cast in the principal wheat and the appointed barley and the rie in their place?  
-> <sup>26</sup> For his God doth instruct him to discretion, *and* doth teach him.  
-> <sup>27</sup> For the fitches are not threshed with a threshing instrument, neither is a cart wheel turned about upon the cummin; but the fitches are beaten out with a staff, and the cummin with a rod.  
-> <sup>28</sup> Bread *corn* is bruised; because he will not ever be threshing it, nor break *it with* the wheel of his cart, nor bruise it *with* his horsemen.  
-> <sup>29</sup> This also cometh forth from the LORD of hosts, *which* is wonderful in counsel, *and* excellent in working.  
+> **²³** Give ye ear, and hear my voice; hearken, and hear my speech.  
+> **²⁴** Doth the plowman plow all day to sow? doth he open and break the clods of his ground?  
+> **²⁵** When he hath made plain the face thereof, doth he not cast abroad the fitches, and scatter the cummin, and cast in the principal wheat and the appointed barley and the rie in their place?  
+> **²⁶** For his God doth instruct him to discretion, *and* doth teach him.  
+> **²⁷** For the fitches are not threshed with a threshing instrument, neither is a cart wheel turned about upon the cummin; but the fitches are beaten out with a staff, and the cummin with a rod.  
+> **²⁸** Bread *corn* is bruised; because he will not ever be threshing it, nor break *it with* the wheel of his cart, nor bruise it *with* his horsemen.  
+> **²⁹** This also cometh forth from the LORD of hosts, *which* is wonderful in counsel, *and* excellent in working.  
 
 This parable, which (like many of our Saviour's parables) is borrowed from the husbandman's calling, is ushered in with a solemn preface demanding attention, *He that has ears to hear, let him hear,* hear and understand, Isa 28:23.
 

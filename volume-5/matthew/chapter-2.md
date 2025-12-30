@@ -8,14 +8,14 @@ In this chapter, we have the history of our Saviour's infancy, where we find how
 
 ## The Wise Men Come to Jerusalem.
 
-> <sup>1</sup> Now when Jesus was born in Bethlehem of Judea in the days of Herod the king, behold, there came wise men from the east to Jerusalem,  
-> <sup>2</sup> Saying, Where is he that is born King of the Jews? for we have seen his star in the east, and are come to worship him.  
-> <sup>3</sup> When Herod the king had heard *these things,* he was troubled, and all Jerusalem with him.  
-> <sup>4</sup> And when he had gathered all the chief priests and scribes of the people together, he demanded of them where Christ should be born.  
-> <sup>5</sup> And they said unto him, In Bethlehem of Judea: for thus it is written by the prophet,  
-> <sup>6</sup> And thou Bethlehem, *in* the land of Juda, art not the least among the princes of Juda: for out of thee shall come a Governor, that shall rule my people Israel.  
-> <sup>7</sup> Then Herod, when he had privily called the wise men, enquired of them diligently what time the star appeared.  
-> <sup>8</sup> And he sent them to Bethlehem, and said, Go and search diligently for the young child; and when ye have found *him,* bring me word again, that I may come and worship him also.  
+> **¹** Now when Jesus was born in Bethlehem of Judea in the days of Herod the king, behold, there came wise men from the east to Jerusalem,  
+> **²** Saying, Where is he that is born King of the Jews? for we have seen his star in the east, and are come to worship him.  
+> **³** When Herod the king had heard *these things,* he was troubled, and all Jerusalem with him.  
+> **⁴** And when he had gathered all the chief priests and scribes of the people together, he demanded of them where Christ should be born.  
+> **⁵** And they said unto him, In Bethlehem of Judea: for thus it is written by the prophet,  
+> **⁶** And thou Bethlehem, *in* the land of Juda, art not the least among the princes of Juda: for out of thee shall come a Governor, that shall rule my people Israel.  
+> **⁷** Then Herod, when he had privily called the wise men, enquired of them diligently what time the star appeared.  
+> **⁸** And he sent them to Bethlehem, and said, Go and search diligently for the young child; and when ye have found *him,* bring me word again, that I may come and worship him also.  
 
 It was a *mark of humiliation* put upon the Lord Jesus that, though he was the *Desire of all nations,* yet his coming into the world was little observed and taken notice of, his birth was obscure and unregarded: herein he emptied himself, and made himself of no reputation. If the Son of God must be brought into the world, one might justly expect that he should be received with all the ceremony possible, that crowns and sceptres should immediately have been laid at his feet, and that the high and mighty princes of the world should have been his humble servants; such a Messiah as this the Jews expected, but we see none of all this; he *came into the world,* and the *world knew him not;* nay, he *came to his own,* and *his own received him not;* for having undertaken to make satisfaction to his Father for the wrong done him *in his honour* by the sin of man, he did it by denying himself in, and despoiling himself of, the honours undoubtedly due to an incarnate Deity; yet, as afterward, so in his birth, some rays of glory darted forth in the midst of the greatest instances of his abasement. Though *there was the hiding of his power,* yet he had *horns coming out of his hand* (Hab 3:4) enough to condemn the world, and the Jews especially, for their stupidity.
 
@@ -51,10 +51,10 @@ Now, 1. See how cunningly he laid the project (Mt 2:7,8). *He privily called the
 
 ## The Wise Men Worship Christ.
 
-> <sup>9</sup> When they had heard the king, they departed; and, lo, the star, which they saw in the east, went before them, till it came and stood over where the young child was.  
-> <sup>10</sup> When they saw the star, they rejoiced with exceeding great joy.  
-> <sup>11</sup> And when they were come into the house, they saw the young child with Mary his mother, and fell down, and worshipped him: and when they had opened their treasures, they presented unto him gifts; gold, and frankincense, and myrrh.  
-> <sup>12</sup> And being warned of God in a dream that they should not return to Herod, they departed into their own country another way.  
+> **⁹** When they had heard the king, they departed; and, lo, the star, which they saw in the east, went before them, till it came and stood over where the young child was.  
+> **¹⁰** When they saw the star, they rejoiced with exceeding great joy.  
+> **¹¹** And when they were come into the house, they saw the young child with Mary his mother, and fell down, and worshipped him: and when they had opened their treasures, they presented unto him gifts; gold, and frankincense, and myrrh.  
+> **¹²** And being warned of God in a dream that they should not return to Herod, they departed into their own country another way.  
 
 We have here the wise men's humble attendance upon this new-born *King of the Jews,* and the honours they paid him. From Jerusalem they went to Bethlehem, resolving to *seek till they should find;* but it is very strange that they went alone; that not one person of the court, church, or city, should accompany them, if not in conscience, yet in civility to them, or touched with a curiosity to see this young prince. As *the queen of the south,* so *the wise men of the east,* will *rise up in judgment against* the men of that generation, and of this too, *and will condemn them;* for they *came from a far country,* to worship Christ; while the Jews, his kinsmen, would not stir a step, would not go to the next town to bid him welcome. It might have been a discouragement to these wise men to find him whom they sought thus neglected at home. Are we come so far to honour *the King of the Jews,* and do the Jews themselves put such a slight upon him and us? Yet they persist in their resolution. Note, We must continue our attendance upon Christ, though we be alone in it; whatever others do, we must *serve the Lord;* if they will not go to heaven with us, yet we must not go to hell with them. Now,
 
@@ -70,9 +70,9 @@ III\. See how they left him when they had made their address to him, Mt 2:12. He
 
 ## The Flight into Egypt.
 
-> <sup>13</sup> And when they were departed, behold, the angel of the Lord appeareth to Joseph in a dream, saying, Arise, and take the young child and his mother, and flee into Egypt, and be thou there until I bring thee word: for Herod will seek the young child to destroy him.  
-> <sup>14</sup> When he arose, he took the young child and his mother by night, and departed into Egypt:  
-> <sup>15</sup> And was there until the death of Herod: that it might be fulfilled which was spoken of the Lord by the prophet, saying, Out of Egypt have I called my son.  
+> **¹³** And when they were departed, behold, the angel of the Lord appeareth to Joseph in a dream, saying, Arise, and take the young child and his mother, and flee into Egypt, and be thou there until I bring thee word: for Herod will seek the young child to destroy him.  
+> **¹⁴** When he arose, he took the young child and his mother by night, and departed into Egypt:  
+> **¹⁵** And was there until the death of Herod: that it might be fulfilled which was spoken of the Lord by the prophet, saying, Out of Egypt have I called my son.  
 
 We have here Christ's flight into Egypt to avoid the cruelty of Herod, and this was the effect of the wise men's enquiry after him; for, before that, the obscurity he lay in was his protection. It was but little respect (compared with what should have been) that was paid to Christ in his infancy: yet even that, instead of honouring him among his people, did but expose him.
 
@@ -98,9 +98,9 @@ III\. The fulfilling of the scripture in a this—that scripture (Ho 11:1), *Out
 
 ## The Slaughter of the Children.
 
-> <sup>16</sup> Then Herod, when he saw that he was mocked of the wise men, was exceeding wroth, and sent forth, and slew all the children that were in Bethlehem, and in all the coasts thereof, from two years old and under, according to the time which he had diligently enquired of the wise men.  
-> <sup>17</sup> Then was fulfilled that which was spoken by Jeremy the prophet, saying,  
-> <sup>18</sup> In Rama was there a voice heard, lamentation, and weeping, and great mourning, Rachel weeping *for* her children, and would not be comforted, because they are not.  
+> **¹⁶** Then Herod, when he saw that he was mocked of the wise men, was exceeding wroth, and sent forth, and slew all the children that were in Bethlehem, and in all the coasts thereof, from two years old and under, according to the time which he had diligently enquired of the wise men.  
+> **¹⁷** Then was fulfilled that which was spoken by Jeremy the prophet, saying,  
+> **¹⁸** In Rama was there a voice heard, lamentation, and weeping, and great mourning, Rachel weeping *for* her children, and would not be comforted, because they are not.  
 
 Here is, I. Herod's resentment of the departure of the wise men. He waited long for their return; he hopes, though they be slow, they will be sure, and he shall crush this rival at his first appearing; but he hears, upon enquiry, that they are gone off another way, which increases his jealousy, and makes him suspect they are in the interest of this new King, which made him *exceedingly wroth;* and he is the more desperate and outrageous for his being disappointed. Note, Inveterate corruption swells the higher for the obstructions it meets with in a sinful pursuit.
 
@@ -122,11 +122,11 @@ The quoting of this prophecy might serve to obviate an objection which some woul
 
 ## Christ's Return from Egypt.
 
-> <sup>19</sup> But when Herod was dead, behold, an angel of the Lord appeareth in a dream to Joseph in Egypt,  
-> <sup>20</sup> Saying, Arise, and take the young child and his mother, and go into the land of Israel: for they are dead which sought the young child's life.  
-> <sup>21</sup> And he arose, and took the young child and his mother, and came into the land of Israel.  
-> <sup>22</sup> But when he heard that Archelaus did reign in Judea in the room of his father Herod, he was afraid to go thither: notwithstanding, being warned of God in a dream, he turned aside into the parts of Galilee:  
-> <sup>23</sup> And he came and dwelt in a city called Nazareth: that it might be fulfilled which was spoken by the prophets, He shall be called a Nazarene.  
+> **¹⁹** But when Herod was dead, behold, an angel of the Lord appeareth in a dream to Joseph in Egypt,  
+> **²⁰** Saying, Arise, and take the young child and his mother, and go into the land of Israel: for they are dead which sought the young child's life.  
+> **²¹** And he arose, and took the young child and his mother, and came into the land of Israel.  
+> **²²** But when he heard that Archelaus did reign in Judea in the room of his father Herod, he was afraid to go thither: notwithstanding, being warned of God in a dream, he turned aside into the parts of Galilee:  
+> **²³** And he came and dwelt in a city called Nazareth: that it might be fulfilled which was spoken by the prophets, He shall be called a Nazarene.  
 
 We have here Christ's return out of Egypt into the *land of Israel* again. Egypt may serve to sojourn in, or take shelter in, for a while, but not to abide in. Christ was *sent to the lost sheep of the house of Israel,* and therefore to them he must return. Observe,
 

@@ -8,20 +8,20 @@ The prophet had soon done with those four nations that he set his face against i
 
 ## The Burden of Tyre. (b. c. 588.)
 
-> <sup>1</sup> And it came to pass in the eleventh year, in the first *day* of the month, *that* the word of the LORD came unto me, saying,  
-> <sup>2</sup> Son of man, because that Tyrus hath said against Jerusalem, Aha, she is broken *that was* the gates of the people: she is turned unto me: I shall be replenished, *now* she is laid waste:  
-> <sup>3</sup> Therefore thus saith the Lord GOD; Behold, I *am* against thee, O Tyrus, and will cause many nations to come up against thee, as the sea causeth his waves to come up.  
-> <sup>4</sup> And they shall destroy the walls of Tyrus, and break down her towers: I will also scrape her dust from her, and make her like the top of a rock.  
-> <sup>5</sup> It shall be *a place for* the spreading of nets in the midst of the sea: for I have spoken *it,* saith the Lord GOD: and it shall become a spoil to the nations.  
-> <sup>6</sup> And her daughters which *are* in the field shall be slain by the sword; and they shall know that I *am* the LORD.  
-> <sup>7</sup> For thus saith the Lord GOD; Behold, I will bring upon Tyrus Nebuchadrezzar king of Babylon, a king of kings, from the north, with horses, and with chariots, and with horsemen, and companies, and much people.  
-> <sup>8</sup> He shall slay with the sword thy daughters in the field: and he shall make a fort against thee, and cast a mount against thee, and lift up the buckler against thee.  
-> <sup>9</sup> And he shall set engines of war against thy walls, and with his axes he shall break down thy towers.  
-> <sup>10</sup> By reason of the abundance of his horses their dust shall cover thee: thy walls shall shake at the noise of the horsemen, and of the wheels, and of the chariots, when he shall enter into thy gates, as men enter into a city wherein is made a breach.  
-> <sup>11</sup> With the hoofs of his horses shall he tread down all thy streets: he shall slay thy people by the sword, and thy strong garrisons shall go down to the ground.  
-> <sup>12</sup> And they shall make a spoil of thy riches, and make a prey of thy merchandise: and they shall break down thy walls, and destroy thy pleasant houses: and they shall lay thy stones and thy timber and thy dust in the midst of the water.  
-> <sup>13</sup> And I will cause the noise of thy songs to cease; and the sound of thy harps shall be no more heard.  
-> <sup>14</sup> And I will make thee like the top of a rock: thou shalt be *a place* to spread nets upon; thou shalt be built no more: for I the LORD have spoken *it,* saith the Lord GOD.  
+> **¹** And it came to pass in the eleventh year, in the first *day* of the month, *that* the word of the LORD came unto me, saying,  
+> **²** Son of man, because that Tyrus hath said against Jerusalem, Aha, she is broken *that was* the gates of the people: she is turned unto me: I shall be replenished, *now* she is laid waste:  
+> **³** Therefore thus saith the Lord GOD; Behold, I *am* against thee, O Tyrus, and will cause many nations to come up against thee, as the sea causeth his waves to come up.  
+> **⁴** And they shall destroy the walls of Tyrus, and break down her towers: I will also scrape her dust from her, and make her like the top of a rock.  
+> **⁵** It shall be *a place for* the spreading of nets in the midst of the sea: for I have spoken *it,* saith the Lord GOD: and it shall become a spoil to the nations.  
+> **⁶** And her daughters which *are* in the field shall be slain by the sword; and they shall know that I *am* the LORD.  
+> **⁷** For thus saith the Lord GOD; Behold, I will bring upon Tyrus Nebuchadrezzar king of Babylon, a king of kings, from the north, with horses, and with chariots, and with horsemen, and companies, and much people.  
+> **⁸** He shall slay with the sword thy daughters in the field: and he shall make a fort against thee, and cast a mount against thee, and lift up the buckler against thee.  
+> **⁹** And he shall set engines of war against thy walls, and with his axes he shall break down thy towers.  
+> **¹⁰** By reason of the abundance of his horses their dust shall cover thee: thy walls shall shake at the noise of the horsemen, and of the wheels, and of the chariots, when he shall enter into thy gates, as men enter into a city wherein is made a breach.  
+> **¹¹** With the hoofs of his horses shall he tread down all thy streets: he shall slay thy people by the sword, and thy strong garrisons shall go down to the ground.  
+> **¹²** And they shall make a spoil of thy riches, and make a prey of thy merchandise: and they shall break down thy walls, and destroy thy pleasant houses: and they shall lay thy stones and thy timber and thy dust in the midst of the water.  
+> **¹³** And I will cause the noise of thy songs to cease; and the sound of thy harps shall be no more heard.  
+> **¹⁴** And I will make thee like the top of a rock: thou shalt be *a place* to spread nets upon; thou shalt be built no more: for I the LORD have spoken *it,* saith the Lord GOD.  
 
 This prophecy is dated in the eleventh year, which was the year that Jerusalem was taken, and *in the first day of the month,* but it is not said what month, some think the month in which Jerusalem was taken, which was the fourth month, others the month after; or perhaps it was the first month, and so it was the first day of the year. Observe here,
 
@@ -35,13 +35,13 @@ II\. The displeasure of God against them for it. The providence of God had done 
 
 ## The Burden of Tyre. (b. c. 588.)
 
-> <sup>15</sup> Thus saith the Lord GOD to Tyrus; Shall not the isles shake at the sound of thy fall, when the wounded cry, when the slaughter is made in the midst of thee?  
-> <sup>16</sup> Then all the princes of the sea shall come down from their thrones, and lay away their robes, and put off their broidered garments: they shall clothe themselves with trembling; they shall sit upon the ground, and shall tremble at *every* moment, and be astonished at thee.  
-> <sup>17</sup> And they shall take up a lamentation for thee, and say to thee, How art thou destroyed, *that wast* inhabited of seafaring men, the renowned city, which wast strong in the sea, she and her inhabitants, which cause their terror *to be* on all that haunt it!  
-> <sup>18</sup> Now shall the isles tremble in the day of thy fall; yea, the isles that *are* in the sea shall be troubled at thy departure.  
-> <sup>19</sup> For thus saith the Lord GOD; When I shall make thee a desolate city, like the cities that are not inhabited; when I shall bring up the deep upon thee, and great waters shall cover thee;  
-> <sup>20</sup> When I shall bring thee down with them that descend into the pit, with the people of old time, and shall set thee in the low parts of the earth, in places desolate of old, with them that go down to the pit, that thou be not inhabited; and I shall set glory in the land of the living;  
-> <sup>21</sup> I will make thee a terror, and thou *shalt be* no *more:* though thou be sought for, yet shalt thou never be found again, saith the Lord GOD.  
+> **¹⁵** Thus saith the Lord GOD to Tyrus; Shall not the isles shake at the sound of thy fall, when the wounded cry, when the slaughter is made in the midst of thee?  
+> **¹⁶** Then all the princes of the sea shall come down from their thrones, and lay away their robes, and put off their broidered garments: they shall clothe themselves with trembling; they shall sit upon the ground, and shall tremble at *every* moment, and be astonished at thee.  
+> **¹⁷** And they shall take up a lamentation for thee, and say to thee, How art thou destroyed, *that wast* inhabited of seafaring men, the renowned city, which wast strong in the sea, she and her inhabitants, which cause their terror *to be* on all that haunt it!  
+> **¹⁸** Now shall the isles tremble in the day of thy fall; yea, the isles that *are* in the sea shall be troubled at thy departure.  
+> **¹⁹** For thus saith the Lord GOD; When I shall make thee a desolate city, like the cities that are not inhabited; when I shall bring up the deep upon thee, and great waters shall cover thee;  
+> **²⁰** When I shall bring thee down with them that descend into the pit, with the people of old time, and shall set thee in the low parts of the earth, in places desolate of old, with them that go down to the pit, that thou be not inhabited; and I shall set glory in the land of the living;  
+> **²¹** I will make thee a terror, and thou *shalt be* no *more:* though thou be sought for, yet shalt thou never be found again, saith the Lord GOD.  
 
 The utter ruin of Tyre is here represented in very strong and lively figures, which are exceedingly affecting.
 

@@ -8,15 +8,15 @@ Moses had charged parents in teaching their children to whet the word of God upo
 
 ## A Charge to Israel; Israel's Retrospect. (b. c. 1451.)
 
-> <sup>1</sup> All the commandments which I command thee this day shall ye observe to do, that ye may live, and multiply, and go in and possess the land which the LORD sware unto your fathers.  
-> <sup>2</sup> And thou shalt remember all the way which the LORD thy God led thee these forty years in the wilderness, to humble thee, *and* to prove thee, to know what *was* in thine heart, whether thou wouldest keep his commandments, or no.  
-> <sup>3</sup> And he humbled thee, and suffered thee to hunger, and fed thee with manna, which thou knewest not, neither did thy fathers know; that he might make thee know that man doth not live by bread only, but by every *word* that proceedeth out of the mouth of the LORD doth man live.  
-> <sup>4</sup> Thy raiment waxed not old upon thee, neither did thy foot swell, these forty years.  
-> <sup>5</sup> Thou shalt also consider in thine heart, that, as a man chasteneth his son, *so* the LORD thy God chasteneth thee.  
-> <sup>6</sup> Therefore thou shalt keep the commandments of the LORD thy God, to walk in his ways, and to fear him.  
-> <sup>7</sup> For the LORD thy God bringeth thee into a good land, a land of brooks of water, of fountains and depths that spring out of valleys and hills;  
-> <sup>8</sup> A land of wheat, and barley, and vines, and fig trees, and pomegranates; a land of oil olive, and honey;  
-> <sup>9</sup> A land wherein thou shalt eat bread without scarceness, thou shalt not lack any *thing* in it; a land whose stones *are* iron, and out of whose hills thou mayest dig brass.  
+> **¹** All the commandments which I command thee this day shall ye observe to do, that ye may live, and multiply, and go in and possess the land which the LORD sware unto your fathers.  
+> **²** And thou shalt remember all the way which the LORD thy God led thee these forty years in the wilderness, to humble thee, *and* to prove thee, to know what *was* in thine heart, whether thou wouldest keep his commandments, or no.  
+> **³** And he humbled thee, and suffered thee to hunger, and fed thee with manna, which thou knewest not, neither did thy fathers know; that he might make thee know that man doth not live by bread only, but by every *word* that proceedeth out of the mouth of the LORD doth man live.  
+> **⁴** Thy raiment waxed not old upon thee, neither did thy foot swell, these forty years.  
+> **⁵** Thou shalt also consider in thine heart, that, as a man chasteneth his son, *so* the LORD thy God chasteneth thee.  
+> **⁶** Therefore thou shalt keep the commandments of the LORD thy God, to walk in his ways, and to fear him.  
+> **⁷** For the LORD thy God bringeth thee into a good land, a land of brooks of water, of fountains and depths that spring out of valleys and hills;  
+> **⁸** A land of wheat, and barley, and vines, and fig trees, and pomegranates; a land of oil olive, and honey;  
+> **⁹** A land wherein thou shalt eat bread without scarceness, thou shalt not lack any *thing* in it; a land whose stones *are* iron, and out of whose hills thou mayest dig brass.  
 
 The charge here given them is the same as before, to keep and do all God's commandments. Their obedience must be, 1. Careful: *Observe to do.* 2. Universal: To *do all the commandments,* De 8:1. And, 3. From a good principle, with a regard to God as the Lord, and their God, and particularly with a holy fear of him (De 8:6), from a reverence of his majesty, a submission to his authority, and a dread of his wrath. To engage them to this obedience, besides the great advantages of it, which he sets before them (that they should *live and multiply,* and all should be well with them, De 8:1), he directs them,
 
@@ -40,17 +40,17 @@ II\. He directs them to look forward to Canaan, into which God was now bringing 
 
 ## Cautions Relating to Worldly Prosperity. (b. c. 1451.)
 
-> <sup>10</sup> When thou hast eaten and art full, then thou shalt bless the LORD thy God for the good land which he hath given thee.  
-> <sup>11</sup> Beware that thou forget not the LORD thy God, in not keeping his commandments, and his judgments, and his statutes, which I command thee this day:  
-> <sup>12</sup> Lest *when* thou hast eaten and art full, and hast built goodly houses, and dwelt *therein;*  
-> <sup>13</sup> And *when* thy herds and thy flocks multiply, and thy silver and thy gold is multiplied, and all that thou hast is multiplied;  
-> <sup>14</sup> Then thine heart be lifted up, and thou forget the LORD thy God, which brought thee forth out of the land of Egypt, from the house of bondage;  
-> <sup>15</sup> Who led thee through that great and terrible wilderness, *wherein were* fiery serpents, and scorpions, and drought, where *there was* no water; who brought thee forth water out of the rock of flint;  
-> <sup>16</sup> Who fed thee in the wilderness with manna, which thy fathers knew not, that he might humble thee, and that he might prove thee, to do thee good at thy latter end;  
-> <sup>17</sup> And thou say in thine heart, My power and the might of *mine* hand hath gotten me this wealth.  
-> <sup>18</sup> But thou shalt remember the LORD thy God: for *it is* he that giveth thee power to get wealth, that he may establish his covenant which he sware unto thy fathers, as *it is* this day.  
-> <sup>19</sup> And it shall be, if thou do at all forget the LORD thy God, and walk after other gods, and serve them, and worship them, I testify against you this day that ye shall surely perish.  
-> <sup>20</sup> As the nations which the LORD destroyeth before your face, so shall ye perish; because ye would not be obedient unto the voice of the LORD your God.  
+> **¹⁰** When thou hast eaten and art full, then thou shalt bless the LORD thy God for the good land which he hath given thee.  
+> **¹¹** Beware that thou forget not the LORD thy God, in not keeping his commandments, and his judgments, and his statutes, which I command thee this day:  
+> **¹²** Lest *when* thou hast eaten and art full, and hast built goodly houses, and dwelt *therein;*  
+> **¹³** And *when* thy herds and thy flocks multiply, and thy silver and thy gold is multiplied, and all that thou hast is multiplied;  
+> **¹⁴** Then thine heart be lifted up, and thou forget the LORD thy God, which brought thee forth out of the land of Egypt, from the house of bondage;  
+> **¹⁵** Who led thee through that great and terrible wilderness, *wherein were* fiery serpents, and scorpions, and drought, where *there was* no water; who brought thee forth water out of the rock of flint;  
+> **¹⁶** Who fed thee in the wilderness with manna, which thy fathers knew not, that he might humble thee, and that he might prove thee, to do thee good at thy latter end;  
+> **¹⁷** And thou say in thine heart, My power and the might of *mine* hand hath gotten me this wealth.  
+> **¹⁸** But thou shalt remember the LORD thy God: for *it is* he that giveth thee power to get wealth, that he may establish his covenant which he sware unto thy fathers, as *it is* this day.  
+> **¹⁹** And it shall be, if thou do at all forget the LORD thy God, and walk after other gods, and serve them, and worship them, I testify against you this day that ye shall surely perish.  
+> **²⁰** As the nations which the LORD destroyeth before your face, so shall ye perish; because ye would not be obedient unto the voice of the LORD your God.  
 
 Moses, having mentioned the great plenty they would find in the land of Canaan, finds it necessary to caution them against the abuse of that plenty, which was a sin they would be the more prone to now that they came into the vineyard of the Lord, immediately out of a barren desert.
 

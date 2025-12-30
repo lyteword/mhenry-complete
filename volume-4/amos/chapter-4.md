@@ -8,11 +8,11 @@ In this chapter, I. The oppressors in Israel are threatened for their oppression
 
 ## Threatenings against Oppressors; Punishment of Proud Oppressors. (b. c. 790.)
 
-> <sup>1</sup> Hear this word, ye kine of Bashan, that *are* in the mountain of Samaria, which oppress the poor, which crush the needy, which say to their masters, Bring, and let us drink.  
-> <sup>2</sup> The Lord GOD hath sworn by his holiness, that, lo, the days shall come upon you, that he will take you away with hooks, and your posterity with fish-hooks.  
-> <sup>3</sup> And ye shall go out at the breaches, every *cow at that which is* before her; and ye shall cast *them* into the palace, saith the LORD.  
-> <sup>4</sup> Come to Bethel, and transgress; at Gilgal multiply transgression; and bring your sacrifices every morning, *and* your tithes after three years:  
-> <sup>5</sup> And offer a sacrifice of thanksgiving with leaven, and proclaim *and* publish the free offerings: for this liketh you, O ye children of Israel, saith the Lord GOD.  
+> **¹** Hear this word, ye kine of Bashan, that *are* in the mountain of Samaria, which oppress the poor, which crush the needy, which say to their masters, Bring, and let us drink.  
+> **²** The Lord GOD hath sworn by his holiness, that, lo, the days shall come upon you, that he will take you away with hooks, and your posterity with fish-hooks.  
+> **³** And ye shall go out at the breaches, every *cow at that which is* before her; and ye shall cast *them* into the palace, saith the LORD.  
+> **⁴** Come to Bethel, and transgress; at Gilgal multiply transgression; and bring your sacrifices every morning, *and* your tithes after three years:  
+> **⁵** And offer a sacrifice of thanksgiving with leaven, and proclaim *and* publish the free offerings: for this liketh you, O ye children of Israel, saith the Lord GOD.  
 
 It is here foretold, in the name of God, that oppressors shall be humbled and idolaters shall be hardened.
 
@@ -28,14 +28,14 @@ II\. That obstinate idolaters shall be hardened in their idolatries (Am 4:4,5): 
 
 ## Incorrigibleness of Israel; Judgments Called to Remembrance; Greater Judgments Threatened. (b. c. 790.)
 
-> <sup>6</sup> And I also have given you cleanness of teeth in all your cities, and want of bread in all your places: yet have ye not returned unto me, saith the LORD.  
-> <sup>7</sup> And also I have withholden the rain from you, when *there were* yet three months to the harvest: and I caused it to rain upon one city, and caused it not to rain upon another city: one piece was rained upon, and the piece whereupon it rained not withered.  
-> <sup>8</sup> So two *or* three cities wandered unto one city, to drink water; but they were not satisfied: yet have ye not returned unto me, saith the LORD.  
-> <sup>9</sup> I have smitten you with blasting and mildew: when your gardens and your vineyards and your fig trees and your olive trees increased, the palmer-worm devoured *them:* yet have ye not returned unto me, saith the LORD.  
-> <sup>10</sup> I have sent among you the pestilence after the manner of Egypt: your young men have I slain with the sword, and have taken away your horses; and I have made the stink of your camps to come up unto your nostrils: yet have ye not returned unto me, saith the LORD.  
-> <sup>11</sup> I have overthrown *some* of you, as God overthrew Sodom and Gomorrah, and ye were as a firebrand plucked out of the burning: yet have ye not returned unto me, saith the LORD.  
-> <sup>12</sup> Therefore thus will I do unto thee, O Israel: *and* because I will do this unto thee, prepare to meet thy God, O Israel.  
-> <sup>13</sup> For, lo, he that formeth the mountains, and createth the wind, and declareth unto man what *is* his thought, that maketh the morning darkness, and treadeth upon the high places of the earth, The LORD, The God of hosts, *is* his name.  
+> **⁶** And I also have given you cleanness of teeth in all your cities, and want of bread in all your places: yet have ye not returned unto me, saith the LORD.  
+> **⁷** And also I have withholden the rain from you, when *there were* yet three months to the harvest: and I caused it to rain upon one city, and caused it not to rain upon another city: one piece was rained upon, and the piece whereupon it rained not withered.  
+> **⁸** So two *or* three cities wandered unto one city, to drink water; but they were not satisfied: yet have ye not returned unto me, saith the LORD.  
+> **⁹** I have smitten you with blasting and mildew: when your gardens and your vineyards and your fig trees and your olive trees increased, the palmer-worm devoured *them:* yet have ye not returned unto me, saith the LORD.  
+> **¹⁰** I have sent among you the pestilence after the manner of Egypt: your young men have I slain with the sword, and have taken away your horses; and I have made the stink of your camps to come up unto your nostrils: yet have ye not returned unto me, saith the LORD.  
+> **¹¹** I have overthrown *some* of you, as God overthrew Sodom and Gomorrah, and ye were as a firebrand plucked out of the burning: yet have ye not returned unto me, saith the LORD.  
+> **¹²** Therefore thus will I do unto thee, O Israel: *and* because I will do this unto thee, prepare to meet thy God, O Israel.  
+> **¹³** For, lo, he that formeth the mountains, and createth the wind, and declareth unto man what *is* his thought, that maketh the morning darkness, and treadeth upon the high places of the earth, The LORD, The God of hosts, *is* his name.  
 
 Here, I. God complains of his people's incorrigibleness under the judgments which he had brought upon them in order to their humiliation and reformation. He had by several tokens intimated to them his displeasure, with this design, that they might by repentance make their peace with him; but it had not that effect.
 

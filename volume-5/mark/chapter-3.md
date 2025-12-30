@@ -8,18 +8,18 @@ In this chapter, we have, I. Christ's healing a man that had a withered hand, on
 
 ## The Withered Hand Restored; Multitudes Healed.
 
-> <sup>1</sup> And he entered again into the synagogue; and there was a man there which had a withered hand.  
-> <sup>2</sup> And they watched him, whether he would heal him on the sabbath day; that they might accuse him.  
-> <sup>3</sup> And he saith unto the man which had the withered hand, Stand forth.  
-> <sup>4</sup> And he saith unto them, Is it lawful to do good on the sabbath days, or to do evil? to save life, or to kill? But they held their peace.  
-> <sup>5</sup> And when he had looked round about on them with anger, being grieved for the hardness of their hearts, he saith unto the man, Stretch forth thine hand. And he stretched *it* out: and his hand was restored whole as the other.  
-> <sup>6</sup> And the Pharisees went forth, and straightway took counsel with the Herodians against him, how they might destroy him.  
-> <sup>7</sup> But Jesus withdrew himself with his disciples to the sea: and a great multitude from Galilee followed him, and from Judæa,  
-> <sup>8</sup> And from Jerusalem, and from Idumæa, and *from* beyond Jordan; and they about Tyre and Sidon, a great multitude, when they had heard what great things he did, came unto him.  
-> <sup>9</sup> And he spake to his disciples, that a small ship should wait on him because of the multitude, lest they should throng him.  
-> <sup>10</sup> For he had healed many; insomuch that they pressed upon him for to touch him, as many as had plagues.  
-> <sup>11</sup> And unclean spirits, when they saw him, fell down before him, and cried, saying, Thou art the Son of God.  
-> <sup>12</sup> And he straitly charged them that they should not make him known.  
+> **¹** And he entered again into the synagogue; and there was a man there which had a withered hand.  
+> **²** And they watched him, whether he would heal him on the sabbath day; that they might accuse him.  
+> **³** And he saith unto the man which had the withered hand, Stand forth.  
+> **⁴** And he saith unto them, Is it lawful to do good on the sabbath days, or to do evil? to save life, or to kill? But they held their peace.  
+> **⁵** And when he had looked round about on them with anger, being grieved for the hardness of their hearts, he saith unto the man, Stretch forth thine hand. And he stretched *it* out: and his hand was restored whole as the other.  
+> **⁶** And the Pharisees went forth, and straightway took counsel with the Herodians against him, how they might destroy him.  
+> **⁷** But Jesus withdrew himself with his disciples to the sea: and a great multitude from Galilee followed him, and from Judæa,  
+> **⁸** And from Jerusalem, and from Idumæa, and *from* beyond Jordan; and they about Tyre and Sidon, a great multitude, when they had heard what great things he did, came unto him.  
+> **⁹** And he spake to his disciples, that a small ship should wait on him because of the multitude, lest they should throng him.  
+> **¹⁰** For he had healed many; insomuch that they pressed upon him for to touch him, as many as had plagues.  
+> **¹¹** And unclean spirits, when they saw him, fell down before him, and cried, saying, Thou art the Son of God.  
+> **¹²** And he straitly charged them that they should not make him known.  
 
 Here, as before, we have our Lord Jesus busy at work *in the synagogue* first, and then by *the sea side;* to teach us that his presence should not be confined either to the one or to the other, but, wherever any are gathered together in his name, whether *in the synagogue* or any where else, there is he in the midst of them. *In every place where he records his name,* he will meet his people, and *bless them;* it is his will that men *pray every where.* Now here we have some account of what he did.
 
@@ -47,15 +47,15 @@ II\. When he withdrew *to the sea,* he did good there. While his enemies sought 
 
 ## The Calling of the Apostles.
 
-> <sup>13</sup> And he goeth up into a mountain, and calleth *unto him* whom he would: and they came unto him.  
-> <sup>14</sup> And he ordained twelve, that they should be with him, and that he might send them forth to preach,  
-> <sup>15</sup> And to have power to heal sicknesses, and to cast out devils:  
-> <sup>16</sup> And Simon he surnamed Peter;  
-> <sup>17</sup> And James the *son* of Zebedee, and John the brother of James; and he surnamed them Boanerges, which is, The sons of thunder:  
-> <sup>18</sup> And Andrew, and Philip, and Bartholomew, and Matthew, and Thomas, and James the *son* of Alphæus, and Thaddæus, and Simon the Canaanite,  
-> <sup>19</sup> And Judas Iscariot, which also betrayed him: and they went into a house.  
-> <sup>20</sup> And the multitude cometh together again, so that they could not so much as eat bread.  
-> <sup>21</sup> And when his friends heard *of it,* they went out to lay hold on him: for they said, He is beside himself.  
+> **¹³** And he goeth up into a mountain, and calleth *unto him* whom he would: and they came unto him.  
+> **¹⁴** And he ordained twelve, that they should be with him, and that he might send them forth to preach,  
+> **¹⁵** And to have power to heal sicknesses, and to cast out devils:  
+> **¹⁶** And Simon he surnamed Peter;  
+> **¹⁷** And James the *son* of Zebedee, and John the brother of James; and he surnamed them Boanerges, which is, The sons of thunder:  
+> **¹⁸** And Andrew, and Philip, and Bartholomew, and Matthew, and Thomas, and James the *son* of Alphæus, and Thaddæus, and Simon the Canaanite,  
+> **¹⁹** And Judas Iscariot, which also betrayed him: and they went into a house.  
+> **²⁰** And the multitude cometh together again, so that they could not so much as eat bread.  
+> **²¹** And when his friends heard *of it,* they went out to lay hold on him: for they said, He is beside himself.  
 
 In these verses, we have,
 
@@ -81,15 +81,15 @@ III\. The care of his relations concerning him (Mk 3:21); *When his friends* in 
 
 ## The Blasphemy of the Scribes.
 
-> <sup>22</sup> And the scribes which came down from Jerusalem said, He hath Beelzebub, and by the prince of the devils casteth he out devils.  
-> <sup>23</sup> And he called them *unto him,* and said unto them in parables, How can Satan cast out Satan?  
-> <sup>24</sup> And if a kingdom be divided against itself, that kingdom cannot stand.  
-> <sup>25</sup> And if a house be divided against itself, that house cannot stand.  
-> <sup>26</sup> And if Satan rise up against himself, and be divided, he cannot stand, but hath an end.  
-> <sup>27</sup> No man can enter into a strong man's house, and spoil his goods, except he will first bind the strong man; and then he will spoil his house.  
-> <sup>28</sup> Verily I say unto you, All sins shall be forgiven unto the sons of men, and blasphemies wherewith soever they shall blaspheme:  
-> <sup>29</sup> But he that shall blaspheme against the Holy Ghost hath never forgiveness, but is in danger of eternal damnation:  
-> <sup>30</sup> Because they said, He hath an unclean spirit.  
+> **²²** And the scribes which came down from Jerusalem said, He hath Beelzebub, and by the prince of the devils casteth he out devils.  
+> **²³** And he called them *unto him,* and said unto them in parables, How can Satan cast out Satan?  
+> **²⁴** And if a kingdom be divided against itself, that kingdom cannot stand.  
+> **²⁵** And if a house be divided against itself, that house cannot stand.  
+> **²⁶** And if Satan rise up against himself, and be divided, he cannot stand, but hath an end.  
+> **²⁷** No man can enter into a strong man's house, and spoil his goods, except he will first bind the strong man; and then he will spoil his house.  
+> **²⁸** Verily I say unto you, All sins shall be forgiven unto the sons of men, and blasphemies wherewith soever they shall blaspheme:  
+> **²⁹** But he that shall blaspheme against the Holy Ghost hath never forgiveness, but is in danger of eternal damnation:  
+> **³⁰** Because they said, He hath an unclean spirit.  
 
 I\. Here is, The impudent impious brand which the scribes fastened upon Christ's casting out devils, that they might evade and invalidate the conviction of it, and have a poor excuse for not yielding to it. These *scribes came down from Jerusalem,* Mk 3:22. It should seem they came this long journey on purpose to hinder the progress of the doctrine of Christ; such pains did they take to do mischief; and, coming from Jerusalem, where were the most polite and learned scribes, and where they had opportunity of *consulting* together *against the Lord and his Anointed,* they were in the greater capacity to do mischief; the reputation of scribes from Jerusalem would have an influence not only upon the *country people,* but upon the *country scribes;* they had never thought of this base suggestion concerning Christ's miracles till the *scribes from* Jerusalem put it into their heads. They could not deny but that he cast out devils, which plainly bespoke him sent of God; but they insinuated that *he had Beelzebub* on his side, was in league with him, and by *the prince of the devils cast out devils.* There is a trick in the case; Satan is not *cast out,* he only *goes out* by consent. There was nothing in the manner of Christ's *casting out devils,* that gave any cause to suspect this; he did it *as one having authority;* but so they will have it, who resolve not to believe him.
 
@@ -103,11 +103,11 @@ III\. The awful warning Christ gave them to take heed how they spoke such danger
 
 ## The Family of Christ.
 
-> <sup>31</sup> There came then his brethren and his mother, and, standing without, sent unto him, calling him.  
-> <sup>32</sup> And the multitude sat about him, and they said unto him, Behold, thy mother and thy brethren without seek for thee.  
-> <sup>33</sup> And he answered them, saying, Who is my mother, or my brethren?  
-> <sup>34</sup> And he looked round about on them which sat about him, and said, Behold my mother and my brethren!  
-> <sup>35</sup> For whosoever shall do the will of God, the same is my brother, and my sister, and mother.  
+> **³¹** There came then his brethren and his mother, and, standing without, sent unto him, calling him.  
+> **³²** And the multitude sat about him, and they said unto him, Behold, thy mother and thy brethren without seek for thee.  
+> **³³** And he answered them, saying, Who is my mother, or my brethren?  
+> **³⁴** And he looked round about on them which sat about him, and said, Behold my mother and my brethren!  
+> **³⁵** For whosoever shall do the will of God, the same is my brother, and my sister, and mother.  
 
 Here is, 1. The *disrespect* which Christ's *kindred, according to the flesh,* showed to him, when he was preaching (and they knew very well that he was then in his element); they not only *stood without,* having no desire to come in, and hear him, but they sent in a message to *call him out to them* (Mk 3:31,32), as if he must leave his work, to hearken to their *impertinences;* it is probable that they had *no business with him,* only sent for him on purpose to oblige him to *break off,* lest he should *kill himself.* He knew how far his strength would go, and preferred the salvation of souls before his own life, and soon after made it to appear with a witness; it was therefore an *idle thing* for them, under pretence of his sparing himself, to interrupt him; and it was worse, if really they had business with him, when they knew he preferred his business, as a Saviour, so much before any other business.
 

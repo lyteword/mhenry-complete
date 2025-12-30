@@ -10,16 +10,16 @@ It is probable that this psalm was penned by Solomon, to be sung at the dedicati
 
 A song of degrees.
 
-> <sup>1</sup> LORD, remember David, *and* all his afflictions:  
-> <sup>2</sup> How he sware unto the LORD, *and* vowed unto the mighty *God* of Jacob;  
-> <sup>3</sup> Surely I will not come into the tabernacle of my house, nor go up into my bed;  
-> <sup>4</sup> I will not give sleep to mine eyes, *or* slumber to mine eyelids,  
-> <sup>5</sup> Until I find out a place for the LORD, a habitation for the mighty *God* of Jacob.  
-> <sup>6</sup> Lo, we heard of it at Ephratah: we found it in the fields of the wood.  
-> <sup>7</sup> We will go into his tabernacles: we will worship at his footstool.  
-> <sup>8</sup> Arise, O LORD, into thy rest; thou, and the ark of thy strength.  
-> <sup>9</sup> Let thy priests be clothed with righteousness; and let thy saints shout for joy.  
-> <sup>10</sup> For thy servant David's sake turn not away the face of thine anointed.  
+> **¹** LORD, remember David, *and* all his afflictions:  
+> **²** How he sware unto the LORD, *and* vowed unto the mighty *God* of Jacob;  
+> **³** Surely I will not come into the tabernacle of my house, nor go up into my bed;  
+> **⁴** I will not give sleep to mine eyes, *or* slumber to mine eyelids,  
+> **⁵** Until I find out a place for the LORD, a habitation for the mighty *God* of Jacob.  
+> **⁶** Lo, we heard of it at Ephratah: we found it in the fields of the wood.  
+> **⁷** We will go into his tabernacles: we will worship at his footstool.  
+> **⁸** Arise, O LORD, into thy rest; thou, and the ark of thy strength.  
+> **⁹** Let thy priests be clothed with righteousness; and let thy saints shout for joy.  
+> **¹⁰** For thy servant David's sake turn not away the face of thine anointed.  
 
 In these verses we have Solomon's address to God for his favour to him and to his government, and his acceptance of his building a house to God's name. Observe,
 
@@ -33,14 +33,14 @@ II\. What he prays for, Ps 132:8-10. 1. That God would vouchsafe, not only to ta
 
 ## God's Choice of Zion; God's Promises to Zion.
 
-> <sup>11</sup> The LORD hath sworn *in* truth unto David; he will not turn from it; Of the fruit of thy body will I set upon thy throne.  
-> <sup>12</sup> If thy children will keep my covenant and my testimony that I shall teach them, their children shall also sit upon thy throne for evermore.  
-> <sup>13</sup> For the LORD hath chosen Zion; he hath desired *it* for his habitation.  
-> <sup>14</sup> This *is* my rest for ever: here will I dwell; for I have desired it.  
-> <sup>15</sup> I will abundantly bless her provision: I will satisfy her poor with bread.  
-> <sup>16</sup> I will also clothe her priests with salvation: and her saints shall shout aloud for joy.  
-> <sup>17</sup> There will I make the horn of David to bud: I have ordained a lamp for mine anointed.  
-> <sup>18</sup> His enemies will I clothe with shame: but upon himself shall his crown flourish.  
+> **¹¹** The LORD hath sworn *in* truth unto David; he will not turn from it; Of the fruit of thy body will I set upon thy throne.  
+> **¹²** If thy children will keep my covenant and my testimony that I shall teach them, their children shall also sit upon thy throne for evermore.  
+> **¹³** For the LORD hath chosen Zion; he hath desired *it* for his habitation.  
+> **¹⁴** This *is* my rest for ever: here will I dwell; for I have desired it.  
+> **¹⁵** I will abundantly bless her provision: I will satisfy her poor with bread.  
+> **¹⁶** I will also clothe her priests with salvation: and her saints shall shout aloud for joy.  
+> **¹⁷** There will I make the horn of David to bud: I have ordained a lamp for mine anointed.  
+> **¹⁸** His enemies will I clothe with shame: but upon himself shall his crown flourish.  
 
 These are precious promises, *confirmed by an oath,* that the heirs of them might have *strong consolation,* Heb 6:17,18. It is all one whether we take them as pleas urged in the prayer or as answers returned to the prayer; believers know how to make use of the promises both ways, with them to speak to God and in them to hear what God the Lord will speak to us. These promises relate to the establishment both in church and state, both to the throne of the house of David and to the testimony of Israel fixed on Mount Zion. The promises concerning Zion's hill are as applicable to the gospel-church as these concerning David's seed are to Christ, and therefore both pleadable by us and very comfortable to us. Here is,
 

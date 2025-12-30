@@ -8,16 +8,16 @@ In this chapter we have a prophecy of sad times coming, and heavy burdens, I. Up
 
 ## The Doom of Babylon. (b. c. 714.)
 
-> <sup>1</sup> The burden of the desert of the sea. As whirlwinds in the south pass through; *so* it cometh from the desert, from a terrible land.  
-> <sup>2</sup> A grievous vision is declared unto me; the treacherous dealer dealeth treacherously, and the spoiler spoileth. Go up, O Elam: besiege, O Media; all the sighing thereof have I made to cease.  
-> <sup>3</sup> Therefore are my loins filled with pain: pangs have taken hold upon me, as the pangs of a woman that travaileth: I was bowed down at the hearing *of it;* I was dismayed at the seeing *of it.*  
-> <sup>4</sup> My heart panted, fearfulness affrighted me: the night of my pleasure hath he turned into fear unto me.  
-> <sup>5</sup> Prepare the table, watch in the watchtower, eat, drink: arise, ye princes, *and* anoint the shield.  
-> <sup>6</sup> For thus hath the Lord said unto me, Go, set a watchman, let him declare what he seeth.  
-> <sup>7</sup> And he saw a chariot *with* a couple of horsemen, a chariot of asses, *and* a chariot of camels; and he hearkened diligently with much heed:  
-> <sup>8</sup> And he cried, A lion: My lord, I stand continually upon the watchtower in the daytime, and I am set in my ward whole nights:  
-> <sup>9</sup> And, behold, here cometh a chariot of men, *with* a couple of horsemen. And he answered and said, Babylon is fallen, is fallen; and all the graven images of her gods he hath broken unto the ground.  
-> <sup>10</sup> O my threshing, and the corn of my floor: that which I have heard of the LORD of hosts, the God of Israel, have I declared unto you.  
+> **¹** The burden of the desert of the sea. As whirlwinds in the south pass through; *so* it cometh from the desert, from a terrible land.  
+> **²** A grievous vision is declared unto me; the treacherous dealer dealeth treacherously, and the spoiler spoileth. Go up, O Elam: besiege, O Media; all the sighing thereof have I made to cease.  
+> **³** Therefore are my loins filled with pain: pangs have taken hold upon me, as the pangs of a woman that travaileth: I was bowed down at the hearing *of it;* I was dismayed at the seeing *of it.*  
+> **⁴** My heart panted, fearfulness affrighted me: the night of my pleasure hath he turned into fear unto me.  
+> **⁵** Prepare the table, watch in the watchtower, eat, drink: arise, ye princes, *and* anoint the shield.  
+> **⁶** For thus hath the Lord said unto me, Go, set a watchman, let him declare what he seeth.  
+> **⁷** And he saw a chariot *with* a couple of horsemen, a chariot of asses, *and* a chariot of camels; and he hearkened diligently with much heed:  
+> **⁸** And he cried, A lion: My lord, I stand continually upon the watchtower in the daytime, and I am set in my ward whole nights:  
+> **⁹** And, behold, here cometh a chariot of men, *with* a couple of horsemen. And he answered and said, Babylon is fallen, is fallen; and all the graven images of her gods he hath broken unto the ground.  
+> **¹⁰** O my threshing, and the corn of my floor: that which I have heard of the LORD of hosts, the God of Israel, have I declared unto you.  
 
 We had one burden of Babylon before (Isa 13:1-22); here we have another prediction of its fall. God saw fit thus to possess his people with the belief of this event by line upon line, because Babylon sometimes pretended to be a friend to them (as Isa 39:1), and God would hereby warn them not to trust to that friendship, and sometimes was really an enemy to them, and God would hereby warn them not to be afraid of that enmity. Babylon is marked for ruin; and all that believe God's prophets can, through that glass, see it tottering, see it tumbling, even when with an eye of sense they see it flourishing and sitting as a queen. Babylon is here called the *desert* or *plain of the sea;* for it was a flat country, and full of lakes, or loughs (as they call them in Ireland), like little seas, and was abundantly watered with the many streams of the river Euphrates. Babylon did but lately begin to be famous, Nineveh having outshone it while the monarchy was in the Assyrian hands; but in a little time it became the lady of kingdoms; and, before it arrived at that pitch of eminency which it was at in Nebuchadnezzar's time, God by this prophet plainly foretold its fall, again and again, that his people might not be terrified at its rise, nor despair of relief in due time when they were its prisoners, Job 5:3, Ps 37:35,37. Some think it is here called a *desert* because, though it was now a populous city, it should in time be made a desert. And *therefore* the destruction of Babylon is so often prophesied of by this evangelical prophet, because it was typical of the destruction of the man of sin, the great enemy of the New-Testament church, which is foretold in the *Revelation* in many expressions borrowed from these prophecies, which therefore must be consulted and collated by those who would understand the prophecy of that book. Here is,
 
@@ -39,8 +39,8 @@ VI\. Notice is given to the people of God, who were then captives in Babylon, th
 
 ## The Watchman Interrogated. (b. c. 714.)
 
-> <sup>11</sup> The burden of Dumah. He calleth to me out of Seir, Watchman, what of the night? Watchman, what of the night?  
-> <sup>12</sup> The watchman said, The morning cometh, and also the night: if ye will enquire, enquire ye: return, come.  
+> **¹¹** The burden of Dumah. He calleth to me out of Seir, Watchman, what of the night? Watchman, what of the night?  
+> **¹²** The watchman said, The morning cometh, and also the night: if ye will enquire, enquire ye: return, come.  
 
 This prophecy concerning Dumah is very short, and withal dark and hard to be understood. Some think that Dumah is a part of Arabia, and that the inhabitants descended from Dumah the sixth son of Ishmael, as those of Kedar (Isa 21:16,17) from Ishmael's second son, Ge 25:13,14. Others, because Mount Seir is here mentioned, by Dumah understand Idumea, the country of the Edomites. Some of Israel's neighbours are certainly meant, and their distress is foretold, not only for warning to them to prepare them for it, but for warning to Israel not to depend upon them, or any of the nations about them, for relief in a time of danger, but upon God only. We must see all creature confidences failing us, and feel them breaking under us, that we may not lay more weight upon them than they will bear. But though the explication of this prophecy be difficult, because we have no history in which we find the accomplishment of it, yet the application will be easy. We have here,
 
@@ -50,11 +50,11 @@ This prophecy concerning Dumah is very short, and withal dark and hard to be und
 
 ## The Doom of Arabia. (b. c. 714.)
 
-> <sup>13</sup> The burden upon Arabia. In the forest in Arabia shall ye lodge, O ye travelling companies of Dedanim.  
-> <sup>14</sup> The inhabitants of the land of Tema brought water to him that was thirsty, they prevented with their bread him that fled.  
-> <sup>15</sup> For they fled from the swords, from the drawn sword, and from the bent bow, and from the grievousness of war.  
-> <sup>16</sup> For thus hath the Lord said unto me, Within a year, according to the years of a hireling, and all the glory of Kedar shall fail:  
-> <sup>17</sup> And the residue of the number of archers, the mighty men of the children of Kedar, shall be diminished: for the LORD God of Israel hath spoken *it.*  
+> **¹³** The burden upon Arabia. In the forest in Arabia shall ye lodge, O ye travelling companies of Dedanim.  
+> **¹⁴** The inhabitants of the land of Tema brought water to him that was thirsty, they prevented with their bread him that fled.  
+> **¹⁵** For they fled from the swords, from the drawn sword, and from the bent bow, and from the grievousness of war.  
+> **¹⁶** For thus hath the Lord said unto me, Within a year, according to the years of a hireling, and all the glory of Kedar shall fail:  
+> **¹⁷** And the residue of the number of archers, the mighty men of the children of Kedar, shall be diminished: for the LORD God of Israel hath spoken *it.*  
 
 Arabia was a large country, that lay eastward and southward of the land of Canaan. Much of it was possessed by the posterity of Abraham. The *Dedanim,* here mentioned (Isa 21:13), descended from Dedan, Abraham's son by Keturah; the inhabitants of Tema and Kedar descended from Ishmael, Ge 25:3,13,15. The Arabians generally lived in tents, and kept cattle, were a hardy people, inured to labour; probably the Jews depended upon them as a sort of a wall between them and the more warlike eastern nations; and therefore, to alarm them, they shall hear *the burden of Arabia,* and see it sinking under its own burden.
 

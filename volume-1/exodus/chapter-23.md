@@ -8,15 +8,15 @@ This chapter continues and concludes the acts that passed in the first session (
 
 ## Judicial Laws. (b. c. 1491.)
 
-> <sup>1</sup> Thou shalt not raise a false report: put not thine hand with the wicked to be an unrighteous witness.  
-> <sup>2</sup> Thou shalt not follow a multitude to *do* evil; neither shalt thou speak in a cause to decline after many to wrest *judgment:*  
-> <sup>3</sup> Neither shalt thou countenance a poor man in his cause.  
-> <sup>4</sup> If thou meet thine enemy's ox or his ass going astray, thou shalt surely bring it back to him again.  
-> <sup>5</sup> If thou see the ass of him that hateth thee lying under his burden, and wouldest forbear to help him, thou shalt surely help with him.  
-> <sup>6</sup> Thou shalt not wrest the judgment of thy poor in his cause.  
-> <sup>7</sup> Keep thee far from a false matter; and the innocent and righteous slay thou not: for I will not justify the wicked.  
-> <sup>8</sup> And thou shalt take no gift: for the gift blindeth the wise, and perverteth the words of the righteous.  
-> <sup>9</sup> Also thou shalt not oppress a stranger: for ye know the heart of a stranger, seeing ye were strangers in the land of Egypt.  
+> **¹** Thou shalt not raise a false report: put not thine hand with the wicked to be an unrighteous witness.  
+> **²** Thou shalt not follow a multitude to *do* evil; neither shalt thou speak in a cause to decline after many to wrest *judgment:*  
+> **³** Neither shalt thou countenance a poor man in his cause.  
+> **⁴** If thou meet thine enemy's ox or his ass going astray, thou shalt surely bring it back to him again.  
+> **⁵** If thou see the ass of him that hateth thee lying under his burden, and wouldest forbear to help him, thou shalt surely help with him.  
+> **⁶** Thou shalt not wrest the judgment of thy poor in his cause.  
+> **⁷** Keep thee far from a false matter; and the innocent and righteous slay thou not: for I will not justify the wicked.  
+> **⁸** And thou shalt take no gift: for the gift blindeth the wise, and perverteth the words of the righteous.  
+> **⁹** Also thou shalt not oppress a stranger: for ye know the heart of a stranger, seeing ye were strangers in the land of Egypt.  
 
 Here are, I. Cautions concerning judicial proceedings; it was not enough that they had good laws, better than ever any nation had, but care must be taken for the due administration of justice according to those laws.
 
@@ -28,16 +28,16 @@ II\. Commands concerning neighbourly kindnesses. We must be ready to do all good
 
 ## Sacred Feasts. (b. c. 1491.)
 
-> <sup>10</sup> And six years thou shalt sow thy land, and shalt gather in the fruits thereof:  
-> <sup>11</sup> But the seventh *year* thou shalt let it rest and lie still; that the poor of thy people may eat: and what they leave the beasts of the field shall eat. In like manner thou shalt deal with thy vineyard, *and* with thy oliveyard.  
-> <sup>12</sup> Six days thou shalt do thy work, and on the seventh day thou shalt rest: that thine ox and thine ass may rest, and the son of thy handmaid, and the stranger, may be refreshed.  
-> <sup>13</sup> And in all *things* that I have said unto you be circumspect: and make no mention of the name of other gods, neither let it be heard out of thy mouth.  
-> <sup>14</sup> Three times thou shalt keep a feast unto me in the year.  
-> <sup>15</sup> Thou shalt keep the feast of unleavened bread: (thou shalt eat unleavened bread seven days, as I commanded thee, in the time appointed of the month Abib; for in it thou camest out from Egypt: and none shall appear before me empty:)  
-> <sup>16</sup> And the feast of harvest, the firstfruits of thy labours, which thou hast sown in the field: and the feast of ingathering, *which is* in the end of the year, when thou hast gathered in thy labours out of the field.  
-> <sup>17</sup> Three times in the year all thy males shall appear before the Lord GOD.  
-> <sup>18</sup> Thou shalt not offer the blood of my sacrifice with leavened bread; neither shall the fat of my sacrifice remain until the morning.  
-> <sup>19</sup> The first of the firstfruits of thy land thou shalt bring into the house of the LORD thy God. Thou shalt not seethe a kid in his mother's milk.  
+> **¹⁰** And six years thou shalt sow thy land, and shalt gather in the fruits thereof:  
+> **¹¹** But the seventh *year* thou shalt let it rest and lie still; that the poor of thy people may eat: and what they leave the beasts of the field shall eat. In like manner thou shalt deal with thy vineyard, *and* with thy oliveyard.  
+> **¹²** Six days thou shalt do thy work, and on the seventh day thou shalt rest: that thine ox and thine ass may rest, and the son of thy handmaid, and the stranger, may be refreshed.  
+> **¹³** And in all *things* that I have said unto you be circumspect: and make no mention of the name of other gods, neither let it be heard out of thy mouth.  
+> **¹⁴** Three times thou shalt keep a feast unto me in the year.  
+> **¹⁵** Thou shalt keep the feast of unleavened bread: (thou shalt eat unleavened bread seven days, as I commanded thee, in the time appointed of the month Abib; for in it thou camest out from Egypt: and none shall appear before me empty:)  
+> **¹⁶** And the feast of harvest, the firstfruits of thy labours, which thou hast sown in the field: and the feast of ingathering, *which is* in the end of the year, when thou hast gathered in thy labours out of the field.  
+> **¹⁷** Three times in the year all thy males shall appear before the Lord GOD.  
+> **¹⁸** Thou shalt not offer the blood of my sacrifice with leavened bread; neither shall the fat of my sacrifice remain until the morning.  
+> **¹⁹** The first of the firstfruits of thy land thou shalt bring into the house of the LORD thy God. Thou shalt not seethe a kid in his mother's milk.  
 
 Here is, I. The institution of the sabbatical year, Ex 23:10,11. Every seventh year the land was to rest; they must not plough nor sow it at the beginning of the year, and then they could not expect any great harvest at the end of the year: but what the earth did produce of itself should be eaten from hand to mouth, and not laid up. Now this was designed, 1. To show what a plentiful land that was into which God was bringing them—that so numerous a people could have rich maintenance out of the produce of so small a country, without foreign trade, and yet could spare the increase of every seventh year. 2. To remind them of their dependence upon God their great landlord, and their obligation to use the fruit of their land as he should direct. Thus he would try their obedience in a matter that nearly touched their interest. Afterwards we find that their disobedience to this command was a forfeiture of the promises, 2Ch 36:21. 3. To teach them a confidence in the divine Providence, while they did their duty—that, as the sixth day's manna served for two day's meat, so the sixth year's increase should serve for two years' subsistence. Thus they must learn not to *take thought for their life,* Mt 6:25. If we are prudent and diligent in our affairs, we may trust Providence to furnish us with the bread of the day in its day.
 
@@ -51,20 +51,20 @@ V\. Some particular directions are here given about the three feasts, though not
 
 ## Precepts and Promises. (b. c. 1491.)
 
-> <sup>20</sup> Behold, I send an Angel before thee, to keep thee in the way, and to bring thee into the place which I have prepared.  
-> <sup>21</sup> Beware of him, and obey his voice, provoke him not; for he will not pardon your transgressions: for my name *is* in him.  
-> <sup>22</sup> But if thou shalt indeed obey his voice, and do all that I speak; then I will be an enemy unto thine enemies, and an adversary unto thine adversaries.  
-> <sup>23</sup> For mine Angel shall go before thee, and bring thee in unto the Amorites, and the Hittites, and the Perizzites, and the Canaanites, the Hivites, and the Jebusites: and I will cut them off.  
-> <sup>24</sup> Thou shalt not bow down to their gods, nor serve them, nor do after their works: but thou shalt utterly overthrow them, and quite break down their images.  
-> <sup>25</sup> And ye shall serve the LORD your God, and he shall bless thy bread, and thy water; and I will take sickness away from the midst of thee.  
-> <sup>26</sup> There shall nothing cast their young, nor be barren, in thy land: the number of thy days I will fulfil.  
-> <sup>27</sup> I will send my fear before thee, and will destroy all the people to whom thou shalt come, and I will make all thine enemies turn their backs unto thee.  
-> <sup>28</sup> And I will send hornets before thee, which shall drive out the Hivite, the Canaanite, and the Hittite, from before thee.  
-> <sup>29</sup> I will not drive them out from before thee in one year; lest the land become desolate, and the beast of the field multiply against thee.  
-> <sup>30</sup> By little and little I will drive them out from before thee, until thou be increased, and inherit the land.  
-> <sup>31</sup> And I will set thy bounds from the Red sea even unto the sea of the Philistines, and from the desert unto the river: for I will deliver the inhabitants of the land into your hand; and thou shalt drive them out before thee.  
-> <sup>32</sup> Thou shalt make no covenant with them, nor with their gods.  
-> <sup>33</sup> They shall not dwell in thy land, lest they make thee sin against me: for if thou serve their gods, it will surely be a snare unto thee.  
+> **²⁰** Behold, I send an Angel before thee, to keep thee in the way, and to bring thee into the place which I have prepared.  
+> **²¹** Beware of him, and obey his voice, provoke him not; for he will not pardon your transgressions: for my name *is* in him.  
+> **²²** But if thou shalt indeed obey his voice, and do all that I speak; then I will be an enemy unto thine enemies, and an adversary unto thine adversaries.  
+> **²³** For mine Angel shall go before thee, and bring thee in unto the Amorites, and the Hittites, and the Perizzites, and the Canaanites, the Hivites, and the Jebusites: and I will cut them off.  
+> **²⁴** Thou shalt not bow down to their gods, nor serve them, nor do after their works: but thou shalt utterly overthrow them, and quite break down their images.  
+> **²⁵** And ye shall serve the LORD your God, and he shall bless thy bread, and thy water; and I will take sickness away from the midst of thee.  
+> **²⁶** There shall nothing cast their young, nor be barren, in thy land: the number of thy days I will fulfil.  
+> **²⁷** I will send my fear before thee, and will destroy all the people to whom thou shalt come, and I will make all thine enemies turn their backs unto thee.  
+> **²⁸** And I will send hornets before thee, which shall drive out the Hivite, the Canaanite, and the Hittite, from before thee.  
+> **²⁹** I will not drive them out from before thee in one year; lest the land become desolate, and the beast of the field multiply against thee.  
+> **³⁰** By little and little I will drive them out from before thee, until thou be increased, and inherit the land.  
+> **³¹** And I will set thy bounds from the Red sea even unto the sea of the Philistines, and from the desert unto the river: for I will deliver the inhabitants of the land into your hand; and thou shalt drive them out before thee.  
+> **³²** Thou shalt make no covenant with them, nor with their gods.  
+> **³³** They shall not dwell in thy land, lest they make thee sin against me: for if thou serve their gods, it will surely be a snare unto thee.  
 
 Three gracious promises are here made to Israel, to engage them to their duty and encourage them in it; and each of the promises has some needful precepts and cautions joined to it.
 

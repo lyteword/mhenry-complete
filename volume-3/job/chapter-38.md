@@ -8,22 +8,22 @@ In most disputes the strife is who shall have the last word. Job's friends had, 
 
 ## God Answers Out of the Whirlwind. (b. c. 1520.)
 
-> <sup>1</sup> Then the LORD answered Job out of the whirlwind, and said,  
-> <sup>2</sup> Who *is* this that darkeneth counsel by words without knowledge?  
-> <sup>3</sup> Gird up now thy loins like a man; for I will demand of thee, and answer thou me.  
+> **¹** Then the LORD answered Job out of the whirlwind, and said,  
+> **²** Who *is* this that darkeneth counsel by words without knowledge?  
+> **³** Gird up now thy loins like a man; for I will demand of thee, and answer thou me.  
 
 Let us observe here, 1. Who speaks—*The Lord,* Jehovah, not a created angel, but the eternal Word himself, the second person in the blessed Trinity, for it is he by whom the worlds were made, and that was no other than the Son of God. The same speaks here that afterwards spoke from Mount Sinai. Here he begins with the creation of the world, there with the redemption of Israel out of Egypt, and from both is inferred the necessity of our subjection to him. Elihu had said, *God speaks to men and they do not perceive it* (Job 33:14); but this they could not but perceive, and yet we have *a more sure word of prophecy,* 2Pe 1:19. 2. When he spoke—*Then.* When they had all had their saying, and yet had not gained their point, then it was time for God to interpose, whose judgment is according to truth. When we know not who is in the right, and perhaps are doubtful whether we ourselves are, this may satisfy us, That God will determine shortly *in the valley of decision,* Joe 3:14. Job had silenced his three friends, and yet could not convince them of his integrity in the main. Elihu had silenced Job, and yet could not bring him to acknowledge his mismanagement of this dispute. But now God comes, and does both, convinces Job first of his unadvised speaking and makes him cry, *Peccavi—I have done wrong;* and, having humbled him, he puts honour upon him, by convincing his three friends that they had done him wrong. These two things God will, sooner or later, do for his people: he will show them their faults, that they may be themselves ashamed of them, and he will show others their righteousness, and bring it forth as the light, that they may be ashamed of their unjust censures of them. 3. How he spoke—*Out of the whirlwind,* the rolling and involving cloud, which Elihu took notice of, Job 37:1,2,9. A whirlwind prefaced Ezekiel's vision (Eze 1:4), and Elijah's, 1Ki 19:11. God is said to have *his way in the whirlwind* (Nah 1:3), and, to show that even the stormy wind fulfils his word, here it was made the vehicle of it. This shows what a mighty voice God's is, that is was not lost, but perfectly audible, even in the noise of a whirlwind. Thus God designed to startled Job, and to command his attention. Sometimes God answers his own people in terrible corrections, as out of the whirlwind, but always in righteousness. 4. To whom he spoke: He *answered Job,* directed his speech to him, to convince him of what was amiss, before he cleared him from the unjust aspersions cast upon him. It is God only that can effectually convince of sin, and those shall so be humbled whom he designs to exalt. Those that desire to hear from God, as Job did, shall certainly hear from him at length. 5. What he said. We may conjecture that Elihu, or some other of the auditory, wrote down *verbatim* what was delivered out of the whirlwind, for we find (Re 10:4) that, when the thunders uttered their voices, John was prepared to write. Or, if it was not written then, yet, the penman of the book being inspired by the Holy Ghost, we are sure that we have here a very true and exact report of what was said. *The Spirit* (says Christ) *shall bring to your remembrance,* as he did here, *what I have said to you.* The preface is very searching. (1.) God charges him with ignorance and presumption in what he had said (Job 38:2): "*Who is this* that talks at this rate? Is it Job? What! a man? That weak, foolish, despicable, creature—shall he pretend to prescribe to me what I must do or to quarrel with me for what I have done? Is it Job? What! my servant Job, a perfect and an upright man? Can he so far forget himself, and act unlike himself? Who, where, is he *that darkens counsel thus by words without knowledge?* Let him show his face if he dare, and stand to what he has said." Note, Darkening the counsels of God's wisdom with our folly is a great affront and provocation to God. Concerning God's counsels we must own that we are without knowledge. They are a deep which we cannot fathom; we are quite out of our element, out of our aim, when we pretend to account for them. Yet we are too apt to talk of them as if we understood them, with a great deal of niceness and boldness; but, alas! we do but darken them, instead of explaining them. We confound and perplex ourselves and one another when we dispute of the order of God's decrees, and the designs, and reasons, and methods, of his operations of providence and grace. A humble faith and sincere obedience shall see further and better into the secret of the Lord than all the philosophy of the schools, and the searches of science, so called. This first word which God spoke is the more observable because Job, in his repentance, fastens upon it as that which silenced and humbled him, Job 42:3. This he repeated and echoed as the arrow that stuck fast in him: "I am the fool that has darkened counsel." There was some colour to have turned it upon *Elihu,* as if God meant *him,* for he spoke last, and was speaking when the whirlwind began; but Job applied it to himself, as it becomes us to do when faithful reproofs are given, and not (as most do) to billet them upon other people. (2.) He challenges him to give such proofs of his knowledge as would serve to justify his enquiries into the divine counsels (Job 38:3): "*Gird up now thy loins like a* stout *man;* prepare thyself for the encounter; *I will demand of thee,* will put some questions to thee, *and answer me* if thou canst, before I answer thine." Those that go about to call God to an account must expect to be catechised and called to an account themselves, that they may be made sensible of their ignorance and arrogance. God here puts Job in mind of what he had said, Job 13:22. *Call thou, and I will answer.* "Now make thy words good."
 
 ## The Creation of the World. (b. c. 1520.)
 
-> <sup>4</sup> Where wast thou when I laid the foundations of the earth? declare, if thou hast understanding.  
-> <sup>5</sup> Who hath laid the measures thereof, if thou knowest? or who hath stretched the line upon it?  
-> <sup>6</sup> Whereupon are the foundations thereof fastened? or who laid the corner stone thereof;  
-> <sup>7</sup> When the morning stars sang together, and all the sons of God shouted for joy?  
-> <sup>8</sup> Or *who* shut up the sea with doors, when it brake forth, *as if* it had issued out of the womb?  
-> <sup>9</sup> When I made the cloud the garment thereof, and thick darkness a swaddlingband for it,  
-> <sup>10</sup> And brake up for it my decreed *place,* and set bars and doors,  
-> <sup>11</sup> And said, Hitherto shalt thou come, but no further: and here shall thy proud waves be stayed?  
+> **⁴** Where wast thou when I laid the foundations of the earth? declare, if thou hast understanding.  
+> **⁵** Who hath laid the measures thereof, if thou knowest? or who hath stretched the line upon it?  
+> **⁶** Whereupon are the foundations thereof fastened? or who laid the corner stone thereof;  
+> **⁷** When the morning stars sang together, and all the sons of God shouted for joy?  
+> **⁸** Or *who* shut up the sea with doors, when it brake forth, *as if* it had issued out of the womb?  
+> **⁹** When I made the cloud the garment thereof, and thick darkness a swaddlingband for it,  
+> **¹⁰** And brake up for it my decreed *place,* and set bars and doors,  
+> **¹¹** And said, Hitherto shalt thou come, but no further: and here shall thy proud waves be stayed?  
 
 For the humbling of Job, God here shows him his ignorance even concerning the earth and the sea. Though so near, though so bulky, yet he could give no account of their origination, much less of heaven above or hell beneath, which are at such a distance, or of the several parts of matter which are so minute, and then, least of all, of the divine counsels.
 
@@ -39,19 +39,19 @@ II\. Concerning the limiting of the sea to the place appointed for it, Job 38:8,
 
 ## Works of God. (b. c. 1520.)
 
-> <sup>12</sup> Hast thou commanded the morning since thy days; *and* caused the dayspring to know his place;  
-> <sup>13</sup> That it might take hold of the ends of the earth, that the wicked might be shaken out of it?  
-> <sup>14</sup> It is turned as clay *to* the seal; and they stand as a garment.  
-> <sup>15</sup> And from the wicked their light is withholden, and the high arm shall be broken.  
-> <sup>16</sup> Hast thou entered into the springs of the sea? or hast thou walked in the search of the depth?  
-> <sup>17</sup> Have the gates of death been opened unto thee? or hast thou seen the doors of the shadow of death?  
-> <sup>18</sup> Hast thou perceived the breadth of the earth? declare if thou knowest it all.  
-> <sup>19</sup> Where *is* the way *where* light dwelleth? and *as for* darkness, where *is* the place thereof,  
-> <sup>20</sup> That thou shouldest take it to the bound thereof, and that thou shouldest know the paths *to* the house thereof?  
-> <sup>21</sup> Knowest thou *it,* because thou wast then born? or *because* the number of thy days *is* great?  
-> <sup>22</sup> Hast thou entered into the treasures of the snow? or hast thou seen the treasures of the hail,  
-> <sup>23</sup> Which I have reserved against the time of trouble, against the day of battle and war?  
-> <sup>24</sup> By what way is the light parted, *which* scattereth the east wind upon the earth?  
+> **¹²** Hast thou commanded the morning since thy days; *and* caused the dayspring to know his place;  
+> **¹³** That it might take hold of the ends of the earth, that the wicked might be shaken out of it?  
+> **¹⁴** It is turned as clay *to* the seal; and they stand as a garment.  
+> **¹⁵** And from the wicked their light is withholden, and the high arm shall be broken.  
+> **¹⁶** Hast thou entered into the springs of the sea? or hast thou walked in the search of the depth?  
+> **¹⁷** Have the gates of death been opened unto thee? or hast thou seen the doors of the shadow of death?  
+> **¹⁸** Hast thou perceived the breadth of the earth? declare if thou knowest it all.  
+> **¹⁹** Where *is* the way *where* light dwelleth? and *as for* darkness, where *is* the place thereof,  
+> **²⁰** That thou shouldest take it to the bound thereof, and that thou shouldest know the paths *to* the house thereof?  
+> **²¹** Knowest thou *it,* because thou wast then born? or *because* the number of thy days *is* great?  
+> **²²** Hast thou entered into the treasures of the snow? or hast thou seen the treasures of the hail,  
+> **²³** Which I have reserved against the time of trouble, against the day of battle and war?  
+> **²⁴** By what way is the light parted, *which* scattereth the east wind upon the earth?  
 
 The Lord here proceeds to ask Job many puzzling questions, to convince him of his ignorance, and so to shame him for his folly in prescribing to God. If we will but try ourselves with such interrogatories as these, we shall soon be brought to own that what we know is nothing in comparison with what we know not. Job is here challenged to give an account of six things:—
 
@@ -69,23 +69,23 @@ VI\. Of the *treasures of the snow and hail* (Job 38:22,23): "*Hast thou entered
 
 ## God's Sovereign Dominion and Goodness. (b. c. 1520.)
 
-> <sup>25</sup> Who hath divided a watercourse for the overflowing of waters, or a way for the lightning of thunder;  
-> <sup>26</sup> To cause it to rain on the earth, *where* no man *is; on* the wilderness, wherein *there is* no man;  
-> <sup>27</sup> To satisfy the desolate and waste *ground;* and to cause the bud of the tender herb to spring forth?  
-> <sup>28</sup> Hath the rain a father? or who hath begotten the drops of dew?  
-> <sup>29</sup> Out of whose womb came the ice? and the hoary frost of heaven, who hath gendered it?  
-> <sup>30</sup> The waters are hid as *with* a stone, and the face of the deep is frozen.  
-> <sup>31</sup> Canst thou bind the sweet influences of Pleiades, or loose the bands of Orion?  
-> <sup>32</sup> Canst thou bring forth Mazzaroth in his season? or canst thou guide Arcturus with his sons?  
-> <sup>33</sup> Knowest thou the ordinances of heaven? canst thou set the dominion thereof in the earth?  
-> <sup>34</sup> Canst thou lift up thy voice to the clouds, that abundance of waters may cover thee?  
-> <sup>35</sup> Canst thou send lightnings, that they may go, and say unto thee, Here we *are?*  
-> <sup>36</sup> Who hath put wisdom in the inward parts? or who hath given understanding to the heart?  
-> <sup>37</sup> Who can number the clouds in wisdom? or who can stay the bottles of heaven,  
-> <sup>38</sup> When the dust groweth into hardness, and the clods cleave fast together?  
-> <sup>39</sup> Wilt thou hunt the prey for the lion? or fill the appetite of the young lions,  
-> <sup>40</sup> When they couch in *their* dens, *and* abide in the covert to lie in wait?  
-> <sup>41</sup> Who provideth for the raven his food? when his young ones cry unto God, they wander for lack of meat.  
+> **²⁵** Who hath divided a watercourse for the overflowing of waters, or a way for the lightning of thunder;  
+> **²⁶** To cause it to rain on the earth, *where* no man *is; on* the wilderness, wherein *there is* no man;  
+> **²⁷** To satisfy the desolate and waste *ground;* and to cause the bud of the tender herb to spring forth?  
+> **²⁸** Hath the rain a father? or who hath begotten the drops of dew?  
+> **²⁹** Out of whose womb came the ice? and the hoary frost of heaven, who hath gendered it?  
+> **³⁰** The waters are hid as *with* a stone, and the face of the deep is frozen.  
+> **³¹** Canst thou bind the sweet influences of Pleiades, or loose the bands of Orion?  
+> **³²** Canst thou bring forth Mazzaroth in his season? or canst thou guide Arcturus with his sons?  
+> **³³** Knowest thou the ordinances of heaven? canst thou set the dominion thereof in the earth?  
+> **³⁴** Canst thou lift up thy voice to the clouds, that abundance of waters may cover thee?  
+> **³⁵** Canst thou send lightnings, that they may go, and say unto thee, Here we *are?*  
+> **³⁶** Who hath put wisdom in the inward parts? or who hath given understanding to the heart?  
+> **³⁷** Who can number the clouds in wisdom? or who can stay the bottles of heaven,  
+> **³⁸** When the dust groweth into hardness, and the clods cleave fast together?  
+> **³⁹** Wilt thou hunt the prey for the lion? or fill the appetite of the young lions,  
+> **⁴⁰** When they couch in *their* dens, *and* abide in the covert to lie in wait?  
+> **⁴¹** Who provideth for the raven his food? when his young ones cry unto God, they wander for lack of meat.  
 
 Hitherto God had put such questions to Job as were proper to convince him of his ignorance and short-sightedness. Now he comes, in the same manner, to show his impotency and weakness. As it is but little that he knows, and therefore he ought not to arraign the divine counsels, so it is but little that he can do, and therefore he ought not to oppose the proceedings of Providence. Let him consider what great things God does, and try whether he can do the like, or whether he thinks himself an equal match for him.
 

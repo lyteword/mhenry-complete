@@ -12,10 +12,10 @@ This psalm is supposed to have been penned by David upon occasion of Doeg's accu
 
 A song of degrees.
 
-> <sup>1</sup> In my distress I cried unto the LORD, and he heard me.  
-> <sup>2</sup> Deliver my soul, O LORD, from lying lips, *and* from a deceitful tongue.  
-> <sup>3</sup> What shall be given unto thee? or what shall be done unto thee, thou false tongue?  
-> <sup>4</sup> Sharp arrows of the mighty, with coals of juniper.  
+> **¹** In my distress I cried unto the LORD, and he heard me.  
+> **²** Deliver my soul, O LORD, from lying lips, *and* from a deceitful tongue.  
+> **³** What shall be given unto thee? or what shall be done unto thee, thou false tongue?  
+> **⁴** Sharp arrows of the mighty, with coals of juniper.  
 
 Here is, I. Deliverance from a false tongue obtained by prayer. David records his own experience of this.
 
@@ -29,9 +29,9 @@ II\. The doom of a false tongue foretold by faith, Ps 120:3,4. As God will prese
 
 ## Mournful Complaints.
 
-> <sup>5</sup> Woe is me, that I sojourn in Mesech, *that* I dwell in the tents of Kedar!  
-> <sup>6</sup> My soul hath long dwelt with him that hateth peace.  
-> <sup>7</sup> I *am for* peace: but when I speak, they *are* for war.  
+> **⁵** Woe is me, that I sojourn in Mesech, *that* I dwell in the tents of Kedar!  
+> **⁶** My soul hath long dwelt with him that hateth peace.  
+> **⁷** I *am for* peace: but when I speak, they *are* for war.  
 
 The psalmist here complains of the bad neighbourhood into which he was driven; and some apply the Ps 120:3,4 to this: "What shall the deceitful tongue give, what shall it do to those that lie open to it? What shall a man get by living among such malicious deceitful men? Nothing but *sharp arrows* and *coals of juniper,*" all the mischiefs of a false and spiteful tongue, Ps 57:4. *Woe is me,* says David, that I am forced to dwell among such, *that I sojourn in Mesech and Kedar.* Not that David dwelt in the country of Mesech or Kedar; we never find him so far off from his own native country; but he dwelt among rude and barbarous people, like the inhabitants of Mesech and Kedar: as, when we would describe an ill neighbourhood, we say, We dwell among Turks and heathens. This made him cry out, *Woe is me!* 1. He was forced to live at a distance from the ordinances of God. While he was in banishment, he looked upon himself as a sojourner, never at home but when he was near God's altars; and he cries out, "*Woe is me* that my sojourning is prolonged, that I cannot get home to my resting-place, but am still kept at a distance!" So some read it. Note, A good man cannot think himself at home while he is banished from God's ordinances and has not them within reach. And it is a great grief to all that love God to be without the means of grace and of communion with God: when they are under a force of that kind they cannot but cry out, as David here, *Woe to me!* 2. He was forced to live among wicked people, who were, upon many accounts, troublesome to him. He *dwell in the tents of Kedar,* where the shepherds were probably in an ill name for being litigious, like the herdsmen of Abraham and Lot. It is a very grievous burden to a good man to be cast into, and kept in, the company of those whom he hopes to be for ever separated from (like Lot in Sodom; 2Pe 2:8); to dwell long with such is grievous indeed, for they are thorns, vexing, and scratching, and tearing, and they will show the old enmity that is in the *seed of the serpent* against the *seed of the woman.* Those that David dwelt with were such as not only hated him, but hated peace, and proclaimed war with it, who might write on their weapons of war not *Sic sequimur pacem—Thus we aim at peace,* but *Sic persequimur—Thus we persecute.* Perhaps Saul's court was the Mesech and Kedar in which David dwelt, and Saul was the man he meant that hated peace, whom David studied to oblige and could not, but the more service he did him the more exasperated he was against him. See here, (1.) The character of a very good man in David, who could truly say, though he was a man of war, *I am for peace;* for living peaceably with all men and unpeaceably with none. *I peace* (so it is in the original); "I love peace and pursue peace; my disposition is to peace and my delight is in it. I pray for peace and strive for peace, will do any thing, submit to any thing, part with any thing, in reason, for peace. *I am for peace,* and have made it to appear that I am so." *The wisdom that is from above is first pure, then peaceable.* (2.) The character of the worst of bad men in David's enemies, who would pick quarrels with those that were most peaceably disposed: "*When I speak they are for war;* and the more forward for war the more they find me inclined to peace." He spoke with all the respect and kindness that could be, proposed methods of accommodation, spoke reason, spoke love; but they would not so much as hear him patiently, but cried out, "To arms! to arms!" so fierce and implacable were they, and so bent to mischief. Such were Christ's enemies: for his love they were his adversaries, and for his good words, and good works, they stoned him. If we meet with such enemies, we must not think it strange, nor love peace the less for our seeking it in vain. *Be not overcome of evil,* no, not of such evil as this, *but,* even when thus tried, still try to *overcome evil with good.*
 

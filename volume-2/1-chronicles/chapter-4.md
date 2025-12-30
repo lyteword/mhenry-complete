@@ -8,16 +8,16 @@ In this chapter we have, I. A further account of the genealogies of the tribe of
 
 ## The Sons of Judah; The Prayer of Jabez. (b. c. 1720.)
 
-> <sup>1</sup> The sons of Judah; Pharez, Hezron, and Carmi, and Hur, and Shobal.  
-> <sup>2</sup> And Reaiah the son of Shobal begat Jahath; and Jahath begat Ahumai, and Lahad. These *are* the families of the Zorathites.  
-> <sup>3</sup> And these *were of* the father of Etam; Jezreel, and Ishma, and Idbash: and the name of their sister *was* Hazelel-poni:  
-> <sup>4</sup> And Penuel the father of Gedor, and Ezer the father of Hushah. These *are* the sons of Hur, the firstborn of Ephratah, the father of Bethlehem.  
-> <sup>5</sup> And Ashur the father of Tekoa had two wives, Helah and Naarah.  
-> <sup>6</sup> And Naarah bare him Ahuzam, and Hepher, and Temeni, and Haahashtari. These *were* the sons of Naarah.  
-> <sup>7</sup> And the sons of Helah *were,* Zereth, and Jezoar, and Ethnan.  
-> <sup>8</sup> And Coz begat Anub, and Zobebah, and the families of Aharhel the son of Harum.  
-> <sup>9</sup> And Jabez was more honourable than his brethren: and his mother called his name Jabez, saying, Because I bare him with sorrow.  
-> <sup>10</sup> And Jabez called on the God of Israel, saying, Oh that thou wouldest bless me indeed, and enlarge my coast, and that thine hand might be with me, and that thou wouldest keep *me* from evil, that it may not grieve me! And God granted him that which he requested.  
+> **¹** The sons of Judah; Pharez, Hezron, and Carmi, and Hur, and Shobal.  
+> **²** And Reaiah the son of Shobal begat Jahath; and Jahath begat Ahumai, and Lahad. These *are* the families of the Zorathites.  
+> **³** And these *were of* the father of Etam; Jezreel, and Ishma, and Idbash: and the name of their sister *was* Hazelel-poni:  
+> **⁴** And Penuel the father of Gedor, and Ezer the father of Hushah. These *are* the sons of Hur, the firstborn of Ephratah, the father of Bethlehem.  
+> **⁵** And Ashur the father of Tekoa had two wives, Helah and Naarah.  
+> **⁶** And Naarah bare him Ahuzam, and Hepher, and Temeni, and Haahashtari. These *were* the sons of Naarah.  
+> **⁷** And the sons of Helah *were,* Zereth, and Jezoar, and Ethnan.  
+> **⁸** And Coz begat Anub, and Zobebah, and the families of Aharhel the son of Harum.  
+> **⁹** And Jabez was more honourable than his brethren: and his mother called his name Jabez, saying, Because I bare him with sorrow.  
+> **¹⁰** And Jabez called on the God of Israel, saying, Oh that thou wouldest bless me indeed, and enlarge my coast, and that thine hand might be with me, and that thou wouldest keep *me* from evil, that it may not grieve me! And God granted him that which he requested.  
 
 One reason, no doubt, why Ezra is here most particular in the register of the tribe of Judah is because it was that tribe which, with its appendages, Simeon, Benjamin, and Levi, made up the kingdom of Judah, which not only long survived the other tribes in Canaan, but in process of time, now when this was written, returned out of captivity, when the generality of the other tribes were lost in the kingdom of Assyria. The most remarkable person in this paragraph is Jabez. It is not said whose son he was, nor does it appear in what age he lived; but, it should seem, he was the founder of one of the families of Aharhel, mentioned 1Ch 4:8. Here is,
 
@@ -37,44 +37,44 @@ III\. The prayer he made, probably like Solomon's prayer for wisdom, just when h
 
 ## Genealogies. (b. c. 1420.)
 
-> <sup>11</sup> And Chelub the brother of Shuah begat Mehir, which *was* the father of Eshton.  
-> <sup>12</sup> And Eshton begat Beth-rapha, and Paseah, and Tehinnah the father of Irnahash. These *are* the men of Rechah.  
-> <sup>13</sup> And the sons of Kenaz; Othniel, and Seraiah: and the sons of Othniel; Hathath.  
-> <sup>14</sup> And Meonothai begat Ophrah: and Seraiah begat Joab, the father of the valley of Charashim; for they were craftsmen.  
-> <sup>15</sup> And the sons of Caleb the son of Jephunneh; Iru, Elah, and Naam: and the sons of Elah, even Kenaz.  
-> <sup>16</sup> And the sons of Jehaleleel; Ziph, and Ziphah, Tiria, and Asareel.  
-> <sup>17</sup> And the sons of Ezra *were,* Jether, and Mered, and Epher, and Jalon: and she bare Miriam, and Shammai, and Ishbah the father of Eshtemoa.  
-> <sup>18</sup> And his wife Jehudijah bare Jered the father of Gedor, and Heber the father of Socho, and Jekuthiel the father of Zanoah. And these *are* the sons of Bithiah the daughter of Pharaoh, which Mered took.  
-> <sup>19</sup> And the sons of *his* wife Hodiah the sister of Naham, the father of Keilah the Garmite, and Eshtemoa the Maachathite.  
-> <sup>20</sup> And the sons of Shimon *were,* Amnon, and Rinnah, Benhanan, and Tilon. And the sons of Ishi *were,* Zoheth, and Benzoheth.  
-> <sup>21</sup> The sons of Shelah the son of Judah *were,* Er the father of Lecah, and Laadah the father of Mareshah, and the families of the house of them that wrought fine linen, of the house of Ashbea,  
-> <sup>22</sup> And Jokim, and the men of Chozeba, and Joash, and Saraph, who had the dominion in Moab, and Jashubilehem. And *these are* ancient things.  
-> <sup>23</sup> These *were* the potters, and those that dwelt among plants and hedges: there they dwelt with the king for his work.  
+> **¹¹** And Chelub the brother of Shuah begat Mehir, which *was* the father of Eshton.  
+> **¹²** And Eshton begat Beth-rapha, and Paseah, and Tehinnah the father of Irnahash. These *are* the men of Rechah.  
+> **¹³** And the sons of Kenaz; Othniel, and Seraiah: and the sons of Othniel; Hathath.  
+> **¹⁴** And Meonothai begat Ophrah: and Seraiah begat Joab, the father of the valley of Charashim; for they were craftsmen.  
+> **¹⁵** And the sons of Caleb the son of Jephunneh; Iru, Elah, and Naam: and the sons of Elah, even Kenaz.  
+> **¹⁶** And the sons of Jehaleleel; Ziph, and Ziphah, Tiria, and Asareel.  
+> **¹⁷** And the sons of Ezra *were,* Jether, and Mered, and Epher, and Jalon: and she bare Miriam, and Shammai, and Ishbah the father of Eshtemoa.  
+> **¹⁸** And his wife Jehudijah bare Jered the father of Gedor, and Heber the father of Socho, and Jekuthiel the father of Zanoah. And these *are* the sons of Bithiah the daughter of Pharaoh, which Mered took.  
+> **¹⁹** And the sons of *his* wife Hodiah the sister of Naham, the father of Keilah the Garmite, and Eshtemoa the Maachathite.  
+> **²⁰** And the sons of Shimon *were,* Amnon, and Rinnah, Benhanan, and Tilon. And the sons of Ishi *were,* Zoheth, and Benzoheth.  
+> **²¹** The sons of Shelah the son of Judah *were,* Er the father of Lecah, and Laadah the father of Mareshah, and the families of the house of them that wrought fine linen, of the house of Ashbea,  
+> **²²** And Jokim, and the men of Chozeba, and Joash, and Saraph, who had the dominion in Moab, and Jashubilehem. And *these are* ancient things.  
+> **²³** These *were* the potters, and those that dwelt among plants and hedges: there they dwelt with the king for his work.  
 
 We may observe in these verses, 1. That here is a whole family of craftsmen, handicraft tradesmen, that applied themselves to all sorts of manufactures, in which they were ingenious and industrious above their neighbours, 1Ch 4:14. There was a valley where they lived which was, from them, called *the valley of craftsmen.* Those that are craftsmen are not therefore to be looked upon as mean men. These craftsmen, though two of a trade often disagree, yet chose to live together, for the improving of arts by comparing notes, and that they might support one another's reputation. 2. That one of these married the daughter of Pharaoh (1Ch 4:18), which was the common name of the kings of Egypt. If an Israelite in Egypt before the bondage began, while Joseph's merits were yet fresh in mind, was preferred to be the king's son-in-law, it is not to be thought strange: few Israelites could, like Moses, refuse an alliance with the court. 3. That another is said to be the *father of the house of those that wrought fine linen,* 1Ch 4:21. It is inserted in their genealogy as their honour that they were the best weavers in the kingdom, and they brought up their children, from one generation to another, to the same business, not aiming to make them gentlemen. This Laadah is said to be the *father of those that wrought fine linen,* as before the flood Jubal is said to be *the father of musicians* and Jabal of *shepherds,* etc. His posterity inhabited the city of Mareshah, the manufacture or staple commodity of which place was linen-cloth, with which their kings and priests were clothed. 4. That another family had had *dominion in Moab,* but were now in *servitude in Babylon,* 1Ch 4:22,23. (1.) It was found among the *ancient things* that they had the *dominion in Moab.* Probably in David's time, when that country was conquered, they transplanted themselves thither, and were put in places of power there, which they held for several generations; but this was a great while ago, time out of mind. (2.) Their posterity were now potters and gardeners, as is supposed in Babylon, where they *dwelt with the king for his work,* got a good livelihood by their industry, and therefore cared not for returning with their brethren to their own land, after the years of captivity had expired. Those that now have dominion know not what their posterity may be reduced to, nor what mean employments they may be glad to take up with. But those were unworthy the name of *Israelites* that would dwell among *plants and hedges* rather than be at the pains to return to Canaan.
 
 ## Genealogies. (b. c. 715.)
 
-> <sup>24</sup> The sons of Simeon *were,* Nemuel, and Jamin, Jarib, Zerah, *and* Shaul:  
-> <sup>25</sup> Shallum his son, Mibsam his son, Mishma his son.  
-> <sup>26</sup> And the sons of Mishma; Hamuel his son, Zacchur his son, Shimei his son.  
-> <sup>27</sup> And Shimei had sixteen sons and six daughters; but his brethren had not many children, neither did all their family multiply, like to the children of Judah.  
-> <sup>28</sup> And they dwelt at Beer-sheba, and Moladah, and Hazar-shual,  
-> <sup>29</sup> And at Bilhah, and at Ezem, and at Tolad,  
-> <sup>30</sup> And at Bethuel, and at Hormah, and at Ziklag,  
-> <sup>31</sup> And at Beth-marcaboth, and Hazar-susim, and at Beth-birei, and at Shaaraim. These *were* their cities unto the reign of David.  
-> <sup>32</sup> And their villages *were,* Etam, and Ain, Rimmon, and Tochen, and Ashan, five cities:  
-> <sup>33</sup> And all their villages that *were* round about the same cities, unto Baal. These *were* their habitations, and their genealogy.  
-> <sup>34</sup> And Meshobab, and Jamlech, and Joshah the son of Amaziah,  
-> <sup>35</sup> And Joel, and Jehu the son of Josibiah, the son of Seraiah, the son of Asiel,  
-> <sup>36</sup> And Elioenai, and Jaakobah, and Jeshohaiah, and Asaiah, and Adiel, and Jesimiel, and Benaiah,  
-> <sup>37</sup> And Ziza the son of Shiphi, the son of Allon, the son of Jedaiah, the son of Shimri, the son of Shemaiah;  
-> <sup>38</sup> These mentioned by *their* names *were* princes in their families: and the house of their fathers increased greatly.  
-> <sup>39</sup> And they went to the entrance of Gedor, *even* unto the east side of the valley, to seek pasture for their flocks.  
-> <sup>40</sup> And they found fat pasture and good, and the land *was* wide, and quiet, and peaceable; for *they* of Ham had dwelt there of old.  
-> <sup>41</sup> And these written by name came in the days of Hezekiah king of Judah, and smote their tents, and the habitations that were found there, and destroyed them utterly unto this day, and dwelt in their rooms: because *there was* pasture there for their flocks.  
-> <sup>42</sup> And *some* of them, *even* of the sons of Simeon, five hundred men, went to mount Seir, having for their captains Pelatiah, and Neariah, and Rephaiah, and Uzziel, the sons of Ishi.  
-> <sup>43</sup> And they smote the rest of the Amalekites that were escaped, and dwelt there unto this day.  
+> **²⁴** The sons of Simeon *were,* Nemuel, and Jamin, Jarib, Zerah, *and* Shaul:  
+> **²⁵** Shallum his son, Mibsam his son, Mishma his son.  
+> **²⁶** And the sons of Mishma; Hamuel his son, Zacchur his son, Shimei his son.  
+> **²⁷** And Shimei had sixteen sons and six daughters; but his brethren had not many children, neither did all their family multiply, like to the children of Judah.  
+> **²⁸** And they dwelt at Beer-sheba, and Moladah, and Hazar-shual,  
+> **²⁹** And at Bilhah, and at Ezem, and at Tolad,  
+> **³⁰** And at Bethuel, and at Hormah, and at Ziklag,  
+> **³¹** And at Beth-marcaboth, and Hazar-susim, and at Beth-birei, and at Shaaraim. These *were* their cities unto the reign of David.  
+> **³²** And their villages *were,* Etam, and Ain, Rimmon, and Tochen, and Ashan, five cities:  
+> **³³** And all their villages that *were* round about the same cities, unto Baal. These *were* their habitations, and their genealogy.  
+> **³⁴** And Meshobab, and Jamlech, and Joshah the son of Amaziah,  
+> **³⁵** And Joel, and Jehu the son of Josibiah, the son of Seraiah, the son of Asiel,  
+> **³⁶** And Elioenai, and Jaakobah, and Jeshohaiah, and Asaiah, and Adiel, and Jesimiel, and Benaiah,  
+> **³⁷** And Ziza the son of Shiphi, the son of Allon, the son of Jedaiah, the son of Shimri, the son of Shemaiah;  
+> **³⁸** These mentioned by *their* names *were* princes in their families: and the house of their fathers increased greatly.  
+> **³⁹** And they went to the entrance of Gedor, *even* unto the east side of the valley, to seek pasture for their flocks.  
+> **⁴⁰** And they found fat pasture and good, and the land *was* wide, and quiet, and peaceable; for *they* of Ham had dwelt there of old.  
+> **⁴¹** And these written by name came in the days of Hezekiah king of Judah, and smote their tents, and the habitations that were found there, and destroyed them utterly unto this day, and dwelt in their rooms: because *there was* pasture there for their flocks.  
+> **⁴²** And *some* of them, *even* of the sons of Simeon, five hundred men, went to mount Seir, having for their captains Pelatiah, and Neariah, and Rephaiah, and Uzziel, the sons of Ishi.  
+> **⁴³** And they smote the rest of the Amalekites that were escaped, and dwelt there unto this day.  
 
 We have here some of the genealogies of the tribe of Simeon (though it was not a tribe of great note), especially the princes of that tribe, 1Ch 4:38. Of this tribe it is said that they *increased greatly,* but *not like the children of Judah,* 1Ch 4:27. Those whom God increases ought to be thankful, though they see others that are more increased. Here observe, 1. The cities allotted them (1Ch 4:28), of which see Jos 19:1-9, etc. When it is said that they were theirs *unto the reign of David* (1Ch 4:31) intimation is given that when the ten tribes revolted from the house of David many of the Simeonites quitted these cities, because they lay within Judah, and seated themselves elsewhere. 2. The ground they got elsewhere. When those of this tribe that revolted from the house of David were carried captive with the rest into Assyria those that adhered to Judah were remarkably owned of God and prospered in their endeavours to enlarge their coasts. It was in the days of Hezekiah that a generation of Simeonites, whose tribe had long crouched and truckled, was animated to make these bold efforts. (1.) Some of them attacked a place in Arabia, as it should seem, called *the entrance of Gedor,* inhabited by the posterity of accursed Ham (1Ch 4:40), made themselves masters of it, and dwelt there. This adds to the glory of Hezekiah's pious reign, that, as his kingdom in general prospered, so did particular families. It is said that they found fat pastures, and yet *the land was quiet;* even when the kings of Assyria were giving disturbance to all their neighbours this land escaped their alarms. The inhabitants being shepherds, who molested none, were not themselves molested, till the Simeonites came and drove them out and succeeded them, not only in the plenty, but in the peace, of their land. Those who dwell (as we do) in a fruitful country, and whose land is wide, and quiet, and peaceable, have reason to own themselves indebted to that God who *appoints the bounds of our habitation.* (2.) Others of them, to the number of 500, under the command of four brethren here named, made a descent upon Mount Seir, and smote the remainder of the devoted Amalekites, and took possession of their country, 1Ch 4:42,43. Now the curses on Ham and Amalek had a further accomplishment, when they seemed dormant, if not dead; as had also the curse on Simeon, that he should be divided and scattered (Ge 49:7): yet to him it was turned into a blessing, for the families of Simeon, which thus transplanted themselves into those distant countries, are said to *dwell there unto this day* (1Ch 4:43), by which it should seem they escaped the calamities of the captivity. Providence sometimes sends those out of trouble that are designed for preservation.
 

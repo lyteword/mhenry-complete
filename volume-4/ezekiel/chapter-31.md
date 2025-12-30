@@ -8,15 +8,15 @@ The prophecy of this chapter, as the two chapters before, is against Egypt, and 
 
 ## The King of Assyria's Greatness. (b. c. 588.)
 
-> <sup>1</sup> And it came to pass in the eleventh year, in the third *month,* in the first *day* of the month, *that* the word of the LORD came unto me, saying,  
-> <sup>2</sup> Son of man, speak unto Pharaoh king of Egypt, and to his multitude; Whom art thou like in thy greatness?  
-> <sup>3</sup> Behold, the Assyrian *was* a cedar in Lebanon with fair branches, and with a shadowing shroud, and of a high stature; and his top was among the thick boughs.  
-> <sup>4</sup> The waters made him great, the deep set him up on high with her rivers running round about his plants, and sent out her little rivers unto all the trees of the field.  
-> <sup>5</sup> Therefore his height was exalted above all the trees of the field, and his boughs were multiplied, and his branches became long because of the multitude of waters, when he shot forth.  
-> <sup>6</sup> All the fowls of heaven made their nests in his boughs, and under his branches did all the beasts of the field bring forth their young, and under his shadow dwelt all great nations.  
-> <sup>7</sup> Thus was he fair in his greatness, in the length of his branches: for his root was by great waters.  
-> <sup>8</sup> The cedars in the garden of God could not hide him: the fir trees were not like his boughs, and the chestnut-trees were not like his branches; nor any tree in the garden of God was like unto him in his beauty.  
-> <sup>9</sup> I have made him fair by the multitude of his branches: so that all the trees of Eden, that *were* in the garden of God, envied him.  
+> **¹** And it came to pass in the eleventh year, in the third *month,* in the first *day* of the month, *that* the word of the LORD came unto me, saying,  
+> **²** Son of man, speak unto Pharaoh king of Egypt, and to his multitude; Whom art thou like in thy greatness?  
+> **³** Behold, the Assyrian *was* a cedar in Lebanon with fair branches, and with a shadowing shroud, and of a high stature; and his top was among the thick boughs.  
+> **⁴** The waters made him great, the deep set him up on high with her rivers running round about his plants, and sent out her little rivers unto all the trees of the field.  
+> **⁵** Therefore his height was exalted above all the trees of the field, and his boughs were multiplied, and his branches became long because of the multitude of waters, when he shot forth.  
+> **⁶** All the fowls of heaven made their nests in his boughs, and under his branches did all the beasts of the field bring forth their young, and under his shadow dwelt all great nations.  
+> **⁷** Thus was he fair in his greatness, in the length of his branches: for his root was by great waters.  
+> **⁸** The cedars in the garden of God could not hide him: the fir trees were not like his boughs, and the chestnut-trees were not like his branches; nor any tree in the garden of God was like unto him in his beauty.  
+> **⁹** I have made him fair by the multitude of his branches: so that all the trees of Eden, that *were* in the garden of God, envied him.  
 
 This prophecy bears date the month before Jerusalem was taken, as that in the close of the foregoing chapter about four months before. When God's people were in the depth of their distress, it would be some comfort to them, as it would serve likewise for a check to the pride and malice of their neighbours, that insulted over them, to be told from heaven that the cup was going round, even the cup of trembling, that it would shortly be taken out of the hands of God's people and put into the hands of those that hated them, Isa 51:22,23. In this prophecy,
 
@@ -26,15 +26,15 @@ II\. He is directed to show him an instance of one whom he resembles in greatnes
 
 ## The King of Assyria's Downfall; The Fall of Assyria. (b. c. 588.)
 
-> <sup>10</sup> Therefore thus saith the Lord GOD; Because thou hast lifted up thyself in height, and he hath shot up his top among the thick boughs, and his heart is lifted up in his height;  
-> <sup>11</sup> I have therefore delivered him into the hand of the mighty one of the heathen; he shall surely deal with him: I have driven him out for his wickedness.  
-> <sup>12</sup> And strangers, the terrible of the nations, have cut him off, and have left him: upon the mountains and in all the valleys his branches are fallen, and his boughs are broken by all the rivers of the land; and all the people of the earth are gone down from his shadow, and have left him.  
-> <sup>13</sup> Upon his ruin shall all the fowls of the heaven remain, and all the beasts of the field shall be upon his branches:  
-> <sup>14</sup> To the end that none of all the trees by the waters exalt themselves for their height, neither shoot up their top among the thick boughs, neither their trees stand up in their height, all that drink water: for they are all delivered unto death, to the nether parts of the earth, in the midst of the children of men, with them that go down to the pit.  
-> <sup>15</sup> Thus saith the Lord GOD; In the day when he went down to the grave I caused a mourning: I covered the deep for him, and I restrained the floods thereof, and the great waters were stayed: and I caused Lebanon to mourn for him, and all the trees of the field fainted for him.  
-> <sup>16</sup> I made the nations to shake at the sound of his fall, when I cast him down to hell with them that descend into the pit: and all the trees of Eden, the choice and best of Lebanon, all that drink water, shall be comforted in the nether parts of the earth.  
-> <sup>17</sup> They also went down into hell with him unto *them that be* slain with the sword; and *they that were* his arm, *that* dwelt under his shadow in the midst of the heathen.  
-> <sup>18</sup> To whom art thou thus like in glory and in greatness among the trees of Eden? yet shalt thou be brought down with the trees of Eden unto the nether parts of the earth: thou shalt lie in the midst of the uncircumcised with *them that be* slain by the sword. This *is* Pharaoh and all his multitude, saith the Lord GOD.  
+> **¹⁰** Therefore thus saith the Lord GOD; Because thou hast lifted up thyself in height, and he hath shot up his top among the thick boughs, and his heart is lifted up in his height;  
+> **¹¹** I have therefore delivered him into the hand of the mighty one of the heathen; he shall surely deal with him: I have driven him out for his wickedness.  
+> **¹²** And strangers, the terrible of the nations, have cut him off, and have left him: upon the mountains and in all the valleys his branches are fallen, and his boughs are broken by all the rivers of the land; and all the people of the earth are gone down from his shadow, and have left him.  
+> **¹³** Upon his ruin shall all the fowls of the heaven remain, and all the beasts of the field shall be upon his branches:  
+> **¹⁴** To the end that none of all the trees by the waters exalt themselves for their height, neither shoot up their top among the thick boughs, neither their trees stand up in their height, all that drink water: for they are all delivered unto death, to the nether parts of the earth, in the midst of the children of men, with them that go down to the pit.  
+> **¹⁵** Thus saith the Lord GOD; In the day when he went down to the grave I caused a mourning: I covered the deep for him, and I restrained the floods thereof, and the great waters were stayed: and I caused Lebanon to mourn for him, and all the trees of the field fainted for him.  
+> **¹⁶** I made the nations to shake at the sound of his fall, when I cast him down to hell with them that descend into the pit: and all the trees of Eden, the choice and best of Lebanon, all that drink water, shall be comforted in the nether parts of the earth.  
+> **¹⁷** They also went down into hell with him unto *them that be* slain with the sword; and *they that were* his arm, *that* dwelt under his shadow in the midst of the heathen.  
+> **¹⁸** To whom art thou thus like in glory and in greatness among the trees of Eden? yet shalt thou be brought down with the trees of Eden unto the nether parts of the earth: thou shalt lie in the midst of the uncircumcised with *them that be* slain by the sword. This *is* Pharaoh and all his multitude, saith the Lord GOD.  
 
 We have seen the king of Egypt resembling the king of Assyria in pomp, and power, and prosperity, how like he was to him in his greatness; now here we see,
 

@@ -10,11 +10,11 @@ This psalm, if penned with any particular event in view, is with most probabilit
 
 A psalm of Asaph.
 
-> <sup>1</sup> O God, the heathen are come into thine inheritance; thy holy temple have they defiled; they have laid Jerusalem on heaps.  
-> <sup>2</sup> The dead bodies of thy servants have they given *to be* meat unto the fowls of the heaven, the flesh of thy saints unto the beasts of the earth.  
-> <sup>3</sup> Their blood have they shed like water round about Jerusalem; and *there was* none to bury *them.*  
-> <sup>4</sup> We are become a reproach to our neighbours, a scorn and derision to them that are round about us.  
-> <sup>5</sup> How long, LORD? wilt thou be angry for ever? shall thy jealousy burn like fire?  
+> **¹** O God, the heathen are come into thine inheritance; thy holy temple have they defiled; they have laid Jerusalem on heaps.  
+> **²** The dead bodies of thy servants have they given *to be* meat unto the fowls of the heaven, the flesh of thy saints unto the beasts of the earth.  
+> **³** Their blood have they shed like water round about Jerusalem; and *there was* none to bury *them.*  
+> **⁴** We are become a reproach to our neighbours, a scorn and derision to them that are round about us.  
+> **⁵** How long, LORD? wilt thou be angry for ever? shall thy jealousy burn like fire?  
 
 We have here a sad complaint exhibited in the court of heaven. The world is full of complaints, and so is the church too, for it suffers, not only with it, but from it, as *a lily among thorns.* God is complained to; whither should children go with their grievances, but to their father, to such a father as is able and willing to help? The heathen are complained of, who, being themselves aliens from the commonwealth of Israel, were sworn enemies to it. Though they knew not God, nor owned him, yet, God having them in chain, the church very fitly appeals to him against them; for he is King of nations, to overrule them, to judge among the heathen, and King of saints, to favour and protect them.
 
@@ -30,14 +30,14 @@ II\. They wonder more at God's anger, Ps 79:5. This they discern in the anger of
 
 ## Petitions for Succor and Relief; Petitions for Deliverance.
 
-> <sup>6</sup> Pour out thy wrath upon the heathen that have not known thee, and upon the kingdoms that have not called upon thy name.  
-> <sup>7</sup> For they have devoured Jacob, and laid waste his dwelling place.  
-> <sup>8</sup> O remember not against us former iniquities: let thy tender mercies speedily prevent us: for we are brought very low.  
-> <sup>9</sup> Help us, O God of our salvation, for the glory of thy name: and deliver us, and purge away our sins, for thy name's sake.  
-> <sup>10</sup> Wherefore should the heathen say, Where *is* their God? let him be known among the heathen in our sight *by* the revenging of the blood of thy servants *which is* shed.  
-> <sup>11</sup> Let the sighing of the prisoner come before thee; according to the greatness of thy power preserve thou those that are appointed to die;  
-> <sup>12</sup> And render unto our neighbours sevenfold into their bosom their reproach, wherewith they have reproached thee, O Lord.  
-> <sup>13</sup> So we thy people and sheep of thy pasture will give thee thanks for ever: we will show forth thy praise to all generations.  
+> **⁶** Pour out thy wrath upon the heathen that have not known thee, and upon the kingdoms that have not called upon thy name.  
+> **⁷** For they have devoured Jacob, and laid waste his dwelling place.  
+> **⁸** O remember not against us former iniquities: let thy tender mercies speedily prevent us: for we are brought very low.  
+> **⁹** Help us, O God of our salvation, for the glory of thy name: and deliver us, and purge away our sins, for thy name's sake.  
+> **¹⁰** Wherefore should the heathen say, Where *is* their God? let him be known among the heathen in our sight *by* the revenging of the blood of thy servants *which is* shed.  
+> **¹¹** Let the sighing of the prisoner come before thee; according to the greatness of thy power preserve thou those that are appointed to die;  
+> **¹²** And render unto our neighbours sevenfold into their bosom their reproach, wherewith they have reproached thee, O Lord.  
+> **¹³** So we thy people and sheep of thy pasture will give thee thanks for ever: we will show forth thy praise to all generations.  
 
 The petitions here put up to God are very suitable to the present distresses of the church, and they have pleas to enforce them, interwoven with them, taken mostly from God's honour.
 

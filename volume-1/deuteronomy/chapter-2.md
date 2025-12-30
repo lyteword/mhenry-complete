@@ -8,13 +8,13 @@ Moses, in this chapter, proceeds in the rehearsal of God's providences concernin
 
 ## The Seed of Esau and Lot Spared. (b. c. 1451.)
 
-> <sup>1</sup> Then we turned, and took our journey into the wilderness by the way of the Red sea, as the LORD spake unto me: and we compassed mount Seir many days.  
-> <sup>2</sup> And the LORD spake unto me, saying,  
-> <sup>3</sup> Ye have compassed this mountain long enough: turn you northward.  
-> <sup>4</sup> And command thou the people, saying, Ye *are* to pass through the coast of your brethren the children of Esau, which dwell in Seir; and they shall be afraid of you: take ye good heed unto yourselves therefore:  
-> <sup>5</sup> Meddle not with them; for I will not give you of their land, no, not so much as a foot breadth; because I have given mount Seir unto Esau *for* a possession.  
-> <sup>6</sup> Ye shall buy meat of them for money, that ye may eat; and ye shall also buy water of them for money, that ye may drink.  
-> <sup>7</sup> For the LORD thy God hath blessed thee in all the works of thy hand: he knoweth thy walking through this great wilderness: these forty years the LORD thy God *hath been* with thee; thou hast lacked nothing.  
+> **¹** Then we turned, and took our journey into the wilderness by the way of the Red sea, as the LORD spake unto me: and we compassed mount Seir many days.  
+> **²** And the LORD spake unto me, saying,  
+> **³** Ye have compassed this mountain long enough: turn you northward.  
+> **⁴** And command thou the people, saying, Ye *are* to pass through the coast of your brethren the children of Esau, which dwell in Seir; and they shall be afraid of you: take ye good heed unto yourselves therefore:  
+> **⁵** Meddle not with them; for I will not give you of their land, no, not so much as a foot breadth; because I have given mount Seir unto Esau *for* a possession.  
+> **⁶** Ye shall buy meat of them for money, that ye may eat; and ye shall also buy water of them for money, that ye may drink.  
+> **⁷** For the LORD thy God hath blessed thee in all the works of thy hand: he knoweth thy walking through this great wilderness: these forty years the LORD thy God *hath been* with thee; thou hast lacked nothing.  
 
 Here is, I. A short account of the long stay of Israel in the wilderness: *We compassed Mount Seir many days,* De 2:1. Nearly *thirty-eight* years they wandered in the deserts of Seir; probably in some of their rests they staid several years, and never stirred; God by this not only chastised them for their murmuring and unbelief, but, 1. Prepared them for Canaan, by humbling them for sin, teaching them to mortify their lusts, to follow God, and to comfort themselves in him. It is a work of time to make souls meet for heaven, and it must be done by a long train of exercises. 2. He prepared the Canaanites for destruction. All this time the measure of their iniquity was filling up; and, though it might have been improved by them as a space to repent in, it was abused by them to the hardening of their hearts. Now that the host of Israel was once repulsed, and after that was so long entangled and seemingly lost in the wilderness, they were secure, and thought the danger was over from that quarter, which would make the next attempt of Israel upon them the more dreadful.
 
@@ -26,22 +26,22 @@ III\. A charge given them not to annoy the Edomites.
 
 2\. They must trade with them as neighbours, buy meat and water of them, and pay for what they bought, De 2:6. Religion must never be made a cloak for injustice. The reason given (De 2:7), is, "God hath blessed thee, and hitherto thou hast lacked nothing; and therefore," (1.) "Thou needest not beg; scorn to be beholden to Edomites, when thou hast a God all-sufficient to depend upon. Thou hast wherewithal to pay for what thou callest for (thanks to the divine blessing!); use therefore what thou hast, use it cheerfully, and do not sponge upon the Edomites." (2.) "Therefore thou must not steal. Thou hast experienced the care of the divine providence concerning thee, in confidence of which for the future, and in a firm belief of its sufficiency, never use any indirect methods for thy supply. Live by the faith and not by thy sword."
 
-> <sup>8</sup> And when we passed by from our brethren the children of Esau, which dwelt in Seir, through the way of the plain from Elath, and from Ezion-gaber, we turned and passed by the way of the wilderness of Moab.  
-> <sup>9</sup> And the LORD said unto me, Distress not the Moabites, neither contend with them in battle: for I will not give thee of their land *for* a possession; because I have given Ar unto the children of Lot *for* a possession.  
-> <sup>10</sup> The Emims dwelt therein in times past, a people great, and many, and tall, as the Anakims;  
-> <sup>11</sup> Which also were accounted giants, as the Anakims; but the Moabites call them Emims.  
-> <sup>12</sup> The Horims also dwelt in Seir beforetime; but the children of Esau succeeded them, when they had destroyed them from before them, and dwelt in their stead; as Israel did unto the land of his possession, which the LORD gave unto them.  
-> <sup>13</sup> Now rise up, *said I,* and get you over the brook Zered. And we went over the brook Zered.  
-> <sup>14</sup> And the space in which we came from Kadesh-barnea, until we were come over the brook Zered, *was* thirty and eight years; until all the generation of the men of war were wasted out from among the host, as the LORD sware unto them.  
-> <sup>15</sup> For indeed the hand of the LORD was against them, to destroy them from among the host, until they were consumed.  
-> <sup>16</sup> So it came to pass, when all the men of war were consumed and dead from among the people,  
-> <sup>17</sup> That the LORD spake unto me, saying,  
-> <sup>18</sup> Thou art to pass over through Ar, the coast of Moab, this day:  
-> <sup>19</sup> And *when* thou comest nigh over against the children of Ammon, distress them not, nor meddle with them: for I will not give thee of the land of the children of Ammon *any* possession; because I have given it unto the children of Lot *for* a possession.  
-> <sup>20</sup> (That also was accounted a land of giants: giants dwelt therein in old time; and the Ammonites call them Zamzummims;  
-> <sup>21</sup> A people great, and many, and tall, as the Anakims; but the LORD destroyed them before them; and they succeeded them, and dwelt in their stead:  
-> <sup>22</sup> As he did to the children of Esau, which dwelt in Seir, when he destroyed the Horims from before them; and they succeeded them, and dwelt in their stead even unto this day:  
-> <sup>23</sup> And the Avims which dwelt in Hazerim, *even* unto Azzah, the Caphtorims, which came forth out of Caphtor, destroyed them, and dwelt in their stead.)  
+> **⁸** And when we passed by from our brethren the children of Esau, which dwelt in Seir, through the way of the plain from Elath, and from Ezion-gaber, we turned and passed by the way of the wilderness of Moab.  
+> **⁹** And the LORD said unto me, Distress not the Moabites, neither contend with them in battle: for I will not give thee of their land *for* a possession; because I have given Ar unto the children of Lot *for* a possession.  
+> **¹⁰** The Emims dwelt therein in times past, a people great, and many, and tall, as the Anakims;  
+> **¹¹** Which also were accounted giants, as the Anakims; but the Moabites call them Emims.  
+> **¹²** The Horims also dwelt in Seir beforetime; but the children of Esau succeeded them, when they had destroyed them from before them, and dwelt in their stead; as Israel did unto the land of his possession, which the LORD gave unto them.  
+> **¹³** Now rise up, *said I,* and get you over the brook Zered. And we went over the brook Zered.  
+> **¹⁴** And the space in which we came from Kadesh-barnea, until we were come over the brook Zered, *was* thirty and eight years; until all the generation of the men of war were wasted out from among the host, as the LORD sware unto them.  
+> **¹⁵** For indeed the hand of the LORD was against them, to destroy them from among the host, until they were consumed.  
+> **¹⁶** So it came to pass, when all the men of war were consumed and dead from among the people,  
+> **¹⁷** That the LORD spake unto me, saying,  
+> **¹⁸** Thou art to pass over through Ar, the coast of Moab, this day:  
+> **¹⁹** And *when* thou comest nigh over against the children of Ammon, distress them not, nor meddle with them: for I will not give thee of the land of the children of Ammon *any* possession; because I have given it unto the children of Lot *for* a possession.  
+> **²⁰** (That also was accounted a land of giants: giants dwelt therein in old time; and the Ammonites call them Zamzummims;  
+> **²¹** A people great, and many, and tall, as the Anakims; but the LORD destroyed them before them; and they succeeded them, and dwelt in their stead:  
+> **²²** As he did to the children of Esau, which dwelt in Seir, when he destroyed the Horims from before them; and they succeeded them, and dwelt in their stead even unto this day:  
+> **²³** And the Avims which dwelt in Hazerim, *even* unto Azzah, the Caphtorims, which came forth out of Caphtor, destroyed them, and dwelt in their stead.)  
 
 It is observable here that Moses, speaking of the Edomites (De 2:8), calls them, "*our brethren, the children of Esau.*" Though they had been unkind to Israel, in refusing them a peaceable passage through their country, yet he calls them brethren. For, though our relations fail in their duty to us, we must retain a sense of the relation, and not be wanting in our duty to them, as there is occasion. Now in these verses we have,
 
@@ -53,20 +53,20 @@ III\. The caution given them not to meddle with the Moabites or Ammonites, whom 
 
 ## History of the Moabites. (b. c. 1451.)
 
-> <sup>24</sup> Rise ye up, take your journey, and pass over the river Arnon: behold, I have given into thine hand Sihon the Amorite, king of Heshbon, and his land: begin to possess *it,* and contend with him in battle.  
-> <sup>25</sup> This day will I begin to put the dread of thee and the fear of thee upon the nations *that are* under the whole heaven, who shall hear report of thee, and shall tremble, and be in anguish because of thee.  
-> <sup>26</sup> And I sent messengers out of the wilderness of Kedemoth unto Sihon king of Heshbon with words of peace, saying,  
-> <sup>27</sup> Let me pass through thy land: I will go along by the high way, I will neither turn unto the right hand nor to the left.  
-> <sup>28</sup> Thou shalt sell me meat for money, that I may eat; and give me water for money, that I may drink: only I will pass through on my feet;  
-> <sup>29</sup> (As the children of Esau which dwell in Seir, and the Moabites which dwell in Ar, did unto me;) until I shall pass over Jordan into the land which the LORD our God giveth us.  
-> <sup>30</sup> But Sihon king of Heshbon would not let us pass by him: for the LORD thy God hardened his spirit, and made his heart obstinate, that he might deliver him into thy hand, as *appeareth* this day.  
-> <sup>31</sup> And the LORD said unto me, Behold, I have begun to give Sihon and his land before thee: begin to possess, that thou mayest inherit his land.  
-> <sup>32</sup> Then Sihon came out against us, he and all his people, to fight at Jahaz.  
-> <sup>33</sup> And the LORD our God delivered him before us; and we smote him, and his sons, and all his people.  
-> <sup>34</sup> And we took all his cities at that time, and utterly destroyed the men, and the women, and the little ones, of every city, we left none to remain:  
-> <sup>35</sup> Only the cattle we took for a prey unto ourselves, and the spoil of the cities which we took.  
-> <sup>36</sup> From Aroer, which *is* by the brink of the river of Arnon, and *from* the city that *is* by the river, even unto Gilead, there was not one city too strong for us: the LORD our God delivered all unto us:  
-> <sup>37</sup> Only unto the land of the children of Ammon thou camest not, *nor* unto any place of the river Jabbok, nor unto the cities in the mountains, nor unto whatsoever the LORD our God forbad us.  
+> **²⁴** Rise ye up, take your journey, and pass over the river Arnon: behold, I have given into thine hand Sihon the Amorite, king of Heshbon, and his land: begin to possess *it,* and contend with him in battle.  
+> **²⁵** This day will I begin to put the dread of thee and the fear of thee upon the nations *that are* under the whole heaven, who shall hear report of thee, and shall tremble, and be in anguish because of thee.  
+> **²⁶** And I sent messengers out of the wilderness of Kedemoth unto Sihon king of Heshbon with words of peace, saying,  
+> **²⁷** Let me pass through thy land: I will go along by the high way, I will neither turn unto the right hand nor to the left.  
+> **²⁸** Thou shalt sell me meat for money, that I may eat; and give me water for money, that I may drink: only I will pass through on my feet;  
+> **²⁹** (As the children of Esau which dwell in Seir, and the Moabites which dwell in Ar, did unto me;) until I shall pass over Jordan into the land which the LORD our God giveth us.  
+> **³⁰** But Sihon king of Heshbon would not let us pass by him: for the LORD thy God hardened his spirit, and made his heart obstinate, that he might deliver him into thy hand, as *appeareth* this day.  
+> **³¹** And the LORD said unto me, Behold, I have begun to give Sihon and his land before thee: begin to possess, that thou mayest inherit his land.  
+> **³²** Then Sihon came out against us, he and all his people, to fight at Jahaz.  
+> **³³** And the LORD our God delivered him before us; and we smote him, and his sons, and all his people.  
+> **³⁴** And we took all his cities at that time, and utterly destroyed the men, and the women, and the little ones, of every city, we left none to remain:  
+> **³⁵** Only the cattle we took for a prey unto ourselves, and the spoil of the cities which we took.  
+> **³⁶** From Aroer, which *is* by the brink of the river of Arnon, and *from* the city that *is* by the river, even unto Gilead, there was not one city too strong for us: the LORD our God delivered all unto us:  
+> **³⁷** Only unto the land of the children of Ammon thou camest not, *nor* unto any place of the river Jabbok, nor unto the cities in the mountains, nor unto whatsoever the LORD our God forbad us.  
 
 God having tried the self-denial of his people in forbidding them to meddle with the Moabites and Ammonites, and they having quietly passed by those rich countries, and, though superior in number, not made any attack upon them, here he recompenses them for their obedience by giving them possession of the country of Sihon king of the Amorites. If we forbear what God forbids, we shall receive what he promises, and shall be no losers at last by our obedience, though it may seem for the present to be to our loss. Wrong not others, and God shall right thee.
 

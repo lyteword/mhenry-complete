@@ -8,15 +8,15 @@ This chapter might borrow its title from Mal 2:1, "And now, O you priests, this 
 
 ## Laws Concerning the Priests. (b. c. 1490.)
 
-> <sup>1</sup> And the LORD said unto Moses, Speak unto the priests the sons of Aaron, and say unto them, There shall none be defiled for the dead among his people:  
-> <sup>2</sup> But for his kin, that is near unto him, *that is,* for his mother, and for his father, and for his son, and for his daughter, and for his brother,  
-> <sup>3</sup> And for his sister a virgin, that is nigh unto him, which hath had no husband; for her may he be defiled.  
-> <sup>4</sup> *But* he shall not defile himself, *being* a chief man among his people, to profane himself.  
-> <sup>5</sup> They shall not make baldness upon their head, neither shall they shave off the corner of their beard, nor make any cuttings in their flesh.  
-> <sup>6</sup> They shall be holy unto their God, and not profane the name of their God: for the offerings of the LORD made by fire, *and* the bread of their God, they do offer: therefore they shall be holy.  
-> <sup>7</sup> They shall not take a wife *that is* a whore, or profane; neither shall they take a woman put away from her husband: for he *is* holy unto his God.  
-> <sup>8</sup> Thou shalt sanctify him therefore; for he offereth the bread of thy God: he shall be holy unto thee: for I the LORD, which sanctify you, *am* holy.  
-> <sup>9</sup> And the daughter of any priest, if she profane herself by playing the whore, she profaneth her father: she shall be burnt with fire.  
+> **¹** And the LORD said unto Moses, Speak unto the priests the sons of Aaron, and say unto them, There shall none be defiled for the dead among his people:  
+> **²** But for his kin, that is near unto him, *that is,* for his mother, and for his father, and for his son, and for his daughter, and for his brother,  
+> **³** And for his sister a virgin, that is nigh unto him, which hath had no husband; for her may he be defiled.  
+> **⁴** *But* he shall not defile himself, *being* a chief man among his people, to profane himself.  
+> **⁵** They shall not make baldness upon their head, neither shall they shave off the corner of their beard, nor make any cuttings in their flesh.  
+> **⁶** They shall be holy unto their God, and not profane the name of their God: for the offerings of the LORD made by fire, *and* the bread of their God, they do offer: therefore they shall be holy.  
+> **⁷** They shall not take a wife *that is* a whore, or profane; neither shall they take a woman put away from her husband: for he *is* holy unto his God.  
+> **⁸** Thou shalt sanctify him therefore; for he offereth the bread of thy God: he shall be holy unto thee: for I the LORD, which sanctify you, *am* holy.  
+> **⁹** And the daughter of any priest, if she profane herself by playing the whore, she profaneth her father: she shall be burnt with fire.  
 
 It was before appointed that the priests should teach the people the statutes God had given concerning the *difference between clean and unclean,* Le 10:10,11. Now here it is provided that they should themselves observe what they were to teach the people. Note, Those whose office it is to instruct must do it by example as well as precept, 1Ti 4:12. The priests were to draw nearer to God than any of the people, and to be more intimately conversant with sacred things, and therefore it was required of them that they should keep at a greater distance than others from every thing that was defiling and might diminish the honour of their priesthood.
 
@@ -26,12 +26,12 @@ II\. They must take care not to degrade themselves in their marriage, Le 21:7. A
 
 III\. Their children must be afraid of doing any thing to disparage them (Le 21:9): *If the daughter of any priest play the whore,* her crime is great; she not only polluteth but *profaneth herself:* other women have not that honour to lose that she has, who, as one of a priest's family, has eaten of the holy things, and is supposed to have been better educated than others. Nay, *she profaneth her father;* he is reflected upon, and everybody will be ready to ask, "Why did not he teach her better?" And the sinners in Zion will insult and say, "Here is your priest's daughter." Her punishment there must be peculiar: *She shall be burnt with fire,* for a terror to all priests' daughters. Note, The children of ministers ought, of all others, to take heed of doing any thing that is scandalous, because in them it is doubly scandalous, and will be punished accordingly by him whose name is *Jealous.*
 
-> <sup>10</sup> And *he that is* the high priest among his brethren, upon whose head the anointing oil was poured, and that is consecrated to put on the garments, shall not uncover his head, nor rend his clothes;  
-> <sup>11</sup> Neither shall he go in to any dead body, nor defile himself for his father, or for his mother;  
-> <sup>12</sup> Neither shall he go out of the sanctuary, nor profane the sanctuary of his God; for the crown of the anointing oil of his God *is* upon him: I *am* the LORD.  
-> <sup>13</sup> And he shall take a wife in her virginity.  
-> <sup>14</sup> A widow, or a divorced woman, or profane, *or* an harlot, these shall he not take: but he shall take a virgin of his own people to wife.  
-> <sup>15</sup> Neither shall he profane his seed among his people: for I the LORD do sanctify him.  
+> **¹⁰** And *he that is* the high priest among his brethren, upon whose head the anointing oil was poured, and that is consecrated to put on the garments, shall not uncover his head, nor rend his clothes;  
+> **¹¹** Neither shall he go in to any dead body, nor defile himself for his father, or for his mother;  
+> **¹²** Neither shall he go out of the sanctuary, nor profane the sanctuary of his God; for the crown of the anointing oil of his God *is* upon him: I *am* the LORD.  
+> **¹³** And he shall take a wife in her virginity.  
+> **¹⁴** A widow, or a divorced woman, or profane, *or* an harlot, these shall he not take: but he shall take a virgin of his own people to wife.  
+> **¹⁵** Neither shall he profane his seed among his people: for I the LORD do sanctify him.  
 
 More was expected from a priest than from other people, but more from the high priest than from other priests, because upon his head the *anointing oil was poured,* and he was *consecrated to put on the garments* (Le 21:10), both which were typical of the anointing and adorning of the Lord Jesus, with all the gifts and graces of the Holy Spirit, which he received without measure. It is called *the crown of the anointing oil of his God* (Le 21:12); for the anointing of the Spirit is, to all that have it, a *crown of glory,* and a *diadem of beauty.* The high priest being thus dignified,
 
@@ -41,15 +41,15 @@ II\. He might not marry a widow (as other priests might), much less one divorced
 
 III\. He might not profane his seed among his people, Le 21:15. Some understand it as forbidding him to marry any of an inferior rank, which would be a disparagement to his family. Jehoiada indeed married of his own tribe, but then it was into the royal family, 2Ch 22:11. This was not to teach him to be proud, but to teach him to be pure, and to do nothing unbecoming his office and the worthy name by which he was called. Or it may be a caution to him in disposing of his children; he must not profane his seed by marrying them unsuitably. Ministers' children are profaned if they be unequally yoked with unbelievers.
 
-> <sup>16</sup> And the LORD spake unto Moses, saying,  
-> <sup>17</sup> Speak unto Aaron, saying, Whosoever *he be* of thy seed in their generations that hath *any* blemish, let him not approach to offer the bread of his God.  
-> <sup>18</sup> For whatsoever man *he be* that hath a blemish, he shall not approach: a blind man, or a lame, or he that hath a flat nose, or any thing superfluous,  
-> <sup>19</sup> Or a man that is brokenfooted, or brokenhanded,  
-> <sup>20</sup> Or crookbackt, or a dwarf, or that hath a blemish in his eye, or be scurvy, or scabbed, or hath his stones broken;  
-> <sup>21</sup> No man that hath a blemish of the seed of Aaron the priest shall come nigh to offer the offerings of the LORD made by fire: he hath a blemish; he shall not come nigh to offer the bread of his God.  
-> <sup>22</sup> He shall eat the bread of his God, *both* of the most holy, and of the holy.  
-> <sup>23</sup> Only he shall not go in unto the vail, nor come nigh unto the altar, because he hath a blemish; that he profane not my sanctuaries: for I the LORD do sanctify them.  
-> <sup>24</sup> And Moses told *it* unto Aaron, and to his sons, and unto all the children of Israel.  
+> **¹⁶** And the LORD spake unto Moses, saying,  
+> **¹⁷** Speak unto Aaron, saying, Whosoever *he be* of thy seed in their generations that hath *any* blemish, let him not approach to offer the bread of his God.  
+> **¹⁸** For whatsoever man *he be* that hath a blemish, he shall not approach: a blind man, or a lame, or he that hath a flat nose, or any thing superfluous,  
+> **¹⁹** Or a man that is brokenfooted, or brokenhanded,  
+> **²⁰** Or crookbackt, or a dwarf, or that hath a blemish in his eye, or be scurvy, or scabbed, or hath his stones broken;  
+> **²¹** No man that hath a blemish of the seed of Aaron the priest shall come nigh to offer the offerings of the LORD made by fire: he hath a blemish; he shall not come nigh to offer the bread of his God.  
+> **²²** He shall eat the bread of his God, *both* of the most holy, and of the holy.  
+> **²³** Only he shall not go in unto the vail, nor come nigh unto the altar, because he hath a blemish; that he profane not my sanctuaries: for I the LORD do sanctify them.  
+> **²⁴** And Moses told *it* unto Aaron, and to his sons, and unto all the children of Israel.  
 
 The priesthood being confined to one particular family, and entailed upon all the male issue of that family throughout their generations, it was very likely that some or other in after-ages that were born to the priesthood would have natural blemishes and deformities: the honour of the priesthood would not secure them from any of those calamities which are common to men. Divers blemishes are here specified; some that were ordinarily for life, as blindness; others that might be for a time, as a scurf or scab, and, when they were gone, the disability ceased. Now,
 

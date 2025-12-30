@@ -8,14 +8,14 @@ A stupid, senseless, heedless people, are, in this chapter, called upon to take 
 
 ## God's Remonstrance with Israel. (b. c. 790.)
 
-> <sup>1</sup> Hear this word that the LORD hath spoken against you, O children of Israel, against the whole family which I brought up from the land of Egypt, saying,  
-> <sup>2</sup> You only have I known of all the families of the earth: therefore I will punish you for all your iniquities.  
-> <sup>3</sup> Can two walk together, except they be agreed?  
-> <sup>4</sup> Will a lion roar in the forest, when he hath no prey? will a young lion cry out of his den, if he have taken nothing?  
-> <sup>5</sup> Can a bird fall in a snare upon the earth, where no gin *is* for him? shall *one* take up a snare from the earth, and have taken nothing at all?  
-> <sup>6</sup> Shall a trumpet be blown in the city, and the people not be afraid? shall there be evil in a city, and the LORD hath not done *it?*  
-> <sup>7</sup> Surely the Lord GOD will do nothing, but he revealeth his secret unto his servants the prophets.  
-> <sup>8</sup> The lion hath roared, who will not fear? the Lord GOD hath spoken, who can but prophesy?  
+> **¹** Hear this word that the LORD hath spoken against you, O children of Israel, against the whole family which I brought up from the land of Egypt, saying,  
+> **²** You only have I known of all the families of the earth: therefore I will punish you for all your iniquities.  
+> **³** Can two walk together, except they be agreed?  
+> **⁴** Will a lion roar in the forest, when he hath no prey? will a young lion cry out of his den, if he have taken nothing?  
+> **⁵** Can a bird fall in a snare upon the earth, where no gin *is* for him? shall *one* take up a snare from the earth, and have taken nothing at all?  
+> **⁶** Shall a trumpet be blown in the city, and the people not be afraid? shall there be evil in a city, and the LORD hath not done *it?*  
+> **⁷** Surely the Lord GOD will do nothing, but he revealeth his secret unto his servants the prophets.  
+> **⁸** The lion hath roared, who will not fear? the Lord GOD hath spoken, who can but prophesy?  
 
 The scope of these verses is to convince the people of Israel that God had a controversy with them. That which the prophet has to say to them is to let them know that the Lord has something to say against them, Am 3:1. They were his peculiar people above others, knew his name, and were called by it; *nevertheless he had something against them,* and they were called to hear what it was, that they might consider what answer they should make, as the prisoner at the bar is told to hearken to his indictment. The *children of Israel* would not regard the words of counsel and comfort that God had many a time spoken to them, and now they shall be made to hear the word of reproof and threatening that the Lord has spoken against them; for he will act as he has spoken.
 
@@ -35,13 +35,13 @@ VII\. Let them know that they ought to tremble before God upon the fair warning 
 
 ## Israel Convicted and Condemned. (b. c. 790.)
 
-> <sup>9</sup> Publish in the palaces at Ashdod, and in the palaces in the land of Egypt, and say, Assemble yourselves upon the mountains of Samaria, and behold the great tumults in the midst thereof, and the oppressed in the midst thereof.  
-> <sup>10</sup> For they know not to do right, saith the LORD, who store up violence and robbery in their palaces.  
-> <sup>11</sup> Therefore thus saith the Lord GOD; An adversary *there shall be* even round about the land; and he shall bring down thy strength from thee, and thy palaces shall be spoiled.  
-> <sup>12</sup> Thus saith the LORD; As the shepherd taketh out of the mouth of the lion two legs, or a piece of an ear; so shall the children of Israel be taken out that dwell in Samaria in the corner of a bed, and in Damascus *in* a couch.  
-> <sup>13</sup> Hear ye, and testify in the house of Jacob, saith the Lord GOD, the God of hosts,  
-> <sup>14</sup> That in the day that I shall visit the transgressions of Israel upon him I will also visit the altars of Bethel: and the horns of the altar shall be cut off, and fall to the ground.  
-> <sup>15</sup> And I will smite the winter house with the summer house; and the houses of ivory shall perish, and the great houses shall have an end, saith the LORD.  
+> **⁹** Publish in the palaces at Ashdod, and in the palaces in the land of Egypt, and say, Assemble yourselves upon the mountains of Samaria, and behold the great tumults in the midst thereof, and the oppressed in the midst thereof.  
+> **¹⁰** For they know not to do right, saith the LORD, who store up violence and robbery in their palaces.  
+> **¹¹** Therefore thus saith the Lord GOD; An adversary *there shall be* even round about the land; and he shall bring down thy strength from thee, and thy palaces shall be spoiled.  
+> **¹²** Thus saith the LORD; As the shepherd taketh out of the mouth of the lion two legs, or a piece of an ear; so shall the children of Israel be taken out that dwell in Samaria in the corner of a bed, and in Damascus *in* a couch.  
+> **¹³** Hear ye, and testify in the house of Jacob, saith the Lord GOD, the God of hosts,  
+> **¹⁴** That in the day that I shall visit the transgressions of Israel upon him I will also visit the altars of Bethel: and the horns of the altar shall be cut off, and fall to the ground.  
+> **¹⁵** And I will smite the winter house with the summer house; and the houses of ivory shall perish, and the great houses shall have an end, saith the LORD.  
 
 The Israelites are here again convicted and condemned, and particular notice given of the crimes they are convicted of and the punishment they are condemned to.
 

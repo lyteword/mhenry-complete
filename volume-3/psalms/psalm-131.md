@@ -10,9 +10,9 @@ This psalm is David's profession of humility, humbly made, with thankfulness to 
 
 A song of degrees of David.
 
-> <sup>1</sup> LORD, my heart is not haughty, nor mine eyes lofty: neither do I exercise myself in great matters, or in things too high for me.  
-> <sup>2</sup> Surely I have behaved and quieted myself, as a child that is weaned of his mother: my soul *is* even as a weaned child.  
-> <sup>3</sup> Let Israel hope in the LORD from henceforth and for ever.  
+> **¹** LORD, my heart is not haughty, nor mine eyes lofty: neither do I exercise myself in great matters, or in things too high for me.  
+> **²** Surely I have behaved and quieted myself, as a child that is weaned of his mother: my soul *is* even as a weaned child.  
+> **³** Let Israel hope in the LORD from henceforth and for ever.  
 
 Here are two things which will be comforts to us:—
 

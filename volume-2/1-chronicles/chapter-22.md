@@ -8,11 +8,11 @@ weight: 22
 
 ## Preparations for the Temple. (b. c. 1017.)
 
-> <sup>1</sup> Then David said, This *is* the house of the LORD God, and this *is* the altar of the burnt offering for Israel.  
-> <sup>2</sup> And David commanded to gather together the strangers that *were* in the land of Israel; and he set masons to hew wrought stones to build the house of God.  
-> <sup>3</sup> And David prepared iron in abundance for the nails for the doors of the gates, and for the joinings; and brass in abundance without weight;  
-> <sup>4</sup> Also cedar trees in abundance: for the Zidonians and they of Tyre brought much cedar wood to David.  
-> <sup>5</sup> And David said, Solomon my son *is* young and tender, and the house *that is* to be builded for the LORD *must be* exceeding magnifical, of fame and of glory throughout all countries: I will *therefore* now make preparation for it. So David prepared abundantly before his death.  
+> **¹** Then David said, This *is* the house of the LORD God, and this *is* the altar of the burnt offering for Israel.  
+> **²** And David commanded to gather together the strangers that *were* in the land of Israel; and he set masons to hew wrought stones to build the house of God.  
+> **³** And David prepared iron in abundance for the nails for the doors of the gates, and for the joinings; and brass in abundance without weight;  
+> **⁴** Also cedar trees in abundance: for the Zidonians and they of Tyre brought much cedar wood to David.  
+> **⁵** And David said, Solomon my son *is* young and tender, and the house *that is* to be builded for the LORD *must be* exceeding magnifical, of fame and of glory throughout all countries: I will *therefore* now make preparation for it. So David prepared abundantly before his death.  
 
 Here is, I. The place fixed for the building of the temple (1Ch 22:1): *Then David said,* by inspiration of God, and as a declaration of his mind, *This is the house of the Lord God.* If a temple must be built for God, it is fit that it be left to him to choose the ground, for all the earth is his; and this is the ground he makes choice of-ground that pertained to a Jebusite, and perhaps there was not a spot of ground besides, in or about Jerusalem, that did so—a happy presage of the setting up of the gospel temple among the Gentiles. See Ac 15:16,17. The ground was a threshing-floor; for the church of the living God is his floor, his threshing, and *the corn of his floor,* Isa 21:10. Christ's fan is in his hand, thoroughly to purge his floor. This is to be the house because this is the altar. The temple was built for the sake of the altar. There were altars long before there were temples.
 
@@ -24,17 +24,17 @@ II\. Preparation made for that building. David must not build it, but he would d
 
 ## The Charge to Solomon. (b. c. 1015.)
 
-> <sup>6</sup> Then he called for Solomon his son, and charged him to build a house for the LORD God of Israel.  
-> <sup>7</sup> And David said to Solomon, My son, as for me, it was in my mind to build a house unto the name of the LORD my God:  
-> <sup>8</sup> But the word of the LORD came to me, saying, Thou hast shed blood abundantly, and hast made great wars: thou shalt not build a house unto my name, because thou hast shed much blood upon the earth in my sight.  
-> <sup>9</sup> Behold, a son shall be born to thee, who shall be a man of rest; and I will give him rest from all his enemies round about: for his name shall be Solomon, and I will give peace and quietness unto Israel in his days.  
-> <sup>10</sup> He shall build a house for my name; and he shall be my son, and I *will be* his father; and I will establish the throne of his kingdom over Israel for ever.  
-> <sup>11</sup> Now, my son, the LORD be with thee; and prosper thou, and build the house of the LORD thy God, as he hath said of thee.  
-> <sup>12</sup> Only the LORD give thee wisdom and understanding, and give thee charge concerning Israel, that thou mayest keep the law of the LORD thy God.  
-> <sup>13</sup> Then shalt thou prosper, if thou takest heed to fulfil the statutes and judgments which the LORD charged Moses with concerning Israel: be strong, and of good courage; dread not, nor be dismayed.  
-> <sup>14</sup> Now, behold, in my trouble I have prepared for the house of the LORD a hundred thousand talents of gold, and a thousand thousand talents of silver; and of brass and iron without weight; for it is in abundance: timber also and stone have I prepared; and thou mayest add thereto.  
-> <sup>15</sup> Moreover *there are* workmen with thee in abundance, hewers and workers of stone and timber, and all manner of cunning men for every manner of work.  
-> <sup>16</sup> Of the gold, the silver, and the brass, and the iron, *there is* no number. Arise *therefore,* and be doing, and the LORD be with thee.  
+> **⁶** Then he called for Solomon his son, and charged him to build a house for the LORD God of Israel.  
+> **⁷** And David said to Solomon, My son, as for me, it was in my mind to build a house unto the name of the LORD my God:  
+> **⁸** But the word of the LORD came to me, saying, Thou hast shed blood abundantly, and hast made great wars: thou shalt not build a house unto my name, because thou hast shed much blood upon the earth in my sight.  
+> **⁹** Behold, a son shall be born to thee, who shall be a man of rest; and I will give him rest from all his enemies round about: for his name shall be Solomon, and I will give peace and quietness unto Israel in his days.  
+> **¹⁰** He shall build a house for my name; and he shall be my son, and I *will be* his father; and I will establish the throne of his kingdom over Israel for ever.  
+> **¹¹** Now, my son, the LORD be with thee; and prosper thou, and build the house of the LORD thy God, as he hath said of thee.  
+> **¹²** Only the LORD give thee wisdom and understanding, and give thee charge concerning Israel, that thou mayest keep the law of the LORD thy God.  
+> **¹³** Then shalt thou prosper, if thou takest heed to fulfil the statutes and judgments which the LORD charged Moses with concerning Israel: be strong, and of good courage; dread not, nor be dismayed.  
+> **¹⁴** Now, behold, in my trouble I have prepared for the house of the LORD a hundred thousand talents of gold, and a thousand thousand talents of silver; and of brass and iron without weight; for it is in abundance: timber also and stone have I prepared; and thou mayest add thereto.  
+> **¹⁵** Moreover *there are* workmen with thee in abundance, hewers and workers of stone and timber, and all manner of cunning men for every manner of work.  
+> **¹⁶** Of the gold, the silver, and the brass, and the iron, *there is* no number. Arise *therefore,* and be doing, and the LORD be with thee.  
 
 Though Solomon was young and tender, he was capable of receiving instructions, which his father accordingly gave him, concerning the work for which he was designed. When David came to the throne he had many things to do, for the foundations were all out of course; but Solomon had only one thing in charge, and that was *to build a house for the Lord God of Israel,* 1Ch 22:6. Now,
 
@@ -54,9 +54,9 @@ VII\. He prays for him: *The Lord give thee wisdom and understanding, and give t
 
 ## The Charge to the Princes of Israel. (b. c. 1015.)
 
-> <sup>17</sup> David also commanded all the princes of Israel to help Solomon his son, *saying,*  
-> <sup>18</sup> *Is* not the LORD your God with you? and hath he *not* given you rest on every side? for he hath given the inhabitants of the land into mine hand; and the land is subdued before the LORD, and before his people.  
-> <sup>19</sup> Now set your heart and your soul to seek the LORD your God; arise therefore, and build ye the sanctuary of the LORD God, to bring the ark of the covenant of the LORD, and the holy vessels of God, into the house that is to be built to the name of the LORD.  
+> **¹⁷** David also commanded all the princes of Israel to help Solomon his son, *saying,*  
+> **¹⁸** *Is* not the LORD your God with you? and hath he *not* given you rest on every side? for he hath given the inhabitants of the land into mine hand; and the land is subdued before the LORD, and before his people.  
+> **¹⁹** Now set your heart and your soul to seek the LORD your God; arise therefore, and build ye the sanctuary of the LORD God, to bring the ark of the covenant of the LORD, and the holy vessels of God, into the house that is to be built to the name of the LORD.  
 
 David here engages the princes of Israel to assist Solomon in the great work he had to do, and every one to lend him a hand towards the carrying of it on. Those that are in the throne cannot do the good they would, unless those about the throne set in with them. David would therefore have the princes to advise Solomon and quicken him, and make the work as easy to him as they could, by promoting it every one in his place. 1. He shows them what obligations they lay under to be zealous in this matter, in gratitude to God for the great things he had done for them. He had given them victory, and rest, and a good land for an inheritance, 1Ch 22:18. The more God has done for us the more we should study to do for him. 2. He presses that upon them which should make them zealous in it (1Ch 22:19): "*Set your heart and soul to seek God,* place your happiness in his favour, and keep your eye upon his glory. Seek him as your chief good and highest end, and this *with your heart and soul.* Make religion your choice and business; and then you will grudge no pains nor cost to promote the building of his sanctuary." Let but the heart be sincerely engaged for God, and the head and hand, the estate and interest, and all will be cheerfully employed for him.
 

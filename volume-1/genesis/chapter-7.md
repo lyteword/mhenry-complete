@@ -8,10 +8,10 @@ In this chapter we have the performance of what was foretold in the foregoing ch
 
 ## Noah Invited into the Ark. (b. c. 2349.)
 
-> <sup>1</sup> And the LORD said unto Noah, Come thou and all thy house into the ark; for thee have I seen righteous before me in this generation.  
-> <sup>2</sup> Of every clean beast thou shalt take to thee by sevens, the male and his female: and of beasts that *are* not clean by two, the male and his female.  
-> <sup>3</sup> Of fowls also of the air by sevens, the male and the female; to keep seed alive upon the face of all the earth.  
-> <sup>4</sup> For yet seven days, and I will cause it to rain upon the earth forty days and forty nights; and every living substance that I have made will I destroy from off the face of the earth.  
+> **¹** And the LORD said unto Noah, Come thou and all thy house into the ark; for thee have I seen righteous before me in this generation.  
+> **²** Of every clean beast thou shalt take to thee by sevens, the male and his female: and of beasts that *are* not clean by two, the male and his female.  
+> **³** Of fowls also of the air by sevens, the male and the female; to keep seed alive upon the face of all the earth.  
+> **⁴** For yet seven days, and I will cause it to rain upon the earth forty days and forty nights; and every living substance that I have made will I destroy from off the face of the earth.  
 
 Here is, I. A gracious invitation of Noah and his family into a place of safety, now that the flood of waters was coming, Ge 7:1.
 
@@ -25,17 +25,17 @@ III\. Here is notice given of the now imminent approach of the flood: *Yet seven
 
 ## The Deluge. (b. c. 2349.)
 
-> <sup>5</sup> And Noah did according unto all that the LORD commanded him.  
-> <sup>6</sup> And Noah *was* six hundred years old when the flood of waters was upon the earth.  
-> <sup>7</sup> And Noah went in, and his sons, and his wife, and his sons' wives with him, into the ark, because of the waters of the flood.  
-> <sup>8</sup> Of clean beasts, and of beasts that *are* not clean, and of fowls, and of every thing that creepeth upon the earth,  
-> <sup>9</sup> There went in two and two unto Noah into the ark, the male and the female, as God had commanded Noah.  
-> <sup>10</sup> And it came to pass after seven days, that the waters of the flood were upon the earth.  
+> **⁵** And Noah did according unto all that the LORD commanded him.  
+> **⁶** And Noah *was* six hundred years old when the flood of waters was upon the earth.  
+> **⁷** And Noah went in, and his sons, and his wife, and his sons' wives with him, into the ark, because of the waters of the flood.  
+> **⁸** Of clean beasts, and of beasts that *are* not clean, and of fowls, and of every thing that creepeth upon the earth,  
+> **⁹** There went in two and two unto Noah into the ark, the male and the female, as God had commanded Noah.  
+> **¹⁰** And it came to pass after seven days, that the waters of the flood were upon the earth.  
 
 Here is Noah's ready obedience to the commands that God gave him. Observe, 1. He went into the ark, upon notice that the flood would come after seven days, though probably as yet there appeared no visible sign of its approach, no cloud arising that threatened it, nothing done towards it, but all continued serene and clear; for, as he prepared the ark by faith in the warning given that the flood would come, so he went into it by faith in this warning that it would come quickly, though he did not see that the second causes had yet begun to work. In every step he took, he walked by faith, and not by sense. During these seven days, it is likely, he was settling himself and his family in the ark, and distributing the creatures into their several apartments. This was the conclusion of that visible sermon which he had long been preaching to his careless neighbours, and which, one would think, might have awakened them; but, not obtaining that desired end, it left their blood upon their own heads. 2. He took all his family along with him, his wife, to be his companion and comfort (though it should seem that, after this, he had no children by her), his sons, and his sons' wives, that by them not only his family, but the world of mankind, might be built up. Observe, Though men were to be reduced to so small a number, and it would be very desirable to have the world speedily repeopled, yet Noah's sons were each of them to have but one wife, which strengthens the argument against having many wives; for from the beginning of this new world it was not so: as, at first, God made, so now he kept alive, but one woman for one man. See Mt 19:4,8. 3. The brute creatures readily went in with him. The same hand that at first brought them to Adam to be named now brought them to Noah to be preserved. The ox now knew his owner, and the ass his protector's crib, nay, even the wildest creatures flocked to it; but man had become more brutish than the brutes themselves, and did not know, did not consider, Isa 1:3.
 
-> <sup>11</sup> In the six hundredth year of Noah's life, in the second month, the seventeenth day of the month, the same day were all the fountains of the great deep broken up, and the windows of heaven were opened.  
-> <sup>12</sup> And the rain was upon the earth forty days and forty nights.  
+> **¹¹** In the six hundredth year of Noah's life, in the second month, the seventeenth day of the month, the same day were all the fountains of the great deep broken up, and the windows of heaven were opened.  
+> **¹²** And the rain was upon the earth forty days and forty nights.  
 
 Here is, I. The date of this great event; this is carefully recorded, for the greater certainty of the story.
 
@@ -51,10 +51,10 @@ II\. The second causes that concurred to this deluge. Observe,
 
 3\. Now learn from this, (1.) That all the creatures are at God's disposal, and that he makes what use he pleases of them, whether *for correction, or for his land, or for mercy,* as Elihu speaks of the rain, Job 37:12,13. (2.) That God often makes that which *should be for our welfare to become a trap,* Ps 69:22. That which usually is a comfort and benefit to us becomes, when God pleases, a scourge and a plague to us. Nothing is more needful nor useful than water, both the springs of the earth and the showers of heaven; and yet now nothing was more hurtful, nothing more destructive: every creature is to us what God makes it. (3.) That it is impossible to escape the righteous judgments of God when they come against sinners with commission; for God can arm both heaven and earth against them; see Job 20:27. God can surround men with the messengers of his wrath, so that, if they look upwards, it is with horror and amazement, if they look to the earth, *behold, trouble and darkness,* Isa 8:21,22. Who then is able to stand before God, when he is angry? (4.) In this destruction of the old world by water God gave a specimen of the final destruction of the world that now is by fire. We find the apostle setting the one of these over against the other, 2Pe 3:6,7. As there are waters under the earth, so Ætna, Vesuvius, and other volcanoes, proclaim to the world that there are subterraneous fires too; and fire often falls from heaven, many desolations are made by lightning; so that, when the time predetermined comes, between these two fires the earth and all the works therein shall be burnt up, as the flood was brought upon the old world out of the fountains of the great deep and through the windows of heaven.
 
-> <sup>13</sup> In the selfsame day entered Noah, and Shem, and Ham, and Japheth, the sons of Noah, and Noah's wife, and the three wives of his sons with them, into the ark;  
-> <sup>14</sup> They, and every beast after his kind, and all the cattle after their kind, and every creeping thing that creepeth upon the earth after his kind, and every fowl after his kind, every bird of every sort.  
-> <sup>15</sup> And they went in unto Noah into the ark, two and two of all flesh, wherein *is* the breath of life.  
-> <sup>16</sup> And they that went in, went in male and female of all flesh, as God had commanded him: and the LORD shut him in.  
+> **¹³** In the selfsame day entered Noah, and Shem, and Ham, and Japheth, the sons of Noah, and Noah's wife, and the three wives of his sons with them, into the ark;  
+> **¹⁴** They, and every beast after his kind, and all the cattle after their kind, and every creeping thing that creepeth upon the earth after his kind, and every fowl after his kind, every bird of every sort.  
+> **¹⁵** And they went in unto Noah into the ark, two and two of all flesh, wherein *is* the breath of life.  
+> **¹⁶** And they that went in, went in male and female of all flesh, as God had commanded him: and the LORD shut him in.  
 
 Here is repeated what was related before of Noah's entrance into the ark, with his family and creatures that were marked for preservation. Now,
 
@@ -68,10 +68,10 @@ IV\. It is added (and the circumstance deserves our notice), *The Lord shut him 
 
 V\. There is much of our gospel duty and privilege to be seen in Noah's preservation in the ark. The apostle makes it a type of our baptism, that is, our Christianity, 1Pe 3:20,21. Observe then, 1. It is our great duty, in obedience to the gospel call, by a lively faith in Christ, to come into that way of salvation which God has provided for poor sinners. When Noah came into the ark, he quitted his own house and lands; so must we quit our own righteousness and our worldly possessions, whenever they come into competition with Christ. Noah must, for a while, submit to the confinements and inconveniences of the ark, in order to his preservation for a new world; so those that come into Christ to be saved by him must deny themselves, both in sufferings and services. 2. Those that come into the ark themselves should bring as many as they can in with them, by good instructions, by persuasions, and by a good example. *What knowest thou, O man, but thou mayest thus save thy wife* (1Co 7:16), as Noah did his? There is room enough in Christ for all comers. 3. Those that by faith come into Christ, the ark, shall by the power of God be shut in, and kept as in a strong-hold *by the power of God,* 1Pe 1:5. God put Adam into paradise, but he did not shut him in, and so he threw himself out; but when he put Noah into the ark he shut him in, and so when he brings a soul to Christ he ensures its salvation: it is not in our own keeping, but in the Mediator's hand. 4. The door of mercy will shortly be shut against those that now make light of it. Now, *knock and it shall be opened;* but the time will come when it shall not, Lu 13:25.
 
-> <sup>17</sup> And the flood was forty days upon the earth; and the waters increased, and bare up the ark, and it was lift up above the earth.  
-> <sup>18</sup> And the waters prevailed, and were increased greatly upon the earth; and the ark went upon the face of the waters.  
-> <sup>19</sup> And the waters prevailed exceedingly upon the earth; and all the high hills, that *were* under the whole heaven, were covered.  
-> <sup>20</sup> Fifteen cubits upward did the waters prevail; and the mountains were covered.  
+> **¹⁷** And the flood was forty days upon the earth; and the waters increased, and bare up the ark, and it was lift up above the earth.  
+> **¹⁸** And the waters prevailed, and were increased greatly upon the earth; and the ark went upon the face of the waters.  
+> **¹⁹** And the waters prevailed exceedingly upon the earth; and all the high hills, that *were* under the whole heaven, were covered.  
+> **²⁰** Fifteen cubits upward did the waters prevail; and the mountains were covered.  
 
 We are here told,
 
@@ -81,10 +81,10 @@ II\. To what degree they increased: they rose so high that not only the low flat
 
 III\. What became of Noah's ark when the waters thus increased: *It was lifted up above the earth* (Ge 7:17), *and went upon the face of the waters,* Ge 7:18. When all other buildings were demolished by the waters, and buried under them, the ark alone subsisted. Observe, 1. The waters which broke down every thing else bore up the ark. That which to unbelievers is a savour of death unto death is to the faithful a savour of life unto life. 2. The more the waters increased the higher the ark was lifted up towards heaven. Thus sanctified afflictions are spiritual promotions; and as troubles abound consolations much more abound.
 
-> <sup>21</sup> And all flesh died that moved upon the earth, both of fowl, and of cattle, and of beast, and of every creeping thing that creepeth upon the earth, and every man:  
-> <sup>22</sup> All in whose nostrils *was* the breath of life, of all that *was* in the dry *land,* died.  
-> <sup>23</sup> And every living substance was destroyed which was upon the face of the ground, both man, and cattle, and the creeping things, and the fowl of the heaven; and they were destroyed from the earth: and Noah only remained *alive,* and they that *were* with him in the ark.  
-> <sup>24</sup> And the waters prevailed upon the earth a hundred and fifty days.  
+> **²¹** And all flesh died that moved upon the earth, both of fowl, and of cattle, and of beast, and of every creeping thing that creepeth upon the earth, and every man:  
+> **²²** All in whose nostrils *was* the breath of life, of all that *was* in the dry *land,* died.  
+> **²³** And every living substance was destroyed which was upon the face of the ground, both man, and cattle, and the creeping things, and the fowl of the heaven; and they were destroyed from the earth: and Noah only remained *alive,* and they that *were* with him in the ark.  
+> **²⁴** And the waters prevailed upon the earth a hundred and fifty days.  
 
 Here is, I. The general destruction of all flesh by the waters of the flood. *Come, and see the desolations which God makes in the earth* (Ps 46:8), and how he lays heaps upon heaps. Never did death triumph, from its first entrance unto this day, as it did then. Come, and see Death upon his pale horse, and hell following with him, Re 6:7,8.
 

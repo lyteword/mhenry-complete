@@ -8,17 +8,17 @@ This chapter is the history of a war between Ben-hadad king of Syria and Ahab ki
 
 ## Ben-hadad's Insolent Demand. (b. c. 900.)
 
-> <sup>1</sup> And Benhadad the king of Syria gathered all his host together: and *there were* thirty and two kings with him, and horses, and chariots: and he went up and besieged Samaria, and warred against it.  
-> <sup>2</sup> And he sent messengers to Ahab king of Israel into the city, and said unto him, Thus saith Benhadad,  
-> <sup>3</sup> Thy silver and thy gold *is* mine; thy wives also and thy children, *even* the goodliest, *are* mine.  
-> <sup>4</sup> And the king of Israel answered and said, My lord, O king, according to thy saying, I *am* thine, and all that I have.  
-> <sup>5</sup> And the messengers came again, and said, Thus speaketh Benhadad, saying, Although I have sent unto thee, saying, Thou shalt deliver me thy silver, and thy gold, and thy wives, and thy children;  
-> <sup>6</sup> Yet I will send my servants unto thee to morrow about this time, and they shall search thine house, and the houses of thy servants; and it shall be, *that* whatsoever is pleasant in thine eyes, they shall put *it* in their hand, and take *it* away.  
-> <sup>7</sup> Then the king of Israel called all the elders of the land, and said, Mark, I pray you, and see how this *man* seeketh mischief: for he sent unto me for my wives, and for my children, and for my silver, and for my gold; and I denied him not.  
-> <sup>8</sup> And all the elders and all the people said unto him, Hearken not *unto him,* nor consent.  
-> <sup>9</sup> Wherefore he said unto the messengers of Benhadad, Tell my lord the king, All that thou didst send for to thy servant at the first I will do: but this thing I may not do. And the messengers departed, and brought him word again.  
-> <sup>10</sup> And Benhadad sent unto him, and said, The gods do so unto me, and more also, if the dust of Samaria shall suffice for handfuls for all the people that follow me.  
-> <sup>11</sup> And the king of Israel answered and said, Tell *him,* Let not him that girdeth on *his harness* boast himself as he that putteth it off.  
+> **¹** And Benhadad the king of Syria gathered all his host together: and *there were* thirty and two kings with him, and horses, and chariots: and he went up and besieged Samaria, and warred against it.  
+> **²** And he sent messengers to Ahab king of Israel into the city, and said unto him, Thus saith Benhadad,  
+> **³** Thy silver and thy gold *is* mine; thy wives also and thy children, *even* the goodliest, *are* mine.  
+> **⁴** And the king of Israel answered and said, My lord, O king, according to thy saying, I *am* thine, and all that I have.  
+> **⁵** And the messengers came again, and said, Thus speaketh Benhadad, saying, Although I have sent unto thee, saying, Thou shalt deliver me thy silver, and thy gold, and thy wives, and thy children;  
+> **⁶** Yet I will send my servants unto thee to morrow about this time, and they shall search thine house, and the houses of thy servants; and it shall be, *that* whatsoever is pleasant in thine eyes, they shall put *it* in their hand, and take *it* away.  
+> **⁷** Then the king of Israel called all the elders of the land, and said, Mark, I pray you, and see how this *man* seeketh mischief: for he sent unto me for my wives, and for my children, and for my silver, and for my gold; and I denied him not.  
+> **⁸** And all the elders and all the people said unto him, Hearken not *unto him,* nor consent.  
+> **⁹** Wherefore he said unto the messengers of Benhadad, Tell my lord the king, All that thou didst send for to thy servant at the first I will do: but this thing I may not do. And the messengers departed, and brought him word again.  
+> **¹⁰** And Benhadad sent unto him, and said, The gods do so unto me, and more also, if the dust of Samaria shall suffice for handfuls for all the people that follow me.  
+> **¹¹** And the king of Israel answered and said, Tell *him,* Let not him that girdeth on *his harness* boast himself as he that putteth it off.  
 
 Here is, I. The threatening descent which Ben-hadad made upon Ahab's kingdom, and the siege he laid to Samaria, his royal city, 1Ki 20:1. What the ground of the quarrel was we are not told; covetousness and ambition were the principle, which would never want some pretence or other. David in his time had quite subdued the Syrians and made them tributaries to Israel, but Israel's apostasy from God makes them formidable again. Asa had tempted the Syrians to invade Israel once (1Ki 15:18-20), and now they did it of their own accord. It is dangerous bringing a foreign force into the country: posterity may pay dearly for it. Ben-hadad had with him thirty-two kings, who were either tributaries to him, and bound in duty to attend him, or confederates with him, and bound in interest to assist him. How little did the title of king look when all these poor petty governors pretended to it!
 
@@ -38,16 +38,16 @@ II\. The treaty between these two kings. Surely Israel's defence had departed fr
 
 ## Ben-hadad's Defeat. (b. c. 900.)
 
-> <sup>12</sup> And it came to pass, when *Benhadad* heard this message, as he *was* drinking, he and the kings in the pavilions, that he said unto his servants, Set *yourselves in array.* And they set *themselves in array* against the city.  
-> <sup>13</sup> And, behold, there came a prophet unto Ahab king of Israel, saying, Thus saith the LORD, Hast thou seen all this great multitude? behold, I will deliver it into thine hand this day; and thou shalt know that I *am* the LORD.  
-> <sup>14</sup> And Ahab said, By whom? And he said, Thus saith the LORD, *Even* by the young men of the princes of the provinces. Then he said, Who shall order the battle? And he answered, Thou.  
-> <sup>15</sup> Then he numbered the young men of the princes of the provinces, and they were two hundred and thirty two: and after them he numbered all the people, *even* all the children of Israel, *being* seven thousand.  
-> <sup>16</sup> And they went out at noon. But Benhadad *was* drinking himself drunk in the pavilions, he and the kings, the thirty and two kings that helped him.  
-> <sup>17</sup> And the young men of the princes of the provinces went out first; and Benhadad sent out, and they told him, saying, There are men come out of Samaria.  
-> <sup>18</sup> And he said, Whether they be come out for peace, take them alive; or whether they be come out for war, take them alive.  
-> <sup>19</sup> So these young men of the princes of the provinces came out of the city, and the army which followed them.  
-> <sup>20</sup> And they slew every one his man: and the Syrians fled; and Israel pursued them: and Benhadad the king of Syria escaped on an horse with the horsemen.  
-> <sup>21</sup> And the king of Israel went out, and smote the horses and chariots, and slew the Syrians with a great slaughter.  
+> **¹²** And it came to pass, when *Benhadad* heard this message, as he *was* drinking, he and the kings in the pavilions, that he said unto his servants, Set *yourselves in array.* And they set *themselves in array* against the city.  
+> **¹³** And, behold, there came a prophet unto Ahab king of Israel, saying, Thus saith the LORD, Hast thou seen all this great multitude? behold, I will deliver it into thine hand this day; and thou shalt know that I *am* the LORD.  
+> **¹⁴** And Ahab said, By whom? And he said, Thus saith the LORD, *Even* by the young men of the princes of the provinces. Then he said, Who shall order the battle? And he answered, Thou.  
+> **¹⁵** Then he numbered the young men of the princes of the provinces, and they were two hundred and thirty two: and after them he numbered all the people, *even* all the children of Israel, *being* seven thousand.  
+> **¹⁶** And they went out at noon. But Benhadad *was* drinking himself drunk in the pavilions, he and the kings, the thirty and two kings that helped him.  
+> **¹⁷** And the young men of the princes of the provinces went out first; and Benhadad sent out, and they told him, saying, There are men come out of Samaria.  
+> **¹⁸** And he said, Whether they be come out for peace, take them alive; or whether they be come out for war, take them alive.  
+> **¹⁹** So these young men of the princes of the provinces came out of the city, and the army which followed them.  
+> **²⁰** And they slew every one his man: and the Syrians fled; and Israel pursued them: and Benhadad the king of Syria escaped on an horse with the horsemen.  
+> **²¹** And the king of Israel went out, and smote the horses and chariots, and slew the Syrians with a great slaughter.  
 
 The treaty between the besiegers and the besieged being broken off abruptly, we have here an account of the battle that ensued immediately.
 
@@ -63,15 +63,15 @@ III\. The issue was accordingly. The proud Syrians were beaten, and the poor des
 
 ## Ahab's Folly Reproved. (b. c. 900.)
 
-> <sup>22</sup> And the prophet came to the king of Israel, and said unto him, Go, strengthen thyself, and mark, and see what thou doest: for at the return of the year the king of Syria will come up against thee.  
-> <sup>23</sup> And the servants of the king of Syria said unto him, Their gods *are* gods of the hills; therefore they were stronger than we; but let us fight against them in the plain, and surely we shall be stronger than they.  
-> <sup>24</sup> And do this thing, Take the kings away, every man out of his place, and put captains in their rooms:  
-> <sup>25</sup> And number thee an army, like the army that thou hast lost, horse for horse, and chariot for chariot: and we will fight against them in the plain, *and* surely we shall be stronger than they. And he hearkened unto their voice, and did so.  
-> <sup>26</sup> And it came to pass at the return of the year, that Benhadad numbered the Syrians, and went up to Aphek, to fight against Israel.  
-> <sup>27</sup> And the children of Israel were numbered, and were all present, and went against them: and the children of Israel pitched before them like two little flocks of kids; but the Syrians filled the country.  
-> <sup>28</sup> And there came a man of God, and spake unto the king of Israel, and said, Thus saith the LORD, Because the Syrians have said, The LORD *is* God of the hills, but he *is* not God of the valleys, therefore will I deliver all this great multitude into thine hand, and ye shall know that I *am* the LORD.  
-> <sup>29</sup> And they pitched one over against the other seven days. And *so* it was, that in the seventh day the battle was joined: and the children of Israel slew of the Syrians a hundred thousand footmen in one day.  
-> <sup>30</sup> But the rest fled to Aphek, into the city; and *there* a wall fell upon twenty and seven thousand of the men *that were* left. And Benhadad fled, and came into the city, into an inner chamber.  
+> **²²** And the prophet came to the king of Israel, and said unto him, Go, strengthen thyself, and mark, and see what thou doest: for at the return of the year the king of Syria will come up against thee.  
+> **²³** And the servants of the king of Syria said unto him, Their gods *are* gods of the hills; therefore they were stronger than we; but let us fight against them in the plain, and surely we shall be stronger than they.  
+> **²⁴** And do this thing, Take the kings away, every man out of his place, and put captains in their rooms:  
+> **²⁵** And number thee an army, like the army that thou hast lost, horse for horse, and chariot for chariot: and we will fight against them in the plain, *and* surely we shall be stronger than they. And he hearkened unto their voice, and did so.  
+> **²⁶** And it came to pass at the return of the year, that Benhadad numbered the Syrians, and went up to Aphek, to fight against Israel.  
+> **²⁷** And the children of Israel were numbered, and were all present, and went against them: and the children of Israel pitched before them like two little flocks of kids; but the Syrians filled the country.  
+> **²⁸** And there came a man of God, and spake unto the king of Israel, and said, Thus saith the LORD, Because the Syrians have said, The LORD *is* God of the hills, but he *is* not God of the valleys, therefore will I deliver all this great multitude into thine hand, and ye shall know that I *am* the LORD.  
+> **²⁹** And they pitched one over against the other seven days. And *so* it was, that in the seventh day the battle was joined: and the children of Israel slew of the Syrians a hundred thousand footmen in one day.  
+> **³⁰** But the rest fled to Aphek, into the city; and *there* a wall fell upon twenty and seven thousand of the men *that were* left. And Benhadad fled, and came into the city, into an inner chamber.  
 
 We have here an account of another successful campaign which Ahab, by divine aid, made against the Syrians, in which he gave them a greater defeat than in the former. Strange! Ahab idolatrous and yet victorious, a persecutor and yet a conqueror! God has wise and holy ends in suffering wicked men to prosper, and glorifies his own name thereby.
 
@@ -85,19 +85,19 @@ IV\. Ahab is encouraged to fight the Syrians, notwithstanding their advantages a
 
 V\. After the armies had faced one another seven days (the Syrians, it is likely, boasting, and the Israelites trembling), they engaged, and the Syrians were totally routed, 100,000 men slain by the sword of Israel in the field of battle (1Ki 20:29), and 27,000 men, that thought themselves safe *under the walls of Aphek,* a fortified city (from the walls of which the shooters might annoy the enemy if they pursued them, 2Sa 11:24), found their bane where they hoped for protection: the wall fell upon them, probably overthrown by an earthquake, and, the cities of Canaan being walled up to heaven, it reached a great way, and they were all killed, or hurt, or overwhelmed with dismay. Ben-hadad, who thought his city Aphek would hold out against the conquerors, finding it thus unwalled, and the remnant of his forces dispirited and dispersed, had nothing but secresy to rely upon for safety, and therefore hid himself in *a chamber within a chamber,* lest the pursuers should seize him. See how the greatest confidence often ends in the greatest cowardice. "Now is the God of Israel the *God of the valleys* or no?" He shall know now that he is forced *into an inner chamber to hide himself,* see 1Ki 22:25.
 
-> <sup>31</sup> And his servants said unto him, Behold now, we have heard that the kings of the house of Israel *are* merciful kings: let us, I pray thee, put sackcloth on our loins, and ropes upon our heads, and go out to the king of Israel: peradventure he will save thy life.  
-> <sup>32</sup> So they girded sackcloth on their loins, and *put* ropes on their heads, and came to the king of Israel, and said, Thy servant Benhadad saith, I pray thee, let me live. And he said, *Is* he yet alive? he *is* my brother.  
-> <sup>33</sup> Now the men did diligently observe whether *any thing would come* from him, and did hastily catch *it:* and they said, Thy brother Benhadad. Then he said, Go ye, bring him. Then Benhadad came forth to him; and he caused him to come up into the chariot.  
-> <sup>34</sup> And *Benhadad* said unto him, The cities, which my father took from thy father, I will restore; and thou shalt make streets for thee in Damascus, as my father made in Samaria. Then *said Ahab,* I will send thee away with this covenant. So he made a covenant with him, and sent him away.  
-> <sup>35</sup> And a certain man of the sons of the prophets said unto his neighbour in the word of the LORD, Smite me, I pray thee. And the man refused to smite him.  
-> <sup>36</sup> Then said he unto him, Because thou hast not obeyed the voice of the LORD, behold, as soon as thou art departed from me, a lion shall slay thee. And as soon as he was departed from him, a lion found him, and slew him.  
-> <sup>37</sup> Then he found another man, and said, Smite me, I pray thee. And the man smote him, so that in smiting he wounded *him.*  
-> <sup>38</sup> So the prophet departed, and waited for the king by the way, and disguised himself with ashes upon his face.  
-> <sup>39</sup> And as the king passed by, he cried unto the king: and he said, Thy servant went out into the midst of the battle; and, behold, a man turned aside, and brought a man unto me, and said, Keep this man: if by any means he be missing, then shall thy life be for his life, or else thou shalt pay a talent of silver.  
-> <sup>40</sup> And as thy servant was busy here and there, he was gone. And the king of Israel said unto him, So *shall* thy judgment *be;* thyself hast decided *it.*  
-> <sup>41</sup> And he hasted, and took the ashes away from his face; and the king of Israel discerned him that he *was* of the prophets.  
-> <sup>42</sup> And he said unto him, Thus saith the LORD, Because thou hast let go out of *thy* hand a man whom I appointed to utter destruction, therefore thy life shall go for his life, and thy people for his people.  
-> <sup>43</sup> And the king of Israel went to his house heavy and displeased, and came to Samaria.  
+> **³¹** And his servants said unto him, Behold now, we have heard that the kings of the house of Israel *are* merciful kings: let us, I pray thee, put sackcloth on our loins, and ropes upon our heads, and go out to the king of Israel: peradventure he will save thy life.  
+> **³²** So they girded sackcloth on their loins, and *put* ropes on their heads, and came to the king of Israel, and said, Thy servant Benhadad saith, I pray thee, let me live. And he said, *Is* he yet alive? he *is* my brother.  
+> **³³** Now the men did diligently observe whether *any thing would come* from him, and did hastily catch *it:* and they said, Thy brother Benhadad. Then he said, Go ye, bring him. Then Benhadad came forth to him; and he caused him to come up into the chariot.  
+> **³⁴** And *Benhadad* said unto him, The cities, which my father took from thy father, I will restore; and thou shalt make streets for thee in Damascus, as my father made in Samaria. Then *said Ahab,* I will send thee away with this covenant. So he made a covenant with him, and sent him away.  
+> **³⁵** And a certain man of the sons of the prophets said unto his neighbour in the word of the LORD, Smite me, I pray thee. And the man refused to smite him.  
+> **³⁶** Then said he unto him, Because thou hast not obeyed the voice of the LORD, behold, as soon as thou art departed from me, a lion shall slay thee. And as soon as he was departed from him, a lion found him, and slew him.  
+> **³⁷** Then he found another man, and said, Smite me, I pray thee. And the man smote him, so that in smiting he wounded *him.*  
+> **³⁸** So the prophet departed, and waited for the king by the way, and disguised himself with ashes upon his face.  
+> **³⁹** And as the king passed by, he cried unto the king: and he said, Thy servant went out into the midst of the battle; and, behold, a man turned aside, and brought a man unto me, and said, Keep this man: if by any means he be missing, then shall thy life be for his life, or else thou shalt pay a talent of silver.  
+> **⁴⁰** And as thy servant was busy here and there, he was gone. And the king of Israel said unto him, So *shall* thy judgment *be;* thyself hast decided *it.*  
+> **⁴¹** And he hasted, and took the ashes away from his face; and the king of Israel discerned him that he *was* of the prophets.  
+> **⁴²** And he said unto him, Thus saith the LORD, Because thou hast let go out of *thy* hand a man whom I appointed to utter destruction, therefore thy life shall go for his life, and thy people for his people.  
+> **⁴³** And the king of Israel went to his house heavy and displeased, and came to Samaria.  
 
 Here is an account of what followed upon the victory which Israel obtained over the Syrians.
 

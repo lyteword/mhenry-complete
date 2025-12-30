@@ -8,9 +8,9 @@ Still the ark is David's care as well as his joy. In this chapter we have, I. Hi
 
 ## David's Care of the Ark. (b. c. 1042.)
 
-> <sup>1</sup> And it came to pass, when the king sat in his house, and the LORD had given him rest round about from all his enemies;  
-> <sup>2</sup> That the king said unto Nathan the prophet, See now, I dwell in a house of cedar, but the ark of God dwelleth within curtains.  
-> <sup>3</sup> And Nathan said to the king, Go, do all that *is* in thine heart; for the LORD *is* with thee.  
+> **¹** And it came to pass, when the king sat in his house, and the LORD had given him rest round about from all his enemies;  
+> **²** That the king said unto Nathan the prophet, See now, I dwell in a house of cedar, but the ark of God dwelleth within curtains.  
+> **³** And Nathan said to the king, Go, do all that *is* in thine heart; for the LORD *is* with thee.  
 
 Here is, I. David at rest. *He sat in his house* (2Sa 7:1), quiet and undisturbed, having no occasion to take the field: *The Lord had given him rest round about,* from all those that were enemies to his settlement in the throne, and he set himself to enjoy that rest. Though he was a man of war, he was *for peace* (Ps 120:7) and did not delight in war. He had not been long at rest, nor was it long before he was again engaged in war; but at present he enjoyed a calm, and he was in his element when he was sitting in his house, meditating in the law of God.
 
@@ -22,20 +22,20 @@ IV\. Nathan's approbation of it: *Go, do all that is in thy heart; for the Lord 
 
 ## God's Covenant with David. (b. c. 1042.)
 
-> <sup>4</sup> And it came to pass that night, that the word of the LORD came unto Nathan, saying,  
-> <sup>5</sup> Go and tell my servant David, Thus saith the LORD, Shalt thou build me a house for me to dwell in?  
-> <sup>6</sup> Whereas I have not dwelt in *any* house since the time that I brought up the children of Israel out of Egypt, even to this day, but have walked in a tent and in a tabernacle.  
-> <sup>7</sup> In all *the places* wherein I have walked with all the children of Israel spake I a word with any of the tribes of Israel, whom I commanded to feed my people Israel, saying, Why build ye not me a house of cedar?  
-> <sup>8</sup> Now therefore so shalt thou say unto my servant David, Thus saith the LORD of hosts, I took thee from the sheepcote, from following the sheep, to be ruler over my people, over Israel:  
-> <sup>9</sup> And I was with thee whithersoever thou wentest, and have cut off all thine enemies out of thy sight, and have made thee a great name, like unto the name of the great *men* that *are* in the earth.  
-> <sup>10</sup> Moreover I will appoint a place for my people Israel, and will plant them, that they may dwell in a place of their own, and move no more; neither shall the children of wickedness afflict them any more, as beforetime,  
-> <sup>11</sup> And as since the time that I commanded judges *to be* over my people Israel, and have caused thee to rest from all thine enemies. Also the LORD telleth thee that he will make thee an house.  
-> <sup>12</sup> And when thy days be fulfilled, and thou shalt sleep with thy fathers, I will set up thy seed after thee, which shall proceed out of thy bowels, and I will establish his kingdom.  
-> <sup>13</sup> He shall build a house for my name, and I will stablish the throne of his kingdom for ever.  
-> <sup>14</sup> I will be his father, and he shall be my son. If he commit iniquity, I will chasten him with the rod of men, and with the stripes of the children of men:  
-> <sup>15</sup> But my mercy shall not depart away from him, as I took *it* from Saul, whom I put away before thee.  
-> <sup>16</sup> And thine house and thy kingdom shall be established for ever before thee: thy throne shall be established for ever.  
-> <sup>17</sup> According to all these words, and according to all this vision, so did Nathan speak unto David.  
+> **⁴** And it came to pass that night, that the word of the LORD came unto Nathan, saying,  
+> **⁵** Go and tell my servant David, Thus saith the LORD, Shalt thou build me a house for me to dwell in?  
+> **⁶** Whereas I have not dwelt in *any* house since the time that I brought up the children of Israel out of Egypt, even to this day, but have walked in a tent and in a tabernacle.  
+> **⁷** In all *the places* wherein I have walked with all the children of Israel spake I a word with any of the tribes of Israel, whom I commanded to feed my people Israel, saying, Why build ye not me a house of cedar?  
+> **⁸** Now therefore so shalt thou say unto my servant David, Thus saith the LORD of hosts, I took thee from the sheepcote, from following the sheep, to be ruler over my people, over Israel:  
+> **⁹** And I was with thee whithersoever thou wentest, and have cut off all thine enemies out of thy sight, and have made thee a great name, like unto the name of the great *men* that *are* in the earth.  
+> **¹⁰** Moreover I will appoint a place for my people Israel, and will plant them, that they may dwell in a place of their own, and move no more; neither shall the children of wickedness afflict them any more, as beforetime,  
+> **¹¹** And as since the time that I commanded judges *to be* over my people Israel, and have caused thee to rest from all thine enemies. Also the LORD telleth thee that he will make thee an house.  
+> **¹²** And when thy days be fulfilled, and thou shalt sleep with thy fathers, I will set up thy seed after thee, which shall proceed out of thy bowels, and I will establish his kingdom.  
+> **¹³** He shall build a house for my name, and I will stablish the throne of his kingdom for ever.  
+> **¹⁴** I will be his father, and he shall be my son. If he commit iniquity, I will chasten him with the rod of men, and with the stripes of the children of men:  
+> **¹⁵** But my mercy shall not depart away from him, as I took *it* from Saul, whom I put away before thee.  
+> **¹⁶** And thine house and thy kingdom shall be established for ever before thee: thy throne shall be established for ever.  
+> **¹⁷** According to all these words, and according to all this vision, so did Nathan speak unto David.  
 
 We have here a full revelation of God's favour to David and the kind intentions of that favour, the notices and assurances of which God sent him by Nathan the prophet, whom he entrusted to deliver this long message to him. The design of it is to take him off from his purpose of building the temple and it was therefore sent, 1. By the same hand that had given him encouragement to do it, lest, if it had been sent by any other, Nathan should be despised and insulted and David should be perplexed, being encouraged by one prophet and discouraged by another. 2. The same night, that Nathan might not continue long in an error nor David have his head any further filled with thoughts of that which he must never bring to pass. God might have said this to David himself immediately, but he chose to send it by Nathan, to support the honour of his prophets, and to preserve in David a regard to them. Though he be the head, they must be the eyes by which he must see the visions of the Almighty, and the tongue by which he must hear the word of God. He that delivered this long message to Nathan assisted his memory to retain it, that he might deliver it fully (he being resolved to deliver it faithfully) as he received it of the Lord. Now in this message,
 
@@ -53,18 +53,18 @@ IV\. Blessings are entailed upon the family and posterity of David. David had pu
 
 ## David's Prayer for God's Blessing. (b. c. 1042.)
 
-> <sup>18</sup> Then went king David in, and sat before the LORD, and he said, Who *am* I, O Lord GOD? and what *is* my house, that thou hast brought me hitherto?  
-> <sup>19</sup> And this was yet a small thing in thy sight, O Lord GOD; but thou hast spoken also of thy servant's house for a great while to come. And *is* this the manner of man, O Lord GOD?  
-> <sup>20</sup> And what can David say more unto thee? for thou, Lord GOD, knowest thy servant.  
-> <sup>21</sup> For thy word's sake, and according to thine own heart, hast thou done all these great things, to make thy servant know *them.*  
-> <sup>22</sup> Wherefore thou art great, O LORD God: for *there is* none like thee, neither *is there any* God beside thee, according to all that we have heard with our ears.  
-> <sup>23</sup> And what one nation in the earth *is* like thy people, *even* like Israel, whom God went to redeem for a people to himself, and to make him a name, and to do for you great things and terrible, for thy land, before thy people, which thou redeemedst to thee from Egypt, *from* the nations and their gods?  
-> <sup>24</sup> For thou hast confirmed to thyself thy people Israel *to be* a people unto thee for ever: and thou, LORD, art become their God.  
-> <sup>25</sup> And now, O LORD God, the word that thou hast spoken concerning thy servant, and concerning his house, establish *it* for ever, and do as thou hast said.  
-> <sup>26</sup> And let thy name be magnified for ever, saying, The LORD of hosts *is* the God over Israel: and let the house of thy servant David be established before thee.  
-> <sup>27</sup> For thou, O LORD of hosts, God of Israel, hast revealed to thy servant, saying, I will build thee a house: therefore hath thy servant found in his heart to pray this prayer unto thee.  
-> <sup>28</sup> And now, O Lord GOD, thou *art* that God, and thy words be true, and thou hast promised this goodness unto thy servant:  
-> <sup>29</sup> Therefore now let it please thee to bless the house of thy servant, that it may continue for ever before thee: for thou, O Lord GOD, hast spoken *it:* and with thy blessing let the house of thy servant be blessed for ever.  
+> **¹⁸** Then went king David in, and sat before the LORD, and he said, Who *am* I, O Lord GOD? and what *is* my house, that thou hast brought me hitherto?  
+> **¹⁹** And this was yet a small thing in thy sight, O Lord GOD; but thou hast spoken also of thy servant's house for a great while to come. And *is* this the manner of man, O Lord GOD?  
+> **²⁰** And what can David say more unto thee? for thou, Lord GOD, knowest thy servant.  
+> **²¹** For thy word's sake, and according to thine own heart, hast thou done all these great things, to make thy servant know *them.*  
+> **²²** Wherefore thou art great, O LORD God: for *there is* none like thee, neither *is there any* God beside thee, according to all that we have heard with our ears.  
+> **²³** And what one nation in the earth *is* like thy people, *even* like Israel, whom God went to redeem for a people to himself, and to make him a name, and to do for you great things and terrible, for thy land, before thy people, which thou redeemedst to thee from Egypt, *from* the nations and their gods?  
+> **²⁴** For thou hast confirmed to thyself thy people Israel *to be* a people unto thee for ever: and thou, LORD, art become their God.  
+> **²⁵** And now, O LORD God, the word that thou hast spoken concerning thy servant, and concerning his house, establish *it* for ever, and do as thou hast said.  
+> **²⁶** And let thy name be magnified for ever, saying, The LORD of hosts *is* the God over Israel: and let the house of thy servant David be established before thee.  
+> **²⁷** For thou, O LORD of hosts, God of Israel, hast revealed to thy servant, saying, I will build thee a house: therefore hath thy servant found in his heart to pray this prayer unto thee.  
+> **²⁸** And now, O Lord GOD, thou *art* that God, and thy words be true, and thou hast promised this goodness unto thy servant:  
+> **²⁹** Therefore now let it please thee to bless the house of thy servant, that it may continue for ever before thee: for thou, O Lord GOD, hast spoken *it:* and with thy blessing let the house of thy servant be blessed for ever.  
 
 We have here the solemn address David made to God, in answer to the gracious message God had sent him. We are not told what he said to Nathan; no doubt he received him very kindly and respectfully as God's messenger. But his answer to God he took himself, and did not send by Nathan. When ministers deliver God's message to us, it is not to them, but to God, that our hearts must reply; he understands the language of the heart, and to him we may come boldly. David had no sooner received the message than, while the impressions of it were fresh, he retired to return an answer. Observe,
 

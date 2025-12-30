@@ -8,13 +8,13 @@ This psalm dwells upon the same subject, and is set to the same tune, with the f
 
 ## Righteousness and Glory of the Divine Government; Establishment of Christ's Kingdom.
 
-> <sup>1</sup> The LORD reigneth; let the earth rejoice; let the multitude of isles be glad *thereof.*  
-> <sup>2</sup> Clouds and darkness *are* round about him: righteousness and judgment *are* the habitation of his throne.  
-> <sup>3</sup> A fire goeth before him, and burneth up his enemies round about.  
-> <sup>4</sup> His lightnings enlightened the world: the earth saw, and trembled.  
-> <sup>5</sup> The hills melted like wax at the presence of the LORD, at the presence of the Lord of the whole earth.  
-> <sup>6</sup> The heavens declare his righteousness, and all the people see his glory.  
-> <sup>7</sup> Confounded be all they that serve graven images, that boast themselves of idols: worship him, all *ye* gods.  
+> **¹** The LORD reigneth; let the earth rejoice; let the multitude of isles be glad *thereof.*  
+> **²** Clouds and darkness *are* round about him: righteousness and judgment *are* the habitation of his throne.  
+> **³** A fire goeth before him, and burneth up his enemies round about.  
+> **⁴** His lightnings enlightened the world: the earth saw, and trembled.  
+> **⁵** The hills melted like wax at the presence of the LORD, at the presence of the Lord of the whole earth.  
+> **⁶** The heavens declare his righteousness, and all the people see his glory.  
+> **⁷** Confounded be all they that serve graven images, that boast themselves of idols: worship him, all *ye* gods.  
 
 What was to be said among the heathen in the foregoing psalm (Ps 96:10) is here said again (Ps 97:1) and is made the subject of this psalm, and of Ps 99:1-9. *The Lord reigns;* that is the great truth here laid down. The Lord Jehovah reigns, he that made the world governs it; he that gave being gives motion and power, gives law and commission, gives success and event. Every man's judgment proceeds from the Lord, from his counsel and providence, and in all affairs, both public and private, he performs the thing which he himself has appointed. The Lord Jesus reigns; the providential kingdom is twisted in with the mediatorial and the administration of both is in the hand of Christ, who therefore is both the *head of the church* and *head over all things to the church.* The kingdom of Christ is so constituted that,
 
@@ -30,11 +30,11 @@ II\. Christ's government, though it may be matter of joy to all, will yet be mat
 
 ## Zion Rejoicing in the Reign of Christ.
 
-> <sup>8</sup> Zion heard, and was glad; and the daughters of Judah rejoiced because of thy judgments, O LORD.  
-> <sup>9</sup> For thou, LORD, *art* high above all the earth: thou art exalted far above all gods.  
-> <sup>10</sup> Ye that love the LORD, hate evil: he preserveth the souls of his saints; he delivereth them out of the hand of the wicked.  
-> <sup>11</sup> Light is sown for the righteous, and gladness for the upright in heart.  
-> <sup>12</sup> Rejoice in the LORD, ye righteous; and give thanks at the remembrance of his holiness.  
+> **⁸** Zion heard, and was glad; and the daughters of Judah rejoiced because of thy judgments, O LORD.  
+> **⁹** For thou, LORD, *art* high above all the earth: thou art exalted far above all gods.  
+> **¹⁰** Ye that love the LORD, hate evil: he preserveth the souls of his saints; he delivereth them out of the hand of the wicked.  
+> **¹¹** Light is sown for the righteous, and gladness for the upright in heart.  
+> **¹²** Rejoice in the LORD, ye righteous; and give thanks at the remembrance of his holiness.  
 
 The kingdom of the Messiah, like the pillar of cloud and fire, as it has a dark side towards the Egyptians, so it has a bright side towards the Israel of God. It is set up in spite of opposition; and then *the earth saw and trembled* (Ps 97:4), but *Zion heard and was glad,* very glad, to hear of the conversion of some and of the confusion of others, that is, the conquest of all that stood it out against Christ. *Rejoice greatly, O daughter of Zion! for behold thy king comes unto thee,* Zec 9:9. And not Zion only, where the temple was, but even *the daughters of Judah, rejoiced;* the common people, the inhabitants of the villages, they shall triumph in Christ's victories. The command (Ps 97:1) is, *Let the earth rejoice;* but it is only the sons of Zion and the daughters of Judah that do rejoice. All should bid the kingdom of the Messiah welcome, but few do. Now here observe,
 

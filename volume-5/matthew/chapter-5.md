@@ -8,8 +8,8 @@ This chapter, and the two that follow it, are a sermon; a famous sermon; the ser
 
 ## The Sermon on the Mount.
 
-> <sup>1</sup> And seeing the multitudes, he went up into a mountain: and when he was set, his disciples came unto him:  
-> <sup>2</sup> And he opened his mouth, and taught them, saying,  
+> **¹** And seeing the multitudes, he went up into a mountain: and when he was set, his disciples came unto him:  
+> **²** And he opened his mouth, and taught them, saying,  
 
 We have here a general account of this sermon.
 
@@ -23,16 +23,16 @@ IV\. *The solemnity* of his sermon is intimated in that word, *when he was set.*
 
 ## The Sermon on the Mount.
 
-> <sup>3</sup> Blessed *are* the poor in spirit: for theirs is the kingdom of heaven.  
-> <sup>4</sup> Blessed *are* they that mourn: for they shall be comforted.  
-> <sup>5</sup> Blessed *are* the meek: for they shall inherit the earth.  
-> <sup>6</sup> Blessed *are* they which do hunger and thirst after righteousness: for they shall be filled.  
-> <sup>7</sup> Blessed *are* the merciful: for they shall obtain mercy.  
-> <sup>8</sup> Blessed *are* the pure in heart: for they shall see God.  
-> <sup>9</sup> Blessed *are* the peacemakers: for they shall be called the children of God.  
-> <sup>10</sup> Blessed *are* they which are persecuted for righteousness' sake: for theirs is the kingdom of heaven.  
-> <sup>11</sup> Blessed are ye, when *men* shall revile you, and persecute *you,* and shall say all manner of evil against you falsely, for my sake.  
-> <sup>12</sup> Rejoice, and be exceeding glad: for great *is* your reward in heaven: for so persecuted they the prophets which were before you.  
+> **³** Blessed *are* the poor in spirit: for theirs is the kingdom of heaven.  
+> **⁴** Blessed *are* they that mourn: for they shall be comforted.  
+> **⁵** Blessed *are* the meek: for they shall inherit the earth.  
+> **⁶** Blessed *are* they which do hunger and thirst after righteousness: for they shall be filled.  
+> **⁷** Blessed *are* the merciful: for they shall obtain mercy.  
+> **⁸** Blessed *are* the pure in heart: for they shall see God.  
+> **⁹** Blessed *are* the peacemakers: for they shall be called the children of God.  
+> **¹⁰** Blessed *are* they which are persecuted for righteousness' sake: for theirs is the kingdom of heaven.  
+> **¹¹** Blessed are ye, when *men* shall revile you, and persecute *you,* and shall say all manner of evil against you falsely, for my sake.  
+> **¹²** Rejoice, and be exceeding glad: for great *is* your reward in heaven: for so persecuted they the prophets which were before you.  
 
 Christ begins his sermon with blessings, for *he came into the world to bless us* (Ac 3:26), as *the great High Priest of our profession;* as *the blessed Melchizedec;* as He *in whom all the families of the earth should be blessed,* Ge 12:3. He came not only to purchase blessings for us, but to pour out and pronounce blessings on us; and here he does it *as one having authority,* as one that can *command the blessing, even life for evermore,* and that is the blessing here again and again promised to the good; his pronouncing them happy makes them so; for those whom he blesses, are blessed indeed. The Old Testament ended with a curse (Mal 4:6), the gospel begins with a blessing; for *hereunto are we called, that we should inherit the blessing.* Each of the blessings Christ here pronounces has a double intention: 1. To show who they are that are to be accounted truly happy, and what their characters are. 2. What that is wherein true happiness consists, in the promises made to persons of certain characters, the performance of which will make them happy. Now,
 
@@ -102,10 +102,10 @@ VIII\. Those who are *persecuted for righteousness' sake,* are happy. This is th
 
 ## The Sermon on the Mount.
 
-> <sup>13</sup> Ye are the salt of the earth: but if the salt have lost his savour, wherewith shall it be salted? it is thenceforth good for nothing, but to be cast out, and to be trodden under foot of men.  
-> <sup>14</sup> Ye are the light of the world. A city that is set on a hill cannot be hid.  
-> <sup>15</sup> Neither do men light a candle, and put it under a bushel, but on a candlestick; and it giveth light unto all that are in the house.  
-> <sup>16</sup> Let your light so shine before men, that they may see your good works, and glorify your Father which is in heaven.  
+> **¹³** Ye are the salt of the earth: but if the salt have lost his savour, wherewith shall it be salted? it is thenceforth good for nothing, but to be cast out, and to be trodden under foot of men.  
+> **¹⁴** Ye are the light of the world. A city that is set on a hill cannot be hid.  
+> **¹⁵** Neither do men light a candle, and put it under a bushel, but on a candlestick; and it giveth light unto all that are in the house.  
+> **¹⁶** Let your light so shine before men, that they may see your good works, and glorify your Father which is in heaven.  
 
 Christ had lately called his disciples, and told them that they should be *fishers of men;* here he tells them further what he designed them to be—*the salt of the earth,* and *lights of the world,* that they might be indeed what it was expected they should be.
 
@@ -129,10 +129,10 @@ See here, *First, How* our light must shine—by doing such *good works* as men 
 
 ## The Sermon on the Mount.
 
-> <sup>17</sup> Think not that I am come to destroy the law, or the prophets: I am not come to destroy, but to fulfil.  
-> <sup>18</sup> For verily I say unto you, Till heaven and earth pass, one jot or one tittle shall in no wise pass from the law, till all be fulfilled.  
-> <sup>19</sup> Whosoever therefore shall break one of these least commandments, and shall teach men so, he shall be called the least in the kingdom of heaven: but whosoever shall do and teach *them,* the same shall be called great in the kingdom of heaven.  
-> <sup>20</sup> For I say unto you, That except your righteousness shall exceed *the righteousness* of the scribes and Pharisees, ye shall in no case enter into the kingdom of heaven.  
+> **¹⁷** Think not that I am come to destroy the law, or the prophets: I am not come to destroy, but to fulfil.  
+> **¹⁸** For verily I say unto you, Till heaven and earth pass, one jot or one tittle shall in no wise pass from the law, till all be fulfilled.  
+> **¹⁹** Whosoever therefore shall break one of these least commandments, and shall teach men so, he shall be called the least in the kingdom of heaven: but whosoever shall do and teach *them,* the same shall be called great in the kingdom of heaven.  
+> **²⁰** For I say unto you, That except your righteousness shall exceed *the righteousness* of the scribes and Pharisees, ye shall in no case enter into the kingdom of heaven.  
 
 Those to whom Christ preached, and for whose use he gave these instructions to his disciples, were such as in their religion had an eye, 1. To the *scriptures* of the *Old Testament* as their rule, and therein Christ here shows them they were in the right: 2. To the scribes and the Pharisees as their *example,* and therein Christ here shows them they were in the wrong; for,
 
@@ -148,12 +148,12 @@ II\. The righteousness which Christ came to establish by this rule, must exceed 
 
 ## The Sermon on the Mount.
 
-> <sup>21</sup> Ye have heard that it was said by them of old time, Thou shalt not kill; and whosoever shall kill shall be in danger of the judgment:  
-> <sup>22</sup> But I say unto you, That whosoever is angry with his brother without a cause shall be in danger of the judgment: and whosoever shall say to his brother, Raca, shall be in danger of the council: but whosoever shall say, Thou fool, shall be in danger of hell fire.  
-> <sup>23</sup> Therefore if thou bring thy gift to the altar, and there rememberest that thy brother hath ought against thee;  
-> <sup>24</sup> Leave there thy gift before the altar, and go thy way; first be reconciled to thy brother, and then come and offer thy gift.  
-> <sup>25</sup> Agree with thine adversary quickly, whiles thou art in the way with him; lest at any time the adversary deliver thee to the judge, and the judge deliver thee to the officer, and thou be cast into prison.  
-> <sup>26</sup> Verily I say unto thee, Thou shalt by no means come out thence, till thou hast paid the uttermost farthing.  
+> **²¹** Ye have heard that it was said by them of old time, Thou shalt not kill; and whosoever shall kill shall be in danger of the judgment:  
+> **²²** But I say unto you, That whosoever is angry with his brother without a cause shall be in danger of the judgment: and whosoever shall say to his brother, Raca, shall be in danger of the council: but whosoever shall say, Thou fool, shall be in danger of hell fire.  
+> **²³** Therefore if thou bring thy gift to the altar, and there rememberest that thy brother hath ought against thee;  
+> **²⁴** Leave there thy gift before the altar, and go thy way; first be reconciled to thy brother, and then come and offer thy gift.  
+> **²⁵** Agree with thine adversary quickly, whiles thou art in the way with him; lest at any time the adversary deliver thee to the judge, and the judge deliver thee to the officer, and thou be cast into prison.  
+> **²⁶** Verily I say unto thee, Thou shalt by no means come out thence, till thou hast paid the uttermost farthing.  
 
 Christ having laid down these principles, that Moses and the prophets were still to be their rulers, but that the scribes and Pharisees were to be no longer their rulers, proceeds to expound the law in some particular instances, and to vindicate it from the corrupt glosses which those expositors had put upon it. He adds not any thing new, only limits and restrains some permissions which had been abused: and as to the precepts, shows the breadth, strictness, and spiritual nature of them, adding such explanatory statutes as made them more clear, and tended much toward the perfecting of our obedience to them. In these verses, he explains the law of the sixth commandment, according to the true intent and full extent of it.
 
@@ -183,12 +183,12 @@ This is very applicable to the great business of our reconciliation to God throu
 
 ## The Sermon on the Mount.
 
-> <sup>27</sup> Ye have heard that it was said by them of old time, Thou shalt not commit adultery:  
-> <sup>28</sup> But I say unto you, That whosoever looketh on a woman to lust after her hath committed adultery with her already in his heart.  
-> <sup>29</sup> And if thy right eye offend thee, pluck it out, and cast *it* from thee: for it is profitable for thee that one of thy members should perish, and not *that* thy whole body should be cast into hell.  
-> <sup>30</sup> And if thy right hand offend thee, cut it off, and cast *it* from thee: for it is profitable for thee that one of thy members should perish, and not *that* thy whole body should be cast into hell.  
-> <sup>31</sup> It hath been said, Whosoever shall put away his wife, let him give her a writing of divorcement:  
-> <sup>32</sup> But I say unto you, That whosoever shall put away his wife, saving for the cause of fornication, causeth her to commit adultery: and whosoever shall marry her that is divorced committeth adultery.  
+> **²⁷** Ye have heard that it was said by them of old time, Thou shalt not commit adultery:  
+> **²⁸** But I say unto you, That whosoever looketh on a woman to lust after her hath committed adultery with her already in his heart.  
+> **²⁹** And if thy right eye offend thee, pluck it out, and cast *it* from thee: for it is profitable for thee that one of thy members should perish, and not *that* thy whole body should be cast into hell.  
+> **³⁰** And if thy right hand offend thee, cut it off, and cast *it* from thee: for it is profitable for thee that one of thy members should perish, and not *that* thy whole body should be cast into hell.  
+> **³¹** It hath been said, Whosoever shall put away his wife, let him give her a writing of divorcement:  
+> **³²** But I say unto you, That whosoever shall put away his wife, saving for the cause of fornication, causeth her to commit adultery: and whosoever shall marry her that is divorced committeth adultery.  
 
 We have here an exposition of the seventh commandment, given us by the same hand that made the law, and therefore was fittest to be the interpreter of it: it is the law against uncleanness, which fitly follows upon the former; *that* laid a restraint upon sinful passions, *this* upon sinful appetites, both which ought always to be under the government of reason and conscience, and if indulged, are equally pernicious.
 
@@ -212,11 +212,11 @@ II\. It is here explained in the strictness of it, in three things, which would 
 
 ## The Sermon on the Mount.
 
-> <sup>33</sup> Again, ye have heard that it hath been said by them of old time, Thou shalt not forswear thyself, but shalt perform unto the Lord thine oaths:  
-> <sup>34</sup> But I say unto you, Swear not at all; neither by heaven; for it is God's throne:  
-> <sup>35</sup> Nor by the earth; for it is his footstool: neither by Jerusalem; for it is the city of the great King.  
-> <sup>36</sup> Neither shalt thou swear by thy head, because thou canst not make one hair white or black.  
-> <sup>37</sup> But let your communication be, Yea, yea; Nay, nay: for whatsoever is more than these cometh of evil.  
+> **³³** Again, ye have heard that it hath been said by them of old time, Thou shalt not forswear thyself, but shalt perform unto the Lord thine oaths:  
+> **³⁴** But I say unto you, Swear not at all; neither by heaven; for it is God's throne:  
+> **³⁵** Nor by the earth; for it is his footstool: neither by Jerusalem; for it is the city of the great King.  
+> **³⁶** Neither shalt thou swear by thy head, because thou canst not make one hair white or black.  
+> **³⁷** But let your communication be, Yea, yea; Nay, nay: for whatsoever is more than these cometh of evil.  
 
 We have here an exposition of the third commandment, which we are the more concerned right to understand, because it is particularly said, that *God will not hold him guiltless,* however he may hold himself, who breaks this commandment, by *taking the name of the Lord in vain.* Now as to this command,
 
@@ -250,11 +250,11 @@ The reason is observable; *For whatsoever is more than these cometh of evil,* th
 
 ## The Sermon on the Mount.
 
-> <sup>38</sup> Ye have heard that it hath been said, An eye for an eye, and a tooth for a tooth:  
-> <sup>39</sup> But I say unto you, That ye resist not evil: but whosoever shall smite thee on thy right cheek, turn to him the other also.  
-> <sup>40</sup> And if any man will sue thee at the law, and take away thy coat, let him have *thy* cloak also.  
-> <sup>41</sup> And whosoever shall compel thee to go a mile, go with him twain.  
-> <sup>42</sup> Give to him that asketh thee, and from him that would borrow of thee turn not thou away.  
+> **³⁸** Ye have heard that it hath been said, An eye for an eye, and a tooth for a tooth:  
+> **³⁹** But I say unto you, That ye resist not evil: but whosoever shall smite thee on thy right cheek, turn to him the other also.  
+> **⁴⁰** And if any man will sue thee at the law, and take away thy coat, let him have *thy* cloak also.  
+> **⁴¹** And whosoever shall compel thee to go a mile, go with him twain.  
+> **⁴²** Give to him that asketh thee, and from him that would borrow of thee turn not thou away.  
 
 In these verses the law of retaliation is expounded, and in a manner repealed. Observe,
 
@@ -282,12 +282,12 @@ Three things our Saviour specifies, to show that Christians must patiently yield
 
 ## The Sermon on the Mount.
 
-> <sup>43</sup> Ye have heard that it hath been said, Thou shalt love thy neighbour, and hate thine enemy.  
-> <sup>44</sup> But I say unto you, Love your enemies, bless them that curse you, do good to them that hate you, and pray for them which despitefully use you, and persecute you;  
-> <sup>45</sup> That ye may be the children of your Father which is in heaven: for he maketh his sun to rise on the evil and on the good, and sendeth rain on the just and on the unjust.  
-> <sup>46</sup> For if ye love them which love you, what reward have ye? do not even the publicans the same?  
-> <sup>47</sup> And if ye salute your brethren only, what do ye more *than others?* do not even the publicans so?  
-> <sup>48</sup> Be ye therefore perfect, even as your Father which is in heaven is perfect.  
+> **⁴³** Ye have heard that it hath been said, Thou shalt love thy neighbour, and hate thine enemy.  
+> **⁴⁴** But I say unto you, Love your enemies, bless them that curse you, do good to them that hate you, and pray for them which despitefully use you, and persecute you;  
+> **⁴⁵** That ye may be the children of your Father which is in heaven: for he maketh his sun to rise on the evil and on the good, and sendeth rain on the just and on the unjust.  
+> **⁴⁶** For if ye love them which love you, what reward have ye? do not even the publicans the same?  
+> **⁴⁷** And if ye salute your brethren only, what do ye more *than others?* do not even the publicans so?  
+> **⁴⁸** Be ye therefore perfect, even as your Father which is in heaven is perfect.  
 
 We have here, lastly, an exposition of that great fundamental law of the second table, *Thou shalt love thy neighbour,* which was the fulfilling of the law.
 

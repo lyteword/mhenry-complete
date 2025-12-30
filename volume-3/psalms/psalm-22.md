@@ -10,16 +10,16 @@ The Spirit of Christ, which was in the prophets, testifies in this psalm, as cle
 
 To the chief musician upon Aijeleth Shahar. A psalm of David.
 
-> <sup>1</sup> My God, my God, why hast thou forsaken me? *why art thou so* far from helping me, *and from* the words of my roaring?  
-> <sup>2</sup> O my God, I cry in the daytime, but thou hearest not; and in the night season, and am not silent.  
-> <sup>3</sup> But thou *art* holy, *O thou* that inhabitest the praises of Israel.  
-> <sup>4</sup> Our fathers trusted in thee: they trusted, and thou didst deliver them.  
-> <sup>5</sup> They cried unto thee, and were delivered: they trusted in thee, and were not confounded.  
-> <sup>6</sup> But I *am* a worm, and no man; a reproach of men, and despised of the people.  
-> <sup>7</sup> All they that see me laugh me to scorn: they shoot out the lip, they shake the head, *saying,*  
-> <sup>8</sup> He trusted on the LORD *that* he would deliver him: let him deliver him, seeing he delighted in him.  
-> <sup>9</sup> But thou *art* he that took me out of the womb: thou didst make me hope *when I was* upon my mother's breasts.  
-> <sup>10</sup> I was cast upon thee from the womb: thou *art* my God from my mother's belly.  
+> **¹** My God, my God, why hast thou forsaken me? *why art thou so* far from helping me, *and from* the words of my roaring?  
+> **²** O my God, I cry in the daytime, but thou hearest not; and in the night season, and am not silent.  
+> **³** But thou *art* holy, *O thou* that inhabitest the praises of Israel.  
+> **⁴** Our fathers trusted in thee: they trusted, and thou didst deliver them.  
+> **⁵** They cried unto thee, and were delivered: they trusted in thee, and were not confounded.  
+> **⁶** But I *am* a worm, and no man; a reproach of men, and despised of the people.  
+> **⁷** All they that see me laugh me to scorn: they shoot out the lip, they shake the head, *saying,*  
+> **⁸** He trusted on the LORD *that* he would deliver him: let him deliver him, seeing he delighted in him.  
+> **⁹** But thou *art* he that took me out of the womb: thou didst make me hope *when I was* upon my mother's breasts.  
+> **¹⁰** I was cast upon thee from the womb: thou *art* my God from my mother's belly.  
 
 Some think they find Christ in the title of this psalm, upon *Aijeleth Shahar*—*The hind of the morning.* Christ is as the swift hind upon the mountains of spices (So 8:14), as the loving hind and the pleasant roe, to all believers (Pr 5:19); he giveth goodly words like Naphtali, who is compared to a *hind let loose,* Ge 49:21. He is the hind of the morning, marked out by the counsels of God from eternity, to be run down by those dogs that compassed him, Ps 22:16. But others think it denotes only the tune to which the psalm was set. In these verses we have,
 
@@ -37,17 +37,17 @@ IV\. Encouragement taken as to this also (Ps 22:9,10): Men despise me, *but thou
 
 ## The Sufferings of the Messiah; The Messiah Supported in His Sufferings.
 
-> <sup>11</sup> Be not far from me; for trouble *is* near; for *there is* none to help.  
-> <sup>12</sup> Many bulls have compassed me: strong *bulls* of Bashan have beset me round.  
-> <sup>13</sup> They gaped upon me *with* their mouths, *as* a ravening and a roaring lion.  
-> <sup>14</sup> I am poured out like water, and all my bones are out of joint: my heart is like wax; it is melted in the midst of my bowels.  
-> <sup>15</sup> My strength is dried up like a potsherd; and my tongue cleaveth to my jaws; and thou hast brought me into the dust of death.  
-> <sup>16</sup> For dogs have compassed me: the assembly of the wicked have inclosed me: they pierced my hands and my feet.  
-> <sup>17</sup> I may tell all my bones: they look *and* stare upon me.  
-> <sup>18</sup> They part my garments among them, and cast lots upon my vesture.  
-> <sup>19</sup> But be not thou far from me, O LORD: O my strength, haste thee to help me.  
-> <sup>20</sup> Deliver my soul from the sword; my darling from the power of the dog.  
-> <sup>21</sup> Save me from the lion's mouth: for thou hast heard me from the horns of the unicorns.  
+> **¹¹** Be not far from me; for trouble *is* near; for *there is* none to help.  
+> **¹²** Many bulls have compassed me: strong *bulls* of Bashan have beset me round.  
+> **¹³** They gaped upon me *with* their mouths, *as* a ravening and a roaring lion.  
+> **¹⁴** I am poured out like water, and all my bones are out of joint: my heart is like wax; it is melted in the midst of my bowels.  
+> **¹⁵** My strength is dried up like a potsherd; and my tongue cleaveth to my jaws; and thou hast brought me into the dust of death.  
+> **¹⁶** For dogs have compassed me: the assembly of the wicked have inclosed me: they pierced my hands and my feet.  
+> **¹⁷** I may tell all my bones: they look *and* stare upon me.  
+> **¹⁸** They part my garments among them, and cast lots upon my vesture.  
+> **¹⁹** But be not thou far from me, O LORD: O my strength, haste thee to help me.  
+> **²⁰** Deliver my soul from the sword; my darling from the power of the dog.  
+> **²¹** Save me from the lion's mouth: for thou hast heard me from the horns of the unicorns.  
 
 In these verses we have Christ suffering and Christ praying, by which we are directed to look for crosses and to look up to God under them.
 
@@ -69,16 +69,16 @@ In singing this we should meditate on the sufferings and resurrection of Christ 
 
 ## The Messiah's Triumphs; Extension and Perpetuity of the Church.
 
-> <sup>22</sup> I will declare thy name unto my brethren: in the midst of the congregation will I praise thee.  
-> <sup>23</sup> Ye that fear the LORD, praise him; all ye the seed of Jacob, glorify him; and fear him, all ye the seed of Israel.  
-> <sup>24</sup> For he hath not despised nor abhorred the affliction of the afflicted; neither hath he hid his face from him; but when he cried unto him, he heard.  
-> <sup>25</sup> My praise *shall be* of thee in the great congregation: I will pay my vows before them that fear him.  
-> <sup>26</sup> The meek shall eat and be satisfied: they shall praise the LORD that seek him: your heart shall live for ever.  
-> <sup>27</sup> All the ends of the world shall remember and turn unto the LORD: and all the kindreds of the nations shall worship before thee.  
-> <sup>28</sup> For the kingdom *is* the LORD's: and he *is* the governor among the nations.  
-> <sup>29</sup> All *they that be* fat upon earth shall eat and worship: all they that go down to the dust shall bow before him: and none can keep alive his own soul.  
-> <sup>30</sup> A seed shall serve him; it shall be accounted to the Lord for a generation.  
-> <sup>31</sup> They shall come, and shall declare his righteousness unto a people that shall be born, that he hath done *this.*  
+> **²²** I will declare thy name unto my brethren: in the midst of the congregation will I praise thee.  
+> **²³** Ye that fear the LORD, praise him; all ye the seed of Jacob, glorify him; and fear him, all ye the seed of Israel.  
+> **²⁴** For he hath not despised nor abhorred the affliction of the afflicted; neither hath he hid his face from him; but when he cried unto him, he heard.  
+> **²⁵** My praise *shall be* of thee in the great congregation: I will pay my vows before them that fear him.  
+> **²⁶** The meek shall eat and be satisfied: they shall praise the LORD that seek him: your heart shall live for ever.  
+> **²⁷** All the ends of the world shall remember and turn unto the LORD: and all the kindreds of the nations shall worship before thee.  
+> **²⁸** For the kingdom *is* the LORD's: and he *is* the governor among the nations.  
+> **²⁹** All *they that be* fat upon earth shall eat and worship: all they that go down to the dust shall bow before him: and none can keep alive his own soul.  
+> **³⁰** A seed shall serve him; it shall be accounted to the Lord for a generation.  
+> **³¹** They shall come, and shall declare his righteousness unto a people that shall be born, that he hath done *this.*  
 
 The same that began the psalm complaining, who was no other than Christ in his humiliation, ends it here triumphing, and it can be no other than Christ in his exaltation. And, as the first words of the complaint were used by Christ himself upon the cross, so the first words of the triumph are expressly applied to him (Heb 2:12) and are made his own words: *I will declare thy name unto my brethren, in the midst of the church will I sing praise unto thee.* The certain prospect which Christ had of the joy set before him not only gave him a satisfactory answer to his prayers, but turned his complaints into praises; he saw of the travail of his soul, and was well satisfied, witness that triumphant word wherewith he breathed his last: *It is finished.*
 

@@ -8,10 +8,10 @@ The scope of this chapter is much the same with that of the foregoing chapter—
 
 ## Encouragements to Trust in God. (b. c. 510.)
 
-> <sup>1</sup> Ask ye of the LORD rain in the time of the latter rain; *so* the LORD shall make bright clouds, and give them showers of rain, to every one grass in the field.  
-> <sup>2</sup> For the idols have spoken vanity, and the diviners have seen a lie, and have told false dreams; they comfort in vain: therefore they went their way as a flock, they were troubled, because *there was* no shepherd.  
-> <sup>3</sup> Mine anger was kindled against the shepherds, and I punished the goats: for the LORD of hosts hath visited his flock the house of Judah, and hath made them as his goodly horse in the battle.  
-> <sup>4</sup> Out of him came forth the corner, out of him the nail, out of him the battle bow, out of him every oppressor together.  
+> **¹** Ask ye of the LORD rain in the time of the latter rain; *so* the LORD shall make bright clouds, and give them showers of rain, to every one grass in the field.  
+> **²** For the idols have spoken vanity, and the diviners have seen a lie, and have told false dreams; they comfort in vain: therefore they went their way as a flock, they were troubled, because *there was* no shepherd.  
+> **³** Mine anger was kindled against the shepherds, and I punished the goats: for the LORD of hosts hath visited his flock the house of Judah, and hath made them as his goodly horse in the battle.  
+> **⁴** Out of him came forth the corner, out of him the nail, out of him the battle bow, out of him every oppressor together.  
 
 Gracious things and glorious ones, very glorious and very gracious, were promised to this poor afflicted people in the foregoing chapter; now here God intimates to them that he will *for these things be enquired of* by them, and that he expects they should acknowledge him in all their ways and in all his ways towards them—and not idols that were rivals with him for their respects.
 
@@ -25,14 +25,14 @@ IV\. He shows them that every creature is to them what God makes it to be (Zec 1
 
 ## Evangelical Promises; Encouraging Prospects. (b. c. 510.)
 
-> <sup>5</sup> And they shall be as mighty *men,* which tread down *their enemies* in the mire of the streets in the battle: and they shall fight, because the LORD *is* with them, and the riders on horses shall be confounded.  
-> <sup>6</sup> And I will strengthen the house of Judah, and I will save the house of Joseph, and I will bring them again to place them; for I have mercy upon them: and they shall be as though I had not cast them off: for I *am* the LORD their God, and will hear them.  
-> <sup>7</sup> And *they of* Ephraim shall be like a mighty *man,* and their heart shall rejoice as through wine: yea, their children shall see *it,* and be glad; their heart shall rejoice in the LORD.  
-> <sup>8</sup> I will hiss for them, and gather them; for I have redeemed them: and they shall increase as they have increased.  
-> <sup>9</sup> And I will sow them among the people: and they shall remember me in far countries; and they shall live with their children, and turn again.  
-> <sup>10</sup> I will bring them again also out of the land of Egypt, and gather them out of Assyria; and I will bring them into the land of Gilead and Lebanon; and *place* shall not be found for them.  
-> <sup>11</sup> And he shall pass through the sea with affliction, and shall smite the waves in the sea, and all the deeps of the river shall dry up: and the pride of Assyria shall be brought down, and the sceptre of Egypt shall depart away.  
-> <sup>12</sup> And I will strengthen them in the LORD; and they shall walk up and down in his name, saith the LORD.  
+> **⁵** And they shall be as mighty *men,* which tread down *their enemies* in the mire of the streets in the battle: and they shall fight, because the LORD *is* with them, and the riders on horses shall be confounded.  
+> **⁶** And I will strengthen the house of Judah, and I will save the house of Joseph, and I will bring them again to place them; for I have mercy upon them: and they shall be as though I had not cast them off: for I *am* the LORD their God, and will hear them.  
+> **⁷** And *they of* Ephraim shall be like a mighty *man,* and their heart shall rejoice as through wine: yea, their children shall see *it,* and be glad; their heart shall rejoice in the LORD.  
+> **⁸** I will hiss for them, and gather them; for I have redeemed them: and they shall increase as they have increased.  
+> **⁹** And I will sow them among the people: and they shall remember me in far countries; and they shall live with their children, and turn again.  
+> **¹⁰** I will bring them again also out of the land of Egypt, and gather them out of Assyria; and I will bring them into the land of Gilead and Lebanon; and *place* shall not be found for them.  
+> **¹¹** And he shall pass through the sea with affliction, and shall smite the waves in the sea, and all the deeps of the river shall dry up: and the pride of Assyria shall be brought down, and the sceptre of Egypt shall depart away.  
+> **¹²** And I will strengthen them in the LORD; and they shall walk up and down in his name, saith the LORD.  
 
 Here are divers precious promises made to the people of God, which look further than to the state of the Jews in the latter days of their church, and have certain reference to the spiritual Israel of God, the gospel-church, and all true believers.
 
