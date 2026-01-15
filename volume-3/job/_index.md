@@ -2,6 +2,56 @@
 title: Job
 weight: 18
 ---
+
+## Table of Contents
+
+{{< cards >}}
+{{< card link="./chapter-1" title="Chapter 1" icon="book-open" >}}
+{{< card link="./chapter-2" title="Chapter 2" icon="book-open" >}}
+{{< card link="./chapter-3" title="Chapter 3" icon="book-open" >}}
+{{< card link="./chapter-4" title="Chapter 4" icon="book-open" >}}
+{{< card link="./chapter-5" title="Chapter 5" icon="book-open" >}}
+{{< card link="./chapter-6" title="Chapter 6" icon="book-open" >}}
+{{< card link="./chapter-7" title="Chapter 7" icon="book-open" >}}
+{{< card link="./chapter-8" title="Chapter 8" icon="book-open" >}}
+{{< card link="./chapter-9" title="Chapter 9" icon="book-open" >}}
+{{< card link="./chapter-10" title="Chapter 10" icon="book-open" >}}
+{{< card link="./chapter-11" title="Chapter 11" icon="book-open" >}}
+{{< card link="./chapter-12" title="Chapter 12" icon="book-open" >}}
+{{< card link="./chapter-13" title="Chapter 13" icon="book-open" >}}
+{{< card link="./chapter-14" title="Chapter 14" icon="book-open" >}}
+{{< card link="./chapter-15" title="Chapter 15" icon="book-open" >}}
+{{< card link="./chapter-16" title="Chapter 16" icon="book-open" >}}
+{{< card link="./chapter-17" title="Chapter 17" icon="book-open" >}}
+{{< card link="./chapter-18" title="Chapter 18" icon="book-open" >}}
+{{< card link="./chapter-19" title="Chapter 19" icon="book-open" >}}
+{{< card link="./chapter-20" title="Chapter 20" icon="book-open" >}}
+{{< card link="./chapter-21" title="Chapter 21" icon="book-open" >}}
+{{< card link="./chapter-22" title="Chapter 22" icon="book-open" >}}
+{{< card link="./chapter-23" title="Chapter 23" icon="book-open" >}}
+{{< card link="./chapter-24" title="Chapter 24" icon="book-open" >}}
+{{< card link="./chapter-25" title="Chapter 25" icon="book-open" >}}
+{{< card link="./chapter-26" title="Chapter 26" icon="book-open" >}}
+{{< card link="./chapter-27" title="Chapter 27" icon="book-open" >}}
+{{< card link="./chapter-28" title="Chapter 28" icon="book-open" >}}
+{{< card link="./chapter-29" title="Chapter 29" icon="book-open" >}}
+{{< card link="./chapter-30" title="Chapter 30" icon="book-open" >}}
+{{< card link="./chapter-31" title="Chapter 31" icon="book-open" >}}
+{{< card link="./chapter-32" title="Chapter 32" icon="book-open" >}}
+{{< card link="./chapter-33" title="Chapter 33" icon="book-open" >}}
+{{< card link="./chapter-34" title="Chapter 34" icon="book-open" >}}
+{{< card link="./chapter-35" title="Chapter 35" icon="book-open" >}}
+{{< card link="./chapter-36" title="Chapter 36" icon="book-open" >}}
+{{< card link="./chapter-37" title="Chapter 37" icon="book-open" >}}
+{{< card link="./chapter-38" title="Chapter 38" icon="book-open" >}}
+{{< card link="./chapter-39" title="Chapter 39" icon="book-open" >}}
+{{< card link="./chapter-40" title="Chapter 40" icon="book-open" >}}
+{{< card link="./chapter-41" title="Chapter 41" icon="book-open" >}}
+{{< card link="./chapter-42" title="Chapter 42" icon="book-open" >}}
+{{< /cards >}}
+
+## Introduction
+
 This book of Job stands by itself, is not connected with any other, and is therefore to be considered alone. Many copies of the Hebrew Bible place it after the book of Psalms, and some after the Proverbs, which perhaps has given occasion to some learned men to imagine it to have been written by Isaiah or some of the later prophets. But, as the subject appears to have been much more ancient, so we have no reason to think but that the composition of the book was, and that therefore it is most fitly placed first in this collection of divine morals: also, being doctrinal, it is proper to precede and introduce the book of Psalms, which is devotional, and the book of Proverbs, which is practical; for how shall we worship or obey a God whom we know not? As to this book,
 
 I\. We are sure that it is given by inspiration of God, though we are not certain who was the penman of it. The Jews, though no friends to Job, because he was a stranger to the commonwealth of Israel, yet, as faithful conservators of *the oracles of God* committed to them, always retained this book in their sacred canon. The history is referred to by one apostle (Jam 5:11) and one passage (Job 5:13) is quoted by another apostle, with the usual form of quoting scripture, *It is written,* 1Co 3:19. It is the opinion of many of the ancients that this history was written by Moses himself in Midian, and delivered to his suffering brethren in Egypt, for their support and comfort under their burdens, and the encouragement of their hope that God would in due time deliver and enrich them, as he did this patient sufferer. Some conjecture that it was written originally in Arabic, and afterwards translated into Hebrew, for the use of the Jewish church, by Solomon (so Monsieur Jurieu) or some other inspired writer. It seems most probable to me that Elihu was the penman of it, at least of the discourses, because (Job 32:15,16) he mingles the words of a historian with those of a disputant: but Moses perhaps wrote the first two chapters and the last, to give light to the discourses; for in them God is frequently called *Jehovah,* but not once in all the discourses, except Job 12:9. That name was but little known to the patriarchs before Moses, Ex 6:3. If Job wrote it himself, some of the Jewish writers themselves own him a *prophet among the Gentiles;* if Elihu, we find he had a spirit of prophecy which *filled him with matter and constrained him,* Job 32:18.
@@ -15,4 +65,5 @@ IV\. We are sure that it is of great use to the church, and to every good Christ
 1\. This noble poem presents to us, in very clear and lively characters, these five things among others:—(1.) *A monument of primitive theology.* The first and great principles of the light of nature, on which natural religion is founded, are here, in a warm, and long, and learned dispute, not only taken for granted on all sides and not the least doubt made of them, but by common consent plainly laid down as eternal truths, illustrated and urged as affecting commanding truths. Were ever the being of God, his glorious attributes and perfections, his unsearchable wisdom, his irresistible power, his inconceivable glory, his inflexible justice, and his incontestable sovereignty, discoursed of with more clearness, fulness, reverence, and divine eloquence, than in this book? The creation of the world, and the government of it, are here admirably described, not as matters of nice speculation, but as laying most powerful obligations upon us to fear and serve, to submit to and trust in, our Creator, owner, Lord, and ruler. Moral good and evil, virtue and vice, were never drawn more to the life (the beauty of the one and the deformity of the other) than in this book; nor the inviolable rule of God's judgment more plainly laid down, That *happy are the righteous, it shall be well with them;* and *Woe to the wicked, it shall be ill with them.* These are not questions of the schools to keep the learned world in action, nor engines of state to keep the unlearned world in awe; no, it appears by this book that they are sacred truths of undoubted certainty, and which all the wise and sober part of mankind have in every age subscribed and submitted to. (2.) It presents us with *a specimen of Gentile piety.* This great saint descended probably not from Abraham, but Nahor; or, if from Abraham, not from Isaac, but from one of the sons of the concubines that were sent into the east-country (Ge 25:6); or, if from Isaac, yet not from Jacob, but Esau; so that he was out of the pale of the covenant of peculiarity, no Israelite, no proselyte, and yet none like him for religion, nor such a favourite of heaven upon this earth. It was a truth therefore, before St. Peter perceived it, that *in every nation he that fears God and works righteousness is accepted of him,* Ac 10:35. There were *children of God scattered abroad* (Joh 11:52) besides the incorporated *children of the kingdom,* Mt 8:11,12. (3.) It presents us with *an exposition of the book of Providence,* and a clear and satisfactory solution of many of the difficult and obscure passages of it. The prosperity of the wicked and the afflictions of the righteous have always been reckoned two as hard chapters as any in that book; but they are here expounded, and reconciled with the divine wisdom, purity, and goodness, by the *end of these things.* (4.) It presents us with *a great example of patience* and close adherence to God in the midst of the sorest calamities. Sir Richard Blackmore's most ingenious pen, in his excellent preface to his paraphrase on this book, makes Job a hero proper for an epic poem; for, says he, "He appears brave in distress and valiant in affliction, maintains his virtue, and with that his character, under the most exasperating provocations that the malice of hell could invent, and thereby gives a most noble example of passive fortitude, a character no way inferior to that of the active hero," etc. (5.) It presents us with *an illustrious type of Christ,* the particulars of which we shall endeavour to take notice of as we go along. In general, Job was a great sufferer, was emptied and humbled, but in order to his greater glory. So Christ abased himself, that we might be exalted. The learned bishop Patrick quotes St. Jerome more than once speaking of Job as a type of Christ, who *for the job that was set before him endured the cross,* who was persecuted, for a time, by men and devils, and seemed forsaken of God too, but was raised to be an intercessor even for his friends and had added affliction to his misery. When the apostle speaks of the *patience of Job* he immediately takes notice of *the end of the Lord,* that is, of the Lord Jesus (as some understand it), typified by Job, Jam 5:11.
 
 2\. In this book we have, (1.) The history of Job's sufferings, and his patience under them (Job 1:1-2:13, not without a mixture of human frailty, Job 3:1-26 (2.) A dispute between him and his friends upon them, in which, [1.] The opponents were Eliphaz, Bildad, and Zophar. [2.] The respondent was Job. [3.] The moderators were, *First,* Elihu, Job 32:1-37:24 *Secondly,* God himself, Job 38:1-41:34 (3.) The issue of all in Job's honour and prosperity, Job 42:1-17 Upon the whole, we learn that *many are the afflictions of the righteous, but* that when the Lord *delivers them out of them all* the *trial of their faith will be found to praise, and honour, and glory.*
+
 
