@@ -2,5 +2,15 @@
 title: Obadiah
 weight: 31
 ---
+
+## Table of Contents
+
+{{< cards >}}
+{{< card link="./chapter-1" title="Chapter 1" icon="book-open" >}}
+{{< /cards >}}
+
+## Introduction
+
 This is the shortest of all the books of the Old Testament, the least of those tribes, and yet is not to be passed by, or thought meanly of, for this penny has Cæsar's image and superscription upon it; it is stamped with a divine authority. There may appear much of God in a short sermon, in a little book; and much good may be done by it, *multum in parvo—much in a little.* Mr. Norris says, "If angels were to write books, we should have few folios." That may be very precious which is not voluminous. This book is entitled, *The Vision of Obadiah.* Who this Obadiah was does not appear from any other scripture. Some of the ancients imagined him to be the same with that Obadiah that was steward to Ahab's household (1Ki 18:3); and, if so, he that hid and fed the prophets had indeed a prophet's reward, when he was himself made a prophet. But that is a conjecture which has no ground. This Obadiah, it is probable, was of a later date, some think contemporary with Hosea, Joel, and Amos; others think he lived about the time of the destruction of Jerusalem, when the children of Edom so barbarously triumphed in that destruction. However, what he wrote was what he saw; it is his *vision.* Probably there was much more which he was divinely inspired to speak, but this is all he was inspired to write; and all he writes is concerning Edom. It is a foolish fancy of some of the Jews that because he prophesies only concerning Edom he was himself an Edomite by birth, but a proselyte to the Jewish religion. Other prophets prophesied against Edom, and some of them seem to have borrowed from him in their predictions against Edom, as Jer 49:7, Eze 25:12, etc. Out of the mouth of these two or three witnesses every word will be established.
+
 
