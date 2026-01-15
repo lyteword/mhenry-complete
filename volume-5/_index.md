@@ -1,10 +1,9 @@
 ---
 title: Volume V - Matthew to John
+linkTitle: Volume V
 ---
 
 ## Table of Contents
-
-### Preface to Volume V
 
 {{< cards >}}
   {{< card link="./preface" title="Preface" icon="book-open" >}}

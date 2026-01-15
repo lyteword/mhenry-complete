@@ -1,10 +1,9 @@
 ---
 title: Volume I - Genesis to Deuteronomy
+linkTitle: Volume I
 ---
 
 ## Table of Contents
-
-### Preface to Volume I
 
 {{< cards >}}
   {{< card link="./preface" title="Preface" icon="book-open" >}}

@@ -1,10 +1,9 @@
 ---
 title: Volume VI - Acts to Revelation
+linkTitle: Volume VI
 ---
 
 ## Table of Contents
-
-### Preface to Volume VI
 
 {{< cards >}}
   {{< card link="./preface" title="Preface" icon="book-open" >}}

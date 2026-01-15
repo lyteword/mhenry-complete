@@ -1,10 +1,9 @@
 ---
 title: Volume IV - Isaiah to Malachi
+linkTitle: Volume IV
 ---
 
 ## Table of Contents
-
-### Preface to Volume IV
 
 {{< cards >}}
   {{< card link="./preface" title="Preface" icon="book-open" >}}

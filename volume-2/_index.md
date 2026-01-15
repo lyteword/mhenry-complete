@@ -1,10 +1,9 @@
 ---
 title: Volume II - Joshua to Esther
+linkTitle: Volume II
 ---
 
 ## Table of Contents
-
-### Preface to Volume II
 
 {{< cards >}}
   {{< card link="./preface" title="Preface" icon="book-open" >}}

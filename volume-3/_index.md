@@ -1,10 +1,9 @@
 ---
 title: Volume III - Job to Song of Solomon
+linkTitle: Volume III
 ---
 
 ## Table of Contents
-
-### Preface to Volume III
 
 {{< cards >}}
   {{< card link="./preface" title="Preface" icon="book-open" >}}
