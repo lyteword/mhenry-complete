@@ -9,7 +9,7 @@ cascade:
 
 ## Table of Contents
 
-{{< cards >}}
+{{< cards cols="2" >}}
   {{< card link="./volume-1" title="Volume I" icon="view-boards" subtitle="Genesis to Deuteronomy" >}}
   {{< card link="./volume-2" title="Volume II" icon="view-boards" subtitle="Joshua to Esther" >}}
   {{< card link="./volume-3" title="Volume III" icon="view-boards" subtitle="Job to Song of Solomon" >}}
