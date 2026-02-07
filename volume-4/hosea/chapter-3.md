@@ -6,7 +6,7 @@ weight: 3
 
 God is still by the prophet inculcating the same thing upon this careless people, and much in the same manner as before, by a type or sign, that of the dealings of a husband with an adulterous wife. In this chapter we have, I. The bad character which the people of Israel now had; they were, as is said of the Athenians (Ac 17:16), "wholly given to idolatry," Ho 3:1. II. The low condition which they should be reduced to by their captivity, and the other instances of God's controversy with them, Ho 3:2-4. III. The blessed reformation that should at length be wrought upon them in the latter days, Ho 3:5.
 
-## Idolatry of Israel; The Prophet's Remonstrances; Promises to the Penitent. (b. c. 760.)
+## Idolatry of Israel; The Prophet's Remonstrances; Promises to the Penitent (760 BC)
 
 > **¹** Then said the LORD unto me, Go yet, love a woman beloved of *her* friend, yet an adulteress, according to the love of the LORD toward the children of Israel, who look to other gods, and love flagons of wine.  
 > **²** So I bought her to me for fifteen *pieces* of silver, and *for* a homer of barley, and a half homer of barley:  

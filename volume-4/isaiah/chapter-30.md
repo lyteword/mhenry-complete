@@ -6,7 +6,7 @@ weight: 30
 
 The prophecy of this chapter seems to relate (as that in the foregoing chapter) to the approaching danger of Jerusalem and desolations of Judah by Sennacherib's invasion. Here is, I. A just reproof to those who, in that distress, trusted to the Egyptians for help, and were all in a hurry to fetch succours from Egypt, Isa 30:1-7. II. A terrible threatening against those who slighted the good advice which God by his prophets gave them for the repose of their minds in that distress, assuring them that whatever became of others the judgment would certainly overtake them, Isa 30:8-17. III. A gracious promise to those who trusted in God, that they should not only see through the trouble, but should see happy days after it, times of joy and reformation, plenty of the means of grace, and therewith plenty of outward good things and increasing joys and triumphs (Isa 30:18-26), and many of these promises are very applicable to gospel grace. IV. A prophecy of the total rout and ruin of the Assyrian army, which should be an occasion of great joy and an introduction to those happy times, Isa 30:27-33.
 
-## The Foolish Confidence of Judah. (b. c. 720.)
+## The Foolish Confidence of Judah (720 BC)
 
 > **¹** Woe to the rebellious children, saith the LORD, that take counsel, but not of me; and that cover with a covering, but not of my spirit, that they may add sin to sin:  
 > **²** That walk to go down into Egypt, and have not asked at my mouth; to strengthen themselves in the strength of Pharaoh, and to trust in the shadow of Egypt!  
@@ -26,7 +26,7 @@ III\. What would be the consequence of it. 1. The Egyptians would receive their 
 
 IV\. The use and application of all this (Isa 30:7): "*Therefore have I cried concerning this* matter, this project of theirs. I have published it, that all might take notice of it. I have pressed it as one in earnest. *Their strength is to sit still,* in a humble dependence upon God and his goodness and a quiet submission to his will, and not to wander about and put themselves to great trouble to seek help from this and the other creature." If we sit still in a day of distress, hoping and quietly waiting for the salvation of the Lord, and using only lawful regular methods for our own preservation, this will be the strength of our souls both for services and sufferings, and it will engage divine strength for us. We weaken ourselves, and provoke God to withdraw from us, when we make flesh our arm, for then our hearts depart from the Lord. When we have tired ourselves by seeking for help from creatures we shall find it the best way of recruiting ourselves to repose in the Creator. *Here I am, let him do with me as he pleases.*
 
-## Doom of Incorrigible Sinners. (b. c. 720.)
+## Doom of Incorrigible Sinners (720 BC)
 
 > **⁸** Now go, write it before them in a table, and note it in a book, that it may be for the time to come for ever and ever:  
 > **⁹** That this *is* a rebellious people, lying children, children *that* will not hear the law of the LORD:  
@@ -59,7 +59,7 @@ III\. The charge drawn up against them is very high and the sentence passed upon
 
 (3.) The sentence passed upon them for this. Their sin shall be their punishment: "You will flee, and therefore *you shall flee;* you will be upon the full speed, and therefore so shall those be that pursue you." The dogs are most apt to run barking after him that rides fast. The conquerors protected those that sat still, but pursued those that made their escape; and so that very project by which they hoped to save themselves was justly their ruin and the most guilty suffered most. It is foretold, Isa 30:17, [1.] That they should be easily cut off; they should be so dispirited with their own fears, increased by their flight, that one of the enemy should defeat a thousand of them, and five put an army to flight, which could never be *unless their Rock had sold them* De 32:30. [2.] That they should be generally cut off, and only here and there one should escape alone in a solitary place, and be left for a spectacle too, *as a beacon upon the top of a mountain,* a warning to others to avoid the like sinful courses and carnal confidences.
 
-## Promises. (b. c. 720.)
+## Promises (720 BC)
 
 > **¹⁸** And therefore will the LORD wait, that he may be gracious unto you, and therefore will he be exalted, that he may have mercy upon you: for the LORD *is* a God of judgment: blessed *are* all they that wait for him.  
 > **¹⁹** For the people shall dwell in Zion at Jerusalem: thou shalt weep no more: he will be very gracious unto thee at the voice of thy cry; when he shall hear it, he will answer thee.  
@@ -87,7 +87,7 @@ IV\. God will then give them plenty of all good things. When he gives them their
 
 V\. The effect of all this should be extraordinary comfort and joy to the people of God, Isa 30:26. Light shall increase; that is, knowledge shall increase (when the prophecies are accomplished they shall be fully understood) or rather triumph shall: the light of the joy that is sown for the righteous shall now come up with a great increase. *The light of the moon shall become as* bright and as strong as *that of the sun, and that of the sun* shall increase proportionably and be *as the light of seven days;* every one shall be much more cheerful and appear much more pleasant than usual. There shall be a high spring-tide of joy in Judah and Jerusalem, upon occasion of the ruin of the Assyrian army, *when the Lord binds up the breach of his people,* not only saves them from being further wounded, but heals the wounds that have been given them by this invasion and makes up all their losses. The great distress they were reduced to, their despair of relief, and the suddenness of their deliverance, would much augment their joy. This is not unfitly applied by many to the light which the gospel brought into the world to those that sat in darkness, which has far exceeded the Old-Testament light as that of the sun does that of the moon, and which proclaims *healing to the broken-hearted, and the binding up of their wounds.*
 
-## Judgments on Assyria. (b. c. 720.)
+## Judgments on Assyria (720 BC)
 
 > **²⁷** Behold, the name of the LORD cometh from far, burning *with* his anger, and the burden *thereof is* heavy: his lips are full of indignation, and his tongue as a devouring fire:  
 > **²⁸** And his breath, as an overflowing stream, shall reach to the midst of the neck, to sift the nations with the sieve of vanity: and *there shall be* a bridle in the jaws of the people, causing *them* to err.  

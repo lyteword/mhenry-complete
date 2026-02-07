@@ -6,7 +6,7 @@ weight: 34
 
 In this chapter we have two messages which God sent by Jeremiah. I. One to foretel the fate of Zedekiah king of Judah, that he should fall into the hands of the king of Babylon, that he should live a captive, but should at last die in peace in his captivity, Jer 34:1-7. II. Another to read the doom both of prince and people for their treacherous dealings with God, in bringing back into bondage their servants whom they had released according to the law, and so playing fast and loose with God. They had walked at all adventures with God (Jer 34:8-11), and therefore God would walk at all adventures with them, in bringing the Chaldean army upon them again when they began to hope that they had got clear of them, Jer 34:12-22.
 
-## Captivity of Zedekiah Foretold; The Babylonish Captivity Predicted. (b. c. 589.)
+## Captivity of Zedekiah Foretold; The Babylonish Captivity Predicted (589 BC)
 
 > **¹** The word which came unto Jeremiah from the LORD, when Nebuchadnezzar king of Babylon, and all his army, and all the kingdoms of the earth of his dominion, and all the people, fought against Jerusalem, and against all the cities thereof, saying,  
 > **²** Thus saith the LORD, the God of Israel; Go and speak to Zedekiah king of Judah, and tell him, Thus saith the LORD; Behold, I will give this city into the hand of the king of Babylon, and he shall burn it with fire:  
@@ -24,7 +24,7 @@ II\. The message itself that was sent to him. 1. Here is a threatening of wrath.
 
 III\. Jeremiah's faithfulness in delivering this message. Though he knew it would be ungrateful to the king, and might prove, as indeed it did, dangerous to himself (for he was imprisoned for it), yet he *spoke all these words to Zedekiah,* Jer 34:6. It is a mercy to great men to have those about them that will deal faithfully with them, and tell them the evil consequences of their evil courses, that they may reform and live.
 
-## Transient Reformation; The Servants Re-enslaved. (b. c. 589.)
+## Transient Reformation; The Servants Re-enslaved (589 BC)
 
 > **⁸** *This is* the word that came unto Jeremiah from the LORD, after that the king Zedekiah had made a covenant with all the people which *were* at Jerusalem, to proclaim liberty unto them;  
 > **⁹** That every man should let his manservant, and every man his maidservant, *being* a Hebrew or a Hebrewess, go free; that none should serve himself of them, *to wit,* of a Jew his brother.  

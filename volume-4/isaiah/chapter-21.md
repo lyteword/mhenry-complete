@@ -6,7 +6,7 @@ weight: 21
 
 In this chapter we have a prophecy of sad times coming, and heavy burdens, I. Upon Babylon, here called "the desert of the sea," that it should be destroyed by the Medes and Persians with a terrible destruction, which yet God's people should have advantage by, Isa 21:1-10. II. Upon Dumah, or Idumea, Isa 21:11,12. III. Upon Arabia, or Kedar, the desolation of which country was very near, Isa 21:13-17. These and other nations which the princes and people of Israel had so much to do with the prophets of Israel could not but have something to say to. Foreign affairs must be taken notice of as well as domestic ones, and news from abroad enquired after as well as news at home.
 
-## The Doom of Babylon. (b. c. 714.)
+## The Doom of Babylon (714 BC)
 
 > **¹** The burden of the desert of the sea. As whirlwinds in the south pass through; *so* it cometh from the desert, from a terrible land.  
 > **²** A grievous vision is declared unto me; the treacherous dealer dealeth treacherously, and the spoiler spoileth. Go up, O Elam: besiege, O Media; all the sighing thereof have I made to cease.  
@@ -37,7 +37,7 @@ VI\. Notice is given to the people of God, who were then captives in Babylon, th
 
 2\. The assurance he gives them of the truth of what he had delivered to them, which therefore they might build their hopes upon: *That which I have heard of the Lord of hosts, the God of Israel*—that, and nothing else, that, and no fiction or fancy of my own—*have I declared unto you.* Note, In all events concerning the church, past, present, and to come, we must have an eye to God both as the Lord of hosts and as the God of Israel, who has power enough to do any thing for his church and grace enough to do every thing that is for her good, and to the words of his prophets, as words received from the Lord. As they dare not smother any thing which he has entrusted them to declare, so they dare not declare any thing as from him which he has not made known to them, 1Co 11:23.
 
-## The Watchman Interrogated. (b. c. 714.)
+## The Watchman Interrogated (714 BC)
 
 > **¹¹** The burden of Dumah. He calleth to me out of Seir, Watchman, what of the night? Watchman, what of the night?  
 > **¹²** The watchman said, The morning cometh, and also the night: if ye will enquire, enquire ye: return, come.  
@@ -48,7 +48,7 @@ This prophecy concerning Dumah is very short, and withal dark and hard to be und
 
 2\. The watchman's answer to this question. The watchman was neither asleep nor dumb; though it was a man of Mount Seir that called to him, he was ready to give him an answer: *The morning comes.* He answers, (1.) By way of prediction: "There comes first a morning of light, and peace, and opportunity; you will enjoy one day of comfort more; but afterwards comes a night of trouble and calamity." Note, In the course of God's providence it is usual that morning and night are counterchanged and succeed each other. Is it night? Yet the morning comes, and the day-spring knows his place, Ps 30:5. Is it day? Yet the night comes also. If there be a morning of youth and health, there will come a night of sickness and old age; if a morning of prosperity in the family, in the public, yet we must look for changes. But God usually gives a morning of opportunity before he sends a night of calamity, that his own people may be prepared for the storm and others left inexcusable. (2.) By way of excitement: *If you will enquire, enquire.* Note, It is our wisdom to improve the present morning in preparation for the night that is coming after it. "*Enquire, return, come.* Be inquisitive, be penitent, be willing and obedient." The manner of expression is very observable, for we are put to our choice what we will do: "*If you will enquire, enquire;* if not, it is at your peril; you cannot say but you have a fair offer made you." We are also urged to be at a point: "If you will, say so, and do not stand pausing; what you will do do quickly, for it is no time to trifle." Those that return and come to God will find they have a great deal of work to do and but a little time to do it in, and therefore they have need to be busy.
 
-## The Doom of Arabia. (b. c. 714.)
+## The Doom of Arabia (714 BC)
 
 > **¹³** The burden upon Arabia. In the forest in Arabia shall ye lodge, O ye travelling companies of Dedanim.  
 > **¹⁴** The inhabitants of the land of Tema brought water to him that was thirsty, they prevented with their bread him that fled.  

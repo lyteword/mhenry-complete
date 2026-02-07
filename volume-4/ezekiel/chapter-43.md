@@ -6,7 +6,7 @@ weight: 43
 
 The prophet, having given us a view of the mystical temple, the gospel-church, as he received it from the Lord, that it might appear not to be erected in vain, comes to describe, in this and the next chapter, the worship that should be performed in it, but under the type of the Old-Testament services. In this chapter we have, I. Possession taken of this temple, by the glory of God filling it, Eze 43:1-6. II. A promise given of the continuance of God's presence with his people upon condition of their return to, and continuance in, the instituted way of worship, and their abandoning idols and idolatry, Eze 43:7-12. III. A description of the altar of burnt-offerings, Eze 43:13-17. IV. Directions given for the consecration of that altar, Eze 43:18-27. Ezekiel seems here to stand between God and Israel, as Moses the servant of the Lord did when the sanctuary was first set up.
 
-## The Vision of the Temple. (b. c. 574.)
+## The Vision of the Temple (574 BC)
 
 > **¹** Afterward he brought me to the gate, *even* the gate that looketh toward the east:  
 > **²** And, behold, the glory of the God of Israel came from the way of the east: and his voice *was* like a noise of many waters: and the earth shined with his glory.  
@@ -23,7 +23,7 @@ II\. He has a vision of the entrance of this glory into the temple. When he saw 
 
 III\. He receives instructions more immediately from the glory of the Lord, as Moses did when God had taken possession of the tabernacle (Le 1:1): *I heard him speaking to me out of the house,* Eze 43:6. God's glory shining in the church, we must thence expect to receive divine oracles. *The man stood by me;* we could not bear to hear the voice of God any more than to see the face of God if Jesus Christ did not stand by us as Mediator. Or, if this was a created angel, it is observable that when God began to speak to Ezekiel he stood by and gave way, having no more to say. Nay, he stood by the prophet, as a learner with him; for *to the principalities and powers,* to the angels themselves, who *desire to look into* these things, *is known by the church the manifold wisdom of God,* Eph 3:10. The man stood by him to conduct him thither where he might receive further discoveries, Eze 44:1.
 
-## The Vision of the Temple. (b. c. 574.)
+## The Vision of the Temple (574 BC)
 
 > **⁷** And he said unto me, Son of man, the place of my throne, and the place of the soles of my feet, where I will dwell in the midst of the children of Israel for ever, and my holy name, shall the house of Israel no more defile, *neither* they, nor their kings, by their whoredom, nor by the carcases of their kings in their high places.  
 > **⁸** In their setting of their threshold by my thresholds, and their post by my posts, and the wall between me and them, they have even defiled my holy name by their abominations that they have committed: wherefore I have consumed them in mine anger.  
@@ -42,7 +42,7 @@ III\. He promises that they shall be such as they should be, and then he will be
 
 IV\. The general law of God's house is laid down (Eze 43:12), That, whereas formerly only the chancel, or sanctuary, was *most holy,* now the whole *mountain of the house* shall be so; the *whole limit thereof,* including all the courts and all the chambers, shall be as the most holy place, signifying that in gospel-times, 1. The whole church shall have the privilege of the *holy of holies,* that of a near access to God. All believers have now, under the gospel, *boldness to enter into the holiest* (Heb 10:19), with this advantage, that whereas the high priest entered in the virtue of the blood of bulls and goats, we enter in the virtue of the blood of Jesus, and, wherever we are, we have through him *access to the Father.* 2. The whole church shall be under a mighty obligation to press towards the perfection of holiness, *as he who has called us is holy.* All must now be most holy. *Holiness becomes God's house* for ever, and in gospel-times more than ever. Behold this is the *law of the house;* let none expect the protection of it that will not submit to this law.
 
-## The Vision of the Temple. (b. c. 574.)
+## The Vision of the Temple (574 BC)
 
 > **¹³** And these *are* the measures of the altar after the cubits: The cubit *is* a cubit and a hand breadth; even the bottom *shall be* a cubit, and the breadth a cubit, and the border thereof by the edge thereof round about *shall be* a span: and this *shall be* the higher place of the altar.  
 > **¹⁴** And from the bottom *upon* the ground *even* to the lower settle *shall be* two cubits, and the breadth one cubit; and from the lesser settle *even* to the greater settle *shall be* four cubits, and the breadth *one* cubit.  

@@ -6,7 +6,7 @@ weight: 6
 
 In this chapter we have, I. A threatening of the destruction of Israel for their idolatry, and the destruction of their idols with them, Eze 6:1-7. II. A promise of the gracious return of a remnant of them to God, by true repentance and reformation, Eze 6:8-10. III. Directions given to the prophet and others, the Lord's servants, to lament both the iniquities and the calamities of Israel, Eze 6:11-14.
 
-## The Destruction of Idolatry. (b. c. 594.)
+## The Destruction of Idolatry (594 BC)
 
 > **¹** And the word of the LORD came unto me, saying,  
 > **²** Son of man, set thy face toward the mountains of Israel, and prophesy against them,  
@@ -24,7 +24,7 @@ II\. That which is threatened in this prophecy is the utter destruction of the i
 
 2\. The worshippers of idols and all their adherents should be destroyed likewise. As *all their high places shall be laid waste,* so shall all *their dwelling-places* too, even *all their cities,* Eze 6:6. Those that profane God's dwelling-place as they had done can expect no other than that he should abandon theirs, Eze 5:11. *If any man defile the temple of God, him will God destroy,* 1Co 3:17. It is here threatened that *their slain shall fall in the midst of them* (Eze 6:7); there shall be abundance slain, even in those places which were thought most safe; but it is added as a remarkable circumstance that they shall fall *before their idols* (Eze 6:4), that their *dead carcases* should be *laid,* and their *bones scattered, about their altars,* Eze 6:5. (1.) Thus their idols should be polluted, and those places profaned by the dead bodies which they had had in veneration. If they will not *defile the covering of their graven images,* God will, Isa 30:22. The throwing of the carcases among them, as upon the dunghill, intimates that they were but dunghill-deities. (2.) Thus it was intimated that they were but dead things, unfit to be rivals with *the living God;* for the carcases of dead men, that, like them, *have eyes and see not, ears and hear not,* were the fittest company for them. (3.) Thus the idols were upbraided with their inability to help their worshippers, and idolaters were upbraided with the folly of trusting in them; for, it should seem, they fell by the sword of the enemy when they were actually before their idols imploring their aid and putting themselves under their protection. Sennacherib was slain by his sons when he was *worshipping in the house of his god.* (4.) The sin might be read in this circumstance of the punishment; the *slain men* are *cast before the idols,* to show that *therefore* they are slain, because they worshipped those idols; see Jer 8:1,2. Let the survivors observe it, and take warning not to worship images; let them see it, and know that *God is the Lord,* that *the Lord he is God* and he alone.
 
-## Mercy Promised to the Penitent; Effect of Repentance. (b. c. 594.)
+## Mercy Promised to the Penitent; Effect of Repentance (594 BC)
 
 > **⁸** Yet will I leave a remnant, that ye may have *some* that shall escape the sword among the nations, when ye shall be scattered through the countries.  
 > **⁹** And they that escape of you shall remember me among the nations whither they shall be carried captives, because I am broken with their whorish heart, which hath departed from me, and with their eyes, which go a whoring after their idols: and they shall loathe themselves for the evils which they have committed in all their abominations.  
@@ -44,7 +44,7 @@ II\. It is a penitent remnant (Eze 6:9): *Those who escape of you shall remember
 
 4\. The glory that will redound to God by their repentance (Eze 6:10): "*They shall know that I am the Lord;* they shall be convinced of it by experience, and shall be ready to own it, *and that I have not said in vain that I would do this evil unto them,* finding that what I have said is made good, and made to work for good, and to answer a good intention, and that it was not without just provocation that they were thus threatened and thus punished." Note, (1.) One way or other God will make sinners to know and own that he is the Lord, either by their repentance or by their ruin. (2.) All true penitents are brought to acknowledge both the equity and the efficacy of the word of God, particularly the threatenings of the word, and to justify God in them and in the accomplishment of them.
 
-## The Prophet's Lamentation. (b. c. 594.)
+## The Prophet's Lamentation (594 BC)
 
 > **¹¹** Thus saith the Lord GOD; Smite with thine hand, and stamp with thy foot, and say, Alas for all the evil abominations of the house of Israel! for they shall fall by the sword, by the famine, and by the pestilence.  
 > **¹²** He that is far off shall die of the pestilence; and he that is near shall fall by the sword; and he that remaineth and is besieged shall die by the famine: thus will I accomplish my fury upon them.  

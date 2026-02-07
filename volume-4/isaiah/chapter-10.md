@@ -6,7 +6,7 @@ weight: 10
 
 The prophet, in this chapter, is dealing, I. With the proud oppressors of his people at home, that abused their power, to pervert justice, whom he would reckon with for their tyranny, Isa 10:1-4. II. With a threatening invader of his people from abroad, Sennacherib king of Assyria, concerning whom observe, 1. The commission given him to invade Judah, Isa 10:5,6. 2. His pride and insolence in the execution of that commission, Isa 10:7-11,13,14. 3. A rebuke given to his haughtiness, and a threatening of his fall and ruin, when he had served the purposes for which God raised him up, Isa 10:12,15-19. 4. A promise of grace to the people of God, to enable them to bear up under the affliction, and to get good by it, Isa 10:20-23. 5. Great encouragement given to them not to fear this threatening storm, but to hope that, though for the present all the country was put into a great consternation by it, yet it would end well, in the destruction of this formidable enemy, Isa 10:24-34. And this is intended to quiet the minds of good people in reference to all the threatening efforts of the wrath of the church's enemies. If God be for us, who can be against us? None to do us any harm.
 
-## The Condemnation of Oppressors. (b. c. 740.)
+## The Condemnation of Oppressors (740 BC)
 
 > **¹** Woe unto them that decree unrighteous decrees, and that write grievousness *which* they have prescribed;  
 > **²** To turn aside the needy from judgment, and to take away the right from the poor of my people, that widows may be their prey, and *that* they may rob the fatherless!  
@@ -23,7 +23,7 @@ III\. Sentence passed upon them, by which they are doomed, some to imprisonment 
 
 And yet, *for all this, his anger is not turned away,* which intimates not only that God will proceed in his controversy with them, but that they shall be in a continual dread of it; they shall, to their unspeakable terror, see his hand still stretched out against them, and there shall remain nothing but *a fearful looking for of judgment.*
 
-## The Pride of the King of Assyria; Sennacherib's Pride Rebuked; Destruction of the King of Assyria. (b. c. 740.)
+## The Pride of the King of Assyria; Sennacherib's Pride Rebuked; Destruction of the King of Assyria (740 BC)
 
 > **⁵** O Assyrian, the rod of mine anger, and the staff in their hand is mine indignation.  
 > **⁶** I will send him against a hypocritical nation, and against the people of my wrath will I give him a charge, to take the spoil, and to take the prey, and to tread them down like the mire of the streets.  
@@ -75,7 +75,7 @@ III\. See how God, in his justice, rebukes his pride and reads his doom. We have
 
 [3.] What would be the effect of this great slaughter. The prophet tells us, *First,* That the army would hereby be reduced to a very small number: *The rest of the trees of his forest shall be few;* very few shall escape the sword of the destroying angel, so few that there needs no artist, no muster-master or secretary of war, to take an account of them, for even *a child may* soon reckon the numbers of them, and *write* the names of *them. Secondly,* That those few who remained should be quite dispirited: *They shall be as when a standard-bearer fainteth.* When he either falls or flees, and his colours are taken by the enemy, this discourages the whole army, and puts them all into confusion. Upon the whole matter we must say, *Who is able to stand before this great and holy Lord God?*
 
-## Encouragement to Israel. (b. c. 740.)
+## Encouragement to Israel (740 BC)
 
 > **²⁰** And it shall come to pass in that day, *that* the remnant of Israel, and such as are escaped of the house of Jacob, shall no more again stay upon him that smote them; but shall stay upon the LORD, the Holy One of Israel, in truth.  
 > **²¹** The remnant shall return, *even* the remnant of Jacob, unto the mighty God.  
@@ -88,7 +88,7 @@ I\. The conversion of some, to whom this providence should be sanctified and yie
 
 II\. The consumption of others: *The Lord God of hosts shall make a consumption,* Isa 10:23. This is not meant (as that Isa 10:18) of the consumption of the Assyrian army, but of the consumption of the estates and families of many of the Jews by the Assyrian army. This is taken notice of to magnify the power and goodness of God in the escape of the distinguished remnant, and to let us know what shall become of those that will not return to God; they shall be wasted away by this consumption, this general decay *in the midst of the land.* Observe, 1. It is a consumption of God's own making; he is the author of it. The Lord God of hosts, whom none can resist, shall make this consumption. 2. It is *decreed.* It is not the product of a sudden resolve, but was before ordained. It is *determined,* not only that there shall be such a consumption, but it is *cut out* (so the word is); it is particularly appointed how far it shall extend and how long it shall continue, who shall be consumed by it and who not. 3. It is an overflowing consumption, that shall overspread the land, and, like a mighty torrent or inundation, bear down all before it. 4. Though it overflows, it is not at random, but in *righteousness,* which signifies both wisdom and equity. God will justly bring this consumption upon a provoking people, but he will wisely and graciously set bounds to it. *Hitherto it shall come, and no further.*
 
-## Encouragement to Israel. (b. c. 740.)
+## Encouragement to Israel (740 BC)
 
 > **²⁴** Therefore thus saith the Lord GOD of hosts, O my people that dwellest in Zion, be not afraid of the Assyrian: he shall smite thee with a rod, and shall lift up his staff against thee, after the manner of Egypt.  
 > **²⁵** For yet a very little while, and the indignation shall cease, and mine anger in their destruction.  

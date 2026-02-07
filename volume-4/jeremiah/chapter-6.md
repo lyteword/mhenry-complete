@@ -6,7 +6,7 @@ weight: 6
 
 In this chapter, as before, we have, I. A prophecy of the invading of the land of Judah and the besieging of Jerusalem by the Chaldean army (Jer 6:1-6), with the spoils they should make of the country (Jer 6:9) and the terror which all should be seized with on that occasion, Jer 6:22-26. II. An account of those sins of Judah and Jerusalem which provoked God to bring this desolating judgment upon them. Their oppression (Jer 6:7), their contempt of the word of God (Jer 6:10-12), their worldliness (Jer 6:13), the treachery of their prophets (Jer 6:14), their impudence in sin (Jer 6:15), their obstinacy against reproofs (Jer 6:18,19), which made their sacrifices unacceptable to him (Jer 6:20), and for which he gave them up to ruin (Jer 6:21), but tried them first (Jer 6:27) and then rejected them as irreclaimable, Jer 6:28-30. III. Good counsel given them in the midst of all this, but in vain, Jer 6:8,16,17.
 
-## Judgments Threatened against Israel; The Doom of Israel. (b. c. 608.)
+## Judgments Threatened against Israel; The Doom of Israel (608 BC)
 
 > **¹** O ye children of Benjamin, gather yourselves to flee out of the midst of Jerusalem, and blow the trumpet in Tekoa, and set up a sign of fire in Beth-haccerem: for evil appeareth out of the north, and great destruction.  
 > **²** I have likened the daughter of Zion to a comely and delicate *woman.*  
@@ -27,7 +27,7 @@ II\. The cause of this judgment assigned. It is all for their wickedness; they h
 
 III\. The counsel given them how to prevent this judgment. Fair warning is given now upon the whole matter: "*Be thou instructed, O Jerusalem!* Jer 6:8. Receive the instruction given thee both by the law of God and by the prophets; be wise at length for thyself." They knew very well what they had been instructed to do; nothing remained but to do it, for till then they could not be said to be instructed. The reason for this counsel is taken from the inevitable ruin they ran upon if they refused to comply with the instructions given them: *Lest my soul depart,* or *be disjoined, from thee.* This intimates what a tender affection and concern God had had for them; his very soul had been joined to them, and nothing but sin could disjoin it. Note, 1. The God of mercy is loth to depart even from a provoking people, and is earnest with them by true repentance and reformation to prevent things coming to that extremity. 2. Their case is very miserable from whom God's soul is disjoined; it intimates the loss not only of their outward blessings, but of those comforts and favours which are the more immediate and peculiar tokens of his love and presence. Compare this with that dreadful word (Heb 10:38), *If any man draw back, my soul shall have no pleasure in him.* 3. Those whom God forsakes are certainly undone; when God's soul departs from Jerusalem she soon becomes desolate and uninhabited, Mt 23:38.
 
-## The Universal Corruption of the Age. (b. c. 608.)
+## The Universal Corruption of the Age (608 BC)
 
 > **⁹** Thus saith the LORD of hosts, They shall thoroughly glean the remnant of Israel as a vine: turn back thine hand as a grape-gatherer into the baskets.  
 > **¹⁰** To whom shall I speak, and give warning, that they may hear? behold, their ear *is* uncircumcised, and they cannot hearken: behold, the word of the LORD is unto them a reproach; they have no delight in it.  
@@ -51,7 +51,7 @@ III\. They are put in mind of the good counsel which had been often given them, 
 
 2\. By way of admonition concerning their danger. Because they would not be ruled by fair reasoning, God takes another method with them; by less judgments he threatens greater, and sends his prophets to give them this explication of them, and to frighten them with an apprehension of the danger they were in (Jer 6:17); *Also I set watchmen over you.* God's ministers are watchmen, and it is a great mercy to have them set over us in the Lord. Now observe here, (1.) The fair warning given by these watchmen. This was the burden of their song; they cried again and again, *Hearken to the sound of the trumpet.* God, in his providence, sounds the trumpet (Zec 9:14); the watchmen hear it themselves and are affected with it (Jer 4:19), and they are to call upon others to hearken to it too, to hear the Lord's controversy, to observe the voice of Providence, to improve it, and answer the intentions of it. (2.) This fair warning slighted: "*But they said, We will not hearken;* we will not hear, we will not heed, we will not believe; the prophets may as well save themselves and us the trouble." The reason why sinners perish is because they *do not hearken to the sound of the trumpet;* and the reason why they do not is because they will not; and they have no reason to give why they will not but because they will not, that is, they are herein most unreasonable. One may more easily deal with ten men's reasons than one man's will.
 
-## Equity of Divine Judgments; Punishment Predicted. (b. c. 608.)
+## Equity of Divine Judgments; Punishment Predicted (608 BC)
 
 > **¹⁸** Therefore hear, ye nations, and know, O congregation, what *is* among them.  
 > **¹⁹** Hear, O earth: behold, I will bring evil upon this people, *even* the fruit of their thoughts, because they have not hearkened unto my words, nor to my law, but rejected it.  

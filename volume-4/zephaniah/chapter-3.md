@@ -6,7 +6,7 @@ weight: 3
 
 We now return to Jerusalem, and must again hear what God has to say to her, I. By way of reproof and threatening, for the abundance of wickedness that was found in her, of which divers instances are given, with the aggravations of them, Zep 3:1-7. II. By way of promise of mercy and grace, which God had yet in reserve for them. Two general heads of promises here are:—1. That God would bring in a glorious work of reformation among them, cleanse them from their sins, and bring them home to himself; many promises of this kind here are, Zep 3:8-13. 2. That he would bring about a glorious work of salvation for them, when he had thus prepared them for it, Zep 3:14-20. Thus the "Redeemer shall come to Zion," and to clear his own way, shall "turn away ungodliness from Jacob." These promises were to have their full accomplishment in gospel-times and gospel-graces.
 
-## The Depravity of Jerusalem. (b. c. 612.)
+## The Depravity of Jerusalem (612 BC)
 
 > **¹** Woe to her that is filthy and polluted, to the oppressing city!  
 > **²** She obeyed not the voice; she received not correction; she trusted not in the LORD; she drew not near to her God.  
@@ -30,7 +30,7 @@ III\. We have here the aggravations of this general corruption of all orders and
 
 3\. He had set before them life and death, good and evil, both in his word and in his providence. (1.) He had assured them of the continuance of their prosperity if they would fear him and receive instruction, for so *their dwelling would not be cut off* as their neighbour's was; if they took the warning given them, and reformed, what was past should be pardoned, and their tranquility lengthened out. (2.) He had made them feel the smart of the rod, though he reprieved them from the sword: *Howsoever I punished them,* that, being chastened, they might not be condemned. Such various methods did God take with them, to reclaim them, but all in vain; they were not won upon by gentle methods, nor had severe ones any effect, for *they rose early, and corrupted all their doings;* they were more resolute and eager in their wicked courses than ever, more studious and solicitous in making provision for their lusts, and let slip no opportunity for the gratification of them. God *rose up early,* to send them his *prophets,* to reduce and reclaim them, but they were *up before him,* to shut and bolt the door against them. Their wickedness was universal: *All their doings* were corrupted; and it was all owing to themselves; they could not lay the blame upon the tempter, but they alone must bear it; they themselves wilfully and designedly *corrupted all their doings;* for *every man is tempted when he is drawn aside of his own lust and enticed.*
 
-## Judgment and Mercy; Promises of Mercy. (b. c. 612.)
+## Judgment and Mercy; Promises of Mercy (612 BC)
 
 > **⁸** Therefore wait ye upon me, saith the LORD, until the day that I rise up to the prey: for my determination *is* to gather the nations, that I may assemble the kingdoms, to pour upon them mine indignation, *even* all my fierce anger: for all the earth shall be devoured with the fire of my jealousy.  
 > **⁹** For then will I turn to the people a pure language, that they may all call upon the name of the LORD, to serve him with one consent.  
@@ -57,7 +57,7 @@ II\. To amend what he finds amiss in his church. When God intends the restoratio
 
 6\. That this select remnant shall be blessed with purity and peace, Zep 3:13. (1.) They shall be blessed with purity, both in words and actions: They *shall neither do iniquity nor speak lies.* Justice and veracity shall command them and govern them, though they be ever so much against their secular interest. They shall not only not speak a direct deliberate lie, but *there shall not be a deceitful tongue found in their mouth,* not in the mouth of any of them; not the least equivocation shall come from them. (2.) They shall be blessed with peace. They shall, as the sheep of God's pasture, *feed* and *lie down, and none shall make them afraid.* They shall not be fearful themselves, nor shall any about them be frightful to them. Note, Those that are careful not to do iniquity need not be afraid of any calamity, for it cannot hurt them, and therefore should not terrify them.
 
-## Evangelical Predictions. (b. c. 612.)
+## Evangelical Predictions (612 BC)
 
 > **¹⁴** Sing, O daughter of Zion; shout, O Israel; be glad and rejoice with all the heart, O daughter of Jerusalem.  
 > **¹⁵** The LORD hath taken away thy judgments, he hath cast out thine enemy: the king of Israel, *even* the LORD, *is* in the midst of thee: thou shalt not see evil any more.  

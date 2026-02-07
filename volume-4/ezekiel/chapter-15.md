@@ -6,7 +6,7 @@ weight: 15
 
 Ezekiel has again and again, in God's name, foretold the utter ruin of Jerusalem; but, it should seem, he finds it hard to reconcile himself to it, and to acquiesce in the will of God in this severe dispensation; and therefore God takes various methods to satisfy him not only that it shall be so, but that there is no remedy: it must be so; it is fit that it should be so. Here, in this short chapter, he shows him (probably with design that he should tell the people) that it was as requisite Jerusalem should be destroyed as that the dead and withered branches of a vine should be cut off and thrown into the fire. I. The similitude is very elegant (Eze 15:1-5), but, II. The explanation of the similitude is very dreadful, Eze 15:6-8.
 
-## Jerusalem a Condemned Vine. (b. c. 593.)
+## Jerusalem a Condemned Vine (593 BC)
 
 > **¹** And the word of the LORD came unto me, saying,  
 > **²** Son of man, What is the vine tree more than any tree, *or than* a branch which is among the trees of the forest?  

@@ -6,7 +6,7 @@ weight: 14
 
 Hearing the word, and prayer, are two great ordinances of God, in which we are to give honour to him and may hope to find favour and acceptance with him; and yet in this chapter, to our great surprise, we find some waiting upon God in the one and some in the other and yet not meeting with success as they expected. I. The elders of Israel come to hear the word, and enquire of the prophet, but, because they are not duly qualified, they meet with a rebuke instead of acceptance (Eze 14:1-5) and are called upon to repent of their sins and reform their lives, else it is at their peril to enquire of God, Eze 14:6-11. II. Noah, Daniel, and Job, are supposed to pray for this people, and yet, because the decree has gone forth, and the destruction of them is determined by a variety of judgments, their prayers shall not be answered, Eze 14:12-21. And yet it is promised, in the close, that a remnant shall escape, Eze 14:22,23.
 
-## The Elders of Israel Rebuked; The Prophet's Address to the Elders. (b. c. 593.)
+## The Elders of Israel Rebuked; The Prophet's Address to the Elders (593 BC)
 
 > **¹** Then came certain of the elders of Israel unto me, and sat before me.  
 > **²** And the word of the LORD came unto me, saying,  
@@ -34,7 +34,7 @@ VI\. The good counsel that is given them for the preventing of this fearful doom
 
 VII\. The good issue of all this as to the house of Israel; *therefore* the pretending prophets, and the pretending saints, shall perish together by the judgments of God, that, some being made examples, the body of the people may be reformed, *that the house of Israel may go no more astray from me,* Eze 14:11. Note, The punishments of some are designed for the prevention of sin, that others may hear, and fear, and take warning. When we see what becomes of those that go astray from God we should thereby be engaged to keep close to him. And, if *the house of Israel go not astray, they will not be polluted any more.* Note, Sin is a polluting thing; it renders the sinner odious in the eyes of the pure and holy God, and in his own eyes too whenever conscience is awakened; and therefore they shall *no more be polluted, that they may be my people and I may be their God.* Note, Those whom God takes into covenant with himself must first be cleansed from the pollutions of sin; and those who are so cleansed shall not only be saved from ruin, but be entitled to all the privileges of God's people.
 
-## Destruction of the People Determined; The Variety of the Divine Judgment; A Remnant Preserved. (b. c. 593.)
+## Destruction of the People Determined; The Variety of the Divine Judgment; A Remnant Preserved (593 BC)
 
 > **¹²** The word of the LORD came again to me, saying,  
 > **¹³** Son of man, when the land sinneth against me by trespassing grievously, then will I stretch out mine hand upon it, and will break the staff of the bread thereof, and will send famine upon it, and will cut off man and beast from it:  

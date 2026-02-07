@@ -6,7 +6,7 @@ weight: 7
 
 In this chapter we have, I. A general charge drawn up against Israel for those high crimes and misdemeanors by which they had obstructed the course of God's favours to them, Ho 7:1,2. II. A particular accusation, 1. Of the court—the king, princes, and judges, Ho 7:3-7. 2. Of the country. Ephraim is here charged with conforming to the nations (Ho 7:8), senselessness and stupidity under the judgments of God (Ho 7:9-11), ingratitude to God for his mercies (Ho 7:13), incorrigibleness under his judgments (Ho 7:14), contempt of God (Ho 7:15), and hypocrisy in their pretences to return to him, Ho 7:16. They are also threatened with a severe chastisement, which shall humble them (Ho 7:12), and, if that prevail not, then with an utter destruction (Ho 7:13), particularly their princes, Ho 7:16.
 
-## Charge Drawn up against Israel; The Crimes of the Princes. (b. c. 750.)
+## Charge Drawn up against Israel; The Crimes of the Princes (750 BC)
 
 > **¹** When I would have healed Israel, then the iniquity of Ephraim was discovered, and the wickedness of Samaria: for they commit falsehood; and the thief cometh in, *and* the troop of robbers spoileth without.  
 > **²** And they consider not in their hearts *that* I remember all their wickedness: now their own doings have beset them about; they are before my face.  
@@ -38,7 +38,7 @@ II\. A particular account of the sins of the court, of the king and princes, and
 
 4\. They resist the proper methods of reformation and redress: *They have devoured their judges,* those few good judges that were among them, that would have put out these fires with which they were heated; they fell foul upon them, and would not suffer them to do justice, but were ready to stone them, and perhaps did so; or, as some think, they provoked God to deprive them of the blessing of magistracy and to leave all in confusion: *All their kings* have *fallen* one after another, and their families with them, which could not but put the kingdom into confusion, crumble it into contending parties, and occasion a great deal of bloodshed. There are heart-burnings among them; they are *hot as an oven* with rage and malice at one another, and this occasions the *devouring of their judges,* the *falling* of their *kings. For the transgressions of a land many are the princes thereof,* Pr 28:2. But in the midst of all this trouble and disorder *there is none among them that calls unto God,* that sees his hand stretched out against them in these judgments, and deprecates the strokes of it, none, or next to none, that stir up themselves to take hold on God, Isa 64:7. Note, Those are not only heated with sin, but hardened in sin, that continue to live without prayer even when they are in trouble and distress.
 
-## The Crimes of the People; Infatuation of Ephraim; Ephraim's Obstinate Rebellion; Ephraim's Hypocrisy. (b. c. 750.)
+## The Crimes of the People; Infatuation of Ephraim; Ephraim's Obstinate Rebellion; Ephraim's Hypocrisy (750 BC)
 
 > **⁸** Ephraim, he hath mixed himself among the people; Ephraim is a cake not turned.  
 > **⁹** Strangers have devoured his strength, and he knoweth *it* not: yea, gray hairs are here and there upon him, yet he knoweth not.  

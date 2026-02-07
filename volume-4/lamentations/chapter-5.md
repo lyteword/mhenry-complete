@@ -6,7 +6,7 @@ weight: 5
 
 This chapter, though it has the same number of verses with the 1st, 2nd, and 4th, is not alphabetical, as they were, but the scope of it is the same with that of all the foregoing elegies. We have in it, I. A representation of the present calamitous state of God's people in their captivity, La 5:1-16. II. A protestation of their concern for God's sanctuary, as that which lay nearer their heart than any secular interest of their own, La 5:17,18. III. A humble supplication to God and expostulation with him, for the returns of mercy (La 5:19-22); for those that lament and do not pray sin in their lamentations. Some ancient versions call this chapter, "The Prayer of Jeremiah."
 
-## An Appeal to God; Complicated Sorrows. (b. c. 588.)
+## An Appeal to God; Complicated Sorrows (588 BC)
 
 > **¹** Remember, O LORD, what is come upon us: consider, and behold our reproach.  
 > **²** Our inheritance is turned to strangers, our houses to aliens.  
@@ -47,7 +47,7 @@ II\. They represent the reproach of trouble which they bear, in divers particula
 
 8\. An end was put to all their glory. (1.) The public administration of justice was their glory, but that was gone: *The elders have ceased from the gate* (La 5:14); the course of justice, which used to run down like a river, is now stopped; the courts of justice, which used to be kept with so much solemnity, are put down; for the judges are slain, or carried captive. (2.) The royal dignity was their glory, but that also was gone: *The crown has fallen from our head,* not only the *king* himself fallen into disgrace, but *the crown;* he has no successor; the regalia are all lost. Note, Earthly crowns are fading falling things; but, blessed be God, there is *a crown of glory that fades not away,* that never falls, *a kingdom that cannot be moved.* Upon this complaint, but with reference to all the foregoing complaints, they make that penitent acknowledgment, "*Woe unto us that we have sinned!* Alas for us! Our case is very deplorable, and it is all owing to ourselves; we are undone, and, which aggravates the matter, we are undone by our own hands. God is righteous, for *we have sinned.*" Note, All our woes are owing to our own sin and folly. If *the crown of our head be fallen* (for so the words run), if we lose our excellency and become mean, we may thank ourselves, we have by our own iniquity profaned our crown and *laid our honour in the dust.*
 
-## Unchangeableness of God; Prayer for Mercy and Grace. (b. c. 588.)
+## Unchangeableness of God; Prayer for Mercy and Grace (588 BC)
 
 > **¹⁷** For this our heart is faint; for these *things* our eyes are dim.  
 > **¹⁸** Because of the mountain of Zion, which is desolate, the foxes walk upon it.  

@@ -6,7 +6,7 @@ weight: 4
 
 Comparing this chapter with the close of the foregoing chapter, the comfortable promises here with the terrible threatenings there, we may, with the apostle, "behold the goodness and severity of God," (Ro 11:22), towards the Jewish church which fell, severity when Zion was ploughed as a field, but towards the Christian church, which was built upon the ruins of it, goodness, great goodness; for it is here promised, I. That it shall be advanced and enlarged by the accession of the nations to it, Mic 4:1,2. II. That it shall be protected in tranquility and peace, Mic 4:3,4. III. That it shall be kept close, and constant, and faithful to God, Mic 4:5. IV. That under Christ's government, all its grievances shall be redressed, Mic 4:6,7. V. That it shall have an ample and flourishing dominion, Mic 4:8. VI. That its troubles shall be brought to a happy issue at length, Mic 4:9,10. VII. That its enemies shall be disquieted, nay, that they shall be destroyed in and by their attempts against it, Mic 4:11-13.
 
-## The Prosperity of the Church Predicted. (b. c. 726.)
+## The Prosperity of the Church Predicted (726 BC)
 
 > **¹** But in the last days it shall come to pass, *that* the mountain of the house of the LORD shall be established in the top of the mountains, and it shall be exalted above the hills; and people shall flow unto it.  
 > **²** And many nations shall come, and say, Come, and let us go up to the mountain of the LORD, and to the house of the God of Jacob; and he will teach us of his ways, and we will walk in his paths: for the law shall go forth of Zion, and the word of the LORD from Jerusalem.  
@@ -38,7 +38,7 @@ IX\. That notwithstanding the dispersions, distress, and infirmities of the chur
 
 X\. That the *Messiah* shall be the king of this kingdom, shall protect and govern it, and order all the affairs of it for the best, and this to the end of time. The Lord Jesus *shall reign over them in Mount Zion* by his word and Spirit in his ordinances, and this *henceforth and for ever,* for *of the increase of his government and peace there shall be no end.*
 
-## Judgments and Mercies. (b. c. 726.)
+## Judgments and Mercies (726 BC)
 
 > **⁸** And thou, O tower of the flock, the strong hold of the daughter of Zion, unto thee shall it come, even the first dominion; the kingdom shall come to the daughter of Jerusalem.  
 > **⁹** Now why dost thou cry out aloud? *is there* no king in thee? is thy counsellor perished? for pangs have taken thee as a woman in travail.  

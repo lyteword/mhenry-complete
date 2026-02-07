@@ -6,7 +6,7 @@ weight: 10
 
 The prophet had observed to us (Eze 8:4) that when he was in vision at Jerusalem he saw the same appearance of the glory of God there that he had seen by the river Chebar; now, in this chapter, he gives us some account of the appearance there, as far as was requisite for the clearing up of two further indications of the approaching destruction of Jerusalem, which God here gave the prophet:—I. The scattering of the coals of fire upon the city, which were taken from between the cherubim, Eze 10:1-7. II. The removal of the glory of God from the temple, and its being upon the wing to be gone, Eze 10:8-22. When God goes out from a people all judgments break in upon them.
 
-## The Vision of the Cherubim. (b. c. 593.)
+## The Vision of the Cherubim (593 BC)
 
 > **¹** Then I looked, and, behold, in the firmament that was above the head of the cherubims there appeared over them as it were a sapphire stone, as the appearance of the likeness of a throne.  
 > **²** And he spake unto the man clothed with linen, and said, Go in between the wheels, *even* under the cherub, and fill thine hand with coals of fire from between the cherubims, and scatter *them* over the city. And he went in in my sight.  
@@ -32,7 +32,7 @@ II\. The terrible directions of his wrath. This vision has a further tendency th
 
 5\. When he had taken the fire he *went out,* no doubt to *scatter* it up and down upon *the city,* as he was directed. And *who can abide the day of his coming?* Who can stand before him when he goes out in his anger?
 
-## The Vision of the Divine Glory. (b. c. 593.)
+## The Vision of the Divine Glory (593 BC)
 
 > **⁸** And there appeared in the cherubims the form of a man's hand under their wings.  
 > **⁹** And when I looked, behold the four wheels by the cherubims, one wheel by one cherub, and another wheel by another cherub: and the appearance of the wheels *was* as the colour of a beryl stone.  

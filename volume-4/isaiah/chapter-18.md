@@ -6,7 +6,7 @@ weight: 18
 
 Whatever country it is that is meant here by "the land shadowing with wings," here is a woe denounced against it, for God has, upon his people's account, a quarrel with it. I. They threaten God's people, Isa 18:1,2. II. All the neighbours are hereupon called to take notice what will be the issue, Isa 18:3. III. Though God seem unconcerned in the distress of his people for a time, he will at length appear against their enemies and will remarkably cut them off, Isa 18:4-6. IV. This shall redound very much to the glory of God, Isa 18:7.
 
-## Judgments Denounced. (b. c. 712.)
+## Judgments Denounced (712 BC)
 
 > **¹** Woe to the land shadowing with wings, which *is* beyond the rivers of Ethiopia:  
 > **²** That sendeth ambassadors by the sea, even in vessels of bulrushes upon the waters, *saying,* Go, ye swift messengers, to a nation scattered and peeled, to a people terrible from their beginning hitherto; a nation meted out and trodden down, whose land the rivers have spoiled!  

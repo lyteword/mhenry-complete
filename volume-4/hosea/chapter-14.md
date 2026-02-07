@@ -6,7 +6,7 @@ weight: 14
 
 The strain of this chapter differs from that of the foregoing chapters. Those were generally made up of reproofs for sin and threatenings of wrath; but this is made up of exhortations to repentance and promises of mercy, and with these the prophet closes; for all the foregoing convictions and terrors he had spoken were designed to prepare and make way for these. He wounds that he may heal. The Spirit convinces that he may comfort. This chapter is a lesson for penitents; and some such there were in Israel at this day, bad as things were. We have here, I. Directions in repenting, what to do and what to say, Ho 14:1-3. II. Encouragements to repent taken from God's readiness to receive returning sinners (Ho 14:4,8) and the comforts he has treasured up for them, Ho 14:5-7. III. A solemn recommendation of these things to our serious thoughts, Ho 14:9.
 
-## Penitents Encouraged. (b. c. 720.)
+## Penitents Encouraged (720 BC)
 
 > **¹** O Israel, return unto the LORD thy God; for thou hast fallen by thine iniquity.  
 > **²** Take with you words, and turn to the LORD: say unto him, Take away all iniquity, and receive *us* graciously: so will we render the calves of our lips.  
@@ -26,7 +26,7 @@ III\. For their assistance herein, and encouragement, God is pleased to put word
 
 3\. Pleading words are here put into their mouths: For *in thee the fatherless find mercy.* We must take our encouragement in prayer, not from any merit God finds in us, but purely from the mercy we hope to find in God. This contains in itself a great truth, that God takes special care of fatherless children, Ps 68:4,5. So he did in his law, Ex 22:22. So he does in his providence, Ps 27:10. It is God's prerogative to help the helpless. In him there is mercy for such, for they are proper objects of mercy. In him they find it; there it is laid up for them, and there they must seek it; *seek and you shall find.* It comes in here as a good plea for mercy and grace and an encouraging one to their faith. (1.) They plead the distress of their state and condition: "We are fatherless orphans, destitute of help." Those may expect to find help in God that are truly sensible of their helplessness in themselves and are willing to acknowledge it. This is a good step towards comfort. "If we have not yet boldness to call God *Father,* yet we look upon ourselves as fatherless without him, and therefore lay ourselves at his feet, to be looked upon by him with compassion." (2.) They plead God's wonted lovingkindness to such as were in that condition: *With thee the fatherless* not only may find, but *does find,* and shall find, *mercy.* It is a great encouragement to our faith and hope, in returning to God, that it is his glory to father the fatherless and help the helpless.
 
-## Assurance of Mercy; Repentance of Ephraim. (b. c. 720.)
+## Assurance of Mercy; Repentance of Ephraim (720 BC)
 
 > **⁴** I will heal their backsliding, I will love them freely: for mine anger is turned away from him.  
 > **⁵** I will be as the dew unto Israel: he shall grow as the lily, and cast forth his roots as Lebanon.  
@@ -53,7 +53,7 @@ IV\. Do they pray that God will *give good,* will make them good? In answer to t
 
 (3.) They shall be fruitful and useful. The church is compared here to the vine and the olive, which brings forth useful fruits, to the honour of God and man. Nay, the very shadow of the church shall be agreeable (Ho 14:7): *Those that dwell under his shadow shall return*—under God's *shadow* (so some), under the shadow of the Messias, so the Chaldee. Believers *dwell under God's shadow* (Ps 91:1), and there they are and may be safe and easy. But it is rather *under the shadow of Israel,* under the shadow of the church. Note, God's promises pertain to those, and those only, that dwell under the church's shadow, that attend on God's ordinances and adhere to his people, not those that flee to that shadow only for shelter in a hot gleam, but those that *dwell under it.* Ps 27:4. We may apply it to particular believers; when a man is effectually brought home to God all that *dwell under his shadow*—children, servants, subjects, friends. *This day has salvation come to this house.* Those that dwell under the shadow of the church shall return; their drooping spirits shall return, and they shall be refreshed and comforted. He *restores my soul,* Ps 23:3. *They shall revive as the corn,* which, when it is sown, dies first, and then revives, and *brings forth much fruit,* Joh 12:24. It is promised that God's people shall be blessings to the world, as corn and wine are. And a very great and valuable mercy it is to be serviceable to our generation. Comfort and honour attend it.
 
-## Assurances of Mercy. (b. c. 720.)
+## Assurances of Mercy (720 BC)
 
 > **⁸** Ephraim *shall say,* What have I to do any more with idols? I have heard *him,* and observed him: I *am* like a green fir tree. From me is thy fruit found.  
 > **⁹** Who *is* wise, and he shall understand these *things?* prudent, and he shall know them? for the ways of the LORD *are* right, and the just shall walk in them: but the transgressors shall fall therein.  

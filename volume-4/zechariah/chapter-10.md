@@ -6,7 +6,7 @@ weight: 10
 
 The scope of this chapter is much the same with that of the foregoing chapter—to encourage the Jews that had returned with hopes that though they had been under divine rebukes for their negligence in rebuilding the temple, and were now surrounded with enemies and dangers, yet God would do them good, and make them prosperous at home and victorious abroad. Now, I. They are here directed to eye the great God in all events that concerned them, and, both in the evils they suffered and in the comforts they desired, to acknowledge his hand, Zec 10:1-4. II. They are encouraged to expect strength and success from him in all their struggles with the enemies of their church and state, and to hope that the issue would be glorious at last, Zec 10:5-12.
 
-## Encouragements to Trust in God. (b. c. 510.)
+## Encouragements to Trust in God (510 BC)
 
 > **¹** Ask ye of the LORD rain in the time of the latter rain; *so* the LORD shall make bright clouds, and give them showers of rain, to every one grass in the field.  
 > **²** For the idols have spoken vanity, and the diviners have seen a lie, and have told false dreams; they comfort in vain: therefore they went their way as a flock, they were troubled, because *there was* no shepherd.  
@@ -23,7 +23,7 @@ III\. He shows them the hand of God in all the events that concerned them, both 
 
 IV\. He shows them that every creature is to them what God makes it to be (Zec 10:4): *Out of him came forth the corner, out of him the nails.* 1. All the power that was engaged against them was from God. *Out of him* came all the combined force of their enemies; every *oppressor together* (and the oppressors of Israel were not a few) did but what his hand and his counsel determined before to be done; nor could they have had such power against them unless it had been given them from above. 2. All the power likewise that was engaged for them was derived from him and depended on him. Out of him came forth *the corner-stone* of the building, the power of magistrates, which keeps the several parts of the state together. Princes are often called the *corners of the people,* as 1Sa 14:38, marg. Out of him came forth *the nail* that fixed the state, the *nail in the sure place* (Isa 22:23), the *nail in his holy place,* Ezr 9:8. Out of him came forth *the battle-bow,* the military power, and out of him *every oppressor,* or exactor, that had the civil power in his hand; and therefore to God, the fountain of power, we must always have an eye, and see every man's judgment proceeding from him.
 
-## Evangelical Promises; Encouraging Prospects. (b. c. 510.)
+## Evangelical Promises; Encouraging Prospects (510 BC)
 
 > **⁵** And they shall be as mighty *men,* which tread down *their enemies* in the mire of the streets in the battle: and they shall fight, because the LORD *is* with them, and the riders on horses shall be confounded.  
 > **⁶** And I will strengthen the house of Judah, and I will save the house of Joseph, and I will bring them again to place them; for I have mercy upon them: and they shall be as though I had not cast them off: for I *am* the LORD their God, and will hear them.  

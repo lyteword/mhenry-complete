@@ -6,7 +6,7 @@ weight: 57
 
 The prophet, in this chapter, makes his observations, I. Upon the deaths of good men, comforting those that were taken away in their integrity and reproving those that did not make a due improvement of such providences, Isa 57:1,2. II. Upon the gross idolatries and spiritual whoredoms which the Jews were guilty of, and the destroying judgments they were thereby bringing upon themselves, Isa 57:3-12. III. Upon the gracious returns of God to his people to put an end to their captivity and re-establish their prosperity, Isa 57:13-21.
 
-## Death of the Righteous. (b. c. 706.)
+## Death of the Righteous (706 BC)
 
 > **¹** The righteous perisheth, and no man layeth *it* to heart: and merciful men *are* taken away, none considering that the righteous is taken away from the evil *to come.*  
 > **²** He shall enter into peace: they shall rest in their beds, *each one* walking *in* his uprightness.  
@@ -23,7 +23,7 @@ III\. The happiness of the righteous in their removal.
 
 2\. They go to be easy out of the reach of that evil. The righteous man, who while he lived walked in his uprightness, when he dies *enters into peace* and *rests in his bed.* Note, (1.) Death is gain, and rest, and bliss, to those only who walked in their uprightness, and who, when they die, can appeal to God concerning it, as Hezekiah (2Ki 20:3). *Now, Lord, remember it.* (2.) Those that practised uprightness, and persevered in it to the end, shall find it well with them when they die. Their souls then enter into peace, into the world of peace, where peace is in perfection and where there is no trouble. *Enter thou into the joy of the Lord.* Their bodies rest in their beds. Note, The grave is a bed of rest to all the Lord's people; there they rest from all their labours, Re 14:13. And the more weary they were the more welcome will that rest be to them, Job 3:17. This bed is made in the darkness, but that makes it the more quiet; it is a bed out of which they shall rise refreshed in the morning of the resurrection.
 
-## A Charge against the People. (b. c. 706.)
+## A Charge against the People (706 BC)
 
 > **³** But draw near hither, ye sons of the sorceress, the seed of the adulterer and the whore.  
 > **⁴** Against whom do ye sport yourselves? against whom make ye a wide mouth, *and* draw out the tongue? *are* ye not children of transgression, a seed of falsehood,  
@@ -52,7 +52,7 @@ III\. The aggravations of their sin. 1. They had been tired with disappointments
 
 IV\. Here is God's resolution to call them to an account, though he had long borne with them (Isa 57:12): "*I will declare* (like that, Ps 50:21, *But I will reprove thee), I will declare thy righteousness,* which thou makest thy boast of, and let the world see, and thyself too, to thy confusion, that it is all a sham, all a cheat, it is not what it pretends to be. When thy righteousness comes to be examined it will be found that it was unrighteousness, and that there was no sincerity in all thy pretensions. I will declare *thy works,* what they have been and what the gain thou pretendest to have gotten by them, and it will appear that at long-run *they shall not profit thee,* nor turn to any account." Note, Sinful works, as they are works of darkness, and there is no reason nor righteousness in them, so they are unfruitful works and there is nothing got by them; and, however they look now, it will be made to appear so another day. Sin profits not, nay, it ruins and destroys.
 
-## Vanity of Idols; Divine Greatness and Condescension. (b. c. 706.)
+## Vanity of Idols; Divine Greatness and Condescension (706 BC)
 
 > **¹³** When thou criest, let thy companies deliver thee; but the wind shall carry them all away; vanity shall take *them:* but he that putteth his trust in me shall possess the land, and shall inherit my holy mountain;  
 > **¹⁴** And shall say, Cast ye up, cast ye up, prepare the way, take up the stumbling block out of the way of my people.  
@@ -73,7 +73,7 @@ II\. He shows that there was a sufficiency, an all-sufficiency, in him for the c
 
 (3.) Those with whom he contends, if they trust in him, shall be relieved, and received into favour, Isa 57:16. He will *revive the heart of the contrite ones,* for he will not contend for ever. Nothing makes a soul contrite so much as God's contending, and therefore nothing revives it so much as his ceasing his controversy. Here is, [1.] A gracious promise. It is not promised that he will never be angry with his people, for their sins are displeasing to him, or that he will never contend with them, for they must expect the rod; but he *will not contend for ever,* nor be always wroth. As he is not soon angry, so he is not long angry. He will not always chide. Though he contend with them by convictions of sin, he will not contend for ever; but, instead of the spirit of bondage, they shall receive the Spirit of adoption. He has torn, but he will heal. Though he contend with them by the rebukes of providence, yet the correction shall not last always, shall not last long, shall last no longer than there is need (1Pe 1:6), no longer than they can bear, no longer than till it has done its work. Though their whole life be calamitous, yet their end will be peace, and so will their eternity be. [2.] A very compassionate consideration, upon which this promise is grounded: "If I should contend for ever, *the spirit would fail before me, ever the souls which I have made.*" Note, *First,* God is the Father of spirits, Heb 12:9. Those with whom he will not always contend are the souls that he has made, that he gave being to by creation and a new being to by regeneration. *Secondly,* Though the Lord is for the body, yet he concerns himself chiefly for the souls of his people, that the spirit do not fail, and its graces and comforts. *Thirdly,* When troubles last long, the spirit even of good men is apt to fail. They are tempted to entertain hard thoughts of God, to think it in vain to serve him; they are ready to put comfort away from them, and to despair of relief, and then the spirit fails. *Fourthly,* It is in consideration of this that God will not contend for ever; for he will not forsake the work of his own hands nor defeat the purchase of his Son's blood. The reason is taken not from our merit, but from our weakness and infirmity; for *he remembers that we are flesh* (Ps 78:39) and that flesh is weak.
 
-## The Divine Forbearance and Mercy. (b. c. 706.)
+## The Divine Forbearance and Mercy (706 BC)
 
 > **¹⁷** For the iniquity of his covetousness was I wroth, and smote him: I hid me, and was wroth, and he went on frowardly in the way of his heart.  
 > **¹⁸** I have seen his ways, and will heal him: I will lead him also, and restore comforts unto him and to his mourners.  

@@ -6,7 +6,7 @@ weight: 1
 
 In this chapter we have, I. The general title of this prophecy (Am 1:1), with the general scope of it, Am 1:2. II. God's particular controversy with Syria (Am 1:3-5), with Palestine (Am 1:6-8), with Tyre (Am 1:9), with Edom (Am 1:11), and with Ammon (Am 1:13-15), for their cruelty to his people and the many injuries they had done them. This explains God's pleading with the nations, Joe 3:2.
 
-## Threatenings of Judgment. (b. c. 790.)
+## Threatenings of Judgment (790 BC)
 
 > **¹** The words of Amos, who was among the herdmen of Tekoa, which he saw concerning Israel in the days of Uzziah king of Judah, and in the days of Jeroboam the son of Joash king of Israel, two years before the earthquake.  
 > **²** And he said, The LORD will roar from Zion, and utter his voice from Jerusalem; and the habitations of the shepherds shall mourn, and the top of Carmel shall wither.  
@@ -21,7 +21,7 @@ IV\. The time when these prophecies were delivered. 1. The book is dated, as law
 
 V\. The introduction to these prophecies, containing the general scope of them (Am 1:2): *The Lord will roar from Zion.* His threatenings by his prophets, and the executions of those threatenings in his providence, will be as terrible as the roaring of a lion is to the shepherds and their flocks. Amos here speaks the same language with his contemporaries, Hosea (Ho 11:10) and Joel, Joe 3:16. The lion roars before he tears; God gives warning before he strikes. Observe, 1. Whence this warning comes—*from Zion* and Jerusalem, from the oracles of God there delivered; for *by them is thy servant warned,* Ps 19:11. Our God, whose special residence is there, will issue out warrants, *given at that court,* as it were, for the executing of judgments on the land. See Jer 25:30. In Zion was the mercy-seat; thence the Lord roars, intimating that God's acts of justice are consistent with mercy, allayed and mitigated by mercy, nay, as they are warnings, they are really acts of mercy. We are chastened, that we may be not be condemned. 2. What effect the warning has: *The habitations of the shepherds mourn,* either because they fear the roaring lion or because they feel what is signified by that comparison, the consequences of a *great drought* (Am 4:7), which made *the top of Carmel* (of the most fruitful fields) to *wither* and become a desert, Joe 1:12-17.
 
-## Threatenings of Judgment. (b. c. 790.)
+## Threatenings of Judgment (790 BC)
 
 > **³** Thus saith the LORD; For three transgressions of Damascus, and for four, I will not turn away *the punishment* thereof; because they have threshed Gilead with threshing instruments of iron:  
 > **⁴** But I will send a fire into the house of Hazael, which shall devour the palaces of Benhadad.  
