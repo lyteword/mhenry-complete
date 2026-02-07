@@ -6,7 +6,7 @@ weight: 22
 
 We have here the famous story of Abraham's offering up his son Isaac, that is, his offering to offer him, which is justly looked upon as one of the wonders of the church. Here is, I. The strange command which God gave to Abraham concerning it, Ge 22:1,2. II. Abraham's strange obedience to this command, Ge 22:3-10. III. The strange issue of this trial. 1. The sacrificing of Isaac was countermanded, Ge 22:11,12. 2. Another sacrifice was provided, Ge 22:13,14. 3. The covenant was renewed with Abraham hereupon, Ge 22:15-19. Lastly, an account of some of Abraham's relations, Ge 22:20-24, etc.
 
-## Abraham Commanded to Offer Isaac. (b. c. 1872.)
+## Abraham Commanded to Offer Isaac (1872 BC)
 
 > **¹** And it came to pass after these things, that God did tempt Abraham, and said unto him, Abraham: and he said, Behold, *here* I *am.*  
 > **²** And he said, Take now thy son, thine only *son* Isaac, whom thou lovest, and get thee into the land of Moriah; and offer him there for a burnt offering upon one of the mountains which I will tell thee of.  
@@ -25,7 +25,7 @@ III\. The trial itself. God appeared to him as he had formerly done, called him 
 
 3\. The manner: *Offer him for a burnt-offering.* He must not only kill his son, but kill him as a sacrifice, kill him devoutly, kill him by rule, kill him with all that pomp and ceremony, with all that sedateness and composure of mind, with which he used to offer his burnt-offerings.
 
-## Abraham's Obedience. (b. c. 1872.)
+## Abraham's Obedience (1872 BC)
 
 > **³** And Abraham rose up early in the morning, and saddled his ass, and took two of his young men with him, and Isaac his son, and clave the wood for the burnt offering, and rose up, and went unto the place of which God had told him.  
 > **⁴** Then on the third day Abraham lifted up his eyes, and saw the place afar off.  
@@ -62,7 +62,7 @@ II\. The several steps of obedience, all which help to magnify it, and to show t
 
 8\. With the same resolution and composedness of mind, after many thoughts of heart, he applies himself to the completing of this sacrifice, Ge 22:9,10. He goes on with a holy wilfulness, after many a weary step, and with a heavy heart he arrives at length at the fatal place, builds the altar (an altar of earth, we may suppose, the saddest that ever he built, and he had built many a one), lays the wood in order for his Isaac's funeral pile, and now tells him the amazing news: "Isaac, thou art the lamb which God has provided." Isaac, for aught that appears, is as willing as Abraham; we do not find that he raised any objection against it, that he petitioned for his life, that he attempted to make his escape, much less that he struggled with his aged father, or made any resistance: Abraham does it, God will have it done, and Isaac has learnt to submit to both, Abraham no doubt comforting him with the same hopes with which he himself by faith was comforted. Yet it is necessary that a sacrifice be bound. The great sacrifice, which in the fullness of time was to be offered up, must be bound, and therefore so must Isaac. But with what heart could tender Abraham tie those guiltless hands, which perhaps had often been lifted up to ask his blessing, and stretched out to embrace him, and were now the more straitly bound with the cords of love and duty! However, it must be done. Having bound him, he lays him upon the altar, and his hand upon the head of his sacrifice; and now, we may suppose, with floods of tears, he gives, and takes, the final farewell of a parting kiss: perhaps he takes another for Sarah from her dying son. This being done, he resolutely forgets the bowels of a father, and puts on the awful gravity of a sacrificer. With a fixed heart, and an eye lifted up to heaven, he takes the knife, and stretches out his hand to give a fatal cut to Isaac's throat. Be astonished, O heavens! at this; and wonder, O earth! Here is an act of faith and obedience, which deserves to be a spectacle to God, angels, and men. Abraham's darling, Sarah's laughter, the church's hope, the heir of promise, lies ready to bleed and die by his own father's hand, who never shrinks at the doing of it. Now this obedience of Abraham in offering up Isaac is a lively representation, (1.) Of the love of God to us, in delivering up his only-begotten Son to suffer and die for us, as a sacrifice. It *pleased the Lord* himself to *bruise him.* See Isa 53:10, Zec 13:7. Abraham was obliged, both in duty and gratitude, to part with Isaac, and parted with him to a friend; but God was under no obligations to us, for we were enemies. (2.) Of our duty to God, in return for that love. We must tread in the steps of this faith of Abraham. God, by his word, calls us to part with all for Christ,—all our sins, though they have been as a right hand, or a right eye, or an Isaac—all those things that are competitors and rivals with Christ for the sovereignty of the heart (Lu 14:26); and we must cheerfully let them all go. God, by his providence, which is truly the voice of God, calls us to part with an Isaac sometimes, and we must do it with a cheerful resignation and submission to his holy will, 1Sa 3:18.
 
-## Isaac Rescued. (b. c. 1872.)
+## Isaac Rescued (1872 BC)
 
 > **¹¹** And the angel of the LORD called unto him out of heaven, and said, Abraham, Abraham: and he said, Here *am* I.  
 > **¹²** And he said, Lay not thine hand upon the lad, neither do thou any thing unto him: for now I know that thou fearest God, seeing thou hast not withheld thy son, thine only *son* from me.  
@@ -79,7 +79,7 @@ III\. Another sacrifice is provided instead of Isaac, Ge 22:13. Now that the alt
 
 IV\. A new name is given to the place, to the honour of God, and for the encouragement of all believers, to the end of the world, cheerfully to trust in God in the way of obedience: *Jehovah-jireh, The Lord will provide* (Ge 22:14), probably alluding to what he had said (Ge 22:8), *God will provide himself a lamb.* It was not owing to any contrivance of Abraham, nor was it in answer to his prayer, though he was a distinguished intercessor; but it was purely the Lord's doing. Let it be recorded for the generations to come, 1. That *the Lord will see;* he will always have his eye upon his people in their straits and distresses, that he may come in with seasonable succour in the critical juncture. 2. That he will *be seen,* be seen *in the mount,* in the greatest perplexities of his people. He will not only manifest, but magnify, his wisdom, power, and goodness, in their deliverance. Where God sees and provides, he should be seen and praised. And, perhaps, it may refer to *God manifest in the flesh.*
 
-## Abraham's Blessing Confirmed. (b. c. 1872.)
+## Abraham's Blessing Confirmed (1872 BC)
 
 > **¹⁵** And the angel of the LORD called unto Abraham out of heaven the second time,  
 > **¹⁶** And said, By myself have I sworn, saith the LORD, for because thou hast done this thing, and hast not withheld thy son, thine only *son:*  

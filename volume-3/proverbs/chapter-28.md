@@ -4,7 +4,7 @@ weight: 28
 
 # Chapter 28
 
-## Miscellaneous Maxims.
+## Miscellaneous Maxims
 
 > **¹** The wicked flee when no man pursueth: but the righteous are bold as a lion.  
 

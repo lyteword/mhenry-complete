@@ -6,7 +6,7 @@ weight: 1
 
 In the close of the foregoing book we read how God magnified Solomon and Israel obeyed him; God and Israel concurred to honour him. Now here we have an account, I. How he honoured God by sacrifice (2Ch 1:1-6) and by prayer, 2Ch 1:7-12. II. How he honoured Israel by increasing their strength, wealth, and trade, 2Ch 1:13-17.
 
-## God's Goodness to Solomon. (b. c. 1015.)
+## God's Goodness to Solomon (1015 BC)
 
 > **¹** And Solomon the son of David was strengthened in his kingdom, and the LORD his God *was* with him, and magnified him exceedingly.  
 > **²** Then Solomon spake unto all Israel, to the captains of thousands and of hundreds, and to the judges, and to every governor in all Israel, the chief of the fathers.  

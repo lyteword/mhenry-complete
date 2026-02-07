@@ -6,7 +6,7 @@ weight: 10
 
 Hitherto we have been in the porch or preface to the proverbs, here they begin. They are short but weighty sentences; most of them are distichs, two sentences in one verse, illustrating each other; but it is seldom that there is any coherence between the verses, much less any thread of discourse, and therefore in these chapters we need not attempt to reduce the contents to their proper heads, the several sentences will appear best in their own places. The scope of them all is to set before us good and evil, the blessing and the curse. Many of the proverbs in this chapter relate to the good government of the tongue, without which men's religion is vain.
 
-## Weighty Sayings.
+## Weighty Sayings
 
 > **¹** The proverbs of Solomon. A wise son maketh a glad father: but a foolish son *is* the heaviness of his mother.  
 
@@ -37,7 +37,7 @@ I\. Good men are and ought to be well spoken of when they are gone; it is one of
 
 II\. Bad men are and shall be forgotten, or spoken of with contempt. When their bodies are putrefying in the grave their *names* also *shall rot.* Either they shall not be preserved at all, but buried in oblivion (no good can be said of them, and therefore the greatest kindness that can be done them will be to say nothing of them), or they shall be loathsome, and mentioned with detestation, and that rule of honour, *De mortuis nil nisi bonum*—*Say nothing to the disadvantage of the dead,* will not protect them. Where the wickedness has been notorious, and cannot but be mentioned, it ought to be mentioned with abhorrence.
 
-## Marks of Wisdom and of Folly.
+## Marks of Wisdom and of Folly
 
 > **⁸** The wise in heart will receive commandments: but a prating fool shall fall.  
 
@@ -79,7 +79,7 @@ Solomon here confirms what his father had said (Ps 37:16), *A little that a righ
 
 See here, 1. That those are in the right that do not only receive instruction, but retain it, that do not let it slip through carelessness, as most do, nor let it go to those that would rob them of it, that *keep instruction* safely, keep it pure and entire, keep it for their own use, that they may govern themselves by it, keep it for the benefit of others, that they may instruct them; those that do so are *in the way of life,* the way that has true comfort in it and eternal life at the end of it. 2. That those are in the wrong that do not only not receive instruction, but wilfully and obstinately refuse it when it is offered them. They will not be taught their duty because it discovers their faults to them; that instruction which carries reproof in it they have a particular aversion to, and certainly they err; it is a sign that they err in judgment, and have false notions of good and evil; it is a cause of their erring in conversation. The traveller that has missed his way, and cannot bear to be told of it and shown the right way, must needs err still, err endlessly; he certainly misses *the way of life.*
 
-## The Proper of the Use of the Tongue.
+## The Proper of the Use of the Tongue
 
 > **¹⁸** He that hideth hatred *with* lying lips, and he that uttereth a slander, *is* a fool.  
 
@@ -98,7 +98,7 @@ I\. Good men are good for something. Though they may be poor and low in the worl
 
 II\. Bad men are good for nothing. 1. One can get no good by them: *The heart of the wicked is little worth,* and therefore that which comes out of the abundance of his heart cannot be worth much. His principles, his notions, his thoughts, his purposes, and all the things that fill him, and affect him, are worldly and carnal, and therefore of no value. *He that is of the earth speaks of the earth,* and neither understands nor relishes the things of God, Joh 3:31, 1Co 2:14. The wicked man pretends that, though he does not talk of religion as the just do, yet he has it within him, and thanks God that his heart is good; but he that searches the heart here says the contrary: *It is nothing worth.* 2. One can do no good to them. While many are fed by *the lips of the righteous, fools die for want of wisdom;* and fools indeed they are to die for want of that which they might so easily come by. *Fools die for want of a heart* (so the word is); they perish for want of consideration and resolution; they have no heart to do any thing for their own good. While the righteous feed others fools starve themselves.
 
-## The Advantages of the Righteous.
+## The Advantages of the Righteous
 
 > **²²** The blessing of the LORD, it maketh rich, and he addeth no sorrow with it.  
 
@@ -117,7 +117,7 @@ I\. It shall be as ill with the wicked as they can fear, and as well with the ri
 
 II\. The prosperity of the wicked shall quickly end, but the happiness of the righteous shall never end, Pr 10:25. The wicked make a great noise, hurry themselves and others, like a *whirlwind,* which threatens to bear down all before it; but, like a *whirlwind,* they are presently gone, and they pass irrecoverably; they are *no more;* all about them are quiet and glad when the storm is over, Ps 37:10,36, Job 20:5. *The righteous,* on the contrary, make no show; they lie hid, like a *foundation,* which is low and out of sight, but they are fixed in their resolution to cleave to God, established in virtue, and they shall be an *everlasting foundation,* immovably good. He that is holy shall be holy still and immovably happy; his hope is built on a rock, and therefore not shocked by the storm, Mt 7:24. *The righteous is the pillar of the world* (so some read it); the world stands for their sakes; the holy seed is the substance thereof.
 
-## The Righteous Exclusively Happy.
+## The Righteous Exclusively Happy
 
 > **²⁶** As vinegar to the teeth, and as smoke to the eyes, so *is* the sluggard to them that send him.  
 

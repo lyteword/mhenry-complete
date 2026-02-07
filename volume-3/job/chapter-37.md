@@ -6,7 +6,7 @@ weight: 37
 
 Elihu here goes on to extol the wonderful power of God in the meteors and all the changes of the weather: if, in those changes, we submit to the will of God, take the weather as it is and make the best of it, why should we not do so in other changes of our condition? Here he observes the hand of God, I. In the thunder and lightning, Job 37:1-5. II. In the frost and snow, the rains and wind, Job 37:6-13. III. He applies it to Job, and challenges him to solve the phenomena of these works of nature, that confessing his ignorance in them, he might own himself an incompetent judge in the proceedings of divine Providence, Job 37:14-22. And then, IV. Concludes with his principle, which he undertook to make out, That God is great and greatly to be feared, Job 37:23,24.
 
-## The Address of Elihu. (b. c. 1520.)
+## The Address of Elihu (1520 BC)
 
 > **¹** At this also my heart trembleth, and is moved out of his place.  
 > **²** Hear attentively the noise of his voice, and the sound *that* goeth out of his mouth.  

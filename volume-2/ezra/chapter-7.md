@@ -6,7 +6,7 @@ weight: 7
 
 Ezra's precious name saluted us, at first, in the title of the book, but in the history we have not met with it till this chapter introduces him into public action in another reign, that of Artaxerxes. Zerubbabel and Jeshua we will suppose, by this time, to have grown old, if not gone off; nor do we hear any more of Haggai and Zechariah; they have finished their testimony. What shall become of the cause of God and Israel when these useful instruments are laid aside? Trust God, who has the residue of the Spirit, to raise up others in their room. Ezra here, and Nehemiah in the next book, are as serviceable in their days as those were in theirs. Here is, I. An account, in general, of Ezra himself, and of his expedition to Jerusalem for the public good, Ezr 7:1-10. II. A copy of the commission which Artaxerxes gave him, Ezr 7:11-26. III. His thankfulness to God for it, Ezr 7:27,28. The next chapter will give us a more particular narrative of his associates, his journey, and his arrival at Jerusalem.
 
-## Ezra's Arrival at Jerusalem. (b. c. 457.)
+## Ezra's Arrival at Jerusalem (457 BC)
 
 > **¹** Now after these things, in the reign of Artaxerxes king of Persia, Ezra the son of Seraiah, the son of Azariah, the son of Hilkiah,  
 > **²** The son of Shallum, the son of Zadok, the son of Ahitub,  
@@ -25,7 +25,7 @@ II\. His character. Though of the younger house, his personal qualifications mad
 
 III\. His expedition to Jerusalem for the good of his country: *He went up from Babylon* (Ezr 7:6), and, in four months' time, came to Jerusalem, Ezr 7:8. It was strange that such a man as he staid so long in Babylon after his brethren had gone up; but God sent him not thither till he had work for him to do there; and none went but those *whose spirits God raised* to go up. Some think that this Artaxerxes was the same with that Darius whose decree we had (Ezr 6:1-12), and that Ezra came the very year after the temple was finished: that was the sixth year, this the seventh (Ezr 7:8), so Dr. Lightfoot. My worthy and learned friend, lately deceased, Mr. Talents, in his chronological tables, places it about fifty-seven years after the finishing of the temple; others further on. I have only to observe, 1. How kind the king was to him. He *granted him all his request,* whatever he desired to put him into a capacity to serve his country. 2. How kind his people were to him. When he went many more went with him, because they desired not to stay in Babylon when he had gone thence, and because they would venture to dwell in Jerusalem when he had gone thither. 3. How kind his God was to him. He obtained this favour from his king and country by *the good hand of the Lord that was upon him,* Ezr 7:6,9. Note, Every creature is that to us which God makes it to be, and from him our judgment proceeds. As we must see the events that *shall* occur in the hand of God, so we must see the hand of God in the events that *do* occur, and acknowledge him with thankfulness when we have reason to call it his *good hand.*
 
-## The Decree of Artaxerxes. (b. c. 457.)
+## The Decree of Artaxerxes (457 BC)
 
 > **¹¹** Now this *is* the copy of the letter that the king Artaxerxes gave unto Ezra the priest, the scribe, *even* a scribe of the words of the commandments of the LORD, and of his statutes to Israel.  
 > **¹²** Artaxerxes, king of kings, unto Ezra the priest, a scribe of the law of the God of heaven, perfect *peace,* and at such a time.  
@@ -64,7 +64,7 @@ VI\. He exempts all the ministers of the temple from paying taxes to the governm
 
 VII\. He empowers Ezra to nominate and appoint judges and magistrates for all the Jews on that side the river, Ezr 7:25,26. It was a great favour to the Jews to have such nobles of themselves, and especially to have them of Ezra's nomination. 1. All that *knew the laws of Ezra's God* (that is, all that professed the Jewish religion) were to be under the jurisdiction of these judges, which intimates that they were exempted from the jurisdiction of the heathen magistrates. 2. These judges were allowed and encouraged to make proselytes: Let them *teach the laws of God* to *those that do not know them.* Though he would not turn Jew himself, he cared not how many of his subjects did. 3. They were authorized to enforce the judgments they gave, and the orders they made, conformable to *the law of God* (which was hereby made *the law of the king*), with severe penalties—imprisonment, banishment, fine, or death, according as their law directed. They were not allowed to make new laws, but must see the laws of God duly executed; and they were entrusted with the sword in order that they might be *a terror to evil doers.* What could Jehoshaphat, or Hezekiah, or David himself, as king, have done more for the honour of God and the furtherance of religion?
 
-## Ezra's Thankfulness to God. (b. c. 457.)
+## Ezra's Thankfulness to God (457 BC)
 
 > **²⁷** Blessed *be* the LORD God of our fathers, which hath put *such a thing* as this in the king's heart, to beautify the house of the LORD which *is* in Jerusalem:  
 > **²⁸** And hath extended mercy unto me before the king, and his counsellors, and before all the king's mighty princes. And I was strengthened as the hand of the LORD my God *was* upon me, and I gathered together out of Israel chief men to go up with me.  

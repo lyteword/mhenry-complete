@@ -6,7 +6,7 @@ weight: 15
 
 In this chapter Moses gives orders, I. Concerning the release of debts, every seventh year (De 15:1-6), with a caution that this should be no hindrance to charitable lending, De 15:7-11. II. Concerning the release of servants after seven years' service, De 15:12-18. III. Concerning the sanctification of the firstlings of cattle to God, De 15:19-23, etc.
 
-## The Year of Release. (b. c. 1451.)
+## The Year of Release (1451 BC)
 
 > **¹** At the end of *every* seven years thou shalt make a release.  
 > **²** And this *is* the manner of the release: Every creditor that lendeth *ought* unto his neighbour shall release *it;* he shall not exact *it* of his neighbour, or of his brother; because it is called the LORD's release.  

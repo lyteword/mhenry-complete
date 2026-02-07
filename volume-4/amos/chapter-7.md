@@ -6,7 +6,7 @@ weight: 7
 
 In this chapter we have, I. God contending with Israel, by the judgments, but are reprieved, and the judgments turned away at the prayer of Amos, Am 7:1-6. 2. God's patience is at length worn out by their obstinacy, and they are rejected, and sentenced to utter ruin, Am 7:7-9. II. Israel contending with God, by the opposition given to his prophet. 1. Amaziah informs against Amos (Am 7:10,11) and does what he can to rid the country of him as a public nuisance, Am 7:12,13. 2. Amos justifies himself in what he did as a prophet (Am 7:14,15) and denounces the judgments of God against Amaziah his prosecutor (Am 7:16,17); for, when the contest is between God and man, it is easy to foresee, it is very easy to foretel, who will come off with the worst of it.
 
-## Intercession for Israel; Ruin of Israel Foretold. (b. c. 785.)
+## Intercession for Israel; Ruin of Israel Foretold (785 BC)
 
 > **¹** Thus hath the Lord GOD shewed unto me; and, behold, he formed grasshoppers in the beginning of the shooting up of the latter growth; and, lo, *it was* the latter growth after the king's mowings.  
 > **²** And it came to pass, *that* when they had made an end of eating the grass of the land, then I said, O Lord GOD, forgive, I beseech thee: by whom shall Jacob arise? for he *is* small.  
@@ -38,7 +38,7 @@ II\. We have here the rejection of those at last who had been often reprieved an
 
 2\. The prediction is of utter ruin, Am 7:9. (1.) The body of the people shall be destroyed, with all those things that were their ornament and defence. They are here called *Isaac* as well as *Israel, the house of Isaac* (Am 7:16), some think in allusion to the signification of Isaac's name; it is *laughter;* they shall become a jest among all their neighbours; their neighbours shall *laugh at them.* The desolation shall fasten upon their high places and their *sanctuaries,* either their *castles* or their *temples,* both built on high places. Their castles they thought safe, and their temples sacred as sanctuaries. These shall be *laid waste,* to punish them for their idolatry and to make them ashamed of their carnal confidences, which were the two things for which God had a controversy with them. When these were made desolate they might read their sin and folly in their punishment. (2.) The royal family shall sink first, as an earnest of the ruin of the whole kingdom: *I will rise against the house of Jeroboam,* Jeroboam the second, who was now king of the ten tribes; his family was extirpated in his son Zecharias, who was *slain with the sword before the people,* by Shallum who *conspired against him,* 2Ki 15:10. How unrighteous soever the instruments were, God was righteous, and in them God rose up against that idolatrous family. Even king's houses will be no shelter against the sword of God's wrath.
 
-## Amaziah's Charge against Amos; Amaziah's Doom. (b. c. 785.)
+## Amaziah's Charge against Amos; Amaziah's Doom (785 BC)
 
 > **¹⁰** Then Amaziah the priest of Bethel sent to Jeroboam king of Israel, saying, Amos hath conspired against thee in the midst of the house of Israel: the land is not able to bear all his words.  
 > **¹¹** For thus Amos saith, Jeroboam shall die by the sword, and Israel shall surely be led away captive out of their own land.  

@@ -6,7 +6,7 @@ weight: 19
 
 We have here a further account of the good reign of Jehoshaphat, I. His return in peace to Jerusalem, 2Ch 19:1. II. The reproof given him for his league with Ahab, and his acting in conjunction with him, 2Ch 19:2,3. III. The great care he took thereupon to reform his kingdom, 2Ch 19:4. IV. The instructions he gave to his judges, both those in the country towns that kept the inferior courts (2Ch 19:5-7), and those in Jerusalem that sat in the supreme judicature of the kingdom, 2Ch 19:8-11.
 
-## Jehoshaphat's Piety. (b. c. 897.)
+## Jehoshaphat's Piety (897 BC)
 
 > **¹** And Jehoshaphat the king of Judah returned to his house in peace to Jerusalem.  
 > **²** And Jehu the son of Hanani the seer went out to meet him, and said to king Jehoshaphat, Shouldest thou help the ungodly, and love them that hate the LORD? therefore *is* wrath upon thee from before the LORD.  

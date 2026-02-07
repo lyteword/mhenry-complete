@@ -6,7 +6,7 @@ weight: 12
 
 The salvation promised in the foregoing chapter was compared to that of Israel "in the day that he came up out of the land of Egypt;" so that chapter ends. Now as Moses and the children of Israel then sang a song of praise to the glory of God (Ex 15:1) so shall the people of God do in that day when the root of Jesse shall stand for an ensign of the people and shall be the desire and joy of all nations. In that day, I. Every particular believer shall sing a song of praise for his own interest in that salvation, Isa 12:1,2). "Thou shalt say, Lord, I will praise thee." Thanksgiving-work shall be closet-work. II. Many in concert shall join in praising God for the common benefit arising from this salvation (Isa 12:4-6): "You shall say, Praise you the Lord." Thanksgiving-work shall be congregation-work; and the praises of God shall be publicly sung in the congregations of the upright.
 
-## A Song of Praise. (b. c. 740.)
+## A Song of Praise (740 BC)
 
 > **¹** And in that day thou shalt say, O LORD, I will praise thee: though thou wast angry with me, thine anger is turned away, and thou comfortedst me.  
 > **²** Behold, God *is* my salvation; I will trust, and not be afraid: for the LORD JEHOVAH *is* my strength and *my* song; he also is become my salvation.  
@@ -24,7 +24,7 @@ II\. "Thou shalt have a heart to say so." All God's other gifts to his people sh
 
 3\. They are aught to derive comfort to themselves from the love of God and all the tokens of that love (Isa 12:3): "*Therefore,* because the Lord Jehovah is your strength and song and will be your salvation, *you shall draw water with joy.*" Note, The assurances God has given us of his love, and the experiences we have had of the benefit and comfort of his grace, should greatly encourage our faith in him and our expectations from him: "*Out of the wells of salvation* in God, who is the fountain of all good to his people, *you shall draw water with joy.* God's favour shall flow forth to you, and you shall have the comfort of it and make use of the blessed fruits of it." Note, (1.) God's promises revealed, ratified, and given out to us, in his ordinances, are wells of salvation; wells of *the Saviour* (so some read it), for in them the Saviour and salvation are made known to us and made over to us. (2.) It is our duty by faith to draw water out of these wells, to take to ourselves the benefit and comfort that are treasured up for us in them, as those that acknowledge all our fresh springs to be there and all our fresh streams to be thence, Ps 87:7. (3.) Water is to be drawn out of the wells of salvation with a great deal of pleasure and satisfaction. It is the will of God that we should rejoice before him and rejoice in him (De 26:11), be joyful in his house of prayer (Isa 56:7), and keep his feasts with gladness, Ac 2:46.
 
-## A Song of Praise. (b. c. 740.)
+## A Song of Praise (740 BC)
 
 > **⁴** And in that day shall ye say, Praise the LORD, call upon his name, declare his doings among the people, make mention that his name is exalted.  
 > **⁵** Sing unto the LORD; for he hath done excellent things: this *is* known in all the earth.  

@@ -6,7 +6,7 @@ weight: 22
 
 In the close of the foregoing chapter we had Paul bound, according to Agabus's prophecy of the hard usage he should receive from the Jews at Jerusalem, yet he had his tongue set at liberty, by the permission the chief captain gave him to speak for himself; and so intent he is upon using that liberty of speech which is allowed him, to the honour of Christ and the service of his interest, that he forgets the bonds he is in, makes no mention of them, but speaks of the great things Christ had done for him with as much ease and cheerfulness as if nothing had been done to ruffle him or put him into disorder. We have here, I. His address to the people, and their attention to it, Ac 22:1,2. II. The account he gives of himself. 1. What a bigoted Jew he had been in the beginning of his time, Ac 22:3-5. 2. How he was miraculously converted and brought over to the faith of Christ, Ac 22:6-11. 3. How he was confirmed and baptized by the ministry of Ananias, Ac 22:12-16. 4. How he was afterwards called, by an immediate warrant from heaven, to be the apostle of the Gentiles, Ac 22:17-21. III. The interruption given him upon this by the rabble, who could not bear to hear any thing said in favour of the Gentiles, and the violent passion they flew into upon it, Ac 22:22,23. IV. Paul's second rescue out of the hands of the rabble, and the further course which the chief captain took to find out the true reason of this mighty clamour against Paul, Ac 22:24,25. V. Paul's pleading his privilege as a Roman citizen, by which he was exempted from this barbarous method of inquisition, Ac 22:26-29. VI. The chief captain's removing the cause into the high priest's court, and Paul's appearing there, Ac 22:30.
 
-## Paul's First Defence.
+## Paul's First Defence
 
 > **¹** Men, brethren, and fathers, hear ye my defence *which I make* now unto you.  
 > **²** (And when they heard that he spake in the Hebrew tongue to them, they kept the more silence: and he saith,)  
@@ -19,7 +19,7 @@ II\. What respectful titles he gives even to those who thus abused him, and how 
 
 III\. The language he spoke in, which recommended what he said to the auditory; *He spoke in the Hebrew tongue,* that is, the vulgar language of the Jews, which, at this time, was not the pure Old-Testament Hebrew, but the Syriac, a dialect of the Hebrew, or rather a corruption of it, as the Italian of the Latin. However, 1. It showed his continued respect to his countrymen, the Jews. Though he had conversed so much with the Gentiles, yet he still retained the Jews' language, and could talk it with ease; by this it appears he is a Jew, *for his speech betrayeth him.* 2. What he said was the more generally understood, for that was the language every body spoke, and therefore to speak in that language was indeed to appeal to the people, by which he might have somewhat to insinuate into their affections; and therefore, *when they heard that he spoke in the Hebrew tongue, they kept the more silence.* How can it be thought people should give any attention to that which is spoken to them in a language they do not understand? The chief captain was surprised to hear him speak Greek (Ac 21:37), the Jews were surprised to hear him speak Hebrew, and both therefore think the better of him. But how would they have been surprised if they had enquired, as they ought to have done, and found in what variety of tongues *the Spirit gave him utterance!* 1Co 14:18, *I speak with tongues more than you all.* But the truth is, many wise and good men are therefore slighted only because they are not known.
 
-## Paul's First Defence.
+## Paul's First Defence
 
 > **³** I am verily a man *which am* a Jew, born in Tarsus, *a city* in Cilicia, yet brought up in this city at the feet of Gamaliel, *and* taught according to the perfect manner of the law of the fathers, and was zealous toward God, as ye all are this day.  
 > **⁴** And I persecuted this way unto the death, binding and delivering into prisons both men and women.  
@@ -67,7 +67,7 @@ V\. How he was commissioned to go and preach the gospel to the Gentiles. This wa
 
 Now, if they would lay all this together, surely they would see that they had no reason to be angry with Paul for preaching among the Gentiles, or construe it as an act of ill-will to his own nation, for he was compelled to it, contrary to his own mind, by an overruling command from heaven.
 
-## Paul's First Defence.
+## Paul's First Defence
 
 > **²²** And they gave him audience unto this word, and *then* lifted up their voices, and said, Away with such a *fellow* from the earth: for it is not fit that he should live.  
 > **²³** And as they cried out, and cast off *their* clothes, and threw dust into the air,  

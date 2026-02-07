@@ -6,7 +6,7 @@ weight: 1
 
 In this chapter we have, I. The preface or introduction to the whole epistle, 1Co 1:1-9. II. One principal occasion of writing it hinted, namely, their divisions and the origin of them, 1Co 1:10-13. III. An account of Paul's ministry among them, which was principally preaching the gospel, 1Co 1:14-17. IV. The manner wherein he preached the gospel, and the different success of it, with an account how admirably it was fitted to bring glory to God and beat down the pride and vanity of men, 1Co 1:17-31.
 
-## The Apostle's Salutation. (a. d. 57.)
+## The Apostle's Salutation (57 AD)
 
 > **¹** Paul, called *to be* an apostle of Jesus Christ through the will of God, and Sosthenes *our* brother,  
 > **²** Unto the church of God which is at Corinth, to them that are sanctified in Christ Jesus, called *to be* saints, with all that in every place call upon the name of Jesus Christ our Lord, both theirs and ours:  
@@ -28,7 +28,7 @@ III\. Of the apostle's thanksgiving to God on their behalf. Paul begins most of 
 
 IV\. Of the encouraging hopes the apostle had of them for the time to come, founded on the power and love of Christ, and the faithfulness of God, 1Co 1:8,9. He who had begun a good work in them, and carried it on thus far, would not leave it unfinished. Those that wait for the coming of our Lord Jesus Christ will be kept by him, and confirmed to the end; and those that are so *will be blameless in the day of Christ:* not upon the principle of strict justice, but gracious absolution; not in rigour of law, but from rich and free grace. How desirable is it to be confirmed and kept of Christ for such a purpose as this! How glorious are the hopes of such a privilege, whether for ourselves or others! To be kept by the power of Christ from the power of our own corruption and Satan's temptation, that we may appear without blame in the great day! O glorious expectation, especially when the faithfulness of God comes in to support our hopes! He *who hath called us into the fellowship of his Son is faithful, and will do it,* 1Th 5:24. He who hath brought us into near and dear relation to Christ, into sweet and intimate communion with Christ, is faithful; he may be trusted with our dearest concerns. Those that come at his call shall never be disappointed in their hopes in him. If we approve ourselves faithful to God, we shall never find him unfaithful to us. *He will not suffer his faithfulness to fail,* Ps 89:33.
 
-## Party-Spirit Reproved. (a. d. 57.)
+## Party-Spirit Reproved (57 AD)
 
 > **¹⁰** Now I beseech you, brethren, by the name of our Lord Jesus Christ, that ye all speak the same thing, and *that* there be no divisions among you; but *that* ye be perfectly joined together in the same mind and in the same judgment.  
 > **¹¹** For it hath been declared unto me of you, my brethren, by them *which are of the house* of Chloe, that there are contentions among you.  
@@ -43,7 +43,7 @@ II\. He hints at the origin of these contentions. Pride lay at the bottom, and t
 
 III\. He expostulates with them upon their discord and quarrels: "*Is Christ divided?* No, there is but one Christ, and therefore Christians should be on one heart. *Was Paul crucified for you?* Was he your sacrifice and atonement? Did I ever pretend to be your saviour, or any more than his minister? Or, *were you baptized in the name of Paul?* Were you devoted to my service, or engaged to be my disciples, by that sacred rite? Did I challenge that right in you, or dependence from you, which is the proper claim of your God and Redeemer?" No; ministers, however instrumental they are of good to us, are not to be put in Christ's stead. They are not to usurp Christ's authority, nor encourage any thing in the people that looks like transferring his authority to them. He is our Saviour and sacrifice, he is our Lord and guide. And happy were it for the churches if there were no name of distinction among them, as Christ is not divided.
 
-## Party-Spirit Reproved. (a. d. 57.)
+## Party-Spirit Reproved (57 AD)
 
 > **¹⁴** I thank God that I baptized none of you, but Crispus and Gaius;  
 > **¹⁵** Lest any should say that I had baptized in mine own name.  
@@ -51,7 +51,7 @@ III\. He expostulates with them upon their discord and quarrels: "*Is Christ div
 
 Here the apostle gives an account of his ministry among them. He thanks God he had baptized but a few among them, *Crispus,* who had been a ruler of a synagogue at Corinth (Ac 18:8), *Gaius, and the household of Stephanas,* besides whom, he says, he did not remember that he had baptized any. But how was this a proper matter for thankfulness? Was it not a part of the apostolical commission to baptize all nations? And could Paul give thanks to God for his own neglect of duty? He is not to be understood in such a sense as if he were thankful for not having baptized at all, but for not having done it in present circumstances, lest it should have had this very bad construction put upon it—that he had baptized in his own name, made disciples for himself, or set himself up as the head of a sect. He left it to other ministers to baptize, while he set himself to more useful work, and filled up his time with preaching the gospel. This, he thought, was more his business, because the more important business of the two. He had assistants that could baptize, when none could discharge the other part of his office so well as himself. In this sense he says, *Christ sent him not to baptize, but to preach the gospel*—not so much to baptize as to preach. Note, Ministers should consider themselves sent and set apart more especially to that service in which Christ will be most honoured and the salvation of souls promoted, and for which they are best fitted, though no part of their duty is to be neglected. The principal business Paul did among them was to preach *the gospel* (1Co 1:17), *the cross* (1Co 1:18), *Christ crucified,* 1Co 1:23. Ministers are the soldiers of Christ, and are to erect and display the banner of the cross. He did not preach his own fancy, but the gospel—the glad tidings of peace, and reconciliation to God, through the mediation of a crucified Redeemer. This is the sum and substance of the gospel. Christ crucified is the foundation of all our joys. By his death we live. This is what Paul preached, what all ministers should preach, and what all the saints live upon.
 
-## The Efficacy of the Gospel; The Character of the Gospel. (a. d. 57.)
+## The Efficacy of the Gospel; The Character of the Gospel (57 AD)
 
 > **¹⁷** For Christ sent me not to baptize, but to preach the gospel: not with wisdom of words, lest the cross of Christ should be made of none effect.  
 > **¹⁸** For the preaching of the cross is to them that perish foolishness; but unto us which are saved it is the power of God.  

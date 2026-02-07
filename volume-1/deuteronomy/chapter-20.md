@@ -6,7 +6,7 @@ weight: 20
 
 This chapter settles the militia, and establishes the laws and ordinances of war, I. Relating to the soldiers. 1. Those must be encouraged that were drawn up to battle, De 20:1-4. 2. Those must be dismissed and sent back again whose private affairs called for their attendance at home (De 20:5-7), or whose weakness and timidity unfitted them for service in the field, De 20:8,9. II. Relating to the enemies they made war with. 1. The treaties they must make with the cities that were far off, De 20:10-15. 2. The destruction they must make of the people into whose land they were going, De 20:16-18. 3. The care they must take, in besieging cities, not to destroy the fruit-trees, De 20:19,20.
 
-## Directions Concerning War; Persons Excused from War. (b. c. 1451.)
+## Directions Concerning War; Persons Excused from War (1451 BC)
 
 > **¹** When thou goest out to battle against thine enemies, and seest horses, and chariots, *and* a people more than thou, be not afraid of them: for the LORD thy God *is* with thee, which brought thee up out of the land of Egypt.  
 > **²** And it shall be, when ye are come nigh unto the battle, that the priest shall approach and speak unto the people,  
@@ -34,7 +34,7 @@ II\. Those that were indisposed to fight must be discharged, whether the indispo
 
 III\. It is here ordered that, when all the cowards were dismissed, then captains should be nominated (De 20:9), for it was in a special manner necessary that the leaders and commanders should be men of courage. That reform therefore must be made when the army was first mustered and marshalled. The soldiers of Christ have need of courage, that they may quit themselves like men, and endure hardness like good soldiers, especially the officers of his army.
 
-## Proclamations of War; Directions Concerning War. (b. c. 1451.)
+## Proclamations of War; Directions Concerning War (1451 BC)
 
 > **¹⁰** When thou comest nigh unto a city to fight against it, then proclaim peace unto it.  
 > **¹¹** And it shall be, if it make thee answer of peace, and open unto thee, then it shall be, *that* all the people *that is* found therein shall be tributaries unto thee, and they shall serve thee.  

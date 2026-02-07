@@ -6,7 +6,7 @@ weight: 1
 
 We have here, I. An account of the penman of this epistle, a character of the church, the blessings and privileges of that happy society, Jude 1:1,2. II. The occasion of writing this epistle, Jude 1:3. III. A character of evil and perverse men, who had already sprung up in that infant state of the church, and would be succeeded by others of the like evil spirit and temper in after-times, Jude 1:4. IV. A caution against hearkening to and following after such, from the severity of God towards the unbelieving murmuring Israelites at their coming out of Egypt, the angels that fell, the sin and punishment of Sodom and Gomorrah, Jude 1:5-7. V. To these the apostle likens the seducers against whom he was warning them, and describes them at large, (Jude 1:8-10, inclusive). VI. Then (as specially suitable to his argument) he cites an ancient prophecy of Enoch foretelling and describing the future judgment, Jude 1:14,15. VII. He enlarges on the seducers' character, and guards against the offence which honest minds might be apt to take at the so early permission of such things, by showing that it was foretold long before that so it must be, Jude 1:16-19. VIII. Exhorts them to perseverance in the faith, fervency in prayer, watchfulness against falling from the love of God, and a lively hope of eternal life, Jude 1:20,21. IX. Directs them how to act towards the erroneous and scandalous, Jude 1:22,23. And, X. Closes with an admirable doxology in the Jude 1:24,25.
 
-## Apostolic Benediction. (a. d. 66.)
+## Apostolic Benediction (66 AD)
 
 > **¹** Jude, the servant of Jesus Christ, and brother of James, to them that are sanctified by God the Father, and preserved in Jesus Christ, *and* called:  
 > **²** Mercy unto you, and peace, and love, be multiplied.  
@@ -19,7 +19,7 @@ II\. We are here informed to whom this epistle is directed; namely, to all those
 
 III\. We have the apostolical benediction: *Mercy to you,* etc. From the mercy, peace, and love of God all our comfort flows, all our real enjoyment in this life, all our hope of a better. 1. The *mercy* of God is the spring and fountain of all the good we have or hope for; mercy not only to the miserable, but to the guilty. 2. Next to mercy is *peace,* which we have from the sense of having obtained mercy. We can have no true and lasting peace but what flows from our reconciliation with God by Jesus Christ. 3. As from mercy springs peace, so from peace springs *love,* his love to us, our love to him, and our brotherly love (forgotten, wretchedly neglected, grace!) to one another. These the apostle prays may be multiplied, that Christians may not be content with scraps and narrow scantlings of them; but that souls and societies may be full of them. Note, God is ready to supply us with all grace, and a fulness in each grace. If we are straitened, we are not straitened in him, but in ourselves.
 
-## The Common Salvation; Monuments of Judgment. (a. d. 66.)
+## The Common Salvation; Monuments of Judgment (66 AD)
 
 > **³** Beloved, when I gave all diligence to write unto you of the common salvation, it was needful for me to write unto you, and exhort *you* that ye should earnestly contend for the faith which was once delivered unto the saints.  
 > **⁴** For there are certain men crept in unawares, who were before of old ordained to this condemnation, ungodly men, turning the grace of our God into lasciviousness, and denying the only Lord God, and our Lord Jesus Christ.  
@@ -41,7 +41,7 @@ Now what are these things which we Christians need to be put in remembrance of?
 
 3\. The apostle here calls to our remembrance the destruction of Sodom and Gomorrah, Jude 1:7. *Even as,* etc. It is in allusion to the destruction of *Pentapolis,* or the five cities, that the miseries of the damned are set forth by a lake that burneth with fire and brimstone; they were guilty of abominable wickedness, not to be named or thought of but with the utmost abhorrence and detestation; their ruin is a particular warning to all people to take heed of, and fly *from, fleshly lusts that war against the soul,* 1Pe 2:11. "These lusts consumed the Sodomites with fire from heaven, and they are now *suffering the vengeance of eternal fire;* therefore take heed, imitate not their sins, lest the same plagues overtake you as did them. God is the same holy, just, pure Being now as then; and can the beastly pleasures of a moment make amends for your suffering the vengeance of eternal fire? *Stand in awe, therefore, and sin not,*" Ps 4:4.
 
-## Contumacious Professors. (a. d. 66.)
+## Contumacious Professors (66 AD)
 
 > **⁸** Likewise also these *filthy* dreamers defile the flesh, despise dominion, and speak evil of dignities.  
 > **⁹** Yet Michael the archangel, when contending with the devil he disputed about the body of Moses, durst not bring against him a railing accusation, but said, The Lord rebuke thee.  
@@ -71,7 +71,7 @@ Of the prophecy of Enoch, (Jude 1:14,15) we have no mention made in any other pa
 
 I cannot pass Jude 1:15 without taking notice how often, and how emphatically, the word *ungodly* is repeated in it, no fewer than four times: ungodly men, ungodly sinners, ungodly deeds, and, as to the manner, ungodly committed. Godly or ungodly signifies little with men now-a-days, unless it be to scoff at and deride even the very expressions; but it is not so in the language of the Holy Ghost. Note, Omissions, as well as commissions, must be accounted for in the day of judgment. Note, further, Hard speeches of one another, especially if ill-grounded, will most certainly come into account at *the judgment of the great day.* Let us all take care in time. "If thou," says one of our good old puritans, "smite (a miscalled heretic, or) a schismatic, and God find a real saint bleeding, look thou to it, how thou wilt answer it." It may be too late to say before the angel that it was an error, Ec 5:6. I only here allude to that expression of the divinely inspired writer.
 
-## Exhortation to the Faithful; Conclusion. (a. d. 66.)
+## Exhortation to the Faithful; Conclusion (66 AD)
 
 > **¹⁵** To execute judgment upon all, and to convince all that are ungodly among them of all their ungodly deeds which they have ungodly committed, and of all their hard *speeches* which ungodly sinners have spoken against him.  
 > **¹⁶** These are murmurers, complainers, walking after their own lusts; and their mouth speaketh great swelling *words,* having men's persons in admiration because of advantage.  

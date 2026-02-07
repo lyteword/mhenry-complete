@@ -6,7 +6,7 @@ weight: 15
 
 In this chapter we have laws concerning other ceremonial uncleannesses contracted either by bodily disease like that of the leper, or some natural incidents, and this either, I. In men, Le 15:1-18. Or, II. In women, Le 15:19-33. We need not be at all curious in explaining these antiquated laws, it is enough if we observe the general intention; but we have need to be very cautious lest sin take occasion by the commandment to become more exceedingly sinful; and exceedingly sinful it is when lust is kindled by sparks of fire from God's altar. The case is bad with the soul when it is putrefied by that which should purify it.
 
-## Ceremonial Purification. (b. c. 1490.)
+## Ceremonial Purification (1490 BC)
 
 > **¹** And the LORD spake unto Moses and to Aaron, saying,  
 > **²** Speak unto the children of Israel, and say unto them, When any man hath a running issue out of his flesh, *because of* his issue he *is* unclean.  

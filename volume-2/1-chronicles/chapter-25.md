@@ -6,7 +6,7 @@ weight: 25
 
 David, having settled the courses of these Levites that were to attend the priests in their ministrations, proceeds, in this chapter, to put those into a method that were appointed to be singers and musicians in the temple. Here is, I. The persons that were to be employed, Asaph, Heman, and Jeduthun (1Ch 25:1), their sons (1Ch 25:2-6), and other skilful persons, 1Ch 25:7. II. The order in which they were to attend determined by lot, 1Ch 25:8-31.
 
-## The Courses of the Singers. (b. c. 1015.)
+## The Courses of the Singers (1015 BC)
 
 > **¹** Moreover David and the captains of the host separated to the service of the sons of Asaph, and of Heman, and of Jeduthun, who should prophesy with harps, with psalteries, and with cymbals: and the number of the workmen according to their service was:  
 > **²** Of the sons of Asaph; Zaccur, and Joseph, and Nethaniah, and Asarelah, the sons of Asaph under the hands of Asaph, which prophesied according to the order of the king.  

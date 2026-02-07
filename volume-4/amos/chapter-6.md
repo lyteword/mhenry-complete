@@ -6,7 +6,7 @@ weight: 6
 
 In this chapter we have, I. A sinful people studying to put a slight upon God's threatenings and to make them appear trivial, confiding in their privileges and pre-eminences above other nations (Am 6:2,3), and their power (Am 6:13), and wholly addicted to their pleasures, Am 6:4-6. II. A serious prophet studying to put a weight upon God's threatenings and to make them appear terrible, by setting forth the severity of those judgments that were coming upon these sensualists (Am 6:7), God's abhorring them, and abandoning them and theirs to death (Am 6:8-11), and bringing utter desolation upon them, since they would not be wrought upon by the methods he had taken for their conviction, Am 6:12-14.
 
-## The Danger of False Security. (b. c. 790.)
+## The Danger of False Security (790 BC)
 
 > **¹** Woe to them *that are* at ease in Zion, and trust in the mountain of Samaria, *which are* named chief of the nations, to whom the house of Israel came!  
 > **²** Pass ye unto Calneh, and see; and from thence go ye to Hamath the great: then go down to Gath of the Philistines: *be they* better than these kingdoms? or their border greater than your border?  
@@ -30,7 +30,7 @@ I\. Here is a description of their pride, security, and sensuality, for which Go
 
 II\. Here is the doom passed upon them (Am 6:7): *Therefore now shall they go captive with the first that go captive,* and shall fall into all the miseries that attend captives; and the *banquet of those* that *stretched themselves* upon their couches *shall be removed.* Their plenty shall be taken from them, and they from it, because they made it the food and fuel of their lusts. 1. Those who lived in luxury shall lose even their liberty; and by being brought into servitude shall be justly punished for the abuse of their dignity and dominion. 2. Those who trusted in the delights and pleasures of their own land shall be carried away into a strange land, and so made ashamed of their pride and confidence; they shall *go captive.* 3. Those who placed their happiness in the pleasures of sense, and set their hearts upon them, shall be deprived of those pleasures; their banquet shall be removed, and they shall know what it is to fare hard. 4. Those who *stretched themselves* shall be made to contract themselves, and to come into a less compass. 5. Those who *put the evil day far from them* shall find it nearer to them than it is to others; *those shall go captive with the first* who flattered themselves with hopes that if trouble did come they should be the last who should be seized by it. Those are ripening apace for trouble themselves who lay not to heart the trouble of others and of the church of God. Those who give themselves to mirth, when God calls them to mourning, will find it a sin that shall not go unpunished, Isa 22:14.
 
-## Threatenings of Judgment. (b. c. 790.)
+## Threatenings of Judgment (790 BC)
 
 > **⁸** The Lord GOD hath sworn by himself, saith the LORD the God of hosts, I abhor the excellency of Jacob, and hate his palaces: therefore will I deliver up the city with all that is therein.  
 > **⁹** And it shall come to pass, if there remain ten men in one house, that they shall die.  

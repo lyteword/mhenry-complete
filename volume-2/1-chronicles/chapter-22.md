@@ -6,7 +6,7 @@ weight: 22
 
 "Out of the eater comes forth meat." It was upon occasion of the terrible judgment inflicted on Israel for the sin of David that God gave intimation of the setting up of another altar, and of the place where he would have the temple to be built, upon which David was excited with great vigour to make preparation for that great work, wherein, though he had long since designed it, it should seem, he had, of late, grown remiss, till awakened by the alarm of that judgment. The tokens of God's favour he received after those of his displeasure, I. Directed him to the place, 1Ch 22:1. II. Encouraged and quickened him to the work. 1. He set himself to prepare for the building, 1Ch 22:2-5. 2. He instructed Solomon, and gave him a charge concerning this work, 1Ch 22:6-16. 3. He commanded the princes to assist him in it, 1Ch 22:17-19. There is a great deal of difference between the frame of David's spirit in the beginning of the former chapter and in the beginning of this. There, in the pride of his heart, he was numbering the people; here, in his humility, preparing for the service of God. There corruption was uppermost (but the well of living water in the soul, though it may be muddied, will work itself clear again); grace here has recovered the upper hand.
 
-## Preparations for the Temple. (b. c. 1017.)
+## Preparations for the Temple (1017 BC)
 
 > **¹** Then David said, This *is* the house of the LORD God, and this *is* the altar of the burnt offering for Israel.  
 > **²** And David commanded to gather together the strangers that *were* in the land of Israel; and he set masons to hew wrought stones to build the house of God.  
@@ -22,7 +22,7 @@ II\. Preparation made for that building. David must not build it, but he would d
 
 2\. What preparation he made. In general, he prepared abundantly, as we shall find afterwards; cedar and stones, iron and brass, are here specified, 1Ch 22:2-4. Cedar he had from the Tyrians and the Zidonians. *The daughter of Tyre shall be there with a gift,* Ps 45:12. He also got workmen together, *the strangers that were in the land of Israel.* Some think that he employed them because they were generally better artists, and more ingenious in manual operations, than the Israelites; or, rather, because he would not employ the free-born Israelites in any thing that looked mean and servile. They were delivered from the bondage of making bricks in Egypt, and must not return to hew stone. These strangers were proselytes to the Jewish religion, but, though not enslaved, they were not of equal dignity with Israelites.
 
-## The Charge to Solomon. (b. c. 1015.)
+## The Charge to Solomon (1015 BC)
 
 > **⁶** Then he called for Solomon his son, and charged him to build a house for the LORD God of Israel.  
 > **⁷** And David said to Solomon, My son, as for me, it was in my mind to build a house unto the name of the LORD my God:  
@@ -52,7 +52,7 @@ VI\. He quickens him not to rest in the preparations he had made, but to add the
 
 VII\. He prays for him: *The Lord give thee wisdom and understanding, and give thee charge concerning Israel,* 1Ch 22:12. Whatever charge we have, if we see God giving us the charge and calling us to it, we may hope he will give us wisdom for the discharge of it. Perhaps Solomon had an eye to this prayer of his father for him, in the prayer he offered for himself: Lord, *give me a wise and understanding heart.* He concludes (1Ch 22:16), *Up, and be doing, and the Lord be with thee.* Hope of God's presence must not slacken our endeavours. Though the Lord be with us, we must *rise and be doing,* and, if we do this, we have reason to believe he is and will be with us. Work out your salvation, and God will work in you.
 
-## The Charge to the Princes of Israel. (b. c. 1015.)
+## The Charge to the Princes of Israel (1015 BC)
 
 > **¹⁷** David also commanded all the princes of Israel to help Solomon his son, *saying,*  
 > **¹⁸** *Is* not the LORD your God with you? and hath he *not* given you rest on every side? for he hath given the inhabitants of the land into mine hand; and the land is subdued before the LORD, and before his people.  

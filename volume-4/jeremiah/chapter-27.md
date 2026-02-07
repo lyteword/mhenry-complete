@@ -6,7 +6,7 @@ weight: 27
 
 Jeremiah the prophet, since he cannot persuade people to submit to God's precept, and so to prevent the destruction of their country by the king of Babylon, is here persuading them to submit to God's providence, by yielding tamely to the king of Babylon, and becoming tributaries to him, which was the wisest course they could now take, and would be a mitigation of the calamity, and prevent the laying of their country waste by fire and sword; the sacrificing of their liberties would be the saving of their lives. I. He gives this counsel, in God's name, to the kings of the neighbouring nations, that they might make the best of bad, assuring them that there was no remedy, but they must serve the king of Babylon; and yet in time there should be relief, for his dominion should last but 70 years, Jer 27:1-11. II. He gives this counsel to Zedekiah king of Judah particularly (Jer 27:12-15) and to the priests and people, assuring them that the king of Babylon should still proceed against them till things were brought to the last extremity, and a patient submission would be the only way to mitigate the calamity and make it easy, Jer 27:16-22. Thus the prophet, if they would but have hearkened to him, would have directed them in the paths of true policy as well as of true piety.
 
-## Nebuchadnezzar's Victories Predicted. (b. c. 597.)
+## Nebuchadnezzar's Victories Predicted (597 BC)
 
 > **¹** In the beginning of the reign of Jehoiakim the son of Josiah king of Judah came this word unto Jeremiah from the LORD, saying,  
 > **²** Thus saith the LORD to me; Make thee bonds and yokes, and put them upon thy neck,  
@@ -28,7 +28,7 @@ II\. He is to send this, with a sermon annexed to it, to all the neighbouring pr
 
 Many might have prevented destroying providences by humbling themselves under humbling providences. It is better to take up a lighter cross in our way than to pull a heavier on our own head.
 
-## Jeremiah's Counsel to Zedekiah; Submission to Nebuchadnezzar Urged. (b. c. 597.)
+## Jeremiah's Counsel to Zedekiah; Submission to Nebuchadnezzar Urged (597 BC)
 
 > **¹²** I spake also to Zedekiah king of Judah according to all these words, saying, Bring your necks under the yoke of the king of Babylon, and serve him and his people, and live.  
 > **¹³** Why will ye die, thou and thy people, by the sword, by the famine, and by the pestilence, as the LORD hath spoken against the nation that will not serve the king of Babylon?  

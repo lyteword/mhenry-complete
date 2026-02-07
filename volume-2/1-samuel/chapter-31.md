@@ -6,7 +6,7 @@ weight: 31
 
 In the foregoing chapter we had David conquering, yea, more than a conqueror. In this chapter we have Saul conquered and worse than a captive. Providence ordered it that both these things should be doing just at the same time. The very same day; perhaps, that David was triumphing over the Amalekites, were the Philistines triumphing over Saul. One is set over against the other, that men may see what comes of trusting in God and what comes of forsaking him. We left Saul ready to engage the Philistines, with a shaking hand and an aching heart, having had his doom read him from hell, which he would not regard when it was read him from heaven. Let us now see what becomes of him. Here is, I. His army routed, 1Sa 31:1. II. His three sons slain, 1Sa 31:2. III. Himself wounded (1Sa 31:3), and slain by his own hand, 1Sa 31:4. The death of his armour-bearer (1Sa 31:5) and all his men, 1Sa 31:6. IV. His country possessed by the Philistines, 1Sa 31:7. His camp plundered, and his dead body deserted, 1Sa 31:8. His fall triumphed in, 1Sa 31:9. His body publicly exposed (1Sa 31:10) and with difficulty rescued by the men of Jabesh-Gilead, 1Sa 31:11-13. Thus fell the man that was rejected of God.
 
-## The Death of Saul. (b. c. 1055.)
+## The Death of Saul (1055 BC)
 
 > **¹** Now the Philistines fought against Israel: and the men of Israel fled from before the Philistines, and fell down slain in mount Gilboa.  
 > **²** And the Philistines followed hard upon Saul and upon his sons; and the Philistines slew Jonathan, and Abinadab, and Melchi-shua, Saul's sons.  
@@ -28,7 +28,7 @@ IV\. His armour-bearer who refused to kill him refused not to die with him, but 
 
 V\. The country was put into such confusion by the rout of Saul's army that the inhabitants of the neighbouring cities (*on that side Jordan,* as it might be read) quitted them, and the Philistines, for a time, had possession of them, till things were settled in Israel (1Sa 31:7), to such a sad pass had Saul by his wickedness brought his country, which might have remained in the hands of the uncircumcised if David had not been raised up to repair the breaches of it. See what a king he proved for whom they rejected God and Samuel. They had still done wickedly (it is to be feared) as well as he, and therefore *were consumed both they and their king,* as the prophet had foretold concerning them, 1Sa 12:25. And to this reference is had long after. Ho 13:10,11, "*Where are thy saviours in all thy cities, of whom thou saidst, Give me a king and princes? I gave thee a king in my anger, and took him away in my wrath;* that is, he was a plague to thee living and dying; thou couldst expect no other."
 
-## The Disposal of Saul's Body. (b. c. 1055.)
+## The Disposal of Saul's Body (1055 BC)
 
 > **⁸** And it came to pass on the morrow, when the Philistines came to strip the slain, that they found Saul and his three sons fallen in mount Gilboa.  
 > **⁹** And they cut off his head, and stripped off his armour, and sent into the land of the Philistines round about, to publish *it in* the house of their idols, and among the people.  

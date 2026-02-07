@@ -6,7 +6,7 @@ weight: 1
 
 In this chapter we have, I. The preface or introduction to the epistle, showing from and to whom it was written, with the apostle's salutation and prayer for Titus, wishing all blessings to him, Tit 1:1-4. II. Entrance into the matter, by signifying the end of Titus's being left at Crete, Tit 1:5. III. And how the same should be pursued in reference both to good and bad ministers, Tit 1:6-16.
 
-## Introduction; The Apostle's Charge to Titus. (a. d. 66.)
+## Introduction; The Apostle's Charge to Titus (66 AD)
 
 > **¹** Paul, a servant of God, and an apostle of Jesus Christ, according to the faith of God's elect, and the acknowledging of the truth which is after godliness;  
 > **²** In hope of eternal life, which God, that cannot lie, promised before the world began;  
@@ -23,7 +23,7 @@ III\. The salutation and prayer, wishing all blessings to him: *Grace, mercy, an
 
 Thus far is the preface to the epistle; then follows the entrance into the matter, by signifying the end of Titus's being left in Crete.
 
-## Ordination of Elders. (a. d. 66.)
+## Ordination of Elders (66 AD)
 
 > **⁵** For this cause left I thee in Crete, that thou shouldest set in order the things that are wanting, and ordain elders in every city, as I had appointed thee:  
 
@@ -35,7 +35,7 @@ II\. In special: *To ordain elders in every city,* that is, ministers, who were 
 
 III\. The rule of his proceeding: *As I had appointed thee,* probably when he was going from him, and in the presence and hearing of others, to which he may now refer, not so much for Titus's own sake as for the people's, that they might the more readily yield obedience to Titus, knowing and observing that in what he did he was warranted and supported by apostolic injunction and authority. As under the law all things were to be made according to the pattern shown to Moses in the mount; so under the gospel all must be ordered and managed according to the direction of Christ, and of his chief ministers, who were infallibly guided by him. Human traditions and inventions may not be brought into the church of God. Prudent disposals for carrying on the ends of Christ's appointments, according to the general rules of the word, there may, yea, must be; but none may alter any thing in the substance of the faith or worship, or order and discipline, of the churches. If an evangelist might not do any thing but by appointment, much less may others. The church is the house of God, and to him it belongs to appoint the officers and orders of it, as he pleases: the *as* here refers to the qualifications and character of the elders that he was to ordain: "*Ordain elders in every city, as I appointed thee,* such as I then described and shall now again more particularly point out to thee," which he does from the Tit 1:6-9 inclusive.
 
-## The Qualifications of a Bishop; The Necessity of Sharp Reproof. (a. d. 66.)
+## The Qualifications of a Bishop; The Necessity of Sharp Reproof (66 AD)
 
 > **⁶** If any be blameless, the husband of one wife, having faithful children not accused of riot or unruly.  
 > **⁷** For a bishop must be blameless, as the steward of God; not selfwilled, not soon angry, not given to wine, no striker, not given to filthy lucre;  

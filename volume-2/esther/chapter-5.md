@@ -6,7 +6,7 @@ weight: 5
 
 The last news we had of Haman left him in his cups, Es 3:15. Our last news of queen Esther left her in tears, fasting and praying. Now this chapter brings in, I. Esther in her joys, smiled upon by the king and honoured with his company at her banquet of wine, Es 5:1-8. II. Haman upon the fret, because he had not Mordecai's cap and knee, and with great indignation setting up a gallows for him, Es 5:9-14. Thus those that sow in tears shall reap in joy, but the triumphing of the wicked is short.
 
-## Esther's Approach to the King. (b. c. 510.)
+## Esther's Approach to the King (510 BC)
 
 > **¹** Now it came to pass on the third day, that Esther put on *her* royal *apparel,* and stood in the inner court of the king's house, over against the king's house: and the king sat upon his royal throne in the royal house, over against the gate of the house.  
 > **²** And it was so, when the king saw Esther the queen standing in the court, *that* she obtained favour in his sight: and the king held out to Esther the golden sceptre that *was* in his hand. So Esther drew near, and touched the top of the sceptre.  
@@ -31,7 +31,7 @@ II\. The favourable reception which the king gave her. When he *saw her* she *ob
 
 5\. That then Esther thought fit to ask no more than a promise that he would please to accept of another treat, the next day, in her apartment, and Haman with him (Es 5:7,8), intimating to him that then she would let him know what her business was. This adjourning of the main petition may be attributed, (1.) To Esther's prudence; thus she hoped yet further to win upon him and ingratiate herself with him. Perhaps her heart failed her now when she was going to make her request, and she desired to take some further time for prayer, that God would give her *a mouth and wisdom.* The putting of it off thus, it is likely, she knew would be well taken as an expression of the great reverence she had for the king, and her unwillingness to be too pressing upon him. What is hastily asked is often as hastily denied; but what is asked with a pause deserves to be considered. (2.) To God's providence putting it into Esther's heart to delay her petition a day longer, she knew not why, but God did, that what was to happen in the night intervening between this and to-morrow might further her design and make way for her success, that Haman might arrive at the highest pitch of malice against Mordecai and might begin to *fall before him.* The Jews perhaps blamed Ester as dilatory, and some of them began to suspect her sincerity, or at least her zeal; but the event disproved their jealousy, and all was for the best.
 
-## Haman's Joy and Chagrin; Haman's Mediated Revenge. (b. c. 510.)
+## Haman's Joy and Chagrin; Haman's Mediated Revenge (510 BC)
 
 > **⁹** Then went Haman forth that day joyful and with a glad heart: but when Haman saw Mordecai in the king's gate, that he stood not up, nor moved for him, he was full of indignation against Mordecai.  
 > **¹⁰** Nevertheless Haman refrained himself: and when he came home, he sent and called for his friends, and Zeresh his wife.  

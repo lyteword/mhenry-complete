@@ -6,7 +6,7 @@ weight: 26
 
 Moses here receives instructions, I. Concerning the inner curtains of the tent or tabernacle, and the coupling of those curtains, Ex 26:1-6. II. Concerning the outer curtains which were of goats' hair, to strengthen the former, Ex 26:7-13. III. Concerning the case or cover which was to secure it from the weather, Ex 26:14. IV. Concerning the boards which were to be reared up to support the curtains, with their bars and sockets, Ex 26:15-30. V. The partition between the holy place and the most holy, Ex 26:31-35. VI. The veil for the door, Ex 26:36,37. These particulars, thus largely recorded, seem of little use to us now; yet, having been of great use to Moses and Israel, and God having thought fit to preserve down to us the remembrance of them, we ought not to overlook them. Even the antiquity renders this account venerable.
 
-## The Tabernacle and Its Furniture. (b. c. 1491.)
+## The Tabernacle and Its Furniture (1491 BC)
 
 > **¹** Moreover thou shalt make the tabernacle *with* ten curtains *of* fine twined linen, and blue, and purple, and scarlet: *with* cherubims of cunning work shalt thou make them.  
 > **²** The length of one curtain *shall be* eight and twenty cubits, and the breadth of one curtain four cubits: and every one of the curtains shall have one measure.  

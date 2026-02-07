@@ -4,7 +4,7 @@ weight: 11
 
 # Chapter 11
 
-## Weighty Sayings.
+## Weighty Sayings
 
 > **¹** A false balance *is* abomination to the LORD: but a just weight *is* his delight.  
 
@@ -14,7 +14,7 @@ As religion towards God is a branch of universal righteousness (he is not an hon
 
 Observe, 1. How he that exalts himself is here abased, and contempt put upon him. *When pride comes then comes shame.* Pride is a sin which men have reason to be themselves ashamed of; it is a shame to a man who springs out of the earth, who lives upon alms, depends upon God, and has forfeited all he has, to be proud. It is a sin which others cry out shame on and look upon with disdain; he that is haughty makes himself contemptible; it is a sin for which God often brings men down, as he did Nebuchadnezzar and Herod, whose ignominy immediately attended their vain-glory; for God *resists the proud,* contradicts them, and counterworks them, in the thing they are proud of, Isa 2:11, etc. 2. How he that humbles himself is here exalted, and a high character is given him. As with the proud there is folly, and will be shame, so *with the lowly there is wisdom,* and will be honour, for a man's wisdom gains him respect and makes his face to shine before men; or, if any be so base as to trample upon the humble, God will give them grace which will be their glory. Considering how safe, and quiet, and easy, those are that are of a humble spirit, what communion they have with God and comfort in themselves, we will say, *With the lowly is wisdom.*
 
-## Advantages of the Righteous.
+## Advantages of the Righteous
 
 > **³** The integrity of the upright shall guide them: but the perverseness of transgressors shall destroy them.  
 
@@ -41,7 +41,7 @@ Note, 1. Even wicked men, while they live, may keep up a confident expectation o
 
 As always in death, so sometimes in life, the righteous are remarkably favoured and the wicked crossed. 1. Good people are helped out of the distresses which they thought themselves lost in, and their feet are set in a large room, Ps 66:12,34:19. God has found out a way to deliver his people even when they have despaired and their enemies have triumphed, as if the wilderness had shut them in. 2. The wicked have fallen into the distresses which they thought themselves far from, nay, which they had been instrumental to bring the righteous into, so that they seem to come in their stead, as a ransom for the just. Mordecai is saved from the gallows, Daniel from the lion's den, and Peter from the prison; and their persecutors *come in their stead.* The Israelites are delivered out of the Red Sea and the Egyptians drowned in it. So precious are the saints in God's eye that he *gives men for them,* Isa 43:3,4.
 
-## Common Truths.
+## Common Truths
 
 > **⁹** An hypocrite with *his* mouth destroyeth his neighbour: but through knowledge shall the just be delivered.  
 
@@ -67,7 +67,7 @@ II\. This prudent friendly concealment is here opposed to two very bad vices of 
 
 Here is, 1. The bad omen of a kingdom's ruin: *Where no counsel is,* no consultation at all, but every thing done rashly, or no prudent consultation for the common good, but only caballing for parties and divided interests, *the people fall,* crumble into factions, fall to pieces, fall together by the ears, and fall an easy prey to their common enemies. Councils of war are necessary to the operations of war; two eyes see more than one; and mutual advice is in order to mutual assistance. 2. The good presage of a kingdom's prosperity: *In the multitude of counsellors,* that see their need one of another, and act in concert and with concern for the public welfare, *there is safety;* for what prudent methods one discerns not another may. In our private affairs we shall often find it to our advantage to advise with many; if they agree in their advice, our way will be the more clear; if they differ, we shall hear what is to be said on all sides, and be the better able to determine.
 
-## The Rewards of Righteousness.
+## The Rewards of Righteousness
 
 > **¹⁵** He that is surety for a stranger shall smart *for it:* and he that hateth suretiship is sure.  
 
@@ -89,7 +89,7 @@ Note, 1. Sinners put a most fatal cheat upon themselves: *The wicked works a dec
 
 It is here shown that righteousness, not only by the divine judgment, will end in life, and wickedness in death, but that righteousness, in its own nature, has a direct tendency to life and wickedness to death. 1. True holiness is true happiness; it is a preparative for it, a pledge and earnest of it. *Righteousness* inclines, disposes, and leads, the soul *to life.* 2. In like manner, those that indulge themselves in sin are fitting themselves for destruction. The more violent a man is in sinful pursuits the more eagerly bent he is upon his own destruction; he awakens it when it seemed to slumber and hastens it when it seemed to linger.
 
-## Weighty Sayings.
+## Weighty Sayings
 
 > **²⁰** They that are of a froward heart *are* abomination to the LORD: but *such as are* upright in *their* way *are* his delight.  
 
@@ -107,7 +107,7 @@ By *discretion* here we must understand *religion* and *grace,* a true taste and
 
 This tells us what *the desire* and *expectation of the righteous* and *of the wicked* are and how they will prove, what they would have and what they shall have. 1. *The righteous* would have *good, only good;* all they desire is that it may go well with all about them; they wish no hurt to any, but happiness to all; as to themselves, their desire is not to gratify any evil lust, but to obtain the favour of a good God and to preserve the peace of a good conscience; and good they shall have, that good which they desire, Ps 37:4. 2. *The wicked* would have *wrath;* they desire the woeful day, that God's judgments may gratify their passion and revenge, may remove those that stand in their way, and that they may make an advantage to themselves by fishing in troubled waters; and wrath they shall have, so shall their doom be. They expect and desire mischief to others, but it shall return upon themselves; as they loved cursing, they shall have enough of it.
 
-## The Praise of Liberality.
+## The Praise of Liberality
 
 > **²⁴** There is that scattereth, and yet increaseth; and *there is* that withholdeth more than is meet, but *it tendeth* to poverty.  
 
@@ -121,7 +121,7 @@ So backward we are to works of charity, and so ready to think that giving undoes
 
 See here, 1. What use we are to make of the gifts of God's bounty; we must not hoard them up merely for our own advantage, that we may be enriched by them, but we must bring them forth for the benefit of others, that they may be supported and maintained by them. It is a sin, when corn is dear and scarce, to withhold it, in hopes that it will still grow dearer, so to keep up and advance the market, when it is already so high that the poor suffer by it; and at such a time it is the duty of those that have stocks of corn by them to consider the poor, and to be willing to sell at the market-price, to be content with moderate profit, and not aim to make a gain of God's judgments. It is a noble and extensive piece of charity for those that have stores wherewithal to do it to help to keep the markets low when the price of our commodities grows excessive. 2. What regard we are to have to the voice of the people. We are not to think it an indifferent thing, and not worth heeding, whether we have the ill will and word, or the good will and word, of our neighbours, their prayers or their curses; for here we are taught to dread their curses, and forego our own profit rather than incur them; and to court their blessings, and be at some expense to purchase them. Sometimes, *vox populi est vox Dei*—*the voice of the people is the voice of God.*
 
-## The Folly and Misery of Sinners.
+## The Folly and Misery of Sinners
 
 > **²⁷** He that diligently seeketh good procureth favour: but he that seeketh mischief, it shall come unto him.  
 

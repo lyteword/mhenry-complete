@@ -6,7 +6,7 @@ weight: 3
 
 The apostle here reproves ambition, and an arrogant magisterial tongue; and shows the duty and advantage of bridling it because of its power to do mischief. Those who profess religion ought especially to govern their tongues, Jam 3:1-12. True wisdom makes men meek, and avoiders of strife and envy: and hereby it may easily be distinguished from a wisdom that is earthly and hypocritical, Jam 3:13-18.
 
-## Government of the Tongue. (a. d. 61.)
+## Government of the Tongue (61 AD)
 
 > **¹** My brethren, be not many masters, knowing that we shall receive the greater condemnation.  
 > **²** For in many things we offend all. If any man offend not in word, the same *is* a perfect man, *and* able also to bridle the whole body.  
@@ -33,7 +33,7 @@ IV\. We are next taught how very difficult a thing it is to govern the tongue: *
 
 V\. We are taught to think of the use we make of our tongues in religion and in the service of God, and by such a consideration to keep it from cursing, censuring, and every thing that is evil on other occasions: *Therewith bless we God, even the Father; and therewith curse we men, who are made after the similitude of God. Out of the same mouth proceed blessing and cursing. My brethren, these things ought not so to be,* Jam 3:9,10. How absurd is it that those who use their tongues in prayer and praise should ever use them in cursing, slandering, and the like! If we bless God as our Father, it should teach us to speak well of, and kindly to, all who bear his image. That tongue which addresses with reverence the divine Being cannot, without the greatest inconsistency, turn upon fellow-creatures with reviling brawling language. It is said of the seraphim that praise God, they *dare not bring a railing accusation.* And for men to reproach those who have not only the image of God in their natural faculties, but are renewed after the image of God by the grace of the gospel: this is a most shameful contradiction to all their pretensions of honouring the great Original. *These things ought not so to be;* and, if such considerations were always at hand, surely they would not be. Piety is disgraced in all the shows of it, if there be not charity. That tongue confutes itself which one while pretends to adore the perfections of God, and to refer all things to him, and another while will condemn even good men if they do not just come up to the same words or expressions used by it. Further, to fix this thought, the apostle shows that contrary effects from the same causes are monstrous, and not be found in nature, and therefore cannot be consistent with grace: *Doth a fountain send forth at the same place sweet water and bitter? Can the fig-tree bear olive-berries, or a vine, figs? Or doth the same spring yield both salt water and fresh?* Jam 3:11,12. True religion will not admit of contradictions; and a truly religious man can never allow of them either in his words or his actions. How many sins would this prevent, and recover men from, to put them upon being always consistent with themselves!
 
-## Properties of Wisdom. (a. d. 61.)
+## Properties of Wisdom (61 AD)
 
 > **¹³** Who *is* a wise man and endued with knowledge among you? let him show out of a good conversation his works with meekness of wisdom.  
 > **¹⁴** But if ye have bitter envying and strife in your hearts, glory not, and lie not against the truth.  

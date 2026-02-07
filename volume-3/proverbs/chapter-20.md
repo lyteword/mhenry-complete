@@ -4,7 +4,7 @@ weight: 20
 
 # Chapter 20
 
-## Miscellaneous Maxims.
+## Miscellaneous Maxims
 
 > **¹** Wine *is* a mocker, strong drink *is* raging: and whosoever is deceived thereby is not wise.  
 

@@ -6,7 +6,7 @@ weight: 4
 
 Exhortations to several Christian duties, as stedfastness, unanimity, joy, etc., Php 4:1-9. The apostle's grateful acknowledgments of the Philippians' kindness to him, with expressions of his own content, and desire of their good, Php 4:10-19. He concludes the epistle with praise, salutations, and blessing, Php 4:20-23.
 
-## Various Exhortations. (a. d. 62.)
+## Various Exhortations (62 AD)
 
 > **¹** Therefore, my brethren dearly beloved and longed for, my joy and crown, so stand fast in the Lord, *my* dearly beloved.  
 > **²** I beseech Euodias, and beseech Syntyche, that they be of the same mind in the Lord.  
@@ -40,7 +40,7 @@ VII\. We are exhorted to get and keep a good name, a name for good things with G
 
 In these things he proposes himself to them for an example (Php 4:9): *Those things which you have learned, and received, and heard and seen in me, do.* Observe, Paul's doctrine and life were of a piece. What they saw in him was the same thing with what they heard from him. He could propose himself as well as his doctrine to their imitation. It gives a great force to what we say to others when we can appeal to what they have seen in us. And this is the way to have the *God of peace with us*—to keep close to our duty to him. The *Lord is with us while we are with him.*
 
-## Kindness Acknowledged; Christian Contentment. (a. d. 62.)
+## Kindness Acknowledged; Christian Contentment (62 AD)
 
 > **¹⁰** But I rejoiced in the Lord greatly, that now at the last your care of me hath flourished again; wherein ye were also careful, but ye lacked opportunity.  
 > **¹¹** Not that I speak in respect of want: for I have learned, in whatsoever state I am, *therewith* to be content.  
@@ -65,7 +65,7 @@ IV\. He takes care to obviate the bad use some might make of his taking so much 
 
 V\. The apostle assures them that God did accept, and would recompense, their kindness to him. 1. He did accept it: *It is an odour of a sweet smell, a sacrifice acceptable, well-pleasing to God.* Not a sacrifice of atonement, for none makes atonement for sin but Christ; but a sacrifice of acknowledgment, and *well-pleasing to God.* It was more acceptable to God as it was the fruit of their grace than it was to Paul as it was the supply of his want. *With such sacrifices God is well pleased,* Heb 13:16. 2. He would recompense it: *But my God shall supply all your wants according to his riches in glory by Christ Jesus,* Php 4:19. He does as it were draw a bill upon the exchequer in heaven, and leaves it to God to make them amends for the kindness they had shown him. "He shall do it, not only as your God, but as my God, who takes what is done to me as done to himself. You supplied my needs, according to your poverty; and he shall supply yours, according to his riches." But still it is by Christ Jesus; through him we have grace to do that which is good, and through him we must expect the reward of it. Not of debt, but of grace; for the more we do for God the more we are indebted to him, because we receive the more from him.
 
-## Conclusion. (a. d. 62.)
+## Conclusion (62 AD)
 
 > **²⁰** Now unto God and our Father *be* glory for ever and ever. Amen.  
 > **²¹** Salute every saint in Christ Jesus. The brethren which are with me greet you.  

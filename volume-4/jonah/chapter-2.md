@@ -6,7 +6,7 @@ weight: 2
 
 We left Jonah in the belly of the fish, and had reason to think we should hear no more of him, that if he were not destroyed by the waters of the sea he would be consumed in the bowels of that leviathan, "out of whose mouth go burning lamps, and sparks of fire, and whose breath kindles coals," Job 41:19,21. But God brings his people through fire, and through water (Ps 66:12); and by his power, behold, Jonah the prophet is yet alive, and is heard of again. In this chapter God hears from him, for we find him praying; in the next Nineveh hears from him, for we find him preaching. In his prayer we have, I. The great distress and danger he was in, Jon 2:2,3,5,6. II. The despair he was thereby almost reduced to, Jon 2:4. III. The encouragement he took to himself, in this deplorable condition, Jon 2:4,7. IV. The assurance he had of God's favour to him, Jon 2:6,7. V. The warning and instruction he gives to others, Jon 2:8. VI. The praise and glory of all given to God, Jon 2:9. In the Jon 2:10 we have Jonah's deliverance out of the belly of the fish, and his coming safe and sound upon dry land again.
 
-## Jonah's Prayer; The Prophet in the Fish's Belly. (b. c. 840.)
+## Jonah's Prayer; The Prophet in the Fish's Belly (840 BC)
 
 > **¹** Then Jonah prayed unto the LORD his God out of the fish's belly,  
 > **²** And said, I cried by reason of mine affliction unto the LORD, and he heard me; out of the belly of hell cried I, *and* thou heardest my voice.  
@@ -42,7 +42,7 @@ IV\. What his prayer was. He afterwards recollected the substance of it, and lef
 
 7\. He concludes with an acknowledgment of God as the Saviour of his people: *Salvation is of the Lord;* it *belongs to the Lord,* Ps 3:8. He is the *God of salvation,* Ps 68:19,20. He only can work salvation, and he can do it be the danger and distress ever so great; he has promised salvation to his people that trust in him. All the salvations of his church in general, and of particular saints, were wrought by him; he is the *Saviour of those that believe,* 1Ti 4:10. Salvation is still of him, as it has always been; from him alone it is to be expected, and on him we are to depend for it. Jonah's experience shall encourage others, in all ages, to trust in God as the God of their salvation; all that read this story shall say with assurance, say with admiration, that *salvation is of the Lord,* and is sure to all that belongs to him.
 
-## Jonah's Deliverance. (b. c. 840.)
+## Jonah's Deliverance (840 BC)
 
 > **¹⁰** And the LORD spake unto the fish, and it vomited out Jonah upon the dry *land.*  
 

@@ -6,7 +6,7 @@ weight: 14
 
 In this chapter we have, I. David's kingdom established, 1Ch 14:1,2. II. His family built up, 1Ch 14:3-7. III. His enemies, the Philistines, routed in two campaigns, 1Ch 14:8-17. This is repeated here from 2Sa 5:11-25, etc.
 
-## David's Kingdom Established. (b. c. 1045.)
+## David's Kingdom Established (1045 BC)
 
 > **¹** Now Hiram king of Tyre sent messengers to David, and timber of cedars, with masons and carpenters, to build him a house.  
 > **²** And David perceived that the LORD had confirmed him king over Israel, for his kingdom was lifted up on high, because of his people Israel.  
@@ -18,7 +18,7 @@ In this chapter we have, I. David's kingdom established, 1Ch 14:1,2. II. His fam
 
 We may observe here, 1. There is no man that has such a sufficiency in himself but he has need of his neighbours and has reason to be thankful for their help: David had a very large kingdom, Hiram a very little one; yet David could not build himself a house to his mind unless Hiram furnished him with both workmen and materials, 1Ch 14:1. This is a reason why we should despise none, but, as we have opportunity, be obliging to all. 2. It is a great satisfaction to a wise man to be settled, and to a good man to see the special providences of God in his settlement. The people had made David king; but he could not be easy, nor think himself happy, till he perceived that *the Lord had confirmed him king over Israel,* 1Ch 14:2. "Who shall unfix me if God hath fixed me?" 3. We must look upon all our advancements as designed for our usefulness. *David's kingdom was lifted up on high,* not for his own sake, that he might look great, but *because of his people Israel,* that he might be a guide and protector to them. We are blessed in order that we may be blessings. See Ge 12:2. We are not born, nor do we live, for ourselves. 4. It is difficult to thrive without growing secure and indulgent to the flesh. It was David's infirmity that when he settled in his kingdom *he took more wives* (1Ch 14:3), yet the numerous issue he had added to his honour and strength. Lo, *children are a heritage of the Lord.* We had an account of David's children, not only in Samuel, but in this book (1Ch 3:1-9, etc.) and now here again; for it was their honour to have such a father.
 
-## The Defeat of the Philistines. (b. c. 1045.)
+## The Defeat of the Philistines (1045 BC)
 
 > **⁸** And when the Philistines heard that David was anointed king over all Israel, all the Philistines went up to seek David. And David heard *of it,* and went out against them.  
 > **⁹** And the Philistines came and spread themselves in the valley of Rephaim.  

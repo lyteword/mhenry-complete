@@ -6,7 +6,7 @@ weight: 17
 
 In this chapter we have, I. Christ in his pomp and glory transfigured, Mt 17:1-3. II. Christ in his power and grace, casting the devil out of a child, Mt 17:14-21. And, III. Christ in his poverty and great humiliation, 1. Foretelling his own sufferings, Mt 17:22,23. 2. Paying tribute, Mt 17:24-27. So that here is Christ, the Brightness of his Father's glory, by himself purging our sins, paying our debts, and destroying for us him that had the power of death, that is, the devil. Thus were the several indications of Christ's gracious intentions admirable interwoven.
 
-## The Transfiguration of Christ.
+## The Transfiguration of Christ
 
 > **¹** And after six days Jesus taketh Peter, James, and John his brother, and bringeth them up into a high mountain apart,  
 > **²** And was transfigured before them: and his face did shine as the sun, and his raiment was white as the light.  
@@ -118,7 +118,7 @@ Because they knew him not, *they have done to him whatsoever they listed;* if th
 
 (4.) The disciples' satisfaction in Christ's reply to their objection (Mt 17:13); *They understood that he spake unto them of John the Baptist.* He did not name John, but gives them such a description of him as would put them in mind of what he had said to them formerly concerning him; *This is Elias.* This is a profitable way of teaching; it engages the learners' own thoughts, and makes them, if not their own teachers, yet their own remembrancers; and thus knowledge becomes easy to him that understands. When we diligently use the means of knowledge, how strangely are mists scattered and mistakes rectified!
 
-## The Expulsion of a Demon.
+## The Expulsion of a Demon
 
 > **¹⁴** And when they were come to the multitude, there came to him a *certain* man, kneeling down to him, and saying,  
 > **¹⁵** Lord, have mercy on my son: for he is lunatic, and sore vexed: for ofttimes he falleth into the fire, and oft into the water.  
@@ -167,7 +167,7 @@ If ye have ever so little of this faith in sincerity, if ye truly rely upon the 
 
 (2.) Because there was something in the kind of the malady, which rendered the cure more than ordinarily difficult (Mt 17:21); "*This kind goes not out but by prayer and fasting.* This possession, which works by a falling-sickness, or this kind of devils that are thus furious, is not cast out ordinarily but by great acts of devotion, and wherein ye were defective." Note, [1.] Though the adversaries we wrestle, be all principalities and powers, yet some are stronger than others, and their power more hardly broken. [2.] The extraordinary power of Satan must not discourage our faith, but quicken us to a greater intenseness in the acting of it, and more earnestness in praying to God for the increase of it; so some understand it here; "This kind of faith (which removeth mountains) doth not proceed, is not obtained, from God, nor is it carried up to its full growth, nor drawn out into act and exercise, but by earnest prayer." [3.] Fasting and prayer are proper means for the bringing down of Satan's power against us, and the fetching in of divine power to our assistance. Fasting is of use to put an edge upon prayer; it is an evidence and instance of humiliation which is necessary in prayer, and is a means of mortifying some corrupt habits, and of disposing the body to serve the soul in prayer. When the devil's interest in the soul is confirmed by the temper and constitution of the body, fasting must be joined with prayer, to keep under the body.
 
-## Christ's Sufferings Foretold.
+## Christ's Sufferings Foretold
 
 > **²²** And while they abode in Galilee, Jesus said unto them, The Son of man shall be betrayed into the hands of men:  
 > **²³** And they shall kill him, and the third day he shall be raised again. And they were exceeding sorry.  
@@ -184,7 +184,7 @@ Christ here foretels his own sufferings; he began to do it before (Mt 16:21); an
 
 2\. How the disciples received this; *They were exceedingly sorry.* Herein appeared their love to their Master's person, but with all their ignorance and mistake concerning his undertaking. Peter indeed durst not say any thing against it, as he had done before (Mt 16:22), having then been severely chidden for it; but he, and the rest of them, greatly lamented it, as it would be their own loss, their Master's grief, and the sin and ruin of them that did it.
 
-## Our Lord's Payment of Tribute.
+## Our Lord's Payment of Tribute
 
 > **²⁴** And when they were come to Capernaum, they that received tribute *money* came to Peter, and said, Doth not your master pay tribute?  
 > **²⁵** He saith, Yes. And when he was come into the house, Jesus prevented him, saying, What thinkest thou, Simon? of whom do the kings of the earth take custom or tribute? of their own children, or of strangers?  

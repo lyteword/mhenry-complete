@@ -6,7 +6,7 @@ weight: 1
 
 The apostle here salutes an honourable matron and her children, 2Jo 1:1-3. Recommends to them faith and love, 2Jo 1:5,6. Warns them of deceivers (2Jo 1:7), and to take heed to themselves, 2Jo 1:8. Teaches how to treat those who bring not the doctrine of Christ, 2Jo 1:10,11. And, referring other things to personal discourse, concludes the epistle, 2Jo 1:12,13.
 
-## Salutation. (a. d. 90.)
+## Salutation (90 AD)
 
 > **¹** The elder unto the elect lady and her children, whom I love in the truth; and not I only, but also all they that have known the truth;  
 > **²** For the truth's sake, which dwelleth in us, and shall be with us for ever.  
@@ -27,7 +27,7 @@ III\. The salutation, which is indeed an apostolical benediction: *Grace be with
 
 IV\. The congratulation upon the prospect of the exemplary behaviour of other children of this excellent lady. Happy parent, who was blessed with such a numerous religious offspring! *I rejoiced greatly that I found of thy children walking in the truth, as we have received commandment from the Father,* 2Jo 1:4. Possibly the lady's sons travelled abroad, either for accomplishment and acquaintance with the world, or on the account of their own business or the common affairs of the family, and in their travels might come to Ephesus, where the apostle is supposed to have now resided, and might there happily converse with him. See how good it is to be trained up to early religion! Though religion is not to be founded upon education, yet education may be and often is blessed, and is the way to fortify youth against irreligious infection. Hence too let young travellers learn to carry their religion along with them, and not either leave it at home or learn the ill customs of the countries where they come. It may be observed, also, that sometimes election runs in a direct line; here we have an *elect lady, and her elect children;* children may be beloved for their parents' sake, but both by virtue of free grace. From the apostle's joy herein we may observe that it is pleasant to see children treading in good parent's steps; and those who see this may well congratulate their parents thereupon, and that both to excite their thankfulness to God for, and to enlarge their comfort in, so great a blessing. How happy a lady was this, who had brought forth so many children for heaven and for God! And how great a joy must it be to her ladyship to hear so good an account of them from so good a judge! And we may further see that it is joyful to good old ministers, and accordingly to other good old disciples, to see a hopeful rising generation, who may serve God and support religion in the world when they are dead and gone. We see here also the rule of true walking: *the commandment of the Father.* Then is our walk true, our converse right, when it is managed by the word of God.
 
-## Christian Love. (a. d. 90.)
+## Christian Love (90 AD)
 
 > **⁵** And now I beseech thee, lady, not as though I wrote a new commandment unto thee, but that which we had from the beginning, that we love one another.  
 > **⁶** And this is love, that we walk after his commandments. This is the commandment, That, as ye have heard from the beginning, ye should walk in it.  
@@ -42,7 +42,7 @@ II\. The thing requested of *the lady and her children*—Christian sacred love:
 
 2\. Then this love is illustrated from the fruitful nature of it: *And this is love, that we walk after his commandments,* 2Jo 1:5. This is the test of our love to God, our obedience to him. This is love to ourselves, to our own souls, that we walk in obedience to divine commands. *In keeping them there is great reward.* This is love to one another, to engage one another to walk in holiness; and this is the evidence of our sincere, mutual, Christian love—that we (in other things) walk after God's commands. There may be mutual love that is not religious and Christian; but we know ours to be so, by our attendance to all other commands besides that of mutual love. Universal obedience is the proof of the goodness and sincerity of Christian virtues; and those that aim at all Christian obedience will be sure to attend to Christian love. This is a fundamental duty in the gospel-charter: *This is the commandment, that, as you have heard from the beginning, you should walk in it* (2Jo 1:6), that is, walk in this love. The foresight of the decay of this love, as well as of other apostasy, might engage the apostle to inculcate this duty, and this primordial command, the more frequently, the more earnestly.
 
-## Deceivers Condemned. (a. d. 90.)
+## Deceivers Condemned (90 AD)
 
 > **⁷** For many deceivers are entered into the world, who confess not that Jesus Christ is come in the flesh. This is a deceiver and an antichrist.  
 > **⁸** Look to yourselves, that we lose not those things which we have wrought, but that we receive a full reward.  
@@ -56,7 +56,7 @@ II\. The counsel given to this elect household hereupon. Now care and caution ar
 
 III\. The reason of the apostle's counsel, and of their care and caution about themselves, which is twofold:— 1. The danger and evil of departure from gospel light and revelation; it is in effect and reality a departure from God himself: *Whosoever transgresseth* (transgresseth at this dismal rate), *and abideth not in the doctrine of Christ, hath not God.* It is the doctrine of Christ that is appointed to guide us to God; it is that whereby God draws souls to salvation and to himself. Those who revolt thence, in so doing revolt from God. 2. The advantage and happiness of firm adherence to Christian truth; it unites us to Christ (the object or subject-matter of that truth), and thereby to the Father also; for they are one. *He that abideth* (rooted and grounded) *in the doctrine of Christ, he hath both the Father and the Son.* By the doctrine of Christ we are enlightened in the knowledge of the Father and the Son; by it we are sanctified for the Father and the Son; thereupon we are enriched with holy love to the Father and the Son; and thereby prepared for the endless enjoyment of the Father and the Son. *Now you are clean through the word which I have spoken to you,* Joh 15:3. This purity makes meet for heaven. The great God, as he has set his seal to the doctrine of Christ, so he puts a value upon it. We must retain that holy doctrine in faith and love, as we hope or desire to arrive at blessed communion with the Father and the Son.
 
-## Caution against Seducers. (a. d. 90.)
+## Caution against Seducers (90 AD)
 
 > **¹⁰** If there come any unto you, and bring not this doctrine, receive him not into *your* house, neither bid him God speed:  
 > **¹¹** For he that biddeth him God speed is partaker of his evil deeds.  
@@ -65,7 +65,7 @@ Here, I. Upon due warning given concerning seducers, the apostle gives direction
 
 II\. Here is the reason of such direction, forbidding the support and patronage of the deceiver: *For he that biddeth him God speed is partaker of his evil deeds.* Favour and affection partake of the sin. We may be sharers in the iniquities of others. How judicious and how cautious should the Christian be! There are many ways of sharing the guilt of other people's transgressions; it may be done by culpable silence, indolence, unconcernedness, private contribution, public countenance and assistance, inward approbation, open apology and defence. The Lord pardon our guilt of other persons' sins!
 
-## Conclusion and Salutation. (a. d. 90.)
+## Conclusion and Salutation (90 AD)
 
 > **¹²** Having many things to write unto you, I would not *write* with paper and ink: but I trust to come unto you, and speak face to face, that our joy may be full.  
 > **¹³** The children of thy elect sister greet thee. Amen.  

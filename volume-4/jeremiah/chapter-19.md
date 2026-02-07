@@ -6,7 +6,7 @@ weight: 19
 
 The same melancholy theme is the subject of this chapter that was of those foregoing—the approaching ruin of Judah and Jerusalem for their sins. This Jeremiah had often foretold; here he has particularly full orders to foretel it again. I. He must set their sins in order before them, as he had often done, especially their idolatry, Jer 19:4,5. II. He must describe the particular judgments which were now coming apace upon them for these sins, Jer 19:6-9. III. He must do this in the valley of Tophet, with great solemnity, and for some particular reasons, Jer 19:2,3. IV. He must summon a company of the elders together to be witnesses of this, Jer 19:1. V. He must confirm this, and endeavour to affect his hearers with it, by a sign, which was the breaking of an earthen bottle, signifying that they should be dashed to pieces like a potter's vessel, Jer 19:10-13. VI. When he had done this in the valley of Tophet he ratified it in the court of the temple, Jer 19:14,15. Thus were all likely means tried to awaken this stupid senseless people to repentance, that their ruin might be prevented; but all in vain.
 
-## The Desolation of Jerusalem. (b. c. 600.)
+## The Desolation of Jerusalem (600 BC)
 
 > **¹** Thus saith the LORD, Go and get a potter's earthen bottle, and *take* of the ancients of the people, and of the ancients of the priests;  
 > **²** And go forth unto the valley of the son of Hinnom, which *is* by the entry of the east gate, and proclaim there the words that I shall tell thee,  
@@ -32,7 +32,7 @@ V\. He must endeavour to affect them with the greatness of the desolation that w
 
 VI\. He must assure them that all their attempts to prevent and avoid this ruin, so long as they continued impenitent and unreformed, would be fruitless and vain (Jer 19:7): *I will make void the counsel of Judah and Jerusalem* (of the princes and senators of Judah and Jerusalem) *in this place,* in the royal palace, which lay on the south side of the city, not far from the place where the prophet now stood. Note, There is no fleeing from God's justice but by fleeing to his mercy. Those that will not make good God's counsel, by humbling themselves under his mighty hand, shall find that God will make void their counsel and blast their projects, which they think ever so well concerted for their own preservation. There is *no counsel* or strength *against the Lord.*
 
-## The Desolation of Jerusalem. (b. c. 600.)
+## The Desolation of Jerusalem (600 BC)
 
 > **¹⁰** Then shalt thou break the bottle in the sight of the men that go with thee,  
 > **¹¹** And shalt say unto them, Thus saith the LORD of hosts; Even so will I break this people and this city, as *one* breaketh a potter's vessel, that cannot be made whole again: and they shall bury *them* in Tophet, till *there be* no place to bury.  

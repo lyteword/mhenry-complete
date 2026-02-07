@@ -6,7 +6,7 @@ weight: 20
 
 It is the will of God that prayers, intercessions, and thanksgivings, should be made, in special manner, for kings and all in authority. This psalm is a prayer, and the next a thanksgiving, for the king. David was a martial prince, much in war. Either this psalm was penned upon occasion of some particular expedition of his, or, in general, as a form to be used in the daily service of the church for him. In this psalm we may observe, I. What it is they beg of God for the king, Ps 20:1-4. II. With what assurance they beg it. The people triumph (Ps 20:5), the prince (Ps 20:6), both together (Ps 20:7,8), and so he concludes with a prayer to God for audience, Ps 20:9. In this, David may well be looked upon as a type of Christ, to whose kingdom and its interests among men the church was, in every age, a hearty well-wisher.
 
-## Petitions against Sin.
+## Petitions against Sin
 
 To the chief musician. A psalm of David.
 
@@ -34,7 +34,7 @@ II\. What confidence they had of an answer of peace to these petitions for thems
 
 In singing this we ought to offer up to God our hearty good wishes to the good government we are under and to the prosperity of it. But we may look further; these prayers for David are prophecies concerning Christ the Son of David, and in him they were abundantly answered; he undertook the work of our redemption, and made war upon the powers of darkness. In the day of trouble, when his soul was exceedingly sorrowful, the Lord heard him, heard him in that he feared (Heb 5:7), *sent him help out of the sanctuary,* sent an angel from heaven to strengthen him, took cognizance of his offering when he made his soul an offering for sin, and accepted his burnt-sacrifice, turned it to ashes, the fire that should have fastened upon the sinner fastening upon the sacrifice, with which God was well pleased. And he granted him according to his own heart, made him to see of the travail of his soul, to his satisfaction, prospered his good pleasure in his hand, fulfilled all his petitions for himself and us; for him the Father heareth always and his intercession is ever prevailing.
 
-## The Subject's Prayer for the Sovereign.
+## The Subject's Prayer for the Sovereign
 
 > **⁶** Now know I that the LORD saveth his anointed; he will hear him from his holy heaven with the saving strength of his right hand.  
 > **⁷** Some *trust* in chariots, and some in horses: but we will remember the name of the LORD our God.  

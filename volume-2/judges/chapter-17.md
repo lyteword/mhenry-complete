@@ -6,7 +6,7 @@ weight: 17
 
 All agree that what is related in this and the rest of the chapters to the end of this book was not done, as the narrative occurs, after Samson, but long before, even soon after the death of Joshua, in the days of Phinehas the son of Eleazar, Jdg 20:28. But it is cast here into the latter part of the book that it might not interrupt the history of the Judges. That it might appear how happy the nation was in the judges it is here shown how unhappy they were when there was none. I. Then idolatry began in the family of Micah, Jdg 17:1-13. II. Then it spread itself into the tribe of Dan, Jdg 18:1-31. III. Then villany was committed in Gibeah of Benjamin, Jdg 19:1-30. IV. Then that whole tribe was destroyed for countenancing it, Jdg 20:1-48. V. Then strange expedients were adopted to keep up that tribe, Jdg 21:1-25. Therefore blessed be God for the government we are under! In this chapter we are told how Micah an Ephraimite furnished himself, 1. With an image for his god, Jdg 17:1-6. 2. With a Levite, such a one as he was, for his priest, Jdg 17:7-13.
 
-## Micah and His Gods. (b. c. 1406.)
+## Micah and His Gods (1406 BC)
 
 > **¹** And there was a man of mount Ephraim, whose name *was* Micah.  
 > **²** And he said unto his mother, The eleven hundred *shekels* of silver that were taken from thee, about which thou cursedst, and spakest of also in mine ears, behold, the silver *is* with me; I took it. And his mother said, Blessed *be thou* of the LORD, my son.  

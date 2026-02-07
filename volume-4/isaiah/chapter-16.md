@@ -6,7 +6,7 @@ weight: 16
 
 This chapter continues and concludes the burden of Moab. In it, I. The prophet gives good counsel to the Moabites, to reform what was amiss among them, and particularly to be kind to God's people, as the likeliest way to prevent the judgments before threatened, Isa 16:1-5. II. Fearing they would not take this counsel (they were so proud), he goes on to foretel the lamentable devastation of their country, and the confusion they should be brought to, and this within three years, Isa 16:6-14.
 
-## Exhortations to Moab. (b. c. 725.)
+## Exhortations to Moab (725 BC)
 
 > **¹** Send ye the lamb to the ruler of the land from Sela to the wilderness, unto the mount of the daughter of Zion.  
 > **²** For it shall be, *that,* as a wandering bird cast out of the nest, *so* the daughters of Moab shall be at the fords of Arnon.  
@@ -26,7 +26,7 @@ II\. He advises them to be *kind to the seed of Israel* (Isa 16:3): "Take counse
 
 3\. He assures them of the mercy God had in store for his people. (1.) That they should not long need their kindness, or be troublesome to them: *For the extortioner is almost at an end* already, *and the spoiler ceases.* God's people shall not be long outcasts; they *shall have tribulation ten days* (Re 2:10), and that is all. The spoiler would never cease spoiling if he might have his will; but God has him in a chain. *Hitherto he shall go, but no further.* (2.) That they should, ere long, be in a capacity to return their kindness (Isa 16:5): "Though the throne of the ten tribes be sunk and overturned, yet *the throne of David shall be established in mercy,* by the mercy they receive from God and the mercy they show to others; and by the same methods may your throne be established if you please." It would engage great men to be kind to the people of God if they would but observe, as they easily might, how often such conduct brings the blessing of God upon kingdoms and families. "Make Hezekiah your friend, for you will find it your interest to do so upon the account both of the grace of God in him and the presence of God with him. He *shall sit upon the throne in truth,* and then he does indeed sit in honour and sit firmly. Then he shall sit *judging,* and will then be a protector to those that have been a shelter to the people of God." And see in him the character of a good magistrate. [1.] He shall *seek judgment;* that is, he shall seek occasions of doing right to those that are wronged, and shall punish the injurious even before they are complained of: or he shall diligently search into every cause brought before him, that he may find where the right lies. [2.] He shall *hasten righteousness,* and not delay to do justice, nor keep those long waiting that make application to him for the redress of their grievances. Though he seeks judgment, and deliberates upon it, yet he does not, under pretence of deliberation, stay the progress of the streams of justice. Let the Moabites take example by this, and then assure themselves that their state shall be established.
 
-## The Pride of Moab; The Threatening against Moab; The Doom of Moab. (b. c. 725.)
+## The Pride of Moab; The Threatening against Moab; The Doom of Moab (725 BC)
 
 > **⁶** We have heard of the pride of Moab; *he is* very proud: *even* of his haughtiness, and his pride, and his wrath: *but* his lies *shall* not *be* so.  
 > **⁷** Therefore shall Moab howl for Moab, every one shall howl: for the foundations of Kir-hareseth shall ye mourn; surely *they are* stricken.  

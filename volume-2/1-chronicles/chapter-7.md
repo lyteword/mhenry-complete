@@ -6,7 +6,7 @@ weight: 7
 
 In this chapter we have some account of the genealogies, I. Of Issachar, 1Ch 7:1-5. II. Of Benjamin, 1Ch 7:6-12. III. Of Naphtali, 1Ch 7:13. IV. Of Manasseh, 1Ch 7:14-19. V. Of Ephraim, 1Ch 7:20-29. VI. Of Asher, 1Ch 7:30-40. Here is no account either of Zebulun or Dan. Why they only should be omitted we can assign no reason; only it is the disgrace of the tribe of Dan that idolatry began in that colony of the Danites which fixed in Laish, and called Dan, and there one of the golden calves was set up by Jeroboam. Dan is omitted, Re 7:4-8
 
-## Genealogies. (b. c. 1689.)
+## Genealogies (1689 BC)
 
 > **¹** Now the sons of Issachar *were,* Tola, and Puah, Jashub, and Shimron, four.  
 > **²** And the sons of Tola; Uzzi, and Rephaiah, and Jeriel, and Jahmai, and Jibsam, and Shemuel, heads of their father's house, *to wit,* of Tola: *they were* valiant men of might in their generations; whose number *was* in the days of David two and twenty thousand and six hundred.  
@@ -38,7 +38,7 @@ III\. Of the tribe of Naphtali, 1Ch 7:13. The first fathers only of that tribe a
 
 IV\. Of the tribe of Manasseh, that part of it which was seated within Jordan; for of the other part we had some account before, 1Ch 5:23-26, etc. Of this tribe observe, 1. That one of them married an Aramitess, that is, a Syrian, 1Ch 7:14. This was during their bondage in Egypt, so early did they begin to mingle with the nations. 2. That, though the father married a Syrian, Machir, the son of that marriage, perhaps seeing the inconvenience of it in his father's house, took to wife a daughter of Benjamin, 1Ch 7:15. It is good for the children to take warning by their father's mistakes and not stumble at the same stone. 3. Here is mention of Bedan (1Ch 7:17), who perhaps is the same with that Bedan who is mentioned as one of Israel's deliverers, 1Sa 12:11. Jair perhaps, who was of Manasseh (Jdg 10:3), was the man.
 
-## Genealogies. (b. c. 1630.)
+## Genealogies (1630 BC)
 
 > **²⁰** And the sons of Ephraim; Shuthelah, and Bered his son, and Tahath his son, and Eladah his son, and Tahath his son,  
 > **²¹** And Zabad his son, and Shuthelah his son, and Ezer, and Elead, whom the men of Gath *that were* born in *that* land slew, because they came down to take away their cattle.  

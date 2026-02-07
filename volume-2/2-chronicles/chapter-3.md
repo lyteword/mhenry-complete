@@ -6,7 +6,7 @@ weight: 3
 
 It was a much larger and more particular account of the building of the temple which we had in the book of Kings than is here in this book of Chronicles. In this chapter we have, I. The place and time of building the temple, 2Ch 3:1,2. II. The dimensions and rich ornaments of it, 2Ch 3:3-9. III. The cherubim in the most holy place, 2Ch 3:10-13. IV. The veil, 2Ch 3:14. V. The two pillars, 2Ch 3:15-17. Of all this we have already and an account, 1Ki 6:1-7:51
 
-## The Temple Built. (b. c. 1012.)
+## The Temple Built (1012 BC)
 
 > **¹** Then Solomon began to build the house of the LORD at Jerusalem in mount Moriah, where *the LORD* appeared unto David his father, in the place that David had prepared in the threshingfloor of Ornan the Jebusite.  
 > **²** And he began to build in the second *day* of the second month, in the fourth year of his reign.  
@@ -26,7 +26,7 @@ III\. The dimensions of it, in which Solomon was instructed (2Ch 3:3), as he was
 
 IV\. The ornaments of the temple. The timber-work was very fine, and yet, within, it was *overlaid with pure gold* (2Ch 3:4), with *fine gold* (2Ch 3:5), and that embossed with *palm-trees and chains.* It was gold of *Parvaim* (2Ch 3:6), the best gold. The *beams* and *posts,* the *walls* and *doors,* were *overlaid with gold,* 2Ch 3:7. The most holy place, which was ten yards square, was all *overlaid with fine gold* (2Ch 3:8), even the *upper chambers,* or rather the *upper floor or roof*—top, bottom, and sides, were all overlaid with gold. Every nail, or screw, or pin, with which the golden plates were fastened to the walls that were overlaid with them, weighed fifty shekels, or was worth so much, workmanship and all. A great many precious stones were dedicated to God (1Ch 29:2,8), and these were set here and there, where they would show to the best advantage. The finest houses now pretend to no better garnishing than good paint on the roof and walls; but the ornaments of the temple were most substantially rich. It was set with *precious stones,* because it was a type of the new Jerusalem, which has no temple in it because it is all temple, and the walls, gates, and foundations of which are said to be of *precious stones and pearls,* Re 21:18,19,21.
 
-## The Furniture of the Temple. (b. c. 1012.)
+## The Furniture of the Temple (1012 BC)
 
 > **¹⁰** And in the most holy house he made two cherubims of image work, and overlaid them with gold.  
 > **¹¹** And the wings of the cherubims *were* twenty cubits long: one wing *of the one cherub was* five cubits, reaching to the wall of the house: and the other wing *was likewise* five cubits, reaching to the wing of the other cherub.  

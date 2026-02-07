@@ -6,7 +6,7 @@ weight: 2
 
 How Nehemiah wrestled with God and prevailed we read in the foregoing chapter; now here we are told how, like Jacob, he prevailed with men also, and so found that his prayers were heard and answered. I. He prevailed with the king to send him to Jerusalem with a commission to build a wall about it, and grant him what was necessary for it, Ne 2:1-8. II. He prevailed against the enemies that would have obstructed him in his journey (Ne 2:9-11) and laughed him out of his undertaking, Ne 2:19-20. III. He prevailed upon his own people to join with him in this good work, viewing the desolations of the walls (Ne 2:12-16) and then gaining them to lend every one a hand towards the rebuilding of them, Ne 2:17,18. Thus did God own him in the work to which he called him.
 
-## Nehemiah's Request to the King. (b. c. 445.)
+## Nehemiah's Request to the King (445 BC)
 
 > **¹** And it came to pass in the month Nisan, in the twentieth year of Artaxerxes the king, *that* wine *was* before him: and I took up the wine, and gave *it* unto the king. Now I had not been *beforetime* sad in his presence.  
 > **²** Wherefore the king said unto me, Why *is* thy countenance sad, seeing thou *art* not sick? this *is* nothing *else* but sorrow of heart. Then I was very sore afraid,  
@@ -31,7 +31,7 @@ V\. His humble petition to the king. When he had this encouragement he presented
 
 VI\. The king's great favour to him in asking him *when he would return,* Ne 2:6. He intimated that he was unwilling to lose him, or to be long without him, yet to gratify him, and do a real office of kindness to his people, he would spare him awhile, and let him have what clauses he pleased inserted in his commission, Ne 2:8. Here was an immediate answer to his prayer; for the seed of Jacob never sought the God of Jacob in vain. In the account he gives of the success of his petition he takes notice, 1. Of the presence of the queen; she sat by (Ne 2:6), which (they say) was not usual in the Persian court, Es 1:11. Whether the queen was his back friend, that would have hindered him, and he observes it to the praise of God's powerful providence that though she was by yet he succeeded, or whether she was his true friend, and it is observed to the praise of God's kind providence that she was present to help forward his request, is not certain. 2. Of the power and grace of God. He gained his point, not according to his merit, his interest in the king, or his good management, but *according to the good hand of his God upon him.* Gracious souls take notice of God's hand, his good hand, in all events which turn in favour of them. *This is the Lord's doing,* and therefore doubly acceptable.
 
-## Nehemiah's Journey to Jerusalem; the Malice of Sanballat, etc. (b. c. 445.)
+## Nehemiah's Journey to Jerusalem; the Malice of Sanballat, etc (445 BC)
 
 > **⁹** Then I came to the governors beyond the river, and gave them the king's letters. Now the king had sent captains of the army and horsemen with me.  
 > **¹⁰** When Sanballat the Horonite, and Tobiah the servant, the Ammonite, heard *of it,* it grieved them exceedingly that there was come a man to seek the welfare of the children of Israel.  

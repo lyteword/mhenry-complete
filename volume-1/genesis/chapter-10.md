@@ -6,7 +6,7 @@ weight: 10
 
 This chapter shows more particularly what was said in general (Ge 9:19), concerning the three sons of Noah, that "of them was the whole earth overspread;" and the fruit of that blessing (Ge 9:1,7), "replenish the earth." Is is the only certain account extant of the origin of nations; and yet perhaps there is no nation but that of the Jews that can be confident from which of these seventy fountains (for so many there are here) it derives its streams. Through the want of early records, the mixtures of people, the revolutions of nations, and distance of time, the knowledge of the lineal descent of the present inhabitants of the earth is lost; nor were any genealogies preserved but those of the Jews, for the sake of the Messiah, only in this chapter we have a brief account, I. Of the posterity of Japheth, Ge 10:2-5. II. The posterity of Ham (Ge 10:6-20), and in this particular notice is taken of Nimrod, Ge 10:8-10. III. The posterity of Shem, Ge 10:21-32, etc.
 
-## The Generations of Noah. (b. c. 2347.)
+## The Generations of Noah (2347 BC)
 
 > **¹** Now these *are* the generations of the sons of Noah, Shem, Ham, and Japheth: and unto them were sons born after the flood.  
 > **²** The sons of Japheth; Gomer, and Magog, and Madai, and Javan, and Tubal, and Meshech, and Tiras.  

@@ -6,7 +6,7 @@ weight: 117
 
 This psalm is short and sweet; I doubt the reason why we sing it so often as we do is for the shortness of it; but, if we rightly understood and considered it, we should sing it oftener for the sweetness of it, especially to us sinners of the Gentiles, on whom it casts a very favourable eye. Here is, I. A solemn call to all nations to praise God, Ps 117:1. II. Proper matter for that praise suggested, Ps 117:2. We are soon weary indeed of well-doing if, in singing this psalm, we keep not up those pious and devout affections with which the spiritual sacrifice of praise ought to be kindled and kept burning.
 
-## All Nations Admonished to Praise God.
+## All Nations Admonished to Praise God
 
 > **¹** O praise the LORD, all ye nations: praise him, all ye people.  
 > **²** For his merciful kindness is great toward us: and the truth of the LORD *endureth* for ever. Praise ye the LORD.  

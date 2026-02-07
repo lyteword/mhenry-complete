@@ -6,7 +6,7 @@ weight: 27
 
 It is a very affecting story which is recorded in this chapter concerning the sufferings and death of our Lord Jesus. Considering the thing itself, there cannot be a more tragical story told us; common humanity would melt the heart, to find an innocent and excellent person thus misused. But considering the design and fruit of Christ's sufferings, it is gospel, it is good news, that Jesus Christ was thus delivered for our offences; and there is nothing we have more reason to glory in than the cross of Christ. In this chapter, observe, I. How he was prosecuted. 1. The delivering of him to Pilate, Mt 27:1,2. 2. The despair of Judas, Mt 27:3-10. 3. The arraignment and trial of Christ before Pilate, Mt 27:11-14. 4. The clamours of the people against him, Mt 27:15-25. 5. Sentence passed, and the warrant signed for his execution, Mt 27:26. II. How he was executed. 1. He was barbarously used, Mt 27:27-30. 2. Led to the place of execution, Mt 27:31-33. 3. There he had all possible indignities done him, and reproaches cast upon him, Mt 27:34-44. 4. Heaven frowned upon him, Mt 27:45-49. 5. Many remarkable things attended his death, Mt 27:50-56. He was buried and a watch set on his grave, Mt 27:57-66.
 
-## The Repentance of Judas; The Confession of Judas; The Death of Judas; Disposal of the Thirty Pieces of Silver.
+## The Repentance of Judas; The Confession of Judas; The Death of Judas; Disposal of the Thirty Pieces of Silver
 
 > **¹** When the morning was come, all the chief priests and elders of the people took counsel against Jesus to put him to death:  
 > **²** And when they had bound him, they led *him* away, and delivered him to Pontius Pilate the governor.  
@@ -75,7 +75,7 @@ This buying of the potter's field did not take place on the day that Christ died
 
 The giving of the price of him that was valued, not for him, but for the *potter's field,* bespeaks, 1. The high value that ought to be put upon Christ. The price was given, not for him; no, when it was given for him, it was soon brought back again with disdain, as infinitely below his worth; he cannot be *valued with the gold of Ophir,* nor this unspeakable Gift *brought with money.* 2. The low value that was put upon him. *They of the children of Israel* did strangely undervalue him, when his price did but reach to buy a potter's field, a pitiful sorry spot of ground, not worth looking upon. It added to the reproach of his being bought and sold, that it was at so low a rate. *Cast it to the potter,* so it is in Zechariah; a contemptible petty chapman, not the merchant that deals in things of value. And observe, *They of the children of Israel* thus *undervalued him;* they who were his own people, that should have known better what estimate to put upon him, they to whom he was first sent, whose glory he was, and whom he had valued so highly, and bought so dear. He gave kings' ransoms for them, and the richest countries (so *precious were they in his sight,* Isa 43:3,4), Egypt, and Ethiopia, and Seba; but they gave a slave's ransom for him (see Ex 21:32), and valued him but at the rate of a potter's field; so was that blood trodden under foot, which bought the kingdom of heaven for us. But all this was *as the Lord appointed;* so the prophetic vision was, which typified this event, and so the event itself, as the other instances of Christ's sufferings, was *by the determinate counsel and foreknowledge of God.*
 
-## Christ at the Bar of Pilate.
+## Christ at the Bar of Pilate
 
 > **¹¹** And Jesus stood before the governor: and the governor asked him, saying, Art thou the King of the Jews? And Jesus said unto him, Thou sayest.  
 > **¹²** And when he was accused of the chief priests and elders, he answered nothing.  
@@ -167,7 +167,7 @@ Now Pilate endeavours to clear himself from the guilt,
 
 [2.] How righteous God was, in his retribution according to this imprecation; they said, *His blood be on us, and on our children;* and God said *Amen* to it, so shall thy doom be; as they *loved cursing,* so it came upon them. The wretched remains of that abandoned people feel it to this day; from the time they imprecated this blood upon them, they were followed with one judgment after another, till they were quite laid waste, and made an astonishment, a hissing, and a byword; yet on some of them, and some of theirs, this blood came, not to *condemn* them, but to *save* them; divine mercy, upon their repenting and believing, cut off this entail, and then *the promise* was again *to them, and to their children.* God is better to us and ours than we are.
 
-## Christ Scourged and Derided; Christ Mocked by the Soldiers.
+## Christ Scourged and Derided; Christ Mocked by the Soldiers
 
 > **²⁶** Then released he Barabbas unto them: and when he had scourged Jesus, he delivered *him* to be crucified.  
 > **²⁷** Then the soldiers of the governor took Jesus into the common hall, and gathered unto him the whole band *of soldiers.*  
@@ -217,7 +217,7 @@ III\. The conveying of him to the place of execution. After they had mocked and 
 
 2\. They compelled Simon of Cyrene *to bear his cross,* Mt 27:32. It seems, at first he *carried the cross* himself, as Isaac carried the wood for the burnt-offering, which was to burn him. And this was intended, as other things, both for pain and shame to him. But after a while they *took the cross* off from him, either, (1.) In compassion to him, because they saw it was too great a load for him. We can hardly think that they had any consideration of that, yet it teaches us that God *considers the frame* of his people, and will not *suffer them to be tempted above what they are able;* he gives them some breathing-time, but they must expect that the cross will return, and the lucid intervals only give them space to prepare for the next fit. But, (2.) Perhaps it was because he could not, with the cross on his back, go forward so fast as they would have him. Or, (3.) They were afraid, lest he should faint away under the load of his cross, and die, and so prevent what their malice further intended to do against him: thus even the *tender mercies of the wicked* (which seem to be so) *are* really *cruel.* Taking the cross off from him, they *compelled* one Simon of Cyrene to bear it, pressing him to the service by the authority of the governor or the priests. It was a reproach, and none would do it but by compulsion. Some think that this Simon was a disciple of Christ, at least a well-wisher to him, and that they knew it, and therefore put this upon him. Note, All that will approve themselves disciples indeed, must follow Christ, *bearing his cross* (Mt 16:24), *bearing his reproach,* Heb 13:13. We must know the *fellowship of his sufferings for us,* and patiently submit to all the sufferings for him we are called out to; for those only shall *reign with him,* that *suffer with him;* shall sit with him in his kingdom, that drink of *his cup,* and are baptized with *his baptism.*
 
-## The Crucifixion.
+## The Crucifixion
 
 > **³³** And when they were come unto a place called Golgotha, that is to say, a place of a skull,  
 > **³⁴** They gave him vinegar to drink mingled with gall: and when he had tasted *thereof,* he would not drink.  
@@ -313,7 +313,7 @@ IV\. The cold comfort which his enemies ministered to him in this agony, which w
 
 2\. Others, which the same purpose of disturbing and abusing him, refer him to Elias (Mt 27:49); "*Let be, let us see whether Elias will come to save him.* Come, let him alone, his case is desperate, neither heaven nor earth can help him; let us do nothing either to hasten his death, or to retard it; he has appealed to Elias, and *to Elias let him go.*"
 
-## The Crucifixion; The Death of Christ.
+## The Crucifixion; The Death of Christ
 
 > **⁵⁰** Jesus, when he had cried again with a loud voice, yielded up the ghost.  
 > **⁵¹** And, behold, the veil of the temple was rent in twain from the top to the bottom; and the earth did quake, and the rocks rent;  
@@ -385,7 +385,7 @@ IV\. The attendance of his friends, that were witnesses of his death, Mt 27:55,5
 
 (2.) They were there *beholding,* in which they showed a concern and kindness for Christ; when they were debarred from doing any other office of love to him, they looked a look of love toward him. [1.] It was a *sorrowful* look; they looked unto him who was now pierced, and *mourned;* and no doubt, were *in bitterness* for him. We may well imagine how it cut them to the heart, to see him in this torment; and what floods of tears it fetched from their eyes. Let us with an eye of faith behold Christ and him crucified, and be affected with that great love wherewith he loved us. But, [2.] It was no more than a look; they beheld him, but they could not *help him.* Note, When Christ was in his sufferings, the best of his friends were but spectators and lookers on, even the *angelic guards stood trembling by,* saith Mr. Norris, for he *trod the wine-press alone,* and of the people there was none with him; so *his own arm wrought salvation.*
 
-## The Burial of Christ.
+## The Burial of Christ
 
 > **⁵⁷** When the even was come, there came a rich man of Arimathæa, named Joseph, who also himself was Jesus' disciple:  
 > **⁵⁸** He went to Pilate, and begged the body of Jesus. Then Pilate commanded the body to be delivered.  

@@ -6,7 +6,7 @@ weight: 27
 
 In this chapter the prophet goes on to show, I. What great things God would do for his church and people, which should now shortly be accomplished in the deliverance of Jerusalem from Sennacherib and the destruction of the Assyrian army; but it is expressed generally, for the encouragement of the church in after ages, with reference to the power and prevalency of her enemies. 1. That proud oppressors should be reckoned with, Isa 27:1. 2. That care should be taken of the church, as of God's vineyard, Isa 27:2,3. 3. That God would let fall his controversy with the people, upon their return to him, Isa 27:4,5. 4. That he would greatly multiply and increase them, Isa 27:6. 5. That, as to their afflictions, the property of them should be altered (Isa 27:7), they should be mitigated and moderated (Isa 27:8), and sanctified, Isa 27:9. 6. That though the church might be laid waste, and made desolate, for a time (Isa 27:10,11), yet it should be restored, and the scattered members should be gathered together again, Isa 27:12,13. All this is applicable to the grace of the gospel, and God's promises to, and providences concerning, the Christian church, and such as belong to it.
 
-## The Doom of Persecutors; The Privilege of Saints. (b. c. 718.)
+## The Doom of Persecutors; The Privilege of Saints (718 BC)
 
 > **¹** In that day the LORD with his sore and great and strong sword shall punish leviathan the piercing serpent, even leviathan that crooked serpent; and he shall slay the dragon that *is* in the sea.  
 > **²** In that day sing ye unto her, A vineyard of red wine.  
@@ -27,7 +27,7 @@ II\. Of mercy to the church. In that same day, when God is punishing the leviath
 
 3\. That the church of God in the world shall be a growing body, and come at length to be a great body (Isa 27:6): *In times to come* (so some read it), *in after-times,* when these calamities are overpast, or in the days of the gospel, the latter days, *he shall cause Jacob to take root,* deeper root than ever yet; for the gospel church shall be more firmly fixed than ever the Jewish church was, and shall spread further. Or, *He shall cause those of Jacob* that come back out of their captivity, or (as we read it) *those that come of Jacob, to take root downward, and bear fruit upward,* Isa 37:31. They shall be established in a prosperous state, and then they shall *blossom and bud,* and give hopeful prospects of a great increase; and so it shall prove, for *they shall fill the face of the world with fruit.* Many shall be brought into the church, proselytes shall be numerous, some out of all the nations about that shall be to the God of Israel for a name and a praise; and the converts shall be fruitful in the fruits of righteousness. The preaching of the gospel *brought forth fruit in all the world* (Col 1:6), fruit that remains, Joh 15:16.
 
-## Correction and Compassion. (b. c. 718.)
+## Correction and Compassion (718 BC)
 
 > **⁷** Hath he smitten him, as he smote those that smote him? *or* is he slain according to the slaughter of them that are slain by him?  
 > **⁸** In measure, when it shooteth forth, thou wilt debate with it: he stayeth his rough wind in the day of the east wind.  

@@ -6,7 +6,7 @@ weight: 1
 
 In this chapter we have Naomi's afflictions. I. As a distressed housekeeper, forced by famine to remove into the land of Moab, Ru 1:1,2. II. As a mournful widow and mother, bewailing the death of her husband and her two sons, Ru 1:3-5. III. As a careful mother-in-law, desirous to be kind to her two daughters, but at a loss how to be so when she returns to her own country, Ru 1:6-13. Orpah she parts with in sorrow, Ru 1:14. Ruth she takes with her in fear, Ru 1:15-18. IV. As a poor woman sent back to the place of her first settlement, to be supported by the kindness of her friends, Ru 1:19-22. All these things were melancholy and seemed against her, and yet all were working for good.
 
-## Elimelech and Naomi; Death of Elimelech and His Sons. (b. c. 1312.)
+## Elimelech and Naomi; Death of Elimelech and His Sons (1312 BC)
 
 > **¹** Now it came to pass in the days when the judges ruled, that there was a famine in the land. And a certain man of Beth-lehem-judah went to sojourn in the country of Moab, he, and his wife, and his two sons.  
 > **²** And the name of the man *was* Elimelech, and the name of his wife Naomi, and the name of his two sons Mahlon and Chilion, Ephrathites of Beth-lehem-judah. And they came into the country of Moab, and continued there.  
@@ -26,7 +26,7 @@ IV\. The marriage of his two sons to two of the daughters of Moab after his deat
 
 V\. The death of Elimelech and his two sons, and the disconsolate condition Naomi was thereby reduced to. Her husband died (Ru 1:3) and her two sons (Ru 1:5) soon after their marriage, and the Chaldee says, *Their days were shortened,* because they transgressed the law in marrying strange wives. See here, 1. That wherever we go we cannot out-run death, whose fatal arrows fly in all places. 2. That we cannot expect to prosper when we go out of the way of our duty. *He that will save his life* by any indirect course *shall lose it.* 3. That death, when it comes into a family, often makes breach upon breach. One is taken away to prepare another to follow soon after; one is taken away, and that affliction is not duly improved, and therefore God sends another of the same kind. When Naomi had lost her husband she took so much the more complacency and put so much the more confidence in her sons. Under the shadow of these surviving comforts she thinks she shall live among the heathen, and exceedingly glad she was of these gourds; but behold they wither presently, *green and growing up in the morning, cut down and dried up* before night, buried soon after they were married, for neither of them left any children. So uncertain and transient are all our enjoyments here. It is therefore our wisdom to make sure of those comforts that will be made sure and of which death cannot rob us. But how desolate was the condition, and how disconsolate the spirit, of poor Naomi, when the woman *was left of her two sons and her husband!* When *these two things, loss of children and widowhood, come upon her in a moment,* come upon her *in their perfection, by whom shall she be comforted?* Isa 47:9,51:19. It is God alone who has wherewithal to comfort those who are thus cast down.
 
-## Naomi Returns to Canaan; Naomi and Her Daughters-in-Law; Ruth's Constancy to Naomi. (b. c. 1312.)
+## Naomi Returns to Canaan; Naomi and Her Daughters-in-Law; Ruth's Constancy to Naomi (1312 BC)
 
 > **⁶** Then she arose with her daughters in law, that she might return from the country of Moab: for she had heard in the country of Moab how that the LORD had visited his people in giving them bread.  
 > **⁷** Wherefore she went forth out of the place where she was, and her two daughters in law with her; and they went on the way to return unto the land of Judah.  
@@ -82,7 +82,7 @@ II\. The good affection which her daughters-in-law, and one of them especially, 
 
 The Chaldee paraphrase thus relates the debate between Naomi and Ruth:—Ruth said, *Entreat me not to leave thee,* for *I will be a proselyte.* Naomi said, *We are commanded to keep sabbaths and good days, on which we may not travel above 2000 cubits*—a sabbath-day's journey. *Well,* said Ruth, *whither thou goest I will go.* Naomi said, *We are commanded not to tarry all night with Gentiles. Well,* said Ruth, *where thou lodgest I will lodge.* Naomi said, *We are commanded to keep 613 precepts. Well,* said Ruth, *whatever thy people keep I will keep, for they shall be my people.* Naomi said, *We are forbidden to worship any strange god. Well,* said Ruth, *thy God shall be my God.* Naomi said, *We have four sorts of deaths for malefactors, stoning, burning, strangling, and slaying with the sword. Well,* said Ruth, *where thou diest I will die. We have,* said Naomi, *houses of sepulchre. And there,* said Ruth, *will I be buried.*
 
-## Naomi's Reception at Bethlehem. (b. c. 1312.)
+## Naomi's Reception at Bethlehem (1312 BC)
 
 > **¹⁹** So they two went until they came to Bethlehem. And it came to pass, when they were come to Bethlehem, that all the city was moved about them, and they said, *Is* this Naomi?  
 > **²⁰** And she said unto them, Call me not Naomi, call me Mara: for the Almighty hath dealt very bitterly with me.  

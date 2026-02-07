@@ -4,7 +4,7 @@ weight: 14
 
 # Chapter 14
 
-## Wisdom and Folly.
+## Wisdom and Folly
 
 > **¹** Every wise woman buildeth her house: but the foolish plucketh it down with her hands.  
 
@@ -58,7 +58,7 @@ We have here an account of the way and end of a great many self-deluded souls. 1
 
 This shows the vanity of carnal mirth, and proves what Solomon said of laughter, that *it is mad;* for, 1. There is sadness under it. Sometimes when sinners are under convictions, or some great trouble, they dissemble their grief by a forced mirth, and put a good face on it, because they will not seem to yield: they cry not when he binds them. Nay, when men really are merry, yet at the same time there is some alloy or other to their mirth, something that casts a damp upon it, which all their gaiety cannot keep from their heart. Their consciences tell them they have no reason to be merry (Ho 9:1); they cannot but see the vanity of it. Spiritual joy is seated in the soul; the joy of the hypocrite is but from the teeth outward. See Joh 16:22, 2Co 6:10. 2. There is worse after it: *The end of that mirth is heaviness.* It is soon over, like the crackling of thorns under a pot; and, if the conscience be awake, all sinful and profane mirth will be reflected upon with bitterness; if not, the heaviness will be so much the greater when *for all these things God shall bring the* sinner *into judgment.* The sorrows of the saints will end in everlasting joys (Ps 126:5), but the laughter of fools will end in endless weeping and wailing.
 
-## The Righteous and the Wicked Contrasted.
+## The Righteous and the Wicked Contrasted
 
 > **¹⁴** The backslider in heart shall be filled with his own ways: and a good man *shall be satisfied* from himself.  
 

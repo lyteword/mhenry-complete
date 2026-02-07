@@ -6,7 +6,7 @@ weight: 23
 
 This chapter continues and concludes the acts that passed in the first session (if I may so call it) upon Mount Sinai. Here are, I. Some laws of universal obligation, relating especially to the ninth commandment, against bearing false witness (Ex 23:1), and giving false judgment, Ex 23:2,3,6-8. Also a law of doing good to our enemies (Ex 23:4,5), and not oppressing strangers, Ex 23:9. II. Some laws peculiar to the Jews. The sabbatical year (Ex 23:10,11), the three annual feasts (Ex 23:14-17), with some laws pertaining thereto. III. Gracious promises of the completing of the mercy God had begun for them, upon condition of their obedience. That God would conduct them through the wilderness (Ex 23:20-24), that he would prosper all they had (Ex 23:25,26), that he would put them in possession of Canaan, Ex 23:27-31. But they must not mingle themselves with the nations, Ex 23:32,33.
 
-## Judicial Laws. (b. c. 1491.)
+## Judicial Laws (1491 BC)
 
 > **¹** Thou shalt not raise a false report: put not thine hand with the wicked to be an unrighteous witness.  
 > **²** Thou shalt not follow a multitude to *do* evil; neither shalt thou speak in a cause to decline after many to wrest *judgment:*  
@@ -26,7 +26,7 @@ Here are, I. Cautions concerning judicial proceedings; it was not enough that th
 
 II\. Commands concerning neighbourly kindnesses. We must be ready to do all good offices, as there is occasion, for any body, yea even for those that have done us ill offices, Ex 23:4,5. The command of loving our enemies, and doing good to those that hate us, is not only a *new,* but an *old* commandment, Pr 25:21,22. Infer hence, 1. If we must do this kindness for an enemy, much more for a friend, though an enemy only is mentioned, because it is supposed that a man would not be unneighbourly to any unless such as he had a particular spleen against. 2. If it be wrong not to prevent our enemy's loss and damage, how much worse is it to occasion harm and loss to him, or any thing he has. 3. If we must bring back our neighbours' cattle when they go astray, much more must we endeavour, by prudent admonitions and instructions, to bring back our neighbours themselves, when they go astray in any sinful path, see Jam 5:19,20. And, if we must endeavour to help up a fallen ass, much more should we endeavour, by comforts and encouragements, to help up a sinking spirit, *saying to those that are of a fearful heart, Be strong.* We must seek the relief and welfare of others *as our own,* Php 2:4. *If thou sayest, Behold, we know it not, doth not he that pondereth the heart consider it?* See Pr 24:11,12.
 
-## Sacred Feasts. (b. c. 1491.)
+## Sacred Feasts (1491 BC)
 
 > **¹⁰** And six years thou shalt sow thy land, and shalt gather in the fruits thereof:  
 > **¹¹** But the seventh *year* thou shalt let it rest and lie still; that the poor of thy people may eat: and what they leave the beasts of the field shall eat. In like manner thou shalt deal with thy vineyard, *and* with thy oliveyard.  
@@ -49,7 +49,7 @@ IV\. Their solemn religious attendance on God in the place which he should choos
 
 V\. Some particular directions are here given about the three feasts, though not so fully as afterwards. 1. As to the passover, it was not to be offered with leavened bread, for at that feast all leaven was to be cast out, nor was the fat of it to remain until the morning, lest it should become offensive, Ex 23:18. 2. At the feast of pentecost, when they were to begin their harvest, they must bring *the first of their first-fruits* to God, by the pious presenting of which the whole harvest was sanctified, Ex 23:19. 3. At the feast of *ingathering,* as it is called (Ex 23:16), they must give God thanks for the harvest-mercies they had received, and must depend upon him for the next harvest, and must not think to receive benefit by that superstitious usage of some of the Gentiles, who, it is said, at the end of their harvest, *seethed a kid in its dam's milk,* and sprinkled that milk-pottage, in a magical way, upon their gardens and fields, to make them more fruitful next year. But Israel must abhor such foolish customs.
 
-## Precepts and Promises. (b. c. 1491.)
+## Precepts and Promises (1491 BC)
 
 > **²⁰** Behold, I send an Angel before thee, to keep thee in the way, and to bring thee into the place which I have prepared.  
 > **²¹** Beware of him, and obey his voice, provoke him not; for he will not pardon your transgressions: for my name *is* in him.  

@@ -6,7 +6,7 @@ weight: 27
 
 Job had sometimes complained of his friends that they were so eager in disputing that they would scarcely let him put in a word: "Suffer me that I may speak;" and, "O that you would hold your peace!" But now, it seems, they were out of breath, and left him room to say what he would. Either they were themselves convinced that Job was in the right or they despaired of convincing him that he was in the wrong; and therefore they threw away their weapons and gave up the cause. Job was too hard for them, and forced them to quit the field; for great is the truth and will prevail. What Job had said (Job 26:1-14) was a sufficient answer to Bildad's discourse; and now Job paused awhile, to see whether Zophar would take his turn again; but, he declining it, Job himself went on, and, without any interruption or vexation given him, said all he desired to say in this matter. I. He begins with a solemn protestation of his integrity and of his resolution to hold it fast, Job 27:2-6. II. He expresses the dread he had of that hypocrisy which they charged him with, Job 27:7-10. III. He shows the miserable end of wicked people, notwithstanding their long prosperity, and the curse that attends them and is entailed upon their families, Job 27:11-23.
 
-## Job's Protestation of His Sincerity. (b. c. 1520.)
+## Job's Protestation of His Sincerity (1520 BC)
 
 > **¹** Moreover Job continued his parable, and said,  
 > **²** *As* God liveth, *who* hath taken away my judgment; and the Almighty, *who* hath vexed my soul;  
@@ -25,7 +25,7 @@ III\. The explication of his oath (Job 27:5,6): "*God forbid that I should justi
 
 Job complained much of the reproaches of his friends; but (says he) *my heart shall not reproach me,* that is, "I will never give my heart cause to reproach me, but will keep a conscience void of offence; and, while I do so, I will not give my heart leave to reproach me." *Who shall lay any thing to the charge of God's elect? It is God that justifies.* To resolve that our hearts shall not reproach us when we give them cause to do so is to affront God, whose deputy conscience is, and to wrong ourselves; for it is a good thing, when a man has sinned, to have a heart within him to smite him for it, 2Sa 24:10. But to resolve that our hearts shall not reproach us while we still hold fast our integrity is to baffle the designs of the evil spirit (who tempts good Christians to question their adoption, *If thou be the Son of God*) and to concur with the operations of the good Spirit, who witnesses to their adoption.
 
-## Condition of Hypocrites. (b. c. 1520.)
+## Condition of Hypocrites (1520 BC)
 
 > **⁷** Let mine enemy be as the wicked, and he that riseth up against me as the unrighteous.  
 > **⁸** For what *is* the hope of the hypocrite, though he hath gained, when God taketh away his soul?  
@@ -44,7 +44,7 @@ II\. He gives us the reasons of it.
 
 3\. Because the hypocrite's religion is neither comfortable nor constant (Job 27:10): *Will he delight himself in the Almighty?* No, not at any time (for his delight is in the profits of the world and the pleasures of the flesh, more than in God), especially not in the time of trouble. *Will he always call upon God?* No, in prosperity he will not call upon God, but slight him; in adversity he will not call upon God but curse him; he is weary of his religion when he gets nothing by it, or is in danger of losing. Note, (1.) Those are hypocrites who, though they profess religion, neither take pleasure in it nor persevere in it, who reckon their religion a task and a drudgery, a weariness, and snuff at it, who make use of it only to serve a turn, and lay it aside when the turn is served, who will call upon God while it is in fashion, or while the pang of devotion lasts, but leave it off when they fall into other company, or when the hot fit is over. (2.) The reason why hypocrites do not persevere in religion is because they have no pleasure in it. Those that do not delight in the Almighty will not always call upon him. The more comfort we find in our religion the more closely we shall cleave to it. Those who have no delight in God are easily inveigled by the pleasures of sense, and so drawn away from their religion; and they are easily run down by the crosses of this life, and so driven away from their religion, and will not always call upon God.
 
-## Heritage of the Wicked. (b. c. 1520.)
+## Heritage of the Wicked (1520 BC)
 
 > **¹¹** I will teach you by the hand of God: *that* which *is* with the Almighty will I not conceal.  
 > **¹²** Behold, all ye yourselves have seen *it;* why then are ye thus altogether vain?  

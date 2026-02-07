@@ -6,7 +6,7 @@ weight: 5
 
 Moses and Aaron are here dealing with Pharaoh, to get leave of him to go and worship in the wilderness. I. They demand leave in the name of God (Ex 5:1), and he answers their demand with a defiance of God, Ex 5:2. II. They beg leave in the name of Israel (Ex 5:3), and he answers their request with further orders to oppress Israel, Ex 5:4-9. These cruel orders were, 1. Executed by the task-masters, Ex 5:10-14. 2. Complained of to Pharaoh, but in vain, Ex 5:15-19. 3. Complained of by the people to Moses Ex 5:20,21), and by him to God, Ex 5:22,23.
 
-## Sufferings of the Israelites Increased. (b. c. 1491.)
+## Sufferings of the Israelites Increased (1491 BC)
 
 > **¹** And afterward Moses and Aaron went in, and told Pharaoh, Thus saith the LORD God of Israel, Let my people go, that they may hold a feast unto me in the wilderness.  
 > **²** And Pharaoh said, Who *is* the LORD, that I should obey his voice to let Israel go? I know not the LORD, neither will I let Israel go.  

@@ -6,7 +6,7 @@ weight: 47
 
 In this chapter we have instances, I. Of Joseph's kindness and affection to his relations, presenting his brethren first and then his father to Pharaoh (Ge 47:1-10), settling them in Goshen, and providing for them there (Ge 47:11,12), and paying his respects to his father when he sent for him, Ge 47:27-31. II. Of Joseph's justice between prince and people in a very critical affair, selling Pharaoh's corn to his subjects with reasonable profits to Pharaoh, and yet without any wrong to them, Ge 47:13-26, etc. Thus he approved himself wise and good, both in his private and in his public capacity.
 
-## Pharaoh's Generosity; Jacob Presented to Pharaoh. (b. c. 1706.)
+## Pharaoh's Generosity; Jacob Presented to Pharaoh (1706 BC)
 
 > **¹** Then Joseph came and told Pharaoh, and said, My father and my brethren, and their flocks, and their herds, and all that they have, are come out of the land of Canaan; and, behold, they *are* in the land of Goshen.  
 > **²** And he took some of his brethren, *even* five men, and presented them unto Pharaoh.  
@@ -43,7 +43,7 @@ III\. The respect Joseph, as a son, showed to his father.
 
 2\. He provided well for him and his, *placed him in Goshen* (Ge 47:11), *nourished him* and all his with food convenient for them, Ge 47:12. This bespeaks, not only Joseph a good man, who took this tender care of his poor relations, but God a good God, who raised him up for this purpose, and put him into a capacity of doing it, as Esther came to the kingdom for such a time as this. What God here did for Jacob he has, in effect, promised to do for all his, that serve him and trust in him. Ps 37:19, *In the days of famine they shall be satisfied.*
 
-## Distressed Occasioned by the Famine. (b. c. 1706.)
+## Distressed Occasioned by the Famine (1706 BC)
 
 > **¹³** And *there was* no bread in all the land; for the famine *was* very sore, so that the land of Egypt and *all* the land of Canaan fainted by reason of the famine.  
 > **¹⁴** And Joseph gathered up all the money that was found in the land of Egypt, and in the land of Canaan, for the corn which they bought: and Joseph brought the money into Pharaoh's house.  
@@ -70,7 +70,7 @@ III\. The method which Joseph took to accommodate the matter between prince and 
 
 IV\. The reservation he made in favour of the priests. They were maintained on free cost, so that they needed not to sell their lands, Ge 47:22. *All people will thus walk in the name of their God;* they will be kind to those that attend the public service of their God, and that minister to them in holy things; and we should, in like manner, honour our God, by esteeming his ministers highly in love for their work's sake.
 
-## Jacob's Charge Concerning His Burial. (b. c. 1706.)
+## Jacob's Charge Concerning His Burial (1706 BC)
 
 > **²⁷** And Israel dwelt in the land of Egypt, in the country of Goshen; and they had possessions therein, and grew, and multiplied exceedingly.  
 > **²⁸** And Jacob lived in the land of Egypt seventeen years: so the whole age of Jacob was a hundred forty and seven years.  

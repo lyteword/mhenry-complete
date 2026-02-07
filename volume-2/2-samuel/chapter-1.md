@@ -6,7 +6,7 @@ weight: 1
 
 In the close of the foregoing book (with which this is connected as a continuation of the same history) we had Saul's exit; he went down slain to the pit, though he was the terror of the mighty in the land of the living. We are now to look towards the rising sun, and to enquire where David is, and what he is doing. In this chapter we have, I. Tidings brought him to Ziklag of the death of Saul and Jonathan, by an Amalekite, who undertook to give him a particular narrative of it, 2Sa 1:1-10. II. David's sorrowful reception of these tidings, 2Sa 1:11,12. III. Justice done upon the messenger, who boasted that he had helped Saul to dispatch himself, 2Sa 1:13-16. IV. An elegy which David penned upon this occasion, 2Sa 1:17-27. And in all this David's breast appears very happily free from the sparks both of revenge and ambition, and he observes a very suitable demeanour.
 
-## David's Concern at Saul's Fate. (b. c. 1055.)
+## David's Concern at Saul's Fate (1055 BC)
 
 > **¹** Now it came to pass after the death of Saul, when David was returned from the slaughter of the Amalekites, and David had abode two days in Ziklag;  
 > **²** It came even to pass on the third day, that, behold, a man came out of the camp from Saul with his clothes rent, and earth upon his head: and *so* it was, when he came to David, that he fell to the earth, and did obeisance.  
@@ -38,7 +38,7 @@ II\. The reward he gave to him that brought him the tidings. Instead of preferri
 
 2\. He did honourably and well. Hereby he demonstrated the sincerity of his grief, discouraged all others from thinking by doing the like to ingratiate themselves with him, and did that which might probably oblige the house of Saul and win upon them, and recommend him to the people as one that was zealous for public justice, without regard to his own private interest. We may learn from it that to give assistance to any in murdering themselves, directly or indirectly, if done wittingly, incurs the guilt of blood, and that the lives of princes ought to be, in a special manner, precious to us.
 
-## David's Lamentation for Jonathan. (b. c. 1055.)
+## David's Lamentation for Jonathan (1055 BC)
 
 > **¹⁷** And David lamented with this lamentation over Saul and over Jonathan his son:  
 > **¹⁸** (Also he bade them teach the children of Judah *the use of* the bow: behold, *it is* written in the book of Jasher.)  

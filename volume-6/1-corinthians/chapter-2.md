@@ -6,7 +6,7 @@ weight: 2
 
 The apostle proceeds with his argument in this chapter, and, I. Reminds the Corinthians of the plain manner wherein he delivered the gospel to them, 1Co 2:1-5. But yet, II. Shows them that he had communicated to them a treasure of the truest and highest wisdom, such as exceeded all the attainments of learned men, such as could never have entered into the heart of man if it had not been revealed, nor can be received and improved to salvation but by the light and influence of that Spirit who revealed it, 1Co 2:6-16.
 
-## The Apostle's Ministry. (a. d. 57.)
+## The Apostle's Ministry (57 AD)
 
 > **¹** And I, brethren, when I came to you, came not with excellency of speech or of wisdom, declaring unto you the testimony of God.  
 > **²** For I determined not to know any thing among you, save Jesus Christ, and him crucified.  
@@ -22,7 +22,7 @@ II\. The manner wherein he preached Christ is here also observable. 1. Negativel
 
 III\. Here is the end mentioned for which he preached Christ crucified in this manner: *That your faith should not stand in the wisdom of man, but the power of God* (1Co 2:5)—that they might not be drawn by human motives, nor overcome by mere human arguments, lest it should be said that either rhetoric or logic had made them Christians. But, when nothing but Christ crucified was plainly preached, the success must be founded, not on human wisdom, but divine evidence and operation. The gospel was so preached that God might appear and be glorified in all.
 
-## Discoveries of the Gospel; Spiritual Things Spiritually Discerned. (a. d. 57.)
+## Discoveries of the Gospel; Spiritual Things Spiritually Discerned (57 AD)
 
 > **⁶** Howbeit we speak wisdom among them that are perfect: yet not the wisdom of this world, nor of the princes of this world, that come to nought:  
 > **⁷** But we speak the wisdom of God in a mystery, *even* the hidden *wisdom,* which God ordained before the world unto our glory:  

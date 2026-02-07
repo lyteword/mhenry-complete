@@ -6,7 +6,7 @@ weight: 2
 
 In this chapter we have, I. An earnest exhortation to the nation of the Jews to repent and make their peace with God, and so to prevent the judgments threatened before it was too late (Zep 2:1-3), and this inferred from the revelation of God's wrath against them in the foregoing chapter. II. A denunciation of the judgments of God against several of the neighbouring nations that had assisted, or rejoiced in, the calamity of Israel. 1. The Philistines, Zep 2:4-7. 2. The Moabites and Ammonites, Zep 2:8-11. 3. The Ethiopians and Assyrians, Zep 2:12-15. All these shall drink of the same cup of trembling that is put into the hands of God's people, as was also foretold by other prophets before and after.
 
-## The People Exhorted to Repent. (b. c. 612.)
+## The People Exhorted to Repent (612 BC)
 
 > **¹** Gather yourselves together, yea, gather together, O nation not desired;  
 > **²** Before the decree bring forth, *before* the day pass as the chaff, before the fierce anger of the LORD come upon you, before the day of the LORD's anger come upon you.  
@@ -22,7 +22,7 @@ III\. Directions prescribed for the doing of this effectually. It is not enough 
 
 IV\. Encouragements given to take these directions: *It may be, you shall be hid in the day of the Lord's anger.* 1. "You particularly that are the *meek of the earth.* Though the day of the Lord's anger do come upon the land, yet you shall be safe, you shall be taken under special protection. *Verily it shall be well with thy remnant,* Jer 15:11. *Thy life will I give unto thee for a prey,* Jer 45:5. *I will deliver thee in that day,* Jer 39:17. *It may be, you shall be hid;* if any be hid, you shall." Good men cannot be sure of temporal preservation, for *all things come alike to all,* but they are most likely to be hid, and stand fairest for a distinguishing care of Providence. It is expressed thus doubtfully to try if they will trust the goodness of God's nature, though they have but the *it may be* of a promise, and to keep up in them a holy fear and watchfulness lest they should seem to come short, and should do any thing to throw themselves out of the divine protection. Note, those that hold fast their integrity, in times of common iniquity, have reason to hope that God will find out a hiding-place for them, where they shall be safe and easy, in times of common calamity. They shall be hid (as Luther says) *aut in cœlo, aut sub cœlo—either in heaven or under heaven,* either in the possession of heaven or under the protection of heaven. Or, 2. "You of this nation, though it be a *nation not desired,* yet, in the day of the Lord's anger with the neighbouring nations, when his judgments are abroad, *you shall be hid;* your land shall be preserved for the sake of those few meek ones that stand in the gap to *turn away the wrath of God.*" It concerns us all to make it sure to ourselves that we shall be hid in the great day of God's wrath; and, if we hide ourselves in the chambers of duty, God will hide us in chambers of safety, Isa 26:20. If we prepare an ark, that shall be our hiding-place, Ge 7:1.
 
-## The Punishment of the Philistines. (b. c. 612.)
+## The Punishment of the Philistines (612 BC)
 
 > **⁴** For Gaza shall be forsaken, and Ashkelon a desolation: they shall drive out Ashdod at the noon day, and Ekron shall be rooted up.  
 > **⁵** Woe unto the inhabitants of the sea coast, the nation of the Cherethites! the word of the LORD *is* against you; O Canaan, the land of the Philistines, I will even destroy thee, that there shall be no inhabitant.  
@@ -37,7 +37,7 @@ I\. It is here foretold that the Philistines, the usurpers, shall be dispossesse
 
 II\. It is here foretold that the house of Judah, the rightful owners, shall recover the possession of it, Zep 2:7. The remnant of those that shall *return out of captivity,* when God visits them, shall be made to *lie down* in safety *in the houses of Ashkelon,* to lie down *in the evening,* when they are weary and sleepy. There *they shall feed* themselves and their flocks. Note, God will at length restore his people to their rights, though they may be long kept out from them.
 
-## The Punishment of Various Nations. (b. c. 612.)
+## The Punishment of Various Nations (612 BC)
 
 > **⁸** I have heard the reproach of Moab, and the revilings of the children of Ammon, whereby they have reproached my people, and magnified *themselves* against their border.  
 > **⁹** Therefore *as* I live, saith the LORD of hosts, the God of Israel, Surely Moab shall be as Sodom, and the children of Ammon as Gomorrah, *even* the breeding of nettles, and salt-pits, and a perpetual desolation: the residue of my people shall spoil them, and the remnant of my people shall possess them.  
@@ -52,7 +52,7 @@ II\. They are both laid under the same doom. Associates in iniquity may expect t
 
 III\. Other nations shall in like manner be humbled, that the Lord alone may be exalted (Zep 2:11): *The Lord will be terrible* unto the Moabites and Ammonites in particular, who have made themselves a terror to his Israel. For, 1. Heathen gods must be abolished. They have long had possession, and their worshippers have both glorified them and gloried in them. But *the Lord* will *famish all the gods of the earth,* will starve them out of their strong-holds. The Pagans had a fond conceit that their idols were regaled by their offerings, and did *eat the fat of their sacrifices,* De 32:38. *Omnia comesta à Belo—Bel has eaten all.* But it is here promised that when the Christian religion is set up in the world men shall be turned from the service of these dumb idols, shall forsake their altars, and bring no more sacrifices to them, and thus they shall be famished, or *made lean* (as the word is), their priests shall. This intimates the vanity of those idols; it lies in the power of their worshippers to famish them; whereas the true God says, *If I were hungry, I would not tell thee.* It intimates also the victory of the God of Israel over them. *Now know we that he is greater than all gods.* 2. Heathen nations must be converted; when the gospel gets ground, by it men shall be brought to worship him who lives for ever (for that is the command of the everlasting gospel, Re 14:7), *every one from his place;* they shall not need to go up to Jerusalem to worship the God of Israel, but wherever they are, they may have access to him. *I will that men pray every where.* God shall be worshipped, not only by all the tribes of Israel and the strangers who join themselves to them, but by all *the isles of the heathen.* This is a promise which looks favourably upon our native country, for it is one of the most considerable of the isles of the Gentiles, by which God will be glorified.
 
-## Ethiopia and Assyria Threatened. (b. c. 612.)
+## Ethiopia and Assyria Threatened (612 BC)
 
 > **¹²** Ye Ethiopians also, ye *shall be* slain by my sword.  
 > **¹³** And he will stretch out his hand against the north, and destroy Assyria; and will make Nineveh a desolation, *and* dry like a wilderness.  

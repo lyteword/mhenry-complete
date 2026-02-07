@@ -6,7 +6,7 @@ weight: 4
 
 In this chapter we have, I. A most earnest and pathetic exhortation to obedience, both in general, and in some particular instances, backed with a great variety of very pressing arguments, repeated again and again, and set before them in the most moving and affectionate manner imaginable, De 4:1-40. II. The appointing of the cities of refuge on that side Jordan, De 4:41-43. III. The particular description of the place where Moses delivered the following repetition of the law, De 4:44-49, etc.
 
-## Exhortations and Arguments. (b. c. 1451.)
+## Exhortations and Arguments (1451 BC)
 
 > **¹** Now therefore hearken, O Israel, unto the statutes and unto the judgments, which I teach you, for to do *them,* that ye may live, and go in and possess the land which the LORD God of your fathers giveth you.  
 > **²** Ye shall not add unto the word which I command you, neither shall ye diminish *ought* from it, that ye may keep the commandments of the LORD your God which I command you.  

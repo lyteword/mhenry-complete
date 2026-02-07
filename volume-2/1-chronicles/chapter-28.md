@@ -6,7 +6,7 @@ weight: 28
 
 The account we have of David's exit, in the beginning of the first book of Kings, does not make his sun nearly so bright as that given in this and the following chapter, where we have his solemn farewell both to his son and his subjects, and must own that he finished well. In this chapter we have, I. A general convention of the states summoned to meet, 1Ch 28:1. II. A solemn declaration of the divine entail both of the crown and of the honour of building the temple upon Solomon, 1Ch 28:2-7. III. An exhortation both to the people and to Solomon to make religion their business, 1Ch 28:8-10. IV. The model and materials delivered to Solomon for the building of the temple, 1Ch 28:11-19. V. Encouragement given him to undertake it and proceed in it, 1Ch 28:20,21.
 
-## David's Charge to the People. (b. c. 1015.)
+## David's Charge to the People (1015 BC)
 
 > **¹** And David assembled all the princes of Israel, the princes of the tribes, and the captains of the companies that ministered to the king by course, and the captains over the thousands, and captains over the hundreds, and the stewards over all the substance and possession of the king, and of his sons, with the officers, and with the mighty men, and with all the valiant men, unto Jerusalem.  
 > **²** Then David the king stood up upon his feet, and said, Hear me, my brethren, and my people: *As for me,* I *had* in mine heart to build a house of rest for the ark of the covenant of the LORD, and for the footstool of our God, and had made ready for the building:  
@@ -45,7 +45,7 @@ VII\. He concluded with a charge to Solomon himself, 1Ch 28:9,10. He was much co
 
 3\. The means prescribed in order hereunto, and they are prescribed to us all. (1.) Caution: *Take heed;* beware of every thing that looks like, or leads to, that which is evil. (2.) Courage: *Be strong, and do it.* We cannot do our work as we should unless we put on resolution, and fetch in strength from divine grace.
 
-## David's Charge to Solomon. (b. c. 1015.)
+## David's Charge to Solomon (1015 BC)
 
 > **¹¹** Then David gave to Solomon his son the pattern of the porch, and of the houses thereof, and of the treasuries thereof, and of the upper chambers thereof, and of the inner parlours thereof, and of the place of the mercy seat,  
 > **¹²** And the pattern of all that he had by the spirit, of the courts of the house of the LORD, and of all the chambers round about, of the treasuries of the house of God, and of the treasuries of the dedicated things:  

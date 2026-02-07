@@ -6,7 +6,7 @@ weight: 11
 
 This chapter continues and concludes the history of the conquest of Canaan; of the reduction of the southern parts we had an account in the foregoing chapter, after which we may suppose Joshua allowed his forces some breathing-time; now here we have the story of the war in the north, and the happy success of that war. I. The confederacy of the northern crowns against Israel, Jos 11:1-5. II. The encouragement which God gave to Joshua to engage them, Jos 11:6. III. His victory over them, Jos 11:7-9. IV. The taking of their cities, Jos 11:10-15. V. The destruction of the Anakim, Jos 11:21,22. VI. The general conclusion of the story of this war, Jos 11:16-20,23.
 
-## Confederacy Against Israel. (b. c. 1450.)
+## Confederacy Against Israel (1450 BC)
 
 > **¹** And it came to pass, when Jabin king of Hazor had heard *those things,* that he sent to Jobab king of Madon, and to the king of Shimron, and to the king of Achshaph,  
 > **²** And to the kings that *were* on the north of the mountains, and of the plains south of Chinneroth, and in the valley, and in the borders of Dor on the west,  
@@ -30,7 +30,7 @@ IV\. His success, Jos 11:8. He obtained the honour and advantage of a complete v
 
 V\. His obedience to the orders given him, in destroying the horses and chariots (Jos 11:9), which was an instance, 1. Of his subjection to the divine will, as one under authority, that must do as he is bidden. 2. Of his self-denial, and crossing his own genius and inclination in compliance with God's command. 3. Of his confidence in the power of God engaged for Israel, which enabled them to despise the chariots and horses which others trusted in, Ps 20:7,33:17. 4. Of his care to keep up in the people the like confidence in God, by taking that from them which they would be tempted to trust too much to. This was *cutting of a right hand.*
 
-## Joshua's Victories. (b. c. 1450.)
+## Joshua's Victories (1450 BC)
 
 > **¹⁰** And Joshua at that time turned back, and took Hazor, and smote the king thereof with the sword: for Hazor beforetime was the head of all those kingdoms.  
 > **¹¹** And they smote all the souls that *were* therein with the edge of the sword, utterly destroying *them:* there was not any left to breathe: and he burnt Hazor with fire.  

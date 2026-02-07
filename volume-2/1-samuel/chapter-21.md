@@ -6,7 +6,7 @@ weight: 21
 
 David has now quite taken leave both of Saul's court and of his camp, has bidden farewell to his alter idem—his other self, the beloved Jonathan; and henceforward to the end of this book he is looked upon and treated as an outlaw and proclaimed a traitor. We still find him shifting from place to place for his own safety, and Saul pursuing him. His troubles are very particularly related in this and the following chapters, not only to be a key to the Psalms, but that he might be, as other prophets, an example to the saints in all ages, "of suffering affliction, and of patience," and especially that he might be a type of Christ, who, being anointed to the kingdom, humbled himself, and was therefore highly exalted. But the example of the suffering Jesus was a copy without a blot, that of David was not so; witness the records of this chapter, where we find David in his flight, I. Imposing upon Abimelech the priest, to get from him both victuals and arms, 1Sa 21:1-9. II. Imposing upon Achish, king of Gath, by feigning himself mad, 1Sa 21:10-15. Justly are troubles called temptations, for many are by them drawn into sin.
 
-## David Obtains the Show-Bread; David Gets the Sword of Goliath. (b. c. 1057.)
+## David Obtains the Show-Bread; David Gets the Sword of Goliath (1057 BC)
 
 > **¹** Then came David to Nob to Ahimelech the priest: and Ahimelech was afraid at the meeting of David, and said unto him, Why *art* thou alone, and no man with thee?  
 > **²** And David said unto Ahimelech the priest, The king hath commanded me a business, and hath said unto me, Let no man know any thing of the business whereabout I send thee, and what I have commanded thee: and I have appointed *my* servants to such and such a place.  
@@ -34,7 +34,7 @@ III\. David, under pretence of being sent by Saul upon public services, solicits
 
 Thus was David well furnished with arms and victuals; but it fell out very unhappily that there was one of Saul's servants then attending before the Lord, *Doeg* by name, that proved a base traitor both to David and Ahimelech. He was by birth an Edomite (1Sa 21:7), and though proselyted to the Jewish religion, to get the preferment he now had under Saul, yet he retained the ancient and hereditary enmity of Edom to Israel. He was master of the herds, which perhaps was then a place of as much honour as master of the horse is now. Some occasion or other he had at this time to wait on the priest, either to be purified from some pollution or to pay some vow; but, whatever his business was, it is said, he was *detained before the Lord.* He must attend and could not help it, but he was sick of the service, *snuffed at it, and said, What a weariness is it!* Mal 1:13. He would rather have been any where else than before the Lord, and therefore, instead of minding the business he came about, was plotting to do David a mischief and to be revenged on Ahimelech for detaining him. God's sanctuary could never secure such wolves in sheep's clothing. See Ga 2:4.
 
-## David Driven from Achish. (b. c. 1057.)
+## David Driven from Achish (1057 BC)
 
 > **¹⁰** And David arose, and fled that day for fear of Saul, and went to Achish the king of Gath.  
 > **¹¹** And the servants of Achish said unto him, *Is* not this David the king of the land? did they not sing one to another of him in dances, saying, Saul hath slain his thousands, and David his ten thousands?  

@@ -6,7 +6,7 @@ weight: 19
 
 This chapter introduces the solemnity of the giving of the law upon Mount Sinai, which was one of the most striking appearances of the divine glory that ever was in this lower world. We have here, I. The circumstances of time and place, Ex 19:1,2. II. The covenant between God and Israel settled in general. The gracious proposal God made to them (Ex 19:3-6), and their consent to the proposal, Ex 19:7,8. III. Notice given three days before of God's design to give the law out of a thick cloud, Ex 19:9. Orders given to prepare the people to receive the law (Ex 19:10-13), and care taken to execute those orders, Ex 19:14,15. IV. A terrible appearance of God's glory upon mount Sinai, Ex 19:16-20. V. Silence proclaimed, and strict charges given to the people to observe decorum while God spoke to them, Ex 19:21-25, etc.
 
-## The Covenant of Sinai. (b. c. 1491.)
+## The Covenant of Sinai (1491 BC)
 
 > **¹** In the third month, when the children of Israel were gone forth out of the land of Egypt, the same day came they *into* the wilderness of Sinai.  
 > **²** For they were departed from Rephidim, and were come *to* the desert of Sinai, and had pitched in the wilderness; and there Israel camped before the mount.  
@@ -23,7 +23,7 @@ II\. The charter itself. Moses was called up the mountain (on the top of which G
 
 III\. Israel's acceptance of this charter, and consent to the conditions of it. 1. Moses faithfully delivered God's message to them (Ex 19:7): He *laid before their faces all those words;* he not only explained to them what God had given him in charge, but he put it to their choice whether they would accept these promises upon these terms or no. His laying it to their faces denotes his laying it to their consciences. 2. They readily agreed to the covenant proposed. They would oblige themselves to obey the voice of God, and take it as a great favour to be made a kingdom of priests to him. They answered together as one man, *nemine contradicente—without a dissentient voice* (Ex 19:8): *All that the Lord hath spoken we will do.* Thus they strike the bargain, accepting the Lord to be to them a God, and giving up themselves to be to him a people. O that there had been such a heart in them! 3. Moses, as a mediator, returned the words of the people to God, Ex 19:8. Thus Christ, the Mediator between us and God, as a prophet reveals God's will to us, his precepts and promises, and then as a priest offers up to God our spiritual sacrifices, not only of prayer and praise, but of devout affections and pious resolutions, the work of his own Spirit in us. Thus he is that blessed *days-man who lays his hand upon us both.*
 
-## The Approach of God Announced. (b. c. 1491.)
+## The Approach of God Announced (1491 BC)
 
 > **⁹** And the LORD said unto Moses, Lo, I come unto thee in a thick cloud, that the people may hear when I speak with thee, and believe thee for ever. And Moses told the words of the people unto the LORD.  
 > **¹⁰** And the LORD said unto Moses, Go unto the people, and sanctify them to day and to morrow, and let them wash their clothes,  
@@ -43,7 +43,7 @@ II\. He orders Moses to make preparation for this great solemnity, giving him tw
 
 3\. He must order the people to attend upon the summons that should be given (Ex 19:13): "*When the trumpet soundeth long* then let them take their places at the foot of the mount, and so sit down at God's feet," as it is explained, De 33:3. Never was so great a congregation called together, and preached to, at once, as this was here. No one man's voice could have reached so many, but the voice of God did.
 
-## The Divine Presence on Mount Sinai. (b. c. 1491.)
+## The Divine Presence on Mount Sinai (1491 BC)
 
 > **¹⁶** And it came to pass on the third day in the morning, that there were thunders and lightnings, and a thick cloud upon the mount, and the voice of the trumpet exceeding loud; so that all the people that *was* in the camp trembled.  
 > **¹⁷** And Moses brought forth the people out of the camp to meet with God; and they stood at the nether part of the mount.  

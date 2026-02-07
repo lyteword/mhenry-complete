@@ -6,7 +6,7 @@ weight: 2
 
 We have now come to what was principally intended, the register of the children of Israel, that distinguished people, that were to "dwell alone, and not be reckoned among the nations." Here we have, I. The names of the twelve sons of Israel, 1Ch 2:1,2. II. An account of the tribe of Judah, which has the precedency, not so much for the sake of David as for the sake of the Son of David, our Lord, who sprang out of Judah, Heb 7:14. 1. The first descendants from Judah, down to Jesse, 1Ch 2:3-12. 2. The children of Jesse, 1Ch 2:13-17. 3. The posterity of Hezron, not only through Ram, from whom David came, but through Caleb (1Ch 2:18-20), Segub (1Ch 2:21-24), Jerahmeel (1Ch 2:25-33, and so to 1Ch 2:34-41), and more by Caleb (1Ch 2:42-49), with the family of Caleb the son of Hur, 1Ch 2:50-55. The best exposition we can have of this and the following chapters, and which will give the clearest view of them, is found in those genealogical tables which were published with some of the first impressions of the last English Bible about 100 years ago, and continued for some time; and it is a pity but they were revived in some of our later editions, for they are of great use to those who diligently search the scriptures. They are said to be drawn up by that great master in scripture-learning, Mr. Hugh Broughton. We meet with them sometimes in old Bibles.
 
-## Genealogies. (b. c. 1751.)
+## Genealogies (1751 BC)
 
 > **¹** These *are* the sons of Israel; Reuben, Simeon, Levi, and Judah, Issachar, and Zebulun,  
 > **²** Dan, Joseph, and Benjamin, Naphtali, Gad, and Asher.  
@@ -32,7 +32,7 @@ II\. The family of Judah. That tribe was most praised, most increased, and most 
 
 III\. The family of Jesse, of which a particularly account is kept for the sake of David, and the Son of David, who is *a rod out of the stem of Jesse,* Isa 11:1. Hence it appears that David was a seventh son, and that his three great commanders, Joab, Abishai, and Asahel, were the sons of one of his sisters, and Amasa of another. Three of the four went down slain to the pit, though they were the terror of the mighty.
 
-## Genealogies. (b. c. 1450.)
+## Genealogies (1450 BC)
 
 > **¹⁸** And Caleb the son of Hezron begat *children* of Azubah *his* wife, and of Jerioth: her sons *are* these; Jesher, and Shobab, and Ardon.  
 > **¹⁹** And when Azubah was dead, Caleb took unto him Ephrath, which bare him Hur.  

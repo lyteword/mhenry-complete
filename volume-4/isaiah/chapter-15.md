@@ -6,7 +6,7 @@ weight: 15
 
 This chapter, and that which follows it, are the burden of Moab—a prophecy of some great desolation that was coming upon that country, which bordered upon this land of Israel, and had often been injurious and vexatious to it, though the Moabites were descended from Lot, Abraham's kinsman and companion, and though the Israelites, by the appointment of God, had spared them when they might both easily and justly have cut them off with their neighbours. In this chapter we have, I. Great lamentation made by the Moabites, and by the prophet himself for them, Isa 15:1-5. II. The great calamities which should occasion that lamentation and justify it, Isa 15:6-9.
 
-## The Burden of Moab. (b. c. 725.)
+## The Burden of Moab (725 BC)
 
 > **¹** The burden of Moab. Because in the night Ar of Moab is laid waste, *and* brought to silence; because in the night Kir of Moab is laid waste, *and* brought to silence;  
 > **²** He is gone up to Bajith, and to Dibon, the high places, to weep: Moab shall howl over Nebo, and over Medeba: on all their heads *shall be* baldness, *and* every beard cut off.  
@@ -28,7 +28,7 @@ IV\. That the courage of their militia should fail them. Though they were bred s
 
 V\. That the outcry for these calamities should propagate grief to all the adjacent parts, Isa 15:5. 1. The prophet himself has very sensible impressions made upon his spirit by the prediction of it: "*My heart shall cry out for Moab;* though they are enemies to Israel, they are our fellow-creatures, of the same rank with us, and therefore it should grieve us to see them in such distress, the rather because we know not how soon it may be our own turn to drink of the same cup of trembling." Note, It becomes God's ministers to be of a tender spirit, not to desire the woeful day, but to be like their master, who wept over Jerusalem even when he gave her up to ruin, like their God, *who desires not the death of sinners.* 2. All the neighbouring cities shall echo to the lamentations of Moab. *The fugitives,* who are making the best of their way to shift for their own safety, shall carry the cry to *Zoar,* the city to which their ancestor Lot fled for shelter from Sodom's flames and which was spared for his sake. They shall make as great a noise with their cry *as a heifer of three years old* does when she goes *lowing* for her calf, as 1Sa 6:12. They shall go up the hill of *Luhith* (as David went up the ascent of Mount Olivet, many a weary step and all in tears, 2Sa 15:30), and *in the way of Horonaim* (a dual termination), the way that leads to the two Beth-horons, the upper and the nether, which we read of, Jos 16:3,5. Thither the cry shall be carried, there it shall be raised, even at that great distance: *A cry of destruction;* that shall be the cry, like, "Fire, fire! we are all undone." Grief is catching, so is fear, and justly, for trouble is spreading and when it begins who knows where it will end?
 
-## The Burden of Moab. (b. c. 725.)
+## The Burden of Moab (725 BC)
 
 > **⁶** For the waters of Nimrim shall be desolate: for the hay is withered away, the grass faileth, there is no green thing.  
 > **⁷** Therefore the abundance they have gotten, and that which they have laid up, shall they carry away to the brook of the willows.  

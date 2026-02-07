@@ -6,7 +6,7 @@ weight: 18
 
 This chapter is concerning Moses himself, and the affairs of his own family. I. Jethro his father-in-law brings to him his wife and children, Ex 18:1-6. II. Moses entertains his father-in-law with great respect (Ex 18:7), with good discourse (Ex 18:8-11), with a sacrifice and a feast, Ex 18:12. III. Jethro advises him about the management of his business as a judge in Israel, to take inferior judges in to his assistance (Ex 18:13-23), and Moses, after some time, takes his counsel (Ex 18:24-26), and so they part, Ex 18:27.
 
-## Jethro's Visit to Moses. (b. c. 1491.)
+## Jethro's Visit to Moses (1491 BC)
 
 > **¹** When Jethro, the priest of Midian, Moses' father in law, heard of all that God had done for Moses, and for Israel his people, *and* that the LORD had brought Israel out of Egypt;  
 > **²** Then Jethro, Moses' father in law, took Zipporah, Moses' wife, after he had sent her back,  
@@ -36,7 +36,7 @@ III\. The impressions this narrative made upon Jethro. 1. He congratulated God's
 
 IV\. The expressions of their joy and thankfulness. They had communion with each other both in a feast and in a sacrifice, Ex 18:12. Jethro, being hearty in Israel's interests, was cheerfully admitted though a Midianite, into fellowship with Moses and the elders of Israel, *forasmuch as he also was a son of Abraham,* though of a younger house. 1. They joined in a sacrifice of thanksgiving: *Jethro took burnt offerings for God,* and probably offered them himself, for he was a priest in Midian, and a worshipper of the true God, and the priesthood was not yet settled in Israel. Note, Mutual friendship is sanctified by joint-worship. It is a very good thing for relations and friends, when they come together, to join in the spiritual sacrifice of prayer and praise, as those that meet in Christ the centre of unity. 2. They joined in a feast of rejoicing, a feast upon the sacrifice. Moses, upon this occasion, invited his relations and friends to an entertainment in his own tent, a laudable usage among friends, and which Christ himself, not only warranted, but recommended, by his acceptance of such invitations. This was a temperate feast: *They did eat bread;* this bread, we may suppose, was manna. Jethro must see and taste that bread from heaven, and, though a Gentile, is as welcome to it as any Israelite; the Gentiles still are so to Christ the bread of life. It was a feast kept after a godly sort: *They did eat bread before God,* soberly, thankfully, in the fear of God; and their table-talk was such as became saints. Thus we must eat and drink to the glory of God, behaving ourselves at our tables as those who believe that God's eye is upon us.
 
-## Jethro's Advice to Moses. (b. c. 1491.)
+## Jethro's Advice to Moses (1491 BC)
 
 > **¹³** And it came to pass on the morrow, that Moses sat to judge the people: and the people stood by Moses from the morning unto the evening.  
 > **¹⁴** And when Moses' father in law saw all that he did to the people, he said, What *is* this thing that thou doest to the people? why sittest thou thyself alone, and all the people stand by thee from morning unto even?  

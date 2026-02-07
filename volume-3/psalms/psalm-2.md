@@ -6,7 +6,7 @@ weight: 2
 
 As the foregoing psalm was moral, and showed us our duty, so this is evangelical, and shows us our Saviour. Under the type of David's kingdom (which was of divine appointment, met with much opposition, but prevailed at last) the kingdom of the Messiah, the Son of David, is prophesied of, which is the primary intention and scope of the psalm; and I think there is less in it of the type, and more of the anti-type, than in any of the gospel psalms, for there is nothing in it but what is applicable to Christ, but some things that are not at all applicable to David (Ps 2:6,7): "Thou art my Son" (Ps 2:8), "I will give thee the uttermost parts of the earth," and (Ps 2:12), "Kiss the Son." It is interpreted of Christ Acts 4:24,13:33, Heb 1:5. The Holy Ghost here foretels, I. The opposition that should be given to the kingdom of the Messiah, Ps 2:1-3. II. The baffling and chastising of that opposition, Ps 2:4,5. III. The setting up of the kingdom of Christ, notwithstanding that opposition, Ps 2:6. IV. The confirmation and establishment of it, Ps 2:7. V. A promise of the enlargement and success of it, Ps 2:8,9. VI. A call and exhortation to kings and princes to yield themselves the willing subjects of this kingdom, Ps 2:10-12. Or thus: We have here, I. Threatenings denounced against the adversaries of Christ's kingdom, Ps 2:1-6. II. Promises made to Christ himself, the head of this kingdom, Ps 2:7-9. III. Counsel given to all to espouse the interests of this kingdom, Ps 2:10-12. This psalm, as the former, is very fitly prefixed to this book of devotions, because, as it is necessary to our acceptance with God that we should be subject to the precepts of his law, so it is likewise that we should be subject to the grace of his gospel, and come to him in the name of a Mediator.
 
-## The Enemies of Messiah.
+## The Enemies of Messiah
 
 > **¹** Why do the heathen rage, and the people imagine a vain thing?  
 > **²** The kings of the earth set themselves, and the rulers take counsel together, against the LORD, and against his anointed, *saying,*  
@@ -39,7 +39,7 @@ II\. The mighty conquest gained over all this threatening opposition. If heaven 
 
 We are to sing Ps 2:1-6 with a holy exultation, triumphing over all the enemies of Christ's kingdom (not doubting but they will all of them be quickly made his footstool), and triumphing in Jesus Christ as the great trustee of power; and we are to pray, in firm belief of the assurance here given, "Father in heaven, *Thy kingdom come;* let thy Son's kingdom come."
 
-## The Triumphs of Messiah.
+## The Triumphs of Messiah
 
 > **⁷** I will declare the decree: the LORD hath said unto me, Thou *art* my Son; this day have I begotten thee.  
 > **⁸** Ask of me, and I shall give *thee* the heathen *for* thine inheritance, and the uttermost parts of the earth *for* thy possession.  
@@ -53,7 +53,7 @@ II\. There is a declaration of that decree as far as is necessary for the satisf
 
 In singing this, and praying it over, we must give glory to Christ as the eternal Son of God and our rightful Lord, and must take comfort from this promise, and plead it with God, that the kingdom of Christ shall be enlarged and established and shall triumph over all opposition.
 
-## Warning to the Enemies of Messiah.
+## Warning to the Enemies of Messiah
 
 > **¹⁰** Be wise now therefore, O ye kings: be instructed, ye judges of the earth.  
 > **¹¹** Serve the LORD with fear, and rejoice with trembling.  

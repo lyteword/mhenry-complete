@@ -4,7 +4,7 @@ weight: 21
 
 # Chapter 21
 
-## Miscellaneous Maxims.
+## Miscellaneous Maxims
 
 > **¹** The king's heart *is* in the hand of the LORD, *as* the rivers of water: he turneth it whithersoever he will.  
 

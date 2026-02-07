@@ -6,7 +6,7 @@ weight: 9
 
 In this chapter we have, I. The famous story of St. Paul's conversion from being an outrageous persecutor of the gospel of Christ to be an illustrious professor and preacher of it. 1. How he was first awakened and wrought upon by an appearance of Christ himself to him as he was going upon an errand of persecution to Damascus: and what a condition he was in while he lay under the power of those convictions and terrors, Ac 9:1-9. 2. How he was baptized by Ananias, by immediate directions from heaven, Ac 9:10-19. 3. How he immediately commenced doctor, and preached the faith of Christ, and proved what he preached, Ac 9:20-22. 4. How he was persecuted, and narrowly escaped with his life, Ac 9:23-25. 5. How he was admitted among the brethren at Jerusalem: how he preached, and was persecuted there, Ac 9:26-30. 6. The rest and quietness which the churches enjoyed for some time after this, Ac 9:31. II. The cure wrought by Peter on Eneas, who had long been laid up with a palsy, Ac 9:32-35. III. The raising of Tabitha from death to life, at the prayer of Peter, Ac 9:36-43.
 
-## Saul's Conversion.
+## Saul's Conversion
 
 > **¹** And Saul, yet breathing out threatenings and slaughter against the disciples of the Lord, went unto the high priest,  
 > **²** And desired of him letters to Damascus to the synagogues, that if he found any of this way, whether they were men or women, he might bring them bound unto Jerusalem.  
@@ -74,7 +74,7 @@ II\. How suddenly and strangely a blessed change was wrought in him, not in the 
 
 8\. What condition Saul was in after this, Ac 9:8,9. (1.) *He arose from the earth,* when Christ commanded him, but probably not without help, the vision had made him so faint and weak, I will not say like Belshazzar, when the joints of his loins were loosed and his knees smote one against another, but like Daniel, when upon the sight of a vision no strength remained in him, Da 10:16,17. (2.) *When his eyes were opened,* he found that his sight was gone, and *he saw no man,* none of the men that were with him, and began now to be busy about him. It was not so much this glaring light that, *by dazzling his eyes, had dimmed them—Nimium sensibile lædit sensum;* for then those with him would have lost their sight too; but it was a sight of Christ, whom the rest saw not, that had this effect upon him. Thus a believing sight of the glory of God in the face of Christ dazzles the eyes to all things here below. Christ, in order to the further discovery of himself and his gospel to Paul, took him off from the sight of other things, which he must look off, that he may look unto Jesus, and to him only. (3.) *They led him by the hand into Damascus;* whether to a public house, or to some friend's house, is not certain; but thus he who thought to have led the disciples of Christ prisoners and captives to Jerusalem was himself led a prisoner and a captive to Christ into Damascus. He was thus taught what need he had of the grace of Christ to lead his soul (being naturally blind and apt to mistake) into all truth. (4.) He lay *without sight,* and without food, *neither did eat nor drink for three days,* Ac 9:9. I do not think, as some do, that now he had his rapture into the third heavens, which he speaks of, 2Co 12:1-31. So far from this that we have reason to think he was all this time rather in the belly of hell, suffering God's terrors for his sins, which were now set in order before him: he was in the dark concerning his own spiritual state, and was so wounded in spirit for sin that he could relish neither meat nor drink.
 
-## Ananias Sent to Saul; Ananias Restores Saul's Sight; Saul Associates with the Disciples; Saul Preaches Christ at Damascus.
+## Ananias Sent to Saul; Ananias Restores Saul's Sight; Saul Associates with the Disciples; Saul Preaches Christ at Damascus
 
 > **¹⁰** And there was a certain disciple at Damascus, named Ananias; and to him said the Lord in a vision, Ananias. And he said, Behold, I *am here,* Lord.  
 > **¹¹** And the Lord *said* unto him, Arise, and go into the street which is called Straight, and enquire in the house of Judas for *one* called Saul, of Tarsus: for, behold, he prayeth,  
@@ -126,7 +126,7 @@ IV\. The good work that was begun in Saul is carried on wonderfully; this new-bo
 
 4\. He confuted and confounded those that opposed the doctrine of Christ, Ac 9:22. He signalized himself, not only in the pulpit, but in the schools, and showed himself supernaturally enabled, not only to preach the truth, but to maintain and defend it when he had preached it. (1.) He increased in strength. He became more intimately acquainted with the gospel of Christ, and his pious affections grew more strong. He grew more bold and daring and resolute in defence of the gospel: *He increased the more* for the reflections that were cast upon him (Ac 9:21), in which his new friends upbraided him as having been a persecutor, and his old friends upbraided him as being now a turncoat; but Saul, instead of being discouraged by the various remarks made upon his conversion, was thereby so much the more emboldened, finding he had enough at hand wherewith to answer the worst they could say to him. (2.) He ran down his antagonists, and *confounded the Jews who dwelt in Damascus;* he silenced them, and shamed them—answered their objections to the satisfaction of all indifferent persons, and pressed them with arguments which they could make no reply to. In all his discourses with the Jews he was still *proving that this Jesus is very Christ, is the Christ, the anointed of God, the true Messiah promised to the fathers.* He was proving it, *symbibazon*—*affirming it and confirming it,* teaching with persuasion. And we have reason to think he was instrumental in converting many to the faith of Christ, and building up the church at Damascus, which he went thither to make havoc of. Thus *out of the eater came forth meat, and out of the strong sweetness.*
 
-## The Jews Plot to Kill Saul; Saul Is Received by the Apostles; Prosperity of the Church.
+## The Jews Plot to Kill Saul; Saul Is Received by the Apostles; Prosperity of the Church
 
 > **²³** And after that many days were fulfilled, the Jews took counsel to kill him:  
 > **²⁴** But their laying await was known of Saul. And they watched the gates day and night to kill him.  
@@ -156,7 +156,7 @@ III\. The churches had now a comfortable gleam of liberty and peace (Ac 9:31): *
 
 3\. God blessed it to them for their increase in number: They *were multiplied.* Sometimes the church multiplies the more for its being afflicted, as Israel in Egypt; yet if it were always so, the saints of the Most High would be worn out. At other times its rest contributes to its growth, as it enlarges the opportunity of ministers, and invites those in who at first are afraid of suffering. Or, *then,* when *they walked in the fear of God and his comforts, they were multiplied.* Thus those that will not be won by the word may be won by the conversation of professors.
 
-## The Cure of Æneas.
+## The Cure of Æneas
 
 > **³²** And it came to pass, as Peter passed throughout all *quarters,* he came down also to the saints which dwelt at Lydda.  
 > **³³** And there he found a certain man named Æneas, which had kept his bed eight years, and was sick of the palsy.  
@@ -169,7 +169,7 @@ II\. The cure Peter wrought on *Eneas,* a man that had been bedridden eight year
 
 III\. The good influence this had upon many (Ac 9:35): *All that dwelt at Lydda and Saron saw him, and turned to the Lord.* We can scarcely think that every individual person in those countries took cognizance of the miracle, and was wrought upon by it; but many, the generality of the people in the town of Lydda and in the country of Saron, or Sharon, a fruitful plain or valley, of which it was foretold, *Sharon shall be a fold of flocks,* Isa 65:10. 1. They all made enquiry into the truth of the miracle, did not overlook it, but saw him that was healed, and saw that it was a miraculous cure that was wrought upon him by the power of Christ, in his name, and with a design to confirm and ratify that doctrine of Christ which was now preached to the world. 2. They all submitted to the convincing proof and evidence there was in this of the divine origin of the Christian doctrine, and *turned to the Lord,* to the Lord Jesus. They turned from Judaism to Christianity; they embraced the doctrine of Christ, and submitted to his ordinances, and turned themselves over to him to be ruled and taught and saved by him.
 
-## Tabitha Raised to Life.
+## Tabitha Raised to Life
 
 > **³⁶** Now there was at Joppa a certain disciple named Tabitha, which by interpretation is called Dorcas: this woman was full of good works and almsdeeds which she did.  
 > **³⁷** And it came to pass in those days, that she was sick, and died: whom when they had washed, they laid *her* in an upper chamber.  

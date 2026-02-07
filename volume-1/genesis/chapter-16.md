@@ -6,7 +6,7 @@ weight: 16
 
 Hagar is the person mostly concerned in the story of this chapter, an obscure Egyptian woman, whose name and story we never should have heard of if Providence had not brought her into the family of Abram. Probably she was one of those maid-servants whom the king of Egypt, among other gifts, bestowed upon Abram, Ge 14:16. Concerning her, we have four things in this chapter:—I. Her marriage to Abram her master, Ge 16:1-3. II. Her misbehaviour towards Sarai her mistress, Ge 16:4-6. III. Her discourse with an angel that met her in her flight, Ge 16:7-14. IV. Her delivery of a son, Ge 16:15,16.
 
-## Abram, Sarai, and Hagar. (b. c. 1911.)
+## Abram, Sarai, and Hagar (1911 BC)
 
 > **¹** Now Sarai Abram's wife bare him no children: and she had a handmaid, an Egyptian, whose name *was* Hagar.  
 > **²** And Sarai said unto Abram, Behold now, the LORD hath restrained me from bearing: I pray thee, go in unto my maid; it may be that I may obtain children by her. And Abram hearkened to the voice of Sarai.  
@@ -56,7 +56,7 @@ II\. How he examined her, Ge 16:8. Observe,
 
 4\. How he sent her back, with suitable and compassionate counsel: "*Return to thy mistress, and submit thyself under her hand,* Ge 16:9. Go home, and humble thyself for what thou hast done amiss, and beg pardon, and resolve for the future to behave thyself better." He makes no question but she would be welcome, though it does not appear that Abram sent after her. Note, Those that have gone away from their place and duty, when they are convinced of their error, must hasten their return and reformation, how mortifying soever it may be.
 
-## The Promise Concerning Ishmael. (b. c. 1911.)
+## The Promise Concerning Ishmael (1911 BC)
 
 > **¹⁰** And the angel of the LORD said unto her, I will multiply thy seed exceedingly, that it shall not be numbered for multitude.  
 > **¹¹** And the angel of the LORD said unto her, Behold, thou *art* with child, and shalt bear a son, and shalt call his name Ishmael; because the LORD hath heard thy affliction.  
@@ -76,7 +76,7 @@ II\. Hagar's pious reflection upon this gracious appearance of God to her, Ge 16
 
 III\. The name which this gave to the place: *Beer-lahai-roi, The well of him that liveth and seeth me,* Ge 16:14. It is probable that Hagar put this name upon it; and it was retained long after, *in perpetuam rei memoriam—a lasting memorial of this event.* This was a place where the God of glory manifested the special cognizance and care he took of a poor woman in distress. Note, 1. He that is all-seeing is ever-living; he lives and sees us. 2. Those that are graciously admitted into communion with God, and receive seasonable comforts from him, should tell others what he has done for their souls, that they also may be encouraged to seek him and trust in him. 3. God's gracious manifestations of himself to us are to be had in everlasting remembrance by us, and should never be forgotten.
 
-## The Birth of Ishmael. (b. c. 1911.)
+## The Birth of Ishmael (1911 BC)
 
 > **¹⁵** And Hagar bare Abram a son: and Abram called his son's name, which Hagar bare, Ishmael.  
 > **¹⁶** And Abram *was* fourscore and six years old, when Hagar bare Ishmael to Abram.  

@@ -6,7 +6,7 @@ weight: 125
 
 This short psalm may be summed up in those words of the prophet (Isa 3:10,11), "Say you to the righteous, It shall be well with him. Woe to the wicked, it shall be ill with him." Thus are life and death, the blessing and the curse, set before us often in the psalms, as well as in the law and the prophets. I. It is certainly well with the people of God; for, 1. They have the promises of a good God that they shall be fixed (Ps 125:1), and safe (Ps 125:2), and not always under the hatches, Ps 125:3. 2. They have the prayers of a good man, which shall be heard for them, Ps 125:4. II. It is certainly ill with the wicked, and particularly with the apostates, Ps 125:5. Some of the Jewish rabbies are of opinion that it has reference to the days of the Messiah; however, we that are members of the gospel-church may certainly, in singing this psalm, take comfort of these promises, and the more so if we stand in awe of the threatening.
 
-## The Security of God's People.
+## The Security of God's People
 
 A song of degrees.
 
@@ -26,7 +26,7 @@ II\. The promises themselves.
 
 3\. That their troubles shall last no longer than their strength will serve to bear them up under them, Ps 125:3. (1.) It is supposed that the *rod of the wicked* may come, may fall, *upon the lot of the righteous.* The rod of their power may oppress them; the rod of their anger may vex and torment them. It may fall upon their persons, their estates, their liberties, their families, their names, any thing that falls to their lot, only it cannot reach their souls. (2.) It is promised that, though it may come upon their lot, it shall not rest there; it shall not continue so long as the enemies design, and as the people of God fear, but God will cut the work short in righteousness, so short that even *with the temptation he will make a way for them to escape.* (3.) It is considered as a reason of this promise that if the trouble should continue over-long the righteous themselves would be in temptation to *put forth their hands to iniquity,* to join with wicked people in their wicked practices, to say as they say and do as they do. There is danger lest, being long persecuted for their religion, at length they grow weary of it and willing to give it up, lest, being kept long in expectation of promised mercies, they begin to distrust the promise, and to think of casting God off, upon suspicion of his having cast them off. See Ps 73:13,14. Note, God considers the frame of his people, and will proportion their trials to their strength by the care of his providence, as well as their strength to their trials by the power of his grace. *Oppression makes a wise man mad,* especially if it continue long; therefore *for the elect's sake* the days shall be shortened, that, whatever becomes of their lot in this world, they may not lose their lot among the chosen.
 
-## The Security of God's People.
+## The Security of God's People
 
 > **⁴** Do good, O LORD, unto *those that be* good, and *to them that are* upright in their hearts.  
 > **⁵** As for such as turn aside unto their crooked ways, the LORD shall lead them forth with the workers of iniquity: *but* peace *shall be* upon Israel.  

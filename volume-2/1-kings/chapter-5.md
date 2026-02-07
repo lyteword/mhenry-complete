@@ -6,7 +6,7 @@ weight: 5
 
 The great work which Solomon was raised up to do was the building of the temple; his wealth and wisdom were given him to qualify him for that. In this, especially, he was to be a type of Christ, for "he shall build the temple of the Lord," Zec 6:12. In this chapter we have an account of the preparations he made for that and his other buildings. Gold and silver his good father had prepared in abundance, but timber and stones he must get ready; and about these we have him treating with Hiram king of Tyre. I. Hiram congratulated him on his accession to the throne, 1Ki 5:1. II. Solomon signified to him his design to build the temple and desired him to furnish him with workmen, 1Ki 5:2-6. III. Hiram agreed to do it, 1Ki 5:7-9. IV. Solomon's work was accordingly well done and Hiram's workmen were well paid, 1Ki 5:10-18.
 
-## Solomon's Agreement with Hiram. (b. c. 1014.)
+## Solomon's Agreement with Hiram (1014 BC)
 
 > **¹** And Hiram king of Tyre sent his servants unto Solomon; for he had heard that they had anointed him king in the room of his father: for Hiram was ever a lover of David.  
 > **²** And Solomon sent to Hiram, saying,  

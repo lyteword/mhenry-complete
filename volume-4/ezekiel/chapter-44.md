@@ -6,7 +6,7 @@ weight: 44
 
 In this chapter we have, I. The appropriating of the east gate of the temple to the prince, Eze 44:1-3. II. A reproof sent to the house of Israel for their former profanations of God's sanctuary, with a charge to them to be more strict for the future, Eze 44:4-9. III. The degrading of those Levites that had formerly been guilty of idolatry and the establishing of the priesthood in the family of Zadok, which had kept their integrity, Eze 44:10-16. IV. Divers laws and ordinances concerning the priests, Eze 44:17-31.
 
-## Message of the House of Israel. (b. c. 574.)
+## Message of the House of Israel (574 BC)
 
 > **¹** Then he brought me back the way of the gate of the outward sanctuary which looketh toward the east; and it *was* shut.  
 > **²** Then said the LORD unto me; This gate shall be shut, it shall not be opened, and no man shall enter in by it; because the LORD, the God of Israel, hath entered in by it, therefore it shall be shut.  
@@ -14,7 +14,7 @@ In this chapter we have, I. The appropriating of the east gate of the temple to 
 
 The prophet is here brought to review what he had before once surveyed; for, though we have often looked into the things of God, they will yet bear to be looked over again, such a copiousness there is in them. The lessons we have learned we should still repeat to ourselves. Every time we review the sacred fabric of holy things, which we have in the scriptures, we shall still find something new which we did not before take notice of. The prophet is brought a third time to the east gate, and finds it shut, which intimates that the rest of the gates were open at all times to the worshippers. But such an account is given of this gate's being shut as puts honour, 1. Upon the God of Israel. It is for the honour of him that the gate of the inner court, at which his glory entered when he took possession of the house, was ever after kept shut, and no man was allowed to enter in by it, Eze 44:2. The difference ever after made between this and the other gates, that this was shut when the others were open, was intended both to perpetuate the remembrance of the solemn entrance of the glory of the Lord into the house (which it would remain a traditional evidence of the truth of) and also to possess the minds of people with a reverence for the Divine Majesty, and with very awful thoughts of his transcendent glory, which was designed in God's charge to Moses at the bush, *Put off thy shoe from off thy foot.* God will have a way by himself. 2. Upon the prince of Israel, Eze 44:3. It is an honour to him that though he may not enter in by this gate, for no man may, yet, (1.) He shall *sit in this gate* to *eat* his share of the peace-offerings, that sacred food, *before the Lord.* (2.) He shall *enter by the way of the porch of that gate,* by some little door or wicket, either in the gate or adjoining to it, which is called the *way of the porch.* This is to signify that God puts some of his glory upon magistrates, upon the princes of his people, for he has said, *You are gods.* Some by the prince here understand the high priests, or the sagan or second priest; and that he only was allowed to enter by this gate, for he was God's representative. Christ is the high priest of our profession, who entered himself into the holy place, and *opened the kingdom of heaven to all believers.*
 
-## Idolatry of the Levites. (b. c. 574.)
+## Idolatry of the Levites (574 BC)
 
 > **⁴** Then brought he me the way of the north gate before the house: and I looked, and, behold, the glory of the LORD filled the house of the LORD: and I fell upon my face.  
 > **⁵** And the LORD said unto me, Son of man, mark well, and behold with thine eyes, and hear with thine ears all that I say unto thee concerning all the ordinances of the house of the LORD, and all the laws thereof; and mark well the entering in of the house, with every going forth of the sanctuary.  
@@ -33,7 +33,7 @@ II\. He sends him upon an errand to the people, *to the rebellious, even to the 
 
 2\. He must tell them their duty (Eze 44:9): "*No stranger shall enter into my sanctuary* till he has first submitted to the laws of it." But, lest any should think that this excluded the penitent believing Gentiles from the church, the stranger here is described to be one that is *uncircumcised in heart,* not in sincerity consenting to the covenant, nor putting away the filth of the flesh; whereas the believing Gentiles were *circumcised with the circumcision made without hands,* Col 2:11. This circumcision of the heart, in the *spirit, not in the letter,* was what the unbelieving Jews were strangers to and unconcerned about, while yet they were zealous to keep out of the sanctuary uncircumcised Gentiles, witness their rage against Paul when they did but suspect him to have brought *Greeks into the temple,* Ac 21:28.
 
-## Idolatrous Priests Degraded. (b. c. 574.)
+## Idolatrous Priests Degraded (574 BC)
 
 > **¹⁰** And the Levites that are gone away far from me, when Israel went astray, which went astray away from me after their idols; they shall even bear their iniquity.  
 > **¹¹** Yet they shall be ministers in my sanctuary, *having* charge at the gates of the house, and ministering to the house: they shall slay the burnt offering and the sacrifice for the people, and they shall stand before them to minister unto them.  
@@ -49,7 +49,7 @@ I\. Those who have been treacherous are degraded and put lower than those Levite
 
 II\. Those who have been faithful are honoured and established, Eze 44:15,16. These are remarkably distinguished from the other: "*But the sons of Zadok,* who kept their integrity in a time of general apostasy, who *went not astray* when others did, *they shall come near to me, shall come near to my table.*" Note, God will put marks of honour upon those who give proofs of their fidelity and constancy to him in shaking trying times, and will employ those in his service who have kept close to his service when others deserted it and drew back. And it ought to be reckoned a true and great reward of stability in duty to be established in it. If we keep close to God, God will keep us close to him.
 
-## Directions Concerning the Priests. (b. c. 574.)
+## Directions Concerning the Priests (574 BC)
 
 > **¹⁷** And it shall come to pass, *that* when they enter in at the gates of the inner court, they shall be clothed with linen garments; and no wool shall come upon them, whiles they minister in the gates of the inner court, and within.  
 > **¹⁸** They shall have linen bonnets upon their heads, and shall have linen breeches upon their loins; they shall not gird *themselves* with any thing that causeth sweat.  

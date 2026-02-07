@@ -6,7 +6,7 @@ weight: 14
 
 We have, in this chapter, a further account of the progress of the gospel, by the ministry of Paul and Barnabas among the Gentiles; it goes on conquering and to conquer, yet meeting with opposition, as before, among the unbelieving Jews. Here is, I. Their successful preaching of the gospel for some time at Iconium, and their being driven thence by the violence of their persecutors, both Jews and Gentiles, and forced into the neighbouring countries, Ac 14:1-7. II. Their healing a lame man at Lystra, and the profound veneration which the people conceived of them thereupon, which they had much ado to keep from running into an extreme, Ac 14:8-18. III. The outrage of the people against Paul, at the instigation of the Jews, the effect of which was that they stoned him, as they thought, to death; but he was wonderfully restored to life, Ac 14:19,20. IV. The visit which Paul and Barnabas made to the churches which they had planted, to confirm them, and put them into order, Ac 14:21-23. V. They return to Antioch, whence they were sent forth; the good they did by the way, and the report they made to the church of Antioch of their expedition, and, if I may so say, of the campaign they had made, Ac 14:24-28.
 
-## Paul at Iconium.
+## Paul at Iconium
 
 > **¹** And it came to pass in Iconium, that they went both together into the synagogue of the Jews, and so spake, that a great multitude both of the Jews and also of the Greeks believed.  
 > **²** But the unbelieving Jews stirred up the Gentiles, and made their minds evil affected against the brethren.  
@@ -32,7 +32,7 @@ VI\. The attempt made upon the apostles by their enemies. Their evil affection a
 
 VII\. The deliverance of the apostles out of the hands of those *wicked and unreasonable men,* Ac 14:6,7. They got away, upon notice given them of the design against them, or the beginning of the attempt upon them, of which they were soon aware, and they made an honourable retreat (for it was not an inglorious flight) to *Lystra and Derbe;* and there, 1. They found safety. Their persecutors in Iconium were for the present satisfied that they were thrust out of their borders, and pursued them no further. God has shelters for his people in a storm; nay, he is, and will be, himself their hiding place. 2. They found work, and this was what they went for. When the door of opportunity was shut against them at Iconium, it was opened at *Lystra* and *Derbe.* To these cities they went, and there, and *in the region that lieth round about, they preached the gospel.* In times of persecution ministers may see cause to quit the spot, when yet they do not quit the work.
 
-## The Lame Man Healed at Lystra; Paul and Barnabas at Lystra.
+## The Lame Man Healed at Lystra; Paul and Barnabas at Lystra
 
 > **⁸** And there sat a certain man at Lystra, impotent in his feet, being a cripple from his mother's womb, who never had walked:  
 > **⁹** The same heard Paul speak: who stedfastly beholding him, and perceiving that he had faith to be healed,  
@@ -78,7 +78,7 @@ III\. Paul and Barnabas protest against this undue respect paid them, and with m
 
 *Lastly,* The success of this prohibition which the apostles gave to *the people* (Ac 14:18): By *these sayings,* with much ado, they *restrained the people from doing sacrifice to them,* so strongly were these idolaters set upon their idolatry. It was not enough for the apostles to refuse to be deified (this would be construed only a pang of modesty), but they resented it, they showed the people the evil of it, and all little enough, for they could *scarcely* restrain them from it, and some of them were ready to blame the priest, that he did not go on with his business notwithstanding. We may see here what gave rise to the pagan idolatry; it was terminating those regards in the instruments of our comfort which should have passed through them to the Author. Paul and Barnabas had cured a cripple, and therefore the people deified them, instead of glorifying God for giving them such power, which should make us very cautious that we do not give that honour to another, or take it to ourselves, which is due to God only.
 
-## Paul Stoned at Lystra; The Disciples Exhorted and Encouraged; Paul and Barnabas Ordain Elders.
+## Paul Stoned at Lystra; The Disciples Exhorted and Encouraged; Paul and Barnabas Ordain Elders
 
 > **¹⁹** And there came thither *certain* Jews from Antioch and Iconium, who persuaded the people, and, having stoned Paul, drew *him* out of the city, supposing he had been dead.  
 > **²⁰** Howbeit, as the disciples stood round about him, he rose up, and came into the city: and the next day he departed with Barnabas to Derbe.  

@@ -6,7 +6,7 @@ weight: 10
 
 This chapter is an introduction to the latter part of the prophecies of this book. Whether what is contained between this and the sounding of the seventh trumpet (Re 11:15) be a distinct prophecy from the other, or only a more general account of some of the principal things included in the other, is disputed by our curious enquirers into these abstruse writings. However, here we have, I. A remarkable description of a very glorious angel with an open book in his hand, Re 10:1-3. II. An account of seven thunders which the apostle heard, as echoing to the voice of this angel, and communicating some discoveries, which the apostle was not yet allowed to write, Re 10:4. III. The solemn oath taken by him who had the book in his hand, Re 10:5-7. IV. The charge given to the apostle, and observed by him, Re 10:8-11.
 
-## The Seven Thunders. (a. d. 95.)
+## The Seven Thunders (95 AD)
 
 > **¹** And I saw another mighty angel come down from heaven, clothed with a cloud: and a rainbow *was* upon his head, and his face *was* as it were the sun, and his feet as pillars of fire:  
 > **²** And he had in his hand a little book open: and he set his right foot upon the sea, and *his* left *foot* on the earth,  
@@ -28,7 +28,7 @@ IV\. The prohibition given to the apostle, that he should not publish, but conce
 
 V\. The solemn oath taken by this mighty angel. 1. The manner of his swearing: *He lifted up his hand to heaven, and swore by him that liveth for ever,* by himself, as God often has done, or by God as God, to whom he, as Lord, Redeemer, and ruler of the world, now appeals. 2. The matter of the oath: that *there shall be time no longer;* either, (1.) That there shall be now no longer delay in fulfilling the predictions of this book than till the last angel should sound; then every thing should be put into speedy execution: *the mystery of God shall be finished,* Re 10:7. Or, (2.) That when this mystery of God is finished time itself shall be no more, as being the measure of things that are in a mutable changing state; but all things shall be at length for ever fixed, and so time itself swallowed up in eternity.
 
-## The Little Book. (a. d. 95.)
+## The Little Book (95 AD)
 
 > **⁸** And the voice which I heard from heaven spake unto me again, and said, Go *and* take the little book which is open in the hand of the angel which standeth upon the sea and upon the earth.  
 > **⁹** And I went unto the angel, and said unto him, Give me the little book. And he said unto me, Take *it,* and eat it up; and it shall make thy belly bitter, but it shall be in thy mouth sweet as honey.  

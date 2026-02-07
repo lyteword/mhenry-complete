@@ -6,7 +6,7 @@ weight: 13
 
 In this chapter we have, I. The good improvement Christ made of a piece of news that was brought him concerning some Galileans, that were lately massacred by Pilate, as they were sacrificing in the temple at Jerusalem, Lu 13:1-5. II. The parable of the fruitless fig-tree, by which we are warned to bring forth fruits meet for that repentance to which he had in the foregoing passage called us, Lu 13:6-9. III. Christ's healing a poor infirm woman on the sabbath day, and justifying himself in it, Lu 13:11-17. IV. A repetition of the parables of the grain of mustard-seed and the leaven, Lu 13:18-22. V. His answer to the question concerning the number of the saved, Lu 13:23-30. VI. The slight he put upon Herod's malice and menaces, and the doom of Jerusalem read, Lu 13:31-35.
 
-## The Murdered Galileans.
+## The Murdered Galileans
 
 > **¹** There were present at that season some that told him of the Galilæans, whose blood Pilate had mingled with their sacrifices.  
 > **²** And Jesus answering said unto them, Suppose ye that these Galilæans were sinners above all the Galilæans, because they suffered such things?  
@@ -28,7 +28,7 @@ II\. Christ's reply to this report, in which,
 
 3\. On these stories he founded a call to repentance, adding to each of them this awakening word, *Except ye repent, ye shall all likewise perish,* Lu 13:3-5. (1.) This intimates that we all deserve to *perish* as much as *they did,* and had we been dealt with according to our sins, according to the *iniquity of our holy things,* our blood had been long ere this mingled with our sacrifices by the justice of God. It must moderate our censure, not only that we are *sinners,* but that we are as great sinners as they, have as much sin to repent of as they had to suffer for. (2.) That therefore we are all concerned to *repent,* to be sorry for what we have done amiss, and to do so no more. The judgments of God upon others are loud calls to us to *repent.* See how Christ improved every thing for the pressing of that great duty which he came not only to *gain room* for, and *give hopes* to, but to enjoin upon us—and that is, to *repent.* (3.) That repentance is the way to escape perishing, and it is a sure way: *so iniquity shall not be your ruin,* but upon no other terms. (4.) That, if we repent not, we shall certainly perish, as others have done before us. Some lay an emphasis upon the word *likewise,* and apply it to the destruction that was coming upon the people of the Jews, and particularly upon Jerusalem, who were destroyed by the Romans at the time of their passover, and so, like the Galileans, they had *their blood mingled with their sacrifices;* and many of them, both in Jerusalem and in other places, were destroyed by the fall of walls and buildings which were battered down about their ears, as those that died by the fall of the tower of Siloam. But certainly it looks further; except we repent, we shall perish eternally, as they perished out of this world. The same Jesus that calls us to *repent because the kingdom of heaven is at hand,* bids us *repent* because otherwise we shall perish; so that he has set before us life and death, good and evil, and put us to our choice. (5.) The perishing of *those* in their impenitency who have been most harsh and severe in judging others will be in a particular manner aggravated.
 
-## The Barren Fig-Tree.
+## The Barren Fig-Tree
 
 > **⁶** He spake also this parable; A certain *man* had a fig tree planted in his vineyard; and he came and sought fruit thereon, and found none.  
 > **⁷** Then said he unto the dresser of his vineyard, Behold, these three years I come seeking fruit on this fig tree, and find none: cut it down; why cumbereth it the ground?  
@@ -63,7 +63,7 @@ II\. Yet it has, without doubt, a further reference, and is designed for the awa
 
 But he adds, *If not, then after that thou shalt cut it down.* Observe here, [1.] That, though God bear long, he will not bear always with unfruitful professors; his patience will have an end, and, if it be abused, will give way to that wrath which will have no end. Barren trees will certainly be *cut down* at last, and *cast into the fire.* [2.] The longer God has *waited,* and the more cost he has been at upon them, the greater will their destruction be: to be cut down *after that,* after all these expectations from it, these debates concerning it, this concern for it, will be sad indeed, and will aggravate the condemnation. [3.] Cutting down, though it is work that shall be done, is work that God does not take pleasure in: for observe here, the owner said to the dresser, "Do thou *cut it down,* for it cumbereth the ground." "Nay," said the dresser, "if it must be done at last, *thou shalt cut it down;* let not my hand be upon it." [4.] Those that now intercede for barren trees, and take pains with them, if they persist in their unfruitfulness will be even content to see them cut down, and will not have one word more to say for them. Their best friends will acquiesce in, nay, they will approve and applaud, the righteous judgment of God, in the day of the manifestation of it, Re 15:3,4.
 
-## The Infirm Woman Healed.
+## The Infirm Woman Healed
 
 > **¹⁰** And he was teaching in one of the synagogues on the sabbath.  
 > **¹¹** And, behold, there was a woman which had a spirit of infirmity eighteen years, and was bowed together, and could in no wise lift up *herself.*  
@@ -98,7 +98,7 @@ IV\. The different effect that this had upon those that heard him. He had suffic
 
 2\. What a confirmation this was to the faith of his friends: *All the people,* who had a better sense of things, and judged more impartially than their rulers, rejoiced *for all the glorious things that were done by him.* The shame of his foes was the joy of his followers; the increase of his interest was what the one fretted at, and the other triumphed in. The things Christ did were *glorious things;* they were all so, and, though now clouded, perhaps will appear to, and we ought to rejoice in them. Every thing that is the honour of Christ is the comfort of Christians.
 
-## The Widow of Nain.
+## The Widow of Nain
 
 > **¹⁸** Then said he, Unto what is the kingdom of God like? and whereunto shall I resemble it?  
 > **¹⁹** It is like a grain of mustard seed, which a man took, and cast into his garden; and it grew, and waxed a great tree; and the fowls of the air lodged in the branches of it.  
@@ -110,7 +110,7 @@ Here is, I. The gospel's progress foretold in two parables, which we had before,
 
 II\. Christ's progress towards Jerusalem recorded: *He went through the cities and villages, teaching and journeying,* Lu 13:22. Here we find Christ an itinerant, but an itinerant preacher, journeying towards Jerusalem, to the feast of dedication, which was *in the winter,* when travelling was uncomfortable, yet he would be about his Father's business; and therefore, whatever cities or villages he could make in his way, he gave them a sermon or two, not only in the cities, but in the country villages. Wherever Providence brings us, we should endeavour to be doing all the good we can.
 
-## Curiosity Checked; The Doom of Sinful Professors.
+## Curiosity Checked; The Doom of Sinful Professors
 
 > **²³** Then said one unto him, Lord, are there few that be saved? And he said unto them,  
 > **²⁴** Strive to enter in at the strait gate: for many, I say unto you, will seek to enter in, and shall not be able.  
@@ -147,7 +147,7 @@ II\. Christ's answer to this question, which directs us what use to make of this
 
 (4.) Think who are they that shall be saved, notwithstanding: *They shall come from the east and the west; and the last shall be first,* Lu 13:29,30. [1.] By what Christ said, it appears that but *few shall be saved* of those whom we think most likely, and who bid fairest for it. Yet do not say then that the gospel is preached in vain; for, though Israel be not *gathered,* Christ will be *glorious.* There shall come many from all parts of the Gentile world that shall be admitted into the kingdom of grace in this world, and of glory in the other. Plainly thus, when we come to heaven, we shall meet a great many there whom we little thought to have met there, and miss a great many thence whom we verily expected to have found there. [2.] Those who *sit down in the kingdom of God* are such as had taken pains to get thither, for they came from far—*from the east and from the west, from the north and from the south;* they had passed through different climates, had broken through many difficulties and discouragements. This shows that they who would enter into that kingdom must *strive,* as the queen of Sheba, who came from the *utmost parts of the earth to hear the wisdom of Solomon.* They who *travel* now in the service of God and religion shall shortly *sit down* to rest in the *kingdom of God.* [3.] Many who stood fair for heaven came short, and others who seemed cast behind, and thrown quite out of the way, will win and wear this prize, and therefore it concerns us to *strive to enter.* Let us be *provoked,* as Paul desires the Jews might be, to a holy emulation, by the zest an forwardness of the Gentiles, Ro 11:14. Shall I be outstripped by my juniors? Shall I, who started first, and stood nearest, miss of heaven, when others, less likely, enter into it? If it be got by striving, why should not I strive?
 
-## Christ's Message to Herod.
+## Christ's Message to Herod
 
 > **³¹** The same day there came certain of the Pharisees, saying unto him, Get thee out, and depart hence: for Herod will kill thee.  
 > **³²** And he said unto them, Go ye, and tell that fox, Behold, I cast out devils, and I do cures to day and to morrow, and the third *day* I shall be perfected.  

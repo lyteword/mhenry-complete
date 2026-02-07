@@ -6,7 +6,7 @@ weight: 2
 
 In this chapter we have an account of the scouts that were employed to bring an account to Joshua of the posture of the city of Jericho. Observe here, I. How Joshua sent them, Jos 2:1. II. How Rahab received them, and protected them, and told a lie for them (Jos 2:2-7), so that they escaped out of the hands of the enemy. III. The account she gave them of the present posture of Jericho, and the panic-fear they were struck with upon the approach of Israel, Jos 2:8-11. IV. The bargain she made with them for the security of herself and her relations in the ruin she saw coming upon her city, Jos 2:12-21. V. Their safe return to Joshua, and the account they gave him of their expedition, Jos 2:22-24. And that which makes this story most remarkable is that Rahab, the person principally concerned in it, is twice celebrated in the New Testament as a great believer (Heb 11:31) and as one whose faith proved itself by good works, Jam 2:25.
 
-## The Two Spies and Rahab. (b. c. 1451.)
+## The Two Spies and Rahab (1451 BC)
 
 > **¹** And Joshua the son of Nun sent out of Shittim two men to spy secretly, saying, Go view the land, even Jericho. And they went, and came into a harlot's house, named Rahab, and lodged there.  
 > **²** And it was told the king of Jericho, saying, Behold, there came men in hither to night of the children of Israel to search out the country.  

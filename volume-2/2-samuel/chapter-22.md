@@ -6,7 +6,7 @@ weight: 22
 
 This chapter is a psalm, a psalm of praise; we find it afterwards inserted among David's psalms (Ps 18:1-50) with some little variation. We have it here as it was first composed for his own closed and his own harp; but there we have it as it was afterwards delivered to the chief musician for the service of the church, a second edition with some amendments; for, though it was calculated primarily for David's case, yet it might indifferently serve the devotion of others, in giving thanks for their deliverances; or it was intended that his people should thus join with him in his thanksgivings, because, being a public person, his deliverances were to be accounted public blessings and called for public acknowledgments. The inspired historian, having largely related David's deliverances in this and the foregoing book, and one particularly in the close of the foregoing chapter, thought fit to record this sacred poem as a memorial of all that had been before related. Some think that David penned this psalm when he was old, upon a general review of the mercies of his life and the many wonderful preservations God had blessed him with, from first to last. We should in our praises, look as far back as we can, and not suffer time to wear out the sense of God's favours. Others think that he penned it when he was young, upon occasion of some of his first deliverances, and kept it by him for his use afterwards, and that, upon every new deliverance, his practice was to sing this song. But the book of Psalms shows that he varied as there was occasion, and confined not himself to one form. Here is, I. The title of the psalm, 2Sa 22:1. II. The psalm itself, in which, with a very warm devotion and very great fluency and copiousness of expression, 1. He gives glory to God. 2. He takes comfort in him; and he finds matter for both, (1.) In the experiences he had of God's former favours. (2.) In the expectations he had of his further favours. These are intermixed throughout the whole psalm.
 
-## David's Song of Praise. (b. c. 1020.)
+## David's Song of Praise (1020 BC)
 
 > **¹** And David spake unto the LORD the words of this song in the day *that* the LORD had delivered him out of the hand of all his enemies, and out of the hand of Saul:  
 
@@ -18,7 +18,7 @@ III\. Those that have received many signal mercies from God ought to give him th
 
 IV\. We ought to be speedy in our thankful returns to God: *In the day that God delivered him he sang this song.* While the mercy is fresh, and our devout affections are most excited by it, let the thank-offering be brought, that it may be kindled with the fire of those affections.
 
-## David's Thanksgiving. (b. c. 1020.)
+## David's Thanksgiving (1020 BC)
 
 > **²** And he said, The LORD *is* my rock, and my fortress, and my deliverer;  
 > **³** The God of my rock; in him will I trust: *he is* my shield, and the horn of my salvation, my high tower, and my refuge, my saviour; thou savest me from violence.  

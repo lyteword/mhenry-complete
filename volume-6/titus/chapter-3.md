@@ -6,7 +6,7 @@ weight: 3
 
 Of duties which concern Christians more in common, and the reasons of them, Tit 3:1-8. What Titus in teaching should avoid, and how he should deal with a heretic, with some other directions (Tit 3:9-14), and salutations in the close, Tit 3:15.
 
-## Exhortations to Several Duties; Characteristics of an Unrenewed State; The Import and Origin of Salvation; Regeneration; Justification. (a. d. 66.)
+## Exhortations to Several Duties; Characteristics of an Unrenewed State; The Import and Origin of Salvation; Regeneration; Justification (66 AD)
 
 > **¹** Put them in mind to be subject to principalities and powers, to obey magistrates, to be ready to every good work,  
 > **²** To speak evil of no man, to be no brawlers, *but* gentle, showing all meekness unto all men.  
@@ -49,7 +49,7 @@ II\. He adds the reasons, which are derived
 
 III\. The apostle, having opened the duties of Christians in common, with the reasons respecting themselves, adds another from their goodness and usefulness to men. Observe, When he has opened the grace of God towards us, he immediately presses the necessity of good works; for we must not expect the benefit of God's mercy, unless we make conscience of our duty (Tit 3:8): *This is a faithful saying, and these things I will that thou affirm constantly* (this is a true Christian doctrine of highest importance, and which ministers must most earnestly and constantly press and inculcate), *that those who have believed in God* do not think that a bare naked faith will save them; but it must be an operative working faith, bringing forth the fruit of righteousness; they must make it their care *to maintain good works,* not to do them occasionally only, and when opportunities come in their way, but to seek opportunities for doing them. *These things are good and profitable unto men:* these *good works,* say some, or *the teaching of these things,* rather than idle questions, as follows. These things are good in themselves and the teaching of them useful to mankind, making persons a common good in their places. Note, Ministers, in teaching, must see that they deliver what is sound and good in itself, and profitable to those that hear: all must be to the use of edifying both of persons and societies.
 
-## The Treatment of Heretics; Apostolic Benediction. (a. d. 66.)
+## The Treatment of Heretics; Apostolic Benediction (66 AD)
 
 > **⁹** But avoid foolish questions, and genealogies, and contentions, and strivings about the law; for they are unprofitable and vain.  
 > **¹⁰** A man that is a heretic after the first and second admonition reject;  

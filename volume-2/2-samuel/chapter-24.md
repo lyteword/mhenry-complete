@@ -6,7 +6,7 @@ weight: 24
 
 The last words of David, which we read in the chapter before, were admirably good, but in this chapter we read of some of his last works, which were none of the best; yet he repented, and did his first works again, and so he finished well. We have here, I. His sin, which was numbering the people in the pride of his heart, 2Sa 24:1-9. II. His conviction of the sin, and repentance for it, 2Sa 24:10. III. The judgment inflicted upon him for it, 2Sa 24:11-15. IV. The staying of the judgment, 2Sa 24:16,17. V. The erecting of an altar in token of God's reconciliation to him and his people, 2Sa 24:18-25.
 
-## The People Numbered. (b. c. 1017.)
+## The People Numbered (1017 BC)
 
 > **¹** And again the anger of the LORD was kindled against Israel, and he moved David against them to say, Go, number Israel and Judah.  
 > **²** For the king said to Joab the captain of the host, which *was* with him, Go now through all the tribes of Israel, from Dan even to Beer-sheba, and number ye the people, that I may know the number of the people.  
@@ -28,7 +28,7 @@ II\. The opposition which Joab made to these orders. Even he was aware of David'
 
 III\. The orders executed notwithstanding. *The king's word prevailed,* 2Sa 24:4. He would have it done; Joab must not gainsay it, lest he be thought to grudge his time and pains in the king's service. It is an unhappiness to great men to have those about them that will aid them and serve them in that which is evil. Joab, according to order, applied himself with some reluctancy to this unpleasing task, and took the captains of the host to help him. They began in the most distant places, in the east first, on the other side Jordan (2Sa 24:5), then they went towards Dan in the north (2Sa 24:6), so to Tyre on the east, and thence to Beer-sheba in the south, 2Sa 24:7. Above nine months were spent in taking this account, a great deal of trouble and amazement were occasioned by it in the country (2Sa 24:8), and the sum total was, at length, brought to the king at Jerusalem, 2Sa 24:9. Whether the numbers answered David's expectation or no we are not told, nor whether the account fed his pride or mortified it. The people were very many, but, it may be, not so many as he thought they were. They had not increased in Canaan as they had in Egypt, nor were much more than double to what they were when they came into Canaan under Joshua, about 400 years before; yet it is an evidence that Canaan was a very fruitful land that so many thousands were maintained within so narrow a compass.
 
-## The Numbering of the People Punished. (b. c. 1017.)
+## The Numbering of the People Punished (1017 BC)
 
 > **¹⁰** And David's heart smote him after that he had numbered the people. And David said unto the LORD, I have sinned greatly in that I have done: and now, I beseech thee, O LORD, take away the iniquity of thy servant; for I have done very foolishly.  
 > **¹¹** For when David was up in the morning, the word of the LORD came unto the prophet Gad, David's seer, saying,  
@@ -59,7 +59,7 @@ III\. God's gracious relaxation of the judgment, when it began to be inflicted u
 
 IV\. David's renewed repentance for his sin upon this occasion, 2Sa 24:17. He saw the angel (God opening his eyes for that purpose), saw his sword stretched out to destroy, a flaming sword, saw him ready to sheath it upon the orders given him to stay proceedings; seeing all this, he spoke, not to the angel (he knew better than to address himself to the servant in the presence of the Master, or to give that honour to the creature which is the Creator's due), but *to the Lord, and said, Lo, I have sinned.* Note, True penitents, the more they perceive of God's sparing pardoning mercy the more humbled they are for sin and the more resolved against it. They shall be ashamed *when I am pacified towards them,* Eze 16:63. Observe, 1. How he criminates himself, as if he could never speak ill enough of his own fault: "*I have sinned, and I have done wickedly;* mine is the crime, and therefore on me be the cross. *Let thy hand be against me, and my father's house.* I am the sinner, let me be the sufferer;" so willing was he to accept the punishment of his iniquity, though he was worth 10,000 of them. 2. How he intercedes for the people, whose bitter lamentations made his heart to ache, and his ears to tingle: *These sheep, what have they done?* Done! Why they had done much amiss; it was their sin that provoked God to leave David to himself to do as he did; yet, as becomes a penitent, he is severe upon his own faults, while he extenuates theirs. Most people, when God's judgments are abroad, charge others with being the cause of them, and care not who falls by them, so they can escape. But David's penitent and public spirit was otherwise affected. Let this remind us of the grace of our Lord Jesus, who gave himself for our sins and was willing that God's hand should be against him, that we might escape. The shepherd was smitten that the sheep might be spared.
 
-## The Plague Removed. (b. c. 1017.)
+## The Plague Removed (1017 BC)
 
 > **¹⁸** And Gad came that day to David, and said unto him, Go up, rear an altar unto the LORD in the threshingfloor of Araunah the Jebusite.  
 > **¹⁹** And David, according to the saying of Gad, went up as the LORD commanded.  

@@ -6,7 +6,7 @@ weight: 2
 
 The scope of the first two chapters of this epistle may be gathered from Ro 3:9, "We have before proved both Jews and Gentiles that they are all under sin." This we have proved upon the Gentiles (Ro 1:1-32), now in this chapter he proves it upon the Jews, as appears by Ro 2:1-17, "thou art called a Jew." I. He proves in general that Jews and Gentiles stand upon the same level before the justice of God, to Ro 2:1-11. II. He shows more particularly what sins the Jews were guilty of, notwithstanding their profession and vain pretensions (Ro 2:17-29).
 
-## Equity of the Divine Government. (a. d. 58.)
+## Equity of the Divine Government (58 AD)
 
 > **¹** Therefore thou art inexcusable, O man, whosoever thou art that judgest: for wherein thou judgest another, thou condemnest thyself; for thou that judgest doest the same things.  
 > **²** But we are sure that the judgment of God is according to truth against them which commit such things.  
@@ -63,7 +63,7 @@ Their *thoughts the meanwhile,* *metaxy allelon*—*among themselves,* or one wi
 
 3\. The light of the gospel: and according to this those that enjoyed the gospel shall be judge (Ro 2:16): *According to my gospel;* not meant of any fifth gospel written by Paul, as some conceit; or of the gospel written by *Luke,* as Paul's amanuensis (*Euseb. Hist.* lib 3, cap. 8), but the gospel in general, called Paul's because he was a preacher of it. As many as are under that dispensation shall be judged according to that dispensation, Mk 16:16. Some refer those words, *according to my gospel,* to what he says of the day of judgment: "There will come a day of judgment, according as I have in my preaching often told you; and that will be the day of the final judgment both of Jews and Gentiles." It is good for us to get acquainted with what is revealed concerning that day. (1.) There is a day set for a general judgment. The day, the great day, his day that is coming, Ps 37:13. (2.) The judgment of that day will be put into the hands of Jesus Christ. God shall judge by Jesus Christ, Ac 17:31. It will be part of the reward of his humiliation. Nothing speaks more terror to sinners, or more comfort to saints, than this, that Christ shall be the Judge. (3.) The secrets of men shall then be judged. Secret services shall be then rewarded, secret sins shall be then punished, hidden things shall be brought to light. That will be the great discovering day, when that which is now done in corners shall be proclaimed to all the world.
 
-## The Pretensions of the Jews; The Depravity of the Jews. (a. d. 58.)
+## The Pretensions of the Jews; The Depravity of the Jews (58 AD)
 
 > **¹⁷** Behold, thou art called a Jew, and restest in the law, and makest thy boast of God,  
 > **¹⁸** And knowest *his* will, and approvest the things that are more excellent, being instructed out of the law;  

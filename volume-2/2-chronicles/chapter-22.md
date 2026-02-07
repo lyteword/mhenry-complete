@@ -6,7 +6,7 @@ weight: 22
 
 We read, in the foregoing chapter, of the carrying away of Jehoram's sons and his wives; but here we find one of his sons and one of his wives left, his son Ahaziah and his wife Athaliah, both reserved to be the shame and plague of his family. I. Ahaziah was the shame of it as a partaker, 1. In the sin, and, 2. In the destruction, of the house of Ahab, 2Ch 22:1-9. II. Athaliah was the plague of it, for she destroyed all the seed-royal, and usurped the throne, 2Ch 22:10-12.
 
-## Ahaziah Slain by Jehu. (b. c. 884.)
+## Ahaziah Slain by Jehu (884 BC)
 
 > **¹** And the inhabitants of Jerusalem made Ahaziah his youngest son king in his stead: for the band of men that came with the Arabians to the camp had slain all the eldest. So Ahaziah the son of Jehoram king of Judah reigned.  
 > **²** Forty and two years old *was* Ahaziah when he began to reign, and he reigned one year in Jerusalem. His mother's name also *was* Athaliah the daughter of Omri.  
@@ -28,7 +28,7 @@ II\. He was counselled by his mother and her relations to do so. *She was his co
 
 III\. He was counselled by them to his destruction. So it proved. Those that counsel us to do wickedly counsel us to our destruction; while they fawn, and flatter, and pretend friendship, they are really our worst enemies. Those that debauch young men destroy them. It was bad enough that they exposed him to the sword of the Syrians, drawing him in to join with Joram king of Israel in an expedition to Ramoth-Gilead, where Joram was wounded, an expedition that was not for his honour. Those that give us bad counsel in the affairs of religion, if regarded by us, may justly be made of God our counsellors to do foolishly in our own affairs. But that was not all: by engaging him in an intimacy with Joram king of Israel, they involved him in the common ruin of the house of Ahab. He came on a visit to Joram (2Ch 22:6) just at the time that Jehu was executing the judgment of God upon that idolatrous family, and so was cut off with them, 2Ch 22:7-9. Here, 1. See and dread the mischief of bad company—of joining in with sinners. If not the infection, yet let the destruction be feared. *Come out from Babylon,* that falling house, Re 18:4. 2. See and acknowledge the justice of God. His providence brought Ahaziah, just at this fatal juncture, to see Joram, that he might fall with him and be taken as in a snare. This we had an account of before, 2Ki 9:27,28. It is here added that he was decently buried (not as Jehoram, whose dead body was cast into Naboth's vineyard, 2Ki 9:26), and the reason given is because he was the son (that is, the grandson) of good Jehoshaphat, *who sought the Lord with his heart.* Thus is *he* remembered with honour long after his death, and some respect shown even to his degenerate unworthy seed for his sake. *The memory of the just is blessed, but the name of the wicked shall rot.*
 
-## Athaliah Usurps the Throne. (b. c. 884.)
+## Athaliah Usurps the Throne (884 BC)
 
 > **¹⁰** But when Athaliah the mother of Ahaziah saw that her son was dead, she arose and destroyed all the seed royal of the house of Judah.  
 > **¹¹** But Jehoshabeath, the daughter of the king, took Joash the son of Ahaziah, and stole him from among the king's sons that were slain, and put him and his nurse in a bedchamber. So Jehoshabeath, the daughter of king Jehoram, the wife of Jehoiada the priest, (for she was the sister of Ahaziah,) hid him from Athaliah, so that she slew him not.  

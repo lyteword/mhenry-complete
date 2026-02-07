@@ -6,7 +6,7 @@ weight: 12
 
 What the mighty men did towards making David king we read in the foregoing chapter. Here we are told what the many did towards it. It was not all at once, but gradually, that David ascended the throne. His kingdom was to last; and therefore, like fruits that keep longest, it ripened slowly. After he had long waited for the vacancy of the throne, it was at two steps and those above seven years distant, that he ascended it. Now we are here told, I. What help came in to him to Ziklag, to make him king of Judah, 1Ch 12:1-22. II. What help came in to him in Hebron, to make him king over all Israel, above seven years after, 1Ch 12:23-40.
 
-## David's Army. (b. c. 1055.)
+## David's Army (1055 BC)
 
 > **¹** Now these *are* they that came to David to Ziklag, while he yet kept himself close because of Saul the son of Kish: and they *were* among the mighty men, helpers of the war.  
 > **²** *They were* armed with bows, and could use both the right hand and the left in *hurling* stones and *shooting* arrows out of a bow, *even* of Saul's brethren of Benjamin.  
@@ -51,7 +51,7 @@ III\. Some of Judah and Benjamin came to him, 1Ch 12:16. Their leader was Amasai
 
 IV\. Some of Manasseh likewise joined with him, 1Ch 12:19. Providence gave them a fair opportunity to do so when he and his men marched through their country upon this occasion. Achish took David with him when he went out to fight with Saul; but the lords of the Philistines obliged him to withdraw. We have the story, 1Sa 29:4-11, etc. In his return some great men of Manasseh, who had no heart to join with Saul against the Philistines struck in with David, and very seasonably, to help him *against the band of Amalekites* who plundered Ziklag; they were not many, but they were all mighty men and did David good service upon that occasion, 1Sa 30:1-31 See how Providence provides. David's interest grew strangely just when he had occasion to make use of it, 1Ch 12:22. Auxiliary forces flocked in daily, *till he had a great host.* When the promise comes to the birth, leave it to God to find strength to bring forth.
 
-## David's Army. (b. c. 1048.)
+## David's Army (1048 BC)
 
 > **²³** And these *are* the numbers of the bands *that were* ready armed to the war, *and* came to David to Hebron, to turn the kingdom of Saul to him, according to the word of the LORD.  
 > **²⁴** The children of Judah that bare shield and spear *were* six thousand and eight hundred, ready armed to the war.  

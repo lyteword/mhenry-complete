@@ -6,7 +6,7 @@ weight: 5
 
 The scope of this chapter is the same with that of the foregoing chapter, to discover the sin both of Israel and Judah, and to denounce the judgments of God against them. I. They are called to hearken to the charge, Ho 5:1,8. II. They are accused of many sins, which are here aggravated. 1. Persecution, Ho 5:1,2. 2. Spiritual whoredom, Ho 5:3,4. 3. Pride, Ho 5:5. 4. Apostasy from God, Ho 5:7. 5. The tyranny of the princes, and the tameness of the people in submitting to it, Ho 5:10,11. III. They are threatened with God's displeasure for their sins; he knows all their wickedness (Ho 5:3) and makes known his wrath against them for it, Ho 5:9. 1. They shall fall in their iniquity, Ho 5:5. 2. God will forsake them, Ho 5:6. 3. Their portions shall be devoured, Ho 5:7. 4. God will rebuke them, and pour out his wrath upon them, Ho 5:9,10. 5. They shall be oppressed, Ho 5:11. 6. God will be as a moth to them in secret judgments (Ho 5:12) and as a lion in public judgments, Ho 5:14. IV. They are blamed for the wrong course they took under their afflictions, Ho 5:13. V. It is intimated that they shall at length take a right course, Ho 5:15. The more generally these things are expressed of so much the more general use they are for our learning, and particularly for our admonition.
 
-## Charge against Israel and Judah; Judgments Threatened. (b. c. 758.)
+## Charge against Israel and Judah; Judgments Threatened (758 BC)
 
 > **¹** Hear ye this, O priests; and hearken, ye house of Israel; and give ye ear, O house of the king; for judgment *is* toward you, because ye have been a snare on Mizpah, and a net spread upon Tabor.  
 > **²** And the revolters are profound to make slaughter, though I *have been* a rebuker of them all.  
@@ -30,7 +30,7 @@ IV\. Very sad things are made to be their doom. In general (Ho 5:1), "*Judgment 
 
 3\. They and their portions shall all be swallowed up. They have *dealt treacherously against the Lord,* and have thought to strengthen themselves in it by their alliances with strange children; but *now shall a month devour them with their portions,* that is, their estates and inheritances, all those things which they have taken, and taken up with, as their portion; or by their *portions* is meant their idols, whom they chose for their portion instead of God. Note, Those that make an idol of the world, by taking it for their portion, will themselves perish with it. A *month* shall *devour* them, or eat them up—a certain time prefixed, and a short time. When God's judgments begin with them they shall soon make an end; one month will do their business. How much may a body be weakened by one month's sickness, or a kingdom wasted by one month's war! *Three shepherds* (says God) *I cut off in one month,* Zec 11:8. Note, The judgments of God sometimes make quick work with a sinful people. A month devours more, and more portions, than many years can repair.
 
-## Threatenings of Judgment. (b. c. 758.)
+## Threatenings of Judgment (758 BC)
 
 > **⁸** Blow ye the cornet in Gibeah, *and* the trumpet in Ramah: cry aloud *at* Beth-aven, after thee, O Benjamin.  
 > **⁹** Ephraim shall be desolate in the day of rebuke: among the tribes of Israel have I made known that which shall surely be.  

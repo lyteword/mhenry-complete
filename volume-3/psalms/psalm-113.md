@@ -6,7 +6,7 @@ weight: 113
 
 This psalm begins and ends with "Hallelujah;" for, as many others, it is designed to promote the great and good work of praising God. I. We are here called upon and urged to praise God, Ps 113:1-3. II. We are here furnished with matter for praise, and words are put into our mouths, in singing which we must with holy fear and love give to God the glory of, 1. The elevations of his glory and greatness, Ps 113:4,5. 2. The condescensions of his grace and goodness (Ps 113:6-9), which very much illustrate one another, that we may be duly affected with both.
 
-## A Call to Praise God; God's Greatness and Condescension.
+## A Call to Praise God; God's Greatness and Condescension
 
 > **¹** Praise ye the LORD. Praise, O ye servants of the LORD, praise the name of the LORD.  
 > **²** Blessed be the name of the LORD from this time forth and for evermore.  

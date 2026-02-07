@@ -6,7 +6,7 @@ weight: 13
 
 Job here comes to make application of what he had said in the foregoing chapter; and now we have him not in so good a temper as he was in then: for, I. He is very bold with his friends, comparing himself with them, notwithstanding the mortifications he was under, Job 13:1,2. Condemning them for their falsehood, their forwardness to judge, their partiality and deceitfulness under colour of pleading God's cause (Job 13:4-8), and threatening them with the judgments of God for their so doing (Job 13:9-12), desiring them to be silent (Job 13:5,13,17), and turning from them to God, Job 13:3. II. He is very bold with his God. 1. In some expressions his faith is very bold, yet that is not more bold than welcome, Job 13:15,16,18. But, 2. In other expressions his passion is rather too bold in expostulations with God concerning the deplorable condition he was in (Job 13:14,19, etc.), complaining of the confusion he was in (Job 13:20-22), and the loss he was at to find out the sin that provoked God thus to afflict him, and in short of the rigour of God's proceedings against him, Job 13:23-28.
 
-## Job's Reply to Zophar. (b. c. 1520.)
+## Job's Reply to Zophar (1520 BC)
 
 > **¹** Lo, mine eye hath seen all *this,* mine ear hath heard and understood it.  
 > **²** What ye know, *the same* do I know also: I *am* not inferior unto you.  

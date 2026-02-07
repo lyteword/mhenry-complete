@@ -6,7 +6,7 @@ weight: 3
 
 The foregoing chapter was wholly taken up with reproofs and threatenings against the people of God, for their apostasies from him; but in this chapter gracious invitations and encouragements are given them to return and repent, notwithstanding the multitude and greatness of their provocations, which are here specified, to magnify the mercy of God, and to show that as sin abounded grace did much more abound. Here, I. It is further shown how bad they had been and how well they deserved to be quite abandoned, and yet how ready God was to receive them into his favour upon their repentance, Jer 3:1-5. II. The impenitence of Judah, and their persisting in sin, are aggravated from the judgments of God upon Israel, which they should have taken warning by, Jer 3:6-11. III. Great encouragements are given to these backsliders to return and repent, and promises made of great mercy which God had in store for them, and which he would prepare them for by bringing them home to himself, Jer 3:12-19. IV. The charge renewed against them for their apostasy from God, and the invitation repeated to return and repent, to which are here added the words that are put in their mouth, which they should make use of in their return to God, Jer 3:20-25.
 
-## The Wickedness of Israel. (b. c. 620.)
+## The Wickedness of Israel (620 BC)
 
 > **¹** They say, If a man put away his wife, and she go from him, and become another man's, shall he return unto her again? shall not that land be greatly polluted? but thou hast played the harlot with many lovers; yet return again to me, saith the LORD.  
 > **²** Lift up thine eyes unto the high places, and see where thou hast not been lien with. In the ways hast thou sat for them, as the Arabian in the wilderness; and thou hast polluted the land with thy whoredoms and with thy wickedness.  
@@ -32,7 +32,7 @@ IV\. How graciously he not only invites them, but directs them, to return to him
 
 (2.) He expects that they will appeal to the mercy of God and crave the benefit of that mercy (Jer 3:5), that they will reason thus with themselves for their encouragement to return to him: "*Will he reserve his anger for ever?* Surely he will not, for he has proclaimed his name *gracious and merciful.*" Repenting sinners may encourage themselves with this, that, though God chide, he will not always chide, though he be angry, he will not keep his anger to the end, but, *though he cause grief, he will have compassion,* and may thus plead for reconciliation. Some understand this as describing their hypocrisy, and the impudence of it: "Though thou hast *a whore's forehead* (Jer 3:3) and art still *doing evil as thou canst* (Jer 3:5), yet art thou not ever and anon *crying to me, My Father?*" Even when they were most addicted to idols they pretended a regard to God and his service and kept up the forms of godliness and devotion. It is a shameful thing for men thus to call God father, and yet to do the *works of the devil* (as the Jews, Joh 8:44), to call him the *guide of their youth,* and yet give up themselves to *walk after the flesh,* and to flatter themselves with the expectation that *his anger shall have an end,* while they are continually *treasuring up to themselves wrath against the day of wrath.*
 
-## Idolatries of Israel; The Treachery of Judah. (b. c. 620.)
+## Idolatries of Israel; The Treachery of Judah (620 BC)
 
 > **⁶** The LORD said also unto me in the days of Josiah the king, Hast thou seen *that* which backsliding Israel hath done? she is gone up upon every high mountain and under every green tree, and there hath played the harlot.  
 > **⁷** And I said after she had done all these *things,* Turn thou unto me. But she returned not. And her treacherous sister Judah saw *it.*  
@@ -49,7 +49,7 @@ II\. Let us now see what was the case of Judah, the kingdom of the two tribes. S
 
 III\. The case of these sister kingdoms is compared, and judgment given upon the comparison, that of the two Judah was the worse (Jer 3:11): *Israel has justified herself more than Judah,* that is, she is not so bad as Judah is. This comparative justification will stand Israel in little stead; what will it avail us to say, *We are not so bad as others,* when yet we are not really good ourselves? But it will serve as an aggravation of the sin of Judah, which was in two respects worse than that of Israel:—1. More was expected from Judah than from Israel; so that Judah dealt treacherously, they vilified a more sacred profession, and falsified a more solemn promise, than Israel did. 2. Judah might have taken warning by the ruin of Israel for their idolatry, and would not. God's judgments upon others, if they be not means of our reformation, will help to aggravate our destruction. The prophet Ezekiel (Jer 23:11) makes the same comparison between Jerusalem and Samaria that this prophet here makes between Judah and Israel, nay, and (Eze 16:48) between Jerusalem and Sodom, and Jerusalem is made the worst of the three.
 
-## Encouragements to Repentance. (b. c. 620.)
+## Encouragements to Repentance (620 BC)
 
 > **¹²** Go and proclaim these words toward the north, and say, Return, thou backsliding Israel, saith the LORD; *and* I will not cause mine anger to fall upon you: for I *am* merciful, saith the LORD, *and* I will not keep *anger* for ever.  
 > **¹³** Only acknowledge thine iniquity, that thou hast transgressed against the LORD thy God, and hast scattered thy ways to the strangers under every green tree, and ye have not obeyed my voice, saith the LORD.  
@@ -84,7 +84,7 @@ III\. Here is some difficulty started, that lies in the way of all this mercy; b
 
 2\. He does himself return answer to this question: *But I said, Thou shalt call me, My Father.* God does himself answer all the objections that are taken from our unworthiness, or they would never be got over. (1.) That he may put returning penitents *among the children,* he will give them the *Spirit of adoption,* teaching them *to cry, Abba, Father,* Ga 4:6. "*Thou shalt call me, My Father;* thou shalt return to me, and resign thyself to me as a father, and that shall recommend thee to my favour," (2.) That he may *give them the pleasant land,* he will *put his fear in their hearts,* that they may never *turn from him,* but may persevere to the end.
 
-## Israel Returning to God; Israel Encouraged in Their Return. (b. c. 620.)
+## Israel Returning to God; Israel Encouraged in Their Return (620 BC)
 
 > **²⁰** Surely *as* a wife treacherously departeth from her husband, so have ye dealt treacherously with me, O house of Israel, saith the LORD.  
 > **²¹** A voice was heard upon the high places, weeping *and* supplications of the children of Israel: for they have perverted their way, *and* they have forgotten the LORD their God.  

@@ -6,7 +6,7 @@ weight: 2
 
 I\. The apostle expresses concern for the Colossians, Col 2:1-3. II. He repeats it again, Col 2:5. III. He cautions them against false teachers among the Jews (Col 2:4,6,7), and against the Gentile philosophy, Col 2:8-12. IV. He represents the privileges of Christians, Col 2:13-15. And, V. Concludes with a caution against the judaizing teachers, and those who would introduce the worship of angels, Col 2:16-23.
 
-## Paul's Concern for the Colossians. (a. d. 62.)
+## Paul's Concern for the Colossians (62 AD)
 
 > **¹** For I would that ye knew what great conflict I have for you, and *for* them at Laodicea, and *for* as many as have not seen my face in the flesh;  
 > **²** That their hearts might be comforted, being knit together in love, and unto all riches of the full assurance of understanding, to the acknowledgement of the mystery of God, and of the Father, and of Christ;  
@@ -26,7 +26,7 @@ I\. What was it that the apostle desired for them? *That their hearts may be com
 
 II\. His concern for them is repeated (Col 2:5): *Though I am absent in the flesh, yet am I with you in the spirit, joying, and beholding your order, and the stedfastness of your faith in Christ.* Observe, 1. We may be present in spirit with those churches and Christians from whom we are absent in body; for the communion of saints is a spiritual thing. Paul had heard concerning the Colossians that they were orderly and regular; and though he had never seen them, nor was present with them, he tells them he could easily think himself among them, and look with pleasure upon their good behaviour. 2. The order and stedfastness of Christians are matter of joy to ministers; they joy when they behold their order, their regular behaviour and stedfast adherence to the Christian doctrine. 3. The more stedfast our faith in Christ is, the better order there will be in our whole conversation; for we live and walk by faith, 2Co 5:7, Heb 10:38.
 
-## The Glory of the Christian Economy. (a. d. 62.)
+## The Glory of the Christian Economy (62 AD)
 
 > **⁴** And this I say, lest any man should beguile you with enticing words.  
 > **⁵** For though I be absent in the flesh, yet am I with you in the spirit, joying and beholding your order, and the stedfastness of your faith in Christ.  
@@ -48,7 +48,7 @@ II\. The fair warning given us of our danger: *Beware lest any man spoil you thr
 
 2\. We have communion with Christ in his whole undertaking (Col 2:12): *Buried with him in baptism, wherein also you have risen with him.* We are both buried and rise with him, and both are signified by our baptism; not that there is anything in the sign or ceremony of baptism which represents this burying and rising, any more than the crucifixion of Christ is represented by any visible resemblance in the Lord's supper: and he is speaking of the *circumcision made without hands;* and says it is *through the faith of the operation of God.* But the thing signified by our baptism is that we are buried with Christ, as baptism is the seal of the covenant and an obligation to our dying to sin; and that we are raised with Christ, as it is a seal and obligation to our living to righteousness, or newness of life. God in baptism engages to be to us a God, and we become engaged to be his people, and by his grace to die to sin and to live to righteousness, or put off the old man and put on the new.
 
-## The Glory of the Christian Economy. (a. d. 62.)
+## The Glory of the Christian Economy (62 AD)
 
 > **¹³** And you, being dead in your sins and the uncircumcision of your flesh, hath he quickened together with him, having forgiven you all trespasses;  
 > **¹⁴** Blotting out the handwriting of ordinances that was against us, which was contrary to us, and took it out of the way, nailing it to his cross;  
@@ -64,7 +64,7 @@ III\. Whatever was in force against us is taken out of the way. He has obtained 
 
 IV\. He has obtained a glorious victory for us over the powers of darkness: *And, having spoiled principalities and powers, he made a show of them openly, triumphing over them in it,* Col 2:15. As the curse of the law was against us, so the power of Satan was against us. He treated with God as the Judge, and redeemed us out of the hands of his justice by a price; but out of the hands of Satan the executioner he redeemed us by power and with a high hand. *He led captivity captive.* The devil and all the powers of hell were conquered and disarmed by the dying Redeemer. The first promise pointed at this; the bruising of the heel of Christ in his sufferings was the breaking of the serpent's head, Ge 3:15. The expressions are lofty and magnificent: let us turn aside and see this great sight. The Redeemer conquered by dying. See his crown of thorns turned into a crown of laurels. He *spoiled them,* broke the devil's power, and conquered and disabled him, and *made a show of them openly*—exposed them to public shame, and made a show of them to angels and men. Never had the devil's kingdom such a mortal blow given to it as was given by the Lord Jesus. He tied them to his chariot-wheels, and rode forth conquering and to conquer—alluding to the custom of a general's triumph, who returned victorious.—*Triumphing over them in it;* that is, either in his cross and by his death; or, as some read it, in himself, by his own power; for he *trod the wine-press alone, and of the people there was none with him.*
 
-## The Glory of the Christian Economy. (a. d. 62.)
+## The Glory of the Christian Economy (62 AD)
 
 > **¹⁶** Let no man therefore judge you in meat, or in drink, or in respect of a holyday, or of the new moon, or of the sabbath *days:*  
 > **¹⁷** Which are a shadow of things to come; but the body *is* of Christ.  

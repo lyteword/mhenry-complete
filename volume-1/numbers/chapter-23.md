@@ -6,7 +6,7 @@ weight: 23
 
 In this chapter we have Balak and Balaam busy at work to do Israel a mischief, and, for ought that appears, neither Moses nor the elders of Israel know any thing of the matter, nor are in a capacity to break the snare; but God, who keeps Israel, and neither slumbers nor sleeps, baffles the attempt, without any intercession or contrivance of theirs. Here is, I. The first attempt to curse Israel. 1. The preparation made for it by sacrifice, Nu 23:1-3. 2. The contrary instruction God gave Balaam, Nu 23:4,5. 3. The blessing Balaam was compelled to pronounce upon Israel, instead of a curse, Nu 23:7-10. 4. The great disappointment of Balak, Nu 23:11,12. II. The second attempt, in the same manner made, and in the same manner frustrated, Nu 23:13-26. III. Preparations made for a third attempt (Nu 23:27-30), the issue of which we have in the next chapter.
 
-## Balaam Constrained to Bless Israel; The Blessing Pronounced on Israel. (b. c. 1452.)
+## Balaam Constrained to Bless Israel; The Blessing Pronounced on Israel (1452 BC)
 
 > **¹** And Balaam said unto Balak, Build me here seven altars, and prepare me here seven oxen and seven rams.  
 > **²** And Balak did as Balaam had spoken; and Balak and Balaam offered on *every* altar a bullock and a ram.  
@@ -41,7 +41,7 @@ II\. The turning of the curse into a blessing, by the overruling power of God, i
 
 III\. We are told, 1. How Balak fretted at it, Nu 23:11. He pretended to honour the Lord with his sacrifices, and to wait for the answer God would send him; and yet, when it did not prove according to his mind, he forgot God, and flew into a great passion against Balaam, as if it had been purely his doing: "*What hast thou done unto me!* How hast thou disappointed me!" Sometimes God makes the enemies of his church a vexation one to another, while he that sits in heaven laughs at them, and the efforts of their impotent malice. 2. How Balaam was forced to acquiesce in it. He submits because he cannot help it, and yet humours the thing with no small address, as if he had been peculiarly conscientious, answering Balak with the gravity of a prophet: *Must I not take heed to speak that which the Lord has put in my mouth?* Nu 23:12. Thus a confession of God's overruling power is extorted from a wicked prophet, to the further confusion of a wicked prince.
 
-## Balaam Again Blesses Israel. (b. c. 1452.)
+## Balaam Again Blesses Israel (1452 BC)
 
 > **¹³** And Balak said unto him, Come, I pray thee, with me unto another place, from whence thou mayest see them: thou shalt see but the utmost part of them, and shalt not see them all: and curse me them from thence.  
 > **¹⁴** And he brought him into the field of Zophim, to the top of Pisgah, and built seven altars, and offered a bullock and a ram on *every* altar.  

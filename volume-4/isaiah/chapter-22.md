@@ -6,7 +6,7 @@ weight: 22
 
 We have now come nearer home, for this chapter is "the burden of the valley of vision," Jerusalem; other places had their burden for the sake of their being concerned in some way or other with Jerusalem, and were reckoned with either as spiteful enemies or deceitful friends to the people of God; but now let Jerusalem hear her own doom. This chapter concerns, I. The city of Jerusalem itself and the neighbourhood depending upon it. Here is, 1. A prophecy of the grievous distress they should shortly be brought into by Sennacherib's invasion of the country and laying siege to the city, Isa 22:1-7. 2. A reproof given them for their misconduct in that distress, in two things:—(1.) Not having an eye to God in the use of the means of their preservation, Isa 22:8-11. (2.) Not humbling themselves under his mighty hand, Isa 22:12-14. II. The court of Hezekiah, and the officers of that court. 1. The displacing of Shebna, a bad man, and turning him out of the treasury, Isa 22:15-19,25. 2. The preferring of Eliakim, who should do his country better service, to his place, Isa 22:20-24.
 
-## The Consternation of Jerusalem. (b. c. 718.)
+## The Consternation of Jerusalem (718 BC)
 
 > **¹** The burden of the valley of vision. What aileth thee now, that thou art wholly gone up to the housetops?  
 > **²** Thou that art full of stirs, a tumultuous city, a joyous city: thy slain *men are* not slain with the sword, nor dead in battle.  
@@ -28,7 +28,7 @@ III\. The great grief which this should occasion to all serious sensible people 
 
 IV\. The great numbers and strength of the enemy, that should invade their country and besiege their city, Isa 22:6,7. Elam (that is, the Persians) come with their quiver full of arrows, and with chariots of fighting men, and horsemen. Kir (that is, the Medes) muster up their arms, unsheath the sword, and uncover the shield, and get every thing ready for battle, every thing ready for the besieging of Jerusalem. Then the choice valleys about Jerusalem, that used to be clothed with flocks and covered over with corn, shall be full of chariots of war, and at the gate of the city *the horsemen shall set themselves in array,* to cut off all provisions from going in, and to force their way in. What a condition must the city be in that was beset on all sides with such an army!
 
-## Contempt of Divine Goodness; Contempt of Divine Judgments. (b. c. 718.)
+## Contempt of Divine Goodness; Contempt of Divine Judgments (718 BC)
 
 > **⁸** And he discovered the covering of Judah, and thou didst look in that day to the armour of the house of the forest.  
 > **⁹** Ye have seen also the breaches of the city of David, that they are many: and ye gathered together the waters of the lower pool.  
@@ -56,7 +56,7 @@ II\. A great contempt of God's wrath and justice in contending with them, Isa 22
 
 3\. How much God was displeased at it. He signified his resentment of it to the prophet, *revealed it in his ears,* to be by him proclaimed upon the house-top: *Surely this iniquity shall not be purged from you till you die,* Isa 22:14. It shall never be expiated with sacrifice and offering, any more than the iniquity of the house of Eli, 1Sa 3:14. It is a sin against the remedy, a baffling of the utmost means of conviction and rendering them ineffectual; and therefore it is not likely they should ever repent of it or have it pardoned. The Chaldee reads it, *It shall not be forgiven you till you die the second death.* Those that walk contrary to them; with the froward he will show himself froward.
 
-## The Downfall of Shebna; The Advancement of Eliakim. (b. c. 714.)
+## The Downfall of Shebna; The Advancement of Eliakim (714 BC)
 
 > **¹⁵** Thus saith the Lord GOD of hosts, Go, get thee unto this treasurer, *even* unto Shebna, which *is* over the house, *and say,*  
 > **¹⁶** What hast thou here? and whom hast thou here, that thou hast hewed thee out a sepulchre here, *as* he that heweth him out a sepulchre on high, *and* that graveth a habitation for himself in a rock?  

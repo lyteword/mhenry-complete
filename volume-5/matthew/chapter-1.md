@@ -6,7 +6,7 @@ weight: 1
 
 This evangelist begins with the account of Christ's parentage and birth, the ancestors from whom he descended, and the manner of his entry into the world, to make it appear that he was indeed the Messiah promised, for it was foretold that he should be the son of David, and should be born of a virgin; and that he was so is here plainly shown; for here is, I. His pedigree from Abraham in forty-two generations, three fourteens, Mt 1:1-17. II. An account of the circumstances of his birth, so far as was requisite to show that he was born of a virgin, Mt 1:18-25. Thus methodically is the life of our blessed Saviour written, as lives should be written, for the clearer proposing of the example of them.
 
-## The Genealogy of Christ.
+## The Genealogy of Christ
 
 > **¹** The book of the generation of Jesus Christ, the son of David, the son of Abraham.  
 > **²** Abraham begat Isaac; and Isaac begat Jacob; and Jacob begat Judas and his brethren;  
@@ -62,7 +62,7 @@ Some particulars we may observe in the genealogy.
 
 Lastly. The general summary of all this genealogy we have, Mt 1:17, where it is summed up in three fourteens, signalized by remarkable periods. In the first fourteen, we have the family of David rising, and looking forth as the morning; in the second, we have it flourishing in its meridian lustre; in the third, we have it declining and growing less and less, dwindling into the family of a poor carpenter, and then Christ *shines forth* out of it, the *glory of his people Israel.*
 
-## The Birth of Christ.
+## The Birth of Christ
 
 > **¹⁸** Now the birth of Jesus Christ was on this wise: When as his mother Mary was espoused to Joseph, before they came together, she was found with child of the Holy Ghost.  
 > **¹⁹** Then Joseph her husband, being a just *man,* and not willing to make her a public example, was minded to put her away privily.  

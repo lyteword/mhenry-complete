@@ -6,7 +6,7 @@ weight: 11
 
 Pharaoh had told Moses to get out of his presence (Ex 10:28), and Moses had promised this should be the last time he would trouble him, yet he resolves to say out what he had to say, before he left him; accordingly, we have in this chapter, I. The instructions God had given to Moses, which he was now to pursue (Ex 11:1,2), together with the interest Israel and Moses had in the esteem of the Egyptians, Ex 11:3. II. The last message Moses delivered to Pharaoh, concerning the death of the firstborn, Ex 11:4-8. III. A repetition of the prediction of Pharaoh's hardening his heart, (Ex 11:9), and the event answering to it, Ex 11:10.
 
-## The Plagues of Egypt. (b. c. 1491.)
+## The Plagues of Egypt (1491 BC)
 
 > **¹** And the LORD said unto Moses, Yet will I bring one plague *more* upon Pharaoh, and upon Egypt; afterwards he will let you go hence: when he shall let *you* go, he shall surely thrust you out hence altogether.  
 > **²** Speak now in the ears of the people, and let every man borrow of his neighbour, and every woman of her neighbour, jewels of silver, and jewels of gold.  

@@ -6,7 +6,7 @@ weight: 12
 
 This chapter gives us the history of the reign of Joash, which does not answer to that glorious beginning of it which we had an account of in the foregoing chapter; he was not so illustrious at forty years old as he was at seven, yet his reign is to be reckoned one of the better sort, and appears much worse in Chronicles (2Ch 24:1-27) than it does here, for there we find the blood of one of God's prophets laid at his door; here we are only told, I. That he did well while Jehoiada lived, 2Ki 12:1-3. II. That he was careful and active to repair the temple, 2Ki 12:4-16. III. That after a mean compact with Hazael (2Ki 12:17,18) he died ingloriously, 2Ki 12:19-21.
 
-## The Reign of Joash, King of Judah. (b. c. 878.)
+## The Reign of Joash, King of Judah (878 BC)
 
 > **¹** In the seventh year of Jehu Jehoash began to reign; and forty years reigned he in Jerusalem. And his mother's name *was* Zibiah of Beer-sheba.  
 > **²** And Jehoash did *that which was* right in the sight of the LORD all his days wherein Jehoiada the priest instructed him.  
@@ -14,7 +14,7 @@ This chapter gives us the history of the reign of Joash, which does not answer t
 
 The general account here given of Joash is, 1. That he reigned forty years. As he began his reign when he was very young, he might, in the course of nature, have continued much longer, for he was cut off when he was but forty-seven years old, 2Ki 12:1. 2. That he did that which was right as long as Jehoiada lived to instruct him, 2Ki 12:2. Many young men have come too soon to an estate—have had wealth, and power, and liberty, before they knew how to use them—and it has been of bad consequence to them; but against this danger Joash was well guarded by having such a good director as Jehoiada was, so wise, and experienced, and faithful to him, and by having so much wisdom as to hearken to him and be directed by him, even when he was grown up. Note, It is a great mercy to young people, and especially to young princes, and all young men of consequence, to be under good direction, and to have those about them that will instruct them to do *that which is right in the sight of the Lord;* and they then do wisely and well for themselves when they are willing to be counselled and ruled by such. *A child left to himself brings his mother to shame,* but a child left to such a tuition may bring himself to honour and comfort. 3. That the *high places were not taken away,* 2Ki 12:3. Up and down the country they had altars both for sacrifice and incense, to the honour of the God of Israel only, but in competition with, and at least in tacit contempt of, his altar at Jerusalem. These private altars, perhaps, had been more used in the late bad reigns than formerly, because it was not safe to go up to Jerusalem, nor was the temple-service performed as it should have been; and, it may be, Jehoiada connived at them, because some well-meaning people were glad of them when they could not have better, and he hoped that the reforming of the temple, and putting things into a good posture there, would by degrees draw people from their high places and they would dwindle of themselves; or perhaps neither the king nor the priest had zeal enough to carry on their reformation so far, nor courage and strength enough to encounter such an inveterate usage.
 
-## The Repairing of the Temple. (b. c. 853.)
+## The Repairing of the Temple (853 BC)
 
 > **⁴** And Jehoash said to the priests, All the money of the dedicated things that is brought into the house of the LORD, *even* the money of every one that passeth *the account,* the money that every man is set at, *and* all the money that cometh into any man's heart to bring into the house of the LORD,  
 > **⁵** Let the priests take *it* to them, every man of his acquaintance: and let them repair the breaches of the house, wheresoever any breach shall be found.  
@@ -50,7 +50,7 @@ V\. Another method was therefore taken. The king had his heart much set upon hav
 
 (2.) They did not lay it out in ornaments for the temple, in vessels of gold or silver, but in necessary repairs first (2Ki 12:13), whence we may learn, in all our expenses to give that the preference which is most needful, and, in dealing for the public, to deal as we would for ourselves. After the repairs were finished we find the overplus turned into plate for the service of the temple, 2Ch 24:14.
 
-## Death of Joash, King of Judah. (b. c. 840.)
+## Death of Joash, King of Judah (840 BC)
 
 > **¹⁷** Then Hazael king of Syria went up, and fought against Gath, and took it: and Hazael set his face to go up to Jerusalem.  
 > **¹⁸** And Jehoash king of Judah took all the hallowed things that Jehoshaphat, and Jehoram, and Ahaziah, his fathers, kings of Judah, had dedicated, and his own hallowed things, and all the gold *that was* found in the treasures of the house of the LORD, and in the king's house, and sent *it* to Hazael king of Syria: and he went away from Jerusalem.  

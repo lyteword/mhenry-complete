@@ -6,7 +6,7 @@ weight: 21
 
 In this chapter we have, I. Isaac, the child of promise born into Abraham's family, Ge 21:1-8. II. Ishmael, the son of the bondwoman, cast out of it, Ge 21:9-21. III. Abraham's league with his neighbour Abimelech, Ge 21:23-32. IV. His devotion to his God, Ge 21:33.
 
-## The Birth of Isaac. (b. c. 1897.)
+## The Birth of Isaac (1897 BC)
 
 > **¹** And the LORD visited Sarah as he had said, and the LORD did unto Sarah as he had spoken.  
 > **²** For Sarah conceived, and bare Abraham a son in his old age, at the set time of which God had spoken to him.  
@@ -35,7 +35,7 @@ III\. The impressions which this mercy made upon Sarah.
 
 IV\. A short account of Isaac's infancy: *The child grew,* Ge 21:8. Special notice is taken of this, though a thing of course, to intimate that the children of the promise are growing children. See Lu 1:80, Lu 2:40. Those that are born of God shall increase of God, Col 2:19. He grew so as not always to need milk, but was able to bear strong meat, and then he was weaned. See Heb 5:13,14. And then it was that Abraham made a great feast for his friends and neighbours, in thankfulness to God for his mercy to him. He made this feast, not on the day that Isaac was born, that would have been too great a disturbance to Sarah; nor on the day that he was circumcised, that would have been too great a diversion from the ordinance; but on the day that he was weaned, because God's blessing upon the nursing of children, and the preservation of them throughout the perils of the infant age, are signal instances of the care and tenderness of the divine providence, which ought to be acknowledged, to its praise. See Ps 22:9,10, Ho 11:1.
 
-## Hagar and Ishmael Expelled. (b. c. 1892.)
+## Hagar and Ishmael Expelled (1892 BC)
 
 > **⁹** And Sarah saw the son of Hagar the Egyptian, which she had borne unto Abraham, mocking.  
 > **¹⁰** Wherefore she said unto Abraham, Cast out this bondwoman and her son: for the son of this bondwoman shall not be heir with my son, *even* with Isaac.  
@@ -53,7 +53,7 @@ III\. Abraham was averse to it: *The thing was very grievous in Abraham's sight,
 
 IV\. God determined it, Ge 21:12,13. We may well suppose Abraham to be greatly agitated about this matter, loth to displease Sarah, and yet loth to expel Ishmael; in this difficulty God tells him what his will is, and then he is satisfied. Note, A good man desires no more in doubtful cases than to know his duty, and what God would have him do; and, when he is clear in this, he is, or should be, easy. To make Abraham so, God sets this matter before him in a true light, and shows him, 1. That the casting out of Ishmael was necessary to the establishment of Isaac in the rights and privileges of the covenant: *In Isaac shall thy seed be called.* Both Christ and the church must descend from Abraham through the loins of Isaac; this is the entail of the promise upon Isaac, and is quoted by the apostle (Ro 9:7) to show that not all who come from Abraham's loins were the heirs of Abraham's covenant. Isaac, the promised son, must be the father of the promised seed; therefore, "Away with Ishmael, send him far enough, lest he corrupt the manners or attempt to invade the rights of Isaac." It will be his security to have his rival banished. The covenant seed of Abraham must be a peculiar people, a people by themselves, from the very first, distinguished, not mingled with those that were out of covenant; for this reason Ishmael must be separated. Abraham was *called alone,* and so must Isaac be. See Isa 51:2. It is probable that Sarah little thought of this (Joh 11:51), but God took what she said, and turned it into an oracle, as afterwards, Ge 27:10. 2. That the casting out of Ishmael should not be his ruin, Ge 21:13. He shall be a *nation, because he is thy seed.* We are not sure that it was his eternal ruin. It is presumption to say that all those who are left out of the external dispensation from all his mercies: those may be saved who are not thus honoured. However, we are sure it was not his temporal ruin. Though he was chased out of the church, he was not *chased out of the world. I will make him a nation.* Note, (1.) Nations are of God's making: he founds them, he forms them, he fixes them. (2.) Many are full of the blessings of God's providence that are strangers to the blessings of his covenant. (3.) The children of this world often fare the better, as to outward things, for their relation to the children of God.
 
-## God's Mercy to Hagar and Ishmael. (b. c. 1892.)
+## God's Mercy to Hagar and Ishmael (1892 BC)
 
 > **¹⁴** And Abraham rose up early in the morning, and took bread, and a bottle of water, and gave *it* unto Hagar, putting *it* on her shoulder, and the child, and sent her away: and she departed, and wandered in the wilderness of Beer-sheba.  
 > **¹⁵** And the water was spent in the bottle, and she cast the child under one of the shrubs.  
@@ -74,7 +74,7 @@ II\. Their wandering in the wilderness, missing their way to the place Abraham d
 
 III\. The settlement of Ishmael, at last, in the wilderness of Paran (Ge 21:20,21), a wild place, fittest for a wild man; and such a one he was, Ge 16:12. Those that are born after the flesh take up with the wilderness of this world, while the children of the promise aim at the heavenly Canaan, and cannot be at rest till they are there. Observe, 1. He had some tokens of God's presence: *God was with the lad;* his outward prosperity was owing to this. 2. By trade he was an archer, which intimates that craft was his excellency and sport his business: rejected Esau was a cunning hunter. 3. He matched among his mother's relations; she took him a wife out of Egypt: as great an archer as he was, he did not think he could take his aim well, in the business of marriage, if he proceeded without his mother's advice and consent.
 
-## Abimelech's Covenant with Abraham. (b. c. 1892.)
+## Abimelech's Covenant with Abraham (1892 BC)
 
 > **²²** And it came to pass at that time, that Abimelech and Phichol the chief captain of his host spake unto Abraham, saying, God *is* with thee in all that thou doest:  
 > **²³** Now therefore swear unto me here by God that thou wilt not deal falsely with me, nor with my son, nor with my son's son: *but* according to the kindness that I have done unto thee, thou shalt do unto me, and to the land wherein thou hast sojourned.  

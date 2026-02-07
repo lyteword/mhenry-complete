@@ -6,7 +6,7 @@ weight: 6
 
 Hitherto, it should seem, Isaiah had prophesied as a candidate, having only a virtual and tacit commission; but here we have him (if I may so speak) solemnly ordained and set apart to the prophetic office by a more express or explicit commission, as his work grew more upon his hands: or perhaps, having seen little success of his ministry, he began to think of giving it up; and therefore God saw fit to renew his commission here in this chapter, in such a manner as might excite and encourage his zeal and industry in the execution of it, though he seemed to labour in vain. In this chapter we have, I. A very awful vision which Isaiah saw of the glory of God (Isa 6:1-4), the terror it put him into (Isa 6:5), and the relief given him against that terror by an assurance of the pardon of his sins, Isa 6:6,7. II. A very awful commission which Isaiah received to go as a prophet, in God's name (Isa 6:8), by his preaching to harden the impenitent in sin and ripen them for ruin (Isa 6:9-12) yet with a reservation of mercy for a remnant, (Isa 6:13). And it was as to an evangelical prophet that these things were shown him and said to him.
 
-## Isaiah's Heavenly Vision. (b. c. 758.)
+## Isaiah's Heavenly Vision (758 BC)
 
 > **¹** In the year that king Uzziah died I saw also the Lord sitting upon a throne, high and lifted up, and his train filled the temple.  
 > **²** Above it stood the seraphims: each one had six wings; with twain he covered his face, and with twain he covered his feet, and with twain he did fly.  
@@ -37,7 +37,7 @@ IV\. Hear the anthem, or song of praise, which the angels sing to the honour of 
 
 V\. Observe the marks and tokens of terror with which the temple was filled, upon this vision of the divine glory, Isa 6:4. 1. The house was *shaken;* not only the door, but even *the posts of the door,* which were firmly fixed, *moved at the voice of him that cried,* at the voice of God, who called to judgment (Ps 50:4), at the voice of the angel, who praised him. There are voices in heaven sufficient to drown all the noises of the many waters in this lower world, Ps 93:3,4. This violent concussion of the temple was an indication of God's wrath and displeasure against the people for their sins; it was an earnest of the destruction of it and the city by the Babylonians first, and afterwards by the Romans; and it was designed to strike an awe upon us. Shall walls and posts tremble before God, and shall we not tremble? 2. The house was *darkened;* it was *filled with smoke,* which was as a *cloud spread* upon *the face of his throne* (Job 26:9); we cannot take a full view of it, nor order our speech concerning it, by reason of darkness. In the temple above there will be no smoke, but everything will be seen clearly. There God dwells in light; here he *makes darkness his pavilion,* 2Ch 6:1.
 
-## Isaiah's Heavenly Vision. (b. c. 758.)
+## Isaiah's Heavenly Vision (758 BC)
 
 > **⁵** Then said I, Woe *is* me! for I am undone; because I *am* a man of unclean lips, and I dwell in the midst of a people of unclean lips: for mine eyes have seen the King, the LORD of hosts.  
 > **⁶** Then flew one of the seraphims unto me, having a live coal in his hand, *which* he had taken with the tongs from off the altar:  
@@ -60,7 +60,7 @@ III\. The renewing of the prophet's mission, Isa 6:8. Here is a communication be
 
 2\. The consent of Isaiah to it: *Then said I, Here am I; send me.* He was to go on a melancholy errand; the office seemed to go a begging, and every body declined it, and yet Isaiah offered himself to the service. It is an honour to be singular in appearing for God, Jdg 5:7. We must not say, "I would go if I thought I should have success;" but, "I will go, and leave the success to God. Here am I; send me." Isaiah had been himself in a melancholy frame (Isa 6:5), full of doubts and fears; but now that he had the assurance of the pardon of his sin the clouds were blown over, and he was fit for service and forward to it. What he says denotes, (1.) His readiness: "Here am I, a volunteer, not pressed into the service." *Behold me;* so the word is. God says to us, *Behold me* (Isa 65:1), and, *Here I am* (Isa 58:9), even before we call; let us say so to him when he does call. (2.) His resolution; "*Here I am,* ready to encounter the greatest difficulties. *I have set my face as a flint.*" Compare this with Isa 50:4-7. (3.) His referring himself to God: "Send me whither thou wilt; make what use thou pleasest of me. Send me, that is, Lord, give me commission and full instruction; send me, and then, no doubt, thou wilt stand by me." It is a great comfort to those whom God sends that they go for God, and may therefore speak in his name, as having authority, and be assured that he will bear them out.
 
-## Judicial Blindness Threatened. (b. c. 758.)
+## Judicial Blindness Threatened (758 BC)
 
 > **⁹** And he said, Go, and tell this people, Hear ye indeed, but understand not; and see ye indeed, but perceive not.  
 > **¹⁰** Make the heart of this people fat, and make their ears heavy, and shut their eyes; lest they see with their eyes, and hear with their ears, and understand with their heart, and convert, and be healed.  

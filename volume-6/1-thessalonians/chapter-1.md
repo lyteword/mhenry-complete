@@ -6,7 +6,7 @@ weight: 1
 
 After the introduction (1Th 1:1) the apostle begins with a thanksgiving to God for the saving benefits bestowed on them, 1Th 1:2-5. And then mentions the sure evidences of the good success of the gospel among them, which was notorious and famous in several other places, 1Th 1:6-10.
 
-## Inscription and Apostolical Salutation. (a. d. 51.)
+## Inscription and Apostolical Salutation (51 AD)
 
 > **¹** Paul, and Silvanus, and Timotheus, unto the church of the Thessalonians *which is* in God the Father and *in* the Lord Jesus Christ: Grace *be* unto you, and peace, from God our Father, and the Lord Jesus Christ.  
 
@@ -16,7 +16,7 @@ I\. The inscription, where we have, 1. The persons from whom this epistle came, 
 
 II\. The salutation or apostolical benediction: *Grace be with you, and peace from God our Father and the Lord Jesus Christ.* This is the same for substance as in the other epistles. Grace and peace are well joined together; for the free grace or favour of God is the spring or fountain of all the peace and prosperity we do or can enjoy; and where there are gracious dispositions in us we may hope for peaceful thoughts in our own breasts; both grace and peace, and all spiritual blessings, come to us from God the Father and the Lord Jesus Christ; from God the original of all good, and from the Lord Jesus the purchaser of all good for us; from God in Christ, and so our Father in covenant, because he is the God and Father of our Lord Jesus Christ. Note, As all good comes from God, so no good can be hoped for by sinners but from God in Christ. And the best good may be expected from God as our Father for the sake of Christ.
 
-## Thanksgiving to God. (a. d. 51.)
+## Thanksgiving to God (51 AD)
 
 > **²** We give thanks to God always for you all, making mention of you in our prayers;  
 > **³** Remembering without ceasing your work of faith, and labour of love, and patience of hope in our Lord Jesus Christ, in the sight of God and our Father;  
@@ -35,7 +35,7 @@ III\. He mentions the particulars for which he was so thankful to God; namely,
 
 3\. Another ground or reason of the apostle's thanksgiving is the success of his ministry among them. He was thankful on his own account as well as theirs, that he had not laboured in vain. He had the seal and evidence of his apostleship hereby, and great encouragement in his labours and sufferings. Their ready acceptance and entertainment of the gospel he preached to them were an evidence of their being elected and beloved of God. It was in this way that he knew their election. It is true he had been in the third heavens; but he had not searched the records of eternity, and found their election there, but knew this by the success of the gospel among them (1Th 1:5), and he takes notice with thankfulness, (1.) That the gospel came to them also not in word only, but in power; they not only heard the sound of it, but submitted to the power of it. It did not merely tickle the ear and please the fancy, not merely fill their heads with notions and amuse their minds for awhile, but it affected their hearts: a divine power went along with it for convincing their consciences and amending their lives. Note, By this we may know our election, if we not only speak of the things of God by rote as parrots, but feel the influence of these things in our hearts, mortifying our lusts, weaning us from the world, and raising us up to heavenly things. (2.) It came in the Holy Ghost, that is, with the powerful energy of the divine Spirit. Note, Wherever the gospel comes in power, it is to be attributed to the operation of the Holy Ghost; and unless the Spirit of God accompany the word of God, to render it effectual by his power, it will be to us but as a dead letter; and the letter killeth, it is the Spirit that giveth life. (3.) The gospel came to them in much assurance. Thus did they entertain it by the power of the Holy Ghost. They were fully convinced of the truth of it, so as not to be easily shaken in mind by objections and doubts; they were willing to leave all for Christ, and to venture their souls and everlasting condition upon the verity of the gospel revelation. The word was not to them, like the sentiments of some philosophers about matters of opinion and doubtful speculation, but the object of their faith and assurance. Their *faith was the evidence of things not seen;* and the Thessalonians thus knew what manner of men the apostle and his fellow-labourers were among them, and what they did for their sake, and with what good success.
 
-## Evidence of the Apostle's Success. (a. d. 51.)
+## Evidence of the Apostle's Success (51 AD)
 
 > **⁶** And ye became followers of us, and of the Lord, having received the word in much affliction, with joy of the Holy Ghost:  
 > **⁷** So that ye were ensamples to all that believe in Macedonia and Achaia.  

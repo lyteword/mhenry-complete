@@ -6,7 +6,7 @@ weight: 6
 
 In this chapter, I. The royal preacher goes on further to show the vanity of worldly wealth, when men place their happiness in it and are eager and inordinate in laying it up. Riches, in the hands of a man that is wise and generous, and good for something, but in the hands of a sordid, sneaking, covetous miser, they are good for nothing. 1. He takes an account of the possessions and enjoyments which such a man may have. He has wealth (Ec 6:2), he has children to inherit it (Ec 6:3), and lives long, Ec 6:3,6. 2. He describes his folly in not taking the comfort of it; he has no power to eat of it, lets strangers devour it, is never filled with good, and at last has no burial, Ec 6:2,3. 3. He condemns it as an evil, a common evil, vanity, and a disease, Ec 6:1,2. 4. He prefers the condition of a still-born child before the condition of such a one, Ec 6:3. The still-born child's infelicity is only negative (Ec 6:4,5), but that of the covetous worldling is positive; he lives a great while to see himself miserable, Ec 6:6. 5. He shows the vanity of riches as pertaining only to the body, and giving no satisfaction to the mind (Ec 6:7,8), and of those boundless desires with which covetous people vex themselves (Ec 6:9), which, if they be gratified ever so fully, leave a man but a man still, Ec 6:10. II. He concludes this discourse of the vanity of the creature with this plain inference from the whole, That it is folly to think of making up a happiness for ourselves in the things of this world, Ec 6:11,12. Our satisfaction must be in another life, not in this.
 
-## The Miseries of Covetousness.
+## The Miseries of Covetousness
 
 > **¹** There is an evil which I have seen under the sun, and it *is* common among men:  
 > **²** A man to whom God hath given riches, wealth, and honour, so that he wanteth nothing for his soul of all that he desireth, yet God giveth him not power to eat thereof, but a stranger eateth it: this *is* vanity, and it *is* an evil disease.  
@@ -33,7 +33,7 @@ III\. The preference which the preacher gives to an untimely birth before him: *
 
 The reason he gives why *this has more rest* is because *all go to one place* to rest in, and this is sooner at his rest, Ec 6:6. He that *lives a thousand years* goes to the same place with the child that does not live an hour, Ec 3:20. The grave is the place we shall all meet in. Whatever differences there may be in men's condition in this world, they must all die, are all under the same sentence, and, to outward appearance, their deaths are alike. The grave is to one, as well as another, a land of silence, of darkness, of separation from the living, and a sleeping-place. It is the common rendezvous of rich and poor, honourable and mean, learned and unlearned; the short-lived and long-lived meet in the grave, only one rides post thither, the other goes by a slower conveyance; the dust of both mingles, and lies undistinguished.
 
-## The Insatiableness of Desire.
+## The Insatiableness of Desire
 
 > **⁷** All the labour of man *is* for his mouth, and yet the appetite is not filled.  
 > **⁸** For what hath the wise more than the fool? what hath the poor, that knoweth to walk before the living?  
@@ -58,7 +58,7 @@ VII\. Whatever we attain to in this world, still we are but men, and the greates
 
 VIII\. How far soever our desires wander, and how closely soever our endeavours keep pace with them, we cannot strive with the divine Providence, but must submit to the disposals of it, whether we will or no. If *it is man, he may not contend with him that is mightier than he.* It is presumption to arraign God's proceedings, and to charge him with folly or iniquity; nor is it to any purpose to complain of him, for *he is in one mind and who can turn him?* Elihu pacifies Job with this incontest able principle, That *God is greater than man* (Job 33:12) and therefore *man may not contend with him,* nor resist his judgments, when they come with commission. A man cannot with the greatest riches make his part good against the arrests of sickness or death, but must yield to his fate.
 
-## The Insatiableness of Desire.
+## The Insatiableness of Desire
 
 > **¹¹** Seeing there be many things that increase vanity, what *is* man the better?  
 > **¹²** For who knoweth what *is* good for man in *this* life, all the days of his vain life which he spendeth as a shadow? for who can tell a man what shall be after him under the sun?  

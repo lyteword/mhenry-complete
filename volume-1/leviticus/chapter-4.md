@@ -6,7 +6,7 @@ weight: 4
 
 This chapter is concerning the sin-offering, which was properly intended to make atonement for a sin committed through ignorance, I. By the priest himself, Le 4:1-12. Or, II. By the whole congregation, Le 4:13-21. Or, III. By a ruler, Le 4:22-26. Or, IV. By a private person, Le 4:27-35, etc.
 
-## Law of the Sin-Offering. (b. c. 1490.)
+## Law of the Sin-Offering (1490 BC)
 
 > **¹** And the LORD spake unto Moses, saying,  
 > **²** Speak unto the children of Israel, saying, If a soul shall sin through ignorance against any of the commandments of the LORD *concerning things* which ought not to be done, and shall do against any of them:  

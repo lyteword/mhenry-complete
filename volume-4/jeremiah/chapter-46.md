@@ -6,7 +6,7 @@ weight: 46
 
 How judgment began at the house of God we have found in the foregoing prophecy and history; but now we shall find that it did not end there. In this and the following chapters we have predictions of the desolations of the neighbouring nations, and those brought upon them too mostly by the king of Babylon, till at length Babylon itself comes to be reckoned with. The prophecy against Egypt is here put first and takes up this whole chapter, in which we have, I. A prophecy of the defeat of Pharaoh-necho's army by the Chaldean forces at Carchemish, which was accomplished soon after, in the fourth year of Jehoiakim, Jer 46:1-12. II. A prophecy of the descent which Nebuchadnezzar should make upon the land of Egypt, and his success in it, which was accomplished some years after the destruction of Jerusalem, Jer 46:13-26. III. A word of comfort to the Israel of God in the midst of those calamities, Jer 46:27,28.
 
-## The Judgment of Egypt. (b. c. 608.)
+## The Judgment of Egypt (608 BC)
 
 > **¹** The word of the LORD which came to Jeremiah the prophet against the Gentiles;  
 > **²** Against Egypt, against the army of Pharaoh-necho king of Egypt, which was by the river Euphrates in Carchemish, which Nebuchadrezzar king of Babylon smote in the fourth year of Jehoiakim the son of Josiah king of Judah.  
@@ -32,7 +32,7 @@ III\. They are upbraided with their cowardice and inglorious flight when they co
 
 IV\. They are upbraided with their utter inability ever to recover this blow, which should be fatal to their nation, Jer 46:11,12. The damsel, *the daughter of Egypt,* that lived in great pomp and state, is sorely wounded by this defeat. Let her now seek for *balm in Gilead* and physicians there; let her use all the medicines her wise men can prescribe for the healing of this hurt, and the repairing of the loss sustained by this defeat; but all in vain; *no cure shall be* to them; they shall never be able to bring such a powerful army as this into the field again. "*The nations* that rang of thy glory and strength *have* now *heard of thy shame,* how shamefully thou wast routed and how thou are weakened by it." It needs not be spread by the triumphs of the conquerors, the shrieks and outcries of the conquered will proclaim it: *Thy cry hath filled the* country about. For, when they fled several ways, one *mighty man stumbled* upon another and dashed against another, such confusion were they in, so that *both together* became a prey to the pursuers, an easy prey. A thousand such dreadful accidents there should be, which should fill the country with the cry of those that were overcome. *Let not the mighty man* therefore *glory in his might,* for the time may come when it will stand him in no stead.
 
-## The Judgment of Egypt. (b. c. 608.)
+## The Judgment of Egypt (608 BC)
 
 > **¹²** The nations have heard of thy shame, and thy cry hath filled the land: for the mighty man hath stumbled against the mighty, *and* they are fallen both together.  
 > **¹³** The word that the LORD spake to Jeremiah the prophet, how Nebuchadrezzar king of Babylon should come *and* smite the land of Egypt.  

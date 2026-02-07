@@ -6,7 +6,7 @@ weight: 4
 
 This chapter gives a further account of the miraculous passage of Israel through Jordan. I. The provision that was made at that time to preserve the memorial of it, by twelve stones set up in Jordan (Jos 4:9) and other twelve stones taken up out of Jordan, Jos 4:1-8. II. The march of the people through Jordan's channel, the two tribes first, then all the people, and the priests that bore the ark last, Jos 4:10-14. III. The closing of the waters again upon their coming up with the ark, Jos 4:15-19. IV. The erecting of the monument in Gilgal, to preserve the remembrance of this work of wonder to posterity, Jos 4:20-24.
 
-## The Passage over the Jordan. (b. c. 1451.)
+## The Passage over the Jordan (1451 BC)
 
 > **¹** And it came to pass, when all the people were clean passed over Jordan, that the LORD spake unto Joshua, saying,  
 > **²** Take you twelve men out of the people, out of every tribe a man,  

@@ -6,7 +6,7 @@ weight: 10
 
 Moses having, in the foregoing chapter, reminded them of their own sin, as a reason why they should not depend upon their own righteousness, in this chapter he sets before them God's great mercy to them, notwithstanding their provocations, as a reason why they should be more obedient for the future. I. He mentions divers tokens of God's favour and reconciliation to them, never to be forgotten. (1.) The renewing of the tables of the covenant, De 10:1-5. (2.) Giving orders for their progress towards Canaan, De 10:6,7. (3.) Choosing the tribe of Levi for his own, De 10:8,9. (4.) And continuing the priesthood after the death of Aaron, De 10:6. (5.) Owning and accepting the intercession of Moses for them, De 10:10,11. II. Hence he infers what obligations they lay under to fear, and love, and serve God, which he presses upon them with many motives, De 10:12-22, etc.
 
-## God's Great Kindness to Israel. (b. c. 1451.)
+## God's Great Kindness to Israel (1451 BC)
 
 > **¹** At that time the LORD said unto me, Hew thee two tables of stone like unto the first, and come up unto me into the mount, and make thee an ark of wood.  
 > **²** And I will write on the tables the words that were in the first tables which thou brakest, and thou shalt put them in the ark.  
@@ -30,7 +30,7 @@ III\. He appointed a standing ministry among them, to deal for them in holy thin
 
 IV\. He accepted Moses as an advocate or intercessor for them, and therefore constituted him their prince and leader (De 10:10,11): *The Lord hearkened to me and said, Arise, go before the people.* It was a mercy to them that they had such a friend, so faithful both to him that appointed him and to those for whom he was appointed. It was fit that he who had saved them from ruin, by his intercession with heaven, should have the conduct and command of them. And herein he was a type of Christ, who, as he ever lives making intercession for us, so he has *all power both in heaven and in earth.*
 
-## Exhortation to Obedience. (b. c. 1451.)
+## Exhortation to Obedience (1451 BC)
 
 > **¹²** And now, Israel, what doth the LORD thy God require of thee, but to fear the LORD thy God, to walk in all his ways, and to love him, and to serve the LORD thy God with all thy heart and with all thy soul,  
 > **¹³** To keep the commandments of the LORD, and his statutes, which I command thee this day for thy good?  

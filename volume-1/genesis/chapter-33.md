@@ -6,7 +6,7 @@ weight: 33
 
 We read, in the former chapter, how Jacob had power with God, and prevailed; here we find what power he had with men too, and how his brother Esau was mollified, and, on a sudden, reconciled to him; for so it is written, Pr 16:7, "When a man's ways please the Lord, he maketh even his enemies to be at peace with him." Here is, I. A very friendly meeting between Jacob and Esau, Ge 33:1-4. II. Their conference at their meeting, in which they vie with each other in civil and kind expressions. Their discourse is, 1. About Jacob's family, Ge 33:5-7. 2. About the present he had sent, Ge 33:8-11. 3. About the progress of their journey, Ge 33:12-15. III. Jacob's settlement in Canaan, his house, ground, and altar, Ge 33:16-20.
 
-## Jacob's Interview with Esau. (b. c. 1739.)
+## Jacob's Interview with Esau (1739 BC)
 
 > **¹** And Jacob lifted up his eyes, and looked, and, behold, Esau came, and with him four hundred men. And he divided the children unto Leah, and unto Rachel, and unto the two handmaids.  
 > **²** And he put the handmaids and their children foremost, and Leah and her children after, and Rachel and Joseph hindermost.  

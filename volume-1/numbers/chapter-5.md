@@ -6,7 +6,7 @@ weight: 5
 
 In this chapter we have, I. An order, pursuant to the laws already made, for the removing of the unclean out of the camp, Nu 5:1-4. II. A repetition of the laws concerning restitution, in case of wrong done to a neighbour (Nu 5:5-8), and concerning the appropriating of the hallowed things to the priests, Nu 5:9,10. III. A new law made concerning the trial of a wife suspected of adultery, by the waters of jealousy, Nu 5:11-31, etc.
 
-## The Unclean to Be Removed. (b. c. 1490.)
+## The Unclean to Be Removed (1490 BC)
 
 > **¹** And the LORD spake unto Moses, saying,  
 > **²** Command the children of Israel, that they put out of the camp every leper, and every one that hath an issue, and whosoever is defiled by the dead:  
@@ -29,7 +29,7 @@ II\. A law concerning restitution, in case of wrong done to a neighbour. It is c
 
 III\. A general rule concerning hallowed things given upon this occasion, that, whatever was given to the priest, *his it shall be,* Num 5:9,10. 1. He that gave it was not to receive his gift again upon any pretence whatsoever. This law ratifies and confirms all grants for pious uses, that people might not give things to the priests in a fit of zeal, and then recall them in a fit of vexation. 2. The other priests should not come in sharers with that priest who then officiated, and to whom the hallowed thing, whatever it was, was given. Let him that was most ready and diligent in attending fare the better for it: if he do the work, let him have the pay, and much good may it do him.
 
-## The Bitter Water of Jealousy. (b. c. 1490.)
+## The Bitter Water of Jealousy (1490 BC)
 
 > **¹¹** And the LORD spake unto Moses, saying,  
 > **¹²** Speak unto the children of Israel, and say unto them, If any man's wife go aside, and commit a trespass against him,  

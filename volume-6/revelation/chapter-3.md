@@ -6,7 +6,7 @@ weight: 3
 
 Here we have three more of the epistles of Christ to the churches: I. To Sardis, Re 3:1-6. II. To Philadelphia, Re 3:7-13. III. To Laodicea, Re 3:14-22.
 
-## The Church in Sardis. (a. d. 95.)
+## The Church in Sardis (95 AD)
 
 > **¹** And unto the angel of the church in Sardis write; These things saith he that hath the seven Spirits of God, and the seven stars; I know thy works, that thou hast a name that thou livest, and art dead.  
 > **²** Be watchful, and strengthen the things which remain, that are ready to die: for I have not found thy works perfect before God.  
@@ -33,7 +33,7 @@ III\. We now come to the conclusion of this epistle, in which, as before, we hav
 
 2\. The demand of universal attention finishes the message. Every word from God deserves attention from men; that which may seem more particularly directed to one body of men has something in it instructive to all.
 
-## The Church in Philadelphia. (a. d. 95.)
+## The Church in Philadelphia (95 AD)
 
 > **⁷** And to the angel of the church in Philadelphia write; These things saith he that is holy, he that is true, he that hath the key of David, he that openeth, and no man shutteth; and shutteth, and no man openeth;  
 > **⁸** I know thy works: behold, I have set before thee an open door, and no man can shut it: for thou hast a little strength, and hast kept my word, and hast not denied my name.  
@@ -71,7 +71,7 @@ III\. The conclusion of this epistle, Re 3:12,13. Here,
 
 2\. The epistle is closed up with the demand of attention: *He that hath an ear, let him hear what the Spirit saith unto the churches,* how Christ loves and values his faithful people, how he commends, and how he will crown their fidelity.
 
-## The Church in Laodicea. (a. d. 95.)
+## The Church in Laodicea (95 AD)
 
 > **¹⁴** And unto the angel of the church of the Laodiceans write; These things saith the Amen, the faithful and true witness, the beginning of the creation of God;  
 > **¹⁵** I know thy works, that thou art neither cold nor hot: I would thou wert cold or hot.  

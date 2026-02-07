@@ -4,7 +4,7 @@ weight: 16
 
 # Chapter 16
 
-## The Sovereignty of Divine Providence.
+## The Sovereignty of Divine Providence
 
 > **¹** The preparations of the heart in man, and the answer of the tongue, *is* from the LORD.  
 
@@ -42,7 +42,7 @@ Here, 1. It is supposed that an honest good man may have but a little of the wea
 
 Man is here represented to us, 1. As a reasonable creature, that has the faculty of contriving for himself: *His heart devises his way,* designs an end, and projects ways and means leading to that end, which the inferior creatures, who are governed by sense and natural instinct, cannot do. The more shame for him if he do not devise the way how to please God and provide for his everlasting state. 2. But as a depending creature, that is subject to the direction and dominion of his Maker. If men *devise their way,* so as to make God's glory their end and his will their rule, they may expect that he will *direct their steps* by his Spirit and grace, so that they shall not miss their way nor come short of their end. But let men devise their worldly affairs ever so politely, and with ever so great a probability of success, yet God has the ordering of the event, and sometimes *directs their steps* to that which they least intended. The design of this is to teach us to say, *If the Lord will, we shall live and do this or that* (Jam 4:14,15), and to have our eye to God, not only in the great turns of our lives, but in every step we take. *Lord, direct my way,* 1Th 3:11.
 
-## The Duties of Kings.
+## The Duties of Kings
 
 > **¹⁰** A divine sentence *is* in the lips of the king: his mouth transgresseth not in judgment.  
 
@@ -65,7 +65,7 @@ Here is a further character of good kings, that they *love* and *delight* in tho
 
 These two verses show the power of kings, which is every where great, but was especially so in those eastern countries, where they were absolute and arbitrary. Whom they would they slew and whom they would they kept alive. Their will was a law. We have reason to bless God for the happy constitution of the government we live under, which maintains the prerogative of the prince without any injury to the liberty of the subject. But here it is intimated, 1. How formidable *the wrath of a king is:* It is *as messengers of death;* the wrath of Ahasuerus was so to Haman. An angry word from an incensed prince has been to many a *messenger of death,* and has struck so great a terror upon some as if a sentence of death had been pronounced upon them. He must be a very *wise man* that knows how to *pacify* the wrath of a king with a word fitly spoken, as Jonathan once pacified his father's rage against David, 1Sa 19:6. A prudent subject may sometimes suggest that to an angry prince which will cool his resentments. 2. How valuable and desirable the king's favour is to those that have incurred his displeasure; it is life from the dead if the king be reconciled to them. To others it is *as a cloud of the latter rain,* very refreshing to the ground. Solomon put his subjects in mind of this, that they might not do any thing to incur his wrath, but be careful to recommend themselves to his favour. We ought by it to be put in mind how much we are concerned to escape the wrath and obtain the favour of the King of kings. His frowns are worse than death, and his favour is better than life; and therefore those are fools who to escape the wrath, and obtain the favour, of an earthly prince, will throw themselves out of God's favour, and make themselves obnoxious to his wrath.
 
-## Pride and Humility.
+## Pride and Humility
 
 > **¹⁶** How much better *is it* to get wisdom than gold! and to get understanding rather to be chosen than silver!  
 
@@ -83,7 +83,7 @@ Note, 1. Pride will have a fall. Those that are of a *haughty spirit,* that thin
 
 This is a paradox which the children of this world cannot understand and will not subscribe to, that it is better to be poor and humble than to be rich and proud. 1. Those that *divide the spoil* are commonly proud; they value themselves and despise others, and their mind rises with their condition; those therefore that are *rich in this world* have need to be charged that they *be not high-minded,* 1Ti 6:17. Those that are proud and will put forth themselves, that thrust, and shove, and scramble, for preferment, are the men that commonly *divide the spoil* and share it among them; they have the world at will and the ball at their foot. 2. It is upon all accounts better to take our lot with those whose condition is low, and their minds brought to it, than to covet and aim to make a figure and a bustle in the world. Humility, though it should expose us to contempt in the world, yet while it recommends us to the favour of God, qualifies us for his gracious visits, prepares us for his glory, secures us from many temptations, and preserves the quiet and repose of our own souls, is much better than that high-spiritedness which, though it carry away the honour and wealth of the world, makes God a man's enemy and the devil his master.
 
-## Benefits of Wisdom.
+## Benefits of Wisdom
 
 > **²⁰** He that handleth a matter wisely shall find good: and whoso trusteth in the LORD, happy *is* he.  
 
@@ -105,7 +105,7 @@ Solomon had commended eloquence, or *the sweetness of the lips* (Pr 16:21), and 
 
 The *pleasant words* here commended must be those which *the heart of the wise teaches, and adds learning to* (Pr 16:23), words of seasonable advice, instruction, and comfort, words taken from God's word, for that is it which Solomon had learned from his father to account *sweeter than honey and the honey-comb,* Ps 19:10. These words, to those that know how to relish them, 1. Are pleasant. They are like the *honey-comb, sweet to the soul,* which tastes in them that *the Lord is gracious;* nothing more grateful and agreeable to the new man than the word of God, and those words which are borrowed from it, Ps 119:103. 2. They are wholesome. Many things are pleasant that are not profitable, but these *pleasant words are health to the bones,* to the inward man, as well as *sweet to the soul.* They make *the bones,* which sin has broken and put out of joint, *to rejoice.* The bones are the strength of the body; and the good word of God is a means of spiritual strength, curing the diseases that weaken us.
 
-## Malice and Envy.
+## Malice and Envy
 
 > **²⁵** There is a way that seemeth right unto a man, but the end thereof *are* the ways of death.  
 
@@ -125,7 +125,7 @@ There are those that are not only vicious themselves, but spiteful and mischievo
 
 Here is another sort of evil men described to us, that we may neither do like them, nor have any thing to do with them. 1. Such as (like Satan) do all the mischief they can by force and violence, as roaring lions, and not only by fraud and insinuation, as subtle serpents: They are *violent men,* that do all by rapine and oppression, that *shut their eyes,* meditating with the closest intention and application of mind *to devise froward things,* to contrive how they may do the greatest mischief to their neighbour, to do it effectually and yet securely to themselves; and then *moving their lips,* giving the word of command to their agents, they *bring the evil to pass,* and accomplish the wicked device, *biting his lips* (so some read it) for vexation. When *the wicked plots against the just* he *gnasheth upon him with his teeth.* 2. Such as (like Satan still) do all they can to *entice* and draw in others to join with them in doing mischief, *leading them in a way that is not good,* that is not honest, nor honourable, nor safe, but offensive to God, and which will be in the end pernicious to the sinner. Thus he aims to ruin some in this world by bringing them into trouble, and others in the other world by bringing them into sin.
 
-## The Sovereignty of Divine Providence.
+## The Sovereignty of Divine Providence
 
 > **³¹** The hoary head *is* a crown of glory, *if* it be found in the way of righteousness.  
 

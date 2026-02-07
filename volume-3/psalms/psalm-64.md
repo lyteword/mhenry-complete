@@ -6,7 +6,7 @@ weight: 64
 
 This whole psalm has reference to David's enemies, persecutors, and slanderers; many such there were, and a great deal of trouble they gave him, almost all his days, so that we need not guess at any particular occasion of penning this psalm. I. He prays to God to preserve him from their malicious designs against him, Ps 64:1,2. II. He gives a very bad character of them, as men marked for ruin by their own wickedness, Ps 64:3-6. III. By the spirit of prophecy he foretels their destruction, which would redound to the glory of God and the encouragement of his people, Ps 64:7-10. In singing this psalm we must observe the effect of the old enmity that is in the seed of the woman against the seed of the serpent, and assure ourselves that the serpent's head will be broken, at last, to the honour and joy of the holy seed.
 
-## Malice of David's Enemies.
+## Malice of David's Enemies
 
 To the chief musician. A psalm of David.
 
@@ -29,7 +29,7 @@ II\. He complains of the great malice and wickedness of his enemies: "Lord, hide
 
 3\. They are very industrious in putting their projects in execution (Ps 64:6): "*They search out iniquity;* they take a great deal of pains to find out some iniquity or other to lay to my charge; they dig deep, and look far back, and put things to the utmost stretch, that they may have something to accuse me of;" or, "They are industrious to find out new arts of doing mischief to me; in this they accomplish a diligent search; they go through with it, and spare neither cost nor labour." *Evil men dig up mischief.* Half the pains that many take to damn their souls would serve to save them. They are masters of all the arts of mischief and destruction, for *the inward thought of every one of them, and the heart, are deep*; deep as hell, desperately wicked, who can know it? By the unaccountable wickedness of their wit and of their will, they show themselves to be, both in subtlety and malignity, the genuine offspring of the old serpent.
 
-## God's Judgments on Persecutors.
+## God's Judgments on Persecutors
 
 > **⁷** But God shall shoot at them *with* an arrow; suddenly shall they be wounded.  
 > **⁸** So they shall make their own tongue to fall upon themselves: all that see them shall flee away.  

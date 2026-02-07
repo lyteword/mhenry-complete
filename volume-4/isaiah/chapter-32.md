@@ -6,7 +6,7 @@ weight: 32
 
 This chapter seems to be such a prophecy of the reign of Hezekiah as amounts to an abridgment of the history of it, and this with an eye to the kingdom of the Messiah, whose government was typified by the thrones of the house of David, for which reason he is so often called "the Son of David." Here is, I. A prophecy of that good work of reformation with which he should begin his reign, and the happy influence it should have upon the people, who had been wretchedly corrupted and debauched in the reign of his predecessor, Isa 32:1-8. II. A prophecy of the great disturbance that would be given to the kingdom in the middle of his reign by the Assyrian invasion, Isa 32:9-14. III. A promise of better times afterwards, towards the latter end of his reign, in respect both of piety and peace (Isa 32:15-20), which promise may be supposed to look as far forward as the days of the Messiah.
 
-## The Reign of Justice. (b. c. 726.)
+## The Reign of Justice (726 BC)
 
 > **¹** Behold, a king shall reign in righteousness, and princes shall rule in judgment.  
 > **²** And a man shall be as a hiding place from the wind, and a covert from the tempest; as rivers of water in a dry place, as the shadow of a great rock in a weary land.  
@@ -37,7 +37,7 @@ II\. That subjects should do their duty in their places.
 
 [2.] One that is truly liberal, and deserves the honour of being called so, makes it his business to do good to every body according as his sphere is, Isa 32:8. Observe, *First,* The care he takes, and the contrivances he has, to do good. He *devises liberal things.* As much as the churl or niggard projects how to save and lay up what he has for himself only, so much the good charitable man projects how to use and lay out what he has in the best manner for the good of others. Charity must be directed by wisdom, and liberal things done prudently and with device, that the good intention of them may be answered, that it may not be charity misplaced. The liberal man, when he has done all the liberal things that are in his own power, devises liberal things for others to do according to their power, and puts them upon doing them. *Secondly,* the comfort he takes, and the advantage he has, in doing good: *By liberal things he shall stand,* or be established. The providence of God will reward him for his liberality with a settled prosperity and an established reputation. The grace of God will give him abundance of satisfaction and confirmed peace in his own bosom. What disquiets others shall not disturb him; his heart is fixed. This is the recompence of charity, Ps 112:5,6. Some read it, *The prince, or honourable man, will take honourable courses; and by such honourable or ingenuous courses he shall stand or be established.* It is well with a land when the honourable of it are indeed men of honour and scorn to do a base thing, when its king is thus the son of nobles.
 
-## Joyful Prospects. (b. c. 726.)
+## Joyful Prospects (726 BC)
 
 > **⁹** Rise up, ye women that are at ease; hear my voice, ye careless daughters; give ear unto my speech.  
 > **¹⁰** Many days and years shall ye be troubled, ye careless women: for the vintage shall fail, the gathering shall not come.  

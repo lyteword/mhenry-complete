@@ -6,7 +6,7 @@ weight: 51
 
 The prophet, in this chapter, goes on with the prediction of Babylon's fall, to which other prophets also bore witness. He is very copious and lively in describing the foresight God had given him of it, for the encouragement of the pious captives, whose deliverance depended upon it and was to be the result of it. Here is, I. The record of Babylon's doom, with the particulars of it, intermixed with the grounds of God's controversy with her, many aggravations of her fall, and great encouragements given thence to the Israel of God, that suffered such hard things by her, Jer 51:1-58. II. The representation and ratification of this by the throwing of a copy of this prophecy into the river Euphrates, Jer 51:59-64.
 
-## The Judgment of Babylon. (b. c. 595.)
+## The Judgment of Babylon (595 BC)
 
 > **¹** Thus saith the LORD; Behold, I will raise up against Babylon, and against them that dwell in the midst of them that rise up against me, a destroying wind;  
 > **²** And will send unto Babylon fanners, that shall fan her, and shall empty her land: for in the day of trouble they shall be against her round about.  
@@ -89,7 +89,7 @@ IX\. Here is a call to God's people to go out of Babylon. It is their wisdom, wh
 
 X\. Here is the diversified feeling excited by Babylon's fall, and it is the same that we have with respect to the *New-Testament Babylon,* Re 18:9,19. 1. Some shall lament the destruction of Babylon. There is *the sound of a cry,* a great outcry coming from Babylon (Jer 51:54), lamenting this great destruction, the voice of mourning, because the Lord has *destroyed the voice* of the multitude, that great voice of mirth which used to be heard in Babylon, Jer 51:55. We are told what they shall say in their lamentations (Jer 51:41): "*How is Sheshach taken,* and how are we mistaken concerning her! How is that city surprised and become an *astonishment among the nations* that was the praise, and glory, and admiration of the whole earth!" See how that may fall into a general contempt which has been universally cried up. 2. Yet some shall rejoice in Babylon's fall, not as it is the misery of their fellow-creatures, but as it is the manifestation of the righteous judgment of God and as it opens the way for the release of God's captives; upon these accounts *the heaven and the earth, and all that is in both, shall sing for Babylon* (Jer 51:48); the church in heaven and the church on earth shall give to God the glory of his righteousness, and take notice of it with thankfulness to his praise. Babylon's ruin is Zion's praise.
 
-## The Prophecy Sent to the People. (b. c. 595.)
+## The Prophecy Sent to the People (595 BC)
 
 > **⁵⁹** The word which Jeremiah the prophet commanded Seraiah the son of Neriah, the son of Maaseiah, when he went with Zedekiah the king of Judah into Babylon in the fourth year of his reign. And *this* Seraiah *was* a quiet prince.  
 > **⁶⁰** So Jeremiah wrote in a book all the evil that should come upon Babylon, *even* all these words that are written against Babylon.  

@@ -6,7 +6,7 @@ weight: 33
 
 This is a psalm of praise; it is probable that David was the penman of it, but we are not told so, because God would have us look above the penmen of sacred writ, to that blessed Spirit that moved and guided them. The psalmist, in this psalm, I. Calls upon the righteous to praise God, Ps 33:1-3. II. Furnishes us with matter for praise. We must praise God, 1. For his justice, goodness, and truth, appearing in his word, and in all his works, Ps 33:4,5. 2. For his power appearing in the work of creation, Ps 33:6-9. 3. For the sovereignty of his providence in the government of the world (Ps 33:10,11) and again, Ps 33:13-17. 4. For the peculiar favour which he bears to his own chosen people, which encourages them to trust in him (Ps 33:12) and again, Ps 33:18-22. We need not be at a loss for proper thoughts in singing this psalm, which so naturally expresses the pious affections of a devout soul towards God.
 
-## An Exhortation to Praise God.
+## An Exhortation to Praise God
 
 > **¹** Rejoice in the LORD, O ye righteous: *for* praise is comely for the upright.  
 > **²** Praise the LORD with harp: sing unto him with the psaltery *and* an instrument of ten strings.  
@@ -36,7 +36,7 @@ III\. The conviction he was under of the almighty power of God, evidenced in the
 
 IV\. The satisfaction he had of God's sovereignty and dominion, Ps 33:10,11. He over-rules all the counsels of men, and makes them, contrary to their intention, serviceable to his counsels. Come and see with an eye of faith God in the throne, 1. Frustrating the devices of his enemies: *He bringeth the counsel of the heathen to nought,* so that what they imagine against him and his kingdom proves *a vain thing* (Ps 2:1); the counsel of Ahithophel is turned into foolishness; Haman's plot is baffled. Though the design be laid ever so deep, and the hopes raised upon it ever so high, yet, if God says it *shall not stand, neither shall it come to pass;* it is all to no purpose. 2. Fulfilling his own decrees: *The counsel of the Lord standeth for ever.* It is immutable in itself, *for he is in one mind, and who can turn him?* The execution of it may be opposed, but cannot in the least be obstructed by any created power. Through all the revolutions of time God never changed his measures, but in every event, even that which to us is most surprising, the eternal counsel of God is fulfilled, nor can any thing prevent its being accomplished in its time. With what pleasure to ourselves may we in singing this give praise to God! How easy may this thought make us at all times, that God governs the world, that he did it in infinite wisdom before we were born, and will do it when we are silent in the dust!
 
-## God's Sovereign Power.
+## God's Sovereign Power
 
 > **¹²** Blessed *is* the nation whose God *is* the LORD; *and* the people *whom* he hath chosen for his own inheritance.  
 > **¹³** The LORD looketh from heaven; he beholdeth all the sons of men.  

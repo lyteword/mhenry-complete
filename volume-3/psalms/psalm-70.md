@@ -6,7 +6,7 @@ weight: 70
 
 This psalm is adapted to a state of affliction; it is copied almost word for word from the fortieth, and, some think for that reason, is entitled, "a psalm to bring to remembrance;" for it may be of use sometimes to pray over the prayers we have formerly made to God upon similar occasions, which may be done with new affections. David here prays that God would send, I. Help to himself, Ps 70:1,5. II. Shame to his enemies, Ps 70:2,3. III. Joy to his friends, Ps 70:4. These five verses were the Ps 40:13-17,70:1-5 He seems to have intended this short prayer to be both for himself and us a salve for every sore, and therefore to be always in mind; and in singing we may apply it to our particular troubles, whatever they are.
 
-## Urgent Petitions.
+## Urgent Petitions
 
 To the chief musician. *A psalm* of David, to bring to remembrance.
 

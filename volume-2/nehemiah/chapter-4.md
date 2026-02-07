@@ -6,7 +6,7 @@ weight: 4
 
 We left all hands at work for the building of the wall about Jerusalem. But such good work is not wont to be carried on without opposition; now here we are told what opposition was given to it, and what methods Nehemiah took to forward the work, notwithstanding that opposition. I. Their enemies reproached and ridiculed their undertaking, but their scoffs they answered with prayers: they heeded them not, but went on with their work notwithstanding, Ne 2:1-6. II. They formed a bloody design against them, to hinder them by force of arms, Ne 2:7,8,10-12. To guard against this Nehemiah prayed (Ne 2:9), set guards (Ne 2:13), and encouraged them to fight (Ne 2:14), by which the design was broken (Ne 2:15), and so the work was carried on with all needful precaution against a surprise, Ne 2:16-23. In all this Nehemiah approved himself a man of great wisdom and courage, as well as great piety.
 
-## The Opposition of Sanballat, etc.. (b. c. 445.)
+## The Opposition of Sanballat, etc. (445 BC)
 
 > **¹** But it came to pass, that when Sanballat heard that we builded the wall, he was wroth, and took great indignation, and mocked the Jews.  
 > **²** And he spake before his brethren and the army of Samaria, and said, What do these feeble Jews? will they fortify themselves? will they sacrifice? will they make an end in a day? will they revive the stones out of the heaps of the rubbish which are burned?  
@@ -51,7 +51,7 @@ IV\. The pious and prudent methods which Nehemiah, hereupon, took to baffle the 
 
 V\. The happy disappointment which this gave to the enemies, Ne 4:15. When they found that their design was discovered, and that the Jews were upon their guard, they concluded that it was to no purpose to attempt any thing, but that *God had brought their counsel to nought.* They knew they could not gain their point but by surprise, and, if their plot was known, it was quashed. The Jews hereupon *returned every one to his work,* with so much the more cheerfulness because they saw plainly that God owned it and owned them in the doing of it. Note, God's care of our safety should engage and encourage us to go on with vigour in our duty. As soon as ever a danger is over let us *return to our work,* and trust God another time.
 
-## The Precautions of Nehemiah. (b. c. 445.)
+## The Precautions of Nehemiah (445 BC)
 
 > **¹⁶** And it came to pass from that time forth, *that* the half of my servants wrought in the work, and the other half of them held both the spears, the shields, and the bows, and the habergeons; and the rulers *were* behind all the house of Judah.  
 > **¹⁷** They which builded on the wall, and they that bare burdens, with those that laded, *every one* with one of his hands wrought in the work, and with the other *hand* held a weapon.  

@@ -6,7 +6,7 @@ weight: 10
 
 The design of Ezra, in these books of the Chronicles, was to preserve the records of the house of David, which, though much sunk and lessened in a common eye by the captivity, yet grew more and more illustrious in the eyes of those that lived by faith by the nearer approach of the Son of David. And therefore he repeats, not the history of Saul's reign, but only of his death, by which way was made for David to the throne. In this chapter we have, I. The fatal rout which the Philistines gave to Saul's army, and the fatal stroke which he gave himself, 1Ch 10:1-7. II. The Philistines' triumph therein, 1Ch 10:8-10. III. The respect which the men of Jabesh-Gilead showed the royal corpse, 1Ch 10:11,12. IV. The reason of Saul's rejection, 1Ch 10:13,14.
 
-## The Death of Saul. (b. c. 1400.)
+## The Death of Saul (1400 BC)
 
 > **¹** Now the Philistines fought against Israel; and the men of Israel fled from before the Philistines, and fell down slain in mount Gilboa.  
 > **²** And the Philistines followed hard after Saul, and after his sons; and the Philistines slew Jonathan, and Abinadab, and Malchishua, the sons of Saul.  

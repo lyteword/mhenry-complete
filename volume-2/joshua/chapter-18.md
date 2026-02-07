@@ -6,7 +6,7 @@ weight: 18
 
 In this chapter we have, I. The setting up of the tabernacle at Shiloh, Jos 18:1. II. The stirring up of the seven tribes that were yet unsettled to look after their lot, and the putting of them in a method for it, by Joshua, Jos 18:2-7. III. The distributing of the land into seven lots, by certain men employed for that purpose, Jos 18:8,9. IV. The determining of these seven portions to the seven tribes yet unprovided for by lot, Jos 18:10. V. The particular lot of the tribe of Benjamin, the borders of it, Jos 18:11-20. And the cities contained in it, Jos 18:21-28. The other six tribes we shall find well provided for in the next chapter.
 
-## The Tabernacle at Shiloh. (b. c. 1444.)
+## The Tabernacle at Shiloh (1444 BC)
 
 > **¹** And the whole congregation of the children of Israel assembled together at Shiloh, and set up the tabernacle of the congregation there. And the land was subdued before them.  
 
@@ -16,7 +16,7 @@ I\. The place to which the tabernacle was removed, and in which it was set up. I
 
 II\. The solemn manner of doing it: *The whole congregation assembled together* to attend the solemnity, to do honour to the ark of God, as the token of his presence, and to bid it welcome to its settlement. Every Israelite was interested in it, and therefore all testified their joy and satisfaction upon this occasion. See 2Sa 6:15. It is probable those tribes that were yet encamped when the tabernacle was removed to Shiloh decamped from Gilgal and pitched about Shiloh, for every true Israelite will desire to fix where God's tabernacle fixed. Mention is made, on this occasion, of the land being subdued before them, to intimate that the country, hereabouts at least, being thoroughly reduced, they met with no opposition, nor were they apprehensive of any danger, but thought it time to make this grateful acknowledgment of God's goodness to them in the constant series of successes with which he had blessed them. It was a good presage of a comfortable settlement to themselves in Canaan, when their first care was to see the ark well settled as soon as they had a safe place ready to settle it in. Here the ark continued about 300 years, till the sins of Eli's house forfeited the ark, lost it and ruined Shiloh, and its ruins were long after made use of as warnings to Jerusalem. *Go, see what I did to Shiloh,* Jer 7:12, Ps 78:60.
 
-## Joshua Reproves the Unsettled Tribes. (b. c. 1444.)
+## Joshua Reproves the Unsettled Tribes (1444 BC)
 
 > **²** And there remained among the children of Israel seven tribes, which had not yet received their inheritance.  
 > **³** And Joshua said unto the children of Israel, How long *are* ye slack to go to possess the land, which the LORD God of your fathers hath given you?  
@@ -36,7 +36,7 @@ II\. He puts them in a way to settle themselves.
 
 2\. When it was surveyed, and reduced to seven lots, then Joshua would, by appeal to God, and direction from him, determine which of these lots should belong to each tribe (Jos 18:6): *That I may cast lots for you here* at the tabernacle (because it was a sacred transaction) *before the Lord our God,* to whom each tribe must have an eye, with thankfulness for the conveniences and submission to the inconveniences of their allotment. What we have in the world we must acknowledge God's property in, and dispose of it as before him, with justice, and charity, and dependence upon Providence. The heavenly Canaan is described to us in a book, the book of the scriptures, and there are in it mansions and portions sufficient for all God's spiritual Israel. Christ is our Joshua that divides it to us. On him we must attend, and to him we must apply for an inheritance with the saints in light. See Joh 17:2,3.
 
-## The Lot of Benjamin. (b. c. 1444.)
+## The Lot of Benjamin (1444 BC)
 
 > **¹¹** And the lot of the tribe of the children of Benjamin came up according to their families: and the coast of their lot came forth between the children of Judah and the children of Joseph.  
 > **¹²** And their border on the north side was from Jordan; and the border went up to the side of Jericho on the north side, and went up through the mountains westward; and the goings out thereof were at the wilderness of Beth-aven.  

@@ -6,7 +6,7 @@ weight: 7
 
 It appears by the title that this psalm was penned with a particular reference to the malicious imputations that David was unjustly laid under by some of his enemies. Being thus wronged, I. He applies to God for favour, Ps 7:1,2. II. He appeals to God concerning his innocency as to those things whereof he was accused, Ps 7:3-5. III. He prays to God to plead his cause and judge for him against his persecutors, Ps 7:6-9. IV. He expresses his confidence in God that he would do so, and would return the mischief upon the head of those that designed it against him, Ps 7:10-16. V. He promises to give God the glory of his deliverance, Ps 7:17. In this David was a type of Christ, who was himself, and still is in his members, thus injured, but will certainly be righted at last.
 
-## David Prays Against His Enemies; Prayer for Sinners and Saints.
+## David Prays Against His Enemies; Prayer for Sinners and Saints
 
 Shiggaion of David, which he sang unto the Lord, concerning the words of Cush the Benjamite.
 
@@ -44,7 +44,7 @@ III\. Having this testimony of his conscience concerning his innocency, he humbl
 
 As far as we have the testimony of an unbiased conscience for us that in any instance we are wronged and injuriously reflected on, we may, in singing Ps 7:1-9, lodge our appeal with the righteous God, and be assured that he will own our righteous cause, and will one day, in the last day at furthest, bring forth our integrity as the light.
 
-## The Persecutor's Doom.
+## The Persecutor's Doom
 
 > **¹⁰** My defence *is* of God, which saveth the upright in heart.  
 > **¹¹** God judgeth the righteous, and God is angry *with the wicked* every day.  

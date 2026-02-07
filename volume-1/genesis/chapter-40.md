@@ -6,7 +6,7 @@ weight: 40
 
 In this chapter things are working, though slowly, towards Joseph's advancement. I. Two of Pharaoh's servants are committed to prison, and there to Joseph's care, and so become witnesses of his extraordinary conduct, Ge 40:1-4. II. They dreamed each of them a dream, which Joseph interpreted (Ge 40:5-19), and the event verified the interpretation (Ge 40:20-22), and so they became witnesses of his extraordinary skill. III. Joseph recommends his case to one of them, whose preferment he foresaw (Ge 40:14,15), but in vain, Ge 40:23.
 
-## The History of Joseph. (b. c. 1717.)
+## The History of Joseph (1717 BC)
 
 > **¹** And it came to pass after these things, *that* the butler of the king of Egypt and *his* baker had offended their lord the king of Egypt.  
 > **²** And Pharaoh was wroth against two *of* his officers, against the chief of the butlers, and against the chief of the bakers.  

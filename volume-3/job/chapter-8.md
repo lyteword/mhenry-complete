@@ -6,7 +6,7 @@ weight: 8
 
 Job's friends are like Job's messengers: the latter followed one another close with evil tidings, the former followed him with harsh censures: both, unawares, served Satan's design; these to drive him from his integrity, those to drive him from the comfort of it. Eliphaz did not reply to what Job had said in answer to him, but left it to Bildad, whom he knew to be of the same mind with himself in this affair. Those are not the wisest of the company, but the weakest rather, who covet to have all the talk. Let others speak in their turn, and let the first keep silence, 1Co 14:30,31. Eliphaz had undertaken to show that because Job was sorely afflicted he was certainly a wicked man. Bildad is much of the same mind, and will conclude Job a wicked man unless God do speedily appear for his relief. In this chapter he endeavours to convince Job, I. That he had spoken too passionately, Job 8:2. II. That he and his children had suffered justly, Job 8:3,4. III. That, if he were a true penitent, God would soon turn his captivity, Job 8:5-7. IV. That it was a usual thing for Providence to extinguish the joys and hopes of wicked men as his were extinguished; and therefore that they had reason to suspect him for a hypocrite, Job 8:8-19. V. That they would be abundantly confirmed in their suspicion unless God did speedily appear for his relief, Job 8:20-22.
 
-## The Address of Bildad. (b. c. 1520.)
+## The Address of Bildad (1520 BC)
 
 > **¹** Then answered Bildad the Shuhite, and said,  
 > **²** How long wilt thou speak these *things?* and *how long shall* the words of thy mouth *be like* a strong wind?  

@@ -6,7 +6,7 @@ weight: 5
 
 In this chapter we have a further, and no less terrible, denunciation of the judgments of God, which were coming with all speed and force upon the Jewish nation, which would utterly ruin it; for when God judges he will overcome. This destruction of Judah and Jerusalem is here, I. Represented by a sign, the cutting, and burning, and scattering of hair, Eze 5:1-4. II. That sign is expounded, and applied to Jerusalem. 1. Sin is charged upon Jerusalem as the cause of this desolation—contempt of God's law (Eze 5:5-7) and profanation of his sanctuary, Eze 5:11. 2. Wrath is threatened, great wrath (Eze 5:8-10), a variety of miseries (Eze 5:12,16,17), such as should be their reproach and ruin, Eze 5:13-15.
 
-## The Representation of Jerusalem's Ruin. (b. c. 594.)
+## The Representation of Jerusalem's Ruin (594 BC)
 
 > **¹** And thou, son of man, take thee a sharp knife, take thee a barber's razor, and cause *it* to pass upon thine head and upon thy beard: then take thee balances to weigh, and divide the *hair.*  
 > **²** Thou shalt burn with fire a third part in the midst of the city, when the days of the siege are fulfilled: and thou shalt take a third part, *and* smite about it with a knife: and a third part thou shalt scatter in the wind; and I will draw out a sword after them.  
@@ -23,7 +23,7 @@ III\. He must dispose of the hair so that it might all be destroyed or dispersed
 
 IV\. He must preserve a small quantity of the third sort that were to be *scattered in the wind,* and *bind them in his skirts,* as one would bind that which he is very mindful and careful of, Eze 5:3. This signified perhaps that little handful of people which were left under the government of Gedaliah, who, it was hoped, would keep possession of the land when the body of the people was carried into captivity. Thus God would have done well for them if they would have done well for themselves. But these few that were reserved must be taken and *cast into the fire,* Eze 5:4. When Gedaliah and his friends were slain the people that put themselves under his protection were scattered, some gone into Egypt, others carried off by the Chaldeans, and in short the land totally cleared of them; then this was fulfilled, for out of those combustions *a fire came forth into all the house of Israel,* who, as fuel upon the fire, kindled and consumed one another. Note, It is ill with a people when those are taken away in wrath that seemed to be marked for monuments of mercy; for then there is no remnant or escaping, none shut up or left.
 
-## The Guilt of Jerusalem; The Punishment of Jerusalem. (b. c. 594.)
+## The Guilt of Jerusalem; The Punishment of Jerusalem (594 BC)
 
 > **⁵** Thus saith the Lord GOD; This *is* Jerusalem: I have set it in the midst of the nations and countries *that are* round about her.  
 > **⁶** And she hath changed my judgments into wickedness more than the nations, and my statutes more than the countries that *are* round about her: for they have refused my judgments and my statutes, they have not walked in them.  

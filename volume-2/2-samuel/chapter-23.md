@@ -6,7 +6,7 @@ weight: 23
 
 The historian is now drawing towards a conclusion of David's reign, and therefore gives us an account here, I. Of some of his last words, which he spoke by inspiration, and which seem to have reference to his seed that was to be for evermore, spoken of in the close of the foregoing chapter, 2Sa 23:1-7. II. Of the great men, especially the military men, that were employed under him, the first three (2Sa 23:8-17), two of the next three (2Sa 23:18-23), and then the thirty, 2Sa 23:24-39.
 
-## David's Last Words. (b. c. 1015.)
+## David's Last Words (1015 BC)
 
 > **¹** Now these *be* the last words of David. David the son of Jesse said, and the man *who was* raised up on high, the anointed of the God of Jacob, and the sweet psalmist of Israel, said,  
 > **²** The Spirit of the LORD spake by me, and his word *was* in my tongue.  
@@ -34,7 +34,7 @@ II\. What the purport of it is. It is an account of his communion with God. Obse
 
 3\. Here is the doom of the sons of Belial read, 2Sa 23:6,7. (1.) They shall be thrust away as thorns—rejected, abandoned. They are like thorns, not to be touched with hands, so passionate and furious that they cannot be managed or dealt with by a wise and faithful reproof, but must be restrained by law and the sword of justice (Ps 32:9); and therefore, like thorns, (2.) They shall, at length, be utterly burnt with fire in the same place, Heb 6:8. Now this is intended, [1.] As a direction to magistrates to use their power for the punishing and suppressing of wickedness. Let them *thrust away the sons of Belial;* see Ps 101:8. Or, [2.] As a caution to magistrates, and particularly to David's sons and successors, to see that they be not themselves sons of Belial (as too many of them were), for then neither the dignity of their place nor their relation to David would secure them from being thrust away by the righteous judgments of God. Though men could not deal with them, God would. Or, [3.] As a prediction of the ruin of all the implacable enemies of Christ's kingdom. There are enemies without, that openly oppose it and fight against it, and enemies within, that secretly betray it and are false to it; both are sons of Belial, children of the wicked one, of the serpent's seed; both are as thorns, grievous and vexatious: but both shall be so thrust away as that Christ will set up his kingdom in despite of their enmity, will *go through them* (Isa 27:4), and will, in due time, bless his church with such peace that there shall be *no pricking brier nor grieving thorn.* And those that will not repent, to give glory to God, shall, in the judgment-day (to which the Chaldee paraphrast refers this), be burnt with unquenchable fire. See Lu 19:27.
 
-## David's Mighty Men. (b. c. 1054.)
+## David's Mighty Men (1054 BC)
 
 > **⁸** These *be* the names of the mighty men whom David had: The Tachmonite that sat in the seat, chief among the captains; the same *was* Adino the Eznite: *he lift up his spear* against eight hundred, whom he slew at one time.  
 > **⁹** And after him *was* Eleazar the son of Dodo the Ahohite, *one* of the three mighty men with David, when they defied the Philistines *that* were there gathered together to battle, and the men of Israel were gone away:  

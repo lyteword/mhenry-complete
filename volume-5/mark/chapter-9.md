@@ -6,7 +6,7 @@ weight: 9
 
 In this chapter, we have, I. Christ's transfiguration upon the mount, Mk 10:1-13. II. His casting the devil out of a child, when the disciples could not do it, Mk 10:14-29. III. His prediction of his own sufferings and death, Mk 10:30-32. IV. The check he gave to his disciples for disputing who should be greatest (Mk 10:33-37); and to John for rebuking one who cast out devils in Christ's name, and did not follow with them, Mk 10:38-41. V. Christ's discourse with his disciples of the danger of offending one of his little ones (Mk 10:42), and of indulging that in ourselves, which is an offence and an occasion of sin to us (Mk 10:43-50), most of which passages we had before, Mt 17:1-18:35
 
-## The Transfiguration.
+## The Transfiguration
 
 > **¹** And he said unto them, Verily I say unto you, That there be some of them that stand here, which shall not taste of death, till they have seen the kingdom of God come with power.  
 > **²** And after six days Jesus taketh *with him* Peter, and James, and John, and leadeth them up into a high mountain apart by themselves: and he was transfigured before them.  
@@ -48,7 +48,7 @@ II\. A specimen of that kingdom in the transfiguration of Christ, *six days* aft
 
 (3.) Christ gave them a key to the prophecy concerning Elias (Mk 9:12,13); "It is indeed prophesied that Elias will come, and will *restore all things,* and set them to rights; and (though you will not understand it) it is also prophesied of the *Son of man,* that he must *suffer many things,* and be *set at nought,* must be a reproach of men, and despised of the people: and though the scribes do not tell you so, the *scriptures* do, and you have as much reason to expect that as the other, and should not *make so strange* of it; but as to Elias, I tell you *he is come;* and if you consider a little, you will understand whom I mean, it is one to whom they have *done whatsoever they listed;*" which was very applicable to the ill usage they had given John Baptist. Many of the ancients, and the Popish writers generally, think, that besides the coming of John Baptist in the spirit of Elias, himself in his own person is to be expected, with Enoch, before the second appearance of Christ, wherein the prophecy of Malachi will have a more full accomplishment than it had in John Baptist. But it is groundless fancy; the true Elias, as well as the true Messiah promised, is come, and we are to look for *no other.* These words *as it is* written of him, refer not to their *doing to him whatever they listed* (that comes in a parenthesis), but only to his coming. He is come, and hath been, and done, according as was *written of him.*
 
-## The Expulsion of an Evil Spirit.
+## The Expulsion of an Evil Spirit
 
 > **¹⁴** And when he came to *his* disciples, he saw a great multitude about them, and the scribes questioning with them.  
 > **¹⁵** And straightway all the people, when they beheld him, were greatly amazed, and running to *him* saluted him.  
@@ -87,7 +87,7 @@ VIII\. The cure of the child, and the conquest of this raging devil in the child
 
 IX\. The reason he gave to the disciples why they could not cast out this devil. They *enquired* of him privately *why they could not,* that wherein they were defective might be made up another time, and they might not again be thus publicly shamed; and he told them (Mk 9:29), *This kind can come forth by nothing but prayer and fasting.* Whatever other difference there really might be, none appears between this and other kinds, but that the unclean spirit had had possession of this poor patient *from a child,* and that strengthened his interest, and confirmed his hold. When *vicious habits* are rooted by long usage, and begin to plead prescription, like chronical diseases that are *hardly cured.* *Can the Æthiopian change his skin?* The disciples must not think to do their work always with a like ease; some services call them to take more than ordinary pains; but Christ can do that with a word's speaking, which they must prevail for the doing of by *prayer and fasting.*
 
-## The Apostles Reproved.
+## The Apostles Reproved
 
 > **³⁰** And they departed thence, and passed through Galilee; and he would not that any man should know *it.*  
 > **³¹** For he taught his disciples, and said unto them, The Son of man is delivered into the hands of men, and they shall kill him; and after that he is killed, he shall rise the third day.  
@@ -113,7 +113,7 @@ III\. He rebukes them for *vilifying all but themselves;* while they are strivin
 
 2\. The rebuke he gave to them for this (Mk 9:39); *Jesus said, "Forbid him not,* nor any other that does likewise." This was like the check Moses gave to Joshua; *Enviest thou for my sake?* Note, That which is good, and doeth good, must not be prohibited, though there be some defect or irregularity in the manner of doing it. *Casting out devils,* and so destroying Satan's kingdom, doing this *in Christ's name,* and so owning him to be sent of God, and giving honour to him as the Fountain of grace, preaching down sin, and preaching up Christ, are good things, very good things, which ought not to be forbidden to any, merely because they *follow not with us.* If Christ be preached, Paul therein doth, and will rejoice, though he be eclipsed by it, Php 1:18. Two reasons Christ gives why such should not be forbidden. (1.) Because we cannot suppose that any man who makes use of Christ's name in working miracles, should blaspheme his name, as the scribes and Pharisees did. There were those indeed that did *in Christ's name cast out devils,* and yet in other respects were *workers of iniquity;* but they did not *speak evil of Christ.* (2.) Because those that differed in communion, while they agreed to fight against Satan under the banner of Christ, ought to look upon one another as on the same side, notwithstanding that difference. *He that is not against us is on our part.* As to the great controversy between Christ an Beelzebub, he had said, *He that is not with me is against me,* Mt 12:30. He that will not own Christ, owns Satan. But as to those that own Christ, though not in the same circumstances, that follow him, though *not with us,* we must reckon that though these differ from us, they are not against us, and therefore are *on our part,* and we must not be any hindrance to their usefulness.
 
-## Pain to Be Preferred to Sin.
+## Pain to Be Preferred to Sin
 
 > **⁴¹** For whosoever shall give you a cup of water to drink in my name, because ye belong to Christ, verily I say unto you, he shall not lose his reward.  
 > **⁴²** And whosoever shall offend one of *these* little ones that believe in me, it is better for him that a millstone were hanged about his neck, and he were cast into the sea.  

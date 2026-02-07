@@ -4,13 +4,13 @@ weight: 25
 
 # Chapter 25
 
-## Pleasures and Advantages of Wisdom.
+## Pleasures and Advantages of Wisdom
 
 > **¹** These *are* also proverbs of Solomon, which the men of Hezekiah king of Judah copied out.  
 
 This verse is the title of this latter collection of Solomon's proverbs, for he *sought out and set in order many proverbs,* that by them he might be still *teaching the people knowledge,* Ec 12:9. Observe, 1. The proverbs were Solomon's, who was divinely inspired to deliver, for the use of the church, these wise and weighty sentences; we have had many, but still there are more. Yet herein Christ is greater than Solomon, for if we had all upon record that Christ said, and did, that was instructive, *the world could not contain the books that would be written,* Joh 21:25. 2. The publishers were Hezekiah's servants, who, it is likely, herein acted as his servants, being appointed by him to do this good service to the church, among other good offices that he did *in the law and in the commandments,* 2Ch 31:21. Whether he employed the prophets in this work, as Isaiah, Hosea, or Micah, who lived in his time, or some that were trained up in the schools of the prophets, or some of the priests and Levites, to whom we find him giving a charge concerning divine things (2Ch 29:4), or (as the Jews think) his princes and ministers of state, who were more properly called his *servants,* is not certain; if the work was done by Eliakim, and Joah, and Shebna, it was no diminution to their character. They copied out these proverbs from the records of Solomon's reign, and published them as an appendix to the former edition of this book. It may be a piece of very good service to the church to publish other man's works that have lain hidden in obscurity, perhaps a great while. Some think they culled these out of the 3000 proverbs which Solomon spoke (1Ki 4:32), leaving out those that were physical, and that pertained to natural philosophy, and preserving such only as were divine and moral; and in this collection some observe that special regard was had to those observations which concern kings and their administration.
 
-## Prudential Maxims.
+## Prudential Maxims
 
 > **²** *It is* the glory of God to conceal a thing: but the honour of kings *is* to search out a matter.  
 > **³** The heaven for height, and the earth for depth, and the heart of kings *is* unsearchable.  
@@ -35,7 +35,7 @@ I\. Here is good counsel given about going to law:—1. "Be not hasty in bringin
 
 II\. Two reasons he gives why we should be thus cautious in going to law:—1. "Because otherwise the cause will be in danger of going against thee, and thou wilt *not know what to do* when the defendant has justified himself in what thou didst charge upon him, and made it out that thy complaint was frivolous and vexatious and that thou hadst no just cause of action, and so *put thee to shame,* non-suit thee, and force thee to pay costs, all which might have been prevented by a little consideration." 2. "Because it will turn very much to thy reproach if thou fall under the character of being litigious. Not only the defendant himself (Pr 25:8), but he that hears the cause tried will *put thee to shame,* will expose thee as a man of no principle, and *thy infamy will not turn away;* thou wilt never retrieve thy reputation."
 
-## Instructive Similes.
+## Instructive Similes
 
 > **¹¹** A word fitly spoken *is like* apples of gold in pictures of silver.  
 > **¹²** *As* an earring of gold, and an ornament of fine gold, *so is* a wise reprover upon an obedient ear.  
@@ -50,7 +50,7 @@ See here, 1. What ought to be the care of a servant, the meanest that is sent on
 
 *He* may be said to boast of a false gift, 1. Who pretends to have received or given that which he never had, which he never gave, makes a noise of his great accomplishments and his good services, but it is all false; he is not what he pretends to be. Or, 2. Who promises what he will give and what he will do, but performs nothing, who raises people's expectations of the mighty things he will do for his country, for his friends, what noble legacies he will leave, but either he has not wherewithal to do what he says or he never designs it. Such a one is like the morning-cloud, that passes away, and disappoints those who looked for rain from it to water the parched ground (Jude 1:12), *clouds without water.*
 
-## Miscellaneous Maxims.
+## Miscellaneous Maxims
 
 > **¹⁵** By long forbearing is a prince persuaded, and a soft tongue breaketh the bone.  
 
@@ -76,14 +76,14 @@ Here, 1. The sin condemned is *bearing false witness against our neighbour,* eit
 
 1\. The absurdity here censured is *singing songs to a heavy heart.* Those that are in great sorrow are to be comforted by sympathizing with them, condoling with them, and concurring in their lamentation. If we take that method, the *moving of our lips may assuage their grief* (Job 16:5); but we take a wrong course with them if we think to relieve them by being merry with them, and endeavouring to make them merry; for it adds to their grief to see their friends so little concerned for them; it puts them upon ripping up the causes of their grief, and aggravating them, and makes them harden themselves in sorrow against the assaults of mirth. 2. The absurdities this is compared to are, *taking away a garment* from a man in *cold weather,* which makes him colder, and pouring *vinegar upon nitre,* which, like water upon lime, puts it into a ferment; so improper, so incongruous, is it to sing pleasant songs to one that is of a sorrowful spirit. Some read it in a contrary sense: *As he that puts on a garment in cold weather* warms the body, or as *vinegar upon nitre* dissolves it, so he that *sings songs* of comfort to a person in sorrow refreshes him and dispels his grief.
 
-## Forgiveness of Enemies.
+## Forgiveness of Enemies
 
 > **²¹** If thine enemy be hungry, give him bread to eat; and if he be thirsty, give him water to drink:  
 > **²²** For thou shalt heap coals of fire upon his head, and the LORD shall reward thee.  
 
 By this it appears that, however the scribes and Pharisees had corrupted the law, not only the commandment of loving our brethren, but even that of loving our enemies, was not only a new, but also an old commandment, an Old-Testament commandment, though our Saviour has given it to us with the new enforcement of his own great example in loving us when we were enemies. Observe, 1. How we must express our love to our enemies by the real offices of kindness, even those that are expensive to ourselves and most acceptable to them: "If they be *hungry* and *thirsty,* instead of pleasing thyself with their distress and contriving how to cut off supplies from them, relieve them, as Elisha did the Syrians that came to apprehend him," 2Ki 6:22. 2. What encouragement we have to do so. (1.) It will be a likely means to win upon them, and bring them over to be reconciled to us; we shall mollify them as the refiner melts the metal in the crucible, not only by putting it over the fire, but by heaping coals of fire upon it. The way to turn an enemy into a friend is, to act towards him in a friendly manner. If it do not gain him, it will aggravate his sin and punishment, and heap the burning coals of God's wrath upon his head, as rejoicing in his calamity may be an occasion of God's turning his wrath from him, Pr 24:17. (2.) However, we shall be no losers by our self-denial: "Whether he relent towards thee or no, *the Lord shall reward thee;* he shall forgive thee who thus showest thyself to be of a forgiving spirit. He shall provide for thee when thou art in distress (though thou hast been evil and ungrateful), as thou dost for thy enemy; at least it shall be recompensed in the resurrection of the just, when kindnesses done to our enemies shall be remembered as well as those shown to God's friends."
 
-## Miscellaneous Maxims.
+## Miscellaneous Maxims
 
 > **²³** The north wind driveth away rain: so *doth* an angry countenance a backbiting tongue.  
 

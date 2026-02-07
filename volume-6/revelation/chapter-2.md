@@ -6,7 +6,7 @@ weight: 2
 
 The apostle John, having in the foregoing chapter written the things which he had seen, now proceeds to write the things that are, according to the command of God (Re 1:19), that is, the present state of the seven churches of Asia, with which he had a particular acquaintance, and for which he had a tender concern. He was directed to write to every one of them according to their present state and circumstances, and to inscribe every letter to the angel of that church, to the minister or rather ministry of that church, called angels because they are the messengers of God to mankind. In this chapter we have, I. The message sent to Ephesus, Re 2:1-7. II. To Smyrna, Re 2:8-11. III. To Pergamos, Re 2:12-17. IV. To Thyatira, Re 2:18-29, etc.
 
-## The Church in Ephesus. (a. d. 95.)
+## The Church in Ephesus (95 AD)
 
 > **¹** Unto the angel of the church of Ephesus write; These things saith he that holdeth the seven stars in his right hand, who walketh in the midst of the seven golden candlesticks;  
 > **²** I know thy works, and thy labour, and thy patience, and how thou canst not bear them which are evil: and thou hast tried them which say they are apostles, and are not, and hast found them liars:  
@@ -36,7 +36,7 @@ III\. We have the conclusion of this epistle, in which, as in those that follow,
 
 2\. A promise of great mercy to those who overcome. The Christian life is a warfare against sin, Satan, the world, and the flesh. It is not enough that we engage in this warfare, but we must pursue it to the end, we must never yield to our spiritual enemies, but fight the good fight, till we gain the victory, as all persevering Christians shall do; and the warfare and victory shall have a glorious triumph and reward. That which is here promised to the victors is that they shall *eat of the tree of life which is in the midst of the paradise of God.* They shall have that perfection of holiness, and that confirmation therein, which Adam would have had if he had gone well through the course of his trial: he would then have eaten of the tree of life which was in the midst of paradise, and this would have been the sacrament of confirmation to him in his holy and happy state; so all who persevere in their Christian trial and warfare shall derive from Christ, as the tree of life, perfection and confirmation in holiness and happiness in the paradise of God; not in the earthly paradise, but the heavenly, Re 22:1,2.
 
-## The Church in Smyrna. (a. d. 95.)
+## The Church in Smyrna (95 AD)
 
 > **⁸** And unto the angel of the church in Smyrna write; These things saith the first and the last, which was dead, and is alive;  
 > **⁹** I know thy works, and tribulation, and poverty, (but thou art rich) and *I know* the blasphemy of them which say they are Jews, and are not, but *are* the synagogue of Satan.  
@@ -59,7 +59,7 @@ II\. The subject-matter of this epistle to Smyrna, where, after the common decla
 
 III\. The conclusion of this message, and that, as before, 1. With a call to universal attention, that all men, all the world, should hear what passes between Christ and his churches—how he commends them, how he comforts them, how he reproves their failures, how he rewards their fidelity. It concerns all the inhabitants of the world to observe God's dealings with his own people; all the world may learn instruction and wisdom thereby. 2. With a gracious promise to the conquering Christian: *He that overcometh shall not be hurt of the second death,* Re 2:11. Observe, (1.) There is not only a first, but a second death, a death after the body is dead. (2.) This second death is unspeakably worse than the first death, both in the dying pangs and agonies of it (which are the agonies of the soul, without any mixture of support) and in the duration; it is *eternal death,* dying the death, to die and to be always dying. This is hurtful indeed, fatally hurtful, to all who fall under it. (3.) From this hurtful, this destructive death, Christ will save all his faithful servants; the second death shall have no power over those who are *partakers of the first resurrection:* the first death shall not hurt them, and the second death shall have no power over them.
 
-## The Church in Pergamos. (a. d. 95.)
+## The Church in Pergamos (95 AD)
 
 > **¹²** And to the angel of the church in Pergamos write; These things saith he which hath the sharp sword with two edges;  
 > **¹³** I know thy works, and where thou dwellest, *even* where Satan's seat *is:* and thou holdest fast my name, and hast not denied my faith, even in those days wherein Antipas *was* my faithful martyr, who was slain among you, where Satan dwelleth.  
@@ -84,7 +84,7 @@ II\. From the inscription we proceed to the contents of the epistle, in which th
 
 III\. We have the conclusion of this epistle, where, after the usual demand of universal attention, there is the promise of great favour to those that overcome. They shall *eat of the hidden manna, and have the new name, and the white stone, which no man knoweth, saving he that receiveth it,* Re 2:17. 1. The hidden manna, the influences and comforts of the Spirit of Christ in communion with him, coming down from heaven into the soul, from time to time, for its support, to let it taste something how saints and angels live in heaven. This is hidden from the rest of the world—*a stranger intermeddles not with* this joy; and it is laid up in Christ, the ark of the covenant, in the holy of holies. 2. The white stone, with a new name engraven upon it. This white stone is absolution from the guilt of sin, alluding to the ancient custom of giving a white stone to those acquitted on trial and a black stone to those condemned. The new name is the name of adoption: adopted persons took the name of the family into which they were adopted. None can read the evidence of a man's adoption but himself; he cannot always read it, but if he persevere he shall have both the evidence of sonship and the inheritance.
 
-## The Church in Thyatira. (a. d. 95.)
+## The Church in Thyatira (95 AD)
 
 > **¹⁸** And unto the angel of the church in Thyatira write; These things saith the Son of God, who hath his eyes like unto a flame of fire, and his feet *are* like fine brass;  
 > **¹⁹** I know thy works, and charity, and service, and faith, and thy patience, and thy works; and the last *to be* more than the first.  

@@ -6,7 +6,7 @@ weight: 21
 
 In this chapter we have a short but sad account of the reigns of two of the kings of Judah, Manasseh and Amon. I. Concerning Manasseh, all the account we have of him here is, 1. That he devoted himself to sin, to all manner of wickedness, idolatry, and murder, 2Ki 21:1-9,16. 2. That therefore God devoted him, and Jerusalem for his sake, to ruin, 2Ki 21:10-18. In the book of Chronicles we have an account of his troubles, and his repentance. II. Concerning Amon we are only told that he lived in sin (2Ki 21:19-22), died quickly by the sword, and left good Josiah his successor, 2Ki 21:23-26. By these two reigns Jerusalem was much debauched and much weakened, and so hastened apace towards its destruction, which slumbered not.
 
-## Manasseh's Impious Reign. (b. c. 698.)
+## Manasseh's Impious Reign (698 BC)
 
 > **¹** Manasseh *was* twelve years old when he began to reign, and reigned fifty and five years in Jerusalem. And his mother's name *was* Hephzibah.  
 > **²** And he did *that which was* evil in the sight of the LORD, after the abominations of the heathen, whom the LORD cast out before the children of Israel.  
@@ -32,7 +32,7 @@ III\. He reigned very ill.
 
 3\. Three things are here mentioned as aggravations of Manasseh's idolatry:—(1.) That he set up his images and altars *in the house of the Lord* (2Ki 21:4), in the two courts of the temple (2Ki 21:5), in the very house of which God had said to Solomon, *Here will I put my name,* 2Ki 21:7. Thus he defied God to his face, and impudently affronted him with his rivals immediately under his eye, as one that was neither afraid of God's wrath nor ashamed of his own folly and wickedness. Thus he desecrated what had been consecrated to God, and did, in effect, turn God out of his own house and put the rebels in possession of it. Thus, when the faithful worshippers of God came to the place he had appointed for the performance of their duty to him, they found, to their great grief and terror, other gods ready to receive their offerings. God had said that here he would record his name, here he would put it for ever, and here it was accordingly preserved, while the idolatrous altars were kept at a distance; but Manasseh, by bringing them into God's house, did what he could to alter the property, and to make the name of the God of Israel to be no more in remembrance. (2.) That hereby he put a great slight upon the word of God, and his covenant with Israel. Observe the favour he had shown to that people in putting his name among them,—the kindness he intended them, never to *make them move out of that good land,*—and the reasonableness of his expectations from them, *only if they will observe to do according to all that I have commanded them,* 2Ki 21:7,8. Upon these good terms did Israel stand with God, and had as fair a prospect of being happy as any people could have; but *they hearkened not,* 2Ki 21:9. They would not be kept close to God either by his precepts or by his promises; both were cast behind their back. (3.) That hereby he seduced the people of God, debauched them, and drew them into idolatry, 2Ki 21:9. He caused Judah to sin (2Ki 21:11), as Jeroboam had caused *Israel to sin.* His very example was enough to corrupt the generality of unthinking people, who would do as their king did, right or wrong. All that aimed at preferment would do as the court did; and others thought it safest to comply, for fear of making their king their enemy. Thus, one way or other, the holy city became a harlot, and Manasseh made her so. Those will have a great deal to answer for that not only are wicked themselves, but help to make others so.
 
-## Manasseh's Ruin Foretold. (b. c. 643.)
+## Manasseh's Ruin Foretold (643 BC)
 
 > **¹⁰** And the LORD spake by his servants the prophets, saying,  
 > **¹¹** Because Manasseh king of Judah hath done these abominations, *and* hath done wickedly above all that the Amorites did, which *were* before him, and hath made Judah also to sin with his idols:  
@@ -52,7 +52,7 @@ II\. A prediction of the judgment God would bring upon them for this: *They have
 
 This is all we have here of Manasseh; he stands convicted and condemned; but we hope in the book of Chronicles to hear of his repentance, and acceptance with God. Meantime, we must be content, in this place, to have only one intimation of his repentance (for so we are willing to take it), that he was buried, it is likely by his own order, *in the garden of his own house* (2Ki 21:18); for, being truly humbled for his sins, he judged himself *no more worthy to be called a son,* a son of David, and therefore not worthy to have even his dead body buried *in the sepulchres of his fathers.* True penitents take shame to themselves, not honour; yet, having lost the credit of an innocent, the credit of a penitent was the next best he was capable of. And better it is, and more honourable, for a sinner to die repenting, and be buried in a garden, than to die impenitent, and be buried in the abbey.
 
-## Amon's Reign and Death. (b. c. 643.)
+## Amon's Reign and Death (643 BC)
 
 > **¹⁹** Amon *was* twenty and two years old when he began to reign, and he reigned two years in Jerusalem. And his mother's name *was* Meshullemeth, the daughter of Haruz of Jotbah.  
 > **²⁰** And he did *that which was* evil in the sight of the LORD, as his father Manasseh did.  

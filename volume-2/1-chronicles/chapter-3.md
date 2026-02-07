@@ -6,7 +6,7 @@ weight: 3
 
 Of all the families of Israel none was so illustrious as the family of David. That is the family which was mentioned in the foregoing chapter, 1Ch 2:15. Here we have a full account of it. I. David's sons, 1Ch 3:1-9. II. His successors in the throne as long as the kingdom continued, 1Ch 3:10-16. III. The remains of his family in and after the captivity, 1Ch 3:17-24. From this family, "as concerning the flesh, Christ came."
 
-## The Family of David. (b. c. 1055.)
+## The Family of David (1055 BC)
 
 > **¹** Now these were the sons of David, which were born unto him in Hebron; the firstborn Amnon, of Ahinoam the Jezreelitess; the second Daniel, of Abigail the Carmelitess:  
 > **²** The third, Absalom the son of Maachah the daughter of Talmai king of Geshur: the fourth, Adonijah the son of Haggith:  

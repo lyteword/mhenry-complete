@@ -4,7 +4,7 @@ weight: 12
 
 # Chapter 12
 
-## Advantages of the Righteous.
+## Advantages of the Righteous
 
 > **¹** Whoso loveth instruction loveth knowledge: but he that hateth reproof *is* brutish.  
 
@@ -54,7 +54,7 @@ Note, 1. It is men's wisdom to mind their business and follow an honest calling,
 
 See here, 1. What is the care and aim of a wicked man; he would do mischief: He *desires the net of evil men.* "Oh that I were but as cunning as such a man, to make a hand of those I deal with, that I had but his art of over-reaching, that I could but take my revenge on one I have spite to as effectually as he can!" He desires the *strong-hold, or fortress,* of evil men (so some read it), to act securely in doing mischief, that it may not turn upon him. 2. What is the care and aim of a good man: His *root yields fruit,* and is his strength and stability, and that is it that he desires, to do good and to be fixed and confirmed in doing good. The wicked desires only a net wherewith to fish for himself; the righteous desires to yield fruit for the benefit of others and God's glory, Ro 14:6.
 
-## Truth and Falsehood.
+## Truth and Falsehood
 
 > **¹³** The wicked is snared by the transgression of *his* lips: but the just shall come out of trouble.  
 
@@ -84,7 +84,7 @@ The tongue is death or life, poison or medicine, as it is used. 1. There are wor
 
 Be it observed, to the honour of truth, that sacred thing, 1. That, if truth be spoken, it will hold good, and, whoever may be disobliged by it and angry at it, yet it will keep its ground. Great is the truth and will prevail. What is true will be always true; we may abide by it, and need not fear being disproved and put to shame. 2. That, if truth be denied, yet in time it will transpire. A *lying tongue,* that puts false colours upon things, *is but for a moment.* The lie will be disproved. The liar, when he comes to be examined, will be found in several stories, and not consistent with himself as he is that speaks truth; and, when he is found in a lie, he cannot gain his point, nor will he afterwards be credited. Truth may be eclipsed, but it will come to light. Those therefore that make a lie their refuge will find it a refuge of lies.
 
-## Weighty Sayings.
+## Weighty Sayings
 
 > **²⁰** Deceit *is* in the heart of them that imagine evil: but to the counsellors of peace *is* joy.  
 

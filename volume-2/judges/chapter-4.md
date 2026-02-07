@@ -6,7 +6,7 @@ weight: 4
 
 The method of the history of Deborah and Barak (the heroes in this chapter) is the same with that before. Here is, I. Israel revolted from God, Jdg 4:1. II. Israel oppressed by Jabin, Jdg 4:2,3. III. Israel judged by Deborah, Jdg 4:4,5. IV. Israel rescued out of the hands of Jabin. 1. Their deliverance is concerted between Deborah and Barak, Jdg 4:6,9. 2. It is accomplished by their joint-agency. Barak takes the field, Jdg 4:10. Sisera, Jabin's general, meets him, Jdg 4:12,13. Deborah encourages him, Jdg 4:14. And God gives him a complete victory. The army routed, Jdg 4:15,16. The general forced to flee, Jdg 4:17. And where he expected shelter he had his life stolen from him by Jael while he was asleep (Jdg 4:18-21), which completes Barak's triumph (Jdg 4:22) and Israel's deliverance, Jdg 4:23,24.
 
-## The Israelites Enslaved by Jabin. (b. c. 1285.)
+## The Israelites Enslaved by Jabin (1285 BC)
 
 > **¹** And the children of Israel again did evil in the sight of the LORD, when Ehud was dead.  
 > **²** And the LORD sold them into the hand of Jabin king of Canaan, that reigned in Hazor; the captain of whose host *was* Sisera, which dwelt in Harosheth of the Gentiles.  
@@ -18,7 +18,7 @@ II\. Israel oppressed by their enemies. When they forsook God, he forsook them; 
 
 III\. Israel returning to their God: They *cried unto the Lord,* when distress drove them to him, and they saw no other way of relief. Those that slight God in their prosperity will find themselves under a necessity of seeking him when they are in trouble.
 
-## The Project of Deborah and Barak. (b. c. 1258.)
+## The Project of Deborah and Barak (1258 BC)
 
 > **⁴** And Deborah, a prophetess, the wife of Lapidoth, she judged Israel at that time.  
 > **⁵** And she dwelt under the palm tree of Deborah between Ramah and Beth-el in mount Ephraim: and the children of Israel came up to her for judgment.  
@@ -41,7 +41,7 @@ II\. The project laid for their deliverance. When the children of Israel *came t
 
 2\. At Barak's request, she promises to go along with him to the field of battle. (1.) Barak insisted much upon the necessity of her presence, which would be to him better than a council of war (Jdg 4:8): "*If thou wilt go with me* to direct and advise me, and in every difficult case to let me know God's mind, *then I will go* with all my heart, and not fear the chariots of iron; otherwise not." Some make this to be the language of a weak faith; he could not take her word unless he had her with him in pawn, as it were, for performance. It seems rather to arise from a conviction of the necessity of God's presence and continual direction, a pledge and earnest of which he would reckon Deborah's presence to be, and therefore begged thus earnestly for it. "*If thou go not up with me,* in token of God's going with me, *carry me not up hence.*" Nothing would be a greater satisfaction to him than to have the prophetess with him to animate the soldiers and to be consulted as an oracle upon all occasions. (2.) Deborah promised to go with him, Jdg 4:9. No toil nor peril shall discourage her from doing the utmost that becomes her to do for the service of her country. She would not send him where she would not go herself. Those that in God's name call others to their duty should be very ready to assist them in it. Deborah was the weaker vessel, yet had the stronger faith. But though she agrees to go with Barak, if he insists upon it, she gives him a hint proper enough to move a soldier not to insist upon it: *The journey thou undertakest* (so confident was she of the success that she called his engaging in war but the undertaking of a journey) *shall not be for thy honour;* not so much for thy honour as if thou hadst gone by thyself; for *the Lord shall sell Sisera* (now his turn comes to be sold as Israel was, Jdg 4:2, by way of reprisal) "*into the hands of a woman;*" that is, [1.] The world would ascribe the victory to the hand of Deborah: this he might himself foresee. [2.] God (to correct his weakness) would complete the victory by the hand of Jael, which would be some eclipse to his glory. But Barak values the satisfaction of his mind, and the good success of his enterprise, more than his honour; and therefore will by no means drop his request. He dares not fight unless he have Deborah with him, to direct him and pray for him. She therefore stood to her word with a masculine courage; this noble heroine *arose and went with Barak.*
 
-## Defeat of Sisera. (b. c. 1258.)
+## Defeat of Sisera (1258 BC)
 
 > **¹⁰** And Barak called Zebulun and Naphtali to Kedesh; and he went up with ten thousand men at his feet: and Deborah went up with him.  
 > **¹¹** Now Heber the Kenite, *which was* of the children of Hobab the father in law of Moses, had severed himself from the Kenites, and pitched his tent unto the plain of Zaanaim, which *is* by Kedesh.  

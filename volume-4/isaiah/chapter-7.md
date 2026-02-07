@@ -6,7 +6,7 @@ weight: 7
 
 This chapter is an occasional sermon, in which the prophet sings both of mercy and judgment to those that did not perceive or understand either; he piped unto them, but they danced not, mourned unto them, but they wept not. Here is, I. The consternation that Ahaz was in upon an attempt of the confederate forces of Syria and Israel against Jerusalem, Isa 7:1,2. II. The assurance which God, by the prophet, sent him for his encouragement, that the attempt should be defeated and Jerusalem should be preserved, Isa 7:3-9. III. The confirmation of this by a sign which God gave to Ahaz, when he refused to ask one, referring to Christ, and our redemption by him, Isa 7:10-16. IV. A threatening of the great desolation that God would bring upon Ahaz and his kingdom by the Assyrians, notwithstanding their escape from this present storm, because they went on still in their wickedness, Isa 7:17-25. And this is written both for our comfort and for our admonition.
 
-## The Distress of Ahaz; Comfort Administered to Ahaz. (b. c. 740.)
+## The Distress of Ahaz; Comfort Administered to Ahaz (740 BC)
 
 > **¹** And it came to pass in the days of Ahaz the son of Jotham, the son of Uzziah, king of Judah, *that* Rezin the king of Syria, and Pekah the son of Remaliah, king of Israel, went up toward Jerusalem to war against it, but could not prevail against it.  
 > **²** And it was told the house of David, saying, Syria is confederate with Ephraim. And his heart was moved, and the heart of his people, as the trees of the wood are moved with the wind.  
@@ -44,7 +44,7 @@ III\. The orders and directions given to Isaiah to go and encourage Ahaz in his 
 
 (5.) He must urge them to mix faith with those assurances which he had given them (Isa 7:9): "*If you will not believe* what is said to you, *surely you shall not be established;* your shaken and disordered state shall not be established, your unquiet unsettled spirit shall not; though the things told you are very encouraging, yet they will not be so to you, unless you believe them, and be willing to take God's word." Note, The grace of faith is absolutely necessary to the quieting and composing of the mind in the midst of all the tosses of this present time, 2Ch 20:20.
 
-## The Promise of Immanuel. (b. c. 740.)
+## The Promise of Immanuel (740 BC)
 
 > **¹⁰** Moreover the LORD spake again unto Ahaz, saying,  
 > **¹¹** Ask thee a sign of the LORD thy God; ask it either in the depth, or in the height above.  
@@ -66,7 +66,7 @@ IV\. The prophet, in God's name, gives them a sign: "You will not ask a sign, bu
 
 2\. Here is another sign in particular of the speedy destruction of these potent princes that were now a terror to Judah, Isa 7:16. "Before *this* child (so it should be read), this child which I have now in my arms" (he means not Immanuel, but Shear-jashub his own son, whom he was ordered to take with him for a sign, Isa 7:3), "before this *child shall know how to refuse the evil and choose the good*" (and those who saw what his present stature and forwardness were would easily conjecture how long that would be), "before this child be three or four years older, *the land that thou abhorrest,* these confederate forces of Israelites and Syrians, which thou hast such an enmity to and standest in such dread of, *shall be forsaken of both their kings,* both Pekah and Rezin," who were in so close an alliance that they seemed as if they were the kings of but one kingdom. This was fully accomplished; for within two or three years after this, Hoshea conspired against Pekah, and slew him (2Ki 15:30), and, before that, the king of Assyria took Damascus, and slew Rezin, 2Ki 16:9. Nay, there was a present event, which happened immediately, and when this child carried the prediction of in his name, which was a pledge and earnest of this future event. *Shear-jashub* signifies *The remnant shall return,* which doubtless points at the wonderful return of those 200,000 captives whom Pekah and Rezin had carried away, who were brought back, not by might or power, but by the Spirit of the Lord of hosts. Read the story, 2Ch 28:8-15. The prophetical naming of this child having thus had its accomplishment, no doubt this, which was further added concerning him, should have its accomplishment likewise, that Syria and Israel should be deprived of both their kings. One mercy from God encourages us to hope for another, if it engages us to prepare for another.
 
-## Judgments Announced. (b. c. 740.)
+## Judgments Announced (740 BC)
 
 > **¹⁷** The LORD shall bring upon thee, and upon thy people, and upon thy father's house, days that have not come, from the day that Ephraim departed from Judah; *even* the king of Assyria.  
 > **¹⁸** And it shall come to pass in that day, *that* the LORD shall hiss for the fly that *is* in the uttermost part of the rivers of Egypt, and for the bee that *is* in the land of Assyria.  

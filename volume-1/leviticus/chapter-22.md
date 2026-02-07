@@ -6,7 +6,7 @@ weight: 22
 
 In this chapter we have divers laws concerning the priests and sacrifices all for the preserving of the honour of the sanctuary. I. That the priests should not eat the holy things in their uncleanness, Le 22:1-9. II. That no stranger who did not belong to some family of the priests should eat of the holy things (Le 22:10-13), and, if he did it unwittingly, he must make restitution, Le 22:14-16. III. That the sacrifices which were offered must be without blemish, Le 22:17-25. IV. That they must be more than eight days old (Le 22:26-28), and that the sacrifices of thanksgiving must be eaten the same day they were offered, Le 22:29-33, etc.
 
-## Laws Concerning the Priests. (b. c. 1490.)
+## Laws Concerning the Priests (1490 BC)
 
 > **¹** And the LORD spake unto Moses, saying,  
 > **²** Speak unto Aaron and to his sons, that they separate themselves from the holy things of the children of Israel, and that they profane not my holy name *in those things* which they hallow unto me: I *am* the LORD.  
@@ -42,7 +42,7 @@ III\. This law might be dispensed with in a case of necessity, as it was when Da
 
 IV\. It is an instruction to gospel ministers, who are *stewards of the mysteries of God,* not to admit all, without distinction, to *eat of the holy things,* but to take out the precious from the vile. Those that are scandalously ignorant or profane are strangers and aliens to the family of the Lord's priests; and it is not meet to take the children's bread and to cast it to such. Holy things are for holy persons, for those who are holy, at least, in profession, Mt 7:6.
 
-## Laws Concerning Sacrifices. (b. c. 1490.)
+## Laws Concerning Sacrifices (1490 BC)
 
 > **¹⁷** And the LORD spake unto Moses, saying,  
 > **¹⁸** Speak unto Aaron, and to his sons, and unto all the children of Israel, and say unto them, Whatsoever *he be* of the house of Israel, or of the strangers in Israel, that will offer his oblation for all his vows, and for all his freewill offerings, which they will offer unto the LORD for a burnt offering;  

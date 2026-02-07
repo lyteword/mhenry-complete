@@ -6,7 +6,7 @@ weight: 11
 
 With this chapter Moses concludes his preface to the repetition of the statutes and judgments which they must observe to do. He repeats the general charge (De 11:1), and, having in the close of the foregoing chapter begun to mention the great things God had done among them, in this, I. He specifies several of the great works God had done before their eyes, De 11:2-7. II. He sets before them, for the future, life and death, the blessing and the curse, according as they did, or did not, keep God's commandments, that they should certainly prosper if they were obedient, should be blessed with plenty of all good things (De 11:8-15), and with victory over their enemies, and the enlargement of their coast thereby, De 11:22-25. But their disobedience would undoubtedly be their ruin, De 11:16,17. III. He directs them what means to use that they might keep in mind the law of God, De 11:18-21. And, IV. Concludes all with solemnly charging them to choose which they would have, the blessing or the curse, De 11:26-32, etc.
 
-## Persuasives to Obedience. (b. c. 1451.)
+## Persuasives to Obedience (1451 BC)
 
 > **¹** Therefore thou shalt love the LORD thy God, and keep his charge, and his statutes, and his judgments, and his commandments, alway.  
 > **²** And know ye this day: for *I speak* not with your children which have not known, and which have not seen the chastisement of the LORD your God, his greatness, his mighty hand, and his stretched out arm,  
@@ -54,7 +54,7 @@ Here, I. Moses repeats the directions he had given for the guidance and assistan
 
 II\. He repeats the assurances he had before given them, in God's name, of prosperity and success if they were obedient. 1. They should have a happy settlement, De 11:21. Their days should be multiplied; and, when they were fulfilled, the days of their children likewise should be many, as the days of heaven, that is, Canaan should be sure to them and their heirs for ever, as long as the world stands, if they did not by their own sin throw themselves out of it. 2. It should not be in the power of their enemies to give them any disturbance, nor make them upon any account uneasy. "If you will *keep God's commandments,* and be careful to do your duty (De 11:22), God will not only crown the labours of the husbandman with plenty of the fruits of the earth, but he will own and succeed the more glorious undertakings of the men of war. Victory shall attend your arms; which way soever they turn, God will drive out these nations, and put you in possession of their land," De 11:23,24. Their territories should be enlarged to the utmost extent of the promise, Ge 15:18. And all their neighbours should stand in awe of them, De 11:25. Nothing contributes more to the making of a nation considerable abroad, valuable to its friends and formidable to its enemies, than religion reigning in it; for who can be against those that have God for them? And he is certainly for those that are sincerely for him, Pr 14:34.
 
-## The Blessing and the Curse. (b. c. 1451.)
+## The Blessing and the Curse (1451 BC)
 
 > **²⁶** Behold, I set before you this day a blessing and a curse;  
 > **²⁷** A blessing, if ye obey the commandments of the LORD your God, which I command you this day:  

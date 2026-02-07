@@ -6,7 +6,7 @@ weight: 30
 
 In this chapter we have, I. A continuation of the prophecy against Egypt, which we had in the latter part of the foregoing chapter, just before the desolation of that once flourishing kingdom was completed by Nebuchadnezzar, in which is foretold the destruction of all her allies and confederates, all her interests and concerns, and the several steps which the king of Babylon should take in pushing on this destruction, Eze 30:1-19. II. A repetition of a former prophecy against Egypt, just before the desolation of it begun by their own bad conduct, which gradually weakened them and prepared the way for the king of Babylon, Eze 30:20-26. It is all much to the same purport with what we had before.
 
-## Prophecy against Egypt; Destruction of Egypt Foretold. (b. c. 572.)
+## Prophecy against Egypt; Destruction of Egypt Foretold (572 BC)
 
 > **¹** The word of the LORD came again unto me, saying,  
 > **²** Son of man, prophesy and say, Thus saith the Lord GOD; Howl ye, Woe worth the day!  
@@ -44,7 +44,7 @@ VI\. No place in the land of Egypt shall be exempted from the fury of the Chalde
 
 The close of this prediction leaves, 1. The land of Egypt mortified: *Thus will I execute judgments on Egypt,* Eze 30:19. The destruction of Egypt is the *executing of judgments,* which intimates not only that it is done justly, for its sins, but that it is done regularly and legally, by a judicial sentence. All the executions God does are according to his judgments. 2. The God of Israel herein glorified: *They shall know that I am the Lord.* The Egyptians shall be made to know it and the people of God shall be made to know it better. *The Lord is known by the judgments which he executes.*
 
-## Destruction of Egypt Foretold. (b. c. 572.)
+## Destruction of Egypt Foretold (572 BC)
 
 > **²⁰** And it came to pass in the eleventh year, in the first *month,* in the seventh *day* of the month, *that* the word of the LORD came unto me, saying,  
 > **²¹** Son of man, I have broken the arm of Pharaoh king of Egypt; and, lo, it shall not be bound up to be healed, to put a roller to bind it, to make it strong to hold the sword.  

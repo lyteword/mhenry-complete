@@ -6,7 +6,7 @@ weight: 13
 
 In this chapter we have a further account concerning Abram. I. In general, of his condition and behaviour in the land of promise, which was now the land of his pilgrimage. 1. His removes, Ge 13:1,3,4,18. 2. His riches, Ge 13:2. 3. His devotion, Ge 13:4,18. II. A particular account of a quarrel that happened between him and Lot. 1. The unhappy occasion of their strife Ge 13:5,6. 2. The parties concerned in the strife, with the aggravation of it, Ge 13:7. III. The making up of the quarrel, by the prudence of Abram Ge 13:8,9. IV. Lot's departure from Abram to the plain of Sodom, Ge 13:10-13. V. God's appearance to Abram, to confirm the promise of the land of Canaan to him, Ge 13:14-18, etc.
 
-## Abram's Removal to Canaan. (b. c. 1918.)
+## Abram's Removal to Canaan (1918 BC)
 
 > **¹** And Abram went up out of Egypt, he, and his wife, and all that he had, and Lot with him, into the south.  
 > **²** And Abram *was* very rich in cattle, in silver, and in gold.  
@@ -21,7 +21,7 @@ III\. His removal to Beth-el, Ge 13:3,4. Thither he went, not only because there
 
 IV\. His devotion there. His altar was gone, so that he could not offer sacrifice; but *he called on the name of the Lord,* as he had done, Ge 12:8. Note, 1. All God's people are praying people. You may as soon find a living man without breath as a living Christian without prayer. 2. Those that would approve themselves upright with their God must be constant and persevering in the services of religion. Abram did not leave his religion behind him in Egypt, as many do in their travels. 3. When we cannot do *what we would* we must make conscience of doing *what we can* in the acts of devotion. When we want an altar, let us not be wanting in prayer, but, wherever we are, call on the name of the Lord.
 
-## Lot's Separation from Abram. (b. c. 1917.)
+## Lot's Separation from Abram (1917 BC)
 
 > **⁵** And Lot also, which went with Abram, had flocks, and herds, and tents.  
 > **⁶** And the land was not able to bear them, that they might dwell together: for their substance was great, so that they could not dwell together.  
@@ -45,7 +45,7 @@ IV\. The making up of this quarrel was very happy. It is best to preserve the pe
 
 3\. His proposal for peace was very fair. Many who profess to be for peace yet will do nothing towards it; but Abram hereby approved himself a real friend to peace that he proposed an unexceptionable expedient for the preserving of it: *Is not the whole land before thee?* Ge 13:9. As if he had said, "Why should we quarrel for room, while there is room enough for us both?" (1.) He concludes that they must part, and is very desirous that they should part friends: *Separate thyself, I pray thee, from me.* What could be expressed more affectionately? He does not expel him, and force him away, but advises that he should separate himself. Nor does he charge him to depart, but humbly desires him to withdraw. Note, Those that have power to command, yet sometimes, for love's sake, and peace' sake, should rather beseech as Paul besought Philemon, Philemon 1:8,9. When the great God condescends to beseech us, we may well afford to beseech one another, to *be reconciled,* 2Co 5:20. (2.) He offers him a sufficient share of the land they were in. Though God had promised Abram to give this land to his seed (Ge 12:7), and it does not appear that ever any such promise was made to Lot, which Abram might have insisted on, to the total exclusion of Lot, yet he allows him to come in partner with him, and tenders an equal share to one that had not an equal right, and will not make God's promise to patronise his quarrel, nor, under the protection of that, put any hardship on his kinsman. (3.) He gives him his choice, and offers to take up with his leavings: *If thou wilt take the left hand, I will go to the right.* There was all the reason in the world that Abram should choose first; yet he recedes from his right. Note, It is a noble conquest to be willing to yield for peace' sake; it is the conquest of ourselves, and our own pride and passion, Mt 5:39,40. It is not only the punctilios of honour, but even interest itself, that in many cases must be sacrificed to peace.
 
-## Lot's Removal to Sodom. (b. c. 1917.)
+## Lot's Removal to Sodom (1917 BC)
 
 > **¹⁰** And Lot lifted up his eyes, and beheld all the plain of Jordan, that it *was* well watered everywhere, before the LORD destroyed Sodom and Gomorrah, *even* as the garden of the LORD, like the land of Egypt, as thou comest unto Zoar.  
 > **¹¹** Then Lot chose him all the plain of Jordan; and Lot journeyed east: and they separated themselves the one from the other.  
@@ -58,7 +58,7 @@ I\. How much he had an eye to the goodness of the land. He *beheld all the plain
 
 II\. How little he considered the wickedness of the inhabitants: *But the men of Sodom were wicked,* Ge 13:13. Note, 1. Though all are sinners, yet some are greater sinners than others. The men of Sodom were sinners of the first magnitude, *sinners before the Lord,* that is, impudent daring sinners; they were so to a proverb. Hence we read of those that *declare their sin as Sodom, they hide it not,* Isa 3:9. 2. That some sinners are the worse for living in a good land. So the Sodomites were: for this was the iniquity of Sodom, *pride, fulness of bread, and abundance of idleness;* and all these were supported by the great plenty their country afforded, Eze 16:49. Thus *the prosperity of fools destroys them.* 3. That God often gives great plenty to great sinners. Filthy Sodomites dwell in a city, in a fruitful plain, while faithful Abram and his pious family dwell in tents upon the barren mountains. 4. When wickedness has come to the height, ruin is not far off. Abounding sins are sure presages of approaching judgments. Now Lot's coming to dwell among the Sodomites may be considered, (1.) As a great mercy to them, and a likely means of bringing them to repentance; for now they had a prophet among them and a preacher of righteousness, and, if they had hearkened to him, they might have been reformed, and the ruin prevented. Note, God sends preachers, before he sends destroyers; for he is not *willing that any should perish.* (2.) As a great affliction to Lot, who was not only grieved to see their wickedness (2Pe 2:7,8), but was molested and persecuted by them, because he would not do as they did. Note, It has often been the vexatious lot of good men to live among wicked neighbours, to *sojourn in Mesech* (Ps 120:5), and it cannot but be the more grievous, if, as Lot here, they have brought it upon themselves by an unadvised choice.
 
-## God Confirms His Promise to Abram. (b. c. 1917.)
+## God Confirms His Promise to Abram (1917 BC)
 
 > **¹⁴** And the LORD said unto Abram, after that Lot was separated from him, Lift up now thine eyes, and look from the place where thou art northward, and southward, and eastward, and westward:  
 > **¹⁵** For all the land which thou seest, to thee will I give it, and to thy seed for ever.  

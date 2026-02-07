@@ -6,7 +6,7 @@ weight: 28
 
 In this chapter we have, I. A prediction of the fall and ruin of the king of Tyre, who, in the destruction of that city, is particularly set up as a mark for God's arrows, Eze 28:1-10. II. A lamentation for the king of Tyre, when he has thus fallen, though he falls by his own iniquity, Eze 28:11-19. III. A prophecy of the destruction of Zidon, which as in the neighbourhood of Tyre and had a dependence upon it, Eze 28:20-23. IV. A promise of the restoration of the Israel of God, though in the day of their calamity they were insulted over by their neighbours, Eze 28:24-26.
 
-## Fall of the Prince of Tyre. (b. c. 588.)
+## Fall of the Prince of Tyre (588 BC)
 
 > **¹** The word of the LORD came again unto me, saying,  
 > **²** Son of man, say unto the prince of Tyrus, Thus saith the Lord GOD; Because thine heart *is* lifted up, and thou hast said, I *am* a God, I sit *in* the seat of God, in the midst of the seas; yet thou *art* a man, and not God, though thou set thine heart as the heart of God:  
@@ -33,7 +33,7 @@ II\. Since *pride goes before destruction, and a haughty spirit before a fall,* 
 
 3\. The effectual disproof that this will be of all his pretensions to deity (Eze 28:9): "When the conqueror sets his sword to thy breast, and thou seest no way of escape, *wilt thou then say, I am God?* Wilt thou then have such a conceit of thyself as thou now hast? No; thy being overpowered by death, and by the fear of it, will force thee to own that thou art not a god, but a weak, timorous, trembling, dying man. *In the hand of him that slays thee* (in the hand of God, and of the instruments that he employed) *thou shalt be a man, and not God,* utterly unable to resist, and help thyself." *I have said, You are gods; but you shall die like men,* Ps 82:6,7. Note, Those who pretend to be rivals with God shall be forced one way or other to let fall their claims. Death at furthest, when we come into his hand, will make us know that we are men.
 
-## Fall of the Prince of Tyre. (b. c. 588.)
+## Fall of the Prince of Tyre (588 BC)
 
 > **¹¹** Moreover the word of the LORD came unto me, saying,  
 > **¹²** Son of man, take up a lamentation upon the king of Tyrus, and say unto him, Thus saith the Lord GOD; Thou sealest up the sum, full of wisdom, and perfect in beauty.  
@@ -59,7 +59,7 @@ II\. Some think that by *the king of Tyre* is meant the whole royal family, this
 
 (2.) What the ruin was that this iniquity brought him to. [1.] He was thrown out of his dignity and dislodged from his palace, which he took to be his paradise and temple (Eze 28:16): *I will cast thee as profane out of the mountain of God.* His kingly power was high as a *mountain,* setting him above others; it was a *mountain of God,* for the powers that be are ordained of God, and have something in them that is sacred; but, having abused his power, he is reckoned profane, and is therefore deposed and expelled. He disgraces the crown he wears, and so has forfeited it, and shall be destroyed *from the midst of the stones of fire,* the precious stones with which his palace was garnished, as the temple was; and they shall be no protection to him. [2.] He was exposed to contempt and disgrace, and trampled upon by his neighbours: "*I will cast thee to the ground* (Eze 28:17), will cast thee among the *pavement-stones,* from the midst of the *precious stones,* and will *lay thee* a rueful spectacle *before kings, that they may behold thee* and take warning by thee not to be proud and oppressive." [3.] He was quite consumed, his city and he in it: *I will bring forth a fire from the midst of thee.* The conquerors, when they have plundered the city, will kindle a fire in the heart of it, which shall lay it, and the palace particularly, in ashes. Or it may be taken more generally for the fire of God's judgments, which shall devour both prince and people, and bring all the glory of both *to ashes upon the earth;* and this fire shall be *brought forth from the midst of thee.* All God's judgments upon sinners take rise from themselves; they are devoured by a fire of their own kindling. [4.] He was hereby made a terrible example of divine vengeance. Thus he is reduced *in the sight of all those that behold him* (Eze 28:18): *Those that know him shall be astonished at him,* and shall wonder how one that stood so high could be brought so low. The king of Tyre's palace, like the temple at Jerusalem, when it is destroyed shall be *an astonishment and a hissing,* 2Ch 7:20,21. So fell the king of Tyre.
 
-## The Fall of Zidon. (b. c. 588.)
+## The Fall of Zidon (588 BC)
 
 > **²⁰** Again the word of the LORD came unto me, saying,  
 > **²¹** Son of man, set thy face against Zidon, and prophesy against it,  

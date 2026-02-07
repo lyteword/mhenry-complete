@@ -6,7 +6,7 @@ weight: 12
 
 This chapter gives us a more full account of the reign of Rehoboam than we had before in Kings and it is a very melancholy account. Methinks we are in the book of Judges again; for, I. Rehoboam and his people did evil in the sight of the Lord, 2Ch 12:1. II. God thereupon sold them into the hands of Shishak, king of Egypt, who greatly oppressed them, 2Ch 12:2-4. III. God sent a prophet to them, to expound to them the judgment and to call them to repentance, 2Ch 12:5. IV. They thereupon humbled themselves, 2Ch 12:6. V. God, upon their repentance, turned from his anger (2Ch 12:7,12) and yet left them under the marks of his displeasure, 2Ch 12:8-11. Lastly, Here is a general character of Rehoboam and his reign, with the conclusion of it, 2Ch 12:13-16.
 
-## Abijah's Reign over Judah. (b. c. 970.)
+## Abijah's Reign over Judah (970 BC)
 
 > **¹** And it came to pass, when Rehoboam had established the kingdom, and had strengthened himself, he forsook the law of the LORD, and all Israel with him.  
 > **²** And it came to pass, *that* in the fifth year of king Rehoboam Shishak king of Egypt came up against Jerusalem, because they had transgressed against the LORD,  
@@ -43,7 +43,7 @@ V\. Upon the profession they made of repentance God showed them some favour, sav
 
 (2.) In their wealth. The king of Egypt plundered both the temple and the exchequer, the treasuries of both which Solomon left very full; but he *took them away;* yea, he *took all,* all he could lay his hands on, 2Ch 12:9. This was what he came for. David and Solomon, who walked in the way of God, filled the treasuries, one by war and the other by merchandise; but Rehoboam, who forsook the law of God, emptied them. The taking away of the golden shields, and the substituting of brazen ones in their place (2Ch 12:9-11), we had an account of before, 1Ki 14:25-28.
 
-## Jeroboam Defeated by Abijah. (b. c. 965.)
+## Jeroboam Defeated by Abijah (965 BC)
 
 > **¹³** So king Rehoboam strengthened himself in Jerusalem, and reigned: for Rehoboam *was* one and forty years old when he began to reign, and he reigned seventeen years in Jerusalem, the city which the LORD had chosen out of all the tribes of Israel, to put his name there. And his mother's name *was* Naamah an Ammonitess.  
 > **¹⁴** And he did evil, because he prepared not his heart to seek the LORD.  

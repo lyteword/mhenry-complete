@@ -6,7 +6,7 @@ weight: 42
 
 This chapter continues and concludes the describing and measuring of this mystical temple, which it is very hard to understand the particular architecture of, and yet more hard to comprehend the mystical meaning of. Here is, I. A description of the chambers that were about the courts, their situation and structure (Eze 42:1-13), and the uses for which they were designed, Eze 42:13,14. II. A survey of the whole compass of ground which was taken up with the house, and the courts belonging to it, Eze 42:15-20.
 
-## The Vision of the Temple. (b. c. 574.)
+## The Vision of the Temple (574 BC)
 
 > **¹** Then he brought me forth into the utter court, the way toward the north: and he brought me into the chamber that *was* over against the separate place, and which *was* before the building toward the north.  
 > **²** Before the length of a hundred cubits *was* the north door, and the breadth *was* fifty cubits.  
@@ -29,7 +29,7 @@ I\. Here is a description of these chambers, which (as that which went before) s
 
 II\. Here is the use of these chambers appointed, Eze 42:13,14. 1. They were *for the priests* that approach unto the Lord, that they may be always near their business and may not be non-residents. *Therefore* they are called *holy chambers,* because they were for use of those that ministered in holy things during their ministration. Those that have public work to do for God and the souls of men have need to be much in private, to fit themselves for it. Ministers should spend much time in their chambers, in reading, meditation, and prayer, that their *profiting may appear;* and they ought to be provided with conveniences for this purpose. 2. There the priests were to deposit *the most holy things,* those parts of the offerings which fell to their share; and there they were to *eat them,* they and their families, in a religious manner, for *the place is holy;* and thus they must make a difference between those feasts upon the sacrifice and other meals. 3. There (among other uses) they were to lay their vestments, which God had appointed them to wear when they ministered at the altar, their linen ephods, coats, girdles, and bonnets. We read of the providing of priests garments after their return out of captivity, Ne 7:70,72. When they had ended their service at the altar they must lay by those garments, to signify that the use of them should continue only during that dispensation; but they must *put on other garments,* such as other people wear, when they *approached to those things which were for the people,* that is, to do that part of their service which related to the people, to teach them the law and to answer their enquiries. Their holy garments must be *laid up,* that they may be kept clean and decent for the credit of their service.
 
-## The Vision of the Temple. (b. c. 574.)
+## The Vision of the Temple (574 BC)
 
 > **¹⁵** Now when he had made an end of measuring the inner house, he brought me forth toward the gate whose prospect *is* toward the east, and measured it round about.  
 > **¹⁶** He measured the east side with the measuring reed, five hundred reeds, with the measuring reed round about.  

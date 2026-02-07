@@ -6,7 +6,7 @@ weight: 3
 
 In this chapter the apostle gives further evidence of his love to the Thessalonians, reminding them of his sending Timothy to them, with the mention of his design therein and his inducements so to do, 1Th 3:1-5. He acquaints them also with his great satisfaction at the return of Timothy, with good tidings concerning them, 1Th 3:6-10. And concludes with fervent prayer for them, 1Th 3:11-13.
 
-## The Mission of Timothy. (a. d. 51.)
+## The Mission of Timothy (51 AD)
 
 > **¹** Wherefore when we could no longer forbear, we thought it good to be left at Athens alone;  
 > **²** And sent Timotheus, our brother, and minister of God, and our fellowlabourer in the gospel of Christ, to establish you, and to comfort you concerning your faith:  
@@ -30,7 +30,7 @@ III\. The motive inducing Paul to send Timothy for this end, namely, a godly fea
 
 2\. To prevent this danger, with its bad consequence, the apostle tells them what care he took in sending Timothy, (1.) To put them in mind of what he had told them before concerning suffering tribulation (1Th 3:4), he says (1Th 3:3), *We are appointed thereunto,* that is, unto afflictions. So is the will and purpose of God that *through many afflictions we must enter into his kingdom.* Their troubles and persecutions did not come by chance, not merely from the wrath and malice of the enemies of religion, but by the *appointment of God.* The event only came to pass according as God had determined, and they knew he had told them before it would be; so that they should not think it strange, and, being fore-warned, they should be fore-armed. Note, The apostles were so far from flattering people with an expectation of worldly prosperity in religion that, on the contrary, they told them plainly they must count upon trouble in the flesh. And herein they followed the example of their great Master, the author or our faith. Besides, it might prove a confirmation of their faith, when they perceived that it only happened to them as was predicted before. (2.) To know their faith, that so he might inform the apostles whether they remained stedfast under all their sufferings, whether their faith failed or not, because, if their faith did not fail, they would be able to stand their ground against the tempter and all his temptations: their faith would be a *shield, to defend them against all the fiery darts of the wicked,* Eph 6:16.
 
-## The Mission of Timothy. (a. d. 51.)
+## The Mission of Timothy (51 AD)
 
 > **⁶** But now when Timotheus came from you unto us, and brought us good tidings of your faith and charity, and that ye have good remembrance of us always, desiring greatly to see us, as we also *to see* you:  
 > **⁷** Therefore, brethren, we were comforted over you in all our affliction and distress by your faith:  
@@ -46,7 +46,7 @@ II\. The great comfort and satisfaction the apostle had in this good report conc
 
 III\. The effects of this were thankfulness and prayer to God on their behalf. Observe, 1. How thankful the apostle was, 1Th 3:9. He was full of joy, and full of praise and thanksgiving. When we are most cheerful we should be most thankful. What we rejoice in we should give thanks for. This is to rejoice before our God, to spiritualize our joy. Paul speaks as if he could not tell how to express his thankfulness to God, or his joy and rejoicing for their sakes. But he was careful God should not lose the glory of the comfort he received in the welfare of his friends. His heart was enlarged with love to them and with thanksgiving to God. He was willing to express the one and the other as well as he could. As to thankfulness to God, this especially is very imperfect in the present state; but, when we come to heaven, we shall do this work better than now we can. 2. He prayed for them night and day (1Th 3:10), evening and morning, or very frequently, in the midst of the business of the day or slumber of the night lifting up his heart to God in prayer. Thus we should pray always. And Paul's prayer was fervent prayer. He prayed exceedingly, and was earnest in his supplication. Note, When we are most thankful we should always give ourselves to prayer; and those we give thanks for have yet need to be prayed for. Those whom we most rejoice in, and who are our greatest comforts, must be our constant care, while in this world of temptation and imperfection. There was something still lacking in their faith; Paul desired that this might be perfected, and to see their face in order thereunto. Note, (1.) The best of men have something wanting in their faith, if not as to the matter of it, there being some mysteries or doctrines not sufficiently known or believed by them, yet as to the clearness and certainty of their faith, there being some remaining darkness and doubtings, or at least as to the effects and operations of it, these being not so conspicuous and perfect as they should be. And, (2.) The ministry of the word and ordinances is helpful, and to be desired and used for the perfecting of that which is lacking in our faith.
 
-## Apostolic Prayer. (a. d. 51.)
+## Apostolic Prayer (51 AD)
 
 > **¹¹** Now God himself and our Father, and our Lord Jesus Christ, direct our way unto you.  
 > **¹²** And the Lord make you to increase and abound in love one toward another, and toward all *men,* even as we *do* toward you:  

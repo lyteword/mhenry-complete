@@ -6,7 +6,7 @@ weight: 88
 
 This psalm is a lamentation, one of the most melancholy of all the psalms; and it does not conclude, as usually the melancholy psalms do, with the least intimation of comfort or joy, but, from first to last, it is mourning and woe. It is not upon a public account that the psalmist here complains (here is no mention of the afflictions of the church), but only upon a personal account, especially trouble of mind, and the grief impressed upon his spirits both by his outward afflictions and by the remembrance of his sins and the fear of God's wrath. It is reckoned among the penitential psalms, and it is well when our fears are thus turned into the right channel, and we take occasion from our worldly grievances to sorrow after a godly sort. In this psalm we have, I. The great pressure of spirit that the psalmist was under, Ps 88:3-6. II. The wrath of God, which was the cause of that pressure, Ps 88:7,15-17. III. The wickedness of his friends, Ps 88:8,18. IV. The application he made to God by prayer, Ps 88:1,2,9,13. V. His humble expostulations and pleadings with God, Ps 88:10,12,14. Those who are in trouble of mind may sing this psalm feelingly; those that are not ought to sing it thankfully, blessing God that it is not their case.
 
-## Sorrowful Complaints; Complaining to God.
+## Sorrowful Complaints; Complaining to God
 
 A song *or* psalm for the sons of Korah, to the chief musician upon Mahalath Leannoth, Maschil of Heman the Ezrahite.
 
@@ -34,7 +34,7 @@ V\. It added to his affliction that his friends deserted him and made themselves
 
 VI\. He looked upon his case as helpless and deplorable: "*I am shut up, and I cannot come forth,* a close prisoner, under the arrests of divine wrath, and no way open of escape." He therefore lies down and sinks under his troubles, because he sees not any probability of getting out of them. For thus he bemoans himself (Ps 88:9): *My eye mourneth by reason of affliction.* Sometimes giving vent to grief by weeping gives some ease to a troubled spirit. Yet weeping must not hinder praying; we must sow in tears: *My eye mourns,* but *I cry unto thee daily.* Let prayers and tears go together, and they shall be accepted together. *I have heard thy prayers, I have seen thy tears.*
 
-## Pleading with God.
+## Pleading with God
 
 > **¹⁰** Wilt thou show wonders to the dead? shall the dead arise *and* praise thee? Selah.  
 > **¹¹** Shall thy lovingkindness be declared in the grave? *or* thy faithfulness in destruction?  

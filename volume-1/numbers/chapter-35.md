@@ -6,7 +6,7 @@ weight: 35
 
 Orders having been given before for the dividing of the land of Canaan among the lay-tribes (as I may call them), care is here taken for a competent provision for the clergy, the tribe of Levi, which ministered in holy things. I. Forty-eight cities were to be assigned them, with their suburbs, some in every tribe, Nu 35:1-8. II. Six cities out of these were to be for cities of refuge, for any man that killed another unawares, Nu 35:9-15. In the law concerning these observe, 1. In what case sanctuary was not allowed, namely, that of wilful murder, Nu 35:16-21. 2. In what cases it was allowed, Nu 35:22-24. 3. What was the law concerning those that took shelter in these cities of refuge, Nu 35:25-34, etc.
 
-## The Cities of the Levites. (b. c. 1452.)
+## The Cities of the Levites (1452 BC)
 
 > **¹** And the LORD spake unto Moses in the plains of Moab by Jordan *near* Jericho, saying,  
 > **²** Command the children of Israel, that they give unto the Levites of the inheritance of their possession cities to dwell in; and ye shall give *also* unto the Levites suburbs for the cities round about them.  
@@ -25,7 +25,7 @@ II\. These cities were to be assigned them out of the possessions of each tribe,
 
 III\. The number allotted them was forty-eight in all, four out of each of the twelve tribes, one with another. Out of the united tribes of Simeon and Judah nine, out of Naphtali three, and four apiece out of the rest, as appears, Jos 21:1-45. Thus were they blessed with a good ministry, and that ministry with a comfortable maintenance, not only in tithes, but in glebe-lands. And, though the gospel is not so particular as the law was in this matter, yet it expressly provides that he that is *taught in the word* should *communicate unto him that teaches in all good things,* Ga 6:6.
 
-## The Cities of Refuge. (b. c. 1452.)
+## The Cities of Refuge (1452 BC)
 
 > **⁹** And the LORD spake unto Moses, saying,  
 > **¹⁰** Speak unto the children of Israel, and say unto them, When ye be come over Jordan into the land of Canaan;  

@@ -6,7 +6,7 @@ weight: 14
 
 Moses in this chapter teaches them, I. To distinguish themselves from their neighbours by a singularity, 1. In their mourning, De 14:1,2. 2. In their meat, De 14:3-21. II. To devote themselves unto God, and, in token of that, to give him his dues out of their estates, the yearly tithe, and that every third year, for the maintenance of their religious feasts, the Levites, and the poor, De 14:22-29, etc.
 
-## What Might Be Eaten, and What Not. (b. c. 1451.)
+## What Might Be Eaten, and What Not (1451 BC)
 
 > **¹** Ye *are* the children of the LORD your God: ye shall not cut yourselves, nor make any baldness between your eyes for the dead.  
 > **²** For thou *art* a holy people unto the LORD thy God, and the LORD hath chosen thee to be a peculiar people unto himself, above all the nations that *are* upon the earth.  
@@ -44,7 +44,7 @@ II\. How they ought to distinguish themselves by a sober singularity from all th
 
 (2.) Now as to all these precepts concerning their food, [1.] It is plain in the law itself that they belonged only to the Jews, and were not moral, nor of perpetual use, because not of universal obligation; for what they might not eat themselves they might give to a stranger, a proselyte of the gate, that had renounced idolatry, and therefore was permitted to live among them, though not circumcised; or they might sell it to an alien, a mere Gentile, that came into their country for trade, but might not settle it, De 14:21. They might feed upon that which an Israelite might not touch, which is a plain instance of their peculiarity, and their being a holy people. [2.] It is plain in the gospel that they are now antiquated and repealed. For *every creature of God is good, and nothing now to be refused,* or *called common and unclean,* 1Ti 4:4.
 
-## Tithes for Feasting and Charity. (b. c. 1451.)
+## Tithes for Feasting and Charity (1451 BC)
 
 > **²²** Thou shalt truly tithe all the increase of thy seed, that the field bringeth forth year by year.  
 > **²³** And thou shalt eat before the LORD thy God, in the place which he shall choose to place his name there, the tithe of thy corn, of thy wine, and of thine oil, and the firstlings of thy herds and of thy flocks; that thou mayest learn to fear the LORD thy God always.  

@@ -6,7 +6,7 @@ weight: 21
 
 This chapter might borrow its title from Mal 2:1, "And now, O you priests, this commandment is for you." It is a law obliging priests with the utmost care and jealousy to preserve the dignity of their priesthood. I. The inferior priests are here charged both concerning their mourning and concerning their marriages and their children, Le 21:1-9. II. The high priest is restrained more than any of them, Le 21:10-15. III. Neither the one nor the other must have any blemish, Le 21:16-24, etc.
 
-## Laws Concerning the Priests. (b. c. 1490.)
+## Laws Concerning the Priests (1490 BC)
 
 > **¹** And the LORD said unto Moses, Speak unto the priests the sons of Aaron, and say unto them, There shall none be defiled for the dead among his people:  
 > **²** But for his kin, that is near unto him, *that is,* for his mother, and for his father, and for his son, and for his daughter, and for his brother,  

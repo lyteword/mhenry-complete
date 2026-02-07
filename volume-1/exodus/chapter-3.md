@@ -6,7 +6,7 @@ weight: 3
 
 As prophecy had ceased for many ages before the coming of Christ, that the revival and perfection of it in that great prophet might be the more remarkable, so vision had ceased (for aught that appears) among the patriarchs for some ages before the coming of Moses, that God's appearances to him for Israel's salvation might be the more welcome; and in this chapter we have God's first appearance to him in the bush and the conference between God and Moses in that vision. Here is, I. The discovery God was pleased to make of his glory to Moses at the bush, to which Moses was forbidden to approach too near, Ex 3:1-5. II. A general declaration of God's grace and good-will to his people, who were beloved for their fathers' sakes, Ex 3:6. III. A particular notification of God's purpose concerning the deliverance of Israel out of Egypt. 1. He assures Moses it should now be done, Ex 3:7-9. 2. He gives him a commission to act in it as his ambassador both to Pharaoh, (Ex 3:10) and to Israel, Ex 3:16. 3. He answers the objection Moses made of his own unworthiness, Ex 3:11,12. 4. He gives him full instructions what to say both to Pharaoh and to Israel, Ex 3:13-18. 5. He tells him beforehand what the issue would be, Ex 3:19-22, etc.
 
-## The Burning Bush. (b. c. 1491.)
+## The Burning Bush (1491 BC)
 
 > **¹** Now Moses kept the flock of Jethro his father in law, the priest of Midian: and he led the flock to the backside of the desert, and came to the mountain of God, *even* to Horeb.  
 > **²** And the angel of the LORD appeared unto him in a flame of fire out of the midst of a bush: and he looked, and, behold, the bush burned with fire, and the bush *was* not consumed.  
@@ -33,7 +33,7 @@ V\. The solemn declaration God made of his name, by which he would be known to M
 
 VI\. The solemn impression this made upon Moses: He *hid his face,* as one both ashamed and afraid to look upon God. Now that he knew it was a divine light his eyes were dazzled with it; he was not afraid of a burning bush till he perceived that God was in it. Yea, though God called himself *the God of his father,* and a God in covenant with him, yet he was afraid. Note, 1. The more we see of God the more cause we shall see to worship him with reverence and godly fear. 2. Even the manifestations of God's grace and covenant-love should increase our humble reverence of him.
 
-## Compassion of God for the Israelites. (b. c. 1491.)
+## Compassion of God for the Israelites (1491 BC)
 
 > **⁷** And the LORD said, I have surely seen the affliction of my people which *are* in Egypt, and have heard their cry by reason of their taskmasters; for I know their sorrows;  
 > **⁸** And I am come down to deliver them out of the hand of the Egyptians, and to bring them up out of that land unto a good land and a large, unto a land flowing with milk and honey; unto the place of the Canaanites, and the Hittites, and the Amorites, and the Perizzites, and the Hivites, and the Jebusites.  
@@ -48,7 +48,7 @@ II\. The promise God makes of their speedy deliverance and enlargement: *I have 
 
 III\. The commission he gives to Moses in order hereunto, Ex 3:10. He is not only sent as a prophet to Israel, to assure them that they should speedily be delivered (even that would have been a great favour), but he is sent as an ambassador to Pharaoh, to treat with him, or rather as a herald at arms, to demand their discharge, and to denounce war in case of refusal; and he is sent as a prince to Israel, to conduct and command them. Thus is he taken from *following the ewes great with young,* to a pastoral office much more noble, as David, Ps 78:71. Note, God is the fountain of power, and the powers that be are ordained of him as he pleases. The same hand that now fetched a shepherd out of a desert, to be the planter of a Jewish church, afterwards fetched fishermen from their ships, to be the planters of the Christian church, *That the excellency of the power might be of God.*
 
-## Instructions Given to Moses. (b. c. 1491.)
+## Instructions Given to Moses (1491 BC)
 
 > **¹¹** And Moses said unto God, Who *am* I, that I should go unto Pharaoh, and that I should bring forth the children of Israel out of Egypt?  
 > **¹²** And he said, Certainly I will be with thee; and this *shall be* a token unto thee, that I have sent thee: When thou hast brought forth the people out of Egypt, ye shall serve God upon this mountain.  

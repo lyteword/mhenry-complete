@@ -6,7 +6,7 @@ weight: 16
 
 It is a pity that this and the following chapter should be separated, for both of them give us the lot of the children of Joseph, Ephraim and Manasseh, who, next to Judah, were to have the post of honour, and therefore had the first and best portion in the northern part of Canaan, as Judah now had in the southern part. In this chapter we have, I. A general account of the lot of these two tribes together, Jos 16:1-4. II. The borders of the lot of Ephraim in particular, Jos 16:5-10. That of Manasseh following in the next chapter.
 
-## The Lot of Joseph. (b. c. 1444.)
+## The Lot of Joseph (1444 BC)
 
 > **¹** And the lot of the children of Joseph fell from Jordan by Jericho, unto the water of Jericho on the east, to the wilderness that goeth up from Jericho throughout mount Beth-el,  
 > **²** And goeth out from Beth-el to Luz, and passeth along unto the borders of Archi to Ataroth,  
@@ -15,7 +15,7 @@ It is a pity that this and the following chapter should be separated, for both o
 
 Though Joseph was one of the younger sons of Jacob, yet he was his eldest by his most just and best beloved wife Rachel, was himself *his best beloved son,* and had been the greatest ornament and support of his family, kept it from perishing in a time of famine, and had been the *shepherd and stone of Israel,* and therefore his posterity were very much favoured by the lot. Their portion lay in the very heart of the land of Canaan. It extended from Jordan in the east (Jos 16:1) to the sea, the Mediterranean Sea, in the west, so that it took up the whole breadth of Canaan from side to side; and no question the fruitfulness of the soil answered the blessings both of Jacob and Moses, Ge 49:25,26, De 33:13-17, etc. The portions allotted to Ephraim and Manasseh are not so particularly described as those of the other tribes; we have only the limits and boundaries of them, not the particular cities in them, as before we had the cities of Judah and afterwards those of the other tribes. For this no reason can be assigned, unless we may suppose that Joshua being himself of the children of Joseph they referred it to him alone to distribute among them the several cities that lay within their lot, and therefore did not bring in the names of their cities to the great council of their princes who sat upon this affair, by which means it came to pass that they were not inserted with the rest in the books.
 
-## The Inheritance of Joseph's Children. (b. c. 1444.)
+## The Inheritance of Joseph's Children (1444 BC)
 
 > **⁵** And the border of the children of Ephraim according to their families was *thus:* even the border of their inheritance on the east side was Ataroth-addar, unto Beth-horon the upper;  
 > **⁶** And the border went out toward the sea to Michmethah on the north side; and the border went about eastward unto Taanath-shiloh, and passed by it on the east to Janohah;  

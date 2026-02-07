@@ -6,7 +6,7 @@ weight: 5
 
 In which the apostle gives particular directions, first to the elders, how to behave themselves towards their flock (1Pe 5:1-4); then to the younger, to be obedient and humble, and to cast their care upon God, 1Pe 5:5-7. He then exhorts all to sobriety, watchfulness against temptations, and stedfastness in the faith, praying earnestly for them; and so concludes his epistle with a solemn doxology, mutual salutations, and his apostolical benediction.
 
-## Advice to Elders. (a. d. 66.)
+## Advice to Elders (66 AD)
 
 > **¹** The elders which are among you I exhort, who am also an elder, and a witness of the sufferings of Christ, and also a partaker of the glory that shall be revealed:  
 > **²** Feed the flock of God which is among you, taking the oversight *thereof,* not by constraint, but willingly; not for filthy lucre, but of a ready mind;  
@@ -23,7 +23,7 @@ III\. The pastor's duty described, and the manner in which that duty ought to be
 
 IV\. In opposition to that filthy lucre which many propose to themselves as their principal motive in undertaking and discharging the pastoral office, the apostle sets before them the crown of glory designed by the great shepherd, Jesus Christ, for all his faithful ministers. Learn, 1. Jesus Christ is *the chief shepherd* of the whole flock and heritage of God. He bought them, and rules them; he defends and saves them for ever. He is also the chief shepherd over all inferior shepherds; they derive their authority from him, act in his name, and are accountable to him at last. 2. This chief shepherd will appear, to judge all ministers and under-shepherds, to call them to account, whether they have faithfully discharged their duty both publicly and privately according to the foregoing directions. 3. Those that are found to have done their duty shall have what is infinitely better than temporal gain; they shall receive from the grand shepherd a high degree of everlasting glory, *a crown of glory that fadeth not away.*
 
-## Humility Recommended. (a. d. 66.)
+## Humility Recommended (66 AD)
 
 > **⁵** Likewise, ye younger, submit yourselves unto the elder. Yea, all *of you* be subject one to another, and be clothed with humility: for God resisteth the proud, and giveth grace to the humble.  
 > **⁶** Humble yourselves therefore under the mighty hand of God, that he may exalt you in due time:  
@@ -35,7 +35,7 @@ I\. How to behave themselves to their ministers and to one another. He calls the
 
 II\. The apostle, knowing that these Christians were already under very hard circumstances, rightly supposes that what he had foretold of greater hardships yet a coming might excite in them abundance of care and fear about the event of these difficulties, what the issue of them would be to themselves, their families, and the church of God; foreseeing this anxious care would be a heavy burden, and a sore temptation, he gives them the best advice, and supports it with a strong argument. His advice is to *cast all their care,* or *all care of themselves, upon God.* "Throw your cares, which are so cutting and distracting, which wound your souls and pierce your hearts, upon the wise and gracious providence of God; trust in him with a firm composed mind, *for he careth for you.* He is willing to release you of your care, and take the care of you upon himself. He will either avert what you fear, or support you under it. He will order all events to you so as shall convince you of his paternal love and tenderness towards you; and all shall be so ordered that no hurt, but good, shall come unto you," Mt 6:25;Ps 84:11;Ro 8:28. Learn, 1. The best of Christians are apt to labour under the burden of anxious and excessive care; the apostle calls it, *all your care,* intimating that the cares of Christians are various and of more sorts than one: personal cares, family cares, cares for the present, cares for the future, cares for themselves, for others, and for the church. 2. The cares even of good people are very burdensome, and too often very sinful; when they arise from unbelief and diffidence, when they torture and distract the mind, unfit us for the duties of our place and hinder our delightful service of God, they are very criminal. 3. The best remedy against immoderate care is to *cast our care upon God,* and resign every event to the wise and gracious determination. A firm belief of the rectitude of the divine will and counsels calms the spirit of man. *We ceased, saying, The will of the Lord be done,* Ac 21:14.
 
-## Sobriety and Vigilance Enjoined. (a. d. 66.)
+## Sobriety and Vigilance Enjoined (66 AD)
 
 > **⁸** Be sober, be vigilant; because your adversary the devil, as a roaring lion, walketh about, seeking whom he may devour:  
 > **⁹** Whom resist stedfast in the faith, knowing that the same afflictions are accomplished in your brethren that are in the world.  
@@ -52,7 +52,7 @@ II\. Hence he infers that it is their duty, 1. To *be sober,* and to govern both
 
 III\. He tells them that their care was not singular, for they knew that the like afflictions befel their brethren in all parts of the world, and that all the people of God were their fellow-soldiers in this warfare. Learn, 1. All the great persecutions that ever were in the world were raised, spirited up, and conducted, by the devil; he is the grand persecutor, as well as *the deceiver and accuser, of the brethren;* men are his willing spiteful instruments, but he is the chief adversary that wars against Christ and his people, Ge 3:15;Re 12:12. 2. The design of Satan in raising persecutions against the faithful servants of God is to bring them to apostasy, by reason of their sufferings, and so to destroy their souls. 3. Sobriety and watchfulness are necessary virtues at all times, but especially in times of suffering and persecution. "You must moderate your affection to worldly things, or else Satan will soon overcome you." 4. "If you would overcome Satan, as a tempter, an accuser, or a persecutor, you must resist him stedfast in the faith; if your faith give way, you are gone; therefore, *above all, take the shield of faith,*" Eph 6:16. 5. The consideration of what others suffer is proper to encourage us to bear our own share in any affliction: *The same afflictions are accomplished in your brethren.*
 
-## The Apostle's Prayer. (a. d. 66.)
+## The Apostle's Prayer (66 AD)
 
 > **¹⁰** But the God of all grace, who hath called us unto his eternal glory by Christ Jesus, after that ye have suffered a while, make you perfect, stablish, strengthen, settle *you.*  
 > **¹¹** To him *be* glory and dominion for ever and ever. Amen.  

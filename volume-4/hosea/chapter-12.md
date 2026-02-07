@@ -6,7 +6,7 @@ weight: 12
 
 In this chapter we have, I. A high charge drawn up against both Israel and Judah for their sins, which were the ground of God's controversy with them, Ho 12:1,2. Particularly the sin of fraud and injustice, which Ephraim is charged with (Ho 12:7), and justifies himself in, Ho 12:8. And the sin of idolatry (Ho 12:11), by which God is provoked to contend with them, Ho 12:14. II. The aggravations of the sins they are charged with, taken from the honour God put upon their father Jacob (Ho 12:3-5), the advancement of them into a people from low and mean beginnings (Ho 12:12,13), and the provision he had made them of helps for their souls by the prophets he sent them, Ho 12:10. III. A call to the unconverted to turn to God, Ho 12:6. IV. An intimation of mercy that God had in store for them, Ho 12:9.
 
-## The Crimes of Israel and Judah; Expostulations with Israel. (b. c. 723.)
+## The Crimes of Israel and Judah; Expostulations with Israel (723 BC)
 
 > **¹** Ephraim feedeth on wind, and followeth after the east wind: he daily increaseth lies and desolation; and they do make a covenant with the Assyrians, and oil is carried into Egypt.  
 > **²** The LORD hath also a controversy with Judah, and will punish Jacob according to his ways; according to his doings will he recompense him.  
@@ -31,7 +31,7 @@ III\. Both Ephraim and Judah are put in mind of their father Jacob, whose seed t
 
 (2.) Here is a use of exhortation, Ho 12:6. "Is this so, that Jacob thy father had this communion with the Lord God of hosts, and is this still his memorial?" Then, [1.] Let those that have gone astray from God be converted to him: *Therefore turn thou to thy God.* He that was the God of Jacob is the God of Israel, is *thy God;* from him thou hast unjustly and unkindly revolted; therefore turn thou to him by repentance and faith, turn to him as thine, to love him, obey him, and depend upon him. [2.] Let those that are converted to him walk with him in all holy conversation and godliness: "*Keep mercy and judgment,* mercy in relieving and succouring the poor and distressed, judgment in rendering to all their due; be kind to all; do wrong to none. *Keep piety and judgment*" (so it may be read); "live *righteously and godly in this present world;* be devout and be honest. Do not only practise these occasionally, but be careful, and constant, and conscientious in the practice of them." [3.] Let those that walk with God be encouraged to live a life of dependence upon him: "*Wait on thy God continually,* with a believing expectation to receive from him all the succours and supplies thou standest in need of." Those that live a life of conformity to God may live a life of confidence and comfort in him, if it be not their own fault. Let our *eyes* be *ever towards the Lord,* and let us preserve a holy security and serenity of mind under the protection of the divine power and the influence of the divine favour, looking, without anxiety, for a dubious event, and by faith keeping our spirits sedate and even; this is waiting on God as our God in covenant, and this we must do continually.
 
-## Reproof for Sin; Judgment Threatened; Memorials of Divine Mercy. (b. c. 723.)
+## Reproof for Sin; Judgment Threatened; Memorials of Divine Mercy (723 BC)
 
 > **⁷** *He is* a merchant, the balances of deceit *are* in his hand: he loveth to oppress.  
 > **⁸** And Ephraim said, Yet I am become rich, I have found me out substance: *in* all my labours they shall find none iniquity in me that *were* sin.  

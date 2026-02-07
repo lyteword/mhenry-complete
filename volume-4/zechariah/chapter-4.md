@@ -6,7 +6,7 @@ weight: 4
 
 In this chapter we have another comfortable vision, which, as it was explained to the prophet, had much in it for the encouragement of the people of God in their present straits, which were so great that they thought their case helpless, that their temple could never be rebuilt nor their city replenished; and therefore the scope of the vision is to show that God would, by his own power, perfect the work, though the assistance given to it by its friends were ever so weak, and the resistance given to it by its enemies were ever so strong. Here is, I. The awakening of the prophet to observe the vision, Zec 2:1. II. The vision itself, of a candlestick with seven lamps, which were supplied with oil, and kept burning, immediately from two olive-trees that grew by it, one on either side, Zec 2:2,3. III. The general encouragement hereby intended to be given to the builders of the temple to go on in that good work, assuring them that it should be brought to perfection at last, Zec 2:4-10. IV. The particular explication of the vision, for the illustration of these assurances, Zec 2:11-14.
 
-## The Vision of the Golden Candlestick; The Building of the Temple Encouraged. (b. c. 520.)
+## The Vision of the Golden Candlestick; The Building of the Temple Encouraged (520 BC)
 
 > **¹** And the angel that talked with me came again, and waked me, as a man that is wakened out of his sleep,  
 > **²** And said unto me, What seest thou? And I said, I have looked, and behold a candlestick all *of* gold, with a bowl upon the top of it, and his seven lamps thereon, and seven pipes to the seven lamps, which *are* upon the top thereof:  
@@ -41,7 +41,7 @@ IV\. The general intention of this vision. Without a critical descant upon every
 
 7\. This shall highly magnify the wisdom and care of God's providence, which is always employed for the good of his church. Zerubbabel does his part, does as much as man can do to forward the work, but it is *with those seven, those seven eyes of the Lord* which we read of Zec 3:9. He could do nothing if the watchful, powerful, gracious providence of God did not go before him and go along with him in it. Except the Lord had built this house, Zerubbabel and the rest would have *laboured in vain,* Ps 127:1. These *eyes of the Lord* are those that *run to and fro through the whole earth,* that take cognizance of all the creatures and all their actions (2Ch 16:9), and inspire and direct all, according to the divine counsels. Note, We must not think that God is so taken up with the affairs of his church as to neglect the world; but it is a comfort to us that the same all-wise almighty Providence that governs the nations of the earth is in a particular manner conversant about the church. Those *seven eyes* that *run through the earth* are all *upon the stone* that Zerubbabel is laying straight with his plummet, to see that it be well laid. And those that have the plummet in their hand must look up to *those eyes of the Lord,* must have a constant regard to divine Providence, and act in dependence upon its guidance and submission to its disposals.
 
-## The Vision of the Olive-Trees. (b. c. 520.)
+## The Vision of the Olive-Trees (520 BC)
 
 > **¹¹** Then answered I, and said unto him, What *are* these two olive trees upon the right *side* of the candlestick and upon the left *side* thereof?  
 > **¹²** And I answered again, and said unto him, What *be these* two olive branches which through the two golden pipes empty the golden *oil* out of themselves?  

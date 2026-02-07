@@ -6,7 +6,7 @@ weight: 41
 
 It is a very tragical story that is related in this chapter, and shows that evil pursues sinners. The black cloud that was gathering in the foregoing chapter here bursts in a dreadful storm. Those few Jews that escaped the captivity were proud to think that they were still in their own land, when their brethren had gone they knew not whither, were fond of the wine and summer-fruits they had gathered, and were very secure under Gedaliah's protectorship, when, on a sudden, even these remains prove ruins too. I. Gedaliah is barbarously slain by Ishmael, Jer 41:1,2. II. All the Jews that were with him were slain likewise (Jer 41:3) and a pit filled with their dead bodies, Jer 41:9. III. Some devout men, to the number of fourscore, that were going towards Jerusalem, were drawn in by Ishmael, and murdered likewise, Jer 41:4-7. Only ten of them escaped, Jer 41:8. IV. Those that escaped the sword were taken prisoners by Ishmael, and carried off towards the country of the Ammonites, Jer 41:10. V. By the conduct and courage of Johanan, though the death of the slain is not revenged, yet the prisoners are recovered, and he now becomes their commander-in-chief, Jer 41:11-16. VI. His project is to carry them into the land of Egypt (ver. Jer 41:17-18), which we shall hear more of in the next chapter.
 
-## The Murder of Gedaliah. (b. c. 588.)
+## The Murder of Gedaliah (588 BC)
 
 > **¹** Now it came to pass in the seventh month, *that* Ishmael the son of Nethaniah the son of Elishama, of the seed royal, and the princes of the king, even ten men with him, came unto Gedaliah the son of Ahikam to Mizpah; and there they did eat bread together in Mizpah.  
 > **²** Then arose Ishmael the son of Nethaniah, and the ten men that were with him, and smote Gedaliah the son of Ahikam the son of Shaphan with the sword, and slew him, whom the king of Babylon had made governor over the land.  
@@ -29,7 +29,7 @@ III\. Some good honest men, that were going all in tears to lament the desolatio
 
 IV\. He carried off the people prisoners. *The king's daughters* (whom the Chaldeans cared not for troubling themselves with when they had the king's sons) and the poor of the land, the vine-dressers and husband-men, that were committed to Gedaliah's charge, were all led away prisoners towards the country of *the Ammonites* (Jer 41:10), Ishmael probably intending to make a present of them, as the trophies of his barbarous victory, to the king of that country, that set him on. This melancholy story is a warning to us never to be secure in this world. Worse may be yet to come when we think the worst is over; and that end of one trouble, which we fancy to be the end of all trouble, may prove to be the beginning of another, of a greater. These prisoners thought, *Surely the bitterness of death,* and of captivity, *is past;* and yet some died by the sword and others went into captivity. When we think ourselves safe, and begin to be easy, destruction may come that way that we little expect it. There is many a ship wrecked in the harbour. We can never be sure of peace on this side heaven.
 
-## Johanan Pursues Ishmael; Ishmael's Retreat. (b. c. 588.)
+## Johanan Pursues Ishmael; Ishmael's Retreat (588 BC)
 
 > **¹¹** But when Johanan the son of Kareah, and all the captains of the forces that *were* with him, heard of all the evil that Ishmael the son of Nethaniah had done,  
 > **¹²** Then they took all the men, and went to fight with Ishmael the son of Nethaniah, and found him by the great waters that *are* in Gibeon.  

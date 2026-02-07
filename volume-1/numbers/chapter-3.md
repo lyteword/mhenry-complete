@@ -6,7 +6,7 @@ weight: 3
 
 This chapter and the next are concerning the tribe of Levi, which was to be mustered and marshalled by itself, and not in common with the other tribes, intimating the particular honour put upon them and the particular duty and service required from them. The Levites are in this chapter considered, I. As attendants on, and assistants to, the priests in the temple-service. And so we have an account, 1. Of the priests themselves (Nu 3:1-4) and their work, Nu 3:10. 2. Of the gift of the Levites to them (Nu 3:5-9), in order to which they are mustered (Nu 3:14-16), and the sum of them taken, Nu 3:39. Each particular family of them is mustered, has its place assigned and its charge, the Gershonites (Nu 3:17-26), the Kohathites (Nu 3:27-32), the Merarites, Nu 3:33-39. II. As equivalents for the first-born, Nu 3:11-13. 1. The first-born are numbered, and the Levites taken instead of them, as far as the number of the Levites went, Nu 3:40-45. 2. What first-born there were more than the Levites were redeemed, Nu 3:46-51, etc.
 
-## The Separation of the Levites. (b. c. 1490.)
+## The Separation of the Levites (1490 BC)
 
 > **¹** These also *are* the generations of Aaron and Moses in the day *that* the LORD spake with Moses in Mount Sinai.  
 > **²** And these *are* the names of the sons of Aaron; Nadab the firstborn, and Abihu, Eleazar, and Ithamar.  

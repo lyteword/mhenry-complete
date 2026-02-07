@@ -6,7 +6,7 @@ weight: 7
 
 In this chapter we have, I. Christ confirming the doctrine he had preached in the former chapter, with two glorious miracles—the curing of one at a distance, and that was the centurion's servant (Lu 7:1-10), and the raising of one to life that was dead, the widow's son at Nain, Lu 7:11-18. II. Christ confirming the faith of John who was now in prison, and of some of his disciples, by sending him a short account of the miracles he wrought, in answer to a question he received from him (Lu 7:19-23), to which he adds an honourable testimony concerning John, and a just reproof to the men of that generation for the contempt they put upon him and his doctrine, Lu 7:24-35. III. Christ comforting a poor penitent that applied herself to him, all in tears of godly sorrow for sin, assuring her that her sins were pardoned, and justifying himself in the favour he showed her against the cavils of a proud Pharisee, Lu 7:36-50.
 
-## The Healing of the Centurion's Servant.
+## The Healing of the Centurion's Servant
 
 > **¹** Now when he had ended all his sayings in the audience of the people, he entered into Capernaum.  
 > **²** And a certain centurion's servant, who was dear unto him, was sick, and ready to die.  
@@ -39,7 +39,7 @@ VII\. Our Lord Jesus was wonderfully well pleased with the faith of the centurio
 
 VIII\. The cure was *presently* and *perfectly* wrought (Lu 7:10). *They that were sent* knew they had their errand, and therefore went back, and found the servant well, and under no remains at all of his distemper. Christ will take cognizance of the distressed case of poor servants, and be ready to relieve them; for there *is no respect of persons with him.* Nor are the Gentiles excluded from the benefit of his grace; nay, this was a specimen of that much greater faith which would be found among the Gentiles, when the gospel should be published, than among the Jews.
 
-## The Widow of Nain.
+## The Widow of Nain
 
 > **¹¹** And it came to pass the day after, that he went into a city called Nain; and many of his disciples went with him, and much people.  
 > **¹²** Now when he came nigh to the gate of the city, behold, there was a dead man carried out, the only son of his mother, and she was a widow: and much people of the city was with her.  
@@ -68,7 +68,7 @@ III\. How it was wrought by our Lord Jesus.
 
 IV\. What influence it had upon the people (Lu 7:16): *There came a fear on all;* it frightened them all, to see a dead man start up alive out of his coffin in the open street, at the command of a man; they were all struck with wonder at his miracle, and *glorified God.* The Lord and his goodness, as well as the Lord and his greatness, are to be feared. The inference they drew from it was, "*A great prophet is risen up among us,* the great prophet that we have been long looking for; doubtless, he is one divinely inspired who can thus breathe life into the dead, and in him *God hath visited his people,* to redeem them, as was expected," Lu 1:68. This would be *life from the dead* indeed to all them that waited for the consolation of Israel. When dead souls are thus raised to spiritual life, by a divine power going along with the gospel, we must glorify God, and look upon it as a gracious visit to his people. The report of this miracle was carried, 1. In general, all the country over (Lu 7:17): *This rumour of him,* that he was the great prophet, *went forth* upon the wings of fame *through all Judea,* which lay a great way off, and throughout all Galilee, which was the *region round about.* Most had this notice of him, yet few believed in him, and gave up themselves to him. Many have the *rumour* of Christ's gospel in their ears that have not the *savour* and *relish* of it in their souls. 2. In particular, it was carefully brought to John Baptist, who was now in prison (Lu 7:18): *His disciples came,* and gave him an account of all things, that he might know that though *he* was bound yet *the word of the Lord was not bound;* God's work was going on, though he was laid aside.
 
-## John's Message to Jesus; The Ministry of John and of Christ.
+## John's Message to Jesus; The Ministry of John and of Christ
 
 > **¹⁹** And John calling *unto him* two of his disciples sent *them* to Jesus, saying, Art thou he that should come? or look we for another?  
 > **²⁰** When the men were come unto him, they said, John Baptist hath sent us unto thee, saying, Art thou he that should come? or look we for another?  
@@ -124,7 +124,7 @@ III\. We have here the just censure of the men of that generation, who were not 
 
 3\. He shows that, notwithstanding this, God will be glorified in the salvation of a chosen remnant (Lu 7:35): *Wisdom is justified of all her children.* There are those who are given to wisdom *as her children,* and they shall be brought by the grace of God to submit to wisdom's conduct and government, and thereby to justify wisdom in the ways she takes for bringing them to that submission; for to them they are effectual, and thereby appear well chosen. Wisdom's children are herein unanimous, one and all, they have all a complacency in the methods of grace which divine wisdom takes, and think never the worse of them for their being ridiculed by some.
 
-## Christ in the House of the Pharisee.
+## Christ in the House of the Pharisee
 
 > **³⁶** And one of the Pharisees desired him that he would eat with him. And he went into the Pharisee's house, and sat down to meat.  
 > **³⁷** And, behold, a woman in the city, which was a sinner, when she knew that *Jesus* sat at meat in the Pharisee's house, brought an alabaster box of ointment,  

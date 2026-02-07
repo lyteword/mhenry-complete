@@ -6,7 +6,7 @@ weight: 25
 
 This psalm is full of devout affection to God, the out-goings of holy desires towards his favour and grace and the lively actings of faith in his promises. We may learn out of it, I. What it is to pray, Ps 25:1,15. II. What we must pray for, the pardon of sin (Ps 25:6,7,18), direction in the way of duty (Ps 25:4,5), the favour of God (Ps 25:16), deliverance out of our troubles (Ps 25:17,18), preservation from our enemies (Ps 25:20,21), and the salvation of the church of God, Ps 25:22. III. What we may plead in prayer, our confidence in God (Ps 25:2,3,5,20,21), our distress and the malice of our enemies (Ps 25:17,19), our sincerity, Ps 25:21. IV. What precious promises we have to encourage us in prayer, of guidance and instruction (Ps 25:8,9,12), the benefit of the covenant (Ps 25:10), and the pleasure of communion with God, Ps 25:13,14. It is easy to apply the several passages of this psalm to ourselves in the singing of it; for we have often troubles, and always sins, to complain of at the throne of grace.
 
-## Earnest Supplications.
+## Earnest Supplications
 
 A psalm of David.
 
@@ -36,7 +36,7 @@ IV\. He appeals to God's infinite mercy, and casts himself upon that, not preten
 
 V\. He is in a special manner earnest for the pardon of his sins (Ps 25:7): "*O remember not the sins of my youth.* Lord, remember thy mercies (Ps 25:6), which speak for me, and not my sins, which speak against me." Here is, 1. An implicit confession of sin; he specifies particularly the sins of his youth. Note, Our youthful faults and follies should be matter of our repentance and humiliation long after, because time does not wear out the guilt of sin. Old people should mourn for the sinful mirth and be in pain for the sinful pleasures of their youth. He aggravates his sins, calling them his *transgressions;* and the more holy, just, and good the law is, which sin is the transgression of, the more exceedingly sinful it ought to appear to us. 2. An express petition for mercy, (1.) That he might be acquitted from guilt: "*Remember not the sins of my youth;* that is, remember them not against me, lay them not to my charge, enter not into judgment with me for them." When God pardons sin he is said to *remember it no more,* which denotes a plenary remission; he forgives and forgets. (2.) That he might be accepted in God's sight: "Remember thou me; think on me for good, and come in seasonably for my succour." We need desire no more to make us happy than for God to remember us with favour. His plea is, "according to thy mercy, and for thy goodness-sake." Note, It is God's goodness and not ours, his mercy and not our own merit, that must be our plea for the pardon of sin and all the good we stand in need of. This plea we must always rely upon, as those that are sensible of our poverty and unworthiness and as those that are satisfied of the riches of God's mercy and grace.
 
-## Divine Goodness and Mercy.
+## Divine Goodness and Mercy
 
 > **⁸** Good and upright *is* the LORD: therefore will he teach sinners in the way.  
 > **⁹** The meek will he guide in judgment: and the meek will he teach his way.  
@@ -64,7 +64,7 @@ III\. What these promises are.
 
 4\. That God will admit them into the secret of communion with himself (Ps 25:14): *The secret of the Lord is with those that fear him.* They understand his word; for, *if any man do his will, he shall know of the doctrine whether it be of God,* Joh 7:17. Those that receive the truth in the love of it, and experience the power of it, best understand the mystery of it. They know the meaning of his providence, and what God is doing with them, better than others. *Shall I hide from Abraham the things that I do?* Ge 18:17. He call them not *servants,* but *friends,* as he called Abraham. They know by experience the blessings of the covenant and the pleasure of that fellowship which gracious souls have with the Father and with his Son Jesus Christ. This honour have all his saints.
 
-## Precious Promises; Petitions.
+## Precious Promises; Petitions
 
 > **¹⁵** Mine eyes *are* ever toward the LORD; for he shall pluck my feet out of the net.  
 > **¹⁶** Turn thee unto me, and have mercy upon me; for I *am* desolate and afflicted.  

@@ -6,7 +6,7 @@ weight: 3
 
 A stupid, senseless, heedless people, are, in this chapter, called upon to take notice, I. Of the judgments of God denounced against them and the warnings he gave them of those judgments, and to be hereby awakened out of their security, Am 3:1-8. II. Of the sins that were found among them, by which God was provoked thus to threaten, thus to punish, that they might justify God in his controversy with them, and, unless they repented and reformed, might expect no other than that God should proceed in his controversy, Am 3:9-15.
 
-## God's Remonstrance with Israel. (b. c. 790.)
+## God's Remonstrance with Israel (790 BC)
 
 > **¹** Hear this word that the LORD hath spoken against you, O children of Israel, against the whole family which I brought up from the land of Egypt, saying,  
 > **²** You only have I known of all the families of the earth: therefore I will punish you for all your iniquities.  
@@ -33,7 +33,7 @@ VI\. Let them know that their prophets, who give them warning of judgments appro
 
 VII\. Let them know that they ought to tremble before God upon the fair warning he had given them, as they would, 1. Upon the sounding of a trumpet, to give notice of the approach of the enemy, that all may stand upon their guard and stand to their arms: *Shall a trumpet be blown in the city, and the people be not afraid,* or *run together?* so some read it, Am 3:6. Will they not immediately come together in a fright, to consider what is best to be done for the common safety? Yet when God by his prophets gives them notice of their danger, and summons them to come and enlist themselves under his banner, it makes no impression; they will sooner give credit to a watchman on their walls than to a prophet sent of God, will sooner obey the summons of the governor of their city than the orders given them by the Governor of the world. God says, *Hearken to the voice of the trumpet;* but *they will not hearken,* nay, and they tell him plainly that they will not, Jer 6:17. 2. Upon the roaring of a lion. God is sometimes *as a lion, and a young lion, to the house of Judah,* Ho 5:14. The lion roars before he tears; thus God warns before he wounds. If therefore the lion roars upon a poor traveller (as he did against Samson, Jdg 14:5), he cannot but be put into great consternation; yet the *Lord roars out of Zion* (Am 1:2), and none are afraid, but they go on securely as if they were in no danger. Note, The fair warning given to a careless world, if it be not taken, will aggravate its condemnation another day. The lion roared, and they were not moved with fear to prepare an ark. O the amazing stupidity of an unbelieving world, that will not be wrought upon, no, not by the *terrors of the Lord!*
 
-## Israel Convicted and Condemned. (b. c. 790.)
+## Israel Convicted and Condemned (790 BC)
 
 > **⁹** Publish in the palaces at Ashdod, and in the palaces in the land of Egypt, and say, Assemble yourselves upon the mountains of Samaria, and behold the great tumults in the midst thereof, and the oppressed in the midst thereof.  
 > **¹⁰** For they know not to do right, saith the LORD, who store up violence and robbery in their palaces.  

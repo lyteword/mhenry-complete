@@ -6,7 +6,7 @@ weight: 1
 
 After the introduction (2Co 1:1,2) the apostle begins with the narrative of his troubles and God's goodness, which he had met with in Asia, by way of thanksgiving to God (2Co 1:3-6), and for the edification of the Corinthians, 2Co 1:7-11. Then he attests his and his fellow-labourers' integrity (2Co 1:12-14), and afterwards vindicates himself from the imputation of levity and inconstancy, 2Co 1:15-24.
 
-## Grateful Acknowledgments. (a. d. 57.)
+## Grateful Acknowledgments (57 AD)
 
 > **¹** Paul, an apostle of Jesus Christ by the will of God, and Timothy *our* brother, unto the church of God which is at Corinth, with all the saints which are in all Achaia:  
 > **²** Grace *be* to you and peace from God our Father, and *from* the Lord Jesus Christ.  
@@ -17,7 +17,7 @@ I\. The inscription; and therein, 1. The person from whom it was sent, namely, P
 
 II\. The salutation or apostolical benediction, which is the same as in his former epistle; and therein the apostle desires the two great and comprehensive blessings, grace and peace, for those Corinthians. These two benefits are fitly joined together, because there is no good and lasting peace without true grace; and both of them come *from God our Father, and from the Lord Jesus Christ,* who is the procurer and dispenser of those benefits to fallen man, and is prayed to as God.
 
-## Paul's Sufferings and Consolations. (a. d. 57.)
+## Paul's Sufferings and Consolations (57 AD)
 
 > **³** Blessed *be* God, even the Father of our Lord Jesus Christ, the Father of mercies, and the God of all comfort;  
 > **⁴** Who comforteth us in all our tribulation, that we may be able to comfort them which are in any trouble, by the comfort wherewith we ourselves are comforted of God.  
@@ -34,7 +34,7 @@ II\. The reasons of the apostle's thanksgivings, which are these:—
 
 2\. The advantage which others might receive; for God intended that they *should be able to comfort others* in trouble (2Co 1:4), by communicating to them their experiences of the divine goodness and mercy; and the sufferings of good men have a tendency to this good end (2Co 1:6) when they are endued with faith and patience. Note, (1.) What favours God bestows on us are intended not only to make us cheerful ourselves, but also that we may be useful to others. (2.) If we do imitate the faith and patience of good men in their afflictions, we may hope to partake of their consolations here and their salvation hereafter.
 
-## Paul's Sincerity and Affliction. (a. d. 57.)
+## Paul's Sincerity and Affliction (57 AD)
 
 > **⁷** And our hope of you *is* stedfast, knowing, that as ye are partakers of the sufferings, so *shall ye be* also of the consolation.  
 > **⁸** For we would not, brethren, have you ignorant of our trouble which came to us in Asia, that we were pressed out of measure, above strength, insomuch that we despaired even of life:  
@@ -44,7 +44,7 @@ II\. The reasons of the apostle's thanksgivings, which are these:—
 
 In these verses the apostle speaks for the encouragement and edification of the Corinthians; and tells them (2Co 1:7) of his persuasion or stedfast hope that they should receive benefit by the troubles he and his companions in labour and travel had met with, that their faith should not be weakened, but their consolations increased. In order to this he tells them, 1. What their sufferings had been (2Co 1:8): *We would not have you ignorant of our trouble.* It was convenient for the churches to know what were the sufferings of their ministers. It is not certain what particular troubles in Asia are here referred to; whether the tumult raised by Demetrius at Ephesus, mentioned Ac 19:24-41, or the fight with beasts at Ephesus, mentioned in the former epistle (1Co 15:32), or some other trouble; for the apostle was in deaths often. This however is evident, that they were great tribulations. They *were pushed out of measure,* to a very extraordinary degree, above the common strength of men, or of ordinary Christians, to bear up under them, insomuch that they *despaired even of life* (2Co 1:8), and thought they should have been killed, or have fainted away and expired. 2. What they did in their distress: *They trusted in God.* And they were brought to this extremity in order *that they should not trust in themselves but in God,* 2Co 1:9. Note, God often brings his people into great straits, that they may apprehend their own insufficiency to help themselves, and may be induced to place their trust and hope in his all-sufficiency. Our extremity is God's opportunity. *In the mount will the Lord be seen;* and we may safely trust in *God, who raiseth the dead,* 2Co 1:9. God's raising the dead is a proof of his almighty power. He that can do this can do any thing, can do all things, and is worthy to be trusted in at all times. Abraham's faith fastened upon this instance of the divine power: *He believed God who quickeneth the dead,* Ro 4:17. If we should be brought so low as to despair even of life, yet we may then trust in God, who can bring back not only from the gates, but from the jaws, of death. 3. What the deliverance was that they had obtained; and this was seasonable and continued. Their hope and trust were not in vain, nor shall any who trust in him be ashamed. God had delivered them, and did still deliver them, 2Co 1:10. *Having obtained help of God, they continued to that day,* Ac 26:22. 4. What use they made of this deliverance: *We trust that he will yet deliver us* (2Co 1:10), that God will deliver to the end, and *preserve to his heavenly kingdom.* Note, Past experiences are great encouragements to faith and hope, and they lay great obligations to trust in God for time to come. We reproach our experiences if we distrust God in future straits, who hath delivered as in former troubles. David, even when a young man, and when he had but a small stock of experiences, argued after the manner of the apostle here, 1Sa 17:37. 5. What was desired of the Corinthians upon this account: *That they would help together by prayer for them* (2Co 1:11), by social prayer, agreeing and joining together in prayer on their behalf. Note, our trusting in God must not supersede the use of any proper and appointed means; and prayer is one of those means. We should pray for ourselves and for one another. The apostle had himself a great interest in the throne of grace, yet he desires the help of others' prayers. If we thus help one another by our prayers, we may hope for an occasion of *giving thanks by many* for answer of prayer. And it is our duty not only to help one another with prayer, but in praise and thanksgiving, and thereby to make suitable returns for benefits received.
 
-## Paul's Sincerity and Affliction. (a. d. 57.)
+## Paul's Sincerity and Affliction (57 AD)
 
 > **¹²** For our rejoicing is this, the testimony of our conscience, that in simplicity and godly sincerity, not with fleshly wisdom, but by the grace of God, we have had our conversation in the world, and more abundantly to you-ward.  
 > **¹³** For we write none other things unto you, than what ye read or acknowledge; and I trust ye shall acknowledge even to the end;  
@@ -56,7 +56,7 @@ I\. He appeals to the testimony of conscience with rejoicing (2Co 1:12), in whic
 
 II\. He appeals to the knowledge of the Corinthians with hope and confidence, 2Co 1:13,14. Their conversation did in part fall under the observation of the Corinthians; and these knew how they behaved themselves, *how holily, and justly, and unblamably;* they never found any thing in them unbecoming an honest man. This they had acknowledged in part already, and he doubted not but they would still do so to the end, that is, that they would never have any good reason to think or say otherwise of him, but that he was an honest man. And so there would be mutual rejoicing in one another. *We are your rejoicing, even as you also are ours in the day of the Lord Jesus.* Note, It is happy when ministers and people do rejoice in each other here; and this joy will be complete in that day when the great Shepherd of the sheep shall appear.
 
-## Paul's Sincerity and Affliction. (a. d. 57.)
+## Paul's Sincerity and Affliction (57 AD)
 
 > **¹⁵** And in this confidence I was minded to come unto you before, that ye might have a second benefit;  
 > **¹⁶** And to pass by you into Macedonia, and to come again out of Macedonia unto you, and of you to be brought on my way toward Judæa.  

@@ -6,7 +6,7 @@ weight: 5
 
 This chapter gives us some account of the two tribes and a half that were seated on the other side Jordan. I. Of Reuben, 1Ch 5:1-10. II. Of Gad, 1Ch 5:11-17. III. Of the half-tribe of Manasseh, 1Ch 5:23,24. IV. Concerning all three acting in conjunction we are told, 1. How they conquered the Hagarites, 1Ch 5:18-22. 2. How they were, at length, themselves conquered, and made captives, by the king of Assyria, because they had forsaken God, 1Ch 5:25,26.
 
-## Genealogies. (b. c. 715.)
+## Genealogies (715 BC)
 
 > **¹** Now the sons of Reuben the firstborn of Israel, (for he *was* the firstborn; but, forasmuch as he defiled his father's bed, his birthright was given unto the sons of Joseph the son of Israel: and the genealogy is not to be reckoned after the birthright.  
 > **²** For Judah prevailed above his brethren, and of him *came* the chief ruler; but the birthright *was* Joseph's:)  
@@ -38,7 +38,7 @@ I\. Of the tribe of Reuben, where we have,
 
 II\. Of the tribe of Gad. Some great families of that tribe are here named (1Ch 5:12), seven that were the children of Abihail, whose pedigree is carried upwards from the son to the father (1Ch 5:14,15), as that 1Ch 5:4,5, is brought downwards from father to son. These genealogies were perfected in the days of Jotham king of Judah, but were begun some years before, in the reign of Jeroboam II, king of Israel. What particular reason there was for taking these accounts then does not appear; but it was just before they were carried away captive by the Assyrians, as appears 2Ki 15:29,31. When the judgments of God were ready to break out against them for their wretched degeneracy and apostasy then were they priding themselves in their genealogies, that they were the children of the covenant; as the Jews, in our Saviour's time, who, when they were ripe for ruin, boasted, *We have Abraham to our father.* Or there might be a special providence in it, and a favourable intimation that though they were, for the present, cast out, they were not cast off for ever. What we design to call for hereafter we keep an inventory of.
 
-## The Defeat of the Hagarites. (b. c. 750.)
+## The Defeat of the Hagarites (750 BC)
 
 > **¹⁸** The sons of Reuben, and the Gadites, and half the tribe of Manasseh, of valiant men, men able to bear buckler and sword, and to shoot with bow, and skilful in war, *were* four and forty thousand seven hundred and threescore, that went out to the war.  
 > **¹⁹** And they made war with the Hagarites, with Jetur, and Nephish, and Nodab.  

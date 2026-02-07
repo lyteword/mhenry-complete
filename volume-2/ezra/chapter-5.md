@@ -6,7 +6,7 @@ weight: 5
 
 We left the temple-work at a full stop; but, being God's work, it shall be revived, and here we have an account of the reviving of it. It was hindered by might and power, but it was set a-going again "by the Spirit of the Lord of hosts." Now here we are told how that blessed Spirit, I. Warmed its cool-hearted friends and excited them to build, Ezr 5:1,2. II. Cooled its hot-headed enemies, and brought them to better tempers; for, though they secretly disliked the work as much as those in the foregoing chapter, yet, 1. They were more mild towards the builders, Ezr 5:3-5. 2. They were more fair in their representation of the matter to the king, of which we have here an account, Ezr 5:6-17.
 
-## The Jews Encouraged by Their Prophets. (b. c. 520.)
+## The Jews Encouraged by Their Prophets (520 BC)
 
 > **¹** Then the prophets, Haggai the prophet, and Zechariah the son of Iddo, prophesied unto the Jews that *were* in Judah and Jerusalem in the name of the God of Israel, *even* unto them.  
 > **²** Then rose up Zerubbabel the son of Shealtiel, and Jeshua the son of Jozadak, and began to build the house of God which *is* at Jerusalem: and with them *were* the prophets of God helping them.  
@@ -23,7 +23,7 @@ I\. They had two good ministers, who, in God's name, earnestly persuaded them to
 
 II\. They had two good magistrates, who were forward and active in this work. Zerubbabel their chief prince, and Jeshua their chief priest, Ezr 5:2. Those that are in places of dignity and power ought with their dignity to put honour upon and with their power to put life into every good work: thus it becomes those that preceded, and those that preside, with an exemplary care and zeal to *fulfil all righteousness* and to *go before in a good work.* These great men thought it no disparagement to them, but a happiness, to be taught and prescribed to by the prophets of the Lord, and were glad of their help in reviving this good work. Read the Ezr 5:1,2, Hag 1:1-15 here (for that is the best comment on these two verses) and see what great things God does by his word, which he magnifies above all his name, and by his Spirit working with it.
 
-## The Case Represented to Darius. (b. c. 519.)
+## The Case Represented to Darius (519 BC)
 
 > **³** At the same time came to them Tatnai, governor on this side the river, and Shethar-boznai, and their companions, and said thus unto them, Who hath commanded you to build this house, and to make up this wall?  
 > **⁴** Then said we unto them after this manner, What are the names of the men that make this building?  

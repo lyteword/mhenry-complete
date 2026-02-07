@@ -4,7 +4,7 @@ weight: 15
 
 # Chapter 15
 
-## The Proper Use of the Tongue.
+## The Proper Use of the Tongue
 
 > **¹** A soft answer turneth away wrath: but grievous words stir up anger.  
 
@@ -14,7 +14,7 @@ Solomon, as conservator of the public peace, here tells us, 1. How the peace may
 
 Note, 1. A good heart by the tongue becomes very useful. He that has knowledge is not only to enjoy it, for his own entertainment, but to use it, to use it aright, for the edification of others; and it is *the tongue* that must make use of it in pious profitable discourse, in giving suitable and seasonable instructions, counsels, and comforts, with all possible expressions of humility and love, and then *knowledge is used aright;* and to him that has, and thus uses what he has, more shall be given. 2. A wicked heart by the tongue becomes very hurtful; for *the mouth of fools belches out foolishness,* which is very offensive; and the corrupt communication which proceeds from an evil treasure within (the filthiness, and foolish talking, and jesting) corrupts the good manners of some and debauches them, and grieves the good hearts of others and disturbs them.
 
-## The Righteous and the Wicked Contrasted.
+## The Righteous and the Wicked Contrasted
 
 > **³** The eyes of the LORD *are* in every place, beholding the evil and the good.  
 
@@ -60,7 +60,7 @@ A scorner is one that not only makes a jest of God and religion, but bids defian
 
 Here, 1. Harmless mirth is recommended to us, as that which contributes to the health of the body, making men lively and fit for business, and to the acceptableness of the conversation, making the face to shine and rendering us pleasant one to another. A cheerful spirit, under the government of wisdom and grace, is a great ornament to religion, puts a further lustre upon the beauty of holiness, and makes men the more capable of doing good. 2. Hurtful melancholy is what we are cautioned against, as a great enemy to us, both in our devotion and in our conversation: *By sorrow of the heart,* when it has got dominion and plays the tyrant, as it will be apt to do it if be indulged awhile, *the spirit is broken* and sunk, and becomes unfit for the service of God. *The sorrow of the world works death.* Let us therefore *weep as though we wept not,* in justice to ourselves, as well as in conformity to God and his providence.
 
-## Wisdom and Folly.
+## Wisdom and Folly
 
 > **¹⁴** The heart of him that hath understanding seeketh knowledge: but the mouth of fools feedeth on foolishness.  
 
@@ -107,7 +107,7 @@ Note, 1. We speak wisely when we speak seasonably: *The answer of the mouth* wil
 
 The way of wisdom and holiness is here recommended to us, 1. As very safe and comfortable: It is *the way of life,* the way that leads to eternal life, in which we shall find the joy and satisfaction which will be the life of the soul, and at the end of which we shall find the perfection of blessedness. Be wise and live. It is the way to escape that misery which we cannot but see ourselves exposed to, and in danger of. It is to *depart from hell beneath,* from the snares of hell, the temptations of Satan, and all his wiles, from the pains of hell, that everlasting destruction which our sins have deserved. 2. As very sublime and honourable: It *is above.* A good man sets his *affections on things above,* and deals in those things. His *conversation is in heaven;* his way leads directly thither; there his treasure is, *above,* out of the reach of enemies, above the changes of this lower world. A good man is truly noble and great; his desires and designs are high, and he lives above the common rate of other men. It is above the capacity and out of the sight of foolish men.
 
-## The Righteous and the Wicked Contrasted.
+## The Righteous and the Wicked Contrasted
 
 > **²⁵** The LORD will destroy the house of the proud: but he will establish the border of the widow.  
 

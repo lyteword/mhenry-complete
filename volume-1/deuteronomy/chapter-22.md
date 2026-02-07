@@ -6,7 +6,7 @@ weight: 22
 
 The laws of this chapter provide, I. For the preservation of charity and good neighbourship, in the care of strayed or fallen cattle, De 22:1-4. II. For the preservation of order and distinction, that men and women should not wear one another's clothes (De 22:5), and that other needless mixtures should be avoided, De 22:9-11. III. For the preservation of birds, De 22:6,7. IV. Of life, De 22:8. V. Of the commandments, De 22:12. VI. Of the reputation of a wife abused, if she were innocent (De 22:13-19), but for her punishment if guilty, De 22:20,21. VII. For the preservation of the chastity of wives, De 22:22. Virgins betrothed (De 22:23-27), or not betrothed, De 22:28,29. And, lastly, against incest, De 22:30.
 
-## Kindness and Humanity. (b. c. 1451.)
+## Kindness and Humanity (1451 BC)
 
 > **¹** Thou shalt not see thy brother's ox or his sheep go astray, and hide thyself from them: thou shalt in any case bring them again unto thy brother.  
 > **²** And if thy brother *be* not nigh unto thee, or if thou know him not, then thou shalt bring it unto thine own house, and it shall be with thee until thy brother seek after it, and thou shalt restore it to him again.  
@@ -15,7 +15,7 @@ The laws of this chapter provide, I. For the preservation of charity and good ne
 
 The kindness that was commanded to be shown in reference to an enemy (Ex 23:4,5, etc.) is here required to be much more done for a neighbour, though he were not an Israelite, for the law is consonant to natural equity. 1. That strayed cattle should be brought back, either to the owner or to the pasture out of which they had gone astray, De 22:1,2. This must be done in pity to the very cattle, which, while they wandered, were exposed; and in civility and respect to the owner, nay, and in justice to him, for it was doing as we would be done by, which is one of the fundamental laws of equity. Note, Religion teaches us to be neighbourly, and to be ready to do all good offices, as we have opportunity, to all men. In doing this, (1.) They must not mind trouble, but, if they knew who the owner was, must take it back themselves; for, if they should only send notice to the owner to come and look after it himself, some mischief might befal it ere he could reach it. (2.) They must not mind expense, but, if they knew not who the owner was, must take it home and feed it till the owner was found. If such care must be taken of a neighbour's ox or ass going astray, much more of himself going astray from God and his duty; we should do our utmost to convert him (Jam 5:19), and restore him, considering ourselves, Ga 6:1. 2. That lost goods should be brought to the owner, De 22:3. The Jews say, "He that found the lost goods was to give public notice of them by the common crier three or four times," according to the usage with us; if the owner could not be found, he that found the goods might convert them to his own use; but (say some learned writers in this case) he would do very well to give the value of the goods to the poor. 3. That cattle in distress should be helped, De 22:4. This must be done both in compassion to the brute-creatures (for a *merciful man regardeth the life of a beast,* though it be not his own) and in love and friendship to our neighbour, not knowing how soon we may have occasion for his help. If one member may say to another, "I have at present no need of thee," it cannot say, "I never shall."
 
-## Various Prohibitions. (b. c. 1451.)
+## Various Prohibitions (1451 BC)
 
 > **⁵** The woman shall not wear that which pertaineth unto a man, neither shall a man put on a woman's garment: for all that do so *are* abomination unto the LORD thy God.  
 > **⁶** If a bird's nest chance to be before thee in the way in any tree, or on the ground, *whether they be* young ones, or eggs, and the dam sitting upon the young, or upon the eggs, thou shalt not take the dam with the young:  
@@ -38,7 +38,7 @@ IV\. Odd mixtures are here forbidden, De 22:9,10. Much of this we met with befor
 
 V\. The law concerning fringes upon their garments, and memorandums of the commandments, which we had before (Nu 15:38,39), is here repeated, De 22:12. By these they were distinguished from other people, so that it might be said, upon the first sight, There goes an Israelite, which taught them not to be ashamed of their country, nor the peculiarities of their religion, how much soever their neighbours looked upon them and it with contempt: and they were also put in mind of the precepts upon the particular occasions to which they had reference; and perhaps this law is repeated here because the precepts immediately foregoing seemed so minute that they were in danger of being overlooked and forgotten. The fringes will remind you not to make your garments of linen and woollen, De 22:11.
 
-## The Punishment of Fornication. (b. c. 1451.)
+## The Punishment of Fornication (1451 BC)
 
 > **¹³** If any man take a wife, and go in unto her, and hate her,  
 > **¹⁴** And give occasions of speech against her, and bring up an evil name upon her, and say, I took this woman, and when I came to her, I found her not a maid:  

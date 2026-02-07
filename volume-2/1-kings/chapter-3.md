@@ -6,7 +6,7 @@ weight: 3
 
 Solomon's reign looked bloody in the foregoing chapter, but the necessary acts of justice must not be called cruelty; in this chapter it appears with another face. We must not think the worse of God's mercy to his subjects for his judgments on rebels. We have here, I. Solomon's marriage to Pharaoh's daughter, 1Ki 3:1. II. A general view of his religion, 1Ki 3:2-4. III. A particular account of his prayer to God for wisdom, and the answer to that prayer, 1Ki 3:5-15. IV. A particular instance of his wisdom in deciding the controversy between the two harlots, 1Ki 3:16-28. And very great he looks here, both at the altar and on the bench, and therefore on the bench because at the altar.
 
-## Solomon Marries Pharaoh's Daughter. (b. c. 1014.)
+## Solomon Marries Pharaoh's Daughter (1014 BC)
 
 > **¹** And Solomon made affinity with Pharaoh king of Egypt, and took Pharaoh's daughter, and brought her into the city of David, until he had made an end of building his own house, and the house of the LORD, and the wall of Jerusalem round about.  
 > **²** Only the people sacrificed in high places, because there was no house built unto the name of the LORD, until those days.  
@@ -19,7 +19,7 @@ I\. Something that was unquestionably good, for which he is to be praised and in
 
 II\. Here is something concerning which it may be doubted whether it was good or no. 1. His marrying Pharaoh's daughter, 1Ki 3:1. We will suppose she was proselyted, otherwise the marriage would not have been lawful; yet, if so, surely it was not advisable. He that *loved the Lord* should, for his sake, have fixed his love upon one of the Lord's people. Unequal matches of the sons of God with the daughters of men have often been of pernicious consequence; yet some think that he did this with the advice of his friends, that she was a sincere convert (for the gods of the Egyptians are not reckoned among the strange gods which his strange wives drew him in to the worship of, 1Ki 11:5,6), and that the book of Cant 1:1 and the Ps 45:1-17 were penned on this occasion, by which these nuptials were made typical of the mystical espousals of the church to Christ, especially the Gentile church. 2. His worshipping in the high places, and thereby tempting the people to do so too, 1Ki 3:2,3. Abraham built his altars on mountains (Ge 12:8,22:2), and worshipped in a grove, Ge 21:33. Thence the custom was derived, and was proper, till the divine law confined them to one place, De 12:5,6. David kept to the ark, and did not care for the high places, but Solomon, though in other things he *walked in the statutes of his father,* in this came short of him. He showed thereby a great zeal for sacrificing, but to obey would have been better. This was an irregularity. Though there was as yet no house built, there was a tent pitched, to the name of the Lord, and the ark ought to have been the centre of their unity. It was so by divine institution; from it the high places separated; yet while they worshipped God only, and in other things according to the rule, he graciously overlooked their weakness, and accepted their services; and it is owned that *Solomon loved the Lord,* though he *burnt incense in the high places,* and let not men be more severe than God is.
 
-## God's Appearance to Solomon. (b. c. 1014.)
+## God's Appearance to Solomon (1014 BC)
 
 > **⁵** In Gibeon the LORD appeared to Solomon in a dream by night: and God said, Ask what I shall give thee.  
 > **⁶** And Solomon said, Thou hast showed unto thy servant David my father great mercy, according as he walked before thee in truth, and in righteousness, and in uprightness of heart with thee; and thou hast kept for him this great kindness, that thou hast given him a son to sit on his throne, as *it is* this day.  
@@ -51,7 +51,7 @@ III\. The pious request Solomon hereupon made to God. He readily laid hold of th
 
 5\. The grateful return Solomon made for the visit God was pleased to pay him, 1Ki 3:15. He awoke, we may suppose in a transport of joy, awoke, and *his sleep was sweet to him,* as the prophet speaks (Jer 31:26); being satisfied of God's favour, he was satisfied with it, and he began to think *what he should render to the Lord.* He had made his prayer at the high place at Gibeon, and there God had graciously met him; but he comes to Jerusalem to give thanks *before the ark of the covenant,* blaming himself, as it were, that he had not prayed there, the ark being the token of God's presence, and wondering that God had met him any where else. God's passing by our mistakes should persuade us to amend them. There he, (1.) Offered a great sacrifice to God. We must give God praise for his gifts in the promise, though not yet fully performed. David used to *praise God's word,* as well as his *works* (Ps 56:10, and particularly, 2Sa 7:18), and Solomon trod in his steps. (2.) He made a great feast upon the sacrifice, that those about him might rejoice with him in the grace of God.
 
-## The Wisdom of Solomon. (b. c. 1014.)
+## The Wisdom of Solomon (1014 BC)
 
 > **¹⁶** Then came there two women, *that were* harlots, unto the king, and stood before him.  
 > **¹⁷** And the one woman said, O my lord, I and this woman dwell in one house; and I was delivered of a child with her in the house.  

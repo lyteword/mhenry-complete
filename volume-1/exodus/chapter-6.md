@@ -6,7 +6,7 @@ weight: 6
 
 Much ado there was to bring Moses to his work, and when the ice was broken, some difficulty having occurred in carrying it on, there was no less ado to put him forward in it. Witness this chapter, in which, I. God satisfies Moses himself in an answer to his complaints in the close of the foregoing chapter, Ex 6:1. II. He gives him fuller instructions than had yet been given him what to say to the children of Israel, for their satisfaction (Ex 6:2-8), but to little purpose, Ex 6:9. III. He sends him again to Pharaoh, Ex 6:10,11. But Moses objects against (Ex 6:12), upon which a very strict charge is given to him and his brother to execute their commission with vigour, Ex 6:13. IV. Here is an abstract of the genealogy of the tribes of Reuben and Simeon, to introduce that of Levi, that the pedigree of Moses and Aaron might be cleared (Ex 6:14-25), and then the chapter concludes with a repetition of so much of the preceding story as was necessary to make way for the following chapter.
 
-## The Promise of Deliverance. (b. c. 1491.)
+## The Promise of Deliverance (1491 BC)
 
 > **¹** Then the LORD said unto Moses, Now shalt thou see what I will do to Pharaoh: for with a strong hand shall he let them go, and with a strong hand shall he drive them out of his land.  
 > **²** And God spake unto Moses, and said unto him, I *am* the LORD:  
@@ -43,7 +43,7 @@ II\. Moses makes objections, as one discouraged, and willing to give up the caus
 
 III\. God again joins Aaron in commission with Moses, and puts an end to the dispute by interposing his own authority, and giving them both a solemn charge, upon their allegiance to their great Lord, to execute it with all possible expedition and fidelity. When Moses repeats his baffled arguments, he shall be argued with no longer, but God gives him a charge, and Aaron with him, both to the children of Israel and to Pharaoh, Ex 6:13. Note, God's authority is sufficient to answer all objections, and binds us to obedience, without murmuring or disputing, Php 2:14. Moses himself has need to be charged, and so has Timothy, 1Ti 6:13, 2Ti 4:1.
 
-## Genealogies of Reuben, Simeon, and Levi. (b. c. 1491.)
+## Genealogies of Reuben, Simeon, and Levi (1491 BC)
 
 > **¹⁴** These *be* the heads of their fathers' houses: The sons of Reuben the firstborn of Israel; Hanoch, and Pallu, Hezron, and Carmi: these *be* the families of Reuben.  
 > **¹⁵** And the sons of Simeon; Jemuel, and Jamin, and Ohad, and Jachin, and Zohar, and Shaul the son of a Canaanitish woman: these *are* the families of Simeon.  

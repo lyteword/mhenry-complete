@@ -6,7 +6,7 @@ weight: 4
 
 We left Christ newly baptized, and owned by a voice from heaven and the descent of the Holy Ghost upon him. Now, in this chapter, we have, I. A further preparation of him for his public ministry by his being tempted in the wilderness, of which we had the same account before in Matthew as we have here, Lu 4:1-13. II. His entrance upon his public work in Galilee (Lu 4:14,15), particularly, 1. At Nazareth, the city where he had been bred up (Lu 4:16-30), which we had no account of before in Matthew. 2. At Capernaum, where, having preached to admiration (Lu 4:31-32), he cast the devil out of a man that was possessed (Lu 4:33-37), cured Peter's mother-in-law of a fever (Lu 4:38,39), and many others that were sick and possessed (Lu 4:40,41), and then went and did the same in other cities of Galilee, Lu 4:42-44.
 
-## The Temptation in the Wilderness.
+## The Temptation in the Wilderness
 
 > **¹** And Jesus being full of the Holy Ghost returned from Jordan, and was led by the Spirit into the wilderness,  
 > **²** Being forty days tempted of the devil. And in those days he did eat nothing: and when they were ended, he afterward hungered.  
@@ -72,7 +72,7 @@ III\. What was the result and issue of this combat, Lu 4:13. Our victorious Rede
 
 3\. Yet he continued his malice against him, and departed with a resolution to attack him again; he departed but *for a season,* *achri kairou*—*till a season,* or till the season when he was again to be let loose upon him, not as a *tempter,* to draw him to *sin,* and so to strike at *his head,* which was what he now aimed at and was wholly defeated in; but as a *persecutor,* to bring him to *suffer* by Judas and the other wicked instruments whom he employed, and so to *bruise his heel,* which it was told him (Ge 3:15) he should have to do, and would do, though it would be the breaking of *his own head.* He *departed now* till that season came which Christ calls the *power of darkness* (Lu 22:53), and when the prince of this world would again *come,* Joh 14:30.
 
-## Christ in the Synagogue of Nazareth; Christ Driven from Nazareth.
+## Christ in the Synagogue of Nazareth; Christ Driven from Nazareth
 
 > **¹⁴** And Jesus returned in the power of the Spirit into Galilee: and there went out a fame of him through all the region round about.  
 > **¹⁵** And he taught in their synagogues, being glorified of all.  
@@ -152,7 +152,7 @@ II\. Of his preaching at Nazareth, the city where he was brought up; and the ent
 
 (3.) Yet he escaped, because his hour was not yet come: He *passed through the midst of them* unhurt. Either he blinded their eyes, as God did those of the Sodomites and Syrians, or he bound their hands, or filled them with confusion, so that they could not do what they designed; for his work was not done, it was but just begun; his hour was not yet come, when it was come, he freely surrendered himself. They *drove* him from them, and he *went his way.* He would have gathered Nazareth, but they *would not,* and therefore their house is *left to them desolate.* This added to the reproach of his being Jesus of Nazareth, that not only it was a place whence no good thing was expected, but that it was such a wicked, rude place, and so *unkind* to him. Yet there was a providence in it, that he should not be much respected by the men of Nazareth, for that would have looked like a collusion between him and his old acquaintance; but now, though they *received him not,* there were those that did.
 
-## The Expulsion of a Demon; Christ's Departure from Capernaum.
+## The Expulsion of a Demon; Christ's Departure from Capernaum
 
 > **³¹** And came down to Capernaum, a city of Galilee, and taught them on the sabbath days.  
 > **³²** And they were astonished at his doctrine: for his word was with power.  

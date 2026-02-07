@@ -6,7 +6,7 @@ weight: 9
 
 We left two royal edicts in force, both given at the court of Shushan, one bearing date the thirteenth day of the first month, appointing that on the thirteenth day of the twelfth month then next ensuing all the Jews should be killed; another bearing date the twenty-third day of the third month, empowering the Jews, on the day appointed for their slaughter, to draw the sword in their own defence and make their part good against their enemies as well as they could. Great expectation there was, no doubt, of this day, and the issue of it. The Jews' cause was to be tried by battle and the day was fixed for the combat by authority. Their enemies resolved not to lose the advantages given them by the first edict, in hope to overpower them by numbers; the Jews relied on the goodness of their God and the justice of their cause, and resolved to make their utmost efforts against their enemies. The day comes at length; and here we are told, I. What a glorious day it was, that year, to the Jews, and the two days following—a day of victory and triumph, both in the city Shushan and in all the rest of the king's provinces, Es 9:1-19. II. What a memorable day it was made to posterity, by an annual feast, in commemoration of this great deliverance, called "the feast of Purim," Es 9:20-32.
 
-## The Jews Avenged. (b. c. 509.)
+## The Jews Avenged (509 BC)
 
 > **¹** Now in the twelfth month, that *is,* the month Adar, on the thirteenth day of the same, when the king's commandment and his decree drew near to be put in execution, in the day that the enemies of the Jews hoped to have power over them, (though it was turned to the contrary, that the Jews had rule over them that hated them;)  
 > **²** The Jews gathered themselves together in their cities throughout all the provinces of the king Ahasuerus, to lay hand on such as sought their hurt: and no man could withstand them; for the fear of them fell upon all people.  
@@ -44,7 +44,7 @@ II\. But the Jews were the conquerors. That very day when the king's decree for 
 
 5\. What a satisfaction they had in their deliverance. The Jews in the country cleared themselves of their enemies on the thirteenth day of the month, and they rested on the fourteenth day (Es 9:17), and made that a thanksgiving day, Es 9:19. The Jews in Shushan, the royal city, took two days for their military execution, so that they rested on the fifteenth day, and made that their thanksgiving-day, Es 9:18. Both of them celebrated their festival the very day after they had finished their work and gained their point. When we have received signal mercies from God we ought to be quick and speedy in making our thankful returns to him, while the mercy is fresh and the impressions of it are most sensible.
 
-## The Feast of Purim. (b. c. 509.)
+## The Feast of Purim (509 BC)
 
 > **²⁰** And Mordecai wrote these things, and sent letters unto all the Jews that *were* in all the provinces of the king Ahasuerus, *both* nigh and far,  
 > **²¹** To stablish *this* among them, that they should keep the fourteenth day of the month Adar, and the fifteenth day of the same, yearly,  

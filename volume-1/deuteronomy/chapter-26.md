@@ -6,7 +6,7 @@ weight: 26
 
 With this chapter Moses concludes the particular statutes which he thought fit to give Israel in charge at his parting with them; what follows is by way of sanction and ratification. In this chapter, I. Moses gives them a form of confession to be made by him that offered the basket of his first-fruits, De 26:1-11. II. The protestation and prayer to be made after the disposal of the third year's tithe, De 26:12-15. III. He binds on all the precepts he had given them, 1. By the divine authority: "Not I, but the Lord thy God has commanded thee to do these statutes," De 26:16. 2. By the mutual covenant between God and them, De 26:17-19, etc.
 
-## The Offering of First-Fruits. (b. c. 1451.)
+## The Offering of First-Fruits (1451 BC)
 
 > **¹** And it shall be, when thou *art* come in unto the land which the LORD thy God giveth thee *for* an inheritance, and possessest it, and dwellest therein;  
 > **²** That thou shalt take of the first of all the fruit of the earth, which thou shalt bring of thy land that the LORD thy God giveth thee, and shalt put *it* in a basket, and shalt go unto the place which the LORD thy God shall choose to place his name there.  
@@ -34,7 +34,7 @@ II\. Good words put into their mouths to be said in the doing of this good work,
 
 III\. The offerer is here appointed, when he has finished the service, 1. To give glory to God: *Thou shalt worship the Lord thy God.* His first-fruits were not accepted without further acts of adoration. A humble, reverent, thankful heart is that which God looks at and requires, and, without this, all we can put in a basket will not avail. *If a man would give all the substance of his house* to be excused from this, or in lieu of it, *it would utterly be contemned.* 2. To take the comfort of it to himself and family: *Thou shalt rejoice in every good thing,* De 26:11. It is the will of God that we should be cheerful, not only in our attendance upon his holy ordinances, but in our enjoyments of the gifts of his providence. Whatever good thing God gives us, it is his will that we should make the most comfortable use we can of it, yet still tracing the streams to the fountain of all comfort and consolation.
 
-## Appropriation of Tithes. (b. c. 1451.)
+## Appropriation of Tithes (1451 BC)
 
 > **¹²** When thou hast made an end of tithing all the tithes of thine increase the third year, *which is* the year of tithing, and hast given *it* unto the Levite, the stranger, the fatherless, and the widow, that they may eat within thy gates, and be filled;  
 > **¹³** Then thou shalt say before the LORD thy God, I have brought away the hallowed things out of *mine* house, and also have given them unto the Levite, and unto the stranger, to the fatherless, and to the widow, according to all thy commandments which thou hast commanded me: I have not transgressed thy commandments, neither have I forgotten *them:*  
@@ -47,7 +47,7 @@ I\. They must make a solemn protestation to this purport, De 26:13,14. 1. That n
 
 II\. To this solemn protestation they must add a *solemn prayer* (De 26:15), not particularly for themselves, but for *God's people Israel;* for in the common peace and prosperity every particular person prospers and has peace. We must learn hence to be public-spirited in prayer, and to wrestle with God for blessings for the land and nation, our English Israel, and for the universal church, which we are directed to have an eye to in our prayers, as the *Israel of God,* Ga 6:16. In this prayer we are taught, 1. To look up to God as in a holy habitation, and thence to infer that holiness becomes his house, and that he will be sanctified in those that are about him. 2. To depend upon the favour of God, and his gracious cognizance, as sufficient to make us and our people happy. 3. To reckon it wonderful condescension in God to case an eye even upon so great and honourable a body as Israel was. It is looking down. 4. To be earnest with God for a blessing upon his people Israel, and upon the *land which he has given us.* For how should the earth yield its increase, or, if it does, what comfort can we take in it, unless therewith *God, even our own God, gives us his blessing?* Ps 67:6.
 
-## Israel Reminded of the Covenant. (b. c. 1451.)
+## Israel Reminded of the Covenant (1451 BC)
 
 > **¹⁶** This day the LORD thy God hath commanded thee to do these statutes and judgments: thou shalt therefore keep and do them with all thine heart, and with all thy soul.  
 > **¹⁷** Thou hast avouched the LORD this day to be thy God, and to walk in his ways, and to keep his statutes, and his commandments, and his judgments, and to hearken unto his voice:  

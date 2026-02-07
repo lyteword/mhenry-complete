@@ -6,7 +6,7 @@ weight: 6
 
 Eliphaz concluded his discourse with an air of assurance; very confident he was that what he had said was so plain and so pertinent that nothing could be objected in answer to it. But, though he that is first in his own cause seems just, yet his neighbour comes and searches him. Job is not convinced by all he had said, but still justifies himself in his complaints and condemns him for the weakness of his arguing. I. He shows that he had just cause to complain as he did of his troubles, and so it would appear to any impartial judge, Job 6:2-7. II. He continues his passionate wish that he might speedily be cut off by the stroke of death, and so be eased of all his miseries, Job 6:8-13. III. He reproves his friends for their uncharitable censures of him and their unkind treatment, Job 6:14-30. It must be owned that Job, in all this, spoke much that was reasonable, but with a mixture of passion and human infirmity. And in this contest, as indeed in most contests, there was fault on both sides.
 
-## Job's Reply to Eliphaz. (b. c. 1520.)
+## Job's Reply to Eliphaz (1520 BC)
 
 > **¹** But Job answered and said,  
 > **²** Oh that my grief were thoroughly weighed, and my calamity laid in the balances together!  

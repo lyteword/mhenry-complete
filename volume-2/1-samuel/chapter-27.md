@@ -6,7 +6,7 @@ weight: 27
 
 David was a man after God's own heart, and yet he had his faults, which are recorded, not for our imitation, but for our admonition; witness the story of this chapter, in which, though, I. We find, to his praise, that he prudently took care of his own safety and his family's (1Sa 27:2-4) and valiantly fought Israel's battles against the Canaanites (1Sa 27:8-9), yet, II. We find, to his dishonour, 1. That he began to despair of his deliverance, 1Sa 27:1. 2. That he deserted his own country, and went to dwell in the land of the Philistines, 1Sa 27:1,5-7. 3. That he imposed upon Achish with an equivocation, if not a lie, concerning his expedition, 1Sa 27:10-12.
 
-## David Returns to Gath. (b. c. 1055.)
+## David Returns to Gath (1055 BC)
 
 > **¹** And David said in his heart, I shall now perish one day by the hand of Saul: *there is* nothing better for me than that I should speedily escape into the land of the Philistines; and Saul shall despair of me, to seek me any more in any coast of Israel: so shall I escape out of his hand.  
 > **²** And David arose, and he passed over with the six hundred men that *were* with him unto Achish, the son of Maoch, king of Gath.  
@@ -30,7 +30,7 @@ V\. David's removal from Gath to Ziklag.
 
 2\. The grant which Achish made to him, upon that request, was very generous and kind (1Sa 27:6,7): *Achish gave him Ziklag.* Hereby, (1.) Israel recovered their ancient right; for Ziklag was in the lot of the tribe of Judah (Jos 15:31), and afterwards, out of that lot, was assigned, with some other cities, to Simeon, Jos 19:5. But either it was never subdued, or the Philistines had, in some struggle with Israel, made themselves masters of it. Perhaps they had got it unjustly, and Achish, being a man of sense and honour, took this occasion to restore it. *The righteous God judgeth righteously.* (2.) David gained a commodious settlement, not only at a distance from Gath, but bordering upon Israel, where he might keep up a correspondence with his own countrymen, and whither they might resort to him at the revolution that was now approaching. Though we do not find that he augmented his forces at all while Saul lived (for, 1Sa 30:10, he had but his *six hundred men*), yet, immediately after Saul's death, that was the rendezvous of his friends. Nay, it should seem, while he kept himself close because of Saul, multitudes resorted to him, at least to assure him of their sincere intentions, 1Ch 12:1-22. And this further advantage David gained, that Ziklag was annexed to the crown, at least the royalty of it pertained to the kings of Judah, ever after, 1Sa 27:6. Note, There is nothing lost by humility and modesty, and a willingness to retire. Real advantages follow those that flee from imaginary honours. Here David continued for some days, even *four months,* as it may very well be read (1Sa 27:7), or some days above four months: the LXX. reads it, *some months;* so long he waited for the set time of his accession to the throne; for *he that believeth shall not make haste.*
 
-## David Smites the Amalekites. (b. c. 1055.)
+## David Smites the Amalekites (1055 BC)
 
 > **⁸** And David and his men went up, and invaded the Geshurites, and the Gezrites, and the Amalekites: for those *nations were* of old the inhabitants of the land, as thou goest to Shur, even unto the land of Egypt.  
 > **⁹** And David smote the land, and left neither man nor woman alive, and took away the sheep, and the oxen, and the asses, and the camels, and the apparel, and returned, and came to Achish.  

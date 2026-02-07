@@ -6,7 +6,7 @@ weight: 35
 
 What should have been said and done upon Moses' coming down the first time from the mount, if the golden calf had not broken the measures and put all into disorder, now at last, when with great difficulty reconciliation was made, begins to be said and done; and that great affair of the setting up of God's worship is put into its former channel again, and goes on now without interruption. I. Moses gives Israel those instructions, received from God, which required immediate observance. 1. Concerning the sabbath, Ex 35:1-3. 2. Concerning the contribution that was to be made for the erecting of the tabernacle, Ex 35:4-9. 3. Concerning the framing of the tabernacle and the utensils of it, Ex 35:10-19. II. The people bring in their contributions, Ex 35:20-29. III. The head-workmen are nominated, Ex 35:30-35, etc.
 
-## Orders Concerning the Tabernacle. (b. c. 1491.)
+## Orders Concerning the Tabernacle (1491 BC)
 
 > **¹** And Moses gathered all the congregation of the children of Israel together, and said unto them, These *are* the words which the LORD hath commanded, that *ye* should do them.  
 > **²** Six days shall work be done, but on the seventh day there shall be to you an holy day, a sabbath of rest to the LORD: whosoever doeth work therein shall be put to death.  
@@ -42,7 +42,7 @@ IV\. He orders preparation to be made for the setting up of the tabernacle. Two 
 
 2\. All that were skilful must work: *Every wise-hearted among you shall come, and make,* Ex 35:10. See how God dispenses his gifts variously; and, *as every man hath received the gift, so he must minister,* 1Pe 4:10. Those that were rich must bring in materials to work on; those that were ingenious must serve the tabernacle with their ingenuity; as they needed one another, so the tabernacle needed them both, 1Co 12:7-21. The work was likely to go on when some helped with their purses, others with their hands, and both with a willing heart. Moses, as he had told them what must be given (Ex 35:5-9), so he gives them the general heads of what must be made (Ex 35:11-19), that, seeing how much work was before them, they might apply themselves to it the more vigorously, and every hand might be busy; and it gave them such an idea of the fabric designed that they could not but long to see it finished.
 
-## The Contributions for the Tabernacle. (b. c. 1491.)
+## The Contributions for the Tabernacle (1491 BC)
 
 > **²⁰** And all the congregation of the children of Israel departed from the presence of Moses.  
 > **²¹** And they came, every one whose heart stirred him up, and every one whom his spirit made willing, *and* they brought the LORD's offering to the work of the tabernacle of the congregation, and for all his service, and for the holy garments.  

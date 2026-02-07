@@ -6,7 +6,7 @@ weight: 18
 
 The gospels are, in short, a record of what Jesus began both to do and to teach. In the foregoing chapter, we had an account of his doings, in this, of his teachings; probably, not all at the same time, in a continued discourse, but at several times, upon divers occasions, here put together, as near akin. We have here, I. Instructions concerning humility, Mt 18:1-6. II. Concerning offences in general (Mt 18:7), particularly offences given, 1. By us to ourselves, Mt 18:8,9. 2. By us to others, Mt 18:10-14. 3. By others to us; which are of two sorts, (1.) Scandalous sins, which are to be reproved, Mt 18:15-20. (2.) Personal wrongs, which are to be forgiven, Mt 18:21-35. See how practical Christ's preaching was; he could have revealed mysteries, but he pressed plain duties, especially those that are most displeasing to flesh and blood.
 
-## The Importance of Humility.
+## The Importance of Humility
 
 > **¹** At the same time came the disciples unto Jesus, saying, Who is the greatest in the kingdom of heaven?  
 > **²** And Jesus called a little child unto him, and set him in the midst of them,  
@@ -57,7 +57,7 @@ Observe, *First,* The crime supposed; *offending one of these little ones that b
 
 *Secondly,* The punishment of this crime; intimated in that word, *Better for him that he were drowned in the depth of the sea.* The sin is so heinous, and the ruin proportionably so great, that he had better undergo the sorest punishments inflicted on the worst of malefactors, which can only kill the body. Note, 1. Hell is worse than the depth of the sea; for it is a bottomless pit, and it is a burning lake. The depth of the sea is only killing, but hell is tormenting. We meet with one that had comfort in the depth of the sea, it was Jonah (Mt 2:2,4,9); but never any had the least grain or glimpse of comfort in hell, nor will have to eternity. 2. The irresistible irrevocable doom of the great Judge will sink sooner and surer, and bind faster, than *a mill-stone hanged about the neck.* It fixes a great gulf, which can never be broken through, Lu 16:26. Offending Christ's little ones, though by omission, is assigned as the reason of that dreadful sentence, *Go ye cursed,* which will at last be the doom of proud persecutors.
 
-## Cautions against Offences.
+## Cautions against Offences
 
 > **⁷** Woe unto the world because of offences! for it must needs be that offences come; but woe to that man by whom the offence cometh!  
 > **⁸** Wherefore if thy hand or thy foot offend thee, cut them off, and cast *them* from thee: it is better for thee to enter into life halt or maimed, rather than having two hands or two feet to be cast into everlasting fire.  
@@ -114,7 +114,7 @@ Here is, *First,* The comparison, Mt 18:12,13. The owner that had lost one sheep
 
 Observe, Christ called God, Mt 18:19, *my Father which is in heaven;* he calls him, Mt 18:14, *your Father which is in heaven;* intimating that he is not ashamed to call his poor disciples *brethren;* for have not he and they one Father? *I ascend to my Father and your Father* (Joh 20:17); therefore ours because his. This intimates likewise the ground of the safety of his little ones; that God is their Father, and is therefore inclined to succour them. A father takes care of all his children, but is particularly tender of the little ones, Ge 33:13. He is their Father in heaven, a place of prospect, and therefore he sees all the indignities offered them; and a place of power, therefore he is able to avenge them. This comforts offended little ones, that their Witness is in heaven (Job 16:19), their Judge is there, Ps 68:5.
 
-## The Removal of Offences.
+## The Removal of Offences
 
 > **¹⁵** Moreover if thy brother shall trespass against thee, go and tell him his fault between thee and him alone: if he shall hear thee, thou hast gained thy brother.  
 > **¹⁶** But if he will not hear *thee, then* take with thee one or two more, that in the mouth of two or three witnesses every word may be established.  
@@ -183,7 +183,7 @@ Now it is a great honour which Christ here puts upon the church, that he will co
 
 Though but two or three are met together, Christ is among them; this is an encouragement to the meeting of a few, when it is either, *First,* of choice. Besides the secret worship performed by particular persons, and the public services of the whole congregation, there may be occasion sometimes for two or three to come together, either for mutual assistance in conference or joint assistance in prayer, not in contempt of public worship, but in concurrence with it; there Christ will be present. Or, *Secondly,* By constraint; when there are not more than two or three to come together, or, if there be, they dare not, *for fear of the Jews,* yet Christ will be *in the midst of them,* for it is not the multitude, but the faith and sincere devotion, of the worshippers, that invites the presence of Christ; and though there be but two or three, the smallest number that can be, yet, if Christ make one among them, who is the principal one, their meeting is as honourable and comfortable as if they were two or three thousand.
 
-## Christian Worshippers Encouraged; The Cruel Creditor.
+## Christian Worshippers Encouraged; The Cruel Creditor
 
 > **²¹** Then came Peter to him, and said, Lord, how oft shall my brother sin against me, and I forgive him? till seven times?  
 > **²²** Jesus saith unto him, I say not unto thee, Until seven times: but, Until seventy times seven.  

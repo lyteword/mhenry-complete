@@ -6,7 +6,7 @@ weight: 139
 
 Some of the Jewish doctors are of opinion that this is the most excellent of all the psalms of David; and a very pious devout meditation it is upon the doctrine of God's omniscience, which we should therefore have our hearts fixed upon and filled with in singing this psalm. I. This doctrine is here asserted, and fully laid down, Ps 139:1-6. II. It is confirmed by two arguments:—1. God is every where present; therefore he knows all, Ps 139:7-12. 2. He made us, therefore he knows us, Ps 139:13-16. III. Some inferences are drawn from this doctrine. 1. It may fill us with pleasing admiration of God, Ps 139:17,18. 2. With a holy dread and detestation of sin and sinners, Ps 139:19-22. 3. With a holy satisfaction in our own integrity, concerning which we may appeal to God, Ps 139:23,24. This great and self-evident truth, That God knows our hearts, and the hearts of all the children of men, if we did but mix faith with it and seriously consider it and apply it, would have a great influence upon our holiness and upon our comfort.
 
-## The Omniscience of God.
+## The Omniscience of God
 
 To the chief musician. A psalm of David.
 
@@ -27,7 +27,7 @@ III\. He descends to particulars: "Thou knowest me wherever I am and whatever I 
 
 IV\. He speaks of it with admiration (Ps 139:6): *It is too wonderful for me; it is high.* 1. "Thou hast such a knowledge of me as I have not of myself, nor can have. I cannot take notice of all my own thoughts, nor make such a judgment of myself as thou makest of me." 2. "It is such a knowledge as I cannot comprehend, much less describe. That thou knowest all things I am sure, but how I cannot tell." We cannot by searching find out how God searches and finds out us; nor do we know how we are known.
 
-## The Omniscience of God.
+## The Omniscience of God
 
 > **⁷** Whither shall I go from thy spirit? or whither shall I flee from thy presence?  
 > **⁸** If I ascend up into heaven, thou *art* there: if I make my bed in hell, behold, thou *art there.*  
@@ -54,7 +54,7 @@ II\. Because he is the work of his hands. He that framed the engine knows all th
 
 2\. Glorious things are here said concerning it. The generation of man is to be considered with the same pious veneration as his creation at first. Consider it, (1.) As a great marvel, a great miracle we might call it, but that it is done in the ordinary course of nature. We are *fearfully and wonderfully made;* we may justly be astonished at the admirable contrivance of these living temples, the composition of every part, and the harmony of all together. (2.) As a great mystery, a mystery of nature: *My soul knows right well* that it is marvellous, but how to describe it for any one else I know not; for *I was made in secret, and curiously wrought* in the womb as *in the lowest parts of the earth,* so privately, and so far out of sight. (3.) As a great mercy, that all our members *in continuance were fashioned,* according as they were written in the book of God's wise counsel, *when as yet there was none of them;* or, as some read it, *and none of them was left out.* If any of our members had been wanting in God's book, they would have been wanting in our bodies, but, through his goodness, we have all our limbs and sense, the want of any of which might have made us burdens to ourselves. See what reason we have then to praise God for our creation, and to conclude that he who saw our substance when it was unfashioned sees it now that it is fashioned.
 
-## The Omniscience of God.
+## The Omniscience of God
 
 > **¹⁷** How precious also are thy thoughts unto me, O God! how great is the sum of them!  
 > **¹⁸** *If* I should count them, they are more in number than the sand: when I awake, I am still with thee.  

@@ -6,7 +6,7 @@ weight: 6
 
 It is a very surprising scene that opens in this chapter. Haman, when he hoped to be Mordecai's judge, was made his page, to his great confusion and mortification; and thus way was made for the defeat of Haman's plot and the deliverance of the Jews. I. The providence of God recommends Mordecai in the night to the king's favour, Es 6:1-3. II. Haman, who came to incense the king against him, is employed as an instrument of the king's favour to him, Es 6:4-11. III. From this his friends read him his doom, which is executed in the next chapter, Es 6:12-14. And now it appears that Esther's intercession for her people was happily adjourned, *De die in diem—from day to day.*
 
-## The Record of Mordecai's Loyalty. (b. c. 510.)
+## The Record of Mordecai's Loyalty (510 BC)
 
 > **¹** On that night could not the king sleep, and he commanded to bring the book of records of the chronicles; and they were read before the king.  
 > **²** And it was found written, that Mordecai had told of Bigthana and Teresh, two of the king's chamberlains, the keepers of the door, who sought to lay hand on the king Ahasuerus.  
@@ -24,7 +24,7 @@ IV\. The king enquired *what honour and dignity had been done to Mordecai* for t
 
 V\. The servants informed him that nothing had been done to Mordecai for that eminent service; in the king's gate he sat before, and there he still sat. Note, 1. It is common for great men to take little notice of their inferiors. The king knew not whether Mordecai was preferred or no till his servants informed him. High spirits take a pride in being careless and unconcerned about those that are below them and ignorant of their state. The great God takes cognizance of the meanest of his servants, knows what dignity is done them and what disgrace. 2. Humility, modesty, and self-denial, though in God's account of great price, yet commonly hinder men's preferment in the world. Mordecai rises no higher than the king's gate, while proud ambitious Haman gets the king's ear and heart; but, though the aspiring rise fast, the humble stand fast. Honour makes proud men giddy, but *upholds the humble in spirit,* Pr 29:23. 3. Honour and dignity are rated high in the king's books. He does not ask, What reward has been given Mordecai? what money? what estate? but only, What honour?—a poor thing, and which, if he had not wherewith to support it, would be but a burden. 4. The greatest merits and the best services are often overlooked and go unrewarded among men. Little honour is done to those who best deserve it, and fittest for it, and would do most good with it. See Ec 9:14-16. The acquisition of wealth and honour is usually a perfect lottery, in which those that venture least commonly carry off the best prize. Nay, 5. Good services are sometimes so far from being a man's preferment that they will not be his protection. Mordecai is at this time, by the king's edict, doomed to destruction, with all the Jews, though it is owned that he deserved dignity. Those that faithfully serve God need not fear being thus ill paid.
 
-## The Honour Conferred on Mordecai. (b. c. 510.)
+## The Honour Conferred on Mordecai (510 BC)
 
 > **⁴** And the king said, Who *is* in the court? Now Haman was come into the outward court of the king's house, to speak unto the king to hang Mordecai on the gallows that he had prepared for him.  
 > **⁵** And the king's servants said unto him, Behold, Haman standeth in the court. And the king said, Let him come in.  
@@ -49,7 +49,7 @@ V\. The king confounds him with a positive order that he should immediately go h
 
 VI\. Haman dares not dispute nor so much as seem to dislike the king's order, but, with the greatest regret and reluctance imaginable, brings it to Mordecai, who I suppose did no more cringe to Haman now than he had done, valuing his counterfeit respect no more than he had valued his concealed malice. The apparel is brought, Mordecai is dressed up, and rides in state through the city, recognized as the king's favourite, Es 6:11. It is hard to say which of the two put a greater force upon himself, proud Haman in putting this honour upon Mordecai, or humble Mordecai in accepting it: the king would have it so, and both must submit. Upon *this* account it was agreeable to Mordecai as it was an indication of the king's favour, and gave hope that Esther would prevail for the reversing of the edict against the Jews.
 
-## Haman Cast Down. (b. c. 510.)
+## Haman Cast Down (510 BC)
 
 > **¹²** And Mordecai came again to the king's gate. But Haman hasted to his house mourning, and having his head covered.  
 > **¹³** And Haman told Zeresh his wife and all his friends every *thing* that had befallen him. Then said his wise men and Zeresh his wife unto him, If Mordecai *be* of the seed of the Jews, before whom thou hast begun to fall, thou shalt not prevail against him, but shalt surely fall before him.  

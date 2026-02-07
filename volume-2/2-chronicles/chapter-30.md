@@ -6,7 +6,7 @@ weight: 30
 
 In this chapter we have an account of the solemn passover which Hezekiah kept in the first year of his reign. I. The consultation about it, and the resolution he and his people came to for the observance of it, 2Ch 30:2-5. II. The invitation he sent to Judah and Israel to come and keep it, 2Ch 30:1,6. III. The joyful celebration of it, 2Ch 30:13-27. By this the reformation, set on foot in the foregoing chapter, was greatly advanced and established, and that nail in God's holy place clenched.
 
-## Preparations for the Passover. (b. c. 726.)
+## Preparations for the Passover (726 BC)
 
 > **¹** And Hezekiah sent to all Israel and Judah, and wrote letters also to Ephraim and Manasseh, that they should come to the house of the LORD at Jerusalem, to keep the passover unto the LORD God of Israel.  
 > **²** For the king had taken counsel, and his princes, and all the congregation in Jerusalem, to keep the passover in the second month.  
@@ -37,7 +37,7 @@ II\. A proclamation issued out to give notice of this passover and to summon the
 
 2\. A command was given to the men of Judah to attend this solemnity; and they universally obeyed it, 2Ch 30:12. They did it with one heart, were all of a mind in it, and *the hand of God gave* them that *one heart;* for it is in the day of power that Christ's subjects are made willing. It is God that works both *to will* and *to do.* When people, at any time, manifest an unexpected forwardness to do that which is good, we must acknowledge that hand of God in it.
 
-## The Celebration of the Passover. (b. c. 726.)
+## The Celebration of the Passover (726 BC)
 
 > **¹³** And there assembled at Jerusalem much people to keep the feast of unleavened bread in the second month, a very great congregation.  
 > **¹⁴** And they arose and took away the altars that *were* in Jerusalem, and all the altars for incense took they away, and cast *them* into the brook Kidron.  
@@ -62,7 +62,7 @@ IV\. Hezekiah's prayer to God for the forgiveness of this irregularity. It was h
 
 2\. A successful prayer: *The Lord hearkened to Hezekiah,* was well pleased with his pious concern for the congregation, and, in answer to his prayer, *healed the people* (2Ch 30:20), not only did not lay their sin to their charge, but graciously accepted their services notwithstanding; for healing denotes not only forgiveness (Isa 6:10, Ps 103:3), but comfort and peace, Isa 57:18, Mal 4:2.
 
-## The Feast of Unleavened Bread. (b. c. 726.)
+## The Feast of Unleavened Bread (726 BC)
 
 > **²¹** And the children of Israel that were present at Jerusalem kept the feast of unleavened bread seven days with great gladness: and the Levites and the priests praised the LORD day by day, *singing* with loud instruments unto the LORD.  
 > **²²** And Hezekiah spake comfortably unto all the Levites that taught the good knowledge of the LORD: and they did eat throughout the feast seven days, offering peace offerings, and making confession to the LORD God of their fathers.  

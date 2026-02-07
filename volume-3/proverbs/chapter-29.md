@@ -4,7 +4,7 @@ weight: 29
 
 # Chapter 29
 
-## Miscellaneous Maxims.
+## Miscellaneous Maxims
 
 > **¹** He, that being often reproved hardeneth *his* neck, shall suddenly be destroyed, and that without remedy.  
 
@@ -62,7 +62,7 @@ This shows how wisely the great God serves the designs of his providence by pers
 
 Here is, 1. The duty of magistrates, and that is, to judge faithfully between man and man, and to determine all causes brought before them, according to truth and equity, particularly to take care of *the poor,* not to countenance them in an unjust cause for the sake of their poverty (Ex 23:3), but to see that their poverty do not turn to their prejudice if they have a just cause. The rich will look to themselves, but *the poor* and needy the prince must *defend* (Ps 82:3) and plead for, Pr 31:9. 2. The happiness of those magistrates that do their duty. Their *throne* of honour, their tribunal of judgment, *shall be established for ever.* This will secure to them the favour of God and strengthen their interest in the affections of their people, both which will be the establishment of their power, and help to transmit it to posterity and perpetuate it in the family.
 
-## Parental Discipline.
+## Parental Discipline
 
 > **¹⁵** The rod and reproof give wisdom: but a child left *to himself* bringeth his mother to shame.  
 
@@ -76,7 +76,7 @@ Note, 1. The more sinners there are the more sin there is: *When the wicked,* be
 
 Note, 1. It is a very happy thing when children prove the comfort of their parents. Good children are so; they *give them rest,* make them easy, and free from the many cares they have had concerning them; *yea,* they *give delight unto their souls.* It is a pleasure to parents, which none know but those that are blessed with it, to see the happy fruit of the good education they have given their children, and to have a prospect of their well-doing for both worlds; it *gives delight* proportionable to the many thoughts of heart that have been concerning them. 2. In order to this, children must be trained up under a strict discipline, and not suffered to do what they will and to go without rebuke when they do amiss. The foolishness bound up in their hearts must by correction be driven out when they are young, or it will break out, to their own and their parents' shame, when they are grown up.
 
-## Miscellaneous Maxims.
+## Miscellaneous Maxims
 
 > **¹⁸** Where *there is* no vision, the people perish: but he that keepeth the law, happy *is* he.  
 

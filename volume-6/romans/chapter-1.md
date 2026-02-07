@@ -6,7 +6,7 @@ weight: 1
 
 In this chapter we may observe, I. The preface and introduction to the whole epistle, to Ac 1:1-16. II. A description of the deplorable condition of the Gentile world, which begins the proof of the doctrine of justification by faith, here laid down at Ac 1:17. The first is according to the then usual formality of a letter, but intermixed with very excellent and savoury expressions.
 
-## The Apostle's Commission. (a. d. 58.)
+## The Apostle's Commission (58 AD)
 
 > **¹** Paul, a servant of Jesus Christ, called *to be* an apostle, separated unto the gospel of God,  
 > **²** (Which he had promised afore by his prophets in the holy scriptures,)  
@@ -32,7 +32,7 @@ III\. The persons to whom it is written (Ro 1:7): *To all that are in Rome, belo
 
 IV\. The apostolical benediction (Ro 1:7): *Grace to you and peace.* This is one of the tokens in every epistle; and it hath not only the affection of a good wish, but the authority of a blessing. The priests under the law were to bless the people, and so are gospel ministers, in the name of the Lord. In this usual benediction observe, 1. The favours desired: *Grace and peace.* The Old-Testament salutation was, *Peace be to you;* but now grace is prefixed—*grace,* that is, the favour of God towards us or the work of God in us; both are previously requisite to true peace. All gospel blessings are included in these two: *grace and peace. Peace,* that is all good; peace with God, peace in your own consciences, peace with all that are about you; all these founded in grace. 2. The fountain of those favours, *from God our Father, and the Lord Jesus Christ.* All good comes, (1.) From God as a Father; he hath put himself into that relation to engage and encourage our desires and expectations; we are taught, when we come for grace and peace, to call him our Father. (2.) *From the Lord Jesus Christ,* as Mediator, and the great feoffee in trust for the conveying and securing of these benefits. We have them from his fulness, peace from the fulness of his merit, grace from the fulness of his Spirit.
 
-## Paul's Love to the Roman Christians. (a. d. 58.)
+## Paul's Love to the Roman Christians (58 AD)
 
 > **⁸** First, I thank my God through Jesus Christ for you all, that your faith is spoken of throughout the whole world.  
 > **⁹** For God is my witness, whom I serve with my spirit in the gospel of his Son, that without ceasing I make mention of you always in my prayers;  
@@ -57,7 +57,7 @@ III\. His great desire to see them, with the reasons of it, Ro 1:11-15. He had h
 
 3\. That he might discharge his trust as the apostle of the Gentiles (Ro 1:14): *I am a debtor.* (1.) His receivings made him a debtor; for they were talents he was entrusted with to trade for his Master's honour. We should think of this when we covet great things, that all our receivings put us in debt; we are but stewards of our Lord's goods. (2.) His office made him a debtor. He was a debtor as he was an apostle; he was called and sent to work, and had engaged to mind it. Paul had improved his talent, and laboured in his work, and done as much good as ever any man did, and yet, in reflection upon it, he still writes himself debtor; for, *when we have done all, we are but unprofitable servants.—Debtor to the Greeks, and to the barbarians,* that is, as the following words explain it, *to the wise and to the unwise.* The Greeks fancied themselves to have the monopoly of wisdom, and looked upon all the rest of the world as barbarians, comparatively so; not cultivated with learning and arts as they were. Now Paul was a debtor to both, looked upon himself as obliged to do all the good he could both to the one and to the other. Accordingly, we find him paying his debt, both in his preaching and in his writing, doing good *both to Greeks and barbarians,* and suiting his discourse to the capacity of each. You may observe a difference between his sermon at Lystra among the plain Lycaonians (Ac 14:15, etc.) and his sermon at Athens among the polite philosophers, Ac 17:22, etc. He delivered both as debtor to each, giving to each their portion. Though a plain preacher, yet, as debtor to the wise, he speaks wisdom among those that are perfect, 1Co 2:6. For these reasons he was ready, if he had an opportunity, *to preach the gospel at Rome,* Ro 1:15. Though a public place, though a perilous place, where Christianity met with a great deal of opposition, yet Paul was ready to run the risk at Rome, if called to it: *I am ready*—*prothymon.* It denotes a great readiness of mind, and that he was very forward to it. What he did was not for filthy lucre, but of a ready mind. It is an excellent thing to be ready to meet every opportunity of doing or getting good.
 
-## Paul's Discourse on Justification. (a. d. 58.)
+## Paul's Discourse on Justification (58 AD)
 
 > **¹⁶** For I am not ashamed of the gospel of Christ: for it is the power of God unto salvation to every one that believeth; to the Jew first, and also to the Greek.  
 > **¹⁷** For therein is the righteousness of God revealed from faith to faith: as it is written, The just shall live by faith.  
@@ -79,7 +79,7 @@ II\. The proof of this proposition, that both Jews and Gentiles stand in need of
 
 3\. The displeasure of God against it: *The wrath of God is revealed from heaven;* not only in the written word, *which is given by inspiration of God* (the Gentiles had not that), but in the providences of God, his judgments executed upon sinners, which do not spring out of the dust, or fall out by chance, nor are they to be ascribed to second causes, but they are a revelation from heaven. Or *wrath from heaven is revealed;* it is not the wrath of a man like ourselves, *but wrath from heaven,* therefore the more terrible and the more unavoidable.
 
-## The Excellency of the Gospel. (a. d. 58.)
+## The Excellency of the Gospel (58 AD)
 
 > **¹⁹** Because that which may be known of God is manifest in them; for God hath showed *it* unto them.  
 > **²⁰** For the invisible things of him from the creation of the world are clearly seen, being understood by the things that are made, *even* his eternal power and Godhead; so that they are without excuse:  

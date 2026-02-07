@@ -6,7 +6,7 @@ weight: 4
 
 The apostle, having in the foregoing chapter set forth the sin and punishment of the ancient Jews, proceeds in this, I. To declare that our privileges by Christ under the gospel exceed the privileges of the Jewish church under Moses, as a reason why we should make a right improvement of them, Heb 4:1-4. II. He assigns the cause why the ancient Hebrews did not profit by their religious privileges, Heb 4:2. Then, III. Confirms the privileges of those who believe, and the misery of those who continue in unbelief, Heb 4:3-10. IV. Concludes with proper and powerful arguments and motives to faith and obedience.
 
-## Gospel Privileges; Cautions against Apostasy. (a. d. 62.)
+## Gospel Privileges; Cautions against Apostasy (62 AD)
 
 > **¹** Let us therefore fear, lest, a promise being left *us* of entering into his rest, any of you should seem to come short of it.  
 > **²** For unto us was the gospel preached, as well as unto them: but the word preached did not profit them, not being mixed with faith in them that heard *it.*  
@@ -35,7 +35,7 @@ V\. The apostle confirms the happiness of all those who truly believe the gospel
 
 VI\. The apostle confirms the misery of those who do not believe; they shall never enter into this spiritual rest, either of grace here or glory hereafter. This is as certain as the word and oath of God can make it. As sure as God has entered into his rest, so sure it is that obstinate unbelievers shall be excluded. As sure as the unbelieving Jews fell in the wilderness, and never reached the promised land, so sure it is that unbelievers shall fall into destruction, and never reach heaven. As sure as Joshua, the great captain of the Jews, could not give them possession of Canaan because of their unbelief, notwithstanding his eminent valour and conduct, so sure it is that even Jesus himself, and captain of our salvation, notwithstanding all that fulness of grace and strength that dwells in him, will not, cannot, give to final unbelievers either spiritual or eternal rest: it remains only for the people of God; others by their sin abandon themselves to eternal restlessness.
 
-## Serious Exhortation; The Priesthood of Christ. (a. d. 62.)
+## Serious Exhortation; The Priesthood of Christ (62 AD)
 
 > **¹¹** Let us labour therefore to enter into that rest, lest any man fall after the same example of unbelief.  
 > **¹²** For the word of God *is* quick, and powerful, and sharper than any two-edged sword, piercing even to the dividing asunder of soul and spirit, and of the joints and marrow, and *is* a discerner of the thoughts and intents of the heart.  

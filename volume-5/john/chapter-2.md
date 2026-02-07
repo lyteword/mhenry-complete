@@ -6,7 +6,7 @@ weight: 2
 
 In the close of the foregoing chapter we had an account of the first disciples whom Jesus called, Andrew and Peter, Philip and Nathanael. These were the first-fruits to God and to the Lamb, Re 14:4. Now, in this chapter, we have, I. The account of the first miracle which Jesus wrought-turning water into wine, at Cana of Galilee (Joh 2:1-11), and his appearing at Capernaum, Joh 2:12. II. The account of the first passover he kept at Jerusalem after he began his public ministry; his driving the buyers and sellers out of the temple (Joh 2:13-17); and the sign he gave to those who quarrelled with him for it (Joh 2:18-22), with an account of some almost believers, that followed him, thereupon, for some time (Joh 2:23-25), but he knew them too well to put any confidence in them.
 
-## Water Turned into Wine.
+## Water Turned into Wine
 
 > **¹** And the third day there was a marriage in Cana of Galilee; and the mother of Jesus was there:  
 > **²** And both Jesus was called, and his disciples, to the marriage.  
@@ -72,7 +72,7 @@ II\. The miracle itself. In which observe,
 
 III\. In the conclusion of this story (Joh 2:11) we are told, 1. That this was *the beginning of miracles* which Jesus did. Many miracles had been wrought *concerning* him at his birth and baptism, and he himself was the greatest miracle of all; but this was the first that was wrought *by* him. He could have wrought miracles when he disputed with the doctors, but his hour was not come. He had power, but there was a *time of the hiding of his power.* 2. That herein he *manifested his glory;* hereby he proved himself to be the Son of God, and his glory to be that of the only-begotten of the Father. He also discovered the nature and end of his office; the power of a God, and the grace of a Saviour, appearing in all his miracles, and particularly in this, manifested the glory of the long-expected Messiah. 3. That *his disciples believed on him.* Those whom he had called (Joh 1:35-51), who had seen no miracle, and yet followed him, now saw this, shared in it, and had their faith strengthened by it. Note, (1.) Even the faith that is true is at first but weak. The strongest men were once babes, so were the strongest Christians. (2.) The manifesting of the glory of Christ is the great confirmation of the faith of Christians.
 
-## Temple-Merchandise Punished; Christ's Death and Resurrection Foretold.
+## Temple-Merchandise Punished; Christ's Death and Resurrection Foretold
 
 > **¹²** After this he went down to Capernaum, he, and his mother, and his brethren, and his disciples: and they continued there not many days.  
 > **¹³** And the Jews' passover was at hand, and Jesus went up to Jerusalem,  
@@ -142,7 +142,7 @@ Now, [1.] The sign that he gives them is his own *death* and *resurrection.* He 
 
 [2.] What use they made of it: *They believed the scripture, and the word that Jesus had said;* their belief of these was confirmed and received fresh support and vigour. They were slow of heart to believe (Lu 24:25), but they were *sure.* The *scripture* and the *word of Christ* are here put together, not because they concur and exactly agree together, but because they mutually illustrate and strengthen each other. When the disciples saw both what they had read in the Old Testament, and what they had heard from Christ's own mouth, fulfilled in his death and resurrection, they were the more confirmed in their belief of both.
 
-## The Success of Christ's Ministry.
+## The Success of Christ's Ministry
 
 > **²³** Now when he was in Jerusalem at the passover, in the feast *day,* many believed in his name, when they saw the miracles which he did.  
 > **²⁴** But Jesus did not commit himself unto them, because he knew all *men,*  

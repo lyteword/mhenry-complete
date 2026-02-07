@@ -6,7 +6,7 @@ weight: 2
 
 In this chapter the apostle, I. Makes some application of the doctrine laid down in the chapter foregoing concerning the excellency of the person of Christ, both by way of exhortation and argument, Heb 2:1-4. II. Enlarges further upon the pre-eminence of Christ above the angels, Heb 2:5-9. III. Proceeds to remove the scandal of the cross, Heb 2:10-15. IV. Asserts the incarnation of Christ, taking upon him not the nature of angels, but the seed of Abraham, and assigns the reason of his so doing, Heb 2:16-18.
 
-## The Danger of Neglect. (a. d. 62.)
+## The Danger of Neglect (62 AD)
 
 > **¹** Therefore we ought to give the more earnest heed to the things which we have heard, lest at any time we should let *them* slip.  
 > **²** For if the word spoken by angels was stedfast, and every transgression and disobedience received a just recompence of reward;  
@@ -27,7 +27,7 @@ II\. By way of argument, he adds strong motives to enforce the exhortation.
 
 4\. Another argument is taken from the character of those who were witnesses to Christ and the gospel (Heb 2:3,4): *It was confirmed to us by those that heard him, God also bearing them witness.* Observe, (1.) The promulgation of the gospel was continued and confirmed by those who heard Christ, by the evangelists and apostles, who were eye and ear-witnesses of what Jesus Christ began both to do and to teach, Ac 1:1. These witnesses could have no worldly end or interest of their own to serve hereby. Nothing could induce them to give in their evidence but the Redeemer's glory, and their own and others' salvation; they exposed themselves by their testimony to the loss of all that was dear to them in this life, and many of them sealed it with their blood. (2.) *God himself bore witness* to those who were witnesses for Christ; he testified that they were authorized and sent by him to preach Christ and salvation by him to the world. And how did he bear them witness? Not only by giving them great peace in their own minds, great patience under all their sufferings, and unspeakable courage and joy (though these were witnesses to themselves), but he bore them witness *by signs, and wonders, and divers miracles, and gifts of the Holy Ghost, according to his will.* [1.] With *signs,* signs of his gracious presence with them, and of his power working by them. [2.] *Wonders,* works quite beyond the power of nature, and out of the course of nature, filling the spectators with wonder and admiration, stirring them up to attend to the doctrine preached, and to enquire into it. [3.] *Divers miracles,* or mighty works, in which an almighty agency appeared beyond all reasonable controversy. [4.] *Gifts of the Holy Ghost,* qualifying, enabling, and exciting them to do the work to which they were called—*divisions or distributions of the Holy Ghost, diversities of gifts,* 1Co 12:4, etc. And all this *according to God's own will.* It was the will of God that we should have sure footing for our faith, and a strong foundation for our hope in receiving the gospel. As at the giving forth of the law there were signs and wonders, by which God testified the authority and excellency of it, so he witnessed to the gospel by more and greater miracles, as to a more excellent and abiding dispensation.
 
-## Design of Christ's Sufferings. (a. d. 62.)
+## Design of Christ's Sufferings (62 AD)
 
 > **⁵** For unto the angels hath he not put in subjection the world to come, whereof we speak.  
 > **⁶** But one in a certain place testified, saying, What is man, that thou art mindful of him? or the son of man, that thou visitest him?  
@@ -45,7 +45,7 @@ II\. We have a scripture—account of that blessed Jesus to whom the gospel worl
 
 2\. As applied to the Lord Jesus Christ, and the whole that is here said can be applied only to him, Heb 2:8,9. And here you may observe, (1.) What is the moving cause of all the kindness God shows to men in giving Christ for them and to them; and that is the grace of God. For *what is man?* (2.) What are the fruits of this free grace of God with respect to the gift of Christ for us and to us, as related in this scripture-testimony. [1.] That God was mindful of Christ for us in the covenant of redemption. [2.] That God visited Christ on our account; and it was concluded between them that in the fulness of time Christ should come into the world, as the great archetypal sacrifice. [3.] That God had made him a little lower than the angels, in his being made man, that he might suffer and humble himself to death. [4.] That God crowned the human nature of Christ with glory and honour, in his being perfectly holy, and having the Spirit without measure, and by an ineffable union with the divine nature in the second person of the Trinity, the fulness of the Godhead dwelling in him bodily; that by his sufferings he might make satisfaction, tasting death for every man, sensibly feeling and undergoing the bitter agonies of that shameful, painful, and cursed death of the cross, hereby putting all mankind into a new state of trial. [5.] That, as a reward of his humiliation in suffering death, he was crowned with glory and honour, advanced to the highest dignity in heaven, and having absolute dominion over all things, thus accomplishing that ancient scripture in Christ, which never was so accomplished or fulfilled in any mere man that ever was upon earth.
 
-## Design of Christ's Sufferings. (a. d. 62.)
+## Design of Christ's Sufferings (62 AD)
 
 > **¹⁰** For it became him, for whom *are* all things, and by whom *are* all things, in bringing many sons unto glory, to make the captain of their salvation perfect through sufferings.  
 > **¹¹** For both he that sanctifieth and they who are sanctified *are* all of one: for which cause he is not ashamed to call them brethren,  
@@ -80,7 +80,7 @@ II\. He shows how much they would be benefited by the cross and sufferings of Ch
 
 [3.] The third scripture is taken from Isa 8:18, *Behold, I and the children which God hath given me.* This proves Christ really and truly man, for parents and children are of the same nature. Christ's children were given him of the Father, in the counsel of his eternal love, and that covenant of peace which was between them. And they are given to Christ at their conversion. When they take hold of his covenant, then Christ receives them, rules over them, rejoices in them, perfects all their affairs, takes them up to heaven, and there presents them to his Father, *Behold, I and the children which thou hast given me.*
 
-## Christ's Incarnation. (a. d. 62.)
+## Christ's Incarnation (62 AD)
 
 > **¹⁴** Forasmuch then as the children are partakers of flesh and blood, he also himself likewise took part of the same; that through death he might destroy him that had the power of death, that is, the devil;  
 > **¹⁵** And deliver them who through fear of death were all their lifetime subject to bondage.  

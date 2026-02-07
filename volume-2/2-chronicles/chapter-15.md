@@ -6,7 +6,7 @@ weight: 15
 
 Asa and his army were now returning in triumph from the battle, laden with spoils and adorned with the trophies of victory, the pious prince, we may now suppose, studying what he should render to God for this great favour. He knew that the work of reformation, which he had begun in his kingdom, was not perfected; his enemies abroad were subdued, but there were more dangerous enemies at home that were yet unconquered—idols in Judah and Benjamin: his victory over the former emboldened him vigorously to renew his attack upon the latter. Now here we have, I. The message which God sent to him, by a prophet, to engage him to, and encourage him in, the prosecution of his reformation, 2Ch 15:1-7. II. The life which this message put into that good cause, and their proceedings in pursuance of it. Idols removed, 2Ch 15:8. The spoil dedicated to God, 2Ch 15:9-11. A covenant made with God, and a law for the punishing of idolaters, 2Ch 15:12-15. A reformation at court, 2Ch 15:16. Dedicated things brought into the house of God, 2Ch 15:18. All well, but that the high places were permitted, 2Ch 15:17. And the effect of this was great peace, 2Ch 15:19.
 
-## God's Message to Asa. (b. c. 945.)
+## God's Message to Asa (945 BC)
 
 > **¹** And the Spirit of God came upon Azariah the son of Oded:  
 > **²** And he went out to meet Asa, and said unto him, Hear ye me, Asa, and all Judah and Benjamin; The LORD *is* with you, while ye be with him; and if ye seek him, he will be found of you; but if ye forsake him, he will forsake you.  
@@ -24,7 +24,7 @@ II\. He set before them the dangerous consequence of forsaking God and his ordin
 
 III\. Upon this he grounded his exhortation to prosecute the work of reformation with vigour (2Ch 15:7): *Be strong, for your work shall be rewarded.* Note, 1. God's work should be done with diligence and cheerfulness, but will not be done without resolution. 2. This should quicken us to the work of religion, that we shall be sure not to lose by it ultimately. It will not go unrewarded. How should it, when the work is its own reward?
 
-## Asa Reforms His Kingdom. (b. c. 940.)
+## Asa Reforms His Kingdom (940 BC)
 
 > **⁸** And when Asa heard these words, and the prophecy of Oded the prophet, he took courage, and put away the abominable idols out of all the land of Judah and Benjamin, and out of the cities which he had taken from mount Ephraim, and renewed the altar of the LORD, that *was* before the porch of the LORD.  
 > **⁹** And he gathered all Judah and Benjamin, and the strangers with them out of Ephraim and Manasseh, and out of Simeon: for they fell to him out of Israel in abundance, when they saw that the LORD his God *was* with him.  

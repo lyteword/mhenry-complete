@@ -6,7 +6,7 @@ weight: 28
 
 Now that the people were numbered, orders given for the dividing of the land, and a general of the forces nominated and commissioned, one would have expected that the next chapter should begin the history of the campaign, or at least should give us an account of the ordinances of war; no, it contains the ordinances of worship, and provides that now, as they were on the point of entering Canaan, they should be sure to take their religion along with them, and not forget this, in the prosecution of their wars, Nu 28:1,2. The laws are here repeated and summed up concerning the sacrifices that were to be offered, I. Daily, Nu 28:3-8. II. Weekly, Nu 28:9,10. III. Monthly, Nu 28:11-15. IV. Yearly. 1. At the passover, Nu 28:16-25. 2. At pentecost, Nu 28:26-31. And the next chapter is concerning the annual solemnities of the seventh month.
 
-## Laws Concerning Sacrifices. (b. c. 1452.)
+## Laws Concerning Sacrifices (1452 BC)
 
 > **¹** And the LORD spake unto Moses, saying,  
 > **²** Command the children of Israel, and say unto them, My offering, *and* my bread for my sacrifices made by fire, *for* a sweet savour unto me, shall ye observe to offer unto me in their due season.  

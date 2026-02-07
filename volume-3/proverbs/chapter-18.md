@@ -4,7 +4,7 @@ weight: 18
 
 # Chapter 18
 
-## Wisdom and Folly.
+## Wisdom and Folly
 
 > **¹** Through desire a man, having separated himself, seeketh *and* intermeddleth with all wisdom.  
 
@@ -18,7 +18,7 @@ A fool may pretend to understanding, and to seek and intermeddle with the means 
 
 This may include a double sense:—1. That wicked people are scornful people, and put *contempt* upon others. *When the wicked comes* into any company, comes into the schools of wisdom or into the assemblies for religious worship, *then comes contempt* of God, of his people and ministers, and of every thing that is said and done. You can expect no other from those that are profane than that they will be scoffers; they will be an *ignominy* and *reproach;* they will flout and jeer every thing that is serious and grave. But let not wise and good men regard it, for the proverb of the ancients says, such *wickedness proceeds from the wicked.* 2. That wicked people are shameful people, and bring *contempt* upon themselves, for God has said that those *who despise him shall be lightly esteemed.* As soon as ever sin entered shame followed it, and sinners make themselves despicable. Nor do they only draw contempt upon themselves, but they bring *ignominy* and *reproach* upon their families, their friends, their ministers, and all that are in any way related to them. Those therefore who would secure their honour must retain their virtue.
 
-## The Language of Folly.
+## The Language of Folly
 
 > **⁴** The words of a man's mouth *are as* deep waters, *and* the wellspring of wisdom *as* a flowing brook.  
 
@@ -37,7 +37,7 @@ Solomon has often shown what mischief bad men do to others with their ungoverned
 
 Tale-bearers are those who secretly carry stories from house to house, which perhaps have some truth in them, but are secrets not fit to be told, or are basely misrepresented, and false colours put upon them, and are all told with design to blast men's reputation, to break their friendship, to make mischief between relations and neighbours, and set them at variance. Now the words of such are here said to be, 1. *Like as when men are wounded* (so the margin reads it); they pretend to be very much affected with the miscarriages of such and such, and to be in pain for them, and pretend that it is with the greatest grief and reluctance imaginable that they speak of them. They look as if they themselves were wounded by it, whereas really they *rejoice in iniquity,* are fond of the story, and tell it with pride and pleasure. Thus their words seem; but they *go down as poison into the innermost parts of the belly,* the pill being thus gilded, thus sugared. 2. *As wounds* (so the text reads it), as deep wounds, deadly wounds, *wounds in the innermost parts of the belly;* the *venter medius vel infimus—the middle or lower belly,* the *thorax* or the *abdomen,* in either of which wounds are mortal. The words of the tale-bearer wound him of whom they are spoken, his credit and interest, and him to whom they are spoken, his love and charity. They occasion sin to him, which is a wound to the conscience. Perhaps he seems to slight them, but they would insensibly, by alienating his affections from one he ought to love.
 
-## Folly and Pride Exposed.
+## Folly and Pride Exposed
 
 > **⁹** He also that is slothful in his work is brother to him that is a great waster.  
 
@@ -59,7 +59,7 @@ Note, 1. Pride is the presage of ruin, and ruin will at last be the punishment o
 
 See here how men often expose themselves by that very thing by which they hope to gain applause. 1. Some take a pride in being quick. They *answer a matter before they hear it,* hear it out, nay, as soon as they but hear of it. They think it is their honour to take up a cause suddenly; and, when they have heard one side, they think the matter so plain that they need not trouble themselves to hear the other; they are already apprized of it, and masters of all the merits of the cause. Whereas, though a ready wit is an agreeable thing to play with, it is solid judgment and sound wisdom that do business. 2. Those that take a pride in being quick commonly fall under the just reproach of being impertinent. It is folly for a man to go about to speak to a thing which he does not understand, or to pass sentence upon a matter which he is not truly and fully informed of, and has not patience to make a strict enquiry into; and, if it be folly, it is and will be shame.
 
-## Miscellaneous Maxims.
+## Miscellaneous Maxims
 
 > **¹⁴** The spirit of a man will sustain his infirmity; but a wounded spirit who can bear?  
 

@@ -6,7 +6,7 @@ weight: 6
 
 The glory of the Lord, in the vehicle of a thick cloud, having filled the house which Solomon built, by which God manifested his presence there, he immediately improves the opportunity, and addresses God, as a God now, in a peculiar manner, nigh at hand. I. He makes a solemn declaration of his intention in building this house, to the satisfaction of the people and the honour of God, both of whom he blessed, 2Ch 6:1-11. II. He makes a solemn prayer to God that he would please graciously to accept and answer all the prayers that should be made in, or towards, that house, 2Ch 6:12-42. This whole chapter we had before, with very little variation (1Ki 8:12-53), to which it may not be amiss here to look back.
 
-## Solomon's Prayer to God. (b. c. 1004.)
+## Solomon's Prayer to God (1004 BC)
 
 > **¹** Then said Solomon, The LORD hath said that he would dwell in the thick darkness.  
 > **²** But I have built a house of habitation for thee, and a place for thy dwelling for ever.  

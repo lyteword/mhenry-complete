@@ -6,7 +6,7 @@ weight: 8
 
 The building and furniture of the temple were very glorious, but the dedication of it exceeds in glory as much as prayer and praise, the work of saints, exceed the casting of metal and the graving of stones, the work of the craftsman. The temple was designed for the keeping up of the correspondence between God and his people; and here we have an account of the solemnity of their first meeting there. I. The representatives of all Israel were called together (1Ki 8:1,2), to keep a feast to the honour of God, for fourteen days, 1Ki 8:65. II. The priests brought the ark into the most holy place, and fixed it there, 1Ki 8:3-9. III. God took possession of it by a cloud, 1Ki 8:10,11. IV. Solomon, with thankful acknowledgments to God, informed the people touching the occasion of their meeting, 1Ki 8:12-21. V. In a long prayer he recommended to God's gracious acceptance all the prayers that should be made in or towards this place, 1Ki 8:22-53. VI. He dismissed the assembly with a blessing and an exhortation, 1Ki 8:54-61. VII. He offered abundance of sacrifices, on which he and his people feasted, and so parted, with great satisfaction, 1Ki 8:62-66. These were Israel's golden days, days of the Son of man in type.
 
-## The Dedication of the Temple. (b. c. 1003.)
+## The Dedication of the Temple (1003 BC)
 
 > **¹** Then Solomon assembled the elders of Israel, and all the heads of the tribes, the chief of the fathers of the children of Israel, unto king Solomon in Jerusalem, that they might bring up the ark of the covenant of the LORD out of the city of David, which *is* Zion.  
 > **²** And all the men of Israel assembled themselves unto king Solomon at the feast in the month Ethanim, which *is* the seventh month.  
@@ -53,7 +53,7 @@ II\. He instructs the people, and gives them a plain account concerning this hou
 
 (2.) Solomon is now making a solemn surrender or dedication of this house unto God, delivering it to God by his own act and deed. Grants and conveyances commonly begin with recitals of what has been before done, leading to what is now done: accordingly, here is a recital of the special causes and considerations moving Solomon to build this house. [1.] He recites the want of such a place. It was necessary that this should be premised; for, according to the dispensation they were under, there must be but one place in which they must expect God to record his name. If, therefore, there were any other chosen, this would be a usurpation. But he shows, from what God himself had said, that there was no other (1Ki 8:16): *I chose no city to build a house in for my name;* therefore there is occasion for the building of this. [2.] He recites David's purpose to build such a place. God chose the person first that should rule his people (*I chose David,* 1Ki 8:16) and then put it into *his heart to build a house* for God's name, 1Ki 8:17. It was not a project of his own, for the magnifying of himself; but his good father, of blessed memory, laid the first design of it, though he lived not to lay the first stone. [3.] He recites God's promise concerning himself. God approved his father's purpose (1Ki 8:18): *Thou didst well, that it was in thy heart.* Note, Sincere intentions to do good shall be graciously approved and accepted of God, though Providence prevent our putting them in execution. *The desire of a man is his kindness.* See 2Co 8:12. God accepted David's good will, yet would not permit him to do the good work, but reserved the honour of it for his son (1Ki 8:19): *He shall build the house to my name;* so that what he had done was not of his own head, nor for his own glory, but the work itself was according to his father's design and his doing it was according to God's designation. [4.] He recites what he himself had done, and with what intention: *I have built a house,* not for my own name, but *for the name of the Lord God of Israel* (1Ki 8:20), and *set there a place for the ark,* 1Ki 8:21. Thus all the right, title, interest, claim, and demand, whatsoever, which he or his had or might have in or to this house, or any of its appurtenances, he resigns, surrenders, and gives up, to God for ever. It is for his name, and his ark. In this, says he, *the Lord hath performed his word that he spoke.* Note, Whatever good we do, we must look upon it as the performance of God's promise to us, rather than the performance of our promises to him. The more we do for God the more we are indebted to him; for our sufficiency is of him, and not of ourselves.
 
-## Solomon's Prayer. (b. c. 1003.)
+## Solomon's Prayer (1003 BC)
 
 > **²²** And Solomon stood before the altar of the LORD in the presence of all the congregation of Israel, and spread forth his hands toward heaven:  
 > **²³** And he said, LORD God of Israel, *there is* no God like thee, in heaven above, or on earth beneath, who keepest covenant and mercy with thy servants that walk before thee with all their heart:  
@@ -126,7 +126,7 @@ III\. The prayer itself was very long, and perhaps much longer than is here reco
 
 *Lastly,* After all these particulars, he concludes with this general request, that God would hearken to all his praying people *in all that they call unto him for,* 1Ki 8:52. No place now, under the gospel, can be imagined to add any acceptableness to the prayers made in or towards it, as the temple then did. That was a shadow: the substance is Christ; whatever we ask in his name, it shall be given us.
 
-## Solomon Blesses and Exhorts the People. (b. c. 1003.)
+## Solomon Blesses and Exhorts the People (1003 BC)
 
 > **⁵⁴** And it was *so,* that when Solomon had made an end of praying all this prayer and supplication unto the LORD, he arose from before the altar of the LORD, from kneeling on his knees with his hands spread up to heaven.  
 > **⁵⁵** And he stood, and blessed all the congregation of Israel with a loud voice, saying,  
@@ -145,7 +145,7 @@ II\. He blesses himself and the congregation, expressing his earnest desire and 
 
 III\. He solemnly charges his people to continue and persevere in their duty to God. Having spoken to God for them, he here speaks from God to them, and those only would fare the better for his prayers that were made better by his preaching. His admonition, at parting, is, "*Let your heart be perfect with the Lord our God,* 1Ki 8:61. Let your obedience be universal, without dividing—upright, without dissembling—constant, without declining;" this is evangelical perfection.
 
-## Solomon Holds a Great Feast. (b. c. 1003.)
+## Solomon Holds a Great Feast (1003 BC)
 
 > **⁶²** And the king, and all Israel with him, offered sacrifice before the LORD.  
 > **⁶³** And Solomon offered a sacrifice of peace offerings, which he offered unto the LORD, two and twenty thousand oxen, and an hundred and twenty thousand sheep. So the king and all the children of Israel dedicated the house of the LORD.  

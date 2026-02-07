@@ -6,7 +6,7 @@ weight: 16
 
 This chapter relates wholly to the kingdom of Israel, and the revolutions of that kingdom—many in a little time. The utter ruin of Jeroboam's family, after it had been twenty-four years a royal family, we read of in the foregoing chapter. In this chapter we have, I. The ruin of Baasha's family, after it had been but twenty-six years a royal family, foretold by a prophet (1Ki 16:1-7), and executed by Zimri, one of his captains, 1Ki 16:8-14. II. The seven days' reign of Zimri, and his sudden fall, 1Ki 16:15-20. III. The struggle between Omri and Tibni, and Omri's prevalency, and his reign, 1Ki 16:21-28. IV. The beginning of the reign of Ahab, of whom we shall afterwards read much, 1Ki 16:29-32. V. The rebuilding of Jericho, 1Ki 16:34. All this while, in Judah, things went well.
 
-## Ruin of Baasha's Family Foretold. (b. c. 931.)
+## Ruin of Baasha's Family Foretold (931 BC)
 
 > **¹** Then the word of the LORD came to Jehu the son of Hanani against Baasha, saying,  
 > **²** Forasmuch as I exalted thee out of the dust, and made thee prince over my people Israel; and thou hast walked in the way of Jeroboam, and hast made my people Israel to sin, to provoke me to anger with their sins;  
@@ -43,7 +43,7 @@ III\. Execution done at last. Baasha's son Elah, like Jeroboam's son Nadab, reig
 
 2\. As then, so now, the whole family was cut off, and rooted out. The traitor was the successor, to whom the unthinking people tamely submitted, as if it were all one to them what kind they had, so that they had one. The first thing Zimri did was to *slay all the house of Baasha;* thus he held by cruelty what he got by treason. His cruelty seems to have extended further than Baasha's did against the house of Jeroboam, for he left to Elah *none of his kinsfolks or friends* (1Ki 16:11), *none of his avengers* (so the word is), none that were likely to avenge his death; yet divine justice soon avenged it so remarkably that it was used as a proverb long after, *Had Zimri peace who slew his master?* 2Ki 9:31. In this, (1.) The word of God was fulfilled, 1Ki 16:12. (2.) The sins of Baasha and Elah were reckoned for, with which they *provoked God by their vanities,* 1Ki 16:13. Their idols are called their *vanities,* for they cannot profit nor help. Miserable are those whose deities are vanities.
 
-## Zimri's Death; Reign of Omri. (b. c. 929.)
+## Zimri's Death; Reign of Omri (929 BC)
 
 > **¹⁵** In the twenty and seventh year of Asa king of Judah did Zimri reign seven days in Tirzah. And the people *were* encamped against Gibbethon, which *belonged* to the Philistines.  
 > **¹⁶** And the people *that were* encamped heard say, Zimri hath conspired, and hath also slain the king: wherefore all Israel made Omri, the captain of the host, king over Israel that day in the camp.  
@@ -72,7 +72,7 @@ IV\. How he reigned when he was at length settled on the throne. 1. He made hims
 
 V\. How he ended his reign, 1Ki 16:27. He was in some repute for the might which he showed. Many a bad man has been a stout man. He died in his bed, as did Jeroboam and Baasha themselves; but, like them, left it to his posterity to fill up the measure, and then pay off the scores, of his iniquity.
 
-## Ahab's Reign. (b. c. 925.)
+## Ahab's Reign (925 BC)
 
 > **²⁹** And in the thirty and eighth year of Asa king of Judah began Ahab the son of Omri to reign over Israel: and Ahab the son of Omri reigned over Israel in Samaria twenty and two years.  
 > **³⁰** And Ahab the son of Omri did evil in the sight of the LORD above all that *were* before him.  

@@ -6,7 +6,7 @@ weight: 97
 
 This psalm dwells upon the same subject, and is set to the same tune, with the foregoing psalm. Christ is the Alpha and the Omega of both; they are both penned, and are both to be sung to his honour; and we make nothing of them if we do not, in them, make melody with our hearts to the Lord Jesus. He it is that reigns, to the joy of all mankind (Ps 97:1); and his government speaks, I. Terror to his enemies; for he is a prince of inflexible justice and irresistible power, Ps 97 2-7. II. Comfort to his friends and loyal subjects, arising from his sovereign dominion, the care he takes of his people, and the provision he makes for them, Ps 97:8-12. In singing this psalm we must be affected with the glory of the exalted Redeemer, must dread the lot of his enemies, and think ourselves happy if we are of those that "kiss the son."
 
-## Righteousness and Glory of the Divine Government; Establishment of Christ's Kingdom.
+## Righteousness and Glory of the Divine Government; Establishment of Christ's Kingdom
 
 > **¹** The LORD reigneth; let the earth rejoice; let the multitude of isles be glad *thereof.*  
 > **²** Clouds and darkness *are* round about him: righteousness and judgment *are* the habitation of his throne.  
@@ -28,7 +28,7 @@ II\. Christ's government, though it may be matter of joy to all, will yet be mat
 
 3\. Idolaters also would be put to confusion by the setting up of Christ's kingdom (Ps 97:7): *Confounded be all those who serve graven images,* the Gentile world, who *did service to those that by nature are no gods* (Ga 4:8), who boasted themselves of idols as their protectors and benefactors. Did those that served idols boast of them, and shall the servants of the living God distrust him, or be ashamed of him? *Let those be ashamed that serve graven images.* (1.) This is a prayer for the conversion of the Gentiles, that those who have been so long serving dumb idols may be convinced of their error, ashamed of their folly, and may, by the power of Christ's gospel, be brought to serve the only living and true God, and may be as much ashamed of their idols as ever they were proud of them. See Isa 2:20,21. (2.) This is a prophecy of the ruin of those that would not be reformed and reclaimed from their idolatry; they shall be confounded by the destruction of Paganism in the Roman empire, which was fulfilled about 300 years after Christ, so much to the terror of idolaters that some think it was the revolution under Constantine that made even the mighty men say to the rocks, *Fall on us and hide us,* Re 6:15,16. This prayer and prophecy are still in force against antichristian idolaters, who may here read their doom: *Confounded be all those that worship graven images,* Ps 97:7. See Jer 48:13.
 
-## Zion Rejoicing in the Reign of Christ.
+## Zion Rejoicing in the Reign of Christ
 
 > **⁸** Zion heard, and was glad; and the daughters of Judah rejoiced because of thy judgments, O LORD.  
 > **⁹** For thou, LORD, *art* high above all the earth: thou art exalted far above all gods.  

@@ -6,7 +6,7 @@ weight: 23
 
 In the foregoing chapter, we had our Saviour's discourses with the scribes and Pharisees; here we have his discourse concerning them, or rather against them. I. He allows their office, Mt 23:2,3. II. He warns his disciples not to imitate their hypocrisy and pride, Mt 23:4-12. III. He exhibits a charge against them for divers high crimes and misdemeanors, corrupting the law, opposing the gospel, and treacherous dealing both with God and man; and to each article he prefixes a woe, Mt 23:13-33. IV. He passes sentence upon Jerusalem, and foretels the ruin of the city and temple, especially for the sin of persecution, Mt 23:34-39.
 
-## The Scribes and Pharisees Condemned; Cautions against Pride.
+## The Scribes and Pharisees Condemned; Cautions against Pride
 
 > **¹** Then spake Jesus to the multitude, and to his disciples,  
 > **²** Saying, The scribes and the Pharisees sit in Moses' seat:  
@@ -81,7 +81,7 @@ The reason given is, *One is your Father, who is in heaven.* God is our Father, 
 
 *Secondly,* The preferment intended for the humble; *He that shall humble himself shall be exalted.* Humility is that *ornament which is in the sight of God of great price.* In this world the humble have the honour of being accepted with the holy God, and respected by all wise and good men; of being qualified for, and often called out to, the most honourable services; for honour is like the shadow, which flees from those that pursue it, and grasp at it, but follows those that flee from it. However, in the other world, they that have humbled themselves in contrition for their sin, in compliance with their God, and in condescension to their brethren, shall be exalted to inherit the throne of glory; shall be not only owned, but crowned, before angels and men.
 
-## The Crimes of the Pharisees.
+## The Crimes of the Pharisees
 
 > **¹³** But woe unto you, scribes and Pharisees, hypocrites! for ye shut up the kingdom of heaven against men: for ye neither go in *yourselves,* neither suffer ye them that are entering to go in.  
 > **¹⁴** Woe unto you, scribes and Pharisees, hypocrites! for ye devour widows' houses, and for a pretence make long prayer: therefore ye shall receive the greater damnation.  
@@ -203,7 +203,7 @@ Here is, *First,* Their description; *Ye serpents.* Doth Christ call names? Yes,
 
 *Secondly,* Their doom. He represents their condition as very sad, and in a manner desperate; *How can ye escape the damnation of hell?* Christ himself preached hell and damnation, for which his ministers have often been reproached by those that care not to hear of it. Note, 1. The damnation of hell will be the fearful end of all impenitent sinners. This doom coming from Christ, was more terrible than coming from all the prophets and ministers that ever were, for he is the Judge, into whose hands the keys of hell and death are put, and his saying they were damned, made them so. 2. There is a way of escaping this damnation, this is implied here; some are *delivered from the wrath to come.* 3. Of all sinners, those who are of the spirit of the scribes and Pharisees, are least likely to escape this damnation; for repentance and faith are necessary to that escape; and how will *they* be brought to these, who are so conceited of themselves, and so prejudiced against Christ and his gospel, as they were? How could they be healed and saved, who could not bear to have their wound searched, nor the balm of Gilead applied to it? Publicans and harlots, who were sensible of their disease and applied themselves to the Physician, were more likely to escape the damnation of hell than those who, though they were in the high road to it, were confident they were in the way to heaven.
 
-## The Doom of the Pharisees; The Guilt and Doom of Jerusalem.
+## The Doom of the Pharisees; The Guilt and Doom of Jerusalem
 
 > **³⁴** Wherefore, behold, I send unto you prophets, and wise men, and scribes: and *some* of them ye shall kill and crucify; and *some* of them shall ye scourge in your synagogues, and persecute *them* from city to city:  
 > **³⁵** That upon you may come all the righteous blood shed upon the earth, from the blood of righteous Abel unto the blood of Zacharias son of Barachias, whom ye slew between the temple and the altar.  

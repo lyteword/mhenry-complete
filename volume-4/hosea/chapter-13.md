@@ -6,7 +6,7 @@ weight: 13
 
 The same strings, though generally unpleasing ones, are harped upon in this chapter that were in those before. People care not to be told either of their sin or of their danger by sin; and yet it is necessary, and for their good, that they should be told of both, nor can they better hear of either than from the word of God and from their faithful ministers, while the sin may be repented of and the danger prevented. Here, I. The people of Israel are reproved and threatened for their idolatry, Ho 13:1-4. II. They are reproved and threatened for their wantonness, pride, and luxury, and other abuses of their wealth and prosperity, Ho 13:5-8. III. The ruin that is coming upon them for these and all their other sins is foretold as very terrible, Ho 13:12,13,15,16. IV. Those among them that yet retain a respect for their God are here encouraged to hope that he will yet appear for their relief, though their kings and princes, and all their other supports and succours, fail them, Ho 13:9-11,14.
 
-## Reproofs and Threatenings. (b. c. 722.)
+## Reproofs and Threatenings (722 BC)
 
 > **¹** When Ephraim spake trembling, he exalted himself in Israel; but when he offended in Baal, he died.  
 > **²** And now they sin more and more, and have made them molten images of their silver, *and* idols according to their own understanding, all of it the work of the craftsmen: they say of them, Let the men that sacrifice kiss the calves.  
@@ -23,7 +23,7 @@ III\. The lamentable growth of idolatry among them (Ho 14:2): *Now they sin more
 
 IV\. Threatenings of wrath for their idolatry. The Lord, whose name is *Jealous,* is a jealous God, and will not give his glory to another; and therefore all those that *worship images* shall be *confounded,* especially if Ephraim do it, Ps 97:7. Because they are so fond of kissing their calves, therefore God will give them sensible convictions of their folly, Ho 14:3. They promise themselves a great deal of safety and satisfaction in the worship of their idols, and that their prosperity will thereby be established; but God tells them that they shall be disappointed, and *driven away in their wickedness.* This is illustrated by four similitudes:—They shall be, 1. As the *morning cloud,* which promises showers of rain to the parched ground. 2. As the *early dew,* which seems to be an earnest of such showers. But both *pass away,* and the day proves as dry and hot as ever; so fleet and transitory their profession of piety was (Ho 6:4), and so had they disappointed God's expectation from them, and therefore it is just that so their prosperity should be, and so their expectations from their idols should be disappointed, and so will all theirs be that make an idol of this world. 3. They are *as the chaff,* light and worthless; and they shall be driven *as the chaff is driven with the whirlwind out of the floor,* Ps 1:4,25:5, Job 21:18. Nay, 4. They are *as the smoke,* noisome and offensive (see Isa 65:5), and they shall be driven away *as the smoke out of the chimneys,* that is soon dissipated and disappears, Ps 68:2. Note, No solid lasting comfort is to be expected any where but in God.
 
-## Ingratitude of Israel. (b. c. 722.)
+## Ingratitude of Israel (722 BC)
 
 > **⁵** I did know thee in the wilderness, in the land of great drought.  
 > **⁶** According to their pasture, so were they filled; they were filled, and their heart was exalted; therefore have they forgotten me.  
@@ -34,7 +34,7 @@ We may observe here, 1. The plentiful provision God had made for Israel and the 
 
 Now all this teaches us, 1. That abused goodness turns into the greater severity. Those who despise God and affront him, when he is to them as a careful tender shepherd, shall find he will be even to his own flock as the beasts of prey are. Those whom God has in vain *endured with much long-suffering,* and invited with much affection, in them he will *show his wrath* and make them *vessels* of it, Ro 9:22. *Patientia læsa fit furor*—*Despised patience will turn into fury.* 2. That the judgments of God, when they come with commission against impenitent sinners, will be irresistible and very terrible. They will *rend the caul of the heart,* will fill the soul with confusion, and tear that in pieces; and we are as unable to grapple with them as a lamb is to make his part good against a roaring lion, for *who knows the power of God's anger? Knowing therefore the terror of the Lord,* let us be persuaded to make peace with him; for are we stronger then he?
 
-## The Folly of Israel; Promises of Mercy. (b. c. 722.)
+## The Folly of Israel; Promises of Mercy (722 BC)
 
 > **⁹** O Israel, thou hast destroyed thyself; but in me *is* thine help.  
 > **¹⁰** I will be thy king: where *is any other* that may save thee in all thy cities? and thy judges of whom thou saidst, Give me a king and princes?  

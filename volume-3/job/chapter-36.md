@@ -6,7 +6,7 @@ weight: 36
 
 Elihu, having largely reproved Job for some of his unadvised speeches, which Job had nothing to say in the vindication of, here comes more generally to set him to rights in his notions of God's dealings with him. His other friends had stood to it that, because he was a wicked man, therefore his afflictions were so great and so long. But Elihu only maintained that the affliction was sent for his trial, and that therefore it was lengthened out because Job was not, as yet, thoroughly humbled under it, nor had duly accommodated himself to it. He urges many reasons, taken from the wisdom and righteousness of God, his care of his people, and especially his greatness and almighty power, with which, in this and the following chapter, he persuades him to submit to the hand of God. Here we have, I. His preface, Job 36:2-4. II. The account he gives of the methods of God's providence towards the children of men, according as they conduct themselves, Job 36:5-15. III. The fair warning and good counsel he gives to Job thereupon, Job 36:16-21. IV. His demonstration of God's sovereignty and omnipotence, which he gives instances of in the operations of common providence, and which is a reason why we should all submit to him in his dealings with us, Job 36:22-33. This he prosecutes and enlarges upon in the following chapter.
 
-## The Address of Elihu. (b. c. 1520.)
+## The Address of Elihu (1520 BC)
 
 > **¹** Elihu also proceeded, and said,  
 > **²** Suffer me a little, and I will show thee that *I have* yet to speak on God's behalf.  

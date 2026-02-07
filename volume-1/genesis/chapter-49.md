@@ -6,7 +6,7 @@ weight: 49
 
 This chapter is a prophecy; the likest to it we have yet met with was that of Noah, Ge 9:25-27, etc. Jacob is here upon his death-bed, making his will. He put it off till now, because dying men's words are apt to make deep impressions, and to be remembered long: what he said here, he could not say when he would, but as the Spirit gave him utterance, who chose this time, that divine strength might be perfected in his weakness. The twelve sons of Jacob were, in their day, men of renown, but the twelve tribes of Israel, which descended and were denominated from them, were much more renowned; we find their names upon the gates of the New Jerusalem, Re 21:12. In the prospect of this their dying father says something remarkable of each son, or of the tribe that bore his name. Here is, I. The preface, Ge 49:1,2. II. The prediction concerning each tribe, Ge 49:3-28. III. The charge repeated concerning his burial, Ge 49:29-32. IV. His death, Ge 49:33.
 
-## Jacob's Prophecy Concerning His Sons. (b. c. 1689.)
+## Jacob's Prophecy Concerning His Sons (1689 BC)
 
 > **¹** And Jacob called unto his sons, and said, Gather yourselves together, that I may tell you *that* which shall befal you in the last days.  
 > **²** Gather yourselves together, and hear, ye sons of Jacob; and hearken unto Israel your father.  
@@ -74,7 +74,7 @@ I\. The blessing of Joseph, which is very large and full. He is compared (Ge 49:
 
 II\. The blessing of Benjamin (Ge 49:27): He *shall raven as a wolf;* it is plain by this that Jacob was guided in what he said by a spirit of prophecy, and not by natural affection; else he would have spoken with more tenderness of his beloved son Benjamin, concerning whom he only foresees and foretells this, that his posterity should be a warlike tribe, strong and daring, and that they should enrich themselves with the spoils of their enemies—that they should be active and busy in the world, and a tribe as much feared by their neighbours as any other: *In the morning, he shall devour the prey,* which he seized and divided over night. Or, in the first times of Israel, they shall be noted for activity, though many of them left-handed, Jdg 3:15,20:16. Ehud the second judge, and Saul the first king, were of this tribe; and so also in the last times Esther and Mordecai, by whom the enemies of the Jews were destroyed, were of this tribe. The Benjamites ravened like wolves when they desperately espoused the cause of the men of Gibeah, those men of Belial, Jdg 20:14. Blessed Paul was of this tribe (Ro 11:1, Php 3:5); and he did, in the morning of his day, devour the prey as a persecutor, but, in the evening, divided the spoil as a preacher. Note, God can serve his own purposes by the different tempers of men; *the deceived and the deceiver are his.*
 
-## Death of Jacob. (b. c. 1689.)
+## Death of Jacob (1689 BC)
 
 > **²⁸** All these *are* the twelve tribes of Israel: and this *is it* that their father spake unto them, and blessed them; every one according to his blessing he blessed them.  
 > **²⁹** And he charged them, and said unto them, I am to be gathered unto my people: bury me with my fathers in the cave that *is* in the field of Ephron the Hittite,  

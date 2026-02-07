@@ -6,7 +6,7 @@ weight: 30
 
 One would have thought that the threatenings in the close of the foregoing chapter had made a full end of the people of Israel, and had left their case for ever desperate; but in this chapter we have a plain intimation of the mercy God had in store for them in the latter days, so that mercy at length rejoices against judgment, and has the last word. Here we have, I. Exceedingly great and precious promises made to them, upon their repentance and return to God, De 30:1-10. II. The righteousness of faith set before them in the plainness and easiness of the commandment that was now given them, De 30:11-14. III. A fair reference of the whole matter to their choice, De 30:15-20, etc.
 
-## Promises to the Penitent. (b. c. 1451.)
+## Promises to the Penitent (1451 BC)
 
 > **¹** And it shall come to pass, when all these things are come upon thee, the blessing and the curse, which I have set before thee, and thou shalt call *them* to mind among all the nations, whither the LORD thy God hath driven thee,  
 > **²** And shalt return unto the LORD thy God, and shalt obey his voice according to all that I command thee this day, thou and thy children, with all thine heart, and with all thy soul;  
@@ -31,7 +31,7 @@ I\. They are chiefly to be considered as a conditional promise, and so they belo
 
 II\. This may also be considered as a prediction of the repentance and restoration of the Jews: *When all these things shall have come upon thee* (De 30:1), the blessing first, and after that the curse, then the mercy in reserve shall take place. Though their hearts were wretchedly hardened, yet the grace of God could soften and change them; and then, though their case was deplorably miserable, the providence of God would redress all their grievances. Now, 1. It is certain that this was fulfilled in their return from their captivity in Babylon. It was a wonderful instance of their repentance and reformation that Ephraim, who had been joined to idols, renounced them, and said, *What have I to do any more with idols?* That captivity effectually cured them of idolatry; and then God planted them again in their own land and did them good. But, 2. Some think that it is yet further to be accomplished in the conversion of the Jews who are now dispersed, their repentance for the sin of their fathers in crucifying Christ, their return to God through him, and their accession to the Christian church. But, *alas! who shall live when God doth this?*
 
-## The Advantages of Revelation. (b. c. 1451.)
+## The Advantages of Revelation (1451 BC)
 
 > **¹¹** For this commandment which I command thee this day, it *is* not hidden from thee, neither *is* it far off.  
 > **¹²** It *is* not in heaven, that thou shouldest say, Who shall go up for us to heaven, and bring it unto us, that we may hear it, and do it?  

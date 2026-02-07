@@ -6,7 +6,7 @@ weight: 72
 
 The foregoing psalm was penned by David when he was old, and, it should seem, so was this too; for Solomon was now standing fair for the crown; that was his prayer for himself, this for his son and successor, and with these two the prayers of David the son of Jesse are ended, as we find in the close of this psalm. If we have but God's presence with us while we live, and good hopes concerning those that shall come after us that they shall be praising God on earth when we are praising him in heaven, it is enough. This is entitled "a psalm for Solomon:" it is probable that David dictated it, or, rather, that it was by the blessed Spirit dictated to him, when, a little before he died, by divine direction he settled the succession, and gave orders to proclaim Solomon king, 1Ki 1:30, etc. But, though Solomon's name is here made use of, Christ's kingdom is here prophesied of under the type and figure of Solomon's. David knew what the divine oracle was, That "of the fruit of his loins, according to the flesh, he would raise up Christ to sit on his throne," Ac 2:30. To him he here bears witness, and with the prospect of the glories of his kingdom he comforted himself in his dying moments when he foresaw that his house would not be so with God, not so great not so good, as he wished. David, in spirit, I. Begins with a short prayer for his successor, Ps 72:1. II. He passes immediately into a long prediction of the glories of his reign, Ps 72:2-17. And, III. He concludes with praise to the God of Israel, Ps 72:18-20. In singing this psalm we must have an eye to Christ, praising him as a King, and pleasing ourselves with our happiness as his subjects.
 
-## Prayer for Solomon.
+## Prayer for Solomon
 
 *A psalm* for Solomon.
 
@@ -18,7 +18,7 @@ I\. We may apply it to Solomon: *Give him thy judgments, O God! and thy righteou
 
 II\. We may apply it to Christ; not that he who intercedes for us needs us to intercede for him; but, 1. It is a prayer of the Old-Testament church for sending the Messiah, as the church's King, King *on the holy hill of Zion,* of whom the King of kings had said, *Thou art my Son,* Ps 2:6,7. "Hasten his coming to whom all judgment is committed;" and we must thus hasten the second coming of Christ, when he shall *judge the world in righteousness.* 2. It is an expression of the satisfaction which all true believers take in the authority which the Lord Jesus has received from the Father: "Let him have all power both in heaven and earth, and be the Lord our righteousness; let him be the great trustee of divine grace for all that are his; give it to him, that he may give it to us."
 
-## The Kingdom of Messiah.
+## The Kingdom of Messiah
 
 > **²** He shall judge thy people with righteousness, and thy poor with judgment.  
 > **³** The mountains shall bring peace to the people, and the little hills, by righteousness.  
@@ -65,7 +65,7 @@ IX\. That under his government there shall be a wonderful increase both of meat 
 
 X\. That his government shall be perpetual, both to his honour and to the happiness of his subjects. The Lord Jesus shall reign for ever, and of him only this must be understood, and not at all of Solomon. It is Christ only that shall *be feared throughout all generations* (Ps 72:5) and *as long as the sun and moon endure,* Ps 72:7. 1. The honour of the princes is immortal and shall never be sullied (Ps 72:17): *His name shall endure for ever,* in spite of all the malicious attempts and endeavours of the powers of darkness to eclipse the lustre of it and to cut off the line of it; it shall be preserved; it shall be perpetuated; it shall be propagated. As the names of earthly princes are continued in their posterity, so Christ's in himself. *Filiabitur nomen ejus—His name shall descend to posterity.* All nations, while the world stands, shall call him blessed, shall bless God for him, continually speak well of him, and think themselves happy in him. To the end of time, and to eternity, his name shall be celebrated, shall be made use of; every tongue shall confess it and every knee shall bow before it. 2. The happiness of the people if universal too; it is complete and everlasting: *Men shall be blessed,* truly and for ever blessed, *in him.* This plainly refers to the promise made unto the fathers that in the Messiah all the nations of the earth should be blessed. Ge 12:3.
 
-## Thanksgiving and Prayer.
+## Thanksgiving and Prayer
 
 > **¹⁸** Blessed *be* the LORD God, the God of Israel, who only doeth wondrous things.  
 > **¹⁹** And blessed *be* his glorious name for ever: and let the whole earth be filled *with* his glory; Amen, and Amen.  

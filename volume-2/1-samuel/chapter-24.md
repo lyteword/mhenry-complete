@@ -6,7 +6,7 @@ weight: 24
 
 We have hitherto had Saul seeking an opportunity to destroy David, and, to his shame, he could never find it. In this chapter David had a fair opportunity to destroy Saul, and, to his honour, he did not make use of it; and his sparing Saul's life was as great an instance of God's grace in him as the preserving of his own life was of God's providence over him. Observe, I. How maliciously Saul sought David's life, 1Sa 24:1,2. II. How generously David saved Saul's life (when he had him at an advantage) and only cut off the skirt of his robe, 1Sa 24:3-8. III. How pathetically he reasoned with Saul, upon this to bring him to a better temper towards him, 1Sa 24:9-15. IV. The good impression this made upon Saul for the present, 1Sa 24:16-22.
 
-## David Spares Saul in the Cave. (b. c. 1057.)
+## David Spares Saul in the Cave (1057 BC)
 
 > **¹** And it came to pass, when Saul was returned from following the Philistines, that it was told him, saying, Behold, David *is* in the wilderness of Engedi.  
 > **²** Then Saul took three thousand chosen men out of all Israel, and went to seek David and his men upon the rocks of the wild goats.  
@@ -29,7 +29,7 @@ V\. He reasons strongly both with himself and with his servants against doing Sa
 
 VI\. He followed Saul out of the cave, and, though he would not take the opportunity to slay him, yet he wisely took the opportunity, if possible, to slay his enmity, by convincing him that he was not such a man as he took him for. 1. Even in showing his head now he testified that he had an honourable opinion of Saul. He had too much reason to believe that, let him say what he would, Saul would immediately be the death of him as soon as he saw him, and yet he bravely lays aside that jealousy, and thinks Saul so much a man of sense as to hear his reasoning when he had so much to say in his own vindication and such fresh and sensible proofs to give of his own integrity. 2. His behaviour was very respectful: He *stooped with his face to the earth, and bowed himself,* giving honour to whom honour was due, and teaching us to order ourselves lowly and reverently to all our superiors, even to those that have been most injurious to us.
 
-## David Expostulates with Saul. (b. c. 1057.)
+## David Expostulates with Saul (1057 BC)
 
 > **⁹** And David said to Saul, Wherefore hearest thou men's words, saying, Behold, David seeketh thy hurt?  
 > **¹⁰** Behold, this day thine eyes have seen how that the LORD had delivered thee to day into mine hand in the cave: and *some* bade *me* kill thee: but *mine eye* spared thee; and I said, I will not put forth mine hand against my lord; for he *is* the LORD's anointed.  
@@ -55,7 +55,7 @@ VI\. He endeavours to convince Saul that as it was a bad thing, so it was a mean
 
 VII\. He once and again appeals to God as the righteous Judge (1Sa 24:12,15): *The Lord judge between me and thee.* Note, The justice of God is the refuge and comfort of oppressed innocence. If men wrong us, God will right us, at furthest, in the judgment of the great day. With him David leaves his cause, and so rests satisfied, waiting his time to appear for him.
 
-## Saul Relents at David's Reproof. (b. c. 1057.)
+## Saul Relents at David's Reproof (1057 BC)
 
 > **¹⁶** And it came to pass, when David had made an end of speaking these words unto Saul, that Saul said, *Is* this thy voice, my son David? And Saul lifted up his voice, and wept.  
 > **¹⁷** And he said to David, Thou *art* more righteous than I: for thou hast rewarded me good, whereas I have rewarded thee evil.  

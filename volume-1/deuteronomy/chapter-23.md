@@ -6,7 +6,7 @@ weight: 23
 
 The laws of this chapter provide, I. For the preserving of the purity and honour of the families of Israel, by excluding such as would be a disgrace to them, De 23:1-8. II. For the preserving of the purity and honour of the camp of Israel when it was abroad, De 23:9-14. III. For the encouraging and entertaining of slaves who fled to them, De 23:15. IV. Against whoredom, De 23:17,18. V. Against usury, De 23:19,20. IV. Against the breach of vows, De 23:21-23. VII. What liberty a man might take in his neighbour's field and vineyard, and what not, De 23:23,25.
 
-## Laws of Separation. (b. c. 1451.)
+## Laws of Separation (1451 BC)
 
 > **¹** He that is wounded in the stones, or hath his privy member cut off, shall not enter into the congregation of the LORD.  
 > **²** A bastard shall not enter into the congregation of the LORD; even to his tenth generation shall he not enter into the congregation of the LORD.  
@@ -27,7 +27,7 @@ II\. Upon Ammonites and Moabites, the posterity of Lot, who, for his outward con
 
 III\. The Edomites and Egyptians had not so deep a mark of displeasure put upon them as the Moabites and Ammonites had. If an Edomite or Egyptian turned proselyte, his grand-children should be looked upon as members of the congregation of the Lord to all intents and purposes, De 23:7,8. We should think that the Edomites had been more injurious to the Israelites than the Ammonites, and deserved as little favour from them (Nu 20:20), and yet "*Thou shalt not abhor an Edomite,* as thou must an Ammonite, for he is thy brother." Note, The unkindness of near relations, though by many worst taken, yet should with us, for that reason, because of the relation, be first forgiven. And then, as to the Egyptians, here is a strange reason given why they must not be abhorred: "*Thou wast a stranger in their land,* and therefore, though hardly used there, be civil to them, for old acquaintance' sake." They must not remember their bondage in Egypt for the keeping up of any ill will to the Egyptians, but only for the magnifying of Gods power and goodness in their deliverance.
 
-## Moral and Ceremonial Purity Enjoined. (b. c. 1451.)
+## Moral and Ceremonial Purity Enjoined (1451 BC)
 
 > **⁹** When the host goeth forth against thine enemies, then keep thee from every wicked thing.  
 > **¹⁰** If there be among you any man, that is not clean by reason of uncleanness that chanceth him by night, then shall he go abroad out of the camp, he shall not come within the camp:  
@@ -44,7 +44,7 @@ II\. From ceremonial pollution, which might befal a person when unconscious of i
 
 III\. From natural pollution; the camp of the Lord must have nothing offensive in it, De 23:12-14. It is strange that the divine law, or at least the solemn order and direction of Moses, should extend to a thing of this nature; but the design of it was to teach them, 1. Modesty and decorum; nature itself teaches them thus to distinguish themselves from beasts that know no shame. 2. Cleanliness, and, though not niceness, yet neatness, even in their camp. Filthiness is offensive to the senses God has endued us with, prejudicial to the health, a wrong to the comfort of human life, and an evidence of a careless slothful temper of mind. 3. Purity from the pollutions of sin; if there must be this care taken to preserve the body clean and sweet, much more should we be solicitous to keep the mind so. 4. A reverence of the divine majesty. This is the reason here given: *For the Lord thy God walketh* by his ark, the special token of his presence, *in the midst of thy camp;* with respect to that external symbol this external purity is required, which (though not insisted on in the letter when that reason ceases) teaches us to preserve inward purity of soul, in consideration of the eye of God, which is always upon us. By this expression of respect to the presence of God among them, they were taught both to fortify themselves against sin and to encourage themselves against their enemies with the consideration of that presence. 5. A regard one to another. The filthiness of one is noisome to many; this law of cleanliness therefore teaches us not to do that which will be justly offensive to our brethren and grieve them. It is a law against nuisances.
 
-## Protection of Fugitives; The Law Concerning Usury. (b. c. 1451.)
+## Protection of Fugitives; The Law Concerning Usury (1451 BC)
 
 > **¹⁵** Thou shalt not deliver unto his master the servant which is escaped from his master unto thee:  
 > **¹⁶** He shall dwell with thee, *even* among you, in that place which he shall choose in one of thy gates, where it liketh him best: thou shalt not oppress him.  

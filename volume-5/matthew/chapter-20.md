@@ -6,7 +6,7 @@ weight: 20
 
 We have four things in this chapter. I. The parable of the labourers in the vineyard, Mt 20:1-16. II. A prediction of Christ's approaching sufferings, Mt 20:17-19. III. The petition of two of the disciples, by their mother, reproved, Mt 20:20-28. IV. The petition of the two blind men granted, and their eyes opened, Mt 20:29-34.
 
-## The Labourers in the Vineyard.
+## The Labourers in the Vineyard
 
 > **¹** For the kingdom of heaven is like unto a man *that is* an householder, which went out early in the morning to hire labourers into his vineyard.  
 > **²** And when he had agreed with the labourers for a penny a day, he sent them into his vineyard.  
@@ -97,7 +97,7 @@ He therefore, 1. Ties him to his bargain (Mt 20:14); *Take that thine is, and go
 
 2\. That they had reason to fear, lest they themselves should be found hypocrites at last; for *many are called but few chosen.* This is applied to the Jews (Mt 22:14); it was so then, it is too true still; many are called with a common call, that are not chosen with a saving choice. All that are chosen from eternity, are effectually called, *in the fulness of time* (Ro 8:30), so that in making our effectual calling sure we *make sure our election* (2Pe 1:10); but it is not so as to the outward call; *many are called,* and yet refuse (Pr 1:24), nay, as they are called *to* God, so they go *from* him (Ho 11:2,7), by which it appears that they were not chosen, for *the election will obtain,* Ro 11:7. Note, There are but few *chosen* Christians, in comparison with the many that are only *called* Christians; it therefore highly concerns us to build our hope for heaven upon the rock of an eternal choice, and not upon the sand of an external call; and we should fear lest we be found but seeming Christians, and so should really come short; nay, lest we be found blemished Christians, and so should *seem to come short,* Heb 4:1.
 
-## The Sufferings of Christ Predicted.
+## The Sufferings of Christ Predicted
 
 > **¹⁷** And Jesus going up to Jerusalem took the twelve disciples apart in the way, and said unto them,  
 > **¹⁸** Behold, we go up to Jerusalem; and the Son of man shall be betrayed unto the chief priests and unto the scribes, and they shall condemn him to death,  
@@ -115,7 +115,7 @@ II\. The prediction itself, Mt 20:18,19. Observe,
 
 3\. Here, as before, he annexes the mention of his resurrection and his glory to that of his death and sufferings; *The third day he shall rise again.* He still brings this in, (1.) To encourage himself in his sufferings, and to carry him cheerfully through them. *He endured the cross for the joy set before him;* he foresaw he should rise again, and rise quickly, the third day. He shall be straightway glorified, Joh 13:32. The reward is not only sure, but very near. (2.) To encourage his disciples, and comfort them, who would be overwhelmed and greatly terrified by his sufferings. (3.) To direct us, under all *the sufferings of this present time,* to keep up a believing prospect of *the glory to be revealed,* to look at *the things that are not seen, that are eternal,* which will enable us to call the present afflictions light, and but for a moment.
 
-## Ambition Corrected.
+## Ambition Corrected
 
 > **²⁰** Then came to him the mother of Zebedee's children with her sons, worshipping *him,* and desiring a certain thing of him.  
 > **²¹** And he said unto her, What wilt thou? She saith unto him, Grant that these my two sons may sit, the one on thy right hand, and the other on the left, in thy kingdom.  
@@ -185,7 +185,7 @@ Observe, [1.] What is the way of the princes of the Gentiles (Mt 20:25); to *exe
 
 Now this is a good reason why we should not strive for precedency, because the cross is our banner, and our Master's death is our life. It is a good reason why we should study to do good, and, in consideration of the love of Christ in dying for us, not hesitate *to lay down our lives for the brethren,* 1Jo 3:16. Ministers should be more forward than others to serve and suffer for the good of souls, as blessed Paul was, Ac 20:24, Php 2:17. The nearer we are all concerned in, and the more we are advantaged by, the humility and humiliation of Christ, the more ready and careful we should be to imitate it.
 
-## Sight Given to the Blind.
+## Sight Given to the Blind
 
 > **²⁹** And as they departed from Jericho, a great multitude followed him.  
 > **³⁰** And, behold, two blind men sitting by the way side, when they heard that Jesus passed by, cried out, saying, Have mercy on us, O Lord, *thou* Son of David.  

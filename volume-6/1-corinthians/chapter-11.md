@@ -6,7 +6,7 @@ weight: 11
 
 In this chapter the apostle blames, and endeavours to rectify, some great indecencies and manifest disorders in the church of Corinth; as, I. The misconduct of their women (some of whom seem to have been inspired) in the public assembly, who laid by their veils, the common token of subjection to their husbands in that part of the world. This behaviour he reprehends, requires them to keep veiled, asserts the superiority of the husband, yet so as to remind the husband that both were made for mutual help and comfort, Ro 11:1-16. II. He blames them for their discord and neglect and contempt of the poor, at the Lord's supper, Ro 11:17-22. III. To rectify these scandalous disorders, he sets before them the nature and intentions of this holy institution, directs them how they should attend on it, and warns them of the danger of a conduct to indecent as theirs, and of all unworthy receiving, Ro 11:23-34.
 
-## Directions Concerning Attire; Female Subjection. (a. d. 57.)
+## Directions Concerning Attire; Female Subjection (57 AD)
 
 > **¹** Be ye followers of me, even as I also *am* of Christ.  
 > **²** Now I praise you, brethren, that ye remember me in all things, and keep the ordinances, as I delivered *them* to you.  
@@ -41,7 +41,7 @@ VI\. He enforces his argument from the natural covering provided for the woman (
 
 VII\. He sums up all by referring those who were contentious to the usages and customs of the churches, Ro 11:16. Custom is in a great measure the rule of decency. And the common practice of the churches is what he would have them govern themselves by. He does not silence the contentious by mere authority, but lets them know that they would appear to the world as very odd and singular in their humour if they would quarrel for a custom to which all the churches of Christ were at that time utter strangers, or against a custom in which they all concurred, and that upon the ground of natural decency. It was the common usage of the churches for women to appear in public assemblies, and join in public worship, veiled; and it was manifestly decent that they should do so. Those must be very contentious indeed who would quarrel with this, or lay it aside.
 
-## Profanation of the Lord's Supper. (a. d. 57.)
+## Profanation of the Lord's Supper (57 AD)
 
 > **¹⁷** Now in this that I declare *unto you* I praise *you* not, that ye come together not for the better, but for the worse.  
 > **¹⁸** For first of all, when ye come together in the church, I hear that there be divisions among you; and I partly believe it.  
@@ -58,7 +58,7 @@ II\. He enters upon his charge against them in more particulars than one. 1. He 
 
 III\. The apostle lays the blame of this conduct closely on them, 1. By telling them that their conduct perfectly destroyed the purpose and use of such an institution: *This is not to eat the Lord's supper,* Ro 11:20. It was coming to the Lord's table, and not coming. They might as well have staid away. Thus to eat the outward elements was not to eat Christ's body. Note, There is a careless and irregular eating of the Lord's supper which is as none at all; it will turn to no account, but to increase guilt. Such an eating was that of the Corinthians; their practices were a direct contradiction to the purposes of this sacred institution. 2. Their conduct carried in it a contempt of God's house, or of the church, Ro 11:22. If they had a mind to feast, they might do it at home in their own houses; but to come to the Lord's table, and cabal and quarrel, and keep the poor from their share of the provision there made for them as well as rich, was such an abuse of the ordinance, and such a contempt of the poorer members of the church more especially, as merited a very sharp rebuke. Such a behaviour tended much to the shame and discouragement of the poor, whose souls were as dear to Christ, and cost him as much, as those of the rich. Note, Common meals may be managed after a common manner, but religious feasts should be attended religiously. Note, also, It is a heinous evil, and severely to be censured, for Christians to treat their fellow-christians with contempt and insolence, but especially at the Lord's table. This is doing what they can to pour contempt on divine ordinances. And we should look carefully to it that nothing in our behaviour at the Lord's table have the appearance of contemning so sacred an institution.
 
-## Design of the Lord's Supper. (a. d. 57.)
+## Design of the Lord's Supper (57 AD)
 
 > **²³** For I have received of the Lord that which also I delivered unto you, That the Lord Jesus the *same* night in which he was betrayed took bread:  
 > **²⁴** And when he had given thanks, he brake *it,* and said, Take, eat: this is my body, which is broken for you: this do in remembrance of me.  

@@ -6,7 +6,7 @@ weight: 19
 
 The laws which Moses had hitherto been repeating and urging mostly concerned the acts of religion and devotion towards God; but here he comes more fully to press the duties of righteousness between man and man. This chapter relates, I. To the sixth commandment, "Thou shalt not kill," De 19:1-13. II. To the eighth commandment, "Thou shalt not steal," De 19:14. III. To the ninth commandment, "Thou shalt not bear false witness," De 19:15-21, etc.
 
-## The Cities of Refuge. (b. c. 1451.)
+## The Cities of Refuge (1451 BC)
 
 > **¹** When the LORD thy God hath cut off the nations, whose land the LORD thy God giveth thee, and thou succeedest them, and dwellest in their cities, and in their houses;  
 > **²** Thou shalt separate three cities for thee in the midst of thy land, which the LORD thy God giveth thee to possess it.  
@@ -34,7 +34,7 @@ I\. That the cities of refuge should be a protection to him that slew another ca
 
 II\. It is provided that the cities of refuge should be no sanctuary or shelter to a wilful murderer, but even thence he should be fetched, and delivered to the avenger of blood, De 19:11-13. 1. This shows that wilful murder must never be protected by the civil magistrate; he bears the sword of justice in vain if he suffers those to escape the edge of it that lie under the guilt of blood, which he by office is the avenger of. During the dominion of the papacy in our own land, before the Reformation, there were some churches and religious houses (as they called them) that were made sanctuaries for the protection of all sorts of criminals that fled to them, wilful murderers not excepted, so that (as Stamford says, in his *Pleas of the Crown, lib.* II. *c.* xxxviii.) the government follows not Moses but Romulus, and it was not till about the latter end of Henry VIII's time that this privilege of sanctuary for wilful murder was taken away, when in that, as in other cases, the word of God came to be regarded more than the dictates of the see of Rome. And some have thought it would be a completing of that instance of reformation if the benefit of clergy were taken away for man-slaughter, that is, the killing of a man upon a small provocation, since this law allowed refuge only in case of that which our law calls chance-medley. 2. It may be alluded to to show that in Jesus Christ there is no refuge for presumptuous sinners, that *go on still in their trespasses.* If we thus *sin wilfully,* sin and go on in it, there *remains no sacrifice,* Heb 10:26. Those that flee to Christ from their sins shall be safe in him, but not those that expect to be sheltered by him in their sins. Salvation itself cannot save such: divine justice will fetch them even from the city of refuge, the protection of which they are not entitled to.
 
-## False Witnesses. (b. c. 1451.)
+## False Witnesses (1451 BC)
 
 > **¹⁴** Thou shalt not remove thy neighbour's landmark, which they of old time have set in thine inheritance, which thou shalt inherit in the land that the LORD thy God giveth thee to possess it.  
 > **¹⁵** One witness shall not rise up against a man for any iniquity, or for any sin, in any sin that he sinneth: at the mouth of two witnesses, or at the mouth of three witnesses, shall the matter be established.  

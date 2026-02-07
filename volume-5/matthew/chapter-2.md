@@ -6,7 +6,7 @@ weight: 2
 
 In this chapter, we have the history of our Saviour's infancy, where we find how early he began to suffer, and that in him the word of righteousness was fulfilled, before he himself began to fulfil all righteousness. Here is, I. The wise men's solicitous enquiry after Christ, Mt 2:1-8. II. Their devout attendance on him, when they found out where he was, Mt 2:9-12. III. Christ's flight into Egypt, to avoid the cruelty of Herod, Mt 2:13-15. IV. The barbarous murder of the infants of Bethlehem, Mt 2:16-18. V. Christ's return out of Egypt into the land of Israel again, Mt 2:19-23.
 
-## The Wise Men Come to Jerusalem.
+## The Wise Men Come to Jerusalem
 
 > **¹** Now when Jesus was born in Bethlehem of Judea in the days of Herod the king, behold, there came wise men from the east to Jerusalem,  
 > **²** Saying, Where is he that is born King of the Jews? for we have seen his star in the east, and are come to worship him.  
@@ -49,7 +49,7 @@ Now, 1. See how cunningly he laid the project (Mt 2:7,8). *He privily called the
 
 2\. See how strangely he was befooled and infatuated in this, that he trusted it with the wise men, and did not choose some other managers, that would have been true to his interests. It was but seven miles from Jerusalem; how easily might he have sent spies to watch the wise men, who might have been as soon there to destroy the child as they to worship him! Note, God can hide from the eyes of the church's enemies those methods by which they might easily destroy the church; when he intends to *lead princes away spoiled,* his way is to *make the judges fools.*
 
-## The Wise Men Worship Christ.
+## The Wise Men Worship Christ
 
 > **⁹** When they had heard the king, they departed; and, lo, the star, which they saw in the east, went before them, till it came and stood over where the young child was.  
 > **¹⁰** When they saw the star, they rejoiced with exceeding great joy.  
@@ -68,7 +68,7 @@ II\. See how they made their address to him when they had found him, Mt 2:11. We
 
 III\. See how they left him when they had made their address to him, Mt 2:12. Herod appointed them to *bring him word* what discoveries they had made, and, it is probable, they would have done so, if they had not been countermanded, not suspecting their being thus made his tools in a wicked design. Those that mean honestly and well themselves are easily made to believe that others do so too, and cannot think the world is as bad as it really is; but *the Lord knows how to deliver the godly out of temptation.* We do not find that the wise men promised to come back to Herod, and, if they had, it must have been with the usual proviso, *If God permit;* God did not permit them, and prevented the mischief Herod designed to the Child Jesus, and the trouble it would have been to the wise men to have been made involuntarily accessory to it. They were *warned of God,* *chrematisthentes*—*oraculo vel responso accepto—by an oracular intimation.* Some think it intimates that they asked counsel of God, and that this was the answer. Note, Those that act cautiously, and are afraid of sin and snares, if they apply themselves to God for direction, may expect to be led in the right way. They were *warned not to return to Herod,* nor to Jerusalem; those were unworthy to have reports brought them concerning Christ, that might have seen with their own eyes, and would not. *They departed into their own country another way,* to bring the tidings to their countrymen; but it is strange that we never hear any more of them, and that they or theirs did not afterwards attend *him* in the temple, whom they had worshipped in the cradle. However, the direction they had from God in their return would be a further confirmation of their faith in this Child, *as the Lord from heaven.*
 
-## The Flight into Egypt.
+## The Flight into Egypt
 
 > **¹³** And when they were departed, behold, the angel of the Lord appeareth to Joseph in a dream, saying, Arise, and take the young child and his mother, and flee into Egypt, and be thou there until I bring thee word: for Herod will seek the young child to destroy him.  
 > **¹⁴** When he arose, he took the young child and his mother by night, and departed into Egypt:  
@@ -96,7 +96,7 @@ If we may credit tradition, at their entrance into Egypt, happening to go into a
 
 III\. The fulfilling of the scripture in a this—that scripture (Ho 11:1), *Out of Egypt have I called my son.* Of all the evangelists, Matthew takes most notice of the fulfilling of the scripture in what concerned Christ, because his gospel was first published among the Jews, with whom that would add much strength and lustre to it. Now this word of the prophet undoubtedly referred to the deliverance of Israel out of Egypt, in which God owned them for his son, his first-born (Ex 4:22); but it is here applied, by way of analogy, to Christ, the Head of the church. Note, The scripture has many accomplishments, so full and copious is it, and so well ordered in all things. God is every day fulfilling the scripture. Scripture is not of private interpretation: we must give it its full latitude. "*When Israel was a child, then I loved him;* and, though *I loved him,* I suffered him to be a great while in Egypt; but, because *I loved him,* in due time I called him out of Egypt." They that read this must, in their thoughts, not only look back, but look forward; *that which has been shall be again* (Ec 1:9); and the manner of expression intimates this; for it is not said, I called *him,* but I called *my son,* out of Egypt.Note, It is no new thing for God's sons to be in Egypt, in a strange land, in a house of bondage; but they shall be fetched out. They may be hid in Egypt, but they shall not be left there. All the elect of God, being by nature children of wrath, are born in a spiritual Egypt, and in conversion are effectually called out. It might be objected against Christ that he had been in Egypt. Must *the Sun of righteousness* arise out of that land of darkness! But this shows that to be no strange thing; Israel was brought out of Egypt, to be advanced to the highest honours; and this is but doing the same thing.
 
-## The Slaughter of the Children.
+## The Slaughter of the Children
 
 > **¹⁶** Then Herod, when he saw that he was mocked of the wise men, was exceeding wroth, and sent forth, and slew all the children that were in Bethlehem, and in all the coasts thereof, from two years old and under, according to the time which he had diligently enquired of the wise men.  
 > **¹⁷** Then was fulfilled that which was spoken by Jeremy the prophet, saying,  
@@ -120,7 +120,7 @@ III\. The fulfilling of scripture in this (Mt 2:17,18); *Then was fulfilled* tha
 
 The quoting of this prophecy might serve to obviate an objection which some would make against Christ, upon this sad providence. "Can the Messiah, who is to be the Consolation of Israel, be introduced with all this lamentation?" Yes, for so it was foretold, and the scripture must be accomplished. And besides, if we look further into this prophecy, we shall find that *the bitter weeping* in Ramah was but a prologue to the greatest joy, for it follows, *Thy work shall be rewarded, and there is hope in thy end.* The worse things are, the sooner they will mend. Unto them a child was born, sufficient to repair their losses.
 
-## Christ's Return from Egypt.
+## Christ's Return from Egypt
 
 > **¹⁹** But when Herod was dead, behold, an angel of the Lord appeareth in a dream to Joseph in Egypt,  
 > **²⁰** Saying, Arise, and take the young child and his mother, and go into the land of Israel: for they are dead which sought the young child's life.  

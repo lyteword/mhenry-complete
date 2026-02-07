@@ -6,7 +6,7 @@ weight: 11
 
 In this chapter we have an account, I. Of the measuring—reed given to the apostle, to take the dimensions of the temple, Re 11:1,2. II. Of the two witnesses of God, Re 11:3-13. III. Of the sounding of the seventh trumpet, and what followed upon it, Re 11:14-19, etc.
 
-## The Measuring of the Temple. (a. d. 95.)
+## The Measuring of the Temple (95 AD)
 
 > **¹** And there was given me a reed like unto a rod: and the angel stood, saying, Rise, and measure the temple of God, and the altar, and them that worship therein.  
 > **²** But the court which is without the temple leave out, and measure it not; for it is given unto the Gentiles: and the holy city shall they tread under foot forty *and* two months.  
@@ -17,7 +17,7 @@ I\. How much was to be measured. 1. *The temple;* the gospel church in general, 
 
 II\. What was not to be measured (Re 11:2), and why it should be left out. 1. What was not to be measured: *The court which is without the temple measure it not.* Some say that Herod, in the additions made to the temple, built an outer court, and called it *the court of the Gentiles.* Some tell us that Adrian built the city and an outer court, and called it *Ælia,* and gave it to the Gentiles. 2. Why was not the outer court measured? This was no part of the temple, according to the model either of Solomon or Zerubbabel, and therefore God would have no regard to it. He would not mark it out for preservation; but as it was designed for the Gentiles, to bring pagan ceremonies and customs and to annex them to the gospel churches, so Christ abandoned it to them, to be used as they pleased; and both that and the city were trodden under foot for a certain time—*forty and two months,* which some would have to be the whole time of the reign of antichrist. Those who worship in the outer court are either such as worship in a false manner or with hypocritical hearts; and these are rejected of God, and will be found among his enemies. 3. From the whole observe, (1.) God will have a temple and an altar in the world, till the end of time. (2.) He has a strict regard to this temple, and observes how every thing is managed in it. (3.) Those who worship in the outer court will be rejected, and only those who worship within the veil accepted. (4.) The holy city, the visible church, is very much trampled upon in the world. But, (5.) The desolations of the church are for a limited time, and for a short time, and she shall be delivered out of all her troubles.
 
-## The Two Witnesses. (a. d. 95.)
+## The Two Witnesses (95 AD)
 
 > **³** And I will give *power* unto my two witnesses, and they shall prophesy a thousand two hundred *and* threescore days, clothed in sackcloth.  
 > **⁴** These are the two olive trees, and the two candlesticks standing before the God of the earth.  
@@ -49,7 +49,7 @@ VII\. The resurrection of these witnesses, and the consequences thereof. Observe
 
 VIII\. The ascension of the witnesses into heaven and the consequences thereof, Re 11:12,13. Observe, 1. Their ascension. By heaven we may understand either some more eminent station in the church, the kingdom of grace in this world, or a high place in the kingdom of glory above. The former seems to be the meaning: *They ascended to heaven in a cloud* (in a figurative, not in a literal sense) *and their enemies saw them.* It will be no small part of the punishment of persecutors, both in this world and at the great day, that they shall see the faithful servants of God greatly honoured and advanced. To this honour they did not attempt to ascend, till God called them, and said, *Come up hither.* The Lord's witnesses must wait for their advancement, both in the church and in heaven, till God calls them; they must not be weary of suffering and service, nor too hastily grasp at the reward; but stay till their Master calls them, and then they may gladly ascend to him. 2. The consequences of their ascension—a mighty shock and convulsion in the antichristian empire and the fall of *a tenth part of the city.* Some refer this to the beginning of the reformation from popery, when many princes and states fell off from their subjection to Rome. This great work met with great opposition; all the western world felt a great concussion, and the antichristian interest received a great blow, and lost a great deal of ground and interest, (1.) By the sword of war, which was then drawn; and many of those who fought under the banner of antichrist were slain by it. (2.) By the sword of the Spirit: *The fear of God fell upon many.* They were convinced of their errors, superstition, and idolatry; and by true repentance, and embracing the truth, *they gave glory to the God of heaven.* Thus, when God's work and witnesses revive, the devil's work and witnesses fall before him.
 
-## The Seventh Trumpet. (a. d. 95.)
+## The Seventh Trumpet (95 AD)
 
 > **¹⁴** The second woe is past; *and,* behold, the third woe cometh quickly.  
 > **¹⁵** And the seventh angel sounded; and there were great voices in heaven, saying, The kingdoms of this world are become *the kingdoms* of our Lord, and of his Christ; and he shall reign for ever and ever.  

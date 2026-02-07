@@ -6,7 +6,7 @@ weight: 23
 
 This chapter is concerning Tyre, an ancient wealthy city, situated upon the sea, and for many ages one of the most celebrated cities for trade and merchandise in those parts of the world. The lot of the tribe of Asher bordered upon it. See Jos 19:29, where it is called "the strong city Tyre." We seldom find it a dangerous enemy to Israel, but sometimes their faithful ally, as in the reigns of David and Solomon; for trading cities maintain their grandeur, not by the conquest of their neighbours, but by commerce with them. In this chapter is foretold, I. The lamentable desolation of Tyre, which was performed by Nebuchadnezzar and the Chaldean army, about the time that they destroyed Jerusalem; and a hard task they had of it, as appears Eze 29:18, where they are said to have "served a hard service against Tyre," and yet to have no wages, Isa 23:1-14. II. The restoration of Tyre after seventy years, and the return of the Tyrians out of their captivity to their trade again, Isa 23:15-18.
 
-## The Doom of Tyre. (b. c. 718.)
+## The Doom of Tyre (718 BC)
 
 > **¹** The burden of Tyre. Howl, ye ships of Tarshish; for it is laid waste, so that there is no house, no entering in: from the land of Chittim it is revealed to them.  
 > **²** Be still, ye inhabitants of the isle; thou whom the merchants of Zidon, that pass over the sea, have replenished.  
@@ -37,7 +37,7 @@ II\. Here is Tyre falling. It does not appear that she brought trouble upon hers
 
 (2.) The Chaldeans shall be the instruments of it (Isa 23:13): *Behold the land of the Chaldeans;* how easily they and their land were destroyed by the Assyrians. Though their own hands *founded it, set up the towers* of Babylon, and *raised up its palaces,* yet the Assyrians brought it to ruin, whence the Tyrians might infer that as easily as the old Chaldeans were subdued by the Assyrians so easily shall Tyre be vanquished by those new Chaldeans. Babel was built by the Assyrians for *those that dwelt in the wilderness.* It may be rendered *for the ships* (the Assyrians founded it for ships and shipmen that traffic upon those vast rivers Tigris and Euphrates to the Persian and Indian seas), *for men of the desert,* for Babylon is called the *desert of the sea,* Isa 21:1. Thus Tyrus was built upon the sea for the like purpose. But the Assyrians (says Dr. Lightfoot) brought that to ruin, now lately, in Hezekiah's time, and so shall Tyre hereafter be brought to ruin by Nebuchadnezzar. If we looked more upon the falling and withering of others, we should not be so confident as we commonly are of the continuance of our own flourishing and standing.
 
-## The Restoration of Tyre. (b. c. 718.)
+## The Restoration of Tyre (718 BC)
 
 > **¹⁵** And it shall come to pass in that day, that Tyre shall be forgotten seventy years, according to the days of one king: after the end of seventy years shall Tyre sing as a harlot.  
 > **¹⁶** Take a harp, go about the city, thou harlot that hast been forgotten; make sweet melody, sing many songs, that thou mayest be remembered.  

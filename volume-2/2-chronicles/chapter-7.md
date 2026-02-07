@@ -6,7 +6,7 @@ weight: 7
 
 In this chapter we have God's answer to Solomon's prayer. I. His public answer by fire from heaven, which consumed the sacrifices (2Ch 7:1), with which the priests and people were much affected, 2Ch 7:2,3. By that token of God's acceptance they were encouraged to continue the solemnities of the feast for fourteen days, and Solomon was encouraged to pursue all his designs for the honour of God, 2Ch 7:4-11. II. His private answer by word of mouth, in a dream or vision of the night, 2Ch 7:12-22. Most of these things we had before, 1Ki 8:1-9:66
 
-## God's Gracious Answer to Solomon. (b. c. 1004.)
+## God's Gracious Answer to Solomon (1004 BC)
 
 > **¹** Now when Solomon had made an end of praying, the fire came down from heaven, and consumed the burnt offering and the sacrifices; and the glory of the LORD filled the house.  
 > **²** And the priests could not enter into the house of the LORD, because the glory of the LORD had filled the LORD's house.  
@@ -38,7 +38,7 @@ II\. The grateful return made to God for this gracious token of his favour.
 
 5\. Solomon went on in his work, and prosperously effected all he designed for the adorning both of God's house and his own, 2Ch 7:11. Those that begin with the service of God are likely to go on successfully in their own affairs. It was Solomon's praise that what he undertook he went through with, and it was by the grace of God that he prospered in it.
 
-## God's Promises to Solomon. (b. c. 1004.)
+## God's Promises to Solomon (1004 BC)
 
 > **¹²** And the LORD appeared to Solomon by night, and said unto him, I have heard thy prayer, and have chosen this place to myself for a house of sacrifice.  
 > **¹³** If I shut up heaven that there be no rain, or if I command the locusts to devour the land, or if I send pestilence among my people;  

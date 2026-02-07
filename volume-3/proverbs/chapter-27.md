@@ -4,7 +4,7 @@ weight: 27
 
 # Chapter 27
 
-## Miscellaneous Maxims.
+## Miscellaneous Maxims
 
 > **¹** Boast not thyself of to morrow; for thou knowest not what a day may bring forth.  
 
@@ -82,7 +82,7 @@ This gives us a touchstone by which we may try ourselves. Silver and gold are tr
 
 Solomon had said (Pr 22:15), *The foolishness* which *is bound in the heart of a child may be driven out by the rod of correction,* for then the mind is to be moulded, the vicious habits not having taken root; but here he shows that, if it be not done then, it will be next to impossible to do it afterwards; if the disease be inveterate, there is a danger of its being incurable. *Can the Ethiopian change his skin?* Observe, 1. Some are so bad that rough and severe methods must be used with them, after gentle means have been tried in vain; they must be *brayed in a mortar.* God will take this way with them by his judgments; the magistrates must take this way with them by the rigour of the law. Force must be used with those that will not be ruled by reason, and love, and their own interest. 2. Some are so incorrigibly bad that even those rough and severe methods do not answer the end, their *foolishness will not depart from them,* so fully are their *hearts set in them to do evil;* they are often under the rod and yet not humbled, in the furnace and yet not refined, but, like Ahaz, trespass yet more (2Ch 28:22); and what remains then but that they should be rejected as reprobate silver?
 
-## The Reward of Prudence.
+## The Reward of Prudence
 
 > **²³** Be thou diligent to know the state of thy flocks, *and* look well to thy herds.  
 > **²⁴** For riches *are* not for ever: and doth the crown *endure* to every generation?  

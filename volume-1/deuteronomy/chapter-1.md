@@ -6,7 +6,7 @@ weight: 1
 
 The first part of Moses's farewell sermon to Israel begins with this chapter, and is continued to the latter end of the fourth chapter. In the first five verses of this chapter we have the date of the sermon, the place where it was preached (De 1:1,2,5), and the time when, De 1:3,4. The narrative in this chapter reminds them, I. Of the promise God made them of the land of Canaan, De 1:6-8. II. Of the provision made of judges for them, De 1:9-18. III. Of their unbelief and murmuring upon the report of the spies, De 1:19-33. IV. Of the sentence passed upon them for it, and the ratification of that sentence, De 1:34-46, etc.
 
-## Israel's History Repeated. (b. c. 1451.)
+## Israel's History Repeated (1451 BC)
 
 > **¹** These *be* the words which Moses spake unto all Israel on this side Jordan in the wilderness, in the plain over against the Red *sea,* between Paran, and Tophel, and Laban, and Hazeroth, and Dizahab.  
 > **²** (*There are* eleven days' *journey* from Horeb by the way of mount Seir unto Kadesh-barnea.)  
@@ -21,7 +21,7 @@ We have here, I. The date of this sermon which Moses preached to the people of I
 
 II\. The discourse itself. In general, Moses spoke unto them *all that the Lord had given him in commandment* (De 1:3), which intimates, not only that what he now delivered was for substance the same with what had formerly been commanded, but that it was what God now commanded him to repeat. He gave them this rehearsal and exhortation purely by divine direction; God appointed him to leave this legacy to the church. He begins his narrative with their removal from Mount Sinai (De 1:6), and relates here, 1. The orders which God gave them to decamp, and proceed in their march (De 1:6,7): *You have dwelt long enough in this mount.* This was the mount *that burned with fire* (Heb 12:18), and *gendered to bondage,* Ga 4:24. Thither God brought them to humble them, and by the terrors of the law to prepare them for the land of promise. There he kept them about a year, and then told them they had *dwelt long enough* there, they must go forward. Though God brings his people into trouble and affliction, into spiritual trouble and affliction of mind, he knows when they have dwelt long enough in it, and will certainly find a time, the fittest time, to advance them from the terrors of the spirit of adoption. See Ro 8:15. 2. The prospect which he gave them of a happy and early settlement in Canaan: *Go to the land of the Canaanites* (De 1:7); enter and take possession, it is all your own. *Behold I have set the land before you,* De 1:8. When God commands us to go forward in our Christian course he sets the heavenly Canaan before us for our encouragement.
 
-## The Charge to Magistrates. (b. c. 1451.)
+## The Charge to Magistrates (1451 BC)
 
 > **⁹** And I spake unto you at that time, saying, I am not able to bear you myself alone:  
 > **¹⁰** The LORD your God hath multiplied you, and, behold, ye *are* this day as the stars of heaven for multitude.  
@@ -52,7 +52,7 @@ V\. That he aimed to edify them as well as to gratify them; for,
 
 3\. He allowed them to bring all difficult cases to him, and he would always be ready to hear and determine, and to make both the judges and the people easy. *Happy art thou. O Israel!* in such praise as Moses was.
 
-## Israel's Sin at Kadesh. (b. c. 1451.)
+## Israel's Sin at Kadesh (1451 BC)
 
 > **¹⁹** And when we departed from Horeb, we went through all that great and terrible wilderness, which ye saw by the way of the mountain of the Amorites, as the LORD our God commanded us; and we came to Kadesh-barnea.  
 > **²⁰** And I said unto you, Ye are come unto the mountain of the Amorites, which the LORD our God doth give unto us.  

@@ -6,7 +6,7 @@ weight: 10
 
 The apostle knew very well that the Hebrews, to whom he wrote, were strangely fond of the Levitical dispensation, and therefore he fills his mouth with arguments to wean them from it; and in order thereto proceeds in this chapter, I. To lay low the whole of that priesthood and sacrifice, Heb 10:1-6. II. He raises and exalts the priesthood of Christ very high, that he might effectually recommend him and his gospel to them, Heb 10:7-18. III. He shows to believers the honours and dignities of their state, and calls them to suitable duties, Heb 10:19-39.
 
-## The Priesthood of Christ. (a. d. 62.)
+## The Priesthood of Christ (62 AD)
 
 > **¹** For the law having a shadow of good things to come, *and* not the very image of the things, can never with those sacrifices which they offered year by year continually make the comers thereunto perfect.  
 > **²** For then would they not have ceased to be offered? because that the worshippers once purged should have had no more conscience of sins.  
@@ -27,7 +27,7 @@ IV\. As the legal sacrifices did not of themselves take away sin, so it was impo
 
 V\. There was a time fixed and foretold by the great God, and that time had now come, when these legal sacrifices would be no longer accepted by him nor useful to men. God never did desire them for themselves, and now he abrogated them; and therefore to adhere to them now would be resisting God and rejecting him. This time of the repeal of the Levitical laws was foretold by David (Ps 40:6,7), and is recited here as now come. Thus industriously does the apostle lay low the Mosaical dispensation.
 
-## The Priesthood of Christ. (a. d. 62.)
+## The Priesthood of Christ (62 AD)
 
 > **⁷** Then said I, Lo, I come (in the volume of the book it is written of me,) to do thy will, O God.  
 > **⁸** Above when he said, Sacrifice and offering and burnt offerings and *offering* for sin thou wouldest not, neither hadst pleasure *therein;* which are offered by the law;  
@@ -60,7 +60,7 @@ VII\. The apostle recommends Christ from the witness the Holy Ghost has given in
 
 And now we have gone through the doctrinal part of the epistle, in which we have met with many things dark and difficult to be understood, which we must impute to the weakness and dulness of our own minds. The apostle now proceeds to apply this great doctrine, so as to influence their affections, and direct their practice, setting before them the dignities and duties of the gospel state.
 
-## The Consecrated Way; Cautions against Apostasy; Perseverance Inculcated. (a. d. 62.)
+## The Consecrated Way; Cautions against Apostasy; Perseverance Inculcated (62 AD)
 
 > **¹⁹** Having therefore, brethren, boldness to enter into the holiest by the blood of Jesus,  
 > **²⁰** By a new and living way, which he hath consecrated for us, through the veil, that is to say, his flesh;  

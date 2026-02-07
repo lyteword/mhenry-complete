@@ -6,7 +6,7 @@ weight: 11
 
 In this chapter is repeated, I. The elevation of David to the throne, immediately upon the death of Saul, by common consent, 1Ch 11:1-3. II. His gaining the castle of Zion out of the hands of the Jebusites, 1Ch 11:4-9. III. The catalogue of the worthies and great men of his kingdom, 1Ch 11:10-47.
 
-## David's Accession to the Throne. (b. c. 1055.)
+## David's Accession to the Throne (1055 BC)
 
 > **¹** Then all Israel gathered themselves to David unto Hebron, saying, Behold, we *are* thy bone and thy flesh.  
 > **²** And moreover in time past, even when Saul was king, thou *wast* he that leddest out and broughtest in Israel: and the LORD thy God said unto thee, Thou shalt feed my people Israel, and thou shalt be ruler over my people Israel.  
@@ -24,7 +24,7 @@ I\. Of the throne of Israel, after he had reigned seven years in Hebron, over Ju
 
 II\. Of the strong-hold of Zion, which was held by the Jebusites till David's time. Whether David had a particular eye upon it as a place fit to make a royal city, or whether he had a promise of it from God, it seems that one of his first exploits was to make himself master of that fort; and, when he had it, he called it the *city of David,* 1Ch 11:7. To this reference is had, Ps 2:6. *I have set my king upon my holy hill of Zion.* See here what quickens and engages resolution in great undertakings. 1. Opposition. When the Jebusites set David at defiance, and said, *Thou shalt not come hither.* he resolved to force it, whatever it cost him. 2. Prospect of preferment. When David proposed to give the general's place to him that would lead the attack upon the castle of Zion, Joab was fired with the proposal, and he *went up first, and was chief.* It has been said, "Take away honour out of the soldier's eye and you cut off the spurs from his heels."
 
-## David's Mighty Men. (b. c. 1048.)
+## David's Mighty Men (1048 BC)
 
 > **¹⁰** These also *are* the chief of the mighty men whom David had, who strengthened themselves with him in his kingdom, *and* with all Israel, to make him king, according to the word of the LORD concerning Israel.  
 > **¹¹** And this *is* the number of the mighty men whom David had; Jashobeam, a Hachmonite, the chief of the captains: he lifted up his spear against three hundred slain *by him* at one time.  

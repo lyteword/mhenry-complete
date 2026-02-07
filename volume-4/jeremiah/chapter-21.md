@@ -6,7 +6,7 @@ weight: 21
 
 It is plain that the prophecies of this book are not placed here in the same order in which they were preached; for there are chapters after this which concern Jehoahaz, Jehoiakim, and Jeconiah, who all reigned before Zedekiah, in whose reign the prophecy of this chapter bears date. Here is, I. The message which Zedekiah sent to the prophet, to desire him to enquire of the Lord for them, Jer 21:1,2. II. The answer which Jeremiah, in God's name, sent to that message, in which, 1. He foretels the certain and inevitable ruin of the city, and the fruitlessness of their attempts for its preservation, Jer 21:3-7. 2. He advises the people to make the best of bad, by going over to the king of Babylon, Jer 21:8-10. 3. He advises the king and his family to repent and reform (Jer 21:11,12), and not to trust to the strength of their city and grow secure, Jer 21:13,14.
 
-## Zedekiah's Message to Jeremiah. (b. c. 590.)
+## Zedekiah's Message to Jeremiah (590 BC)
 
 > **¹** The word which came unto Jeremiah from the LORD, when king Zedekiah sent unto him Pashur the son of Melchiah, and Zephaniah the son of Maaseiah the priest, saying,  
 > **²** Enquire, I pray thee, of the LORD for us; for Nebuchadrezzar king of Babylon maketh war against us; if so be that the LORD will deal with us according to all his wondrous works, that he may go up from us.  
@@ -36,7 +36,7 @@ II\. A very startling cutting reply which God, by the prophet, sent to that mess
 
 5\. That the king himself, and people that escape the *sword, famine,* and *pestilence,* shall fall *into the hands* of the Chaldeans, who shall cut them off in cold blood (Jer 21:7): They *shall not spare them,* nor *have pity* on them. Let not those expect to find mercy with men who have forfeited God's compassions, and shut themselves out from his mercy. Thus had the decree gone forth; and then to what purpose was it for Jeremiah to *enquire of the Lord for them?*
 
-## Answer to Zedekiah's Message; Advice to the King and the People. (b. c. 590.)
+## Answer to Zedekiah's Message; Advice to the King and the People (590 BC)
 
 > **⁸** And unto this people thou shalt say, Thus saith the LORD; Behold, I set before you the way of life, and the way of death.  
 > **⁹** He that abideth in this city shall die by the sword, and by the famine, and by the pestilence: but he that goeth out, and falleth to the Chaldeans that besiege you, he shall live, and his life shall be unto him for a prey.  

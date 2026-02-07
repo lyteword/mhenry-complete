@@ -6,7 +6,7 @@ weight: 3
 
 The apostle, in this chapter, carries on his discourse concerning justification. He had already proved the guilt both of Gentiles and Jews. Now in this chapter, I. He answers some objections that might be made against what he had said about the Jews, Ro 3:1-8. II. He asserts the guilt and corruption of mankind in common, both Jews and Gentiles, Ro 3:9-18. III. He argues thence that justification must needs be by faith, and not by the law, which he gives several reasons for (Ro 3:19-31). The many digressions in his writings render his discourse sometimes a little difficult, but his scope is evident.
 
-## The Advantages of the Jews; Objections Answered; The Depravity of Jews and Gentiles. (a. d. 58.)
+## The Advantages of the Jews; Objections Answered; The Depravity of Jews and Gentiles (58 AD)
 
 > **¹** What advantage then hath the Jew? or what profit *is there* of circumcision?  
 > **²** Much every way: chiefly, because that unto them were committed the oracles of God.  
@@ -61,7 +61,7 @@ II\. Paul, having removed these objections, next revives his assertion of the ge
 
 (3.) The root of all this we have: *There is no fear of God before their eyes,* Ro 3:18. The fear of God is here put for all practical religion, which consists in an awful and serious regard to the word and will of God as our rule, to the honour and glory of God as our end. Wicked people have not this before their eyes; that is, they do not steer by it; they are governed by other rules, aim at other ends. This is quoted from Ps 36:1. Where no fear of God is, no good is to be expected. The fear of God should lay a restraint upon our spirits, and keep them right, Ne 5:15. When once fear is cast off, prayer is restrained (Job 15:4), and then all goes to wreck and ruin quickly. So that we have here a short account of the general depravity and corruption of mankind; and may say, O Adam! what hast thou done? God made man upright, but thus he hath sought out many inventions.
 
-## Justification by Faith; Christ a Propitiation. (a. d. 58.)
+## Justification by Faith; Christ a Propitiation (58 AD)
 
 > **¹⁹** Now we know that what things soever the law saith, it saith to them who are under the law: that every mouth may be stopped, and all the world may become guilty before God.  
 > **²⁰** Therefore by the deeds of the law there shall no flesh be justified in his sight: for by the law *is* the knowledge of sin.  

@@ -6,7 +6,7 @@ weight: 24
 
 This chapter concludes the life and reign of Joshua, in which we have, I. The great care and pains he took to confirm the people of Israel in the true faith and worship of God, that they might, after his death, persevere therein. In order to this he called another general assembly of the heads of the congregation of Israel (Jos 24:1) and dealt with them. 1. By way of narrative, recounting the great things God had done for them and their fathers, Jos 24:2-13. 2. By way of charge to them, in consideration thereof, to serve God, Jos 24:14. 3. By way of treaty with them, wherein he aims to bring them, (1.) To make religion their deliberate choice; and they did so, with reasons for their choice, Jos 24:15-18. (2.) To make it their determinate choice, and to resolve to adhere to it, Jos 24:19-24. 4. By way of covenant upon that treaty, Jos 24:25-28. II. The conclusion of this history, with, 1. The death and burial of Joshua (Jos 24:29,30) and Eleazar (Jos 24:33), and the mention of the burial of Joseph's bones upon that occasion, Jos 24:32. 2. A general account of the state of Israel at that time, Jos 24:31.
 
-## Joshua's Farewell Address to Israel. (b. c. 1427.)
+## Joshua's Farewell Address to Israel (1427 BC)
 
 > **¹** And Joshua gathered all the tribes of Israel to Shechem, and called for the elders of Israel, and for their heads, and for their judges, and for their officers; and they presented themselves before God.  
 > **²** And Joshua said unto all the people, Thus saith the LORD God of Israel, Your fathers dwelt on the other side of the flood in old time, *even* Terah, the father of Abraham, and the father of Nachor: and they served other gods.  
@@ -72,7 +72,7 @@ II\. The service of God being thus made their deliberate choice, Joshua binds th
 
 The matter being thus settled, Joshua dismissed this assembly of the grandees of Israel (Jos 24:28), and took his last leave of them, well satisfied in having done his part, by which he had delivered his soul; if they perished, their blood would be upon their own heads.
 
-## The Death of Joshua. (b. c. 1427.)
+## The Death of Joshua (1427 BC)
 
 > **²⁹** And it came to pass after these things, that Joshua the son of Nun, the servant of the LORD, died, *being* a hundred and ten years old.  
 > **³⁰** And they buried him in the border of his inheritance in Timnath-serah, which *is* in mount Ephraim, on the north side of the hill of Gaash.  

@@ -6,7 +6,7 @@ weight: 7
 
 Job, in this chapter, goes on to express the bitter sense he had of his calamities and to justify himself in his desire of death. I. He complains to himself and his friends of his troubles, and the constant agitation he was in, Job 7:1-6. II. He turns to God, and expostulates with him (Job 7:7-21, to the end), in which, 1. He pleads the final period which death puts to our present state, Job 7:7-10. 2. He passionately complains of the miserable condition he was now in, Job 7:11-16. 3. He wonders that God will thus contend with him, and begs for the pardon of his sins and a speedy release out of his miseries, Job 7:17-21. It is hard to methodize the speeches of one who owned himself almost desperate, Job 6:26.
 
-## Job's Reply to Eliphaz. (b. c. 1520.)
+## Job's Reply to Eliphaz (1520 BC)
 
 > **¹** *Is there* not an appointed time to man upon earth? *are not* his days also like the days of a hireling?  
 > **²** As a servant earnestly desireth the shadow, and as an hireling looketh for *the reward of* his work:  

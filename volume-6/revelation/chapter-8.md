@@ -6,7 +6,7 @@ weight: 8
 
 We have already seen what occurred upon opening six of the seals; we now come to the opening of the seventh, which introduced the sounding of the seven trumpets; and a direful scene now opens. Most expositors agree that the seven seals represent the interval between the apostle's time and the reign of Constantine, but that the seven trumpets are designed to represent the rise of antichrist, some time after the empire became Christian. In this chapter we have, I. The preface, or prelude, to the sounding of the trumpets, Re 8:1-6. II. The sounding of four of the trumpets, Re 8:7-13, etc.).
 
-## The Seven Trumpets. (a. d. 95.)
+## The Seven Trumpets (95 AD)
 
 > **¹** And when he had opened the seventh seal, there was silence in heaven about the space of half a hour.  
 > **²** And I saw the seven angels which stood before God; and to them were given seven trumpets.  
@@ -25,7 +25,7 @@ III\. The trumpets were delivered to the angels who were to sound them. Still th
 
 IV\. To prepare for this, another angel must first offer incense, Re 8:3. It is very probable that this other angel is the Lord Jesus, the high priest of the church, who is here described in his sacerdotal office, having a golden censer and much incense, a fulness of merit in his own glorious person, and this incense he was to offer up, *with the prayers of all the saints, upon the golden altar* of his divine nature. Observe, 1. All the saints are a praying people; none of the children of God are born dumb, a Spirit of grace is always a Spirit of adoption and supplication, teaching us to cry, *Abba, Father.* Ps 32:6, *For this shall every one that is godly pray unto thee.* 2. Times of danger should be praying times, and so should times of great expectation; both our fears and our hopes should put us upon prayer, and, where the interest of the church of God is deeply concerned, the hearts of the people of God in prayer should be greatly enlarged. 3. The prayers of the saints themselves stand in need of the incense and intercession of Christ to make them acceptable and effectual, and there is provision made by Christ for that purpose; he has his incense, his censer, and his altar; he is all himself to his people. 4. The prayers of the saints come up before God in a cloud of incense; no prayer, thus recommended, was ever denied audience or acceptance. 5. These prayers that were thus accepted in heaven produced great changes upon earth in return to them; the same angel that in his censer offered up the prayers of the saints in the same censer *took of the fire of the altar, and cast it into the earth,* and this presently caused strange commotions, *voices, and thunderings, and lightnings, and an earthquake;* these were the answers God gave to the prayers of the saints, and tokens of his anger against the world and that he would do great things to avenge himself and his people of their enemies; and now, all things being thus prepared, the angels discharge their duty.
 
-## The Seven Trumpets. (a. d. 95.)
+## The Seven Trumpets (95 AD)
 
 > **⁷** The first angel sounded, and there followed hail and fire mingled with blood, and they were cast upon the earth: and the third part of trees was burnt up, and all green grass was burnt up.  
 > **⁸** And the second angel sounded, and as it were a great mountain burning with fire was cast into the sea: and the third part of the sea became blood;  

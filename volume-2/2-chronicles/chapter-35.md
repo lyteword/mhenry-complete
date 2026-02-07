@@ -6,7 +6,7 @@ weight: 35
 
 We are here to attend Josiah, I. To the temple, where we see his religious care for the due observance of the ordinance of the passover, according to the law, 2Ch 35:1-19. II. To the field of battle, where we see his rashness in engaging with the king of Egypt, and how dearly it cost him, 2Ch 35:20-23. III. To the grave, where we see him bitterly lamented, 2Ch 35:24-27. And so we must take our leave of Josiah.
 
-## The Reign of Josiah. (b. c. 623.)
+## The Reign of Josiah (623 BC)
 
 > **¹** Moreover Josiah kept a passover unto the LORD in Jerusalem: and they killed the passover on the fourteenth *day* of the first month.  
 > **²** And he set the priests in their charges, and encouraged them to the service of the house of the LORD,  
@@ -42,7 +42,7 @@ IV\. The singers and porters attended in their places, and did their office, 2Ch
 
 V\. The whole solemnity was performed with great exactness, according to the law (2Ch 35:16,17), and, upon that account, there was none like it since Samuel's time (2Ch 35:18), for in Hezekiah's passover there were several irregularities. And bishop Patrick observes that in this also it exceeded the other passovers which the preceding kings had kept, that though Josiah was by no means so rich as David, and Solomon, and Jehoshaphat, yet he furnished the whole congregation with beasts for sacrifice, both paschal and eucharistical, at his own proper cost and charge, which was more than any king ever did before him.
 
-## The Death of Josiah. (b. c. 610.)
+## The Death of Josiah (610 BC)
 
 > **²⁰** After all this, when Josiah had prepared the temple, Necho king of Egypt came up to fight against Carchemish by Euphrates: and Josiah went out against him.  
 > **²¹** But he sent ambassadors to him, saying, What have I to do with thee, thou king of Judah? *I come* not against thee this day, but against the house wherewith I have war: for God commanded me to make haste: forbear thee from *meddling with* God, who *is* with me, that he destroy thee not.  

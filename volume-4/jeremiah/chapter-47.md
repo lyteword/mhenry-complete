@@ -6,7 +6,7 @@ weight: 47
 
 This chapter reads the Philistines their doom, as the former read the Egyptians theirs and by the same hand, that of Nebuchadnezzar. It is short, but terrible; and Tyre and Zidon, though they lay at some distance from them, come in sharers with them in the destruction here threatened. I. It is foretold that the forces of the northern crowns should come upon them, to their great terror, Jer 47:1-5. II. That the war should continue long, and their endeavours to put an end to it should be in vain, Jer 47:6,7.
 
-## The Judgment of the Philistines. (b. c. 588.)
+## The Judgment of the Philistines (588 BC)
 
 > **¹** The word of the LORD that came to Jeremiah the prophet against the Philistines, before that Pharaoh smote Gaza.  
 > **²** Thus saith the LORD; Behold, waters rise up out of the north, and shall be an overflowing flood, and shall overflow the land, and all that is therein; the city, and them that dwell therein: then the men shall cry, and all the inhabitants of the land shall howl.  

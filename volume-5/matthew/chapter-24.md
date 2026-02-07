@@ -6,7 +6,7 @@ weight: 24
 
 Christ's preaching was mostly practical; but, in this chapter, we have a prophetical discourse, a prediction of things to come; such however as had a practical tendency, and was intended, not to gratify the curiosity of his disciples, but to guide their consciences and conversations, and it is therefore concluded with a practical application. The church has always had particular prophecies, besides general promises, both for direction and for encouragement to believers; but it is observable, Christ preached this prophetical sermon in the close of his ministry, as the Apocalypse is the last book of the New Testament, and the prophetical books of the Old Testament are placed last, to intimate to us, that we must be well grounded in plain truths and duties, and those must first be well digested, before we dive into those things that are dark and difficult; many run themselves into confusion by beginning their Bible at the wrong end. Now, in this chapter, we have, I. The occasion of this discourse, Mt 24:1-3. II. The discourse itself, in which we have, 1. The prophecy of divers events, especially referring to the destruction of Jerusalem, and the utter ruin of the Jewish church and nation, which were not hastening on, and were completed about forty years after; the prefaces to that destruction, the concomitants and consequences of it; yet looking further, to Christ's coming at the end of time, and the consummation of all things, of which that was a type and figure, Mt 24:4-31. 2. The practical application of this prophecy for the awakening and quickening of his disciples to prepare for these great and awful things, Mt 24:32-51.
 
-## Awful Predictions.
+## Awful Predictions
 
 > **¹** And Jesus went out, and departed from the temple: and his disciples came to *him* for to show him the buildings of the temple.  
 > **²** And Jesus said unto them, See ye not all these things? verily I say unto you, There shall not be left here one stone upon another, that shall not be thrown down.  
@@ -44,7 +44,7 @@ Christ, instead of reversing the decree, ratifies it; *Verily, I say unto you, t
 
 But Christ, in his answer, though he does not expressly rectify the mistakes of his disciples (that must be done by the pouring out of the Spirit), yet looks further than their question, and instructs his church, not only concerning the great events of that age, the destruction of Jerusalem, but concerning his second coming at the end of time, which here he insensibly slides into a discourse of, and of that it is plain he speaks in the next chapter, which is a continuation of this sermon.
 
-## Awful Predictions.
+## Awful Predictions
 
 > **⁴** And Jesus answered and said unto them, Take heed that no man deceive you.  
 > **⁵** For many shall come in my name, saying, I am Christ; and shall deceive many.  
@@ -255,7 +255,7 @@ Now concerning Christ's second coming, it is here foretold,
 
 [6.] That *they shall gather together his elect from the four winds.* Note, At the second coming of Jesus Christ, there will be a general meeting of all the saints. *First,* The *elect* only will be gathered, the chosen remnant, who are but few in comparison with the many that are only *called.* This is the foundation of the saints' eternal happiness, that they are God's elect. The gifts of love to eternity follow the thought of love from eternity; and *the Lord knows them that are his. Secondly,* The angels shall be employed to bring them together, as Christ's servants, and as the saints' friends; we have the commission given them, Ps 50:5. *Gather my saints together unto me;* nay, it will be said to them, *Habetis fratres—These are your brethren;* for the elect will then *be equal to the angels,* Lu 20:36. *Thirdly,* They *shall be gathered from one end of heaven to the other;* the elect of God are scattered abroad (Joh 11:52), there are some in all places, in all nations (Re 7:9); but when that great gathering day comes, there shall not one of them be missing; distance of place shall keep none out of heaven, if distance of affection do not. *Undique ad cœlos tantundem est viæ—Heaven is equally accessible from every place.* See Mt 8:11, Isa 43:6,49:12.
 
-## Parable of the Fig-Tree; Awful Predictions; The Duty of Watchfulness; The Good and Evil Steward.
+## Parable of the Fig-Tree; Awful Predictions; The Duty of Watchfulness; The Good and Evil Steward
 
 > **³²** Now learn a parable of the fig tree; When his branch is yet tender, and putteth forth leaves, ye know that summer *is* nigh:  
 > **³³** So likewise ye, when ye shall see all these things, know that it is near, *even* at the doors.  

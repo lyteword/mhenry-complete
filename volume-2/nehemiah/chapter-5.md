@@ -6,7 +6,7 @@ weight: 5
 
 How bravely Nehemiah, as a wise and faithful governor, stood upon his guard against the attacks of enemies abroad, we read in the foregoing chapter. Here we have him no less bold and active to redress grievances at home, and, having kept them from being destroyed by their enemies, to keep them from destroying one another. Here is, I. The complaint which the poor made to him of the great hardships which the rich (of whom they were forced to borrow money) put upon them, Ne 5:1-5. II. The effectual course which Nehemiah took both to reform the oppressors and to relieve the oppressed, Ne 5:6-13. III. The good example which he himself, as governor, set them of compassion and tenderness, Ne 5:14-19.
 
-## The Complaints of the Poor. (b. c. 445.)
+## The Complaints of the Poor (445 BC)
 
 > **¹** And there was a great cry of the people and of their wives against their brethren the Jews.  
 > **²** For there were that said, We, our sons, and our daughters, *are* many: therefore we take up corn *for them,* that we may eat, and live.  
@@ -22,7 +22,7 @@ II\. The persons they dealt with were hard. Money must be had, but it must be bo
 
 Lastly, We will leave Nehemiah hearing the complaint, and enquiring into the truth of the complainants' allegations (for the clamours of the poor are not always just), while we sit down and look, (1.) With a gracious compassion upon the oppressed, and lament the hardships which many in the world are groaning under; putting our souls into their souls' stead, and remembering in our prayers and succours those that are burdened, as burdened with them. (2.) With a gracious indignation at the oppressors, and abhorrence of their pride and cruelty, who drink the tears, the blood, of those they have under their feet. But let those who show no mercy expect *judgment without mercy.* It was an aggravation of the sin of these oppressing Jews that they were themselves so lately delivered out of the house of bondage, which obliged them in gratitude to *undo the heavy burdens,* Isa 58:6.
 
-## Grievances of the Poor Redressed. (b. c. 445.)
+## Grievances of the Poor Redressed (445 BC)
 
 > **⁶** And I was very angry when I heard their cry and these words.  
 > **⁷** Then I consulted with myself, and I rebuked the nobles, and the rulers, and said unto them, Ye exact usury, every one of his brother. And I set a great assembly against them.  
@@ -49,7 +49,7 @@ VI\. He earnestly pressed them not only not to make their poor neighbours any mo
 
 VII\. He laid them under all the obligations possible to do what he pressed them to. 1. He got a promise from them (Ne 5:12): *We will restore them.* 2. He sent for the priests to give them their oath that they would perform this promise; now that their convictions were strong, and they seemed resolved, he would keep them to it. 3. He bound them by a solemn curse or execration, hoping that would strike some awe upon them: *So let God shake out every man that performeth not this promise,* Ne 5:13. This was a threatening that he would certainly do so, to which the people said *Amen,* as to those curses at Mount Ebal (De 27:1-26), that their throats might be cut with their own tongues if they should falsify their engagement, and that by the dread of that they might be kept to their promise. With this *Amen* the people *praised the Lord;* so far were they from promising with regret that they promised with all possible expressions of joy and thankfulness. Thus David, when he took God's vows upon him, *sang and gave praise,* Ps 56:12. This cheerfulness in promising was well, but that which follows was better: *They did according to this promise,* and adhered to what they had done, not as their ancestors in a like case, who re-enslaved those whom a little before they had released, Jer 34:10,11. Good promises are good things, but good performances are all in all.
 
-## The Generosity of Nehemiah. (b. c. 445.)
+## The Generosity of Nehemiah (445 BC)
 
 > **¹⁴** Moreover from the time that I was appointed to be their governor in the land of Judah, from the twentieth year even unto the two and thirtieth year of Artaxerxes the king, *that is,* twelve years, I and my brethren have not eaten the bread of the governor.  
 > **¹⁵** But the former governors that *had been* before me were chargeable unto the people, and had taken of them bread and wine, beside forty shekels of silver; yea, even their servants bare rule over the people: but so did not I, because of the fear of God.  

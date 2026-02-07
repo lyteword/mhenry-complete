@@ -6,7 +6,7 @@ weight: 43
 
 Here the story of Joseph's brethren is carried on, and very particularly related. I. Their melancholy parting with their father Jacob in Canaan, Ge 43:1-14. II. Their pleasant meeting with Joseph in Egypt, Ge 43:15-34, etc. For on this occasion nothing occurs there but what is agreeable and pleasant.
 
-## Jacob Unwilling to Part with Benjamin. (b. c. 1707.)
+## Jacob Unwilling to Part with Benjamin (1707 BC)
 
 > **¹** And the famine *was* sore in the land.  
 > **²** And it came to pass, when they had eaten up the corn which they had brought out of Egypt, their father said unto them, Go again, buy us a little food.  
@@ -21,7 +21,7 @@ Here the story of Joseph's brethren is carried on, and very particularly related
 
 Here, 1. Jacob urges his sons to go and buy more corn in Egypt, Ge 43:1,2. The famine continued; and the corn they had bought was all spent, for it is meat that perisheth. Jacob, as a good master of a family, is in care to provide for those of his own house food convenient; and shall not God provide for his children, for *the household of faith?* Jacob bids them go again and buy a *little* food; now, in time of scarcity, a little must suffice, for nature is content with a little. 2. Judah urges him to consent that Benjamin should go down with them, how much soever it went against his feelings and previous determination. Note, It is not at all inconsistent with the honour and duty which children owe their parents humbly and modestly to advise them, and, as occasion is, to reason with them. *Plead with your mother, plead,* ho 2:2. (1.) He insists upon the absolute necessity they were under of bringing Benjamin with them, of which he, who was a witness to all that had passed in Egypt, was a more competent judge than Jacob could be. Joseph's protestation (Ge 43:3) may be alluded to to show upon what terms we must draw nigh to God; unless we bring Christ along with us in the arms of our faith, we cannot see the face of God with comfort. (2.) He engages to take all possible care of him, and to do his utmost for his safety, Ge 43:8,9. Judah's conscience had lately smitten him for what he had done a great while ago against Joseph (Ge 42:21); and, as an evidence of the truth of his repentance, he is ready to undertake, as far as a man could do it, for Benjamin's security. He will not only not wrong him, but will do all he can to protect him. This is restitution, as far as the case will admit; when he knew not how he could restore Joseph, he would make some amends for the irreparable injury he had done him by doubling his care concerning Benjamin.
 
-## Joseph's Brethren Again Sent to Egypt. (b. c. 1707.)
+## Joseph's Brethren Again Sent to Egypt (1707 BC)
 
 > **¹¹** And their father Israel said unto them, If *it must be* so now, do this; take of the best fruits in the land in your vessels, and carry down the man a present, a little balm, and a little honey, spices, and myrrh, nuts, and almonds:  
 > **¹²** And take double money in your hand; and the money that was brought again in the mouth of your sacks, carry *it* again in your hand; peradventure it *was* an oversight:  
@@ -36,7 +36,7 @@ III\. Jacob's piety appearing in his prayer: *God Almighty give you mercy before
 
 IV\. Jacob's patience. He concludes all with this: "*If I be bereaved of my children, I am bereaved;* If I must part with them thus one after another, I must acquiesce, and say, *The will of the Lord be done.*" Note, It is our wisdom to reconcile ourselves to the sorest afflictions, and make the best of them; for there is nothing got by striving with our Maker, 2Sa 15:25,26.
 
-## Joseph Entertains His Brethren. (b. c. 1707.)
+## Joseph Entertains His Brethren (1707 BC)
 
 > **¹⁵** And the men took that present, and they took double money in their hand, and Benjamin; and rose up, and went down to Egypt, and stood before Joseph.  
 > **¹⁶** And when Joseph saw Benjamin with them, he said to the ruler of his house, Bring *these* men home, and slay, and make ready; for *these* men shall dine with me at noon.  

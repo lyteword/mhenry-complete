@@ -6,7 +6,7 @@ weight: 37
 
 Bezaleel and his workmen are still busy, making I. The ark with the mercy-seat and the cherubim, Ex 37:1-9. II. The table with its vessels, Ex 37:10-16. III. The candlestick with its appurtenances, Ex 37:17-24. IV. The golden altar for incense, Ex 37:25-28. V. The holy oil and incense, Ex 37:29. The particular appointment concerning each of which we had before the Ex 25:1-40,30:1-38.
 
-## The Tabernacle and Its Furniture. (b. c. 1491.)
+## The Tabernacle and Its Furniture (1491 BC)
 
 > **¹** And Bezaleel made the ark *of* shittim wood: two cubits and a half *was* the length of it, and a cubit and a half the breadth of it, and a cubit and a half the height of it:  
 > **²** And he overlaid it with pure gold within and without, and made a crown of gold to it round about.  

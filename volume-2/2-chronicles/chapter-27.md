@@ -6,7 +6,7 @@ weight: 27
 
 Here is a very short account of the reign of Jotham, a pious prosperous prince, of whom one would wish to have known more: but we may better dispense with the brevity of his story because that which lengthened the history of the last three kings was their degeneracy in their latter end, of which we have had a faithful account; but there was no occasion for such a melancholy conclusion of the history of this reign, which is only an account, I. Of the date and continuance of this reign, 2Ch 27:1,8. II. The general good character of it, 2Ch 27:2,6. III. The prosperity of it, 2Ch 27:3-5. IV. The period of it, 2Ch 27:7,9.
 
-## The Reign of Jotham. (b. c. 758.)
+## The Reign of Jotham (758 BC)
 
 > **¹** Jotham *was* twenty and five years old when he began to reign, and he reigned sixteen years in Jerusalem. His mother's name also *was* Jerushah, the daughter of Zadok.  
 > **²** And he did *that which was* right in the sight of the LORD, according to all that his father Uzziah did: howbeit he entered not into the temple of the LORD. And the people did yet corruptly.  

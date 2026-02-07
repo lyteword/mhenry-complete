@@ -6,7 +6,7 @@ weight: 22
 
 Many particular things we have read concerning the two tribes and a half, though nothing separated them from the rest of the tribes except the river Jordan, and this chapter is wholly concerning them. I. Joshua's dismission of the militia of those tribes from the camp of Israel, in which the had served as auxiliaries, during all the wars of Canaan, and their return thereupon to their own country, Jos 22:1-9. II. The altar they built on the borders of Jordan, in token of their communion with the land of Israel, Jos 22:10. III. The offence which the rest of the tribes took at this altar, and the message they sent thereupon, Jos 22:11-20. IV. The apology which the two tribes and a half made for what they had done, Jos 22:21-29. V. The satisfaction which their apology gave to the rest of the tribes, Jos 22:30-34. And (which is strange), whereas in most differences that happen there is a fault on both sides, on this there was fault on no side; none (for aught that appears) were to be blamed, but all to be praised.
 
-## The Reubenites, Gadites, and Half Tribe of Manasseh Dismissed. (b. c. 1444.)
+## The Reubenites, Gadites, and Half Tribe of Manasseh Dismissed (1444 BC)
 
 > **¹** Then Joshua called the Reubenites, and the Gadites, and the half tribe of Manasseh,  
 > **²** And said unto them, Ye have kept all that Moses the servant of the LORD commanded you, and have obeyed my voice in all that I commanded you:  
@@ -34,7 +34,7 @@ V\. He dismisses them with a blessing (Jos 21:6), particularly the half tribe of
 
 VI\. Being thus dismissed, they returned to *the land of their possession* in a body (Jos 21:9), ferry-boats being, it is likely, provided for their repassing Jordan. Though masters of families may sometimes have occasion to be absent, long absent, from their families, yet, when their business abroad is finished, they must remember home is their place, from which they ought not to wander as a bird from her nest.
 
-## The Altar of the Reubenites. (b. c. 1444.)
+## The Altar of the Reubenites (1444 BC)
 
 > **¹⁰** And when they came unto the borders of Jordan, that *are* in the land of Canaan, the children of Reuben and the children of Gad and the half tribe of Manasseh built there an altar by Jordan, a great altar to see to.  
 > **¹¹** And the children of Israel heard say, Behold, the children of Reuben and the children of Gad and the half tribe of Manasseh have built an altar over against the land of Canaan, in the borders of Jordan, at the passage of the children of Israel.  

@@ -6,7 +6,7 @@ weight: 9
 
 Aaron and his sons, having been solemnly consecrated to the priesthood, are in this chapter entering upon the execution of their office, the very next day after their consecration was completed. I. Moses (no doubt by direction from God) appoints a meeting between God and his priests, as the representatives of his people, ordering them to attend him, and assuring them that he would appear to them, Le 9:1-7. II. The meeting is held according to the appointment. 1. Aaron attends on God by sacrifice, offering a sin-offering and burnt-offering for himself (Le 9:8-14), and then the offerings for the people, whom he blessed in the name of the Lord, Le 9:15-22. 2. God signifies his acceptance, (1.) Of their persons, by showing them his glory, Le 9:23. (2.) Of their sacrifices, by consuming them with fire from heaven, Le 9:24.
 
-## Aaron and His Sons Enter on Their Office. (b. c. 1490.)
+## Aaron and His Sons Enter on Their Office (1490 BC)
 
 > **¹** And it came to pass on the eighth day, *that* Moses called Aaron and his sons, and the elders of Israel;  
 > **²** And he said unto Aaron, Take thee a young calf for a sin offering, and a ram for a burnt offering, without blemish, and offer *them* before the LORD.  

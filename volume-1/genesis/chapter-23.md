@@ -6,14 +6,14 @@ weight: 23
 
 Here is, I. Abraham a mourner for the death of Sarah, Ge 23:1,2. II. Abraham a purchaser of a burying-place for Sarah. 1. The purchase humbly proposed by Abraham, Ge 23:3,4. 2. Fairly treated of, and agreed to, with a great deal of mutual civility and respect, Ge 23:5-16. 3. The purchase-money paid, Ge 23:16. 4. The premises conveyed and secured to Abraham, Ge 23:17,18,20. 5. Sarah's funeral, Ge 23:19.
 
-## The Death of Sarah. (b. c. 1857.)
+## The Death of Sarah (1857 BC)
 
 > **¹** And Sarah was an hundred and seven and twenty years old: *these were* the years of the life of Sarah.  
 > **²** And Sarah died in Kirjath-arba; the same *is* Hebron in the land of Canaan: and Abraham came to mourn for Sarah, and to weep for her.  
 
 We have here, 1. Sarah's age, Ge 23:1. Almost forty years before, she had called herself old, Ge 18:12. Old people will die never the sooner, but may die the better, for reckoning themselves old. 2. Her death, Ge 23:2. The longest liver must die at last. Abraham and Sarah had lived comfortably together many years; but death parts those whom nothing else could part. The special friends and favourites of Heaven are not exempted from the stroke of death. She died in the land of Canaan, where she had been above sixty years a sojourner. 3. Abraham's mourning for her; and he was a true mourner. He did not only perform the ceremonies of mourning according to the custom of those time, as the mourners that go about the streets, but he did sincerely lament the great loss he had of a good wife, and gave proof of the constancy of his affection to her to the last. Two words are used: he came both to *mourn* and to *weep.* His sorrow was not counterfeit, but real. He came to her tent, and sat down by the corpse, there to pay the tribute of his tears, that his eye might affect his heart, and that he might pay the greater respect to the memory of her that was gone. Note, It is not only lawful, but it is a duty, to lament the death of our near relations, both in compliance with the providence of God, who thus calls to weeping and mourning, and in honour to those to whom honour is due. Tears are a tribute due to our deceased friends. When a body is sown, it must be watered. But we must not sorrow as those that have no hope; for we have a good hope through grace both concerning them and concerning ourselves.
 
-## The Cave of Machpelah. (b. c. 1857.)
+## The Cave of Machpelah (1857 BC)
 
 > **³** And Abraham stood up from before his dead, and spake unto the sons of Heth, saying,  
 > **⁴** I *am* a stranger and a sojourner with you: give me a possession of a buryingplace with you, that I may bury my dead out of my sight.  
@@ -41,7 +41,7 @@ V\. Abraham's modest and sincere refusal of Ephron's kind offer, Ge 23:12,13. Ab
 
 VI\. The price of the land fixed by Ephron but not insisted on: *The land is worth four hundred shekels of silver* (about fifty pounds of our money), *but what is that between me and thee?* Ge 23:14,15. He would rather oblige his friend than have so much money in his pocket. Herein Ephron discovers, 1. A great contempt of worldly wealth. "What is that between me and thee? It is a small matter, not worth speaking of." Many a one would have said, "It is a deal of money; it will go far in a child's portion." But Ephron says, "What is that?" Note, It is an excellent thing for people to have low and mean thoughts of all the wealth of this world; it is that which is not, and in the abundance of which a man's life does not consist, Lu 12:15. 2. Great courtesy, and obligingness to his friend and neighbour. Ephron was not jealous of Abraham as a resident foreigner, nor envious at him as a man likely to thrive and grow rich. He bore him no ill-will for his singularity in religion, but was much kinder to him than most people now-a-days are to their own brothers: *What is that between me and thee?* Note, No little thing should occasion demurs and differences between true friends. When we are tempted to be hot in resenting affronts, high in demanding our rights, or hard in denying a kindness, we should answer the temptation with this question: "What is that between me and my friend?"
 
-## Sarah's Funeral. (b. c. 1857.)
+## Sarah's Funeral (1857 BC)
 
 > **¹⁶** And Abraham hearkened unto Ephron; and Abraham weighed to Ephron the silver, which he had named in the audience of the sons of Heth, four hundred shekels of silver, current *money* with the merchant.  
 > **¹⁷** And the field of Ephron, which *was* in Machpelah, which *was* before Mamre, the field, and the cave which *was* therein, and all the trees that *were* in the field, that *were* in all the borders round about, were made sure  

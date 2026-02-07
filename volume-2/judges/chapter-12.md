@@ -6,7 +6,7 @@ weight: 12
 
 In this chapter we have, I. Jephthah's rencounter with the Ephraimites, and the blood shed on that unhappy occasion (Jdg 12:1-6), and the conclusion of Jephthah's life and government, Jdg 12:7. II. A short account of three other of the judges of Israel: Ibzan (Jdg 12:8-10), Elon (Jdg 12:11,12), Abdon, Jdg 12:13-15.
 
-## Displeasure of the Ephraimites; Punishment of the Ephraimites. (b. c. 1143.)
+## Displeasure of the Ephraimites; Punishment of the Ephraimites (1143 BC)
 
 > **¹** And the men of Ephraim gathered themselves together, and went northward, and said unto Jephthah, Wherefore passedst thou over to fight against the children of Ammon, and didst not call us to go with thee? we will burn thine house upon thee with fire.  
 > **²** And Jephthah said unto them, I and my people were at great strife with the children of Ammon; and when I called you, ye delivered me not out of their hands.  
@@ -28,7 +28,7 @@ II\. Jephthah's warm vindication of himself. He did not endeavour to pacify them
 
 III\. Here is the end of Jephthah's government. He judged Israel but six years, and then died, Jdg 11:7. Perhaps the death of his daughter sunk him so that he never looked up afterwards, but it shortened his days, and he went to his grave mourning.
 
-## Jephthah's Successors. (b. c. 1112.)
+## Jephthah's Successors (1112 BC)
 
 > **⁸** And after him Ibzan of Bethlehem judged Israel.  
 > **⁹** And he had thirty sons, and thirty daughters, *whom* he sent abroad, and took in thirty daughters from abroad for his sons. And he judged Israel seven years.  

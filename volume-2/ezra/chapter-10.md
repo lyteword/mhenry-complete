@@ -6,7 +6,7 @@ weight: 10
 
 In this chapter we have that grievance redressed which was complained of and lamented in the foregoing chapter. Observe, I. How the people's hearts were prepared for the redress of it by their deep humiliation for the sin, Ezr 10:1. II. How it was proposed to Ezra by Shechaniah, Ezr 10:2-4. III. How the proposal was put in execution. 1. The great men were sworn to stand to it, Ezr 10:5. 2. Ezra appeared first in it, Ezr 10:6. 3. A general assembly was called, Ezr 10:7-9. 4. They all, in compliance with Ezra's exhortation, agreed to the reformation, Ezr 10:10-14. 5. Commissioners were appointed to sit "de die in diem"—day after day, to enquire who had married strange wives and to oblige them to put them away, which was done accordingly (Ezr 10:15-17), and a list of the names of those that were found guilty given in, Ezr 10:18-44.
 
-## Ezra's Reformation. (b. c. 456.)
+## Ezra's Reformation (456 BC)
 
 > **¹** Now when Ezra had prayed, and when he had confessed, weeping and casting himself down before the house of God, there assembled unto him out of Israel a very great congregation of men and women and children: for the people wept very sore.  
 > **²** And Shechaniah the son of Jehiel, *one* of the sons of Elam, answered and said unto Ezra, We have trespassed against our God, and have taken strange wives of the people of the land: yet now there is hope in Israel concerning this thing.  

@@ -6,7 +6,7 @@ weight: 35
 
 As after a prediction of God's judgments upon the world (Isa 24:1-23) follows a promise of great mercy to be had in store for his church (Isa 25:1-2), so here after a black and dreadful scene of confusion in the foregoing chapter we have, in this, a bright and pleasant one, which, though it foretel the flourishing estate of Hezekiah's kingdom in the latter part of his reign, yet surely looks as far beyond that as the prophecy in the foregoing chapter does beyond the destruction of the Edomites; both were typical, and it concerns us most to look at those things which they were typical of, the kingdom of Christ and the kingdom of heaven. When the world, which lies in wickedness, shall be laid in ruins, and the Jewish church, which persisted in infidelity, shall become a desolation, then the gospel church shall be set up and made to flourish. I. The Gentiles shall be brought into it, Isa 35:1,2,7. II. The well-wishers to it, who were weak and timorous, shall be encouraged, Isa 35:3,4. III. Miracles shall be wrought both on the souls and on the bodies of men, Isa 35:5,6. IV. The gospel church shall be conducted in the way of holiness, Isa 35:8,9. V. It shall be brought at last to endless joys, Isa 35:10. Thus do we find more of Christ and heaven in this chapter than one would have expected in the Old Testament.
 
-## The Blessings of the Gospel. (b. c. 720.)
+## The Blessings of the Gospel (720 BC)
 
 > **¹** The wilderness and the solitary place shall be glad for them; and the desert shall rejoice, and blossom as the rose.  
 > **²** It shall blossom abundantly, and rejoice even with joy and singing: the glory of Lebanon shall be given unto it, the excellency of Carmel and Sharon, they shall see the glory of the LORD, *and* the excellency of our God.  
@@ -23,7 +23,7 @@ III\. The feeble and faint-hearted encouraged, Isa 35:3,4. God's prophets and mi
 
 IV\. Assurance given of the approach of a Saviour: "*Your God will come with vengeance.* God will appear for you against your enemies, will recompense both their injuries and your losses." The Messiah will come, in the fulness of time, to take vengeance on the powers of darkness, to spoil them, and make a show of them openly, to recompense those that mourn in Zion with abundant comforts. *He will come and save us.* With the hopes of this the Old-Testament saints strengthened their weak hands. He will come again at the end of time, will come in flaming fire, to recompense tribulation to those who have troubled his people, and, to those who were troubled, rest, such a rest as will be not only a final period to, but a full reward of, all their troubles, 2Th 1:6,7. Those whose *hearts tremble for the ark of God,* and who are under a concern for his church in the world, may silence their fears with this, God will take the work into his own hands. Your God will come, who pleads your cause and owns your interest, even God himself, who is God alone.
 
-## The Blessings of the Gospel. (b. c. 720.)
+## The Blessings of the Gospel (720 BC)
 
 > **⁵** Then the eyes of the blind shall be opened, and the ears of the deaf shall be unstopped.  
 > **⁶** Then shall the lame *man* leap as a hart, and the tongue of the dumb sing: for in the wilderness shall waters break out, and streams in the desert.  

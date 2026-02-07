@@ -6,7 +6,7 @@ weight: 2
 
 Moses, in this chapter, proceeds in the rehearsal of God's providences concerning Israel in their way to Canaan, yet preserves not the record of any thing that happened during their tedious march back to the Red Sea, in which they wore out almost thirty-eight years, but passes that over in silence as a dark time, and makes his narrative to begin again when they faced about towards Canaan (De 2:1-3), and drew towards the countries that were inhabited, concerning which God here gives them direction, I. What nations they must not give any disturbance to. 1. Not to the Edomites, De 2:4-8. 2. Not to the Moabites (De 2:9), of the antiquities of whose country, with that of the Edomites, he gives some account, De 2:10-12. And here comes in an account of their passing the river Zered, De 2:13-16. 3. Not to the Ammonites, of whose country here is some account given, De 2:17-23. II. What nations they should attack and conquer. They must begin with Sihon, king of the Amorites, De 2:24,25. And accordingly, 1. They had a fair occasion of quarrelling with him, De 2:26-32. 2. God gave them a complete victory over him, De 2:33-37, etc.
 
-## The Seed of Esau and Lot Spared. (b. c. 1451.)
+## The Seed of Esau and Lot Spared (1451 BC)
 
 > **¹** Then we turned, and took our journey into the wilderness by the way of the Red sea, as the LORD spake unto me: and we compassed mount Seir many days.  
 > **²** And the LORD spake unto me, saying,  
@@ -51,7 +51,7 @@ II\. The advances which Israel made towards Canaan. They *passed by the way of t
 
 III\. The caution given them not to meddle with the Moabites or Ammonites, whom they must not disseize, nor so much as disturb in their possessions: *Distress them not, nor contend with them,* De 2:9. Though the Moabites aimed to ruin Israel (Nu 22:6), yet Israel must not aim to ruin them. If others design us a mischief, this will not justify us in designing them a mischief. But why must not the Moabites and Ammonites be meddled with? 1. Because they were the *children of Lot* (De 2:9,19), righteous Lot, who kept his integrity in Sodom. Note, Children often fare the better in this world for the piety of their ancestors: the seed of the upright, though they degenerate, yet are blessed with temporal good things. 2. Because the land they were possessed of was what God had given them, and he did not design it for Israel. Even wicked men have a right to their worldly possessions, and must not be wronged. The tares are allowed their place in the field, and must not be rooted out until the harvest. God gives and preserves outward blessings to wicked men, to show that these are not the best things, but he has better in store for his own children.
 
-## History of the Moabites. (b. c. 1451.)
+## History of the Moabites (1451 BC)
 
 > **²⁴** Rise ye up, take your journey, and pass over the river Arnon: behold, I have given into thine hand Sihon the Amorite, king of Heshbon, and his land: begin to possess *it,* and contend with him in battle.  
 > **²⁵** This day will I begin to put the dread of thee and the fear of thee upon the nations *that are* under the whole heaven, who shall hear report of thee, and shall tremble, and be in anguish because of thee.  

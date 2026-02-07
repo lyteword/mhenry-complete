@@ -6,7 +6,7 @@ weight: 24
 
 Things are here ripening for, and hastening towards, the utter destruction of Jerusalem. We left Jehoiakim on the throne, placed there by the king of Egypt: now here we have, I. The troubles of his reign, how he was brought into subjection by the king of Babylon, and severely chastised for attempting to shake off the yoke (2Ki 24:1-6), and how Egypt also was conquered by Nebuchadnezzar, 2Ki 24:7. II. The desolations of his son's reign, which continued but three months; and then he and all his great men, being forced to surrender at discretion, were carried captives to Babylon, 2Ki 24:8-16. III. The preparatives of the next reign (which was the last of all) for the utter ruin of Jerusalem, which the next chapter will give us an account of, 2Ki 24:17-20.
 
-## Jehoiakim Subdued by Nebuchadnezzar. (b. c. 599.)
+## Jehoiakim Subdued by Nebuchadnezzar (599 BC)
 
 > **¹** In his days Nebuchadnezzar king of Babylon came up, and Jehoiakim became his servant three years: then he turned and rebelled against him.  
 > **²** And the LORD sent against him bands of the Chaldees, and bands of the Syrians, and bands of the Moabites, and bands of the children of Ammon, and sent them against Judah to destroy it, according to the word of the LORD, which he spake by his servants the prophets.  
@@ -26,7 +26,7 @@ III\. The king of Egypt was likewise subdued by the king of Babylon, and a great
 
 IV\. Jehoiakim, seeing his country laid waste and himself ready to fall into the enemy's hand, as it should seem, died of a broken heart, in the midst of his days (2Ki 24:6). So *Jehoiakim slept with his fathers;* but it is not said that he was *buried with them,* for no doubt the prophecy of Jeremiah was fulfilled, that he should not be lamented, as his father was, but *buried with the burial of an ass* (Jer 22:18,19), and his dead body cast out, Jer 36:30.
 
-## Jehoiachin Carried Captive to Babylon. (b. c. 599.)
+## Jehoiachin Carried Captive to Babylon (599 BC)
 
 > **⁸** Jehoiachin *was* eighteen years old when he began to reign, and he reigned in Jerusalem three months. And his mother's name *was* Nehushta, the daughter of Elnathan of Jerusalem.  
 > **⁹** And he did *that which was* evil in the sight of the LORD, according to all that his father had done.  

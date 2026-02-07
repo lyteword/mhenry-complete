@@ -6,7 +6,7 @@ weight: 20
 
 How do the clouds return after the rain! No sooner is one of David's troubles over than another arises, as it were out of the ashes of the former, wherein the threatening is fulfilled, that the sword should never depart from his house. I. Before he reaches Jerusalem a new rebellion is raised by Sheba, 2Sa 20:1,2. II. His first work, when he comes to Jerusalem, is to condemn his concubines to perpetual imprisonment, 2Sa 20:3. III. Amass, whom he entrusts to raise an army against Sheba, is too slow in his motions, which puts him into a fright, 2Sa 20:4-6. IV. One of his generals barbarously murders the other, when they are taking the field, 2Sa 20:7-13. V. Sheba is at length shut up in the city of Abel (2Sa 20:14,15), but the citizens deliver him up to Joab, and so his rebellion is crushed, 2Sa 20:16-22. The chapter concludes with a short account of David's great officers, 2Sa 20:23-26.
 
-## Sheba's Rebellion. (b. c. 1023.)
+## Sheba's Rebellion (1023 BC)
 
 > **¹** And there happened to be there a man of Belial, whose name *was* Sheba, the son of Bichri, a Benjamite: and he blew a trumpet, and said, We have no part in David, neither have we inheritance in the son of Jesse: every man to his tents, O Israel.  
 > **²** So every man of Israel went up from after David, *and* followed Sheba the son of Bichri: but the men of Judah clave unto their king, from Jordan even to Jerusalem.  
@@ -18,7 +18,7 @@ I\. His subjects revolting from him at the instigation of *a man of Belial,* who
 
 II\. His concubines imprisoned for life, and he himself under a necessity of putting them in confinement, because they had been defiled by Absalom, 2Sa 20:3. David had multiplied wives, contrary to the law and they proved a grief and shame to him. Those whom he had sinfully taken pleasure in he was now, 1. Obliged, in duty, to put away, they being rendered unclean to him by the vile uncleanness his son had committed with them. Those whom he had loved must now be loathed. 2. Obliged, in prudence, to shut up in privacy, not to be seen abroad for shame, lest the sight of them should give occasion to people to speak of what Absalom had done to them, which ought not to be so much as named, 1Co 5:1. That that villany might be buried in obscurity. 3. Obliged, in justice to shut up in prison, to punish them for their easy submission to Absalom's lust, despairing perhaps of David's return, and giving him up for gone. Let none expect to do ill and fare well.
 
-## Amasa's Death. (b. c. 1023.)
+## Amasa's Death (1023 BC)
 
 > **⁴** Then said the king to Amasa, Assemble me the men of Judah within three days, and be thou here present.  
 > **⁵** So Amasa went to assemble *the men of* Judah: but he tarried longer than the set time which he had appointed him.  
@@ -41,7 +41,7 @@ III\. Joab, near Gibeon, meets with Amasa, and barbarously murders him, 2Sa 20:8
 
 IV\. Joab immediately resumes his general's place, and takes care to lead the army on in pursuit of Sheba, that, if possible, he might prevent any prejudice to the common cause by what he had done. 1. He leaves one of his men to make proclamation to the forces that were coming up that they were still engaged in David's cause, but under Joab's command, 2Sa 20:11. He knew what an interest he had in the soldiery, and how many favoured him rather than Amasa, who had been a traitor, was now a turn-coat, and had never been successful; on this he boldly relied, and called them all to follow him. What man of Judah would not be for his old king and his old general? But one would wonder with what face a murderer could pursue a traitor; and how, under such a heavy load of guilt, he had courage to enter upon danger. Surely his conscience was seared with a hot iron. 2. Care is taken to remove the dead body out of the way, because at that they made a stand (as 2Sa 2:23), and to cover it with a cloth, 2Sa 20:12,13. Wicked men think themselves safe in their wickedness if they can but conceal it from the eye of the world: if it be hidden, it is with them as if it were never done. But the covering of blood with a cloth cannot stop its cry in God's ear for vengeance, or make it the less loud. However, since this was no time to arraign Joab for what he had done, and the common safety called for expedition, it was prudent to remove that which retarded the march of the army; and then they all went on after Joab, while David, who no doubt had notice soon brought him of this tragedy, could not but reflect upon it with regret that he had not formerly done justice upon Joab for the death of Abner, and that he now had exposed Amasa by preferring him. And perhaps his conscience reminded him of his employing Joab in the murder of Uriah, which had helped to harden him in cruelty.
 
-## Sheba Pursued. (b. c. 1023.)
+## Sheba Pursued (1023 BC)
 
 > **¹⁴** And he went through all the tribes of Israel unto Abel, and to Beth-maachah, and all the Berites: and they were gathered together, and went also after him.  
 > **¹⁵** And they came and besieged him in Abel of Beth-maachah, and they cast up a bank against the city, and it stood in the trench: and all the people that *were* with Joab battered the wall, to throw it down.  
@@ -71,7 +71,7 @@ III\. A discreet good woman of the city of Abel brings this matter, by her prude
 
 2\. Her treaty with the citizens. She went to them in her wisdom (and perhaps she had as much need of it in dealing with them as in dealing with Joab) and persuaded them to cut off Sheba's head, probably by some public order of their government, and it was thrown over the wall to Joab. He knew the traitor's face, and therefore looked no further, intending not that any of his adherents should suffer. The public safety was secured, and he felt no wish to gratify the public revenge. Joab hereupon raised the siege, and marched back to Jerusalem, with the trophies rather of peace than victory.
 
-## David's Court. (b. c. 1023.)
+## David's Court (1023 BC)
 
 > **²³** Now Joab *was* over all the host of Israel: and Benaiah the son of Jehoiada *was* over the Cherethites and over the Pelethites:  
 > **²⁴** And Adoram *was* over the tribute: and Jehoshaphat the son of Ahilud *was* recorder:  

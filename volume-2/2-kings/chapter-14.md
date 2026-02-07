@@ -6,7 +6,7 @@ weight: 14
 
 This chapter continues the history of the succession in the kingdoms both of Judah and Israel. I. In the kingdom of Judah here is, 1. The entire history (as much as is recorded in this book) of Amaziah's reign (1.) His good character, 2Ki 14:1-4. (2.) The justice he executed on the murderers of his father, 2Ki 14:5,6. (3.) His victory over the Edomites, 2Ki 14:7. (4.) His war with Joash, and his defeat in that war, 2Ki 14:8-14. (5.) His fall, at last, by a conspiracy against him, 2Ki 14:17-20. 2. The beginning of the history of Azariah, 2Ki 14:21,22. II. In the kingdom of Israel, the conclusion of the reign of Joash (2Ki 14:15,16), and the entire history of Jeroboam his son, the second of that name, 2Ki 14:23-29. How many great men are made to stand in a little compass in God's book!
 
-## The Reign of Amaziah. (b. c. 828.)
+## The Reign of Amaziah (828 BC)
 
 > **¹** In the second year of Joash son of Jehoahaz king of Israel reigned Amaziah the son of Joash king of Judah.  
 > **²** He was twenty and five years old when he began to reign, and reigned twenty and nine years in Jerusalem. And his mother's name *was* Jehoaddan of Jerusalem.  
@@ -40,7 +40,7 @@ II\. Joash sent him a grave rebuke for his challenge, with advice to withdraw it
 
 III\. Amaziah persisted in his resolution, and the issue was bad; he had better have tarried at home, for Joash gave him such a look in the face as put him to confusion. Challengers commonly prove to be on the losing side. 1. His army was routed and dispersed, 2Ki 14:12. Josephus says, When they were to engage they were struck with such terror that they did not strike a stroke, but every one made the best of his way. 2. He himself was taken prisoner by the king of Israel, and then had enough of *looking him in the face.* Amaziah's pedigree comes in here somewhat abruptly (*the son of Joash, the son of Ahaziah*), because perhaps he had gloried in the dignity of his ancestors, or because he now smarted for their iniquity. 3. The conqueror entered Jerusalem, which tamely opened to him, and yet he broke down their wall (and, as Josephus says, drove his chariot in triumph through the breach), in reproach to them, and that he might, when he pleased, take possession of the royal city. 4. He plundered Jerusalem, took away all that was valuable, and returned to Samaria, laden with spoils, 2Ki 14:14. It was said of Joash that he did that which was *evil in the sight of the Lord,* and of Amaziah that he did *that which was right;* and yet Joash triumphs thus over Amaziah, and why so? Because God would show, in Amaziah's fate, that he resists the proud, or because, whatever they were otherwise, Joash had lately been respectful to one of God's prophets (2Ki 13:14), but Amaziah had been abusive to another (2Ch 25:16), and God will honour those who honour him in his prophets, but those who despise them, and him in them, shall be lightly esteemed.
 
-## Reign of Jeroboam, King of Israel. (b. c. 825.)
+## Reign of Jeroboam, King of Israel (825 BC)
 
 > **¹⁵** Now the rest of the acts of Jehoash which he did, and his might, and how he fought with Amaziah king of Judah, *are* they not written in the book of the chronicles of the kings of Israel?  
 > **¹⁶** And Jehoash slept with his fathers, and was buried in Samaria with the kings of Israel; and Jeroboam his son reigned in his stead.  

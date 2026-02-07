@@ -6,7 +6,7 @@ weight: 29
 
 We are here entering upon a pleasant scene, the good and glorious reign of Hezekiah, in which we shall find more of God and religion than perhaps in any of the good reigns we have yet met with; for he was a very zealous, devout, good man, none like him. In this chapter we have an account of the work of reformation which he set about with vigour immediately after his accession to the crown. Here is, I. His exhortation to the priests and Levites, when he put them in possession of the house of God again, 2Ch 29:1-11. II. The care and pains which the Levites took to cleanse the temple, and put things in order there, 2Ch 29:12-19. III. A solemn revival of God's ordinances that had been neglected, in which atonement was made for the sins of the last reign, and the wheels were set a-going again, to the great satisfaction of king and people, 2Ch 29:20-36.
 
-## Hezekiah's Good Reign. (b. c. 726.)
+## Hezekiah's Good Reign (726 BC)
 
 > **¹** Hezekiah began to reign *when he was* five and twenty years old, and he reigned nine and twenty years in Jerusalem. And his mother's name *was* Abijah, the daughter of Zechariah.  
 > **²** And he did *that which was* right in the sight of the LORD, according to all that David his father had done.  
@@ -36,7 +36,7 @@ IV\. His speech to the priests and Levites. It was well known, no doubt, that he
 
 4\. He engaged and excited the Levites and priests to do their duty on this occasion. This he begins with (2Ch 29:5); this he ends with, 2Ch 29:11. He called them *Levites* to remind them of their obligation to God, called them his *sons* to remind them of the relation to himself, that he expected that, *as a son with the father, they should serve with him* in the reformation of the land. (1.) he told them what was their duty, to sanctify *themselves* first (by repenting of their neglects, reforming their own hearts and lives, and renewing their covenants with God to do their duty better for the time to come), and then to *sanctify the house of God,* as his servants, to make it clean from every thing that was disagreeable, either through the disuse or the profanation of it, and to set it up for the purposes for which it was made. (2.) He stirred them up to do it (2Ch 29:11): "*Be not now negligent,* or remiss, in your duty. Let not this good work be retarded through your carelessness." *Be not deceived,* so the *margin.* Note, Those that by their negligence in the service of God think to mock God, and put a cheat upon him, do but deceive themselves, and put a damning cheat upon their own souls. *Be not secure* (so some), as if there were no urgent call to do it or no danger in not doing it. Note, Men's negligence in religion is owing to their carnal security. The consideration he quickens them with is derived from their office. God had herein put honour upon them: He has *chosen you to stand before him.* God therefore expected work from them. They were not chosen to be idle, to enjoy the dignity and leave the duty to be done by others, but to serve him and to minister to him. They must therefore be ashamed of their late remissness, and, now that the doors of the temple were opened again, must set about their work with double diligence.
 
-## The Temple Cleansed. (b. c. 726.)
+## The Temple Cleansed (726 BC)
 
 > **¹²** Then the Levites arose, Mahath the son of Amasai, and Joel the son of Azariah, of the sons of the Kohathites: and of the sons of Merari, Kish the son of Abdi, and Azariah the son of Jehalelel: and of the Gershonites; Joah the son of Zimmah, and Eden the son of Joah:  
 > **¹³** And of the sons of Elizaphan; Shimri, and Jeiel: and of the sons of Asaph; Zechariah, and Mattaniah:  
@@ -57,7 +57,7 @@ III\. The expedition with which they did this work was very remarkable. They beg
 
 IV\. The report they made of it to Hezekiah was very agreeable, 2Ch 29:18,19. They gave him an account of what they had done, because it was he that set them on work, boasted not of their own care and pains, nor did they come to him to be paid, but to let him know that all things that had been profaned were now sanctified according to law, and were ready to be used again whenever he pleased. They knew the good king had set his heart upon God's altar, and longed to be attending that, and therefore they insisted most upon the readiness they had put that into—that the vessels for the altar were scoured and brightened. Those vessels which Ahaz, in his *transgression, had cast away* as vessels in which there was no pleasure, they gathered together, sanctified them, and laid them in their place *before the altar.* Though the vessels of the sanctuary may be profaned for a while, God will find a time and a way to sanctify them. Neither his ordinances nor his people shall be suffered to fail for ever.
 
-## Hezekiah's Sacrifice. (b. c. 726.)
+## Hezekiah's Sacrifice (726 BC)
 
 > **²⁰** Then Hezekiah the king rose early, and gathered the rulers of the city, and went up to the house of the LORD.  
 > **²¹** And they brought seven bullocks, and seven rams, and seven lambs, and seven he goats, for a sin offering for the kingdom, and for the sanctuary, and for Judah. And he commanded the priests the sons of Aaron to offer *them* on the altar of the LORD.  

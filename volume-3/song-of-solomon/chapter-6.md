@@ -6,7 +6,7 @@ weight: 6
 
 In this chapter, I. The daughters of Jerusalem, moved with the description which the church had given of Christ, enquire after him, So 6:1. II. The church directs them where they may meet with him, So 6:2,3. III. Christ is now found of those that sought him, and very highly applauds the beauty of his spouse, as one extremely smitten with it (So 6:4-7), preferring her before all others (So 6:8,9), recommending her to the love and esteem of all her neighbours (So 6:10), and, lastly, acknowledging the impressions which her beauty had made upon him and the great delight he took in it, So 6:11-13.
 
-## Enquiring after Christ.
+## Enquiring after Christ
 
 > **¹** Whither is thy beloved gone, O thou fairest among women? whither is thy beloved turned aside? that we may seek him with thee.  
 > **²** My beloved is gone down into his garden, to the beds of spices, to feed in the gardens, and to gather lilies.  
@@ -20,7 +20,7 @@ II\. The answer which the spouse gave to this enquiry, So 6:2,3. Now she complai
 
 2\. She is very confident of her own interest in him (So 6:3): "*I am my beloved's, and my beloved is mine;* the relation is mutual, and the knot is tied, which cannot be loosed; for *he feeds among the lilies,* and my communion with him is a certain token of my interest in him." She had said this before (So 2:16); but, (1.) Here she repeats it as that which she resolved to abide by, and which she took an unspeakable pleasure and satisfaction in; she liked her choice too well to change. Our communion with God is very much maintained and kept up by the frequent renewing of our covenant with him and rejoicing in it. (2.) She had occasion to repeat it, for she had acted unkindly to her beloved, and, for her so doing, he had justly withdrawn himself from her, and therefore there was occasion to take fresh hold of the covenant, which continues firm between Christ and believes, notwithstanding their failings and his frowns, Ps 89:30-35. "I have been careless and wanting in my duty, and yet *I am my beloved's;*" for every transgression in the covenant does not throw us out of covenant. "He has justly hidden his face from me and denied me his comforts, and yet *my beloved is mine;*" for rebukes and chastenings are not only consistent with, but they flow from covenant-love. (3.) When we have not a full assurance of Christ's love we must live by a faithful adherence to him. "Though I have not the sensible consolation I used to have, yet I will cleave to this, *Christ is mine and I am his.*" (4.) Though she had said the same before, yet now she inverts the order, and asserts her interest in her first: *I am my beloved's,* entirely devoted and dedicated to him; and then her interest in him and in his grace: "*My beloved is mine,* and I am happy, truly happy in him." If our own hearts can but witness for us that we are his, there is no room left to question his being ours; for the covenant never breaks on his side. (5.) It is now her comfort, as it was then, that *he feeds among the lilies,* that he takes delight in his people and converses freely with them, as we do with those with whom we feed; and therefore, though at present he be withdrawn, "I shall meet with him again. *I shall yet praise him who is the health of my countenance, and my God.*"
 
-## The Church's Confidence in Christ; The Love of Christ to the Church.
+## The Church's Confidence in Christ; The Love of Christ to the Church
 
 > **⁴** Thou *art* beautiful, O my love, as Tirzah, comely as Jerusalem, terrible as *an army* with banners.  
 > **⁵** Turn away thine eyes from me, for they have overcome me: thy hair *is* as a flock of goats that appear from Gilead.  
@@ -48,7 +48,7 @@ VI\. He produces the encomium that was given of her, and makes it his own (So 6:
 
 2\. The beauty of the church and of believers is not only amiable, but *awful as an army with banners.* The church, in this world, is *as an army,* as the camp of Israel in the wilderness; its state is militant; it is in the midst of enemies, and is engaged in a constant conflict with them. Believers are soldiers in this army. It has its *banners;* the gospel of Christ is an ensign (Isa 11:12), the love of Christ, So 2:4. It is marshalled, and kept in order and under discipline. It is *terrible* to its enemies as Israel in the wilderness was, Ex 15:14. When Balaam saw Israel encamped according to their tribes, by their standards, with colours displayed, he said, *How goodly are thy tents, O Jacob!* Nu 24:5. When the church preserves her purity she secures her honour and victory; when she is *fair as the moon,* and *clear as the sun,* she is truly great and formidable.
 
-## The Love of Christ to the Church.
+## The Love of Christ to the Church
 
 > **¹¹** I went down into the garden of nuts to see the fruits of the valley, *and* to see whether the vine flourished, *and* the pomegranates budded.  
 > **¹²** Or ever I was aware, my soul made me *like* the chariots of Amminadib.  

@@ -6,7 +6,7 @@ weight: 36
 
 We have in this chapter the determination of another question that arose upon the case of the daughters of Zelophehad. God had appointed that they should inherit, Nu 27:7. Now here, I. An inconvenience is suggested, in case they should marry into any other tribe, Nu 36:1-4. II. It is prevented by a divine appointment that they should marry in their own tribe and family (Nu 36:5-7), and this is settled for a rule in like cases (Nu 36:8,9); and they did marry accordingly to some of their own relations (Nu 36:10-12), and with this the book concludes, Nu 36:13.
 
-## The Law of Inheritance. (b. c. 1452.)
+## The Law of Inheritance (1452 BC)
 
 > **¹** And the chief fathers of the families of the children of Gilead, the son of Machir, the son of Manasseh, of the families of the sons of Joseph, came near, and spake before Moses, and before the princes, the chief fathers of the children of Israel:  
 > **²** And they said, The LORD commanded my lord to give the land for an inheritance by lot to the children of Israel: and my lord was commanded by the LORD to give the inheritance of Zelophehad our brother unto his daughters.  

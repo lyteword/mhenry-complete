@@ -6,7 +6,7 @@ weight: 21
 
 Never surely did any kingdom change its king so much for the worse as Judah did, when Jehoram, one of the vilest, succeeded Jehoshaphat, one of the best. Thus were they punished for not making a better use of Jehoshaphat's good government, and their disaffectedness (or coldness at least) to his reformation, 2Ch 20:33. Those that knew not now to value a good king are justly plagued with a bad one. Here is, I. Jehoram's elevation to the throne, 2Ch 21:1-3. II. The wicked course he took to establish himself in it, by the murder of his brethren, 2Ch 21:4. III. The idolatries and other wickedness he was guilty of, 2Ch 21:5,6,11. IV. The prophecy of Elijah against him, 2Ch 21:12-15. V. The judgments of God upon him, in the revolt of his subjects from him (2Ch 21:8-10) and the success of his enemies against him, 2Ch 21:16,17. VI. His miserable sickness and inglorious exit, 2Ch 21:18-20. VII. The preservation of the house of David notwithstanding, 2Ch 21:7.
 
-## Jehoram's Wicked Reign. (b. c. 889.)
+## Jehoram's Wicked Reign (889 BC)
 
 > **¹** Now Jehoshaphat slept with his fathers, and was buried with his fathers in the city of David. And Jehoram his son reigned in his stead.  
 > **²** And he had brethren the sons of Jehoshaphat, Azariah, and Jehiel, and Zechariah, and Azariah, and Michael, and Shephatiah: all these *were* the sons of Jehoshaphat king of Israel.  
@@ -32,7 +32,7 @@ IV\. That when he forsook God and his worship his subjects withdrew from their a
 
 V\. That yet God was tender of his covenant with the house of David, and therefore would not destroy the royal family, though it was so wretchedly corrupted and degenerated, 2Ch 21:7. These things we had before, 2Ki 8:19-22. The tenour of the covenant was that David's seed should be visited for their transgressions, but the covenant should never be broken, Ps 89:30-37, etc.
 
-## Jehoram's Miserable End. (b. c. 884.)
+## Jehoram's Miserable End (884 BC)
 
 > **¹²** And there came a writing to him from Elijah the prophet, saying, Thus saith the LORD God of David thy father, Because thou hast not walked in the ways of Jehoshaphat thy father, nor in the ways of Asa king of Judah,  
 > **¹³** But hast walked in the way of the kings of Israel, and hast made Judah and the inhabitants of Jerusalem to go a whoring, like to the whoredoms of the house of Ahab, and also hast slain thy brethren of thy father's house, *which were* better than thyself:  

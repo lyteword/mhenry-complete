@@ -6,7 +6,7 @@ weight: 5
 
 In this chapter the prophet, in God's name, shows the people of God their transgressions, even the house of Jacob their sins, and the judgments which were likely to be brought upon them for their sins, I. By a parable, under the similitude of an unfruitful vineyard, representing the great favours God had bestowed upon them, their disappointing his expectations from them, and the ruin they had thereby deserved, Isa 5:1-7. II. By an enumeration of the sins that did abound among them, with a threatening of punishments that should answer to the sins. 1. Covetousness, and greediness of worldly wealth, which shall be punished with famine, Isa 5:8-10. 2. Rioting, revelling, and drunkenness (Isa 5:11,12,22,23), which shall be punished with captivity and all the miseries that attend it, Isa 5:13-17. 3. Presumption in sin, and defying the justice of God, Isa 5:18,19. 4. Confounding the distinctions between virtue and vice, and so undermining the principles of religion, Isa 5:20. 5. Self-conceit, Isa 5:21. 6. Perverting justice, for which, and the other instances of reigning wickedness among them, a great and general desolation in threatened, which should lay all waste (Isa 5:24,25), and which should be effected by a foreign invasion (Isa 5:26-30), referring perhaps to the havoc made not long after by Sennacherib's army.
 
-## Israel Compared to a Vineyard. (b. c. 758.)
+## Israel Compared to a Vineyard (758 BC)
 
 > **¹** Now will I sing to my wellbeloved a song of my beloved touching his vineyard. My wellbeloved hath a vineyard in a very fruitful hill:  
 > **²** And he fenced it, and gathered out the stones thereof, and planted it with the choicest vine, and built a tower in the midst of it, and also made a winepress therein: and he looked that it should bring forth grapes, and it brought forth wild grapes.  
@@ -28,7 +28,7 @@ IV\. Their doom read, and a righteous sentence passed upon them for their bad co
 
 V\. The explanation of this parable, or a key to it (Isa 5:7), where we are told, 1. What is meant by the vineyard (it is *the house of Israel,* the body of the people, incorporated in one church and commonwealth), and what by the vines, the pleasant plants, the plants of God's pleasure, which he had been pleased in and delighted in doing good to; they are *the men of Judah;* these he had dealt graciously with, and from them he expected suitable returns. 2. What is meant by the grapes that were expected and the wild grapes that were produces: *He looked for judgment and righteousness,* that the people should be honest in all their dealings and the magistrates should strictly administer justice. This might reasonably be expected among a people that had such excellent laws and rules of justice given them (De 4:8); but the fact was quite otherwise; instead of judgment there was the cruelty of the oppressors, and instead of righteousness the cry of the oppressed. Every thing was carried by clamour and noise, and not by equity and according to the merits of the cause. It is sad with a people when wickedness has usurped the place of judgment, Ec 3:16. It is very sad with a soul when instead of the grapes of humility, meekness, patience, love, and contempt of the world, which God looks for, there are the wild grapes of pride, passion, discontent, malice, and contempt of God—instead of the grapes of praying and praising, the wild grapes of cursing and swearing, which are a great offence to God. Some of the ancients apply this to the Jews in Christ's time, among whom God looked for righteousness (that is, that they should receive and embrace Christ), but behold a cry, that cry, *Crucify him, crucify him.*
 
-## Worldly-Mindedness Reproved; The Punishment of the Sensual. (b. c. 758.)
+## Worldly-Mindedness Reproved; The Punishment of the Sensual (758 BC)
 
 > **⁸** Woe unto them that join house to house, *that* lay field to field, till *there be* no place, that they may be placed alone in the midst of the earth!  
 > **⁹** In mine ears *said* the LORD of hosts, Of a truth many houses shall be desolate, *even* great and fair, without inhabitant.  
@@ -63,7 +63,7 @@ II\. Here is a woe to those that dote upon the pleasures and delights of sense, 
 
 (3.) The country shall be laid waste, and become a prey to the neighbours: *The waste places of the fats ones,* the possessions of those rich men that lived at their ease, shall be eaten by strangers that were nothing akin to them. In the captivity the poor of the land were left for *vine-dressers and husbandmen* (2Ki 25:12); these were the lambs that fed in the pastures of the fats ones, which were laid in common for strangers to eat. When the church of the Jews, those fat ones, was laid waste, their privileges were transferred to the Gentiles, who had been long strangers, and the lambs of Christ's flock were welcome to them.
 
-## Denunciations against Sin. (b. c. 758.)
+## Denunciations against Sin (758 BC)
 
 > **¹⁸** Woe unto them that draw iniquity with cords of vanity, and sin as it were with a cart rope:  
 > **¹⁹** That say, Let him make speed, *and* hasten his work, that we may see *it:* and let the counsel of the Holy One of Israel draw nigh and come, that we may know *it!*  

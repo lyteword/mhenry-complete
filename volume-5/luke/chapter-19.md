@@ -6,7 +6,7 @@ weight: 19
 
 In this chapter we have, I. The conversion of Zaccheus the publican at Jericho, Lu 19:1-10. II. The parable of the pounds which the king entrusted with his servants, and of his rebellious citizens, Lu 19:11-27. III. Christ's riding in triumph (such triumph as it was) into Jerusalem; and his lamentation in prospect of the ruin of that city, Lu 19:28-44. IV. His teaching in the temple, and casting the buyers and sellers out of it, Lu 19:45-48.
 
-## The Conversion of Zaccheus.
+## The Conversion of Zaccheus
 
 > **¹** And *Jesus* entered and passed through Jericho.  
 > **²** And, behold, *there was* a man named Zacchæus, which was the chief among the publicans, and he was rich.  
@@ -41,7 +41,7 @@ VI\. Christ's *approbation* and *acceptance* of Zaccheus's conversion, by which 
 
 2\. What Christ had done to make him, in particular, a happy man, was consonant to the great design and intention of his coming into the world, Lu 19:10. With the same argument he had before justified his conversing with publicans, Mt 9:13. There he pleaded that he came to *call sinners to repentance;* now that he came to *seek and save that which was lost,* *to apololos*—*the lost thing.* Observe, (1.) The *deplorable case* of the *sons of men:* they were *lost;* and here the whole race of mankind is spoken of as *one body.* Note, The whole world of mankind, by the fall, is become a *lost world:* lost as a city is lost when it has revolted to the rebels, as a traveller is lost when he has missed his way in a wilderness, as a sick man is lost when his disease is incurable, or as a prisoner is lost when sentence is passed upon him. (2.) The *gracious design* of the *Son of God:* he came to *seek and save,* to seek in order to saving. He came from heaven to earth (a long journey), to *seek* that which was *lost* (which had *wandered and gone astray*), and to bring it back (Mt 18:11,12), and to *save* that which was lost, which was perishing, and in a manner destroyed and cut off. Christ undertook the cause when it was given up for *lost:* undertook to bring those to themselves that were *lost* to God and all goodness. Observe, Christ *came* into this lost world to seek and save it. His design was to *save,* when *there was not salvation in any other.* In prosecution of that design, he *sought,* took all probable means to effect that salvation. He seeks those that were not worth seeking to; he seeks those that sought him not, and asked not for him, as Zaccheus here.
 
-## The Nobleman and His Servants.
+## The Nobleman and His Servants
 
 > **¹¹** And as they heard these things, he added and spake a parable, because he was nigh to Jerusalem, and because they thought that the kingdom of God should immediately appear.  
 > **¹²** He said therefore, A certain nobleman went into a far country to receive for himself a kingdom, and to return.  
@@ -89,7 +89,7 @@ II\. How their expectations were *checked,* and the mistakes *rectified* upon wh
 
 (2.) In the sentence passed upon them at his return: *Those mine enemies bring hither,* Lu 19:27. When his faithful subjects are preferred and rewarded, then he will take vengeance on his enemies, and particularly on the Jewish nation, the doom of which is here read. When Christ had set up his gospel kingdom, and thereby put reputation upon the gospel ministry, then he comes to *reckon with* the Jews; then it is remembered against them that they had particularly disclaimed and protested against his kingly office, when they said, *We have no king but Cæsar,* nor would own him for their king. They appealed to Cæsar, and to Cæsar they shall go; Cæsar shall be their ruin. Then the *kingdom of God appeared* when vengeance was taken on those irreconcileable enemies to Christ and his government; they were *brought forth and slain before him.* Never was so much slaughter made in any war as in the wars of the Jews. That nation lived to see Christianity victorious in the Gentile world, in spite of their enmity and opposition to it, and then it was *taken away as dross.* The wrath of Christ came upon them to the uttermost (1Th 2:15,16), and their destruction redounded very much to the honour of Christ and the peace of the church. But this is applicable to all others who *persist* in their infidelity, and will undoubtedly perish in it. Note, [1.] Utter ruin will certainly be the portion of all Christ's enemies; in the day of vengeance they shall all be brought *forth,* and *slain before him. Bring them hither,* to be made a spectacle to saints and angels; see Jos 10:22,24. *Bring them hither,* that they may see the glory and happiness of Christ and his followers, whom they hated and persecuted. *Bring them hither,* to have their frivolous pleas overruled, and to receive sentence according to their merits. Bring them, and *slay them before me,* as Agag before Samuel. The Saviour whom they have slighted will stand by and see them slain, and not interpose on their behalf. [2.] Those that *will not have Christ to reign over them* shall be reputed and dealt with as his enemies. We are ready to think that none are Christ's enemies but persecutors of Christianity, or scoffers at least; but you see that those will be accounted so that dislike the terms of salvation, will not submit to Christ's yoke, but will be their own masters. Note, Whoever will not be *ruled* by the grace of Christ will inevitably be ruined by the wrath of Christ.
 
-## Christ's Entry into Jerusalem.
+## Christ's Entry into Jerusalem
 
 > **²⁸** And when he had thus spoken, he went before, ascending up to Jerusalem.  
 > **²⁹** And it came to pass, when he was come nigh to Bethphage and Bethany, at the mount called *the mount* of Olives, he sent two of his disciples,  
@@ -125,7 +125,7 @@ VIII\. Christ's triumph's, and his disciples' joyful praises of them, are the ve
 
 IX\. Whether men praise Christ or no he will, and shall, and must be praised (Lu 19:40): *If these should hold their peace,* and not speak the praises of the Messiah's kingdom, *the stones would immediately cry out,* rather than that Christ should not be praised. This was, in effect, literally fulfilled, when, upon men's reviling Christ upon the cross, instead of praising him, and his own disciples' sinking into a profound silence, the *earth did quake and the rocks rent.* Pharisees would silence the praises of Christ, but they cannot gain their point; for as God can *out of stones raise up children unto Abraham,* so he can out of the mouths of those children perfect praise.
 
-## The Doom of Jerusalem Lamented; The Doom of Jerusalem Foretold.
+## The Doom of Jerusalem Lamented; The Doom of Jerusalem Foretold
 
 > **⁴¹** And when he was come near, he beheld the city, and wept over it,  
 > **⁴²** Saying, If thou hadst known, even thou, at least in this thy day, the things *which belong* unto thy peace! but now they are hid from thine eyes.  

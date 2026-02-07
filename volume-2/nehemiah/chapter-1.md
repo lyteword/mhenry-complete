@@ -6,7 +6,7 @@ weight: 1
 
 Here we first meet with Nehemiah at the Persian court, where we find him, I. Inquisitive concerning the state of the Jews and Jerusalem, Ne 1:1,2. II. Informed of their deplorable condition, Ne 1:3. III. Fasting and praying thereupon (Ne 1:4), with a particular account of his prayer, Ne 1:5-11. Such is the rise of this great man, by piety, not by policy.
 
-## Nehemiah's Distress. (b. c. 445.)
+## Nehemiah's Distress (445 BC)
 
 > **¹** The words of Nehemiah the son of Hachaliah. And it came to pass in the month Chisleu, in the twentieth year, as I was in Shushan the palace,  
 > **²** That Hanani, one of my brethren, came, he and *certain* men of Judah; and I asked them concerning the Jews that had escaped, which were left of the captivity, and concerning Jerusalem.  
@@ -23,7 +23,7 @@ III\. The melancholy account which is here given him of the present state of the
 
 IV\. The great affliction this gave to Nehemiah and the deep concern it put him into, Ne 1:4. 1. He *wept and mourned.* It was not only just when he heard the news that he fell into a passion of weeping, but his sorrow continued *certain days.* Note, The desolations and distresses of the church ought to be the matter of our grief, how much soever we live at ease. 2. He *fasted and prayed;* not in public (he had no opportunity of doing that), but *before the God of heaven,* who sees in secret, and will reward openly. By his fasting and praying, (1.) He consecrated his sorrows, and directed his tears aright, *sorrowed after a godly sort,* with an eye to God, because his name was reproached in the contempt cast on his people, whose cause therefore he thus commits to him. (2.) He eased his sorrows, and unburdened his spirit, by pouring out his complaint before God and leaving it with him. (3.) He took the right method of fetching in relief for his people and direction for himself in what way to serve them. Let those who are forming any good designs for the service of the public take God along with them for the first conception of them, and utter all their projects before him; this is the way to prosper in them.
 
-## Nehemiah's Prayer. (b. c. 445.)
+## Nehemiah's Prayer (445 BC)
 
 > **⁵** And said, I beseech thee, O LORD God of heaven, the great and terrible God, that keepeth covenant and mercy for them that love him and observe his commandments:  
 > **⁶** Let thine ear now be attentive, and thine eyes open, that thou mayest hear the prayer of thy servant, which I pray before thee now, day and night, for the children of Israel thy servants, and confess the sins of the children of Israel, which we have sinned against thee: both I and my father's house have sinned.  

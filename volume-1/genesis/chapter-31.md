@@ -6,7 +6,7 @@ weight: 31
 
 Jacob was a very honest good man, a man of great devotion and integrity, yet he had more trouble and vexation than any of the patriarchs. He left his father's house in a fright, went to his uncle's in distress, very hard usage he met with there, and now is going back surrounded with fears. Here is, I. His resolution to return, Ge 31:1-16. II. His clandestine departure, Ge 31:17-21. III. Laban's pursuit of him in displeasure, Ge 31:22-25. IV. The hot words that passed between them, Ge 31:26-42. V. Their amicable agreement at last, Ge 31:43-55, etc.).
 
-## Jacob's Departure. (b. c. 1739.)
+## Jacob's Departure (1739 BC)
 
 > **¹** And he heard the words of Laban's sons, saying, Jacob hath taken away all that *was* our father's; and of *that* which *was* our father's hath he gotten all this glory.  
 > **²** And Jacob beheld the countenance of Laban, and, behold, it *was* not toward him as before.  
@@ -54,7 +54,7 @@ Here is, I. Jacob's flight from Laban. We may suppose he had been long consideri
 
 II\. Laban's pursuit of Jacob. Tidings were brought him, on the third day, that Jacob had fled; he immediately raises the whole clan, takes his brethren, that is, the relations of his family, that were all in his interests, and pursues Jacob (as Pharaoh and his Egyptians afterwards pursued the seed of Jacob), to bring him back into bondage again, or with design to strip him of what he had. Seven days' journey he marched in pursuit of him, Ge 31:23. He would not have taken half the pains to have visited his best friends. But the truth is bad men will do more to serve their sinful passions than good men will to serve their just affections, and are more vehement in their anger than in their love. Well, at length Laban, overtook him, and the very night before he came up with him God interposed in the quarrel, rebuked Laban and sheltered Jacob, charging Laban not to *speak unto him either good or bad* (Ge 31:24), that is, to say nothing against his going on with his journey, for that it proceeded from the Lord. The same Hebraism we have, Ge 24:50. Laban, during his seven day's march, had been full of rage against Jacob, and was now full of hopes that his lust should be satisfied upon him (Ex 15:9); but God comes to him, and with one word ties his hands, though he does not turn his heart. Note, 1. In a dream, and in slumberings upon the bed, God has ways of opening the *ears of men, and sealing their instruction,* Job 33:15,16. Thus he admonishes men by their consciences, in secret whispers, which the man of wisdom will hear and heed. 2. The safety of good men is very much owing to the hold God has of the consciences of bad men and the access he has to them. 3. God sometimes appears wonderfully for the deliverance of his people when they are upon the very brink of ruin. The Jews were saved from Haman's plot when the king's decree drew hear to be put in execution, Es 9:1.
 
-## Laban's Pursuit after Jacob. (b. c. 1739.)
+## Laban's Pursuit after Jacob (1739 BC)
 
 > **²⁵** Then Laban overtook Jacob. Now Jacob had pitched his tent in the mount: and Laban with his brethren pitched in the mount of Gilead.  
 > **²⁶** And Laban said to Jacob, What hast thou done, that thou hast stolen away unawares to me, and carried away my daughters, as captives *taken* with the sword?  
@@ -100,7 +100,7 @@ IV\. The character of a hard master. Laban had been such a one to Jacob. Those a
 
 V\. The care of providence for the protection of injured innocence, Ge 31:42. God took cognizance of the wrong done to Jacob, and repaid him whom Laban would otherwise have sent empty away, and rebuked Laban, who otherwise would have swallowed him up. Note, God is the patron of the oppressed; and those who are wronged and yet not ruined, cast down and yet not destroyed, must acknowledge him in their preservation and give him the glory of it. Observe, 1. Jacob speaks of God as the God of his father, intimating that he thought himself unworthy to be thus regarded, but was beloved for the father's sake. 2. He calls him the God of Abraham, and the fear of Isaac; for Abraham was dead, and had gone to that world where perfect love casts out fear; but Isaac was yet alive, sanctifying the Lord in his heart, as his fear and his dread.
 
-## Jacob's Covenant with Laban. (b. c. 1739.)
+## Jacob's Covenant with Laban (1739 BC)
 
 > **⁴³** And Laban answered and said unto Jacob, *These* daughters *are* my daughters, and *these* children *are* my children, and *these* cattle *are* my cattle, and all that thou seest *is* mine: and what can I do this day unto these my daughters, or unto their children which they have born?  
 > **⁴⁴** Now therefore come thou, let us make a covenant, I and thou; and let it be for a witness between me and thee.  

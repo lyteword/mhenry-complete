@@ -6,7 +6,7 @@ weight: 6
 
 How solemnly the foundation of the temple was laid we read in Ezr 3:1-13 How slowly the building went on, and with how much difficulty, we found in Ezr 4:1-5:17 But how gloriously the topstone was at length brought forth with shoutings we find in this chapter; and even we, at this distance of time, when we read of it, may cry, "Grace, grace to it." As for God, his work is perfect; it may be slow work, but it will be sure work. We have here, I. A recital of the decree of Cyrus for the building of the temple, Ezr 6:1-5. II. The enforcing of that decree by a new order from Darius for the perfecting of that work, Ezr 6:6-12. III. The finishing of it thereupon, Ezr 6:13-15. IV. The solemn dedication of it when it was built (Ezr 6:16-18), and the handselling of it (as I may say) with the celebration of the passover, Ezr 6:19-22. And now we may say that in Judah and Jerusalem things went well, very well.
 
-## The Favourable Decree of Darius. (b. c. 519.)
+## The Favourable Decree of Darius (519 BC)
 
 > **¹** Then Darius the king made a decree, and search was made in the house of the rolls, where the treasures were laid up in Babylon.  
 > **²** And there was found at Achmetha, in the palace that *is* in the province of the Medes, a roll, and therein *was* a record thus written:  
@@ -37,7 +37,7 @@ II\. The confirmation of it by a decree of Darius, grounded upon it and in pursu
 
 2\. From all this we learn, (1.) That the heart of kings is in the hand of God, and he turns it which way soever he pleases; what they are he makes them to be, for he is *King of kings.* (2.) That when God's time has come for the accomplishing of his gracious purposes concerning his church he will raise up instruments to promote them from whom such good service was not expected. *The earth sometimes helps the woman* (Re 12:16), and those are made use of for the defence of religion who have little religion themselves. (3.) That what is intended for the prejudice of the church has often, by the overruling providence of God, been made serviceable to it, Php 1:12. The enemies of the Jews, in appealing to Darius, hoped to get an order to suppress them, but, instead of that, they got an order to supply them. Thus *out of the eater comes forth meat.* The apocryphal Esdras (or Ezra), gives another account of this decree in favour of the Jews, that Darius had vowed that if ever he came to the kingdom he would build the temple at Jerusalem, and that Zerubbabel, who was one of his attendants (whereas it is plain here that he was now at Jerusalem), for making an ingenious discourse before him on that subject (*Great is the truth and will prevail*), was told to ask what recompence he would, and asked only for this order, in pursuance of the king's vow.
 
-## Completion of the Second Temple. (b. c. 516.)
+## Completion of the Second Temple (516 BC)
 
 > **¹³** Then Tatnai, governor on this side the river, Shethar-boznai, and their companions, according to that which Darius the king had sent, so they did speedily.  
 > **¹⁴** And the elders of the Jews builded, and they prospered through the prophesying of Haggai the prophet and Zechariah the son of Iddo. And they builded, and finished *it,* according to the commandment of the God of Israel, and according to the commandment of Cyrus, and Darius, and Artaxerxes king of Persia.  

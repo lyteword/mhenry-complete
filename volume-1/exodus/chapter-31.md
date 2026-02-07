@@ -6,7 +6,7 @@ weight: 31
 
 God is here drawing towards a conclusion of what he had to say to Moses upon the mount, where he had now been with him forty days and forty nights; and yet no more is recorded of what was said to him in all that time than what we have read in the six chapters foregoing. In this, I. He appoints what workmen should be employed in the building and furnishing of the tabernacle, Ex 31:1-11. II. He repeats the law of the sabbath, and the religious observance of it, Ex 31:12-17. III. He delivers to him the two tables of the testimony at parting, Ex 31:18.
 
-## Appointment of Bezaleel and Aholiab. (b. c. 1491.)
+## Appointment of Bezaleel and Aholiab (1491 BC)
 
 > **¹** And the LORD spake unto Moses, saying,  
 > **²** See, I have called by name Bezaleel the son of Uri, the son of Hur, of the tribe of Judah:  
@@ -26,7 +26,7 @@ I\. He nominates the persons that were to be employed, that there might be no co
 
 II\. He qualifies these persons for the service (Ex 31:3): *I have filled him with the Spirit of God;* and (Ex 31:6) *in the hearts of all that are wise-hearted I have put wisdom.* Note, 1. Skill in common arts and employments is the gift of God; from him are derived both the faculty and the improvement of the faculty. It is he that puts even this *wisdom into the inward parts,* Job 38:36. He teaches the husbandman discretion (Isa 28:26), and the tradesman too; and he must have the praise of it. 2. God dispenses his gifts variously, one gift to one, another to another, and all for the good of the whole body, both of mankind and of the church. Moses was fittest of all to govern Israel, but Bezaleel was fitter than he to build the tabernacle. The common benefit is very much supported by the variety of men's faculties and inclinations; the genius of some leads them to be serviceable one way, of others another way, and *all these worketh that one and the self-same Spirit,* 1Co 12:11. This forbids pride, envy, contempt, and carnal emulation, and strengthens the bond of mutual love. 3. Those whom God calls to any service he will either find, or make, fit for it. If God give the commission, he will in some measure give the qualifications, according as the service is. The work, that was to be done here was to make the tabernacle and the utensils of it, which are here particularly reckoned up, Ex 31:7, etc. And for this the persons employed were enabled to *work in gold, and silver, and brass.* When Christ sent his apostles to rear the gospel tabernacle, he poured out his Spirit upon them, to enable them to speak with tongues the wonderful works of God; not to work upon metal, but to work upon men; so much more excellent were the gifts, as the tabernacle to be pitched was a *greater and more perfect tabernacle,* as the apostle calls it, Heb 9:11.
 
-## The Observance of the Sabbath. (b. c. 1491.)
+## The Observance of the Sabbath (1491 BC)
 
 > **¹²** And the LORD spake unto Moses, saying,  
 > **¹³** Speak thou also unto the children of Israel, saying, Verily my sabbaths ye shall keep: for it *is* a sign between me and you throughout your generations; that *ye* may know that I *am* the LORD that doth sanctify you.  

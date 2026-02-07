@@ -6,7 +6,7 @@ weight: 4
 
 We have here a further account of the furniture of God's house. I. Those things that were of brass. The altar for burnt-offerings (2Ch 4:1), the sea and lavers to hold water (2Ch 4:2-6), the plates with which the doors of the court were overlaid (2Ch 4:9), the vessels of the altar, and other things, 2Ch 4:10-18. II. Those that were of gold. The candlesticks and tables (2Ch 4:7,8), the altar of incense (2Ch 4:19), and the appurtenances of each of these, 2Ch 4:20-22. All these, except the brazen altar (2Ch 4:1), were accounted for more largely, 1Ki 7:23-50, etc.
 
-## The Furniture of the Temple. (b. c. 1012.)
+## The Furniture of the Temple (1012 BC)
 
 > **¹** Moreover he made an altar of brass, twenty cubits the length thereof, and twenty cubits the breadth thereof, and ten cubits the height thereof.  
 > **²** Also he made a molten sea of ten cubits from brim to brim, round in compass, and five cubits the height thereof; and a line of thirty cubits did compass it round about.  

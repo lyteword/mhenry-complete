@@ -6,7 +6,7 @@ weight: 1
 
 We have here the first alphabet of this lamentation, twenty-two stanzas, in which the miseries of Jerusalem are bitterly bewailed and her present deplorable condition is aggravated by comparing it with her former prosperous state; all along, sin is acknowledged and complained of as the procuring cause of all these miseries; and God is appealed to for justice against their enemies and applied to for compassion towards them. The chapter is all of a piece, and the several remonstrances are interwoven; but here is, I. A complaint made to God of their calamities, and his compassionate consideration desired, La 1:1-11. II. The same complaint made to their friends, and their compassionate consideration desired, La 1:12-17. III. An appeal to God and his righteousness concerning it (La 1:18-22), in which he is justified in their affliction and is humbly solicited to justify himself in their deliverance.
 
-## The Miseries of Jerusalem; Grief for the Loss of Ordinances. (b. c. 588.)
+## The Miseries of Jerusalem; Grief for the Loss of Ordinances (588 BC)
 
 > **¹** How doth the city sit solitary, *that was* full of people! *how* is she become as a widow! she *that was* great among the nations, *and* princess among the provinces, *how* is she become tributary!  
 > **²** She weepeth sore in the night, and her tears *are* on her cheeks: among all her lovers she hath none to comfort *her:* all her friends have dealt treacherously with her, they are become her enemies.  
@@ -36,7 +36,7 @@ III\. Jerusalem's friends are here complained of as false and faint-hearted, and
 
 IV\. Jerusalem's God is here complained to concerning all these things, and all is referred to his compassionate consideration (La 2:9): "*O Lord! behold my affliction,* and take cognizance of it;" and (La 2:11), "*See, O Lord! and consider,* take order about it." Note, The only way to make ourselves easy under our burdens is to cast them upon God first, and leave it to him to do with us as seemeth him good.
 
-## God Acknowledged in Affliction; Jerusalem's Complaint. (b. c. 588.)
+## God Acknowledged in Affliction; Jerusalem's Complaint (588 BC)
 
 > **¹²** *Is it* nothing to you, all ye that pass by? behold, and see if there be any sorrow like unto my sorrow, which is done unto me, wherewith the LORD hath afflicted *me* in the day of his fierce anger.  
 > **¹³** From above hath he sent fire into my bones, and it prevaileth against them: he hath spread a net for my feet, he hath turned me back: he hath made me desolate *and* faint all the day.  

@@ -6,7 +6,7 @@ weight: 3
 
 A very black and mournful scene here opens, and which threatens the ruin of all the people of God. Were there not some such dark nights, the light of the morning would not be so welcome. I. Haman is made the king's favourite, Es 3:1. II. Mordecai refuses to give him the honour he demands, Es 3:2-4. III. Haman, for his sake, vows to be revenged upon all the Jews, Es 3:5,6. IV. He, upon a malicious suggestion, obtains an order from the king to have them all massacred upon a certain day, Es 3:7-13. V. This order is dispersed through the kingdom, Es 3:14,15.
 
-## Haman's Malignant Proposal. (b. c. 510.)
+## Haman's Malignant Proposal (510 BC)
 
 > **¹** After these things did king Ahasuerus promote Haman the son of Hammedatha the Agagite, and advanced him, and set his seat above all the princes that *were* with him.  
 > **²** And all the king's servants, that *were* in the king's gate, bowed, and reverenced Haman: for the king had so commanded concerning him. But Mordecai bowed not, nor did *him* reverence.  
@@ -23,7 +23,7 @@ II\. Mordecai adhering to his principles with a bold and daring resolution, and 
 
 III\. Haman meditating revenge. Some that hoped thereby to curry favour with Haman took notice to him of Mordecai's rudeness, waiting to see whether he would bend or break, Es 3:4. Haman then observed it himself, and was *full of wrath,* Es 3:5. A meek and humble man would have slighted the affront, and have said, "Let him have his humour; what am I the worse for it?" But it makes Haman's proud spirit rage, and fret, and boil, within him, so that he becomes uneasy to himself and all about him. It is soon resolved that Mordecai must die. The head must come off that will not bow to Haman; if he cannot have his honours, he will have his blood. It is as penal in this court not to worship Haman as it was in Nebuchadnezzar's not to worship the golden image which he had set up. Mordecai is a person of quality, in a post of honour, and own cousin to the queen; and yet Haman thinks his life nothing towards a satisfaction for the affront: thousands of innocent and valuable lives must be sacrificed to his indignation; and therefore he vows the destruction of all the people of Mordecai, for his sake, because his being a Jew was the reason he gave why he did not reverence Haman. Herein appear Haman's intolerable pride, insatiable cruelty, and the ancient antipathy of an Amalekite to the Israel of God. Saul the son of Kish, a Benjamite, spared Agag, but Mordecai the son of Kish, a Benjamite (Es 2:5), shall find no mercy with this Agagite, whose design is to *destroy all the Jews throughout the whole kingdom of Ahasuerus* (Es 3:6), which, I suppose, would include those that had returned to their own land, for that was now a province of his kingdom. *Come and let us cut them off from being a nation,* Ps 83:4. Nero's barbarous wish is his, that they had all but one neck.
 
-## Haman Obtains Leave to Slay the Jews. (b. c. 510.)
+## Haman Obtains Leave to Slay the Jews (510 BC)
 
 > **⁷** In the first month, that *is,* the month Nisan, in the twelfth year of king Ahasuerus, they cast Pur, that *is,* the lot, before Haman from day to day, and from month to month, *to* the twelfth *month,* that *is,* the month Adar.  
 > **⁸** And Haman said unto king Ahasuerus, There is a certain people scattered abroad and dispersed among the people in all the provinces of thy kingdom; and their laws *are* diverse from all people; neither keep they the king's laws: therefore it *is* not for the king's profit to suffer them.  

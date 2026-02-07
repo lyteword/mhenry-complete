@@ -4,7 +4,7 @@ weight: 19
 
 # Chapter 19
 
-## The Disadvantages of Poverty.
+## The Disadvantages of Poverty
 
 > **¹** Better *is* the poor that walketh in his integrity, than *he that is* perverse in his lips, and is a fool.  
 
@@ -31,7 +31,7 @@ Here we have, 1. The sins threatened—bearing *false witness* in judgment and *
 
 These two verses are a comment upon Pr 18:4, and show, 1. How those that are rich and great are courted and caressed, and have suitors and servants in abundance. The prince that has power in his hand, and preferments at his disposal, has his gate and his ante-chamber thronged with petitioners, that are ready to adore him for what they can get. *Many will entreat his favour,* and think themselves happy in it. Even great men are humble suppliants to the prince. How earnest then should we be for the favour of God, which is far beyond that of any earthly prince. But, it should seem, liberality will go further than majesty itself to gain respect, for there are many that court the prince, but *every man is a friend to him that gives gifts;* not only those that have received, or do expect, gifts from him, will, as friends, be ready to serve him, but others also will, as friends, give him their good word. Prodigals, who are foolishly free of what they have, will have many hangers-on who will cry them up as long as it lasts, but will leave them when it is done. Those that are prudently generous make an interest by it which may stand them in good stead; those that are accounted benefactors exercise an authority which may give them an opportunity of doing good, Lu 22:25. 2. How those that are poor and low are slighted and despised. Men may, if they please, court the prince, and the princely, but they may not trample upon the poor and look at them with disdain. Yet so it often is: *All the brethren of the poor do hate him;* even his own relations are shy of him, because he is needy and craving, and expects something from them, and because they look upon him as a blemish to their family; and then no marvel if others of his friends, that were nothing akin to him, *go far from him,* to get out of his way. *He pursues them with words,* hoping to prevail with them by his importunity to be kind to him, but all in vain; they have nothing for him. *They pursue him with words* (so some understand it), to excuse themselves from giving him any thing; they tell him that he is idle and impertinent, that he has brought himself into poverty, and therefore ought not to be relieved; as Nabal said to David's messengers: "*There are many servants now a days that run away from their masters;* and how do I know but that David may be one of them?" Let poor people therefore make God their friend, pursue him with their prayers, and he will not be wanting to them.
 
-## Domestic Grievances.
+## Domestic Grievances
 
 > **⁸** He that getteth wisdom loveth his own soul: he that keepeth understanding shall find good.  
 
@@ -61,7 +61,7 @@ It is an instance of the vanity of the world that we are liable to the greatest 
 
 Note, 1. A discreet and virtuous wife is a choice gift of God's providence to a man—a wife that is *prudent,* in opposition to one that is contentious, Pr 18:13. For, though a wife that is continually finding fault may think it is her wit and wisdom to be so, it is really her folly; *a prudent wife* is meek and quiet, and makes the best of every thing. If a man has such a wife, let him not ascribe it to the wisdom of his own choice or his own management (for the wisest have been deceived both in and by a woman), but let him ascribe it to the goodness of God, who made him a help meet for him, and perhaps by some hits and turns of providence that seemed casual brought her to him. Every creature is what he makes it. Happy marriages, we are sure, are made in heaven; Abraham's servant prayed in the belief of this, Ge 24:12. 2. It is a more valuable gift than *house and riches,* contributes more to the comfort and credit of a man's life and the welfare of his family, is a greater token of God's favour, and about which the divine providence is in a more especial manner conversant. A good estate may be *the inheritance of fathers,* which, by the common direction of Providence, comes in course to a man; but no man has a good wife by descent or entail. Parents that are worldly, in disposing of their children, look no further than to match them to *house and riches,* but, if withal it be to *a prudent wife,* let God have the glory.
 
-## Circumspection and Charity.
+## Circumspection and Charity
 
 > **¹⁵** Slothfulness casteth into a deep sleep; and an idle soul shall suffer hunger.  
 
@@ -77,7 +77,7 @@ Here is, I. The duty of charity described. It includes two things:—1. Compassi
 
 II\. The encouragement of charity. 1. A very kind construction shall be put upon it. What is given to the poor, or done for them, God will place it to account as lent to him, *lent upon interest* (so the word signifies); he takes it kindly, as if it were done to himself, and he would have us take the comfort of it and to be as well pleased as ever any usurer was when he had let out a sum of money into good hands. 2. A very rich recompence shall be made for it: *He will pay him again,* in temporal, spiritual, and eternal blessings. Almsgiving is the surest and safest way of thriving.
 
-## Miscellaneous Maxims.
+## Miscellaneous Maxims
 
 > **¹⁸** Chasten thy son while there is hope, and let not thy soul spare for his crying.  
 

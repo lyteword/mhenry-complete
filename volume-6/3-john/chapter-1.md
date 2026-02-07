@@ -6,7 +6,7 @@ weight: 1
 
 In this epistle the apostle congratulates Gaius upon the prosperity of his soul (3Jo 1:1,2), upon the fame he had among good Christians (3Jo 1:3,4), and upon his charity and hospitality to the servants of Christ, 3Jo 1:5,6. He complains of contemptuous treatment by an ambitious Diotrephes, (3Jo 1:9,10), recommends Demetrius, (3Jo 1:12), and expresses his hope of visiting Gaius shortly, 3Jo 1:13,14.
 
-## Salutation and Prayer. (a. d. 90.)
+## Salutation and Prayer (90 AD)
 
 > **¹** The elder unto the wellbeloved Gaius, whom I love in the truth.  
 > **²** Beloved, I wish above all things that thou mayest prosper and be in health, even as thy soul prospereth.  
@@ -17,7 +17,7 @@ II\. The person saluted and honoured by the letter. The former is directed to an
 
 III\. The salutation or greeting, containing a prayer, introduced by an affectionate compellation—*Beloved,* thou beloved one in Christ. The minister who would gain love must show it himself. Here is, 1. The apostle's good opinion of his friend, that his *soul prospered.* There is such a thing as soul-prosperity—the greatest blessing on this side heaven. This supposes regeneration, and an inward fund of spiritual life; this stock is increasing, and, while spiritual treasures are advancing, the soul is in a fair way to the kingdom of glory. 2. His good wish for his friend that his body may *prosper and be in health* as well as his soul. Grace and health are two rich companions; grace will improve health, health will employ grace. It frequently falls out that a rich soul is lodged in a crazy body; grace must be exercised in submission to such a dispensation; but we may well wish and pray that those who have prosperous souls may have healthful bodies too; their grace will shine in a larger sphere of activity.
 
-## The Character of Gaius. (a. d. 90.)
+## The Character of Gaius (90 AD)
 
 > **³** For I rejoiced greatly, when the brethren came and testified of the truth that is in thee, even as thou walkest in the truth.  
 > **⁴** I have no greater joy than to hear that my children walk in truth.  
@@ -38,7 +38,7 @@ IV\. The direction the apostle gives his friend concerning further treatment of 
 
 V\. The reasons of this directed conduct; these are two:—1. *Because that for his name's sake these brethren went forth, taking nothing of the Gentiles.* It appears thus that these were ministerial brethren, that they went forth to preach the gospel and propagate Christianity; possibly they might be sent out by this apostle himself: they went forth to convert the Gentiles; this was excellent service: they went forth for God and his name's sake; this is the minister's highest end, and should be his principal spring and motive, to gather and to build up a people for his name: they went forth also to carry a free gospel about with them, to publish it without charge wherever they came: *Taking nothing of the Gentiles.* These were worthy of double honour. There are those who are not called to preach the gospel themselves who may yet contribute to the progress of it. The gospel should be made without charge to those to whom it is first preached. Those who know it not cannot be expected to value it; churches and Christian patriots ought to concur to support the propagation of holy religion in the pagan countries; public spirits should concur according to their several capacities; those who are freely communicative of Christ's gospel should be assisted by those who are communicative of their purses. 2. *We ought therefore to receive such, that we may be fellow-helpers to the truth,* to true religion. The institution of Christ is the true religion; it has been attested by God. Those that are true in it and true to it will earnestly desire, and pray for, and contribute to, its propagation in the world. In many ways may the truth be befriended and assisted; those who cannot themselves proclaim it may yet receive, accompany, help, and countenance those who do.
 
-## The Character of Diotrephes. (a. d. 90.)
+## The Character of Diotrephes (90 AD)
 
 > **⁹** I wrote unto the church: but Diotrephes, who loveth to have the preeminence among them, receiveth us not.  
 > **¹⁰** Wherefore, if I come, I will remember his deeds which he doeth, prating against us with malicious words: and not content therewith, neither doth he himself receive the brethren, and forbiddeth them that would, and casteth *them* out of the church.  
@@ -56,7 +56,7 @@ I\. Here is a very different example and character, an officer, a minister in th
 
 II\. Here is counsel upon that different character, dissuasion from copying such a pattern, and indeed any evil at all: *Beloved, follow not that which is evil, but that which is good,* 3Jo 1:11. Imitate not such unchristian pernicious evil; but pursue the contrary good, in wisdom, purity, peace, and love. Caution and counsel are not needless to those who are good already. Those cautions and counsels are most likely to be accepted that are seasoned with love. *Beloved, follow not that which is evil.* To this caution and counsel a reason is respectively subjoined. 1. To the counsel: *Follow that which is good;* for *he that doeth good* (naturally and genuinely doeth good, as delighting therein) *is of God,* is born of God. The practice of goodness is the evidence of our filial happy relation to God. 2. To the caution: *Follow not that which is evil,* for *he that doeth evil* (with bent of mind pursues it) *hath not seen God,* is not duly sensible of his holy nature and will. Evil-workers vainly pretend or boast an acquaintance with God.
 
-## The Character of Demetrius; Conclusion and Salutation. (a. d. 90.)
+## The Character of Demetrius; Conclusion and Salutation (90 AD)
 
 > **¹²** Demetrius hath good report of all *men,* and of the truth itself: yea, and we *also* bear record; and ye know that our record is true.  
 > **¹³** I had many things to write, but I will not with ink and pen write unto thee:  

@@ -6,7 +6,7 @@ weight: 24
 
 We left Paul a prisoner at Cæsarea, in Herod's judgment-hall, expecting his trial to come on quickly; for in the beginning of his imprisonment his affairs moved very quickly, but afterwards very slowly. In this chapter we have his arraignment and trial before Felix the governor at Cæsarea; here is, I. The appearing of the prosecutors against him, and the setting of the prisoner to the bar, Ac 24:1,2. II. The opening of the indictment against him by Tertullus, who was of counsel for the prosecutors, and the aggravating of the charge, with abundance of compliments to the judge, and malice to the prisoner, Ac 24:2-8. III. The corroborating of the charge by the testimony of the witnesses, or rather the prosecutors themselves, Ac 24:9. IV. The prisoner's defence, in which, with all due deference to the governor (Ac 24:10), he denies the charge, and challenges them to prove it (Ac 24:11-13), owns the truth, and makes an unexceptionable profession of his faith, which he declares was it that they hated him for (Ac 24:14-16), and gives a more particular account of what had passed from their first seizing him, challenging them to specify any ill they had found in him, Ac 24:17-21. V. The adjourning of the cause, and the continuing of the prisoner in custody, Ac 24:22,23. VI. The private conversation that was between the prisoner and the judge, by which the prisoner hoped to do good to the judge and the judge thought to get money by the prisoner, but both in vain, Ac 24:24-26. VII. The lengthening out of Paul's imprisonment for two years, till another governor came (Ac 24:27), where he seems as much neglected as there had been ado about him.
 
-## The Speech of Tertullus.
+## The Speech of Tertullus
 
 > **¹** And after five days Ananias the high priest descended with the elders, and *with* a certain orator *named* Tertullus, who informed the governor against Paul.  
 > **²** And when he was called forth, Tertullus began to accuse *him,* saying, Seeing that by thee we enjoy great quietness, and that very worthy deeds are done unto this nation by thy providence,  
@@ -48,7 +48,7 @@ II\. We have here the cause pleaded against Paul. The prosecutors brought *with 
 
 III\. The assent of the Jews to this charge which Tertullus exhibited (Ac 24:9): *They confirmed it, saying that those things were so.* 1. Some think this expresses the proof of their charge by witnesses upon oath, that were examined as to the particulars of it, and attested them. And no wonder if, when they had found an orator that would say it, they found witnesses that would swear it, for money. 2. It rather seems to intimate the approbation which the high priest and the elders gave to what Tertullus said. Felix asked them, "Is this your sense, and is it all that you have to say?" And they answered, "Yes it is;" and so they made themselves guilty of all the falsehood that was in his speech. Those that have not the wit and parts to do mischief with that some others have, that cannot make speeches and hold disputes against religion, yet make themselves guilty of the mischiefs others do, by assenting to that which others do, and saying, These things are so, repeating and standing by what is said, to *pervert the right ways of the Lord.* Many that have not learning enough to plead for Baal yet have wickedness enough to vote for Baal.
 
-## Paul's Third Defence.
+## Paul's Third Defence
 
 > **¹⁰** Then Paul, after that the governor had beckoned unto him to speak, answered, Forasmuch as I know that thou hast been of many years a judge unto this nation, I do the more cheerfully answer for myself:  
 > **¹¹** Because that thou mayest understand, that there are yet but twelve days since I went up to Jerusalem for to worship.  
@@ -97,7 +97,7 @@ IV\. Having made confession of his faith, he gives a plain and faithful account 
 
 2\. In the council: "Since the Jews of Asia are not here to prove any thing upon me done amiss in the temple, let *these same* that are *here,* the high priest and the elders, say whether they have *found any evil doing in me,* or whether I was guilty of any misdemeanor *when I stood before the council,* when also they were ready to pull me in pieces, Ac 24:20. When I was there, they could not take offence at any thing I said; for all I said was, *Touching the resurrection of the dead I am called in question by you this day* (Ac 24:21), which gave no offence to any one but the Sadducees. This I hope was no crime, that I stuck to that which is the faith of the whole Jewish church, excepting those whom they themselves call heretics."
 
-## Paul Converses with Felix; Felix Trembles; Paul's Trial Adjourned.
+## Paul Converses with Felix; Felix Trembles; Paul's Trial Adjourned
 
 > **²²** And when Felix heard these things, having more perfect knowledge of *that* way, he deferred them, and said, When Lysias the chief captain shall come down, I will know the uttermost of your matter.  
 > **²³** And he commanded a centurion to keep Paul, and to let *him* have liberty, and that he should forbid none of his acquaintance to minister or come unto him.  

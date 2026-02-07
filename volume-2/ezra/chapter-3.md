@@ -6,7 +6,7 @@ weight: 3
 
 In the close of the foregoing chapter we left Israel in their cities, but we may well imagine what a bad posture their affairs were in, the ground untilled, the cities in ruins, all out of order; but here we have an account of the early care they took about the re-establishment of religion among them. Thus did they lay the foundation well, and begin their work at the right end. I. They set up an altar, and offered sacrifices upon it, kept the feasts, and contributed towards the rebuilding of the temple, Ezr 3:1-7. II. They laid the foundation of the temple with a mixture of joy and sorrow, Ezr 3:8-13. This was the day of small things, which was not to be despised, Zec 4:10.
 
-## The Renewal of the Sacrifices. (b. c. 536.)
+## The Renewal of the Sacrifices (536 BC)
 
 > **¹** And when the seventh month was come, and the children of Israel *were* in the cities, the people gathered themselves together as one man to Jerusalem.  
 > **²** Then stood up Jeshua the son of Jozadak, and his brethren the priests, and Zerubbabel the son of Shealtiel, and his brethren, and builded the altar of the God of Israel, to offer burnt offerings thereon, as *it is* written in the law of Moses the man of God.  
@@ -36,7 +36,7 @@ III\. The sacrifices they offered upon the altar. The altar was reared to be use
 
 IV\. The preparation they made for the building of the temple, Ezr 3:7. This they applied themselves immediately to; for, while we do what we can, we must still be aiming to do more and better. Tyre and Sidon must now, as of old, furnish them with workmen, and Lebanon with timber, orders for both which they had from Cyrus. What God calls us to we may depend upon his providence to furnish us for.
 
-## The Foundation of the Temple Laid. (b. c. 535.)
+## The Foundation of the Temple Laid (535 BC)
 
 > **⁸** Now in the second year of their coming unto the house of God at Jerusalem, in the second month, began Zerubbabel the son of Shealtiel, and Jeshua the son of Jozadak, and the remnant of their brethren the priests and the Levites, and all they that were come out of the captivity unto Jerusalem; and appointed the Levites, from twenty years old and upward, to set forward the work of the house of the LORD.  
 > **⁹** Then stood Jeshua *with* his sons and his brethren, Kadmiel and his sons, the sons of Judah, together, to set forward the workmen in the house of God: the sons of Henadad, *with* their sons and their brethren the Levites.  

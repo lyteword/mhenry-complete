@@ -6,7 +6,7 @@ weight: 2
 
 With this chapter begins a new sermon, which is continued in the two following chapters. The subject of this discourse is Judah and Jerusalem, Isa 2:1. In this chapter the prophet speaks, I. Of the glory of the Christians, Jerusalem, the gospel-church in the latter days, in the accession of many to it (Isa 2:2,3), and the great peace it should introduce into the world (Isa 2:4), whence he infers the duty of the house of Jacob, Isa 2:5. II. Of the shame of the Jews, Jerusalem, as it then was, and as it would be after its rejection of the gospel and being rejected of God. 1. Their sin was their shame, Isa 2:6-9. 2. God by his judgments would humble them and put them to shame, Isa 2:10-17. 3. They should themselves be ashamed of their confidence in their idols and in an arm of flesh, Isa 2:18-22. And now which of these Jerusalems will we be the inhabitants of—that which is full of the knowledge of God, which will be our everlasting honour, or that which is full of horses and chariots, and silver and gold, and such idols, which will in the end be our shame?
 
-## Increase of the Church Predicted. (b. c. 758.)
+## Increase of the Church Predicted (758 BC)
 
 > **¹** The word that Isaiah the son of Amoz saw concerning Judah and Jerusalem.  
 > **²** And it shall come to pass in the last days, *that* the mountain of the LORD's house shall be established in the top of the mountains, and shall be exalted above the hills; and all nations shall flow unto it.  
@@ -34,7 +34,7 @@ VI\. The great peace which should be the effect of the success of the gospel in 
 
 *Lastly,* Here is a practical inference drawn from all this (Isa 2:5): *O house of Jacob! come you, and let us walk in the light of the Lord.* By the house of Jacob is meant either, 1. Israel according to the flesh. Let them be provoked by this *to a holy emulation,* Ro 11:14. "Seeing the Gentiles are thus ready and resolved for God, thus forward to go up to the house of the Lord, let us stir up ourselves to go too. Let it never be said that the sinners of the Gentiles were better friends to the holy mountain than the house of Jacob." Thus the zeal of some should provoke many. Or, 2. Spiritual Israel, all that are brought to the God of Jacob. Shall there be such great knowledge in gospel times (Isa 2:3) and such great peace (Isa 2:4), and shall we share in these privileges? Come then, and let us live accordingly. What ever others do, *come, O come!* let us *walk in the light of the Lord.* (1.) Let us walk circumspectly in the light of this knowledge. Will God teach us his ways? Will he show us his glory in the face of Christ? Let us then *walk as children of the light and of the day,* Eph 5:8, 1Th 5:8, Ro 13:12. (2.) Let us walk comfortably in the light of this peace. Shall there be no more war? Let us then go on our way rejoicing, and let this joy terminate in God, and be our strength, Ne 8:10. Thus shall we walk in the beams of the Sun of righteousness.
 
-## A Charge against the Israelites. (b. c. 758.)
+## A Charge against the Israelites (758 BC)
 
 > **⁶** Therefore thou hast forsaken thy people the house of Jacob, because they be replenished from the east, and *are* soothsayers like the Philistines, and they please themselves in the children of strangers.  
 > **⁷** Their land also is full of silver and gold, neither *is there any* end of their treasures; their land is also full of horses, neither *is there any* end of their chariots:  
@@ -57,7 +57,7 @@ II\. Israel's desert of this doom, and the reasons upon which it is grounded. In
 
 5\. God had advanced them, and put honour upon them; but they basely diminished and disparaged themselves (Isa 2:9): *The mean man boweth down to his idol,* a thing below the meanest that has any spark of reason left. Sin is a disparagement to the poorest and those of the lowest rank. It becomes the mean man to bow down to his superiors, but it ill becomes him to *bow down to the stock of a tree,* Isa 44:19. Nor is it only the illiterate and poor-spirited that do this, but even the *great men* forgets his grandeur and humbles himself to worship idols, deifies men no better than himself, and consecrates stones so much baser than himself. Idolaters are said to *debase themselves even to hell,* Isa 57:9. What a shame it is that great men think the service of the true God below them and will not stoop to it, and yet will humble themselves to bow down to an idol! Some make this a threatening that the mean men shall be brought down, and the great men humbled, by the judgments of God, when they come with commission.
 
-## The Doom of Idolaters. (b. c. 758.)
+## The Doom of Idolaters (758 BC)
 
 > **¹⁰** Enter into the rock, and hide thee in the dust, for fear of the LORD, and for the glory of his majesty.  
 > **¹¹** The lofty looks of man shall be humbled, and the haughtiness of men shall be bowed down, and the LORD alone shall be exalted in that day.  

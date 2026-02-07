@@ -6,7 +6,7 @@ weight: 32
 
 In this chapter we have, I. The humble request of the tribes of Reuben and Gad for an inheritance on that side Jordan where Israel now lay encamped, Nu 32:1-5. II. Moses's misinterpretation of their request, Nu 32:6-15. III. Their explication of it, and stating it aright, Nu 32:16-19. IV. The grant of their petition under the provisos and limitations which they themselves proposed, Nu 32:20-42, etc.
 
-## The Request of the Reubenites. (b. c. 1452.)
+## The Request of the Reubenites (1452 BC)
 
 > **¹** Now the children of Reuben and the children of Gad had a very great multitude of cattle: and when they saw the land of Jazer, and the land of Gilead, that, behold, the place *was* a place for cattle;  
 > **²** The children of Gad and the children of Reuben came and spake unto Moses, and to Eleazar the priest, and unto the princes of the congregation, saying,  
@@ -55,7 +55,7 @@ II\. Moses thereupon grants their request, upon consideration that they would ad
 
 III\. They unanimously agree to the provisos and conditions of the grant, and do, as it were, give bond for performance, by a solemn promise: *Thy servants will do as my lord commandeth,* Nu 32:25. Their brethren had all contributed their assistance to the conquest of this country, which they desired for a possession, and therefore they owned themselves obliged in justice to help them in the conquest of that which was to be their possession. Having received kindness, we ought to return it, though it was not so conditioned when we received it. We may suppose that this promise was understood, on both sides, so as not to oblige all that were numbered of these tribes to go over armed, but those only that were fittest for the expedition, who would be most serviceable, while it was necessary that some should be left to till the ground and guard the country; and accordingly we find that about 40,000 of the two tribes and a half went over armed (Jos 4:13), whereas their whole number was about 100,000.
 
-## Inheritance of the Reubenites. (b. c. 1452.)
+## Inheritance of the Reubenites (1452 BC)
 
 > **²⁸** So concerning them Moses commanded Eleazar the priest, and Joshua the son of Nun, and the chief fathers of the tribes of the children of Israel:  
 > **²⁹** And Moses said unto them, If the children of Gad and the children of Reuben will pass with you over Jordan, every man armed to battle, before the LORD, and the land shall be subdued before you; then ye shall give them the land of Gilead for a possession:  

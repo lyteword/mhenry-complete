@@ -6,7 +6,7 @@ weight: 18
 
 David's piety and his prayer we had an account of in the foregoing chapter; here follows immediately that which one might reasonably expect, an account of his prosperity; for those that seek first the kingdom of God and the righteousness thereof, as David did, shall have other things added to them as far as God sees good for them. Here is, I. His prosperity abroad. He conquered the Philistines (1Ch 18:1), the Moabites (1Ch 18:2), the king of Zobah (1Ch 18:3,4), the Syrians (1Ch 18:5-8), made the king of Hamath his tributary (1Ch 18:9-11), and the Edomites, 1Ch 18:12,13. II. His prosperity at home. His court and kingdom flourished, 1Ch 18:14-17. All this we had an account of before, 2Sa 8:1-18
 
-## David's Victories. (b. c. 1042.)
+## David's Victories (1042 BC)
 
 > **¹** Now after this it came to pass, that David smote the Philistines, and subdued them, and took Gath and her towns out of the hand of the Philistines.  
 > **²** And he smote Moab; and the Moabites became David's servants, *and* brought gifts.  

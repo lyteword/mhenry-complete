@@ -6,7 +6,7 @@ weight: 19
 
 Though in the history hitherto this evangelist seems industriously to have declined the recording of such passages as had been related by the other evangelists, yet, when he comes to the sufferings and death of Christ, instead of passing them over, as one ashamed of his Master's chain and cross, and looking upon them as the blemishes of his story, he repeats what had been before related, with considerable enlargements, as one that desired to know nothing but Christ and him crucified, to glory in nothing save in the cross of Christ. In the story of this chapter we have, I. he remainder of Christ's trial before Pilate, which was tumultuous and confused, Jer 19:1-15. II. Sentence given, and execution done upon it, Jer 19:16-18. III. The title over his head, Jer 19:19-22. IV. The parting of his garment, Jer 19:23,24. V. The care he took of his mother, Jer 19:25-27. VI. The giving him vinegar to drink, Jer 19:28,29. VII. His dying word, Jer 19:30. VIII. The piercing of his side, Jer 19:31-37. IX. The burial of his body, Jer 19:38-42. O that in meditating on these things we may experimentally know the power of Christ's death, and the fellowship of his sufferings!
 
-## Christ Arraigned before Pilate.
+## Christ Arraigned before Pilate
 
 > **¹** Then Pilate therefore took Jesus, and scourged *him.*  
 > **²** And the soldiers platted a crown of thorns, and put *it* on his head, and they put on him a purple robe,  
@@ -104,7 +104,7 @@ V\. Pilate struggles with the Jews to deliver Jesus out of their hands, but in v
 
 [3.] Pilate, willing to have Jesus released, and yet that it should be their doing, asks them, *Shall I crucify your king?* In saying this, he designed either, *First,* To stop their mouths, by showing them how absurd it was for them to reject one who offered himself to them to be their king at a time when they needed one more than ever. Have they no sense of slavery? No desire of liberty? No value for a deliverer? Though he saw no cause to fear him, they might see cause to hope for something from him; since crushed and sinking interests are ready to catch at any thing. Or, *Secondly,* To stop the mouth of his own conscience. "If this Jesus be a king" (thinks Pilate), "he is only kin of the Jews, and therefore I have nothing to do but to make a fair tender of him to them; if they refuse him, and will have their king crucified, what is that to me?" He banters them for their folly in expecting a Messiah, and yet running down one that bade so fair to be he.
 
-## Christ Condemned; The Crucifixion.
+## Christ Condemned; The Crucifixion
 
 > **¹⁶** Then delivered he him therefore unto them to be crucified. And they took Jesus, and led *him* away.  
 > **¹⁷** And he bearing his cross went forth into a place called *the place* of a skull, which is called in the Hebrew Golgotha:  
@@ -126,7 +126,7 @@ II\. Judgment was no sooner given than with all possible expedition the prosecut
 
 And now let us pause awhile, and with an eye of faith look upon Jesus. Was ever sorrow like unto his sorrow? See him who was clothed with glory stripped of it all, and clothed with shame-him who was the *praise of angels* made a *reproach of men*—him who had been with eternal delight and joy in the bosom of his Father now in the extremities of pain and agony. See him bleeding, see him struggling, see him dying, see him and love him, love him and live to him, and study what we shall render.
 
-## The Inscription on the Cross; The Crucifixion.
+## The Inscription on the Cross; The Crucifixion
 
 > **¹⁹** And Pilate wrote a title, and put *it* on the cross. And the writing was, JESUS OF NAZARETH THE KING OF THE JEWS.  
 > **²⁰** This title then read many of the Jews: for the place where Jesus was crucified was nigh to the city: and it was written in Hebrew, *and* Greek, *and* Latin.  
@@ -185,7 +185,7 @@ V\. The dying word wherewith he breathed out his soul (Joh 19:30): *When he had 
 
 2\. What he did: *He bowed his head, and gave up the ghost.* He was voluntary in dying; for he was not only the sacrifice, but the priest and the offerer; and the *animus offerentis—the mind of the offerer,* was all in all in the sacrifice. Christ showed his will in his sufferings, *by which will we are sanctified.* (1.) *He gave up the ghost.* His life was not forcibly extorted from him, but freely resigned. He had said, *Father, into thy hands I commit my spirit,* thereby expressing the intention of this act. I give up myself as a *ransom for many;* and, accordingly, he did give up his spirit, paid down the price of pardon and life at his Father's hands. *Father, glorify thy name.* (2.) *He bowed his head.* Those that were crucified, in dying stretched up their heads to gasp for breath, and did not drop their heads till they had breathed their last; but Christ, to show himself active in dying, *bowed his head* first, composing himself, as it were, to fall asleep. God *had laid upon him the iniquity of us all,* putting it upon the head of this great sacrifice; and some think that by this bowing of his head he would intimate his sense of the weight upon him. See Ps 38:4,40:12. The bowing of his head shows his submission to his Father's will, and his obedience to death. He accommodated himself to his dying work, as Jacob, *who gathered up his feet into the bed, and then yielded up the ghost.*
 
-## The Crucifixion.
+## The Crucifixion
 
 > **³¹** The Jews therefore, because it was the preparation, that the bodies should not remain upon the cross on the sabbath day, (for that sabbath day was a high day,) besought Pilate that their legs might be broken, and *that* they might be taken away.  
 > **³²** Then came the soldiers, and brake the legs of the first, and of the other which was crucified with him.  
@@ -231,7 +231,7 @@ V\. The accomplishment of the scripture in all this (Joh 19:36): *That the scrip
 
 2\. *The scripture was fulfilled in the piercing of his side* (Joh 19:37): *They shall look on me whom they had pierced;* so it is written, Zec 12:10. And there the same that pours out the Spirit of grace, and can be no less than the God of the holy prophets, says, *They shall look upon me,* which is here applied to Christ, *They shall look upon him.* (1.) It is here implied that the Messiah shall be pierced; and here it had a more full accomplishment than in *the piercing of his hands and feet;* he was pierced by *the house of David* and *the inhabitants of Jerusalem, wounded in the house of his friends,* as it follows, Zec 13:6. (2.) It is promised that *when the Spirit is poured out they shall look on him and mourn.* This was in part fulfilled when many of those that were his betrayers and murderers *were pricked to the heart,* and brought to believe in him; it will be further fulfilled, in mercy, *when all Israel shall be saved;* and, in wrath, when those who persisted in their infidelity shall *see him whom they have pierced, and wail because of him,* Re 1:7. But it is applicable to us all. We have all been guilty of piercing the Lord Jesus, and are all concerned with suitable affections to look on him.
 
-## The Burial of Christ.
+## The Burial of Christ
 
 > **³⁸** And after this Joseph of Arimathæa, being a disciple of Jesus, but secretly for fear of the Jews, besought Pilate that he might take away the body of Jesus: and Pilate gave *him* leave. He came therefore, and took the body of Jesus.  
 > **³⁹** And there came also Nicodemus, which at the first came to Jesus by night, and brought a mixture of myrrh and aloes, about a hundred pound *weight.*  

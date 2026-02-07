@@ -6,7 +6,7 @@ weight: 11
 
 In this chapter we have the first-fruits of Saul's government, in the glorious rescue of Jabesh-Gilead out of the hands of the Ammonites. Let not Israel thence infer that therefore they did well to ask a king (God could and would have saved them without one); but let them admire God's goodness, that he did not reject them when they rejected him, and acknowledge his wisdom in the choice of the person whom, if he did not find fit, yet he made fit, for the great trust he called him to, and enabled, in some measure, to merit the crown by his public services, before it was fixed on his head by the public approbation. Here is, I. The great extremity to which the city of Jabesh-Gilead, on the other side of Jordan, was reduced by the Ammonites, 1Sa 11:1-3. II. Saul's great readiness to come to their relief, whereby he signalized himself, 1Sa 11:4-10. III. The good success of his attempt, by which God signalized him, 1Sa 11:11. IV. Saul's tenderness, notwithstanding this, towards those that had opposed him, 1Sa 11:12,13. V. The public confirmation and recognition of his election to the government, 1Sa 11:14,15.
 
-## Extremity of Jabesh-Gilead. (b. c. 1069.)
+## Extremity of Jabesh-Gilead (1069 BC)
 
 > **¹** Then Nahash the Ammonite came up, and encamped against Jabesh-gilead: and all the men of Jabesh said unto Nahash, Make a covenant with us, and we will serve thee.  
 > **²** And Nahash the Ammonite answered them, On this *condition* will I make *a covenant* with you, that I may thrust out all your right eyes, and lay it *for* a reproach upon all Israel.  
@@ -23,7 +23,7 @@ III\. The besieged desire, and obtain, seven days' time to consider of this prop
 
 IV\. Notice is sent of this to Gibeah. They said they would send messengers *to all the coasts of Israel* (1Sa 11:3), which made Nahash the more secure, for that, he thought, would be a work of time, and none would be forward to appear if they had not one common head; and perhaps Nahash had not yet heard of the new-elected king. But the messengers, either of their own accord or by order from their masters, went straight to Gibeah, and, not finding Saul within, told their news to the people, who fell a weeping upon hearing it, 1Sa 11:4. They would sooner lament their brethren's misery and danger than think of helping them, shed their tears for them than shed their blood. They wept, as despairing to help the men of Jabesh-Gilead, and fearing lest, if that frontier-city should be lost, the enemy would penetrate into the very bowels of their country, which now appeared in great hazard.
 
-## The Distress of Jabesh-Gilead; Saul Succours Jabesh-Gilead. (b. c. 1069.)
+## The Distress of Jabesh-Gilead; Saul Succours Jabesh-Gilead (1069 BC)
 
 > **⁵** And, behold, Saul came after the herd out of the field; and Saul said, What *aileth* the people that they weep? And they told him the tidings of the men of Jabesh.  
 > **⁶** And the Spirit of God came upon Saul when he heard those tidings, and his anger was kindled greatly.  
@@ -51,7 +51,7 @@ VII\. His industry and close application to this business. If he had been bred u
 
 *Lastly,* To complete his honour, God crowned all these virtues with success. Jabesh-Gilead was rescued, and the Ammonites were totally routed; he had now the day before him to complete his victory in, and so complete a victory it was that those who remained, after a great slaughter, were scattered so that *two of them were not left together* to encourage or help one another, 1Sa 11:11. We may suppose that Saul was the more vigorous in this matter, 1. Because there was some alliance between the tribe of Benjamin and the city of Jabesh-Gilead. That city had declined joining with the rest of the Israelites to destroy Gibeah, which was then punished as their crime, but perhaps was now remembered as their kindness, when Saul of Gibeah came with so much readiness and resolution to relieve Jabesh-Gilead. Yet that was not all; two-thirds of the Benjamites that then remained were provided with wives from that city (Jdg 21:14), so that most of the mothers of Benjamin were daughters of Jabesh-Gilead, for which city Saul, being a Benjamite, had therefore a particular kindness; and we find they returned his kindness, 1Sa 31:11,12. 2. Because it was the Ammonites' invasion that induced the people to desire a king (so Samuel says, Jdg 12:12), so that if he had not done his part, in this expedition, he would have disappointed their expectations, and for ever forfeited their respect.
 
-## Sacrifices Offered to God. (b. c. 1069.)
+## Sacrifices Offered to God (1069 BC)
 
 > **¹²** And the people said unto Samuel, Who *is* he that said, Shall Saul reign over us? bring the men, that we may put them to death.  
 > **¹³** And Saul said, There shall not a man be put to death this day: for to day the LORD hath wrought salvation in Israel.  

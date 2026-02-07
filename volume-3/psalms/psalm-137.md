@@ -6,7 +6,7 @@ weight: 137
 
 There are divers psalms which are thought to have been penned in the latter days of the Jewish church, when prophecy was near expiring and the canon of the Old Testament ready to be closed up, but none of them appears so plainly to be of a late date as this, which was penned when the people of God were captives in Babylon, and there insulted over by these proud oppressors; probably it was towards the latter end of their captivity; for now they saw the destruction of Babylon hastening on apace (Ps 137:8), which would be their discharge. It is a mournful psalm, a lamentation; and the Septuagint makes it one of the lamentations of Jeremiah, naming him for the author of it. Here I. The melancholy captives cannot enjoy themselves, Ps 137:1,2. II. They cannot humour their proud oppressors, Ps 137:3,4. III. They cannot forget Jerusalem, Ps 137:5,6. IV. They cannot forgive Edom and Babylon, Ps 137:7-9. In singing this psalm we must be much affected with the concernments of the church, especially that part of it that is in affliction, laying the sorrows of God's people near our hearts, comforting ourselves in the prospect of the deliverance of the church and the ruin of its enemies, in due time, but carefully avoiding all personal animosities, and not mixing the leaven of malice with our sacrifices.
 
-## The Sorrows of Captivity.
+## The Sorrows of Captivity
 
 > **¹** By the rivers of Babylon, there we sat down, yea, we wept, when we remembered Zion.  
 > **²** We hanged our harps upon the willows in the midst thereof.  
@@ -29,7 +29,7 @@ IV\. The constant affection they retained for Jerusalem, the city of their solem
 
 2\. How stedfastly they resolved to keep up this affection, which they express by a solemn imprecation of mischief to themselves if they should let it fall: "Let me be for ever disabled either to sing or play on the harp if I so far forget the religion of my country as to make use of my songs and harps for the pleasing of Babylon's sons or the praising of Babylon's gods. *Let my right hand forget her art*" (which the hand of an expert musician never can, unless it be withered), "nay, *let my tongue cleave to the roof of my mouth,* if I have not a good word to say for Jerusalem wherever I am." Though they dare not sing Zion's songs among the Babylonians, yet they cannot forget them, but, as soon as ever the present restraint is taken off, they will sing them as readily as ever, notwithstanding the long disuse.
 
-## The Sorrows of Captivity.
+## The Sorrows of Captivity
 
 > **⁷** Remember, O LORD, the children of Edom in the day of Jerusalem; who said, Rase *it,* rase *it, even* to the foundation thereof.  
 > **⁸** O daughter of Babylon, who art to be destroyed; happy *shall he be,* that rewardeth thee as thou hast served us.  

@@ -4,7 +4,7 @@ weight: 17
 
 # Chapter 17
 
-## Falsehood and Oppression Reproved.
+## Falsehood and Oppression Reproved
 
 > **¹** Better *is* a dry morsel, and quietness therewith, than an house full of sacrifices *with* strife.  
 
@@ -26,7 +26,7 @@ Note, 1. Those that design to do ill support themselves by falsehood and lying: 
 
 See here, 1. What a great sin those are guilty of who trample upon the poor, who ridicule their wants and the meanness of their appearance, upbraid them with their poverty, and take advantage from their weakness to be abusive and injurious to them. They *reproach their Maker,* put a great contempt and affront upon him, who allotted the poor to the condition they are in, owns them, and takes care of them, and can, when he pleases, reduce us to that condition. Let those that thus reproach their Maker know that they shall be called to an account for it, Mt 25:40,41, Pr 14:31. 2. What great danger those are in of falling into trouble themselves who are pleased to see and hear of the troubles of others: *He that is glad at calamities,* that he may be built up upon the ruins of others, and regales himself with the judgments of God when they are abroad, let him know that he *shall not go unpunished;* the cup shall be put into his hand, Eze 25:6,7.
 
-## Common Truths.
+## Common Truths
 
 > **⁶** Children's children *are* the crown of old men; and the glory of children *are* their fathers.  
 
@@ -52,7 +52,7 @@ Note, 1. A word is enough to the wise. A gentle reproof will enter not only into
 
 Here is the sin and punishment of an evil man. 1. His sin. He is an evil man indeed that seeks all occasions to rebel against God, and the government God has set over him, and to contradict and quarrel with those about him. *Quærit jurgia—He picks quarrels;* so some. There are some that are actuated by a spirit of opposition, that will contradict for contradiction-sake, that will go on frowardly in their wicked ways in spite of all restraint and check. *A rebellious man seeks mischief* (so some read it), watches all opportunities to disturb the public peace. 2. His punishment. Because he will not be reclaimed by mild and gentle methods, *a cruel messenger shall be sent against him,* some dreadful judgment or other, as a messenger from God. Angels, God's messengers, shall be employed as ministers of his justice against him, Ps 78:49. Satan, the angel of death, shall be let loose upon him, and the *messengers* of Satan. His prince shall send a sergeant to arrest him, an executioner to cut him off. He that *kicks against the pricks* is *waited for of the sword.*
 
-## Weighty Sayings.
+## Weighty Sayings
 
 > **¹²** Let a bear robbed of her whelps meet a man, rather than a fool in his folly.  
 
@@ -74,7 +74,7 @@ This shows what an offence it is to God, 1. When those that are entrusted with t
 
 Two things are here spoken of with astonishment:—1. God's great goodness to foolish man, in putting *a price into his hand to get wisdom,* to get knowledge and grace to fit him for both worlds. We have rational souls, the means of grace, the strivings of the Spirit, access to God by prayer; we have time and opportunity. He that has a good estate (so some understand it) has advantages thereby of getting wisdom by purchasing instruction. Good parents, relations, ministers, friends, are helps to get wisdom. It is *a price,* therefore of value, a talent. It is *a price in the hand,* in possession; *the word is nigh thee.* It is a price for getting; it is for our own advantage; it is for getting wisdom, the very thing which, being fools, we have most need of. We have reason to wonder that God should so consider our necessity, and should entrust us with such advantages, though he foresaw we should not make a right improvement of them. 2. Man's great wickedness, his neglect of God's favour and his own interest, which is very absurd and unaccountable: *He has no heart to it,* not to the wisdom that is to be got, nor to the price in the use of which it may be got. *He has no heart,* no skill, nor will, nor courage, to improve his advantages. He has set his heart upon other things, so that he has no heart to his duty or the great concerns of his soul. Wherefore should a price be thrown away and lost upon one so undeserving of it?
 
-## True Friendship.
+## True Friendship
 
 > **¹⁷** A friend loveth at all times, and a brother is born for adversity.  
 
@@ -88,7 +88,7 @@ Though Solomon had commended friendship in adversity (Pr 17:17), yet let not any
 
 Note, 1. Those that are quarrelsome involve themselves in a great deal of guilt: *He that loves strife,* that in his worldly business loves to go to law, in religion loves controversies, and in common conversation loves to thwart and fall out, that is never well but when he is in the fire, *he loves transgression;* for a great deal of sin attends that sin, and the way of it is down-hill. He pretends to stand up for truth, and for his honour and right, but really he loves sin, which God hates. 2. Those that are ambitious and aspiring expose themselves to a great deal of trouble, such as often ends in their ruin: *He that exalts his gate,* builds a stately house, at least a fine frontispiece, that he may overtop and outshine his neighbours, seeks his own destruction and takes a deal of pains to ruin himself; he makes his gate so large that his house and estate go out at it.
 
-## Folly and Wickedness.
+## Folly and Wickedness
 
 > **²⁰** He that hath a froward heart findeth no good: and he that hath a perverse tongue falleth into mischief.  
 

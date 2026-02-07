@@ -6,7 +6,7 @@ weight: 33
 
 In this chapter we have, I. A particular account of the removals and encampments of the children of Israel, from their escape out of Egypt to their entrance into Canaan, forty-two in all, with some remarkable events that happened at some of those places, Nu 33:1-49. II. A strict command given them to drive out all the inhabitants of the land of Canaan, which they were not going to conquer and take possession of, Nu 33:50-56. So that the former part of the chapter looks back upon their march through the wilderness, the latter looks forward to their settlement in Canaan.
 
-## Encampments of the Israelites. (b. c. 1452.)
+## Encampments of the Israelites (1452 BC)
 
 > **¹** These *are* the journeys of the children of Israel, which went forth out of the land of Egypt with their armies under the hand of Moses and Aaron.  
 > **²** And Moses wrote their goings out according to their journeys by the commandment of the LORD: and these *are* their journeys according to their goings out.  
@@ -68,7 +68,7 @@ II\. What the account itself was. It began with their departure out of Egypt, co
 
 2\. Concerning their travels towards Canaan. Observe, (1.) They were continually upon the remove. When they had pitched a little while in one place they departed from that to another. Such is our state in this world; we have here no continuing city. (2.) Most of their way lay through a wilderness, uninhabited, untracked, unfurnished even with the necessaries of human life, which magnifies the wisdom and power of God, by whose wonderful conduct and bounty the thousands of Israel not only subsisted for forty years in that desolate place, but came out at least as numerous and vigorous as they went in. At first they pitched *in the edge of the wilderness* (Nu 33:6), but afterwards in the heart of it; by less difficulties God prepares his people for greater. We find them in the wilderness of Etham (Nu 33:8), of Sin (Nu 33:11), of Sinai, Nu 33:15. Our removals in this world are but from one wilderness to another. (3.) They were led to and fro, forward and backward, as in a maze or labyrinth, and yet were all the while under the direction of the pillar of cloud and fire. He led them about (De 32:10), and yet led them the right way, Ps 107:7. The way which God takes in bringing his people to himself is always the best way, though it does not always seem to us the nearest way. (4.) Some events are mentioned in this journal, as their want of water at Rephidim (Nu 33:14), the death of Aaron (Nu 33:38,39), the insult of Arad (Nu 33:40); and the very name of *Kibroth-hattaavah—the graves of lusts* (Nu 33:16), has a story depending upon it. Thus we ought to keep in mind the providences of God concerning us and our families, us and our land, and the many instances of that divine care which has led us, and fed us, and kept us, all our days hitherto. Shittim, the place where the people sinned in the matter of Peor (Nu 25:1), is here called *Abel-shittim. Abel* signifies *mourning* (as Ge 50:11), and probably this place was so called from the mourning of the good people of Israel on account of that sin and of God's wrath against them for it. It was so great a mourning that it gave a name to the place.
 
-## The Canaanites Doomed. (b. c. 1452.)
+## The Canaanites Doomed (1452 BC)
 
 > **⁵⁰** And the LORD spake unto Moses in the plains of Moab by Jordan *near* Jericho, saying,  
 > **⁵¹** Speak unto the children of Israel, and say unto them, When ye are passed over Jordan into the land of Canaan;  

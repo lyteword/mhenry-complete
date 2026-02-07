@@ -6,7 +6,7 @@ weight: 94
 
 This psalm was penned when the church of God was under hatches, oppressed and persecuted; and it is an appeal to God, as the judge of heaven and earth, and an address to him, to appear for his people against his and their enemies. Two things this psalm speaks:—I. Conviction and terror to the persecutors (Ps 94:1-11), showing them their danger and folly, and arguing with them. II. Comfort and peace to the persecuted (Ps 94:12-23), assuring them, both from God's promise and from the psalmist's own experience, that their troubles would end well, and God would, in due time, appear to their joy and the confusion of those who set themselves against them. In singing this psalm we must look abroad upon the pride of oppressors with a holy indignation, and the tears of the oppressed with a holy compassion; but, at the same time, look upwards to the righteous Judge with an entire satisfaction, and look forward, to the end of all these things, with a pleasing hope.
 
-## Appeal to God against Persecutors; The Folly of Atheists and Oppressors.
+## Appeal to God against Persecutors; The Folly of Atheists and Oppressors
 
 > **¹** O LORD God, to whom vengeance belongeth; O God, to whom vengeance belongeth, show thyself.  
 > **²** Lift up thyself, thou judge of the earth: render a reward to the proud.  
@@ -48,7 +48,7 @@ III\. A charge of atheism exhibited against the persecutors, and an expostulatio
 
 (3.) From the works of grace: *He that teaches man knowledge, shall he not know?* He not only, as the God of nature, has given the light of reason, but, as the God of grace, has given the light of revelation, has shown man what is true wisdom and understanding; and he that does this, shall he not know? Job 28:23,28. The flowing of the streams is a certain sign of the fulness of the fountain. If all knowledge is from God, no doubt all knowledge is in God. From this general doctrine of God's omniscience, the psalmist not only confutes the atheists, who said, "*The Lord shall not see* (Ps 94:7), he will not take cognizance of what we do;" but awakens us all to consider that God will take cognizance even of what we think (Ps 94:11): *The Lord knows the thoughts of man, that they are vanity.* [1.] He knows those thoughts in particular, concerning God's conniving at the wickedness of the wicked, and knows them to be vain, and laughs at the folly of those who by such fond conceits buoy themselves up in sin. [2.] He knows all the thoughts of the children of men, and knows them to be, for the most part, vain, that the imaginations of the thoughts of men's hearts are evil, only evil, and that continually. Even in good thoughts there is a fickleness and inconstancy which may well be called *vanity.* It concerns us to keep a strict guard upon our thoughts, because God takes particular notice of them. Thoughts are words to God, and vain thoughts are provocations.
 
-## Comfort to Suffering Saints; God the Defence of His People.
+## Comfort to Suffering Saints; God the Defence of His People
 
 > **¹²** Blessed *is* the man whom thou chastenest, O LORD, and teachest him out of thy law;  
 > **¹³** That thou mayest give him rest from the days of adversity, until the pit be digged for the wicked.  

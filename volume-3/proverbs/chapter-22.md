@@ -4,7 +4,7 @@ weight: 22
 
 # Chapter 22
 
-## Miscellaneous Maxims.
+## Miscellaneous Maxims
 
 > **¹** A *good* name *is* rather to be chosen than great riches, *and* loving favour rather than silver and gold.  
 
@@ -70,7 +70,7 @@ We have here two very sad considerations:— 1. That corruption is woven into ou
 
 This shows what evil courses rich men sometimes take, by which, in the end, they will impoverish themselves and provoke God, notwithstanding their abundance, to bring them to want; they *oppress the poor and give to the rich.* 1. They will not in charity relieve the poor, but withhold from them, that by saving that which is really the best, but which they think the most needless part of their expenses, they may *increase their riches;* but they will make presents *to the rich,* and give them great entertainments, either in pride and vain-glory, that they may look great, or in policy, that they may receive it again with advantage. Such *shall surely come to want.* Many have been beggared by a foolish generosity, but never any by a prudent charity. Christ bids us to invite the poor, Lu 14:12,13. 2. They not only will not relieve *the poor,* but they *oppress* them, rob the spital, extort from their poor tenants and neighbours, invade the rights of those who have not wherewithal to defend themselves, and then *give* bribes *to the rich,* to protect and countenance them in it. But it is all in vain; they *shall come to want.* Those that rob God, and so make him the enemy, cannot secure themselves by *giving to the rich,* to make them their friends.
 
-## Serious Attention Inculcated.
+## Serious Attention Inculcated
 
 > **¹⁷** Bow down thine ear, and hear the words of the wise, and apply thine heart unto my knowledge.  
 > **¹⁸** For *it is* a pleasant thing if thou keep them within thee; they shall withal be fitted in thy lips.  
@@ -92,7 +92,7 @@ II\. Arguments to enforce this exhortation. Consider,
 
 4\. The advantage designed us by them. The *excellent things* which God has *written to* us are not like the commands which the master gives his servant, which are all intended for the benefit of the master, but like those which the master gives his scholar, which are all intended for the benefit of the scholar. These things must be kept by us, for they are written to us, (1.) That we may have a confidence in him and communion with him. *That thy trust may be in the Lord,* Pr 22:19. We cannot trust in God except in the way of duty; we are *therefore* taught our duty, that we may have reason to trust in God. Nay, this is itself one great duty we are to learn, and a duty that is the foundation of all practical religion, to live a life of delight in God and dependence on him. (2.) That we may have a satisfaction in our own judgment: "*That I might make thee know the certainty of the words of truth;* that thou mayest know what is truth, mayest plainly distinguish between it and falsehood, and mayest know upon what grounds thou receivest and believest the truths of God." Note, [1.] It is a desirable thing to know, not only *the words of truth,* but *the certainty of* them, that our faith may be intelligent and rational, and may grow up to a full assurance. [2.] The way to *know the certainty of the words of truth* is to make conscience of our duty; for, *if any man do his will, he shall know* for certain that the doctrine is of God, Joh 7:17. (3.) That we may be useful and serviceable to others for their instruction: "*That thou mayest* give a good account *of the words of truth to those that send to thee* to consult thee as an oracle," or (as the margin reads it) "*to those that send thee,* that employ thee as an agent or ambassador in any business." Knowledge is given us to do good with, that others may light their candle at our lamp, and that we may in our place serve our generation according to the will of God; and those who make conscience of keeping God's commandments will be best able to *give a reason of the hope that is in* them.
 
-## Caution against Oppressing the Poor.
+## Caution against Oppressing the Poor
 
 > **²²** Rob not the poor, because he *is* poor: neither oppress the afflicted in the gate:  
 > **²³** For the LORD will plead their cause, and spoil the soul of those that spoiled them.  
@@ -105,7 +105,7 @@ II\. The aggravations of the sin. 1. If their inability, by reason of their pove
 
 III\. The danger that attends this sin. He that robs and oppresses the poor does it at his peril; for, 1. The oppressed will find God their powerful patron. He *will plead their cause,* and not suffer them to be run down and trampled upon. If men will not appear for them, God will. 2. The oppressors will find him a just avenger. He will make reprisals upon them, will *spoil the souls of those that spoil them;* he will repay them in spiritual judgments, in curses to their souls. He that robs the poor will be found in the end a murderer of himself.
 
-## Prudential Maxims.
+## Prudential Maxims
 
 > **²⁴** Make no friendship with an angry man; and with a furious man thou shalt not go:  
 > **²⁵** Lest thou learn his ways, and get a snare to thy soul.  

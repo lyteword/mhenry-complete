@@ -6,7 +6,7 @@ weight: 32
 
 In this chapter we have, I. Jeremiah imprisoned for foretelling the destruction of Jerusalem and the captivity of king Zedekiah, Jer 32:1-5. II. We have him buying land, by divine appointment, as an assurance that in due time a happy end should be put to the present troubles, Jer 32:6-15. III. We have his prayer, which he offered up to God upon that occasion, Jer 32:16-25. IV. We have a message which God thereupon entrusted him to deliver to the people. 1. He must foretel the utter destruction of Judah and Jerusalem for their sins, Jer 32:26-35. But, 2. At the same time he must assure them that, though the destruction was total, it should not be final, but that at length their posterity should recover the peaceable possession of their own land, Jer 32:36-44. The predictions of this chapter, both threatenings and promises, are much the same with what we have already met with again and again, but here are some circumstances that are very particular and remarkable.
 
-## Judgments Predicted; Jeremiah Imprisoned. (b. c. 589.)
+## Judgments Predicted; Jeremiah Imprisoned (589 BC)
 
 > **¹** The word that came to Jeremiah from the LORD in the tenth year of Zedekiah king of Judah, which *was* the eighteenth year of Nebuchadrezzar.  
 > **²** For then the king of Babylon's army besieged Jerusalem: and Jeremiah the prophet was shut up in the court of the prison, which *was* in the king of Judah's house.  
@@ -40,7 +40,7 @@ III\. Being in prison, he purchases from a near relation of his a piece of groun
 
 (2.) What was the design of having this bargain made. It was to signify that though Jerusalem was now besieged, and the whole country was likely to be laid waste, yet the time should come when *houses, and fields, and vineyards should be again possessed in this land,* Jer 32:15. As God appointed Jeremiah to confirm his predictions of the approaching destruction of Jerusalem by his own practice in living unmarried, so he now appointed him to confirm his predictions of the future restoration of Jerusalem by his own practice in purchasing this field. Note, It concerns ministers to make it to appear in their whole conversation that they do themselves believe that which they preach to others; and that they may do so, and impress it the more deeply upon their hearers, they must many a time deny themselves, as Jeremiah did in both these instances. God having promised that this land should again come into the possession of his people, Jeremiah will, on behalf of his heirs, put in for a share. Note, It is good to manage even our worldly affairs in faith, and to do common business with an eye to the providence and promise of God. Lucius Florus relates it as a great instance of the bravery of the Roman citizens that in the time of the second Punic war, when Hannibal besieged Rome and was very near making himself master of it, a field on which part of his army lay, being offered to sale at that time, was immediately purchased, in a firm belief that the Roman valour would raise the siege, *lib. ii. cap.* 6. And have not we much more reason to venture our all upon the word of God, and to embark in Zion's interests, which will undoubtedly be the prevailing interests at last? *Non si male nunc et olim sic erit—Though now we suffer, we shall not suffer always.*
 
-## Jeremiah's Prayer. (b. c. 589.)
+## Jeremiah's Prayer (589 BC)
 
 > **¹⁶** Now when I had delivered the evidence of the purchase unto Baruch the son of Neriah, I prayed unto the LORD, saying,  
 > **¹⁷** Ah Lord GOD! behold, thou hast made the heaven and the earth by thy great power and stretched out arm, *and* there is nothing too hard for thee:  
@@ -67,7 +67,7 @@ IV\. He bewails the rebellions they had been guilty of against God, and the judg
 
 V\. He seems desirous to be let further into the meaning of the order God had now given him to purchase his kinsman's field (Jer 32:25): "*Though the city is given into the hand of the Chaldeans,* and no man is likely to enjoy what he has, yet *thou hast said unto me, Buy thou the field.*" As soon as he understood that it was the mind of God he did it, and made no objections, was not disobedient to the heavenly vision; but, when he had done it, he desired better to understand why God had ordered him to do it, because the thing looked strange and unaccountable. Note, Though we are bound to follow God with an implicit obedience, yet we should endeavour that it may be more and more an intelligent obedience. We must never dispute God's statutes and judgments, but we may and must enquire, *What mean these statutes and judgments?* De 6:20.
 
-## Judgments Predicted; Restoration of the Jews; Encouraging Promises. (b. c. 589.)
+## Judgments Predicted; Restoration of the Jews; Encouraging Promises (589 BC)
 
 > **²⁶** Then came the word of the LORD unto Jeremiah, saying,  
 > **²⁷** Behold, I *am* the LORD, the God of all flesh: is there any thing too hard for me?  
