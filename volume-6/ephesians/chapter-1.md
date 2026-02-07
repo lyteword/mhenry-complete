@@ -6,7 +6,7 @@ weight: 1
 
 In this chapter we have, I. The introduction to the whole epistle, which is much the same as in others, Eph 1:1,2. II. The apostle's thanksgivings and praises to God for his inestimable blessings bestowed on the believing Ephesians, Eph 1:3-14. III. His earnest prayers to God in their behalf, Eph 1:15-23. This great apostle was wont to abound in prayers and in thanksgivings to almighty God, which he generally so disposes and orders that at the same time they carry with them and convey the great and important doctrines of the Christian religion, and the most weighty instructions to all those who seriously peruse them.
 
-## Introduction. (a. d. 61.)
+## Introduction (61 AD)
 
 > **¹** Paul, an apostle of Jesus Christ by the will of God, to the saints which are at Ephesus, and to the faithful in Christ Jesus:  
 > **²** Grace *be* to you, and peace, from God our Father, and *from* the Lord Jesus Christ.  
@@ -15,7 +15,7 @@ Here is, 1. The title St. Paul takes to himself, as belonging to him—*Paul, an
 
 After this short introduction he comes to the matter and body of the epistle; and, though it may seem somewhat peculiar in a letter, yet the Spirit of God saw fit that his discourse of divine things in this chapter should be cast into prayers and praises, which, as they are solemn addresses to God, so they convey weighty instructions to others. Prayer may preach; and praise may do so too.
 
-## Praise for Spiritual Blessings. (a. d. 61.)
+## Praise for Spiritual Blessings (61 AD)
 
 > **³** Blessed *be* the God and Father of our Lord Jesus Christ, who hath blessed us with all spiritual blessings in heavenly *places* in Christ:  
 > **⁴** According as he hath chosen us in him before the foundation of the world, that we should be holy and without blame before him in love:  
@@ -38,7 +38,7 @@ II\. The particular spiritual blessings with which we are blessed in Christ, and
 
 The apostle mentions the great end and design of God in bestowing all these spiritual privileges, *that we should be to the praise of his glory who first trusted in Christ*—we to whom the gospel was first preached, and who were first converted to the faith of Christ, and to the placing of our hope and trust in him. Note, Seniority in grace is a preferment: *Who were in Christ before me,* says the apostle (Ro 16:7); those who have for a longer time experienced the grace of Christ are under more special obligations to glorify God. They should be strong in faith, and more eminently glorify him; but this should be the common end of all. For this we were made, and for this we were redeemed; this is the great design of our Christianity, and of God in all that he has done for us: *unto the praise of his glory,* Eph 1:14. He intends that his grace and power and other perfection should by this means become conspicuous and illustrious, and that the sons of men should magnify him.
 
-## The Apostle's Prayer. (a. d. 61.)
+## The Apostle's Prayer (61 AD)
 
 > **¹⁵** Wherefore I also, after I heard of your faith in the Lord Jesus, and love unto all the saints,  
 > **¹⁶** Cease not to give thanks for you, making mention of you in my prayers;  

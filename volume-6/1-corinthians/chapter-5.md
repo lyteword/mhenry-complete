@@ -6,7 +6,7 @@ weight: 5
 
 In this chapter the apostle, I. Blames them for their indulgence in the case of the incestuous person, and orders him to be excommunicated, and delivered to Satan, 1Co 5:1-6. II. He exhorts them to Christian purity, by purging out the old leaven, 1Co 5:7,8. And, III. Directs them to shun even the common conversation of Christians who were guilty of any notorious and flagitious wickedness, 1Co 5:9-13.
 
-## A Case of Gross Criminality; Christian Purity. (a. d. 57.)
+## A Case of Gross Criminality; Christian Purity (57 AD)
 
 > **¹** It is reported commonly *that there is* fornication among you, and such fornication as is not so much as named among the Gentiles, that one should have his father's wife.  
 > **²** And ye are puffed up, and have not rather mourned, that he that hath done this deed might be taken away from among you.  
@@ -25,7 +25,7 @@ III\. We have the apostle's direction to them how they should now proceed with t
 
 IV\. He hints the danger of contagion from this example: *Your glorying is not good. Know you not that a little leaven leaveneth the whole lump?* The bad example of a man in rank and reputation is very mischievous, spreads the contagion far and wide. It did so, probably, in this very church and case: see 2Co 12:21. They could not be ignorant of this. The experience of the whole world was for it; *one scabbed sheep infects a whole flock.* A little heaven will quickly spread the ferment through a great lump. Note, Concern for their purity and preservation should engage Christian churches to remove gross and scandalous sinners.
 
-## Exhortation to Christian Purity. (a. d. 57.)
+## Exhortation to Christian Purity (57 AD)
 
 > **⁷** Purge out therefore the old leaven, that ye may be a new lump, as ye are unleavened. For even Christ our passover is sacrificed for us:  
 > **⁸** Therefore let us keep the feast, not with old leaven, neither with the leaven of malice and wickedness; but with the unleavened *bread* of sincerity and truth.  
@@ -36,7 +36,7 @@ I\. The advice itself, addressed either, 1. To the church in general; and so pur
 
 II\. The reason with which this advice is enforced: *For Christ our passover is sacrificed for us,* 1Co 5:7. This is the great doctrine of the gospel. The Jews, after they had killed the passover, kept the feast of unleavened bread. So must we; not for seven days only, but all our days. We should die with our Saviour to sin, be planted into the likeness of his death by mortifying sin, and into the likeness of his resurrection by rising again to newness of life, and that internal and external. We must have new hearts and new lives. Note, The whole life of a Christian must be a feast of unleavened bread. His common conversation and his religious performances must be holy. *He must purge out the old leaven, and keep the feast of unleavened bread of sincerity and truth.* He must be without guilt in his conduct towards God and man. And the more there is of sincerity in our own profession, the less shall we censure that of others. Note, On the whole, The sacrifice of our Redeemer is the strongest argument with a gracious heart for purity and sincerity. How sincere a regard did he show to our welfare, in dying for us! and how terrible a proof was his death of the detestable nature of sin, and God's displeasure against it! Heinous evil, that could not be expiated but with the blood of the Son of God! And shall a Christian love the murderer of his Lord? God forbid.
 
-## Advice to Shun Scandalous Professors. (a. d. 57.)
+## Advice to Shun Scandalous Professors (57 AD)
 
 > **⁹** I wrote unto you in an epistle not to company with fornicators:  
 > **¹⁰** Yet not altogether with the fornicators of this world, or with the covetous, or extortioners, or with idolaters; for then must ye needs go out of the world.  

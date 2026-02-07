@@ -6,7 +6,7 @@ weight: 3
 
 The apostle here magnifies the love of God in our adoption, 1Jo 3:1,2. He thereupon argues for holiness (1Jo 3:3), and against sin, 1Jo 3:4-19. He presses brotherly love, 1Jo 3:11-18. How to assure our hearts before God, 1Jo 3:19-22. The precept of faith, 1Jo 3:23. And the good of obedience, 1Jo 3:24.
 
-## Adoption. (a. d. 80.)
+## Adoption (80 AD)
 
 > **¹** Behold, what manner of love the Father hath bestowed upon us, that we should be called the sons of God: therefore the world knoweth us not, because it knew him not.  
 > **²** Beloved, now are we the sons of God, and it doth not yet appear what we shall be: but we know that, when he shall appear, we shall be like him; for we shall see him as he is.  
@@ -22,7 +22,7 @@ III\. Exalts these persevering disciples in the prospect of the certain revelati
 
 IV\. Urges the engagement of these sons of God to the prosecution of holiness: *And every man that hath this hope in him purifies himself even as he is pure,* 1Jo 3:3. The sons of God know that their Lord is holy and pure; he is of purer heart and eyes than to admit any pollution or impurity to dwell with him. Those then who hope to live with him must study the utmost purity from the world, and flesh, and sin; they must grow in grace and holiness. Not only does their Lord command them to do so, but their new nature inclines them so to do; yea, their hope of heaven will dictate and constrain them so to do. They know that their high priest is holy, harmless, and undefiled. They know that their God and Father is the high and holy one, that all the society is pure and holy, that their inheritance is an inheritance of saints in light. It is a contradiction to such hope to indulge sin and impurity. And therefore, as we are sanctified by faith, we must be sanctified by hope. That we may be saved by hope we must be purified by hope. It is the hope of hypocrites, and not of the sons of God, that makes an allowance for the gratification of impure desires and lusts.
 
-## The Mark of God's Children. (a. d. 80.)
+## The Mark of God's Children (80 AD)
 
 > **⁴** Whosoever committeth sin transgresseth also the law: for sin is the transgression of the law.  
 > **⁵** And ye know that he was manifested to take away our sins; and in him is no sin.  
@@ -48,7 +48,7 @@ VI\. From the connection between regeneration and the relinquishment of sin: *Wh
 
 VII\. From the discrimination between the children of God and the children of the devil. They have their distinct characters. *In this the children of God are manifest and the children of the devil,* 1Jo 3:10. In the world (according to the old distinction) there are the seed of God and the seed of the serpent. Now the seed of the serpent is known by these two signatures:—1. By neglect of religion: *Whosoever doeth not righteously* (omits and disregards the rights and dues of God; for religion is but our righteousness towards God, or giving him his due, and whosoever does not conscientiously do this) *is not of God,* but, on the contrary, of the devil. The devil is the father of unrighteous or irreligious souls. And, 2. By hatred of fellow-christians: *Neither he that loveth not his brother,* 1Jo 3:10. True Christians are to be loved for God's and Christ's sake. Those who so love them not, but despise, and hate, and persecute them, have the serpentine nature still abiding in them.
 
-## Brotherly Love. (a. d. 80.)
+## Brotherly Love (80 AD)
 
 > **¹¹** For this is the message that ye heard from the beginning, that we should love one another.  
 > **¹²** Not as Cain, *who* was of that wicked one, and slew his brother. And wherefore slew he him? Because his own works were evil, and his brother's righteous.  
@@ -62,7 +62,7 @@ II\. To dissuade from what is contrary thereto, all ill-will towards the brethre
 
 III\. To infer that it is no wonder that good men are so served now: *Marvel not, my brethren, if the world hate you,* 1Jo 3:13. The serpentine nature still continues in the world. The great serpent himself reigns as the God of this world. Wonder not then that the serpentine world hates and hisses at you who belong to that seed of the woman that is to bruise the serpent's head.
 
-## Brotherly Love. (a. d. 80.)
+## Brotherly Love (80 AD)
 
 > **¹⁴** We know that we have passed from death unto life, because we love the brethren. He that loveth not *his* brother abideth in death.  
 > **¹⁵** Whosoever hateth his brother is a murderer: and ye know that no murderer hath eternal life abiding in him.  
@@ -87,7 +87,7 @@ IV\. The apostle, having proposed this flaming constraining example of love, and
 
 V\. This love will evince our sincerity in religion, and give us hope towards God: *And hereby we know that we are of the truth, and shall assure our hearts before him,* 1Jo 3:19. It is a great happiness to be assured of our integrity in religion. Those that are so assured may have holy boldness or confidence towards God; they may appeal to him from the censures and condemnation of the world. The way to arrive at the knowledge of our own truth and uprightness in Christianity, and to secure our inward peace, is to abound in love and in the works of love towards the Christian brethren.
 
-## The Testimony of Conscience. (a. d. 80.)
+## The Testimony of Conscience (80 AD)
 
 > **²⁰** For if our heart condemn us, God is greater than our heart, and knoweth all things.  
 > **²¹** Beloved, if our heart condemn us not, *then* have we confidence toward God.  
@@ -99,7 +99,7 @@ I\. To establish the court of conscience, and to assert the authority of it: *Fo
 
 II\. To indicate the privilege of those who have a good conscience towards God. They have interest in heaven and in the court above; their suits are heard there: *And whatsoever we ask we receive of him,* 1Jo 3:22. It is supposed that the petitioners do not desire, or do not intend to desire, any thing that is contrary to the honour and glory of the court or to their own intended spiritual good, and then they may depend upon receiving the good things they ask for; and this supposition may well be made concerning the petitioners, or they may well be supposed to receive the good things they ask for, considering their qualification and practice: *Because we keep his commandments, and do those things that are pleasing in his sight,* 1Jo 3:22. Obedient souls are prepared for blessings, and they have promise of audience; those who commit things displeasing to God cannot expect that he should please them in hearing and answering their prayers, Ps 66:18, Pr 28:9.
 
-## God's Commandments. (a. d. 80.)
+## God's Commandments (80 AD)
 
 > **²³** And this is his commandment, That we should believe on the name of his Son Jesus Christ, and love one another, as he gave us commandment.  
 > **²⁴** And he that keepeth his commandments dwelleth in him, and he in him. And hereby we know that he abideth in us, by the Spirit which he hath given us.  

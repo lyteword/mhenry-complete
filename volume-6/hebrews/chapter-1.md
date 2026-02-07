@@ -6,7 +6,7 @@ weight: 1
 
 In this chapter we have a twofold comparison stated: I. Between the evangelical and legal dispensation; and the excellency of the gospel above that of the law is asserted and proved, Heb 1:1-3. II. Between the glory of Christ and that of the highest creatures, the angels; where the pre-eminence is justly given to the Lord Jesus Christ, and clearly demonstrated to belong to him, Heb 1:4-14.
 
-## Law and Gospel Compared; Dignity and Glory of Christ. (a. d. 62.)
+## Law and Gospel Compared; Dignity and Glory of Christ (62 AD)
 
 > **¹** God, who at sundry times and in divers manners spake in time past unto the fathers by the prophets,  
 > **²** Hath in these last days spoken unto us by *his* Son, whom he hath appointed heir of all things, by whom also he made the worlds;  
@@ -32,7 +32,7 @@ II\. God's method of communicating his mind and will under the New-Testament dis
 
 Now it was by no less a person than this that God in these last days spoke to men; and, since the dignity of the messenger gives authority and excellency to the message, the dispensations of the gospel must therefore exceed, very far exceed, the dispensation of the law.
 
-## The Dignity of Christ. (a. d. 62.)
+## The Dignity of Christ (62 AD)
 
 > **⁴** Being made so much better than the angels, as he hath by inheritance obtained a more excellent name than they.  
 > **⁵** For unto which of the angels said he at any time, Thou art my Son, this day have I begotten thee? And again, I will be to him a Father, and he shall be to me a Son?  

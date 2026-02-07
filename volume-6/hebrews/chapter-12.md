@@ -6,7 +6,7 @@ weight: 12
 
 The apostle, in this chapter, applies what he has collected in the chapter foregoing, and makes use of it as a great motive to patience and perseverance in the Christian faith and state, pressing home the argument, I. From a greater example than he had yet mentioned, and that is Christ himself, Heb 12:1-3. II. From the gentle and gracious nature of the afflictions they endured in their Christian course, Heb 12:4-17. III. From the communion and conformity between the state of the gospel-church on earth and the triumphant church in heaven, Heb 12:18-29.
 
-## Christ the Great Exemplar. (a. d. 62.)
+## Christ the Great Exemplar (62 AD)
 
 > **¹** Wherefore seeing we also are compassed about with so great a cloud of witnesses, let us lay aside every weight, and the sin which doth so easily beset *us,* and let us run with patience the race that is set before us,  
 > **²** Looking unto Jesus the author and finisher of *our* faith; who for the joy that was set before him endured the cross, despising the shame, and is set down at the right hand of the throne of God.  
@@ -38,7 +38,7 @@ II\. Perfective: *Run with patience the race that is set before us.* The apostle
 
 (6.) The advantage we shall reap by thus doing: it will be a means to prevent our weariness and fainting (Heb 12:3): *Lest you be weary and faint in your minds.* Observe, [1.] There is a proneness in the best to grow weary and to faint under their trials and afflictions, especially when they prove heavy and of long continuance: this proceeds from the imperfections of grace and the remains of corruption. [2.] The best way to prevent this is to look unto Jesus, and to consider him. Faith and meditation will fetch in fresh supplies of strength, comfort, and courage; for he has assured them, if *they suffer with him, they shall also reign with him:* and this hope will be their helmet.
 
-## The Benefit of Afflictions; The Use of Afflictions; Cautions against Apostasy. (a. d. 62.)
+## The Benefit of Afflictions; The Use of Afflictions; Cautions against Apostasy (62 AD)
 
 > **⁴** Ye have not yet resisted unto blood, striving against sin.  
 > **⁵** And ye have forgotten the exhortation which speaketh unto you as unto children, My son, despise not thou the chastening of the Lord, nor faint when thou art rebuked of him:  
@@ -89,7 +89,7 @@ II\. He argues from the peculiar and gracious nature of those sufferings that be
 
 (2.) We may hence learn, [1.] That apostasy from Christ is the fruit of preferring the gratification of the flesh to the blessing of God and the heavenly inheritance. [2.] Sinners will not always have such mean thoughts of the divine blessing and inheritance as now they have. The time is coming when they will think no pains too great, no cares no tears too much, to obtain the lost blessing. [3.] When the day of grace is over (as sometimes it may be in this life), they will find no place for repentance: they cannot repent aright of their sin; and God will not repent of the sentence he has passed upon them for their sin. And therefore, as the design of all, Christians should never give up their title, and hope of their Father's blessing and inheritance, and expose themselves to his irrevocable wrath and curse, by deserting their holy religion, to avoid suffering, which, though this may be persecution as far as wicked men are concerned in it, is only a rod of correction and chastisement in the hand of their heavenly Father, to bring them near to himself in conformity and communion. This is the force of the apostle's arguing from the nature of the sufferings of the people of God even when they suffer for righteousness' sake; and the reasoning is very strong.
 
-## Nature of the Christian Economy. (a. d. 62.)
+## Nature of the Christian Economy (62 AD)
 
 > **¹⁸** For ye are not come unto the mount that might be touched, and that burned with fire, nor unto blackness, and darkness, and tempest,  
 > **¹⁹** And the sound of a trumpet, and the voice of words; which *voice* they that heard intreated that the word should not be spoken to them any more:  

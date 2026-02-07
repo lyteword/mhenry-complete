@@ -6,7 +6,7 @@ weight: 2
 
 The general exhortation to holiness is continued, and enforced by several reasons taken from the foundation on which Christians are built, Jesus Christ, and from their spiritual blessings and privileges in him. The means of obtaining it, the word of God, is recommended, and all contrary qualities are condemned, 1Pe 2:1-12. Particular directions are given how subjects ought to obey the magistrates, and servants their masters, patiently suffering in well doing, in imitation of Christ, 1Pe 2:13-25.
 
-## Against Malice and Hypocrisy. (a. d. 66.)
+## Against Malice and Hypocrisy (66 AD)
 
 > **¹** Wherefore laying aside all malice, and all guile, and hypocrisies, and envies, and all evil speakings,  
 > **²** As newborn babes, desire the sincere milk of the word, that ye may grow thereby:  
@@ -24,7 +24,7 @@ II\. The apostle, like a wise physician, having prescribed the purging out of vi
 
 III\. He adds an argument from their own experience: *If so be,* or *since that,* or *forasmuch as, you have tasted that the Lord is gracious,* 1Pe 2:3. The apostle does not express a doubt, but affirms that these good Christians had tasted the goodness of God, and hence argues with them. "You ought to lay aside these vile sins (1Pe 2:1); you ought to desire the word of God; you ought to grow thereby, since you cannot deny but that you have tasted that the Lord is gracious." The 1Pe 2:4 assures us that the Lord here spoken of is the Lord Jesus Christ. Hence learn, 1. Our Lord Jesus Christ is very gracious to his people. He is in himself infinitely good; he is very kind, free, and merciful to miserable sinners; he is pitiful and good to the undeserving; he has in him a fulness of grace. 2. The graciousness of our Redeemer is best discovered by an experimental taste of it. There must be an immediate application of the object to the organ of taste; we cannot taste at a distance, as we may see, and hear, and smell. To taste the graciousness of Christ experimentally supposes our being united to him by faith, and then we may taste his goodness in all his providences, in all our spiritual concerns, in all our fears and temptations, in his word and worship every day. 3. The best of God's servants have in this life but a taste of the grace of Christ. A taste is but a little; it is not a draught, nor does it satisfy. It is so with the consolations of God in this life. 4. The word of God is the great instrument whereby he discovers and communicates his grace to men. Those who feed upon the sincere milk of the word taste and experience most of his grace. In our converses with his word we should endeavour always to understand and experience more and more of his grace.
 
-## The Living Stone; Cautions against Sensuality. (a. d. 66.)
+## The Living Stone; Cautions against Sensuality (66 AD)
 
 > **⁴** To whom coming, *as unto* a living stone, disallowed indeed of men, but chosen of God, *and* precious,  
 > **⁵** Ye also, as lively stones, are built up a spiritual house, an holy priesthood, to offer up spiritual sacrifices, acceptable to God by Jesus Christ.  
@@ -60,7 +60,7 @@ V\. He warns them to beware of fleshly lusts, 1Pe 2:11. Even the best of men, *t
 
 VI\. He exhorts them further to adorn their profession by an honest conversation. Their conversation in every turn, every instance, and every action of their lives, ought to be honest; that is, good, lovely, decent, amiable, and without blame: and that because they lived among the Gentiles, people of another religion, and who were inveterate enemies to them, who did already slander them and constantly spoke evil of them *as of evil-doers.* "A clean, just, good conversation may not only stop their mouths, but may possibly be a means to bring them to glorify God, and turn to you, when they shall see you excel all others in good works. They now call you evil-doers; vindicate yourselves by good works, this is the way to convince them. There is a day of visitation coming, wherein God may call them by his word and his grace to repentance; and then they will glorify God, and applaud you, for your excellent conversation, Lu 1:68. When the gospel shall come among them, and take effect, a good conversation will encourage them in their conversion, but an evil one will obstruct it." Note, 1. A Christian profession should be attended with an honest conversation, Php 4:8. 2. It is the common lot of the best Christians to be evil spoken of by wicked men. 3. Those that are under God's gracious visitation immediately change their opinion of good people, glorifying God and commending those whom before they railed at as evil-doers.
 
-## Submission to Magistrates; Various Exhortations; Christ's Example as a Sufferer. (a. d. 66.)
+## Submission to Magistrates; Various Exhortations; Christ's Example as a Sufferer (66 AD)
 
 > **¹³** Submit yourselves to every ordinance of man for the Lord's sake: whether it be to the king, as supreme;  
 > **¹⁴** Or unto governors, as unto them that are sent by him for the punishment of evildoers, and for the praise of them that do well.  

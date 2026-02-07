@@ -6,7 +6,7 @@ weight: 11
 
 The apostle having, in the close of the foregoing chapter, recommended the grace of faith and a life of faith as the best preservative against apostasy, he how enlarges upon the nature and fruits of this excellent grace. I. The nature of it, and the honour it reflects upon all who live in the exercise of it, Heb 11:1-3. II. The great examples we have in the Old Testament of those who lived by faith, and died and suffered extraordinary things by the strength of his grace, Heb 11:4-38. And, III. The advantages that we have in the gospel for the exercise of this grace above what those had who lived in the times of the Old Testament, Heb 11:39,40.
 
-## The Nature of Faith. (a. d. 62.)
+## The Nature of Faith (62 AD)
 
 > **¹** Now faith is the substance of things hoped for, the evidence of things not seen.  
 > **²** For by it the elders obtained a good report.  
@@ -18,7 +18,7 @@ II\. An account of the honour it reflects upon all those who have lived in the e
 
 III\. We have here one of the first acts and articles of faith, which has a great influence on all the rest, and which is common to all believers in every age and part of the world, namely, the creation of the *worlds by the word of God,* not out of pre-existent matter, but out of nothing, Heb 11:3. The grace of faith has a retrospect as well as prospect; it looks not only forward to the end of the world, but back to the beginning of the world. By faith we understand much more of the formation of the world than ever could be understood by the naked eye of natural reason. Faith is not a force upon the understanding, but a friend and a help to it. Now what does faith give us to understand concerning *the worlds,* that is, the upper, middle, and lower regions of the universe? 1. *That these worlds were* not eternal, nor did they produce themselves, but they were made by another. 2. That the maker of the worlds is god; he is the maker of all things; and whoever is so must be God. 3. That he made the world with great exactness; it was a *framed* work, in every thing duly adapted and disposed to answer its end, and to express the perfections of the Creator. 4. That God made the world by his word, that is, by his essential wisdom and eternal Son, and by his active will, saying, *Let it be done, and it was done,* Ps 33:9. 5. That the world was thus framed out of nothing, out of no pre-existent matter, contrary to the received maxim, that "out of nothing nothing can be made," which, though true of created power, can have no place with God, who can call *things that are not as if they were,* and command them into being. These things we understand by faith. The Bible gives us the truest and most exact account of the origin of all things, and we are to believe it, and not to wrest or run down the scripture-account of the creation, because it does not suit with some fantastic hypotheses of our own, which has been in some learned but conceited men the first remarkable step towards infidelity, and has led them into many more.
 
-## Exemplars of Faith. (a. d. 62.)
+## Exemplars of Faith (62 AD)
 
 > **⁴** By faith Abel offered unto God a more excellent sacrifice than Cain, by which he obtained witness that he was righteous, God testifying of his gifts: and by it he being dead yet speaketh.  
 > **⁵** By faith Enoch was translated that he should not see death; and was not found, because God had translated him: for before his translation he had this testimony, that he pleased God.  
@@ -175,7 +175,7 @@ XV\. The next instance is the faith of Rahab, Heb 11:31. Among the noble army of
 
 2\. What she did by her faith: *She received the spies in peace,* the men that Joshua had sent to spy out Jericho, Jos 2:6,7. She not only bade them welcome, but she concealed them from their enemies who sought to cut them off, and she made a noble confession of her faith, Jos 2:9-11. She engaged them to covenant with her to show favour to her and hers, when God should show kindness to them, and that they would give her a sign, which they did, a line of scarlet, which she was to hang forth out of the window; she sent them away with prudent and friendly advice. Learn here, (1.) True faith will show itself in good works, especially towards the people of God. (2.) Faith will venture all hazards in the cause of God and his people; a true believer will sooner expose his own person than God's interest and people. (3.) A true believer is desirous, not only to be in covenant with God, but in communion with the people of God, and is willing to cast in his lot with them, and to fare as they fare.
 
-## Exemplars of Faith. (a. d. 62.)
+## Exemplars of Faith (62 AD)
 
 > **³²** And what shall I more say? for the time would fail me to tell of Gedeon, and *of* Barak, and *of* Samson, and *of* Jephthae; *of* David also, and Samuel, and *of* the prophets:  
 > **³³** Who through faith subdued kingdoms, wrought righteousness, obtained promises, stopped the mouths of lions,  

@@ -6,8 +6,7 @@ weight: 19
 
 We left Paul in his circuit visiting the churches (Ac 18:23), but we have not forgotten, nor has he, the promise he made to his friends at Ephesus, to return to them, and make some stay there; now this chapter shows us his performance of that promise, his coming to Ephesus, and his continuance there two years; we are here told, I. How he laboured there in the word and doctrine, how he taught some weak believers that had gone no further than John's baptism (Ac 19:1-7), how he taught three months in the synagogue of the Jews (Ac 19:8), and, when he was driven thence, how he taught the Gentiles a long time in a public school (Ac 19:9,10), and how he confirmed his doctrine by miracles, Ac 19:11,12. II. What was the fruit of his labour, particularly among the conjurors, the worst of sinners: some were confounded, that did but make use of his name (Ac 19:13-17), but others were converted, that received and embraced his doctrine, Ac 19:18-20. III. What projects he had of further usefulness (Ac 19:21,22), and what trouble at length he met with at Ephesus from the silversmiths, which forced him thence to pursue the measures he had laid; how a mob was raised by Demetrius to cry up Diana (Ac 19:23-34), and how it was suppressed and dispersed by the town-clerk, Ac 19:35-41.
 
-## Paul at Ephesus.
-
+## Paul at Ephesus
 > **¹** And it came to pass, that, while Apollos was at Corinth, Paul having passed through the upper coasts came to Ephesus: and finding certain disciples,  
 > **²** He said unto them, Have ye received the Holy Ghost since ye believed? And they said unto him, We have not so much as heard whether there be any Holy Ghost.  
 > **³** And he said unto them, Unto what then were ye baptized? And they said, Unto John's baptism.  
@@ -34,8 +33,7 @@ I\. How Paul catechised them. He was told, probably by Aquila and Priscilla, tha
 
 II\. How Paul conferred the extraordinary gifts of the Holy Ghost upon them, Ac 19:6. 1. Paul solemnly *prayed to God* to give them those gifts, signified by his *laying his hands on them,* which was a gesture used in blessing by the patriarchs, especially in conveying the great trust of the promise, as Ge 48:14. The Spirit being the great promise of the New Testament, the apostles conveyed it by the imposition of hands: "The Lord bless thee with that blessing, that blessing of blessings," Isa 44:3. 2. God granted the thing he prayed for: *The Holy Ghost came upon them* in a surprising overpowering manner, and *they spoke with tongues and prophesied,* as the apostles did and the first Gentile converts, Ac 10:44. This was intended to introduce the gospel at Ephesus, and to awaken in the minds of men an expectation of some great things from it; and some think that it was further designed to qualify these twelve men for the work of the ministry, and that these twelve were the elders of Ephesus, to whom Paul committed the care and government of that church. They had the Spirit of prophesy, that they might understand the mysteries of the kingdom of God themselves, and the gift of tongues, that they might preach them to every nation and language. Oh, what a wonderful change was here made on a sudden in these men! those that but just now had *not so much as heard that there was any Holy Ghost* are now themselves filled with the Holy Ghost; for the Spirit, like the wind, blows where and when he listeth.
 
-## Paul at Ephesus.
-
+## Paul at Ephesus
 > **⁸** And he went into the synagogue, and spake boldly for the space of three months, disputing and persuading the things concerning the kingdom of God.  
 > **⁹** But when divers were hardened, and believed not, but spake evil of that way before the multitude, he departed from them, and separated the disciples, disputing daily in the school of one Tyrannus.  
 > **¹⁰** And this continued by the space of two years; so that all they which dwelt in Asia heard the word of the Lord Jesus, both Jews and Greeks.  
@@ -70,8 +68,7 @@ III\. God confirmed Paul's doctrine by miracles, which awakened people's enquiri
 
 3\. He not only cured the sick that were brought to him, or to whom he was brought, but *from his body were brought to the sick handkerchiefs or aprons;* they got Paul's handkerchiefs, or his aprons, that is, say some, the aprons he wore when he worked at his trade, and the application of them to the sick cured them immediately. Or, they brought the sick people's handkerchiefs, or their girdles, or caps, or head-dresses, and laid them for awhile to Paul's body, and then took them to the sick. The former is more probable. Now was fulfilled that word of Christ to his disciples, *Greater works than these shall you do.* We read of one that was cured by the touch of Christ's garment when it was upon him, and he perceived that *virtue went out of him;* but here were people cured by Paul's garments when they were taken from him. Christ gave his apostles power *against unclean spirits and against all manner of sickness* (Mt 10:1), and accordingly we find here that those to whom Paul sent relief had it in both those cases: *for the diseases departed from them* and the *evil spirits went out of them,* which were both significant of the great design and blessed effect of the gospel, and the healing of spiritual disease, and freeing the souls of men from the power and dominion of Satan.
 
-## The Disgrace of the Exorcists.
-
+## The Disgrace of the Exorcists
 > **¹³** Then certain of the vagabond Jews, exorcists, took upon them to call over them which had evil spirits the name of the Lord Jesus, saying, We adjure you by Jesus whom Paul preacheth.  
 > **¹⁴** And there were seven sons of *one* Sceva, a Jew, *and* chief of the priests, which did so.  
 > **¹⁵** And the evil spirit answered and said, Jesus I know, and Paul I know; but who are ye?  
@@ -103,8 +100,7 @@ II\. Here is the conversion of others of Satan's servants, with the evidences of
 
 III\. Here is a general account of the progress and success of the gospel in and about Ephesus (Ac 19:20): *So mightily grew the word of God, and prevailed.* It is a blessed sight to see the word of God growing and prevailing mightily, as it did here. 1. To see it grow extensively, by the addition of many to the church. When still more and more are wrought upon by the gospel, and wrought up into a conformity to it, then it grows; when those that were least likely to yield to it, and that had been most stiff in their opposition to it, are captivated and brought into obedience to it, then it may be said to *grow mightily.* 2. To see it prevail extensively, by the advancement in knowledge and grace of those that are added to the church; when strong corruptions are mortified, vicious habits changed, evil customs of long standing broken off, and pleasant, gainful, fashionable sins are abandoned, then it prevails mightily; and Christ in it goes on conquering and to conquer.
 
-## The Tumult at Ephesus.
-
+## The Tumult at Ephesus
 > **²¹** After these things were ended, Paul purposed in the spirit, when he had passed through Macedonia and Achaia, to go to Jerusalem, saying, After I have been there, I must also see Rome.  
 > **²²** So he sent into Macedonia two of them that ministered unto him, Timotheus and Erastus; but he himself stayed in Asia for a season.  
 > **²³** And the same time there arose no small stir about that way.  

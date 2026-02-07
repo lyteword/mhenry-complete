@@ -6,7 +6,7 @@ weight: 5
 
 In this chapter the apostle continues his discourse upon the priesthood of Christ, a sweet subject, which he would not too soon dismiss. And here, I. He explains the nature of the priestly office in general, Heb 5:1-3. II. The proper and regular call there must be to this office, Heb 5:4-6. III. The requisite qualifications for the work, Heb 5:7-9. IV. The peculiar order of the priesthood of Christ; it was not after the order of Aaron, but of Melchisedec, Heb 5:6,7,10. V. He reproves the Hebrews, that they had not made those improvements in knowledge which might have made them capable of looking into the more abstruse and mysterious parts of scripture, Heb 5:11-14.
 
-## The Priesthood of Christ. (a. d. 62.)
+## The Priesthood of Christ (62 AD)
 
 > **¹** For every high priest taken from among men is ordained for men in things *pertaining* to God, that he may offer both gifts and sacrifices for sins:  
 > **²** Who can have compassion on the ignorant, and on them that are out of the way; for that he himself also is compassed with infirmity.  
@@ -52,7 +52,7 @@ VIII\. We have an account of Christ's discharge of this his office, and of the c
 
 (2.) By these his sufferings he was made perfect, and became the author of eternal salvation to all who obey him, Heb 5:9. [1.] Christ by his sufferings was consecrated to his office, consecrated by his own blood. [2.] By his sufferings he consummated that part of his office which was to be performed on earth, making reconciliation for iniquity; and in this sense he is said to be *made perfect,* a perfect propitiation. [3.] Hereby he has become the author of eternal salvation to men; he has by his sufferings purchased a full deliverance from sin and misery, and a full fruition of holiness and happiness for his people. Of this salvation he has given notice in the gospel; he has made a tender of it in the new covenant, and has sent the Spirit to enable men to accept this salvation. [4.] This salvation is actually bestowed on none but those who obey Christ. It is not sufficient that we have some doctrinal knowledge of Christ, or that we make a profession of faith in him, but we must hearken to his word, and obey him. He is exalted to be a prince to rule us, as well as a Saviour to deliver us; and he will be a Saviour to none but to those whom he is a prince, and who are willing that he should reign over them; the rest he will account his enemies, and treat them accordingly. But to those who obey him, devoting themselves to him, denying themselves, and taking up their cross, and following him, he will be the author, *aitios*—the grand cause of their salvation, and they shall own him as such for ever.
 
-## The Priesthood of Christ. (a. d. 62.)
+## The Priesthood of Christ (62 AD)
 
 > **¹⁰** Called of God a high priest after the order of Melchisedec.  
 > **¹¹** Of whom we have many things to say, and hard to be uttered, seeing ye are dull of hearing.  

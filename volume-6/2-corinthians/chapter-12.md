@@ -6,7 +6,7 @@ weight: 12
 
 In this chapter the apostle proceeds in maintaining the honour of his apostleship. He magnified his office when there were those who vilified it. What he says in his own praise was only in his own justification and the necessary defence of the honour of his ministry, the preservation of which was necessary to its success. First, He makes mention of the favour God had shown him, the honour done him, the methods God took to keep him humble, and the use he made of this dispensation, 2Co 12:1-10. Then he addresses himself to the Corinthians, blaming them for what was faulty among them, and giving a large account of his behaviour and kind intentions towards them, 2Co 12:11-21.
 
-## The Apostle's Rapture. (a. d. 57.)
+## The Apostle's Rapture (57 AD)
 
 > **¹** It is not expedient for me doubtless to glory. I will come to visions and revelations of the Lord.  
 > **²** I knew a man in Christ above fourteen years ago, (whether in the body, I cannot tell; or whether out of the body, I cannot tell: God knoweth;) such an one caught up to the third heaven.  
@@ -35,7 +35,7 @@ II\. The apostle gives an account of the methods God took to keep him humble, an
 
 III\. Here is the use which the apostle makes of this dispensation: *He gloried in his infirmities* (2Co 12:9), and took pleasure in them, 2Co 12:10. He does not mean his sinful infirmities (those we have reason to be ashamed of and grieved at), but he means his afflictions, his reproaches, necessities, persecutions, and distresses for Christ's sake, 2Co 12:10. And the reason of his glory and joy on account of these things was this—they were fair opportunities for Christ to manifest the power and sufficiency of his grace resting upon him, by which he had so much experience of the strength of divine grace that he could say, *When I am weak, then am I strong.* This is a Christian paradox: when we are weak in ourselves, then we are strong in the grace of our Lord Jesus Christ; when we see ourselves weak in ourselves, then we go out of ourselves to Christ, and are qualified to receive strength from him, and experience most of the supplies of divine strength and grace.
 
-## Paul's Expostulations. (a. d. 57.)
+## Paul's Expostulations (57 AD)
 
 > **¹¹** I am become a fool in glorying; ye have compelled me: for I ought to have been commended of you: for in nothing am I behind the very chiefest apostles, though I be nothing.  
 > **¹²** Truly the signs of an apostle were wrought among you in all patience, in signs, and wonders, and mighty deeds.  

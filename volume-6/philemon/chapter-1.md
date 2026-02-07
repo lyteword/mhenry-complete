@@ -6,7 +6,7 @@ weight: 1
 
 In this epistle we have, I. The preface, Phm 1:1-7. II. The substance and body of it, Phm 1:8-21. And then the conclusion, Phm 1:22-25.
 
-## Apostolic Salutations; Gratitude on Philemon's Behalf. (a. d. 62.)
+## Apostolic Salutations; Gratitude on Philemon's Behalf (62 AD)
 
 > **¹** Paul, a prisoner of Jesus Christ, and Timothy *our* brother, unto Philemon our dearly beloved, and fellowlabourer,  
 > **²** And to *our* beloved Apphia, and Archippus our fellowsoldier, and to the church in thy house:  
@@ -38,7 +38,7 @@ III\. He expresses the singular and affection he had for him, by thanksgiving an
 
 4\. He adds a reason, both of his prayer and his praises (Phm 1:7): *For "we have great joy and consolation in thy love, because the bowels of the saints are refreshed by thee, brother.* The good thou hast done and still doest is abundant matter of joy and comfort to me and others, who therefore desire you may continue and abound in such good fruits more and more, to God's honour and the credit of religion. *The administration of this service not only supplieth the want of the saints, but is abundant also by many thanksgivings unto God,*" 2Co 9:12.
 
-## The Apostle's Plea for Onesimus; Salutations. (a. d. 62.)
+## The Apostle's Plea for Onesimus; Salutations (62 AD)
 
 > **⁸** Wherefore, though I might be much bold in Christ to enjoin thee that which is convenient,  
 > **⁹** Yet for love's sake I rather beseech *thee,* being such an one as Paul the aged, and now also a prisoner of Jesus Christ.  

@@ -6,7 +6,7 @@ weight: 1
 
 After the introduction (2Th 1:1,2) the apostle begins this epistle with an account of his high esteem for these Thessalonians, 2Th 1:3,4. He then comforts them under their afflictions and persecutions (2Th 1:5-10) and tells them what his prayers were to God for them, 2Th 1:11,12.
 
-## Introduction. (a. d. 52.)
+## Introduction (52 AD)
 
 > **¹** Paul, and Silvanus, and Timotheus, unto the church of the Thessalonians in God our Father and the Lord Jesus Christ:  
 > **²** Grace unto you, and peace, from God our Father and the Lord Jesus Christ.  
@@ -23,7 +23,7 @@ II\. The apostle's expression of the high esteem he had for them. He not only ha
 
 2\. For what he esteemed them and thanked God; namely, the increase of their faith, and love, and patience. In his former epistle (1Th 1:3) he gave thanks for their faith, love, and patience; here he gives thanks for the increase of all those graces, that they were not only true Christians, but growing Christians. Note, Where there is the truth of grace there will be increase of it. *The path of the just is as the shining light, which shines more and more unto the perfect day.* And where there is the increase of grace God must have all the glory of it. We are as much indebted to him for the improvement of grace, and the progress of that good work, as we are for the first work of grace and the very beginning of it. We may be tempted to think that though when we were bad we could not make ourselves good, yet when we are good we can easily make ourselves better; but we have as much dependence on the grace of God for increasing the grace we have as for planting grace when we had it not. The matter of the apostle's thanksgiving and glorying on behalf of the Thessalonians was, (1.) That their faith grew exceedingly, 2Th 1:3. They were more confirmed in the truth of gospel-revelations, confided in gospel-promises, and had lively expectations of another world. The growth of their faith appeared by the works of faith; and, where faith grows, all other graces grow proportionably. (2.) Their charity abounded (2Th 1:3), their love to God and man. Note, Where faith grows love will abound, for faith works by love; and not only the charity of some few of them, but of every one to each other, did abound. There were no such divisions among them as in some other churches. (3.) Their patience as well as faith increased in all their persecutions and tribulations. And patience has then its perfect work when it extends itself to all trials. There were many persecutions which the Thessalonians endured for the sake of righteousness, as well as other troubles which they met with in this calamitous life; yet they endured all these, by faith *seeing him that is invisible,* and looking to the *recompence of reward;* and endured them with patience, not with an insensibility under them, but with patience arising from Christian principles, which kept them quiet and submissive, and afforded them inward strength and support.
 
-## Prospect of Persecuted Saints. (a. d. 52.)
+## Prospect of Persecuted Saints (52 AD)
 
 > **⁵** *Which is* a manifest token of the righteous judgment of God, that ye may be counted worthy of the kingdom of God, for which ye also suffer:  
 > **⁶** Seeing *it is* a righteous thing with God to recompense tribulation to them that trouble you;  
@@ -58,7 +58,7 @@ II\. He tells them next of the future recompence that shall be given to persecut
 
 *Secondly,* It will be a joyful day to some, even to the saints, unto those that believe and obey the gospel. And then the apostle's testimony concerning this day will be confirmed and *believed* (2Th 1:10); in that bright and blessed day, 1. Christ Jesus will be glorified and admired by his saints. They will behold his glory, and admire it with pleasure; they will glorify his grace, and admire the wonders of his power and goodness towards them, and sing hallelujahs to him in that day of his triumph, for their complete victory and happiness. 2. Christ will be glorified and admired in them. His grace and power will then be manifested and magnified, when it shall appear what he has purchased for, and wrought in, and bestowed upon, all those who believe in him. As his wrath and power will be made known in and by the destruction of his enemies, so his grace and power will be magnified in the salvation of his saints. Note, Christ's dealings with those who believe will be what the world one day shall wonder at. Now, they are a wonder to many; but how will they be wondered at in this great and glorious day; or, rather, how will Christ, whose name is Wonderful, be admired, when the mystery of God shall be finished! Christ will not be so much admired in the glorious esteem of angels that he will bring from heaven with him as in the many saints, *the many sons,* that he will bring to glory.
 
-## The Apostle Prayer. (a. d. 52.)
+## The Apostle Prayer (52 AD)
 
 > **¹¹** Wherefore also we pray always for you, that our God would count you worthy of *this* calling, and fulfil all the good pleasure of *his* goodness, and the work of faith with power:  
 > **¹²** That the name of our Lord Jesus Christ may be glorified in you, and ye in him, according to the grace of our God and the Lord Jesus Christ.  

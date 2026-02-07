@@ -6,7 +6,7 @@ weight: 9
 
 In this chapter the apostle seems to excuse his earnestness in pressing the Corinthians to the duty of charity (2Co 9:1-5), and proceeds to give directions about the acceptable way and manner of performing it, namely, bountifully, deliberately, and freely; and gives good encouragement for so doing, 2Co 9:6-15.
 
-## Charity Urged. (a. d. 57.)
+## Charity Urged (57 AD)
 
 > **¹** For as touching the ministering to the saints, it is superfluous for me to write to you:  
 > **²** For I know the forwardness of your mind, for which I boast of you to them of Macedonia, that Achaia was ready a year ago; and your zeal hath provoked very many.  
@@ -20,7 +20,7 @@ I\. He tells them it was needless to press them with further arguments to afford
 
 II\. He seems to apologize for sending Titus and the other brethren to them. He is unwilling they should be offended at him for this, as if he were too earnest, and pressed too hard upon them; and tells the true reasons why he sent them, namely, 1. That, having this timely notice, they might be fully ready (2Co 9:3), and not surprised with hasty demands, when he should come to them. When we would have others to do that which is good we must act towards them prudently and tenderly, and give them time. 2. That he might not be ashamed of his boasting concerning them, if they should be found unready, 2Co 9:3,4. He intimates that some from Macedonia might *haply come with him:* and, if the collection should not then be made, this would make him, not to say them, ashamed, considering the boasting of the apostle concerning them. Thus careful was he to preserve their reputation and his own. Note, Christians should consult the reputation of their profession, and endeavour to *adorn the doctrine of God our Saviour.*
 
-## Charity Urged. (a. d. 57.)
+## Charity Urged (57 AD)
 
 > **⁶** But this *I say,* He which soweth sparingly shall reap also sparingly; and he which soweth bountifully shall reap also bountifully.  
 > **⁷** Every man according as he purposeth in his heart, *so let him give;* not grudgingly, or of necessity: for God loveth a cheerful giver.  

@@ -6,7 +6,7 @@ weight: 10
 
 There was no place in which the apostle Paul met with more opposition from false apostles than at Corinth; he had many enemies there. Let not any of the ministers of Christ think it strange if they meet with perils, not only from enemies, but from false brethren; for blessed Paul himself did so. Though he was so blameless and inoffensive in all his carriage, so condescending and useful to all, yet there were those who bore him ill-will, who envied him, and did all they could to undermine him, and lesson his interest and reputation. Therefore he vindicates himself from their imputation, and arms the Corinthians against their insinuations. In this chapter the apostle, in a mild and humble manner, asserts the power of his preaching, and to punish offenders, 2Co 10:1-6. He then proceeds to reason the case with the Corinthians, asserting his relation to Christ, and his authority as an apostle of Christ (2Co 10:7-11), and refuses to justify himself, or to act by such rules as the false teachers did, but according to the better rules he had fixed for himself, 2Co 10:12-18.
 
-## The Apostle's Spiritual Authority. (a. d. 57.)
+## The Apostle's Spiritual Authority (57 AD)
 
 > **¹** Now I Paul myself beseech you by the meekness and gentleness of Christ, who in presence *am* base among you, but being absent am bold toward you:  
 > **²** But I beseech *you,* that I may not be bold when I am present with that confidence, wherewith I think to be bold against some, which think of us as if we walked according to the flesh.  
@@ -27,7 +27,7 @@ II\. He asserts the power of his preaching and his power to punish offenders.
 
 2\. The apostle's power to punish offenders (and that in an extraordinary manner) is asserted in 2Co 10:6. The apostle was a prime-minister in the kingdom of Christ, and chief officer in his army, and *had in readiness* (that is, he had power and authority at hand) *to revenge all disobedience,* or to punish offenders in a most exemplary and extraordinary manner. The apostle speaks not of personal revenge, but of punishing disobedience to the gospel, and disorderly walking among church-members, by inflicting church-censures. Note, Though the apostle showed meekness and gentleness, yet he would not betray his authority; and therefore intimates that when he would commend those whose obedience was fulfilled or manifested others would fall under severe censures.
 
-## The Apostle's Spiritual Authority. (a. d. 57.)
+## The Apostle's Spiritual Authority (57 AD)
 
 > **⁷** Do ye look on things after the outward appearance? If any man trust to himself that he is Christ's, let him of himself think this again, that, as he *is* Christ's, even so *are* we Christ's.  
 > **⁸** For though I should boast somewhat more of our authority, which the Lord hath given us for edification, and not for your destruction, I should not be ashamed:  
@@ -41,7 +41,7 @@ I\. His relation to Christ: *If any man trust to himself that he is Christ's, ev
 
 II\. His authority from Christ as an apostle. This he had mentioned before (2Co 10:6), and now he tells them that he might speak of it again, and that with some sort of boasting, seeing it was a truth, that the *Lord had given it to him,* and it was more than his adversaries could justly pretend to. It was certainly what he should not be ashamed of, 2Co 10:8. Concerning this observe, 1. The nature of his authority: it was for *edification, and not for destruction.* This indeed is the end of all authority, civil and ecclesiastical, and was the end of that extraordinary authority which the apostles had, and of all church-discipline. 2. The caution with which he speaks of his authority, professing that his design was not to terrify them with big words, nor by angry letters, 2Co 10:9. Thus he seems to obviate an objection that might have been formed against him, 2Co 10:10. But the apostle declares he did not intend to frighten those who were obedient, nor did he write any thing in his letters that he was not able to make good by deeds against the disobedient; and he would have his adversaries *know this* (2Co 10:11), that he would, by the exercise of his apostolical power committed to him, make it appear to have a real efficacy.
 
-## The Apostle Asserts His Claims. (a. d. 57.)
+## The Apostle Asserts His Claims (57 AD)
 
 > **¹²** For we dare not make ourselves of the number, or compare ourselves with some that commend themselves: but they measuring themselves by themselves, and comparing themselves among themselves, are not wise.  
 > **¹³** But we will not boast of things without *our* measure, but according to the measure of the rule which God hath distributed to us, a measure to reach even unto you.  

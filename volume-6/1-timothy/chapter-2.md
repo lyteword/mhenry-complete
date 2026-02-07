@@ -6,7 +6,7 @@ weight: 2
 
 In this chapter Paul treats, I. Of prayer, with many reasons for it, 1Ti 2:1-8. II. Of women's apparel, 1Ti 2:9,10. III. Of their subjection, with the reasons of it, 1Ti 2:11-14. IV. A promise given for their encouragement in child-bearing, 1Ti 2:15.
 
-## Universal Prayer Recommended. (a. d. 64.)
+## Universal Prayer Recommended (64 AD)
 
 > **¹** I exhort therefore, that, first of all, supplications, prayers, intercessions, *and* giving of thanks, be made for all men;  
 > **²** For kings, and *for* all that are in authority; that we may lead a quiet and peaceable life in all godliness and honesty.  
@@ -27,7 +27,7 @@ II\. As a reason why we should in our prayers concern ourselves for all men, he 
 
 III\. A direction how to pray, 1Ti 2:8. 1. Now, under the gospel, prayer is not to be confined to any one particular house of prayer, but men must pray every where: no place is amiss for prayer, no place more acceptable to God than another, Joh 4:21. *Pray every where.* We must pray in our closets, pray in our families, pray at our meals, pray when we are on journeys, and pray in the solemn assemblies, whether more public or private. 2. It is the will of God that in prayer we should lift up holy hands: *Lifting up holy hands,* or pure hands, pure from the pollution of sin, washed in the fountain opened for sin and uncleanness. *I will wash my hands,* etc., Ps 26:6. 3. We must pray in charity: *Without wrath,* or malice, or anger at any person. 4. We must pray in faith *without doubting* (Jam 1:6), or, as some read it, *without disputing,* and then it falls under the head of charity.
 
-## Paul's Charge to Females. (a. d. 64.)
+## Paul's Charge to Females (64 AD)
 
 > **⁹** In like manner also, that women adorn themselves in modest apparel, with shamefacedness and sobriety; not with broided hair, or gold, or pearls, or costly array;  
 > **¹⁰** But (which becometh women professing godliness) with good works.  

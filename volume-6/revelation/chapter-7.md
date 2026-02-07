@@ -6,7 +6,7 @@ weight: 7
 
 The things contained in this chapter came in after the opening of the six seals, which foretold great calamities in the world; and before the sound of the seven trumpets, which gave notice of great corruptions arising in the church: between these comes in this comfortable chapter, which secures the graces and comforts of the people of God in times of common calamity. We have, I. An account of the restraint laid upon the winds, Re 7:1-3. II. The sealing of the servants of God, Re 7:4-8. III. The songs of angels and saints on this occasion, Re 7:9-12. IV. A description of the honour and happiness of those who had faithfully served Christ, and suffered for him, Re 7:13-17, etc.
 
-## The Vision of Heaven. (a. d. 95.)
+## The Vision of Heaven (95 AD)
 
 > **¹** And after these things I saw four angels standing on the four corners of the earth, holding the four winds of the earth, that the wind should not blow on the earth, nor on the sea, nor on any tree.  
 > **²** And I saw another angel ascending from the east, having the seal of the living God: and he cried with a loud voice to the four angels, to whom it was given to hurt the earth and the sea,  
@@ -31,7 +31,7 @@ III\. We have the songs of saints and angels on this occasion, Re 7:9-12, where 
 
 2\. Here is the song of the angels (Re 7:11,12), where observe, (1.) Their station—*before the throne of God,* attending on him, and about the saints, ready to serve them. (2.) Their posture, which is very humble, and expressive of the greatest reverence: *They fell before the throne on their faces, and worshipped God.* Behold the most excellent of all the creatures, who never sinned, who are before him continually, not only covering their faces, but falling down on their faces before the Lord! What humility then, and what profound reverence, become us vile frail creatures, when we come into the presence of God! We should fall down before him; there should be both a reverential frame of spirit and a humble behaviour in all our addresses to God (3.) Their praises. They consented to the praises of the saints, said their *Amen* thereto; there is in heaven a perfect harmony between the angels and saints; and then they added more of their own, *saying, Blessing, and glory, and wisdom, and thanksgiving, and honour, and power, and might, be unto our God for ever and ever. Amen.* Here, [1.] They acknowledge the glorious attributes of God—his wisdom, his power, and his might. [2.] They declare that for these his divine perfections he ought to be blessed, and praised, and glorified, to all eternity; and they confirm it by their *Amen.* We see what is the work of heaven, and we ought to begin it now, to get our hearts tuned for it, to be much in it, and to long for that world where our praises, as well as happiness, will be perfected.
 
-## Honour and Happiness of the Saints. (a. d. 95.)
+## Honour and Happiness of the Saints (95 AD)
 
 > **¹³** And one of the elders answered, saying unto me, What are these which are arrayed in white robes? and whence came they?  
 > **¹⁴** And I said unto him, Sir, thou knowest. And he said to me, These are they which came out of great tribulation, and have washed their robes, and made them white in the blood of the Lamb.  

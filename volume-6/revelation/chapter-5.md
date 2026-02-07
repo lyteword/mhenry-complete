@@ -6,7 +6,7 @@ weight: 5
 
 In the foregoing chapter the prophetical scene was opened, in the sight and hearing of the apostle, and he had a sight of God the Creator and ruler of the world, and the great King of the church. He saw God on the throne of glory and government, surrounded with his holy ones, and receiving their adorations. Now the counsels and decrees of God are set before the apostle, as in a book, which God held in his right hand; and this book is represented, I. As sealed in the hand of God, Re 5:1-9. II. As taken into the hand of Christ the Redeemer, to be unsealed and opened, Re 5:6-14.
 
-## The Sealed Book. (a. d. 95.)
+## The Sealed Book (95 AD)
 
 > **¹** And I saw in the right hand of him that sat on the throne a book written within and on the backside, sealed with seven seals.  
 > **²** And I saw a strong angel proclaiming with a loud voice, Who is worthy to open the book, and to loose the seals thereof?  
@@ -24,7 +24,7 @@ III\. He felt a great concern in himself about this matter: the apostle *wept mu
 
 IV\. The apostle was comforted and encouraged to hope this sealed book would yet be opened. Here observe, 1. Who it was that gave John the hint: *One of the elders.* God had revealed it to his church. If angels do not refuse to learn from the church, ministers should not disdain to do it. God can make his people to instruct and inform their teachers when he pleases. 2. Who it was that would do the thing—the Lord Jesus Christ, called *the lion of the tribe of Judah,* according to his human nature, alluding to Jacob's prophecy (Ge 49:10), and *the root of David* according to his divine nature, though a branch of David according to the flesh. He who is a middle person, God and man, and bears the office of Mediator between God and man, is fit and worthy to open and execute all the counsels of God towards men. And this he does in his mediatorial state and capacity, *as the root of David and the offspring of Judah,* and as the King and head of the Israel of God; and he will do it, to the consolation and joy of all his people.
 
-## The Sealed Book. (a. d. 95.)
+## The Sealed Book (95 AD)
 
 > **⁶** And I beheld, and, lo, in the midst of the throne and of the four beasts, and in the midst of the elders, stood a Lamb as it had been slain, having seven horns and seven eyes, which are the seven Spirits of God sent forth into all the earth.  
 > **⁷** And he came and took the book out of the right hand of him that sat upon the throne.  

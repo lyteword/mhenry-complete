@@ -6,7 +6,7 @@ weight: 3
 
 In the close of the foregoing chapter, the apostle had prayed earnestly for the Thessalonians, and now he desires their prayers, encouraging them to trust in God, to which he subjoins another petition for them, 2Th 3:1-5. He then proceeds to give them commands and directions for correcting some things he was informed were amiss among them (2Th 3:6-15) and concludes with benedictions and prayers, 2Th 3:16-18.
 
-## The Apostle's Pious Request. (a. d. 52.)
+## The Apostle's Pious Request (52 AD)
 
 > **¹** Finally, brethren, pray for us, that the word of the Lord may have *free* course, and be glorified, even as *it is* with you:  
 > **²** And that we may be delivered from unreasonable and wicked men: for all *men* have not faith.  
@@ -28,7 +28,7 @@ II\. He encourages them to trust in God. We should not only pray to God for his 
 
 III\. He makes a short prayer for them, 2Th 3:5. It is a prayer for spiritual blessings. Two things of the greatest importance the apostle prays for:—1. That their hearts may be brought into the love of God, to be in love with God as the most excellent and amiable Being, the best of all beings; and this is not only most reasonable and necessary in order to our happiness, but is our happiness itself; it is a great part of the happiness of heaven itself, where this love shall be made perfect. We can never attain to this unless God by his grace direct our hearts aright, for our love is apt to go astray after other things. Note, We sustain a great deal of damage by misplacing our affections; it is our sin and our misery that we place our affections upon wrong objects. If God directs our love aright upon himself, the rest of the affections will thereby be rectified. 2. That a *patient waiting for Christ* may be joined with this love of God. There is no true love of God without faith in Jesus Christ. We must wait for Christ, which supposes our faith in him, that we believe he came once in flesh and will come again in glory: and we must expect this second coming of Christ, and be careful to get ready for it; there must be a patient waiting, enduring with courage and constancy all that we may meet with in the mean time: and we *have need of patience,* and need of divine grace to exercise Christian patience, the *patience of Christ* (as some read the word), patience for Christ's sake and after Christ's example.
 
-## Cautions to the Disorderly. (a. d. 52.)
+## Cautions to the Disorderly (52 AD)
 
 > **⁶** Now we command you, brethren, in the name of our Lord Jesus Christ, that ye withdraw yourselves from every brother that walketh disorderly, and not after the tradition which he received of us.  
 > **⁷** For yourselves know how ye ought to follow us: for we behaved not ourselves disorderly among you;  
@@ -61,7 +61,7 @@ II\. The good laws which were occasioned by these evil manners, concerning which
 
 (3.) He exhorts *those that did well not to* be *weary in well-doing* (2Th 3:13); as if he had said, "Go on and prosper. The Lord is with you while you are with him. See that whatever you do, that is good, you persevere therein. Hold on your way, and hold out to the end. You must never give over, nor tire in your work. It will be time enough to rest when you come to heaven, that *everlasting rest which remains for the people of God.*"
 
-## Apostolic Benediction. (a. d. 52.)
+## Apostolic Benediction (52 AD)
 
 > **¹⁶** Now the Lord of peace himself give you peace always by all means. The Lord *be* with you all.  
 > **¹⁷** The salutation of Paul with mine own hand, which is the token in every epistle: so I write.  

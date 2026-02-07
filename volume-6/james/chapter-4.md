@@ -6,7 +6,7 @@ weight: 4
 
 In this chapter we are directed to consider, I. Some causes of contention, besides those mentioned in the foregoing chapter, and to watch against them, Jam 4:1-5. II. We are taught to abandon the friendship of this world, so as to submit and subject ourselves entirely to God, Jam 4:4-10. III. All detraction and rash judgment of others are to be carefully avoided, Jam 4:11,12. IV. We must preserve a constant regard, and pay the utmost deference to the disposals of divine Providence, Jam 4:13-17.
 
-## Origin of War and Contention; Against Pride; Submission to God. (a. d. 61.)
+## Origin of War and Contention; Against Pride; Submission to God (61 AD)
 
 > **¹** From whence *come* wars and fightings among you? *come they* not hence, *even* of your lusts that war in your members?  
 > **²** Ye lust, and have not: ye kill, and desire to have, and cannot obtain: ye fight and war, yet ye have not, because ye ask not.  
@@ -33,7 +33,7 @@ V\. We are directed how to act towards God, in our becoming submissive to him, J
 
 VI\. We have great encouragement to act thus towards God: *He will draw nigh to those that draw nigh to him* (Jam 4:8), *and he will lift up* those who humble themselves in his sight, Jam 4:10. Those that draw nigh to God in a way of duty shall find God drawing nigh to them in a way of mercy. Draw nigh to him in faith, and trust, and obedience, and he will draw nigh to you for your deliverance. If there be not a close communion between God and us, it is our fault, and not his. *He shall lift up the humble.* Thus much our Lord himself declared, *He that shall humble himself shall be exalted,* Mt 23:12. If we be truly penitent and humble under the marks of God's displeasure, we shall in a little time know the advantages of his favour; he will lift us up out of trouble, or he will lift us up in our spirits and comforts under trouble; he will lift us up to honour and safety in the world, or he will lift us up in our way to heaven, so as to raise our hearts and affections above the world. *God will revive the spirit of the humble* (Isa 57:15), *He will hear the desire of the humble* (Ps 10:17), and he will at last life them up to glory. *Before honour is humility.* The highest honour in heaven will be the reward of the greatest humility on earth.
 
-## Caution against Slander; Caution against Presumption. (a. d. 61.)
+## Caution against Slander; Caution against Presumption (61 AD)
 
 > **¹¹** Speak not evil one of another, brethren. He that speaketh evil of *his* brother, and judgeth his brother, speaketh evil of the law, and judgeth the law: but if thou judge the law, thou art not a doer of the law, but a judge.  
 > **¹²** There is one lawgiver, who is able to save and to destroy: who art thou that judgest another?  

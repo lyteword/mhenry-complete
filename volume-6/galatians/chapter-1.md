@@ -6,7 +6,7 @@ weight: 1
 
 In this chapter, after the preface or introduction (Ga 1:1-5), the apostle severely reproves these churches for their defection from the faith (Ga 1:6-9), and then proves his own apostleship, which his enemies had brought them to question, I. From his end and design in preaching the gospel, Ga 1:10. II. From his having received it by immediate revelation, Ga 1:11,12. For the proof of which he acquaints them, 1. What his former conversation was, Ga 1:13,14. 2. How he was converted, and called to the apostleship, Ga 1:15,16. 3. How he behaved himself afterwards, Ga 1:16-24.
 
-## The Introductory Address. (a. d. 56.)
+## The Introductory Address (56 AD)
 
 > **¹** Paul, an apostle, (not of men, neither by man, but by Jesus Christ, and God the Father, who raised him from the dead;)  
 > **²** And all the brethren which are with me, unto the churches of Galatia:  
@@ -24,7 +24,7 @@ III\. The apostolical benediction, Ga 1:3. Herein the apostle, and the brethren 
 
 The apostle, having thus taken notice of the great love wherewith Christ hath loved us, concludes this preface with a solemn ascription of praise and glory to him (Ga 1:5): *To whom be glory for ever and ever. Amen.* Intimating that on this account he is justly entitled to our highest esteem and regard. Or this doxology may be considered as referring both to God the Father and our Lord Jesus Christ, from whom he had just before been wishing grace and peace. They are both the proper objects of our worship and adoration, and all honour and glory are perpetually due to them, both on account of their own infinite excellences, and also on account of the blessings we receive from them.
 
-## The Apostle's Concern at Their Defection. (a. d. 56.)
+## The Apostle's Concern at Their Defection (56 AD)
 
 > **⁶** I marvel that ye are so soon removed from him that called you into the grace of Christ unto another gospel:  
 > **⁷** Which is not another; but there be some that trouble you, and would pervert the gospel of Christ.  
@@ -37,7 +37,7 @@ I\. How much he was concerned at their defection: *I marvel,* etc. It filled him
 
 II\. How confident he was that the gospel he had preached to them was the only true gospel. He was so fully persuaded of this that he pronounced an anathema upon those who pretended to preach any other gospel (Ga 1:8), and, to let them see that this did not proceed from any rashness or intemperate zeal in him, he repeated it, Ga 1:9. This will not justify our thundering out anathemas against those who differ from us in minor things. It is only against those who forge a new gospel, who overturn the foundation of the covenant of grace, by setting up the works of the law in the place of Christ's righteousness, and corrupting Christianity with Judaism, that Paul denounces this. He puts the case: "Suppose we should preach any other gospel; nay, suppose an angel from heaven should:" not as if it were possible for an angel from heaven to be the messenger of a lie; but it is expressed so the more to strengthen what he was about to say. "If you have any other gospel preached to you by any other person, under our name, or under colour of having it from an angel himself, you must conclude that you are imposed upon: and whoever preaches another gospel lays himself under a curse, and is in danger of laying you under it too."
 
-## The Apostle's Integrity. (a. d. 56.)
+## The Apostle's Integrity (56 AD)
 
 > **¹⁰** For do I now persuade men, or God? or do I seek to please men? for if I yet pleased men, I should not be the servant of Christ.  
 > **¹¹** But I certify you, brethren, that the gospel which was preached of me is not after man.  
