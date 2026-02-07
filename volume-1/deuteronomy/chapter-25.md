@@ -6,7 +6,7 @@ weight: 25
 
 Here is, I. A law to moderate the scourging of malefactors, De 25:1-3. II. A law in favour of the ox that treads out the corn, De 25:4. III. For the disgracing of him that refused to marry his brother's widow, De 25:5-10. IV. For the punishment of an immodest woman, De 25:11,12. V. For just weights and measures, De 25:13-16. VI. For the destroying of Amalek, De 25:17-19, etc.
 
-## Stripes Not to Exceed Forty. (b. c. 1451.)
+## Stripes Not to Exceed Forty (1451 BC)
 
 > **¹** If there be a controversy between men, and they come unto judgment, that *the judges* may judge them; then they shall justify the righteous, and condemn the wicked.  
 > **²** And it shall be, if the wicked man *be* worthy to be beaten, that the judge shall cause him to lie down, and to be beaten before his face, according to his fault, by a certain number.  
@@ -17,7 +17,7 @@ Here is, I. A direction to the judges in scourging malefactors, De 25:1-3. 1. It
 
 II\. A charge to husbandmen not to hinder their cattle from eating when they were working, if meat were within their reach, De 25:4. This instance of the beast that trod out the corn (to which there is an allusion in that of the prophet, Ho 10:11) is put for all similar instances. That which makes this law very remarkable above its fellows (and which countenances the like application of other such laws) is that it is twice quoted in the New Testament to show that it is the duty of the people to give their ministers a comfortable maintenance, 1Co 9:9,10, and 1Ti 5:17,18. It teaches us in the letter of it to make much of the brute-creatures that serve us, and to allow them not only the necessary supports for their life, but the advantages of their labour; and thus we must learn not only to be just, but kind, to all that are employed for our good, not only to maintain but to encourage them, especially those that labour among us in the word and doctrine, and so are employed for the good of our better part.
 
-## Marriage of a Brother's Wife. (b. c. 1451.)
+## Marriage of a Brother's Wife (1451 BC)
 
 > **⁵** If brethren dwell together, and one of them die, and have no child, the wife of the dead shall not marry without unto a stranger: her husband's brother shall go in unto her, and take her to him to wife, and perform the duty of a husband's brother unto her.  
 > **⁶** And it shall be, *that* the firstborn which she beareth shall succeed in the name of his brother *which is* dead, that his name be not put out of Israel.  
@@ -32,7 +32,7 @@ Here is, I. The law settled concerning the marrying of the brother's widow. It a
 
 II\. A law for the punishing of an immodest woman, De 25:11,12. The woman that by the foregoing law was to complain against her husband's brother for not marrying her, and to spit in his face before the elders, needed a good measure of assurance; but, lest the confidence which that law supported should grow to an excess unbecoming the sex, here is a very severe but just law to punish impudence and immodesty. 1. The instance of it is confessedly scandalous to the highest degree. A woman could not do it unless she were perfectly lost to all virtue and honour. 2. The occasion is such as might in part excuse it; it was to help her husband out of the hands of one that was too hard for him. Now if the doing of it in a passion, and with such a good intention, was to be so severely punished, much more when it was done wantonly and in lust. 3. The punishment was that her hand should be cut off; and the magistrates must not pretend to be more merciful than God: *Thy eye shall not pity her.* Perhaps our Saviour alludes to this law when he commands us to *cut off the right hand* that *offends us,* or is an occasion of sin to us. Better put the greatest hardships that can be upon the body than ruin the soul for ever. Modesty is the hedge of chastity, and therefore ought to be very carefully preserved and kept up by both sexes.
 
-## Amalek to Be Destroyed. (b. c. 1451.)
+## Amalek to Be Destroyed (1451 BC)
 
 > **¹³** Thou shalt not have in thy bag divers weights, a great and a small.  
 > **¹⁴** Thou shalt not have in thine house divers measures, a great and a small.  

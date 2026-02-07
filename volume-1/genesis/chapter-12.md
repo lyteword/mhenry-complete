@@ -6,7 +6,7 @@ weight: 12
 
 The pedigree and family of Abram we had an account of in the foregoing chapter; here the Holy Ghost enters upon his story, and henceforward Abram and his seed are almost the only subject of the sacred history. In this chapter we have, I. God's call of Abram to the land of Canaan, Ge 12:1-3. II. Abram's obedience to this call, Ge 12:4,5. III. His welcome to the land of Canaan, Ge 12:6-9. IV. His journey to Egypt, with an account of what happened to him there. Abram's flight and fault, Ge 12:10-13. Sarai's danger and deliverance, Ge 12:14-20.
 
-## The Call of Abram. (b. c. 1921.)
+## The Call of Abram (1921 BC)
 
 > **¹** Now the LORD had said unto Abram, Get thee out of thy country, and from thy kindred, and from thy father's house, unto a land that I will show thee:  
 > **²** And I will make of thee a great nation, and I will bless thee, and make thy name great; and thou shalt be a blessing:  
@@ -34,7 +34,7 @@ II\. Here is an encouraging promise, nay, it is a complication of promises, many
 
 6\. *In thee shall all the families of the earth be blessed.* This was the promise that crowned all the rest; for it points at the Messiah, in whom *all the promises are yea and amen.* Note, (1.) Jesus Christ is the great blessing of the world, the greatest that ever the world was blessed with. He is a family blessing, by him salvation is brought to the house (Lu 19:9); when we reckon up our family blessings, let us put Christ in the *imprimis—the first place,* as the blessing of blessings. But how are all the families of the earth blessed in Christ, when so many are strangers to him? *Answer,* [1.] All that are blessed are blessed in him, Ac 4:12. [2.] All that believe, of what family soever they shall be, shall be blessed in him. [3.] Some of all the families of the earth are blessed in him. [4.] There are some blessings which all the families of the earth are blessed with in Christ; for the gospel salvation is a *common salvation,* Jude 1:3. (2.) It is a great honour to be related to Christ; this made Abram's name great, that the Messiah was to descend from his loins, much more than that he should be the father of many nations. It was Abram's honour to be his father by nature; it will be ours to be his brethren by grace, Mt 12:50.
 
-## Arrival of Abram in Canaan. (b. c. 1920.)
+## Arrival of Abram in Canaan (1920 BC)
 
 > **⁴** So Abram departed, as the LORD had spoken unto him; and Lot went with him: and Abram *was* seventy and five years old when he departed out of Haran.  
 > **⁵** And Abram took Sarai his wife, and Lot his brother's son, and all their substance that they had gathered, and the souls that they had gotten in Haran; and they went forth to go into the land of Canaan; and into the land of Canaan they came.  
@@ -53,7 +53,7 @@ III\. The company and cargo that he took with him.
 
 IV\. Here is their happy arrival at their journey's end: *They went forth to go into the land of Canaan;* so they did before (Ge 11:31), and then took up short, but now they held on their way, and, by the good hand of their God upon them, to the land of Canaan they came, where by a fresh revelation they were told that this was the land God promised to show them. They were not discouraged by the difficulties they met with in their way, nor diverted by the delights they met with, but *pressed forward.* Note, 1. Those that set out for heaven must persevere to the end, still reaching forth to those things that are before. 2. That which we undertake in obedience to God's command, and a humble attendance upon his providence, will certainly succeed, and end with comfort at last.
 
-## Abram's Devotion. (b. c. 1921.)
+## Abram's Devotion (1921 BC)
 
 > **⁶** And Abram passed through the land unto the place of Sichem, unto the plain of Moreh. And the Canaanite *was* then in the land.  
 > **⁷** And the LORD appeared unto Abram, and said, Unto thy seed will I give this land: and there builded he an altar unto the LORD, who appeared unto him.  
@@ -70,7 +70,7 @@ II\. How much comfort he had in the God he followed; when he could have little s
 
 2\. Abram attended on God in his instituted ordinances. He *built an altar unto the Lord who appeared to him, and called on the name of the Lord,* Ge 12:7,8. Now consider this, (1.) As done upon a special occasion. When God appeared to him, then and there he built an altar, with an eye to the God who appeared to him. Thus he returned God's visit, and kept up his correspondence with heaven, as one that resolved it should not fail on his side; thus he acknowledged, with thankfulness, God's kindness to him in making him that gracious visit and promise; and thus he testified his confidence in and dependence upon the word which God had spoken. Note, An active believer can heartily bless God for a promise the performance of which he does not yet see, and build an altar to the honour of God who appears to him, though he does not yet appear for him. (2.) As his constant practice, whithersoever he removed. As soon as Abram had got to Canaan, though he was but a stranger and sojourner there, yet he set up, and kept up, the worship of God in his family; and wherever he had a tent God had an altar, and that an altar sanctified by prayer. For he not only minded the ceremonial part of religion, the offering of sacrifice, but made conscience of the natural duty of seeking to his God, and calling on his name, that spiritual sacrifice with which God is well pleased. He preached concerning the name of the Lord, that is, he instructed his family and neighbours in the knowledge of the true God and his holy religion. The *souls he had gotten in Haran,* being discipled, must be further taught. Note, Those that would approve themselves the children of faithful Abram, and would inherit the blessing of Abram, must make conscience of keeping up the solemn worship of God, particularly in their families, according to the example of Abram. The way of family worship is a good old way, is no novel invention, but the ancient usage of all the saints. Abram was very rich and had a numerous family, was now unsettled and in the midst of enemies, and yet, wherever he pitched his tent, he built an altar. Wherever we go, let us not fail to take our religion along with us.
 
-## Abram's Removal into Egypt. (b. c. 1920.)
+## Abram's Removal into Egypt (1920 BC)
 
 > **¹⁰** And there was a famine in the land: and Abram went down into Egypt to sojourn there; for the famine *was* grievous in the land.  
 > **¹¹** And it came to pass, when he was come near to enter into Egypt, that he said unto Sarai his wife, Behold now, I know that thou *art* a fair woman to look upon:  
@@ -83,7 +83,7 @@ II\. Abram's removal into Egypt, upon occasion of this famine. See how wisely Go
 
 III\. A great fault which Abram was guilty of, in denying his wife, and pretending that she was his sister. The scripture is impartial in relating the misdeeds of the most celebrated saints, which are recorded, not for our imitation, but for our admonition, that he *who thinks he stands may take heed lest he fall.* 1. His fault was dissembling his relation to Sarai, equivocating concerning it, and teaching his wife, and probably all his attendants, to do so too. What he said was, in a sense, true (Ge 20:12), but with a purpose to deceive; he so concealed a further truth as in effect to deny it, and to expose thereby both his wife and the Egyptians to sin. 2. That which was at the bottom of it was a jealous timorous fancy he had that some of the Egyptians would be so charmed with the beauty of Sarai (Egypt producing few such beauties) that, if they should know he was her husband, they would find some way or other to take him off, that they might marry her. He presumes they would rather be guilty of murder than adultery, such a heinous crime was it then accounted and such a sacred regard was paid to the marriage bond; hence he infers, without any good reason, *They will kill me.* Note, The fear of man brings a snare, and many are driven to sin by the dread of death, Lu 12:4,5. The grace Abram was most eminent for was faith; and yet he thus fell through unbelief and distrust of the divine Providence, even *after God had appeared to him twice.* Alas! what will become of the willows, when the cedars are thus shaken?
 
-## Abram's Denial of His Wife. (b. c. 1920.)
+## Abram's Denial of His Wife (1920 BC)
 
 > **¹⁴** And it came to pass, that, when Abram was come into Egypt, the Egyptians beheld the woman that she *was* very fair.  
 > **¹⁵** The princes also of Pharaoh saw her, and commended her before Pharaoh: and the woman was taken into Pharaoh's house.  

@@ -6,7 +6,7 @@ weight: 4
 
 This chapter, I. Continues and concludes God's discourse with Moses at the bush concerning this great affair of bringing Israel out of Egypt. 1. Moses objects the people's unbelief (Ex 4:1), and God answers that objection by giving him a power to work miracles, (1.) To turn his rod into a serpent, and then into a rod again, Ex 4:2-5. (2.) To make his hand leprous, and then whole again, Ex 4:6-8. (3.) To turn the water into blood, Ex 4:9. 2. Moses objects his own slowness of speech (Ex 4:10), and begs to be excused (Ex 4:13); but God answers this objection, (1.) By promising him his presence, Ex 4:11,12. (2.) By joining Aaron in commission with him, Ex 4:14-16. (3.) By putting an honour upon the very staff in his hand, Ex 4:17. II. It begins Moses's execution of his commission. 1. He obtains leave of his father-in-law to return into Egypt, Ex 4:18. 2. He receives further instructions and encouragements from God, Ex 4:19,21-23. 3. He hastens his departure, and takes his family with him, Ex 4:20. 4. He meets with some difficulty in the way about the circumcising of his son, Ex 4:24-26. 5. He has the satisfaction of meeting his brother Aaron, Ex 4:27,28. 6. He produces his commission before the elders of Israel, to their great joy, Ex 4:29-31. And thus the wheels were set a going towards that great deliverance.
 
-## The Objections of Moses Overruled. (b. c. 1491.)
+## The Objections of Moses Overruled (1491 BC)
 
 > **¹** And Moses answered and said, But, behold, they will not believe me, nor hearken unto my voice: for they will say, The LORD hath not appeared unto thee.  
 > **²** And the LORD said unto him, What *is* that in thine hand? And he said, A rod.  
@@ -57,7 +57,7 @@ II\. How God condescends to answer all his excuses. Though *the anger of the Lor
 
 4\. He bids him take the rod with him in his hand (Ex 4:17), to intimate that he must bring about his undertaking rather by acting than by speaking; the signs he should work with this rod might abundantly supply the want of eloquence; one miracle would do him better service than all the rhetoric in the world. *Take this rod,* the rod he carried as a shepherd, that he might not be ashamed of that mean condition out of which God called him. This rod must be his staff of authority, and must be to him in stead both of sword and sceptre.
 
-## Moses Returns in Egypt. (b. c. 1491.)
+## Moses Returns in Egypt (1491 BC)
 
 > **¹⁸** And Moses went and returned to Jethro his father in law, and said unto him, Let me go, I pray thee, and return unto my brethren which *are* in Egypt, and see whether they be yet alive. And Jethro said to Moses, Go in peace.  
 > **¹⁹** And the LORD said unto Moses in Midian, Go, return into Egypt: for all the men are dead which sought thy life.  
@@ -72,7 +72,7 @@ II\. He receives from God further encouragements and directions in his work. Aft
 
 III\. Moses addresses himself to this expedition. When God had assured him (Ex 4:19) that the men were dead who sought his life, immediately it follows (Ex 4:20), *he took his wife, and his sons,* and set out for Egypt. Note, Though corruption may object much against the services God calls us to, yet grace will get the upper hand, and will be obedient to the heavenly vision.
 
-## The Circumcision of the Son of Moses. (b. c. 1491.)
+## The Circumcision of the Son of Moses (1491 BC)
 
 > **²⁴** And it came to pass by the way in the inn, that the LORD met him, and sought to kill him.  
 > **²⁵** Then Zipporah took a sharp stone, and cut off the foreskin of her son, and cast *it* at his feet, and said, Surely a bloody husband *art* thou to me.  

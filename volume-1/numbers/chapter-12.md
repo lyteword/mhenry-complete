@@ -6,7 +6,7 @@ weight: 12
 
 In the foregoing chapter we had the vexation which the people gave to Moses; in this we have his patience tried by his own relations. I. Miriam and Aaron, his own brother and sister, affronted him, Nu 12:1-3. II. God called them to an account for it, Nu 12:4-9. III. Miriam was smitten with a leprosy for it, Nu 12:10. IV. Aaron submits, and Moses meekly intercedes for Miriam, Nu 12:11-13. V. She is healed, but put to shame for seven days, Nu 12:14-16. And this is recorded to show that the best persons and families have both their follies and their crosses.
 
-## Murmuring of Miriam and Aaron. (b. c. 1490.)
+## Murmuring of Miriam and Aaron (1490 BC)
 
 > **¹** And Miriam and Aaron spake against Moses because of the Ethiopian woman whom he had married: for he had married an Ethiopian woman.  
 > **²** And they said, Hath the LORD indeed spoken only by Moses? hath he not spoken also by us? And the LORD heard *it.*  
@@ -33,7 +33,7 @@ Now let Miriam and Aaron consider who it was that they insulted: *Were you not a
 
 III\. God, having thus shown them their fault and folly, next shows them his displeasure (Nu 12:9): *The anger of the Lord was kindled against them,* of which perhaps some sensible indications were given in the change of the colour of the cloud, or some flashes of lightning from it. But indeed it was indication enough of his displeasure that he departed, and would not so much as hear their excuse, for he needed not, *understanding their thoughts afar off;* and thus he would show that he was displeased. Note, The removal of God's presence from us is the surest and saddest token of God's displeasure against us. Woe unto us if he depart; and he never departs till we by our sin and folly drive him from us.
 
-## Miriam Smitten with Leprosy. (b. c. 1490.)
+## Miriam Smitten with Leprosy (1490 BC)
 
 > **¹⁰** And the cloud departed from off the tabernacle; and, behold, Miriam *became* leprous, *white* as snow: and Aaron looked upon Miriam, and, behold, *she was* leprous.  
 > **¹¹** And Aaron said unto Moses, Alas, my lord, I beseech thee, lay not the sin upon us, wherein we have done foolishly, and wherein we have sinned.  

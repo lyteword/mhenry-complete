@@ -6,7 +6,7 @@ weight: 24
 
 Moses, as mediator between God and Israel, having received divers laws and ordinances from God privately in the three foregoing chapters, in this chapter, I. Comes down to the people, acquaints them with the laws he had received, and takes their consent to those laws (Ex 24:3), writes the laws, and reads them to the people, who repeat their consent (Ex 24:4-7), and then by sacrifice, and the sprinkling of blood, ratifies the covenant between them and God, Ex 24:5,6,8. II. He returns to God again, to receive further directions. When he was dismissed from his former attendance, he was ordered to attend again, Ex 24:1,2. He did so with seventy of the elders, to whom God made a discovery of his glory, Ex 24:9-11. Moses is ordered up into the mount (Ex 24:12,13); the rest are ordered down to the people, Ex 24:14. The cloud of glory is seen by all the people on the top of Mount Sinai (Ex 24:15-17), and Moses is therewith God forty days and forty nights, Ex 24:18.
 
-## Israel's Acceptance of the Laws. (b. c. 1491.)
+## Israel's Acceptance of the Laws (1491 BC)
 
 > **¹** And he said unto Moses, Come up unto the LORD, thou, and Aaron, Nadab, and Abihu, and seventy of the elders of Israel; and worship ye afar off.  
 > **²** And Moses alone shall come near the LORD: but they shall not come nigh; neither shall the people go up with him.  
@@ -35,7 +35,7 @@ This is the tenour of the covenant, That, if they would observe the foregoing pr
 
 (2.) Preparation being thus made, the ratifications were very solemnly exchanged. [1.] The blood of the sacrifice which the people offered was (part of it) sprinkled upon the altar (Ex 24:6), which signifies the people's dedicating themselves, their lives, and beings, to God, and to his honour. In the blood (which is the life) of the dead sacrifices all the Israelites were presented unto God as living sacrifices, Ro 12:1. [2.] The blood of the sacrifice which God had owned and accepted was (the remainder of it) sprinkled either upon the people themselves (Ex 24:8) or upon the pillars that represented them, which signified God's graciously conferring his favour upon them and all the fruits of that favour, and his giving them all the gifts they could expect or desire from a God reconciled to them and in covenant with them by sacrifice. This part of the ceremony was thus explained: "*Behold the blood of the covenant;* see here how God has sealed to you to be a people; his promises to you, and yours to him, are both *yea and amen.*" Thus our Lord Jesus, the Mediator of the new covenant (of whom Moses was a type), having offered up himself a sacrifice upon the cross, that his blood might be indeed the blood of the covenant, sprinkled it upon the altar in his intercession (Heb 9:12), and sprinkles it upon his church by his word and ordinances and the influences and operations of the Spirit of promise, by whom we are sealed. He himself seemed to allude to this solemnity when, in the institution of the Lord's supper, he said, *This cup is the New Testament* (or covenant) *in my blood.* Compare with this, Heb 9:19,20.
 
-## A Manifestation of God. (b. c. 1491.)
+## A Manifestation of God (1491 BC)
 
 > **⁹** Then went up Moses, and Aaron, Nadab, and Abihu, and seventy of the elders of Israel:  
 > **¹⁰** And they saw the God of Israel: and *there was* under his feet as it were a paved work of a sapphire stone, and as it were the body of heaven in *his* clearness.  

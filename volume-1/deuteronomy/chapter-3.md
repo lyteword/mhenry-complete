@@ -6,7 +6,7 @@ weight: 3
 
 Moses, in this chapter, relates, I. The conquest of Og, king of Bashan, and the seizing of his country, De 3:1-11. II. The distribution of these new conquests to the two tribes and a half, De 3:12-17. Under certain provisos and limitations, De 3:18-20. III. The encouragement given to Joshua to carry on the war which was so gloriously begun, De 3:21,22. IV. Moses's request to go over into Canaan (De 3:23-25), with the denial of that request, but the grant of an equivalent, De 3:26-29, etc.
 
-## Sihon and Og Subdued. (b. c. 1451.)
+## Sihon and Og Subdued (1451 BC)
 
 > **¹** Then we turned, and went up the way to Bashan: and Og the king of Bashan came out against us, he and all his people, to battle at Edrei.  
 > **²** And the LORD said unto me, Fear him not: for I will deliver him, and all his people, and his land, into thy hand; and thou shalt do unto him as thou didst unto Sihon king of the Amorites, which dwelt at Heshbon.  
@@ -26,7 +26,7 @@ I\. How they got the mastery of Og, a very formidable prince, 1. Very strong, fo
 
 II\. How they got possession of Bashan, a very desirable country. They took all the cities (De 3:4), and all the spoil of them, De 3:7. They made them all their own, De 3:10. So that now they had in their hands all that fruitful country which lay east of Jordan, from *the river Arnon unto Hermon,* De 3:8. Their conquering and possessing these countries was intended, not only for the encouragement of Israel in the wars of Canaan, but for the satisfaction of Moses before his death. Since he must not live to see the completing of their victory and settlement, God thus gives him a specimen of it. Thus the Spirit is given to those that believe as the *earnest of their inheritance,* until the redemption of the purchased possession.
 
-## Allotment of the Conquered Lands. (b. c. 1451.)
+## Allotment of the Conquered Lands (1451 BC)
 
 > **¹²** And this land, *which* we possessed at that time, from Aroer, which *is* by the river Arnon, and half mount Gilead, and the cities thereof, gave I unto the Reubenites and to the Gadites.  
 > **¹³** And the rest of Gilead, and all Bashan, *being* the kingdom of Og, gave I unto the half tribe of Manasseh; all the region of Argob, with all Bashan, which was called the land of giants.  
@@ -40,7 +40,7 @@ II\. How they got possession of Bashan, a very desirable country. They took all 
 
 Having shown how this country which they were now in was conquered, in these verses he shows how it was settled upon the Reubenites, Gadites, and half the tribe of Manasseh, which we had the story of before, Nu 32:1-42 Here is the rehearsal. 1. Moses specifies the particular parts of the country that were allotted to each tribe, especially the distribution of the lot to the half tribe of Manasseh, the subdividing of which tribe is observable. Joseph was divided into Ephraim and Manasseh; Manasseh was divided into one half on the one side Jordan and the other half on the other side: that on the east side Jordan was again divided into two great families, which had their several allotments: Jair, De 3:14, Machir, De 3:15. And perhaps Jacob's prediction of the smallness of that tribe was now accomplished in these divisions and subdivisions. Observe that Bashan is here called *the land of the giants,* because it had been in their possession, but Og was the last of them. These giants, it seems, had lost their country, and were rooted out of it sooner than any of their neighbours; for those who, presuming upon their strength and stature, had their hand against every man, had every man's hand against them, and went down slain to the pit, though they were the terror of the mighty in the land of the living. 2. He repeats the condition of the grant which they had already agreed to, De 3:18-20. That they should send a strong detachment over Jordan to lead the van in the conquest of Canaan, who should not return to their families, at least not to settle (though for a time they might retire thither into winter quarters, at the end of a campaign), till they had seen their brethren in as full possession of their respective allotments as they themselves were now in of theirs. They must hereby be taught not to *look at their own things only, but at the things of others,* Php 2:4. It ill becomes an Israelite to be selfish, and to prefer any private interest before the public welfare. When we are rest we should desire to see our brethren at rest too, and should be ready to do what we can towards it; for we are not born for ourselves, but are members one of another. A good man cannot rejoice much in the comforts of his family unless withal he sees *peace upon Israel,* Ps 128:6.
 
-## Joshua Named as Moses's Successor. (b. c. 1451.)
+## Joshua Named as Moses's Successor (1451 BC)
 
 > **²¹** And I commanded Joshua at that time, saying, Thine eyes have seen all that the LORD your God hath done unto these two kings: so shall the LORD do unto all the kingdoms whither thou passest.  
 > **²²** Ye shall not fear them: for the LORD your God he shall fight for you.  

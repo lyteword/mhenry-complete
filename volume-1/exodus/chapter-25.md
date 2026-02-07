@@ -6,7 +6,7 @@ weight: 25
 
 At this chapter begins an account of the orders and instructions God gave to Moses upon the mount for the erecting and furnishing of a tabernacle to the honour of God. We have here. I. Orders given for a collection to be made among the people for this purpose, Ex 25:1-9. II. Particular instructions, 1. Concerning the ark of the covenant, Ex 25:10-22. 2. The table of showbread, Ex 25:23-30. 3. The golden candlestick, Ex 25:31-40, etc.
 
-## The Tabernacle and Its Furniture. (b. c. 1491.)
+## The Tabernacle and Its Furniture (1491 BC)
 
 > **¹** And the LORD spake unto Moses, saying,  
 > **²** Speak unto the children of Israel, that they bring me an offering: of every man that giveth it willingly with his heart ye shall take my offering.  

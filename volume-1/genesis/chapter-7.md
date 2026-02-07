@@ -6,7 +6,7 @@ weight: 7
 
 In this chapter we have the performance of what was foretold in the foregoing chapter, both concerning the destruction of the old world and the salvation of Noah; for we may be sure that no word of God shall fall to the ground. There we left Noah busy about his ark, and full of care to get it finished in time, while the rest of his neighbours were laughing at him for his pains. Now here we see what was the end thereof, the end of his care and of their carelessness. And this famous period of the old world gives us some idea of the state of things when the world that now is shall be destroyed by fire, as that was by water. See 2Pe 3:6,7. We have, in this chapter, I. God's gracious call to Noah to come into the ark (Ge 7:1), and to bring the creatures that were to be preserved alive along with him (Ge 7:2,3), in consideration of the deluge at hand, Ge 7:4. II. Noah's obedience to this heavenly vision, Ge 7:5. When he was six hundred years old, he came with his family into the ark (Ge 7:6,7), and brought the creatures along with him (Ge 7:8,9), an account of which is repeated (Ge 7:13-16), to which is added God's tender care to shut him in. III. The coming of the threatened deluge (Ge 7:10); the causes of it (Ge 7:11,12): the prevalency of it, Ge 7:17-20. IV. The dreadful desolations that were made by it in the death of every living creature upon earth, except those that were in the ark, Ge 7:21-23. V. The continuance of it in full sea, before it began to ebb, one hundred and fifty days, Ge 7:24.
 
-## Noah Invited into the Ark. (b. c. 2349.)
+## Noah Invited into the Ark (2349 BC)
 
 > **¹** And the LORD said unto Noah, Come thou and all thy house into the ark; for thee have I seen righteous before me in this generation.  
 > **²** Of every clean beast thou shalt take to thee by sevens, the male and his female: and of beasts that *are* not clean by two, the male and his female.  
@@ -23,7 +23,7 @@ II\. Here are necessary orders given concerning the brute-creatures that were to
 
 III\. Here is notice given of the now imminent approach of the flood: *Yet seven days, and I will cause it to rain,* Ge 7:4. 1. "It shall be seven days *yet,* before I do it." After the hundred and twenty years had expired, God grants them a reprieve of seven days longer, both to show how slow he is to anger and that punishing work is his strange work, and also to give them some further space for repentance: but all in vain; these seven days were trifled away, after all the rest; they continued secure and sensual until the day that the flood came. 2. "It shall be *but* seven days." While Noah told them of the judgment at a distance, they were tempted to put off their repentance, because the vision was for a great while to come; but now he is ordered to tell them that it is at the door, that they have but one week more to turn them in, but one sabbath more to improve, to see if that will now, at last, awaken them to consider the things that belong to their peace, which otherwise will soon be hidden from their eyes. But it is common for those that have been careless of their souls during the years of their health, when they have looked upon death at a distance, to be as careless during the days, the seven days, of their sickness, when they see it approaching, their hearts being hardened by the deceitfulness of sin.
 
-## The Deluge. (b. c. 2349.)
+## The Deluge (2349 BC)
 
 > **⁵** And Noah did according unto all that the LORD commanded him.  
 > **⁶** And Noah *was* six hundred years old when the flood of waters was upon the earth.  

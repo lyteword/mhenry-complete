@@ -6,7 +6,7 @@ weight: 8
 
 Moses had charged parents in teaching their children to whet the word of God upon them (De 6:7) by frequent repetition of the same things over and over again; and here he himself takes the same method of instructing the Israelites as his children, frequently inculcating the same precepts and cautions, with the same motives or arguments to enforce them, that what they heard so often might abide with them. In this chapter Moses gives them, I. General exhortations to obedience, De 8:1,6. II. A review of the great things God had done for them in the wilderness, as a good argument for obedience, De 8:2-5,15,16. III. A prospect of the good land into which God would now bring them, De 8:7-9. IV. A necessary caution against the temptations of a prosperous condition, De 8:10-14,17,18. V. A fair warning of the fatal consequences of apostasy from God, De 8:19,20.
 
-## A Charge to Israel; Israel's Retrospect. (b. c. 1451.)
+## A Charge to Israel; Israel's Retrospect (1451 BC)
 
 > **¹** All the commandments which I command thee this day shall ye observe to do, that ye may live, and multiply, and go in and possess the land which the LORD sware unto your fathers.  
 > **²** And thou shalt remember all the way which the LORD thy God led thee these forty years in the wilderness, to humble thee, *and* to prove thee, to know what *was* in thine heart, whether thou wouldest keep his commandments, or no.  
@@ -38,7 +38,7 @@ II\. He directs them to look forward to Canaan, into which God was now bringing 
 
 2\. These things are mentioned, (1.) To show the great difference between that wilderness through which God had led them and the good land into which he was bringing them. Note, Those that bear the inconveniences of an afflicted state with patience and submission, are humbled by them and prove well under them, are best prepared for better circumstances. (2.) To show what obligations they lay under to keep God's commandments, both in gratitude for his favours to them and from a regard to their own interest, that the favours might be continued. The only way to keep possession of this good land would be to keep in the way of their duty. (3.) To show what a figure it was of good things to come. Whatever others saw, it is probable that Moses in it saw a type of the better country: The gospel church is the New-Testament Canaan, watered with the Spirit in his gifts and graces, planted with the trees of righteousness, bearing the fruits of righteousness. Heaven is the good land, in which there is nothing wanting, and where there is a fulness of joy.
 
-## Cautions Relating to Worldly Prosperity. (b. c. 1451.)
+## Cautions Relating to Worldly Prosperity (1451 BC)
 
 > **¹⁰** When thou hast eaten and art full, then thou shalt bless the LORD thy God for the good land which he hath given thee.  
 > **¹¹** Beware that thou forget not the LORD thy God, in not keeping his commandments, and his judgments, and his statutes, which I command thee this day:  

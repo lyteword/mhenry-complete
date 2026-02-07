@@ -6,7 +6,7 @@ weight: 2
 
 This chapter is an appendix to the history of the creation, more particularly explaining and enlarging upon that part of the history which relates immediately to man, the favourite of this lower world. We have in it, I. The institution and sanctification of the sabbath, which was made for man, to further his holiness and comfort (Ge 2:1-3). II. A more particular account of man's creation, as the centre and summary of the whole work (Ge 2:1-7). III. A description of the garden of Eden, and the placing of man in it under the obligations of a law and covenant (Ge 2:8-17). IV. The creation of the woman, her marriage to the man, and the institution of the ordinance of marriage (Ge 2:18-25, etc.).
 
-## The Creation. (b. c. 4004.)
+## The Creation (4004 BC)
 
 > **¹** Thus the heavens and the earth were finished, and all the host of them.  
 > **²** And on the seventh day God ended his work which he had made; and he rested on the seventh day from all his work which he had made.  
@@ -16,7 +16,7 @@ We have here, I. The settlement of the kingdom of nature, in God's resting from 
 
 II\. The commencement of the kingdom of grace, in the sanctification of the sabbath day, Ge 2:3. He rested on that day, and took a complacency in his creatures, and then sanctified it, and appointed us, on that day, to rest and take a complacency in the Creator; and his rest is, in the fourth commandment, made a reason for ours, after six days' labour. Observe, 1. The solemn observance of one day in seven, as a day of holy rest and holy work, to God's honour, is the indispensable duty of all those to whom God has revealed his holy sabbaths. 2. The way of sabbath-sanctification is the good old way, Jer 6:16. Sabbaths are as ancient as the world; and I see no reason to doubt that the sabbath, being now instituted in innocency, was religiously observed by the people of God throughout the patriarchal age. 3. The sabbath of the Lord is truly honourable, and we have reason to honour it—honour it for the sake of its antiquity, its great Author, the sanctification of the first sabbath by the holy God himself, and by our first parents in innocency, in obedience to him. 4. The sabbath day is a blessed day, for God blessed it, and that which he blesses is blessed indeed. God has put an honour upon it, has appointed us, on that day, to bless him, and has promised, on that day, to meet us and bless us. 5. The sabbath day is a holy day, for God has sanctified it. He has separated and distinguished it from the rest of the days of the week, and he has consecrated it and set it apart to himself and his own service and honour. Though it is commonly taken for granted that the Christian sabbath we observe, reckoning from the creation, is not the seventh but the first day of the week, yet being a seventh day, and we in it, celebrating the rest of God the Son, and the finishing of the work of our redemption, we may and ought to act faith upon this original institution of the sabbath day, and to commemorate the work of creation, to the honour of the great Creator, who is therefore worthy to receive, on that day, blessing, and honour, and praise, from all religious assemblies.
 
-## The Creation. (b. c. 4004.)
+## The Creation (4004 BC)
 
 > **⁴** These *are* the generations of the heavens and of the earth when they were created, in the day that the LORD God made the earth and the heavens,  
 > **⁵** And every plant of the field before it was in the earth, and every herb of the field before it grew: for the LORD God had not caused it to rain upon the earth, and *there was* not a man to till the ground.  
@@ -33,7 +33,7 @@ III\. A more particular account of the creation of man, Ge 2:7. Man is a little 
 
 2\. The high origin and the admirable serviceableness of the soul of man. (1.) It takes its rise from the breath of heaven, and is produced by it. It was not made of the earth, as the body was; it is a pity then that it should cleave to the earth, and mind earthly things. It came immediately from God; he gave it to be put into the body (Ec 12:7), as afterwards he gave the tables of stone of his own writing to be put into the ark, and the *urim* of his own framing to be put into the breast-plate. Hence God is not only the former but the Father of spirits. Let the soul which God has breathed into us breathe after him; and let it be for him, since it is from him. Into his hands let us commit our spirits, for from his hands we had them. (2.) It takes its lodging in a house of clay, and is the life and support of it. It is by it that man is a living soul, that is, a living man; for the soul is the man. The body would be a worthless, useless, loathsome carcase, if the soul did not animate it. To God that gave us these souls we must shortly give an account of them, how we have employed them, used them, proportioned them, and disposed of them; and if then it be found that we have lost them, though it were to gain the world, we shall be undone for ever. Since the extraction of the soul is so noble, and its nature and faculties are so excellent, let us not be of those fools that despise their own souls, by preferring their bodies before them, Pr 15:32. When our Lord Jesus anointed the blind man's eyes with clay perhaps he intimated that it was he who at first formed man out of the clay; and when he *breathed on his disciples, saying, Receive you the Holy Ghost,* he intimated that it was he who at first breathed into man's nostrils the breath of life. He that made the soul is alone able to new-make it.
 
-## The Garden of Eden. (b. c. 4004.)
+## The Garden of Eden (4004 BC)
 
 > **⁸** And the LORD God planted a garden eastward in Eden; and there he put the man whom he had formed.  
 > **⁹** And out of the ground made the LORD God to grow every tree that is pleasant to the sight, and good for food; the tree of life also in the midst of the garden, and the tree of knowledge of good and evil.  
@@ -66,7 +66,7 @@ II\. The placing of man in this paradise of delight, Ge 2:15, where observe,
 
 III\. The command which God gave to man in innocency, and the covenant he then took him into. Hitherto we have seen God as man's powerful Creator and his bountiful Benefactor; now he appears as his Ruler and Lawgiver. God put him into the garden of Eden, not to live there as he might list, but to be under government. As we are not allowed to be idle in this world, and to do nothing, so we are not allowed to be wilful, and do what we please. When God had given man a dominion over the creatures, he would let him know that still he himself was under the government of his Creator.
 
-## The Tree of Knowledge Prohibited. (b. c. 4004.)
+## The Tree of Knowledge Prohibited (4004 BC)
 
 > **¹⁶** And the LORD God commanded the man, saying, Of every tree of the garden thou mayest freely eat:  
 > **¹⁷** But of the tree of the knowledge of good and evil, thou shalt not eat of it: for in the day that thou eatest thereof thou shalt surely die.  
@@ -85,7 +85,7 @@ II\. The particular act of this authority, in prescribing to him what he should 
 
 Thus easy, thus happy, was man in a state of innocency, having all that heart could wish to make him so. How good was God to him! How many favours did he load him with! How easy were the laws he gave him! How kind the covenant he made with him! Yet man, being in honour, understood not his own interest, but soon *became as the beasts that perish.*
 
-## Adam's Dominion. (b. c. 4004.)
+## Adam's Dominion (4004 BC)
 
 > **¹⁸** And the LORD God said, *It is* not good that the man should be alone; I will make him an help meet for him.  
 > **¹⁹** And out of the ground the LORD God formed every beast of the field, and every fowl of the air; and brought *them* unto Adam to see what he would call them: and whatsoever Adam called every living creature, that *was* the name thereof.  
@@ -101,7 +101,7 @@ II\. An instance of the creatures' subjection to man, and his dominion over them
 
 III\. An instance of the creatures' insufficiency to be a happiness for man: *But* (among them all) *for Adam there was not found a help meet for him.* Some make these to be the words of Adam himself; observing all the creatures come to him by couples to be named, he thus intimates his desire to his Maker:—"Lord, these have all helps meet for them; but what shall I do? Here is never a one for me." It is rather God's judgment upon the review. He brought them all together, to see if there were ever a suitable match for Adam in any of the numerous families of the inferior creatures; but there was none. Observe here, 1. The dignity and excellency of the human nature. On earth there was not its like, nor its peer to be found among all visible creatures; they were all looked over, but it could not be matched among them all. 2. The vanity of this world and the things of it; put them all together, and they will not make a help-meet for man. They will not suit the nature of his soul, nor supply its needs, nor satisfy its just desires, nor run parallel with its never failing duration. God creates a new thing to be a help-meet for man—not so much the woman as the seed of the woman.
 
-## The Formation of Eve; Marriage Instituted. (b. c. 4004.)
+## The Formation of Eve; Marriage Instituted (4004 BC)
 
 > **²¹** And the LORD God caused a deep sleep to fall upon Adam, and he slept: and he took one of his ribs, and closed up the flesh instead thereof;  
 > **²²** And the rib, which the LORD God had taken from man, made he a woman, and brought her unto the man.  

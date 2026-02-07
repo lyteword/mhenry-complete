@@ -6,7 +6,7 @@ weight: 5
 
 In this chapter we have the second edition of the ten commandments. I. The general intent of them; they were in the nature of a covenant between God and Israel, De 5:1-5. II. The particular precepts are repeated (De 5:6-21), with the double delivery of them, both by word and writing, De 5:22. III. The settling of the correspondence thenceforward between God and Israel, by the mediation and ministry of Moses. 1. It was Israel's humble petition that it might be so, De 5:23-27. 2. It was God's gracious grant that it should be so, De 5:28-31. And hence he infers the obligation they were under to obedience, De 5:32,33.
 
-## The Decalogue Repeated. (b. c. 1451.)
+## The Decalogue Repeated (1451 BC)
 
 > **¹** And Moses called all Israel, and said unto them, Hear, O Israel, the statutes and judgments which I speak in your ears this day, that ye may learn them, and keep, and do them.  
 > **²** The LORD our God made a covenant with us in Horeb.  

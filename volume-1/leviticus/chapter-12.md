@@ -6,7 +6,7 @@ weight: 12
 
 After the laws concerning clean and unclean food come the laws concerning clean and unclean persons; and the first is in this chapter concerning the ceremonial uncleanness of women in child-birth, Le 12:1-5. And concerning their purification from that uncleanness, Le 12:6-8, etc.
 
-## Ceremonial Purification. (b. c. 1490.)
+## Ceremonial Purification (1490 BC)
 
 > **¹** And the LORD spake unto Moses, saying,  
 > **²** Speak unto the children of Israel, saying, If a woman have conceived seed, and born a man child: then she shall be unclean seven days; according to the days of the separation for her infirmity shall she be unclean.  

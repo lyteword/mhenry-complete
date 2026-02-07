@@ -6,7 +6,7 @@ weight: 30
 
 In this chapter we have a law concerning vows, which had been mentioned in the close of the foregoing chapter. I. Here is a general rule laid down that all vows must be carefully performed, Nu 30:1,2. II. Some particular exceptions to this rule. 1. That the vows of daughters should not be binding unless allowed by the father, Nu 30:3-5. Nor, 2. The vows of wives unless allowed by the husband, Nu 30:6-16, etc.
 
-## Concerning Vows. (b. c. 1452.)
+## Concerning Vows (1452 BC)
 
 > **¹** And Moses spake unto the heads of the tribes concerning the children of Israel, saying, This *is* the thing which the LORD hath commanded.  
 > **²** If a man vow a vow unto the LORD, or swear an oath to bind his soul with a bond; he shall not break his word, he shall do according to all that proceedeth out of his mouth.  

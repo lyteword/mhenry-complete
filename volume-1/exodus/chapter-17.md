@@ -6,7 +6,7 @@ weight: 17
 
 Two passages of story are recorded in this chapter, I. The watering of the host of Israel. 1. In the wilderness they wanted water, Ex 17:1. 2. In their want they chided Moses, Ex 17:2,3. 3. Moses cried to God, Ex 17:4. 4. God ordered him to smite the rock, and fetch water out of that; Moses did so, Ex 17:5,6. 5. The place named from it, Ex 17:7. II. The defeating of the host of Amalek. 1. The victory obtained by the prayer of Moses, Ex 17:8-12. 2. By the sword of Joshua, Ex 17:13. 3. A record kept of it, Ex 17:14,16. And these things which happened to them are written for our instruction in our spiritual journey and warfare.
 
-## The Israelites Murmur for Water. (b. c. 1491.)
+## The Israelites Murmur for Water (1491 BC)
 
 > **¹** And all the congregation of the children of Israel journeyed from the wilderness of Sin, after their journeys, according to the commandment of the LORD, and pitched in Rephidim: and *there was* no water for the people to drink.  
 > **²** Wherefore the people did chide with Moses, and said, Give us water that we may drink. And Moses said unto them, Why chide ye with me? wherefore do ye tempt the LORD?  
@@ -26,7 +26,7 @@ IV\. God's gracious appearance for their relief, Ex 17:5,6. He orders Moses to g
 
 V\. A new name was, upon this occasion, given to the place, preserving the remembrance, not of the mercy of their supply (the water that followed them was sufficient to do that), but of the sin of their murmuring—*Massah, temptation,* because they tempted God; *Meribah, strife,* because they chid with Moses, Ex 17:7. There was thus a remembrance kept of sin, both for the disgrace of the sinners themselves (sin leaves a blot upon the name) and for warning to their seed to take heed of sinning after the similitude of their transgression.
 
-## The Conflict with Amalek; The Defeat of Amalek. (b. c. 1491.)
+## The Conflict with Amalek; The Defeat of Amalek (1491 BC)
 
 > **⁸** Then came Amalek, and fought with Israel in Rephidim.  
 > **⁹** And Moses said unto Joshua, Choose us out men, and go out, fight with Amalek: to morrow I will stand on the top of the hill with the rod of God in mine hand.  

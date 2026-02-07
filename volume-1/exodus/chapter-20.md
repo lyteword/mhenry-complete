@@ -6,7 +6,7 @@ weight: 20
 
 All things being prepared for the solemn promulgation of the divine law, we have, in this chapter, I. The ten commandments, as God himself spoke them upon Mount Sinai (Ex 20:1-17), as remarkable a portion of scripture as any in the Old Testament. II. The impressions made upon the people thereby, Ex 20:18-21. III. Some particular instructions which God gave privately to Moses, to be by him communicated to the people, relating to his worship, Ex 20:22-26, etc.
 
-## The Ten Commandments. (b. c. 1491.)
+## The Ten Commandments (1491 BC)
 
 > **¹** And God spake all these words, saying,  
 > **²** I *am* the LORD thy God, which have brought thee out of the land of Egypt, out of the house of bondage.  
@@ -67,7 +67,7 @@ V\. The ninth commandment concerns our own and our neighbour's good name: *Thou 
 
 VI\. The tenth commandment strikes at the root: *Thou shalt not covet,* Ex 20:17. The foregoing commands implicitly forbid all desire of doing that which will be an injury to our neighbour; this forbids all inordinate desire of having that which will be a gratification to ourselves. "O that such a man's house were mine! Such a man's wife mine! Such a man's estate mine!" This is certainly the language of discontent at our own lot, and envy at our neighbour's; and these are the sins principally forbidden here. St. Paul, when the grace of God caused the scales to fall from his eyes, perceived that this law, *Thou shalt not covet,* forbade all those irregular appetites and desires which are the first-born of the corrupt nature, the first risings of the sin that dwelleth in us, and the beginnings of all the sin that is committed by us: this is that lust which, he says, he had not known the evil of, if this commandment, when it came to his conscience in the power of it, had not shown it to him, Ro 7:7. God give us all to see our face in the glass of this law, and to lay our hearts under the government of it!
 
-## Terror with Which the Law Was Given. (b. c. 1491.)
+## Terror with Which the Law Was Given (1491 BC)
 
 > **¹⁸** And all the people saw the thunderings, and the lightnings, and the noise of the trumpet, and the mountain smoking: and when the people saw *it,* they removed, and stood afar off.  
 > **¹⁹** And they said unto Moses, Speak thou with us, and we will hear: but let not God speak with us, lest we die.  
@@ -82,7 +82,7 @@ III\. The encouragement Moses gave them, by explaining the design of God in his 
 
 IV\. The progress of their communion with God by the mediation of Moses, Ex 20:21. While the people continued to stand afar off, conscious of guilt and afraid of God's wrath, *Moses drew near unto the thick darkness;* he *was made to draw near,* so the word is: Moses, of himself, durst not have ventured into the thick darkness, if God had not called him, and encouraged him, and, as some of the rabbies suppose, sent an angel to take him by the hand, and lead him up. Thus it is said of the great Mediator, *I will cause him to draw near* (Jer 30:21), and by him it is that we also are introduced, Eph 3:12.
 
-## The Law Concerning Altars. (b. c. 1491.)
+## The Law Concerning Altars (1491 BC)
 
 > **²²** And the LORD said unto Moses, Thus thou shalt say unto the children of Israel, Ye have seen that I have talked with you from heaven.  
 > **²³** Ye shall not make with me gods of silver, neither shall ye make unto you gods of gold.  

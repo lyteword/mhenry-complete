@@ -6,7 +6,7 @@ weight: 5
 
 This chapter, and part of the next, concern the trespass-offering. The difference between this and the sin-offering lay not so much in the sacrifices themselves, and the management of them, as in the occasions of the offering of them. They were both intended to make atonement for sin; but the former was more general, this applied to some particular instances. Observe what is here said, I. Concerning the trespass. If a man sin, 1. In concealing his knowledge, when he is adjured, Le 5:1. 2. In touching an unclean thing, Le 5:2,3. 3. In swearing, Le 5:4. 4. In embezzling the holy things, Le 5:14-16. 5. In any sin of infirmity, Le 5:17-19. Some other cases there are, in which these offerings were to be offered, Le 6:2-4,14:12,19:21, Nu 6:12. II. Concerning the trespass-offerings, 1. Of the flock, Le 5:5,6. 2. Of fowls, Le 5:7-10. 3. Of flour, Le 5:11-13; but chiefly a ram without blemish, Le 5:15, etc.
 
-## Law of the Sin-Offering. (b. c. 1490.)
+## Law of the Sin-Offering (1490 BC)
 
 > **¹** And if a soul sin, and hear the voice of swearing, and *is* a witness, whether he hath seen or known *of it;* if he do not utter *it,* then he shall bear his iniquity.  
 > **²** Or if a soul touch any unclean thing, whether *it be* a carcase of an unclean beast, or a carcase of unclean cattle, or the carcase of unclean creeping things, and *if* it be hidden from him; he also shall be unclean, and guilty.  
@@ -33,7 +33,7 @@ I\. If the sinner brought two doves, one was to be offered for a sin-offering an
 
 II\. If he brought fine flour, a handful of it was to be offered, but without either oil or frankincense (Le 5:11), not only because this would make it too costly for the poor, for whose comfort this sacrifice was appointed, but because it was a sin-offering, and therefore, to show the loathsomeness of the sin for which it was offered, it must not be made grateful either to the taste by oil or to the smell by frankincense. The unsavouriness of the offering was to intimate that the sinner must never relish his sin again as he had done. God by these sacrifices did speak, 1. Comfort to those that had offended, that they might not despair, nor pine away in their iniquity; but, peace being thus made for them with God, they might have peace in him. 2. Caution likewise not to offend any more, remembering what an expensive troublesome thing it was to make atonement.
 
-## Law of the Trespass-Offering. (b. c. 1490.)
+## Law of the Trespass-Offering (1490 BC)
 
 > **¹⁴** And the LORD spake unto Moses, saying,  
 > **¹⁵** If a soul commit a trespass, and sin through ignorance, in the holy things of the LORD; then he shall bring for his trespass unto the LORD a ram without blemish out of the flocks, with thy estimation by shekels of silver, after the shekel of the sanctuary, for a trespass offering:  

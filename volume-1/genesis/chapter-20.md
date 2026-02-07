@@ -6,7 +6,7 @@ weight: 20
 
 We are here returning to the story of Abraham; yet that part of it which is here recorded is not to his honour. The fairest marbles have their flaws, and, while there are spots in the sun, we must not expect any thing spotless under it. The scripture, it should be remarked, is impartial in relating the blemishes even of its most celebrated characters. We have here, I. Abraham's sin in denying his wife, and Abimelech's sin thereupon in taking her, Ge 20:1,2. II. God's discourse with Abimelech in a dream, upon this occasion, wherein he shows him his error (Ge 20:3), accepts his plea (Ge 20:4-6), and directs him to make restitution, Ge 20:7. III. Abimelech's discourse with Abraham, wherein he chides him for the cheat he had put upon him (Ge 20:8-10), and Abraham excuses it as well as he can, Ge 20:11-13. IV. The good issue of the story, in which Abimelech restores Abraham his wife (Ge 20:14-16), and Abraham, by prayer, prevails with God for the removal of the judgment Abimelech was under, Ge 20:17,18.
 
-## Abraham's Denial of His Wife. (b. c. 1898.)
+## Abraham's Denial of His Wife (1898 BC)
 
 > **¹** And Abraham journeyed from thence toward the south country, and dwelled between Kadesh and Shur, and sojourned in Gerar.  
 > **²** And Abraham said of Sarah his wife, She *is* my sister: and Abimelech king of Gerar sent, and took Sarah.  
@@ -33,7 +33,7 @@ III\. God gives a very full answer to what he had said.
 
 3\. He charges him to make restitution: *Now therefore,* not that thou art better informed, *restore the man his wife,* Ge 20:7. Note, Ignorance will excuse no longer than it continues. If we have entered upon a wrong course through ignorance this will not excuse our knowingly persisting in it, Le 5:3-5. The reasons why he must be just and kind to Abraham are, (1.) Because *he is a prophet,* near and dear to God, for whom God does in a particular manner concern himself. God highly resents the injuries done to his prophets, and takes them as done to himself. (2.) Being a prophet, *he shall pray for thee;* this is a prophet's reward, and a good reward it is. It is intimated that there was great efficacy in the prayers of a prophet, and that good men should be ready to help those with their prayers that stand in need of them, and should make, at least, this return for the kindnesses that are done them. Abraham was accessory to Abimelech's trouble, and therefore was obliged in justice to pray for him. (3.) It is at thy peril if thou do not restore her: *Know thou that thou shalt surely die.* Note, He that does wrong, whoever he is, prince or peasant, shall certainly receive for the wrong which he has done, unless he repent and make restitution, Col 3:25. No injustice can be made passable with God, no, not by Caesar's image stamped upon it.
 
-## Abimelech's Conduct Towards Abraham. (b. c. 1898.)
+## Abimelech's Conduct Towards Abraham (1898 BC)
 
 > **⁸** Therefore Abimelech rose early in the morning, and called all his servants, and told all these things in their ears: and the men were sore afraid.  
 > **⁹** Then Abimelech called Abraham, and said unto him, What hast thou done unto us? and what have I offended thee, that thou hast brought on me and on my kingdom a great sin? thou hast done deeds unto me that ought not to be done.  

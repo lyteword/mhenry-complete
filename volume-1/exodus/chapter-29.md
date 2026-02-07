@@ -6,7 +6,7 @@ weight: 29
 
 Particular orders are given in this chapter, I. Concerning the consecration of the priests, and the sanctification of the altar, Ex 29:1-37. II. Concerning the daily sacrifice, Ex 29:38-41. To which gracious promises are annexed that God would own and bless them in all their services, Ex 29:42-46, etc.
 
-## The Consecration of the Priests. (b. c. 1491.)
+## The Consecration of the Priests (1491 BC)
 
 > **¹** And this *is* the thing that thou shalt do unto them to hallow them, to minister unto me in the priest's office: Take one young bullock, and two rams without blemish,  
 > **²** And unleavened bread, and cakes unleavened tempered with oil, and wafers unleavened anointed with oil: *of* wheaten flour shalt thou make them.  

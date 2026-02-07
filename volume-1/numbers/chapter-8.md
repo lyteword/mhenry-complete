@@ -6,7 +6,7 @@ weight: 8
 
 This chapter is concerning the lamps or lights of the sanctuary. I. The burning lamps in the candlestick, which the priests were charged to tend, Nu 8:1-4. II. The living lamps (if I may so call them), The Levites, who as ministers were burning and shining lights. The ordination of the priests we had an account of, Le 8:1-36. Here we have an account of the ordination of the Levites, the inferior clergy. 1. How they were purified, Nu 8:5-8. 2. How they were parted with by the people, Nu 8:9-10. 3. How they were presented to God in lieu of the firstborn, Nu 8:11-18. 4. How they were consigned to Aaron and his sons, to be ministers to them, Nu 8:19. 5. How all these orders were duly executed, Nu 8:20-22. And, lastly, the age appointed for their ministration, Nu 8:23-26, etc.
 
-## The Lights of the Sanctuary. (b. c. 1490.)
+## The Lights of the Sanctuary (1490 BC)
 
 > **¹** And the LORD spake unto Moses, saying,  
 > **²** Speak unto Aaron, and say unto him, When thou lightest the lamps, the seven lamps shall give light over against the candlestick.  
@@ -15,7 +15,7 @@ This chapter is concerning the lamps or lights of the sanctuary. I. The burning 
 
 Directions were given long before this for the making of the golden candlestick (Ex 25:31), and it was made according to the pattern shown to Moses in the mount, Ex 38:17. But now it was that the lamps were first ordered to be lighted, when other things began to be used. Observe, 1. Who must light the lamps; Aaron himself, he *lighted the lamps,* Nu 8:3. As the people's representative to God, he thus did the office of a servant in God's house, lighting his Master's candle; as the representative of God to the people, he thus gave them the intimations of God's will and favour, thus expressed (Ps 18:28), *Thou wilt light my candle;* and thus Aaron himself was now lately directed to bless the people, *The Lord make his face to shine upon thee,* Nu 6:25. The commandment is a *lamp,* Pr 6:23. The scripture is *a light shining in a dark place,* 2Pe 1:19. And a dark place indeed even the church would be without it, as the tabernacle (which had no window in it) without the lamps. Now the work of ministers is to light these lamps, by expounding and applying the word of God. The priest lighted the middle lamp from the fire of the altar, and the rest of the lamps he lighted one from another, which (says Mr. Ainsworth) signifies that the fountain of all light and knowledge is in Christ, who has the *seven spirits of God* figured by the *seven lamps of fire* (Re 4:5), but that in the expounding of scripture one passage must borrow light from another. He also supposes that, *seven* being a number of perfection, by the seven branches of the candlestick is shown the full perfection of the scriptures, which are able to make us wise to salvation. 2. To what end the lamps were lighted, that they might give light *over against the candlestick,* that is, to that part of the tabernacle where the table stood, with the show-bread upon it, over against the candlestick. They were not lighted like tapers in an urn, to burn to themselves, but to give light to the other side of the tabernacle, for therefore candles are lighted, Mt 5:15. Note, The lights of the world, the lights of the church, must shine as lights. Therefore we have light, that we may give light.
 
-## The Consecration of the Levites. (b. c. 1490.)
+## The Consecration of the Levites (1490 BC)
 
 > **⁵** And the LORD spake unto Moses, saying,  
 > **⁶** Take the Levites from among the children of Israel, and cleanse them.  

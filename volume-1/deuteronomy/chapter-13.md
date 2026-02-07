@@ -6,7 +6,7 @@ weight: 13
 
 Moses is still upon that necessary subject concerning the peril of idolatry. In the close of the foregoing chapter he had cautioned them against the peril that might arise from their predecessors the Canaanites. In this chapter he cautions them against the rise of idolatry from among themselves; they must take heed lest any should draw them to idolatry, I. By the pretence of prophecy, De 13:1-5. II. By the pretence of friendship and relation, De 13:6-11. III. By the pretence of numbers, De 13:12-18. But in all these cases the temptation must be resolutely resisted and the tempters punished and cut off.
 
-## Cautions Against Idolatry. (b. c. 1451.)
+## Cautions Against Idolatry (1451 BC)
 
 > **¹** If there arise among you a prophet, or a dreamer of dreams, and giveth thee a sign or a wonder,  
 > **²** And the sign or the wonder come to pass, whereof he spake unto thee, saying, Let us go after other gods, which thou hast not known, and let us serve them;  

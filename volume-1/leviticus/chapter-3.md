@@ -6,7 +6,7 @@ weight: 3
 
 In this chapter we have the law concerning the peace-offerings, whether they were, I. Of the heard, a bullock or a heifer, Le 3:1-5. Or, II. Of the flock, either a lamb (Le 3:6-11) or a goat, Le 3:12-17. The ordinances concerning each of these are much the same, yet they are repeated, to show the care we ought to take that all our services be done according to the appointment and the pleasure God takes in the services that are so performed. It is likewise to intimate what need we have of precept upon precept, and line upon line.
 
-## Law of the Peace-Offering. (b. c. 1490.)
+## Law of the Peace-Offering (1490 BC)
 
 > **¹** And if his oblation *be* a sacrifice of peace offering, if he offer *it* of the herd; whether *it be* a male or female, he shall offer it without blemish before the LORD.  
 > **²** And he shall lay his hand upon the head of his offering, and kill it *at* the door of the tabernacle of the congregation: and Aaron's sons the priests shall sprinkle the blood upon the altar round about.  

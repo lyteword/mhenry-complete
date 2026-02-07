@@ -6,7 +6,7 @@ weight: 7
 
 God having set up house (as it were) in the midst of the camp of Israel, the princes of Israel here come a visiting with their presents, as tenants to their landlord, in the name of their respective tribes. I. They brought presents, 1. Upon the dedication of the tabernacle, for the service of that, Nu 7:1-9. 2. Upon the dedication of the altar, for the use of that, Nu 7:10-88. And, II. God graciously signified his acceptance of them, Nu 7:89. The two foregoing chapters were the records of additional laws which God gave to Israel, this is the history of the additional services which Israel performed to God.
 
-## The Offerings of the Princes. (b. c. 1490.)
+## The Offerings of the Princes (1490 BC)
 
 > **¹** And it came to pass on the day that Moses had fully set up the tabernacle, and had anointed it, and sanctified it, and all the instruments thereof, both the altar and all the vessels thereof, and had anointed them, and sanctified them;  
 > **²** That the princes of Israel, heads of the house of their fathers, who *were* the princes of the tribes, and were over them that were numbered, offered:  

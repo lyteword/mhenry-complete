@@ -6,7 +6,7 @@ weight: 16
 
 In this chapter we have, I. A repetition of the laws concerning the three yearly feasts; in particular, that of the passover, De 16:1-8. That of pentecost, De 16:9-12. That of tabernacles, De 16:13-15. And the general law concerning the people's attendance on them, De 16:16,17. II. The institution of an inferior magistracy, and general rules of justice given to those that were called into office, De 16:18-20. III. A caveat against groves and images, De 16:21,22.
 
-## Yearly Release. (b. c. 1451.)
+## Yearly Release (1451 BC)
 
 > **¹** Observe the month of Abib, and keep the passover unto the LORD thy God: for in the month of Abib the LORD thy God brought thee forth out of Egypt by night.  
 > **²** Thou shalt therefore sacrifice the passover unto the LORD thy God, of the flock and the herd, in the place which the LORD shall choose to place his name there.  

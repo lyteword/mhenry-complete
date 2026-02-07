@@ -6,7 +6,7 @@ weight: 30
 
 Moses is, in this chapter, further instructed, I. Concerning the altar of incense, Ex 30:1-10. II. Concerning the ransom-money which the Israelites were to pay, when they were numbered, Ex 30:11-16. III. Concerning the laver of brass, which was set for the priests to wash in, Ex 30:17-21. IV. Concerning the making up of the anointing oil, and the use of it, Ex 30:22-33. V. Concerning the incense and perfume which were to be burned on the golden altar, Ex 30:34, etc.
 
-## The Tabernacles and Its Furniture. (b. c. 1491.)
+## The Tabernacles and Its Furniture (1491 BC)
 
 > **¹** And thou shalt make an altar to burn incense upon: *of* shittim wood shalt thou make it.  
 > **²** A cubit *shall be* the length thereof, and a cubit the breadth thereof; foursquare shall it be: and two cubits *shall be* the height thereof: the horns thereof *shall be* of the same.  

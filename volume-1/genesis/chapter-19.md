@@ -6,7 +6,7 @@ weight: 19
 
 The contents of this chapter we have, 2Pe 2:6-8, where we find that "God, turning the cities of Sodom and Gomorrah into ashes, condemned them with an overthrow, and delivered just Lot." It is the history of Sodom's ruin, and Lot's rescue from that ruin. We read (Ge 18:1-33) of God's coming to take a view of the present state of Sodom, what its wickedness was, and what righteous persons there were in it: now here we have the result of that enquiry. I. It was found, upon trial, that Lot was very good (Ge 19:1-3), and it did not appear that there was any more of the same character. II. It was found that the Sodomites were very wicked and vile, Ge 19:4-11. III. Special care was therefore taken for the securing of Lot and his family, in a place of safety, Ge 19:12-23. IV. Mercy having rejoiced therein, justice shows itself in the ruin of Sodom and the death of Lot's wife (Ge 19:24-26), with a general repetition of the story, Ge 19:27-29. V. A foul sin that Lot was guilty of, in committing incest with his two daughters, Ge 19:30-38, etc.
 
-## Assault on the House of Lot. (b. c. 1898.)
+## Assault on the House of Lot (1898 BC)
 
 > **¹** And there came two angels to Sodom at even; and Lot sat in the gate of Sodom: and Lot seeing *them* rose up to meet them; and he bowed himself with his face toward the ground;  
 > **²** And he said, Behold now, my lords, turn in, I pray you, into your servant's house, and tarry all night, and wash your feet, and ye shall rise up early, and go on your ways. And they said, Nay; but we will abide in the street all night.  
@@ -31,7 +31,7 @@ II\. That they had arrived at the highest pitch of wickedness; they were *sinner
 
 III\. That nothing less than the power of an angel could save a good man out of their wicked hands. It was now past dispute what Sodom's character was and what course must be taken with it, and therefore the angels immediately give a specimen of what they further intended. 1. They rescue Lot, Ge 19:10. Note, He that watereth shall be watered also himself. Lot was solicitous to protect them, and now they take effectual care for his safety, in return for his kindness. Note further, Angels are employed for the special preservation of those that expose themselves to danger by well-doing. The saints, at death, are pulled like Lot into a house of perfect safety, and the door shut for ever against those that pursue them. 2. They chastise the insolence of the Sodomites: *They smote them with blindness,* Ge 19:11. This was designed, (1.) To put an end to their attempt, and disable them from pursuing it. Justly were those struck blind who had been deaf to reason. Violent persecutors are often infatuated so that they cannot push on their malicious designs against God's messengers, Job 5:14,15. Yet these Sodomites, after they were struck blind, continued seeking the door, to break it down, till they were tired. No judgments will, of themselves, change the corrupt natures and purposes of wicked men. If their minds had not been blinded as well as their bodies, they would have said, as the magicians, *This is the finger of God,* and would have submitted. (2.) It was to be an earnest of their utter ruin, the next day. When God, in a way of righteous judgment, blinds men, their condition is already desperate, Ro 11:8,9.
 
-## Rescue of Lot out of Sodom. (b. c. 1898.)
+## Rescue of Lot out of Sodom (1898 BC)
 
 > **¹²** And the men said unto Lot, Hast thou here any besides? son in law, and thy sons, and thy daughters, and whatsoever thou hast in the city, bring *them* out of this place:  
 > **¹³** For we will destroy this place, because the cry of them is waxen great before the face of the LORD; and the LORD hath sent us to destroy it.  
@@ -65,7 +65,7 @@ II\. The fixing of a place of refuge for him. The mountain was first appointed f
 
 III\. It is taken notice of that the sun had risen when Lot entered into Zoar; for when a good man comes into a place he brings light along with him, or should do.
 
-## Destruction of Sodom and Gomorrah. (b. c. 1898.)
+## Destruction of Sodom and Gomorrah (1898 BC)
 
 > **²⁴** Then the LORD rained upon Sodom and upon Gomorrah brimstone and fire from the LORD out of heaven;  
 > **²⁵** And he overthrew those cities, and all the plain, and all the inhabitants of the cities, and that which grew upon the ground.  
@@ -90,7 +90,7 @@ I\. Here is Abraham's pious regard to God in this event, in two things:—1. A c
 
 II\. Here is God's favourable regard to Abraham, Ge 19:29. As before, when Abraham prayed for Ishmael, God heard him for Isaac, so now, when he prayed for Sodom, he heard him for Lot. *He remembered Abraham, and,* for his sake, *sent Lot out of the overthrow.* Note, 1. God will certainly give an answer of peace to the prayer of faith, in his own way and time; though, for a while, it seem to be forgotten, yet, sooner or later, it will appear to be remembered. 2. The relations and friends of godly people fare the better for their interest in God and intercessions with him; it was out of respect to Abraham that Lot was rescued: perhaps this word encouraged Moses long afterwards to pray (Ex 32:13), *Lord, remember Abraham;* and see Isa 63:11.
 
-## Lot's Disgrace. (b. c. 1898.)
+## Lot's Disgrace (1898 BC)
 
 > **³⁰** And Lot went up out of Zoar, and dwelt in the mountain, and his two daughters with him; for he feared to dwell in Zoar: and he dwelt in a cave, he and his two daughters.  
 > **³¹** And the firstborn said unto the younger, Our father *is* old, and *there is* not a man in the earth to come in unto us after the manner of all the earth:  

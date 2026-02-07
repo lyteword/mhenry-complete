@@ -6,7 +6,7 @@ weight: 17
 
 After the law concerning the atonement to be made for all Israel by the high priest, at the tabernacle, with the blood of bulls and goats, in this chapter we have two prohibitions necessary for the preservation of the honour of that atonement. I. That no sacrifice should be offered by any other than the priests, nor anywhere but at the door of the tabernacle, and this upon pain of death, Le 17:1-9. II. That no blood should be eaten, and this under the same penalty, Le 17:10-16, etc.
 
-## Directions Concerning Sacrifices. (b. c. 1490.)
+## Directions Concerning Sacrifices (1490 BC)
 
 > **¹** And the LORD spake unto Moses, saying,  
 > **²** Speak unto Aaron, and unto his sons, and unto all the children of Israel, and say unto them; This *is* the thing which the LORD hath commanded, saying,  
@@ -28,7 +28,7 @@ III\. How this law was observed. 1. While the Israelites kept their integrity th
 
 IV\. How the matter stands now, and what use we are to make of this law. 1. It is certain that the spiritual sacrifices we are now to offer are not confined to any one place. Our Saviour has made this clear (Joh 4:21), and the apostle (1Ti 2:8), according to the prophecy, that *in every place incense should be offered,* Mal 1:11. We have now no temple nor altar that sanctifies the gift, nor does the gospel unity lie in one place, but in one heart, and the *unity of the spirit.* 2. Christ is our altar, and the *true tabernacle* (Heb 8:2,13:10); in him God dwells among us, and it is in him that our sacrifices are acceptable to God, and in him only, 1Pe 2:5. To set up other mediators, or other altars, or other expiatory sacrifices, is, in effect, to set up other gods. He is the centre of unity, in whom all God's Israel meet. 3. Yet we are to have respect to the public worship of God, not *forsaking the assemblies of* his people, Heb 10:25. The Lord loves *the gates of Zion more than all the dwellings of Jacob,* and so should we; see Eze 20:40. Though God will graciously accept our family offerings, we must not therefore neglect the door of the tabernacle.
 
-## The Eating of Blood Forbidden. (b. c. 1490.)
+## The Eating of Blood Forbidden (1490 BC)
 
 > **¹⁰** And whatsoever man *there be* of the house of Israel, or of the strangers that sojourn among you, that eateth any manner of blood; I will even set my face against that soul that eateth blood, and will cut him off from among his people.  
 > **¹¹** For the life of the flesh *is* in the blood: and I have given it to you upon the altar to make an atonement for your souls: for it *is* the blood *that* maketh an atonement for the soul.  

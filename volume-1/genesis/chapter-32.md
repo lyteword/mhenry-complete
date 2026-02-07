@@ -6,7 +6,7 @@ weight: 32
 
 We have here Jacob still upon his journey towards Canaan. Never did so many memorable things occur in any march as in this of Jacob's little family. By the way he meets, I. With good tidings from his God, Ge 32:1,2. II. With bad tidings from his brother, to whom he sent a message to notify his return, Ge 32:3-6. In his distress, 1. He divides his company, Ge 32:7,8. 2. He makes his prayer to God, Ge 32:9-12. 3. He sends a present to his brother, Ge 32:13-23. 4. He wrestles with the angel, Ge 32:24-32.
 
-## Jacob Pursuing His Journey. (b. c. 1739.)
+## Jacob Pursuing His Journey (1739 BC)
 
 > **¹** And Jacob went on his way, and the angels of God met him.  
 > **²** And when Jacob saw them, he said, This *is* God's host: and he called the name of that place Mahanaim.  
@@ -28,7 +28,7 @@ II\. He receives a very formidable account of Esau's warlike preparations agains
 
 III\. He puts himself into the best posture of defence that his present circumstances will admit. It was absurd to think of making resistance, all his contrivance is to make an escape, Ge 32:7,8. He thinks it prudent not to venture all in one bottom, and therefore divides what he had into two companies, that, if one were smitten, the other might escape. Like a tender careful master of a family, he is more solicitous for their safety than for his own. He divided his company, not as Abraham (Ge 14:15), for fight, but for flight.
 
-## Jacob's Prayer. (b. c. 1739.)
+## Jacob's Prayer (1739 BC)
 
 > **⁹** And Jacob said, O God of my father Abraham, and God of my father Isaac, the LORD which saidst unto me, Return unto thy country, and to thy kindred, and I will deal well with thee:  
 > **¹⁰** I am not worthy of the least of all the mercies, and of all the truth, which thou hast showed unto thy servant; for with my staff I passed over this Jordan; and now I am become two bands.  
@@ -53,7 +53,7 @@ II\. The pleas are many, and very powerful; never was cause better ordered, Job 
 
 6\. He insists especially upon the promise God had made him (Ge 32:9): *Thou saidst, I will deal well with thee,* and again, in the close (Ge 32:12): *Thou saidst, I will surely do thee good.* Note, (1.) The best we can say to God in prayer is what he has said to us. God's promises, as they are the surest guide of our desires in prayer, and furnish us with the best petitions, so they are the firmest ground of our hopes, and furnish us with the best pleas. "Lord, thou saidst thus and thus; and wilt thou not be as good as thy word, the word upon which thou had *caused me to hope?*" Ps 119:49. (2.) The most general promises are applicable to particular cases. "Thou saidst, *I will do thee good;* Lord, do me good in this matter." He pleads also a particular promise, that of *the multiplying of his seed.* "Lord, what will become of that promise, if they be all cut off?" Note, [1.] There are promises to the families of good people, which are improvable in prayer for family-mercies, ordinary and extraordinary, Ge 17:17, Ps 112:2, Ps 102:28. [2.] The world's threatenings should drive us to God's promises.
 
-## Jacob's Present to Esau. (b. c. 1739.)
+## Jacob's Present to Esau (1739 BC)
 
 > **¹³** And he lodged there that same night; and took of that which came to his hand a present for Esau his brother;  
 > **¹⁴** Two hundred she goats, and twenty he goats, two hundred ewes, and twenty rams,  
@@ -73,7 +73,7 @@ I\. Jacob sent him a very noble present, not of jewels or fine garments (he had 
 
 II\. He sent him a very humble message, which he ordered his servants to deliver in the best manner, Ge 32:17,18. They must call Esau their *lord,* and Jacob his *servant;* they must tell him the cattle they had was a small present which Jacob had sent him, as a specimen of his acquisitions while he was abroad. The cattle he sent were to be disposed of in several droves, and the servants that attended each drove were to deliver the same message, that the present might appear the more valuable, and his submission, so often repeated, might be the more likely to influence Esau. They must especially take care to tell him that Jacob was coming after (Ge 32:18-20), that he might not suspect he had fled through fear. Note, A friendly confidence in men's goodness may help to prevent the mischief designed us by their badness: if Jacob will seem not to be afraid of Esau, Esau, it may be hoped, will not be a terror to Jacob.
 
-## Jacob Wrestles with an Angel. (b. c. 1739.)
+## Jacob Wrestles with an Angel (1739 BC)
 
 > **²⁴** And Jacob was left alone; and there wrestled a man with him until the breaking of the day.  
 > **²⁵** And when he saw that he prevailed not against him, he touched the hollow of his thigh; and the hollow of Jacob's thigh was out of joint, as he wrestled with him.  

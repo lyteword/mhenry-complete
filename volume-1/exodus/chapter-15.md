@@ -6,7 +6,7 @@ weight: 15
 
 In this chapter, I. Israel looks back upon Egypt with a song of praise for their deliverance. Here is, 1. The song itself, Ex 15:1-19. 2. The solemn singing of it, Ex 15:20,21. II. Israel marches forward in the wilderness (Ex 15:22), and there, 1. Their discontent at the waters of Marah (Ex 15:23,24), and the relief granted them, Ex 15:25,26. 2. Their satisfaction in the waters of Elim, Ex 15:27.
 
-## Triumphant Song of the Israelites. (b. c. 1491.)
+## Triumphant Song of the Israelites (1491 BC)
 
 > **¹** Then sang Moses and the children of Israel this song unto the LORD, and spake, saying, I will sing unto the LORD, for he hath triumphed gloriously: the horse and his rider hath he thrown into the sea.  
 > **²** The LORD *is* my strength and song, and he is become my salvation: he *is* my God, and I will prepare him an habitation; my father's God, and I will exalt him.  
@@ -50,7 +50,7 @@ I\. The song itself; and,
 
 II\. The solemn singing of this song, Ex 15:20,21. Miriam (or Mary, it is the same name) presided in an assembly of the women, who (according to the softness of their sex, and the common usage of those times for expressing joy, with timbrels and dances) sang this song. Moses led the psalm, and gave it out for the men, and then Miriam for the women. Famous victories were wont to be applauded by the daughters of Israel (1Sa 18:6,7); so was this. When God brought Israel out of Egypt, it is said (Mic 6:4), *He sent before them Moses, Aaron, and Miriam,* though we read not of any thing memorable that Miriam did but this. But those are to be reckoned great blessings to a people who assist them, and go before them, in praising God.
 
-## The Waters of Marah. (b. c. 1491.)
+## The Waters of Marah (1491 BC)
 
 > **²²** So Moses brought Israel from the Red sea, and they went out into the wilderness of Shur; and they went three days in the wilderness, and found no water.  
 > **²³** And when they came to Marah, they could not drink of the waters of Marah, for they *were* bitter: therefore the name of it was called Marah.  

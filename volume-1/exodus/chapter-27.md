@@ -6,7 +6,7 @@ weight: 27
 
 In this chapter directions are given, I. Concerning the brazen altar for burnt-offerings, Ex 27:1-8. II. Concerning the court of the tabernacle, with the hangings of it, Ex 27:9-19. III. Concerning oil for the lamp, Ex 27:20,21.
 
-## The Tabernacle and Its Furniture. (b. c. 1491.)
+## The Tabernacle and Its Furniture (1491 BC)
 
 > **¹** And thou shalt make an altar *of* shittim wood, five cubits long, and five cubits broad; the altar shall be foursquare: and the height thereof *shall be* three cubits.  
 > **²** And thou shalt make the horns of it upon the four corners thereof: his horns shall be of the same: and thou shalt overlay it with brass.  

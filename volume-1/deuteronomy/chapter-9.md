@@ -6,7 +6,7 @@ weight: 9
 
 The design of Moses in this chapter is to convince the people of Israel of their utter unworthiness to receive from God those great favours that were now to be conferred upon them, writing this, as it were, in capital letters at the head of their charter, "Not for your sake, be it known unto you," Eze 36:32. I. He assures them of victory over their enemies, De 9:1-3. II. He cautions them not to attribute their successes to their own merit, but to God's justice, which was engaged against their enemies, and his faithfulness, which was engaged to their fathers, De 9:4-6. III. To make it evident that they had no reason to boast of their own righteousness, he mentions their faults, shows Israel their transgressions, and the house of Jacob their sins. In general, they had been all along a provoking people, De 9:7-24. In particular, 1. In the matter of the golden calf, the story of which he largely relates, De 9:8-21. 2. He mentions some other instances of their rebellion, De 9:22,23. And, 3. Returns, at De 9:25, to speak of the intercession he had made for them at Horeb, to prevent their being ruined for the golden calf.
 
-## Victory Promised. (b. c. 1451.)
+## Victory Promised (1451 BC)
 
 > **¹** Hear, O Israel: Thou *art* to pass over Jordan this day, to go in to possess nations greater and mightier than thyself, cities great and fenced up to heaven,  
 > **²** A people great and tall, the children of the Anakims, whom thou knowest, and *of whom* thou hast heard *say,* Who can stand before the children of Anak!  
@@ -25,7 +25,7 @@ III\. He cautions them not to entertain the least thought of their own righteous
 
 IV\. He intimates to them the true reasons why God would take this good land out of the hands of the Canaanites, and settle it upon Israel, and they are borrowed from his own honour, not from Israel's deserts. 1. He will be honoured in the destruction of idolaters; they are justly looked upon as haters of him, and therefore he will visit their iniquity upon them. It is *for the wickedness of these nations* that God *drives them out,* De 9:4, and again, De 9:5. All those whom God rejects are rejected for their own wickedness: but none of those whom he accepts are accepted for their own righteousness. 2. He will be honoured in the performance of his promise to those that are in covenant with him: God swore to the patriarchs, who loved him and left all to follow him, that he would give this land to their seed; and therefore he would *keep that promised mercy for thousands of those that loved him and kept his commandments;* he would not suffer his promise to fail. It was for their fathers' sakes that they were beloved, Ro 11:28. Thus boasting is for ever excluded. See Eph 1:9,11.
 
-## Cautions Against Self-Righteousness; Israel Reminded of Their Rebellions. (b. c. 1451.)
+## Cautions Against Self-Righteousness; Israel Reminded of Their Rebellions (1451 BC)
 
 > **⁷** Remember, *and* forget not, how thou provokedst the LORD thy God to wrath in the wilderness: from the day that thou didst depart out of the land of Egypt, until ye came unto this place, ye have been rebellious against the LORD.  
 > **⁸** Also in Horeb ye provoked the LORD to wrath, so that the LORD was angry with you to have destroyed you.  

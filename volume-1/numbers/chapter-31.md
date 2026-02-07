@@ -6,7 +6,7 @@ weight: 31
 
 This chapter belongs to "the book of the wars of the Lord," in which it is probable it was inserted. It is the history of a holy war, a war with Midian. Here is, I. A divine command for the war, Nu 31:1,2. II. The undertaking of the war, Nu 31:3-6. III. The glorious success of it, Nu 31:7-12. IV. Their triumphant return from the war. 1. The respect Moses paid to the soldiers, Nu 31:13. 2. The rebuke he gave them for sparing the women, Nu 31:14-18. 3. The directions he gave them for the purifying of themselves and their effects, Nu 31:19-24. 4. The distribution of the spoil they had taken, one half to the soldiers, the other to the congregation, and a tribute to the Lord out of each, Nu 31:25-47. 5. The free-will offering of the officers, Nu 31:48-54, etc.
 
-## The Slaughter of the Midianites. (b. c. 1452.)
+## The Slaughter of the Midianites (1452 BC)
 
 > **¹** And the LORD spake unto Moses, saying,  
 > **²** Avenge the children of Israel of the Midianites: afterward shalt thou be gathered unto thy people.  
@@ -55,7 +55,7 @@ III\. They were obliged to purify themselves, according to the ceremony of the l
 
 IV\. They must likewise purify the spoil they had taken, the captives (Nu 31:19) and all the goods, Nu 31:21-23. What would bear the fire must pass through the fire, and what would not must be washed with water. These things had been use by Midianites, and, having now come into the possession of Israelites, it was fit that they should be sanctified to the service of that holy nation and the honour of their holy God. To us now every thing is sanctified by the word and prayer, if we are sanctified by the Spirit, who is compared both to fire and water. *To the pure all things are pure.*
 
-## Distribution of the Spoil. (b. c. 1452.)
+## Distribution of the Spoil (1452 BC)
 
 > **²⁵** And the LORD spake unto Moses, saying,  
 > **²⁶** Take the sum of the prey that was taken, *both* of man and of beast, thou, and Eleazar the priest, and the chief fathers of the congregation:  

@@ -6,7 +6,7 @@ weight: 21
 
 In this chapter provision is made, I. For the putting away of the guilt of blood from the land, when he that shed it had fled from justice, De 21:1-9. II. For the preserving of the honour of a captive maid, De 21:10-14. III. For the securing of the right of a first-born son, though he were not a favourite, De 21:15-17. IV. For the restraining and punishing of a rebellious son, De 21:18-21. V. For the maintaining of the honour of human bodies, which must not be hanged in chains, but decently buried, even the bodies of the worst malefactors, De 21:22,23.
 
-## Undetected Murder. (b. c. 1451.)
+## Undetected Murder (1451 BC)
 
 > **¹** If *one* be found slain in the land which the LORD thy God giveth thee to possess it, lying in the field, *and* it be not known who hath slain him:  
 > **²** Then thy elders and thy judges shall come forth, and they shall measure unto the cities which *are* round about him that is slain:  
@@ -28,7 +28,7 @@ II\. Directions are given concerning what is to be done in this case. Observe,
 
 2\. This solemnity was appointed, (1.) That it might give occasion to common and public discourse concerning the murder, which perhaps might some way or other occasion the discovery of it. (2.) That it might possess people with a dread of the guilt of blood, which defiles not only the conscience of him that sheds it (this should engage us all to pray with David, *Deliver me from blood—guiltiness*), but the land in which it is shed; it cries to the magistrate for justice on the criminal, and, if that cry be not heard, it cries to heaven for judgment on the land. If there must be so much care employed to save the land from guilt when the murderer was not known, it was certainly impossible to secure it from guilt if the murderer was known and yet protected. All would be taught, by this solemnity, to use their utmost care and diligence to prevent, discover, and punish murder. Even the heathen mariners dreaded the guilt of blood, Jon 1:14. (3.) That we might all learn to take heed of partaking in other men's sins, and making ourselves accessory to them *ex post facto—after the fact,* by countenancing the sin or sinner, and not witnessing against it in our places. We have *fellowship with the unfruitful works of darkness* if we do not reprove them rather, and bear our testimony against them. The repentance of the church of Corinth for the sin of one of their members produced such a carefulness, such a clearing of themselves, such a holy indignation, fear, and revenge (2Co 7:11), as were signified by the solemnity here appointed.
 
-## The Case of Captive Women. (b. c. 1451.)
+## The Case of Captive Women (1451 BC)
 
 > **¹⁰** When thou goest forth to war against thine enemies, and the LORD thy God hath delivered them into thine hands, and thou hast taken them captive,  
 > **¹¹** And seest among the captives a beautiful woman, and hast a desire unto her, that thou wouldest have her to thy wife;  
@@ -44,7 +44,7 @@ I\. That they should not abuse themselves by doing it too hastily, though the ca
 
 II\. That they should not abuse the poor captive. 1. She must have time to *bewail her father and mother,* from whom she was separated, and without whose consent and blessing she is now likely to be married, and perhaps to a common soldier of Israel, though in her country ever so nobly born and bred. To force a marriage till these sorrows were digested, and in some measure got over, and she was better reconciled to the land of her captivity by being better acquainted with it, would be very unkind. She must not bewail her idols, but be glad to part with them; to her near and dear relations only her affection must be thus indulged. 2. If, upon second thoughts, he that had brought her to his house with a purpose to marry her changed his mind and would not marry her, he might not make merchandise of her, as of his other prisoners, but must give her liberty to return, if she pleased, to her own country, because he had humbled her and afflicted her, by raising expectations and then disappointing them (De 21:14); having made a fool of her, he might not make a prey of her. This intimates how binding the laws of justice and honour are, particularly in the pretensions of love, the courting of affections, and the promises of marriage, which are to be looked upon as solemn things, that have something sacred in them, and therefore are not to be jested with.
 
-## The Right of the Firstborn. (b. c. 1451.)
+## The Right of the Firstborn (1451 BC)
 
 > **¹⁵** If a man have two wives, one beloved, and another hated, and they have born him children, *both* the beloved and the hated; and *if* the firstborn son be hers that was hated:  
 > **¹⁶** Then it shall be, when he maketh his sons to inherit *that* which he hath, *that* he may not make the son of the beloved firstborn before the son of the hated, *which is indeed* the firstborn:  
@@ -56,7 +56,7 @@ I\. The case here put (De 21:15) is very instructive. 1. It shows the great misc
 
 II\. The law in this case is still binding on parents; they must give their children their right without partiality. In the case supposed, the eldest son, though the son of the less-beloved wife, must have his birthright privilege, which was a double portion of the father's estate, because he was the beginning of his strength that is, in him his family began to be strengthened and his quiver began to be filled with the *arrows of a mighty man* (Ps 127:4), and therefore the right of the first-born is his, De 21:16,17. Jacob had indeed deprived Reuben of his birthright, and given it to Joseph, but it was because Reuben had forfeited the birthright by his incest, not because he was the *son of the hated;* now, lest that which Jacob did justly should be drawn into a precedent for others to do the same thing unjustly, it is here provided that when the father makes his will, or otherwise settled his estate, the child shall not fare the worse for the mother's unhappiness in having less of her husband's love, for that was not the child's fault. Note, (1.) Parents ought to make no other difference in dispensing their affections among their children than what they see plainly God makes in dispensing his grace among them. (2.) Since it is the providence of God that makes heirs, the disposal of providence in that matter must be acquiesced in and not opposed. No son should be abandoned by his father till he manifestly appear to be abandoned of God, which is hard to say of any while there is life.
 
-## Punishment of a Rebellious Son; Burial of Malefactors. (b. c. 1451.)
+## Punishment of a Rebellious Son; Burial of Malefactors (1451 BC)
 
 > **¹⁸** If a man have a stubborn and rebellious son, which will not obey the voice of his father, or the voice of his mother, and *that,* when they have chastened him, will not hearken unto them:  
 > **¹⁹** Then shall his father and his mother lay hold on him, and bring him out unto the elders of his city, and unto the gate of his place;  

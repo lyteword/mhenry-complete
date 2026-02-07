@@ -6,7 +6,7 @@ weight: 12
 
 Moses at this chapter comes to the particular statues which he had to give in charge to Israel, and he begins with those which relate to the worship of God, and particularly those which explain the second commandment, about which God is in a special manner jealous. I. They must utterly destroy all relics and remains of idolatry, De 12:1-3. II. They must keep close to the tabernacle, De 12:4,5. The former precept was intended to prevent all false worship, the latter to preserve the worship God had instituted. By this latter law, 1. They are commanded to bring all their offerings to the altar of God, and all their holy things to the place which he should choose, De 12:6,7,11,12,14,18,26-28. 2. They are forbidden, in general, to do as they now did in the wilderness (De 12:8-11), and as the Canaanites had done (De 12:29-32), and, in particular, to eat the hallowed things at their own houses (De 12:13,17,18), or to forsake the instituted ministry, De 12:19. 3. They are permitted to eat flesh as common food at their own houses, provided they do not eat the blood, De 12:15,16, and again, De 12:20-26.
 
-## Relics of Idolatry to Be Destroyed. (b. c. 1451.)
+## Relics of Idolatry to Be Destroyed (1451 BC)
 
 > **¹** These *are* the statutes and judgments, which ye shall observe to do in the land, which the LORD God of thy fathers giveth thee to possess it, all the days that ye live upon the earth.  
 > **²** Ye shall utterly destroy all the places, wherein the nations which ye shall possess served their gods, upon the high mountains, and upon the hills, and under every green tree:  
@@ -19,7 +19,7 @@ I\. They are here charged to abolish and extirpate all those things that the Can
 
 II\. They are charged not to transfer the rites and usages of idolaters into he worship of God; no, not under colour of beautifying and improving it (De 12:4): *You shall not do so to the Lord your god,* that is, "you must not think to do honour to him by offering sacrifices on mountains and hills, erecting pillars, planting groves, and setting up images; no, you must not indulge a luxurious fancy in your worship, nor think that whatever pleases that will please God: *he is above all gods,* and will not be worshipped as other gods are."
 
-## Where Sacrifices Must Be Offered; Ceremonial Observances; Cautions Against Idolatrous Rites. (b. c. 1451.)
+## Where Sacrifices Must Be Offered; Ceremonial Observances; Cautions Against Idolatrous Rites (1451 BC)
 
 > **⁵** But unto the place which the LORD your God shall choose out of all your tribes to put his name there, *even* unto his habitation shall ye seek, and thither thou shalt come:  
 > **⁶** And thither ye shall bring your burnt offerings, and your sacrifices, and your tithes, and heave offerings of your hand, and your vows, and your freewill offerings, and the firstlings of your herds and of your flocks:  

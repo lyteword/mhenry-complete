@@ -6,7 +6,7 @@ weight: 22
 
 The laws of this chapter relate, I. To the eighth commandment, concerning theft (Ex 22:1-4), trespass by cattle (Ex 22:5), damage by fire (Ex 22:6), trusts (Ex 22:7-13), borrowing cattle (Ex 22:14,15), or money, Ex 22:25. II. To the seventh commandment. Against fornication (Ex 22:16,17), bestiality, Ex 22:19. III. To the first table, forbidding witchcraft (Ex 22:18), idolatry, Ex 22:20. Commanding to offer the firstfruits, Ex 22:29,30. IV. To the poor, Ex 22:21-24. V. To the civil government, Ex 22:28. VI. To the peculiarity of the Jewish nation, Ex 22:31.
 
-## Judicial Laws. (b. c. 1491.)
+## Judicial Laws (1491 BC)
 
 > **¹** If a man shall steal an ox, or a sheep, and kill it, or sell it; he shall restore five oxen for an ox, and four sheep for a sheep.  
 > **²** If a thief be found breaking up, and be smitten that he die, *there shall* no blood *be shed* for him.  

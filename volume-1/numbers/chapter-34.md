@@ -6,7 +6,7 @@ weight: 34
 
 In this chapter God directs Moses, and he is to direct Israel, I. Concerning the bounds and borders of the land of Canaan, Nu 34:1-15. II. Concerning the division and distribution of it to the tribes of Israel, Nu 34:16-29, etc.
 
-## The Boundaries of Canaan. (b. c. 1452.)
+## The Boundaries of Canaan (1452 BC)
 
 > **¹** And the LORD spake unto Moses, saying,  
 > **²** Command the children of Israel, and say unto them, When ye come into the land of Canaan; (this *is* the land that shall fall unto you for an inheritance, *even* the land of Canaan with the coasts thereof:)  

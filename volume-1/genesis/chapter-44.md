@@ -6,7 +6,7 @@ weight: 44
 
 Joseph, having entertained his brethren, dismissed them; but here we have them brought back in a greater fright than any they had been in yet. Observe, I. What method he took both to humble them further and also to try their affection to his brother Benjamin, by which he would be able to judge of the sincerity of their repentance for what they had done against himself, of which he was desirous to be satisfied before he manifested his reconciliation to them. This he contrived to do by bringing Benjamin into distress, Ge 44:1-17. II. The good success of the experiment; he found them all heartily concerned, and Judah particularly, both for the safety of Benjamin and for the comfort of their aged father, Ge 44:18-34, etc.
 
-## Joseph's Policy. (b. c. 1707.)
+## Joseph's Policy (1707 BC)
 
 > **¹** And he commanded the steward of his house, saying, Fill the men's sacks *with* food, as much as they can carry, and put every man's money in his sack's mouth.  
 > **²** And put my cup, the silver cup, in the sack's mouth of the youngest, and his corn money. And he did according to the word that Joseph had spoken.  
@@ -38,7 +38,7 @@ IV\. Here is their humble submission, Ge 44:16. 1. They acknowledge the righteou
 
 V\. Joseph, with an air of justice, gives sentence that Benjamin only should be kept in bondage, and the rest should be dismissed; for why should any suffer but the guilty? Perhaps Joseph intended hereby to try Benjamin's temper, whether he could bear such a hardship as this with the calmness and composure of mind that became a wise and good man: in short, whether he was indeed his own brother, in *spirit* as well as *blood;* for Joseph himself had been falsely accused, and had suffered hard things in consequence, and yet kept possession of his own soul. However, it is plain he intended hereby to try the affection of his brethren to Benjamin and to their father. If they had gone away contentedly, and left Benjamin in bonds, no doubt Joseph would soon have released and promoted him, and sent notice to Jacob, and would have left the rest of his brethren justly to suffer for their hard-heartedness; but they proved to be better affected to Benjamin than he feared. Note, We cannot judge what men are by what they have been formerly, nor what they will do by what they have done: age and experience may make men wiser and better. Those that had sold Joseph would not now abandon Benjamin. The worst may mend in time.
 
-## Judah's Appeal on Behalf of Benjamin. (b. c. 1707.)
+## Judah's Appeal on Behalf of Benjamin (1707 BC)
 
 > **¹⁸** Then Judah came near unto him, and said, Oh my lord, let thy servant, I pray thee, speak a word in my lord's ears, and let not thine anger burn against thy servant: for thou *art* even as Pharaoh.  
 > **¹⁹** My lord asked his servants, saying, Have ye a father, or a brother?  

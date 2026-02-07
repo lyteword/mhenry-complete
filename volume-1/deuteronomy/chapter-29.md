@@ -6,7 +6,7 @@ weight: 29
 
 The first words of this chapter are the contents of it, "These are the words of the covenant" (De 29:1), that is, these that follow. Here is, I. A recital of God's dealings with them, in order to the bringing of them into this covenant, De 29:2-8. II. A solemn charge to them to keep the covenant, De 29:9. III. An abstract of the covenant itself, De 29:12,13. IV. A specification of the persons taken into the covenant, De 29:10,11,14,15. V. An intimation of the great design of this covenant against idolatry, in a parenthesis, De 29:16,17. VI. A most solemn and dreadful denunciation of the wrath of God against such persons as promise themselves peace in a sinful way, De 29:18-28. VII. The conclusion of this treaty, with a distinction between things secret and things revealed, De 29:29.
 
-## Mercies Called to Remembrance. (b. c. 1451.)
+## Mercies Called to Remembrance (1451 BC)
 
 > **¹** These *are* the words of the covenant, which the LORD commanded Moses to make with the children of Israel in the land of Moab, beside the covenant which he made with them in Horeb.  
 > **²** And Moses called unto all Israel, and said unto them, Ye have seen all that the LORD did before your eyes in the land of Egypt unto Pharaoh, and unto all his servants, and unto all his land;  
@@ -32,7 +32,7 @@ IV\. By way of inference from these memoirs,
 
 2\. Moses charges them to be obedient: *Keep therefore, and do,* De 29:9. Note, We are bound in gratitude and interest, as well as duty and faithfulness, to *keep the words of the covenant.*
 
-## The Covenant Renewed. (b. c. 1451.)
+## The Covenant Renewed (1451 BC)
 
 > **¹⁰** Ye stand this day all of you before the LORD your God; your captains of your tribes, your elders, and your officers, *with* all the men of Israel,  
 > **¹¹** Your little ones, your wives, and thy stranger that *is* in thy camp, from the hewer of thy wood unto the drawer of thy water:  

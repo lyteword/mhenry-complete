@@ -6,7 +6,7 @@ weight: 4
 
 In the former chapter an account was taken of the whole tribe of Levi, in this we have an account of those of that tribe who were in the prime of their time for service, betwixt thirty and fifty years old. I. The serviceable men of the Kohathites are ordered to be numbered, and their charges are given them, Nu 4:2-20. II. Of the Gershonites, Nu 4:24-28. III. Of the Merarites, Nu 4:29-33. IV. The numbers of each, and the sum total at last, are recorded, Nu 4:34-49, etc.
 
-## The Office of the Levites. (b. c. 1490.)
+## The Office of the Levites (1490 BC)
 
 > **¹** And the LORD spake unto Moses and unto Aaron, saying,  
 > **²** Take the sum of the sons of Kohath from among the sons of Levi, after their families, by the house of their fathers,  

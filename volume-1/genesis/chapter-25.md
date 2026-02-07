@@ -6,7 +6,7 @@ weight: 25
 
 The sacred historian, in this chapter, I. Takes his leave of Abraham, with an account, 1. Of his children by another wife, Ge 25:1-4. 2. Of his last will and testament, Ge 25:5,6. 3. Of his age, death, and burial, Ge 25:7-10. II. He takes his leave of Ishmael, with a short account, 1. Of his children, Ge 25:12-16. 2. Of his age and death, Ge 25:17,18. III. He enters upon the history of Isaac. 1. His prosperity, Ge 25:11. 2. The conception and birth of his two sons, with the oracle of God concerning them, Ge 25:19-26. 3. Their different characters, Ge 25:27,28. 4. Esau's selling his birthright to Jacob, Ge 25:29-34.
 
-## Abraham's Death. (b. c. 1822.)
+## Abraham's Death (1822 BC)
 
 > **¹** Then again Abraham took a wife, and her name *was* Keturah.  
 > **²** And she bare him Zimran, and Jokshan, and Medan, and Midian, and Ishbak, and Shuah.  
@@ -29,7 +29,7 @@ III\. The age and death of Abraham, Ge 25:7,8. He lived 175 years, just 100 year
 
 IV\. His burial, Ge 25:9,10. Here is nothing recorded of the pomp or ceremony of his funeral; only we are told, 1. Who buried him: *His sons Isaac and Ishmael.* It was the last office of respect they had to pay to their good father. Some distance there had formerly been between Isaac and Ishmael; but it seems either that Abraham had himself brought them together while he lived, or at least that his death reconciled them. 2. Where they buried him: in his own burying-place, which he had purchased, and in which he had buried Sarah. Note, Those that in life have been very dear to each other may not only innocently, but laudably, desire to be buried together, that in their deaths they may not be divided, and in token of their hopes of rising together.
 
-## Genealogy of Ishmael. (b. c. 1822.)
+## Genealogy of Ishmael (1822 BC)
 
 > **¹¹** And it came to pass after the death of Abraham, that God blessed his son Isaac; and Isaac dwelt by the well Lahai-roi.  
 > **¹²** Now these *are* the generations of Ishmael, Abraham's son, whom Hagar the Egyptian, Sarah's handmaid, bare unto Abraham:  
@@ -42,7 +42,7 @@ IV\. His burial, Ge 25:9,10. Here is nothing recorded of the pomp or ceremony of
 
 Immediately after the account of Abraham's death, Moses begins the story of Isaac (Ge 25:11), and tells us where he dwelt and how remarkably God blessed him. Note, The blessing of Abraham did not die with him, but survived to all the children of the promise. But he presently digresses from the story of Isaac, to give a short account of Ishmael, forasmuch as he also was a son of Abraham, and God had made some promises concerning him, which it was requisite we should know the accomplishment of. Observe here what is said, 1. Concerning his children. He had twelve sons, *twelve princes* they are called (Ge 25:16), heads of families, which in process of time became nations, distinct tribes, numerous and very considerable. They peopled a very large continent, that lay between Egypt and Assyria, called *Arabia.* The names of his twelve sons are recorded. Midian and Kedar we often read of in scripture. And some very good expositors have taken notice of the signification of those three names which are put together (Ge 25:14), as containing good advice to us all, *Mishma, Dumah,* and *Massa,* that is, *hear, keep silence,* and *bear;* we have them together in the same order, Jam 1:19, *Be swift to hear, slow to speak, slow to wrath.* The posterity of Ishmael had not only tents in the fields, wherein they grew rich in times of peace; but they had towns and castles (Ge 25:16), wherein they fortified themselves in time of war. Now the number and strength of this family were the fruit of the promise made to Hagar concerning Ishmael (Ge 16:10), and to Abraham, Ge 17:20,21:13. Note, Many that are strangers to the covenants of promise are yet blessed with outward prosperity for the sake of their godly ancestors. *Wealth and riches shall be in their house.* 2. Concerning himself. Here is an account of his age: He *lived* 137 *years* (Ge 25:17) which is recorded to show the efficacy of Abraham's prayer for him (Ge 17:18), *O that Ishmael might live before thee!* Here is also an account of his death; he too *was gathered to his people;* but it is not said that he was *full of days,* though he lived to so great an age: he was not so weary of the world, nor so willing to leave it, as his good father was. Those words, *he fell in the presence of all his brethren,* whether they mean, as we take them, *he died,* or, as others, *his lot fell,* are designed to show the fulfilling of that word to Hagar (Ge 16:12), *He shall dwell in the presence of all his brethren,* that is, he shall flourish and be eminent among them, and shall hold his own to the last. Or he died with his friends about him, which is comfortable.
 
-## Birth of Esau and Jacob. (b. c. 1837.)
+## Birth of Esau and Jacob (1837 BC)
 
 > **¹⁹** And these *are* the generations of Isaac, Abraham's son: Abraham begat Isaac:  
 > **²⁰** And Isaac was forty years old when he took Rebekah to wife, the daughter of Bethuel the Syrian of Padan-aram, the sister to Laban the Syrian.  
@@ -77,7 +77,7 @@ III\. That when they were born there was a great difference between them, which 
 
 4\. Their interest in the affections of their parents was likewise different. They had but these two children, and, it seems, one was the father's darling and the other the mother's, Ge 25:28. (1.) Isaac, though he was not a stirring man himself (for when he went into the fields he went to meditate and pray, not to hunt), yet loved to have his son active. Esau knew how to please him, and showed a great respect for him, by treating him often with venison, which gained him the affections of the good old man, and won upon him more than one would have thought. (2.) Rebekah was mindful of the oracle of God, which had given the preference to Jacob, and therefore she preferred him in her love. And, if it be lawful for parents to make a difference between their children upon any account, doubtless Rebekah was in the right, that loved him whom God loved.
 
-## Esau Sells His Birthright. (b. c. 1805.)
+## Esau Sells His Birthright (1805 BC)
 
 > **²⁹** And Jacob sod pottage: and Esau came from the field, and he *was* faint:  
 > **³⁰** And Esau said to Jacob, Feed me, I pray thee, with that same red *pottage;* for I *am* faint: therefore was his name called Edom.  

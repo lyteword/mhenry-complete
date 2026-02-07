@@ -6,7 +6,7 @@ weight: 38
 
 Here is an account, I. Of the making of the brazen altar (Ex 38:1-7), and the laver, Ex 38:8. II. The preparing of the hangings for the enclosing of the court in which the tabernacle was to stand, Ex 38:9-20. III. A summary of the gold, silver, and brass, that was contributed to, and used in, the preparing of the tabernacle, Ex 38:21-31, etc.
 
-## The Tabernacle and Its Furniture. (b. c. 1491.)
+## The Tabernacle and Its Furniture (1491 BC)
 
 > **¹** And he made the altar of burnt offering *of* shittim wood: five cubits *was* the length thereof, and five cubits the breadth thereof; *it was* foursquare; and three cubits the height thereof.  
 > **²** And he made the horns thereof on the four corners of it; the horns thereof were of the same: and he overlaid it with brass.  

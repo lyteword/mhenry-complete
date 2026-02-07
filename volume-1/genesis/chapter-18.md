@@ -6,7 +6,7 @@ weight: 18
 
 We have an account in this chapter of another interview between God and Abraham, probably within a few days after the former, as the reward of his cheerful obedience to the law of circumcision. Here is, I. The kind visit which God made him, and the kind entertainment which he gave to that visit, Ge 18:1-8. II. The matters discoursed of between them. 1. The purposes of God's love concerning Sarah, Ge 18:9-15. 2. The purposes of God's wrath concerning Sodom. (1.) The discovery God made to Abraham of his design to destroy Sodom, Ge 18:16-22. (2.) The intercession Abraham made for Sodom, Ge 18:23-33, etc.).
 
-## Abraham's Interview with the Angels. (b. c. 1898.)
+## Abraham's Interview with the Angels (1898 BC)
 
 > **¹** And the LORD appeared unto him in the plains of Mamre: and he sat in the tent door in the heat of the day;  
 > **²** And he lift up his eyes and looked, and, lo, three men stood by him: and when he saw *them,* he ran to meet them from the tent-door, and bowed himself toward the ground,  
@@ -43,7 +43,7 @@ IV\. The angel reproves the indecent expressions of her distrust, Ge 18:13,14. O
 
 V\. Sarah foolishly endeavours to conceal her fault (Ge 18:15): *She denied, saying, I did not laugh,* thinking nobody could contradict her: she told this lie, because *she was afraid;* but it was in vain to attempt concealing it from an all-seeing eye; she was told, to her shame, *Thou didst laugh.* Now, 1. There seems to be in Sarah a retraction of her distrust. Now she perceived, by laying circumstances together, that it was a divine promise which had been made concerning her, she renounced all doubting distrustful thoughts about it. But, 2. There was withal a sinful attempt to cover a sin with a lie. It is a shame to do amiss, but a greater shame to deny it; for thereby we add iniquity to our iniquity. Fear of a rebuke often betrays us into this snare. See Isa 57:11, *Whom hast thou feared, that thou hast lied?* But we deceive ourselves if we think to impose upon God; he can and will bring truth to light, to our shame. *He that covers his sin cannot prosper,* for the day is coming which will discover it.
 
-## Abraham's Interview with God. (b. c. 1898.)
+## Abraham's Interview with God (1898 BC)
 
 > **¹⁶** And the men rose up from thence, and looked toward Sodom: and Abraham went with them to bring them on the way.  
 > **¹⁷** And the LORD said, Shall I hide from Abraham that thing which I do;  
@@ -67,7 +67,7 @@ II\. The honour they did to him; for those that honour God he will honour. God c
 
 2\. God's friendly talk with Abraham, in which he makes known to him purpose concerning Sodom, and allows him a liberty of application to him about the matter. (1.) He tells him of the evidence there was against Sodom: *The cry of Sodom is great,* Ge 18:20. Note, Some sins, and the sins of some sinners, cry aloud to heaven for vengeance. The iniquity of Sodom was crying iniquity, that is, it was so very provoking that it even urged God to punish. (2.) The enquiry he would make upon this evidence: *I will go down now and see,* Ge 18:21. Not as if there were any thing concerning which God is in doubt, or in the dark; but he is pleased thus to express himself after the manner of men, [1.] To show the incontestable equity of all his judicial proceedings. Men are apt to suggest that his way is not equal; but let them know that his judgments are the result of an eternal counsel, and are never rash or sudden resolves. He never punishes upon report, or common fame, or the information of others, but upon his own certain and infallible knowledge. [2.] To give example to magistrates, and those in authority, with the utmost care and diligence to enquire into the merits of a cause, before they give judgment upon it. [3.] Perhaps the decree is here spoken of as not yet peremptory, that room and encouragement might be given to Abraham to make intercession for them. Thus God looked if there were any to intercede, Isa 59:16.
 
-## Abraham's Intercession for Sodom. (b. c. 1898.)
+## Abraham's Intercession for Sodom (1898 BC)
 
 > **²³** And Abraham drew near, and said, Wilt thou also destroy the righteous with the wicked?  
 > **²⁴** Peradventure there be fifty righteous within the city: wilt thou also destroy and not spare the place for the fifty righteous that *are* therein?  

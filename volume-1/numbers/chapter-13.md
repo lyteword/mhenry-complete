@@ -6,7 +6,7 @@ weight: 13
 
 It is a memorable and very melancholy story which is related in this and the following chapter, of the turning back of Israel from the borders of Canaan, when they were just ready to set foot in it, and the sentencing of them to wander and perish in the wilderness for their unbelief and murmuring. It is referred to Ps 95:7-11, etc., and improved for warning to Christians, Heb 3:7-19, etc. In this chapter we have, I. The sending of twelve spies before them into Canaan, Nu 13:1-16. II. The instructions given to these spies, Nu 13:17-20. III. Their executing their commission according to their instructions, and their return from the search, Nu 13:21-25. IV. The report they brought back to the camp of Israel, Nu 13:26-33, etc.
 
-## Missions of the Twelve Spies. (b. c. 1490.)
+## Missions of the Twelve Spies (1490 BC)
 
 > **¹** And the LORD spake unto Moses, saying,  
 > **²** Send thou men, that they may search the land of Canaan, which I give unto the children of Israel: of every tribe of their fathers shall ye send a man, every one a ruler among them.  

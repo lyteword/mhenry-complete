@@ -6,7 +6,7 @@ weight: 1
 
 Israel was now to be formed into a commonwealth, or rather a kingdom; for "the Lord was their King" (1Sa 12:12), their government a theocracy, and Moses under him was king in Jeshurun, De 33:5. Now, for the right settlement of this holy state, next to the institution of good laws was necessary the institution of good order; and account therefore must be taken of the subjects of this kingdom, which is done in this chapter, where we have, I. Orders given to Moses to number the people, Nu 1:1-4. II. Persons nominated to assist him herein, Nu 1:5-16. III. The particular number of each tribe, as it was given in to Moses, Nu 1:17-43. IV. The sum total of all together, Nu 1:44-46. V. An exception of the Levites, Nu 1:47-54, etc.
 
-## The Numbering of the Israelites. (b. c. 1490.)
+## The Numbering of the Israelites (1490 BC)
 
 > **¹** And the LORD spake unto Moses in the wilderness of Sinai, in the tabernacle of the congregation, on the first *day* of the second month, in the second year after they were come out of the land of Egypt, saying,  
 > **²** Take ye the sum of all the congregation of the children of Israel, after their families, by the house of their fathers, with the number of *their* names, every male by their polls;  

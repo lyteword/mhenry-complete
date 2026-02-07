@@ -6,7 +6,7 @@ weight: 27
 
 The Le 26:46 seemed to close up the statute-book; yet this chapter is added as an appendix. Having given laws concerning instituted services, here he directs concerning vows and voluntary services, the free-will offerings of their mouth. Perhaps some devout serious people among them might be so affected with what Moses had delivered to them in the foregoing chapter as in a pang of zeal to consecrate themselves, or their children, or estates to him: this, because honestly meant, God would accept; but, because men are apt to repent of such vows, he leaves room for the redemption of what had been so consecrated, at a certain rate. Here is, I. The law concerning what was sanctified to God, persons (Le 27:2-8), cattle, clean or unclean (Le 27:9-13), houses and lands (Le 27:15-25), with an exception of firstlings, Le 27:26,27. II. Concerning what was devoted, Le 27:28,29. III. Concerning tithes, Le 27:30-34, etc.
 
-## The Law Concerning Vows. (b. c. 1490.)
+## The Law Concerning Vows (1490 BC)
 
 > **¹** And the LORD spake unto Moses, saying,  
 > **²** Speak unto the children of Israel, and say unto them, When a man shall make a singular vow, the persons *shall be* for the LORD by thy estimation.  
@@ -28,7 +28,7 @@ I\. The case is here put of persons vowed to God by a singular vow, Le 27:2. If 
 
 II\. The case is put of beasts vowed to God, 1. If it was a clean beast, such as was offered in sacrifice, it must not be redeemed, nor any equivalent given for it: *It shall be holy,* Le 27:9,10. After it was vowed, it was not to be put to any common use, nor changed upon second thoughts; but it must be either offered upon the altar, or, if through any blemish it was not meet to be offered, he that vowed it should not take advantage of that, but the priests should have it for their own use (for they were God's receivers), or it should be sold for the service of the sanctuary. This teaches caution in making vows and constancy in keeping them when they are made; for *it is a snare to a man to devour that which is holy, and after vows to make enquiry,* Pr 20:25. And to this that rule of charity seems to allude (2Co 9:7), *Every man, according as he purposeth in his heart, so let him give.* 2. If it was an unclean beast, it should go to the use of the priest at such a value; but he that vowed it, upon paying that value in money, and adding a fifth part more to it, might redeem it if he pleased, Le 27:11-13. It was fit that men should smart for their inconstancy. God has let us know his mind concerning his service, and he is not pleased if we do not know our own. God expects that those that deal with him should be at a point, and way what they will stand to.
 
-## Concerning Things Sanctified. (b. c. 1490.)
+## Concerning Things Sanctified (1490 BC)
 
 > **¹⁴** And when a man shall sanctify his house *to be* holy unto the LORD, then the priest shall estimate it, whether it be good or bad: as the priest shall estimate it, so shall it stand.  
 > **¹⁵** And if he that sanctified it will redeem his house, then he shall add the fifth *part* of the money of thy estimation unto it, and it shall be his.  

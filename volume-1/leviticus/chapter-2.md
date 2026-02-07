@@ -6,7 +6,7 @@ weight: 2
 
 In this chapter we have the law concerning the meat-offering. I. The matter of it; whether of raw flour with oil and incense (Le 2:1), or baked in the oven (Le 2:4), or upon a plate (Le 2:5,6), or in a frying pan, Le 2:7. II. The management of it, of the flour (Le 2:2,3), of the cakes, Le 2:8-10. III. Some particular rules concerning it, That leaven and honey must never be admitted (Le 2:11,12), and salt never omitted in the meat-offering, Le 2:13. IV. The law concerning the offering of firstfruits in the ear, Le 2:14, etc.
 
-## The Law of the Meat-Offering. (b. c. 1490.)
+## The Law of the Meat-Offering (1490 BC)
 
 > **¹** And when any will offer a meat offering unto the LORD, his offering shall be *of* fine flour; and he shall pour oil upon it, and put frankincense thereon:  
 > **²** And he shall bring it to Aaron's sons the priests: and he shall take thereout his handful of the flour thereof, and of the oil thereof, with all the frankincense thereof; and the priest shall burn the memorial of it upon the altar, *to be* an offering made by fire, of a sweet savour unto the LORD:  

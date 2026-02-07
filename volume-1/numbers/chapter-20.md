@@ -6,7 +6,7 @@ weight: 20
 
 At this chapter begins the history of the fortieth year (which was the last year) of the Israelites' wandering in the wilderness. And since the beginning of their second year, when they were sentenced to perform their quarantine in the desert, there to wear away the tedious revolution of forty years, there is little recorded concerning them till this last year, which brought them to the borders of Canaan, and the history of this year is almost as large as the history of the first year. This chapter gives an account of, I. The death of Miriam, Nu 20:1. II. The fetching of water out of the rock, in which observe, 1. The distress Israel was in, for want of water, Nu 20:2. 2. Their discontent and murmuring in that distress, Nu 20:3-5. 3. God's pity and power engaged for their supply with water out of the rock, Nu 20:6-9. 4. The infirmity of Moses and Aaron upon this occasion, Nu 20:10,11. 5. God's displeasure against them, Nu 20:12,13. III. The negotiation with the Edomites. Israel's request (Nu 20:14-17), and the repulse the Edomites gave them, Nu 20:18-21. IV. The death of Aaron the high priest upon Mount Hor, the instalment of Eleazar in his room, and the people's mourning for him, Nu 20:22, etc.
 
-## The Death of Miriam; The Water of Meribah; Moses and Aaron Reproved. (b. c. 1453.)
+## The Death of Miriam; The Water of Meribah; Moses and Aaron Reproved (1453 BC)
 
 > **¹** Then came the children of Israel, *even* the whole congregation, into the desert of Zin in the first month: and the people abode in Kadesh; and Miriam died there, and was buried there.  
 > **²** And there was no water for the congregation: and they gathered themselves together against Moses and against Aaron.  
@@ -44,7 +44,7 @@ II\. Here there is another Meribah. one place we met with before of that name, i
 
 *Lastly,* The place is hereupon called *Meribah,* Nu 20:13. It is called *Meribah-Kadesh* (De 32:51), to distinguish it from the other Meribah. It is the *water of strife;* to perpetuate the remembrance of the people's sin, and Moses's, and yet of God's mercy, who supplied them with water, and owned and honoured Moses notwithstanding. Thus he was sanctified in the, as the *Holy One of Israel,* so he is called when his mercy rejoices against judgment, Ho 11:9. Moses and Aaron did not sanctify God as they ought in the eyes of Israel (Nu 20:12), but God was sanctified in them; for he will not be a loser in his honour by any man. If he be not glorified by us, he will be glorified upon us.
 
-## Ambassadors Sent to Edom. (b. c. 1452.)
+## Ambassadors Sent to Edom (1452 BC)
 
 > **¹⁴** And Moses sent messengers from Kadesh unto the king of Edom, Thus saith thy brother Israel, Thou knowest all the travail that hath befallen us:  
 > **¹⁵** How our fathers went down into Egypt, and we have dwelt in Egypt a long time; and the Egyptians vexed us, and our fathers:  
@@ -61,7 +61,7 @@ I\. Moses sends ambassadors to treat with the king of Edom for leave to pass thr
 
 II\. The ambassadors returned with a denial, Nu 20:18. Edom, that is, the king of Edom, as protector of his country, said, *Thou shalt not pass by me;* and, when the ambassadors urged it further, he repeated the denial (Nu 20:20) and threatened, if they offered to enter his country, it should be at their peril; he raised his trained bands to oppose them. *Thus Edom refused to give Israel passage.* This was owing, 1. To their jealousy of the Israelites; they feared they should receive promises. And truly, had this numerous army been under any other discipline and command than that of the righteous God himself, who would no more suffer them to do wrong than to take wrong, there might have been cause for this jealousy; but what could they fear from a nation that had *statutes and judgments so righteous?* 2. It was owing to the old enmity which Esau bore to Israel. If they had no reason to fear damage by them, yet they were not willing to show so much kindness to them. Esau hated Jacob because of the blessing, and now the hatred revived, when the blessing was ready to be inherited. God would hereby discover the ill-nature of the Edomites to their shame, and try the good-nature of the Israelites to their honour: they *turned away from him,* and did not take this occasion to quarrel with him. Note, We must not think it strange if the most reasonable requests be denied by unreasonable men, and if those be affronted by men whom God favours. *I as a deaf man heard not.* After this indignity which the Edomites offered to Israel God gave them a particular caution *not to abhor an Edomite* (De 23:7), though the Edomites had shown such an abhorrence of them, to teach us in such cases not to meditate revenge.
 
-## The Edomites Refuse a Passage to Israel; The Death of Aaron. (b. c. 1452.)
+## The Edomites Refuse a Passage to Israel; The Death of Aaron (1452 BC)
 
 > **²²** And the children of Israel, *even* the whole congregation, journeyed from Kadesh, and came unto mount Hor.  
 > **²³** And the LORD spake unto Moses and Aaron in mount Hor, by the coast of the land of Edom, saying,  

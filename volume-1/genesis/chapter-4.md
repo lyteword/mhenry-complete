@@ -6,7 +6,7 @@ weight: 4
 
 In this chapter we have both the world and the church in a family, in a little family, in Adam's family, and a specimen given of the character and state of both in after-ages, nay, in all ages, to the end of time. As all mankind were represented in Adam, so that great distinction of mankind into saints and sinners, godly and wicked, the children of God and the children of the wicked one, was here represented in Cain and Abel, and an early instance is given of the enmity which was lately put between the seed of the woman and the seed of the serpent. We have here, I. The birth, names, and callings, of Cain and Abel, Ge 4:1,2. II. Their religion, and different success in it, Ge 4:3,4, and part of Ge 4:5. III. Cain's anger at God and the reproof of him for that anger, Ge 4:5-7. IV. Cain's murder of his brother, and the process against him for that murder. The murder committed, Ge 4:8. The proceedings against him. 1. His arraignment, Ge 4:9, former part. 2. His plea, Ge 4:9, latter part. 3. His conviction, Ge 4:10. 4. The sentence passed upon him, Ge 4:11,12. 5. His complaint against the sentence, Ge 4:13,14. 6. The ratification of the sentence, Ge 4:15. 7. The execution of the sentence, Ge 4:15,16. V. The family and posterity of Cain, Ge 4:17-24. VI. The birth of another son and grandson of Adam, Ge 4:25,26.
 
-## Cain and Abel. (b. c. 3875.)
+## Cain and Abel (3875 BC)
 
 > **¹** And Adam knew Eve his wife; and she conceived, and bare Cain, and said, I have gotten a man from the LORD.  
 > **²** And she again bare his brother Abel. And Abel was a keeper of sheep, but Cain was a tiller of the ground.  
@@ -58,7 +58,7 @@ I\. As Cain's sin; and a scarlet, crimson, sin it was, a sin of the first magnit
 
 II\. As Abel's suffering. Death reigned ever since Adam sinned, but we read not of any taken captive by him till now; and now, 1. The first that dies is a saint, one that was accepted and beloved of God, to show that, though the promised seed was so far to destroy him that had the power of death as to save believers from its sting, yet still they should be exposed to its stroke. The first that went to the grave went to heaven. God would secure to himself the first-fruits, the first-born to the dead, that first opened the womb into another world. Let this take off the terror of death, that it was betimes the lot of God's chosen, which alters the property of it. Nay, 2. The first that dies is a martyr, and dies for his religion; and of such it may more truly be said than of soldiers that they die on the bed of honour. Abel's death has not only no curse in it, but it has a crown in it; so admirably well is the property of death altered that it is not only rendered innocent and inoffensive to those that die in Christ, but honourable and glorious to those that die for him. Let us not think it strange concerning the fiery trial, nor shrink if we be called to resist unto blood; for we know there is a crown of life for all that are faithful unto death.
 
-## Cain's Punishment. (b. c. 3875.)
+## Cain's Punishment (3875 BC)
 
 > **⁹** And the LORD said unto Cain, Where *is* Abel thy brother? And he said, I know not: *Am* I my brother's keeper?  
 > **¹⁰** And he said, What hast thou done? the voice of thy brother's blood crieth unto me from the ground.  
@@ -81,7 +81,7 @@ IV\. The sentence passed upon Cain: *And now art thou cursed from the earth,* Ge
 
 This was the sentence passed upon Cain; and even in this there was mercy mixed, inasmuch as he was not immediately cut off, but had space given him to repent; for God is long-suffering to us-ward, not willing that any should perish.
 
-## Cain's Complaint. (b. c. 3875.)
+## Cain's Complaint (3875 BC)
 
 > **¹³** And Cain said unto the LORD, My punishment *is* greater than I can bear.  
 > **¹⁴** Behold, thou hast driven me out this day from the face of the earth; and from thy face shall I be hid; and I shall be a fugitive and a vagabond in the earth; and it shall come to pass, *that* every one that findeth me shall slay me.  
@@ -93,7 +93,7 @@ I\. Here is Cain's complaint of the sentence passed upon him, as hard and severe
 
 II\. Here is God's confirmation of the sentence; for when he judges he will overcome, Ge 4:15. Observe, 1. How Cain is protected in wrath by this declaration, notified, we may suppose, to all that little world which was then in being: *Whosoever slayeth Cain, vengeance shall be taken on him seven-fold,* because thereby the sentence he was under (that he should be a fugitive and a vagabond) would be defeated. Condemned prisoners are under the special protection of the law; those that are appointed sacrifices to public justice must not be sacrificed to private revenge. God having said in Cain's case, *Vengeance is mine, I will repay,* it would have been a daring usurpation for any man to take the sword out of God's hand, a contempt put upon an express declaration of God's mind, and therefore avenged seven-fold. Note, God has wise and holy ends in protecting and prolonging the lives even of very wicked men. God deals with some according to that prayer, *Slay them not, lest my people forget; scatter them by thy power,* Ps 59:11. Had Cain been slain immediately, he would have been forgotten (Ec 8:10); but now he lives a more fearful and lasting monument of God's justice, hanged in chains, as it were. 2. How he is marked in wrath: *The Lord set a mark upon Cain,* to distinguish him from the rest of mankind and to notify that he was the man that murdered his brother, whom nobody must hurt, but everybody must hoot at. God stigmatized him (as some malefactors are burnt in the cheek), and put upon him such a visible and indelible mark of infamy and disgrace as would make all wise people shun him, so that he could not be otherwise than a fugitive and a vagabond, and the off-scouring of all things.
 
-## The Family of Cain. (b. c. 3875.)
+## The Family of Cain (3875 BC)
 
 > **¹⁶** And Cain went out from the presence of the LORD, and dwelt in the land of Nod, on the east of Eden.  
 > **¹⁷** And Cain knew his wife; and she conceived, and bare Enoch: and he builded a city, and called the name of the city, after the name of his son, Enoch.  
@@ -111,7 +111,7 @@ II\. He endeavoured to confront that part of the sentence by which he was made a
 
 3\. His family also was built up. Here is an account of his posterity, at least the heirs of his family, for seven generations. His son was *Enoch,* of the same name, but not of the same character, with that holy man that *walked with God,* Ge 5:22. Good men and bad may bear the same names: but God can distinguish between Judas Iscariot and Judas *not* Iscariot, Joh 14:22. The names of more of his posterity are mentioned, and but just mentioned; not as those of the holy seed (Ge 5:1-32), where we have three verses concerning each, whereas here we have three or four in one verse. They are numbered in haste, as not valued or delighted in, in comparison with God's chosen.
 
-## The Family of Lamech. (b. c. 3875.)
+## The Family of Lamech (3875 BC)
 
 > **¹⁹** And Lamech took unto him two wives: the name of the one *was* Adah, and the name of the other Zillah.  
 > **²⁰** And Adah bare Jabal: he was the father of such as dwell in tents, and *of such as have* cattle.  
@@ -131,7 +131,7 @@ By this speech of Lamech, which is here recorded, and probably was much talked o
 
 Now this is all we have upon record in scripture concerning the family and posterity of cursed Cain, till we find them all cut off and perishing in the universal deluge.
 
-## The Birth of Seth. (b. c. 3874.)
+## The Birth of Seth (3874 BC)
 
 > **²⁵** And Adam knew his wife again; and she bare a son, and called his name Seth: For God, *said she,* hath appointed me another seed instead of Abel, whom Cain slew.  
 > **²⁶** And to Seth, to him also there was born a son; and he called his name Enos: then began men to call upon the name of the LORD.  

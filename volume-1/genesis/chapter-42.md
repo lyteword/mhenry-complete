@@ -6,7 +6,7 @@ weight: 42
 
 We had, in the foregoing chapter, the fulfilling of the dreams which Joseph had interpreted: in this and the following chapters we have the fulfilling of the dreams which Joseph himself had dreamed, that his father's family should do homage to him. The story is very largely and particularly related of what passed between Joseph and his brethren, not only because it is an entertaining story, and probably was much talked of, both among the Israelites and among the Egyptians, but because it is very instructive, and it gave occasion for the removal of Jacob's family into Egypt, on which so many great events afterwards depended. We have, in this chapter, I. The humble application of Jacob's sons to Joseph to buy corn, Ge 42:1-6. II. The fright Joseph put them into, for their trial, Ge 42:7-20. III. The conviction they were now under of their sin concerning Joseph long before, Ge 42:21-24. IV. Their return to Canaan with corn, and the great distress their good father was in upon hearing the account of their expedition, Ge 42:25-38, etc.
 
-## Jacob Sends to Egypt to Buy Corn. (b. c. 1706.)
+## Jacob Sends to Egypt to Buy Corn (1706 BC)
 
 > **¹** Now when Jacob saw that there was corn in Egypt, Jacob said unto his sons, Why do ye look one upon another?  
 > **²** And he said, Behold, I have heard that there is corn in Egypt: get you down thither, and buy for us from thence; that we may live, and not die.  
@@ -21,7 +21,7 @@ I\. The orders he gave them to go and buy corn in Egypt, Ge 42:1,2. Observe, 1. 
 
 II\. Their obedience to these orders, Ge 42:3. They *went down to buy corn;* they did not send their servants, but very prudently went themselves, to lay out their own money. Let none think themselves too great nor too good to take pains. Masters of families should see with their own eyes, and take heed of leaving too much to servants. Only Benjamin went not with them, for he was his father's darling. To Egypt they came, among others, and, having a considerable cargo of corn to buy, they were brought before Joseph himself, who probably expected they would come; and, according to the laws of courtesy, *they bowed down themselves before him,* Ge 42:6. Now their empty sheaves did obeisance to his full one. Compare this with Isa 60:14, Re 3:9.
 
-## Joseph Speaks Roughly to His Brethren. (b. c. 1706.)
+## Joseph Speaks Roughly to His Brethren (1706 BC)
 
 > **⁷** And Joseph saw his brethren, and he knew them, but made himself strange unto them, and spake roughly unto them; and he said unto them, Whence come ye? And they said, From the land of Canaan to buy food.  
 > **⁸** And Joseph knew his brethren, but they knew not him.  
@@ -48,7 +48,7 @@ III\. He clapped them all up in prison for three days, Ge 42:17. Thus God deals 
 
 IV\. He concluded with them, at last, that one of them should be left as a hostage, and the rest should go home and fetch Benjamin. It was a very encouraging word he said to them (Ge 42:18): *I fear God;* as if he had said, "You may assure yourselves I will do you no wrong; I dare not, for I know that, high as I am, there is one higher than I." Note, With those that fear God we have reason to expect fair dealing. The fear of God will be a check upon those that are in power, to restrain them from abusing their power to oppression and tyranny. Those that have no one else to stand in awe of ought to stand in awe of their own consciences. See Ne 5:15, *So did not I, because of the fear of God.*
 
-## Reflections of Joseph's Brethren. (b. c. 1706.)
+## Reflections of Joseph's Brethren (1706 BC)
 
 > **²¹** And they said one to another, We *are* verily guilty concerning our brother, in that we saw the anguish of his soul, when he besought us, and we would not hear; therefore is this distress come upon us.  
 > **²²** And Reuben answered them, saying, Spake I not unto you, saying, Do not sin against the child; and ye would not hear? therefore, behold, also his blood is required.  
@@ -75,7 +75,7 @@ IV\. The dismission of the rest of them. They came for corn, and corn they had; 
 
 2\. Yet in their circumstances it was very amazing. They knew that the Egyptians abhorred a Hebrew (Ge 43:32), and therefore, since they could not expect to receive any kindness from them, they concluded that this was done with a design to pick a quarrel with them, and the rather because the man, the lord of the land, had charged them as spies. Their own consciences also were awake, and their sins set in order before them; and this put them into confusion. Note, (1.) When men's spirits are sinking every thing helps to sink them. (2.) When the events of Providence concerning us are surprising it is good to enquire what it is that God has done and is doing with us, and to consider the operation of his hands.
 
-## The Report Made to Jacob. (b. c. 1706.)
+## The Report Made to Jacob (1706 BC)
 
 > **²⁹** And they came unto Jacob their father unto the land of Canaan, and told him all that befell unto them; saying,  
 > **³⁰** The man, *who is* the lord of the land, spake roughly to us, and took us for spies of the country.  
