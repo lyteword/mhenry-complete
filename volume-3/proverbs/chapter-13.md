@@ -5,6 +5,7 @@ weight: 13
 # Chapter 13
 
 ## Moral Maxims
+
 > **¹** A wise son *heareth* his father's instruction: but a scorner heareth not rebuke.  
 
 Among the children of the same parents it is no new thing for some to be hopeful and others the contrary; now here we are taught to distinguish. 1. There is great hope of those that have a reverence for their parents, and are willing to be advised and admonished by them. He is *a wise son,* and is in a far way to be wiser, that *hears his father's instruction,* desires to hear it, regards it, and complies with it, and does not merely give it the hearing. 2. There is little hope of those that will not so much as *hear rebuke* with any patience, but scorn to submit to government and scoff at those that deal faithfully with them. How can those mend a fault who will not be told of it, but count those their enemies who do them that kindness?
@@ -22,6 +23,7 @@ Note, 1. A guard upon the lips is a guard to the soul. He that is cautious, that
 Here is, 1. The misery and shame of the slothful. See how foolish and absurd they are; they desire the gains which the diligent get, but they hate the pains which the diligent take; they covet every thing that is to be coveted, but will do nothing that is to be done; and therefore it follows, They have nothing; for he that will not labour let him hunger, and let him not *eat,* 2Th 3:10. *The desire of the slothful,* which should be his excitement, is his torment, which should make him busy, makes him always uneasy, and is really a greater toil to him than labour would be. 2. The happiness and honour of the diligent: Their *soul shall be made fat;* they shall have abundance, and shall have the comfortable enjoyment of it, and the more for its being the fruit of their diligence. This is especially true in spiritual affairs. Those that rest in idle wishes know not what the advantages of religion are; whereas those that take pains in the service of God find both the pleasure and profit of it.
 
 ## The Righteous Exclusively Happy
+
 > **⁵** A righteous *man* hateth lying: but a wicked *man* is loathsome, and cometh to shame.  
 
 Note, 1. Where grace reigns sin is loathsome. It is the undoubted character of every *righteous man* that he *hates lying* (that is, all sin, for every sin is a lie, and particularly all fraud and falsehood in commerce and conversation), not only that he will not tell a lie, but he abhors lying, from a rooted reigning principle of love to truth and justice, and conformity to God. 2. Where sin reigns the *man is loathsome.* If his eyes were opened, and his conscience awakened, he would be so to himself, he would *abhor himself and repent in dust and ashes;* however, he is so to God and all good men; particularly, he makes himself so by lying, than which there is nothing more detestable. And, though he may think to face it out awhile, yet he will *come to shame* and contempt at last and will blush to show his face, Da 12:2.

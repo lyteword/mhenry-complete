@@ -7,6 +7,7 @@ weight: 29
 It is the probable conjecture of some very good interpreters that David penned this psalm upon occasion, and just at the time, of a great storm of thunder, lightning, and rain, as the eighth psalm was his meditation in a moon-light night and the nineteenth in a sunny morning. It is good to take occasion from the sensible operations of God's power in the kingdom of nature to give glory to him. So composed was David, and so cheerful, even in a dreadful tempest, when others trembled, that then he penned this psalm; for, "though the earth be removed, yet will we not fear." I. He calls upon the great ones of the world to give glory to God, Ps 29:1,2. II. To convince them of the goodness of that God whom they were to adore, he takes notice of his power and terror in the thunder, and lightning, and thunder-showers (Ps 29:3-9), his sovereign dominion over the world (Ps 29:10), and his special favour to his church, Ps 29:11. Great and high thoughts of God should fill us in singing this psalm.
 
 ## The Glory of the Lord
+
 A psalm of David.
 
 > **¹** Give unto the LORD, O ye mighty, give unto the LORD glory and strength.  

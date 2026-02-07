@@ -5,6 +5,7 @@ weight: 20
 # Chapter 20
 
 ## Miscellaneous Maxims
+
 > **¹** Wine *is* a mocker, strong drink *is* raging: and whosoever is deceived thereby is not wise.  
 
 Here is, 1. The mischief of drunkenness: *Wine is a mocker; strong drink is raging.* It is so to the sinner himself; it mocks him, makes a fool of him, promises him that satisfaction which it can never give him. It smiles upon him at first, but *at the last it bites.* In reflection upon it, it rages in his conscience. It is raging in the body, puts the humours into a ferment. *When the wine is in the wit is out,* and then the man, according as his natural temper is, either mocks like a fool or rages like a madman. Drunkenness, which pretends to be a sociable thing, renders men unfit for society, for it makes them abusive with their tongues and outrageous in their passions, Pr 23:29. 2. The folly of drunkards is easily inferred thence. He that *is deceived thereby,* that suffers himself to be drawn into this sin when he is so plainly warned of the consequences of it, *is not wise;* he shows that he has no right sense or consideration of things; and not only so, but he renders himself incapable of getting wisdom; for it is a sin that infatuates and besots men, and takes away their heart. A drunkard is a fool, and a fool he is likely to be.

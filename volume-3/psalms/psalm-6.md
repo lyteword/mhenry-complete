@@ -7,6 +7,7 @@ weight: 6
 David was a weeping prophet as well as Jeremiah, and this psalm is one of his lamentations: either it was penned in a time, or at least calculated for a time, of great trouble, both outward and inward. Is any afflicted? Is any sick? Let him sing this psalm. The method of this psalm is very observable, and what we shall often meet with. He begins with doleful complaints, but ends with joyful praises; like Hannah, who went to prayer with a sorrowful spirit, but, when she had prayed, went her way, and her countenance was no more sad. Three things the psalmist is here complaining of:—1. Sickness of body. 2. Trouble of mind, arising from the sense of sin, the meritorious cause of pain and sickness. 3. The insults of his enemies upon occasion of both. Now here, I. He pours out his complaints before God, deprecates his wrath, and begs earnestly for the return of his favour, Ps 6:1-7. II. He assures himself of an answer of peace, shortly, to his full satisfaction, Ps 6:8-10. This psalm is like the book of Job.
 
 ## David's Complaints
+
 To the chief musician on Neginoth upon Sheminith. A psalm of David.
 
 > **¹** O LORD, rebuke me not in thine anger, neither chasten me in thy hot displeasure.  
@@ -30,6 +31,7 @@ IV\. The pleas with which he enforces his petitions, not to move God (he knows o
 We should sing Ps 6:1-7 with a deep sense of the terrors of God's wrath, which we should therefore dread and deprecate above any thing; and with thankfulness if this be not our condition, and compassion to those who are thus afflicted: if we be thus troubled, let it comfort us that our case is not without precedent, nor, if we humble ourselves and pray, as David did, shall it be long without redress.
 
 ## Confidence in God
+
 > **⁸** Depart from me, all ye workers of iniquity; for the LORD hath heard the voice of my weeping.  
 > **⁹** The LORD hath heard my supplication; the LORD will receive my prayer.  
 > **¹⁰** Let all mine enemies be ashamed and sore vexed: let them return *and* be ashamed suddenly.  

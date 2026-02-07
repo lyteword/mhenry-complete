@@ -7,6 +7,7 @@ weight: 121
 Some call this the soldier's psalm, and think it was penned in the camp, when David was hazarding his life in the high places of the field, and thus trusted God to cover his head in the day of battle. Others call it the traveller's psalm (for there is nothing in it of military dangers) and think David penned it when he was going abroad, and designed it *pro vehiculo—for the carriage,* for a good man's convoy and companion in a journey or voyage. But we need not thus appropriate it; wherever we are, at home or abroad, we are exposed to danger more than we are aware of; and this psalm directs and encourages us to repose ourselves and our confidence in God, and by faith to put ourselves under his protection and commit ourselves to his care, which we must do, with an entire resignation and satisfaction, in singing this psalm. I. David here assures himself of help from God, Ps 121:1,2. II. He assures others of it, Ps 121:3-8.
 
 ## Confidence in God
+
 A song of degrees.
 
 > **¹** I will lift up mine eyes unto the hills, from whence cometh my help.  

@@ -7,6 +7,7 @@ weight: 16
 None of Christ's miracles are recorded in this chapter, but four of his discourses. Here is, I. A conference with the Pharisees, who challenged him to show them a sign from heaven, Mt 16:1-4. II. Another with his disciples about the leaven of the Pharisees, Mt 16:5-12. III. Another with them concerning himself, as the Christ, and concerning his church built upon him, Mt 16:13-20. IV. Another concerning his sufferings for them, and theirs for him, Mt 16:21-28. And all these are written for our learning.
 
 ## The Sign of the Prophet Jonas
+
 > **¹** The Pharisees also with the Sadducees came, and tempting desired him that he would show them a sign from heaven.  
 > **²** He answered and said unto them, When it is evening, ye say, *It will be* fair weather: for the sky is red.  
 > **³** And in the morning, *It will be* foul weather to day: for the sky is red and lowring. O *ye* hypocrites, ye can discern the face of the sky; but can ye not *discern* the signs of the times?  
@@ -43,6 +44,7 @@ To expose this, he observes to them,
 This discourse broke off abruptly; *he left them and departed.* Christ will not tarry long with those that tempt him, but justly withdraws from those that are disposed to quarrel with him. He left them as irreclaimable; *Let them alone.* He left them to themselves, left them in the hand of their own counsels; *so he gave them up to their own hearts' lust.*
 
 ## Of the Leaven of the Pharisees
+
 > **⁵** And when his disciples were come to the other side, they had forgotten to take bread.  
 > **⁶** Then Jesus said unto them, Take heed and beware of the leaven of the Pharisees and of the Sadducees.  
 > **⁷** And they reasoned among themselves, saying, *It is* because we have taken no bread.  
@@ -75,6 +77,7 @@ III\. The reproof Christ gave them for this.
 IV\. The rectifying of the mistake by this reproof (Mt 16:12); *Then understood they* what he meant. Note, Christ *therefore* shows us our folly and weakness, that we may stir up ourselves to take things right. He did not tell them expressly what he meant, but repeated what he had said, that they should beware of the leaven; and so obliged them, by comparing this with his other discourses, to arrive at the sense of it in their own thoughts. Thus Christ teaches by the Spirit of wisdom in the heart, opening the understanding to the Spirit of revelation in the word. And those truths are most precious, which we have thus digged for, and have found out after some mistakes. Though Christ did not tell them plainly, yet now they were aware that by the leaven of the Pharisees and Sadducees, he meant their doctrine and way, which were corrupt and vicious, but, as they managed them, very apt to insinuate themselves into the minds of men like leaven, and to *eat like a canker.* They were leading men, and were had in reputation, which made the danger of infection by their errors the greater. In our age, we may reckon atheism and deism to be the leaven of the Sadducees, and popery to be the leaven of the Pharisees, against both which it concerns all Christians to stand upon their guard.
 
 ## Christ's Conference with His Disciples
+
 > **¹³** When Jesus came into the coasts of Cæsarea Philippi, he asked his disciples, saying, Whom do men say that I the Son of man am?  
 > **¹⁴** And they said, Some *say that thou art* John the Baptist: some, Elias; and others, Jeremias, or one of the prophets.  
 > **¹⁵** He saith unto them, But whom say ye that I am?  
@@ -185,6 +188,7 @@ Some make the giving of the keys to allude to the custom of the Jews in creating
 *Lastly,* Here is the charge which Christ gave his disciples, to keep this private for the present (Mt 16:20); *They must tell no man that he was Jesus the Christ.* What they had professed to him, they must not yet publish to the world, for several reasons; 1. Because this was the time of preparation for his kingdom: the great thing now preached, was, that *the kingdom of heaven was at hand;* and therefore those things were now to be insisted on, which were proper to make way for Christ; as the doctrine of repentance; not this great truth, in and with which *the kingdom of heaven* was to be actually set up. Every thing is beautiful in its season, and it is good advice, *Prepare thy work, and afterwards build,* Pr 24:27. 2. Christ would have his Messiahship proved by his works, and would rather *they* should testify of him than that his *disciples* should, because their testimony was but as his own, which he insisted not on. See Joh 5:31,34. He was so secure of the demonstration of his miracles, that he waived other witnesses, Joh 10:25,38. 3. If they had known *that he was Jesus the Christ, they would not have crucified the Lord of glory,* 1Co 2:8. 4. Christ would not have the apostles preach this, till they had the most convincing evidence ready to allege in confirmation of it. Great truths may suffer damage by being asserted before they can be sufficiently proved. Now the great proof of Jesus being the Christ was his resurrection: by that *he was declared to be the Son of God, with power;* and therefore the divine wisdom would not have this truth preached, till that could be alleged for proof of it. 5. It was requisite that the preachers of so great a truth should be furnished with greater measures of the Spirit than the apostles as yet had; therefore the open asserting of it was adjourned till the Spirit should be poured out upon them. But when Christ was glorified and the Spirit poured out, we find Peter proclaiming upon the house-tops what was here spoken in a corner (Ac 2:36), *That God hath made this same Jesus both Lord and Christ;* for, as there is a time to keep silence, so there is a time to speak.
 
 ## Christ Reproves Peter
+
 > **²¹** From that time forth began Jesus to show unto his disciples, how that he must go unto Jerusalem, and suffer many things of the elders and chief priests and scribes, and be killed, and be raised again the third day.  
 > **²²** Then Peter took him, and began to rebuke him, saying, Be it far from thee, Lord: this shall not be unto thee.  
 > **²³** But he turned, and said unto Peter, Get thee behind me, Satan: thou art an offence unto me: for thou savourest not the things that be of God, but those that be of men.  
@@ -228,6 +232,7 @@ Thou art an offence to me. Note, [1.] Those that engage in any great good work m
 (2.) *Thou savourest not the things that are of God, but those that are of men.* Note, [1.] *The things that are of God,* that is, the concerns of his will and glory, often clash and interfere with *the things that are of men,* that is, with our own wealth, pleasure, and reputation. While we mind Christian duty as our way and work, and the divine favour as our end and portion, we *savour the things of God;* but if these be minded, the flesh must be denied, hazards must be run and hardships borne; and here is the trial which of the two we savour. [2.] Those that inordinately fear, and industriously decline suffering for Christ, when they are called to it, savour more of the things of man than of the things of God; they relish those things more themselves, and make it appear to others that they do so.
 
 ## The Value of the Soul
+
 > **²⁴** Then said Jesus unto his disciples, If any *man* will come after me, let him deny himself, and take up his cross, and follow me.  
 > **²⁵** For whosoever will save his life shall lose it: and whosoever will lose his life for my sake shall find it.  
 > **²⁶** For what is a man profited, if he shall gain the whole world, and lose his own soul? or what shall a man give in exchange for his soul?  

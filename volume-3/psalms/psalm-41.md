@@ -7,6 +7,7 @@ weight: 41
 God's kindness and truth have often been the support and comfort of the saints when they have had most experience of man's unkindness and treachery. David here found them so, upon a sick-bed; he found his enemies very barbarous, but his God very gracious. I. He here comforts himself in his communion with God under his sickness, by faith receiving and laying hold of God's promises to him (Ps 41:1-3) and lifting up his heart in prayer to God, Ps 41:4. II. He here represents the malice of his enemies against him, their malicious censures of him, their spiteful reflections upon him, and their insolent conduct towards him, Ps 41:5-9. III. He leaves his case with God, not doubting but that he would own and favour him (Ps 41:10-12), and so the psalm concludes with a doxology, Ps 41:13. Is any afflicted with sickness? let him sing the beginning of this psalm. Is any persecuted by enemies? let him sing the latter end of it; and we may any of us, in singing it, meditate upon both the calamities and comforts of good people in this world.
 
 ## Promises to Those Who Consider the Poor
+
 To the chief musician. A psalm of David.
 
 > **¹** Blessed *is* he that considereth the poor: the LORD will deliver him in time of trouble.  
@@ -25,6 +26,7 @@ I\. God's promises of succour and comfort to those that consider the poor; and,
 II\. David's prayer, directed and encouraged by these promises (Ps 41:4): *I said, Heal my soul.* It is good for us to keep some account of our prayers, that we may not unsay, in our practices, any thing that we said in our prayers. Here is, 1. His humble petition: *Lord be merciful to me.* He appeals to mercy, as one that knew he could not stand the test of strict justice. The best saints, even those that have been merciful to the poor, have not made God their debtor, but must throw themselves on his mercy. When we are under the rod we must thus recommend ourselves to the tender mercy of our God: *Lord, heal my soul.* Sin is the sickness of the soul; pardoning mercy heals it; renewing grace heals it; and this spiritual healing we should be more earnest for than for bodily health. 2. His penitent confession: "*I have sinned against thee,* and therefore my soul needs healing. I am a sinner, a miserable sinner; therefore, *God be merciful to me,*" Lu 18:13. It does not appear that this has reference to any particular gross act of sin, but, in general, to his many sins of infirmity, which his sickness set in order before him, and the dread of the consequences of which made him pray, *Heal my soul.*
 
 ## David Complains of His Enemies; David's Comfort in God
+
 > **⁵** Mine enemies speak evil of me, When shall he die, and his name perish?  
 > **⁶** And if he come to see *me,* he speaketh vanity: his heart gathereth iniquity to itself; *when* he goeth abroad, he telleth *it.*  
 > **⁷** All that hate me whisper together against me: against me do they devise my hurt.  

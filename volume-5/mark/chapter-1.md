@@ -7,6 +7,7 @@ weight: 1
 Mark's narrative does not take rise so early as those of Matthew and Luke do, from the birth of our Saviour, but from John's baptism, from which he soon passes to Christ's public ministry. Accordingly, in this chapter, we have, I. The office of John Baptist illustrated by the prophecy of him (Mk 1:1-3), and by the history of him, Mk 1:4-8. II. Christ's baptism, and his being owned from heaven, Mk 1:9-11. III. His temptation, Mk 1:12,13. IV. His preaching, Mk 1:14,15,21,22,38,39. V. His calling disciples, Mk 1:16-20. VI. His praying, Mk 1:35. VII. His working miracles. 1. His rebuking an unclean spirit, Mk 1:23-28. 2. His curing Peter's mother-in-law, who was ill of a fever, Mk 1:29-31. 3. His healing all that came to him, Mk 1:32,34. 4. His cleansing a leper, Mk 1:40-45.
 
 ## The Ministry of John the Baptist
+
 > **¹** The beginning of the gospel of Jesus Christ, the Son of God;  
 > **²** As it is written in the prophets, Behold, I send my messenger before thy face, which shall prepare thy way before thee.  
 > **³** The voice of one crying in the wilderness, Prepare ye the way of the Lord, make his paths straight.  
@@ -37,6 +38,7 @@ III\. What the *beginning* of the New Testament was. The gospel began in John Ba
 3\. In the success of John's preaching, and the disciples he admitted by baptism, there was the *beginning of a gospel church.* He baptized *in the wilderness,* and declined going into the cities; but *there went out unto him all the land of Judea, and they of Jerusalem,* inhabitants both of city and country, families of them, and *were all baptized of him.* They entered themselves his disciples, and bound themselves to his discipline; in token of which, they *confessed their sins;* he admitted them his disciples, in token of which, he *baptized* them. Here were the stamina of the gospel church, the *dew of its youth* from *the womb of the morning,* Ps 110:3. Many of these afterward became followers of Christ, and preachers of his gospel, and this grain of mustard-seed became a *tree.*
 
 ## The Baptism of Jesus
+
 > **⁹** And it came to pass in those days, that Jesus came from Nazareth of Galilee, and was baptized of John in Jordan.  
 > **¹⁰** And straightway coming up out of the water, he saw the heavens opened, and the Spirit like a dove descending upon him:  
 > **¹¹** And there came a voice from heaven, *saying,* Thou art my beloved Son, in whom I am well pleased.  
@@ -64,6 +66,7 @@ II\. His *temptation.* The *good Spirit* that descended upon him, *led him into 
 2\. The *good spirits* were *busy about him;* the *angels ministered to him,* supplied him with what he needed, and dutifully attended him. Note, The ministration of the good angels about us, is matter of great comfort in reference to the malicious designs of the evil angels against us; but much more doth it befriend us, to have the indwelling of the spirit in our hearts, which they that have, are so *born of God,* that, as far as they are so, *the evil one toucheth them not,* much less shall be *triumph* over them.
 
 ## The Opening of Christ's Ministry
+
 > **¹⁴** Now after that John was put in prison, Jesus came into Galilee, preaching the gospel of the kingdom of God,  
 > **¹⁵** And saying, The time is fulfilled, and the kingdom of God is at hand: repent ye, and believe the gospel.  
 > **¹⁶** Now as he walked by the sea of Galilee, he saw Simon and Andrew his brother casting a net into the sea: for they were fishers.  
@@ -89,6 +92,7 @@ II\. Christ appearing as a teacher, here is next his *calling of disciples,* Mk 
 III\. Here is a particular account of his preaching in Capernaum, one of the *cities* of Galilee; for though John Baptist chose to preach *in a wilderness,* and did *well,* and did *good,* yet it doth not therefore follow, that Jesus must do so too; the inclinations and opportunities of ministers may very much differ, and yet both be in the *way of their duty,* and both useful. Observe, 1. When Christ *came into Capernaum,* he *straightway* applied himself to his work there, and took the *first* opportunity of preaching the gospel. Those will think themselves concerned not to *lose time,* who consider what a deal of work they have to do, and what a little time to do it in. 2. Christ religiously observed the sabbath day, though not by tying himself up to the tradition of the elders, in all the niceties of the *sabbath-rest,* yet (which was far better) by applying himself to, and abounding in, the *sabbath-work,* in order to which the sabbath-rest was instituted. 3. Sabbaths are to be sanctified in *religious assemblies,* if we have opportunity; it is a *holy day,* and must be honoured with a *holy convocation;* this was the *good old way,* Ac 13:27,15:21. On the sabbath-day, *pois sabbasin*—*on the sabbath-days;* every sabbath-day, as duly as it returned, he *went into the synagogue.* 4. In *religious assemblies* on sabbath-days, the gospel is to be preached, and those to be *taught,* who are willing to learn the *truth as it is in Jesus.* 5. Christ was a non-such preacher; he did not preach *as the scribes,* who expounded the law of Moses by rote, as a school-boy says his lesson, but were neither *acquainted* with it (Paul himself, when a Pharisee, was ignorant of the law), nor *affected* with it; it came not *from the heart,* and therefore came not *with authority.* But Christ taught *as one that had authority,* as one that knew the mind of God, and was commissioned to declare it. 6. There is much in the doctrine of Christ, that is *astonishing;* the more we hear it, the more cause we shall see to *admire it.*
 
 ## The Expulsion of Evil Spirits
+
 > **²³** And there was in their synagogue a man with an unclean spirit; and he cried out,  
 > **²⁴** Saying, Let *us* alone; what have we to do with thee, thou Jesus of Nazareth? art thou come to destroy us? I know thee who thou art, the Holy One of God.  
 > **²⁵** And Jesus rebuked him, saying, Hold thy peace, and come out of him.  
@@ -113,6 +117,7 @@ II\. The impression which this miracle made upon the minds of the people, Mk 1:2
 2\. It raised his reputation among all that heard it; *Immediately his fame spread abroad into the whole adjacent region of Galilee,* which was a third part of the land of Canaan. The story was presently got into every one's mouth, and people wrote it to their friends all the country over, together with the remark made upon it, *What new doctrine is this?* So that it was universally concluded, that he was a *Teacher come from God,* and under that character he shone more bright than if he had appeared in all the external pomp and power which the Jews expected their Messiah to *appear* in; and thus he *prepared his own way,* now that John, who was his harbinger, was clapped up; and the fame of this miracle spread the further, because as yet the Pharisees, who *envied* his fame, and laboured to *eclipse* it, had not advanced their blasphemous suggestion, that he *cast out devils* by compact with the *prince of the devils.*
 
 ## Christ Healing Many Patients
+
 > **²⁹** And forthwith, when they were come out of the synagogue, they entered into the house of Simon and Andrew, with James and John.  
 > **³⁰** But Simon's wife's mother lay sick of a fever, and anon they tell him of her.  
 > **³¹** And he came and took her by the hand, and lifted her up; and immediately the fever left her, and she ministered unto them.  
@@ -152,6 +157,7 @@ III\. His *retirement* to his *private devotion* (Mk 1:35); *He prayed,* prayed 
 IV\. His *return* to his *public* work. The disciples thought they were *up early,* but found their Master was up *before them,* and they enquired which way he went, *followed him* to his *solitary place,* and there *found him* at prayer, Mk 1:36,37. They told him that he was much wanted, that there were a great many patients waiting for him; *All men seek for thee.* They were proud that their Master was become so popular already, and would have him appear *in public,* yet more in that place, because it was *their own city;* and we are apt to be partial to the places we know and are interested in. "No," saith Christ, "Capernaum must not have the monopoly of the Messiah's preaching and miracles. *Let us go into the next towns,* the *villages* that lie about here, *that I may preach there also,* and work miracles there, *for therefore came I forth,* not to be constantly resident in one place, but to *go about doing good.*" Even the *inhabitants of the villages in Israel* shall *rehearse the righteous acts of the Lord,* Jdg 5:11. Observe, Christ had still an eye to the end *wherefore he came forth,* and closely pursued that; nor will he be drawn by importunity, or the persuasions of his friends, to decline from that; for (Mk 1:39) he *preached in their synagogues throughout all Galilee,* and, to illustrate and confirm his doctrine, *he cast out devils.* Note, Christ's doctrine is Satan's destruction.
 
 ## The Healing of a Leper
+
 > **⁴⁰** And there came a leper to him, beseeching him, and kneeling down to him, and saying unto him, If thou wilt, thou canst make me clean.  
 > **⁴¹** And Jesus, moved with compassion, put forth *his* hand, and touched him, and saith unto him, I will; be thou clean.  
 > **⁴²** And as soon as he had spoken, immediately the leprosy departed from him, and he was cleansed.  

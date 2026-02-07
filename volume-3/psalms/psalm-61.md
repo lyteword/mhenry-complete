@@ -7,6 +7,7 @@ weight: 61
 David, in this psalm, as in many others, begins with a sad heart, but concludes with an air of pleasantness—begins with prayers and tears, but ends with songs of praise. Thus the soul, by being lifted up to God, returns to the enjoyment of itself. It should seem David was driven out and banished when he penned this psalm, whether by Saul or Absalom is uncertain: some think by Absalom, because he calls himself "the king" (Ps 61:6), but that refers to the King Messiah. David, in this psalm, resolves to persevere in his duty, encouraged thereto both by his experience an by his expectations. I. He will call upon God because God had protected him, Ps 61:1-3. II. He will call upon God because God had provided well for him, Ps 61:4,5. III. He will praise God because he had an assurance of the continuance of God's favour to him, Ps 61:6-8. So that, in singing this psalm, we may find that which is very expressive both of our faith and of our hope, of our prayers and of our praises; and some passages in this psalm are very peculiar.
 
 ## Crying to God in Distress
+
 To the chief musician upon Neginah. *A psalm* of David.
 
 > **¹** Hear my cry, O God; attend unto my prayer.  
@@ -27,6 +28,7 @@ IV\. The ground of this expectation, and the plea he uses to enforce his petitio
 V\. His resolution to continue in the way of duty to God and dependence on him, Ps 61:4. 1. The service of God shall be his constant work and business. All those must make it so who expect to find God their shelter and strong tower: none but his menial servants have the benefit of his protection. *I will abide in thy tabernacle for ever.* David was now banished from the tabernacle, which was his greatest grievance, but he is assured that God by his providence would bring him back to his tabernacle, because he had by his grace wrought in him such a kindness for the tabernacle as that he was resolved to make it his perpetual residence, Ps 27:4. He speaks of abiding in it *for ever* because that tabernacle was a type and figure of heaven, Heb 9:8,9,24. Those that dwell in God's tabernacle, as it is a house of duty, during their short *ever* on earth, shall dwell in that tabernacle which is the house of glory during an endless *ever.* 2. The grace of God and the covenant of grace shall be his constant comfort: *I will make my refuge in the covert of his wings,* as the chickens seek both warmth and safety under the wings of the hen. Those that have found God a shelter to them ought still to have recourse to him in all their straits. This advantage those have that abide in God's tabernacle, that in the time of trouble he shall there hide them.
 
 ## Mercies Recollected
+
 > **⁵** For thou, O God, hast heard my vows: thou hast given *me* the heritage of those that fear thy name.  
 > **⁶** Thou wilt prolong the king's life: *and* his years as many generations.  
 > **⁷** He shall abide before God for ever: O prepare mercy and truth, *which* may preserve him.  

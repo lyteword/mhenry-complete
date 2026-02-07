@@ -7,6 +7,7 @@ weight: 11
 In this psalm we have David's struggle with and triumph over a strong temptation to distrust God and betake himself to indirect means for his own safety in a time of danger. It is supposed to have been penned when he began to feel the resentments of Saul's envy, and had had the javelin thrown at him once and again. He was then advised to run his country. "No," says he, "I trust in God, and therefore will keep my ground." Observe, I. How he represents the temptation, and perhaps parleys with it, Ps 11:1-3. II. How he answers it, and puts it to silence with the consideration of God's dominion and providence (Ps 11:4), his favour to the righteous, and the wrath which the wicked are reserved for, Ps 11:5-7. In times of public fear, when the insults of the church's enemies are daring and threatening, it will be profitable to meditate on this psalm.
 
 ## Confidence in God
+
 To the chief musician. A psalm of David.
 
 > **¹** In the LORD put I my trust: how say ye to my soul, Flee *as* a bird to your mountain?  

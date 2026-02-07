@@ -7,6 +7,7 @@ weight: 24
 This psalm is concerning the kingdom of Jesus Christ, I. His providential kingdom, by which he rules the world, Ps 24:1,2. II. The kingdom of his grace, by which he rules in his church. 1. Concerning the subjects of that kingdom; their character (Ps 24:4,6), their charter, Ps 24:5. 2. Concerning the King of that kingdom; and a summons to all to give him admission, Ps 24:7-10. It is supposed that the psalm was penned upon occasion of David's bringing up the ark to the place prepared for it, and that the intention of it was to lead the people above the pomp of external ceremonies to a holy life and faith in Christ, of whom the ark was a type.
 
 ## God's Absolute Propriety
+
 A psalm of David.
 
 > **¹** The earth *is* the LORD's, and the fulness thereof; the world, and they that dwell therein.  
@@ -17,6 +18,7 @@ Here is, I. God's absolute propriety in this part of the creation where our lot 
 II\. The ground of this propriety. The earth is his by an indisputable title, *for he hath founded it upon the seas* and *established it upon the floods,* Ps 24:2. It is his; for, 1. He made it, formed it, founded it, and fitted it for the use of man. The matter is his, for he made it out of nothing; the form is his, for he made it according to the eternal counsels and ideas of his own mind. He made it himself, he made it for himself; so that he is sole, entire, and absolute owner, and none can let us a title to any part, but by, from, and under him; see Ps 89:11,12. 2. He made it so as no one else could. It is the creature of omnipotence, for it is founded upon the seas, upon the floods, a weak and unstable foundation (one would think) to build the earth upon, and yet, if almighty power please, it shall serve to bear the weight of this earth. The waters which at first covered the earth, and rendered it unfit to be a habitation for man, were ordered under it, that the dry land might appear, and so they are as a foundation to it; see Ps 104:8,9. 3. He continues it, he has *established* it, fixed it, so that, though one generation passes and another comes, the earth abides, Ec 1:4. And his providence is a continued creation, Ps 119:90. The founding of the earth upon the floods should remind us how slippery and uncertain all earthly things are; their foundation is not only sand, but water; it is therefore our folly to build upon them.
 
 ## The Character of True Israelites
+
 > **³** Who shall ascend into the hill of the LORD? or who shall stand in his holy place?  
 > **⁴** He that hath clean hands, and a pure heart; who hath not lifted up his soul unto vanity, nor sworn deceitfully.  
 > **⁵** He shall receive the blessing from the LORD, and righteousness from the God of his salvation.  
@@ -33,6 +35,7 @@ II\. An answer to this enquiry, in which we have,
 2\. The privileges of God's peculiar people, Ps 24:5. They shall be made truly and for ever happy. (1.) They shall be blessed: they shall receive the blessing from the Lord, all the fruits and gifts of God's favour, according to his promise; and those whom God blesses are blessed indeed, for it is his prerogative to command the blessing. (2.) They shall be justified and sanctified. These are the spiritual blessings in heavenly things which they shall receive, even righteousness, the very thing they hunger and thirst after, Mt 5:5. Righteousness is blessedness, and it is from God only that we must expect it, for we have no righteousness of our own. They shall receive the reward of their righteousness (so some), the *crown of righteousness which the righteous Judge shall give,* 2Ti 4:8. (3.) They shall be saved; for God himself will be the God of their salvation. Note, Where God gives righteousness he certainly designs salvation. Those that are made meet for heaven shall be brought safely to heaven, and then they will find what they have been seeking, to their endless satisfaction.
 
 ## The King of Glory
+
 > **⁷** Lift up your heads, O ye gates; and be ye lift up, ye everlasting doors; and the King of glory shall come in.  
 > **⁸** Who *is* this King of glory? The LORD strong and mighty, the LORD mighty in battle.  
 > **⁹** Lift up your heads, O ye gates; even lift *them* up, ye everlasting doors; and the King of glory shall come in.  

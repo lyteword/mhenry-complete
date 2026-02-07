@@ -7,6 +7,7 @@ weight: 65
 In this psalm we are directed to give to God the glory of his power and goodness, which appear, I. In the kingdom of grace (Ps 65:1), hearing prayer (Ps 65:2), pardoning sin (Ps 65:3), satisfying the souls of the people (Ps 65:4), protecting and supporting them, Ps 65:5. II. In the kingdom of Providence, fixing the mountains (Ps 65:6), calming the sea (Ps 65:7), preserving the regular succession of day and night (Ps 65:8), and making the earth fruitful, Ps 65:9-13. These are blessings we are all indebted to God for, and therefore we may easily accommodate this psalm to ourselves in singing it.
 
 ## The Praises of Zion; Motives for Devout
+
 To the chief musician. A psalm *and* song of David.
 
 > **¹** Praise waiteth for thee, O God, in Sion: and unto thee shall the vow be performed.  
@@ -36,6 +37,7 @@ II\. What he gives him glory for.
 5\. For the care he takes of all his people, however distressed, and whithersoever dispersed. He is *the confidence of all the ends of the earth* that is, of all the saints all the world over and not theirs only that were of the seed of Israel; for he is the God of the Gentiles as well as of the Jews, the confidence *of those that are afar off* from his holy temple and its courts, that dwell in the islands of the Gentiles, or that are in distress *upon the sea.* They trust in thee, and cry to thee, when they are at their wits' end, Ps 107:27,28. By faith and prayer we may keep up our communion with God, and fetch in comfort from him, wherever we are, not only in the solemn assemblies of his people, but also afar off upon the sea.
 
 ## The Almighty Power of God; Indications of Divine Power and Goodness
+
 > **⁶** Which by his strength setteth fast the mountains; *being* girded with power:  
 > **⁷** Which stilleth the noise of the seas, the noise of their waves, and the tumult of the people.  
 > **⁸** They also that dwell in the uttermost parts are afraid at thy tokens: thou makest the outgoings of the morning and evening to rejoice.  

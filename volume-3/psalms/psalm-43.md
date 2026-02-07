@@ -7,6 +7,7 @@ weight: 43
 This psalm, it is likely, was penned upon the same occasion with the former, and, having no title, may be looked upon as an appendix to it; the malady presently returning, he had immediate recourse to the same remedy, because he had entered it in his book, with a "probatum est—it has been proved," upon it. The Ps 43:2, Ps 42:9 of this psalm is almost the very same with the Ps 43:2, Ps 42:9 of the foregoing psalm, as the Ps 43:5, Ps 42:11 of this is exactly the same with the Ps 43:5, Ps 42:11 of that. Christ himself, who had the Spirit without measure, when there was occasion prayed a second and third time "saying the same words," Mt 26:44. In this psalm. I. David appeals to God concerning the injuries that were done him by his enemies, Ps 43:1,2. II. He prays to God to restore to him the free enjoyment of public ordinances again, and promises to make a good improvement of them, Ps 43:3,4. III. He endeavours to still the tumult of his own spirit with a lively hope and confidence in God (Ps 43:5), and if, in singing this psalm, we labour after these, we sing with grace in our hearts.
 
 ## Appeals and Petitions
+
 > **¹** Judge me, O God, and plead my cause against an ungodly nation: O deliver me from the deceitful and unjust man.  
 > **²** For thou *art* the God of my strength: why dost thou cast me off? why go I mourning because of the oppression of the enemy?  
 > **³** O send out thy light and thy truth: let them lead me; let them bring me unto thy holy hill, and to thy tabernacles.  

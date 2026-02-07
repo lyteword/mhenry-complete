@@ -7,6 +7,7 @@ weight: 4
 In this chapter, we have, I. The parable of the seed, and the four sorts of ground (Mk 4:1-9), with the exposition of it (Mk 4:10-20), and the application of it, Mk 4:21-25. II. The parable of the seed growing gradually, but insensibly, Mk 4:26-29. III. The parable of the grain of mustard-seed, and a general account of Christ's parables, Mk 4:30-34. IV. The miracle of Christ's sudden stilling a storm at sea, Mk 4:35-41.
 
 ## The Parable of the Sower
+
 > **¹** And he began again to teach by the sea side: and there was gathered unto him a great multitude, so that he entered into a ship, and sat in the sea; and the whole multitude was by the sea on the land.  
 > **²** And he taught them many things by parables, and said unto them in his doctrine,  
 > **³** Hearken; Behold, there went out a sower to sow:  
@@ -67,6 +68,7 @@ Ninthly, Those that are not encumbered with the cares of the world, and the dece
 *Lastly,* No good fruit is to be expected but from good seed. If the seed be sown on *good ground,* if the heart be humble, and holy, and heavenly, there will be *good fruit,* and it will *abound* sometimes even to a *hundred fold,* such a crop as Isaac reaped, Ge 26:12.
 
 ## The Gradual Advance of the Gospel
+
 > **²¹** And he said unto them, Is a candle brought to be put under a bushel, or under a bed? and not to be set on a candlestick?  
 > **²²** For there is nothing hid, which shall not be manifested; neither was any thing kept secret, but that it should come abroad.  
 > **²³** If any man have ears to hear, let him hear.  
@@ -117,6 +119,7 @@ IV\. The work of grace is small in its beginnings, but comes to be great and con
 After the parables thus specified the historian concludes with this general account of Christ's preaching—that *with many such parables he spoke the word unto them* (Mk 4:33); probably designing to refer us to the larger account of the parables of this kind, which we had before, Mt 13:1-52 He spoke in parables, *as they were able to hear them;* he fetched his comparisons from those things that were familiar to them, and level to their capacity, and delivered them in plain expressions, in condescension to their capacity; though he did not let them into the *mystery* of the parables, yet his manner of expression was easy, and such as they might hereafter recollect to their edification. But, for the present, *without a parable spoke he not unto them,* Mk 4:34. The glory of the Lord was covered with a cloud, and God speaks to us in the language of the *sons of men,* that, though not *at first,* yet *by degrees,* we may understand his meaning; the disciples themselves understood those sayings of Christ afterward, which at first they did not rightly take the sense of. But these parables *he expounded to them, when they were alone.* We cannot but wish we had had that exposition, as we had of the parable of the sower; but it was not so needful; because, when the church should be enlarged, that would *expound* these parables to us, without any more ado.
 
 ## Christ and His Disciples in the Storm
+
 > **³⁵** And the same day, when the even was come, he saith unto them, Let us pass over unto the other side.  
 > **³⁶** And when they had sent away the multitude, they took him even as he was in the ship. And there were also with him other little ships.  
 > **³⁷** And there arose a great storm of wind, and the waves beat into the ship, so that it was now full.  

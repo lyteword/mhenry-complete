@@ -7,6 +7,7 @@ weight: 23
 Many of David's psalms are full of complaints, but this is full of comforts, and the expressions of delight in God's great goodness and dependence upon him. It is a psalm which has been sung by good Christians, and will be while the world stands, with a great deal of pleasure and satisfaction. I. The psalmist here claims relation to God, as his shepherd, Ps 23:1. II. He recounts his experience of the kind things God had done for him as his shepherd, Ps 23:2,3,5. III. Hence he infers that he should want no good (Ps 23:1), that he needed to fear no evil (Ps 23:4), that God would never leave nor forsake him in a way of mercy; and therefore he resolves never to leave nor forsake God in a way of duty, Ps 23:6. In this he had certainly an eye, not only to the blessings of God's providence, which made his outward condition prosperous, but to the communications of God's grace, received by a lively faith, and returned in a warm devotion, which filled his soul with joy unspeakable. And, as in the foregoing psalm he represented Christ dying for his sheep, so here he represents Christians receiving the benefit of all the care and tenderness of that great and good shepherd.
 
 ## The Divine Shepherd
+
 A psalm of David.
 
 > **¹** The LORD *is* my shepherd; I shall not want.  

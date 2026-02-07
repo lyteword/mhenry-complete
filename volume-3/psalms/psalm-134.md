@@ -7,6 +7,7 @@ weight: 134
 This is the last of the fifteen songs of degrees; and, if they were at any time sung all together in the temple-service, it is fitly made the conclusion of them, for the design of it is to stir up the ministers to go on with their work in the night, when the solemnities of the day were over. Some make this psalm to be a dialogue. I. In the Ps 134:1,2, the priests or Levites who sat up all night to keep the watch of the house of the Lord are called upon to spend their time while they were upon the guard, not in idle talk, but in the acts of devotion. II. In the Ps 134:3 those who were thus called upon to praise God pray for him that gave them the exhortation, either the high priest or the captain of the guard. Or thus: those who did that service did mutually exhort one another and pray for one another. In singing this psalm we must both stir up ourselves to give glory to God and encourage ourselves to hope for mercy and grace from him.
 
 ## A Call to Bless God
+
 A song of degrees.
 
 > **¹** Behold, bless ye the LORD, all *ye* servants of the LORD, which by night stand in the house of the LORD.  

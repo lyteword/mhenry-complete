@@ -7,6 +7,7 @@ weight: 15
 In this chapter, we have our Lord Jesus, as the great Prophet teaching, as the great Physician healing, and as the great Shepherd of the sheep feeding; as the Father of spirits instructing them; as the Conqueror of Satan dispossessing him; and as concerned for the bodies of his people, providing for them. Here is, I. Christ's discourse with the scribes and Pharisees about human traditions and injunctions, Mt 15:1-9. II. His discourse with the multitude, and with his disciples, concerning the things that defile a man, Mt 15:10-20. III. His casting of the devil out of the woman of Canaan's daughter, Mt 15:21-28. IV. His healing of all that were brought to him, Mt 15:29-31. V. His feeding of four thousand men, with seven loaves and a few little fishes, Mt 15:32-39.
 
 ## Jesus Reproves the Scribes and Pharisees
+
 > **¹** Then came to Jesus scribes and Pharisees, which were of Jerusalem, saying,  
 > **²** Why do thy disciples transgress the tradition of the elders? for they wash not their hands when they eat bread.  
 > **³** But he answered and said unto them, Why do ye also transgress the commandment of God by your tradition?  
@@ -74,6 +75,7 @@ This prophecy exactly deciphers a hypocritical nation, Isa 9:17,10:6. Here is,
 Thus Christ justified his disciples in their disobedience to the traditions of the elders; and this the scribes and Pharisees got by their cavilling. We read not of any reply they made; if they were not satisfied, yet they were silenced, and could not resist the power wherewith Christ spake.
 
 ## What Defileth a Man
+
 > **¹⁰** And he called the multitude, and said unto them, Hear, and understand:  
 > **¹¹** Not that which goeth into the mouth defileth a man; but that which cometh out of the mouth, this defileth a man.  
 > **¹²** Then came his disciples, and said unto him, Knowest thou that the Pharisees were offended, after they heard this saying?  
@@ -155,6 +157,7 @@ Now *these are the things which defile a man,* Mt 15:20. Note, Sin is defiling t
 These therefore are the things we must carefully avoid, and all approaches toward them, and not lay stress upon the washing of the hands. Christ doth not yet repeal the law of the distinction of meats (that was not done till Ac 10:9-16), but the tradition of the elders, which was tacked to that law; and therefore he concludes, *To eat with unwashen hands* (which was the matter now in question), *this defileth not a man.* If he wash, he is not the better before God; if he wash not, he is not the worse.
 
 ## The Canaanite's Daughter Healed
+
 > **²¹** Then Jesus went thence, and departed into the coasts of Tyre and Sidon.  
 > **²²** And, behold, a woman of Canaan came out of the same coasts, and cried unto him, saying, Have mercy on me, O Lord, *thou* Son of David; my daughter is grievously vexed with a devil.  
 > **²³** But he answered her not a word. And his disciples came and besought him, saying, Send her away; for she crieth after us.  
@@ -223,6 +226,7 @@ Her plea is, *Yet the dogs eat of the crumbs.* It is true, the full and regular 
 The event was answerable to the word of Christ; *Her daughter was made whole from that very hour;* from thenceforward was never vexed with the devil any more; the mother's faith prevailed for the daughter's cure. Though the patient was at a distance, that was no hindrance to the efficacy of Christ's word. *He spake, and it was done.*
 
 ## Four Thousand Men Fed
+
 > **²⁹** And Jesus departed from thence, and came nigh unto the sea of Galilee; and went up into a mountain, and sat down there.  
 > **³⁰** And great multitudes came unto him, having with them *those that were* lame, blind, dumb, maimed, and many others, and cast them down at Jesus' feet; and he healed them:  
 > **³¹** Insomuch that the multitude wondered, when they saw the dumb to speak, the maimed to be whole, the lame to walk, and the blind to see: and they glorified the God of Israel.  

@@ -7,6 +7,7 @@ weight: 28
 The former part of this psalm is the prayer of a saint militan and now in distress (Ps 28:1-3), to which is added the doom of God's implacable enemies, Ps 28:4,5. The latter part of the psalm is the thanksgiving of a saint triumphant, and delivered out of his distresses (Ps 28:6-8), to which is added a prophetical prayer for all God's faithful loyal subjects, Ps 28:9. So that it is hard to say which of these two conditions David was in when he penned it. Some think he was now in trouble seeking God, but at the same time preparing to praise him for his deliverance, and by faith giving him thanks for it, before it was wrought. Others think he was now in triumph, but remembered, and recorded for his own and others' benefit, the prayers he made when he was in affliction, that the mercy might relish the better, when it appeared to be an answer to them.
 
 ## Prayer for Deliverance
+
 A psalm of David.
 
 > **¹** Unto thee will I cry, O LORD my rock; be not silent to me: lest, *if* thou be silent to me, I become like them that go down into the pit.  
@@ -28,6 +29,7 @@ IV\. He foretels their destruction for their contempt of God and his hand (Ps 28
 In singing this we must arm ourselves against all temptations to join with the workers of iniquity, and animate ourselves against all the troubles we may be threatened with by the workers of iniquity.
 
 ## Devout Thanksgiving and Praise
+
 > **⁶** Blessed *be* the LORD, because he hath heard the voice of my supplications.  
 > **⁷** The LORD *is* my strength and my shield; my heart trusted in him, and I am helped: therefore my heart greatly rejoiceth; and with my song will I praise him.  
 > **⁸** The LORD *is* their strength, and he *is* the saving strength of his anointed.  

@@ -7,6 +7,7 @@ weight: 128
 This, as the former, is a psalm for families. In that we were taught that the prosperity of our families depends upon the blessing of God; in this we are taught that the only way to obtain that blessing which will make our families comfortable is to live in the fear of God and in obedience to him. Those that do so, in general, shall be blessed (Ps 128:1,2,4), In particular, I. They shall be prosperous and successful in their employments, Ps 128:2. II. Their relations shall be agreeable, Ps 128:3. III. They shall live to see their families brought up, Ps 128:6. IV. They shall have the satisfaction of seeing the church of God in a flourishing condition, Ps 128:5,6. We must sing this psalm in the firm belief of this truth, That religion and piety are the best friends to outward prosperity, giving God the praise that it is so and that we have found it so, and encouraging ourselves and others with it.
 
 ## Blessedness of the Godly
+
 A song of degrees.
 
 > **¹** Blessed *is* every one that feareth the LORD; that walketh in his ways.  

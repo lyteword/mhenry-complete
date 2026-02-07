@@ -7,6 +7,7 @@ weight: 19
 In this chapter, we have, I. Christ changing his quarters, leaving Galilee, and coming into the coasts of Judea, Mt 19:1,2. II. His dispute with the Pharisees about divorce, and his discourse with his disciples upon occasion of it, Mt 19:3-12. III. The kind entertainment he gave to some little children which were brought to him, Mt 19:13-15. IV. An account of what passed between Christ and a hopeful young gentleman that applied himself to him, Mt 19:16-22. V. His discourse with his disciples upon that occasion, concerning the difficulty of the salvation of those that have much in the world, and the certain recompence of those that leave all for Christ, Mt 19:23-30.
 
 ## Christ Leaves Galilee and Enters Judea
+
 > **¹** And it came to pass, *that* when Jesus had finished these sayings, he departed from Galilee, and came into the coasts of Judea beyond Jordan;  
 > **²** And great multitudes followed him; and he healed them there.  
 
@@ -19,6 +20,7 @@ We have here an account of Christ's removal. Observe,
 3\. *Great multitudes followed him.* Where Shiloh is, there will *the gathering of the people be.* The *redeemed of the Lord* are such as *follow the Lamb whithersoever he goes,* Re 14:4. When Christ departs, it is best for us to follow him. It was a piece of respect to Christ, and yet it was a continual trouble, to be thus crowded after, wherever he went; but he sought not his own ease, nor, considering how mean and contemptible this mob was (as some would call them), his own honour much, in the eye of the world; he *went about doing good;* for so it follows, *he healed them there.* This shows what they followed him for, to have their sick healed; and they found him as able and ready to help here, as he had been in Galilee; for, wherever this *Sun of righteousness arose,* it was *with healing under his wings. He healed them there,* because he would not have them follow him to Jerusalem, lest it should give offence. *He shall not strive, nor cry.*
 
 ## The Law of Divorce
+
 > **³** The Pharisees also came unto him, tempting him, and saying unto him, Is it lawful for a man to put away his wife for every cause?  
 > **⁴** And he answered and said unto them, Have ye not read, that he which made *them* at the beginning made them male and female,  
 > **⁵** And said, For this cause shall a man leave father and mother, and shall cleave to his wife: and they twain shall be one flesh?  
@@ -83,6 +85,7 @@ Now, [1.] This affection to the single state must be given of God; for none can 
 [2.] The single state must be chosen for the kingdom of heaven's sake; in those who resolve never to marry, only that they may save charges, or may gratify a morose selfish humour, or have a greater liberty to serve other lusts and pleasures, it is so far from being a virtue, that it is an ill-natured vice; but when it is for religion's sake, not as in itself a meritorious act (which papists make it), but only as a means to keep our minds more entire for, and more intent upon, the services of religion, and that, having no families to provide for, we may do the more works of charity, then it is approved and accepted of God. Note, That condition is best for us, and to be chosen and stuck to accordingly, which is best for our souls, and tends most to the preparing of us for, and the preserving of us to, the kingdom of heaven.
 
 ## Christ's Tenderness to Children
+
 > **¹³** Then were there brought unto him little children, that he should put *his* hands on them, and pray: and the disciples rebuked them.  
 > **¹⁴** But Jesus said, Suffer little children, and forbid them not, to come unto me: for of such is the kingdom of heaven.  
 > **¹⁵** And he laid *his* hands on them, and departed thence.  
@@ -104,6 +107,7 @@ III\. The favour of our Lord Jesus. See how he carried it here.
 Methinks it has something observable in it, that, when he had done this, he departed thence, Mt 19:15. As if he reckoned he had done enough there, when he had thus asserted the rights of the lambs of his flock, and made this provision for a succession of subjects in his kingdom.
 
 ## The Rich Ruler's Enquiry; The Rich Ruler's Disappointment
+
 > **¹⁶** And, behold, one came and said unto him, Good Master, what good thing shall I do, that I may have eternal life?  
 > **¹⁷** And he said unto him, Why callest thou me good? *there is* none good but one, *that is,* God: but if thou wilt enter into life, keep the commandments.  
 > **¹⁸** He saith unto him, Which? Jesus said, Thou shalt do no murder, Thou shalt not commit adultery, Thou shalt not steal, Thou shalt not bear false witness,  
@@ -167,6 +171,7 @@ Yet something of honesty there was in it, that, when he did not like the terms, 
 [2.] Yet he was a thinking man, and well-inclined, and therefore *went away sorrowful.* He had a leaning toward Christ, and was loth to part with him. Note, Many a one is ruined by the sin he commits with reluctance; leaves Christ sorrowfully, and yet is never truly sorry for leaving him, for, if he were, he would return to him. Thus this man's wealth was *vexation of spirit* to him, then when it was his temptation. What then would the sorrow be afterward, when his possessions would be gone, and all hopes of eternal life gone too?
 
 ## The Recompense of Christ's Followers
+
 > **²³** Then said Jesus unto his disciples, Verily I say unto you, That a rich man shall hardly enter into the kingdom of heaven.  
 > **²⁴** And again I say unto you, It is easier for a camel to go through the eye of a needle, than for a rich man to enter into the kingdom of God.  
 > **²⁵** When his disciples heard *it,* they were exceedingly amazed, saying, Who then can be saved?  

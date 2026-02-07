@@ -7,6 +7,7 @@ weight: 1
 This is a psalm of instruction concerning good and evil, setting before us life and death, the blessing and the curse, that we may take the right way which leads to happiness and avoid that which will certainly end in our misery and ruin. The different character and condition of godly people and wicked people, those that serve God and those that serve him not, is here plainly stated in a few words; so that every man, if he will be faithful to himself, may here see his own face and then read his own doom. That division of the children of men into saints and sinners, righteous and unrighteous, the children of God and the children of the wicked one, as it is ancient, ever since the struggle began between sin and grace, the seed of the woman and the seed of the serpent, so it is lasting, and will survive all other divisions and subdivisions of men into high and low, rich and poor, bond and free; for by this men's everlasting state will be determined, and the distinction will last as long as heaven and hell. This psalm shows us, I. The holiness and happiness of a godly man, Ps 1:1-3. II. The sinfulness and misery of a wicked man, Ps 1:4,5. III. The ground and reason of both, Ps 1:6. Whoever collected the psalms of David (probably it was Ezra) with good reason put this psalm first, as a preface to the rest, because it is absolutely necessary to the acceptance of our devotions that we be righteous before God (for it is only the prayer of the upright that is his delight), and therefore that we be right in our notions of blessedness and in our choice of the way that leads to it. Those are not fit to put up good prayers who do not walk in good ways.
 
 ## The Happy Man
+
 > **¹** Blessed *is* the man that walketh not in the counsel of the ungodly, nor standeth in the way of sinners, nor sitteth in the seat of the scornful.  
 > **²** But his delight *is* in the law of the LORD; and in his law doth he meditate day and night.  
 > **³** And he shall be like a tree planted by the rivers of water, that bringeth forth his fruit in his season; his leaf also shall not wither; and whatsoever he doeth shall prosper.  
@@ -24,6 +25,7 @@ II\. An assurance given of the godly man's happiness, with which we should encou
 In singing Ps 1:1-3, being duly affected with the malignant and dangerous nature of sin, the transcendent excellencies of the divine law, and the power and efficacy of God's grace, from which our fruit is found, we must teach and admonish ourselves, and one another, to watch against sin and all approaches towards it, to converse much with the word of God, and abound in the fruit of righteousness; and, in praying over them, we must seek to God for his grace both to fortify us against every evil word and work and to furnish us for every good word and work.
 
 ## Description and Doom of the Ungodly
+
 > **⁴** The ungodly *are* not so: but *are* like the chaff which the wind driveth away.  
 > **⁵** Therefore the ungodly shall not stand in the judgment, nor sinners in the congregation of the righteous.  
 > **⁶** For the LORD knoweth the way of the righteous: but the way of the ungodly shall perish.  

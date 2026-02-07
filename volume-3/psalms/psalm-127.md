@@ -7,6 +7,7 @@ weight: 127
 This is a family-psalm, as divers before were state-poems and church-poems. It is entitled (as we read it) "for Solomon," dedicated to him by his father. He having a house to build, a city to keep, and seed to raise up to his father, David directs him to look up to God, and to depend upon his providence, without which all his wisdom, care, and industry, would not serve. Some take it to have been penned by Solomon himself, and it may as well be read, "a song of Solomon," who wrote a great many; and they compare it with the Ecclesiastes, the scope of both being the same, to show the vanity of worldly care and how necessary it is that we keep in favour with God. On him we must depend, I. For wealth, Ps 127:1,2. II. For heirs to leave it to, Ps 127:3-5. In singing this psalm we must have our eye up unto God for success in all our undertakings and a blessing upon all our comforts and enjoyments, because every creature is that to us which he makes it to be and no more.
 
 ## Dependence on Providence; God the Giver of Prosperity
+
 A song of degrees for Solomon.
 
 > **¹** Except the LORD build the house, they labour in vain that build it: except the LORD keep the city, the watchman waketh *but* in vain.  

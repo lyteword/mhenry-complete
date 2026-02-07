@@ -7,6 +7,7 @@ weight: 12
 It is supposed that David penned this psalm in Saul's reign, when there was a general decay of honesty and piety both in court and country, which he here complains of to God, and very feelingly, for he himself suffered by the treachery of his false friends and the insolence of his sworn enemies. I. He begs help of God, because there were none among men whom he durst trust, Ps 12:1,2. II. He foretels the destruction of his proud and threatening enemies, Ps 12:3,4. III. He assures himself and others that, how ill soever things went now (Ps 12:8), God would preserve and secure to himself his own people (Ps 12:5,7), and would certainly make good his promises to them, Ps 12:6. Whether this psalm was penned in Saul's reign or no, it is certainly calculated for a bad reign; and perhaps David, in spirit foresaw that some of his successors would bring things to as bad a pass as is here described, and treasured up this psalm for the use of the church then. "O tempora, O mores!—Oh the times! Oh the manners!"
 
 ## Complaints of the Times
+
 To the chief musician upon Sheminith. A psalm of David.
 
 > **¹** Help, LORD; for the godly man ceaseth; for the faithful fail from among the children of men.  

@@ -7,6 +7,7 @@ weight: 5
 The psalm is a prayer, a solemn address to God, at a time when the psalmist was brought into distress by the malice of his enemies. Many such times passed over David, nay, there was scarcely any time of his life to which this psalm may not be accommodated, for in this he was a type of Christ, that he was continually beset with enemies, and his powerful and prevalent appeals to God, when he was so beset, pointed at Christ's dependence on his Father and triumphs over the powers of darkness in the midst of his sufferings. In this psalm, I. David settles a correspondence between his soul and God, promising to pray, and promising himself that God would certainly hear him, Ps 5:1-3. II. He gives to God the glory, and takes to himself the comfort, of God's holiness, Ps 5:4-6. III. He declares his resolution to keep close to the public worship of God, Ps 5:7. IV. He prayed, 1. For himself, that God would guide him, Ps 5:8. 2. Against his enemies, that God would destroy them, Ps 5:9,10. 3. For all the people of God, that God would give them joy, and keep them safe, Ps 5:11,12. And this is all of great use to direct us in prayer.
 
 ## Prayer for Guidance and Protection
+
 To the chief musician upon Nehiloth. A psalm of David.
 
 > **¹** Give ear to my words, O LORD, consider my meditation.  
@@ -29,6 +30,7 @@ II\. As a sin-hating God, Ps 5:4-6. David takes notice of this, 1. As a warning 
 In singing Ps 5:1-6, and praying them over, we must engage and stir up ourselves to the duty of prayer, and encourage ourselves in it, because we shall not seek the Lord in vain; and must express our detestation of sin, and our awful expectation of that day of Christ's appearing which will be the day of the perdition of ungodly men.
 
 ## Delight in Public Worship; Happiness of the Righteous
+
 > **⁷** But as for me, I will come *into* thy house in the multitude of thy mercy: *and* in thy fear will I worship toward thy holy temple.  
 > **⁸** Lead me, O LORD, in thy righteousness because of mine enemies; make thy way straight before my face.  
 > **⁹** For *there is* no faithfulness in their mouth; their inward part *is* very wickedness; their throat *is* an open sepulchre; they flatter with their tongue.  

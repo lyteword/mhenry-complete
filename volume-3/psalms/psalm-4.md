@@ -7,6 +7,7 @@ weight: 4
 David was a preacher, a royal preacher, as well as Solomon; many of his psalms are doctrinal and practical as well as devotional; the greatest part of this psalm is so, in which Wisdom cries to men, to the sons of men (as Pr 8:4,5), to receive instruction. The title does not tell us, as that of the former did, that it was penned on any particular occasion, nor are we to think that all the psalms were occasional, though some were, but that many of them were designed in general for the instruction of the people of God, who attended in the courts of his house, the assisting of their devotions, and the directing of their conversations: such a one I take this psalm to be. Let us not make the prophecy of scripture to be of more private interpretation than needs must, 2Pe 1:20. Here I. David begins with a short prayer (Ps 4:1) and that prayer preaches. II. He directs his speech to the children of men, and, 1. In God's name reproves them for the dishonour they do to God and the damage they do to their own souls, Ps 4:2. 2. He sets before them the happiness of godly people for their encouragement to be religious, Ps 4:3. 3. He calls upon them to consider their ways, Ps 4:4. III. He exhorts them to serve God and trust in him, Ps 4:5. IV. He gives an account of his own experiences of the grace of God working in him, 1. Enabling him to choose God's favour for his felicity, Ps 4:6. 2. Filling his heart with joy therein, Ps 4:7. 3. Quieting his spirit in the assurance of the divine protection he was under, night and day, Ps 4:8.
 
 ## Expostulation with Sinners
+
 To the chief musician on Neginoth. A psalm of David.
 
 > **¹** Hear me when I call, O God of my righteousness: thou hast enlarged me *when I was* in distress; have mercy upon me, and hear my prayer.  
@@ -32,6 +33,7 @@ II\. He addresses himself to the children of men, for the conviction and convers
 In singing Ps 4:1-4 we must preach to ourselves the doctrine of the provoking nature of sin, the lying vanity of the world, and the unspeakable happiness of God's people; and we must press upon ourselves the duties of fearing God, conversing with our own hearts, and offering spiritual sacrifices; and in praying over Ps 4:1-4 we must beg of God grace thus to think and thus to do.
 
 ## The Good Man's Desire
+
 > **⁶** *There be* many that say, Who will show us *any* good? LORD, lift thou up the light of thy countenance upon us.  
 > **⁷** Thou hast put gladness in my heart, more than in the time *that* their corn and their wine increased.  
 > **⁸** I will both lay me down in peace, and sleep: for thou, LORD, only makest me dwell in safety.  

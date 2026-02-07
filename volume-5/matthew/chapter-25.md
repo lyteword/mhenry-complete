@@ -7,6 +7,7 @@ weight: 25
 This chapter continues and concludes our Saviour's discourse, which began in the foregoing chapter, concerning his second coming and the end of the world. This was his farewell sermon of caution, as that, Joh 14:15,16, was of comfort to his disciples; and they had need of both in a world of so much temptation and trouble as this is. The application of that discourse, was, Watch therefore, and be ye also ready. Now, in prosecution of these serious awakening cautions, in this chapter we have three parables, the scope of which is the same—to quicken us all with the utmost care and diligence to get ready for Christ's second coming, which, in all his farewells to his church, mention was made of, as in that before he died (Joh 14:2), in that at his ascension (Ac 1:11), and in that at the shutting up of the canon of the scriptures, Re 22:20. Now it concerns us to prepare for Christ's coming; I. That we may then be ready to attend upon him; and this is shown in the parable of the ten virgins, Mt 25:1-13. II. That we may then be ready to give u our account to him; and this is shown in the parable of the three servants, Mt 25:14-30. III. That we may then be ready to receive from him our final sentence, and that it may be to eternal life; and this is shown in a more plain description of the process of the last judgment, Mt 25:31-46. These are things of awful consideration, because of everlasting concern to every one of us.
 
 ## The Parable of the Ten Virgins
+
 > **¹** Then shall the kingdom of heaven be likened unto ten virgins, which took their lamps, and went forth to meet the bridegroom.  
 > **²** And five of them were wise, and five *were* foolish.  
 > **³** They that *were* foolish took their lamps, and took no oil with them:  
@@ -88,6 +89,7 @@ Now concerning these ten virgins, we may observe,
 *Lastly,* Here is a practical inference drawn from this parable (Mt 25:13); *Watch therefore,* We had it before (Mt 24:42), and here it is repeated as the most needful caution. Note, 1. Our great duty is to watch, to attend to the business of our souls with the utmost diligence and circumspection. Be awake, and be wakeful. 2. It is a good reason for our watching, that the time of our Lord's coming is very uncertain; *we know neither the day nor the hour.* Therefore every day and every hour we must be ready, and not off our watch any day in the year, or any hour in the day. Be thou *in the fear of the Lord* every day and *all the day long.*
 
 ## The Parable of the Talents
+
 > **¹⁴** For *the kingdom of heaven is* as a man travelling into a far country, *who* called his own servants, and delivered unto them his goods.  
 > **¹⁵** And unto one he gave five talents, to another two, and to another one; to every man according to his several ability; and straightway took his journey.  
 > **¹⁶** Then he that had received the five talents went and traded with the same, and made *them* other five talents.  
@@ -193,6 +195,7 @@ Note, Many a one goes very securely to judgment, presuming upon the validity of 
 (2.) His doom is, to be *cast into outer darkness.* Here, as in what was said to the faithful servants, our Saviour slides insensibly out of the parable into the thing intended by it, and it serves as a key to the whole; for, *outer darkness, where there is weeping and gnashing of teeth,* is, in Christ's discourses, the common periphrasis of the miseries of the damned in hell. Their state is, [1.] Very dismal; it is outer darkness. Darkness is uncomfortable and frightful: it was one of the plagues of Egypt. In hell there are *chains of darkness,* 2Pe 2:4. In the dark *no man can work,* a fit punishment for a slothful servant. It is *outer* darkness, *out* from the light of heaven, *out* from the joy of their Lord, into which the faithful servants were admitted; *out* from the feast. Compare Mt 8:12,22:13. [2.] Very doleful; there is weeping, which bespeaks great sorrow, and gnashing of teeth, which bespeaks great vexation and indignation. This will be the portion of the slothful servant.
 
 ## The Process of the Last Judgment
+
 > **³¹** When the Son of man shall come in his glory, and all the holy angels with him, then shall he sit upon the throne of his glory:  
 > **³²** And before him shall be gathered all nations: and he shall separate them one from another, as a shepherd divideth *his* sheep from the goats:  
 > **³³** And he shall set the sheep on his right hand, but the goats on the left.  

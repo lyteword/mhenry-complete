@@ -7,6 +7,7 @@ weight: 1
 The narrative which this evangelist gives us (or rather God by him) of the life of Christ begins earlier than either Matthew or Mark. We have reason to thank God for them all, as we have for all the gifts and graces of Christ's ministers, which in one make up what is wanting in the other, while all put together make a harmony. In this chapter we have, I. Luke's preface to his gospel, or his epistle dedicatory to his friend Theophilus, Lu 1:1-4. II. The prophecy and history of the conception of John Baptist, who was Christ's forerunner, Lu 1:5-25. The annunciation of the virgin Mary, or the notice given to her that she should be the mother of the Messiah, Lu 1:26-38. IV. The interview between Mary the mother of Jesus and Elisabeth the mother of John, when they were both with child of those pregnant births, and the prophecies they both uttered upon that occasion, Lu 1:39-56. V. The birth and circumcision of John Baptist, six months before the birth of Christ, Lu 1:57-66. VI. Zacharias's song of praise, in thankfulness for the birth of John, and in prospect of the birth of Jesus, Lu 1:67-79. VII. A short account of John Baptist's infancy, Lu 1:80. And these do more than give us an entertaining narrative; they will lead us into the understanding of the mystery of godliness, God manifest in the flesh.
 
 ## The Evangelist's Preface
+
 > **¹** Forasmuch as many have taken in hand to set forth in order a declaration of those things which are most surely believed among us,  
 > **²** Even as they delivered them unto us, which from the beginning were eyewitnesses, and ministers of the word;  
 > **³** It seemed good to me also, having had perfect understanding of all things from the very first, to write unto thee in order, most excellent Theophilus,  
@@ -27,6 +28,7 @@ Now observe here, I. Why St. Luke wrote this gospel. It is certain that he was m
 II\. Observe why he sent it to *Theophilus:* "I wrote unto thee these things *in order,* not that thou mayest give reputation to the work, but that thou mayest be edified by it (Lu 1:4); *that thou mayest know the certainty of those things wherein thou has been instructed.*" 1. It is implied, that he had been *instructed* in these things either before his baptism, or since, or both, according to the rule, Mt 28:19,20. Probably, Luke had baptized him, and knew how well instructed he was; *peri hon katechethes*—*concerning which thou hast been catechized;* so the word is; the most knowing Christians began with being catechized. Theophilus was a person of quality, perhaps of noble birth; and so much the more pains should be taken with such when they are young, to teach them the principles of the oracles of God, that they may be fortified against temptations, and furnished for the opportunities, of a high condition in the world. 2. It was intended that he should *know the certainty of those things,* should understand them more clearly and believe more firmly. There is a *certainty* in the gospel of Christ, there is that therein which we may build upon; and those who have been well instructed in the things of God when they were young should afterwards give diligence to *know the certainty* of those things, to know not only what we believe, but why we believe it, that we may be able to give a *reason of the hope that is in us.*
 
 ## The Appearance of an Angel to Zacharias; The Birth of John Foretold; The Unbelief of Zacharias
+
 > **⁵** There was in the days of Herod, the king of Judæa, a certain priest named Zacharias, of the course of Abia: and his wife *was* of the daughters of Aaron, and her name *was* Elisabeth.  
 > **⁶** And they were both righteous before God, walking in all the commandments and ordinances of the Lord blameless.  
 > **⁷** And they had no child, because that Elisabeth was barren, and they both were *now* well stricken in years.  
@@ -122,6 +124,7 @@ V\. The return of Zacharias to the people, and at length to his family, and the 
 4\. He staid out the *days of his ministration;* for, his lot being to *burn incense,* he could do that, though he was *dumb* and *deaf.* When we cannot perform the service of God so well as we would, yet, if we perform it as well as we can, God will accept of us in it.
 
 ## The Birth of Christ Foretold
+
 > **²⁶** And in the sixth month the angel Gabriel was sent from God unto a city of Galilee, named Nazareth,  
 > **²⁷** To a virgin espoused to a man whose name was Joseph, of the house of David; and the virgin's name *was* Mary.  
 > **²⁸** And the angel came in unto her, and said, Hail, *thou that art* highly favoured, the Lord *is* with thee: blessed *art* thou among women.  
@@ -185,6 +188,7 @@ VI\. Her acquiescence in the will of God concerning her, Lu 1:38. She owns herse
 Hereupon, *the angel departed from her;* having completed the errand he was sent upon, he returned, to give an account of it, and receive new instructions. Converse with angels was always a transient thing, and soon over; it will be constant and permanent in the future state. It is generally supposed that just at this instant the virgin *conceived,* by the *overshadowing power* of the Holy Ghost: but, the scripture being decently silent concerning it, it doth not become us to be *inquisitive,* much less *positive.*
 
 ## The Interview of Mary and Elisabeth; The Song of Mary
+
 > **³⁹** And Mary arose in those days, and went into the hill country with haste, into a city of Juda;  
 > **⁴⁰** And entered into the house of Zacharias, and saluted Elisabeth.  
 > **⁴¹** And it came to pass, that, when Elisabeth heard the salutation of Mary, the babe leaped in her womb; and Elisabeth was filled with the Holy Ghost:  
@@ -261,6 +265,7 @@ IV\. Mary's song of praise, upon this occasion. Elisabeth's prophecy was an echo
 *Lastly,* Mary's return to Nazareth (Lu 1:56), after she had continued with Elisabeth about *three months,* so long as to be fully satisfied concerning herself that she was *with child,* and to be confirmed therein by her cousin Elisabeth. Some think, though her return is here mentioned before Elisabeth's being delivered, because the evangelist would finish this passage concerning Mary before he proceeded with the story of Elisabeth, yet that Mary staid till her cousin was (as we say) *down and up again;* that she might attend on her, and be with her in her lying-in, and have her own faith confirmed by the full accomplishment of the promise of God concerning Elisabeth. But most bind themselves to the order of the story as it lies, and think she returned again when Elisabeth was near her time; because she still affected retirement, and therefore would not be there when the birth of this child of promise would draw a great deal of company to the house. Those in whose hearts Christ is formed take more delight than they used to do in *sitting alone* and *keeping silence.*
 
 ## The Birth of John the Baptist
+
 > **⁵⁷** Now Elisabeth's full time came that she should be delivered; and she brought forth a son.  
 > **⁵⁸** And her neighbours and her cousins heard how the Lord had showed great mercy upon her; and they rejoiced with her.  
 > **⁵⁹** And it came to pass, that on the eighth day they came to circumcise the child; and they called him Zacharias, after the name of his father.  
@@ -297,6 +302,7 @@ Now it was the custom, when they circumcised their children, to *name them,* bec
 *Lastly,* It is said, *The hand of the Lord was with him;* that is, he was taken under the special protection of the Almighty, from his birth, as one designed for something great and considerable, and there were many instances of it. It appeared likewise that the Spirit was at work upon his soul very early. As soon as he began to speak or go, you might perceive something in him very extraordinary. Note, God has ways of operating upon children in their infancy, which we cannot account for. God never made a soul but he knew how to sanctify it.
 
 ## The Song of Zacharias
+
 > **⁶⁷** And his father Zacharias was filled with the Holy Ghost, and prophesied, saying,  
 > **⁶⁸** Blessed *be* the Lord God of Israel; for he hath visited and redeemed his people,  
 > **⁶⁹** And hath raised up a horn of salvation for us in the house of his servant David;  

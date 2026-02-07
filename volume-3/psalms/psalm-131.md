@@ -7,6 +7,7 @@ weight: 131
 This psalm is David's profession of humility, humbly made, with thankfulness to God for his grace, and not in vain-glory. It is probable enough that (as most interpreters suggest) David made this protestation in answer to the calumnies of Saul and his courtiers, who represented David as an ambitious aspiring man, who, under pretence of a divine appointment, sought the kingdom, in the pride of his heart. But he appeals to God, that, on the contrary, I. He aimed at nothing high nor great, Ps 131:1. II. He was very easy in every condition which God allotted him (Ps 131:2); and therefore, III. He encourages all good people to trust in God as he did, Ps 131:3. Some have made it an objection against singing David's psalms that there are many who cannot say, "My heart is not haughty," etc. It is true there are; but we may sing it for the same purpose that we read it, to teach and admonish ourselves, and one another, what we ought to be, with repentance that we have come short of being so, and humble prayer to God for his grace to make us so.
 
 ## Humble Confidence
+
 A song of degrees of David.
 
 > **¹** LORD, my heart is not haughty, nor mine eyes lofty: neither do I exercise myself in great matters, or in things too high for me.  

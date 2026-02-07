@@ -7,6 +7,7 @@ weight: 122
 This psalm seems to have been penned by David for the use of the people of Israel, when they came up to Jerusalem to worship at the three solemn feasts. It was in David's time that Jerusalem was first chosen to be the city where God would record his name. It being a new thing, this, among other means, was used to bring the people to be in love with Jerusalem, as the holy city, though it was but the other day in the hands of the Jebusites. Observe, I. The joy with which they were to go up to Jerusalem, Ps 122:1,2. II. The great esteem they were to have of Jerusalem, Ps 122:3-5. III. The great concern they were to have for Jerusalem, and the prayers they were to put up for its welfare, Ps 122:6-9. In singing this psalm we must have an eye to the gospel church, which is called the "Jerusalem that is from above."
 
 ## The Pleasures of Public Worship
+
 A song of degrees of David.
 
 > **¹** I was glad when they said unto me, Let us go into the house of the LORD.  
@@ -32,6 +33,7 @@ II\. The praises of Jerusalem, as Ps 48:12.
 3\. It is the royal city (Ps 122:5): *There are set thrones of judgment. Therefore* the people had reason to be in love with Jerusalem, because justice was administered there by a man after God's own heart. The civil interests of the people were as well secured as their ecclesiastical concerns; and very happy they were in their courts of judicature, which were erected in Jerusalem, as with us in Westminster Hall. Observe, What a goodly sight it was to see *the testimony of Israel* and the *thrones of judgment* such near neighbours, and they are good neighbours, which may greatly befriend one another. Let the testimony of Israel direct the thrones of judgment, and the thrones of judgment protect the testimony of Israel.
 
 ## Prayer for the Church
+
 > **⁶** Pray for the peace of Jerusalem: they shall prosper that love thee.  
 > **⁷** Peace be within thy walls, *and* prosperity within thy palaces.  
 > **⁸** For my brethren and companions' sakes, I will now say, Peace *be* within thee.  

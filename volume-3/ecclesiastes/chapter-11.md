@@ -7,6 +7,7 @@ weight: 11
 In this chapter we have, I. A pressing exhortation to works of charity and bounty to the poor, as the best cure of the vanity which our worldly riches are subject to and the only way of making them turn to a substantial good account, Ec 11:1-6. II. A serious admonition to prepare for death and judgment, and to begin betimes, even in the days of our youth, to do so, Ec 11:7-10.
 
 ## The Obligations to Be Liberal; Answers to Objections against Liberality
+
 > **¹** Cast thy bread upon the waters: for thou shalt find it after many days.  
 > **²** Give a portion to seven, and also to eight; for thou knowest not what evil shall be upon the earth.  
 > **³** If the clouds be full of rain, they empty *themselves* upon the earth: and if the tree fall toward the south, or toward the north, in the place where the tree falleth, there it shall be.  
@@ -39,6 +40,7 @@ III\. How he obviates the objections which might be made against this duty and t
 5\. Some say, "We have been charitable, have given a great deal to the poor, and never yet saw any return for it; many days are past, and we have not *found it again,*" to which he answers (Ec 11:6), "Yet go on, proceed and persevere in well-doing; let slip no opportunity. *In the morning sow thy seed* upon the objects of charity that offer themselves early, *and in the evening do not withhold thy hand,* under pretence that thou art weary; as thou hast opportunity, be doing good, some way or other, all the day long, as the husbandman follows his seedness from morning till night. *In the morning* of youth lay out thyself to do good; give out of the little thou hast to begin the world with; *and in the evening* of old age yield not to the common temptation old people are in to be penurious; even then *withhold not thy hand,* and think not to excuse thyself from charitable works by purposing to make a charitable will, but do good to the last, *for thou knowest not* which work of charity and piety *shall prosper,* both as to others and as to thyself, *this or that,* but hast reason to hope that *both shall be alike good. Be not weary of well-doing, for in due season,* in God's time and that is the best time, *you shall reap,*" Ga 6:9. This is applicable to spiritual charity, our pious endeavours for the good of the souls of others; let us continue them, for, though we have long laboured in vain, we may at length see the success of them. Let ministers, in the days of their seedness, sow both morning and evening; *for who* can tell *which shall prosper?*
 
 ## A Caution to the Young; Exhortation to Early Piety
+
 > **⁷** Truly the light *is* sweet, and a pleasant *thing it is* for the eyes to behold the sun:  
 > **⁸** But if a man live many years, *and* rejoice in them all; yet let him remember the days of darkness; for they shall be many. All that cometh *is* vanity.  
 > **⁹** Rejoice, O young man, in thy youth; and let thy heart cheer thee in the days of thy youth, and walk in the ways of thine heart, and in the sight of thine eyes: but know thou, that for all these *things* God will bring thee into judgment.  

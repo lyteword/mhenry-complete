@@ -7,6 +7,7 @@ weight: 13
 This psalm is the deserted soul's case and cure. Whether it was penned upon any particular occasion does not appear, but in general, I. David sadly complains that God had long withdrawn from him and delayed to relieve him, Ps 13:1,2. II. He earnestly prays to God to consider his case and comfort him, Ps 13:3,4. III. He assures himself of an answer of peace, and therefore concludes the psalm with joy and triumph, because he concludes his deliverance to be as good as wrought, Ps 13:5,6.
 
 ## David's Complaints and Prayers Turned into Praises
+
 To the chief musician. A psalm of David.
 
 > **¹** How long wilt thou forget me, O LORD? for ever? how long wilt thou hide thy face from me?  

@@ -7,6 +7,7 @@ weight: 27
 Some think David penned this psalm before his coming to the throne, when he was in the midst of his troubles, and perhaps upon occasion of the death of his parents; but the Jews think he penned it when he was old, upon occasion of the wonderful deliverance he had from the sword of the giant, when Abishai succoured him (2Sa 21:16,17) and his people thereupon resolved he should never venture his life again in battle, lest he should quench the light of Israel. Perhaps it was not penned upon any particular occasion; but it is very expressive of the pious and devout affections with which gracious souls are carried out towards God at all times, especially in times of trouble. Here is, I. The courage and holy bravery of his faith, Ps 27:1-3. II. The complacency he took in communion with God and the benefit he experienced by it, Ps 27:4-6. III. His desire towards God, and his favour and grace, Ps 27:7-9,11,12. IV. His expectations from God, and the encouragement he gives to others to hope in him, Ps 27:10,13,14. And let our hearts be thus affected in singing this psalm.
 
 ## Devout Confidence; Encouragement in Prayers
+
 A psalm of David.
 
 > **¹** The LORD *is* my light and my salvation; whom shall I fear? the LORD *is* the strength of my life; of whom shall I be afraid?  
@@ -33,6 +34,7 @@ III\. With what a gracious earnestness he prays for a constant communion with Go
 4\. What advantage he promised himself by it. Could he but have a place in God's house, (1.) There he should be quiet and easy: there troubles would not find him, for he should be hid in secret; there troubles would not reach him, for he should be set on high, Ps 27:5. Joash, one of David's seed, was hidden in the house of the Lord six years, and there not only preserved from the sword, but reserved to the crown, 2Ki 11:3. The temple was thought a safe place for Nehemiah to abscond in, Ne 6:10. The safety of believers however is not in the walls of the temple, but in the God of the temple and their comfort in communion with him. (2.) There he should be pleasant and cheerful: there he would offer sacrifices of joy, Ps 27:6. For God's work is its own wages. There *he would sing, yea, he would sing praises to the Lord.* Note, Whatever is the matter of our joy ought to be the matter of our praise; and, when we attend upon God in holy ordinances, we ought to be much in joy and praise. It is for the glory of our God that we should sing in his ways; and, whenever God lifts us up above our enemies, we ought to exalt him in our praises. *Thanks be to God, who always causeth us to triumph,* 2Co 2:14.
 
 ## Confidence in Divine Goodness
+
 > **⁷** Hear, O LORD, *when* I cry with my voice: have mercy also upon me, and answer me.  
 > **⁸** *When thou saidst,* Seek ye my face; my heart said unto thee, Thy face, LORD, will I seek.  
 > **⁹** Hide not thy face *far* from me; put not thy servant away in anger: thou hast been my help; leave me not, neither forsake me, O God of my salvation.  
