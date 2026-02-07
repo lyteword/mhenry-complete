@@ -6,7 +6,7 @@ weight: 6
 
 Nothing that occurred in the quiet and peaceable times of Israel is recorded; the forty years' rest after the conquest of Jabin is passed over in silence; and here begins the story of another distress and another deliverance, by Gideon, the fourth of the judges. Here is, I. The calamitous condition of Israel, by the inroads of the Midianites, Jdg 6:1-6. II. The message God sent them by a prophet, by convincing them of sin, to prepare them for deliverance, Jdg 6:7-10. III. The raising up of Gideon to be their deliverer. 1. A commission which God sent him by the hand of an angel, and confirmed by a sign, Jdg 6:11-24. 2. The first-fruits of his government in the reform of his father's house, Jdg 6:25-32. 3. The preparations he made for a war with the Midianites, and the encouragement given him by a sign, Jdg 6:33-40.
 
-## The Inroads of the Midianites. (b. c. 1249.)
+## The Inroads of the Midianites (1249 BC)
 
 > **¹** And the children of Israel did evil in the sight of the LORD: and the LORD delivered them into the hand of Midian seven years.  
 > **²** And the hand of Midian prevailed against Israel: *and* because of the Midianites the children of Israel made them the dens which *are* in the mountains, and caves, and strong holds.  
@@ -40,7 +40,7 @@ II\. The method God took of working deliverance for them.
 
 (3.) He charges them with rebellion against God, who had laid this injunction upon them: *But you have not obeyed my voice.* The charge is short, but very comprehensive; this was the malignity of all their sin, it was disobedience to God; and therefore it was this that brought those calamities upon them under which they were now groaning, pursuant to the threatenings annexed to his commands. He intends hereby to bring them to repentance; and our repentance is then right and genuine when the sinfulness of sin, as disobedience to God, is that in it which we chiefly lament.
 
-## The Call of Gideon. (b. c. 1249.)
+## The Call of Gideon (1249 BC)
 
 > **¹¹** And there came an angel of the LORD, and sat under an oak which *was* in Ophrah, that *pertained* unto Joash the Abiezrite: and his son Gideon threshed wheat by the winepress, to hide *it* from the Midianites.  
 > **¹²** And the angel of the LORD appeared unto him, and said unto him, The LORD *is* with thee, thou mighty man of valour.  
@@ -85,7 +85,7 @@ II\. The person that gave him the commission was an *angel of the Lord;* it shou
 
 3\. The memorial of this vision which Gideon set up was a monument in form of an altar, the rather because it was by a kind of sacrifice upon a rock, without the solemnity of an altar, that the angel manifested his acceptance of him; then an altar was unnecessary (the angel's staff was sufficient to sanctify the gift without an altar), but now it was of use to preserve the remembrance of the vision, which was done by the name Gideon gave to this memorial, *Jehovah-shalom* (Jdg 6:24)—*The Lord peace.* This is, (1.) The title of the Lord that spoke to him. Compare Ge 16:13. The same that is the *Lord our righteousness* is *our peace* (Eph 2:14), our reconciler and so our Saviour. Or, (2.) The substance of what he said to him: "*The Lord spoke peace,* and created that fruit of the lips, bade me be easy when I was in that agitation." Or, (3.) A prayer grounded upon what he had said, so the margin understands it: *The Lord send peace,* that is, rest from the present trouble, for still the public welfare lay nearest his heart.
 
-## Gideon Overturns the Altar of Baal; Gideon Rescued from the Mob. (b. c. 1249.)
+## Gideon Overturns the Altar of Baal; Gideon Rescued from the Mob (1249 BC)
 
 > **²⁵** And it came to pass the same night, that the LORD said unto him, Take thy father's young bullock, even the second bullock of seven years old, and throw down the altar of Baal that thy father hath, and cut down the grove that *is* by it:  
 > **²⁶** And build an altar unto the LORD thy God upon the top of this rock, in the ordered place, and take the second bullock, and offer a burnt sacrifice with the wood of the grove which thou shalt cut down.  
@@ -114,7 +114,7 @@ IV\. He was rescued out of the hands of his persecutors by his own father, Jdg 6
 
 (3.) Gideon's father hereupon gave him a new name (Jdg 6:32); he called him *Jerubbaal:* "Let Baal plead; let him plead against him if he can; if he have any thing to say for himself against his destroyer, let him say it." This name was a standing defiance to Baal: "Now that Gideon is taking up arms against the Midianites that worship Baal, let him defend his worshippers if he can." It likewise gave honour to Gideon (a sworn enemy to that great usurper, and that had carried the day against him), that encouragement to his soldiers, that they fought under one that fought for God against this great competitor with him for the throne. It is the probable conjecture of the learned that that Jerombalus whom Sanchoniathon (one of the most ancient of all the heathen writers) speaks of as *a priest of the god Jao* (a corruption of the name *Jehovah*), and one to whom he was indebted for a great deal of knowledge, was this Jerubbaal. He is called *Jerubbesheth* (2Sa 11:21), *Baal,* a *lord,* being fitly turned into *Besheth, shame.*
 
-## Gideon's Fleece. (b. c. 1249.)
+## Gideon's Fleece (1249 BC)
 
 > **³³** Then all the Midianites and the Amalekites and the children of the east were gathered together, and went over, and pitched in the valley of Jezreel.  
 > **³⁴** But the Spirit of the LORD came upon Gideon, and he blew a trumpet; and Abiezer was gathered after him.  

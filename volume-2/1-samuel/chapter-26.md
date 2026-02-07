@@ -6,7 +6,7 @@ weight: 26
 
 David's troubles from Saul here begin again; and the clouds return after the rain, when one would have hoped the storm had blown over, and the sky had cleared upon that side; but after Saul had owned his fault in persecuting David, and acknowledged David's title to the crown, yet here he revives the persecution, so perfectly lost was he to all sense of honour and virtue. I. The Ziphites informed him where David was (1Sa 26:1), and thereupon he marched out with a considerable force in quest of him, 1Sa 26:2,3. II. David gained intelligence of his motions (1Sa 26:4), and took a view of his camp, 1Sa 26:5. III. He and one of his men ventured into his camp in the night and found him and all his guards fast asleep, 1Sa 26:6,7. IV. David, though much urged to it by his companions, would not take away Saul's life, but only carried off his spear and his cruse of water, 1Sa 26:8-12. V. He produced these as a further witness for him that he did not design any ill to Saul, and reasoned with him upon his conduct, 1Sa 26:13-20. VI. Saul was hereby convinced of his error, and once more desisted from persecuting David, 1Sa 26:21-25. The story is much like that which we had (1Sa 24:1-22). In both David is delivered out of Saul's hand, and Saul out of David's.
 
-## Saul Again Pursues David. (b. c. 1056.)
+## Saul Again Pursues David (1056 BC)
 
 > **¹** And the Ziphites came unto Saul to Gibeah, saying, Doth not David hide himself in the hill of Hachilah, *which is* before Jeshimon?  
 > **²** Then Saul arose, and went down to the wilderness of Ziph, having three thousand chosen men of Israel with him, to seek David in the wilderness of Ziph.  
@@ -18,7 +18,7 @@ Here, 1. Saul gets information of David's movements and acts offensively. The Zi
 
 2\. David gets information of Saul's movements and acts defensively. He did not march out to meet and fight him; he sought only his own safety, not Saul's ruin; therefore he *abode in the wilderness* (1Sa 26:3), putting thereby a great force upon himself, and curbing the bravery of his own spirit by a silent retirement, showing more true valour than he could have done by an irregular resistance. (1.) He had spies who informed him of Saul's descent, *that he had come in very deed* (1Sa 26:4); for he would not believe that Saul would deal so basely with him till he had the utmost evidence of it. (2.) He observed with his own eyes how Saul was encamped, 1Sa 26:5. He came towards the place where Saul and his men had pitched their tents, so near as to be able, undiscovered, to take a view of their entrenchments, probably in the dusk of the evening.
 
-## David Spares Saul's Life. (b. c. 1056.)
+## David Spares Saul's Life (1056 BC)
 
 > **⁶** Then answered David and said to Ahimelech the Hittite, and to Abishai the son of Zeruiah, brother to Joab, saying, Who will go down with me to Saul to the camp? And Abishai said, I will go down with thee.  
 > **⁷** So David and Abishai came to the people by night: and, behold, Saul lay sleeping within the trench, and his spear stuck in the ground at his bolster: but Abner and the people lay round about him.  
@@ -38,7 +38,7 @@ IV\. David's generous refusal to suffer any harm to be done to Saul, and in it a
 
 V\. The improvement he made of this opportunity for the further evidence of his own integrity. He and Abishai carried away the spear and cruse of water which Saul had by his bed-side (1Sa 26:12), and, which was very strange, none of all the guards were aware of it. If a physician had given them the strongest opiate or stupifying dose, they could not have been faster locked up with sleep. Saul's spear which he had by him for defence, and his cup of water which he had for his refreshment, were both stolen from him while he slept. Thus do we lose our strength and our comfort when we are careless, and secure, and off our watch.
 
-## David Expostulates with Saul. (b. c. 1056.)
+## David Expostulates with Saul (1056 BC)
 
 > **¹³** Then David went over to the other side, and stood on the top of a hill afar off; a great space *being* between them:  
 > **¹⁴** And David cried to the people, and to Abner the son of Ner, saying, Answerest thou not, Abner? Then Abner answered and said, Who *art* thou *that* criest to the king?  
@@ -63,7 +63,7 @@ II\. He reasons seriously and affectionately with Saul. By this time he was so w
 
 4\. He desires that the core of the controversy may be searched into and some proper method taken to bring it to an end, 1Sa 26:19. Saul himself could not say that justice put him on thus to persecute David, or that he was obliged to do it for the public safety. David was not willing to say (though it was very true) that Saul's own envy and malice put him on to do it; and therefore he concludes it must be attributed either to the righteous judgment of God or to the unrighteous designs of evil men. Now, (1.) "*If the Lord have stirred thee up against me,* either in displeasure to me (taking this way to punish me for my sins against him, though, as to thee, I am guiltless) or in displeasure to thee, if it be the effect of that evil spirit from the Lord which troubles thee, *let him accept an offering* from us both—let us join in making our peace with God, reconciling ourselves to him, which may be done, by sacrifice; and then I hope the sin will be pardoned, whatever it is, and the trouble, which is so great a vexation both to thee and me, will come to an end." See the right method of peace-making; let us first make God our friend by Christ the great Sacrifice, and then all other enmities shall be slain, Eph 2:16, Pr 16:7. But, (2.) "If thou art incited to it by wicked men, that incense thee against me, *cursed be they before the Lord,*" that is, they are very wicked people, and it is fit that they should be abandoned as such, and excluded from the king's court and councils. He decently lays the blame upon the evil counsellors who advised the king to that which was dishonourable and dishonest, and insists upon it that they be removed from about him and forbidden his presence, as men cursed before the Lord, and then he hoped he should gain his petition, which is (1Sa 26:20), "*Let not my blood fall to the earth,* as thou threatenest, for it is *before the face of the Lord,* who will take cognizance of the wrong and avenge it." Thus pathetically does David plead with Saul for his life, and, in order to that, for his favourable opinion of him.
 
-## Saul Relents. (b. c. 1056.)
+## Saul Relents (1056 BC)
 
 > **²¹** Then said Saul, I have sinned: return, my son David: for I will no more do thee harm, because my soul was precious in thine eyes this day: behold, I have played the fool, and have erred exceedingly.  
 > **²²** And David answered and said, Behold the king's spear! and let one of the young men come over and fetch it.  

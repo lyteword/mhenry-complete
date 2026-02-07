@@ -6,7 +6,7 @@ weight: 17
 
 The half tribe of Manasseh comes next to be provided for; and here we have, I. The families of that tribe that were to be portioned, Jos 17:1-6. II. The country that fell to their lot, Jos 17:7-13. III. The joint request of the two tribes that descended from Joseph, for the enlargement of their lot, and Joshua's answer to that request, Jos 17:14-18.
 
-## The Inheritance of Joseph's Children. (b. c. 1444.)
+## The Inheritance of Joseph's Children (1444 BC)
 
 > **¹** There was also a lot for the tribe of Manasseh; for he *was* the firstborn of Joseph; *to wit,* for Machir the firstborn of Manasseh, the father of Gilead: because he was a man of war, therefore he had Gilead and Bashan.  
 > **²** There was also *a lot* for the rest of the children of Manasseh by their families; for the children of Abiezer, and for the children of Helek, and for the children of Asriel, and for the children of Shechem, and for the children of Hepher, and for the children of Shemida: these *were* the male children of Manasseh the son of Joseph by their families.  

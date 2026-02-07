@@ -6,7 +6,7 @@ weight: 10
 
 This chapter gives us an account of a war David has with the Ammonites and the Syrians their allies, with the occasion and success of it. I. David sent a friendly embassy to Hanun king of the Ammonites, 2Sa 10:1,2. II. He, upon a base surmise that it was ill intended, abused David's ambassadors, 2Sa 10:3,4. III. David resenting it (2Sa 10:5), and the Ammonites prepared for war against him, 2Sa 10:6. IV. David carried the war into their country, sent against them. Joab and Abishai, who addressed themselves to the battle with a great deal of conduct and bravery, 2Sa 10:7-12. V. The Ammonites, and the Syrians their allies, were totally routed, 2Sa 10:13,14. VI. The forces of the Syrians, which rallied again, were a second time defeated, 2Sa 10:15-19. Thus did David advance his own reputation for gratitude, in returning kindness, and for justice, in repaying injuries.
 
-## Hanun's Usage of David's Servants. (b. c. 1038.)
+## Hanun's Usage of David's Servants (1038 BC)
 
 > **¹** And it came to pass after this, that the king of the children of Ammon died, and Hanun his son reigned in his stead.  
 > **²** Then said David, I will shew kindness unto Hanun the son of Nahash, as his father shewed kindness unto me. And David sent to comfort him by the hand of his servants for his father. And David's servants came into the land of the children of Ammon.  
@@ -22,7 +22,7 @@ III\. David's tender concern for his servants that were thus abused. He sent to 
 
 Some have thought that David, in the indignity he received from the king of Ammon, was but well enough served for courting and complimenting that pagan prince, whom he knew to be an inveterate enemy to Israel, and might now remember how, when he would have put out the right eyes of the men of Jabesh-Gilead, he designed that, as he did this, for a *reproach upon all Israel,* 1Sa 11:2. What better usage could he expect from such a spiteful family and people? Why should he covet the friendship of a people whom Israel must have so little to do with as that an Ammonite might not *enter into the congregation of the Lord, even to the tenth generation?* De 23:3.
 
-## The Ammonites and Syrians Defeated. (b. c. 1037.)
+## The Ammonites and Syrians Defeated (1037 BC)
 
 > **⁶** And when the children of Ammon saw that they stank before David, the children of Ammon sent and hired the Syrians of Beth-rehob, and the Syrians of Zoba, twenty thousand footmen, and of king Maacah a thousand men, and of Ishtob twelve thousand men.  
 > **⁷** And when David heard of *it,* he sent Joab, and all the host of the mighty men.  

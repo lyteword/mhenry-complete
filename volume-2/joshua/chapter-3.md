@@ -6,7 +6,7 @@ weight: 3
 
 This chapter, and that which follows it, give us the history of Israel's passing through Jordan into Canaan, and a very memorable history it is. Long afterwards, they are told to remember what God did for them between Shittim (whence they decamped, Jos 3:1) and Gilgal, where they next pitched, Jos 4:19, Mic 6:5, that they might know the righteousness of the Lord. By Joshua's order they marched up to the river's side, (Jos 3:1), and then almighty power led them through it. They passed through the Red Sea unexpectedly, and in their flight by night, but they have notice some time before of their passing through Jordan, and their expectations raised. I. The people are directed to follow the ark, Jos 3:2-4. II. They are commanded to sanctify themselves, Jos 3:5. III. The priests with the ark are ordered to lead the van, Jos 3:6. IV. Joshua is magnified and made commander in chief, Jos 3:7,8. V. Public notice is given of what God is about to do for them, Jos 3:9-13. IV. The thing is done, Jordan is divided, and Israel brought safely through it, Jos 3:14-17. This was the Lord's doing, and it is marvellous in our eyes.
 
-## Preparation for Passing over the Jordan. (b. c. 1451.)
+## Preparation for Passing over the Jordan (1451 BC)
 
 > **¹** And Joshua rose early in the morning; and they removed from Shittim, and came to Jordan, he and all the children of Israel, and lodged there before they passed over.  
 > **²** And it came to pass after three days, that the officers went through the host;  
@@ -57,7 +57,7 @@ II\. Joshua speaks to the people, and therein honours God.
 
 5\. He directs them to get twelve men ready, one of each tribe, who must be within call to receive such orders as Joshua should afterwards give them, Jos 3:12. It does not appear that they were to attend the priests, and walk with them when they carried the ark, that they might more immediately be witnesses of the wonders done by it, as some think; but they were to be at hand for the service they were called to, Jos 4:4, etc.
 
-## The Passage over the Jordan. (b. c. 1451.)
+## The Passage over the Jordan (1451 BC)
 
 > **¹⁴** And it came to pass, when the people removed from their tents, to pass over Jordan, and the priests bearing the ark of the covenant before the people;  
 > **¹⁵** And as they that bare the ark were come unto Jordan, and the feet of the priests that bare the ark were dipped in the brim of the water, (for Jordan overfloweth all his banks all the time of harvest,)  

@@ -6,7 +6,7 @@ weight: 25
 
 Amaziah's reign, recorded in this chapter, was not one of the worse and yet for from good. Most of the passages in this chapter we had before more briefly related, 2Ki 14:1-22 Here we find Amaziah, I. A just revenger of his father's death, 2Ch 25:1-4. II. An obedient observer of the command of God, 2Ch 25:5-10. III. A cruel conqueror of the Edomites, 2Ch 25:11-13. IV. A foolish worshipper of the gods of Edom and impatient of reproof for it, 2Ch 25:14-16. V. Rashly challenging the king of Israel, and smarting for his rashness, 2Ch 25:17-24. And, lastly, ending his days ingloriously, 2Ch 25:25-28.
 
-## Amaziah's Reign and Victories. (b. c. 838.)
+## Amaziah's Reign and Victories (838 BC)
 
 > **¹** Amaziah *was* twenty and five years old *when* he began to reign, and he reigned twenty and nine years in Jerusalem. And his mother's name *was* Jehoaddan of Jerusalem.  
 > **²** And he did *that which was* right in the sight of the LORD, but not with a perfect heart.  
@@ -40,7 +40,7 @@ III\. An expedition of his against the Edomites, who, some time ago, had revolte
 
 6\. The mischief which the disbanded soldiers of Israel did to the cities of Judah, either in their return or soon after, 2Ch 25:13. They were so enraged at being sent home that, if they might not go to share with Judah in the spoil of Edom, they would make a prey of Judah. Several cities that lay upon the borders they plundered, killing 3000 men that made resistance. But why should God suffer this to be done? Was it not in obedience to him that they were sent home, and yet shall the country thus suffer by it? Surely God's way is in the sea! Did not the prophet say that God was not with the children of Ephraim, and yet they are suffered to prevail against Judah? Doubtless God intended hereby to chastise those cities of Judah for their idolatries, which were found most in those parts that lay next to Israel. The men of Israel had corrupted them, and now they were made a plague to them. Satan both tempts and torments.
 
-## Amaziah's Idolatry. (b. c. 826.)
+## Amaziah's Idolatry (826 BC)
 
 > **¹⁴** Now it came to pass, after that Amaziah was come from the slaughter of the Edomites, that he brought the gods of the children of Seir, and set them up *to be* his gods, and bowed down himself before them, and burned incense unto them.  
 > **¹⁵** Wherefore the anger of the LORD was kindled against Amaziah, and he sent unto him a prophet, which said unto him, Why hast thou sought after the gods of the people, which could not deliver their own people out of thine hand?  
@@ -54,7 +54,7 @@ III\. The check he gave to the reprover, 2Ch 25:16. He could say nothing in excu
 
 IV\. The doom which the prophet passed upon him for this. He had more to say to him by way of instruction and advice; but, finding him obstinate in his iniquity, he forbore. He is *joined to idols; let him alone,* Ho 4:17. Miserable is the condition of that man with whom the blessed Spirit, by ministers and conscience, *forbears to strive,* Ge 6:3. And both the reprovers in the gate and that in the bosom, if long brow-beaten and baffled, will at length forbear. So I *gave them up to their own hearts' lusts.* The secure sinner perhaps values himself upon it as a noble and happy achievement to have silenced his reprovers and monitors, and to get clear of them; but what comes of it? "*I know that God has determined to destroy thee;* it is a plain indication that thou art marked for ruin *that thou hast done this, and hast not hearkened to my counsel.*" Those that are deaf to reproof are ripening apace for destruction, Pr 29:1.
 
-## The Death of Amaziah. (b. c. 825.)
+## The Death of Amaziah (825 BC)
 
 > **¹⁷** Then Amaziah king of Judah took advice, and sent to Joash, the son of Jehoahaz, the son of Jehu, king of Israel, saying, Come, let us see one another in the face.  
 > **¹⁸** And Joash king of Israel sent to Amaziah king of Judah, saying, The thistle that *was* in Lebanon sent to the cedar that *was* in Lebanon, saying, Give thy daughter to my son to wife: and there passed by a wild beast that *was* in Lebanon, and trode down the thistle.  

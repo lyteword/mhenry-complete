@@ -6,7 +6,7 @@ weight: 28
 
 This chapter is the history of the reign of Ahaz the son of Jotham; a bad reign it was, and which helped to augment the fierce anger of the Lord. We have here, I. His great wickedness, 2Ch 28:1-4. II. The trouble he brought himself into by it, 2Ch 28:5-8. III. The reproof which God sent by a prophet to the army of Israel for trampling upon their brethren of Judah, and the obedient ear they gave to that reproof, 2Ch 28:9-15. IV. The many calamities that followed to Ahaz and his people, 2Ch 28:16-21. V. The continuance of his idolatry notwithstanding (2Ch 28:22-25), and so his story ends, 2Ch 28:26,27.
 
-## The Wickedness of Ahaz. (b. c. 738.)
+## The Wickedness of Ahaz (738 BC)
 
 > **¹** Ahaz *was* twenty years old when he began to reign, and he reigned sixteen years in Jerusalem: but he did not *that which was* right in the sight of the LORD, like David his father:  
 > **²** For he walked in the ways of the kings of Israel, and made also molten images for Baalim.  
@@ -16,7 +16,7 @@ This chapter is the history of the reign of Ahaz the son of Jotham; a bad reign 
 
 Never surely had a man greater opportunity of doing well than Ahaz had, finding things in a good posture, the kingdom rich and strong and religion established; and yet here we have him in these few verses, 1. Wretchedly corrupted and debauched. He had had a good education given him and a good example set him: but parents cannot give grace to their children. All the instructions he had were lost upon him: *He did not that which was right in the sight of the Lord* (2Ch 28:1), nay, he did a great deal that was wrong, a wrong to God, to his own soul, and to his people; he walked in the way of the revolted Israelites and the devoted Canaanites, made molten images and worshipped them, contrary to the second commandment; nay, he made them for Baalim, contrary to the first commandment. He forsook the temple of the Lord and sacrificed and burnt incense on the hills, as if they would place him nearer heaven, and under every green tree, as if they would signify the protection and influence of heaven by their shade and dropping. To complete his wickedness, as one perfectly divested of all natural affection as well as religion and perfectly devoted to the service and interest of the great enemy of mankind, he *burnt his children in the fire to Moloch* (2Ch 28:3), not thinking it enough to dedicate them to that infernal fiend by causing them to pass through the fire. See what an absolute sway the prince of the power of the air bears among the children of disobedience. 2. Wretchedly spoiled and made a prey of. When he forsook God, and at a vast expense put himself under the protection of false gods, God, who of right was his God, delivered him into the hands of his enemies, 2Ch 28:5. (1.) The Syrians insulted him and triumphed over him, beat him in the field and carried away a great many of his people into captivity. (2.) The king of Israel, though an idolater too, was made a scourge to him, and *smote him with a great slaughter.* The people suffered by these judgments: their blood was shed, their country wasted, their families ruined; for when they had a good king, though *they did corruptly* (2Ch 27:2), yet then his goodness sheltered them; but now that they had a bad one all the defence had departed from them and an inundation of judgments broke in upon them. Those that knew not their happiness in the foregoing reign were taught to value it by the miseries of this reign.
 
-## The King of Israel Defeats Ahaz. (b. c. 738.)
+## The King of Israel Defeats Ahaz (738 BC)
 
 > **⁶** For Pekah the son of Remaliah slew in Judah a hundred and twenty thousand in one day, *which were* all valiant men; because they had forsaken the LORD God of their fathers.  
 > **⁷** And Zichri, a mighty man of Ephraim, slew Maaseiah the king's son, and Azrikam the governor of the house, and Elkanah *that was* next to the king.  
@@ -49,7 +49,7 @@ II\. Even victorious Israel under the rebuke of God's word for the bad principle
 
 3\. The compliance of the soldiers with the resolutions of the princes in this matter, and the dismission of the captives thereupon. (1.) The armed men, though being armed they might by force have maintained their title to what they got by the sword, acquiesced, and left their captives and the spoil to the disposal of *the princes* (2Ch 28:14), and herein they showed more truly heroic bravery than they did in taking them. It is a great honour for any man to yield to the authority of reason and religion against his interest. (2.) The princes very generously sent home the poor captives well accommodated, 2Ch 28:15. Those that hope to find mercy with God must learn hence with what tenderness to carry themselves towards those that lie at their mercy. It is strange that these princes, who in this instance discovered such a deference to the word of God, and such an influence upon the people, had not so much grace as, in obedience to the calls of God by so many prophets, to root idolatry out of their kingdom, which, soon after this, was the ruin of it.
 
-## The Death of Ahaz. (b. c. 738.)
+## The Death of Ahaz (738 BC)
 
 > **¹⁶** At that time did king Ahaz send unto the kings of Assyria to help him.  
 > **¹⁷** For again the Edomites had come and smitten Judah, and carried away captives.  

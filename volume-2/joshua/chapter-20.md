@@ -6,7 +6,7 @@ weight: 20
 
 This short chapter is concerning the cities of refuge, which we often read of in the writings of Moses, but this is the last time that we find mention of them, for now that matter was thoroughly settled. Here is, I. The law God gave concerning them, Jos 20:1-6. II. The people's designation of the particular cities for that use, Jos 20:7-9. And this remedial law was a figure of good things to come.
 
-## The Cities of Refuge. (b. c. 1444.)
+## The Cities of Refuge (1444 BC)
 
 > **¹** The LORD also spake unto Joshua, saying,  
 > **²** Speak to the children of Israel, saying, Appoint out for you cities of refuge, whereof I spake unto you by the hand of Moses:  

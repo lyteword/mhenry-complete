@@ -6,7 +6,7 @@ weight: 6
 
 Joshua opened the campaign with the siege of Jericho, a city which could not trust so much to the courage of its people as to act offensively, and to send out its forces to oppose Israel's landing and encamping, but trusted so much to the strength of its walls as to stand upon its defence, and not to surrender, or desire conditions of peace. Now here we have the story of the taking of it, I. The directions and assurances which the captain of the Lord's host gave concerning it, Jos 6:1-5. II. The trial of the people's patient obedience in walking round the city six days, Jos 6:6-14. III. The wonderful delivery of it into their hands the seventh day, with a solemn charge to them to use it as a devoted thing, Jos 6:15-21,24. IV. The preservation of Rahab and her relations, Jos 6:22,23,25. V. A curse pronounced upon the man that should dare to rebuild this city, Jos 6:26,27. An abstract of this story we find among the trophies of faith, Heb 11:30. "By faith the walls of Jericho fell down, after they were compassed about seven days."
 
-## The Siege of Jericho. (b. c. 1451.)
+## The Siege of Jericho (1451 BC)
 
 > **¹** Now Jericho was straitly shut up because of the children of Israel: none went out, and none came in.  
 > **²** And the LORD said unto Joshua, See, I have given into thine hand Jericho, and the king thereof, *and* the mighty men of valour.  
@@ -50,7 +50,7 @@ VII\. They continued to do this during the time appointed, and seven times the s
 
 VIII\. At last they were to give a shout, and did so, and immediately the walls fell, Jos 6:16. This was a shout for mastery, a triumphant shout; the *shout of a king is among them,* Nu 23:21. This was a shout of faith; they believed that the walls of Jericho would fall, and by this faith the walls were thrown down. It was a shot of prayer, an echo to the sound of the trumpets which proclaimed the promise that God would remember them; with one accord, as one man, they cry to heaven for help, and help comes in. Some allude to this to show that we must never expect a complete victory over our own corruptions till the very evening of our last day, and then we shall shout in triumph over them, *when we come to the number and measure of our perfection,* as bishop Hall expresses it. *A good heart* (says he) *groans under the sense of his infirmities, fain would be rid of them, and strives and prays, but, when all is done, until the end of the seventh day it cannot be;* then judgment shall be brought forth unto victory. And at the end of time, when our Lord shall descend from heaven with a shout, and the sound of a trumpet, Satan's kingdom shall be completely ruined, and not till then, when all opposing rule, principality, and power, shall be effectually and eternally put down.
 
-## Jericho Destroyed; Preservation of Rahab. (b. c. 1451.)
+## Jericho Destroyed; Preservation of Rahab (1451 BC)
 
 > **¹⁷** And the city shall be accursed, *even* it, and all that *are* therein, to the LORD: only Rahab the harlot shall live, she and all that *are* with her in the house, because she hid the messengers that we sent.  
 > **¹⁸** And ye, in any wise keep *yourselves* from the accursed thing, lest ye make *yourselves* accursed, when ye take of the accursed thing, and make the camp of Israel a curse, and trouble it.  

@@ -6,7 +6,7 @@ weight: 15
 
 Absalom's name signifies "the peace of his father," yet he proves his greatest trouble; so often are we disappointed in our expectations from the creature. The sword entailed upon David's house had hitherto been among his children, but now it begins to be drawn against himself, with this aggravation, that he may thank himself for it, for, had he done justice upon the murderer, he would have prevented the traitor. The story of Absalom's rebellion begins with this chapter, but we must go over three or four more before we see the end of it. In this chapter we have, I. The arts Absalom used to insinuate himself into the people's affections, 2Sa 15:1-6. II. His open avowal of his pretensions to the crown at Hebron, whither he went under colour of a vow, and the strong party that appeared for him there, 2Sa 15:7-12. III. The notice brought of this to David, and his flight from Jerusalem thereupon, 2Sa 15:13-18. In his flight we are told, 1. What passed between him and Ittai, 2Sa 15:19-22. 2. The concern of the country for him, 2Sa 15:23. 3. His conference with Zadok, 2Sa 15:24-29. 4. His tears and prayers upon this occasion, 2Sa 15:30-31. 5. Matters concerted by him with Hushai, 2Sa 15:32-37. Now the word of God was fulfilled, that he would "raise up evil against him out of his own house," 2Sa 12:11.
 
-## Absalom's Ambition. (b. c. 1027.)
+## Absalom's Ambition (1027 BC)
 
 > **¹** And it came to pass after this, that Absalom prepared him chariots and horses, and fifty men to run before him.  
 > **²** And Absalom rose up early, and stood beside the way of the gate: and it was *so,* that when any man that had a controversy came to the king for judgment, then Absalom called unto him, and said, Of what city *art* thou? And he said, Thy servant *is* of one of the tribes of Israel.  
@@ -29,7 +29,7 @@ II\. Absalom will seem very good too, but with a very bad design. Had he proved 
 
 (2.) A good opinion of his own fitness to rule. That the people might say, "O that Absalom were a judge!" (and they are apt enough to desire changes), he recommends himself to them, [1.] As very diligent. He rose up early, and appeared in public before the rest of the king's sons were stirring, and he stood beside the way of the gate, where the courts of judgment sat, as one mightily concerned to see justice done and public business despatched. [2.] As very inquisitive and prying, and desirous to be acquainted with every one's case. He would know of what city every one was that came for judgment, that he might inform himself concerning every part of the kingdom and the state of it, 2Sa 15:2. [3.] As very familiar and humble. If any Israelite offered to do obeisance to him he took him and embraced him as a friend. No man's conduct could be more condescending, while his heart was as proud as Lucifer's. Ambitious projects are often carried on by *a show of humility,* Col 2:23. He knew what a grace it puts upon greatness to be affable and courteous, and how much it wins upon common people: had he been sincere in it, it would have been his praise; but to fawn upon the people that he might betray them was abominable hypocrisy. *He croucheth, and humbleth himself, to draw them into his net,* Ps 10:9,10.
 
-## Absalom's Rebellion. (b. c. 1023.)
+## Absalom's Rebellion (1023 BC)
 
 > **⁷** And it came to pass after forty years, that Absalom said unto the king, I pray thee, let me go and pay my vow, which I have vowed unto the LORD, in Hebron.  
 > **⁸** For thy servant vowed a vow while I abode at Geshur in Syria, saying, If the LORD shall bring me again indeed to Jerusalem, then I will serve the LORD.  
@@ -50,7 +50,7 @@ IV\. The person he especially courted and relied upon in this affair was Ahithop
 
 V\. The party that joined with him proved at last very considerable. The people increased continually with Absalom, which made the conspiracy strong and formidable. Every one whom he had complimented and caressed (pronouncing his matters right and good, especially if afterwards the cause went against him) not only came himself, but made all the interest he could for him, so that he wanted not for numbers. The majority is no certain rule to judge of equity by. *All the world wondered after the beast.* Whether Absalom formed this design merely in the height of his ambition and fondness to rule, or whether there was not in it also malice against his father and revenge for his banishment and confinement, though this punishment was so much less than he deserved, does not appear. But, generally, that which aims at the crown aims at the head that wears it.
 
-## David's Flight. (b. c. 1023.)
+## David's Flight (1023 BC)
 
 > **¹³** And there came a messenger to David, saying, The hearts of the men of Israel are after Absalom.  
 > **¹⁴** And David said unto all his servants that *were* with him at Jerusalem, Arise, and let us flee; for we shall not *else* escape from Absalom: make speed to depart, lest he overtake us suddenly, and bring evil upon us, and smite the city with the edge of the sword.  
@@ -98,7 +98,7 @@ IV\. The melancholy posture that David and his men put themselves into, when, at
 
 2\. When David wept all his company wept likewise, being much affected with his grief and willing to share in it. It is our duty to *weep with those that weep,* especially our superiors, and those that are better than we; for, *if this be done in the green tree, what will be done in the dry?* We must weep with those that weep for sin. When Hezekiah humbled himself for his sin all Jerusalem joined with him, 2Ch 32:26. To prevent suffering with sinners, let us sorrow with them.
 
-## David's Request to Hushai. (b. c. 1023.)
+## David's Request to Hushai (1023 BC)
 
 > **³¹** And *one* told David, saying, Ahithophel *is* among the conspirators with Absalom. And David said, O LORD, I pray thee, turn the counsel of Ahithophel into foolishness.  
 > **³²** And it came to pass, that *when* David was come to the top *of the mount,* where he worshipped God, behold, Hushai the Archite came to meet him with his coat rent, and earth upon his head:  

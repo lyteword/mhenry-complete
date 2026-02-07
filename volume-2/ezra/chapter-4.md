@@ -6,7 +6,7 @@ weight: 4
 
 The good work of rebuilding the temple was no sooner begun than it met with opposition from those that bore ill will to it; the Samaritans were enemies to the Jews and their religion, and they set themselves to obstruct it. I. They offered to be partners in the building of it, that they might have it in their power to retard it; but they were refused, Ezr 4:1-3. II. They discouraged them in it, and dissuaded them from it, Ezr 4:4,5. III. They basely misrepresented the undertaking, and the undertakers, to the king of Persia, by a memorial they sent him, Ezr 4:6-16. IV. They obtained from him an order to stop the building (Ezr 4:17-22), which they immediately put in execution, Ezr 4:23,24.
 
-## Opposition Made to the Jews. (b. c. 535.)
+## Opposition Made to the Jews (535 BC)
 
 > **¹** Now when the adversaries of Judah and Benjamin heard that the children of the captivity builded the temple unto the LORD God of Israel;  
 > **²** Then they came to Zerubbabel, and to the chief of the fathers, and said unto them, Let us build with you: for we seek your God, as ye *do;* and we do sacrifice unto him since the days of Esarhaddon king of Assur, which brought us up hither.  
@@ -26,7 +26,7 @@ III\. The opposition they gave had in it much of the subtlety of the old serpent
 
 2\. When this plot failed they did what they could to divert them from the work and discourage them in it. They weakened their hands by telling them it was in vain to attempt it, calling them *foolish builders,* who began what they were not able to finish, and by their insinuations troubled them, and made them drive heavily in the work. All were not alike zealous in it. Those that were cool and indifferent were by these artifices drawn off from the work, which wanted their help, Ezr 4:4. And because what they themselves said the Jews would suspect to be ill meant, and not be influenced by, they, underhand, *hired counsellors against them,* who, pretending to advise them for the best, should dissuade them from proceeding, and so *frustrate their purpose* (Ezr 4:5), or dissuade the men of Tyre and Sidon from furnishing them with the timber they had bargained for (Ezr 3:7); or whatever business they had at the Persian court, to solicit for any particular grants or favours, pursuant to the general edict for their liberty, there were those that were hired and lay ready to appear of counsel against them. Wonder not at the restlessness of the church's enemies in their attempts against the building of God's temple. He whom they serve, and whose work they are doing, is *unwearied* in *walking to and fro through the earth* to do mischief. And let those who discourage a good work, and weaken the hands of those that are employed in it, see whose pattern they follow.
 
-## The Jews Misrepresented. (b. c. 521.)
+## The Jews Misrepresented (521 BC)
 
 > **⁶** And in the reign of Ahasuerus, in the beginning of his reign, wrote they *unto him* an accusation against the inhabitants of Judah and Jerusalem.  
 > **⁷** And in the days of Artaxerxes wrote Bishlam, Mithredath, Tabeel, and the rest of their companions, unto Artaxerxes king of Persia; and the writing of the letter *was* written in the Syrian tongue, and interpreted in the Syrian tongue.  

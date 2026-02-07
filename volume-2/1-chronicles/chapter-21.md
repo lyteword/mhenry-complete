@@ -6,7 +6,7 @@ weight: 21
 
 As this rehearsal makes no mention of David's sin in the matter of Uriah, so neither of the troubles of his family that followed upon it; not a word of Absalom's rebellion, or Sheba's. But David's sin, in numbering the people, is here related, because, in the atonement made for that sin, an intimation was given of the spot of ground on which the temple should be built. Here is, I. David's sin, in forcing Joab to number the people, 1Ch 21:1-6. II. David's sorrow for what he had done, as soon as he perceived the sinfulness of it, 1Ch 21:7,8. III. The sad dilemma (or trilemma rather) he was brought to, when it was put to him to choose how he would be punished for this sin, and what rod he would be beaten with, 1Ch 21:9-13. IV. The woeful havoc which was made by the pestilence in the country, and the narrow escape which Jerusalem had from being laid waste by it, 1Ch 21:14-17. V. David's repentance, and sacrifice, upon this occasion, and the staying of the plaque thereupon, 1Ch 21:18-30. This awful story we met with, and meditated upon, 2Sa 24:1-25
 
-## The Giants Subdued. (b. c. 1017.)
+## The Giants Subdued (1017 BC)
 
 > **¹** And Satan stood up against Israel, and provoked David to number Israel.  
 > **²** And David said to Joab and to the rulers of the people, Go, number Israel from Beer-sheba even to Dan; and bring the number of them to me, that I may know *it.*  
@@ -25,7 +25,7 @@ II\. How passive the instrument was. Joab, the person whom David employed, was a
 
 2\. He was quite weary of it before he had done it; for *the king's word was abominable to Joab,* 1Ch 21:6. Time was when whatever king David did *pleased all the people,* 2Sa 3:36. But now there was a general disgust at these orders, which confirmed Joab in his dislike of them, so that, though the produce of this muster was really very great, yet he had no heart to perfect it, but left two tribes unnumbered (1Ch 21:5,6), two considerable ones, Levi and Benjamin, and perhaps was not very exact in numbering the rest, because he did not do it with any pleasure, which might be one occasion of the difference between the sums here and 2Sa 24:9.
 
-## David's Numbering the People. (b. c. 1017.)
+## David's Numbering the People (1017 BC)
 
 > **⁷** And God was displeased with this thing; therefore he smote Israel.  
 > **⁸** And David said unto God, I have sinned greatly, because I have done this thing: but now, I beseech thee, do away the iniquity of thy servant; for I have done very foolishly.  
@@ -45,7 +45,7 @@ I\. How he was corrected. If God's dearest children do amiss, they must expect t
 
 II\. How he bore the correction. 1. He made a very penitent confession of his sin, and prayed earnestly for the pardon of it, 1Ch 21:8. Now he owned that he had sinned, had sinned greatly, had done foolishly, very foolishly; and he entreated that, however he might be corrected for it, the iniquity of it might be done away. 2. He accepted the punishment of his iniquity: "Let thy hand be *on me, and on my father's house,* 1Ch 21:17. I submit to the rod, only let me be the sufferer, for I am the sinner; mine is the guilty head at which the sword should be pointed." 3. He cast himself upon the mercy of God (though he knew he was angry with him) and did not entertain any hard thoughts of him. However it be, *Let us fall into the hands of the Lord, for his mercies are great,* 1Ch 21:13. Good men, even when God frowns upon them, think well of him. *Though he slay me, yet will I trust in him.* 4. He expressed a very tender concern for the people, and it went to his heart to see them plagued for his transgression: *These sheep, what have they done?*
 
-## Ornan's Threshing-Floor. (b. c. 1017.)
+## Ornan's Threshing-Floor (1017 BC)
 
 > **¹⁸** Then the angel of the LORD commanded Gad to say to David, that David should go up, and set up an altar unto the LORD in the threshingfloor of Ornan the Jebusite.  
 > **¹⁹** And David went up at the saying of Gad, which he spake in the name of the LORD.  

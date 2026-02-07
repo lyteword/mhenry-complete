@@ -6,7 +6,7 @@ weight: 23
 
 Saul, having made himself drunk with the blood of the priests of the Lord, is here, in this chapter, seeking David's life, who appears here doing good, and suffering ill, at the same time. Here is, I. The good service he did to his king and country, in rescuing the city of Keilah out of the hands of the Philistines, 1Sa 23:1-6. II. The danger he was thereby brought into from the malice of the prince he served and the treachery of the city he saved, and his deliverance, by divine direction, from that danger, 1Sa 23:7-13. III. David in a wood and his friend Jonathan visiting him there and encouraging him, 1Sa 23:14-18. IV. The information which the Ziphites brought to Saul of David's haunts, and the expedition Saul made, in pursuit of him, 1Sa 23:19-25. The narrow escape David had of falling into his hands, 1Sa 23:26-29. "Many are the troubles of the righteous, but the Lord delivereth them out of them all."
 
-## David Delivers Keilah. (b. c. 1057.)
+## David Delivers Keilah (1057 BC)
 
 > **¹** Then they told David, saying, Behold, the Philistines fight against Keilah, and they rob the threshingfloors.  
 > **²** Therefore David enquired of the LORD, saying, Shall I go and smite these Philistines? And the LORD said unto David, Go, and smite the Philistines, and save Keilah.  
@@ -25,7 +25,7 @@ III\. God appointed him once and again to go against the Philistines, and promis
 
 IV\. He went accordingly against the Philistines, routed them, and rescued Keilah, (1Sa 23:5), and it should seem he made a sally into the country of the Philistines, for he carried off their cattle by way of reprisal for the wrong they did to the men of Keilah in robbing their threshing-floors. Here notice is taken (1Sa 23:6) that it was while David remained in Keilah, after he had cleared it of the Philistines, that Abiathar came to him with the ephod in his hand, that is, the high priest's ephod, in which the urim and thummim were. It was a great comfort to David, in his banishment, that when he could not go to the house of God he had some of the choicest treasures of that house brought to him, the high priest and his breast-plate of judgment.
 
-## David Escapes from Keilah. (b. c. 1057.)
+## David Escapes from Keilah (1057 BC)
 
 > **⁷** And it was told Saul that David was come to Keilah. And Saul said, God hath delivered him into mine hand; for he is shut in, by entering into a town that hath gates and bars.  
 > **⁸** And Saul called all the people together to war, to go down to Keilah, to besiege David and his men.  
@@ -43,7 +43,7 @@ II\. David consulting with God concerning his own preservation. He knew by the i
 
 2\. David, having thus far notice given him of his danger, quitted Keilah, 1Sa 23:13. His followers had now increased in number to 600; with these he went out, not knowing whither he went, but resolving to follow Providence and put himself under its protection. This broke Saul's measures. He thought God had delivered David into his hand, but it proved that God delivered him out of his hand, as a bird out of the snare of the fowler. When *Saul heard that David had escaped from Keilah, he forbore to go forth* with the body of the army, as he intended (1Sa 23:8), and resolved to take only his own guards, and go in quest of his people's enemies and turn their counsels head-long.
 
-## David in the Wilderness of Ziph. (b. c. 1057.)
+## David in the Wilderness of Ziph (1057 BC)
 
 > **¹⁴** And David abode in the wilderness in strong holds, and remained in a mountain in the wilderness of Ziph. And Saul sought him every day, but God delivered him not into his hand.  
 > **¹⁵** And David saw that Saul was come out to seek his life: and David *was* in the wilderness of Ziph in a wood.  

@@ -6,7 +6,7 @@ weight: 10
 
 We left Samuel and Saul walking together, probably some private way over the fields down from Ramah, perhaps in the paths of the vineyards, and Saul expecting to hear from Samuel the word of God. Now here we have, I. The anointing of Saul then and there, 1Sa 10:1. The signs Samuel gave him, 1Sa 10:2-6. And instructions, 1Sa 10:7-8. II. The accomplishment of those signs to the satisfaction of Saul, 1Sa 10:9-13. III. His return to his father's house, 1Sa 10:14-16. IV. His public election by lot, and solemn inauguration, 1Sa 10:17-25. V. His return to his own city, 1Sa 10:26,27. It is a great work that is here a doing, the setting up not only of a monarch, but of monarchy itself, in Israel; and therefore in all the advances towards it much of God is seen.
 
-## Saul Anointed by Samuel; Samuel's Address to Saul. (b. c. 1070.)
+## Saul Anointed by Samuel; Samuel's Address to Saul (1070 BC)
 
 > **¹** Then Samuel took a vial of oil, and poured *it* upon his head, and kissed him, and said, *Is it* not because the LORD hath anointed thee *to be* captain over his inheritance?  
 > **²** When thou art departed from me to day, then thou shalt find two men by Rachel's sepulchre in the border of Benjamin at Zelzah; and they will say unto thee, The asses which thou wentest to seek are found: and, lo, thy father hath left the care of the asses, and sorroweth for you, saying, What shall I do for my son?  
@@ -25,7 +25,7 @@ II\. For his further satisfaction he gives him some signs, which should come to 
 
 III\. He directs him to proceed in the administration of his government as Providence should lead him, and as Samuel should advise him. 1. He must follow Providence in ordinary cases (1Sa 10:7): "*Do as occasion shall serve thee.* Take such measures as thy own prudence shall direct thee." But, 2. In an extraordinary strait that would hereafter befal him at Gilgal, and would be the most critical juncture of all, when he would have special need of divine aids, he must wait for Samuel to come to him, and must tarry *seven days* in expectation of him, 1Sa 10:8. How his failing in this matter proved his fall we find afterwards, 1Sa 13:11. It was now a plain intimation to him that he was upon his good behaviour, and, though a king, must act under the direction of Samuel, and do as he should order him. The greatest of men must own themselves in subjection to God and his word.
 
-## Saul Among the Prophets. (b. c. 1070.)
+## Saul Among the Prophets (1070 BC)
 
 > **⁹** And it was *so,* that when he had turned his back to go from Samuel, God gave him another heart: and all those signs came to pass that day.  
 > **¹⁰** And when they came thither to the hill, behold, a company of prophets met him; and the Spirit of God came upon him, and he prophesied among them.  
@@ -46,7 +46,7 @@ II\. What occurred when he came near home. They came to *the hill* (1Sa 10:10), 
 
 2\. His being anointed was kept private. When he had done prophesying, (1.) It should seem he uttered all his words before the Lord, and recommended the affair to his favour, for he went straight *to the high place* (1Sa 10:13), to give God thanks for his mercies to him and to pray for the continuance of those mercies. But, (2.) He industriously concealed from his relations what had passed. His uncle, who met with him either at the high place or as soon as he came home, examined him, 1Sa 10:14. Saul owned, for his servant knew it, that they had been with Samuel, and that he told them the asses were found, but said not a word of *the kingdom,* 1Sa 10:14,15. This was an instance, [1.] Of his humility. Many a one would have been so elated with this surprising elevation as to proclaim it upon the house-top. But Saul, though he might please himself with it in his own breast, did not pride himself in it among his neighbours. The heirs of the kingdom of glory are well enough pleased that *the world knows them not,* 1Jo 3:1. [2.] Of his prudence. Had he been forward to proclaim it, he would have been envied, and he knew not what difficulty that might have created him. Samuel had communicated it to him as a secret, and he knows how to keep counsel. Thus it appears that he had another heart, a heart fit for government. [3.] Of his dependence upon God. He does not go about to make an interest for himself, but leaves it to God to carry on his own work by Samuel, and, for his own part, sits still, to see how the matter will fall.
 
-## The Election of a King; Saul Introduced to the People. (b. c. 1070.)
+## The Election of a King; Saul Introduced to the People (1070 BC)
 
 > **¹⁷** And Samuel called the people together unto the LORD to Mizpeh;  
 > **¹⁸** And said unto the children of Israel, Thus saith the LORD God of Israel, I brought up Israel out of Egypt, and delivered you out of the hand of the Egyptians, and out of the hand of all kingdoms, *and* of them that oppressed you:  

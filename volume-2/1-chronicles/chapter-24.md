@@ -6,7 +6,7 @@ weight: 24
 
 This chapter gives us a more particular account of the distribution of the priests and Levites into their respective classes, for the more regular discharge of the duties of their offices, according to their families. I. Of the priests, 1Ch 24:1-19. II. Of the Levites, 1Ch 24:20-31.
 
-## The Courses of the Priests. (b. c. 1015.)
+## The Courses of the Priests (1015 BC)
 
 > **¹** Now *these are* the divisions of the sons of Aaron. The sons of Aaron; Nadab, and Abihu, Eleazar, and Ithamar.  
 > **²** But Nadab and Abihu died before their father, and had no children: therefore Eleazar and Ithamar executed the priest's office.  

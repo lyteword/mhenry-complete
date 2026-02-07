@@ -6,7 +6,7 @@ weight: 5
 
 Israel have now got over Jordan, and the waters which had opened before them, to favour their march forward, are closed again behind them, to forbid their retreat backward. They have now got footing in Canaan, and must apply themselves to the conquest of it, in order to which this chapter tells us, I. How their enemies were dispirited, Jos 5:1. II. What was done at their first landing to assist and encourage them. 1. The covenant of circumcision was renewed, Jos 5:2-9. 2. The feast of the passover was celebrated, Jos 5:10. 3. Their camp was victualled with the corn of the land, whereupon the manna ceased, Jos 5:11,12. 4. The captain of the Lord's host himself appeared to Joshua to animate and direct him, Jos 5:13-15.
 
-## The Circumcision of the Israelites. (b. c. 1451.)
+## The Circumcision of the Israelites (1451 BC)
 
 > **¹** And it came to pass, when all the kings of the Amorites, which *were* on the side of Jordan westward, and all the kings of the Canaanites, which *were* by the sea, heard that the LORD had dried up the waters of Jordan from before the children of Israel, until we were passed over, that their heart melted, neither was there spirit in them any more, because of the children of Israel.  
 > **²** At that time the LORD said unto Joshua, Make thee sharp knives, and circumcise again the children of Israel the second time.  
@@ -32,7 +32,7 @@ II\. The opportunity which this gave to the Israelites to circumcise those among
 
 4\. The names given to the place where this was done, to perpetuate the memory of it. (1.) It was called *the hill of the foreskins,* Jos 5:3. Probably the foreskins that were cut off were laid on a heap, and covered with earth, so that they made a little hillock. (2.) It was called *Gilgal,* from a word which signifies to take away, from that which God said to Joshua (Jos 5:9), *This day have I rolled away the reproach of Egypt.* God is jealous for the honour of his people, his own honour being so much interested in it; and, whatever reproach they may lie under for a time, first or last it will certainly be rolled away, and every tongue that riseth up against them he will condemn. [1.] Their circumcision rolled away the reproach of Egypt. They were hereby owned to be the free-born children of God, having the seal of the covenant in their flesh, and so the reproach of their bondage in Egypt was removed. They were tainted with the idolatry of Egypt, and that was their reproach; but now that they were circumcised it was to be hoped they would be so entirely devoted to God that the reproach of their affection to Egypt would be rolled away. [2.] Their coming safely to Canaan rolled away the reproach of Egypt, for it silenced that spiteful suggestion of the Egyptians, that *for mischief they were brought out, the wilderness had shut them in,* Ex 14:3. Their wandering so long in the wilderness confirmed the reproach, but now that they had entered Canaan in triumph that reproach was done away. When God glorifies himself in perfecting the salvation of his people he not only silences the reproach of their enemies, but rolls it upon themselves.
 
-## The Ceasing of the Manna. (b. c. 1451.)
+## The Ceasing of the Manna (1451 BC)
 
 > **¹⁰** And the children of Israel encamped in Gilgal, and kept the passover on the fourteenth day of the month at even in the plains of Jericho.  
 > **¹¹** And they did eat of the old corn of the land on the morrow after the passover, unleavened cakes, and parched *corn* in the selfsame day.  
@@ -48,7 +48,7 @@ II\. Provision made for their camp of the *corn of the land,* and the *ceasing o
 
 2\. Notice is taken of the ceasing of the manna as soon as ever they had eaten the *old corn of the land,* (1.) To show that it did not come by chance or common providence, as snow or hail does, but by the special designation of divine wisdom and goodness; for, as it came just when they needed it, so it continued as long as they had occasion for it and no longer. (2.) To teach us not to expect extraordinary supplies when supplies may be had in an ordinary way. If God had dealt with Israel according to their deserts, the manna would have ceased when they called it light bread; but as long as they needed it God continued it, though they despised it; and now that they needed it not God withdrew it, though perhaps some of them desired it. He is a wise Father, who knows the necessities of his children, and accommodates his gifts to *them,* not to their humours. The word and ordinances of God are spiritual manna, with which God nourishes his people in this wilderness, and, though often forfeited, yet they are continued while we are here; but when we come to the heavenly Canaan this manna will cease, for we shall no longer have need of it.
 
-## The Captain of the Lord's Host. (b. c. 1451.)
+## The Captain of the Lord's Host (1451 BC)
 
 > **¹³** And it came to pass, when Joshua was by Jericho, that he lifted up his eyes and looked, and, behold, there stood a man over against him with his sword drawn in his hand: and Joshua went unto him, and said unto him, *Art* thou for us, or for our adversaries?  
 > **¹⁴** And he said, Nay; but *as* captain of the host of the LORD am I now come. And Joshua fell on his face to the earth, and did worship, and said unto him, What saith my lord unto his servant?  

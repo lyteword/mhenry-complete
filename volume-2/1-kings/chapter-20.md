@@ -6,7 +6,7 @@ weight: 20
 
 This chapter is the history of a war between Ben-hadad king of Syria and Ahab king of Israel, in which Ahab was, once and again, victorious. We read nothing of Elijah or Elishain all this story; Jezebel's rage, it is probable, had abated, and the persecution of the prophets began to cool, which gleam of peace Elijah improved. He appeared not at court, but, being told how many thousands of good people there were in Israel more than he thought of, employed himself, as we may suppose, in founding religious houses, schools, or colleges of prophets, in several parts of the country, to be nurseries of religion, that they might help to reform the nation when the throne and court would not be reformed. While he was thus busied, God favoured the nation with the successes we here read of, which were the more remarkable because obtained against Ben-hadad king of Syria, whose successor, Hazael, was ordained to be a scourge to Israel. They must shortly suffer by the Syrians, and yet now triumphed over them, that, if possible, they might be led to repentance by the goodness of God. Here is, I. Ben-hadad's descent upon Israel, and his insolent demand, 1Ki 20:1-11. II. The defeat Ahab gave him, encouraged and directed by a prophet, 1Ki 20:12-21. III. The Syrians rallying again, and the second defeat Ahab gave them, 1Ki 20:22-30. IV. The covenant of peace Ahab made with Ben-hadad, when he had him at his mercy (1Ki 20:31-34), for which he is reproved and threatened by a prophet, 1Ki 20:35-43.
 
-## Ben-hadad's Insolent Demand. (b. c. 900.)
+## Ben-hadad's Insolent Demand (900 BC)
 
 > **¹** And Benhadad the king of Syria gathered all his host together: and *there were* thirty and two kings with him, and horses, and chariots: and he went up and besieged Samaria, and warred against it.  
 > **²** And he sent messengers to Ahab king of Israel into the city, and said unto him, Thus saith Benhadad,  
@@ -36,7 +36,7 @@ II\. The treaty between these two kings. Surely Israel's defence had departed fr
 
 6\. Ahab sends him a decent rebuke to his assurance, dares not defy his menaces, only reminds him of the uncertain turns of war (1Ki 20:11): "Let not him that begins a war, and is girding on his sword, his armour, his harness, boast of victory, or think himself sure of it, *as if he had put it off,* and had come home a conqueror." This was one of the wisest words that ever Ahab spoke, and is a good item or momento to us all; it is folly to boast beforehand of any day, since we know not what it may bring forth (Pr 27:1), but especially to boast of a day of battle, which may prove as much against us as we promise ourselves it will be for us. It is impolitic to despise an enemy, and to be too sure of victory is the way to be beaten. Apply it to our spiritual conflicts. Peter fell by his confidence. While we are here we are but girding on the harness, and therefore must never boast as though we had put it off. *Happy is the man that feareth always,* and is never off his watch.
 
-## Ben-hadad's Defeat. (b. c. 900.)
+## Ben-hadad's Defeat (900 BC)
 
 > **¹²** And it came to pass, when *Benhadad* heard this message, as he *was* drinking, he and the kings in the pavilions, that he said unto his servants, Set *yourselves in array.* And they set *themselves in array* against the city.  
 > **¹³** And, behold, there came a prophet unto Ahab king of Israel, saying, Thus saith the LORD, Hast thou seen all this great multitude? behold, I will deliver it into thine hand this day; and thou shalt know that I *am* the LORD.  
@@ -61,7 +61,7 @@ II\. The Israelites, the besieged, had their directions from an inspired prophet
 
 III\. The issue was accordingly. The proud Syrians were beaten, and the poor despised Israelites were more than conquerors. The young men gave an alarm to the Syrians just at noon, at high dinner-time, supported by what little force they had, 1Ki 20:16. Ben-hadad despised them at first (1Ki 20:18), but when they had, with unparalleled bravery and dexterity, *slain every one his man,* and so put the army into disorder, that proud man durst not face them, but mounted immediately, drunk as he was, and made the best of his way, 1Ki 20:20. See how God *takes away the spirit of princes,* and makes himself *terrible to the kings of the earth.* Now where are the silver and gold he demanded of Ahab? Where are the handfuls of Samaria's dust? Those that are most secure are commonly least courageous. Ahab failed not to improve this advantage, but *slew the Syrians with a great slaughter,* 1Ki 20:21. Note, God oftentimes makes one wicked man a scourge to another.
 
-## Ahab's Folly Reproved. (b. c. 900.)
+## Ahab's Folly Reproved (900 BC)
 
 > **²²** And the prophet came to the king of Israel, and said unto him, Go, strengthen thyself, and mark, and see what thou doest: for at the return of the year the king of Syria will come up against thee.  
 > **²³** And the servants of the king of Syria said unto him, Their gods *are* gods of the hills; therefore they were stronger than we; but let us fight against them in the plain, and surely we shall be stronger than they.  

@@ -6,7 +6,7 @@ weight: 5
 
 This chapter contains the triumphal song which was composed and sung upon occasion of that glorious victory which Israel obtained over the forces of Jabin king of Canaan and the happy consequences of that victory. Probably it was usual then to publish poems upon such occasions, as now; but this only is preserved of all the poems of that age of the judges, because dictated by Deborah a prophetess, designed for a psalm of praise then, and a pattern of praise to after-ages, and it gives a great deal of light to the history of these times. I. It begins with praise to God, Jdg 5:2,3. II. The substance of this song transmits the memory of this great achievement. 1. Comparing God's appearances for them on this occasion with his appearances to them on Mount Sinai, Jdg 5:4,5. 2. Magnifying their deliverance from the consideration of the calamitous condition they had been in, Jdg 5:6-8. 3. Calling those to join in praise that shared in the benefits of the success, Jdg 5:9-13. 4. Reflecting honour upon those tribes that were forward and active in that war, and disgrace on those that declined the service, Jdg 5:14-19,23. 5. Taking notice how God himself fought for them, Jdg 5:20-22. 6. Celebrating particularly the honour of Jael, that slew Sisera, on which head the song is very large, Jdg 5:24-30. It concludes with a prayer to God, Jdg 5:31.
 
-## The Song of Deborah and Barak. (b. c. 1285.)
+## The Song of Deborah and Barak (1285 BC)
 
 > **¹** Then sang Deborah and Barak the son of Abinoam on that day, saying,  
 > **²** Praise ye the LORD for the avenging of Israel, when the people willingly offered themselves.  

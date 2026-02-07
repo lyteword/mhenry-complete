@@ -6,7 +6,7 @@ weight: 12
 
 We left the general assembly of the states together, in the close of the foregoing chapter; in this chapter we have Samuel's speech to them, when he resigned the government into the hands of Saul, in which, I. He clears himself from all suspicion or imputation of mismanagement, while the administration was in his hands, 1Sa 12:1-5. II. He reminds them of the great things God had done for them and for their fathers, 1Sa 12:6-13. III. He sets before them good and evil, the blessing and the curse, 1Sa 12:14,15. IV. He awakens them to regard what he said to them, by calling to God for thunder, 1Sa 12:16-19. V. He encourages them with hopes that all should be well, 1Sa 12:20-25. This is his farewell sermon to that august assembly and Saul's coronation sermon.
 
-## Samuel's Discourse to Israel. (b. c. 1069.)
+## Samuel's Discourse to Israel (1069 BC)
 
 > **¹** And Samuel said unto all Israel, Behold, I have hearkened unto your voice in all that ye said unto me, and have made a king over you.  
 > **²** And now, behold, the king walketh before you: and I am old and gray-headed; and, behold, my sons *are* with you: and I have walked before you from my childhood unto this day.  
@@ -51,7 +51,7 @@ II\. He shows them that they are now upon their good behaviour, they and their k
 
 2\. That their disobedience would as certainly be their ruin (1Sa 12:15): "*If you rebel,* think not that your having a king will secure you against God's judgments, and that having in this instance made yourselves *like the nations* you may sin at as cheap a rate as they can. No, *the hand of the Lord will be against you, as it was against your fathers* when they offended him, in the days of the judges." We mistake if we think that we can evade God's justice by shaking off his dominion. If God shall not rule us, yet he will judge us.
 
-## Samuel Calls for Thunder; Samuel Encourages and Comforts Israel. (b. c. 1069.)
+## Samuel Calls for Thunder; Samuel Encourages and Comforts Israel (1069 BC)
 
 > **¹⁶** Now therefore stand and see this great thing, which the LORD will do before your eyes.  
 > **¹⁷** *Is it* not wheat harvest to day? I will call unto the LORD, and he shall send thunder and rain; that ye may perceive and see that your wickedness *is* great, which ye have done in the sight of the LORD, in asking you a king.  

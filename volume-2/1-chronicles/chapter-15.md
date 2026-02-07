@@ -6,7 +6,7 @@ weight: 15
 
 The bringing in of the ark to the city of David was a very good work; it was resolved upon (1Ch 13:4), and attempted, but not perfected; it lay by the way in the house of Obed-edom. Now this chapter gives us an account of the completing of that good work. I. How it was done more regularly than before. 1. A place was prepared for it, 1Ch 15:1. 2. The priests were ordered to carry it, 1Ch 15:2-15. 3. The Levites had their offices assigned them in attending on it, 1Ch 15:16-24. II. How it was done more successfully than before, 1Ch 15:25. 1. The Levites made no mistake in their work, 1Ch 15:26. 2. David and the people met with no damp upon their joy, 1Ch 15:27,28. As for Michal's despising David, it was nothing, 1Ch 15:29.
 
-## The Removal of the Ark. (b. c. 1047.)
+## The Removal of the Ark (1047 BC)
 
 > **¹** And *David* made him houses in the city of David, and prepared a place for the ark of God, and pitched for it a tent.  
 > **²** Then David said, None ought to carry the ark of God but the Levites: for them hath the LORD chosen to carry the ark of God, and to minister unto him for ever.  

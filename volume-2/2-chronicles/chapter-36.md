@@ -6,7 +6,7 @@ weight: 36
 
 We have here, I. A short but sad account of the utter ruin of Judah and Jerusalem within a few years after Josiah's death. 1. The history of it in the unhappy reigns of Jehoahaz for three months (2Ch 36:1-4), Jehoiakim (2Ch 36:5-8) for eleven years, Jehoiach in three months (2Ch 36:9,10), and Zedekiah eleven years, 2Ch 36:11. Additions were made to the national guilt, and advances towards the national destruction, in each of those reigns. The destruction was, at length, completed in the slaughter of multitudes (2Ch 36:17), the plundering and burning of the temple and all the palaces, the desolation of the city (2Ch 36:18,19), and the captivity of the people that remained, 2Ch 36:20. 2. Some remarks upon it—that herein sin was punished, Zedekiah's wickedness (2Ch 36:12,13), the idolatry the people were guilty of (2Ch 36:14), and their abuse of God's prophets, 2Ch 36:15,16. The word of God was herein fulfilled, 2Ch 36:21. II. The dawning of the day of their deliverance in Cyrus's proclamation, 2Ch 36:22,23.
 
-## The Destruction of Jerusalem. (b. c. 588.)
+## The Destruction of Jerusalem (588 BC)
 
 > **¹** Then the people of the land took Jehoahaz the son of Josiah, and made him king in his father's stead in Jerusalem.  
 > **²** Jehoahaz *was* twenty and three years old when he began to reign, and he reigned three months in Jerusalem.  

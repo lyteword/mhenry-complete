@@ -6,7 +6,7 @@ weight: 3
 
 The battle between Joab and Abner did not end the controversy between the two houses of Saul and David, but it is in this chapter working towards a period. Here is, I. The gradual advance of David's interest, 2Sa 3:1. II. The building up of his family, 2Sa 3:2-5. III. Abner's quarrel with Ish-bosheth, and his treaty with David, 2Sa 3:6-12. IV. The preliminaries settled, 2Sa 3:13-16. V. Abner's undertaking and attempt to bring Israel over to David, 2Sa 3:17-21. VI. The treacherous murder of Abner by Joab, when he was carrying on this matter, 2Sa 3:22-27. VII. David's great concern and trouble for the death of Abner, 2Sa 3:28-39.
 
-## David's Wives and Children. (b. c. 1048.)
+## David's Wives and Children (1048 BC)
 
 > **¹** Now there was long war between the house of Saul and the house of David: but David waxed stronger and stronger, and the house of Saul waxed weaker and weaker.  
 > **²** And unto David were sons born in Hebron: and his firstborn was Amnon, of Ahinoam the Jezreelitess;  
@@ -21,7 +21,7 @@ II\. The increase of his own house. Here is an account of six sons he had by six
 
 Thus was David's house strengthened; but it was Abner that *made himself strong for the house of Saul,* which is mentioned (2Sa 3:6) to show that, if he failed them, they would fall of course.
 
-## Abner Deserts to David. (b. c. 1048.)
+## Abner Deserts to David (1048 BC)
 
 > **⁷** And Saul had a concubine, whose name *was* Rizpah, the daughter of Aiah: and *Ishbosheth* said to Abner, Wherefore hast thou gone in unto my father's concubine?  
 > **⁸** Then was Abner very wroth for the words of Ishbosheth, and said, *Am* I a dog's head, which against Judah do shew kindness this day unto the house of Saul thy father, to his brethren, and to his friends, and have not delivered thee into the hand of David, that thou chargest me to day with a fault concerning this woman?  
@@ -49,7 +49,7 @@ IV\. Abner uses his interest with the elders of Israel to bring them over to Dav
 
 V\. David concludes the treaty with Abner; and he did wisely and well therein; for, whatever induced Abner to it, it was a good work to put an end to the war, and to settle the Lord's anointed on the throne; and it was as lawful for David to make use of his agency as it is for a poor man to receive alms from a Pharisee, who gives it in pride and hypocrisy. Abner reported to David the sense of the people and the success of his communications with them, 2Sa 3:19. He came now, not as at first privately, but with a retinue of twenty men, and David entertained them with *a feast* (2Sa 3:20) in token of reconciliation and joy and as a pledge of the agreement between them: it was a feast upon a covenant, like that, Ge 26:30. *If thy enemy hunger, feed him;* but, if he submit, feast him. Abner, pleased with his entertainment, the prevention of his fall with Saul's house (which would have been inevitable if he had not taken this course), and much more with the prospect he had of preferment under David, undertakes in a little time to perfect the revolution, and to bring all Israel into obedience to David, 2Sa 3:21. He tells David he shall *reign over all that his heart desired.* He knew David's elevation took rise from God's appointment, yet he insinuates that it sprang from his own ambition and desire of rule; thus (as bad men often do) he measured that good man by himself. However, David and he parted very good friends, and the affair between them was well settled. Thus it behoves all who fear God and keep his commandments to avoid strife, even with the wicked, to live at peace with all men, and to show the world that they are children of the light.
 
-## Joab Murders Abner; David's Reflections on Abner's Murder. (b. c. 1048.)
+## Joab Murders Abner; David's Reflections on Abner's Murder (1048 BC)
 
 > **²²** And, behold, the servants of David and Joab came from *pursuing* a troop, and brought in a great spoil with them: but Abner *was* not with David in Hebron; for he had sent him away, and he was gone in peace.  
 > **²³** When Joab and all the host that *was* with him were come, they told Joab, saying, Abner the son of Ner came to the king, and he hath sent him away, and he is gone in peace.  

@@ -6,7 +6,7 @@ weight: 19
 
 We left David's army in triumph and yet David himself in tears: now here we have, I. His return to himself, by the persuasion of Joab, 2Sa 19:1-8. II. His return to his kingdom from his present banishment. 1. The men of Israel were forward of themselves to bring him back, 2Sa 19:9,10. 2. The men of Judah were dealt with by David's agents to do it (2Sa 19:11-14) and did it, 2Sa 19:15. III. At the king's coming over Jordan, Shimei's treason is pardoned (2Sa 19:16-23), Mephibosheth's failure is excused (2Sa 19:24-30), and Barzillai's kindness is thankfully owned, and recompensed to his son, 2Sa 19:31-39. IV. The men of Israel quarrelled with the men of Judah, for not calling them to the ceremony of the king's restoration, which occasioned a new rebellion, an account of which we have in the next chapter, 2Sa 19:40-43.
 
-## Joab's Reproof of David. (b. c. 1023.)
+## Joab's Reproof of David (1023 BC)
 
 > **¹** And it was told Joab, Behold, the king weepeth and mourneth for Absalom.  
 > **²** And the victory that day was *turned* into mourning unto all the people: for the people heard say that day how the king was grieved for his son.  
@@ -25,7 +25,7 @@ II\. How plainly and vehemently Joab reproved David for this indiscreet manageme
 
 III\. How prudently and mildly David took the reproof and counsel given him, 2Sa 19:8. He shook off his grief, anointed his head, and washed his face, that he might not appear unto men to mourn, and then made his appearance in public in the gate, which was as the guild-hall of the city. Hither the people flocked to him to congratulate his and their safety, and all was well. Note, When we are convinced of a fault, we must amend, though we are told of it by our inferiors, and indecently, or in heat and passion.
 
-## David's Return to the Jordan. (b. c. 1023.)
+## David's Return to the Jordan (1023 BC)
 
 > **⁹** And all the people were at strife throughout all the tribes of Israel, saying, The king saved us out of the hand of our enemies, and he delivered us out of the hand of the Philistines; and now he is fled out of the land for Absalom.  
 > **¹⁰** And Absalom, whom we anointed over us, is dead in battle. Now therefore why speak ye not a word of bringing the king back?  
@@ -41,7 +41,7 @@ I\. The men of Israel (that is, the ten tribes) were the first that talked of it
 
 II\. The men of Judah, by David's contrivance, were the first that did it. It is strange that they, being David's own tribe, were not so forward as the rest. David had intelligence of the good disposition of all the rest towards him, but nothing from Judah, though he had always been particularly careful of them. But we do not always find the most kindness from those from whom we have most reason to expect it. Yet David would not return till he knew the sense of his own tribe. *Judah was his lawgiver,* Ps 60:7. That his way home might be the more clear, 1. He employed Zadok and Abiathar, the two chief priests, to treat with the elders of Judah, and to excite them to give the king an invitation back to his house, even to his house, which was the glory of their tribe, 2Sa 19:11,12. No men more proper to negociate this affair than the two priests, who were firm to David's interest, were prudent men, and had great influence with the people. Perhaps the men of Judah were remiss and careless, and did it not, because nobody put them on to do it, and then it was proper to stir them up to it. Many will follow in a good work who will not lead: it is a pity that they should continue idle for want of being spoken to. Or perhaps they were so sensible of the greatness of the provocation they had given to David, by joining with Absalom, that they were afraid to bring him back, despairing of his favour; he therefore warrants his agents to assure them of it, with this reason: "*You are my brethren, my bone and my flesh,* and therefore I cannot be severe with you." The Son of David has been pleased to call us *brethren, his bone and his flesh,* which encourages us to hope that we shall find favour with him. Or perhaps they were willing to see what the rest of the tribes would do before they stirred, with which they are here upbraided: "The speech of all Israel has come to the king to invite him back, and shall Judah be the last, that should have been the first? Where is now the celebrated bravery of that royal tribe? Where is its loyalty?" Note, We should be stirred up to that which is great and good by the examples both of our ancestors and of our neighbours, and by the consideration of our rank. Let not the first in dignity be last in duty. 2. He particularly courted into his interest Amasa, who had been Absalom's general, but was his own nephew as well as Joab, 2Sa 19:13. He owns him for his kinsman, and promises him that, if he will appear for him now, he will make him captain-general of all his forces in the room of Joab, will not only pardon him (which, it may be, Amasa questioned), but prefer him. Sometimes there is nothing lost in purchasing the friendship of one that has been an enemy. Amasa's interest might do David good service at this juncture. But, if David did wisely for himself in designating Amasa for this post (Joab having now grown intolerably haughty), he did not do kindly by Amasa in letting his design be known, for it occasioned his death by Joab's hand, 2Sa 20:10. 3. The point was hereby gained. He bowed the heart of the men of Judah to pass a vote, *nemine contradicente—unanimously,* for the recall of the king, 2Sa 19:14. God's providence, by the priests' persuasions and Amasa's interest, brought them to this resolve. David stirred not till he received this invitation, and then he came as far back as Jordan, at which river they were to meet him, 2Sa 19:15. Our Lord Jesus will rule in those that invite him to the throne in their hearts and not till he be invited. He first bows the heart and makes it willing in the day of his power, and then *rules in the midst of his enemies,* Ps 110:2,3.
 
-## David Pardons Shimei. (b. c. 1023.)
+## David Pardons Shimei (1023 BC)
 
 > **¹⁶** And Shimei the son of Gera, a Benjamite, which *was* of Bahurim, hasted and came down with the men of Judah to meet king David.  
 > **¹⁷** And *there were* a thousand men of Benjamin with him, and Ziba the servant of the house of Saul, and his fifteen sons and his twenty servants with him; and they went over Jordan before the king.  
@@ -76,7 +76,7 @@ III\. David hereupon recalls the sequestration of Mephibosheth's estate; being d
 
 IV\. Mephibosheth drowns all he cares about his estate in his joy for the king's return (2Sa 19:30): "*Yea, let him take all,* the presence and favour of the king shall be to me instead of all." A good man can contentedly bear his own private losses and disappointments, while he see Israel in peace, and the throne of the Son of David exalted and established. Let Ziba take all, so that David may be in peace.
 
-## Mephibosheth Meets David. (b. c. 1023.)
+## Mephibosheth Meets David (1023 BC)
 
 > **³¹** And Barzillai the Gileadite came down from Rogelim, and went over Jordan with the king, to conduct him over Jordan.  
 > **³²** Now Barzillai was a very aged man, *even* fourscore years old: and he had provided the king of sustenance while he lay at Mahanaim; for he *was* a very great man.  
@@ -104,7 +104,7 @@ III\. Barzillai's reply to this invitation, wherein,
 
 IV\. David's farewell to Barzillai. 1. He sends him back into his country with a kiss and a blessing (2Sa 19:39), signifying that in gratitude for his kindnesses he would love him and pray for him, and with a promise that whatever request he should at any time make to him he would be ready to oblige him (2Sa 19:38): *Whatsoever thou shalt think of,* when thou comest home, to *ask of me,* that *will I do for thee.* What is the chief excellency of power but this, that it gives men a capacity of doing the more good? 2. He takes Chimham forward with him, and leaves it to Barzillai to choose him his preferment. I will *do to him what shall seem good to thee,* 2Sa 19:38. And, it should seem, Barzillai, who had experienced the innocency and safety of retirement, begged a country seat for him near Jerusalem, but not in it; for, long after, we read of a place near Beth-lehem, David's city, which is called *the habitation of Chimham,* allotted to him, probably, not out of the crown-lands or the forfeited estates, but out of David's paternal estate.
 
-## Quarrel between Israel and Judah. (b. c. 1023.)
+## Quarrel between Israel and Judah (1023 BC)
 
 > **⁴⁰** Then the king went on to Gilgal, and Chimham went on with him: and all the people of Judah conducted the king, and also half the people of Israel.  
 > **⁴¹** And, behold, all the men of Israel came to the king, and said unto the king, Why have our brethren the men of Judah stolen thee away, and have brought the king, and his household, and all David's men with him, over Jordan?  

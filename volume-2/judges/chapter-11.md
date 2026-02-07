@@ -6,7 +6,7 @@ weight: 11
 
 This chapter gives as the history of Jephthah, another of Israel's judges, and numbered among the worthies of the Old Testament, that by faith did great things (Heb 11:32), though he had not such an extraordinary call as the rest there mentioned had. Here we have, I. The disadvantages of his origin, Jdg 11:1-3. II. The Gileadites' choice of him to be commander-in-chief against the Ammonites, and the terms he made with them, Jdg 11:4-11. III. His treaty with the king of Ammon about the rights of the two nations, that the matter might be determined, if possible, without bloodshed, Jdg 11:12-28. IV. His war with the Ammonites, which he enters upon with a solemn vow (Jdg 11:29-31), prosecutes with bravery (Jdg 11:32), and ends with a glorious victory, Jdg 11:33. V. The straits he was brought into at his return to his own house by the vow he had made, Jdg 11:34-40.
 
-## Jephthah's Promotion. (b. c. 1143.)
+## Jephthah's Promotion (1143 BC)
 
 > **¹** Now Jephthah the Gileadite was a mighty man of valour, and he *was* the son of a harlot: and Gilead begat Jephthah.  
 > **²** And Gilead's wife bare him sons; and his wife's sons grew up, and they thrust out Jephthah, and said unto him, Thou shalt not inherit in our father's house; for thou *art* the son of a strange woman.  
@@ -35,7 +35,7 @@ V\. The bargain he makes with them. He had mentioned the injuries they had forme
 
 VI\. Jephthah's pious acknowledgment of God in this great affair (Jdg 11:11): *He uttered all his words before the Lord in Mizpeh,* that is, upon his elevation, he immediately retired to his devotions, and in prayer spread the whole matter before God, both his choice to the office and his execution of the office, as one that had his eye ever towards the Lord, and would do nothing without him, that leaned not to his own understanding or courage, but depended on God and his favour. He utters before God all his thoughts and cares in this matter; for God gives us leave to be free with him. 1. "Lord, the people have made me their head; wilt thou confirm the choice, and own me as thy people's head under thee and for thee?" God justly complains of Israel (Ho 8:4), *they have set up kings, but not by me.* "Lord," said Jephthah, "I will be no head of their making without thee. I will not accept the government unless thou give me leave." Had Abimelech done this, he might have prospered. 2. "Lord, they have made me their captain, to go before them in this war with the Ammonites; shall I have thy presence? Wilt thou go before me? If not, carry me not up hence. Lord, satisfy me in the justice of the cause. Assure me of success in the enterprise." This is a rare example, to be imitated by all, particularly by great ones; in all our ways let us acknowledge God, seek his favour, ask counsel at his mouth, and take him along with us; so shall we make our way prosperous. Thus Jephthah opened the campaign with prayer. That was likely to end gloriously which began thus piously.
 
-## The War with the Ammonites. (b. c. 1143.)
+## The War with the Ammonites (1143 BC)
 
 > **¹²** And Jephthah sent messengers unto the king of the children of Ammon, saying, What hast thou to do with me, that thou art come against me to fight in my land?  
 > **¹³** And the king of the children of Ammon answered unto the messengers of Jephthah, Because Israel took away my land, when they came up out of Egypt, from Arnon even unto Jabbok, and unto Jordan: now therefore restore those *lands* again peaceably.  
@@ -79,7 +79,7 @@ III\. Jephthah gives in a very full and satisfactory answer to this demand, show
 
 Neither Jephthah's apology, nor his appeal, wrought upon the king of the children of Ammon; they had found the sweets of the spoil of Israel, in the eighteen years wherein they had oppressed them (Jdg 10:8), and hoped now to make themselves masters of the tree with the fruit of which they had so often enriched themselves. He hearkened not to the words of Jephthah, his heart being hardened to his destruction.
 
-## Jephthah's Vow. (b. c. 1143.)
+## Jephthah's Vow (1143 BC)
 
 > **²⁹** Then the Spirit of the LORD came upon Jephthah, and he passed over Gilead, and Manasseh, and passed over Mizpeh of Gilead, and from Mizpeh of Gilead he passed over *unto* the children of Ammon.  
 > **³⁰** And Jephthah vowed a vow unto the LORD, and said, If thou shalt without fail deliver the children of Ammon into mine hands,  

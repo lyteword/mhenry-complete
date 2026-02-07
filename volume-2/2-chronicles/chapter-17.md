@@ -6,7 +6,7 @@ weight: 17
 
 Here begin the life and reign of Jehoshaphat, who was one of the first three among the royal worthies, one of the best that ever swayed the sceptre of Judah since David's head was laid. He was the good son of a good father, so that, as this time, grace ran in the blood, even in the blood-royal. Happy the son that had such a father, to lay a good foundation in him and for him. Happy the father that had such a son, to build so wall upon the foundation he had laid! Happy the kingdom that was blessed with two such kings, two such reigns, together! In this chapter we have, I. His accession to and establishment in the throne, 2Ch 17:1,2,5. II. His personal piety, 2Ch 17:3,4,6. III. The course he took to promote religion in his kingdom, 2Ch 17:7-9. IV. The mighty sway he bore among the neighbours, 2Ch 17:10,11. V. The great strength of his kingdom, both in garrisons and standing forces, 2Ch 17:12-19. Thus was his prosperity the reward of his piety and his piety the brightest grace and ornament of his prosperity.
 
-## Jehoshaphat Succeeds Asa. (b. c. 914.)
+## Jehoshaphat Succeeds Asa (914 BC)
 
 > **¹** And Jehoshaphat his son reigned in his stead, and strengthened himself against Israel.  
 > **²** And he placed forces in all the fenced cities of Judah, and set garrisons in the land of Judah, and in the cities of Ephraim, which Asa his father had taken.  
@@ -28,7 +28,7 @@ III\. What a useful man he was, not only a good man, but a good king. He not onl
 
 IV\. What a happy man he was. 1. How happy he was in the favour of his God, who signally owned and blessed him: *The Lord was with him* (2Ch 17:3); *the word of the Lord was his helper* (so the Chaldee paraphrase); *the Lord established the kingdom in his hand,* 2Ch 17:5. Those stand firmly that have the presence of God with them. If the *beauty of the Lord our God be upon us,* that will *establish the work of our hands* and establish us in our integrity. 2. How happy he was in the affections of his people (2Ch 17:5): *All Judah brought him presents,* in acknowledgment of his kindness in sending preachers among them. The more there is of true religion among a people the more there will be of conscientious loyalty. A government that answers the end of government will be supported. The effect of the favour both of God and his kingdom was that he had *riches and honour in abundance.* It is undoubtedly true, though few will believe it, that religion and piety are the best friends to outward prosperity. And, observe, it follows immediately, *His heart was lifted up in the ways of the Lord.* Riches and honour in abundance prove to many a clog and a hindrance in the ways of the Lord, an occasion of pride, security, and sensuality; but they had a quite contrary effect upon Jehoshaphat: his abundance was oil to the wheels of his obedience, and the more he had of the wealth of this world the more was his heart *lifted up in the ways of the Lord.*
 
-## Jehoshaphat's Prosperity. (b. c. 911.)
+## Jehoshaphat's Prosperity (911 BC)
 
 > **¹⁰** And the fear of the LORD fell upon all the kingdoms of the lands that *were* round about Judah, so that they made no war against Jehoshaphat.  
 > **¹¹** Also *some* of the Philistines brought Jehoshaphat presents, and tribute silver; and the Arabians brought him flocks, seven thousand and seven hundred rams, and seven thousand and seven hundred he goats.  

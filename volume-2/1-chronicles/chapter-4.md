@@ -6,7 +6,7 @@ weight: 4
 
 In this chapter we have, I. A further account of the genealogies of the tribe of Judah, the most numerous and most famous of all the tribes. The posterity of Shobal the son of Hur (1Ch 4:1-4), of Ashur the posthumous son of Hezron (who was mentioned, 1Ch 2:24), with something particular concerning Jabez (1Ch 4:5-10), of Chelub and others (1Ch 4:11-20), of Shelah, 1Ch 4:21-23. II. An account of the posterity and cities of Simeon, their conquest of Gedon, and of the Amalekites in Mount Seir, 1Ch 4:24-43.
 
-## The Sons of Judah; The Prayer of Jabez. (b. c. 1720.)
+## The Sons of Judah; The Prayer of Jabez (1720 BC)
 
 > **¹** The sons of Judah; Pharez, Hezron, and Carmi, and Hur, and Shobal.  
 > **²** And Reaiah the son of Shobal begat Jahath; and Jahath begat Ahumai, and Lahad. These *are* the families of the Zorathites.  
@@ -35,7 +35,7 @@ III\. The prayer he made, probably like Solomon's prayer for wisdom, just when h
 
 4\. What was the success of his prayer: *God granted him that which he requested,* prospered him remarkably, and gave him success in his undertakings, in his studies, in his worldly business, in his conflicts with the Canaanites, and so he became *more honourable than his brethren.* God was of old always ready to hear prayer, and *his ear is not yet heavy.*
 
-## Genealogies. (b. c. 1420.)
+## Genealogies (1420 BC)
 
 > **¹¹** And Chelub the brother of Shuah begat Mehir, which *was* the father of Eshton.  
 > **¹²** And Eshton begat Beth-rapha, and Paseah, and Tehinnah the father of Irnahash. These *are* the men of Rechah.  
@@ -53,7 +53,7 @@ III\. The prayer he made, probably like Solomon's prayer for wisdom, just when h
 
 We may observe in these verses, 1. That here is a whole family of craftsmen, handicraft tradesmen, that applied themselves to all sorts of manufactures, in which they were ingenious and industrious above their neighbours, 1Ch 4:14. There was a valley where they lived which was, from them, called *the valley of craftsmen.* Those that are craftsmen are not therefore to be looked upon as mean men. These craftsmen, though two of a trade often disagree, yet chose to live together, for the improving of arts by comparing notes, and that they might support one another's reputation. 2. That one of these married the daughter of Pharaoh (1Ch 4:18), which was the common name of the kings of Egypt. If an Israelite in Egypt before the bondage began, while Joseph's merits were yet fresh in mind, was preferred to be the king's son-in-law, it is not to be thought strange: few Israelites could, like Moses, refuse an alliance with the court. 3. That another is said to be the *father of the house of those that wrought fine linen,* 1Ch 4:21. It is inserted in their genealogy as their honour that they were the best weavers in the kingdom, and they brought up their children, from one generation to another, to the same business, not aiming to make them gentlemen. This Laadah is said to be the *father of those that wrought fine linen,* as before the flood Jubal is said to be *the father of musicians* and Jabal of *shepherds,* etc. His posterity inhabited the city of Mareshah, the manufacture or staple commodity of which place was linen-cloth, with which their kings and priests were clothed. 4. That another family had had *dominion in Moab,* but were now in *servitude in Babylon,* 1Ch 4:22,23. (1.) It was found among the *ancient things* that they had the *dominion in Moab.* Probably in David's time, when that country was conquered, they transplanted themselves thither, and were put in places of power there, which they held for several generations; but this was a great while ago, time out of mind. (2.) Their posterity were now potters and gardeners, as is supposed in Babylon, where they *dwelt with the king for his work,* got a good livelihood by their industry, and therefore cared not for returning with their brethren to their own land, after the years of captivity had expired. Those that now have dominion know not what their posterity may be reduced to, nor what mean employments they may be glad to take up with. But those were unworthy the name of *Israelites* that would dwell among *plants and hedges* rather than be at the pains to return to Canaan.
 
-## Genealogies. (b. c. 715.)
+## Genealogies (715 BC)
 
 > **²⁴** The sons of Simeon *were,* Nemuel, and Jamin, Jarib, Zerah, *and* Shaul:  
 > **²⁵** Shallum his son, Mibsam his son, Mishma his son.  

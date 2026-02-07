@@ -6,7 +6,7 @@ weight: 15
 
 In this chapter we have the final rejection of Saul from being king, for his disobedience to God's command in not utterly destroying the Amalekites. By his wars and victories he hoped to magnify and perpetuate his own name and honour, but, by his mismanagement of them, he ruined himself, and laid his honour in the dust. Here is, I. The commission God gave him to destroy the Amalekites, with a command to do it utterly, 1Sa 15:1-3. II. Saul's preparation for this expedition, 1Sa 15:4-6. III. His success, and partial execution of this commission, 1Sa 15:7-9. IV. His examination before Samuel, and sentence passed upon him, notwithstanding the many frivolous pleas he made to excuse himself, 1Sa 15:10-31. V. The slaying of Agag, 1Sa 15:32,33. VI. Samuel's final farewell to Saul, 1Sa 15:34,35.
 
-## The Amalekites Destroyed. (b. c. 1065.)
+## The Amalekites Destroyed (1065 BC)
 
 > **¹** Samuel also said unto Saul, The LORD sent me to anoint thee *to be* king over his people, over Israel: now therefore hearken thou unto the voice of the words of the LORD.  
 > **²** Thus saith the LORD of hosts, I remember *that* which Amalek did to Israel, how he laid *wait* for him in the way, when he came up from Egypt.  
@@ -30,7 +30,7 @@ V\. Saul prevailed against the Amalekites, for it was rather an execution of con
 
 VI\. Yet he did his work by halves, 1Sa 15:9. 1. He *spared Agag,* because he was a king like himself, and perhaps in hope to get a great ransom for him. 2. He spared the best of the cattle, and destroyed only the refuse, that was good for little. Many of the people, we may suppose, made their escape, and took their effects with them into other countries, and therefore we read of Amalekites after this; but that could not be helped. It was Saul's fault that he did not destroy such as came to his hands and were in his power. That which was now destroyed was in effect sacrificed to the justice of God, as the God to whom vengeance belongeth; and for Saul to think the torn and the sick, the lame and the lean, good enough for that, while he reserved for his own fields and his own table the firstlings and the fat, was really to honour himself more than God.
 
-## Samuel Reproves Saul; Saul Rejected of God. (b. c. 1065.)
+## Samuel Reproves Saul; Saul Rejected of God (1065 BC)
 
 > **¹⁰** Then came the word of the LORD unto Samuel, saying,  
 > **¹¹** It repenteth me that I have set up Saul *to be* king: for he is turned back from following me, and hath not performed my commandments. And it grieved Samuel; and he cried unto the LORD all night.  
@@ -67,7 +67,7 @@ II\. What passed between Samuel and Saul in public. Samuel, being sent of God to
 
 7\. He reads his doom: in short, "*Because thou has rejected the word of the Lord,* hast *despised it* (so the Chaldee), hast *made nothing of it* (so the LXX.), hast cast off the government of it, therefore he has *rejected thee,* despised and made nothing of thee, but cast thee off *from being king.* He that made thee king has determined to unmake thee again." Those are unfit and unworthy to rule over men who are not willing that God should rule over them.
 
-## Saul's Dethronement Foretold. (b. c. 1065.)
+## Saul's Dethronement Foretold (1065 BC)
 
 > **²⁴** And Saul said unto Samuel, I have sinned: for I have transgressed the commandment of the LORD, and thy words: because I feared the people, and obeyed their voice.  
 > **²⁵** Now therefore, I pray thee, pardon my sin, and turn again with me, that I may worship the LORD.  
@@ -84,7 +84,7 @@ I\. How poorly he expressed his repentance. It was with much ado that he was mad
 
 II\. How little he got by these thin shows of repentance. What point did he gain by them? 1. Samuel repeated the sentence passed upon him, so far was he from giving any hopes of the repeal of it, 1Sa 15:26, the same with 1Sa 15:23. *He that covers his sins shall never prosper,* Pr 28:13. Samuel refused to turn back with him, but *turned about to go away,* 1Sa 15:27. As the thing appeared to him upon the first view, he thought it altogether unfit for him so far to countenance one whom God had rejected as to join with him in giving thanks to God for a victory which was made to serve rather Saul's covetousness than God's glory. Yet afterwards he did turn again with him (1Sa 15:31), upon further thoughts, and probably by divine direction, either to prevent a mutiny among the people or perhaps not to do honour to Saul (for, though Saul worshipped the Lord, 1Sa 15:31, it is not said Samuel presided in that worship), but to do justice on Agag, 1Sa 15:32. 2. He illustrated the sentence by a sign, which Saul himself, by his rudeness, gave occasion for. When Samuel was turning from him he tore his clothes to detain him (1Sa 15:27), so loth was he to part with the prophet; but Samuel put a construction upon this accident which none but a prophet could do. He made it to signify the *rending of the kingdom* from him (1Sa 15:28), and that, like this, was his own doing. "He hath rent it from thee, and *given it to a neighbour better than thou,*" namely, to David, who afterwards, upon occasion, cut off the skirt of Saul's robe (1Sa 24:4), upon which Saul said (1Sa 24:20), *I know that thou shalt surely be king,* perhaps remembering this sign, the tearing of the skirt of Samuel's mantle. 3. He ratified it by a solemn declaration of its being irreversible (1Sa 15:29): *The Strength of Israel will not lie.* The *Eternity* or *Victory of Israel,* so some read it; *the holy One,* so the Arabic; *the most noble One,* so the Syriac; the *triumphant King of Israel,* so bishop Patrick. "He is determined to depose thee, and he will not change his purpose. *He is not a man that should repent.*" Men are fickle and alter their minds, feeble and cannot effect their purposes; something happens which they could not foresee, by which their measures are broken. But with God it is not so. God has sometimes repented of the evil which he thought to have done, repentance was hidden from Saul, and therefore hidden from God's eyes.
 
-## Agag Slain. (b. c. 1065.)
+## Agag Slain (1065 BC)
 
 > **³²** Then said Samuel, Bring ye hither to me Agag the king of the Amalekites. And Agag came unto him delicately. And Agag said, Surely the bitterness of death is past.  
 > **³³** And Samuel said, As thy sword hath made women childless, so shall thy mother be childless among women. And Samuel hewed Agag in pieces before the LORD in Gilgal.  

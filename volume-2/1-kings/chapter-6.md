@@ -6,7 +6,7 @@ weight: 6
 
 Great and long preparation had been making for the building of the temple, and here, at length, comes an account of the building of it; a noble piece of work it was, one of the wonders of the world, and taking in its spiritual significancy, one of the glories of the church. Here is, I. The time when it was built (1Ki 6:1), and how long it was in the building, 1Ki 6:37,38. II. The silence with which it was build, 1Ki 6:7. III. The dimensions of it, 1Ki 6:2,3. IV. The message God sent to Solomon, when it was in the building, 1Ki 6:11-13. V. The particulars: windows (1Ki 6:4), chambers (1Ki 6:5,6,8-10), the walls and flooring (1Ki 6:15-18), the oracle (1Ki 6:19-22), the cherubim (1Ki 6:23-30), the doors (1Ki 6:31-35), and the inner court, 1Ki 6:36. Many learned men have well bestowed their pains in expounding the description here given of the temple according to the rules of architecture, and solving the difficulties which, upon search, they find in it; but in that matter, having nothing new to offer, we will not be particular or curious; it was then well understood, and every man's eyes that saw this glorious structure furnished him with the best critical exposition of this chapter.
 
-## The Building of the Temple. (b. c. 1011.)
+## The Building of the Temple (1011 BC)
 
 > **¹** And it came to pass in the four hundred and eightieth year after the children of Israel were come out of the land of Egypt, in the fourth year of Solomon's reign over Israel, in the month Zif, which *is* the second month, that he began to build the house of the LORD.  
 > **²** And the house which king Solomon built for the LORD, the length thereof *was* threescore cubits, and the breadth thereof twenty *cubits,* and the height thereof thirty cubits.  

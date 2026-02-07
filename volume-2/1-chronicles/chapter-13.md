@@ -6,7 +6,7 @@ weight: 13
 
 In the foregoing chapter we have David made king, by which the civil government was happily settled. In this chapter care is taken about religion. I. David consults with the representatives of the people about bringing up the ark out of its obscurity into a public place; and it is resolved on, 1Ch 13:1-4. II. With a great deal of solemnity and joy, it is carried from Kirjath-jearim, 1Ch 13:5-8. III. Uzza is struck dead for touching it, which, for the present, spoils the solemnity and stops the proceedings, 1Ch 13:9-14.
 
-## The Removal of the Ark. (b. c. 1048.)
+## The Removal of the Ark (1048 BC)
 
 > **¹** And David consulted with the captains of thousands and hundreds, *and* with every leader.  
 > **²** And David said unto all the congregation of Israel, If *it seem* good unto you, and *that it be* of the LORD our God, let us send abroad unto our brethren every where, *that are* left in all the land of Israel, and with them *also* to the priests and Levites *which are* in their cities *and* suburbs, that they may gather themselves unto us:  
@@ -33,7 +33,7 @@ II\. The people's ready agreement to this proposal (1Ch 13:4): *The thing* was *
 
 III\. The solemnity of bringing up the ark, 1Ch 13:5-8, etc., which we read before, 2Sa 6:1-3, etc. Here therefore we shall only observe, 1. That it is worth while to travel far to attend the ark of God. They came out of all parts of the country, from the *river of Egypt,* the utmost part south, to the entering of Hemath, which lay furthest north, (1Ch 13:5), to grace this solemnity. 2. That we have reason greatly to rejoice in the revival of neglected ordinances and the return of the tokens of God's presence. When the light of religion shines out of obscurity, when it is openly and freely professed, is brought into reputation, and countenanced by princes and great ones, it is such a happy omen to a people as is worthy to be welcomed with all possible expressions of joy. 3. When, after long disuse, ordinances come to be revived, it is too common for even wise and good men to make some mistakes. Who would have thought that David would commit such an error as this, to carry the ark upon a cart? 1Ch 13:7. Because the Philistines so carried it, and a special providence drove the cart (1Sa 6:12), he thought they might do so too. But we must walk by rule, not by example when it varies from the rule, no, not even by those examples which Providence has owned.
 
-## The Death of Uzza. (b. c. 1048.)
+## The Death of Uzza (1048 BC)
 
 > **⁹** And when they came unto the threshingfloor of Chidon, Uzza put forth his hand to hold the ark; for the oxen stumbled.  
 > **¹⁰** And the anger of the LORD was kindled against Uzza, and he smote him, because he put his hand to the ark: and there he died before God.  

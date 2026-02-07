@@ -6,7 +6,7 @@ weight: 5
 
 How far Abner's deserting the house of Saul, his murder, and the murder of Ish-bosheth, might contribute to the perfecting of the revolution, and the establishing of David as king over all Israel, does not appear; but, it should seem, that happy change followed presently thereupon, which in this chapter we have an account of. Here is, I. David anointed king by all the tribes, 2Sa 5:1-5. II. Making himself master of the strong-hold of Zion, 2Sa 5:6-10. III. Building himself a house and strengthening himself in his kingdom, 2Sa 5:11,12. IV. His children that were born after this, 2Sa 5:13-16. V. His victories over the Philistines, 2Sa 5:17-25.
 
-## David King over All Israel. (b. c. 1048.)
+## David King over All Israel (1048 BC)
 
 > **¹** Then came all the tribes of Israel to David unto Hebron, and spake, saying, Behold, we *are* thy bone and thy flesh.  
 > **²** Also in time past, when Saul was king over us, thou wast he that leddest out and broughtest in Israel: and the LORD said to thee, Thou shalt feed my people Israel, and thou shalt be a captain over Israel.  
@@ -20,7 +20,7 @@ II\. The public and solemn inauguration of David, 2Sa 5:3. A convention of the s
 
 III\. A general account of his reign and age. He was thirty years old when he began to reign, upon the death of Saul, 2Sa 5:4. At that age the Levites were at first appointed to begin their administration, Nu 4:3. About that age the Son of David entered upon his public ministry, Lu 3:23. Then men come to their full maturity of strength and judgment. He reigned, in all, forty years and six months, of which seven years and a half in Hebron and thirty-three years in Jerusalem, 2Sa 5:5. Hebron had been famous, Jos 14:15. It was a priest's city. But Jerusalem was to be more so, and to be the holy city. Great kings affected to raise cities of their own, Ge 10:11,36, Ge 10:32-35. David did so, and Jerusalem was the city of David. It is a name famous to the end of the Bible (Re 21:1-27), where we read of a new Jerusalem.
 
-## David Takes Mount Sion. (b. c. 1047.)
+## David Takes Mount Sion (1047 BC)
 
 > **⁶** And the king and his men went to Jerusalem unto the Jebusites, the inhabitants of the land: which spake unto David, saying, Except thou take away the blind and the lame, thou shalt not come in hither: thinking, David cannot come in hither.  
 > **⁷** Nevertheless David took the strong hold of Zion: the same *is* the city of David.  
@@ -36,7 +36,7 @@ II\. David's success against the Jebusites. Their pride and insolence, instead o
 
 III\. His fixing his royal seat in Sion. He himself dwelt in the fort (the strength whereof, which had given him opposition, and was a terror to him, now contributed to his safety), and he built houses round about for his attendants and guards (2Sa 5:9) from Millo (the town-hall, or state-house) and inward. He proceeded and prospered in all he set his hand to, grew great in honour, strength, and wealth, more and more honourable in the eyes of his subjects and formidable in the eyes of his enemies; for *the Lord God of hosts was with him.* God has all creatures at his command, makes what use he pleases of them, and serves his own purposes by them; and he was with him, to direct, preserve, and prosper him, Those that have the Lord of hosts for them need not fear what hosts of men or devils can do against them. Those who grow great must ascribe their advancement to the presence of God with them, and give him the glory of it. The church is called *Sion,* and the *city of the living God.* The Jebusites, Christ's enemies, must first be conquered and dispossessed, the blind and the lame taken away, and then Christ divides the spoil, sets up his throne there, and makes it his residence by the Spirit.
 
-## David's Children. (b. c. 1046.)
+## David's Children (1046 BC)
 
 > **¹¹** And Hiram king of Tyre sent messengers to David, and cedar trees, and carpenters, and masons: and they built David a house.  
 > **¹²** And David perceived that the LORD had established him king over Israel, and that he had exalted his kingdom for his people Israel's sake.  
@@ -51,7 +51,7 @@ II\. David's government settled and built up, 2Sa 5:12. 1. His kingdom was estab
 
 III\. David's family multiplied and increased. All the sons that were born to him after he came to Jerusalem are here mentioned together, eleven in all, besides the six that were born to him before in Hebron, 2Sa 3:2,5. *There* the mothers are mentioned, not *here;* only, in general, it is said that he *took more concubines and wives,* 2Sa 5:13. Shall we praise him for this? We praise him not; we justify him not; nor can we scarcely excuse him. The bad example of the patriarchs might make him think there was no harm in it, and he might hope it would strengthen his interest, by multiplying his alliances, and increasing the royal family. *Happy is the man that has his quiver full of these arrows.* But one vine by the side of the house, with the blessing of God, may send boughs to the sea and branches to the rivers. Adam, by one wife, peopled the world, and Noah re-peopled it. David had many wives, and yet that did not keep him from coveting his neighbour's wife and defiling her; for men that have once broken the fence will wander endlessly. Of David's concubines, see 2Sa 15:16,16:22,19:5. Of his sons, see 1Ch 3:1-9.
 
-## David Defeats the Philistines. (b. c. 1046.)
+## David Defeats the Philistines (1046 BC)
 
 > **¹⁷** But when the Philistines heard that they had anointed David king over Israel, all the Philistines came up to seek David; and David heard *of it,* and went down to the hold.  
 > **¹⁸** The Philistines also came and spread themselves in the valley of Rephaim.  

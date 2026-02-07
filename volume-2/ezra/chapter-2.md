@@ -6,7 +6,7 @@ weight: 2
 
 That many returned out of Babylon upon Cyrus's proclamation we were told in the foregoing chapter; we have here a catalogue of the several families that returned, Ezr 2:1. I. The leaders, Ezr 2:2. II. The people, Ezr 2:3-35. III. The priests, Levites, and retainers to the temple, Ezr 2:35-63. IV. The sum total, with an account of their retinue, Ezr 2:64-67. V. Their offerings to the service of the temple, Ezr 2:68-70.
 
-## The Return of the Captives. (b. c. 536.)
+## The Return of the Captives (536 BC)
 
 > **¹** Now these *are* the children of the province that went up out of the captivity, of those which had been carried away, whom Nebuchadnezzar the king of Babylon had carried away unto Babylon, and came again unto Jerusalem and Judah, every one unto his city;  
 > **²** Which came with Zerubbabel: Jeshua, Nehemiah, Seraiah, Reelaiah, Mordecai, Bilshan, Mispar, Bigvai, Rehum, Baanah. The number of the men of the people of Israel:  

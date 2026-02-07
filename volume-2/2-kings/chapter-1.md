@@ -6,7 +6,7 @@ weight: 1
 
 We here find Ahaziah, the genuine son and successor of Ahab, on the throne of Israel. His reign continued not two years; he died by a fall in his own house, of which, after the mention of the revolt of Moab (2Ki 1:1), we have here an account. I. The message which, on that occasion, he sent to the god of Ekron, 2Ki 1:2. II. The message he received from the God of Israel, 2Ki 1:3-8. III. The destruction of the messengers he sent to seize the prophet, once and again, 2Ki 1:9-12. IV. His compassion to, and compliance with, the third messenger, upon his submission, and the delivery of the message to the king himself, 2Ki 1:13-16. IV. The death of Ahaziah, 2Ki 1:17,18. In the story we may observe how great the prophet looks and how little the prince.
 
-## Ahaziah's Sickness. (b. c. 896.)
+## Ahaziah's Sickness (896 BC)
 
 > **¹** Then Moab rebelled against Israel after the death of Ahab.  
 > **²** And Ahaziah fell down through a lattice in his upper chamber that *was* in Samaria, and was sick: and he sent messengers, and said unto them, Go, enquire of Baal-zebub the god of Ekron whether I shall recover of this disease.  
@@ -33,7 +33,7 @@ IV\. Elijah, by direction from God, meets the messengers, and turns them back wi
 
 V\. The message being delivered to him by his servants, he enquires of them by whom it was sent to him, and concludes, by their description of him, that it must be Elijah, 2Ki 1:7,8. For, 1. His dress was the same that he had seen him in, in his father's court. He was clad in a hairy garment, and had a leathern girdle about him, was plain and homely in his garb. John Baptist, the Elias of the New Testament, herein resembled him, for his clothes were made of hair cloth, and he was girt with a leathern girdle, Mt 3:4. He that was clothed with the Spirit despised all rich and gay clothing. 2. His message was such as he used to deliver to his father, to whom he never prophesied good, but evil. Elijah is one of those witnesses that still torment the inhabitants of the earth, Re 11:10. He that was a thorn in Ahab's eyes will be so in the eyes of his son while he treads in the steps of his father's wickedness; and he is ready to cry out, as his father did, *Hast thou found me, O my enemy?* Let sinners consider that the word which *took hold of their fathers* is still as quick and powerful as ever. See Zec 1:6, Heb 4:12.
 
-## Fire Called from Heaven by Elijah. (b. c. 896.)
+## Fire Called from Heaven by Elijah (896 BC)
 
 > **⁹** Then the king sent unto him a captain of fifty with his fifty. And he went up to him: and, behold, he sat on the top of a hill. And he spake unto him, Thou man of God, the king hath said, Come down.  
 > **¹⁰** And Elijah answered and said to the captain of fifty, If I *be* a man of God, then let fire come down from heaven, and consume thee and thy fifty. And there came down fire from heaven, and consumed him and his fifty.  

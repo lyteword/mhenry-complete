@@ -6,7 +6,7 @@ weight: 8
 
 In this chapter we are told, I. What cities Solomon built, 2Ch 8:1-6. II. What workmen Solomon employed, 2Ch 8:7-10. III. What care he took about a proper settlement for his wife, 2Ch 8:11. IV. What a good method he put the temple-service into, 2Ch 8:12-16. V. What trading he had with foreign countries, 2Ch 8:17,18.
 
-## Solomon's Buildings. (b. c. 992.)
+## Solomon's Buildings (992 BC)
 
 > **¹** And it came to pass at the end of twenty years, wherein Solomon had built the house of the LORD, and his own house,  
 > **²** That the cities which Huram had restored to Solomon, Solomon built them, and caused the children of Israel to dwell there.  
@@ -30,7 +30,7 @@ III\. When Solomon had begun with building the house of God, and made good work 
 
 IV\. That one reason why Solomon built a palace on purpose for the queen, and removed her and her court to it, was because he thought it by no means proper that she should *dwell in the house of David* (2Ch 8:11), considering that that had been a place of great piety, and perhaps her house was a place of great vanity. She was proselyted, it is likely, to the Jewish religion; but it is a question whether all her servants were. Perhaps they had among them the idols of Egypt, and a great deal of profaneness and debauchery. Now, though Solomon had not zeal and courage enough to suppress and punish what was amiss there, yet he so far consulted the honour of his father's memory that he would not suffer that place to be thus profaned where the ark of God had been and where holy David had prayed many a good prayer and sung many a sweet psalm. Not that all the places where the ark had been were so holy as never to be put to a common use; for then the houses of Abinadab and Obed-edom must have been so. But the place where it had been so long, and had been so publicly attended on, was so venerable that it was not fit to be the place of so much gaiety, not to say iniquity, as was to be found, I fear, in the court that Pharaoh's daughter kept. Note, Between things sacred and things common the ancient landmarks ought to be kept up. It was an outer-court of the temple that was the *court of the women.*
 
-## Solomon's Devotion. (b. c. 992.)
+## Solomon's Devotion (992 BC)
 
 > **¹²** Then Solomon offered burnt offerings unto the LORD on the altar of the LORD, which he had built before the porch,  
 > **¹³** Even after a certain rate every day, offering according to the commandment of Moses, on the sabbaths, and on the new moons, and on the solemn feasts, three times in the year, *even* in the feast of unleavened bread, and in the feast of weeks, and in the feast of tabernacles.  

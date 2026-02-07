@@ -6,7 +6,7 @@ weight: 6
 
 In this chapter we have, I. A further account of the wondrous works of Elisha. 1. His making iron to swim, 2Ki 6:1-7. 2. His disclosing to the king of Israel the secret counsels of the king of Syria, 2Ki 6:8-12. 3. His saving himself out of the hands of those who were sent to apprehend him, 2Ki 6:13-23. II. The besieging of Samaria by the Syrians and the great distress the city was reduced to, 2Ki 6:24-33. The relief of it is another of the wonders wrought by Elisha's word, which we shall have the story of in the next chapter. Elisha is still a great blessing both to church and state, both to the sons of the prophets and to his prince.
 
-## Iron Made to Swim. (b. c. 893.)
+## Iron Made to Swim (893 BC)
 
 > **¹** And the sons of the prophets said unto Elisha, Behold now, the place where we dwell with thee is too strait for us.  
 > **²** Let us go, we pray thee, unto Jordan, and take thence every man a beam, and let us make us a place there, where we may dwell. And he answered, Go ye.  
@@ -34,7 +34,7 @@ I\. Concerning the sons of the prophets, and their condition and character. The 
 
 II\. Concerning the father of the prophets, Elisha. 1. That he was a man of great condescension and compassion; he went with the sons of the prophets to the woods, when they desired his company, 2Ki 6:3. Let no man, especially no minister, think himself too great to stoop to do good, but be tender to all. 2. That he was a man of great power; he could make iron to swim, contrary to its nature (2Ki 6:6), for the God of nature is not tied up to its laws. He did not throw the helve after the hatchet, but cut down a new stick, and cast it into the river. We need not double the miracle by supposing that the stick sunk to fetch up the iron, it was enough that it was a signal of the divine summons to the iron to rise. God's grace can thus raise the stony iron heart which has sunk into the mud of this world, and raise up affections naturally earthly, to things above.
 
-## The Syrians Ensnared; the Syrians Generously Liberated. (b. c. 893.)
+## The Syrians Ensnared; the Syrians Generously Liberated (893 BC)
 
 > **⁸** Then the king of Syria warred against Israel, and took counsel with his servants, saying, In such and such a place *shall be* my camp.  
 > **⁹** And the man of God sent unto the king of Israel, saying, Beware that thou pass not such a place; for thither the Syrians are come down.  
@@ -70,7 +70,7 @@ III\. The shameful defeat which Elisha gave to the host of Syrians who came to s
 
 IV\. The good effect this had, for the present, upon the Syrians. They *came no more into the land of Israel* (2Ki 6:23), namely, upon this errand, to take Elisha; they saw it was to no purpose to attempt that, nor would any of their bands be persuaded to make an assault on so great and good a man. The most glorious victory over an enemy is to turn him into a friend.
 
-## The Siege of Samaria. (b. c. 891.)
+## The Siege of Samaria (891 BC)
 
 > **²⁴** And it came to pass after this, that Benhadad king of Syria gathered all his host, and went up, and besieged Samaria.  
 > **²⁵** And there was a great famine in Samaria: and, behold, they besieged it, until an ass's head was *sold* for fourscore *pieces* of silver, and the fourth part of a cab of dove's dung for five *pieces* of silver.  

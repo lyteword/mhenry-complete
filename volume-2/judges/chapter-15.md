@@ -6,7 +6,7 @@ weight: 15
 
 Samson, when he courted an alliance with the Philistines, did but seek an occasion against them, Jdg 14:4. Now here we have a further account of the occasions he took to weaken them, and to avenge, not his own, but Israel's quarrels, upon them. Everything here is surprising; if any thing be thought incredible, because impossible, it must be remembered that with God nothing is impossible, and it was by the Spirit of the Lord coming upon him that he was both directed to and strengthened for those unusual ways of making war. I. From the perfidiousness of his wife and her father, he took occasion to burn their corn, Jdg 15:1-5. II. From the Philistines' barbarous cruelty to his wife and her father, he took occasion to smite them with a great slaughter, Jdg 15:6-8. III. From the treachery of his countrymen, who delivered him bound to the Philistines, he took occasion to kill 1000 of them with the jaw-bone of an ass, Jdg 15:9-17. IV. From the distress he was then in for want of water, God took occasion to show him favour in a seasonable supply, Jdg 15:18-20.
 
-## Samson's Firebrands. (b. c. 1141.)
+## Samson's Firebrands (1141 BC)
 
 > **¹** But it came to pass within a while after, in the time of wheat harvest, that Samson visited his wife with a kid; and he said, I will go in to my wife into the chamber. But her father would not suffer him to go in.  
 > **²** And her father said, I verily thought that thou hadst utterly hated her; therefore I gave her to thy companion: *is* not her younger sister fairer than she? take her, I pray thee, instead of her.  
@@ -27,7 +27,7 @@ IV\. The Philistines' outrage against Samson's treacherous wife and her father. 
 
 V\. The occasion Samson took hence to do them a yet greater mischief, which touched their bone and their flesh, Jdg 15:7,8. "*Though you have done this* to them, and thereby shown what you would do to me if you could, yet that shall not deter me from being further vexatious to you." Or, "Though you think, by doing this, you have made me satisfaction for the affront I received among you, yet I have Israel's cause to plead as a public person, and for the wrongs done to them *I will be avenged on you,* and, if you will then forbear your insults, I will cease, aiming at no more than the deliverance of Israel." So he *smote them hip and thigh with a great stroke,* so the word is. We suppose the wounds he gave them to have been mortal, as wounds in the hip or thigh often prove, and therefore translate it, *with a great slaughter.* Some think he only lamed them, disabled them for service, as horses were houghed or ham-strung. It seems to be a phrase used to express a desperate attack; he killed them pell-mell, or routed them horse and foot. He smote them with his hip upon thigh, that is, with the strength he had, not in his arms and hands, but in his hips and thighs, for he kicked and spurned at them, and so mortified them, *trod them in his anger,* and *trampled them in his fury,* Isa 63:3. And, when he had done, he retired to a natural fortress in the top of the rock Etam, where he waited to see whether the Philistines would be tamed by the correction he had given them.
 
-## Samson Bound by the Men of Judah. (b. c. 1140.)
+## Samson Bound by the Men of Judah (1140 BC)
 
 > **⁹** Then the Philistines went up, and pitched in Judah, and spread themselves in Lehi.  
 > **¹⁰** And the men of Judah said, Why are ye come up against us? And they answered, To bind Samson are we come up, to do to him as he hath done to us.  
@@ -49,7 +49,7 @@ IV\. Samson making his part good against the Philistines, even when he was deliv
 
 V\. Samson celebrating his own victory, since the men of Judah would not do even that for him. He composed a short song, which he sang to himself, for the daughters of Israel did not meet him, as afterwards they did Saul, to sing, with more reason, *Samson hath slain his thousands.* The burden of this song was, *With the jaw-bone of an ass, heaps upon heaps, have I slain a thousand men,* Jdg 15:16. The same word in Hebrew (*chamor*) signifies both an *ass* and a *heap,* so that this is an elegant paronomasia, and represents the Philistines falling as tamely as asses. He also gave a name to the place, to perpetuate the Philistines' disgrace, Jdg 15:17. *Ramath-lehi,* the *lifting up of the jaw-bone.* Yet he did not vain-gloriously carry the bone about with him for a show, but threw it away when he had done with it. So little were relics valued then.
 
-## Samson's Thirst Relieved. (b. c. 1140.)
+## Samson's Thirst Relieved (1140 BC)
 
 > **¹⁸** And he was sore athirst, and called on the LORD, and said, Thou hast given this great deliverance into the hand of thy servant: and now shall I die for thirst, and fall into the hand of the uncircumcised?  
 > **¹⁹** But God clave a hollow place that *was* in the jaw, and there came water thereout; and when he had drunk, his spirit came again, and he revived: wherefore he called the name thereof En-hakkore, which *is* in Lehi unto this day.  

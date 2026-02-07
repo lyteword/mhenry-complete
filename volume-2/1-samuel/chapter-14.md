@@ -6,7 +6,7 @@ weight: 14
 
 We left the host of Israel in a very ill posture, in the close of the foregoing chapter; we saw in them no wisdom, nor strength, nor goodness, to give us ground to expect any other than that they should all be cut off by the army of the Philistines; yet here we find that infinite power which works without means, and that infinite goodness which gives without merit, glorified in a happy turn to their affairs, that still Samuel's words may be made good: "The Lord will not forsake his people, for his great name's sake," (1Sa 12:22. In this chapter we have, I. The host of the Philistines trampled upon, and triumphed over, by the faith and courage of Jonathan, who unknown to his father (1Sa 14:1-3), with his armour-bearer only, made a brave attack upon them, encouraging himself in the Lord his God, 1Sa 14:4-7. He challenged them (1Sa 14:8-12), and, upon their acceptance of the challenge, charged them with such fury, or rather such faith, that he put them to flight, and set them one against another (1Sa 14:13-14), which gave opportunity to Saul and his forces, with other Israelites, to follow the blow, and gain a victory, 1Sa 14:16-23. II. The host of Israel troubled and perplexed by the rashness and folly of Saul, who adjured the people to eat no food till night, which 1. Brought Jonathan to a præmunire, 1Sa 14:24-30. 2. Was a temptation to the people, when the time of their fast had expired, to eat with the blood, 1Sa 14:31-35. Jonathan's error, through ignorance, had like to have been his death, but the people rescued him, 1Sa 14:36-46. III. In the close we have a general account of Saul's exploits (1Sa 14:47,48) and of his family, 1Sa 14:49-52.
 
-## Jonathan Smites the Philistines. (b. c. 1067.)
+## Jonathan Smites the Philistines (1067 BC)
 
 > **¹** Now it came to pass upon a day, that Jonathan the son of Saul said unto the young man that bare his armour, Come, and let us go over to the Philistines' garrison, that *is* on the other side. But he told not his father.  
 > **²** And Saul tarried in the uttermost part of Gibeah under a pomegranate tree which *is* in Migron: and the people that *were* with him *were* about six hundred men;  
@@ -42,7 +42,7 @@ III\. Of the bravery and piety of Jonathan, the son of Saul, who was much fitter
 
 5\. The wonderful success of this daring enterprise. The Philistines, instead of falling upon Jonathan, to slay him, or take him prisoner, fell before him (1Sa 14:13) unaccountably, upon the first blows he gave. They fell, that is, (1.) They were many of them slain by him and his armour-bearer, 1Sa 14:14. Twenty Philistines fell presently. It was not so much the name of Jonathan that made them yield so tamely (though some think that this had become terrible to them, since he smote one of their garrisons, 1Sa 13:3), but it was God's right hand and his arm that got him this victory. (2.) The rest were put to flight, and fell foul upon one another (1Sa 14:15): *There was trembling in the host.* There was no visible cause for fear; they were so numerous, bold, and advantageously posted; the Israelites had fled before them; not an enemy made head against them, but one gentleman and his man; and yet they shook like an aspen-leaf. The consternation was general: they all trembled; even *the spoilers,* those that had been most bold and forward, shared in the common fright, the joints of their loins were loosed, and their knees smote one against another, and yet none of them could tell why or wherefore. It is called *a trembling of God* (so the original phrase is), signifying not only, as we render it, a very great trembling, which they could not resist nor reason themselves clear of, but that it was supernatural, and came immediately from the hand of God. He that made the heart knows how to make it tremble. To complete the confusion, even the earth quaked, and made them ready to fear that it would sink under them. Those that will not fear the eternal God, he can make afraid of a shadow. See Pr 21:1, Isa 33:14.
 
-## The Philistines Destroyed. (b. c. 1067.)
+## The Philistines Destroyed (1067 BC)
 
 > **¹⁶** And the watchmen of Saul in Gibeah of Benjamin looked; and, behold, the multitude melted away, and they went on beating down *one another.*  
 > **¹⁷** Then said Saul unto the people that *were* with him, Number now, and see who is gone from us. And when they had numbered, behold, Jonathan and his armourbearer *were* not *there.*  
@@ -67,7 +67,7 @@ II\. The Israelites were hereby animated against them.
 
 4\. Every Hebrew, even those from whom one would least have expected it, now turned his hand against the Philistines. (1.) Those that had deserted and gone over to the enemy, and were among them, now fought against them, 1Sa 14:21. Some think, they were such as had been taken prisoners by them, and now they were goads in their sides. It rather seems that they went in to them voluntarily, but, now that they saw them falling, recovered the hearts of Israelites, and did valiantly for their country. (2.) Those that had fled their colours, and hid themselves in the mountains, returned to their posts, and joined in with the pursuers (1Sa 14:22), hoping by their great zeal and officiousness, now that the danger was over and the victory sure, to atone for their former cowardice. It was not much to their praise to appear now, but it would have been more their reproach if they had not appeared. Those that are remiss and faint-hearted indeed that will not act in the cause of God when they see it victorious, as well as righteous. Thus all hands were at work against the Philistines, and every Israelite slew as many as he could, without sword or spear; yet it is said (1Sa 14:23), it *was the Lord that saved Israel that day.* He did it by them, for without him they could do nothing. *Salvation is of the Lord.*
 
-## Saul's Rash Oath. (b. c. 1067.)
+## Saul's Rash Oath (1067 BC)
 
 > **²⁴** And the men of Israel were distressed that day: for Saul had adjured the people, saying, Cursed *be* the man that eateth *any* food until evening, that I may be avenged on mine enemies. So none of the people tasted *any* food.  
 > **²⁵** And all *they of* the land came to a wood; and there was honey upon the ground.  
@@ -90,7 +90,7 @@ II\. The people observed his order, but it had many inconveniences attending it.
 
 III\. On this occasion Saul built an altar (1Sa 14:35), that he might offer sacrifice, either by way of acknowledgment of the victory they had obtained or by the way of atonement for the sin they had been guilty of. *The same was the first altar that he built,* and perhaps the rolling of the great stone to kill the beasts on reminded him of converting it into an altar, else he would not have thought of it. Saul was turning aside from God, and yet now he began to build altars, being most zealous (as many are) for the form of godliness when he was denying the power of it. See Ho 8:14, *Israel has forgotten his Maker, and buildeth temples.* Some read it, *He began to build that altar;* he laid the first stone, but was so hasty to pursue his victory that he could not stay to finish it.
 
-## Jonathan Condemned to Die; Jonathan Rescued. (b. c. 1067.)
+## Jonathan Condemned to Die; Jonathan Rescued (1067 BC)
 
 > **³⁶** And Saul said, Let us go down after the Philistines by night, and spoil them until the morning light, and let us not leave a man of them. And they said, Do whatsoever seemeth good unto thee. Then said the priest, Let us draw near hither unto God.  
 > **³⁷** And Saul asked counsel of God, Shall I go down after the Philistines? wilt thou deliver them into the hand of Israel? But he answered him not that day.  
@@ -118,7 +118,7 @@ II\. His falling foul on his son Jonathan: and the rest of this paragraph is who
 
 5\. The design against the Philistines is quashed by this incident (1Sa 14:46): *Saul went up from following them,* and so an opportunity was lost of completing the victory. When Israel's shields are clashing with one another the public safety and service suffer by it.
 
-## The Amalekites Destroyed. (b. c. 1067.)
+## The Amalekites Destroyed (1067 BC)
 
 > **⁴⁷** So Saul took the kingdom over Israel, and fought against all his enemies on every side, against Moab, and against the children of Ammon, and against Edom, and against the kings of Zobah, and against the Philistines: and whithersoever he turned himself, he vexed *them.*  
 > **⁴⁸** And he gathered a host, and smote the Amalekites, and delivered Israel out of the hands of them that spoiled them.  

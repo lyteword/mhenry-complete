@@ -6,7 +6,7 @@ weight: 19
 
 In the description of the lots of Judah and Benjamin we have an account both of the borders that surrounded them and of the cities contained in them. In that of Ephraim and Manasseh we have the borders, but not the cities; in this chapter Simeon and Dan are described by their cities only, and not their borders, because they lay very much within Judah, especially the former; the rest have both their borders described and their cities names, especially frontiers. Here is, I. The lot of Simeon, Jos 19:1-9. II. Of Zebulun, Jos 19:10-16. III. Of Issachar, Jos 19:17-23. IV. Of Asher, Jos 19:24-31. V. Of Naphtali, Jos 19:32-39. VI. Of Dan, Jos 19:40-48. Lastly, The inheritance assigned to Joshua himself and his own family, Jos 19:49-51.
 
-## The Lot of Simeon. (b. c. 1444.)
+## The Lot of Simeon (1444 BC)
 
 > **¹** And the second lot came forth to Simeon, *even* for the tribe of the children of Simeon according to their families: and their inheritance was within the inheritance of the children of Judah.  
 > **²** And they had in their inheritance Beer-sheba, or Sheba, and Moladah,  
@@ -24,7 +24,7 @@ I\. The situation of their lot was within that of Judah (Jos 19:1) and was taken
 
 II\. The cities within their lot are here named. Beersheba, or Sheba, for these names seem to refer to the same place, is put first. Ziklag, which we read of in David's story, is one of them. What course they took to enlarge their borders and make room for themselves we find 1Ch 4:39-43, etc.
 
-## The Lot of Zebulun. (b. c. 1444.)
+## The Lot of Zebulun (1444 BC)
 
 > **¹⁰** And the third lot came up for the children of Zebulun according to their families: and the border of their inheritance was unto Sarid:  
 > **¹¹** And their border went up toward the sea, and Maralah, and reached to Dabbasheth, and reached to the river that *is* before Jokneam;  
@@ -36,7 +36,7 @@ II\. The cities within their lot are here named. Beersheba, or Sheba, for these 
 
 This is the lot of Zebulun, who, though born of Leah after Issachar, yet was blessed by Jacob and Moses before him; and therefore it was so ordered that his lot was drawn before that of Issachar, north of which it lay and south of Asher. 1. The lot of this tribe was washed by the great sea on the west, and by the sea of Tiberias on the east, answering Jacob's prophecy (Ge 49:13), *Zebulun shall be a haven of ships,* trading ships on the great sea and fishing ships on the sea of Galilee. 2. Though there were some places in this tribe which were made famous in the Old Testament, especially *Mount Carmel,* on which the famous trial was between God and Baal in Elijah's time, yet it was made much more illustrious in the New Testament; for within the lot of this tribe was Nazareth, where our blessed Saviour spent so much of his time on earth, and from which he was called *Jesus of Nazareth,* and *Mount Tabor* on which he was transfigured, and that coast of the sea of Galilee on which Christ preached so many sermons and wrought so many miracles.
 
-## The Lot of Issachar. (b. c. 1444.)
+## The Lot of Issachar (1444 BC)
 
 > **¹⁷** *And* the fourth lot came out to Issachar, for the children of Issachar according to their families.  
 > **¹⁸** And their border was toward Jezreel, and Chesulloth, and Shunem,  
@@ -48,7 +48,7 @@ This is the lot of Zebulun, who, though born of Leah after Issachar, yet was ble
 
 The lot of Issachar ran from Jordan in the east to the great sea in the west, Manasseh on the south, and Zebulun on the north. A numerous tribe, Nu 26:25. Tola, one of the judges, was of this tribe, Jdg 10:1. So was Baasha, one of the kings of Israel, 1Ki 15:27. The most considerable places in this tribe were, 1. Jezreel, in which was Ahab's palace, and near it Naboth's vineyard. 2. Shunem, where lived that good Shunamite that entertained Elisha. 3. The river Kishon, on the banks of which, in this tribe, Sisera was beaten by Deborah and Barak. 4. The mountains of Gilboa, on which Saul and Jonathan were slain, which were not far from Endor, where Saul consulted the witch. 5. The valley of Megiddo, where Josiah was slain near Hadad-rimmon, 2Ki 23:29, Zec 12:11.
 
-## The Lot of Asher. (b. c. 1444.)
+## The Lot of Asher (1444 BC)
 
 > **²⁴** And the fifth lot came out for the tribe of the children of Asher according to their families.  
 > **²⁵** And their border was Helkath, and Hali, and Beten, and Achshaph,  
@@ -61,7 +61,7 @@ The lot of Issachar ran from Jordan in the east to the great sea in the west, Ma
 
 The lot of Asher lay upon the coast of the great sea. We read not of any famous person of this tribe but Anna the prophetess, who was a constant resident in the temple at the time of our Saviour's birth, Lu 2:36. Nor were there many famous places in this tribe. Aphek (mentioned Jos 19:30) was the place near which Benhadad was beaten by Ahad, 1Ki 20:30. But close adjoining to this tribe were the celebrated sea-port towns of Tyre and Sidon, which we read so much of. Tyre is called here *that strong city* (Jos 19:29), but Bishop Patrick thinks it was not the same Tyre that we read of afterwards, for that was built on an island; this old strong city was on the continent. And it is conjectured by some that into these two strong-holds, Sidon and Tzor, or Tyre, many of the people of Canaan fled and took shelter when Joshua invaded them.
 
-## The Lot of Naphtali. (b. c. 1444.)
+## The Lot of Naphtali (1444 BC)
 
 > **³²** The sixth lot came out to the children of Naphtali, *even* for the children of Naphtali according to their families.  
 > **³³** And their coast was from Heleph, from Allon to Zaanannim, and Adami, Nekeb, and Jabneel, unto Lakum; and the outgoings thereof were at Jordan:  
@@ -74,7 +74,7 @@ The lot of Asher lay upon the coast of the great sea. We read not of any famous 
 
 Naphtali lay furthest north of all the tribes, bordering on Mount Libanus. The city of Leshem, or Liash, lay on the utmost edge of it to the north, and therefore when the Danites had made themselves masters of it, and called it *Dan,* the length of Canaan from north to south was reckoned from Dan to Beersheba. It had Zebulun on the south, Asher on the west, and Judah upon Jordan, probably a city of that name, and so distinguished from the tribe of Judah on the east. It was in the lot of this tribe, near the waters of Merom, that Joshua fought and routed Jabin, Jos 11:1-14. etc. In this tribe stood Capernaum and Bethsaida, on the north end of the sea of Tiberias, in which Christ did so many mighty works; and the mountain (as is supposed) on which Christ preached, Mt 5:1.
 
-## The Lot of Dan. (b. c. 1444.)
+## The Lot of Dan (1444 BC)
 
 > **⁴⁰** *And* the seventh lot came out for the tribe of the children of Dan according to their families.  
 > **⁴¹** And the coast of their inheritance was Zorah, and Eshtaol, and Ir-shemesh,  
@@ -88,7 +88,7 @@ Naphtali lay furthest north of all the tribes, bordering on Mount Libanus. The c
 
 Dan, though commander of one of the four squadrons of the camp of Israel, in the wilderness, that which brought up the rear, yet was last provided for in Canaan, and his lot fell in the southern part of Canaan, between Judah on the east and the land of the Philistines on the west, Ephraim on the north and Simeon on the south. Providence ordered this numerous and powerful tribe into a post of danger, as best able to deal with those vexatious neighbours the Philistines, and so it was found in Samson. Here is an account, 1. Of what fell to this tribe by lot, Zorah, and Eshtaol, and the camp of Dan thereabouts, of which we read in the story of Samson. And near there was the valley of Eshcol, whence the spies brought the famous bunch of grapes. Japho, or Joppa was in this lot. 2. Of what they got by their own industry and valour, which is mentioned here (Jos 19:47), but related at large, Jdg 18:7-31, etc.
 
-## The Inheritance of Joshua. (b. c. 1444.)
+## The Inheritance of Joshua (1444 BC)
 
 > **⁴⁹** When they had made an end of dividing the land for inheritance by their coasts, the children of Israel gave an inheritance to Joshua the son of Nun among them:  
 > **⁵⁰** According to the word of the LORD they gave him the city which he asked, *even* Timnath-serah in mount Ephraim: and he built the city, and dwelt therein.  

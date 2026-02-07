@@ -6,7 +6,7 @@ weight: 33
 
 In this chapter we have the history of the reign, I. Of Manasseh, who reigned long. 1. His wretched apostasy from God, and revolt to idolatry and all wickedness, 2Ch 33:1-10. 2. His happy return to God in his affliction; his repentance (2Ch 33:11-13), his reformation (2Ch 33:15-17), and prosperity (2Ch 33:14), with the conclusion of his reign, 2Ch 33:18-20. II. Of Amon, who reigned very wickedly (2Ch 33:21-23), and soon ended his days unhappily, 2Ch 33:24,25.
 
-## The Reign of Manasseh. (b. c. 662.)
+## The Reign of Manasseh (662 BC)
 
 > **¹** Manasseh *was* twelve years old when he began to reign, and he reigned fifty and five years in Jerusalem:  
 > **²** But did *that which was* evil in the sight of the LORD, like unto the abominations of the heathen, whom the LORD had cast out before the children of Israel.  
@@ -46,7 +46,7 @@ V\. His prosperity, in some measure, after his repentance. He might plainly see 
 
 *Lastly,* Here is the conclusion of his history. The heads of those things for a full narrative of which we are referred to the other writings that were then extant are more than of any of the kings, 2Ch 33:18,19. A particular account, it seems, was kept, 1. Of *all his sin, and his trespass,* the *high places* he built, *the groves and images he set up, before he was humbled.* Probably this was taken from his own confession which he made of his sin when God gave him repentance, and which he left upon record, in a book entitled, *The words of the seers.* To those seers that *spoke to him* (2Ch 33:18) to reprove him for his sin he sent his confession when he repented, to be inserted in their memoirs, as a token of his gratitude to them for their kindness in reproving him. Thus it becomes penitents to take shame to themselves, to give thanks to their reprovers, and warning to others. 2. Of *the words of the seers that spoke to him in the name of the Lord* (2Ch 33:10,18), the reproofs they gave him for his sin and their exhortations to repentance. Note, Sinners ought to consider, that, how little notice soever they take of them, an account is kept of the words of the seers that speak to them from God to admonish them of their sins, warn them of their danger, and call them to their duty, which will be produced against them in the great day. 3. Of his *prayer to God* (this is twice mentioned as a remarkable thing) *and how God was entreated of him.* This was *written for the generations to come, that the people that should be created might praise the Lord* for his readiness to receive returning prodigals. Notice is taken of the place of his burial, not in *the sepulchres of the kings,* but *in his own house;* he was buried privately, and nothing of that honour was done him at his death that was done to his father. Penitents may recover their comfort sooner than their credit.
 
-## The Reign and Death of Amon. (b. c. 641.)
+## The Reign and Death of Amon (641 BC)
 
 > **²¹** Amon *was* two and twenty years old when he began to reign, and reigned two years in Jerusalem.  
 > **²²** But he did *that which was* evil in the sight of the LORD, as did Manasseh his father: for Amon sacrificed unto all the carved images which Manasseh his father had made, and served them;  

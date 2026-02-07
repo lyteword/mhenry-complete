@@ -6,7 +6,7 @@ weight: 15
 
 In this chapter we have an abstract of the history, I. Of two of the kings of Judah, Abijam, the days of whose reign were few and evil (1Ki 15:1-8), and Asa, who reigned well and long, 1Ki 15:9-24. II. Of two of the kings of Israel, Nadab the son of Jeroboam, and Baasha the destroyer of Jeroboam's house, 1Ki 15:25-34.
 
-## Abijam's Reign. (b. c. 958.)
+## Abijam's Reign (958 BC)
 
 > **¹** Now in the eighteenth year of king Jeroboam the son of Nebat reigned Abijam over Judah.  
 > **²** Three years reigned he in Jerusalem. And his mother's name *was* Maachah, the daughter of Abishalom.  
@@ -23,7 +23,7 @@ I\. Few particulars are related concerning him. 1. Here began his reign in the b
 
 II\. But, in general, we are told, 1. That he was not like David, had no hearty affection for the ordinances of God, though, to serve his purpose against Jeroboam, he pleaded his possession of the temple and priesthood, as that upon which he valued himself, 2Ch 13:10-12. Many boast of their profession of godliness who are strangers to the power of it, and plead the truth of their religion who yet are not true to it. *His heart was not perfect with the Lord his God.* He seemed to have zeal, but he wanted sincerity; he began pretty well, but he fell off, and *walked in all the sins of his father,* followed his bad example, though he had seen the bad consequences of it. He that was all his days in war ought to have been so wise as to make and keep his peace with God, and not to make him his enemy, especially having found him so good a friend in his war with Jeroboam, 2Ch 13:18. *Let favour be shown to the wicked, yet will he not learn righteousness,* Isa 26:10. 2. That yet it was for David's sake that he was advanced, and continued upon the throne; it was *for his sake* (1Ki 15:4,5) that God thus *set up his son after him;* not for his own sake, nor for the sake of his father, in whose steps he trod, *but for the sake of David,* whose example he would not follow. Note, It aggravates the sin of a degenerate seed that they fare the better for the piety of their ancestors and owe their blessings to it, and yet will not imitate it. They stand upon that ground, and yet despise it, and trample upon it, and unreasonably ridicule and oppose that which they enjoy the benefit of. The kingdom of Judah was supported, (1.) That David might have a lamp, pursuant to the divine ordination of *a lamp for his anointed,* Ps 132:17. (2.) That Jerusalem might be established, not only that the honours put upon it in David's and Solomon's time might be preserved to it, but that it might be reserved to the honours designed for it in after-times. The character here given of David is very great—*that he did that which was right in the eyes of the Lord;* but the exception is very remarkable—*save only in the matter of Uriah,* including both his murder and the debauching of his wife. That was a bad matter; it was a remaining blot upon his name, a bar in his escutcheon, and the reproach of it was not wiped away, though the guilt was. David was guilty of other faults, but they were nothing in comparison of that; yet even that being repented of, though it be mentioned for warning to others, did not prevail to throw him out of the covenant, nor to cut off the entail of the promise upon his seed.
 
-## Asa's Reign. (b. c. 914.)
+## Asa's Reign (914 BC)
 
 > **⁹** And in the twentieth year of Jeroboam king of Israel reigned Asa over Judah.  
 > **¹⁰** And forty and one years reigned he in Jerusalem. And his mother's name *was* Maachah, the daughter of Abishalom.  
@@ -62,7 +62,7 @@ VI\. The troubles of his reign. For the most part he prospered; but, 1. Baasha k
 
 VII\. The conclusion of his reign. The acts of it were more largely recorded in the common history (to which reference is here had, 1Ki 15:23) than in this sacred one. He reigned long, but finished at last with honour, and left his throne to a successor no way inferior to him.
 
-## The Reign of Nadab and Baasha. (b. c. 954.)
+## The Reign of Nadab and Baasha (954 BC)
 
 > **²⁵** And Nadab the son of Jeroboam began to reign over Israel in the second year of Asa king of Judah, and reigned over Israel two years.  
 > **²⁶** And he did evil in the sight of the LORD, and walked in the way of his father, and in his sin wherewith he made Israel to sin.  

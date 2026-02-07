@@ -6,7 +6,7 @@ weight: 20
 
 Here is a repetition of the story of David's wars, I. With the Ammonites, and the taking of Rabbah, 1Ch 20:1-3. II. With the giants of the Philistines, 1Ch 20:4-8.
 
-## The Defeat of the Ammonites. (b. c. 1306.)
+## The Defeat of the Ammonites (1306 BC)
 
 > **¹** And it came to pass, that after the year was expired, at the time that kings go out *to battle,* Joab led forth the power of the army, and wasted the country of the children of Ammon, and came and besieged Rabbah. But David tarried at Jerusalem. And Joab smote Rabbah, and destroyed it.  
 > **²** And David took the crown of their king from off his head, and found it to weigh a talent of gold, and *there were* precious stones in it; and it was set upon David's head: and he brought also exceeding much spoil out of the city.  

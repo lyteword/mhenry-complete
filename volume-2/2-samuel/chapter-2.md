@@ -6,7 +6,7 @@ weight: 2
 
 David had paid due respect to the memory of Saul his prince and Jonathan his friend, and what he did was as much his praise as theirs; he is now considering what is to be done next. Saul is dead, now therefore David arise. I. By direction from God he went up to Hebron, and was there anointed king, 2Sa 2:1-4. II. He returned thanks to the men of Jabesh-Gilead for burying Saul, 2Sa 2:5-7. III. Ishbosheth, the son of Saul, is set up in opposition to him, 2Sa 2:8-11. IV. A warm encounter happens between David's party and Ishbosheth's, in which, 1. Twelve of each side engaged hand to hand and were all slain, 2Sa 2:12-16. 2. Saul's party was beaten, 2Sa 2:17. 3. Asahel, on David's side, was slain by Abner, 2Sa 2:18-23. 4. Joab, at Abner's request, sounds a retreat, 2Sa 2:24-28. 5. Abner makes the best of his way (2Sa 2:29), and the loss on both sides is computed, 2Sa 2:3-32. So that here we have an account of a civil war in Israel, which, in process of time, ended in the complete settlement of David on the throne.
 
-## David Made King at Hebron. (b. c. 1053.)
+## David Made King at Hebron (1053 BC)
 
 > **¹** And it came to pass after this, that David enquired of the LORD, saying, Shall I go up into any of the cities of Judah? And the LORD said unto him, Go up. And David said, Whither shall I go up? And he said, Unto Hebron.  
 > **²** So David went up thither, and his two wives also, Ahinoam the Jezreelitess, and Abigail Nabal's wife the Carmelite.  
@@ -26,7 +26,7 @@ III\. The honour done him by the men of Judah: They *anointed him king over the 
 
 IV\. The respectful message he sent to the men of Jabesh-Gilead, to return them thanks for their kindness to Saul. Still he studies to honour the memory of his predecessor, and thereby to show that he was far from aiming at the crown from any principle of ambition or enmity to Saul, but purely because he was called of God to it. It was told him that the men of Jabesh-Gilead buried Saul, perhaps by some that thought he would be displeased at them as over-officious. But he was far from that. 1. He commends them for it, 2Sa 2:5. According as our obligations were to love and honour any while they lived, we ought to show respect to their remains (that is, their bodies, names, and families) when they are dead. "Saul was your lord," says David, "and therefore you did well to show him this kindness and do him this honour." 2. He prays to God to bless them for it, and to recompense it to them: *Blessed are you,* and blessed *may you be* of the Lord, who will deal kindly with those in a particular manner that *dealt kindly with the dead,* as it is in Ru 1:8. Due respect and affection shown to the bodies, names, and families of those that are dead, in conscience towards God, is a piece of charity which shall in no wise lose its reward: *The Lord show kindness and truth to you* (2Sa 2:6), that is, kindness according to the promise. What kindness God shows is in truth, what one may trust to. 3. He promises to make them amends for it: *I also will requite you.* He does not turn them over to God for a recompence that he may excuse himself from rewarding them. Good wishes are good things, and instances of gratitude, but they are too cheap to be rested in where there is an ability to do more. 4. He prudently takes this opportunity to gain them to his interest, 2Sa 2:7. They had paid their last respects to Saul, and he would have them to be the last: "*The house of Judah have anointed me king,* and it will be your wisdom to concur with them and in that to be valiant." We must not so dote on the dead, how much soever we have valued them, as to neglect or despise the blessings we have in those that survive, whom God has raised up to us in their stead.
 
-## A Civil War in Israel. (b. c. 1053.)
+## A Civil War in Israel (1053 BC)
 
 > **⁸** But Abner the son of Ner, captain of Saul's host, took Ishbosheth the son of Saul, and brought him over to Mahanaim;  
 > **⁹** And made him king over Gilead, and over the Ashurites, and over Jezreel, and over Ephraim, and over Benjamin, and over all Israel.  
@@ -53,7 +53,7 @@ II\. An encounter between their two armies.
 
 5\. The whole army at length engaged, and Abner's forces were routed, 2Sa 2:17. The former was a drawn battle, in which all were killed on both sides, and therefore they must put it upon another trial, in which (as it often happens) those that gave the challenge went away with loss. David had God on his side; his side therefore was victorious.
 
-## Asahel Slain by Abner. (b. c. 1053.)
+## Asahel Slain by Abner (1053 BC)
 
 > **¹⁸** And there were three sons of Zeruiah there, Joab, and Abishai, and Asahel: and Asahel *was as* light of foot as a wild roe.  
 > **¹⁹** And Asahel pursued after Abner; and in going he turned not to the right hand nor to the left from following Abner.  

@@ -6,7 +6,7 @@ weight: 11
 
 This chapter begins with as melancholy a "but" as almost any we find in all the Bible. Hitherto we have read nothing of Solomon but what was great and good; but the lustre both of his goodness and of his greatness is here sullied and eclipsed, and his sun sets under a cloud. I. The glory of his piety is stained by his departure from God and his duty, in his latter days, marrying strange wives and worshipping strange gods, 1Ki 11:4-8. II. The glory of his prosperity is stained by God's displeasure against him and the fruits of that displeasure. 1. He sent him an angry message, 1Ki 11:9-13. 2. He stirred up enemies, who gave him disturbance, Hadad (1Ki 11:14-22), Rezon, 1Ki 11:23-25. 3. He gave away ten tribes of his twelve, from his posterity after him, to Jeroboam, whom therefore he sought in vain to slay (1Ki 11:26-40), and this is all that remains here to be told concerning Solomon, except his death and burial (1Ki 11:41-43), for there is nothing perfect under the sun, but all is so above the sun.
 
-## Solomon's Defection and Degeneracy. (b. c. 983.)
+## Solomon's Defection and Degeneracy (983 BC)
 
 > **¹** But king Solomon loved many strange women, together with the daughter of Pharaoh, women of the Moabites, Ammonites, Edomites, Zidonians, *and* Hittites;  
 > **²** Of the nations *concerning* which the LORD said unto the children of Israel, Ye shall not go in to them, neither shall they come in unto you: *for* surely they will turn away your heart after their gods: Solomon clave unto these in love.  
@@ -31,7 +31,7 @@ II\. Let us now pause awhile, and lament Solomon's fall; and we may justly stand
 
 2\. What shall we say to all this? Why God permitted it it is not for us to enquire; his way is in the sea and his path in the great waters; he knew how to bring glory to himself out of it. God foresaw it when he said concerning him that should build the temple, *If he commit iniquity,* etc., 2Sa 7:14. But it concerns us to enquire what good use we may make of it. (1.) Let him that thinks he stands take heed lest he fall. We see how weak we are of ourselves, without the grace of God; let us therefore live in a constant dependence on that grace. (2.) See the danger of a prosperous condition, and how hard it is to overcome the temptations of it. Solomon, like Jeshurun, waxed fat and then kicked. The food convenient, which Agur prayed for, is safer and better than the food abundant, which Solomon was even surfeited with. (3.) See what need those have to stand upon their guard who have made a great profession of religion, and shown themselves forward and zealous in devotion, because the devil will set upon them most violently, and, if they misbehave, the reproach is the greater. It is the evening that commends the day; let us therefore fear, lest, having run well, we seem to come short.
 
-## God's Displeasure against Solomon. (b. c. 983.)
+## God's Displeasure against Solomon (983 BC)
 
 > **⁹** And the LORD was angry with Solomon, because his heart was turned from the LORD God of Israel, which had appeared unto him twice,  
 > **¹⁰** And had commanded him concerning this thing, that he should not go after other gods: but he kept not that which the LORD commanded.  
@@ -45,7 +45,7 @@ II\. The message he sent him hereupon (1Ki 11:11): *The Lord said unto Solomon* 
 
 Upon this message which God graciously sent to Solomon, to awaken his conscience and bring him to repentance, we have reason to hope that he humbled himself before God, confessed his sin, begged pardon, and returned to his duty, that he then published his repentance in the book of Ecclesiastes, where he bitterly laments his own folly and madness (Ec 7:25,26), and warns others to take heed of the like evil courses, and to *fear God* and *keep his commandments,* in consideration of *the judgment to come,* which, it is likely, had made him tremble, as it did Felix. That penitential sermon was as true an indication of a heart broken for sin and turned from it as David's penitential psalms were, though of another nature. God's grace in his people works variously. Thus, though Solomon fell, *he was not utterly cast down;* what God had said to David concerning him was fulfilled: *I will chasten him with the rod of men, but my mercy shall not depart from him,* 2Sa 7:14,15. Though God may suffer those whom he loves to fall into sin, he will not suffer them to lie still in it. Solomon's defection, though it was much his reproach and a great blemish to his personal character, yet did not so far break in upon the character of his reign but that it was afterwards made the pattern of a good reign, 2Ch 11:17, where the kings are said to have done well, while *they walked in the way of David and Solomon.* But, though we have all this reason to hope he repented and found mercy, yet the Holy Ghost did not think fit expressly to record his recovery, but left it doubtful, for warning to others not to sin upon presumption of repenting, for it is but a peradventure whether *God will give them repentance,* or, if he do, whether he will give the evidence of it to themselves or others. Great sinners may recover themselves and have the benefit of their repentance, and yet be denied both the comfort and credit of it; the guilt may be taken away, and yet not the reproach.
 
-## Solomon's Adversaries. (b. c. 980.)
+## Solomon's Adversaries (980 BC)
 
 > **¹⁴** And the LORD stirred up an adversary unto Solomon, Hadad the Edomite: he *was* of the king's seed in Edom.  
 > **¹⁵** For it came to pass, when David was in Edom, and Joab the captain of the host was gone up to bury the slain, after he had smitten every male in Edom;  
@@ -70,7 +70,7 @@ II\. Both these adversaries had the origin of their enmity to Solomon and Israel
 
 2\. Rezon, a Syrian, was another adversary to Solomon. When David conquered the Syrians, he headed the remains, lived at large by spoil and rapine, till Solomon grew careless, and then he got possession of Damascus, reigned there (1Ki 11:24) and over the country about (1Ki 11:25), and he created troubles to Israel, probably in conjunction with Hadad, all the days of Solomon (namely, after his apostasy), or he was an enemy to Israel during all Solomon's reign, and upon all occasions vented his then impotent malice against them, but till Solomon's revolt, when his defence had departed from him, he could not do them any mischief. It is said of him that *he abhorred Israel.* Other princes loved and admired Israel and Solomon, and courted their friendship, but here was one that abhorred them. The greatest and best of princes and people, however much they may in general be respected, will yet perhaps be hated and abhorred by some.
 
-## Jeroboam's Promotion Foretold. (b. c. 977.)
+## Jeroboam's Promotion Foretold (977 BC)
 
 > **²⁶** And Jeroboam the son of Nebat, an Ephrathite of Zereda, Solomon's servant, whose mother's name *was* Zeruah, a widow woman, even he lifted up *his* hand against the king.  
 > **²⁷** And this *was* the cause that he lifted up *his* hand against the king: Solomon built Millo, *and* repaired the breaches of the city of David his father.  
@@ -98,7 +98,7 @@ III\. Of his designation to the government of the ten tribes after the death of 
 
 IV\. Jeroboam's flight into Egypt, 1Ki 11:40. In some way or other Solomon came to know of all this, probably from Jeroboam's own talk of it; he could not conceal it as Saul did, nor keep his own counsel; if he had, he might have staid in his country, and been preparing there for his future advancement; but letting it be known, 1. Solomon foolishly sought to kill his successor. Had not he taught others that, whatever devices are in men's hearts, *the counsel of the Lord shall stand?* And yet does he himself think to defeat that counsel? 2. Jeroboam prudently withdrew into Egypt. Though God's promise would have secured him any where, yet he would use means for his own preservation, and was content to live in exile and obscurity for a while, being sure of a kingdom at last. And shall not we be so, who have a better kingdom in reserve?
 
-## The Death of Solomon. (b. c. 975.)
+## The Death of Solomon (975 BC)
 
 > **⁴¹** And the rest of the acts of Solomon, and all that he did, and his wisdom, *are* they not written in the book of the acts of Solomon?  
 > **⁴²** And the time that Solomon reigned in Jerusalem over all Israel *was* forty years.  

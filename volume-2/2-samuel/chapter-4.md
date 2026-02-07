@@ -6,7 +6,7 @@ weight: 4
 
 When Abner was slain David was at a loss for a friend to perfect the reduction of those tribes that were yet in Ish-bosheth's interest. Which way to adopt for the accomplishment of it he could not tell; but here Providence brings it about by the removal of Ish-bosheth. I. Two of his own servants slew him, and brought his head to David, 2Sa 4:1-8. II. David, instead of rewarding them, put them to death for what they had done, 2Sa 4:9-12.
 
-## Ish-bosheth Slain by His Servants. (b. c. 1048.)
+## Ish-bosheth Slain by His Servants (1048 BC)
 
 > **¹** And when Saul's son heard that Abner was dead in Hebron, his hands were feeble, and all the Israelites were troubled.  
 > **²** And Saul's son had two men *that were* captains of bands: the name of the one *was* Baanah, and the name of the other Rechab, the sons of Rimmon a Beerothite, of the children of Benjamin: (for Beeroth also was reckoned to Benjamin:  
@@ -27,7 +27,7 @@ II\. The murder of Saul's son. We are here told,
 
 3\. The murderers triumphed in what they had done. As if they had performed some very glorious action, and the doing of it for David's advantage was enough not only to justify it, but to sanctify it, they made a present of Ish-bosheth's head to David (2Sa 4:8): *Behold the head of thy enemy,* than which they thought nothing could be more acceptable to him; yea, and they made themselves instruments of God's justice, ministers to bear his sword, though they had no commission: *The Lord hath avenged thee this day of Saul and of his seed.* Not that they had any regard either to God or to David's honour; they aimed at nothing but to make their own fortunes (as we say) and to get preferment in David's court; but, to ingratiate themselves with him, they pretended a concern for his life, a conviction of his title, and a zealous desire to see him in full possession of the throne. Jehu pretended *zeal for the Lord of hosts* when an ambition to set up himself and his own family was the spring of his actions.
 
-## Ish-bosheth's Murderers Punished. (b. c. 1048.)
+## Ish-bosheth's Murderers Punished (1048 BC)
 
 > **⁹** And David answered Rechab and Baanah his brother, the sons of Rimmon the Beerothite, and said unto them, *As* the LORD liveth, who hath redeemed my soul out of all adversity,  
 > **¹⁰** When one told me, saying, Behold, Saul is dead, thinking to have brought good tidings, I took hold of him, and slew him in Ziklag, who *thought* that I would have given him a reward for his tidings:  

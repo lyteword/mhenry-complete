@@ -6,7 +6,7 @@ weight: 1
 
 In this chapter we have, I. The proclamation which Cyrus, king of Persia, issued out for the release of all the Jews that he found captives in Babylon, and the building of their temple in Jerusalem, Ezr 1:1-4. II. The return of many thereupon, Ezr 1:5,6. III. Orders given for the restoring of the vessels of the temple, Ezr 1:7-11. And this is the dawning of the day of their deliverance.
 
-## The Proclamation of Cyrus. (b. c. 536.)
+## The Proclamation of Cyrus (536 BC)
 
 > **¹** Now in the first year of Cyrus king of Persia, that the word of the LORD by the mouth of Jeremiah might be fulfilled, the LORD stirred up the spirit of Cyrus king of Persia, that he made a proclamation throughout all his kingdom, and *put it* also in writing, saying,  
 > **²** Thus saith Cyrus king of Persia, The LORD God of heaven hath given me all the kingdoms of the earth; and he hath charged me to build him a house at Jerusalem, which *is* in Judah.  

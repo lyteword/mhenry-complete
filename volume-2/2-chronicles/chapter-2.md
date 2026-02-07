@@ -6,7 +6,7 @@ weight: 2
 
 Solomon's trading, which we read of in the close of the foregoing chapter, and the encouragement he gave both to merchandise and manufacturers, were very commendable. But building was the work he was designed for, and to that business he is here applying himself. Here is, I. Solomon's determination to build the temple and a royal palace, and his appointing labourers to be employed herein, 2Ch 2:1,2,17,18. II. His request to Huram king of Tyre to furnish him both with artists and materials, 2Ch 2:3-10. III. Huram's obliging answer to, and compliance with, his request, 2Ch 2:11-16.
 
-## Preparations to Build the Temple. (b. c. 1015.)
+## Preparations to Build the Temple (1015 BC)
 
 > **¹** And Solomon determined to build a house for the name of the LORD, and a house for his kingdom.  
 > **²** And Solomon told out threescore and ten thousand men to bear burdens, and fourscore thousand to hew in the mountain, and three thousand and six hundred to oversee them.  
@@ -31,7 +31,7 @@ II\. His embassy to Huram, king of Tyre, to engage his assistance in the prosecu
 
 3\. Here is Solomon's engagement to maintain the workmen (2Ch 2:10), to give them so much wheat and barley, so much wine and oil. He did not feed his workmen with bread and water, but with plenty, and every thing of the best. Those that employ labourers ought to take care they be not only well paid, but well provided for with sufficient of that which is wholesome and fit for them. Let the rich masters do for their poor workmen as they would be done by if the tables were turned.
 
-## Solomon's Treaty with Hiram. (b. c. 1015.)
+## Solomon's Treaty with Hiram (1015 BC)
 
 > **¹¹** Then Huram the king of Tyre answered in writing, which he sent to Solomon, Because the LORD hath loved his people, he hath made thee king over them.  
 > **¹²** Huram said moreover, Blessed *be* the LORD God of Israel, that made heaven and earth, who hath given to David the king a wise son, endued with prudence and understanding, that might build a house for the LORD, and a house for his kingdom.  

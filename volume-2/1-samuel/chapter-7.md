@@ -6,7 +6,7 @@ weight: 7
 
 In this chapter we have, I. The eclipsing of the glory of the ark, by its privacy in Kirjath-jearim for many years, 1Sa 7:1,2. II. The appearing of the glory of Samuel in his public services for the good of Israel, to whom he was raised up to be a judge, and he was the last that bore that character. This chapter gives us all the account we have of him when he was in the prime of his time; for what we had before was in his childhood (1Sa 2:1-3:21); what we have of him after was in his old age, 1Sa 8:1. We have him here active, 1. In the reformation of Israel from their idolatry, 1Sa 7:3,4. 2. In the reviving of religion among them, 1Sa 7:5,6. 3. In praying for them against the invading Philistines (1Sa 7:7-9), over whom God, in answer to his prayer, gave them a glorious victory, 1Sa 7:10,11. 4. In erecting a thankful memorial of that victory, 1Sa 7:12. 5. In the improvement of that victory, 1Sa 7:13,14. 6. In the administration of justice, 1Sa 7:15-17. And these were the things for which God was preparing the designing him, in the early vouchsafements of his grace to him.
 
-## The Ark at Kirjath-jearim. (b. c. 1099.)
+## The Ark at Kirjath-jearim (1099 BC)
 
 > **¹** And the men of Kirjath-jearim came, and fetched up the ark of the LORD, and brought it into the house of Abinadab in the hill, and sanctified Eleazar his son to keep the ark of the LORD.  
 > **²** And it came to pass, while the ark abode in Kirjath-jearim, that the time was long; for it was twenty years: and all the house of Israel lamented after the LORD.  
@@ -48,7 +48,7 @@ II\. He endeavoured to engage them for ever to God and his service. Now that he 
 
 3\. Samuel judged them at that time in Mizpeh, that is, he assured them, in God's name, of the pardon of their sins, upon their repentance, and that God was reconciled to them. It was a judgment of absolution. Or he received informations against those that did not leave their idols, and proceeded against them according to law. Those that would not judge themselves he judged. Or now he settled courts of justice among them, and appointed the terms and circuits which he observed afterwards, 1Sa 7:16. Now he set those wheels a-going; and, whereas he began to act as a magistrate, to prevent their relapsing into those sins which now they seemed to have renounced.
 
-## The Israelites Attacked by the Philistines; Samuel's Intercession for Israel. (b. c. 1099.)
+## The Israelites Attacked by the Philistines; Samuel's Intercession for Israel (1099 BC)
 
 > **⁷** And when the Philistines heard that the children of Israel were gathered together to Mizpeh, the lords of the Philistines went up against Israel. And when the children of Israel heard *it,* they were afraid of the Philistines.  
 > **⁸** And the children of Israel said to Samuel, Cease not to cry unto the LORD our God for us, that he will save us out of the hand of the Philistines.  
@@ -67,7 +67,7 @@ IV\. God gave a gracious answer to Samuel's prayer (1Sa 7:9): *The Lord heard hi
 
 V\. Samuel erected a thankful memorial of this victory, to the glory of God and for the encouragement of Israel, 1Sa 7:12. He set up an *Eben-ezer, the stone of help.* If ever the people's hard hearts should lose the impressions of this providence, this stone would either revive the remembrance of it, and make them thankful, or remain a standing witness against them for their unthankfulness. 1. The place where this memorial was set up was the same where, twenty years before, the Israelites were smitten before the Philistines, for that was beside Eben-ezer, 1Sa 4:1. The sin which procured that defeat formerly being pardoned upon their repentance, the pardon was sealed by this glorious victory in the very same place where they then suffered loss; see Ho 1:10. 2. Samuel himself took care to set up this monument. He had been instrumental by prayer to obtain the mercy, and therefore he thought himself in a special manner obliged to make this grateful acknowledgement of it. 3. The reason he gives for the name is, *Hitherto the Lord hath helped us,* in which he speaks thankfully of what was past, giving the glory of the victory to God only, who had added this to all his former favours; and yet he speaks somewhat doubtfully for the future: "Hitherto things have done well, but what God may yet do with us we know not, *that* we refer to him; but let us praise him for what he has done." Note, The beginnings of mercy and deliverance are to be acknowledged by us with thankfulness so far as they go, though they be not completely finished, nay, though the issue seem uncertain. *Having obtained help from God, I continue hitherto,* says blessed Paul, Ac 26:22.
 
-## The Defeat of the Philistines. (b. c. 1092.)
+## The Defeat of the Philistines (1092 BC)
 
 > **¹³** So the Philistines were subdued, and they came no more into the coast of Israel: and the hand of the LORD was against the Philistines all the days of Samuel.  
 > **¹⁴** And the cities which the Philistines had taken from Israel were restored to Israel, from Ekron even unto Gath; and the coasts thereof did Israel deliver out of the hands of the Philistines. And there was peace between Israel and the Amorites.  

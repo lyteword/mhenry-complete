@@ -6,7 +6,7 @@ weight: 7
 
 Still the ark is David's care as well as his joy. In this chapter we have, I. His consultation with Nathan about building a house for it; he signifies his purpose to do it (2Sa 7:1,2) and Nathan approves his purpose, 2Sa 7:3. II. His communion with God about it. 1. A gracious message God sent him about it, accepting his purpose, countermanding the performance, and promising him an entail of blessings upon his family, 2Sa 7:4-17. 2. A very humble prayer which David offered up to God in return to that gracious message, thankfully accepting God's promises to him, and earnestly praying for the performance of them, 2Sa 7:18-29. And, in both these, there is an eye to the Messiah and his kingdom.
 
-## David's Care of the Ark. (b. c. 1042.)
+## David's Care of the Ark (1042 BC)
 
 > **¹** And it came to pass, when the king sat in his house, and the LORD had given him rest round about from all his enemies;  
 > **²** That the king said unto Nathan the prophet, See now, I dwell in a house of cedar, but the ark of God dwelleth within curtains.  
@@ -20,7 +20,7 @@ III\. His communicating this thought to Nathan the prophet. He told him, as a fr
 
 IV\. Nathan's approbation of it: *Go, do all that is in thy heart; for the Lord is with thee,* 2Sa 7:3. We do not find that David told him that he purposed to build a temple, only that it was a trouble to him that there was not one built, from which Nathan easily gathered what was in his heart, and bade him go on and prosper. Note, We ought to do all we can to encourage and promote the good purposes and designs of others, and put in a good word, as we have opportunity, to forward a good work. Nathan spoke this, not in God's name, but as from himself; not as a prophet, but as a wise and good man; it was agreeable to the revealed will of God, which requires that all in their places should lay out themselves for the advancement of religion and the service of God, though it seems his secret will was otherwise, that David should not do this. It was Christ's prerogative always to speak the mind of God, which he perfectly knew. Other prophets spoke it only when the spirit of prophecy was upon them; but, if in any thing they mistook (as Samuel, 1Sa 16:6, and Nathan here) God soon rectified the mistake.
 
-## God's Covenant with David. (b. c. 1042.)
+## God's Covenant with David (1042 BC)
 
 > **⁴** And it came to pass that night, that the word of the LORD came unto Nathan, saying,  
 > **⁵** Go and tell my servant David, Thus saith the LORD, Shalt thou build me a house for me to dwell in?  
@@ -51,7 +51,7 @@ IV\. Blessings are entailed upon the family and posterity of David. David had pu
 
 2\. Others of them relate to Christ, who is often called *David* and the *Son of David,* that Son of David to whom these promises pointed and in whom they had their full accomplishment. He was of the *seed of David,* Ac 13:23. To him God *gave the throne of his father David* (Lu 1:32), all power both in heaven and earth, and authority to execute judgment. He was to build the gospel temple, a house for God's name, Zec 6:12,13. That promise, *I will be his Father, and he shall be my Son,* is expressly applied to Christ by the apostle, Heb 1:5. But the establishing of his house, and his throne, and his *kingdom, for ever* (2Sa 7:13, and again, and a third time 2Sa 7:16. *for ever*), can be applied to no other than Christ and his kingdom. David's house and kingdom have long since come to an end; it is only the Messiah's kingdom that is everlasting, and *of the increase of his government and peace there shall be no end.* The supposition of committing iniquity cannot indeed be applied to the Messiah himself, but it is applicable (and very comfortable) to his spiritual seed. True believers have their infirmities, for which they may expect to be corrected, but they shall not be cast off. Every transgression in the covenant will not throw us out of covenant. Now, (1.) This message Nathan faithfully delivered to David (2Sa 7:17); though, in forbidding him to build the temple, he contradicted his own words, yet he was not backward to do it when he was better informed concerning the mind of God. (2.) These promises God faithfully performed to David and his seed in due time. Though David came short of making good his purpose to build God a house, yet God did not come short of making good his promise to build him a house. Such is the tenour of the covenant we are under; though there are many failures in our performances, there are none in God's.
 
-## David's Prayer for God's Blessing. (b. c. 1042.)
+## David's Prayer for God's Blessing (1042 BC)
 
 > **¹⁸** Then went king David in, and sat before the LORD, and he said, Who *am* I, O Lord GOD? and what *is* my house, that thou hast brought me hitherto?  
 > **¹⁹** And this was yet a small thing in thy sight, O Lord GOD; but thou hast spoken also of thy servant's house for a great while to come. And *is* this the manner of man, O Lord GOD?  

@@ -6,7 +6,7 @@ weight: 6
 
 The cries of oppressed poverty being stilled, we are now to enquire how the building of the wall goes forward, and in this chapter we find it carried on with vigour and finished with joy, notwithstanding the restless attempts of the gates of hell to hinder it. How the Jews' enemies were baffled in their design to put a stop to it by force we read before, Ne 4:1-23 Here we find how their endeavours to drive Nehemiah off from it were frustrated. I. When they courted him to an interview, with design to do him a mischief, he would not stir, Ne 6:1-4. II. When they would have made him believe his undertaking was represented as seditious and treasonable, he regarded not the insinuation, Ne 6:5-9. III. When they hired pretended prophets to advise him to retire into the temple for his own safety, still he kept his ground, Ne 6:10-14. IV. Notwithstanding the secret correspondence that was kept up between them and some false and treacherous Jews, the work was finished in a short time, Ne 6:15-19. Such as these were the struggles between the church and its enemies. But great is God's cause and it will be prosperous and victorious.
 
-## The Plot of Sanballat, etc. (b. c. 445.)
+## The Plot of Sanballat, etc (445 BC)
 
 > **¹** Now it came to pass, when Sanballat, and Tobiah, and Geshem the Arabian, and the rest of our enemies, heard that I had builded the wall, and *that* there was no breach left therein; (though at that time I had not set up the doors upon the gates;)  
 > **²** That Sanballat and Geshem sent unto me, saying, Come, let us meet together in *some one of* the villages in the plain of Ono. But they thought to do me mischief.  
@@ -26,7 +26,7 @@ II\. A plot to terrify him from his work. Could they but drive him off, the work
 
 In the midst of his complaint of their malice, in endeavouring to frighten him, and so weaken his hands, he lifts up his heart to Heaven in this short prayer: *Now therefore, O God! strengthen my hands.* It is the great support and relief of good people that in all their straits and difficulties they have a good God to go to, from whom, by faith and prayer, they may fetch in grace to silence their fears and *strengthen their hands* when their enemies are endeavouring to fill them with fears and weaken their hands. When, in our Christian work and warfare, we are entering upon any particular services or conflicts, this is a good prayer for us to put up: "I have such a duty to do, such a temptation to grapple with; *now therefore, O God! strengthen my hands.*" Some read it, not as a prayer, but as a holy resolution (for *O God* is supplied in our translation): *Now therefore I will strengthen my hands.* Note, Christian fortitude will be sharpened by opposition. Every temptation to draw us from duty should quicken us so much the more to duty.
 
-## Shemaiah's Plot Defeated. (b. c. 445.)
+## Shemaiah's Plot Defeated (445 BC)
 
 > **¹⁰** Afterward I came unto the house of Shemaiah the son of Delaiah the son of Mehetabeel, who *was* shut up; and he said, Let us meet together in the house of God, within the temple, and let us shut the doors of the temple: for they will come to slay thee; yea, in the night will they come to slay thee.  
 > **¹¹** And I said, Should such a man as I flee? and who *is there,* that, *being* as I *am,* would go into the temple to save his life? I will not go in.  
@@ -52,7 +52,7 @@ II\. See how bravely Nehemiah vanquished this temptation, and came off a conquer
 
 3\. He humbly begs of God to reckon with them for their base designs upon him (Ne 6:14): *My God, think thou upon Tobiah,* and the rest of them, *according to their works.* As, when he had mentioned his own good services, he did not covetously or ambitiously prescribe to God what reward he should give him, but modestly prayed, *Think upon me, my God* (Ne 5:19), so here he does not revengefully imprecate any particular judgment upon his enemies, but refers the matter to God. "Thou knowest their hearts, and art the avenger of falsehood and wrong; take cognizance of this cause; judge between me and them, and take what way and time thou mayest please to call them to an account for it." Note, Whatever injuries are done us we must not avenge ourselves, but commit our cause to him that judgeth righteously.
 
-## The Completion of the Wall. (b. c. 445.)
+## The Completion of the Wall (445 BC)
 
 > **¹⁵** So the wall was finished in the twenty and fifth *day* of *the month* Elul, in fifty and two days.  
 > **¹⁶** And it came to pass, that when all our enemies heard *thereof,* and all the heathen that *were* about us saw *these things,* they were much cast down in their own eyes: for they perceived that this work was wrought of our God.  

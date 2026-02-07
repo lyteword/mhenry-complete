@@ -6,7 +6,7 @@ weight: 8
 
 Ezra came up out of Babylon thirteen years before Nehemiah came, yet we have here a piece of good work which he did, that might have been done before, but was not done till Nehemiah came, who, though he was not such a scholar nor such a divine as Ezra, nor such a scribe in the law of his God, yet was a man of a more lively active spirit. His zeal set Ezra's learning on work, and then great things were done, as we find here, where we have, I. The public and solemn reading and expounding of the law, Ne 8:1-8. II. The joy which the people were ordered to express upon that occasion, Ne 8:9-12. III. The solemn keeping of the feast of tabernacles according to the law, Ne 8:13-18.
 
-## The Explanation of the Law. (b. c. 444.)
+## The Explanation of the Law (444 BC)
 
 > **¹** And all the people gathered themselves together as one man into the street that *was* before the water gate; and they spake unto Ezra the scribe to bring the book of the law of Moses, which the LORD had commanded to Israel.  
 > **²** And Ezra the priest brought the law before the congregation both of men and women, and all that could hear with understanding, upon the first day of the seventh month.  
@@ -44,7 +44,7 @@ II\. How they were healed and comforted with the words of peace that were spoken
 
 2\. The assembly complied with the directions that were given them. Their weeping was *stilled* (Ne 8:11) and they *made great mirth,* Ne 8:12. Note, We ought always to have such a command of every passion as that, however it may break out, it may soon be restrained and called in again when we are convinced that it is either unreasonable or unseasonable. *He that has such a rule as this over his own spirit is better than the mighty.* Observe, (1.) After they had wept they rejoiced. Holy mourning makes way for holy mirth; those that *sow in tears shall reap in joy;* those that tremble at the convictions of the word may triumph in the consolations of it. (2.) The ground of their joy was very good. They made mirth, not because they had the fat to eat and the sweet to drink, and a great deal of good company, but because they had *understood the words that were declared to them.* Note, [1.] To have the holy scriptures with us, and helps to understand them, is a very great mercy, which we have abundant reason to rejoice in. Bibles and ministers are the joy of God's Israel. [2.] The better we understand the word of God the more comfort we shall find in it; for the darkness of trouble arises from the darkness of ignorance and mistake. When the words were first declared to them they wept; but, when they understood them, they rejoiced, finding at length precious promises made to those who repented and reformed and that therefore there was hope in Israel.
 
-## The Joy of the People. (b. c. 444.)
+## The Joy of the People (444 BC)
 
 > **¹³** And on the second day were gathered together the chief of the fathers of all the people, the priests, and the Levites, unto Ezra the scribe, even to understand the words of the law.  
 > **¹⁴** And they found written in the law which the LORD had commanded by Moses, that the children of Israel should dwell in booths in the feast of the seventh month:  

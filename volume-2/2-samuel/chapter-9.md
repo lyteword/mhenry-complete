@@ -6,7 +6,7 @@ weight: 9
 
 The only thing recorded in this chapter is the kindness David showed to Jonathan's seed for his sake. I. The kind enquiry he made after the remains of the house of Saul, and his discovery of Mephibosheth, 2Sa 9:1-4. II. The kind reception he gave to Mephibosheth, when he was brought to him, 2Sa 9:5-8. III. The kind provision he made for him and his, 2Sa 9:9-13.
 
-## David's Kindness to Jonathan's Son. (b. c. 1039.)
+## David's Kindness to Jonathan's Son (1039 BC)
 
 > **¹** And David said, Is there yet any that is left of the house of Saul, that I may shew him kindness for Jonathan's sake?  
 > **²** And *there was* of the house of Saul a servant whose name *was* Ziba. And when they had called him unto David, the king said unto him, *Art* thou Ziba? And he said, Thy servant *is he.*  

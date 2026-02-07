@@ -6,7 +6,7 @@ weight: 14
 
 Here is, I. The general method that was taken in dividing the land, Jos 14:1-5. II. The demand Caleb made of Hebron, as his by promise, and therefore not to be put into the lot with the rest, Jos 14:6-12. And Joshua's grant of that demand, Jos 14:13-15. This was done at Gilgal, which was as yet their head-quarters.
 
-## The Distribution of Canaan. (b. c. 1444.)
+## The Distribution of Canaan (1444 BC)
 
 > **¹** And these *are the countries* which the children of Israel inherited in the land of Canaan, which Eleazar the priest, and Joshua the son of Nun, and the heads of the fathers of the tribes of the children of Israel, distributed for inheritance to them.  
 > **²** By lot *was* their inheritance, as the LORD commanded by the hand of Moses, for the nine tribes, and *for* the half tribe.  
@@ -22,7 +22,7 @@ II\. The tribes among whom this dividend was to be made were nine and a half. 1.
 
 III\. The rule by which they went was the lot, Jos 13:2. *The disposal* of that is *of the Lord,* Pr 16:33. It was here used in an affair of weight, and which could not otherwise be accommodated to universal satisfaction, and it was used in a solemn religious manner as an appeal to God, by consent of parties. In dividing by lot, 1. They referred themselves to God, and to his wisdom and sovereignty, believing him fitter to determine for them than they for themselves. Ps 47:4, *He shall choose our inheritance for us.* 2. They professed a willingness to abide by the determination of it; for every man must take what is his lot, and make the best of it. In allusion to this we are said to *obtain an inheritance in Christ* (Eph 1:11), *eklerothemen*—*we have obtained it by lot,* so the word signified; for it is obtained by a divine designation. Christ, our Joshua, gives eternal life to *as many as were given him,* Joh 17:2.
 
-## Caleb's Request. (b. c. 1444.)
+## Caleb's Request (1444 BC)
 
 > **⁶** Then the children of Judah came unto Joshua in Gilgal: and Caleb the son of Jephunneh the Kenezite said unto him, Thou knowest the thing that the LORD said unto Moses the man of God concerning me and thee in Kadeshbarnea.  
 > **⁷** Forty years old *was* I when Moses the servant of the LORD sent me from Kadeshbarnea to espy out the land; and I brought him word again as *it was* in mine heart.  

@@ -6,7 +6,7 @@ weight: 7
 
 We are now to attend the second banquet to which the king and Haman were invited: and there, I. Esther presents her petition to the king for her life and the life of her people, Es 7:1-4. II. She plainly tells the king that Haman is the man who designed her ruin and the ruin of all her friends, Es 7:5,6. III. The king thereupon gave orders for the hanging of Haman upon the gallows that he had prepared for Mordecai, which was done accordingly, Es 7:7-10. And thus, by the destruction of the plotter, a good step was taken towards the defeating of the plot.
 
-## Haman Accused by Esther. (b. c. 510.)
+## Haman Accused by Esther (510 BC)
 
 > **¹** So the king and Haman came to banquet with Esther the queen.  
 > **²** And the king said again unto Esther on the second day at the banquet of wine, What *is* thy petition, queen Esther? and it shall be granted thee: and what *is* thy request? and it shall be performed, *even* to the half of the kingdom.  
@@ -31,7 +31,7 @@ IV\. Esther plainly charged Haman with it before his face: "Here he is, let him 
 
 V\. Haman is soon apprehensive of his danger: *He was afraid before the king and queen;* and it was time for him to fear when the queen was his prosecutor, the king his judge, and his own conscience a witness against him; and the surprising operations of Providence against him that same morning could not but increase his fear. Now he has little joy of his being invited to the banquet of wine, but finds himself in straits when he thought himself *in the fulness of his sufficiency. He is cast into a net by his own feet.*
 
-## The King Incensed Against Haman; Haman Hanged upon His Own Gallows. (b. c. 510.)
+## The King Incensed Against Haman; Haman Hanged upon His Own Gallows (510 BC)
 
 > **⁷** And the king arising from the banquet of wine in his wrath *went* into the palace garden: and Haman stood up to make request for his life to Esther the queen; for he saw that there was evil determined against him by the king.  
 > **⁸** Then the king returned out of the palace garden into the place of the banquet of wine; and Haman was fallen upon the bed whereon Esther *was.* Then said the king, Will he force the queen also before me in the house? As the word went out of the king's mouth, they covered Haman's face.  
