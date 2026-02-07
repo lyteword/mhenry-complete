@@ -6,8 +6,7 @@ weight: 3
 
 As the foregoing psalm, in the type of David in preferment, showed us the royal dignity of the Redeemer, so this, by the example of David in distress, shows us the peace and holy security of the redeemed, how safe they really are, and think themselves to be, under the divine protection. David, being now driven out from his palace, from the royal city, from the holy city, by his rebellious son Absalom, I. Complains to God of his enemies, Ps 3:1,2. II. Confides in God, and encourages himself in him as his God, notwithstanding, Ps 3:3. III. Recollects the satisfaction he had in the gracious answers God gave to his prayers, and his experience of his goodness to him, Ps 3:4,5. IV. Triumphs over his fears (Ps 3:6) and over his enemies, whom he prays against, Ps 3:7. V. Gives God the glory and takes to himself the comfort of the divine blessing and salvation which are sure to all the people of God, Ps 3:8. Those speak best of the truths of God who speak experimentally; so David here speaks of the power and goodness of God, and of the safety and tranquility of the godly.
 
-## Distress and Confidence.
-
+## Distress and Confidence
 A psalm of David, when he fled from Absalom his son.
 
 > **¹** LORD, how are they increased that trouble me! many *are* they that rise up against me.  
@@ -24,8 +23,7 @@ II\. With a profession of his dependence upon God, Ps 3:3. An active believer, t
 
 In singing this, and praying it over, we should possess ourselves with an apprehension of the danger we are in from the multitude and malice of our spiritual enemies, who seek the ruin of our souls by driving us from our God, and we should concern ourselves in the distresses and dangers of the church of God, which is every where spoken against, every where fought against; but, in reference to both, we should encourage ourselves in our God, who owns and protects and will in due time crown his own interest both in the world and in the hearts of his people.
 
-## Confidence in God.
-
+## Confidence in God
 > **⁴** I cried unto the LORD with my voice, and he heard me out of his holy hill. Selah.  
 > **⁵** I laid me down and slept; I awaked; for the LORD sustained me.  
 > **⁶** I will not be afraid of ten thousands of people, that have set *themselves* against me round about.  

@@ -6,8 +6,7 @@ weight: 92
 
 It is a groundless opinion of some of the Jewish writers (who are usually free of their conjectures) that this psalm was penned and sung by Adam in innocency, on the first sabbath. It is inconsistent with the psalm itself, which speaks of the workers of iniquity, when as yet sin had not entered. It is probable that it was penned by David, and, being calculated for the sabbath day, I. Praise, the business of the sabbath, is here recommended, Ps 92:1-3. II. God's works, which gave occasion for the sabbath, are here celebrated as great and unsearchable in general, Ps 92:4-6. In particular, with reference to the works both of providence and redemption, the psalmist sings unto God both of mercy and judgment, the ruin of sinners and the joy of saints, three times counterchanged. 1. The wicked shall perish (Ps 92:7), but God is eternal, Ps 92:8. 2. God's enemies shall be cut off, but David shall be exalted, Ps 92:9,10. 3. David's enemies shall be confounded (Ps 92:11), but all the righteous shall be fruitful and flourishing, Ps 92:12-15. In singing this psalm we must take pleasure in giving to God the glory due to his name, and triumph in his works.
 
-## Incitements to Praise of God.
-
+## Incitements to Praise of God
 A psalm *or* song for the sabbath day.
 
 > **¹** *It is a* good *thing* to give thanks unto the LORD, and to sing praises unto thy name, O most High:  
@@ -25,8 +24,7 @@ II\. We have an example set before us in the psalmist himself, both to move us t
 
 III\. We are admonished not to neglect the works of God, by the character of those who do so, Ps 92:6. Those are fools, they are brutish, who do not know, who do not understand, how great God's works are, who will not acquaint themselves with them, nor give him the glory of them; they *regard not the work of the Lord* nor *consider the operation of his hands* (Ps 28:5); particularly, they understand not the meaning of their own prosperity (which is spoken of Ps 92:7); they take it as a pledge of their happiness, whereas it is a preparative for their ruin. If there are so many who know not the designs of Providence, nor care to know them, those who through grace are acquainted with them, and love to be so, have the more reason to be thankful.
 
-## The Triumph of the Righteous; The Happiness of the Righteous.
-
+## The Triumph of the Righteous; The Happiness of the Righteous
 > **⁷** When the wicked spring as the grass, and when all the workers of iniquity do flourish; *it is* that they shall be destroyed for ever:  
 > **⁸** But thou, LORD, *art most* high for evermore.  
 > **⁹** For, lo, thine enemies, O LORD, for, lo, thine enemies shall perish; all the workers of iniquity shall be scattered.  

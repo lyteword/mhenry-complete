@@ -6,8 +6,7 @@ weight: 98
 
 This psalm is to the same purport with the Ps 96:1-13, Ps 97:1-12; it is a prophecy of the kingdom of the Messiah, the settling of it up in the world, and the bringing of the Gentiles into it. The Chaldee entitles it a prophetic psalm. It sets forth, I. The glory of the Redeemer, Ps 98:1-3. II. The joy of the redeemed, Ps 98:4-9. If we in a right manner give to Christ this glory, and upon right grounds take to ourselves this joy, in singing this psalm, we sing it with understanding. If those who saw Christ's triumph thus, much more reason have we to do so who see these things accomplished and share in the better things provided for us, Heb 11:40.
 
-## An Invitation to Praise.
-
+## An Invitation to Praise
 A psalm.
 
 > **¹** O sing unto the LORD a new song; for he hath done marvellous things: his right hand, and his holy arm, hath gotten him the victory.  
@@ -24,8 +23,7 @@ III\. The discoveries he has made to the world of the work of redemption. What h
 
 IV\. The accomplishment of the prophecies and promises of the Old Testament, in this (Ps 98:3): *He has remembered his mercy and his truth towards the house of Israel.* God had mercy in store for the seed of Abraham, and had given them many and great assurances of the kindness he designed them in the latter days; and it was in pursuance of all those that he raised up his Son Jesus to be not only a *light to lighten the Gentiles,* but *the glory of his people Israel;* for he sent him, in the first place, to bless *them.* God is said, in sending Christ, to *perform the mercy promised to our fathers, and to remember the holy covenant,* Lu 1:72. It was in consideration of that, and not of their merit.
 
-## An Invitation to Praise.
-
+## An Invitation to Praise
 > **⁴** Make a joyful noise unto the LORD, all the earth: make a loud noise, and rejoice, and sing praise.  
 > **⁵** Sing unto the LORD with the harp; with the harp, and the voice of a psalm.  
 > **⁶** With trumpets and sound of cornet make a joyful noise before the LORD, the King.  

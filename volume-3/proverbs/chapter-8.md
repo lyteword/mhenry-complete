@@ -6,8 +6,7 @@ weight: 8
 
 The word of God is two-fold, and, in both senses, is wisdom; for a word without wisdom is of little value, and wisdom without a word is of little use. Now, I. Divine revelation is the word and wisdom of God, and that pure religion and undefiled which is built upon it; and of that Solomon here speaks, recommending it to us as faithful, and well worthy of all acceptation, Pr 8:1-21. God, by it, instructs, and governs, and blesses, the children of men. II. The redeemer is the eternal Word and wisdom, the Logos. He is the Wisdom that speaks to the children of men in the former part of the chapter. All divine revelation passes through his hand, and centres in him; but of him as the personal Wisdom, the second person in the Godhead, in the judgment of many of the ancients, Solomon here speaks, Pr 8:22-31. He concludes with a repeated charge to the children of men diligently to attend to the voice of God in his word, Pr 8:32-36.
 
-## The Invitation of Wisdom.
-
+## The Invitation of Wisdom
 > **¹** Doth not wisdom cry? and understanding put forth her voice?  
 > **²** She standeth in the top of high places, by the way in the places of the paths.  
 > **³** She crieth at the gates, at the entry of the city, at the coming in at the doors.  
@@ -28,8 +27,7 @@ II\. The things revealed are worthy to be known, well worthy of all acceptation.
 
 III\. From all this he infers that the right knowledge of those things, such as transforms us into the image of them, is to be preferred before all the wealth of this world (Pr 8:10,11): *Receive my instruction, and not silver.* Instruction must not only be heard, but received. We must bid it welcome, receive the impressions of it, and submit to the command of it; and this *rather than choice gold,* that is, 1. We must prefer religion before riches, and look upon it that, if we have the knowledge and fear of God in our hearts, we are really more happy and better provided for every condition of life than if we had ever so much silver and gold. *Wisdom is* in itself, and therefore must be in our account, *better than rubies.* It will bring us in a better price, be to us a better portion; show it forth, and it will be a better ornament than jewels and precious stones of the greatest value. Whatever we can sit down and wish for of the wealth of this world would, if we had it, be unworthy to be compared with the advantages that attend serious godliness. 2. We must be dead to the wealth of this world, that we may the more closely and earnestly apply ourselves to the business of religion. We must receive instruction as the main matter, and then be indifferent whether we receive silver or no; nay, we must not receive it as our portion and reward, as the rich man in his life-time *received his good things.*
 
-## The Advantages of Wisdom.
-
+## The Advantages of Wisdom
 > **¹²** I wisdom dwell with prudence, and find out knowledge of witty inventions.  
 > **¹³** The fear of the LORD *is* to hate evil: pride, and arrogancy, and the evil way, and the froward mouth, do I hate.  
 > **¹⁴** Counsel *is* mine, and sound wisdom: I *am* understanding; I have strength.  
@@ -61,8 +59,7 @@ IV\. It will make all those happy, truly happy, that receive and embrace it.
 
 5\. They shall be happy in the glory of God hereafter, Pr 8:21. *Therefore* Wisdom *leads in the paths of righteousness,* not only that she may keep her friends in the way of duty and obedience, but that she may *cause them to inherit substance* and may *fill their treasures,* which cannot be done with the things of this world, nor with any thing less than God and heaven. The happiness of those that love God, and devote themselves to his service, is substantial and satisfactory. (1.) It is substantial; it is substance itself. It is a happiness which will subsist of itself, and stand alone, without the accidental supports of outward conveniences. Spiritual and eternal things are the only real and substantial things. Joy in God is substantial joy, solid and well-grounded. The promises are their bonds, Christ is their surety, and both substantial. They *inherit substance;* that is, their inheritance hereafter is substantial; it is a weight of glory; it is substance, Heb 10:34. All their happiness they have as heirs; it is grounded upon their sonship. (2.) It is satisfying; it will not only fill their hands, but *fill their treasures,* not only maintain them, but make them rich. The things of this world may fill men's bellies (Ps 17:14), but not their treasures, for they cannot in them secure to themselves *goods for many years;* perhaps they may be deprived of them *this night.* But let the treasures of the soul be ever so capacious there is enough in God, and Christ, and heaven, to fill them. In Wisdom's promises believers have goods laid up, not for days and years, but for eternity; her fruit therefore *is better than gold.*
 
-## Wisdom Eternal and Divine.
-
+## Wisdom Eternal and Divine
 > **²²** The LORD possessed me in the beginning of his way, before his works of old.  
 > **²³** I was set up from everlasting, from the beginning, or ever the earth was.  
 > **²⁴** When *there were* no depths, I was brought forth; when *there were* no fountains abounding with water.  
@@ -86,8 +83,7 @@ IV\. The infinite complacency which the Father had in him, and he in the Father 
 
 V\. The gracious concern he had for mankind, Pr 8:31. Wisdom *rejoiced,* not so much in the rich products of the earth, or the treasures hid in the bowels of it, as *in the habitable parts of* it, for her *delights were with the sons of men;* not only in the creation of man is it spoken with a particular air of pleasure (Ge 1:26), *Let us make man,* but in the redemption and salvation of man. The Son of God was *ordained, before the world,* to that great work, 1Pe 1:20. A remnant of the sons of men were given him to be brought, through his grace, to his glory, and these were those in whom his delights were. His church was the habitable part of his earth, made habitable for him, *that the Lord God might dwell* even *among those* that had been rebellious; and this he rejoiced in, in the prospect of seeing his seed. Though he foresaw all the difficulties he was to meet with in his work, the services and sufferings he was to go through, yet, because it would issue in the glory of his Father and the salvation of those sons of men that were given him, he looked forward upon it with the greatest satisfaction imaginable, in which we have all the encouragement we can desire to come to him and rely upon him for all the benefits designed us by his glorious undertaking.
 
-## Wisdom's Exhortation.
-
+## Wisdom's Exhortation
 > **³²** Now therefore hearken unto me, O ye children: for blessed *are they that* keep my ways.  
 > **³³** Hear instruction, and be wise, and refuse it not.  
 > **³⁴** Blessed *is* the man that heareth me, watching daily at my gates, waiting at the posts of my doors.  

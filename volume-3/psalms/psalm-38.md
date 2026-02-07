@@ -6,8 +6,7 @@ weight: 38
 
 This is one of the penitential psalms; it is full of grief and complaint from the beginning to the end. David's sins and his afflictions are the cause of his grief and the matter of his complaints. It should seem he was now sick and in pain, which reminded him of his sins and helped to humble him for them; he was, at the same time, deserted by his friends and persecuted by his enemies; so that the psalm is calculated for the depth of distress and a complication of calamities. He complains, I. Of God's displeasure, and of his own sin which provoked God against him, Ps 38:1-5. II. Of his bodily sickness, Ps 38:6-10. III. Of the unkindness of his friends, Ps 38:11. IV. Of the injuries which his enemies did him, pleading his good conduct towards them, yet confessing his sins against God, Ps 38:12-20. Lastly, he concludes the psalm with earnest prayers to God for his gracious presence and help, Ps 38:21,22. In singing this psalm we ought to be much affected with the malignity of sin; and, if we have not such troubles as are here described, we know not how soon we may have, and therefore must sing of them by way of preparation and we know that others have them, and therefore we must sing of the by way of sympathy.
 
-## Sorrowful Complaints.
-
+## Sorrowful Complaints
 A psalm of David to bring to remembrance.
 
 > **¹** O LORD, rebuke me not in thy wrath: neither chasten me in thy hot displeasure.  
@@ -42,8 +41,7 @@ V\. In the midst of his complaints, he comforts himself with the cognizance God 
 
 In singing this, and praying it over, whatever burden lies upon our spirits, we would by faith cast it upon God, and all our care concerning it, and then be easy.
 
-## Sorrowful Complaints.
-
+## Sorrowful Complaints
 > **¹²** They also that seek after my life lay snares *for me:* and they that seek my hurt speak mischievous things, and imagine deceits all the day long.  
 > **¹³** But I, as a deaf *man,* heard not; and *I was* as a dumb man *that* openeth not his mouth.  
 > **¹⁴** Thus I was as a man that heareth not, and in whose mouth *are* no reproofs.  

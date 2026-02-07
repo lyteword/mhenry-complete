@@ -6,8 +6,7 @@ weight: 21
 
 As the foregoing psalm was a prayer for the king that God would protect and prosper him, so this is a thanksgiving for the success God had blessed him with. Those whom we have prayed for we ought to give thanks for, and particularly for kings, in whose prosperity we share. They are here taught, I. To congratulate him on his victories, and the honour he had achieved, Ps 21:1-6. II. To confide in the power of God for the completing of the ruin of the enemies of his kingdom, Ps 21:7-13. In this there is an eye to Messiah the Prince, and the glory of his kingdom; for to him divers passages in this psalm are more applicable than to David himself.
 
-## The Subject's Thanksgiving.
-
+## The Subject's Thanksgiving
 To the chief musician. A psalm of David.
 
 > **¹** The king shall joy in thy strength, O LORD; and in thy salvation how greatly shall he rejoice!  
@@ -21,8 +20,7 @@ David here speaks for himself in the first place, professing that his joy was in
 
 In singing this we should rejoice in his joy and triumph in his exaltation.
 
-## The Subject's Hope.
-
+## The Subject's Hope
 > **⁷** For the king trusteth in the LORD, and through the mercy of the most High he shall not be moved.  
 > **⁸** Thine hand shall find out all thine enemies: thy right hand shall find out those that hate thee.  
 > **⁹** Thou shalt make them as a fiery oven in the time of thine anger: the LORD shall swallow them up in his wrath, and the fire shall devour them.  

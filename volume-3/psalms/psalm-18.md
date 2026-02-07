@@ -6,8 +6,7 @@ weight: 18
 
 This psalm we met with before, in the history of David's life, 2Sa 22:1-51 That was the first edition of it; here we have it revived, altered a little, and fitted for the service of the church. It is David's thanksgiving for the many deliverances God had wrought for him; these he desired always to preserve fresh in his own memory and to diffuse and entail the knowledge of them. It is an admirable composition. The poetry is very fine, the images are bold, the expressions lofty, and every word is proper and significant; but the piety far exceeds the poetry. Holy faith, and love, and joy, and praise, and hope, are here lively, active, and upon the wing. I. He triumphs in God, Ps 18:1-3. II. He magnifies the deliverances God had wrought for him, Ps 18:4-19. III. He takes the comfort of his integrity, which God had thereby cleared up, Ps 18:20-28. IV. He gives to God the glory of all his achievements, Ps 18:29-42. V. He encourages himself with the expectation of what God would further do for him and his, Ps 18:43-50.
 
-## David's Triumphs in God; Devout Confidence.
-
+## David's Triumphs in God; Devout Confidence
 To the chief musician, *A psalm* of David, the servant of the Lord, who spake unto the Lord the words of this song in the day *that* the Lord delivered him from the hand of all his enemies.
 
 > **¹** I will love thee, O LORD, my strength.  
@@ -68,8 +67,7 @@ III\. Hence he speaks comfort to the humble ("*Thou wilt save the afflicted peop
 
 Let those that walk in darkness, and labour under many discouragements in singing these verses, encourage themselves that God himself will be a light to them.
 
-## Grateful Remembrance of Past Deliverances; Confidence in the Divine Goodness.
-
+## Grateful Remembrance of Past Deliverances; Confidence in the Divine Goodness
 > **²⁹** For by thee I have run through a troop; and by my God have I leaped over a wall.  
 > **³⁰** *As for* God, his way *is* perfect: the word of the LORD is tried: he *is* a buckler to all those that trust in him.  
 > **³¹** For who *is* God save the LORD? or who *is* a rock save our God?  

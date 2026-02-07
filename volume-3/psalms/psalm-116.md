@@ -6,8 +6,7 @@ weight: 116
 
 This is a thanksgiving psalm; it is not certain whether David penned it upon any particular occasion or upon a general review of the many gracious deliverances God had wrought for him, out of six troubles and seven, which deliverances draw from him many very lively expressions of devotion, love, and gratitude; and with similar pious affections our souls should be lifted up to God in singing it. Observe, I. The great distress and danger that the psalmist was in, which almost drove him to despair, Ps 116:3,10,11. II. The application he made to God in that distress, Ps 116:4. III. The experience he had of God's goodness to him, in answer to prayer; God heard him (Ps 116:1,2), pitied him (Ps 116:5,6), delivered him, Ps 116:8. IV His care respecting the acknowledgments he should make of the goodness of God to him, Ps 116:12. 1. He will love God, Ps 116:1. 2. He will continue to call upon him, Ps 116:2,13,17. 3. He will rest in him, Ps 116:7. 4. He will walk before him, Ps 116:9. 5. He will pay his vows of thanksgiving, in which he will own the tender regard God had to him, and this publicly, Ps 116:13-15,17-19. Lastly, He will continue God's faithful servant to his life's end, Ps 116:16. These are such breathings of a holy soul as bespeak it very happy.
 
-## Grateful Acknowledgments.
-
+## Grateful Acknowledgments
 > **¹** I love the LORD, because he hath heard my voice *and* my supplications.  
 > **²** Because he hath inclined his ear unto me, therefore will I call upon *him* as long as I live.  
 > **³** The sorrows of death compassed me, and the pains of hell gat hold upon me: I found trouble and sorrow.  
@@ -36,8 +35,7 @@ II\. A more particular narrative of God's gracious dealings with him and the goo
 
 (2.) He will live a life of devotedness to God (Ps 116:9): *I will walk before the Lord in the land of the living,* that is, in this world, as long as I continue to live in it. Note, [1.] It is our great duty to *walk before the Lord,* to do all we do as becomes us in his presence and under his eye, to approve ourselves to him as a holy God by conformity to him as our sovereign Lord, by subjection to his will, and, as a God all-sufficient, by a cheerful confidence in him. *I am the almighty God; walk before me,* Ge 17:1. *We must walk worthy of the Lord unto all well-pleasing.* [2.] The consideration of this, that we are in the land of the living, should engage and quicken us to do so. We are spared and continued in the land of the living by the power, and patience, and tender mercy of our God, and therefore must make conscience of our duty to him. The *land of the living* is a land of mercy, which we ought to be thankful for; it is a land of opportunity, which we should improve. Canaan is called the *land of the living* (Eze 26:20), and those whose lot is cast in such a valley of vision are in a special manner concerned to *set the Lord always before them.* If God has delivered our soul from death, we must walk before him. A new life must be a new life indeed.
 
-## Grateful Acknowledgments; Devout Resolutions.
-
+## Grateful Acknowledgments; Devout Resolutions
 > **¹⁰** I believed, therefore have I spoken: I was greatly afflicted:  
 > **¹¹** I said in my haste, All men *are* liars.  
 > **¹²** What shall I render unto the LORD *for* all his benefits toward me?  

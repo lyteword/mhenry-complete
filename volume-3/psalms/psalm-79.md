@@ -6,8 +6,7 @@ weight: 79
 
 This psalm, if penned with any particular event in view, is with most probability made to refer to the destruction of Jerusalem and the temple, and the woeful havoc made of the Jewish nation by the Chaldeans under Nebuchadnezzar. It is set to the same tune, as I may say, with the Lamentations of Jeremiah, and that weeping prophet borrows two verses out of it (Ps 79:6,7) and makes use of them in his prayer, Jer 10:25. Some think it was penned long before by the spirit of prophecy, prepared for the use of the church in that cloudy and dark day. Others think that it was penned then by the spirit of prayer, either by a prophet named Asaph or by some other prophet for the sons of Asaph. Whatever the particular occasion was, we have here, I. A representation of the very deplorable condition that the people of God were in at this time, Ps 79:1-5. II. A petition to God for succour and relief, that their enemies might be reckoned with (Ps 79:6,7,10,12), that their sins might be pardoned (Ps 79:8,9), and that they might be delivered, Ps 79:11. III. A plea taken from the readiness of his people to praise him, Ps 79:13. In times of the church's peace and prosperity this psalm may, in the singing of it, give us occasion to bless God that we are not thus trampled on and insulted. But it is especially seasonable in a day of treading down and perplexity, for the exciting of our desires towards God and the encouragement of our faith in him as the church's patron.
 
-## Mournful Complaints.
-
+## Mournful Complaints
 A psalm of Asaph.
 
 > **¹** O God, the heathen are come into thine inheritance; thy holy temple have they defiled; they have laid Jerusalem on heaps.  
@@ -28,8 +27,7 @@ I\. They complain here of the anger of their enemies and the outrageous fury of 
 
 II\. They wonder more at God's anger, Ps 79:5. This they discern in the anger of their neighbours, and this they complain most of: *How long, Lord, wilt thou be angry?* Shall it be *for ever?* This intimates that they desired no more than that God would be reconciled to them, that his anger might be turned away, and then the remainder of men's wrath would be restrained. Note, Those who desire God's favour as better than life cannot but dread and deprecate his wrath as worse than death.
 
-## Petitions for Succor and Relief; Petitions for Deliverance.
-
+## Petitions for Succor and Relief; Petitions for Deliverance
 > **⁶** Pour out thy wrath upon the heathen that have not known thee, and upon the kingdoms that have not called upon thy name.  
 > **⁷** For they have devoured Jacob, and laid waste his dwelling place.  
 > **⁸** O remember not against us former iniquities: let thy tender mercies speedily prevent us: for we are brought very low.  

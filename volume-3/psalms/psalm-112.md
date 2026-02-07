@@ -6,8 +6,7 @@ weight: 112
 
 This psalm is composed alphabetically, as the former is, and is (like the former) entitled "Hallelujah," though it treats of the happiness of the saints, because it redounds to the glory of God, and whatever we have the pleasure of he must have the praise of. It is a comment upon the Ps 111:10 of the foregoing psalm, and fully shows how much it is our wisdom to fear God and do his commandments. We have here, I. The character of the righteous, Ps 112:1. II. The blessedness of the righteous. 1. There is a blessing entailed upon their posterity, Ps 112:2. 2. There is a blessing conferred upon themselves. (1.) Prosperity outward and inward, Ps 112:3. (2.) Comfort, Ps 112:4. (3.) Wisdom, Ps 112:5. (4.) Stability, Ps 112:6-8. (5.) Honour, Ps 112:6,9. III. The misery of the wicked, Ps 112:10. So that good and evil are set before us, the blessing and the curse. In singing this psalm we must not only teach and admonish ourselves and one another to answer to the characters here given of the happy, but comfort and encourage ourselves and one another with the privileges and comforts here secured to the holy.
 
-## The Character of the Righteous.
-
+## The Character of the Righteous
 > **¹** Praise ye the LORD. Blessed *is* the man *that* feareth the LORD, *that* delighteth greatly in his commandments.  
 > **²** His seed shall be mighty upon earth: the generation of the upright shall be blessed.  
 > **³** Wealth and riches *shall be* in his house: and his righteousness endureth for ever.  
@@ -34,8 +33,7 @@ II\. The blessedness that is here entailed upon those that answer to these chara
 
 4\. They shall have wisdom for the management of all their concerns, Ps 112:5. He that does good with his estate shall, through the providence of God, increase it, not by miracle, but by his prudence: *He shall guide his affairs with discretion,* and his God *instructs him to discretion* and *teaches him,* Isa 28:26. It is part of the character of a good man that he will use his discretion in managing his affairs, in getting and saving, that he may have to give. It may be understood of the affairs of his charity: He *shows favour and lends;* but then it is with discretion, that his charity may not be misplaced, that he may give to proper objects what is proper to be given and in due time and proportion. And it is part of the promise to him who thus uses discretion that God will give him more. Those who most use their wisdom see most of their need of it, and *ask it of God,* who has promised to *give it liberally,* Jam 1:5. *He will guide his words with judgment* (so it is in the original); and there is nothing in which we have more occasion for wisdom than in the government of the tongue; blessed is he to whom God gives that wisdom.
 
-## The Blessedness of the Righteous; The Misery of the Wicked.
-
+## The Blessedness of the Righteous; The Misery of the Wicked
 > **⁶** Surely he shall not be moved for ever: the righteous shall be in everlasting remembrance.  
 > **⁷** He shall not be afraid of evil tidings: his heart is fixed, trusting in the LORD.  
 > **⁸** His heart *is* established, he shall not be afraid, until he see *his desire* upon his enemies.  

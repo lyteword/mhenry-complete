@@ -6,8 +6,7 @@ weight: 10
 
 The Septuagint translation joins this psalm with the ninth, and makes them but one; but the Hebrew makes it a distinct psalm, and the scope and style are certainly different. In this psalm, I. David complains of the wickedness of the wicked, describes the dreadful pitch of impiety at which they had arrived (to the great dishonour of God and the prejudice of his church and people), and notices the delay of God's appearing against them, Ps 10:1-11. II. He prays to God to appear against them for the relief of his people and comforts himself with hopes that he would do so in due time, Ps 10:12-18.
 
-## The Character of the Wicked; The Character of Persecutors.
-
+## The Character of the Wicked; The Character of Persecutors
 > **¹** Why standest thou afar off, O LORD? *why* hidest thou *thyself* in times of trouble?  
 > **²** The wicked in *his* pride doth persecute the poor: let them be taken in the devices that they have imagined.  
 > **³** For the wicked boasteth of his heart's desire, and blesseth the covetous, *whom* the LORD abhorreth.  
@@ -32,8 +31,7 @@ II\. A very great indignation against sin, the sins that made the times perilous
 
 In singing this psalm and praying it over, we should have our hearts much affected with a holy indignation at the wickedness of the oppressors, a tender compassion of the miseries of the oppressed, and a pious zeal for the glory and honour of God, with a firm belief that he will, in due time, give redress to the injured and reckon with the injurious.
 
-## Prayer against Persecutors.
-
+## Prayer against Persecutors
 > **¹²** Arise, O LORD; O God, lift up thine hand: forget not the humble.  
 > **¹³** Wherefore doth the wicked contemn God? he hath said in his heart, Thou wilt not require *it.*  
 > **¹⁴** Thou hast seen *it;* for thou beholdest mischief and spite, to requite *it* with thy hand: the poor committeth himself unto thee; thou art the helper of the fatherless.  

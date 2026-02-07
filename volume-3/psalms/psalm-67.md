@@ -6,8 +6,7 @@ weight: 67
 
 This psalm relates to the church and is calculated for the public. Here is, I. A prayer for the prosperity of the church of Israel, Ps 67:1. II. A prayer for the conversion of the Gentiles and the bringing of them into the church, Ps 67:2-5. III. A prospect of happy and glorious times when God shall do this, Ps 67:6,7. Thus was the psalmist carried out by the spirit of prophecy to foretel the glorious estate of the Christian church, in which Jews and Gentiles should unite in one flock, the beginning of which blessed work ought to be the matter of our joy and praise, and the completing of it of our prayer and hope, in singing this psalm.
 
-## Prayer for the Prosperity and Extension of the Church; Conversion of the Gentiles.
-
+## Prayer for the Prosperity and Extension of the Church; Conversion of the Gentiles
 To the chief musician on Neginoth. A psalm *or* song.
 
 > **¹** God be merciful unto us, and bless us; *and* cause his face to shine upon us; Selah.  

@@ -4,8 +4,7 @@ weight: 28
 
 # Chapter 28
 
-## Miscellaneous Maxims.
-
+## Miscellaneous Maxims
 > **¹** The wicked flee when no man pursueth: but the righteous are bold as a lion.  
 
 See here, 1. What continual frights those are subject to that go on in wicked ways. Guilt in the conscience makes men a terror to themselves, so that they are ready *to flee when none pursues;* like one that absconds for debt, who thinks every one he meets a bailiff. Though they pretend to be easy, there are secret fears which haunt them wherever they go, so that they fear where no present or imminent danger is, Ps 53:5. Those that have made God their enemy, and know it, cannot but see the whole creation at war with them, and therefore can have no true enjoyment of themselves, no confidence, no courage, but a *fearful looking for of judgment.* Sin makes men cowards.

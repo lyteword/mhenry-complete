@@ -6,8 +6,7 @@ weight: 142
 
 This psalm is a prayer, the substance of which David offered up to God when he was forced by Saul to take shelter in a cave, and which he afterwards penned in this form. Here is, I. The complaint he makes to God (Ps 142:1,2) of the subtlety, strength, and malice, of his enemies (Ps 142:3,6), and the coldness and indifference of his friends, Ps 142:4. II. The comfort he takes in God that he knew his case (Ps 142:3) and was his refuge, Ps 142:5. III. His expectation from God that he would hear and deliver him, Ps 142:6,7. IV His expectation from the righteous that they would join with him in praises, Ps 142:7. Those that are troubled in mind, body, or estate, may, in singing this psalm (if they sing it in some measure with David's spirit), both warrant his complaints and fetch in his comforts.
 
-## David's Complaints.
-
+## David's Complaints
 Maschil of David. A prayer when he was in the cave.
 
 > **¹** I cried unto the LORD with my voice; with my voice unto the LORD did I make my supplication.  
@@ -22,8 +21,7 @@ II\. What he complained of: "*In the way wherein I walked,* suspecting no danger
 
 III\. What comforted him in the midst of these complaints (Ps 142:3): "*When my spirit was overwhelmed within me,* and ready to sink under the burden of grief and fear, when I was quite at a loss and ready to despair, *then thou knewest my path,* that is, then it was a pleasure to me to think that thou knewest it. Thou knewest my sincerity, the right path which I have walked in, and that I am not such a one as my persecutors represent me. Thou knewest my condition in all the particulars of it; when my spirit was so overwhelmed that I could not distinctly show it, this comforted me, that thou knewest it, Job 23:10. Thou knewest it, that is, thou didst protect, preserve, and secure it," Ps 31:7, De 2:7.
 
-## Complaints and Petitions.
-
+## Complaints and Petitions
 > **⁴** I looked on *my* right hand, and beheld, but *there was* no man that would know me: refuge failed me; no man cared for my soul.  
 > **⁵** I cried unto thee, O LORD: I said, Thou *art* my refuge *and* my portion in the land of the living.  
 > **⁶** Attend unto my cry; for I am brought very low: deliver me from my persecutors; for they are stronger than I.  

@@ -6,8 +6,7 @@ weight: 7
 
 Solomon had given many proofs and instances of the vanity of this world and the things of it; now, in this chapter, I. He recommends to us some good means proper to be used for the redress of these grievances and the arming of ourselves against the mischief we are in danger of from them, that we may make the best of the bad, as 1. Care of our reputation, Ec 7:1. 2. Seriousness, Ec 7:2-6. 3. Calmness of spirit, Ec 7:7-10. 4. Prudence in the management of all our affairs, Ec 7:11,12. 5. Submission to the will of God in all events, accommodating ourselves to every condition, Ec 7:13-15. 6. A conscientious avoiding of all dangerous extremes, Ec 7:16-18. 7. Mildness and tenderness towards those that have been injurious to us, Ec 7:19-22. In short, the best way to save ourselves from the vexation which the vanity of the world creates us is to keep our temper and to maintain a strict government of our passions. II. He laments his own iniquity, as that which was more vexatious than any of these vanities, that mystery of iniquity, the having of many wives, by which he was drawn away from God and his duty, Ec 7:23-29.
 
-## The Value of a Good Name.
-
+## The Value of a Good Name
 > **¹** A good name *is* better than precious ointment; and the day of death than the day of one's birth.  
 > **²** *It is* better to go to the house of mourning, than to go to the house of feasting: for that *is* the end of all men; and the living will lay *it* to his heart.  
 > **³** Sorrow *is* better than laughter: for by the sadness of the countenance the heart is made better.  
@@ -31,8 +30,7 @@ IV\. That gravity and seriousness better become us, and are better for us, than 
 
 V\. That it is much better for us to have our corruptions mortified by the *rebuke of the wise* than to have them gratified by *the song of fools,* Ec 7:5. Many that would be very well pleased to hear the information of the wise, and much more to have their commendations and consolations, yet do not care for *hearing their rebukes,* that is, care not for being told of their faults, though ever so wisely; but therein they are no friends to themselves, for *reproofs of instruction are the way of life* (Pr 6:23), and, though they be not so pleasant as *the song of fools,* they are more wholesome. *To hear,* not only with patience, but with pleasure, *the rebuke of the wise,* is a sign and means of wisdom; but to be fond of *the song of fools* is a sign that the mind is vain and is the way to make it more so. And what an absurd thing is it for a man to dote so much upon such a transient pleasure as *the laughter of a fool* is, which may fitly be compared to the burning *of thorns under a pot,* which makes a great noise and a great blaze, for a little while, but is gone presently, scatters its ashes, and contributes scarcely any thing to the production of a boiling heat, for that requires a constant fire! *The laughter of a fool* is noisy and flashy, and is not an instance of true joy. *This is also vanity;* it deceives men to their destruction, for *the end of that mirth is heaviness.* Our blessed Saviour has read us our doom: *Blessed are you that weep now, for you shall laugh; woe to you that laugh now, for you shall mourn and weep,* Lu 6:21,25.
 
-## Scenes of Mourning and of Joy.
-
+## Scenes of Mourning and of Joy
 > **⁷** Surely oppression maketh a wise man mad; and a gift destroyeth the heart.  
 > **⁸** Better *is* the end of a thing than the beginning thereof: *and* the patient in spirit *is* better than the proud in spirit.  
 > **⁹** Be not hasty in thy spirit to be angry: for anger resteth in the bosom of fools.  
@@ -54,8 +52,7 @@ III\. He arms us against it with some necessary directions. If we would not be d
 
 4\. We must make the best of that which is (Ec 7:10): "Take it not for granted *that the former days were better than these,* nor enquire *what is the cause* that they were so, for therein *thou dost not enquire wisely,* since thou enquirest into the reason of the thing before thou art sure that the thing itself is true; and, besides, thou art so much a stranger to the times past, and such an incompetent judge even of the present times, that thou canst not expect a satisfactory answer to the enquiry, and therefore *thou dost not enquire wisely;* nay, the supposition is a foolish reflection upon the providence of God in the government of the world." Note, (1.) It is folly to complain of the badness of our own times when we have more reason to complain of the badness of our own hearts (if men's hearts were better, the times would mend) and when we have more reason to be thankful that they are not worse, but that even in the worst of times we enjoy many mercies, which help to make them not only tolerable, but comfortable. (2.) It is folly to cry up the goodness of former times, so as to derogate from the mercy of God to us in our own times; as if former ages had not the same things to complain of that we have, or if perhaps, in some respects, they had not, yet as if God had been unjust and unkind to us in casting our lot in an iron age, compared with the golden ages that went before us; this arises from nothing but fretfulness and discontent, and an aptness to pick quarrels with God himself. We are not to think there is any universal decay in nature, or degeneracy in morals. God has been always good, and men always bad; and if, in some respects, the times are now worse than they have been, perhaps in other respects they are better.
 
-## The Advantages of Wisdom.
-
+## The Advantages of Wisdom
 > **¹¹** Wisdom *is* good with an inheritance: and *by it there is* profit to them that see the sun.  
 > **¹²** For wisdom *is* a defence, *and* money *is* a defence: but the excellency of knowledge *is, that* wisdom giveth life to them that have it.  
 > **¹³** Consider the work of God: for who can make *that* straight, which he hath made crooked?  
@@ -93,8 +90,7 @@ II\. Some of the precepts of wisdom, that wisdom which will be of so much advant
 
 (3.) Wisdom puts us in mind of our own faults (Ec 7:22): "Be not enraged at those that speak ill of thee, or wish ill to thee, *for oftentimes,* in that case, if thou retire into thyself, thy own conscience will tell thee *that thou thyself hast cursed others,* spoken ill of them and wished ill to them, and thou art paid in thy own coin." Note, When any affront or injury is done us it is seasonable to examine our consciences whether we have not done the same, or as bad, to others; and if, upon reflection, we find we have, we must take that occasion to renew our repentance for it, must justify God, and make use of it to qualify our own resentments. If we be truly angry with ourselves, as we ought to be, for backbiting and censuring others, we shall be the less angry with others for backbiting and censuring us. We must show all meekness towards all men, for we ourselves *were sometimes foolish,* Tit 3:2,3, Mt 7:1,2, Jam 3:1,2.
 
-## The Evil of Sin.
-
+## The Evil of Sin
 > **²³** All this have I proved by wisdom: I said, I will be wise; but it *was* far from me.  
 > **²⁴** That which is far off, and exceeding deep, who can find it out?  
 > **²⁵** I applied mine heart to know, and to search, and to seek out wisdom, and the reason *of things,* and to know the wickedness of folly, even of foolishness *and* madness:  

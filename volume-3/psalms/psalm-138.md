@@ -6,8 +6,7 @@ weight: 138
 
 It does not appear, nor is it material to enquire, upon what occasion David penned this psalm; but in it, I. He looks back with thankfulness upon the experiences he had had of God's goodness to him, Ps 138:1-3. II. He looks forward with comfort, in hopes, 1. That others would go on to praise God like him, Ps 138:4,5. 2. That God would go on to do good to him, Ps 138:6-8. In singing this psalm we must in like manner devote ourselves to God's praise and glory and repose ourselves in his power and goodness.
 
-## Grateful Praise.
-
+## Grateful Praise
 *A psalm* of David.
 
 > **¹** I will praise thee with my whole heart: before the gods will I sing praise unto thee.  
@@ -22,8 +21,7 @@ II\. What he would praise God for. 1. For the fountain of his comforts—*for th
 
 III\. What influence he hoped that his praising God would have upon others, Ps 138:4,5. David was himself a king, and therefore he hoped that kings would be wrought upon by his experiences, and his example, to embrace religion; and, if kings became religious, their kingdoms would be every way better. Now, 1. This may have reference to the kings that were neighbours to David, as Hiram and others. "They shall all praise thee." When they visited David, and, after his death, when they sought the presence of Solomon (as *all the kings of the earth* are expressly said to have done, 2Ch 9:23), they readily joined in the worship of the God of Israel. 2. It may look further, to the calling of the Gentiles and the discipling of all nations by the gospel of Christ, of whom it is said that *all kings shall fall down before him,* Ps 72:11. Now it is here foretold, (1.) That *the kings of the earth shall hear the words of God.* All that came near David should hear them from him, Ps 119:46. In the latter days the preachers of the gospel should be sent into all the world. (2.) That then they shall praise God, as all those have reason to do that hear his word, and receive it in the light and love of it, Ac 13:48. (3.) That they shall *sing in the ways of the Lord,* in the ways of his providence and grace towards them; they shall rejoice in God, and give glory to him, however he is pleased to deal with them in the ways of their duty and obedience to him. Note, Those that walk in the ways of the Lord have reason to sing in those ways, to go on in them with a great deal of cheerfulness, for they are ways of pleasantness, and it becomes us to be pleasant in them; and, if we are so, *great is the glory of the Lord.* It is very much for the honour of God that kings should walk in his ways, and that all those who walk in them should sing in them, and so proclaim to all the world that he is a good Master and his work its own wages.
 
-## God's Care of His People.
-
+## God's Care of His People
 > **⁶** Though the LORD *be* high, yet hath he respect unto the lowly: but the proud he knoweth afar off.  
 > **⁷** Though I walk in the midst of trouble, thou wilt revive me: thou shalt stretch forth thine hand against the wrath of mine enemies, and thy right hand shall save me.  
 > **⁸** The LORD will perfect *that which* concerneth me: thy mercy, O LORD, *endureth* for ever: forsake not the works of thine own hands.  

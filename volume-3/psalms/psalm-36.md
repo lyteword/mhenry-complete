@@ -6,8 +6,7 @@ weight: 36
 
 It is uncertain when, and upon what occasion, David penned this psalm, probably when he was struck at either by Saul or by Absalom; for in it he complains of the malice of his enemies against him, but triumphs in the goodness of God to him. We are here led to consider, and it will do us good to consider seriously, I. The sinfulness of sin, and how mischievous it is, Ps 36:1-4. II. The goodness of God, and how gracious he is, 1. To all his creatures in general, Ps 36:5,6. 2. To his own people in a special manner, Ps 36:7-9. By this the psalmist is encouraged to pray for all the saints (Ps 36:10), for himself in particular and his own preservation (Ps 36:11), and to triumph in the certain fall of his enemies, Ps 36:12. If, in singing this psalm, our hearts be duly affected with the hatred of sin and satisfaction in God's lovingkindness, we sing it with grace and understanding.
 
-## The Character of the Wicked.
-
+## The Character of the Wicked
 To the chief Musician. A psalm of David the servant of the Lord.
 
 > **¹** The transgression of the wicked saith within my heart, *that there is* no fear of God before his eyes.  

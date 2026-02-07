@@ -6,8 +6,7 @@ weight: 19
 
 There are two excellent books which the great God has published for the instruction and edification of the children of men; this psalm treats of them both, and recommends them both to our diligent study. I. The book of the creatures, in which we may easily read the power and godhead of the Creator, Ps 19:1-6. II. The book of the scriptures, which makes known to us the will of God concerning our duty. He shows the excellency and usefulness of that book (Ps 19:7-11) and then teaches us how to improve it, Ps 19:12-14.
 
-## God's Glory Seen in the Creation.
-
+## God's Glory Seen in the Creation
 To the chief musician. A psalm of David.
 
 > **¹** The heavens declare the glory of God; and the firmament showeth his handywork.  
@@ -27,8 +26,7 @@ III\. To whom this declaration is made of the glory of God. It is made to all pa
 
 In singing Ps 19:1-6 we must give God the glory of all the comfort and benefit we have by the lights of the heaven, still looking above and beyond them to the Sun of righteousness.
 
-## The Excellency of the Scriptures.
-
+## The Excellency of the Scriptures
 > **⁷** The law of the LORD *is* perfect, converting the soul: the testimony of the LORD *is* sure, making wise the simple.  
 > **⁸** The statutes of the LORD *are* right, rejoicing the heart: the commandment of the LORD *is* pure, enlightening the eyes.  
 > **⁹** The fear of the LORD *is* clean, enduring for ever: the judgments of the LORD *are* true *and* righteous altogether.  

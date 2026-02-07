@@ -6,8 +6,7 @@ weight: 15
 
 The scope of this short but excellent psalm is to show us the way to heaven, and to convince us that, if we would be happy, we must be holy and honest. Christ, who is himself the way, and in whom we must walk as our way, has also shown us the same way that is here prescribed, Mt 19:17. "If thou wilt enter into life, keep the commandments." In this psalm, I. By the question (Ps 15:1) we are directed and excited to enquire for the way. II. By the answer to that question, in the rest of the psalm, we are directed to walk in that way, Ps 15:2-5. III. By the assurance given in the close of the psalm of the safety and happiness of those who answer these characters we are encouraged to walk in that way, Ps 15:5.
 
-## The Citizen of Zion.
-
+## The Citizen of Zion
 A psalm of David.
 
 > **¹** LORD, who shall abide in thy tabernacle? who shall dwell in thy holy hill?  

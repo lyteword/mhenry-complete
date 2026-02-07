@@ -6,8 +6,7 @@ weight: 80
 
 This psalm is much to the same purport with the foregoing. Some think it was penned upon occasion of the desolation and captivity of the ten tribes, as the foregoing psalm of the two. But many were the distresses of the Israel of God, many perhaps which are not recorded in the sacred history some whereof might give occasion for the drawing up of this psalm, which is proper to be sung in the day of Jacob's trouble, and if, in singing it, we express a true love to the church and a hearty concern for its interest, with a firm confidence in God's power to help it out of its greatest distresses, we make melody with our hearts to the Lord. The psalmist here, I. Begs for the tokens of God's presence with them and favour to them, Ps 80:1-3. II. He complains of the present rebukes they were under, Ps 80:4-7. III. He illustrates the present desolations of the church, by the comparison of a vine and a vineyard, which had flourished, but was now destroyed, Ps 80:8-16. IV. He concludes with prayer to God for the preparing of mercy for them and the preparing of them for mercy, Ps 80:17-19. This, as many psalms before and after, relates to the public interests of God's Israel, which ought to lie nearer to our hearts than any secular interest of our own.
 
-## Mournful Complaints.
-
+## Mournful Complaints
 To the chief musician upon Shoshannim, Eduth. A psalm of Asaph.
 
 > **¹** Give ear, O Shepherd of Israel, thou that leadest Joseph like a flock; thou that dwellest *between* the cherubims, shine forth.  
@@ -26,8 +25,7 @@ II\. He complains of God's displeasure against them. God was angry, and he dread
 
 III\. He prays earnestly for converting grace in order to their acceptance with God, and their salvation: *Turn us again, O God!* Ps 80:3. *Turn us again, O God of hosts!* (Ps 80:7) and then *cause thy face to shine and we shall be saved.* It is the burden of the song, for we have it again, Ps 80:19. They are conscious to themselves that they have gone astray from God and their duty, and have turned aside into sinful ways, and that it was this that provoked God to hide his face from them and to give them up into the hand of their enemies; and therefore they desire to begin their work at the right end: "Lord, turn us to thee in a way of repentance and reformation, and then, no doubt, thou wilt return to us in a way of mercy and deliverance." Observe, 1. No salvation but from God's favour: "*Cause thy face to shine,* let us have thy love and the light of thy countenance, and then we shall be saved." 2. No obtaining favour with God unless we be converted to him. We must turn again to God from the world and the flesh, and then he will cause his face to shine upon us. 3. No conversion to God but by his own grace; we must frame our doings to turn to him (Ho 5:4) and then pray earnestly for his grace, *Turn thou me, and I shall be turned,* pleading that gracious promise (Pr 1:23), *Burn you at my reproof; behold, I will pour out my Spirit unto you.* The prayer here is for a national conversion; in this method we must pray for national mercies, that what is amiss may be amended, and then our grievances would be soon redressed. National holiness would secure national happiness.
 
-## The Desolated Vine.
-
+## The Desolated Vine
 > **⁸** Thou hast brought a vine out of Egypt: thou hast cast out the heathen, and planted it.  
 > **⁹** Thou preparedst *room* before it, and didst cause it to take deep root, and it filled the land.  
 > **¹⁰** The hills were covered with the shadow of it, and the boughs thereof *were like* the goodly cedars.  

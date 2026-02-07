@@ -6,8 +6,7 @@ weight: 124
 
 David penned this psalm (we suppose) upon occasion of some great deliverance which God wrought for him and his people from some very threatening danger, which was likely to have involved them all in ruin, whether by foreign invasion, or intestine insurrection, is not certain; whatever it was he seems to have been himself much affected, and very desirous to affect others, with the goodness of God, in making a way for them to escape. To him he is careful to give all the glory, and takes none to himself as conquerors usually do. I. He here magnifies the greatness of the danger they were in, and of the ruin they were at the brink of, Ps 124:1-5. II. He gives God the glory of their escape, Ps 124:6,7,124:1,2. III. He takes encouragement thence to trust in God, Ps 124:8. In singing this psalm, besides the application of it to any particular deliverance wrought for us and our people, in our days and the days of our fathers, we may have in our thoughts the great work of our redemption by Jesus Christ, by which we were rescued from the powers of darkness.
 
-## The Security of God's People.
-
+## The Security of God's People
 A song of degrees of David.
 
 > **¹** If *it had not been* the LORD who was on our side, now may Israel say;  
@@ -22,8 +21,7 @@ I\. Of the malice of men, by which they were reduced to the very brink of ruin. 
 
 II\. Of the goodness of God, by which they were rescued from the very brink of ruin: "*The Lord was on our side;* and, *if he had not been so,* we should have been undone." 1. "God was on our side; he took our part, espoused our cause, and appeared for us. He was our helper, and a very present help, a help on our side, nigh at hand. He was with us, not only for us, but among us, and commander-in-chief of our forces." 2. That God was Jehovah; there the emphasis lies. "If it had not been Jehovah himself, a God of infinite power and perfection, that had undertaken our deliverance, our enemies would have overpowered us." Happy the people, therefore, whose God is Jehovah, a God all-sufficient. Let Israel say this, to his honour, and resolve never to forsake him.
 
-## The Security of God's People.
-
+## The Security of God's People
 > **⁶** Blessed *be* the LORD, who hath not given us *as* a prey to their teeth.  
 > **⁷** Our soul is escaped as a bird out of the snare of the fowlers: the snare is broken, and we are escaped.  
 > **⁸** Our help *is* in the name of the LORD, who made heaven and earth.  

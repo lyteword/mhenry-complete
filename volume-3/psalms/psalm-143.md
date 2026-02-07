@@ -6,8 +6,7 @@ weight: 143
 
 This psalm, as those before, is a prayer of David, and full of complaints of the great distress and danger he was in, probably when Saul persecuted him. He did not only pray in that affliction, but he prayed very much and very often, not the same over again, but new thoughts. In this psalm, I. He complains of his troubles, through the oppression of his enemies (Ps 143:3) and the weakness of his spirit under it, which was ready to sink notwithstanding the likely course he took to support himself, Ps 143:4,5. II. He prays, and prays earnestly (Ps 143:6), 1. That God would hear him, Ps 143:1-7. 2. That he would not deal with him according to his sins, Ps 143:2. 3. That he would not hide his face from him (Ps 143:7), but manifest his favour to him, Ps 143:8. 4. That he would guide and direct him in the way of his duty (Ps 143:8,10) and quicken him in it, Ps 143:11. 5. That he would deliver him out of his troubles, Ps 143:9,11. 6. That he would in due time reckon with his persecutors, Ps 143:12. We may more easily accommodate this psalm to ourselves, in the singing of it, because most of the petitions in it are for spiritual blessings (which we all need at all times), mercy and grace.
 
-## Complaints and Petitions.
-
+## Complaints and Petitions
 A psalm of David.
 
 > **¹** Hear my prayer, O LORD, give ear to my supplications: in thy faithfulness answer me, *and* in thy righteousness.  
@@ -27,8 +26,7 @@ IV\. He bemoans the oppression of his mind, occasioned by his outward troubles (
 
 V\. He applies himself to the use of proper means for the relief of his troubled spirit. He had no force to muster up against the oppression of the enemy, but, if he can keep possession of nothing else, he will do what he can to keep possession of his own soul and to preserve his inward peace. In order to this, 1. He looks back, and *remembers the days of old* (Ps 143:5), God's former appearances for his afflicted people and for him in particular. It has been often a relief to the people of God in their straits to think of the wonders which their fathers told them of, Ps 77:5,11. 2. He looks round, and takes notice of the works of God in the visible creation, and the providential government of the world: *I meditate on all thy works.* Many see them, but do not see the footsteps of God's wisdom, power, and goodness in them, and do not receive the benefit they might by them because they do not meditate upon them; they do not dwell on that copious curious subject, but soon quit it, as if they had exhausted it, when they have scarcely touched upon it. *I muse on,* or (as some read it) *I discourse of, the* operation *of thy hands,* how great, how good, it is! The more we consider the power of God the less we shall fear the face or force of man, Isa 51:12,13. 3. He looks up with earnest desires towards God and his favour (Ps 143:6): "*I stretch forth my hands unto thee,* as one begging an alms, and big with expectation to receive something great, standing ready to lay hold on it and bid it welcome. *My soul thirsteth after thee; it is to thee* (so the word is), entire for thee, intent on thee; it is *as a thirsty land,* which, being parched with excessive heat, gapes for rain; so do I need, so do I crave, the support and refreshment of divine consolations under my afflictions, and nothing else will relieve me." This is the best course we can take when our spirits are overwhelmed; and justly do those sink under their load who will not take such a ready way as this to ease themselves.
 
-## Prayers for Divine Grace.
-
+## Prayers for Divine Grace
 > **⁷** Hear me speedily, O LORD: my spirit faileth: hide not thy face from me, lest I be like unto them that go down into the pit.  
 > **⁸** Cause me to hear thy lovingkindness in the morning; for in thee do I trust: cause me to know the way wherein I should walk; for I lift up my soul unto thee.  
 > **⁹** Deliver me, O LORD, from mine enemies: I flee unto thee to hide me.  

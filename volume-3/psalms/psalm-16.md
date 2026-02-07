@@ -6,8 +6,7 @@ weight: 16
 
 This psalm has something of David in it, but much more of Christ. It begins with such expressions of devotion as may be applied to Christ; but concludes with such confidence of a resurrection (and so timely a one as to prevent corruption) as must be applied to Christ, to him only, and cannot be understood of David, as both St. Peter and St. Paul have observed, Ac 2:24,13:36. For David died, and was buried, and saw corruption. I. David speaks of himself as a member of Christ, and so he speaks the language of all good Christians, professing his confidence in God (Ps 16:1), his consent to him (Ps 16:2), his affection to the people of God (Ps 16:3), his adherence to the true worship of God (Ps 16:4), and his entire complacency and satisfaction in God and the interest he had in him, Ps 16:5-7. II. He speaks of himself as a type of Christ, and so he speaks the language of Christ himself, to whom all the rest of the psalm is expressly and at large applied (Ac 2:25-28, etc.). David speaks concerning him (not concerning himself), "I foresaw the Lord always before my face," etc. And this he spoke, being a prophet, Ac 2:30,31. He spoke, 1. Of the special presence of God with the Redeemer in his services and sufferings, Ps 16:8. 2. Of the prospect which the Redeemer had of his own resurrection and the glory that should follow, which carried him cheerfully through his undertaking, Ps 16:9-11.
 
-## Believing Confidence; Consecration to God.
-
+## Believing Confidence; Consecration to God
 Michtam of David.
 
 > **¹** Preserve me, O God: for in thee do I put my trust.  
@@ -42,8 +41,7 @@ V\. He repeats the solemn choice he had made of God for his portion and happines
 
 All this may be applied to Christ, who made the Lord his portion and was pleased with that portion, made his Father's glory his highest end and made it his meat and drink to seek that and to do his will, and delighted to prosecute his undertaking, pursuant to his Father's counsel, depending upon him to maintain his lot and to carry him through his undertaking. We may also apply it to ourselves in singing it, renewing our choice of God as ours, with a holy complacency and satisfaction.
 
-## Prophecy Relating to the Messiah; Sufferings and Consequent Glory of Christ.
-
+## Prophecy Relating to the Messiah; Sufferings and Consequent Glory of Christ
 > **⁸** I have set the LORD always before me: because *he is* at my right hand, I shall not be moved.  
 > **⁹** Therefore my heart is glad, and my glory rejoiceth: my flesh also shall rest in hope.  
 > **¹⁰** For thou wilt not leave my soul in hell; neither wilt thou suffer thine Holy One to see corruption.  

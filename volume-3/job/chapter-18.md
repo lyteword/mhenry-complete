@@ -6,7 +6,7 @@ weight: 18
 
 In this chapter Bildad makes a second assault upon Job. In his first discourse (Job 8:1-22) he had given him encouragement to hope that all should yet be well with him. But here there is not a word of that; he has grown more peevish, and is so far from being convinced by Job's reasonings that he is but more exasperated. I. He sharply reproves Job as haughty and passionate, and obstinate in his opinion, Job 18:1-4. II. He enlarges upon the doctrine he had before maintained, concerning the miser of wicked people and the ruin that attends them, Job 18:5-21. In this he seems, all along, to have an eye to Job's complaints of the miserable condition he was in, that he was in the dark, bewildered, ensnared, terrified, and hastening out of the world. "This," says Bildad, "is the condition of a wicked man; and therefore thou art one."
 
-## Second Address of Eliphaz. (b. c. 1520.)
+## Second Address of Eliphaz (1520 BC)
 
 > **¹** Then answered Bildad the Shuhite, and said,  
 > **²** How long *will it be ere* ye make an end of words? mark, and afterwards we will speak.  
@@ -25,7 +25,7 @@ IV\. With outrageous passion: *He teareth himself in his anger,* Job 18:4. Herei
 
 V\. With a proud and arrogant expectation to give law even to Providence itself: "*Shall the earth be forsaken for thee?* Surely not; there is no reason for that, that the course of nature should be changed and the settled rules of government violated to gratify the humour of one man. Job, dost thou think the world cannot stand without thee; but that, if thou art ruined, all the world is ruined and forsaken with thee?" Some make it a reproof of Job's justification of himself, falsely insinuating that either Job was a wicked man or we must deny a Providence and suppose that God has forsaken the earth and the rock of ages is removed. It is rather a just reproof of his passionate complaints. When we quarrel with the events of Providence we forget that, whatever befals us, it is, 1. According to the eternal purpose and counsel of God. 2. According to the written word. Thus it is written that in the world we must have tribulation, that, since we sin daily, we must expect to smart for it; and, 3. According to the usual way and custom, the track of Providence, nothing but what is common to men; and to expect that God's counsels should change, his method alter, and his word fail, to please us, is as absurd and unreasonable as to think *the earth should be forsaken for us and the rock removed out of its place.*
 
-## Miserable Condition of the Wicked. (b. c. 1520.)
+## Miserable Condition of the Wicked (1520 BC)
 
 > **⁵** Yea, the light of the wicked shall be put out, and the spark of his fire shall not shine.  
 > **⁶** The light shall be dark in his tabernacle, and his candle shall be put out with him.  

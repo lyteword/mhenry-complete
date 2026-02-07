@@ -6,7 +6,7 @@ weight: 3
 
 "You have heard of the patience of Job," says the apostle, Jam 5:11. So we have, and of his impatience too. We wondered that a man should be so patient as he was (Job 1:1-2:13), but we wonder also that a good man should be so impatient as he is in this chapter, where we find him cursing his day, and, in passion, I. Complaining that he was born, Job 3:1-10. II. Complaining that he did not die as soon as he was born, Job 3:11-19. III. Complaining that his life was now continued when he was in misery, Job 3:20-26. In this it must be owned that Job sinned with his lips, and it is written, not for our imitation, but our admonition, that he who thinks he stands may take heed lest he fall.
 
-## Job Curses His Day. (b. c. 1520.)
+## Job Curses His Day (1520 BC)
 
 > **¹** After this opened Job his mouth, and cursed his day.  
 > **²** And Job spake, and said,  
@@ -37,7 +37,7 @@ II\. Yet it was not so bad as Satan promised himself. Job cursed his day, but he
 
 2\. But what is the ground of Job's quarrel with the day and night of his birth? It is *because it shut not up the doors of his mother's womb,* Job 3:10. See the folly and madness of a passionate discontent, and how absurdly and extravagantly it talks when the reins are laid on the neck of it. Is this Job, who was so much admired for his wisdom that *unto him men gave ear, and kept silence at his counsel,* and *after his words they spoke not again?* Job 29:21,22. Surely his wisdom failed him, (1.) When he took so much pains to express his desire that he had never been born, which, at the best was a vain wish, for it is impossible to make that which has been not to have been. (2.) When he was so liberal of his curses upon a day and a night that could not be hurt, or made any the worse for his curses. (3.) When he wished a thing so very barbarous to his own mother as that she had not brought him forth when her full time had come, which must inevitably have been her death, and a miserable death. (4.) When he despised the goodness of God to him in giving him a being (such a being, so noble and excellent a life, such a life, so far above that of any other creature in this lower world), and undervalued the gift, as not worth the acceptance, only because *transit cum onere—it was clogged with a proviso of trouble,* which now at length came upon him, after many years' enjoyment of its pleasures. What a foolish thing it was to wish that his eyes had never seen the light, that so they might not have seen sorrow, which yet he might hope to see through, and beyond which he might see joy! Did Job believe and hope that he should *in his flesh see God at the latter day* (Job 19:26), and yet would he wish he had never had a being capable of such a bliss, only because, for the present, he had sorrow in the flesh? God by his grace arm us against this foolish and hurtful lust of impatience.
 
-## Job's Complaint of Life. (b. c. 1520.)
+## Job's Complaint of Life (1520 BC)
 
 > **¹¹** Why died I not from the womb? *why* did I *not* give up the ghost when I came out of the belly?  
 > **¹²** Why did the knees prevent me? or why the breasts that I should suck?  

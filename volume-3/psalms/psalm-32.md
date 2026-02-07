@@ -6,8 +6,7 @@ weight: 32
 
 This psalm, though it speaks not of Christ, as many of the psalms we have hitherto met with have done, has yet a great deal of gospel in it. The apostle tells us that David, in this psalm, describes "the blessedness of the man unto whom God imputes righteousness without words," Ro 4:6. We have here a summary, I. Of gospel grace in the pardon of sin (Ps 32:1,2), in divine protection (Ps 32:7), and divine guidance, Ps 32:8. II. Of gospel duty. To confess sin (Ps 32:3-5), to pray (Ps 32:6), to govern ourselves well (Ps 32:9,10), and to rejoice in God, Ps 32:11. The way to obtain these privileges is to make conscience of these duties, which we ought to think of—of the former for our comfort, of the latter for our quickening, when we sing this psalm. Grotius thinks it was designed to be sung on the day of atonement.
 
-## Who Are Blessed.
-
+## Who Are Blessed
 A psalm of David, Maschil.
 
 > **¹** Blessed *is he whose* transgression *is* forgiven, *whose* sin *is* covered.  
@@ -33,8 +32,7 @@ VI\. Concerning God's readiness to pardon sin to those who truly repent of it: "
 
 VII\. Concerning the good use that we are to make of the experience David had had of God's readiness to forgive his sins (Ps 32:6): *For this shall every one that is godly pray unto thee.* Note, 1. All godly people are praying people. As soon as ever Paul was converted, *Behold, he prays,* Ac 9:11. You may as soon find a living man without breath as a living Christian without prayer. 2. The instructions given us concerning the happiness of those whose sins are pardoned, and the easiness of obtaining the pardon, should engage and encourage us to pray, and particularly to pray, *God be merciful to us sinners.* For this shall every one that is well inclined be earnest with God in prayer, and *come boldly to the throne of grace,* with hopes to *obtain mercy,* Heb 4:16. 3. Those that would speed in prayer must seek the Lord in *a time when he will be found.* When, by his providence, he calls them to seek him, and by his Spirit stirs them up to seek him, they must *go speedily to seek the Lord* (Zec 8:21) and lose no time, lest death cut them off, and then it will be too late to seek him, Isa 55:6. *Behold, now is the accepted time,* 2Co 6:2,4. Those that are sincere and abundant in prayer will find the benefit of it when they are in trouble: *Surely in the floods of great waters,* which are very threatening, *they shall not come nigh them,* to terrify them, or create them any uneasiness, much less shall they overwhelm them. Those that have God *nigh unto them in all that which they call upon him for,* as all upright, penitent, praying people have, are so guarded, so advanced, that no waters—no, not great waters—no, not floods of them, can come nigh them, to hurt them. As the temptations of the *wicked one touch them not* (1Jo 5:18), so neither do the troubles of this evil world; these fiery darts of both kinds, drop short of them.
 
-## Devout Confidence.
-
+## Devout Confidence
 > **⁷** Thou *art* my hiding place; thou shalt preserve me from trouble; thou shalt compass me about with songs of deliverance. Selah.  
 > **⁸** I will instruct thee and teach thee in the way which thou shalt go: I will guide thee with mine eye.  
 > **⁹** Be ye not as the horse, *or* as the mule, *which* have no understanding: whose mouth must be held in with bit and bridle, lest they come near unto thee.  

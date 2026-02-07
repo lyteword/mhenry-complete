@@ -6,8 +6,7 @@ weight: 51
 
 Though David penned this psalm upon a very particular occasion, yet, it is of as general use as any of David's psalms; it is the most eminent of the penitential psalms, and most expressive of the cares and desires of a repenting sinner. It is a pity indeed that in our devout addresses to God we should have any thing else to do than to praise God, for that is the work of heaven; but we make other work for ourselves by our own sins and follies: we must come to the throne of grace in the posture of penitents, to confess our sins and sue for the grace of God; and, if therein we would take with us words, we can nowhere find any more apposite than in this psalm, which is the record of David's repentance for his sin in the matter of Uriah, which was the greatest blemish upon his character: all the rest of his faults were nothing to this; it is said of him (1Ki 15:5), That "he turned not aside from the commandment of the Lord all the days of his life, save only in the matter of Uriah the Hittite." In this psalm, I. He confesses his sin, Ps 51:3-6. II. He prays earnestly for the pardon of his sin, Ps 51:1,2,7,9. III. For peace of conscience, Ps 51:8,12. IV. For grace to go and sin no more, Ps 51:10,11,14. V. For liberty of access to God, Ps 51:15. IV. He promises to do what he could for the good of the souls of others (Ps 51:13) and for the glory of God, Ps 51:16,17,19. And, lastly, concludes with a prayer for Zion and Jerusalem, Ps 51:18. Those whose consciences charge them with any gross sin should, with a believing regard to Jesus Christ, the Mediator, again and again pray over this psalm; nay, though we have not been guilty of adultery and murder, or any the like enormous crime, yet in singing it, and praying over it, we may very sensibly apply it all to ourselves, which if we do with suitable affections we shall, through Christ, find mercy to pardon and grace for seasonable help.
 
-## Penitential Petitions.
-
+## Penitential Petitions
 To the chief musician. A psalm of David, when Nathan the prophet came unto him, after he had gone in to Bath-sheba.
 
 > **¹** Have mercy upon me, O God, according to thy lovingkindness: according unto the multitude of thy tender mercies blot out my transgressions.  
@@ -39,8 +38,7 @@ II\. David's penitential confessions, Ps 51:3-5.
 
 III\. David's acknowledgment of the grace of God (Ps 51:6), both his good-will towards us ("*thou desirest truth in the inward parts,* thou wouldst have us all honest and sincere, and true to our profession") and his good work in us—"*In the hidden part thou hast made,*" or shalt make, "*me to know wisdom.*" Note, 1. Truth and wisdom will go very far towards making a man a good man. A clear head and a sound heart (prudence and sincerity) bespeak the man of God perfect. 2. What God requires of us he himself works in us, and he works it in the regular way, enlightening the mind, and so gaining the will. But how does this come in here? (1.) God is hereby justified and cleared: "Lord, thou was not the author of my sin; there is no blame to be laid upon thee; but I alone must bear it; for thou has many a time admonished me to be sincere, and hast made me to know that which, if I had duly considered it, would have prevented my falling into this sin; had I improved the grace thou hast given me, I should have kept my integrity." (2.) The sin is hereby aggravated: "Lord, thou desirest truth; but where was it when I dissembled with Uriah? *Thou hast made me to know wisdom;* but I have not lived up to what I have known." (3.) He is hereby encouraged, in his repentance, to hope that God would graciously accept him; for, [1.] God had made him sincere in his resolutions never to return to folly again: *Thou desirest truth in the inward part;* this is that which God has an eye to in a returning sinner, that *in his spirit there be no guile,* Ps 32:2. David was conscious to himself of the uprightness of his heart towards God in his repentance, and therefore doubted not but God would accept him. [2.] He hoped that God would enable him to make good his resolutions, that in the hidden part, in the new man, which is called the *hidden man of the heart* (1Pe 3:4), he would make him to know wisdom, so as to discern and avoid the designs of the tempter another time. Some read it as a prayer: "Lord, in this instance, I have done foolishly; for the future make me to know wisdom." Where there is truth God will give wisdom; those that sincerely endeavour to do their duty shall be taught their duty.
 
-## Penitential Petitions.
-
+## Penitential Petitions
 > **⁷** Purge me with hyssop, and I shall be clean: wash me, and I shall be whiter than snow.  
 > **⁸** Make me to hear joy and gladness; *that* the bones *which* thou hast broken may rejoice.  
 > **⁹** Hide thy face from my sins, and blot out all mine iniquities.  
@@ -69,8 +67,7 @@ II\. See what David here promises, Ps 51:13. Observe,
 
 2\. What good effect he promises himself from his doing this: "*Sinners shall be converted unto thee,* and shall neither persist in their wanderings from thee, nor despair of finding mercy in their returns to thee." The great thing to be aimed at in teaching transgressors is their conversion to God; that is a happy point gained, and happy are those that are instrumental to contribute towards it, Jam 5:20.
 
-## Penitential Petitions.
-
+## Penitential Petitions
 > **¹⁴** Deliver me from bloodguiltiness, O God, thou God of my salvation: *and* my tongue shall sing aloud of thy righteousness.  
 > **¹⁵** O Lord, open thou my lips; and my mouth shall show forth thy praise.  
 > **¹⁶** For thou desirest not sacrifice; else would I give *it:* thou delightest not in burnt offering.  

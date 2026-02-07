@@ -6,8 +6,7 @@ weight: 62
 
 This psalm has nothing in it directly either of prayer or praise, nor does it appear upon what occasion it was penned, nor whether upon any particular occasion, whether mournful or joyful. But in it, I. David with a great deal of pleasure professes his own confidence in God and dependence upon him, and encourages himself to continue waiting on him, Ps 62:1-7. II. With a great deal of earnestness he excites and encourages others to trust in God likewise, and not in any creature, Ps 62:8-12. In singing it we should stir up ourselves to wait on God.
 
-## Waiting upon God; Confidence in God.
-
+## Waiting upon God; Confidence in God
 To the chief musician, to Jeduthun. A psalm of David.
 
 > **¹** Truly my soul waiteth upon God: from him *cometh* my salvation.  
@@ -32,8 +31,7 @@ III\. The improvement he makes of his confidence in God.
 
 3\. He is himself encouraged to continue waiting upon God (Ps 62:5-7): *My soul, wait thou only upon God.* Note, The good we do we should stir up ourselves to continue doing, and to do yet more and more, as those that have, through grace, experienced the comfort and benefit of it. We have found it good to wait upon God, and therefore should charge our souls, and even charm them, into such a constant dependence upon him as may make us always easy. He had said (Ps 62:1), *From him cometh my salvation;* he says (Ps 62:5), *My expectation is from him.* His salvation was the principal matter of his expectation; let him have that from God, and he expects no more. His salvation being from God, all his other expectations are from him. "If God will save my soul, as to every thing else let him do what he pleases with me, and I will acquiesce in his disposals, knowing they shall *all turn to my salvation,*" Php 1:19. He repeats (Ps 62:6) what he had said concerning God (Ps 62:2), as one that was not only assured of it, but greatly pleased with it, and that dwelt much upon it in his thoughts: *He only is my rock and my salvation; he is my defence,* I know he is; but there he adds, *I shall not be greatly moved,* here, *I shall not be moved at all.* Note, The more faith is acted the more active it is. *Crescit eundo—It grows by being exercised.* The more we meditate upon God's attributes and promises, and our own experience, the more ground we get of our fears, which, like Haman, when they begin to fall, shall fall before us, and we shall be *kept in perfect peace,* Isa 26:3. And, as David's faith in God advances to an unshaken stayedness, so his joy in God improves itself into a holy triumph (Ps 62:7): *In God is my salvation and my glory.* Where our salvation is there our glory is; for what is our salvation but the glory to be revealed, the eternal weight of glory? And there our glorying must be. In God let us boast all the day long. "The *rock of my strength* (that is, my strong rock, on which I build my hopes and stay myself) *and my refuge,* to which I flee for shelter when I am pursued, *is in God,* and in him only. I have no other to flee to, no other to trust to; the more I think of it the better satisfied I am in the choice I have made." Thus does he *delight himself in the Lord, and then ride upon the high places of the earth,* Isa 58:14.
 
-## An Exhortation to Trust in God.
-
+## An Exhortation to Trust in God
 > **⁸** Trust in him at all times; *ye* people, pour out your heart before him: God *is* a refuge for us. Selah.  
 > **⁹** Surely men of low degree *are* vanity, *and* men of high degree *are* a lie: to be laid in the balance, they *are* altogether *lighter* than vanity.  
 > **¹⁰** Trust not in oppression, and become not vain in robbery: if riches increase, set not your heart *upon them.*  

@@ -6,8 +6,7 @@ weight: 8
 
 This psalm is a solemn meditation on, and admiration of, the glory and greatness of God, of which we are all concerned to think highly and honourably. It begins and ends with the same acknowledgment of the transcendent excellency of God's name. It is proposed for proof (Ps 8:1) that God's name is excellent in all the earth, and then it is repeated as proved (with a "quod erat demonstrandum"—which was to be demonstrated) in the Ps 8:9. For the proof of God's glory the psalmist gives instances of his goodness to man; for God's goodness is his glory. God is to be glorified, I. For making known himself and his great name to us, Ps 8:1. II. For making use of the weakest of the children of men, by them to serve his own purposes, Ps 8:2. III. For making even the heavenly bodies useful to man, Ps 8:3,4. IV. For making him to have dominion over the creatures in this lower world, and thereby placing him but little lower then the angels, Ps 8:5-8. This psalm is, in the New Testament, applied to Christ and the work of our redemption which he wrought out; the honour given by the children of men to him (Ps 8:2, Mt 21:16) and the honour put upon the children of men by him, both in his humiliation, when he was made a little lower then the angels, and in his exaltation, when he was crowned with glory and honour. Compare Ps 8:5,6, Heb 2:6-8, 1Co 15:27. When we are observing the glory of God in the kingdom of nature and providence we should be led by that, and through that, to the contemplation of his glory in the kingdom of grace.
 
-## Glory of God in His Works.
-
+## Glory of God in His Works
 To the chief musician upon Gittith. A psalm of David.
 
 > **¹** O LORD our Lord, how excellent *is* thy name in all the earth! who hast set thy glory above the heavens.  
@@ -21,8 +20,7 @@ II\. How powerfully he proclaims it by the weakest of his creatures (Ps 8:2): *O
 
 In singing this let us give God the glory of his great name, and of the great things he has done by the power of his gospel, in the chariot of which the exalted Redeemer rides forth conquering and to conquer, and ought to be attended, not only with our praises, but with our best wishes. Praise is perfected (that is, God is in the highest degree glorified) when strength is ordained out of the mouth of babes and sucklings.
 
-## Condescension of God.
-
+## Condescension of God
 > **³** When I consider thy heavens, the work of thy fingers, the moon and the stars, which thou hast ordained;  
 > **⁴** What is man, that thou art mindful of him? and the son of man, that thou visitest him?  
 > **⁵** For thou hast made him a little lower than the angels, and hast crowned him with glory and honour.  

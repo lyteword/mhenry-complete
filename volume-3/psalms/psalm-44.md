@@ -6,8 +6,7 @@ weight: 44
 
 We are not told either who was the penmen of this psalm or when and upon what occasion it was penned, upon a melancholy occasion, we are sure, not so much to the penman himself (then we could have found occasions enough for it in the history of David and his afflictions), but to the church of God in general; and therefore, if we suppose it penned by David, yet we must attribute it purely to the Spirit of prophecy, and must conclude that the Spirit (whatever he himself had) had in view the captivity of Babylon, or the sufferings of the Jewish church under Antiochus, or rather the afflicted state of the Christian church in its early days (to which Ps 44:22 is applied by the apostle, Ro 8:36), and indeed in all its days on earth, for it is its determined lot that it must enter into the kingdom of heaven through many tribulations. And, if we have any gospel-psalms pointing at the privileges and comforts of Christians, why should we not have one pointing at their trials and exercises? It is a psalm calculated for a day of fasting and humiliation upon occasion of some public calamity, either pressing or threatening. In it the church is taught, I. To own with thankfulness, to the glory of God, the great things God has done for their fathers, Ps 44:1-8. II. To exhibit a memorial of their present calamitous estate, Ps 44:9-16. III. To file a protestation of their integrity and adherence to God notwithstanding, Ps 44:17-22. IV. To lodge a petition at the throne of grace for succour and relief, Ps 44:22-26. In singing this psalm we ought to give God the praise of what he has formerly done for his people, to represent our own grievances, or sympathize with those parts of the church that are in distress, to engage ourselves, whatever happens, to cleave to God and duty, and then cheerfully to wait the event.
 
-## Grateful Acknowledgment of Past Mercies; Consecration to God.
-
+## Grateful Acknowledgment of Past Mercies; Consecration to God
 To the chief musician for the sons of Korah, Maschil.
 
 > **¹** We have heard with our ears, O God, our fathers have told us, *what* work thou didst in their days, in the times of old.  
@@ -43,8 +42,7 @@ II\. The good use they make of this record, and had formerly made of it, in cons
 
 4\. They had made him their joy and praise (Ps 44:8): "*In God we have boasted;* in him we do and will boast, every day, and all the day long." When their enemies boasted of their strength and successes, as Sennacherib and Rabshakeh hectored Hezekiah, they owned they had nothing to boast of, in answer thereunto, but their relation to God and their interest in him; and, if he were for them, they could set all the world at defiance. *Let him that glories glory in the Lord,* and let that for ever exclude all other boasting. Let those that trust in God make their boast in him, for they know whom they have trusted; let them *boast in him all the day long,* for it is a subject that can never be exhausted. But let them withal *praise his name for ever;* if they have the comfort of his name, let them give unto him the glory due to it.
 
-## Afflicted Condition of Israel.
-
+## Afflicted Condition of Israel
 > **⁹** But thou hast cast off, and put us to shame; and goest not forth with our armies.  
 > **¹⁰** Thou makest us to turn back from the enemy: and they which hate us spoil for themselves.  
 > **¹¹** Thou hast given us like sheep *appointed* for meat; and hast scattered us among the heathen.  
@@ -64,8 +62,7 @@ III\. That they were doomed to the sword and to captivity (Ps 44:11): "*Thou has
 
 IV\. That they were loaded with contempt, and all possible ignominy was put upon them. In this also they acknowledge God: "*Thou makest us a reproach;* thou bringest those calamities upon us which occasion the reproach, and thou permittest their virulent tongues to smite us." They complain, 1. That they were ridiculed and bantered, and were looked upon as the most contemptible people under the sun; their troubles were turned to their reproach, and upon the account of them they were derided. 2. That their neighbours, those about them, from whom they could not withdraw, were most abusive to them, Ps 44:13. 3. That the heathen, the people that were strangers to the commonwealth of Israel and aliens to the covenants of promise, made them a by-word, and shook the head at them, as triumphing in their fall, Ps 44:14. 4. That the reproach was constant and incessant (Ps 44:15): *My confusion is continually before me.* The church in general, the psalmist in particular, were continually teased and vexed with the insults of the enemy. Concerning those that are going down every one cries, "Down with them." 5. That it was very grievous, and in a manner overwhelmed him: *The shame of my face has covered me.* He blushed for sin, or rather for the dishonour done to God, and then it was a holy blushing. 6. That it reflected upon God himself; the reproach which the enemy and the avenger cast upon them was downright blasphemy against God, Ps 44:16, and 2Ki 19:3. There was therefore strong reason to believe that God would appear for them. As there is no trouble more grievous to a generous and ingenuous mind than reproach and calumny, so there is none more grievous to a holy gracious soul than blasphemy and dishonour done to God.
 
-## Israel's Appeal to God.
-
+## Israel's Appeal to God
 > **¹⁷** All this is come upon us; yet have we not forgotten thee, neither have we dealt falsely in thy covenant.  
 > **¹⁸** Our heart is not turned back, neither have our steps declined from thy way;  
 > **¹⁹** Though thou hast sore broken us in the place of dragons, and covered us with the shadow of death.  

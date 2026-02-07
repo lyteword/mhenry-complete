@@ -6,8 +6,7 @@ weight: 114
 
 The deliverance of Israel out of Egypt gave birth to their church and nation, which were then founded, then formed; that work of wonder ought therefore to be had in everlasting remembrance. God gloried in it, in the preface to the ten commandments, and Ho 11:1, "Out of Egypt have I called my son." In this psalm it is celebrated in lively strains of praise; it was fitly therefore made a part of the great Hallelujah, or song of praise, which the Jews were wont to sing at the close of the passover-supper. It must never be forgotten, I. That they were brought out of slavery, Ps 114:1. II. That God set up his tabernacle among them, Ps 114:2. III. That the sea and Jordan were divided before them, Ps 114:3,5. IV. That the earth shook at the giving of the law, when God came down on Mount Sinai, Ps 114:4,6,7. V. That God gave them water out of the rock, Ps 114:8. In singing this psalm we must acknowledge God's power and goodness in what he did for Israel, applying it to the much greater work of wonder, our redemption by Christ, and encouraging ourselves and others to trust in God in the greatest straits.
 
-## The Deliverance of Israel Celebrated.
-
+## The Deliverance of Israel Celebrated
 > **¹** When Israel went out of Egypt, the house of Jacob from a people of strange language;  
 > **²** Judah was his sanctuary, *and* Israel his dominion.  
 > **³** The sea saw *it,* and fled: Jordan was driven back.  

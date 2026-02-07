@@ -6,7 +6,7 @@ weight: 25
 
 Bildad here makes a very short reply to Job's last discourse, as one that began to be tired of the cause. He drops the main question concerning the prosperity of wicked men, as being unable to answer the proofs Job had produced in the foregoing chapter: but, because he thought Job had made too bold with the divine majesty in his appeals to the divine tribunal (Job 23:1-17), he in a few words shows the infinite distance there is between God and man, teaching us, I. To think highly and honourably of God, Job 25:2,3,5. II. To think meanly of ourselves, Job 25:4,6. These, however misapplied to Job, are two good lessons for us all to learn.
 
-## God Exalted and Man Abased. (b. c. 1520.)
+## God Exalted and Man Abased (1520 BC)
 
 > **¹** Then answered Bildad the Shuhite, and said,  
 > **²** Dominion and fear *are* with him, he maketh peace in his high places.  

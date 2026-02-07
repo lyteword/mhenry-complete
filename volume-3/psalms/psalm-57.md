@@ -6,8 +6,7 @@ weight: 57
 
 This psalm is very much like that which goes next before it; it was penned upon a like occasion, when David was both in danger of trouble and in temptation to sin; it begins as that did, "Be merciful to me;" the method also is the same. I. He begins with prayer and complaint, yet not without some assurance of speeding in his request, Ps 57:1-6. II. He concludes with joy and praise, Ps 57:7-11. So that hence we may take direction and encouragement, both in our supplications and in our thanksgivings, and may offer both to God, in singing this psalm.
 
-## Prayer in Affliction.
-
+## Prayer in Affliction
 To the chief musician, Al-taschith, Michtam of David, when he fled from Saul in the cave.
 
 > **¹** Be merciful unto me, O God, be merciful unto me: for my soul trusteth in thee: yea, in the shadow of thy wings will I make my refuge, until *these* calamities be overpast.  
@@ -31,8 +30,7 @@ II\. He represents the power and malice of his enemies (Ps 57:4): *My soul is am
 
 III\. He prays to God to glorify himself and his own great name (Ps 57:5): "Whatever becomes of me and my interest, *be thou exalted, O God! above the heavens,* be thou praised by the holy angels, those glorious inhabitants of the upper world; *and let thy glory be above* or over *all the earth;* let all the inhabitants of this earth be brought to know and praise thee." Thus God's glory should lie nearer our hearts, and we should be more concerned for it, than for any particular interests of our own. When David was in the greatest distress and disgrace he did not pray, *Lord, exalt me,* but, *Lord, exalt thy own name.* Thus the Son of David, when his soul was troubled, and he prayed, *Father, save me from this hour,* immediately withdrew that petition, and presented this in the room of it, *For this cause came I to this hour; Father, glorify thy name,* Joh 12:27,28. Or it may be taken as a plea to enforce his petition for deliverance: "Lord, *send from heaven to save me,* and thereby thou wilt glorify thyself as the God both of heaven and earth." Our best encouragement in prayer is taken from the glory of God, and to that therefore, more than our own comfort, we should have an eye in all our petitions for particular mercies; for this is made the first petition in the Lord's prayer, as that which regulates and directs all the rest, *Father in heaven, hallowed be thy name.*
 
-## Prayer Turned to Praise.
-
+## Prayer Turned to Praise
 > **⁷** My heart is fixed, O God, my heart is fixed: I will sing and give praise.  
 > **⁸** Awake up, my glory; awake, psaltery and harp: I *myself* will awake early.  
 > **⁹** I will praise thee, O Lord, among the people: I will sing unto thee among the nations.  

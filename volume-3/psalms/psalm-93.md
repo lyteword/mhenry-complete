@@ -6,8 +6,7 @@ weight: 93
 
 This short psalm sets forth the honour of the kingdom of God among men, to his glory, the terror of his enemies, and the comfort of all his loving subjects. It relates both to the kingdom of his providence, by which he upholds and governs the world, and especially to the kingdom of his grace, by which he secures the church, sanctifies and preserves it. The administration of both these kingdoms is put into the hands of the Messiah, and to him, doubtless, the prophet here hears witness, and to his kingdom, speaking of it as present, because sure; and because, as the eternal Word, even before his incarnation he was Lord of all. Concerning God's kingdom glorious things are here spoken. I. Have other kings their royal robes? So has he, Ps 93:1. II. Have they their thrones? So has he, Ps 93:2. III. Have they their enemies whom they subdue and triumph over? So has he, Ps 93:3,4. IV. Is it their honour to be faithful and holy? So it is his, Ps 93:5. In singing this psalm we forget ourselves if we forget Christ, to whom the Father has given all power both in heaven and in earth.
 
-## The Glory and Majesty of God.
-
+## The Glory and Majesty of God
 > **¹** The LORD reigneth, he is clothed with majesty; the LORD is clothed with strength, *wherewith* he hath girded himself: the world also is stablished, that it cannot be moved.  
 > **²** Thy throne *is* established of old: thou *art* from everlasting.  
 > **³** The floods have lifted up, O LORD, the floods have lifted up their voice; the floods lift up their waves.  

@@ -8,8 +8,7 @@ This psalm is the first of those fifteen which are here put together under the t
 
 This psalm is supposed to have been penned by David upon occasion of Doeg's accusing him and the priests to Saul, because it is like 52, which was penned upon that occasion, and because the psalmist complains of his being driven out of the congregation of the Lord and his being forced among barbarous people. I. He prays to God to deliver him from the mischief designed him by false and malicious tongues, Ps 120:1,2. II. He threatens the judgments of God against such, Ps 120:3,4. III. He complains of his wicked neighbours that were quarrelsome and vexatious, Ps 120:5-7. In singing this psalm we may comfort ourselves in reference to the scourge of the tongue, when at any time we fall unjustly under the lash of it, that better than we have smarted from it.
 
-## Confession and Complaints.
-
+## Confession and Complaints
 A song of degrees.
 
 > **¹** In my distress I cried unto the LORD, and he heard me.  
@@ -27,8 +26,7 @@ Here is, I. Deliverance from a false tongue obtained by prayer. David records hi
 
 II\. The doom of a false tongue foretold by faith, Ps 120:3,4. As God will preserve his people from this mischievous generation, so he will reckon with their enemies, Ps 12:3,7. The threatening is addressed to the sinner himself, for the awakening of his conscience, if he have any left: "Consider *what shall be given unto thee, and what shall be done unto thee,* by the righteous Judge of heaven and earth, *thou false tongue.*" Surely sinners durst not do as they do if they knew, and would be persuaded to think, what will be in the end thereof. Let liars consider what shall be given to them: *Sharp arrows of the Almighty, with coals of juniper,* that is, they will fall and lie for ever under the wrath of God, and will be made miserable by the tokens of his displeasure, which will fly swiftly like arrows, and will strike the sinner ere he is aware and when he sees not who hurts him. This is threatened against liars, Ps 64:7. *God shall shoot at them with an arrow; suddenly shall they be wounded.* They set God at a distance from them, but from afar his arrows can reach them. They are sharp arrows, and arrows of the mighty, the Almighty; for they will pierce through the strongest armour and strike deep into the hardest heart. The terrors of the Lord are his arrows (Job 6:4), and his wrath is compared to burning coals of juniper, which do not flame or crackle, like thorns under a pot, but have a vehement heat, and keep fire very long (some say, a year round) even when they seem to be gone out. This is the portion of the false tongue; for all that love and make a lie shall have their portion in the lake that burns eternally, Re 22:15.
 
-## Mournful Complaints.
-
+## Mournful Complaints
 > **⁵** Woe is me, that I sojourn in Mesech, *that* I dwell in the tents of Kedar!  
 > **⁶** My soul hath long dwelt with him that hateth peace.  
 > **⁷** I *am for* peace: but when I speak, they *are* for war.  
