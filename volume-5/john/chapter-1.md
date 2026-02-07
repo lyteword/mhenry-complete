@@ -6,8 +6,7 @@ weight: 1
 
 The scope and design of this chapter is to confirm our faith in Christ as the eternal Son of God, and the true Messiah and Saviour of the world, that we may be brought to receive him, and rely upon him, as our Prophet, Priest, and King, and to give up ourselves to be ruled, and taught, and saved by him. In order to this, we have here, I. An account given of him by the inspired penman himself, fairly laying down, in the beginning, what he designed his whole book should be the proof of (Joh 1:1-5); and again (Joh 1:10-14); and again, Joh 1:16-18. II. The testimony of John Baptist concerning him (Joh 1:6-9; and again, Joh 1:15); but most fully and particularly, Joh 1:19-37. III. His own manifestation of himself to Andrew and Peter (Joh 1:38-42), to Philip and Nathanael, Joh 1:43-51.
 
-## The Divinity of Christ.
-
+## The Divinity of Christ
 > **¹** In the beginning was the Word, and the Word was with God, and the Word was God.  
 > **²** The same was in the beginning with God.  
 > **³** All things were made by him; and without him was not any thing made that was made.  
@@ -34,8 +33,7 @@ II\. What he saith of him, enough to prove beyond contradiction that *he is God.
 
 (2.) The disability of the degenerate world to receive this discovery: *The darkness comprehended it not;* the most of men received the grace of God in these discoveries in vain. [1.] The world of mankind *comprehended not* the natural light that was in their understandings, but became *vain in their imaginations* concerning the eternal God and the eternal Word, Ro 1:21,28. The darkness of error and sin overpowered and quite eclipsed this light. God *spoke once, yea twice,* but *man perceived it not,* Job 33:14. [2.] The Jews, who had the light of the Old Testament, yet comprehended not Christ in it. As there was a veil upon Moses's face, so there was upon the people's hearts. In the *darkness* of the types and shadows the light shone; but such as the *darkness* of their understandings that they could not *see* it. It was therefore requisite that Christ should come, both to rectify the errors of the Gentile world and to improve the truths of the Jewish church.
 
-## The Testimony of John Baptist; Christ's Incarnation.
-
+## The Testimony of John Baptist; Christ's Incarnation
 > **⁶** There was a man sent from God, whose name *was* John.  
 > **⁷** The same came for a witness, to bear witness of the Light, that all *men* through him might believe.  
 > **⁸** He was not that Light, but *was sent* to bear witness of that Light.  
@@ -94,8 +92,7 @@ II\. Before he goes on with John's testimony, he returns to give us a further ac
 
 [4.] What advantage those he dwelt among had from this. He dwelt among them, *full of grace and truth.* In the old tabernacle wherein God dwelt was the *law,* in *this* was grace; in that were *types,* in this was *truth.* The incarnate Word was every way qualified for his undertaking as Mediator; for he was *full of grace and truth,* the two great things that fallen man stands in need of; and this proved him to be the *Son of God* as much as the divine power and majesty that appeared in him. *First,* He has a fulness of grace and truth *for himself;* he had the Spirit without measure. He was full *of grace,* fully acceptable to his Father, and therefore qualified to intercede for us; and full *of truth,* fully apprized of the things he was to reveal, and therefore fit to instruct us. He had a fulness of knowledge and a fulness of compassion. *Secondly,* He has a fulness of grace and truth *for us.* He *received,* that he might *give,* and God was well pleased in him, that he might be well pleased with us in him; and this was the *truth* of the legal *types.*
 
-## John's Testimony to Christ.
-
+## John's Testimony to Christ
 > **¹⁵** John bare witness of him, and cried, saying, This was he of whom I spake, He that cometh after me is preferred before me: for he was before me.  
 > **¹⁶** And of his fulness have all we received, and grace for grace.  
 > **¹⁷** For the law was given by Moses, *but* grace and truth came by Jesus Christ.  
@@ -133,8 +130,7 @@ II\. He presently returns again to speak of Jesus Christ, and cannot go on with 
 
 [2.] How *free* he was in making this discovery: *He hath declared. Him* is not in the original. He has declared that of God which no man had at any time seen or known; not only that which was hid *of God,* but that which was hid *in* God (Eph 3:9), *exegesato*—it signifies a plain, clear, and full discovery, not by general and doubtful hints, but by particular explications. He that runs may now read the will of God and the way of salvation. This is the *grace,* this the *truth,* that came by Jesus Christ.
 
-## John's Testimony to Christ; John Examined by the Priests.
-
+## John's Testimony to Christ; John Examined by the Priests
 > **¹⁹** And this is the record of John, when the Jews sent priests and Levites from Jerusalem to ask him, Who art thou?  
 > **²⁰** And he confessed, and denied not; but confessed, I am not the Christ.  
 > **²¹** And they asked him, What then? Art thou Elias? And he saith, I am not. Art thou that prophet? And he answered, No.  
@@ -178,8 +174,7 @@ III\. What was the answer he gave them, and his account, both concerning himself
 
 *Lastly,* Notice is taken of the place where all this was done: *In Bethabara beyond Jordan,* Joh 1:28. Bethabara signifies the *house of passage;* some think it was the very place where Israel passed over Jordan into the land of promise under the conduct of Joshua; there was opened the way into the gospel state by Jesus Christ. It was at a great *distance* from Jerusalem, beyond Jordan; probably because what he did *there* would be least offensive to the government. Amos must go prophesy in the country, not near the court; but it was sad that Jerusalem should put so far from her the things that belonged to *her peace.* He made this confession in the same place where he was *baptizing,* that all those who attended his baptism might be witnesses of it, and none might say that they knew not what to *make of him.*
 
-## John's Testimony to Christ.
-
+## John's Testimony to Christ
 > **²⁹** The next day John seeth Jesus coming unto him, and saith, Behold the Lamb of God, which taketh away the sin of the world.  
 > **³⁰** This is he of whom I said, After me cometh a man which is preferred before me: for he was before me.  
 > **³¹** And I knew him not: but that he should be made manifest to Israel, therefore am I come baptizing with water.  
@@ -213,8 +208,7 @@ I\. Here is his testimony to Christ on the first day that he saw him coming from
 
 II\. Here is John's testimony to Christ, the next day after, Joh 1:35,36. Where observe, 1. He took every opportunity that offered itself to lead people to Christ: *John stood looking upon Jesus as he walked.* It should seem, John was now retired from the multitude, and was in close conversation with *two* of his disciples. Note, Ministers should not only in their public preaching, but in their private converse, witness to Christ, and serve his interests. He saw Jesus *walking* at some distance, yet did not go to him himself, because he would shun every thing that might give the least colour to suspect a combination. He was *looking upon Jesus*—*emblepsas*; he looked stedfastly, and fixed his eyes upon him. Those that would lead others to Christ must be diligent and frequent in the *contemplation* of him themselves. John had seen Christ before, but now looked upon him, 1Jo 1:1. 2. He repeated the same testimony which he had given to Christ the day before, though he could have delivered some other great truth concerning him; but thus he would show that he was uniform and constant in his testimony, and consistent with himself. His doctrine was the same in private that it was in public, as Paul's was, Ac 20:20,21. It is good to have that repeated which we have heard, Php 3:1. The doctrine of Christ's sacrifice for the taking away of the sin of the world ought especially to be insisted upon by all good ministers: Christ, the Lamb of God, *Christ and him crucified.* 3. He intended this especially for his two disciples that stood with him; he was willing to turn them over to Christ, for to this end he bore witness to Christ in their hearing that they might leave all to follow him, even that they might leave *him.* He did not reckon that he lost those disciples who went over from him to Christ, any more than the schoolmaster reckons that scholar lost whom he sends to the university. John gathered disciples, not for himself, but for Christ to *prepare them for the Lord,* Lu 1:17. So far was he from being jealous of Christ's growing interest, that there was nothing he was more desirous of. Humble generous souls will give others their due praise without fear of diminishing themselves by it. What we have of reputation, as well as of other things, will not be the less for our giving every body his own.
 
-## The Call of Andrew and Peter.
-
+## The Call of Andrew and Peter
 > **³⁷** And the two disciples heard him speak, and they followed Jesus.  
 > **³⁸** Then Jesus turned, and saw them following, and saith unto them, What seek ye? They said unto him, Rabbi, (which is to say, being interpreted, Master,) where dwellest thou?  
 > **³⁹** He saith unto them, Come and see. They came and saw where he dwelt, and abode with him that day: for it was about the tenth hour.  
@@ -252,8 +246,7 @@ II\. Andrew brought his brother Peter to Christ. If Peter had been the first-bor
 
 (2.) He gave him a new name: *Cephas.* [1.] His giving him a name intimates *Christ's favour* to him. A new name denotes some great dignity, Re 2:17, Isa 62:2. By this Christ not only wiped off the reproach of his mean and obscure parentage, but adopted him into his family as one of his own. [2.] The name which he gave him bespeaks his *fidelity* to Christ: *Thou shalt be called Cephas* (that is Hebrew for *a stone), which is by interpretation Peter;* so it should be rendered, as Ac 9:36. *Tabitha, which by interpretation is called Dorcas;* the former Hebrew, the latter Greek, for a *young roe.* Peter's natural temper was stiff, and hardy, and resolute, which I take to be the principal reason why Christ called him *Cephas—a stone.* When Christ afterwards prayed for him, that his faith might not fail, that so he might be firm to Christ himself, and at the same time bade him *strengthen his brethren,* and lay out himself for the support of others, then he *made him* what he here called him, *Cephas—a stone.* Those that come to Christ must come with a fixed resolution to be firm and constant to him, *like a stone,* solid and stedfast; and it is by his grace that they are so. His saying, *Be thou steady,* makes them so. Now this does no more prove that Peter was the singular or only rock upon which the church is built than the calling of James and John *Boanerges* proves them the only *sons of thunder,* or the calling of Joses *Barnabas* proves him the only *son of consolation.*
 
-## The Call of Philip and Nathanael.
-
+## The Call of Philip and Nathanael
 > **⁴³** The day following Jesus would go forth into Galilee, and findeth Philip, and saith unto him, Follow me.  
 > **⁴⁴** Now Philip was of Bethsaida, the city of Andrew and Peter.  
 > **⁴⁵** Philip findeth Nathanael, and saith unto him, We have found him, of whom Moses in the law, and the prophets, did write, Jesus of Nazareth, the son of Joseph.  

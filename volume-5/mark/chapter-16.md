@@ -6,8 +6,7 @@ weight: 16
 
 In this chapter, we have a short account of the resurrection and ascension of the Lord Jesus: and the joys and triumphs which it furnished all believers with, will be very acceptable to those who sympathised and suffered with Christ in the foregoing chapters. Here is, I. Christ's resurrection notified by an angel to the women that came to the sepulchre to anoint him, Mk 16:1-8. II. His appearance to Mary Magdalene, and the account she gave of it to the disciples, Mk 16:9-11. III. His appearance to the two disciples, going to Emmaus, and the report they made of it to their brethren, Mk 16:12,13. IV. His appearance to the eleven with the commission he gave them to set up his kingdom in the world, and full instructions and credentials in order thereunto, Mk 16:14-18. V. His ascension into heaven, the apostles' close application to their work, and God's owning of them in it, Mk 16:19,20.
 
-## The Women at the Sepulchre; The Apostles Reproved.
-
+## The Women at the Sepulchre; The Apostles Reproved
 > **¹** And when the sabbath was past, Mary Magdalene, and Mary the *mother* of James, and Salome, had bought sweet spices, that they might come and anoint him.  
 > **²** And very early in the morning the first *day* of the week, they came unto the sepulchre at the rising of the sun.  
 > **³** And they said among themselves, Who shall roll us away the stone from the door of the sepulchre?  
@@ -41,8 +40,7 @@ III\. The assurance that was given them by an angel, that the Lord Jesus was ris
 
 IV\. The account which the women did bring of this to the disciples (Mk 16:8); They *went out quickly,* and *ran from the sepulchre,* to make all the haste they could to the disciples, *trembling* and *amazed.* See how much we are enemies to ourselves and our own comfort, in not considering and mixing faith with that Christ hath said to us. Christ had often told them, that *the third day he would rise again;* had they given that its due notice and credit, they would have come to the sepulchre, expecting to have found him risen, and would have received the news of it with a joyful assurance, and not with all this terror and amazement. But, being ordered to tell the disciples, because they were to tell it to all the world, they would not tell it to any one else, they showed not any thing of it to any man that they *met by the way,* for *they were afraid,* afraid it was too good news to be true. Note, Our disquieting fears often hinder us from doing that service to Christ and to the souls of men, which if faith and the *joy of faith* were strong, we might do.
 
-## Christ's Appearances to Mary Magdalene and the Two Disciples.
-
+## Christ's Appearances to Mary Magdalene and the Two Disciples
 > **⁹** Now when *Jesus* was risen early the first *day* of the week, he appeared first to Mary Magdalene, out of whom he had cast seven devils.  
 > **¹⁰** *And* she went and told them that had been with him, as they mourned and wept.  
 > **¹¹** And they, when they had heard that he was alive, and had been seen of her, believed not.  
@@ -63,8 +61,7 @@ II\. He appeared to two of the disciples, *as they went into the country,* Mk 16
 
 2\. This did not gain credit with all; *Neither believed they them.* They suspected that their eyes also deceived them. Now there was a wise providence in it, the proofs of Christ's resurrection were given in thus *gradually,* and admitted thus *cautiously,* that so the assurance with which the apostles preached this doctrine afterward, when they ventured their all upon it, might be the more satisfying. We have the more reason to believe those who did themselves believe so slowly: had they swallowed it presently, they might have been thought *credulous,* and their testimony the less to be *regarded;* but their *disbelieving* at first, shows that they did not believe it afterward but upon a full conviction.
 
-## Christ's Appearance to the Eleven.
-
+## Christ's Appearance to the Eleven
 > **¹⁴** Afterward he appeared unto the eleven as they sat at meat, and upbraided them with their unbelief and hardness of heart, because they believed not them which had seen him after he was risen.  
 > **¹⁵** And he said unto them, Go ye into all the world, and preach the gospel to every creature.  
 > **¹⁶** He that believeth and is baptized shall be saved; but he that believeth not shall be damned.  
@@ -81,8 +78,7 @@ II\. The *commission* which he gave them to set up his kingdom among men by the 
 
 3\. What power they should be endowed with, for the confirmation of the doctrine they were to preach (Mk 16:17); *These signs shall follow them that believe.* Not that all who believe, shall be able to produce these signs, but some, even as many as were employed in propagating the faith, and bringing others to it; for signs are intended *for them that believe not;* see 1Co 14:22. It added much to the glory and evidence of the gospel, that the preachers not only wrought miracles themselves, but conferred upon others a power to work miracles, which power *followed* some of them that believed, wherever they went to preach. They shall do wonders *in Christ's name,* the same name into which they were baptized, in the virtue of power derived from him, and fetched in by prayer. Some particular signs are mentioned; (1.) They shall *cast out devils;* this power was more common among Christians than any other, and lasted longer, as appears by the testimonies of Justin Martyr, Origen, Irenæus, Tertullian Minutius Felix, and others, cited by Grotius on this place. (2.) They shall *speak with new tongues,* which they had never learned, or been acquainted with; and this was both a *miracle* (a miracle *upon the mind*), for the confirming of the truth of the gospel, and a *means* of spreading the gospel among those nations that had not heard it. It saved the preachers a vast labour in learning the languages; and, no doubt, they who by *miracle* were made *masters of languages,* were *complete* masters of them and of all their native elegancies, which were proper both to *instruct* and *affect,* which would very much recommend them and their preaching. (3.) They shall *take up serpents.* This was fulfilled in Paul, who was not hurt by the *viper* that *fastened on his hand,* which was acknowledged a great miracle by the barbarous people, Ac 28:5,6. They shall be kept unhurt by that *generation of vipers* among whom they live, and by the malice of the *old serpent.* (4.) If they be compelled by their persecutors to *drink any deadly* poisonous thing, *it shall not hurt them:* of which very thing some instances are found in ecclesiastical history. (5.) They shall not only be preserved from hurt themselves, but they shall be enabled to do good to others; *They shall lay hands on the sick, and they shall recover,* as multitudes had done by their master's *healing* touch. Many of the elders of the church had this power, as appears by Jam 5:14, where, as an instituted sign of this miraculous healing, they are said to *anoint* the sick *with oil in the name of the Lord.* With what assurance of success might they go about executing their commission, when they had such credentials as these to produce!
 
-## The Ascension.
-
+## The Ascension
 > **¹⁹** So then after the Lord had spoken unto them, he was received up into heaven, and sat on the right hand of God.  
 > **²⁰** And they went forth, and preached every where, the Lord working with *them,* and confirming the word with signs following. Amen.  
 

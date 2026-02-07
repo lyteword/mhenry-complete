@@ -6,8 +6,7 @@ weight: 2
 
 In this chapter, we have, I. Christ's healing a man that was sick of a palsy, Mk 2:1-12. II. His calling of Matthew from the receipt of custom, and his eating, upon that occasion, with publicans and sinners, and justifying himself in so doing, Mk 2:13-17. III. His justifying his disciples in not fasting so much as those plucking the ears of corn on the sabbath day, Mk 2:23-28. All which passages we had before, Mt 9:1-38,12:1-50
 
-## The Healing of a Paralytic.
-
+## The Healing of a Paralytic
 > **¹** And again he entered into Capernaum after *some* days; and it was noised that he was in the house.  
 > **²** And straightway many were gathered together, insomuch that there was no room to receive *them,* no, not so much as about the door: and he preached the word unto them.  
 > **³** And they come unto him, bringing one sick of the palsy, which was borne of four.  
@@ -35,8 +34,7 @@ V\. The cavil of the scribes at that which Christ said, and a demonstration of t
 
 VI\. The cure of the sick man, and the impression it made upon the people, Mk 2:12. He not only *arise* out of his bed, perfectly well, but, to show that he had perfect strength restored to him, *he took up his bed,* because it lay in the way, *and went forth before them all;* and *they were all amazed,* as well they might, and *glorified God,* as indeed they ought; saying, "*We never saw it on this fashion;* never were such wonders as these done before in our time." Note, Christ's works were without precedent. When we see what he does in healing souls, we must own that we *never saw the like.*
 
-## Christ among Publicans and Sinners.
-
+## Christ among Publicans and Sinners
 > **¹³** And he went forth again by the sea side; and all the multitude resorted unto him, and he taught them.  
 > **¹⁴** And as he passed by, he saw Levi the *son* of Alphæus sitting at the receipt of custom, and said unto him, Follow me. And he arose and followed him.  
 > **¹⁵** And it came to pass, that, as Jesus sat at meat in his house, many publicans and sinners sat also together with Jesus and his disciples: for there were many, and they followed him.  
@@ -55,8 +53,7 @@ IV\. The *offence* which the scribes and Pharisees took at this, Mk 2:16. They w
 
 V\. Christ's justification of himself in it, Mk 2:17. He stood to what he did, and would not withdraw, though the Pharisees were offended, as Peter afterwards did, Ga 2:12. Note, Those are too tender of their own *good name,* who, to preserve it with some nice people, will decline a *good work.* Christ would not do so. They thought the publicans were to be *hated.* "No," saith Christ, "they are to be *pitied,* they are *sick* and *need a physician;* they are sinners, and need a Saviour." They thought Christ's character should separate him from them; "No," saith Christ, "my commission directs me to them; *I came not to call the righteous, but sinners to repentance.* If the world had been *righteous,* there had been no occasion for my coming, either to *preach* repentance, or to *purchase* remission. It is to a *sinful world* that I am sent, and therefore my business lies most with those that are the greatest sinners in it." Or thus; "*I am not come to call the righteous,* the proud Pharisees that think themselves righteous, that ask, *Wherein shall we return?* (Mal 3:7), Of what shall we repent? But poor publicans, that own themselves to be sinners, and are glad to be invited and encouraged to repent." It is good dealing with those that there is hope of; now there is *more hope of a fool* than of one that is *wise in his own conceit,* Pr 26:12.
 
-## The Hypocritical Rigour of the Pharisees.
-
+## The Hypocritical Rigour of the Pharisees
 > **¹⁸** And the disciples of John and of the Pharisees used to fast: and they come and say unto him, Why do the disciples of John and of the Pharisees fast, but thy disciples fast not?  
 > **¹⁹** And Jesus said unto them, Can the children of the bridechamber fast, while the bridegroom is with them? as long as they have the bridegroom with them, they cannot fast.  
 > **²⁰** But the days will come, when the bridegroom shall be taken away from them, and then shall they fast in those days.  

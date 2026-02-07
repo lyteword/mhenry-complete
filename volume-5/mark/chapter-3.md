@@ -6,8 +6,7 @@ weight: 3
 
 In this chapter, we have, I. Christ's healing a man that had a withered hand, on the sabbath day, and the combination of his enemies against him for it, Mk 3:1-6. II. The universal resort of people to him from all parts, to be healed, and the relief they all found with him, Mk 3:7-12. III. His ordaining his twelve apostles to be attendants on him, and the preachers of his gospel, Mk 3:13-21. IV. His answer to the blasphemous cavils of the scribes, who imputed his power to cast out devils to a confederacy with the prince of the devils, Mk 3:22-30. V. His owning his disciples for his nearest and dearest relations, Mk 3:31-35.
 
-## The Withered Hand Restored; Multitudes Healed.
-
+## The Withered Hand Restored; Multitudes Healed
 > **¹** And he entered again into the synagogue; and there was a man there which had a withered hand.  
 > **²** And they watched him, whether he would heal him on the sabbath day; that they might accuse him.  
 > **³** And he saith unto the man which had the withered hand, Stand forth.  
@@ -45,8 +44,7 @@ II\. When he withdrew *to the sea,* he did good there. While his enemies sought 
 
 2\. What abundance of good he did in his retirement. He did not withdraw to be idle, nor did he send back those who rudely crowded after him when he withdrew, but took it kindly, and gave them what they came for; for he never said to any that sought him diligently, *Seek ye me in vain.* (1.) Diseases were effectually cured; He *healed many;* divers sorts of patients, ill of divers sorts of diseases; though numerous, though various, he *healed them.* (2.) *Devils* were effectually *conquered;* those whom unclean spirits had got possession of, *when they saw him,* trembled at his presence, and they also *fell down before him,* not to supplicate his favour, but to deprecate his wrath, and by their own terrors were compelled to own that *he was the Son of God,* Mk 3:1. It is sad that this great truth should be denied by any of the children of men, who may have the benefit of it, when a confession of it has so often been extorted from devils, who are excluded from having benefit by it. (3.) Christ sought not applause to himself in doing those great things, for *he strictly charged* those for whom he did them, *that they should not make him known* (Mk 3:12); that they should not be *industrious* to spread the notice of his cures, as it were by advertisements in the newspapers, but let them leave *his own works to praise him,* and let the report of them *diffuse itself,* and make its own way. Let not those that are cured, be forward to divulge it, lest it should feed their pride who are so *highly favoured;* but let the *standers-by* carry away the intelligence of it. When we do that which is *praiseworthy,* and yet covet not to be *praised of men* for it, then *the same mind is in us,* which was *in Christ Jesus.*
 
-## The Calling of the Apostles.
-
+## The Calling of the Apostles
 > **¹³** And he goeth up into a mountain, and calleth *unto him* whom he would: and they came unto him.  
 > **¹⁴** And he ordained twelve, that they should be with him, and that he might send them forth to preach,  
 > **¹⁵** And to have power to heal sicknesses, and to cast out devils:  
@@ -79,8 +77,7 @@ II\. The continual crowds that attended Christ's motions (Mk 3:20); The *multitu
 
 III\. The care of his relations concerning him (Mk 3:21); *When his friends* in Capernaum heard how he was followed, and what pains he took, they *went out, to lay hold on him,* and fetch him home, for they said, *He is beside himself.* 1. Some understand it of an absurd preposterous care, which had more in it of reproach to him than of respect; and so we must take it as we read it, *He is beside himself;* either they suspected it themselves, or it was suggested to them, and they gave credit to the suggestion, that he was *gone distracted,* and therefore his friends ought to bind him, and put him in a dark room, to bring him to his right mind again. His kindred, many of them, had mean thoughts of him (Joh 7:5), and were willing to hearken to this ill construction which some put upon his great zeal, and to conclude him crazed in his intellects, and under that pretence to take him off from his work. The prophets were called *mad fellows,* 2Ki 9:11. 2. Others understand it of a *well-meaning* care; and then they read *exeste*—"*He fainteth,* he has no time to *eat bread,* and therefore his strength will fail him; he will be stifled with the crowd of people, and will have his spirits quite exhausted with constant speaking, and the virtue that *goes out of him* in his miracles; and therefore let us use a friendly violence with him, and get him a little *breathing-time.*" In his preaching-work, as well as his suffering-work, he was attacked with, *Master, spare thyself.* Note, They who go on with vigour and zeal in the work of God, must expect to meet with hindrances, both from the groundless disaffection of their enemies, and the mistaken affections of their friends, and they have need to stand upon their guard against both.
 
-## The Blasphemy of the Scribes.
-
+## The Blasphemy of the Scribes
 > **²²** And the scribes which came down from Jerusalem said, He hath Beelzebub, and by the prince of the devils casteth he out devils.  
 > **²³** And he called them *unto him,* and said unto them in parables, How can Satan cast out Satan?  
 > **²⁴** And if a kingdom be divided against itself, that kingdom cannot stand.  
@@ -101,8 +98,7 @@ II\. The rational answer which Christ gave to this objection, demonstrating the 
 
 III\. The awful warning Christ gave them to take heed how they spoke such dangerous words as these; however they might make light of them, as only conjectures, and the language of *free-thinking,* if they persisted in it, it would be of fatal consequence to them; it would be found a sin against the last remedy, and consequently *unpardonable;* for what could be imagined possible to bring *them* to repentance for their sin in blaspheming Christ, who would set aside such a *strong* conviction with such a *weak* evasion? It is true, the gospel *promiseth,* because Christ hath *purchased,* forgiveness for the greatest sins and sinners, Mk 3:28. Many of those who reviled Christ on the cross (which was a *blaspheming of the Son of man,* aggravated to the highest degree), found mercy, and Christ himself prayed, *Father, forgive them;* but this was *blaspheming the Holy Ghost,* for it was by the Holy Spirit that he *cast out* devils, and they said, It was *by the unclean spirit,* Mk 3:30. By this method they would outface the conviction of all the gifts of the Holy Ghost after Christ's ascension, and defeat them all, after which there remained no more proof, and therefore they should *never have forgiveness,* but were *liable to eternal damnation.* They were in imminent danger of that everlasting punishment, from which there was *no redemption,* and in which there was no *intermission,* no *remission.*
 
-## The Family of Christ.
-
+## The Family of Christ
 > **³¹** There came then his brethren and his mother, and, standing without, sent unto him, calling him.  
 > **³²** And the multitude sat about him, and they said unto him, Behold, thy mother and thy brethren without seek for thee.  
 > **³³** And he answered them, saying, Who is my mother, or my brethren?  

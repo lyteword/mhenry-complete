@@ -6,8 +6,7 @@ weight: 20
 
 In this chapter we have, I. Christ's answer to the chief priests' question concerning his authority, Lu 20:1-8. II. The parable of the vineyard let out to the unjust and rebellious husbandmen, Lu 20:9-19. III. Christ's answer to the question proposed to him concerning the lawfulness of paying tribute to Cæsar, Lu 20:20-26. IV. His vindication of that great fundamental doctrine of the Jewish and Christian institutes—the resurrection of the dead and the future state, from the foolish cavils of the Sadducees, Lu 20:27-38. V. His puzzling the scribes with a question concerning the Messiah's being the Son of David, Lu 20:39-44. VI. The caution he gave his disciples to take heed of the scribes, Lu 20:45-47. All which passages we had before in Matthew and Mark, and therefore need not enlarge upon them here, unless on those particulars which we had not there.
 
-## Christ's Enemies Nonplussed.
-
+## Christ's Enemies Nonplussed
 > **¹** And it came to pass, *that* on one of those days, as he taught the people in the temple, and preached the gospel, the chief priests and the scribes came upon *him* with the elders,  
 > **²** And spake unto him, saying, Tell us, by what authority doest thou these things? or who is he that gave thee this authority?  
 > **³** And he answered and said unto them, I will also ask you one thing; and answer me:  
@@ -27,8 +26,7 @@ II\. That his enemies are here said to *come upon him*—*epestesan*. The word i
 
 2\. That they thought to frighten him with this question. They *came upon him* in a body, with violence. But how could he be terrified with the *wrath of men,* when it was in his *own power to restrain it,* and make it turn to his praise? From this story itself we may learn, (1.) That it is not to be thought strange, if even that which is evident to a demonstration be disputed, and called in question, as a doubtful thing, by those that shut their eyes against the light. Christ's miracles plainly showed *by what authority he did these things,* and sealed his commission; and yet this is that which is here *arraigned.* (2.) Those that question Christ's authority, if they be but catechized themselves in the plainest and most evident principles of religion, will have their folly made manifest unto all men. Christ answered these priests and scribes with a question concerning the baptism of John, a plain question, which the meanest of the common people could answer: *Was it from heaven or of men?* They all knew it was *from heaven;* there was nothing in it that had an earthly relish or tendency, but it was all heavenly and divine. And this question gravelled them, and ran them aground, and served to shame them before the people. (3.) It is not strange if those that are governed by reputation and secular interest imprison the plainest truths, and smother and stifle the strongest convictions, as these priests and scribes did, who, to save their credit, would not own that John's baptism was *from heaven,* and had no other reason why they did not say it was *of men* but because they *feared the people.* What good can be expected from men of such a spirit? (4.) Those that bury the knowledge they have are justly denied further knowledge. It was just with Christ to refuse to give an account of his authority to them that knew the baptism of John to be from heaven and would not believe in him, nor own their knowledge, Lu 20:7,8.
 
-## The Husbandmen and the Vineyard.
-
+## The Husbandmen and the Vineyard
 > **⁹** Then began he to speak to the people this parable; A certain man planted a vineyard, and let it forth to husbandmen, and went into a far country for a long time.  
 > **¹⁰** And at the season he sent a servant to the husbandmen, that they should give him of the fruit of the vineyard: but the husbandmen beat him, and sent *him* away empty.  
 > **¹¹** And again he sent another servant: and they beat him also, and entreated *him* shamefully, and sent *him* away empty.  
@@ -49,8 +47,7 @@ II\. To the application of the parable is added here, which we had not before, t
 
 *Lastly,* We are told how the chief priests and scribes were exasperated by this parable (Lu 20:19): *They perceived that he had spoken this parable against them;* and so he had. A guilty conscience needs no accuser; but they, instead of yielding to the convictions of conscience, fell into a rage at him who awakened that sleeping lion in their bosoms, and *sought to lay hands on him.* Their corruptions rebelled against their convictions, and got the victory. And it was not because they had any fear of God or of his wrath before their eyes, but only because they *feared the people,* that they did not now fly in his face, and take him by the throat. They were just ready to make his words good: *This is the heir, come let us kill him.* Note, When the hearts of the sons of men are fully set in them to do evil, the fairest warnings both of the sin they are about to commit and of the consequences of it make no impression upon them. Christ tells them that instead of *kissing the Son* of God they would *kill him,* upon which they should have said, *What, is thy servant a dog?* But they do, in effect, say this: "And so we will; have at him now." And, though they deprecate the punishment of the sin, in the next breath they are projecting the commission of it.
 
-## Christ's Enemies Nonplussed.
-
+## Christ's Enemies Nonplussed
 > **²⁰** And they watched *him,* and sent forth spies, which should feign themselves just men, that they might take hold of his words, that so they might deliver him unto the power and authority of the governor.  
 > **²¹** And they asked him, saying, Master, we know that thou sayest and teachest rightly, neither acceptest thou the person *of any,* but teachest the way of God truly:  
 > **²²** Is it lawful for us to give tribute unto Cæsar, or no?  
@@ -71,8 +68,7 @@ IV\. His evading the snare which they laid for him: *He perceived their craftine
 
 V\. The confusion they were hereby put into, Lu 20:26. 1. The snare is broken; *They could not take hold of his words before the people.* They could not fasten upon any thing wherewith to incense either the governor or the people against him. 2. Christ is honoured; even the wrath of man is made to praise him. They *marvelled at his answer,* it was so discreet and unexceptionable, and such an evidence of that wisdom and sincerity which make the face to shine. 3. Their mouths are stopped; they *held their peace.* They had nothing to object, and durst ask him nothing else, lest he should shame and expose them.
 
-## The Cavil of the Sadducees.
-
+## The Cavil of the Sadducees
 > **²⁷** Then came to *him* certain of the Sadducees, which deny that there is any resurrection; and they asked him,  
 > **²⁸** Saying, Master, Moses wrote unto us, If any man's brother die, having a wife, and he die without children, that his brother should take his wife, and raise up seed unto his brother.  
 > **²⁹** There were therefore seven brethren: and the first took a wife, and died without children.  
@@ -104,8 +100,7 @@ III\. There is a great deal of difference between the state of the children of m
 
 IV\. It is an undoubted truth that there is another life after this, and there were eminent discoveries made of this truth in the early ages of the church (Lu 20:37,38): *Moses showed this, as it was shown to Moses at the bush,* and he hath shown it to us, when *he calleth the Lord,* as the Lord calleth himself, the *God of Abraham, and the God of Isaac, and the God of Jacob. Abraham, Isaac, and Jacob,* were then *dead* as to our world; they had departed out of it many years before, and their bodies were turned into dust in the cave of Machpelah; how then could God say, not *I was,* but *I am* the *God or Abraham?* It is absurd that the living God and Fountain of life should continue related to them as their God, if there were no more of them in being than what lay in that cave, undistinguished from common dust. We must therefore conclude that they were then in being in another world; for *God is not the God of the dead, but of the living.* Luke here adds, *For all live unto him,* that is, all who, like them, are true believers; though they are dead, yet they *do live;* their souls, which *return to God who gave them* (Ec 12:7), live to him as the Father of spirits: and their bodies shall live again at the end of time by the power of God; for he calleth things that are not as though they were, because he is the God that *quickens the dead,* Ro 4:17. But there is more in it yet; when God called himself *the God* of these patriarchs, he meant that he was their felicity and portion, a *God all-sufficient to them* (Ge 17:1), their *exceeding great reward,* Ge 15:1. Now it is plain by their history that he never did that for them in this world which would answer the *true intent* and *full extent* of that great undertaking, and therefore there must be another life after this, in which he will do that for them that will amount to a *discharge in full* of that promise—that he would be to them a God, which he is able to do, for *all live to him,* and he has wherewithal to make every soul happy that lives to him; enough for *all,* enough for *each.*
 
-## The Scribes Confounded.
-
+## The Scribes Confounded
 > **³⁹** Then certain of the scribes answering said, Master, thou hast well said.  
 > **⁴⁰** And after that they durst not ask him any *question at all.*  
 > **⁴¹** And he said unto them, How say they that Christ is David's son?  

@@ -6,8 +6,7 @@ weight: 18
 
 Hitherto this evangelist has recorded little of the history of Christ, only so far as was requisite to introduce his discourses; but now that the time drew nigh that Jesus must die he is very particular in relating the circumstances of his sufferings, and some which the others had omitted, especially his sayings. So far were his followers from being ashamed of his cross, or endeavouring to conceal it, that this was what, both by word and writing, they were most industrious to proclaim, and gloried in it. This chapter relates, I. How Christ was arrested in the garden and surrendered himself a prisoner, Joh 18:1-12. II. How he was abused in the high priest's court, and how Peter, in the meantime, denied him, Joh 18:13-27. III. How he was prosecuted before Pilate, and examined by him, and put in election with Barabbas for the favour of the people, and lost it, Joh 18:28-40.
 
-## Christ in the Garden; The Treachery of Judas; The Ear of Malachus Cut Off; Christ Yields Himself a Prisoner.
-
+## Christ in the Garden; The Treachery of Judas; The Ear of Malachus Cut Off; Christ Yields Himself a Prisoner
 > **¹** When Jesus had spoken these words, he went forth with his disciples over the brook Cedron, where was a garden, into the which he entered, and his disciples.  
 > **²** And Judas also, which betrayed him, knew the place: for Jesus ofttimes resorted thither with his disciples.  
 > **³** Judas then, having received a band *of men* and officers from the chief priests and Pharisees, cometh thither with lanterns and torches and weapons.  
@@ -91,8 +90,7 @@ VI\. Having entirely reconciled himself to the dispensation, he calmly surrender
 
 (1.) This shows the spite of his persecutors. They bound him, [1.] That they might torment him, and put him in pain, as they bound Samson to afflict him. [2.] That they might disgrace him, and put him to shame; slaves were bound, so was Christ, though free-born. [3.] That they might prevent his escape, Judas having told them to hold him fast. See their folly, that they should think to fetter that power which had but just now proved itself omnipotent. [4.] They bound him as one already condemned, for they were resolved to prosecute him to the death, and that he should die as a fool dieth, that is, as a malefactor, with his hands bound, 2Sa 3:33,34. Christ had bound the consciences of his persecutors with the power of his word, which galled them; and, to be revenged on him, they laid these bonds on him.
 
-## Christ before Annas and Caiaphas; The Fall of Peter; Christ Arraigned; Peter Again Denies Christ.
-
+## Christ before Annas and Caiaphas; The Fall of Peter; Christ Arraigned; Peter Again Denies Christ
 > **¹³** And led him away to Annas first; for he was father in law to Caiaphas, which was the high priest that same year.  
 > **¹⁴** Now Caiaphas was he, which gave counsel to the Jews, that it was expedient that one man should die for the people.  
 > **¹⁵** And Simon Peter followed Jesus, and *so did* another disciple: that disciple was known unto the high priest, and went in with Jesus into the palace of the high priest.  
@@ -185,8 +183,7 @@ VI\. While the servants were thus abusing him, Peter was proceeding to deny him,
 
 (2.) His yielding to it was no less base than the former: *He denied again.* See here, [1.] The nature of sin in general: *the heart is hardened by the deceitfulness of it,* Heb 3:13. It was a strange degree of effrontery that Peter had arrived to on a sudden, that he could with such assurance stand in a lie against so clear a disproof; but *the beginning of sin is as the letting forth of water,* when once the fence is broken men easily go from bad to worse. [2.] Of the sin of lying in particular; it is a fruitful sin, and upon this account *exceedingly sinful:* one lie needs another to support it, and that another. It is a rule in the devil's politics *Male facta male factis tegere, ne perpluant*—*To cover sin with sin, in order to escape detection.*
 
-## Christ in the Judgment-Hall; Christ Arraigned before Pilate.
-
+## Christ in the Judgment-Hall; Christ Arraigned before Pilate
 > **²⁸** Then led they Jesus from Caiaphas unto the hall of judgment: and it was early; and they themselves went not into the judgment hall, lest they should be defiled; but that they might eat the passover.  
 > **²⁹** Pilate then went out unto them, and said, What accusation bring ye against this man?  
 > **³⁰** They answered and said unto him, If he were not a malefactor, we would not have delivered him up unto thee.  

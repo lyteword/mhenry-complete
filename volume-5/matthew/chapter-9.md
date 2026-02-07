@@ -6,8 +6,7 @@ weight: 9
 
 We have in this chapter remarkable instances of the power and pity of the Lord Jesus, sufficient to convince us that he is both able to save to the uttermost all that come to God by him, and as willing as he is able. His power and pity appear here in the good offices he did, I. To the bodies of people, in curing the palsy (Mt 9:2-8); raising to life the ruler's daughter, and healing the bloody issue (Mt 9:18-26); giving sight to two blind men (Mt 9:27-31); casting the devil out of one possessed (Mt 9:32-34); and healing all manner of sickness, Mt 9:35. II. To the souls of people; in forgiving sins (Mt 9:2); calling Matthew, and conversing freely with publicans and sinners (Mt 9:9-13); considering the frame of his disciples, with reference to the duty of fasting (Mt 9:14-17); preaching the gospel, and, in compassion to the multitude, providing preachers for them, Mt 9:35-38. Thus did he prove himself to be, as undoubtedly he is, the skilful, faithful Physician, both of soul and body, who has sufficient remedies for all the maladies of both: for which we must, therefore, apply ourselves to him, and glorify him both with our bodies and with our spirits, which are his, in return to him for his kindness to both.
 
-## Christ Heals a Man Sick of the Palsy.
-
+## Christ Heals a Man Sick of the Palsy
 > **¹** And he entered into a ship, and passed over, and came into his own city.  
 > **²** And, behold, they brought to him a man sick of the palsy, lying on a bed: and Jesus seeing their faith said unto the sick of the palsy; Son, be of good cheer; thy sins be forgiven thee.  
 > **³** And, behold, certain of the scribes said within themselves, This *man* blasphemeth.  
@@ -43,8 +42,7 @@ V\. The immediate cure of the sick man. Christ turned from disputing with them, 
 
 VI\. The impression which this made upon the multitude (Mt 9:8); they *marvelled,* and *glorified God.* Note, All our wonder should help to enlarge our hearts in *glorifying God,* who alone does marvellous things. They glorified God for what he had done for this poor man. Note, Others' mercies should be our praises, and we should give him thanks for them, for we are members one of another. Though few of this multitude were so convinced, as to be brought to believe in Christ, and to follow him, yet they admired him, not as God, or the Son of God, but as a *man* to whom God *had given such power.* Note, God must be glorified in all the power that is *given to men* to do good. For all power is originally his; it is in him, as the Fountain, in men, as the cisterns.
 
-## Matthew Called.
-
+## Matthew Called
 > **⁹** And as Jesus passed forth from thence, he saw a man, named Matthew, sitting at the receipt of custom: and he saith unto him, Follow me. And he arose, and followed him.  
 > **¹⁰** And it came to pass, as Jesus sat at meat in the house, behold, many publicans and sinners came and sat down with him and his disciples.  
 > **¹¹** And when the Pharisees saw *it,* they said unto his disciples, Why eateth your Master with publicans and sinners?  
@@ -77,8 +75,7 @@ IV\. The defence that Christ made for himself and his disciples, in justificatio
 
 2\. He urges the nature and end of his own commission. He must keep to his orders, and prosecute that for which he was appointed to be the great Teacher; now, says he, "*I am not come to call the righteous, but sinners to repentance,* and therefore must converse with publicans." Observe, (1.) What his errand was; it was to *call to repentance.* This was his first text (Mt 4:17), and it was the tendency of all his sermons. Note, The gospel call is a call to repentance; a call to us to change our mind and to change our way. (2.) With whom his errand lay; not with *the righteous,* but with *sinners.* That is, [1.] If the children of men had not been *sinners,* there had been no occasion for Christ's coming among them. He is the Saviour, not of man as *man,* but of man as *fallen.* Had the first Adam continued in his original *righteousness,* we had not needed a second Adam. [2.] Therefore his *greatest business* lies with the *greatest sinners;* the more dangerous the sick man's case is, the more occasion there is for the physician's help. Christ came into the world to *save sinners,* but especially *the chief* (1Ti 1:15); to call not those so much, who, though sinners, are comparatively righteous, but the worst of sinners. [3.] The more sensible any sinners are of their sinfulness, the more welcome will Christ and his gospel be to them; and every one chooses to go where his company is desired, not to those who would rather have his room. Christ came not with an expectation of succeeding among *the righteous,* those who conceit themselves so, and therefore will sooner be sick of their Saviour, than sick of their sins, but among the convinced humble *sinners;* to them Christ will come, for to them he will be welcome.
 
-## Christ's Reply to the Disciples of John.
-
+## Christ's Reply to the Disciples of John
 > **¹⁴** Then came to him the disciples of John, saying, Why do we and the Pharisees fast oft, but thy disciples fast not?  
 > **¹⁵** And Jesus said unto them, Can the children of the bridechamber mourn, as long as the bridegroom is with them? but the days will come, when the bridegroom shall be taken from them, and then shall they fast.  
 > **¹⁶** No man putteth a piece of new cloth unto an old garment, for that which is put in to fill it up taketh from the garment, and the rent is made worse.  
@@ -104,8 +101,7 @@ Now his argument is taken from the common usage of joy and rejoicing during the 
 
 2\. That they had not strength sufficient for that duty. This is set forth in two similitudes, one of putting *new cloth into an old garment,* which does but pull the old to pieces (Mt 9:16); the other of putting *new wine into old bottles,* which does but burst the bottles, Mt 9:17. Christ's disciples were not able to bear these severe exercises so well as those of John and of the Pharisees, which the learned Dr. Whitby gives this reason for: There were among the Jews not only sects of the Pharisees and Essenes, who led an austere life, but also *schools of the prophets,* who frequently lived in mountains and deserts, and were many of them Nazarites; they had also private academies to train men up in a strict discipline; and possibly from these many of John's disciples might come, and many of the Pharisees; whereas Christ's disciples, being taken immediately from their callings, had not been used to such religious austerities, and were unfit for them, and would by them be rather unfitted for their other work. Note, (1.) Some duties of religion are harder and more difficult than others, like *new cloth* and *new wine,* which require most intenseness of mind, and are most displeasing to flesh and blood; such are religious fasting and the duties that attend it. (2.) The best of Christ's disciples pass through a state of infancy; all the trees in Christ's garden are not of a growth, nor all his scholars in the same form; there are *babes in Christ* and grown men. (3.) In the enjoining of religious exercises, the weakness and infirmity of young Christians ought to be considered: as the food provided for them must be such as is proper for their age (1Co 3:2, Heb 5:12), so must the work be that is cut out for them. Christ would not speak to his disciples that which they could not then bear, Joh 16:12. Young beginners in religion must not be put upon the hardest duties at first, lest they be discouraged. Such as was God's care of his Israel, when he brought them out of Egypt, not to lead them by the way of the Philistines (Ex 13:17,18), and such as was Jacob's care of his children and cattle, not to overdrive them (Ge 33:13), such is Christ's care of the little ones of his family, and the lambs of his flock: he gently leads them. For want of this care, many times, *the bottles break,* and *the wine is spilled;* the profession of many miscarries and comes to nothing, through indiscretion at first. Note, There may be *over*—doing even in *well*—doing, a being *righteous over-much;* and such an *over*—doing as may prove an *un*doing through the subtlety of Satan.
 
-## The Ruler's Daughter Raised.
-
+## The Ruler's Daughter Raised
 > **¹⁸** While he spake these things unto them, behold, there came a certain ruler, and worshipped him, saying, My daughter is even now dead: but come and lay thy hand upon her, and she shall live.  
 > **¹⁹** And Jesus arose, and followed him, and *so did* his disciples.  
 > **²⁰** And, behold, a woman, which was diseased with an issue of blood twelve years, came behind *him,* and touched the hem of his garment:  
@@ -148,8 +144,7 @@ Christ went in and *took her by the hand,* as it were to awake her, and to help 
 
 VII\. The general notice that was taken of this miracle, though it was wrought privately; Mt 9:26. *The fame thereof went abroad into all that land:* it was the common subject of discourse. Note, Christ's works are more talked of than considered and improved. And doubtless, they that heard only the report of Christ's miracles, were accountable for that as well as they that were eye-witnesses of them. Though we at this distance have not seen Christ's miracles, yet having an authentic history of them, we are bound, upon the credit of that, to receive his doctrine; and blessed *are they that have not seen, and yet have believed,* Joh 20:29.
 
-## Two Blind and a Dumb Man Healed.
-
+## Two Blind and a Dumb Man Healed
 > **²⁷** And when Jesus departed thence, two blind men followed him, crying, and saying, *Thou* Son of David, have mercy on us.  
 > **²⁸** And when he was come into the house, the blind men came to him: and Jesus saith unto them, Believe ye that I am able to do this? They said unto him, Yea, Lord.  
 > **²⁹** Then touched he their eyes, saying, According to your faith be it unto you.  
@@ -193,8 +188,7 @@ II\. The healing of a *dumb man,* that was *possessed with a devil.* And here ob
 
 (2.) *The Pharisees* blasphemed, Mt 9:34. When they could not gainsay the convincing evidence of these miracles, they fathered them upon the devil, as if they had been wrought by compact and collusion: *he casteth out devils* (say they) by *the prince of the devils*—a suggestion horrid beyond expression; we shall hear more of it afterwards, and Christ's answer to it (Mt 12:25); only observe here, how *evil men and seducers wax worse and worse* (2Ti 3:13), and it is both their sin and their punishment. Their quarrels with Christ for taking upon him to *forgive sin* (Mt 9:3), for *conversing with publicans and sinners,* (Mt 9:11), for *not fasting* (Mt 9:14), though spiteful enough, yet had some colour of piety, purity, and devotion in them; but this (which they are left to, to punish them for those) breathes nothing but malice and falsehood, and hellish enmity in the highest degree; it is diabolism all over, and was therefore justly pronounced unpardonable. Because the people marvelled, they must say something to diminish the miracle, and this was all they could say.
 
-## Jesus Preaching throughout the Country.
-
+## Jesus Preaching throughout the Country
 > **³⁵** And Jesus went about all the cities and villages, teaching in their synagogues, and preaching the gospel of the kingdom, and healing every sickness and every disease among the people.  
 > **³⁶** But when he saw the multitudes, he was moved with compassion on them, because they fainted, and were scattered abroad, as sheep having no shepherd.  
 > **³⁷** Then saith he unto his disciples, The harvest truly *is* plenteous, but the labourers *are* few;  

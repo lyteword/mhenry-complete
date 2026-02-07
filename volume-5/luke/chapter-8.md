@@ -6,8 +6,7 @@ weight: 8
 
 Most of this chapter is a repetition of divers passages of Christ's preaching and miracles which we had before in Matthew and Mark; they are all of such weight, that they are worth repeating, and therefore they are repeated, that out of the mouth not only of two, but of three, witnesses every word may be established. Here is, I. A general account of Christ's preaching, and how he had subsistence for himself and his numerous family by the charitable contributions of good people, Lu 8:1-3. II. The parable of the sower, and the four sorts of ground, with the exposition of it, and some inferences from it, Lu 8:4-18. III. The preference which Christ gave to his obedient disciples before his nearest relations according to the flesh, Lu 8:19-21. IV. His stilling a storm at sea, with a word's speaking, Lu 8:22-25. V. His casting a legion of devils out of a man that was possessed by them, Lu 8:26-40. VI. His healing the woman that had the bloody issue, and raising Jairus's daughter to life, Lu 8:41-56.
 
-## The Ministry of Christ.
-
+## The Ministry of Christ
 > **¹** And it came to pass afterward, that he went throughout every city and village, preaching and showing the glad tidings of the kingdom of God: and the twelve *were* with him,  
 > **²** And certain women, which had been healed of evil spirits and infirmities, Mary called Magdalene, out of whom went seven devils,  
 > **³** And Joanna the wife of Chuza Herod's steward, and Susanna, and many others, which ministered unto him of their substance.  
@@ -26,8 +25,7 @@ II\. *Whence* he *had* the *necessary supports* of life: He lived upon the kindn
 
 4\. There were many of them that *ministered to Christ of their substance.* It was an instance of the meanness of that condition to which our Saviour humbled himself that he needed it, and of his great humility and condescension that he accepted it. Though he was rich, yet for our sakes *he became poor,* and lived upon alms. Let none say that they scorn to be beholden to the charity of their neighbours, when Providence has brought them into straits; but let them ask and be thankful for it as a favour. Christ would rather be beholden to his known friends for a maintenance for himself and his disciples than be burdensome to strangers in the cities and villages whither he came to preach. Note, It is the duty of those who are taught in the word to *communicate to them who teach them in all good things;* and those who are herein liberal and cheerful honour the Lord with their substance, and bring a blessing upon it.
 
-## The Parable of the Sower.
-
+## The Parable of the Sower
 > **⁴** And when much people were gathered together, and were come to him out of every city, he spake by a parable:  
 > **⁵** A sower went out to sow his seed: and as he sowed, some fell by the way side; and it was trodden down, and the fowls of the air devoured it.  
 > **⁶** And some fell upon a rock; and as soon as it was sprung up, it withered away, because it lacked moisture.  
@@ -79,8 +77,7 @@ II\. Needful instructions given to those that are appointed to preach the word, 
 
 III\. Great encouragement given to those that prove themselves faithful *hearers of the word,* by being *doers of the work,* in a particular instance of Christ's respect to his disciples, in preferring them even before his nearest relations (Lu 8:19-21), which passage of story we had twice before. Observe, 1. What crowding there was after Christ. There was no coming near for the throng of people that attended him, who, though they were crowded very so much, would not be crowded out from his congregation. 2. Some of his nearest kindred were least solicitous to hear him preach. Instead of getting *within,* as they might easily have done if they had come in time, desiring to *hear him,* they stood *without,* desiring to *see him;* and, probably, out of a foolish fear, lest he should spend himself with too much speaking, designing nothing but to interrupt him, and oblige him to break off. 3. Jesus Christ would rather be busy at his work than conversing with his friends. He would not leave his preaching, to speak with his *mother* and his *brethren,* for it was his *meat and drink* to be so employed. 4. Christ is pleased to own those as his nearest and dearest relations that *hear the word of God and do it;* they are to him more than *his mother* and *brethren.*
 
-## Christ's Power over the Winds; Christ's Power over the Devils.
-
+## Christ's Power over the Winds; Christ's Power over the Devils
 > **²²** Now it came to pass on a certain day, that he went into a ship with his disciples: and he said unto them, Let us go over unto the other side of the lake. And they launched forth.  
 > **²³** But as they sailed he fell asleep: and there came down a storm of wind on the lake; and they were filled *with water,* and were in jeopardy.  
 > **²⁴** And they came to him, and awoke him, saying, Master, master, we perish. Then he arose, and rebuked the wind and the raging of the water: and they ceased, and there was a calm.  
@@ -140,8 +137,7 @@ Let us now see what was the effect of this miracle of casting the legion of devi
 
 (2.) What effect it had upon the poor man who had recovered himself by it. He *desired* Christ's company as much as others *dreaded* it: he besought Christ that *he might be with him* as others were *that had been healed by him of evil spirits and infirmities* (Lu 8:2), that Christ might be to him a protector and teacher, and that he might be to Christ for a name and a praise. He was loth to stay among those rude and brutish Gadarenes that desired Christ to depart from them. *O gather not my soul with these sinners!* But Christ would not take him along with him, but sent him home, to publish among those that knew him the great things God had done for him, that so he might be a blessing to his country, as he had been a burden to it. We must sometimes deny ourselves the satisfaction even of spiritual benefits and comforts, to gain an opportunity of being serviceable to the souls of others. Perhaps Christ knew that, when the resentment of the loss of their swine was a little over, they would be better disposed to consider the miracle, and therefore left the man among them to be a standing monument, and a monitor to them of it.
 
-## The Issue of Blood Healed; The Ruler's Daughter Raised.
-
+## The Issue of Blood Healed; The Ruler's Daughter Raised
 > **⁴⁰** And it came to pass, that, when Jesus was returned, the people *gladly* received him: for they were all waiting for him.  
 > **⁴¹** And, behold, there came a man named Jairus, and he was a ruler of the synagogue: and he fell down at Jesus' feet, and besought him that he would come into his house:  
 > **⁴²** For he had one only daughter, about twelve years of age, and she lay a dying. But as he went the people thronged him.  

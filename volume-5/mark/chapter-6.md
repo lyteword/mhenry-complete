@@ -6,8 +6,7 @@ weight: 6
 
 A great variety of observable passages we have, in this chapter, concerning our Lord Jesus, the substance of all which we had before in Matthew, but divers circumstances we have, which we did not there meet with. Here is, I. Christ contemned by his countrymen, because he was one of them, and they knew, or thought they knew, his original, Mk 6:1-6. II. The just power he gave his apostles over unclean spirits, and an account given of their negotiation, Mk 6:7-13. III. A strange notion which Herod and others had of Christ, upon which occasion we have the story of the martyrdom of John Baptist, Mk 6:14-29. IV. Christ's retirement into a desert place with his disciples; the crowds that followed him thither to receive instruction from him; and his feeding five thousand of them with five loaves and two fishes, Mk 6:30-44. V. Christ's walking upon the sea to his disciples, and the abundance of cures he wrought on the other side of the water, Mk 6:45-56.
 
-## The Contempt Poured on Christ.
-
+## The Contempt Poured on Christ
 > **¹** And he went out from thence, and came into his own country; and his disciples follow him.  
 > **²** And when the sabbath day was come, he began to teach in the synagogue: and many hearing *him* were astonished, saying, From whence hath this *man* these things? and what wisdom *is* this which is given unto him, that even such mighty works are wrought by his hands?  
 > **³** Is not this the carpenter, the son of Mary, the brother of James, and Joses, and of Juda, and Simon? and are not his sisters here with us? And they were offended at him.  
@@ -37,8 +36,7 @@ V\. Let us see how Christ bore this contempt.
 
 5\. He *went round about the village, teaching.* If we cannot do good where we would, we must do it where we can, and be glad if we may have any opportunity, though but in the villages, of serving Christ and souls. Sometimes the gospel of Christ finds better entertainment in the country villages, where there is less wealth, and pomp, and mirth, and subtlety, than in the populous cities.
 
-## The Apostolic Commission.
-
+## The Apostolic Commission
 > **⁷** And he called *unto him* the twelve, and began to send them forth by two and two; and gave them power over unclean spirits;  
 > **⁸** And commanded them that they should take nothing for *their* journey, save a staff only; no scrip, no bread, no money in *their* purse:  
 > **⁹** But *be* shod with sandals; and not put on two coats.  
@@ -65,8 +63,7 @@ II\. The apostles' conduct in pursuance of their commission. Though they were co
 
 2\. The miracles they wrought. The power Christ gave them *over unclean spirits,* was not ineffectual, nor did they receive it in vain, but used it, for they *cast out many devils* (Mk 6:13); and they *anointed with oil many that were sick, and healed them.* Some think this oil was used *medicinally,* according to the custom of the Jews; but I rather think it was used as a *sign of miraculous* healing, by the appointment of Christ, though not mentioned; and it was afterward used by those *elders of the church,* to whom *by the Spirit* was given the *gift of healing,* Jam 5:14. It is certain here, and therefore probable there, that *anointing the sick with oil,* is appropriated to that extraordinary power which has long ceased, and therefore that sign must cease with it.
 
-## The Death of John the Baptist.
-
+## The Death of John the Baptist
 > **¹⁴** And king Herod heard *of him;* (for his name was spread abroad:) and he said, That John the Baptist was risen from the dead, and therefore mighty works do show forth themselves in him.  
 > **¹⁵** Others said, That it is Elias. And others said, That it is a prophet, or as one of the prophets.  
 > **¹⁶** But when Herod heard *thereof,* he said, It is John, whom I beheaded: he is risen from the dead.  
@@ -118,8 +115,7 @@ III\. A narrative of Herod's putting John Baptist to death, which is brought in 
 
 5\. The effect of this is, (1.) That Herod's wicked court is *all in triumph,* because this prophet tormented them; the head is made a present of *to the damsel,* and by her to her *mother,* Mk 6:28. (2.) That John Baptist's sacred college is *all in tears;* the disciples of John little thought of this; but, when they *heard of it,* they came, and took up the neglected *corpse,* and *laid it in a tomb;* where Herod, if he had pleased, might have found it, when he frightened himself with the fancy that John Baptist was *risen from the dead.*
 
-## The Miracle of the Loaves and Fishes.
-
+## The Miracle of the Loaves and Fishes
 > **³⁰** And the apostles gathered themselves together unto Jesus, and told him all things, both what they had done, and what they had taught.  
 > **³¹** And he said unto them, Come ye yourselves apart into a desert place, and rest a while: for there were many coming and going, and they had no leisure so much as to eat.  
 > **³²** And they departed into a desert place by ship privately.  
@@ -164,8 +160,7 @@ V\. The provision he made for them all; all his hearers he generously made his g
 
 (4.) Care was taken of the fragments that remained, with which they filled *twelve baskets.* Though Christ had bread enough at command, he would hereby teach us, not to make waste of any of God's good creatures; remembering how many there are that do want, and that we know not but we may some time or other want such fragments as we throw away.
 
-## Christ Walking on the Sea.
-
+## Christ Walking on the Sea
 > **⁴⁵** And straightway he constrained his disciples to get into the ship, and to go to the other side before unto Bethsaida, while he sent away the people.  
 > **⁴⁶** And when he had sent them away, he departed into a mountain to pray.  
 > **⁴⁷** And when even was come, the ship was in the midst of the sea, and he alone on the land.  

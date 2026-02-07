@@ -6,8 +6,7 @@ weight: 5
 
 We have in the gospels a faithful record of all that Jesus began both to do and to teach, Ac 1:1. These two are interwoven, because what he taught explained what he did, and what he did confirmed what he taught. Accordingly, we have in this chapter a miracle and a sermon. I. The miracle was the cure of an impotent man that had been diseased thirty-eight years, with the circumstances of that cure, Joh 5:1-16. II. The sermon was Christ's vindication of himself before the sanhedrim, when he was prosecuted as a criminal for healing the man on the sabbath day, in which, 1. He asserts his authority as Messiah, and Mediator between God and man, Joh 5:17-29. 2. He proves it by the testimony of his Father, of John Baptist, of his miracles, and of the scriptures of the Old Testament, and condemns the Jews for their unbelief, Joh 5:30-47.
 
-## The Cure at the Pool of Bethesda.
-
+## The Cure at the Pool of Bethesda
 > **¹** After this there was a feast of the Jews; and Jesus went up to Jerusalem.  
 > **²** Now there is at Jerusalem by the sheep *market* a pool, which is called in the Hebrew tongue Bethesda, having five porches.  
 > **³** In these lay a great multitude of impotent folk, of blind, halt, withered, waiting for the moving of the water.  
@@ -89,8 +88,7 @@ V\. What became of the poor man after he was cured. We are here told,
 
 VI\. Now, after this interview between Christ and his patient, observe in the Joh 5:15,16, 1. The notice which the poor simple man gave to the Jews concerning Christ, Joh 5:15. He told them it was Jesus that had *made him whole.* We have reason to think that he intended this for the honour of Christ and the benefit of the Jews, little thinking that he who had so much power and goodness could have *any* enemies; but those who wish well to Christ's kingdom must have the *wisdom of the serpent,* lest they do more hurt than good with their zeal, and must not cast pearls before swine. 2. The rage and enmity of the Jews against him: *Therefore did the* rulers of the Jews *persecute Jesus.* See, (1.) How absurd and unreasonable their enmity to Christ was. *Therefore,* because he had made a poor sick man well, and so eased the public charge, upon which, it is likely, he had subsisted; *therefore* they persecuted him, because he did good in Israel. (2.) How bloody and cruel it was: *They sought to slay him;* nothing less than his blood, his life, would satisfy them. (3.) How it was varnished over with a colour of zeal for the honour of the sabbath; for this was the pretended crime, *Because he had done these things on the sabbath day,* as if that circumstance were enough to vitiate the best and most divine actions, and to render *him* obnoxious whose deeds were otherwise most meritorious. Thus hypocrites often cover their real enmity against the *power* of godliness with a pretended zeal for the *form* of it.
 
-## Christ's Discourse with the Jews; All Judgment Committed to Christ; The Christian Charter.
-
+## Christ's Discourse with the Jews; All Judgment Committed to Christ; The Christian Charter
 > **¹⁷** But Jesus answered them, My Father worketh hitherto, and I work.  
 > **¹⁸** Therefore the Jews sought the more to kill him, because he not only had broken the sabbath, but said also that God was his Father, making himself equal with God.  
 > **¹⁹** Then answered Jesus and said unto them, Verily, verily, I say unto you, The Son can do nothing of himself, but what he seeth the Father do: for what things soever he doeth, these also doeth the Son likewise.  
@@ -180,8 +178,7 @@ III\. Christ's discourse upon this occasion, which continues without interruptio
 
 *Secondly,* By the Father's *will: My judgment is just,* and cannot be otherwise, *because I seek not my own will,* but *his who sent me.* Not as if the will of Christ were contrary to the will of the Father, as the flesh is contrary to the spirit in us; but, 1. Christ had, as man, the natural and innocent affections of the human nature, *sense of pain* and *pleasure,* an inclination to life, an aversion to death: yet he *pleased not himself,* did not confer with these, nor consult these, when he was to go on his undertaking, but acquiesced entirely in the will of his Father. 2. What he did as Mediator was not the result of any *peculiar* or *particular* purpose and design of his own; what he did *seek* to do was not for his own mind's sake, but he was therein guided by his Father's will, and the purpose which he had *purposed to himself.* This our Saviour did upon all occasions *refer himself to* and govern himself by.
 
-## Christ Proves His Divine Mission; Infidelity of the Jews Reproved.
-
+## Christ Proves His Divine Mission; Infidelity of the Jews Reproved
 > **³¹** If I bear witness of myself, my witness is not true.  
 > **³²** There is another that beareth witness of me; and I know that the witness which he witnesseth of me is true.  
 > **³³** Ye sent unto John, and he bare witness unto the truth.  

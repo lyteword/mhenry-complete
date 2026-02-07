@@ -6,8 +6,7 @@ weight: 21
 
 The death and resurrection of Jesus Christ are the two main hinges upon which the door of salvation turns. He came into the world on purpose to give his life a ransom; so he had lately said, Mt 20:28. And therefore the history of his sufferings, even unto death, and his rising again, is more particularly recorded by all the evangelists than any other part of his story; and to that this evangelist now hastens apace. For at this chapter begins that which is called the passion-week. He had said to his disciples more than once, Behold, we go up to Jerusalem, and there the Son of man must be betrayed. A great deal of good work he did by the way, and now at length he is come up to Jerusalem; and here we have, I. The public entry which he made into Jerusalem, upon the first day of the passion-week, Mt 21:1-11. II. The authority he exercised there, in cleansing the temple, and driving out of it the buyers and sellers, Mt 21:12-16. III. The barren fig-tree, and his discourse with his disciples thereupon, Mt 21:17-22. IV. His justifying his own authority, by appealing to the baptism of John, Mt 21:23-27. V. His shaming the infidelity and obstinacy of the chief priests and elders, with the repentance of the publicans, illustrated by the parable of the two sons, Mt 21:29-32. VI. His reading the doom of the Jewish church for its unfruitfulness, in the parable of the vineyard let out to unthankful husbandmen, Mt 21:33-46.
 
-## Christ's Entrance into Jerusalem.
-
+## Christ's Entrance into Jerusalem
 > **¹** And when they drew nigh unto Jerusalem, and were come to Bethphage, unto the mount of Olives, then sent Jesus two disciples,  
 > **²** Saying unto them, Go into the village over against you, and straightway ye shall find an ass tied, and a colt with her: loose *them,* and bring *them* unto me.  
 > **³** And if any *man* say ought unto you, ye shall say, The Lord hath need of them; and straightway he will send them.  
@@ -76,8 +75,7 @@ Upon this commotion we are further told,
 
 (2.) How the multitude answered them; *This is Jesus,* Mt 21:11. The multitude were better acquainted with Christ than the great ones. *Vox populi—The voice of the people,* is sometimes *Vox Dei—the voice of God.* Now, in the account they give of him, [1.] They were right in calling him *the Prophet, that great Prophet.* Hitherto he had been known as a Prophet, teaching and working miracles; now they attend him as a King; Christ's priestly office was, of all the three, last discovered. [2.] Yet they missed it, in saying he was *of Nazareth;* and it helped to confirm some in their prejudices against him. Note, Some that are willing to honour Christ, and bear their testimony to him, yet labour under mistakes concerning him, which would be rectified if they would take pains to inform themselves.
 
-## The Profaners of the Temple Punished.
-
+## The Profaners of the Temple Punished
 > **¹²** And Jesus went into the temple of God, and cast out all them that sold and bought in the temple, and overthrew the tables of the money-changers, and the seats of them that sold doves,  
 > **¹³** And said unto them, It is written, My house shall be called the house of prayer; but ye have made it a den of thieves.  
 > **¹⁴** And the blind and the lame came to him in the temple; and he healed them.  
@@ -119,8 +117,7 @@ Observe, (1.) The children were in the temple, perhaps playing there; no wonder,
 
 *Lastly,* Christ, having thus silenced them, forsook them, Mt 21:17. *He left them,* in prudence, lest they should now have seized him before his hour was come; in justice, because they had forfeited the favour of his presence. By repining at Christ's praises we drive him from us. *He left them* as incorrigible, and he *went out of the city to Bethany,* which was a more quiet retired place; not so much that he might *sleep* undisturbed as that he might *pray* undisturbed. *Bethany was but two little miles from Jerusalem;* thither he went on foot, to show that, when he rode, it was only to *fulfil the scripture.* He was not lifted up with the hosannas of the people; but, as having forgot them, soon returned to his mean and toilsome way of travelling.
 
-## The Barren Fig-Tree Cursed.
-
+## The Barren Fig-Tree Cursed
 > **¹⁸** Now in the morning as he returned into the city, he hungered.  
 > **¹⁹** And when he saw a fig tree in the way, he came to it, and found nothing thereon, but leaves only, and said unto it, Let no fruit grow on thee henceforward for ever. And presently the fig tree withered away.  
 > **²⁰** And when the disciples saw *it,* they marvelled, saying, How soon is the fig tree withered away!  
@@ -153,8 +150,7 @@ Observe, [1.] The description of this wonder-working faith; *If ye have faith, a
 
 [3.] The way and means of exercising this faith, and of doing that which is to be done by it; *All things whatsoever ye shall ask in prayer, believing, ye shall receive.* Faith is the soul, prayer is the body; both together make a complete man for any service. Faith, if it be right, will excite prayer; and prayer is not right, if it do not spring from faith. This is the condition of our receiving—we must *ask in prayer, believing.* The requests of prayer shall not be denied; the expectations of faith shall not be frustrated. We have many promises to this purport from the mouth of our Lord Jesus, and all to encourage faith, the principal grace, and prayer, the principal duty, of a Christian. It is but ask and have, believe and receive; and what would we more? Observe, How comprehensive the promise is—*all things whatsoever ye shall ask;* this is like all and every the premises in a conveyance. *All things,* in general; *whatsoever,* brings it to particulars; though generals include particulars, yet such is the folly of our unbelief, that, though we think we assent to promises in the general, yet we fly off when it comes to particulars, and therefore, *that we might have strong consolation,* it is thus copiously expressed, *All things whatsoever.*
 
-## Christ Questioned as to His Authority.
-
+## Christ Questioned as to His Authority
 > **²³** And when he was come into the temple, the chief priests and the elders of the people came unto him as he was teaching, and said, By what authority doest thou these things? and who gave thee this authority?  
 > **²⁴** And Jesus answered and said unto them, I also will ask you one thing, which if ye tell me, I in like wise will tell you by what authority I do these things.  
 > **²⁵** The baptism of John, whence was it? from heaven, or of men? And they reasoned with themselves, saying, If we shall say, From heaven; he will say unto us, Why did ye not then believe him?  
@@ -195,8 +191,7 @@ Now this question is concerning John's baptism, here put for his whole ministry,
 
 Thus Christ avoided the snare they laid for him, and justified himself in refusing to gratify them; *Neither tell I you by what authority I do these things.* If they be so wicked and base as either not to believe, or not to confess, that the baptism of John was from heaven (though it obliged to repentance, that great duty, and sealed the kingdom of God at hand, that great promise), they were not fit to be discoursed with concerning Christ's authority; for men of such a disposition could not be convinced of the truth, nay, they could not but be provoked by it, and therefore *he that is thus ignorant, let him be ignorant still.* Note, Those that imprison the truths they know, in unrighteousness (either by not professing them, or by not practising according to them), are justly denied the further truths they enquire after, Ro 1:18,19. Take away the talent from him that buried it; those that *will not* see, *shall not* see.
 
-## The Parable of the Two Sons.
-
+## The Parable of the Two Sons
 > **²⁸** But what think ye? A *certain* man had two sons; and he came to the first, and said, Son, go work to day in my vineyard.  
 > **²⁹** He answered and said, I will not: but afterward he repented, and went.  
 > **³⁰** And he came to the second, and said likewise. And he answered and said, I *go,* sir: and went not.  
@@ -245,8 +240,7 @@ In Christ's application of this parable, observe.
 
 (2.) The scribes and Pharisees, the chief priests and elders, and indeed the Jewish nation in general, were like the other son that gave good words; they made a specious profession of religion, and yet, when the kingdom of the Messiah was brought among them by the baptism of John, they slighted it, they turned their back upon it, nay they *lifted up the heel against it.* A hypocrite is more hardly convinced and converted than a gross sinner; the form of godliness, if that be rested in, becomes one of Satan's strongholds, by which he opposes the power of godliness. It was an aggravation of their unbelief, [1.] That John was such an excellent person, that he came, and came to them, in *the way of righteousness.* The better the means are, the greater will the account be, if not improved. [2.] That, when they saw the publicans and harlots go before them into the kingdom of heaven, they did not afterward repent and believe; were not thereby provoked to a holy emulation, Ro 11:14. Shall publicans and harlots go away with grace and glory; and shall not we put in for a share? Shall our inferiors be more holy and more happy than we? They had not the wit and grace that Esau had, who was moved to take other measures than he had done, by the example of his younger brother, Ge 28:6. These proud priests, that set up for leaders, scorned to follow, though it were into the kingdom of heaven, especially to follow publicans; through the pride of their countenance, they would not seek after God, after Christ, Ps 10:4.
 
-## The Parable of the Wicked Husbandmen.
-
+## The Parable of the Wicked Husbandmen
 > **³³** Hear another parable: There was a certain householder, which planted a vineyard, and hedged it round about, and digged a winepress in it, and built a tower, and let it out to husbandmen, and went into a far country:  
 > **³⁴** And when the time of the fruit drew near, he sent his servants to the husbandmen, that they might receive the fruits of it.  
 > **³⁵** And the husbandmen took his servants, and beat one, and killed another, and stoned another.  

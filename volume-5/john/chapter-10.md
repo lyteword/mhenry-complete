@@ -6,8 +6,7 @@ weight: 10
 
 In this chapter we have, I. Christ's parabolical discourse concerning himself as the door of the sheepfold, and the shepherd of the sheep, Joh 10:1-18. II. The various sentiments of people upon it, Joh 10:19-21. III. The dispute Christ had with the Jews in the temple at the feast of dedication, Joh 10:22-39. IV. His departure into the country thereupon, Joh 10:40-42.
 
-## The Good Shepherd.
-
+## The Good Shepherd
 > **¹** Verily, verily, I say unto you, He that entereth not by the door into the sheepfold, but climbeth up some other way, the same is a thief and a robber.  
 > **²** But he that entereth in by the door is the shepherd of the sheep.  
 > **³** To him the porter openeth; and the sheep hear his voice: and he calleth his own sheep by name, and leadeth them out.  
@@ -107,8 +106,7 @@ III\. Christ's explication of this parable, opening the particulars of it fully.
 
 *2ndly,* See here the grace of Christ; since none could demand his life of him by law, or extort it by force, he *laid it down of himself,* for our redemption. He offered himself to be the Saviour: *Lo, I come;* and then, the necessity of our case calling for it, he offered himself to be a sacrifice: *Here am I, let these go their way; by which will we are sanctified,* Heb 10:10. He was both the offerer and the offering, so that *his laying down his life* was his offering up himself.
 
-## Sentiments Concerning Christ.
-
+## Sentiments Concerning Christ
 > **¹⁹** There was a division therefore again among the Jews for these sayings.  
 > **²⁰** And many of them said, He hath a devil, and is mad; why hear ye him?  
 > **²¹** Others said, These are not the words of him that hath a devil. Can a devil open the eyes of the blind?  
@@ -119,8 +117,7 @@ I\. Some upon this occasion spoke ill of Christ and of his sayings, either openl
 
 II\. Others stood up in defence of him and his discourse, and, though the stream ran strong, dared to swim against it; and, though perhaps they did not believe on him as the Messiah, they could not bear to hear him thus abused. If they could say no more of him, this they would maintain, that he was a man in his wits, that he had not a devil, that he was neither senseless nor graceless. The absurd and most unreasonable reproaches, that have sometimes been cast upon Christ and his gospel, have excited those to appear for him and it who otherwise had no great affection to either. Two things they plead:—1. The excellency of his doctrine: "*These are not the words of him that hath a devil;* they are not idle words; distracted men are not used to talk at this rate. These are not the words of one that is either violently possessed with a devil or voluntarily in league with the devil." Christianity, if it be not the true religion, is certainly the greatest cheat that ever was put upon the world; and, if so, it must be of the devil, who is the father of all lies: but it is certain that the doctrine of Christ is no doctrine of devils, for it is levelled directly against the devil's kingdom, and Satan is too subtle to be divided against himself. So much of holiness there is in the words of Christ that we may conclude they are *not the words of one that has a devil,* and therefore are the words of one that was sent of God; are not from hell, and therefore must be from heaven. 2. The power of his miracles: *Can a devil,* that is, a man that has a devil, *open the eyes of the blind?* Neither mad men nor bad men can work miracles. Devils are not such lords of the power of nature as to be able to work such miracles; nor are they such friends to mankind as to be willing to work them if they were able. The devil will sooner put out men's eyes than open them. Therefore Jesus *had not a devil.*
 
-## Christ's Conference with the Jews.
-
+## Christ's Conference with the Jews
 > **²²** And it was at Jerusalem the feast of the dedication, and it was winter.  
 > **²³** And Jesus walked in the temple in Solomon's porch.  
 > **²⁴** Then came the Jews round about him, and said unto him, How long dost thou make us to doubt? If thou be the Christ, tell us plainly.  
@@ -207,8 +204,7 @@ VII\. Christ's reply to their accusation of him (for such their vindication of t
 
 (2.) *For what* he argues—*that you may know and believe,* may believe it intelligently, and with an entire satisfaction, that *the Father is in me and I in him;* which is the same with what he had said (Joh 10:30): *I and my Father are one.* The Father was so in the Son as that in him *dwelt all the fulness of the Godhead,* and it was by a divine power that he wrought his miracles; the Son was so in the Father as that he was perfectly acquainted with the whole of his mind, not by communication, but by consciousness, having lain in his bosom. This we must *know;* not know and *explain* (for we cannot by searching find it out to perfection), but know and *believe* it; acknowledging and adoring the depth, when we cannot find the bottom.
 
-## Christ Retires beyond Jordan.
-
+## Christ Retires beyond Jordan
 > **³⁹** Therefore they sought again to take him: but he escaped out of their hand,  
 > **⁴⁰** And went away again beyond Jordan into the place where John at first baptized; and there he abode.  
 > **⁴¹** And many resorted unto him, and said, John did no miracle: but all things that John spake of this man were true.  

@@ -6,8 +6,7 @@ weight: 22
 
 This chapter is a continuation of Christ's discourses in the temple, two or three days before he died. His discourses then are largely recorded, as being of special weight and consequence. In this chapter, we have, I. Instruction given, by the parable of the marriage-supper, concerning the rejection of the Jews, and the calling of the Gentiles (Mt 22:1-10), and, by the doom of the guest that had not the wedding-garment, the danger of hypocrisy in the profession of Christianity, Mt 22:11-14. II. Disputes with the Pharisees, Sadducees, and scribes, who opposed Christ, 1. Concerning paying tribute to Cæsar, Mt 22:15-22. 2. Concerning the resurrection of the dead, and the future state, Mt 22:23-33. 3. Concerning the great commandment of the law, Mt 22:34-40. 4. Concerning the relation of the Messiah to David, Mt 22:41-46.
 
-## The Parable of the Marriage Feast.
-
+## The Parable of the Marriage Feast
 > **¹** And Jesus answered and spake unto them again by parables, and said,  
 > **²** The kingdom of heaven is like unto a certain king, which made a marriage for his son,  
 > **³** And sent forth his servants to call them that were bidden to the wedding: and they would not come.  
@@ -93,8 +92,7 @@ Observe, This hypocrite was never discovered to be without *a wedding garment,* 
 
 *Lastly,* The parable is concluded with that remarkable saying which we had before (Mt 20:16), *Many are called, but few are chosen,* Mt 22:14. Of the many that are called to the wedding feast, if you set aside all those as unchosen that make light of it, and avowedly prefer other things before it; if then you set aside all that make a profession of religion, but the temper of whose spirits and the tenour of whose conversation are a constant contradiction to it; if you set aside all the profane, and all the hypocritical, you will find that they are few, very few, that are chosen; many called to the wedding feast, but few chosen to the wedding garment, that is, to *salvation, by sanctification of the Spirit.* This *is the strait gate, and narrow way,* which *few find.*
 
-## The Question Respecting Tribute.
-
+## The Question Respecting Tribute
 > **¹⁵** Then went the Pharisees, and took counsel how they might entangle him in *his* talk.  
 > **¹⁶** And they sent out unto him their disciples with the Herodians, saying, Master, we know that thou art true, and teachest the way of God in truth, neither carest thou for any *man:* for thou regardest not the person of men.  
 > **¹⁷** Tell us therefore, What thinkest thou? Is it lawful to give tribute unto Caesar, or not?  
@@ -162,8 +160,7 @@ Christ asked them, *Whose image is this?* They owned it to be Cæsar's, and ther
 
 *Lastly,* Observe how they were nonplussed by this answer; they *marvelled, and left him, and went their way,* Mt 22:22. They admired his sagacity in discovering and evading a snare which they thought so craftily laid. Christ is, and will be, the Wonder, not only of his beloved friends, but of his baffled enemies. One would think they should have marvelled and followed him, marvelled and submitted to him; no, they marvelled and left him. Note, There are many in whose eyes Christ is marvellous, and yet not precious. They admire his wisdom, but will not be guided by it, his power, but will not submit to it. *They went their way,* as persons ashamed, and made an inglorious retreat. The stratagem being defeated, they quitted the field. Note, There is nothing got by contending with Christ.
 
-## The Question Respecting Marriage.
-
+## The Question Respecting Marriage
 > **²³** The same day came to him the Sadducees, which say that there is no resurrection, and asked him,  
 > **²⁴** Saying, Master, Moses said, If a man die, having no children, his brother shall marry his wife, and raise up seed unto his brother.  
 > **²⁵** Now there were with us seven brethren: and the first, when he had married a wife, deceased, and, having no issue, left his wife unto his brother:  
@@ -228,8 +225,7 @@ Now the drift of the argument is to prove,
 
 *Lastly,* We have the issue of this dispute. The Sadducees were *put to silence* (Mt 22:34), and so put to shame. They thought by their subtlety to put Christ to shame, when they were preparing shame for themselves. But the multitude *were astonished at this doctrine,* Mt 22:33. 1. Because it was new to them. See to what a sad pass the exposition of scripture was come among them, when people were astonished at it as a miracle to hear the fundamental promise applied to this great truth; they had sorry scribes, or this had been no news to them. 2. Because it had something in it very good and great. Truth often shows the brighter, and is the more admired, for its being opposed. Observe, Many gainsayers are silenced, and many hearers astonished, without being savingly converted; yet even in the silence and astonishment of unsanctified souls God magnifies his law, magnifies his gospel, and makes both honourable.
 
-## The Substance of the Commandments.
-
+## The Substance of the Commandments
 > **³⁴** But when the Pharisees had heard that he had put the Sadducees to silence, they were gathered together.  
 > **³⁵** Then one of them, *which was* a lawyer, asked *him a question,* tempting him, and saying,  
 > **³⁶** Master, which *is* the great commandment in the law?  
@@ -270,8 +266,7 @@ Now here we are directed,
 
 2\. Observe what the weight and greatness of these commandments is (Mt 22:40); *On these two commandments hang all the law and the prophets;* that is, This is the sum and substance of all those precepts relating to practical religion which were written in men's hearts by nature, revived by Moses, and backed and enforced by the preaching and writing of the prophets. All hang upon the law of love; take away this, and all falls to the ground, and comes to nothing. Rituals and ceremonials must give way to these, as must all spiritual gifts, for love is the more excellent way. This is the spirit of the law, which animates it, the cement of the law, which joins it; it is the root and spring of all other duties, the compendium of the whole Bible, not only of the law and the prophets, but of the gospel too, only supposing this love to be the fruit of faith, and that we love God in Christ, and our neighbour for his sake. All hangs on these two commandments, as the effect doth both on its efficient and on its final cause; for *the fulfilling of the law is love* (Ro 13:10) and *the end of the law is love,* 1Ti 1:5. The law of love is the nail, is the *nail in the sure place, fastened by the masters of assemblies* (Ec 12:11), on which is hung all *the glory of the law and the prophets* (Isa 22:24), a nail that shall never be drawn; for on this nail all the glory of the new Jerusalem shall eternally hang. *Love never faileth.* Into these two great commandments therefore let our hearts be delivered as into a mould; in the defence and evidence of these let us spend our zeal, and not in notions, names, and strifes of words, as if those were the mighty things on which the law and the prophets hung, and to them the love of God and our neighbour must be sacrificed; but to the commanding power of these let every thing else be made to bow.
 
-## The Pharisees Silenced.
-
+## The Pharisees Silenced
 > **⁴¹** While the Pharisees were gathered together, Jesus asked them,  
 > **⁴²** Saying, What think ye of Christ? whose son is he? They say unto him, *The Son* of David.  
 > **⁴³** He saith unto them, How then doth David in spirit call him Lord, saying,  

@@ -6,8 +6,7 @@ weight: 14
 
 In this chapter begins the account which this evangelist gives of the death and sufferings of our Lord Jesus, which we are all concerned to be acquainted, not only with the history of, but with the mystery of. Here is, I. The plot of the chief priests and scribes against Christ, Mk 14:1,2. II. The anointing of Christ's head at a supper in Bethany, two days before his death, Mk 14:3-9. III. The contract Judas made with the chief priests, to betray him, Mk 14:10,11. IV. Christ's eating the passover with his disciples, his instituting the Lord's supper, and his discourse with his disciples, at and after supper, Mk 14:12-31. V. Christ's agony in the garden, Mk 14:32-42. VI. The betraying of him by Judas, and the apprehending of him by the chief priests' agents, Mk 14:43-52. VII. His arraignment before the high priest, his conviction, and the indignities done him at that bar, Mk 14:53-65. VIII. Peter's denying him, Mk 14:66-72. Most of which passages we had before, Mt 26:1-75
 
-## Christ Anointed at Bethany; Judas Engages to Betray Christ.
-
+## Christ Anointed at Bethany; Judas Engages to Betray Christ
 > **¹** After two days was *the feast of* the passover, and of unleavened bread: and the chief priests and the scribes sought how they might take him by craft, and put *him* to death.  
 > **²** But they said, Not on the feast *day,* lest there be an uproar of the people.  
 > **³** And being in Bethany in the house of Simon the leper, as he sat at meat, there came a woman having an alabaster box of ointment of spikenard very precious; and she brake the box, and poured *it* on his head.  
@@ -48,8 +47,7 @@ Now see, [1.] How *spiteful* Christ's enemies were; they did not think it enough
 
 (3.) Having secured the money, he set himself to make good his bargain; he sought *how he might conveniently betray him,* how he might *seasonably deliver him up,* so as to answer the intention of those who had hired him. See what need we have to be careful that we do not ensnare ourselves in sinful engagements. If at any time we be so ensnared in the words of our mouths, we are concerned to deliver ourselves by a speedy retreat, Pr 6:1-5. It is a rule in our law, as well as in our religion, that an *obligation* to do an *evil thing* is *null* and *void;* it binds to repentance, not to performance. See how the way of sin is down-hill—when men are *in,* they must be *on;* and what *wicked* contrivances many have in their sinful pursuits, to compass their designs *conveniently;* but such conveniences will prove mischiefs in the end.
 
-## The Institution of the Lord's Supper.
-
+## The Institution of the Lord's Supper
 > **¹²** And the first day of unleavened bread, when they killed the passover, his disciples said unto him, Where wilt thou that we go and prepare that thou mayest eat the passover?  
 > **¹³** And he sendeth forth two of his disciples, and saith unto them, Go ye into the city, and there shall meet you a man bearing a pitcher of water: follow him.  
 > **¹⁴** And wheresoever he shall go in, say ye to the goodman of the house, The Master saith, Where is the guest chamber, where I shall eat the passover with my disciples?  
@@ -121,8 +119,7 @@ But Christ encourages them with a promise that they shall rally again, shall ret
 
 (3.) He stands to his promise; "*If I should die with thee, I will not deny thee;* I will adhere to thee, though it cost me my life:" and, no doubt, he thought as he said. Judas said nothing like this, when Christ told him he would betray him. He sinned by contrivance, Peter by surprise; he *devised the wickedness* (Mic 2:1), Peter was *overtaken in this fault,* Ga 6:1. It was ill done of Peter, to contradict his Master. If he had said, with fear and trembling, "Lord, give me grace to keep me from denying thee, lead me not into this temptation, deliver me from this evil," it might have been prevented: but they were all thus confident; they who said, *Lord, is it I?* now said, *It shall never be me.* Being acquitted from their fear of betraying Christ, they were now secure. But he that thinks he stands, must learn to take heed lest he fall; and he that *girdeth on the harness,* not boast *as though he had put it off.*
 
-## The Agony in the Garden.
-
+## The Agony in the Garden
 > **³²** And they came to a place which was named Gethsemane: and he saith to his disciples, Sit ye here, while I shall pray.  
 > **³³** And he taketh with him Peter and James and John, and began to be sore amazed, and to be very heavy;  
 > **³⁴** And saith unto them, My soul is exceeding sorrowful unto death: tarry ye here, and watch.  
@@ -163,8 +160,7 @@ VIII\. He *repeated* his address to his Father (Mk 14:39); *He went again, and p
 
 IX\. He *repeated* his visits to his disciples. Thus he gave a specimen of his continued care for his church on earth, even when it is *half asleep,* and not duly concerned for itself, while he ever lives making intercession with his Father *in heaven.* See how, as became a *Mediator,* he passes and repasses between both. He came the *second time* to his disciples, and *found them asleep again,* Mk 14:40. See how the infirmities of Christ's disciples *return* upon them, notwithstanding their resolutions, and *overpower* them, notwithstanding their resistance; and what clogs those bodies of ours are to our souls, which should make us long for that blessed state in which they shall be no more our encumbrance. This second time he spoke to them as before, but *they wist not what to answer him;* they were ashamed of their drowsiness, and had nothing to say in excuse for it. Or, They were so overpowered with it, that, like men between sleeping and waking, they knew not where they were, or what they said. But, the *third time,* they were bid to *sleep* if they would (Mk 14:41); "*Sleep on now, and take your rest.* I have now no more occasion for your watching, you may sleep, if you will, for me." *It is enough;* we had not that word in Matthew. "You have had warning enough to keep awake, and would not take it; and now you shall see what little reason you have to be secure." *Apekei*, *I discharge you* from any *further attendance;* so some understand it; "Now *the hour is come,* in which I knew you would all forsake me, even take your course;" as he said to Judas, *What thou doest, do quickly.* The *Son of man* is now *betrayed into the hands of sinners,* the chief priests and elders; those *worst* of sinners, because they made a profession of sanctity. "Come, *rise up,* do not lie dozing there. *Let us go* and meet the enemy, for *lo, he that betrayeth me is at hand,* and I must not now think of making an escape." When we see trouble at the door, we are concerned to stir up ourselves to get ready for it.
 
-## The Treachery of Judas.
-
+## The Treachery of Judas
 > **⁴³** And immediately, while he yet spake, cometh Judas, one of the twelve, and with him a great multitude with swords and staves, from the chief priests and the scribes and the elders.  
 > **⁴⁴** And he that betrayed him had given them a token, saying, Whomsoever I shall kiss, that same is he; take him, and lead *him* away safely.  
 > **⁴⁵** And as soon as he was come, he goeth straightway to him, and saith, Master, master; and kissed him.  
@@ -200,8 +196,7 @@ IX\. The noise disturbed the neighbourhood, and some of the neighbours were brou
 
 2\. See how he was *frightened into his bed* again, when he was in danger of being made a *sharer* in Christ's sufferings. His own disciples had run away from him; but this young man, having no concern for him, thought he might securely attend him, especially being so far from being armed, that he was not so much as clothed; but *the young men,* the Roman soldiers, who were called to assist, *laid hold of him,* for all was fish that came to their net. Perhaps they were now vexed at themselves, that they had suffered the disciples to *run away,* and they being got out of their reach they resolved to seize the first they could *lay their hands on;* though this young man was perhaps one of the *strictest sect* of the Jewish church, yet the Roman soldiers made no conscience of abusing him upon this occasion. Finding himself in danger, he *left the linen cloth* by which they had *caught hold of him,* and *fled away naked.* This passage is recorded to show what a barbarous crew this was, that was sent to seize Christ, and what a narrow escape the disciples had of falling into their hands, out of which nothing could have kept them but their Master's care of them; *If ye seek me, let these go their way,* Joh 18:8. It also intimates that there is *no hold* of those who are led by curiosity only, and not by faith and conscience, to follow Christ.
 
-## Christ Brought before the High Priest.
-
+## Christ Brought before the High Priest
 > **⁵³** And they led Jesus away to the high priest: and with him were assembled all the chief priests and the elders and the scribes.  
 > **⁵⁴** And Peter followed him afar off, even into the palace of the high priest: and he sat with the servants, and warmed himself at the fire.  
 > **⁵⁵** And the chief priests and all the council sought for witness against Jesus to put him to death; and found none.  
@@ -236,8 +231,7 @@ VIII\. They agreed that he was a blasphemer, and, as such, was guilty of a capit
 
 IX\. They set themselves to abuse him, and, as the Philistines with Samson, to make sport with him, Mk 14:65. It should seem that some of the priests themselves that had condemned him, so far forgot the dignity, as well as duty, of their place, and the gravity which became them, that they helped their servants in playing the fool with a condemned prisoner. This they made their diversion, while they *waited for the morning,* to complete their villany. That *night of observations* (as the passover-night was called) they *made a merry night of.* If they did not think it below them to abuse Christ, shall we think any thing below us, by which we may do him honour?
 
-## Peter's Fall.
-
+## Peter's Fall
 > **⁶⁶** And as Peter was beneath in the palace, there cometh one of the maids of the high priest:  
 > **⁶⁷** And when she saw Peter warming himself, she looked upon him, and said, And thou also wast with Jesus of Nazareth.  
 > **⁶⁸** But he denied, saying, I know not, neither understand I what thou sayest. And he went out into the porch; and the cock crew.  

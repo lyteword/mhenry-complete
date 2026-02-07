@@ -6,8 +6,7 @@ weight: 6
 
 In this chapter we have, I. The miracle of the loaves, Joh 6:1-14. II. Christ's walking upon the water, Joh 6:15-21. III. The people's flocking after him to Capernaum, Joh 6:22-25. IV. His conference with them, occasioned by the miracle of the loaves, in which he reproves them for seeking carnal food, and directs them to spiritual food (Joh 6:26,27), showing them how they must labour for spiritual food (Joh 6:28,29), and what that spiritual food is, Joh 6:30-59. V. Their discontent at what he said, and the reproof he gave them for it, Joh 6:60-65. VI. The apostasy of many from him, and his discourse with his disciples that adhered to him upon that occasion, Joh 6:66-71.
 
-## The Five Thousand Fed.
-
+## The Five Thousand Fed
 > **¹** After these things Jesus went over the sea of Galilee, which is *the sea* of Tiberias.  
 > **²** And a great multitude followed him, because they saw his miracles which he did on them that were diseased.  
 > **³** And Jesus went up into a mountain, and there he sat with his disciples.  
@@ -65,8 +64,7 @@ II\. The miracle itself. And here observe,
 
 III\. Here is the influence which this miracle had upon the people who tasted of the benefit of it (Joh 6:14): *They said, This is of a truth that prophet.* Note, 1. Even the vulgar Jews with great assurance expected the Messiah to come into the world, and to be a *great prophet,* They speak here with assurance of his coming. The Pharisees despised them as *not knowing the law;* but, it should seem, they knew more of him that is the *end of the law* than the Pharisees did. 2. The miracles which Christ wrought did clearly demonstrate that he was the Messiah promised, a teacher come from God, the great prophet, and could not but convince the amazed spectators that this was he that should come. There were many who were convinced he was that prophet that should come into the world who yet did not cordially receive his doctrine, for they did not continue in it. Such a wretched incoherence and inconsistency there is between the faculties of the corrupt unsanctified soul, that it is possible for men to acknowledge that Christ is that prophet, and yet to turn a deaf ear to him.
 
-## Christ Walks on the Water.
-
+## Christ Walks on the Water
 > **¹⁵** When Jesus therefore perceived that they would come and take him by force, to make him a king, he departed again into a mountain himself alone.  
 > **¹⁶** And when even was *now* come, his disciples went down unto the sea,  
 > **¹⁷** And entered into a ship, and went over the sea toward Capernaum. And it was now dark, and Jesus was not come to them.  
@@ -95,8 +93,7 @@ II\. Here is the disciples' distress at sea. *They that go down to the sea in sh
 
 4\. Here is their speedy arrival at the port they were bound for, Joh 6:17. (1.) They *welcomed* Christ into the ship; they *willingly received him.* Note, Christ's absenting himself for a time is but so much the more to *endear himself,* at his return, to his disciples, who value his presence above any thing; see So 3:4. (2.) Christ brought them safely to the shore: *Immediately the ship was at the land whither they went.* Note, [1.] The ship of the church, in which the disciples of Christ have *embarked* themselves and their all, may be much shattered and distressed, yet it shall come safe to the harbour at last; *tossed* at sea, but not *lost;* cast down, but not destroyed; the bush burning, but not consumed. [2.] The power and presence of the church's King shall expedite and facilitate her deliverance, and conquer the difficulties which have baffled the skill and industry of all her other friends. The disciples had rowed hard, but could not make their point till they had got Christ in the ship, and then the work was *done suddenly.* If we have received Christ Jesus the Lord, have received him willingly, though the night be dark and the wind high, yet we may comfort ourselves with this, that we shall be at shore shortly, and are nearer to it than we think we are. Many a doubting soul is fetched to heaven by a pleasing surprise, or ever it is aware.
 
-## Christ's Discourse with the Multitude.
-
+## Christ's Discourse with the Multitude
 > **²²** The day following, when the people which stood on the other side of the sea saw that there was none other boat there, save that one whereinto his disciples were entered, and that Jesus went not with his disciples into the boat, but *that* his disciples were gone away alone;  
 > **²³** (Howbeit there came other boats from Tiberias nigh unto the place where they did eat bread, after that the Lord had given thanks:)  
 > **²⁴** When the people therefore saw that Jesus was not there, neither his disciples, they also took shipping, and came to Capernaum, seeking for Jesus.  
@@ -132,8 +129,7 @@ IV\. The answer Christ gave them, not direct to their question (what was it to t
 
 [2.] It is *undoubtedly attainable.* Shall all the treasures of the world be ransacked, and all the fruits of the earth gathered together, to furnish us with provisions that will last to eternity? No, *The sea saith, It is not in me,* among all the treasures hidden in the sand. *It cannot be gotten for gold;* but it is that *which the Son of man shall give;* *hen dosei*, either which *meat,* or which *life,* the Son of man shall give. Observe here, *First,* Who gives this meat: the *Son of man,* the great householder and master of the stores, who is entrusted with the administration of the kingdom of God among men, and the dispensation of the gifts, graces, and comforts of that kingdom, and has power to give eternal life, with all the means of it and preparatives for it. We are told to *labour for it,* as if it were to be got by our own industry, and sold upon that valuable consideration, as the heathen said, *Dii laboribus omnia vendunt—The gods sell all advantages to the industrious.* But when we have laboured ever so much for it, we have not merited it as our *hire,* but the Son of man *gives it.* And what more free than gift? It is an encouragement that he who has the giving of it is the *Son of man,* for then we may hope the *sons of men* that seek it, and labour for it, shall not fail to have it. *Secondly,* What authority he has to give it; for *him has God the Father sealed,* *touton gar ho Pater esphragisen, ho Theos*—*for him the Father has sealed* (proved and evidenced) *to be God;* so some read it; he has declared him to be the Son of God with power. He has *sealed him,* that is, has given him full authority to deal between God and man, as God's *ambassador* to man and man's *intercessor* with God, and has proved his commission by miracles. Having given him *authority,* he has given us *assurance* of it; having entrusted him with *unlimited powers,* he has satisfied us with *undoubted proofs* of them; so that as he might go on with confidence in his undertaking for us, so may we in our resignations to him. *God the Father* scaled him with the Spirit that rested on him, by the voice from heaven, by the testimony he bore to him in signs and wonders. Divine revelation is perfected in him, in him the *vision* and *prophecy* is *sealed up* (Da 9:24), to him all believers *seal* that he is true (Joh 3:33), and in him they are all *sealed,* 2Co 1:22.
 
-## Christ the True Bread from Heaven; Christ Welcomes All that Come to Him; Necessity of Feeding upon Christ.
-
+## Christ the True Bread from Heaven; Christ Welcomes All that Come to Him; Necessity of Feeding upon Christ
 > **²⁸** Then said they unto him, What shall we do, that we might work the works of God?  
 > **²⁹** Jesus answered and said unto them, This is the work of God, that ye believe on him whom he hath sent.  
 > **³⁰** They said therefore unto him, What sign showest thou then, that we may see, and believe thee? what dost thou work?  
@@ -263,8 +259,7 @@ III\. Christ, having replied to their enquiries, takes further occasion from the
 
 *b.* We shall live *eternally* by him (Joh 6:54): *Whoso eateth my flesh, and drinketh my blood,* as prepared in the gospel to be the food of souls, he *hath eternal life,* he hath it now, as Joh 6:40. He has that in him which is eternal life begun; he has the earnest and foretaste of it, and the hope of it; he shall live *for ever,* Joh 6:58. His happiness shall run parallel with the longest line of eternity itself.
 
-## Christ's Discourse with His Disciples; The Effect of Christ's Discourse; The Character of Judas.
-
+## Christ's Discourse with His Disciples; The Effect of Christ's Discourse; The Character of Judas
 > **⁶⁰** Many therefore of his disciples, when they had heard *this,* said, This is a hard saying; who can hear it?  
 > **⁶¹** When Jesus knew in himself that his disciples murmured at it, he said unto them, Doth this offend you?  
 > **⁶²** *What* and if ye shall see the Son of man ascend up where he was before?  

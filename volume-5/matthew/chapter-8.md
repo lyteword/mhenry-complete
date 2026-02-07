@@ -6,8 +6,7 @@ weight: 8
 
 The evangelist having, in the foregoing chapters, given us a specimen of our Lord's preaching, proceeds now to give some instances of the miracles he wrought, which prove him a Teacher come from God, and the great Healer of a diseased world. In this chapter we have, I. Christ's cleansing of a leper, Mt 8:1-4. II. His curing a palsy and fever, Mt 8:5-18. III. His communing with two that were disposed to follow him, Mt 8:19-22. IV. His controlling the tempest, Mt 8:23-27. V. His casting out devils, Mt 8:28-34.
 
-## The Leper Healed.
-
+## The Leper Healed
 > **¹** When he was come down from the mountain, great multitudes followed him.  
 > **²** And, behold, there came a leper and worshipped him, saying, Lord, if thou wilt, thou canst make me clean.  
 > **³** And Jesus put forth *his* hand, and touched him, saying, I will; be thou clean. And immediately his leprosy was cleansed.  
@@ -39,8 +38,7 @@ IV\. The after-directions Christ gave him. It is fit that they who are cured by 
 
 3\. *Offer the gift that Moses commanded,* in token of thankfulness to God, and recompence to the priest for his pains; and this *for a testimony unto them;* either, (1.) Which *Moses commanded for a testimony:* the ceremonial laws were testimonies of God's authority over them, care of them, and of that grace which should afterwards be revealed. Or, (2.) "Do thou offer it for a testimony, and let the priest know who cleansed thee, and how; and it shall be a testimony, that there is one among them who does that which the high priest cannot do. Let it remain upon record as a witness of my power, and a testimony for me *to* them, if they will use it and improve it; but *against* them, if they will not:" for so Christ's word and works are testimonies.
 
-## Christ Heals the Centurion's Servant.
-
+## Christ Heals the Centurion's Servant
 > **⁵** And when Jesus was entered into Capernaum, there came unto him a centurion, beseeching him,  
 > **⁶** And saying, Lord, my servant lieth at home sick of the palsy, grievously tormented.  
 > **⁷** And Jesus saith unto him, I will come and heal him.  
@@ -105,8 +103,7 @@ II\. Here is the grace of Christ appearing towards this centurion; for to the gr
 
 (2.) What was the effect of this saying: the prayer of faith was a prevailing prayer, it ever was so, and ever will be so; it appears, by the suddenness of the cure, that it was *miraculous:* and by its coincidence with Christ's saying, that the miracle was *his; he spake, and it was done;* and this was a proof of his omnipotence, that he has a long arm. It is the observation of a learned physician, that the diseases Christ cured were chiefly such as were the most difficult to be cured by any natural means, and particularly the palsy. *Omnis paralysis, præsertim vetusta, aut incurabilis est, aut difficilis curatu, etiam pueris: atque soleo ego dicere, morbos omnes qui Christo curandi fuerunt propositi, difficillimos sua matura curatu esse—Every kind of palsy, especially of long continuance, is either incurable, or is found to yield with the utmost difficulty to medical skill, even in young subjects; so that I have frequently remarked, that all the diseases which were referred to Christ for cure appear to have been of the most obstinate and hopeless kind.* Mercurialis *De Morbis Puerorum,* lib. 2. cap. 5.
 
-## Peter's Wife's Mother Healed.
-
+## Peter's Wife's Mother Healed
 > **¹⁴** And when Jesus was come into Peter's house, he saw his wife's mother laid, and sick of a fever.  
 > **¹⁵** And he touched her hand, and the fever left her: and she arose, and ministered unto them.  
 > **¹⁶** When the even was come, they brought unto him many that were possessed with devils: and he cast out the spirits with *his* word, and healed all that were sick:  
@@ -126,8 +123,7 @@ II\. Here is a general account of the many cures that Christ wrought. This cure 
 
 2\. How the scripture was herein fulfilled, Mt 8:17. The accomplishment of the Old-Testament prophecies was the great thing Christ had in his eye, and the great proof of his being the Messiah: among other things, it was written of him (Isa 53:4), *Surely he hath borne our griefs, and carried our sorrows:* it is referred to, 1Pe 2:24, and there it is construed, *he hath borne our sins;* here it is referred to, and is construed, *he hath borne our sicknesses;* our sins make our sicknesses our griefs; Christ bore away sin by the merit of his death, and bore away sickness by the miracles of his life; nay, though those miracles are ceased, we may say, that *he bore our sicknesses* then, *when he bore our sins in his own body upon the tree;* for sin is both the cause and the sting of sickness. Many are the diseases and calamities to which we are liable in the body: and there is more, in this one line of the gospels, to support and comfort us under them, than in all the writings of the philosophers—that Jesus Christ *bore our sicknesses, and carried our sorrows;* he bore them before us; though he was never sick, yet he was hungry, and thirsty, and weary, and troubled in spirit, sorrowful and very heavy; he bore them for us in his *passion,* and bears them with us in *compassion,* being *touched with the feeling of our infirmities:* and thus he bears them off from us, and makes them sit light, if it be not our own fault. Observe how emphatically it is expressed here: *Himself took our infirmities, and bare our sicknesses;* he was both able and willing to interpose in that matter, and concerned to deal with *our infirmities and sicknesses,* as our Physician; that part of the calamity of the human nature was his particular care, which he evidenced by his great readiness to cure diseases; and he is no less powerful, no less tender now, for we are sure that never were any the worse for going to heaven.
 
-## Christ's Answer to a Scribe and Another.
-
+## Christ's Answer to a Scribe and Another
 > **¹⁸** Now when Jesus saw great multitudes about him, he gave commandment to depart unto the other side.  
 > **¹⁹** And a certain scribe came, and said unto him, Master, I will follow thee whithersoever thou goest.  
 > **²⁰** And Jesus saith unto him, The foxes have holes, and the birds of the air *have* nests; but the Son of man hath not where to lay *his* head.  
@@ -156,8 +152,7 @@ We have here Christ's managing of two different tempers, one quick and eager, th
 
 (2.) Christ's disallowing of this excuse (Mt 8:22); *Jesus said to him, Follow me;* and, no doubt, power accompanied this word to him, as to others, and he did *follow Christ,* and cleaved to him, as Ruth to Naomi, when the scribe, in the Mt 8:19,20, like Orpah, took leave of him. That said, *I will follow thee;* to this Christ said, *Follow me;* comparing them together, it is intimated that we are brought to Christ by the force of his call to us, not of our promises to him; it is *not of him that willeth, nor of him that runneth, but of God that showeth mercy;* he calls whom he will, Ro 9:16. And further, Note, Though chosen vessels may make excuses, and delay their compliance with divine calls a great while, yet Christ will at length answer their excuses, conquer their unwillingness, and bring them to his feet; when Christ calls, he will overcome, and make the call effectual, 1Sa 3:10. His excuse is laid aside as insufficient; *Let the dead bury their dead.* It is a proverbial expression; "Let one dead man bury another: rather let them lie unburied, than that the service of Christ should be neglected. *Let the dead* spiritually *bury the dead* corporally; let worldly offices be left to worldly people; do not thou encumber thyself with them. Burying the dead, and especially a dead father, is a good work, but it is not thy work at this time: it may be done as well by others, that are not called and qualified, as thou art, to be employed for Christ; thou hast something else to do, and must not defer that." Note, Piety to God must be preferred before piety to parents, though that is a great and needful part of our religion. The Nazarites, under the law, were not to mourn for their own parents, because they were *holy to the Lord* (Nu 6:6-8); nor was the high priest to *defile himself for the dead,* no, not for *his own father,* Le 21:11,12. And Christ requires of those who would follow him, that they *hate father and mother* (Lu 14:26); love them less than God; we must comparatively neglect and disesteem our nearest relations, when they come in competition with Christ, and either our doing for him, or our suffering for him.
 
-## Jesus Allays a Storm.
-
+## Jesus Allays a Storm
 > **²³** And when he was entered into a ship, his disciples followed him.  
 > **²⁴** And, behold, there arose a great tempest in the sea, insomuch that the ship was covered with the waves: but he was asleep.  
 > **²⁵** And his disciples came to *him,* and awoke him, saying, Lord, save us: we perish.  
@@ -182,8 +177,7 @@ II\. The power and grace of Jesus Christ put forth for their succour: then the L
 
 3\. This excited their astonishment (Mt 8:27); *The men marvelled.* They had been long acquainted with the sea, and never saw a storm so immediately turned into a perfect calm, in all their lives. It has all the marks and signatures of a miracle upon it; *it is the Lord's doing, and is marvellous in their eyes.* Observe, (1.) Their admiration of Christ; *What manner of man is this!* Note, Christ is a Nonsuch; every thing in him is admirable: none so wise, so mighty, so amiable, as he. (2.) The reason of it; *Even the winds and the sea obey him.* Upon this account, Christ is to be admired, that he has a commanding power even over *winds and seas.* Others pretended to cure diseases, but he only undertook to command *the winds.* We know not the way of *the wind* (Joh 3:8), much less can we control it; but he that *bringeth forth the wind out of his treasury* (Ps 135:7), when it is out, gathers it into his fists, Pr 30:4. He that can do this, can do any thing, can do enough to encourage our confidence and comfort in him, in the most stormy day, within or without, Isa 26:4. The Lord *sits upon the floods,* and is *mightier than the noise of many waters.* Christ, by commanding *the seas,* showed himself to be the same that *made the world, when, at his rebuke, the waters fled* (Ps 104:7,8), as now, *at his rebuke,* they fell.
 
-## The Devils Cast Out of Two Men.
-
+## The Devils Cast Out of Two Men
 > **²⁸** And when he was come to the other side into the country of the Gergesenes, there met him two possessed with devils, coming out of the tombs, exceeding fierce, so that no man might pass by that way.  
 > **²⁹** And, behold, they cried out, saying, What have we to do with thee, Jesus, thou Son of God? art thou come hither to torment us before the time?  
 > **³⁰** And there was a good way off from them a herd of many swine feeding.  

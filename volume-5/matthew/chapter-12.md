@@ -6,8 +6,7 @@ weight: 12
 
 In this chapter, we have, I. Christ's clearing of the law of the fourth commandment concerning the sabbath-day, and vindicating it from some superstitious notions advanced by the Jewish teachers; showing that works of necessity and mercy are to be done on that day, Mt 12:1-13. II. The prudence, humility, and self-denial of our Lord Jesus in working his miracles, Mt 12:14-21. III. Christ's answer to the blasphemous cavils and calumnies of the scribes and Pharisees, who imputed his casting out devils to a compact with the devil, Mt 12:22-37. IV. Christ's reply to a tempting demand of the scribes and Pharisees, challenging him to show them a sign from heaven, Mt 12:38-45. V. Christ's judgment about his kindred and relations, Mt 12:46-50.
 
-## Christ Vindicates His Disciples.
-
+## Christ Vindicates His Disciples
 > **¹** At that time Jesus went on the sabbath day through the corn; and his disciples were an hungred, and began to pluck the ears of corn, and to eat.  
 > **²** But when the Pharisees saw *it,* they said unto him, Behold, thy disciples do that which is not lawful to do upon the sabbath day.  
 > **³** But he said unto them, Have ye not read what David did, when he was an hungred, and they that were with him;  
@@ -66,8 +65,7 @@ Hence Christ infers a truth, which, even at first sight, appears very reasonable
 
 4\. Christ's curing of the man, notwithstanding the offence which he foresaw the Pharisees would take at it, Mt 12:13. Though they could not answer Christ's arguments, they were resolved to persist in their prejudice and enmity; but Christ went on with his work notwithstanding. Note, Duty is not to be left undone, nor opportunities of doing good neglected, for fear of giving offence. Now the manner of the cure is observable; he said to the man, "*Stretch forth thy hand,* exert thyself as well as thou canst;" and he did so, *and it was restored whole.* This, as other cures Christ wrought, had a spiritual significancy. (1.) By nature our hands are withered, we are utterly unable of ourselves to doing any thing that is good. (2.) It is Christ only, by the power of his grace, that cures us; he heals the withered hand by putting life into the dead soul, works in us both to will and to do. (3.) In order to our cure, he commands us to *stretch forth our hands,* to improve our natural powers, and do as well as we can; to stretch them out in prayer to God, to stretch them out to lay hold on Christ by faith, to stretch them out in holy endeavours. Now this man could not stretch forth his withered hand of himself, any more than the impotent man could arise and carry his bed, or Lazarus come forth out of his grave; yet Christ bid him do it. God's commands to us to do the duty which of ourselves we are not able to do are no more absurd or unjust, than this command to the man with the withered hand, *to stretch it forth;* for with the command, there is a promise of grace which is given by the word. *Turn ye at my reproof, and I will pour out my Spirit,* Pr 1:23. Those who perish are as inexcusable as this man would have been, if he had not attempted to stretch forth his hand, and so had not been healed. But those who are saved have no more to boast of than this man had of contributing to his own cure, by stretching forth his hand, but are as much indebted to the power and grace of Christ as he was.
 
-## The Malice of the Pharisees; Christ Withdraws Himself.
-
+## The Malice of the Pharisees; Christ Withdraws Himself
 > **¹⁴** Then the Pharisees went out, and held a council against him, how they might destroy him.  
 > **¹⁵** But when Jesus knew *it,* he withdrew himself from thence: and great multitudes followed him, and he healed them all;  
 > **¹⁶** And charged them that they should not make him known:  
@@ -115,8 +113,7 @@ III\. The fulfilling of the scriptures in all this, Mt 12:17. Christ retired int
 
 (2.) That he should carry on his undertaking without severity and rigour (Mt 12:20). *A bruised reed shall he not break.* Some understand this of his patience in bearing with the wicked; he could as easily have broken these Pharisees as a bruised reed, and have quenched them as soon as smoking flax; but he will not do it till the judgment-day, when all his enemies shall be made his footstool. Others rather understand it of his power and grace in bearing up the weak. In general, the design of his gospel is to establish such a method of salvation as encourages sincerity, though there be much infirmity; it does not insist upon a sinless obedience, but accepts an upright, willing mind. As to particular persons, that follow Christ in meekness, and in fear, and in much trembling, observe, [1.] How their case is here described—they are like *a bruised reed,* and *smoking flax.* Young beginners in religion are weak as a bruised reed, and their weakness offensive like smoking flax; some little life they have, but it is like that of a bruised reed; some little heat, but like that of smoking flax. Christ's disciples were as yet but weak, and many are so that have a place in his family. The grace and goodness in them are as a bruised reed, the corruption and badness in them are as smoking flax, as the wick of a candle when it is put out and is yet smoking. [2.] What is the compassion of our Lord Jesus toward them? He will not discourage them, much less reject them or cast them off; the reed that is bruised shall not be broken and trodden down, but shall be supported, and made as strong as a cedar or flourishing palm-tree. The candle newly lighted, though it only smokes and does not flame, shall not be blown out, but blown up. The *day of small things* is the day of *precious* things, and therefore he will not despise it, but make it *the day of great things,* Zec 4:10. Note, Our Lord Jesus deals very tenderly with those who have true grace, though they be weak in it, Isa 40:11, Heb 5:2. He remembers not only that we are dust, but that we are flesh. [3.] The good issue and success of this, intimated in that, *till he send forth judgment unto victory.* That judgment which he showed to the Gentiles shall be victorious, he will go on conquering and to conquer, Re 6:2. Both the preaching of the gospel in the world, and the power of the gospel in the heart, shall prevail. Grace shall get the upper hand of corruption, and shall at length be perfected in glory. Christ's judgment will be brought forth to victory, for when he judges he will overcome. He shall *bring forth judgment unto truth;* so it is, Isa 42:3. Truth and victory are much the same, for *great is the truth, and will prevail.*
 
-## The Sin against the Holy Ghost.
-
+## The Sin against the Holy Ghost
 > **²²** Then was brought unto him one possessed with a devil, blind, and dumb: and he healed him, insomuch that the blind and dumb both spake and saw.  
 > **²³** And all the people were amazed, and said, Is not this the son of David?  
 > **²⁴** But when the Pharisees heard *it,* they said, This *fellow* doth not cast out devils, but by Beelzebub the prince of the devils.  
@@ -202,8 +199,7 @@ V\. Here is a discourse of Christ's upon this occasion, concerning tongue-sins; 
 
 (2.) How strict the judgment will be upon that account (Mt 12:37); *By thy words thou shall be justified or condemned;* a common rule in men's judgments, and here applied to God's. Note, The constant tenour of our discourse, according as it is gracious or not gracious, will be an evidence for us, or against us, at the great day. Those who seemed to be religious, but bridled not their tongue, will then be found to have put a cheat upon themselves with a vain religion, Jam 1:26. Some think that Christ here refers to that of Eliphaz (Job 15:6), *Thine own mouth condemneth thee, and not I;* or, rather, to that of Solomon (Pr 18:21), *Death and life are in the power of the tongue.*
 
-## The Pharisees Ask a Sign.
-
+## The Pharisees Ask a Sign
 > **³⁸** Then certain of the scribes and of the Pharisees answered, saying, Master, we would see a sign from thee.  
 > **³⁹** But he answered and said unto them, An evil and adulterous generation seeketh after a sign; and there shall no sign be given to it, but the sign of the prophet Jonas:  
 > **⁴⁰** For as Jonas was three days and three nights in the whale's belly; so shall the Son of man be three days and three nights in the heart of the earth.  
@@ -243,8 +239,7 @@ Now Christ represents the people of the Jews,
 
 The body of that nation is here represented, *First,* As an apostate people. After the captivity in Babylon, they began to reform, left their idols, and appeared with some face of religion; but they soon corrupted themselves again: though they never relapsed into idolatry, they fell into all manner of impiety and profaneness, grew worse and worse, and added to all the rest of their wickedness a wilful contempt of, and opposition to, Christ and his gospel. *Secondly,* As a people marked for ruin. A new commission was passing the seals against that hypocritical nation, the people of God's wrath (like that, Isa 10:6), and their destruction by the Romans was likely to be greater than any other, as their sins had been more flagrant: then it was *that wrath came upon them to the uttermost,* 1Th 2:15,16. Let this be a warning to all nations and churches, to take heed of leaving their first love, of letting fall a good work of reformation begun among them, and returning to that wickedness which they seemed to have forsaken; *for the last state of such will be worse than the first.*
 
-## Who Are Christ's Relations.
-
+## Who Are Christ's Relations
 > **⁴⁶** While he yet talked to the people, behold, *his* mother and his brethren stood without, desiring to speak with him.  
 > **⁴⁷** Then one said unto him, Behold, thy mother and thy brethren stand without, desiring to speak with thee.  
 > **⁴⁸** But he answered and said unto him that told him, Who is my mother? and who are my brethren?  

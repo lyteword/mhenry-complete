@@ -6,8 +6,7 @@ weight: 11
 
 In this chapter we have, I. The constant and unwearied diligence of our Lord Jesus in his great work of preaching the gospel, Mt 11:1. II. His discourse with the disciples of John concerning his being the Messiah, Mt 11:2-6. III. The honourable testimony that Christ bore to John Baptist, Mt 11:7-15. IV. The sad account he gives of that generation in general, and of some particular places with reference to the success, both of John's ministry and of his own, Mt 11:16-24. V. His thanksgiving to his Father for the wise and gracious method he had taken in revealing the great mysteries of the gospel, Mt 11:25,26. VI. His gracious call and invitation of poor sinners to come to him, and to be ruled, and taught, and saved by him, Mt 11:27-30. No Where have we more of the terror of gospel woes for warning to us, or of the sweetness of gospel grace for encouragement to us, than in this chapter, which sets before us life and death, the blessing and the curse.
 
-## John's Disciples Come to Christ.
-
+## John's Disciples Come to Christ
 > **¹** And it came to pass, when Jesus had made an end of commanding his twelve disciples, he departed thence to teach and to preach in their cities.  
 > **²** Now when John had heard in the prison the works of Christ, he sent two of his disciples,  
 > **³** And said unto him, Art thou he that should come, or do we look for another?  
@@ -39,8 +38,7 @@ II\. Here is Christ's answer to this question, Mt 11:4-6. It was not so direct a
 
 2\. He pronounces a *blessing* on those that *were not offended in him,* Mt 11:6. So clear are these evidences of Christ's mission, that they who are not wilfully prejudiced against him, and scandalized in him (so the word is), cannot but receive his doctrine, and so be *blessed in him.* Note, (1.) There are many things in Christ which they who are ignorant and unthinking are apt to be offended at, some circumstances for the sake of which they reject the substance of his gospel. The meanness of his appearance, his education at Nazareth, the poverty of his life, the despicableness of his followers, the slights which the great men put upon him, the strictness of his doctrine, the contradiction it gives to flesh and blood, and the sufferings that attend the profession of his name; these are things that keep many from him, who otherwise cannot but see much of God in him. Thus he is set *for the fall of many,* even in Israel (Lu 2:34), a *Rock of offence,* 1Pe 2:8. (2.) They are happy who get over these offences. *Blessed are they.* The expression intimates, that it is a difficult thing to conquer these prejudices, and a dangerous thing not to conquer them; but as to those, who, notwithstanding this opposition, to believe in Christ, their faith will be found so much the more, to *praise, and honour, and glory.*
 
-## Christ's Testimony of John.
-
+## Christ's Testimony of John
 > **⁷** And as they departed, Jesus began to say unto the multitudes concerning John, What went ye out into the wilderness to see? A reed shaken with the wind?  
 > **⁸** But what went ye out for to see? A man clothed in soft raiment? behold, they that wear soft *clothing* are in kings' houses.  
 > **⁹** But what went ye out for to see? A prophet? yea, I say unto you, and more than a prophet.  
@@ -89,8 +87,7 @@ Yet this high encomium of John has a surprising limitation, *notwithstanding, he
 
 Lastly, Our Lord Jesus closes this discourse with a solemn demand of attention (Mt 11:15): *He that hath ears to hear, let him hear;* which intimates, that those things were dark and hard to be understood, and therefore needed attention, but of great concern and consequence, and therefore well deserved it. "Let all people take notice of this, if John be the Elias prophesied of, then certainly here is a great revolution on foot, the Messiah's kingdom is at the door, and the world will shortly be surprised into a happy change. These are things which require your serious consideration, and therefore you are all concerned to hearken to what I say." Note, The things of God are of great and common concern: every one that has *ears to hear* any thing, is concerned to hear this. It intimates, that God requires no more from us but the right use and improvement of the faculties he has already given us. He requires those to hear that have ears, those to use their reason that have reason. Therefore people are ignorant, not because they want power, but because they want will; therefore they do not hear, because, like the deaf adder, they *stop their ears.*
 
-## Christ Reproaches Chorazin, etc..
-
+## Christ Reproaches Chorazin, etc.
 > **¹⁶** But whereunto shall I liken this generation? It is like unto children sitting in the markets, and calling unto their fellows,  
 > **¹⁷** And saying, We have piped unto you, and ye have not danced; we have mourned unto you, and ye have not lamented.  
 > **¹⁸** For John came neither eating nor drinking, and they say, He hath a devil.  
@@ -153,8 +150,7 @@ We have here Capernaum's doom,
 
 *Secondly,* That Sodom's ruin will therefore be less at the great day than Capernaum's. Sodom will have many things to answer for, but not the sin of neglecting Christ, as Capernaum will. If the gospel prove *a savour of death,* a killing savour, it is doubly so; it is *of death unto death,* so great a death (2Co 2:16); Christ had said the same of all other places that receive not his ministers nor bid his gospel welcome (Mt 10:15); *It shall be more tolerable for the land of Sodom than for that city.* We that have now the written word in our hands, the gospel preached, and the gospel ordinances administered to us, and live under the dispensation of the Spirit, have advantages not inferior to those of Chorazin, and Bethsaida, and Capernaum, and the account in the great day will be accordingly. It has therefore been justly said, that the professors of this age, whether they go to heaven or hell, will be the greatest debtors in either of these places; if to heaven, the greatest debtors to divine mercy for those rich means that brought them thither; if to hell, the greatest debtors to divine justice, for those rich means that would have kept them from thence.
 
-## Christ's Invitation to Burthened Souls.
-
+## Christ's Invitation to Burthened Souls
 > **²⁵** At that time Jesus answered and said, I thank thee, O Father, Lord of heaven and earth, because thou hast hid these things from the wise and prudent, and hast revealed them unto babes.  
 > **²⁶** Even so, Father: for so it seemed good in thy sight.  
 > **²⁷** All things are delivered unto me of my Father: and no man knoweth the Son, but the Father; neither knoweth any man the Father, save the Son, and *he* to whomsoever the Son will reveal *him.*  

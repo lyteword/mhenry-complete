@@ -6,8 +6,7 @@ weight: 14
 
 John the Baptist had said concerning Christ, He must increase, but I must decrease, Joh 3:30. The morning-star is here disappearing, and the Sun of righteousness rising to its meridian lustre. Here is, I. The martyrdom of John; his imprisonment for his faithfulness to Herod (Mt 14:1-5), and the beheading of him to please Herodias, Mt 14:6-12. II. The miracles of Christ. 1. His feeding five thousand men that came to him to be taught, with five loaves and two fishes, Mt 14:13-21. 2. Christ's walking on the waves to his disciples in a storm, Mt 14:22-23. 3. His healing the sick with the touch of the hem of his garment, Mt 14:34-36. Thus he went forth, thus he went on, conquering and to conquer, or rather, curing and to cure.
 
-## The Death of John the Baptist.
-
+## The Death of John the Baptist
 > **¹** At that time Herod the tetrarch heard of the fame of Jesus,  
 > **²** And said unto his servants, This is John the Baptist; he is risen from the dead; and therefore mighty works do show forth themselves in him.  
 > **³** For Herod had laid hold on John, and bound him, and put *him* in prison for Herodias' sake, his brother Philip's wife.  
@@ -87,8 +86,7 @@ Thus was that voice silenced, that burning and shining light extinguished; thus 
 
 Josephus mentions this story of the death of John the Baptist (*Antiq.* 18. 116-119), and adds, that a fatal destruction of Herod's army in his war with Aretas, king of Petrea (whose daughter was Herod's wife, whom he put away to make room for Herodias), was generally considered by the Jews to be a just judgment upon him, for putting John the Baptist to death. Herod having, at the instigation of Herodias, disobliged the emperor, was deprived of his government, and they were both banished to Lyons in France; which, says Josephus, was his just punishment for hearkening to her solicitations. And, lastly, it is storied of this daughter of Herodias, that going over the ice in winter, the ice broke, and she slipt in up to her neck, which was cut through by the sharpness of the ice. God requiring her head (says Dr. Whitby) for that of the Baptist; which, if true, was a remarkable providence.
 
-## The Five Thousand Fed.
-
+## The Five Thousand Fed
 > **¹³** When Jesus heard *of it,* he departed thence by ship into a desert place apart: and when the people had heard *thereof,* they followed him on foot out of the cities.  
 > **¹⁴** And Jesus went forth, and saw a great multitude, and was moved with compassion toward them, and he healed their sick.  
 > **¹⁵** And when it was evening, his disciples came to him, saying, This is a desert place, and the time is now past; send the multitude away, that they may go into the villages, and buy themselves victuals.  
@@ -135,8 +133,7 @@ VI\. The plentiful satisfaction of all the guests with this provision. Though th
 
 It is the same divine power, though exerted in an ordinary way, which multiplies *the seed sown in the ground* every year, and makes *the earth yield her increase;* so that what was brought out by handfuls, is brought home in sheaves. *This is the Lord's doing;* it is *by Christ* that all natural things consist, and *by the word of his power* that they are upheld.
 
-## Jesus Walks to His Disciples on the Sea.
-
+## Jesus Walks to His Disciples on the Sea
 > **²²** And straightway Jesus constrained his disciples to get into a ship, and to go before him unto the other side, while he sent the multitudes away.  
 > **²³** And when he had sent the multitudes away, he went up into a mountain apart to pray: and when the evening was come, he was there alone.  
 > **²⁴** But the ship was now in the midst of the sea, tossed with waves: for the wind was contrary.  
@@ -240,8 +237,7 @@ VII\. The adoration paid to Christ hereupon (Mt 14:33); *They that were in the s
 
 2\. They took occasion from it to *give him the glory due unto his name.* They not only owned that great truth, but were suitable affected by it; *they worshiped Christ.* Note, When Christ manifests his glory for us, we ought to return it to him (Ps 50:15); *I will deliver thee, and thou shalt glorify me.* Their worship and adoration of Christ were thus expressed, *Of a truth thou art the Son of God.* Note, The matter of our creed may and must be made the matter of our praise. Faith is the proper principle of worship, and worship the genuine product of faith. *He that comes to God must believe;* and he that *believes* in God, will come, Heb 9:6.
 
-## The People of Gennesaret Flock to Christ.
-
+## The People of Gennesaret Flock to Christ
 > **³⁴** And when they were gone over, they came into the land of Gennesaret.  
 > **³⁵** And when the men of that place had knowledge of him, they sent out into all that country round about, and brought unto him all that were diseased;  
 > **³⁶** And besought him that they might only touch the hem of his garment: and as many as touched were made perfectly whole.  
