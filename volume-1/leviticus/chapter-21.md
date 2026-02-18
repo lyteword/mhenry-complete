@@ -1,8 +1,11 @@
 ---
+title: "Leviticus 21 | Read the Matthew Henry Concise Bible Commentary Online"
+linkTitle: "21"
+description: "In this chapter: This chapter might borrow its title from Mal 2:1, "And now, O you priests, this commandment is for you." It is a law obliging priests with the utmost care and jealousy to preserve ..."
 weight: 21
 ---
 
-# Chapter 21
+# Leviticus 21 
 
 This chapter might borrow its title from Mal 2:1, "And now, O you priests, this commandment is for you." It is a law obliging priests with the utmost care and jealousy to preserve the dignity of their priesthood. I. The inferior priests are here charged both concerning their mourning and concerning their marriages and their children, Le 21:1-9. II. The high priest is restrained more than any of them, Le 21:10-15. III. Neither the one nor the other must have any blemish, Le 21:16-24, etc.
 

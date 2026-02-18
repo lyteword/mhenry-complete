@@ -1,8 +1,11 @@
 ---
+title: "Deuteronomy 13 | Read the Matthew Henry Concise Bible Commentary Online"
+linkTitle: "13"
+description: "In this chapter: Moses is still upon that necessary subject concerning the peril of idolatry. In the close of the foregoing chapter he had cautioned them against the peril that might arise from the..."
 weight: 13
 ---
 
-# Chapter 13
+# Deuteronomy 13 
 
 Moses is still upon that necessary subject concerning the peril of idolatry. In the close of the foregoing chapter he had cautioned them against the peril that might arise from their predecessors the Canaanites. In this chapter he cautions them against the rise of idolatry from among themselves; they must take heed lest any should draw them to idolatry, I. By the pretence of prophecy, De 13:1-5. II. By the pretence of friendship and relation, De 13:6-11. III. By the pretence of numbers, De 13:12-18. But in all these cases the temptation must be resolutely resisted and the tempters punished and cut off.
 

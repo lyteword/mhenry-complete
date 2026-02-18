@@ -1,8 +1,11 @@
 ---
+title: "Numbers 9 | Read the Matthew Henry Concise Bible Commentary Online"
+linkTitle: "9"
+description: "In this chapter: This chapter is, I. Concerning the great ordinance of the passover; 1. Orders given for the observance of it, at the return of the year, Nu 9:1-5. 2. Provisos added in regard to su..."
 weight: 9
 ---
 
-# Chapter 9
+# Numbers 9 
 
 This chapter is, I. Concerning the great ordinance of the passover; 1. Orders given for the observance of it, at the return of the year, Nu 9:1-5. 2. Provisos added in regard to such as should be ceremonially unclean, or otherwise disabled, at the time when the passover was to be kept, Nu 9:6-14. II. Concerning the great favour of the pillar of cloud, which was a guide to Israel through the wilderness, Nu 9:15, etc.
 

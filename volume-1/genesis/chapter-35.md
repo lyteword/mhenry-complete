@@ -1,8 +1,11 @@
 ---
+title: "Genesis 35 | Read the Matthew Henry Concise Bible Commentary Online"
+linkTitle: "35"
+description: "In this chapter: In this chapter we have three communions and three funerals. I. Three communions between God and Jacob. 1. God ordered Jacob to Beth-el; and, in obedience to that order, he purged ..."
 weight: 35
 ---
 
-# Chapter 35
+# Genesis 35 
 
 In this chapter we have three communions and three funerals. I. Three communions between God and Jacob. 1. God ordered Jacob to Beth-el; and, in obedience to that order, he purged his house of idols, and prepared for that journey, Ge 35:1-5. 2. Jacob built an altar at Beth-el, to the honour of God that had appeared to him, and in performance of his vow, Ge 35:6,7. 3. God appeared to him again, and confirmed the change of his name and covenant with him (Ge 35:9-13), of which appearance Jacob made a grateful acknowledgment, Ge 35:14,15. II. Three funerals. 1. Deborah's, Ge 35:8. 2. Rachel's, Ge 35:16-20. 3. Isaac's, Ge 35:27-29. Here is also Reuben's incest (Ge 35:22), and an account of Jacob's sons, Ge 35:23-26.
 

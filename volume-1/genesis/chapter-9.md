@@ -1,8 +1,11 @@
 ---
+title: "Genesis 9 | Read the Matthew Henry Concise Bible Commentary Online"
+linkTitle: "9"
+description: "In this chapter: Both the world and the church were now again reduced to a family, the family of Noah, of the affairs of which this chapter gives us an account, of which we are the more concerned t..."
 weight: 9
 ---
 
-# Chapter 9
+# Genesis 9 
 
 Both the world and the church were now again reduced to a family, the family of Noah, of the affairs of which this chapter gives us an account, of which we are the more concerned to take cognizance because from this family we are all descendants. Here is, I. The covenant of providence settled with Noah and his sons, Ge 9:1-11. In this covenant, 1. God promises them to take care of their lives, so that, (1.) They should replenish the earth, Ge 9:1,7. (2.) They should be safe from the insults of the brute-creatures, which should stand in awe of them, Ge 9:2. (3.) They should be allowed to eat flesh for the support of their lives; only they must not eat blood, Ge 9:3,4. (4.) The world should never be drowned again, Ge 9:8-11. 2. God requires of them to take care of one another's lives, and of their own, Ge 9:5,6. II. The seal of that covenant, namely, the rainbow, Ge 9:12-17. III. A particular passage of story concerning Noah and his sons, which occasioned some prophecies that related to after-times, 1. Noah's sin and shame, Ge 9:20,21. 2. Ham's impudence and impiety, Ge 9:22. 3. The pious modesty of Shem and Japheth, Ge 9:23. 4. The curse of Canaan, and the blessing of Shem and Japheth, Ge 9:21-27. IV. The age and death of Noah, Ge 9:28,29.
 

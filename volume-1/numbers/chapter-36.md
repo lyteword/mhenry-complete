@@ -1,8 +1,11 @@
 ---
+title: "Numbers 36 | Read the Matthew Henry Concise Bible Commentary Online"
+linkTitle: "36"
+description: "In this chapter: We have in this chapter the determination of another question that arose upon the case of the daughters of Zelophehad. God had appointed that they should inherit, Nu 27:7. Now here..."
 weight: 36
 ---
 
-# Chapter 36
+# Numbers 36 
 
 We have in this chapter the determination of another question that arose upon the case of the daughters of Zelophehad. God had appointed that they should inherit, Nu 27:7. Now here, I. An inconvenience is suggested, in case they should marry into any other tribe, Nu 36:1-4. II. It is prevented by a divine appointment that they should marry in their own tribe and family (Nu 36:5-7), and this is settled for a rule in like cases (Nu 36:8,9); and they did marry accordingly to some of their own relations (Nu 36:10-12), and with this the book concludes, Nu 36:13.
 

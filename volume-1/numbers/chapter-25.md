@@ -1,8 +1,11 @@
 ---
+title: "Numbers 25 | Read the Matthew Henry Concise Bible Commentary Online"
+linkTitle: "25"
+description: "In this chapter: Israel, having escaped the curse of Balaam, here sustains a great deal of damage and reproach by the counsel of Balaam, who, it seems, before he left Balak, put him into a more eff..."
 weight: 25
 ---
 
-# Chapter 25
+# Numbers 25 
 
 Israel, having escaped the curse of Balaam, here sustains a great deal of damage and reproach by the counsel of Balaam, who, it seems, before he left Balak, put him into a more effectual way than that which Balak thought of to separate between the Israelites and their God. "The Lord will not be prevailed with by Balaam's charms to ruin them; try if they will not be prevailed with by the charms of the daughters of Moab to ruin themselves." None are more fatally bewitched than those that are bewitched by their own lusts. Here is, I. The sin of Israel; they were enticed by the daughters of Moab both to whoredom and to idolatry, Nu 25:1-3. II. The punishment of this sin by the hand of the magistrate (Nu 25:4,5) and by the immediate hand of God, Nu 25:9. III. The pious zeal of Phinehas in slaying Zimri and Cozbi, two impudent sinners, Nu 25:6,8,14,15. IV. God's commendation of the zeal of Phinehas, Nu 25:10-13. V. Enmity put between the Israelites and the Midianites, their tempters, as at first between the woman and the serpent, Nu 25:16-18, etc.
 

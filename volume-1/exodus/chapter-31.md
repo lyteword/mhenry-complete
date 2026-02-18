@@ -1,8 +1,11 @@
 ---
+title: "Exodus 31 | Read the Matthew Henry Concise Bible Commentary Online"
+linkTitle: "31"
+description: "In this chapter: God is here drawing towards a conclusion of what he had to say to Moses upon the mount, where he had now been with him forty days and forty nights; and yet no more is recorded of w..."
 weight: 31
 ---
 
-# Chapter 31
+# Exodus 31 
 
 God is here drawing towards a conclusion of what he had to say to Moses upon the mount, where he had now been with him forty days and forty nights; and yet no more is recorded of what was said to him in all that time than what we have read in the six chapters foregoing. In this, I. He appoints what workmen should be employed in the building and furnishing of the tabernacle, Ex 31:1-11. II. He repeats the law of the sabbath, and the religious observance of it, Ex 31:12-17. III. He delivers to him the two tables of the testimony at parting, Ex 31:18.
 

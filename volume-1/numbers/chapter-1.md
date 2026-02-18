@@ -1,8 +1,11 @@
 ---
+title: "Numbers 1 | Read the Matthew Henry Concise Bible Commentary Online"
+linkTitle: "1"
+description: "In this chapter: Israel was now to be formed into a commonwealth, or rather a kingdom; for "the Lord was their King" (1Sa 12:12), their government a theocracy, and Moses under him was king in Jeshu..."
 weight: 1
 ---
 
-# Chapter 1
+# Numbers 1 
 
 Israel was now to be formed into a commonwealth, or rather a kingdom; for "the Lord was their King" (1Sa 12:12), their government a theocracy, and Moses under him was king in Jeshurun, De 33:5. Now, for the right settlement of this holy state, next to the institution of good laws was necessary the institution of good order; and account therefore must be taken of the subjects of this kingdom, which is done in this chapter, where we have, I. Orders given to Moses to number the people, Nu 1:1-4. II. Persons nominated to assist him herein, Nu 1:5-16. III. The particular number of each tribe, as it was given in to Moses, Nu 1:17-43. IV. The sum total of all together, Nu 1:44-46. V. An exception of the Levites, Nu 1:47-54, etc.
 

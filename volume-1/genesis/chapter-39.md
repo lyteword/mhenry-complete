@@ -1,8 +1,11 @@
 ---
+title: "Genesis 39 | Read the Matthew Henry Concise Bible Commentary Online"
+linkTitle: "39"
+description: "In this chapter: At this chapter we return to the story of Joseph. We have him here, I. A servant, a slave in Potiphar's house (Ge 39:1), and yet there greatly honoured and favoured, 1. By the prov..."
 weight: 39
 ---
 
-# Chapter 39
+# Genesis 39 
 
 At this chapter we return to the story of Joseph. We have him here, I. A servant, a slave in Potiphar's house (Ge 39:1), and yet there greatly honoured and favoured, 1. By the providence of God, which made him, in effect, a master, Ge 39:2-6. 2. By the grace of God, which made him more than a conqueror over a strong temptation to uncleanness, Ge 39:7-12. II. We have him here a sufferer, falsely accused (Ge 39:13-18), imprisoned (Ge 39:19,20), and yet his imprisonment made both honourable and comfortable by the tokens of God's special presence with him, Ge 39:21-23. And herein Joseph was a type of Christ, "who took upon him the form of a servant," and yet then did that which made it evident that "God was with him," who was tempted by Satan, but overcame the temptation, who was falsely accused and bound, and yet had all things committed to his hand.
 

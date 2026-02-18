@@ -1,8 +1,11 @@
 ---
+title: "Genesis 7 | Read the Matthew Henry Concise Bible Commentary Online"
+linkTitle: "7"
+description: "In this chapter: In this chapter we have the performance of what was foretold in the foregoing chapter, both concerning the destruction of the old world and the salvation of Noah; for we may be sur..."
 weight: 7
 ---
 
-# Chapter 7
+# Genesis 7 
 
 In this chapter we have the performance of what was foretold in the foregoing chapter, both concerning the destruction of the old world and the salvation of Noah; for we may be sure that no word of God shall fall to the ground. There we left Noah busy about his ark, and full of care to get it finished in time, while the rest of his neighbours were laughing at him for his pains. Now here we see what was the end thereof, the end of his care and of their carelessness. And this famous period of the old world gives us some idea of the state of things when the world that now is shall be destroyed by fire, as that was by water. See 2Pe 3:6,7. We have, in this chapter, I. God's gracious call to Noah to come into the ark (Ge 7:1), and to bring the creatures that were to be preserved alive along with him (Ge 7:2,3), in consideration of the deluge at hand, Ge 7:4. II. Noah's obedience to this heavenly vision, Ge 7:5. When he was six hundred years old, he came with his family into the ark (Ge 7:6,7), and brought the creatures along with him (Ge 7:8,9), an account of which is repeated (Ge 7:13-16), to which is added God's tender care to shut him in. III. The coming of the threatened deluge (Ge 7:10); the causes of it (Ge 7:11,12): the prevalency of it, Ge 7:17-20. IV. The dreadful desolations that were made by it in the death of every living creature upon earth, except those that were in the ark, Ge 7:21-23. V. The continuance of it in full sea, before it began to ebb, one hundred and fifty days, Ge 7:24.
 

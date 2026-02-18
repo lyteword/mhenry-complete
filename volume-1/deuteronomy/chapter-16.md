@@ -1,8 +1,11 @@
 ---
+title: "Deuteronomy 16 | Read the Matthew Henry Concise Bible Commentary Online"
+linkTitle: "16"
+description: "In this chapter: In this chapter we have, I. A repetition of the laws concerning the three yearly feasts; in particular, that of the passover, De 16:1-8. That of pentecost, De 16:9-12. That of tabe..."
 weight: 16
 ---
 
-# Chapter 16
+# Deuteronomy 16 
 
 In this chapter we have, I. A repetition of the laws concerning the three yearly feasts; in particular, that of the passover, De 16:1-8. That of pentecost, De 16:9-12. That of tabernacles, De 16:13-15. And the general law concerning the people's attendance on them, De 16:16,17. II. The institution of an inferior magistracy, and general rules of justice given to those that were called into office, De 16:18-20. III. A caveat against groves and images, De 16:21,22.
 

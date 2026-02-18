@@ -1,8 +1,11 @@
 ---
+title: "Leviticus 24 | Read the Matthew Henry Concise Bible Commentary Online"
+linkTitle: "24"
+description: "In this chapter: In this chapter we have, I. A repetition of the laws concerning the lamps and the show-bread, Le 24:1-9. II. A violation of the law against blasphemy, with the imprisonment, trial,..."
 weight: 24
 ---
 
-# Chapter 24
+# Leviticus 24 
 
 In this chapter we have, I. A repetition of the laws concerning the lamps and the show-bread, Le 24:1-9. II. A violation of the law against blasphemy, with the imprisonment, trial, condemnation, and execution, of the blasphemer, Le 24:10-14, with Le 24:23. III. The law against blasphemy reinforced (Le 24:15,16), with sundry other laws, Le 24:17-23, etc.
 

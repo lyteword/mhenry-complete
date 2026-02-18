@@ -1,8 +1,11 @@
 ---
+title: "Genesis 33 | Read the Matthew Henry Concise Bible Commentary Online"
+linkTitle: "33"
+description: "In this chapter: We read, in the former chapter, how Jacob had power with God, and prevailed; here we find what power he had with men too, and how his brother Esau was mollified, and, on a sudden, ..."
 weight: 33
 ---
 
-# Chapter 33
+# Genesis 33 
 
 We read, in the former chapter, how Jacob had power with God, and prevailed; here we find what power he had with men too, and how his brother Esau was mollified, and, on a sudden, reconciled to him; for so it is written, Pr 16:7, "When a man's ways please the Lord, he maketh even his enemies to be at peace with him." Here is, I. A very friendly meeting between Jacob and Esau, Ge 33:1-4. II. Their conference at their meeting, in which they vie with each other in civil and kind expressions. Their discourse is, 1. About Jacob's family, Ge 33:5-7. 2. About the present he had sent, Ge 33:8-11. 3. About the progress of their journey, Ge 33:12-15. III. Jacob's settlement in Canaan, his house, ground, and altar, Ge 33:16-20.
 

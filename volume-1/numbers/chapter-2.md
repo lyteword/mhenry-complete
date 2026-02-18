@@ -1,8 +1,11 @@
 ---
+title: "Numbers 2 | Read the Matthew Henry Concise Bible Commentary Online"
+linkTitle: "2"
+description: "In this chapter: The thousands of Israel, having been mustered in the former chapter, in this are marshalled, and a regular disposition is made of their camp, by a divine appointment. Here is, I. A..."
 weight: 2
 ---
 
-# Chapter 2
+# Numbers 2 
 
 The thousands of Israel, having been mustered in the former chapter, in this are marshalled, and a regular disposition is made of their camp, by a divine appointment. Here is, I. A general order concerning it, Nu 2:1,2. II. Particular directions for the posting of each of the tribes, in four distinct squadrons, three tribes in each squadron. 1. In the van-guard on the east were posted Judah, Issachar, and Zebulun, Nu 2:3-9. 2. In the right wing, southward, Reuben, Simeon, and Gad, Nu 2:10-16. 3. In the rear, westward, Ephraim, Manasseh, and Benjamin, Nu 2:18-24. 4. In the left wing, northward, Dan, Asher, and Naphtali, Nu 2:25-31. 5. The tabernacle in the centre, Nu 2:17. III. The conclusion of this appointment, Nu 2:32, etc.
 

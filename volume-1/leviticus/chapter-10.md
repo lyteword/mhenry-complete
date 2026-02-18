@@ -1,8 +1,11 @@
 ---
+title: "Leviticus 10 | Read the Matthew Henry Concise Bible Commentary Online"
+linkTitle: "10"
+description: "In this chapter: The story of this chapter is as sad an interruption to the institutions of the levitical law as that of the golden calf was to the account of the erecting of the tabernacle. Here i..."
 weight: 10
 ---
 
-# Chapter 10
+# Leviticus 10 
 
 The story of this chapter is as sad an interruption to the institutions of the levitical law as that of the golden calf was to the account of the erecting of the tabernacle. Here is, I. The sin and death of Nadab and Abihu, the sons of Aaron, Le 10:1,2. II. The quieting of Aaron under this sore affliction, Le 10:3. III. Orders given and observed about the funeral and mourning, Le 10:4-7. IV. A command to the priests not to drink wine when they went in to minister, Le 10:8-11. V. The care Moses took that they should go on with their work, notwithstanding the agitation produced by this event, Le 10:12-20, etc.
 

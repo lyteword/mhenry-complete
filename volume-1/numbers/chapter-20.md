@@ -1,8 +1,11 @@
 ---
+title: "Numbers 20 | Read the Matthew Henry Concise Bible Commentary Online"
+linkTitle: "20"
+description: "In this chapter: At this chapter begins the history of the fortieth year (which was the last year) of the Israelites' wandering in the wilderness. And since the beginning of their second year, when..."
 weight: 20
 ---
 
-# Chapter 20
+# Numbers 20 
 
 At this chapter begins the history of the fortieth year (which was the last year) of the Israelites' wandering in the wilderness. And since the beginning of their second year, when they were sentenced to perform their quarantine in the desert, there to wear away the tedious revolution of forty years, there is little recorded concerning them till this last year, which brought them to the borders of Canaan, and the history of this year is almost as large as the history of the first year. This chapter gives an account of, I. The death of Miriam, Nu 20:1. II. The fetching of water out of the rock, in which observe, 1. The distress Israel was in, for want of water, Nu 20:2. 2. Their discontent and murmuring in that distress, Nu 20:3-5. 3. God's pity and power engaged for their supply with water out of the rock, Nu 20:6-9. 4. The infirmity of Moses and Aaron upon this occasion, Nu 20:10,11. 5. God's displeasure against them, Nu 20:12,13. III. The negotiation with the Edomites. Israel's request (Nu 20:14-17), and the repulse the Edomites gave them, Nu 20:18-21. IV. The death of Aaron the high priest upon Mount Hor, the instalment of Eleazar in his room, and the people's mourning for him, Nu 20:22, etc.
 

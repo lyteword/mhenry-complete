@@ -1,8 +1,11 @@
 ---
+title: "Genesis 28 | Read the Matthew Henry Concise Bible Commentary Online"
+linkTitle: "28"
+description: "In this chapter: We have here, I. Jacob parting with his parents, to go to Padan-aram; the charge his father gave him (Ge 28:1,2), the blessing he sent him away with (Ge 28:3,4), his obedience to t..."
 weight: 28
 ---
 
-# Chapter 28
+# Genesis 28 
 
 We have here, I. Jacob parting with his parents, to go to Padan-aram; the charge his father gave him (Ge 28:1,2), the blessing he sent him away with (Ge 28:3,4), his obedience to the orders given him (Ge 28:5,10), and the influence this had upon Esau, Ge 28:6-9. II. Jacob meeting with God, and his communion with him by the way. And there, 1. His vision of the ladder, Ge 28:11,12. 2. The gracious promises God made him, Ge 28:13-15. 3. The impression this made upon him, Ge 28:16-19. 4. The vow he made to God, up on this occasion, Ge 28:20-22, etc.
 

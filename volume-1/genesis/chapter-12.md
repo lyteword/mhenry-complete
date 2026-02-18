@@ -1,8 +1,11 @@
 ---
+title: "Genesis 12 | Read the Matthew Henry Concise Bible Commentary Online"
+linkTitle: "12"
+description: "In this chapter: The pedigree and family of Abram we had an account of in the foregoing chapter; here the Holy Ghost enters upon his story, and henceforward Abram and his seed are almost the only s..."
 weight: 12
 ---
 
-# Chapter 12
+# Genesis 12 
 
 The pedigree and family of Abram we had an account of in the foregoing chapter; here the Holy Ghost enters upon his story, and henceforward Abram and his seed are almost the only subject of the sacred history. In this chapter we have, I. God's call of Abram to the land of Canaan, Ge 12:1-3. II. Abram's obedience to this call, Ge 12:4,5. III. His welcome to the land of Canaan, Ge 12:6-9. IV. His journey to Egypt, with an account of what happened to him there. Abram's flight and fault, Ge 12:10-13. Sarai's danger and deliverance, Ge 12:14-20.
 

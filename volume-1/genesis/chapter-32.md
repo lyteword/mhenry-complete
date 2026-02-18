@@ -1,8 +1,11 @@
 ---
+title: "Genesis 32 | Read the Matthew Henry Concise Bible Commentary Online"
+linkTitle: "32"
+description: "In this chapter: We have here Jacob still upon his journey towards Canaan. Never did so many memorable things occur in any march as in this of Jacob's little family. By the way he meets, I. With go..."
 weight: 32
 ---
 
-# Chapter 32
+# Genesis 32 
 
 We have here Jacob still upon his journey towards Canaan. Never did so many memorable things occur in any march as in this of Jacob's little family. By the way he meets, I. With good tidings from his God, Ge 32:1,2. II. With bad tidings from his brother, to whom he sent a message to notify his return, Ge 32:3-6. In his distress, 1. He divides his company, Ge 32:7,8. 2. He makes his prayer to God, Ge 32:9-12. 3. He sends a present to his brother, Ge 32:13-23. 4. He wrestles with the angel, Ge 32:24-32.
 

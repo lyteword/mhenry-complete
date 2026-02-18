@@ -1,8 +1,11 @@
 ---
+title: "Genesis 27 | Read the Matthew Henry Concise Bible Commentary Online"
+linkTitle: "27"
+description: "In this chapter: In this chapter we return to the typical story of the struggle between Esau and Jacob. Esau had profanely sold the birthright to Jacob; but Esau hopes he shall be never the poorer,..."
 weight: 27
 ---
 
-# Chapter 27
+# Genesis 27 
 
 In this chapter we return to the typical story of the struggle between Esau and Jacob. Esau had profanely sold the birthright to Jacob; but Esau hopes he shall be never the poorer, nor Jacob the richer, for that bargain, while he preserves his interest in his father's affections, and so secures the blessing. Here therefore we find how he was justly punished for his contempt of the birthright (of which he foolishly deprived himself) with the loss of the blessing, of which Jacob fraudulently deprives him. Thus this story is explained, Heb 12:16,17, "Because he sold the birthright, when he would have inherited the blessing he was rejected." For those that make light of the name and profession of religion, and throw them away for a trifle, thereby forfeit the powers and privileges of it. We have here, I. Isaac's purpose to entail the blessing upon Esau, Ge 27:1-5. II. Rebekah's plot to procure it for Jacob, Ge 27:6-17. III. Jacob's successful management of the plot, and his obtaining the blessing, Ge 27:18-29. IV. Esau's resentment of this, in which, 1. His great importunity with his father to obtain a blessing, Ge 27:30-40. 2. His great enmity to his brother for defrauding him of the first blessing, Ge 27:41-46, etc.
 

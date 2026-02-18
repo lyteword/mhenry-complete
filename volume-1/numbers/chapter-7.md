@@ -1,8 +1,11 @@
 ---
+title: "Numbers 7 | Read the Matthew Henry Concise Bible Commentary Online"
+linkTitle: "7"
+description: "In this chapter: God having set up house (as it were) in the midst of the camp of Israel, the princes of Israel here come a visiting with their presents, as tenants to their landlord, in the name o..."
 weight: 7
 ---
 
-# Chapter 7
+# Numbers 7 
 
 God having set up house (as it were) in the midst of the camp of Israel, the princes of Israel here come a visiting with their presents, as tenants to their landlord, in the name of their respective tribes. I. They brought presents, 1. Upon the dedication of the tabernacle, for the service of that, Nu 7:1-9. 2. Upon the dedication of the altar, for the use of that, Nu 7:10-88. And, II. God graciously signified his acceptance of them, Nu 7:89. The two foregoing chapters were the records of additional laws which God gave to Israel, this is the history of the additional services which Israel performed to God.
 

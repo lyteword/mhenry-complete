@@ -1,8 +1,11 @@
 ---
+title: "Exodus 19 | Read the Matthew Henry Concise Bible Commentary Online"
+linkTitle: "19"
+description: "In this chapter: This chapter introduces the solemnity of the giving of the law upon Mount Sinai, which was one of the most striking appearances of the divine glory that ever was in this lower worl..."
 weight: 19
 ---
 
-# Chapter 19
+# Exodus 19 
 
 This chapter introduces the solemnity of the giving of the law upon Mount Sinai, which was one of the most striking appearances of the divine glory that ever was in this lower world. We have here, I. The circumstances of time and place, Ex 19:1,2. II. The covenant between God and Israel settled in general. The gracious proposal God made to them (Ex 19:3-6), and their consent to the proposal, Ex 19:7,8. III. Notice given three days before of God's design to give the law out of a thick cloud, Ex 19:9. Orders given to prepare the people to receive the law (Ex 19:10-13), and care taken to execute those orders, Ex 19:14,15. IV. A terrible appearance of God's glory upon mount Sinai, Ex 19:16-20. V. Silence proclaimed, and strict charges given to the people to observe decorum while God spoke to them, Ex 19:21-25, etc.
 

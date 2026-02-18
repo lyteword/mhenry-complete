@@ -1,8 +1,11 @@
 ---
+title: "Exodus 23 | Read the Matthew Henry Concise Bible Commentary Online"
+linkTitle: "23"
+description: "In this chapter: This chapter continues and concludes the acts that passed in the first session (if I may so call it) upon Mount Sinai. Here are, I. Some laws of universal obligation, relating espe..."
 weight: 23
 ---
 
-# Chapter 23
+# Exodus 23 
 
 This chapter continues and concludes the acts that passed in the first session (if I may so call it) upon Mount Sinai. Here are, I. Some laws of universal obligation, relating especially to the ninth commandment, against bearing false witness (Ex 23:1), and giving false judgment, Ex 23:2,3,6-8. Also a law of doing good to our enemies (Ex 23:4,5), and not oppressing strangers, Ex 23:9. II. Some laws peculiar to the Jews. The sabbatical year (Ex 23:10,11), the three annual feasts (Ex 23:14-17), with some laws pertaining thereto. III. Gracious promises of the completing of the mercy God had begun for them, upon condition of their obedience. That God would conduct them through the wilderness (Ex 23:20-24), that he would prosper all they had (Ex 23:25,26), that he would put them in possession of Canaan, Ex 23:27-31. But they must not mingle themselves with the nations, Ex 23:32,33.
 

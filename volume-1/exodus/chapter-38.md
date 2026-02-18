@@ -1,8 +1,11 @@
 ---
+title: "Exodus 38 | Read the Matthew Henry Concise Bible Commentary Online"
+linkTitle: "38"
+description: "In this chapter: Here is an account, I. Of the making of the brazen altar (Ex 38:1-7), and the laver, Ex 38:8. II. The preparing of the hangings for the enclosing of the court in which the tabernac..."
 weight: 38
 ---
 
-# Chapter 38
+# Exodus 38 
 
 Here is an account, I. Of the making of the brazen altar (Ex 38:1-7), and the laver, Ex 38:8. II. The preparing of the hangings for the enclosing of the court in which the tabernacle was to stand, Ex 38:9-20. III. A summary of the gold, silver, and brass, that was contributed to, and used in, the preparing of the tabernacle, Ex 38:21-31, etc.
 

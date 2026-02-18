@@ -1,8 +1,11 @@
 ---
+title: "Leviticus 4 | Read the Matthew Henry Concise Bible Commentary Online"
+linkTitle: "4"
+description: "In this chapter: This chapter is concerning the sin-offering, which was properly intended to make atonement for a sin committed through ignorance, I. By the priest himself, Le 4:1-12. Or, II. By th..."
 weight: 4
 ---
 
-# Chapter 4
+# Leviticus 4 
 
 This chapter is concerning the sin-offering, which was properly intended to make atonement for a sin committed through ignorance, I. By the priest himself, Le 4:1-12. Or, II. By the whole congregation, Le 4:13-21. Or, III. By a ruler, Le 4:22-26. Or, IV. By a private person, Le 4:27-35, etc.
 

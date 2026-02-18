@@ -1,8 +1,11 @@
 ---
+title: "Deuteronomy 8 | Read the Matthew Henry Concise Bible Commentary Online"
+linkTitle: "8"
+description: "In this chapter: Moses had charged parents in teaching their children to whet the word of God upon them (De 6:7) by frequent repetition of the same things over and over again; and here he himself t..."
 weight: 8
 ---
 
-# Chapter 8
+# Deuteronomy 8 
 
 Moses had charged parents in teaching their children to whet the word of God upon them (De 6:7) by frequent repetition of the same things over and over again; and here he himself takes the same method of instructing the Israelites as his children, frequently inculcating the same precepts and cautions, with the same motives or arguments to enforce them, that what they heard so often might abide with them. In this chapter Moses gives them, I. General exhortations to obedience, De 8:1,6. II. A review of the great things God had done for them in the wilderness, as a good argument for obedience, De 8:2-5,15,16. III. A prospect of the good land into which God would now bring them, De 8:7-9. IV. A necessary caution against the temptations of a prosperous condition, De 8:10-14,17,18. V. A fair warning of the fatal consequences of apostasy from God, De 8:19,20.
 

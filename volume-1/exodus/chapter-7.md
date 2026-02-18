@@ -1,8 +1,11 @@
 ---
+title: "Exodus 7 | Read the Matthew Henry Concise Bible Commentary Online"
+linkTitle: "7"
+description: "In this chapter: In this chapter, I. The dispute between God and Moses finishes, and Moses applies himself to the execution of his commission, in obedience to God's command, Ex 7:1-7. II. The dispu..."
 weight: 7
 ---
 
-# Chapter 7
+# Exodus 7 
 
 In this chapter, I. The dispute between God and Moses finishes, and Moses applies himself to the execution of his commission, in obedience to God's command, Ex 7:1-7. II. The dispute between Moses and Pharaoh begins, and a famous trial of skill it was. Moses, in God's name, demands Israel's release; Pharaoh denies it. The contest is between the power of the great God and the power of a proud prince; and it will be found, in the issue, that when God judgeth he will overcome. 1. Moses confirms the demand he had made to Pharaoh, by a miracle, turning his rod into a serpent; but Pharaoh hardens his heart against this conviction, Ex 7:8-13. 2. He chastises his disobedience by a plague, the first of the ten, turning the waters into blood; but Pharaoh hardens his heart against this correction, Ex 7:14-25, etc.
 

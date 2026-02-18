@@ -1,8 +1,11 @@
 ---
+title: "Genesis 49 | Read the Matthew Henry Concise Bible Commentary Online"
+linkTitle: "49"
+description: "In this chapter: This chapter is a prophecy; the likest to it we have yet met with was that of Noah, Ge 9:25-27, etc. Jacob is here upon his death-bed, making his will. He put it off till now, beca..."
 weight: 49
 ---
 
-# Chapter 49
+# Genesis 49 
 
 This chapter is a prophecy; the likest to it we have yet met with was that of Noah, Ge 9:25-27, etc. Jacob is here upon his death-bed, making his will. He put it off till now, because dying men's words are apt to make deep impressions, and to be remembered long: what he said here, he could not say when he would, but as the Spirit gave him utterance, who chose this time, that divine strength might be perfected in his weakness. The twelve sons of Jacob were, in their day, men of renown, but the twelve tribes of Israel, which descended and were denominated from them, were much more renowned; we find their names upon the gates of the New Jerusalem, Re 21:12. In the prospect of this their dying father says something remarkable of each son, or of the tribe that bore his name. Here is, I. The preface, Ge 49:1,2. II. The prediction concerning each tribe, Ge 49:3-28. III. The charge repeated concerning his burial, Ge 49:29-32. IV. His death, Ge 49:33.
 

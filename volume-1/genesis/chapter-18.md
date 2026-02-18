@@ -1,8 +1,11 @@
 ---
+title: "Genesis 18 | Read the Matthew Henry Concise Bible Commentary Online"
+linkTitle: "18"
+description: "In this chapter: We have an account in this chapter of another interview between God and Abraham, probably within a few days after the former, as the reward of his cheerful obedience to the law of ..."
 weight: 18
 ---
 
-# Chapter 18
+# Genesis 18 
 
 We have an account in this chapter of another interview between God and Abraham, probably within a few days after the former, as the reward of his cheerful obedience to the law of circumcision. Here is, I. The kind visit which God made him, and the kind entertainment which he gave to that visit, Ge 18:1-8. II. The matters discoursed of between them. 1. The purposes of God's love concerning Sarah, Ge 18:9-15. 2. The purposes of God's wrath concerning Sodom. (1.) The discovery God made to Abraham of his design to destroy Sodom, Ge 18:16-22. (2.) The intercession Abraham made for Sodom, Ge 18:23-33, etc.).
 

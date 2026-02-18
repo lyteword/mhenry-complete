@@ -1,8 +1,11 @@
 ---
+title: "Genesis 42 | Read the Matthew Henry Concise Bible Commentary Online"
+linkTitle: "42"
+description: "In this chapter: We had, in the foregoing chapter, the fulfilling of the dreams which Joseph had interpreted: in this and the following chapters we have the fulfilling of the dreams which Joseph hi..."
 weight: 42
 ---
 
-# Chapter 42
+# Genesis 42 
 
 We had, in the foregoing chapter, the fulfilling of the dreams which Joseph had interpreted: in this and the following chapters we have the fulfilling of the dreams which Joseph himself had dreamed, that his father's family should do homage to him. The story is very largely and particularly related of what passed between Joseph and his brethren, not only because it is an entertaining story, and probably was much talked of, both among the Israelites and among the Egyptians, but because it is very instructive, and it gave occasion for the removal of Jacob's family into Egypt, on which so many great events afterwards depended. We have, in this chapter, I. The humble application of Jacob's sons to Joseph to buy corn, Ge 42:1-6. II. The fright Joseph put them into, for their trial, Ge 42:7-20. III. The conviction they were now under of their sin concerning Joseph long before, Ge 42:21-24. IV. Their return to Canaan with corn, and the great distress their good father was in upon hearing the account of their expedition, Ge 42:25-38, etc.
 

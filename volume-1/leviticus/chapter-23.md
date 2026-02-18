@@ -1,8 +1,11 @@
 ---
+title: "Leviticus 23 | Read the Matthew Henry Concise Bible Commentary Online"
+linkTitle: "23"
+description: "In this chapter: Hitherto the levitical law had been chiefly conversant about holy persons, holy things, and holy places; in this chapter we have the institution of holy times, many of which had be..."
 weight: 23
 ---
 
-# Chapter 23
+# Leviticus 23 
 
 Hitherto the levitical law had been chiefly conversant about holy persons, holy things, and holy places; in this chapter we have the institution of holy times, many of which had been mentioned occasionally before, but here they are all put together, only the new moons are not mentioned. All the rest of the feasts of the Lord are, I. The weekly feast of the sabbath, Le 23:3. II. The yearly feasts, 1. The passover, and the feast of unleavened bread (Le 23:4-8), to which was annexed the offering of the sheaf of firstfruits, Le 23:9-14. 2. Pentecost, Le 23:15-22. 3. The solemnities of the seventh month. The feast of trumpets on the first day (Le 23:23-25), the day of atonement on the tenth day (Le 23:26-32), and the feast of tabernacles on the fifteenth, Le 23:33-44, etc.
 

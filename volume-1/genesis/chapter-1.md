@@ -1,8 +1,11 @@
 ---
+title: "Genesis 1 | Read the Matthew Henry Concise Bible Commentary Online"
+linkTitle: "1"
+description: "In this chapter: The foundation of all religion being laid in our relation to God as our Creator, it was fit that the book of divine revelations which was intended to be the guide, support, and rul..."
 weight: 1
 ---
 
-# Chapter 1
+# Genesis 1 
 
 The foundation of all religion being laid in our relation to God as our Creator, it was fit that the book of divine revelations which was intended to be the guide, support, and rule, of religion in the world, should begin, as it does, with a plain and full account of the creation of the world—in answer to that first enquiry of a good conscience, "Where is God my Maker?" (Job 35:10). Concerning this the pagan philosophers wretchedly blundered, and became vain in their imaginations, some asserting the world's eternity and self-existence, others ascribing it to a fortuitous concourse of atoms: thus "the world by wisdom knew not God," but took a great deal of pains to lose him. The holy scripture therefore, designing by revealed religion to maintain and improve natural religion, to repair the decays of it and supply the defects of it, since the fall, for the reviving of the precepts of the law of nature, lays down, at first, this principle of the unclouded light of nature, That this world was, in the beginning of time, created by a Being of infinite wisdom and power, who was himself before all time and all worlds. The entrance into God's word gives this light, Ps 119:130. The Ge 1:1 of the Bible gives us a surer and better, a more satisfying and useful, knowledge of the origin of the universe, than all the volumes of the philosophers. The lively faith of humble Christians understands this matter better than the elevated fancy of the greatest wits, Heb 11:3.
 

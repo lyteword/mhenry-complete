@@ -1,8 +1,11 @@
 ---
+title: "Deuteronomy 32 | Read the Matthew Henry Concise Bible Commentary Online"
+linkTitle: "32"
+description: "In this chapter: In this chapter we have, I. The song which Moses, by the appointment of God, delivered to the children of Israel, for a standing admonition to them, to take heed of forsaking God. ..."
 weight: 32
 ---
 
-# Chapter 32
+# Deuteronomy 32 
 
 In this chapter we have, I. The song which Moses, by the appointment of God, delivered to the children of Israel, for a standing admonition to them, to take heed of forsaking God. This takes up most of the chapter, in which we have, 1. The preface, De 32:1,2. 2. A high character of God, and, in opposition to that, a bad character of the people of Israel, De 32:3-6. 3. A rehearsal of the great things God had done for them, and in opposition to that an account of their ill carriage towards him, De 32:7-18. 4. A prediction of the wasting destroying judgments which God would bring upon them for their sins, in which God is here justified by the many aggravations of their impieties, De 32:19-33. 5. A promise of the destruction of their enemies and oppressors at last, and the glorious deliverance of a remnant of Israel, De 32:36-43. II. The exhortation with which Moses delivered this song to them, De 32:41-47. III. The orders God gives to Moses to go up to Mount Nebo and die, De 32:48-52, etc.
 

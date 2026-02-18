@@ -1,8 +1,11 @@
 ---
+title: "Numbers 17 | Read the Matthew Henry Concise Bible Commentary Online"
+linkTitle: "17"
+description: "In this chapter: Enough had been done in the chapter before to quash all pretensions of the families of the tribe of Levi that would set up in competition with Aaron, and to make it appear that Aar..."
 weight: 17
 ---
 
-# Chapter 17
+# Numbers 17 
 
 Enough had been done in the chapter before to quash all pretensions of the families of the tribe of Levi that would set up in competition with Aaron, and to make it appear that Aaron was the head of the tribe; but it seems, when that matter was settled, the princes of the rest of the tribes began to murmur. If the head of a tribe must be a priest, why not the head of some other tribe than that of Levi? He that searches the heart knew this thought to be in the breast of some of them, and before it broke out into any overt act graciously anticipated it, to prevent bloodshed; and it is done by miracle in this chapter, not a miracle of wrath, as before, but of grace. I. The matter is put upon trial by the bringing of twelve rods, one for each prince, before the Lord, Nu 17:1-7. II. Upon trial, the matter is determined by the miraculous blossoming of Aaron's rod, Nu 17:8,9. III. The decision of the controversy is registered by the preservation of the rod, Nu 17:10,11. IV. The people acquiesce in it with some reluctance, Nu 17:12,13.
 

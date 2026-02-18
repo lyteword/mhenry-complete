@@ -1,8 +1,11 @@
 ---
+title: "Exodus 32 | Read the Matthew Henry Concise Bible Commentary Online"
+linkTitle: "32"
+description: "In this chapter: It is a very lamentable interruption which the story of this chapter gives to the record of the establishment of the church, and of religion among the Jews. Things went on admirabl..."
 weight: 32
 ---
 
-# Chapter 32
+# Exodus 32 
 
 It is a very lamentable interruption which the story of this chapter gives to the record of the establishment of the church, and of religion among the Jews. Things went on admirably well towards that happy settlement: God had shown himself very favourable, and the people also had seemed to be pretty tractable. Moses had now almost completed his forty days upon the mount, and, we may suppose, was pleasing himself with the thoughts of the very joyful welcome he should have to the camp of Israel at his return, and the speedy setting up of the tabernacle among them. But, behold, the measures are broken, the sin of Israel turns away those good things from them, and puts a stop to the current of God's favours; the sin that did the mischief (would you think it?) was worshipping a golden calf. The marriage was ready to be solemnized between God and Israel, but Israel plays the harlot, and so the match is broken, and it will be no easy matter to piece it again. Here is, I. The sin of Israel, and of Aaron particularly, in making the golden calf for a god (Ex 32:1-4), and worshipping it, Ex 32:5,6. II. The notice which God gave of this to Moses, who was now in the mount with him, (Ex 32:7,8), and the sentence of his wrath against them, Ex 32:9,10. III. The intercession which Moses immediately made for them in the mount (Ex 32:11-13), and the prevalency of that intercession, Ex 32:14. IV. His coming down from the mount, when he became an eye-witness of their idolatry (Ex 32:15-19), in abhorrence of which, and as an expression of just indignation, he broke the tables (Ex 32:19), and burnt the golden calf, Ex 32:20. V. The examination of Aaron about it, Ex 32:21-24. VI. Execution done upon the ring-leaders in the idolatry, Ex 32:25-29. VII. The further intercession Moses made for them, to turn away the wrath of God from them (Ex 32:30-32), and a reprieve granted thereupon, reserving them for a further reckoning, Ex 32:33-35, etc.
 

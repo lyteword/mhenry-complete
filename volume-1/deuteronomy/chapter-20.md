@@ -1,8 +1,11 @@
 ---
+title: "Deuteronomy 20 | Read the Matthew Henry Concise Bible Commentary Online"
+linkTitle: "20"
+description: "In this chapter: This chapter settles the militia, and establishes the laws and ordinances of war, I. Relating to the soldiers. 1. Those must be encouraged that were drawn up to battle, De 20:1-4. ..."
 weight: 20
 ---
 
-# Chapter 20
+# Deuteronomy 20 
 
 This chapter settles the militia, and establishes the laws and ordinances of war, I. Relating to the soldiers. 1. Those must be encouraged that were drawn up to battle, De 20:1-4. 2. Those must be dismissed and sent back again whose private affairs called for their attendance at home (De 20:5-7), or whose weakness and timidity unfitted them for service in the field, De 20:8,9. II. Relating to the enemies they made war with. 1. The treaties they must make with the cities that were far off, De 20:10-15. 2. The destruction they must make of the people into whose land they were going, De 20:16-18. 3. The care they must take, in besieging cities, not to destroy the fruit-trees, De 20:19,20.
 

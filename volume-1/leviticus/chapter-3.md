@@ -1,8 +1,11 @@
 ---
+title: "Leviticus 3 | Read the Matthew Henry Concise Bible Commentary Online"
+linkTitle: "3"
+description: "In this chapter: In this chapter we have the law concerning the peace-offerings, whether they were, I. Of the heard, a bullock or a heifer, Le 3:1-5. Or, II. Of the flock, either a lamb (Le 3:6-11)..."
 weight: 3
 ---
 
-# Chapter 3
+# Leviticus 3 
 
 In this chapter we have the law concerning the peace-offerings, whether they were, I. Of the heard, a bullock or a heifer, Le 3:1-5. Or, II. Of the flock, either a lamb (Le 3:6-11) or a goat, Le 3:12-17. The ordinances concerning each of these are much the same, yet they are repeated, to show the care we ought to take that all our services be done according to the appointment and the pleasure God takes in the services that are so performed. It is likewise to intimate what need we have of precept upon precept, and line upon line.
 

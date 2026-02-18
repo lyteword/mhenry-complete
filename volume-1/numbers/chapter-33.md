@@ -1,8 +1,11 @@
 ---
+title: "Numbers 33 | Read the Matthew Henry Concise Bible Commentary Online"
+linkTitle: "33"
+description: "In this chapter: In this chapter we have, I. A particular account of the removals and encampments of the children of Israel, from their escape out of Egypt to their entrance into Canaan, forty-two ..."
 weight: 33
 ---
 
-# Chapter 33
+# Numbers 33 
 
 In this chapter we have, I. A particular account of the removals and encampments of the children of Israel, from their escape out of Egypt to their entrance into Canaan, forty-two in all, with some remarkable events that happened at some of those places, Nu 33:1-49. II. A strict command given them to drive out all the inhabitants of the land of Canaan, which they were not going to conquer and take possession of, Nu 33:50-56. So that the former part of the chapter looks back upon their march through the wilderness, the latter looks forward to their settlement in Canaan.
 

@@ -1,8 +1,11 @@
 ---
+title: "Genesis 31 | Read the Matthew Henry Concise Bible Commentary Online"
+linkTitle: "31"
+description: "In this chapter: Jacob was a very honest good man, a man of great devotion and integrity, yet he had more trouble and vexation than any of the patriarchs. He left his father's house in a fright, we..."
 weight: 31
 ---
 
-# Chapter 31
+# Genesis 31 
 
 Jacob was a very honest good man, a man of great devotion and integrity, yet he had more trouble and vexation than any of the patriarchs. He left his father's house in a fright, went to his uncle's in distress, very hard usage he met with there, and now is going back surrounded with fears. Here is, I. His resolution to return, Ge 31:1-16. II. His clandestine departure, Ge 31:17-21. III. Laban's pursuit of him in displeasure, Ge 31:22-25. IV. The hot words that passed between them, Ge 31:26-42. V. Their amicable agreement at last, Ge 31:43-55, etc.).
 

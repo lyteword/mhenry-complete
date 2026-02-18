@@ -1,8 +1,11 @@
 ---
+title: "Exodus 40 | Read the Matthew Henry Concise Bible Commentary Online"
+linkTitle: "40"
+description: "In this chapter: In this chapter, I. Orders are given for the setting up of the tabernacle and the fixing of all the appurtenances of it in their proper places (Ex 40:1-8), and the consecrating of ..."
 weight: 40
 ---
 
-# Chapter 40
+# Exodus 40 
 
 In this chapter, I. Orders are given for the setting up of the tabernacle and the fixing of all the appurtenances of it in their proper places (Ex 40:1-8), and the consecrating of it (Ex 40:9-11), and of the priests, Ex 40:12-15. II. Care is taken to do all this, and as it was appointed to be done, Ex 40:16-33. III. God takes possession of it by the cloud, Ex 40:34-38, etc.
 
