@@ -1,11 +1,8 @@
 ---
-title: "Deuteronomy 17 | Read the Matthew Henry Concise Bible Commentary Online"
-linkTitle: "17"
-description: "In this chapter: The charge of this chapter is, I. Concerning the purity and perfection of all those animals that were offered in sacrifice, De 17:1. II. Concerning the punishment of those that wor..."
 weight: 17
 ---
 
-# Deuteronomy 17 
+# Chapter 17
 
 The charge of this chapter is, I. Concerning the purity and perfection of all those animals that were offered in sacrifice, De 17:1. II. Concerning the punishment of those that worshipped idols, De 17:2-7. III. Concerning appeals from the inferior courts to the great sanhedrim, De 17:8-13. IV. Concerning the choice and duty of a king, De 17:14-20, etc.
 

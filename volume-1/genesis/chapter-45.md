@@ -1,11 +1,8 @@
 ---
-title: "Genesis 45 | Read the Matthew Henry Concise Bible Commentary Online"
-linkTitle: "45"
-description: "In this chapter: It is a pity that this chapter and the foregoing should be parted, and read asunder. There we had Judah's intercession for Benjamin, with which, we may suppose, the rest of his bre..."
 weight: 45
 ---
 
-# Genesis 45 
+# Chapter 45
 
 It is a pity that this chapter and the foregoing should be parted, and read asunder. There we had Judah's intercession for Benjamin, with which, we may suppose, the rest of his brethren signified their concurrence; Joseph let him go on without interruption, heard all he had to say, and then answered it all in one word, "I am Joseph." Now he found his brethren humbled for their sins, mindful of himself (for Judah had mentioned him twice in his speech), respectful to their father, and very tender of their brother Benjamin; now they were ripe for the comfort he designed them, by making himself known to them, the story of which we have in this chapter. It was to Joseph's brethren as clear shining after rain, nay, it was to them as life from the dead. Here is, I. Joseph's discovery of himself to his brethren, and his discourse with them upon that occasion, Ge 45:1-15. II. The orders Pharaoh, hereupon, gave to fetch Jacob and his family down to Egypt, and Joseph's despatch of his brethren, accordingly, back to his father with those orders, Ge 45:16-24. III. The joyful tidings of this brought to Jacob, Ge 45:25-28, etc.
 

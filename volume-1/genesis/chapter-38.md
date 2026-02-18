@@ -1,11 +1,8 @@
 ---
-title: "Genesis 38 | Read the Matthew Henry Concise Bible Commentary Online"
-linkTitle: "38"
-description: "In this chapter: This chapter gives us an account of Judah and his family, and such an account it is that one would wonder that, of all Jacob's sons, our Lord should spring out of Judah, Heb 7:14. ..."
 weight: 38
 ---
 
-# Genesis 38 
+# Chapter 38
 
 This chapter gives us an account of Judah and his family, and such an account it is that one would wonder that, of all Jacob's sons, our Lord should spring out of Judah, Heb 7:14. If we were to form a character of him by this story, we should not say, "Judah, thou art he whom thy brethren shall praise," Ge 49:8. But God will show that his choice is of grace and not of merit, and that Christ came into the world to save sinners, even the chief, and is not ashamed, upon their repentance, to be allied to them, also that the worth and worthiness of Jesus Christ are personal, of himself, and not derived from his ancestors. Humbling himself to be "made in the likeness of sinful flesh," he was pleased to descend from some that were infamous. How little reason had the Jews, who were so called from this Judah, to boast, as they did, that they were not born of fornication! Joh 8:41. We have, in this chapter, I. Judah's marriage and issue, and the untimely death of his two eldest sons, Ge 38:1-11. II. Judah's incest with his daughter-in-law Tamar, without his knowing it, Ge 38:12-23. III. His confusion, when it was discovered, Ge 38:24-26. IV. The birth of his twin sons, in whom his family was built up, Ge 38:27-30, etc.
 

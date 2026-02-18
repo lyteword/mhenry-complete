@@ -1,11 +1,8 @@
 ---
-title: "Deuteronomy 31 | Read the Matthew Henry Concise Bible Commentary Online"
-linkTitle: "31"
-description: "In this chapter: In this chapter Moses, having finished his sermon, I. Encourages both the people who were now to enter Canaan (De 31:1-6), and Joshua who was to lead them, De 31:7,8,23. And, II. H..."
 weight: 31
 ---
 
-# Deuteronomy 31 
+# Chapter 31
 
 In this chapter Moses, having finished his sermon, I. Encourages both the people who were now to enter Canaan (De 31:1-6), and Joshua who was to lead them, De 31:7,8,23. And, II. He takes care for the keeping of these things always in their remembrance after his decease, 1. By the book of the law which was, (1.) Written. (2.) Delivered into the custody of the priests, De 31:9,24-27. (3.) Ordered to be publicly read every seventh year, De 31:10-13. 2. By a song which God orders Moses to prepare for their instruction and admonition. (1.) He calls Moses and Joshua to the door of the tabernacle, De 31:14,15. (2.) He foretells the apostasy of Israel in process of time, and the judgments they would thereby bring upon themselves, De 31:16-18. (3.) He prescribes the following song to be a witness against them, De 31:19-21. (4.) Moses wrote it, De 31:22. And delivered it to Israel, with an intimation of the design of it, as he had received it from the Lord, De 31:28-30, etc.
 

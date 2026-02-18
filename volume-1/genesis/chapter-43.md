@@ -1,11 +1,8 @@
 ---
-title: "Genesis 43 | Read the Matthew Henry Concise Bible Commentary Online"
-linkTitle: "43"
-description: "In this chapter: Here the story of Joseph's brethren is carried on, and very particularly related. I. Their melancholy parting with their father Jacob in Canaan, Ge 43:1-14. II. Their pleasant meet..."
 weight: 43
 ---
 
-# Genesis 43 
+# Chapter 43
 
 Here the story of Joseph's brethren is carried on, and very particularly related. I. Their melancholy parting with their father Jacob in Canaan, Ge 43:1-14. II. Their pleasant meeting with Joseph in Egypt, Ge 43:15-34, etc. For on this occasion nothing occurs there but what is agreeable and pleasant.
 

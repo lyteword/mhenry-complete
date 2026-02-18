@@ -1,11 +1,8 @@
 ---
-title: "Deuteronomy 34 | Read the Matthew Henry Concise Bible Commentary Online"
-linkTitle: "34"
-description: "In this chapter: Having read how Moses finished his testimony, we are told here how he immediately after finished his life. This chapter could not be written by Moses himself, but was added by Josh..."
 weight: 34
 ---
 
-# Deuteronomy 34 
+# Chapter 34
 
 Having read how Moses finished his testimony, we are told here how he immediately after finished his life. This chapter could not be written by Moses himself, but was added by Joshua or Eleazar, or, as bishop Patrick conjectures, by Samuel, who was a prophet, and wrote by divine authority what he found in the records of Joshua, and his successors the judges. We have had an account of his dying words, here we have an account of his dying work, and that is work we must all do shortly, and it had need be well done. Here is, I. The view Moses had of the land of Canaan just before he died, De 34:1-4. II. His death and burial, De 34:5,6. III. His age, De 34:7. IV. Israel's mourning for him, De 34:8. V. His successor, De 34:9. VI. His character, De 34:10-12, etc.
 

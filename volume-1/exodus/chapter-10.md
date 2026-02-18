@@ -1,11 +1,8 @@
 ---
-title: "Exodus 10 | Read the Matthew Henry Concise Bible Commentary Online"
-linkTitle: "10"
-description: "In this chapter: The eighth and ninth of the plagues of Egypt, that of locusts and that of darkness, are recorded in this chapter. I. Concerning the plague of locusts, 1. God instructs Moses in the..."
 weight: 10
 ---
 
-# Exodus 10 
+# Chapter 10
 
 The eighth and ninth of the plagues of Egypt, that of locusts and that of darkness, are recorded in this chapter. I. Concerning the plague of locusts, 1. God instructs Moses in the meaning of these amazing dispensations of his providence, Ex 10:1,2. 2. He threatens the locusts, Ex 10:3-6. 3. Pharaoh, at the persuasion of his servants, is willing to treat again with Moses (Ex 10:7-9), but they cannot agree, Ex 10:10,11. 4. The locusts come, Ex 10:12-15. 5. Pharaoh cries Peccavi—I have offended (Ex 10:16,17), whereupon Moses prays for the removal of the plague, and it is done; but Pharaoh's heart is still hardened, Ex 10:18-20. II. Concerning the plague of darkness, 1. It is inflicted, Ex 10:21-23. 2. Pharaoh again treats with Moses about a surrender, but the treaty breaks off in a heat, Ex 10:26-29, etc.
 

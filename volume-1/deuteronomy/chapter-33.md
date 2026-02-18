@@ -1,11 +1,8 @@
 ---
-title: "Deuteronomy 33 | Read the Matthew Henry Concise Bible Commentary Online"
-linkTitle: "33"
-description: "In this chapter: Yet Moses has not done with the children of Israel; he seemed to have taken final leave of them in the close of the foregoing chapter, but still he has something more to say. He ha..."
 weight: 33
 ---
 
-# Deuteronomy 33 
+# Chapter 33
 
 Yet Moses has not done with the children of Israel; he seemed to have taken final leave of them in the close of the foregoing chapter, but still he has something more to say. He had preached them a farewell sermon, a very copious and pathetic discourse. After sermon he had given out a psalm, a long psalm; and now nothing remains but to dismiss them with a blessing; that blessing he pronounces in this chapter in the name of the Lord, and so leaves them. I. He pronounces them all blessed in what God had done for them already, especially in giving them his law, De 33:2-5. II. He pronounces a blessing upon each tribe, which is both a prayer for and a prophecy of their felicity. 1. Reuben, De 33:6. 2. Judah, De 33:7. 3. Levi, De 33:8-11. 4. Benjamin, De 33:42. 5. Joseph, De 33:13-17. 6. Zebulun and Issachar, De 33:18,19. 7. Gad, De 33:20,21. 8. Dan, De 33:22. 9. Naphtali, De 33:23. 10. Asher, De 33:24,25. III. He pronounces them all in general blessed upon the account of what God would be to them, and do for them if they were obedient, De 33:26-29, etc.
 

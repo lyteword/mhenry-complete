@@ -1,11 +1,8 @@
 ---
-title: "Deuteronomy 29 | Read the Matthew Henry Concise Bible Commentary Online"
-linkTitle: "29"
-description: "In this chapter: The first words of this chapter are the contents of it, "These are the words of the covenant" (De 29:1), that is, these that follow. Here is, I. A recital of God's dealings with th..."
 weight: 29
 ---
 
-# Deuteronomy 29 
+# Chapter 29
 
 The first words of this chapter are the contents of it, "These are the words of the covenant" (De 29:1), that is, these that follow. Here is, I. A recital of God's dealings with them, in order to the bringing of them into this covenant, De 29:2-8. II. A solemn charge to them to keep the covenant, De 29:9. III. An abstract of the covenant itself, De 29:12,13. IV. A specification of the persons taken into the covenant, De 29:10,11,14,15. V. An intimation of the great design of this covenant against idolatry, in a parenthesis, De 29:16,17. VI. A most solemn and dreadful denunciation of the wrath of God against such persons as promise themselves peace in a sinful way, De 29:18-28. VII. The conclusion of this treaty, with a distinction between things secret and things revealed, De 29:29.
 

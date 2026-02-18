@@ -1,11 +1,8 @@
 ---
-title: "Genesis 29 | Read the Matthew Henry Concise Bible Commentary Online"
-linkTitle: "29"
-description: "In this chapter: This chapter gives us an account of God's providences concerning Jacob, pursuant to the promises made to him in the foregoing chapter. I. How he was brought in safety to his journe..."
 weight: 29
 ---
 
-# Genesis 29 
+# Chapter 29
 
 This chapter gives us an account of God's providences concerning Jacob, pursuant to the promises made to him in the foregoing chapter. I. How he was brought in safety to his journey's end, and directed to his relations there, who bade him welcome, Ge 29:1-14. II. How he was comfortably disposed of in marriage, Ge 29:15-30. III. How his family was built up in the birth of four sons, Ge 29:31-35. The affairs of princes and mighty nations that were then in being are not recorded in the book of God, but are left to be buried in oblivion; while these small domestic concerns of holy Jacob are particularly recorded with their minute circumstances, that they may be in everlasting remembrance. For "the memory of the just is blessed."
 

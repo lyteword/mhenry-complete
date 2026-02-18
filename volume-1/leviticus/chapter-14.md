@@ -1,11 +1,8 @@
 ---
-title: "Leviticus 14 | Read the Matthew Henry Concise Bible Commentary Online"
-linkTitle: "14"
-description: "In this chapter: The former chapter directed the priests how to convict a leper of ceremonial uncleanness. No prescriptions are given for his cure; but, when God had cured him, the priests are in t..."
 weight: 14
 ---
 
-# Leviticus 14 
+# Chapter 14
 
 The former chapter directed the priests how to convict a leper of ceremonial uncleanness. No prescriptions are given for his cure; but, when God had cured him, the priests are in this chapter directed how to cleanse him. The remedy here is only adapted to the ceremonial part of his disease; but the authority Christ gave to his ministers was to cure the lepers, and so to cleanse them. We have here, I. The solemn declaration of the leper's being clean, with the significant ceremony attending it, Le 14:1-9. II. The sacrifices which he was to offer to God eight days after, Le 14:10-32. III. The management of a house in which appeared signs of a leprosy, Le 14:33-53. And the conclusion and summary of this whole matter, Le 14:54-57, etc.
 

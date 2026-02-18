@@ -1,11 +1,8 @@
 ---
-title: "Deuteronomy 15 | Read the Matthew Henry Concise Bible Commentary Online"
-linkTitle: "15"
-description: "In this chapter: In this chapter Moses gives orders, I. Concerning the release of debts, every seventh year (De 15:1-6), with a caution that this should be no hindrance to charitable lending, De 15..."
 weight: 15
 ---
 
-# Deuteronomy 15 
+# Chapter 15
 
 In this chapter Moses gives orders, I. Concerning the release of debts, every seventh year (De 15:1-6), with a caution that this should be no hindrance to charitable lending, De 15:7-11. II. Concerning the release of servants after seven years' service, De 15:12-18. III. Concerning the sanctification of the firstlings of cattle to God, De 15:19-23, etc.
 

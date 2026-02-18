@@ -1,11 +1,8 @@
 ---
-title: "Leviticus 5 | Read the Matthew Henry Concise Bible Commentary Online"
-linkTitle: "5"
-description: "In this chapter: This chapter, and part of the next, concern the trespass-offering. The difference between this and the sin-offering lay not so much in the sacrifices themselves, and the management..."
 weight: 5
 ---
 
-# Leviticus 5 
+# Chapter 5
 
 This chapter, and part of the next, concern the trespass-offering. The difference between this and the sin-offering lay not so much in the sacrifices themselves, and the management of them, as in the occasions of the offering of them. They were both intended to make atonement for sin; but the former was more general, this applied to some particular instances. Observe what is here said, I. Concerning the trespass. If a man sin, 1. In concealing his knowledge, when he is adjured, Le 5:1. 2. In touching an unclean thing, Le 5:2,3. 3. In swearing, Le 5:4. 4. In embezzling the holy things, Le 5:14-16. 5. In any sin of infirmity, Le 5:17-19. Some other cases there are, in which these offerings were to be offered, Le 6:2-4,14:12,19:21, Nu 6:12. II. Concerning the trespass-offerings, 1. Of the flock, Le 5:5,6. 2. Of fowls, Le 5:7-10. 3. Of flour, Le 5:11-13; but chiefly a ram without blemish, Le 5:15, etc.
 

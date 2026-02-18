@@ -1,11 +1,8 @@
 ---
-title: "Genesis 30 | Read the Matthew Henry Concise Bible Commentary Online"
-linkTitle: "30"
-description: "In this chapter: In this chapter we have an account of the increase, I. Of Jacob's family. Eight children more we find registered in this chapter; Dan and Naphtali by Bilhah, Rachel's maid, Ge 30:1..."
 weight: 30
 ---
 
-# Genesis 30 
+# Chapter 30
 
 In this chapter we have an account of the increase, I. Of Jacob's family. Eight children more we find registered in this chapter; Dan and Naphtali by Bilhah, Rachel's maid, Ge 30:1-8. Gad and Asher by Zilpah, Leah's maid, Ge 30:9-13. Issachar, Zebulun, and Dinah, by Leah, Ge 30:14-21. And, last of all, Joseph, by Rachel, Ge 30:22-24. II. Of Jacob's estate. He makes a new bargain with Laban, Ge 30:25-34. And in the six years' further service he did to Laban God wonderfully blessed him, so that his stock of cattle became very considerable, Ge 30:35-43. Herein was fulfilled the blessing with which Isaac dismissed him (Ge 28:3), "God make thee fruitful, and multiply thee." Even these small matters concerning Jacob's house and field, though they seem inconsiderable, are improvable for our learning. For the scriptures were written, not for princes and statesmen, to instruct them in politics; but for all people, even the meanest, to direct them in their families and callings: yet some things are here recorded concerning Jacob, not for imitation, but for admonition.
 

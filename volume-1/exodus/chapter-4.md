@@ -1,11 +1,8 @@
 ---
-title: "Exodus 4 | Read the Matthew Henry Concise Bible Commentary Online"
-linkTitle: "4"
-description: "In this chapter: This chapter, I. Continues and concludes God's discourse with Moses at the bush concerning this great affair of bringing Israel out of Egypt. 1. Moses objects the people's unbelief..."
 weight: 4
 ---
 
-# Exodus 4 
+# Chapter 4
 
 This chapter, I. Continues and concludes God's discourse with Moses at the bush concerning this great affair of bringing Israel out of Egypt. 1. Moses objects the people's unbelief (Ex 4:1), and God answers that objection by giving him a power to work miracles, (1.) To turn his rod into a serpent, and then into a rod again, Ex 4:2-5. (2.) To make his hand leprous, and then whole again, Ex 4:6-8. (3.) To turn the water into blood, Ex 4:9. 2. Moses objects his own slowness of speech (Ex 4:10), and begs to be excused (Ex 4:13); but God answers this objection, (1.) By promising him his presence, Ex 4:11,12. (2.) By joining Aaron in commission with him, Ex 4:14-16. (3.) By putting an honour upon the very staff in his hand, Ex 4:17. II. It begins Moses's execution of his commission. 1. He obtains leave of his father-in-law to return into Egypt, Ex 4:18. 2. He receives further instructions and encouragements from God, Ex 4:19,21-23. 3. He hastens his departure, and takes his family with him, Ex 4:20. 4. He meets with some difficulty in the way about the circumcising of his son, Ex 4:24-26. 5. He has the satisfaction of meeting his brother Aaron, Ex 4:27,28. 6. He produces his commission before the elders of Israel, to their great joy, Ex 4:29-31. And thus the wheels were set a going towards that great deliverance.
 

@@ -1,11 +1,8 @@
 ---
-title: "Exodus 17 | Read the Matthew Henry Concise Bible Commentary Online"
-linkTitle: "17"
-description: "In this chapter: Two passages of story are recorded in this chapter, I. The watering of the host of Israel. 1. In the wilderness they wanted water, Ex 17:1. 2. In their want they chided Moses, Ex 1..."
 weight: 17
 ---
 
-# Exodus 17 
+# Chapter 17
 
 Two passages of story are recorded in this chapter, I. The watering of the host of Israel. 1. In the wilderness they wanted water, Ex 17:1. 2. In their want they chided Moses, Ex 17:2,3. 3. Moses cried to God, Ex 17:4. 4. God ordered him to smite the rock, and fetch water out of that; Moses did so, Ex 17:5,6. 5. The place named from it, Ex 17:7. II. The defeating of the host of Amalek. 1. The victory obtained by the prayer of Moses, Ex 17:8-12. 2. By the sword of Joshua, Ex 17:13. 3. A record kept of it, Ex 17:14,16. And these things which happened to them are written for our instruction in our spiritual journey and warfare.
 

@@ -1,11 +1,8 @@
 ---
-title: "Genesis 4 | Read the Matthew Henry Concise Bible Commentary Online"
-linkTitle: "4"
-description: "In this chapter: In this chapter we have both the world and the church in a family, in a little family, in Adam's family, and a specimen given of the character and state of both in after-ages, nay,..."
 weight: 4
 ---
 
-# Genesis 4 
+# Chapter 4
 
 In this chapter we have both the world and the church in a family, in a little family, in Adam's family, and a specimen given of the character and state of both in after-ages, nay, in all ages, to the end of time. As all mankind were represented in Adam, so that great distinction of mankind into saints and sinners, godly and wicked, the children of God and the children of the wicked one, was here represented in Cain and Abel, and an early instance is given of the enmity which was lately put between the seed of the woman and the seed of the serpent. We have here, I. The birth, names, and callings, of Cain and Abel, Ge 4:1,2. II. Their religion, and different success in it, Ge 4:3,4, and part of Ge 4:5. III. Cain's anger at God and the reproof of him for that anger, Ge 4:5-7. IV. Cain's murder of his brother, and the process against him for that murder. The murder committed, Ge 4:8. The proceedings against him. 1. His arraignment, Ge 4:9, former part. 2. His plea, Ge 4:9, latter part. 3. His conviction, Ge 4:10. 4. The sentence passed upon him, Ge 4:11,12. 5. His complaint against the sentence, Ge 4:13,14. 6. The ratification of the sentence, Ge 4:15. 7. The execution of the sentence, Ge 4:15,16. V. The family and posterity of Cain, Ge 4:17-24. VI. The birth of another son and grandson of Adam, Ge 4:25,26.
 

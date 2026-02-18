@@ -1,11 +1,8 @@
 ---
-title: "Exodus 9 | Read the Matthew Henry Concise Bible Commentary Online"
-linkTitle: "9"
-description: "In this chapter: In this chapter we have an account of three more of the plagues of Egypt. I. Murrain among the cattle, which was fatal to them, Ex 9:1-7. II. Boils upon man and beast, Ex 9:8-12. I..."
 weight: 9
 ---
 
-# Exodus 9 
+# Chapter 9
 
 In this chapter we have an account of three more of the plagues of Egypt. I. Murrain among the cattle, which was fatal to them, Ex 9:1-7. II. Boils upon man and beast, Ex 9:8-12. III. Hail, with thunder and lightning. 1. Warning is given of this plague, Ex 9:13-21. 2. It is inflicted, to their great terror, Ex 9:22-26. 3. Pharaoh, in a fright, renews his treaty with Moses, but instantly breaks his word, Ex 9:27-35, etc.
 

@@ -1,11 +1,8 @@
 ---
-title: "Deuteronomy 18 | Read the Matthew Henry Concise Bible Commentary Online"
-linkTitle: "18"
-description: "In this chapter: In this chapter, I. The rights and revenues of the church are settled, and rules given concerning the Levites' ministration and maintenance, De 18:1-8. II. The caution against the ..."
 weight: 18
 ---
 
-# Deuteronomy 18 
+# Chapter 18
 
 In this chapter, I. The rights and revenues of the church are settled, and rules given concerning the Levites' ministration and maintenance, De 18:1-8. II. The caution against the idolatrous abominable customs of the heathen is repeated, De 18:9-14. III. A promise is given them of the spirit of prophecy to continue among them, and to centre at last in Christ the great prophet, De 18:15-18. IV. Wrath threatened against those that despise prophecy (De 18:19) or counterfeit it (De 18:20), and a rule given for the trial of it, De 18:21,22.
 

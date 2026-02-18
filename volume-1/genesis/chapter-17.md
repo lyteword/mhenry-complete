@@ -1,11 +1,8 @@
 ---
-title: "Genesis 17 | Read the Matthew Henry Concise Bible Commentary Online"
-linkTitle: "17"
-description: "In this chapter: This chapter contains articles of agreement covenanted and concluded upon between the great Jehovah, the Father of mercies, on the one part, and pious Abram, the father of the fait..."
 weight: 17
 ---
 
-# Genesis 17 
+# Chapter 17
 
 This chapter contains articles of agreement covenanted and concluded upon between the great Jehovah, the Father of mercies, on the one part, and pious Abram, the father of the faithful, on the other part. Abram is therefore called "the friend of God," not only because he was the man of his counsel, but because he was the man of his covenant; both these secrets were with him. Mention was made of this covenant (Ge 15:18), but here it is particularly drawn up, and put into the form of a covenant, that Abram might have strong consolation. Here are, I. The circumstances of the making of this covenant, the time and manner (Ge 17:1), and the posture Abram was in, Ge 17:3. II. The covenant itself. In the general scope of it, Ge 17:1. And, afterwards, in the particular instances. 1. That he should be the father of many nations (Ge 17:4,6), and, in token of this, his name was changed, Ge 17:5. 2. That God would be a God to him and his seed, and would give them the land of Canaan, Ge 17:7,8. And the seal of this part of the covenant was circumcision, Ge 17:9-14. 3. That he should have a son by Sarai, and, in token thereof, her name was changed, Ge 17:15,16. This promise Abram received, Ge 17:17. And his request for Ishmael, (Ge 17:18) was answered, abundantly to his satisfaction, Ge 17:19-22. III. The circumcision of Abram and his family, according to God's appointment, Ge 17:23-27, etc.
 

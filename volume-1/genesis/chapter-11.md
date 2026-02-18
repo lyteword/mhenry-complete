@@ -1,11 +1,8 @@
 ---
-title: "Genesis 11 | Read the Matthew Henry Concise Bible Commentary Online"
-linkTitle: "11"
-description: "In this chapter: The old distinction between the sons of God and the sons of men (professors and profane) survived the flood, and now appeared again, when men began to multiply: according to this d..."
 weight: 11
 ---
 
-# Genesis 11 
+# Chapter 11
 
 The old distinction between the sons of God and the sons of men (professors and profane) survived the flood, and now appeared again, when men began to multiply: according to this distinction we have, in this chapter, I. The dispersion of the sons of men at Babel (Ge 11:1-9), where we have, 1. Their presumptuous provoking design, which was to build a city and a tower, Ge 11:1-4. 2. The righteous judgment of God upon them in disappointing their design, by confounding their language, and so scattering them, Ge 11:5-9. II. The pedigree of the sons of God down to Abraham (Ge 11:10-26), with a general account of his family, and removal out of his native country, Ge 11:27-32, etc.
 

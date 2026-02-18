@@ -1,11 +1,8 @@
 ---
-title: "Exodus 11 | Read the Matthew Henry Concise Bible Commentary Online"
-linkTitle: "11"
-description: "In this chapter: Pharaoh had told Moses to get out of his presence (Ex 10:28), and Moses had promised this should be the last time he would trouble him, yet he resolves to say out what he had to sa..."
 weight: 11
 ---
 
-# Exodus 11 
+# Chapter 11
 
 Pharaoh had told Moses to get out of his presence (Ex 10:28), and Moses had promised this should be the last time he would trouble him, yet he resolves to say out what he had to say, before he left him; accordingly, we have in this chapter, I. The instructions God had given to Moses, which he was now to pursue (Ex 11:1,2), together with the interest Israel and Moses had in the esteem of the Egyptians, Ex 11:3. II. The last message Moses delivered to Pharaoh, concerning the death of the firstborn, Ex 11:4-8. III. A repetition of the prediction of Pharaoh's hardening his heart, (Ex 11:9), and the event answering to it, Ex 11:10.
 

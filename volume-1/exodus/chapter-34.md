@@ -1,11 +1,8 @@
 ---
-title: "Exodus 34 | Read the Matthew Henry Concise Bible Commentary Online"
-linkTitle: "34"
-description: "In this chapter: God having in the foregoing chapter intimated to Moses his reconciliation to Israel, here gives proofs of it, proceeding to settle his covenant and communion with them. Four instan..."
 weight: 34
 ---
 
-# Exodus 34 
+# Chapter 34
 
 God having in the foregoing chapter intimated to Moses his reconciliation to Israel, here gives proofs of it, proceeding to settle his covenant and communion with them. Four instances of the return of his favour we have in this chapter:—I. The orders he gives to Moses to come up to the mount, the next morning, and bring two tables of stone with him, Ex 34:1-4. II. His meeting him there, and the proclamation of his name, Ex 34:5-9. III. The instructions he gave him there, and his converse with him for forty days together, without intermission, Ex 34:10-28. IV. The honour he put upon him when he sent him down with his face shining, Ex 34:29-35. In all this God dealt with Moses as a public person, and mediator between him and Israel, and a type of the great Mediator.
 

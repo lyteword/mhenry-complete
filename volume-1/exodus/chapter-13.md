@@ -1,11 +1,8 @@
 ---
-title: "Exodus 13 | Read the Matthew Henry Concise Bible Commentary Online"
-linkTitle: "13"
-description: "In this chapter: In this chapter we have, I. The commands God gave to Israel, 1. To sanctify all their firstborn to him, Ex 13:1,2. 2. To be sure to remember their deliverance out of Egypt (Ex 13:3..."
 weight: 13
 ---
 
-# Exodus 13 
+# Chapter 13
 
 In this chapter we have, I. The commands God gave to Israel, 1. To sanctify all their firstborn to him, Ex 13:1,2. 2. To be sure to remember their deliverance out of Egypt (Ex 13:3,4), and, in remembrance of it, to keep the feast of unleavened bread, Ex 13:5-7. 3. To transmit the knowledge of it with all possible care to their children, Ex 13:8-10. 4. To set apart unto God the firstlings of their cattle, (Ex 13:11-13), and to explain that also to their children, Ex 13:14-16. II. The care God took of Israel, when he had brought them out of Egypt. 1. Choosing their way for them, Ex 13:17,18. 2. Guiding them in the way, Ex 13:20-22. And III. Their care of Joseph's bones, Ex 13:19.
 

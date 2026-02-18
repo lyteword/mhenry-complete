@@ -1,11 +1,8 @@
 ---
-title: "Genesis 22 | Read the Matthew Henry Concise Bible Commentary Online"
-linkTitle: "22"
-description: "In this chapter: We have here the famous story of Abraham's offering up his son Isaac, that is, his offering to offer him, which is justly looked upon as one of the wonders of the church. Here is, ..."
 weight: 22
 ---
 
-# Genesis 22 
+# Chapter 22
 
 We have here the famous story of Abraham's offering up his son Isaac, that is, his offering to offer him, which is justly looked upon as one of the wonders of the church. Here is, I. The strange command which God gave to Abraham concerning it, Ge 22:1,2. II. Abraham's strange obedience to this command, Ge 22:3-10. III. The strange issue of this trial. 1. The sacrificing of Isaac was countermanded, Ge 22:11,12. 2. Another sacrifice was provided, Ge 22:13,14. 3. The covenant was renewed with Abraham hereupon, Ge 22:15-19. Lastly, an account of some of Abraham's relations, Ge 22:20-24, etc.
 

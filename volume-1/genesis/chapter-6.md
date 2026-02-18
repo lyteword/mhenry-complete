@@ -1,11 +1,8 @@
 ---
-title: "Genesis 6 | Read the Matthew Henry Concise Bible Commentary Online"
-linkTitle: "6"
-description: "In this chapter: The most remarkable thing we have upon record concerning the old world is the destruction of it by the universal deluge, the account of which commences in this chapter, wherein we ..."
 weight: 6
 ---
 
-# Genesis 6 
+# Chapter 6
 
 The most remarkable thing we have upon record concerning the old world is the destruction of it by the universal deluge, the account of which commences in this chapter, wherein we have, I. The abounding iniquity of that wicked world, Ge 6:1-5, and Ge 6:11,12. II. The righteous God's just resentment of that abounding iniquity, and his holy resolution to punish it, Ge 6:6,7. III. The special favour of God to his servant Noah. 1. In the character given of him, Ge 6:8-10. 2. In the communication of God's purpose to him, Ge 6:13,17. 3. In the directions he gave him to make an ark for his own safety, Ge 6:14-16. 4. In the employing of him for the preservation of the rest of the creatures, Ge 6:18-21. Lastly, Noah's obedience to the instructions given him, Ge 6:22. And this concerning the old world is written for our admonition, upon whom the ends of the new world have come.
 

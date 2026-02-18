@@ -1,11 +1,8 @@
 ---
-title: "Numbers 11 | Read the Matthew Henry Concise Bible Commentary Online"
-linkTitle: "11"
-description: "In this chapter: Hitherto things had gone pretty well in Israel; little interruption had been given to the methods of God's favour to them since the matter of the golden calf; the people seemed tea..."
 weight: 11
 ---
 
-# Numbers 11 
+# Chapter 11
 
 Hitherto things had gone pretty well in Israel; little interruption had been given to the methods of God's favour to them since the matter of the golden calf; the people seemed teachable in marshalling and purifying the camp, the princes devout and generous in dedicating the altar, and there was good hope that they would be in Canaan presently. But at this chapter begins a melancholy scene; the measures are all broken, God has turned to be their enemy, and fights against them—and it is sin that makes all this mischief. I. Their murmurings kindled a fire among them, which yet was soon quenched by the prayer of Moses, Nu 11:1-3. II. No sooner was the fire of judgment quenched than the fire of sin breaks out again, and God takes occasion from it to magnify both his mercy and his justice. 1. The people fret for want of flesh, Nu 11:4-9. 2. Moses frets for want of help, Nu 11:10-15. Now, (1.) God promises to gratify them both, to appoint help for Moses (Nu 11:16,17), and to give the people flesh, Nu 11:18-23. And, (2.) He presently makes good both these promises. For, [1.] The Spirit of God qualifies the seventy elders for the government, Nu 11:24-30. [2.] The power of God brings quails to feast the people, Nu 11:31,32. Yet [3.] The justice of God plagued them for their murmurings, Nu 11:33-35, etc.
 

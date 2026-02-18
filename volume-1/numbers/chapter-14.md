@@ -1,11 +1,8 @@
 ---
-title: "Numbers 14 | Read the Matthew Henry Concise Bible Commentary Online"
-linkTitle: "14"
-description: "In this chapter: This chapter gives us an account of that fatal quarrel between God and Israel upon which, for their murmuring and unbelief, he swore in his wrath that they should not enter into hi..."
 weight: 14
 ---
 
-# Numbers 14 
+# Chapter 14
 
 This chapter gives us an account of that fatal quarrel between God and Israel upon which, for their murmuring and unbelief, he swore in his wrath that they should not enter into his rest. Here is, I. The mutiny and rebellion of Israel against God, upon the report of the evil spies, Nu 14:1-4. II. The fruitless endeavour of Moses and Aaron, Caleb and Joshua, to still the tumult, Nu 14:5-10. III. Their utter ruin justly threatened by an offended God, Nu 14:11,12. IV. The humble intercession of Moses for them, Nu 14:13-19. V. A mitigation of the sentence in answer to the prayer of Moses; they shall not all be cut off, but the decree goes forth ratified with an oath, published to the people, again and again repeated, that this whole congregation should perish in the wilderness, and none of them enter Canaan but Caleb and Joshua only, Nu 14:20-35. VI. The present death of the evil spies, Nu 14:36-39. VII. The rebuke given to those who attempted to go forward notwithstanding, Nu 14:40-45. And this is written for our admonition, that we "fall not after the same example of unbelief."
 

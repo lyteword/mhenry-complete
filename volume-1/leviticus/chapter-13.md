@@ -1,11 +1,8 @@
 ---
-title: "Leviticus 13 | Read the Matthew Henry Concise Bible Commentary Online"
-linkTitle: "13"
-description: "In this chapter: The next ceremonial uncleanness is that of the leprosy, concerning which the law was very large and particular; we have the discovery of it in this chapter, and the cleansing of th..."
 weight: 13
 ---
 
-# Leviticus 13 
+# Chapter 13
 
 The next ceremonial uncleanness is that of the leprosy, concerning which the law was very large and particular; we have the discovery of it in this chapter, and the cleansing of the leper in the next. Scarcely any one thing in all the levitical law takes up so much room as this. I. Rules are here given by which the priest must judge whether the man had the leprosy or no, according as the symptom was that appeared. 1. If it was a swelling, a scab, or a bright spot, Le 13:1-17. 2. If it was a bile, Le 13:18-23. 3. If it was in inflammation, Le 13:24-28. 4. If it was in the head or beard, Le 13:29-37. 5. If it was a bright spot, Le 13:38,39. 6. If it was in a bald head, Le 13:40-44. II. Direction is given how the leper must be disposed of, Le 13:45,46. III. Concerning the leprosy in garments, Le 13:47-59, etc.
 

@@ -1,11 +1,8 @@
 ---
-title: "Genesis 40 | Read the Matthew Henry Concise Bible Commentary Online"
-linkTitle: "40"
-description: "In this chapter: In this chapter things are working, though slowly, towards Joseph's advancement. I. Two of Pharaoh's servants are committed to prison, and there to Joseph's care, and so become wit..."
 weight: 40
 ---
 
-# Genesis 40 
+# Chapter 40
 
 In this chapter things are working, though slowly, towards Joseph's advancement. I. Two of Pharaoh's servants are committed to prison, and there to Joseph's care, and so become witnesses of his extraordinary conduct, Ge 40:1-4. II. They dreamed each of them a dream, which Joseph interpreted (Ge 40:5-19), and the event verified the interpretation (Ge 40:20-22), and so they became witnesses of his extraordinary skill. III. Joseph recommends his case to one of them, whose preferment he foresaw (Ge 40:14,15), but in vain, Ge 40:23.
 

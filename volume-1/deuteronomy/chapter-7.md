@@ -1,11 +1,8 @@
 ---
-title: "Deuteronomy 7 | Read the Matthew Henry Concise Bible Commentary Online"
-linkTitle: "7"
-description: "In this chapter: Moses in this chapter exhorts Israel, I. In general, to keep God's commandments, De 8:11,12. II. In particular, and in order to that, to keep themselves pure from all communion wit..."
 weight: 7
 ---
 
-# Deuteronomy 7 
+# Chapter 7
 
 Moses in this chapter exhorts Israel, I. In general, to keep God's commandments, De 8:11,12. II. In particular, and in order to that, to keep themselves pure from all communion with idolaters. 1. They must utterly destroy the seven devoted nations, and not spare them, or make leagues with them, De 8:1,2,16,24. 2. They must by no means marry with the remainders of them, De 8:3,4. 3. They must deface and consume their altars and images, and not so much as take the silver and gold of them to their own use, De 8:5,25,26. To enforce this charge, he shows that they were bound to do so, (1.) In duty. Considering [1.] Their election to God, De 8:6. [2.] The reason of that election, De 8:7,8. [3.] The terms they stood upon with God, De 8:9,10. (2.) In interest. It is here promised, [1.] In general, that, if they would serve God, he would bless and prosper them, De 8:12-15. [2.] In particular, that if they would drive out the nations, that they might not be a temptation to them, God would drive them out, that they should not be any vexation to them, De 8:17-26, etc.
 

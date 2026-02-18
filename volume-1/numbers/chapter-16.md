@@ -1,11 +1,8 @@
 ---
-title: "Numbers 16 | Read the Matthew Henry Concise Bible Commentary Online"
-linkTitle: "16"
-description: "In this chapter: The date of the history contained in this chapter is altogether uncertain. Probably these mutinies happened after their removal back again from Kadesh-barnea, when they were fixed ..."
 weight: 16
 ---
 
-# Numbers 16 
+# Chapter 16
 
 The date of the history contained in this chapter is altogether uncertain. Probably these mutinies happened after their removal back again from Kadesh-barnea, when they were fixed (if I may so speak) for their wandering in the wilderness, and began to look upon that as their settlement. Presently after new laws given follows the story of a new rebellion, as if sin took occasion from the commandment to become more exceedingly sinful. Here is, I. A daring and dangerous rebellion raised against Moses and Aaron, by Korah, Dathan, and Abiram, Nu 16:1-15. 1. Korah and his accomplices contend for the priesthood against Aaron, Nu 16:3. Moses reasons with them, and appeals to God for a decision of the controversy, Nu 16:4-11. 2. Dathan and Abiram quarrel with Moses, and refuse to obey his summons, which greatly grieves him, Nu 16:12-15. II. A solemn appearance of the pretenders to the priesthood before God, according to order, and a public appearance of the glory of the Lord, which would have consumed the whole congregation if Moses and Aaron had not interceded, Nu 16:16-22. III. The deciding of the controversy, and the crushing of the rebellion, by the cutting off of the rebels. 1. Those in their tents were buried alive, Nu 16:23-34. 2. Those at the door of the tabernacle were consumed by fire (Nu 16:35), and their censers preserved for a memorial, Nu 16:37-40. IV. A new insurrection of the people, Nu 16:41-43. 1. God stayed in the insurrection by a plague, Nu 16:45. 2. Aaron stayed the plague by offering incense, Nu 16:46-50. The manner and method of recording this story plainly show the ferment to have been very great.
 

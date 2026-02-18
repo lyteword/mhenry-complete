@@ -1,11 +1,8 @@
 ---
-title: "Genesis 5 | Read the Matthew Henry Concise Bible Commentary Online"
-linkTitle: "5"
-description: "In this chapter: This chapter is the only authentic history extant of the first age of the world from the creation to the flood, containing (according to the verity of the Hebrew text) 1656 years, ..."
 weight: 5
 ---
 
-# Genesis 5 
+# Chapter 5
 
 This chapter is the only authentic history extant of the first age of the world from the creation to the flood, containing (according to the verity of the Hebrew text) 1656 years, as may easily be computed by the ages of the patriarchs, before they begat that son through whom the line went down to Noah. This is one of those which the apostle calls "endless genealogies" (1Ti 1:4), for Christ, who was the end of the Old-Testament law, was also the end of the Old-Testament genealogies; towards him they looked, and in him they centered. The genealogy here recorded is inserted briefly in the pedigree of our Saviour (Lu 3:36-38), and is of great use to show that Christ was the "seed of the woman" that was promised. We have here an account, I. Concerning Adam, Ge 5:1-5. II. Seth, Ge 5:6-8. III. Enos, Ge 5:9-11. IV. Cainan, Ge 5:12-14. V. Mahalaleel, Ge 5:15-17. VI. Jared, Ge 5:18-20. VII. Enoch, Ge 5:21-24. VIII. Methuselah, Ge 5:25-27. IX. Lamech and his son Noah, Ge 5:28-32. All scripture, being given by inspiration of God, is profitable, though not all alike profitable.
 

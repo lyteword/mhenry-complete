@@ -1,11 +1,8 @@
 ---
-title: "Exodus 16 | Read the Matthew Henry Concise Bible Commentary Online"
-linkTitle: "16"
-description: "In this chapter: This chapter gives us an account of the victualling of the camp of Israel. I. Their complaint for want of bread, Ex 16:1-3. II. The notice God gave them beforehand of the provision..."
 weight: 16
 ---
 
-# Exodus 16 
+# Chapter 16
 
 This chapter gives us an account of the victualling of the camp of Israel. I. Their complaint for want of bread, Ex 16:1-3. II. The notice God gave them beforehand of the provision he intended to make for them, Ex 16:4-12. III. The sending of the manna, Ex 16:13-15. IV. The laws and orders concerning the manna. 1. That they should gather it daily for their daily bread, Ex 16:16-21. 2. That they should gather a double portion on the sixth day, Ex 16:22-26. 3. That they should expect none on the seventh day, Ex 16:27-31. 4. That they should preserve a pot of it for a memorial, Ex 16:32-36, etc.
 

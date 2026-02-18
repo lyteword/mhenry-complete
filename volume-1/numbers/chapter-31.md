@@ -1,11 +1,8 @@
 ---
-title: "Numbers 31 | Read the Matthew Henry Concise Bible Commentary Online"
-linkTitle: "31"
-description: "In this chapter: This chapter belongs to "the book of the wars of the Lord," in which it is probable it was inserted. It is the history of a holy war, a war with Midian. Here is, I. A divine comman..."
 weight: 31
 ---
 
-# Numbers 31 
+# Chapter 31
 
 This chapter belongs to "the book of the wars of the Lord," in which it is probable it was inserted. It is the history of a holy war, a war with Midian. Here is, I. A divine command for the war, Nu 31:1,2. II. The undertaking of the war, Nu 31:3-6. III. The glorious success of it, Nu 31:7-12. IV. Their triumphant return from the war. 1. The respect Moses paid to the soldiers, Nu 31:13. 2. The rebuke he gave them for sparing the women, Nu 31:14-18. 3. The directions he gave them for the purifying of themselves and their effects, Nu 31:19-24. 4. The distribution of the spoil they had taken, one half to the soldiers, the other to the congregation, and a tribute to the Lord out of each, Nu 31:25-47. 5. The free-will offering of the officers, Nu 31:48-54, etc.
 

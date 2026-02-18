@@ -1,11 +1,8 @@
 ---
-title: "Exodus 2 | Read the Matthew Henry Concise Bible Commentary Online"
-linkTitle: "2"
-description: "In this chapter: This chapter begins the story of Moses, that man of renown, famed for his intimate acquaintance with Heaven and his eminent usefulness on earth, and the most remarkable type of Chr..."
 weight: 2
 ---
 
-# Exodus 2 
+# Chapter 2
 
 This chapter begins the story of Moses, that man of renown, famed for his intimate acquaintance with Heaven and his eminent usefulness on earth, and the most remarkable type of Christ, as a prophet, saviour, lawgiver, and mediator, in all the Old Testament. The Jews have a book among them of the life of Moses, which tells a great many stories concerning him, which we have reason to think are mere fictions; what he has recorded concerning himself is what we may rely upon, for we know that his record is true; and it is what we may be satisfied with, for it is what Infinite Wisdom thought fit to preserve and transmit to us. In this chapter we have, I. The perils of his birth and infancy, Ex 2:1-4. II. His preservation through those perils, and the preferment of his childhood and youth, Ex 2:5-10. III. The pious choice of his riper years, which was to own the people of God. 1. He offered them his service at present, if they would accept it, Ex 2:11-14. 2. He retired, that he might reserve himself for further service hereafter, Ex 2:15-22. IV. The dawning of the day of Israel's deliverance, Ex 2:23-25, etc.
 

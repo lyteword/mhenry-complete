@@ -1,11 +1,8 @@
 ---
-title: "Exodus 33 | Read the Matthew Henry Concise Bible Commentary Online"
-linkTitle: "33"
-description: "In this chapter: In this chapter we have a further account of the mediation of Moses between God and Israel, for the making up of the breach that sin had made between them. I. He brings a very humb..."
 weight: 33
 ---
 
-# Exodus 33 
+# Chapter 33
 
 In this chapter we have a further account of the mediation of Moses between God and Israel, for the making up of the breach that sin had made between them. I. He brings a very humbling message from God to them (Ex 33:1-3,5), which has a good effect upon them, and helps to prepare them for mercy, Ex 33:4,6. II. He settles a correspondence between God and them, and both God and the people signify their approbation of that correspondence, God by descending in a cloudy pillar, and the people by worshipping at the tent doors, Ex 33:7-11. III. He is earnest with God in prayer, and prevails, 1. For a promise of his presence with the people, Ex 33:12-17. 2. For a sight of his glory for himself, Ex 33:18-23, etc.
 

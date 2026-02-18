@@ -1,11 +1,8 @@
 ---
-title: "Leviticus 20 | Read the Matthew Henry Concise Bible Commentary Online"
-linkTitle: "20"
-description: "In this chapter: The laws which before were made are in this chapter repeated and penalties annexed to them, that those who would not be deterred from sin by the fear of God might be deterred from ..."
 weight: 20
 ---
 
-# Leviticus 20 
+# Chapter 20
 
 The laws which before were made are in this chapter repeated and penalties annexed to them, that those who would not be deterred from sin by the fear of God might be deterred from it by the fear of punishment. If we will not avoid such and such practices because the law has made them sin (and it is most acceptable when we go on that principle of religion), surely we shall avoid them when the law has made them death, from a principle of self-preservation. In this chapter we have, I. Many particular crimes that are made capital. I. Giving their children to Moloch, Le 20:1-5. 2. Consulting witches, Le 20:6,27. 3. Cursing parents, Le 20:9. 4. Adultery, Le 20:10. 5. Incest, Le 20:11,12,14,17,19-21. 6. Unnatural lusts, Le 20:13,15,16,18. II. General commands given to be holy, Le 20:7,8,22-26.
 

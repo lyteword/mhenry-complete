@@ -1,11 +1,8 @@
 ---
-title: "Deuteronomy 19 | Read the Matthew Henry Concise Bible Commentary Online"
-linkTitle: "19"
-description: "In this chapter: The laws which Moses had hitherto been repeating and urging mostly concerned the acts of religion and devotion towards God; but here he comes more fully to press the duties of righ..."
 weight: 19
 ---
 
-# Deuteronomy 19 
+# Chapter 19
 
 The laws which Moses had hitherto been repeating and urging mostly concerned the acts of religion and devotion towards God; but here he comes more fully to press the duties of righteousness between man and man. This chapter relates, I. To the sixth commandment, "Thou shalt not kill," De 19:1-13. II. To the eighth commandment, "Thou shalt not steal," De 19:14. III. To the ninth commandment, "Thou shalt not bear false witness," De 19:15-21, etc.
 

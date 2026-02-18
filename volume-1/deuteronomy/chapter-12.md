@@ -1,11 +1,8 @@
 ---
-title: "Deuteronomy 12 | Read the Matthew Henry Concise Bible Commentary Online"
-linkTitle: "12"
-description: "In this chapter: Moses at this chapter comes to the particular statues which he had to give in charge to Israel, and he begins with those which relate to the worship of God, and particularly those ..."
 weight: 12
 ---
 
-# Deuteronomy 12 
+# Chapter 12
 
 Moses at this chapter comes to the particular statues which he had to give in charge to Israel, and he begins with those which relate to the worship of God, and particularly those which explain the second commandment, about which God is in a special manner jealous. I. They must utterly destroy all relics and remains of idolatry, De 12:1-3. II. They must keep close to the tabernacle, De 12:4,5. The former precept was intended to prevent all false worship, the latter to preserve the worship God had instituted. By this latter law, 1. They are commanded to bring all their offerings to the altar of God, and all their holy things to the place which he should choose, De 12:6,7,11,12,14,18,26-28. 2. They are forbidden, in general, to do as they now did in the wilderness (De 12:8-11), and as the Canaanites had done (De 12:29-32), and, in particular, to eat the hallowed things at their own houses (De 12:13,17,18), or to forsake the instituted ministry, De 12:19. 3. They are permitted to eat flesh as common food at their own houses, provided they do not eat the blood, De 12:15,16, and again, De 12:20-26.
 

@@ -1,11 +1,8 @@
 ---
-title: "Exodus 28 | Read the Matthew Henry Concise Bible Commentary Online"
-linkTitle: "28"
-description: "In this chapter: Orders being given for the fitting up of the place of worship, in this and the following chapter care is taken about the priests that were to minister in this holy place, as the me..."
 weight: 28
 ---
 
-# Exodus 28 
+# Chapter 28
 
 Orders being given for the fitting up of the place of worship, in this and the following chapter care is taken about the priests that were to minister in this holy place, as the menial servants of the God of Israel. He hired servants, as a token of his purpose to reside among them. In this chapter, I. He pitches upon the persons who should be his servants, Ex 28:1. II. He appoints their livery; their work was holy, and so must their garments be, and unanswerable to the glory of the house which was now to be erected, Ex 28:2-5. 1. He appoints the garments of his head-servant, the high priest, which were very rich. (1.) An ephod and girdle, Ex 28:6-14. (2.) A breast-plate of judgment (Ex 28:15-29), in which must be put the urim and thummim, Ex 28:30. (3.) The robe of the ephod, Ex 28:31-35. (4.) The mitre, Ex 28:36-39. 2. The garments of the inferior priests, Ex 28:40-43. And these also were shadows of good things to come.
 

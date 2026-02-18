@@ -1,11 +1,8 @@
 ---
-title: "Leviticus 16 | Read the Matthew Henry Concise Bible Commentary Online"
-linkTitle: "16"
-description: "In this chapter: In this chapter we have the institution of the annual solemnity of the day of atonement, or expiation, which had as much gospel in it as perhaps any of the appointments of the cere..."
 weight: 16
 ---
 
-# Leviticus 16 
+# Chapter 16
 
 In this chapter we have the institution of the annual solemnity of the day of atonement, or expiation, which had as much gospel in it as perhaps any of the appointments of the ceremonial law, as appears by the reference the apostle makes to it, Heb 9:7, etc. We had before divers laws concerning sin-offerings for particular persons, and to be offered upon particular occasions; but this is concerning the stated sacrifice, in which the whole nation was interested. The whole service of the day is committed to the high priest. I. He must never come into the most holy place but upon this day, Le 16:1,2. II. He must come dressed in linen garments, Le 16:4. III. He must bring a sin-offering and a burnt-offering for himself (Le 16:3), offer his sin-offering (Le 16:6-11), then go within the veil with some of the blood of his sin-offering, burn incense, and sprinkle the blood before the mercy-seat, Le 16:12-14. IV. Two goats must be provided for the people, lots cast upon them, and, 1. One of them must be a sin-offering for the people (Le 16:5,7-9), and the blood of it must be sprinkled before the mercy-seat (Le 16:15-17), and then some of the blood of both the sin-offerings must be sprinkled upon the altar, Le 16:18,19. 2. The other must be a scape-goat (Le 16:10), the sins of Israel must be confessed over him, and then he must be sent away into the wilderness (Le 16:20-22), and he that brought him away must be ceremonially unclean, Le 16:26. V. The burnt-offerings were then to be offered, the fat of the sin-offerings burnt on the altar, and their flesh burnt without the camp, Le 16:23-25,27,28. VI. The people were to observe the day religiously by a holy rest and holy mourning for sin; and this was to be a statute for ever, Le 16:29-34, etc.
 

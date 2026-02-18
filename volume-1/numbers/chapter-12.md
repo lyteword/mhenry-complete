@@ -1,11 +1,8 @@
 ---
-title: "Numbers 12 | Read the Matthew Henry Concise Bible Commentary Online"
-linkTitle: "12"
-description: "In this chapter: In the foregoing chapter we had the vexation which the people gave to Moses; in this we have his patience tried by his own relations. I. Miriam and Aaron, his own brother and siste..."
 weight: 12
 ---
 
-# Numbers 12 
+# Chapter 12
 
 In the foregoing chapter we had the vexation which the people gave to Moses; in this we have his patience tried by his own relations. I. Miriam and Aaron, his own brother and sister, affronted him, Nu 12:1-3. II. God called them to an account for it, Nu 12:4-9. III. Miriam was smitten with a leprosy for it, Nu 12:10. IV. Aaron submits, and Moses meekly intercedes for Miriam, Nu 12:11-13. V. She is healed, but put to shame for seven days, Nu 12:14-16. And this is recorded to show that the best persons and families have both their follies and their crosses.
 

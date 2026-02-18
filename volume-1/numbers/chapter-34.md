@@ -1,11 +1,8 @@
 ---
-title: "Numbers 34 | Read the Matthew Henry Concise Bible Commentary Online"
-linkTitle: "34"
-description: "In this chapter: In this chapter God directs Moses, and he is to direct Israel, I. Concerning the bounds and borders of the land of Canaan, Nu 34:1-15. II. Concerning the division and distribution ..."
 weight: 34
 ---
 
-# Numbers 34 
+# Chapter 34
 
 In this chapter God directs Moses, and he is to direct Israel, I. Concerning the bounds and borders of the land of Canaan, Nu 34:1-15. II. Concerning the division and distribution of it to the tribes of Israel, Nu 34:16-29, etc.
 

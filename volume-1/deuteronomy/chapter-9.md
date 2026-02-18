@@ -1,11 +1,8 @@
 ---
-title: "Deuteronomy 9 | Read the Matthew Henry Concise Bible Commentary Online"
-linkTitle: "9"
-description: "In this chapter: The design of Moses in this chapter is to convince the people of Israel of their utter unworthiness to receive from God those great favours that were now to be conferred upon them,..."
 weight: 9
 ---
 
-# Deuteronomy 9 
+# Chapter 9
 
 The design of Moses in this chapter is to convince the people of Israel of their utter unworthiness to receive from God those great favours that were now to be conferred upon them, writing this, as it were, in capital letters at the head of their charter, "Not for your sake, be it known unto you," Eze 36:32. I. He assures them of victory over their enemies, De 9:1-3. II. He cautions them not to attribute their successes to their own merit, but to God's justice, which was engaged against their enemies, and his faithfulness, which was engaged to their fathers, De 9:4-6. III. To make it evident that they had no reason to boast of their own righteousness, he mentions their faults, shows Israel their transgressions, and the house of Jacob their sins. In general, they had been all along a provoking people, De 9:7-24. In particular, 1. In the matter of the golden calf, the story of which he largely relates, De 9:8-21. 2. He mentions some other instances of their rebellion, De 9:22,23. And, 3. Returns, at De 9:25, to speak of the intercession he had made for them at Horeb, to prevent their being ruined for the golden calf.
 

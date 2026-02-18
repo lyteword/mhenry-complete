@@ -1,11 +1,8 @@
 ---
-title: "Exodus 37 | Read the Matthew Henry Concise Bible Commentary Online"
-linkTitle: "37"
-description: "In this chapter: Bezaleel and his workmen are still busy, making I. The ark with the mercy-seat and the cherubim, Ex 37:1-9. II. The table with its vessels, Ex 37:10-16. III. The candlestick with i..."
 weight: 37
 ---
 
-# Exodus 37 
+# Chapter 37
 
 Bezaleel and his workmen are still busy, making I. The ark with the mercy-seat and the cherubim, Ex 37:1-9. II. The table with its vessels, Ex 37:10-16. III. The candlestick with its appurtenances, Ex 37:17-24. IV. The golden altar for incense, Ex 37:25-28. V. The holy oil and incense, Ex 37:29. The particular appointment concerning each of which we had before the Ex 25:1-40,30:1-38.
 

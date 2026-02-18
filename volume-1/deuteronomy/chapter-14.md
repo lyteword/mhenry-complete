@@ -1,11 +1,8 @@
 ---
-title: "Deuteronomy 14 | Read the Matthew Henry Concise Bible Commentary Online"
-linkTitle: "14"
-description: "In this chapter: Moses in this chapter teaches them, I. To distinguish themselves from their neighbours by a singularity, 1. In their mourning, De 14:1,2. 2. In their meat, De 14:3-21. II. To devot..."
 weight: 14
 ---
 
-# Deuteronomy 14 
+# Chapter 14
 
 Moses in this chapter teaches them, I. To distinguish themselves from their neighbours by a singularity, 1. In their mourning, De 14:1,2. 2. In their meat, De 14:3-21. II. To devote themselves unto God, and, in token of that, to give him his dues out of their estates, the yearly tithe, and that every third year, for the maintenance of their religious feasts, the Levites, and the poor, De 14:22-29, etc.
 

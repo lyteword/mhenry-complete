@@ -1,11 +1,8 @@
 ---
-title: "Genesis 41 | Read the Matthew Henry Concise Bible Commentary Online"
-linkTitle: "41"
-description: "In this chapter: Two things Providence is here bringing about:—I. The advancement of Joseph. II. The maintenance of Jacob and his family in a time of famine; for the eyes of the Lord run to and fro..."
 weight: 41
 ---
 
-# Genesis 41 
+# Chapter 41
 
 Two things Providence is here bringing about:—I. The advancement of Joseph. II. The maintenance of Jacob and his family in a time of famine; for the eyes of the Lord run to and fro through the earth, and direct the affairs of the children of men for the benefit of those few whose hearts are upright with him. In order to these, we have here, 1. Pharaoh's dreams, Ge 41:1-8. 2. The recommendation of Joseph to him for an interpreter, Ge 41:9-13. 3. The interpretation of the dreams, and the prediction of seven years of plenty and seven years of famine in Egypt, with the prudent advice given to Pharaoh thereupon, Ge 41:14-36. 4. The preferment of Joseph to a place of the highest power and trust in Egypt, Ge 41:37-45. 5. The accomplishment of Joseph's prediction, and his fidelity to his trust, Ge 41:46-57, etc.
 

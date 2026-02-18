@@ -1,11 +1,8 @@
 ---
-title: "Genesis 25 | Read the Matthew Henry Concise Bible Commentary Online"
-linkTitle: "25"
-description: "In this chapter: The sacred historian, in this chapter, I. Takes his leave of Abraham, with an account, 1. Of his children by another wife, Ge 25:1-4. 2. Of his last will and testament, Ge 25:5,6. ..."
 weight: 25
 ---
 
-# Genesis 25 
+# Chapter 25
 
 The sacred historian, in this chapter, I. Takes his leave of Abraham, with an account, 1. Of his children by another wife, Ge 25:1-4. 2. Of his last will and testament, Ge 25:5,6. 3. Of his age, death, and burial, Ge 25:7-10. II. He takes his leave of Ishmael, with a short account, 1. Of his children, Ge 25:12-16. 2. Of his age and death, Ge 25:17,18. III. He enters upon the history of Isaac. 1. His prosperity, Ge 25:11. 2. The conception and birth of his two sons, with the oracle of God concerning them, Ge 25:19-26. 3. Their different characters, Ge 25:27,28. 4. Esau's selling his birthright to Jacob, Ge 25:29-34.
 

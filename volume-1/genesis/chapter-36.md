@@ -1,11 +1,8 @@
 ---
-title: "Genesis 36 | Read the Matthew Henry Concise Bible Commentary Online"
-linkTitle: "36"
-description: "In this chapter: In this chapter we have an account of the posterity of Esau, who, from him, were called Edomites, that Esau who sold his birthright, and lost his blessing, and was not loved of God..."
 weight: 36
 ---
 
-# Genesis 36 
+# Chapter 36
 
 In this chapter we have an account of the posterity of Esau, who, from him, were called Edomites, that Esau who sold his birthright, and lost his blessing, and was not loved of God as Jacob was. Here is a brief register kept of his family for some generations. 1. Because he was the son of Isaac, for whose sake this honour is put upon him. 2. Because the Edomites were neighbours to Israel, and their genealogy would be of use to give light to the following stories of what passed between them. 3. It is to show the performance of the promise to Abraham, that he should be "the father of many nations," and of that answer which Rebekah had from the oracle she consulted, "Two nations are in thy womb," and of the blessing of Isaac, "Thy dwelling shall be the fatness of the earth." We have here, I. Esau's wives, Ge 36:1-5. II. His remove to mount Seir, Ge 36:6-8. III. The names of his sons, Ge 36:9-14. IV. The dukes who descended of his sons, Ge 36:15-19. V. The dukes of the Horites, Ge 36:20-30. VI. The kings and dukes of Edom, Ge 36:31-43. Little more is recorded than their names, because the history of those that were out of the church (though perhaps it might have been serviceable in politics) would have been of little use in divinity. It is in the church that the memorable instances are found of special grace, and special providence; for that is the enclosure, the rest is common. This chapter is abridged, 1Ch 1:35-54, etc.
 
