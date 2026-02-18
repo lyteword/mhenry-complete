@@ -1,8 +1,11 @@
 ---
+title: "Genesis 3 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "3"
+description: "The story of this chapter is perhaps as sad a story (all things considered) as any we have in all the Bible. In the foregoing chapters we have had the pleasant view of the holiness..."
 weight: 3
 ---
 
-# Chapter 3
+# Genesis 3 
 
 The story of this chapter is perhaps as sad a story (all things considered) as any we have in all the Bible. In the foregoing chapters we have had the pleasant view of the holiness and happiness of our first parents, the grace and favour of God, and the peace and beauty of the whole creation, all good, very good; but here the scene is altered. We have here an account of the sin and misery of our first parents, the wrath and curse of God against them, the peace of the creation disturbed, and its beauty stained and sullied, all bad, very bad. "How has the gold become dim, and the most fine gold changed!" O that our hearts were deeply affected with this record! For we are all nearly concerned in it; let it not be to us as a tale that is told. The general contents of this chapter we have (Ro 5:12), "By one man sin entered into the world, and death by sin; and so death passed upon all men, for that all have sinned." More particularly, we have here, I. The innocent tempted, Ge 3:1-5. II. The tempted transgressing, Ge 3:6-8. III. The transgressors arraigned, Ge 3:9,10. IV. Upon their arraignment, convicted, Ge 3:11-13. V. Upon their conviction, sentenced, Ge 3:14-19. VI. After sentence, reprieved, Ge 3:20,21. VII. Notwithstanding their reprieve, execution in part done, Ge 3:22-24. And, were it not for the gracious intimations here given of redemption by the promised seed, they, and all their degenerate guilty race, would have been left to endless despair.
 

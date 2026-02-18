@@ -1,8 +1,11 @@
 ---
+title: "Genesis 48 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "48"
+description: "The time drawing nigh that Israel must die, having, in the former chapter, given order about his burial, in this he takes leave of his grand-children by Joseph, and in the next of ..."
 weight: 48
 ---
 
-# Chapter 48
+# Genesis 48 
 
 The time drawing nigh that Israel must die, having, in the former chapter, given order about his burial, in this he takes leave of his grand-children by Joseph, and in the next of all his children. Thus Jacob's dying words are recorded, because he then spoke by a spirit of prophecy; Abraham's and Isaac's are not. God's gifts and graces shine forth much more in some saints than in others upon their death-beds. The Spirit, like the wind, blows where it listeth. In this chapter, I. Joseph, hearing of his father's sickness, goes to visit him, and takes his two sons with him, Ge 48:1,2. II. Jacob solemnly adopts his two sons, and takes them for his own, Ge 48:3-7. III. He blesses them, Ge 48:8-16. IV. He explains and justifies the crossing of his hands in blessing them, Ge 48:17-20. V. He leaves a particular legacy to Joseph, Ge 48:21,22.
 

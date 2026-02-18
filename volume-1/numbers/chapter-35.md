@@ -1,8 +1,11 @@
 ---
+title: "Numbers 35 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "35"
+description: "Orders having been given before for the dividing of the land of Canaan among the lay-tribes (as I may call them), care is here taken for a competent provision for the clergy, the t..."
 weight: 35
 ---
 
-# Chapter 35
+# Numbers 35 
 
 Orders having been given before for the dividing of the land of Canaan among the lay-tribes (as I may call them), care is here taken for a competent provision for the clergy, the tribe of Levi, which ministered in holy things. I. Forty-eight cities were to be assigned them, with their suburbs, some in every tribe, Nu 35:1-8. II. Six cities out of these were to be for cities of refuge, for any man that killed another unawares, Nu 35:9-15. In the law concerning these observe, 1. In what case sanctuary was not allowed, namely, that of wilful murder, Nu 35:16-21. 2. In what cases it was allowed, Nu 35:22-24. 3. What was the law concerning those that took shelter in these cities of refuge, Nu 35:25-34, etc.
 

@@ -1,8 +1,11 @@
 ---
+title: "Genesis 15 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "15"
+description: "In this chapter we have a solemn treaty between God and Abram concerning a covenant that was to be established between them. In the former chapter we had Abram in the field with ki..."
 weight: 15
 ---
 
-# Chapter 15
+# Genesis 15 
 
 In this chapter we have a solemn treaty between God and Abram concerning a covenant that was to be established between them. In the former chapter we had Abram in the field with kings; here we find him in the mount with God; and, though there he looked great, yet, methinks, here he looks much greater: that honour have the great men of the world, but "this honour have all the saints." The covenant to be settled between God and Abram was a covenant of promises; accordingly, here is, I. A general assurance of God's kindness and good-will to Abram, Ge 15:1. II. A particular declaration of the purposes of his love concerning him, in two things:—1. That he would give him a numerous issue, Ge 15:2-6. 2. That he would give him Canaan for an inheritance, Ge 15:7-21. Either an estate without an heir, or an heir without an estate, would have been but a half comfort to Abram. But God ensures both to him; and that which made these two, the promised seed and the promised land, comforts indeed to this great believer was that they were both typical of those two invaluable blessings, Christ and heaven; and so, we have reason to think, Abram eyed them.
 

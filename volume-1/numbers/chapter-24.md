@@ -1,8 +1,11 @@
 ---
+title: "Numbers 24 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "24"
+description: "This chapter continues and concludes the history of the defeat of the counsels of Balak and Balaam against Israel, not by might, nor by power, but by the Spirit of the Lord of host..."
 weight: 24
 ---
 
-# Chapter 24
+# Numbers 24 
 
 This chapter continues and concludes the history of the defeat of the counsels of Balak and Balaam against Israel, not by might, nor by power, but by the Spirit of the Lord of hosts; and as great an instance it is of God's power over the children of men, and his favour towards his own children, as any of the victories recorded in the book of the wars of the Lord. What preparation was made the third time for the cursing of Israel we read of in the close of the foregoing chapter. In this chapter we are told, I. What the blessing was into which that intended curse was turned, Nu 24:1-9. II. How Balak dismissed Balaam from his service thereupon, Nu 24:10-13. III. The predictions Balaam left behind him concerning Israel, and some of the neighbouring nations, Nu 24:14-25, etc.
 

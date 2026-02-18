@@ -1,8 +1,11 @@
 ---
+title: "Exodus 21 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "21"
+description: "The laws recorded in this chapter relate to the fifth and sixth commandments; and though they are not accommodated to our constitution, especially in point of servitude, nor are th..."
 weight: 21
 ---
 
-# Chapter 21
+# Exodus 21 
 
 The laws recorded in this chapter relate to the fifth and sixth commandments; and though they are not accommodated to our constitution, especially in point of servitude, nor are the penalties annexed binding on us, yet they are of great use for the explanation of the moral law, and the rules of natural justice. Here are several enlargements, I. Upon the fifth commandment, which concerns particular relations. 1. The duty of masters towards their servants, their men-servants (Ex 21:2-6), and the maidservants, Ex 21:7-11. 2. The punishment of disobedient children that strike their parents (Ex 21:15), or curse them, Ex 21:17. II. Upon the sixth commandment, which forbids all violence offered to the person of a man. Here is, 1. Concerning murder, Ex 21:12-14. 2. Man-stealing, Ex 21:16. 3. Assault and battery, Ex 21:18,19. 4. Correcting a servant, Ex 21:20,21. 5. Hurting a woman with child, Ex 21:22,23. 6. The law of retaliation, Ex 21:24,25. 7. Maiming a servant, Ex 21:26. 8. An ox goring, Ex 21:28-32. 9. Damage by opening a pit, Ex 21:33,34. 10. Cattle fighting, Ex 21:35,36.
 

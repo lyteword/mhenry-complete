@@ -1,8 +1,11 @@
 ---
+title: "Numbers 32 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "32"
+description: "In this chapter we have, I. The humble request of the tribes of Reuben and Gad for an inheritance on that side Jordan where Israel now lay encamped, Nu 32:1-5. II. Moses's misinter..."
 weight: 32
 ---
 
-# Chapter 32
+# Numbers 32 
 
 In this chapter we have, I. The humble request of the tribes of Reuben and Gad for an inheritance on that side Jordan where Israel now lay encamped, Nu 32:1-5. II. Moses's misinterpretation of their request, Nu 32:6-15. III. Their explication of it, and stating it aright, Nu 32:16-19. IV. The grant of their petition under the provisos and limitations which they themselves proposed, Nu 32:20-42, etc.
 

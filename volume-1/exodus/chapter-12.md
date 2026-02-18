@@ -1,8 +1,11 @@
 ---
+title: "Exodus 12 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "12"
+description: "This chapter gives an account of one of the most memorable ordinances, and one of the most memorable providences, of all that are recorded in the Old Testament. I. Not one of all t..."
 weight: 12
 ---
 
-# Chapter 12
+# Exodus 12 
 
 This chapter gives an account of one of the most memorable ordinances, and one of the most memorable providences, of all that are recorded in the Old Testament. I. Not one of all the ordinances of the Jewish church was more eminent than that of the passover, nor is any one more frequently mentioned in the New Testament; and we have here an account of the institution to it. The ordinance consisted of three parts:—1. The killing and eating of the paschal lamb, Ex 12:1-6,8-11. 2. The sprinkling of the blood upon the door-posts, spoken of as a distinct thing (Heb 11:28), and peculiar to this first passover (Ex 12:7), with the reason for it, Ex 12:13. 3. The feast of unleavened bread for seven days following; this points rather at what was to be done afterwards, in the observance of this ordinance, Ex 12:14-20. This institution is communicated to the people, and they are instructed in the observance, (1.) Of this first passover, Ex 12:21-23. (2.) Of the after passovers, Ex 12:24-27. And the Israelites' obedience to these orders, Ex 12:28. II. Not one of all the providences of God concerning the Jewish church was more illustrious, or is more frequently mentioned, than the deliverance of the children of Israel out of Egypt. 1. The firstborn of the Egyptians are slain, Ex 12:29,30. 2. Orders are given immediately for their discharge, Ex 12:31-33. 3. They begin their march. (1.) Loaded with their own effects, Ex 12:34. (2.) Enriched with the spoils of Egypt, Ex 12:35,36. (3.) Attended with a mixed multitude, Ex 12:37,38. (4.) Put to their shifts for present supply, Ex 12:39. The event is dated, Ex 12:40-42. Lastly, A recapitulation in the close, [1.] Of this memorable ordinance, with some additions, Ex 12:43-49. [2.] Of this memorable providence, Ex 12:50,51.
 
