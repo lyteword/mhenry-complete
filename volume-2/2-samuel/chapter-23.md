@@ -1,8 +1,11 @@
 ---
+title: "2 Samuel 23 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "23"
+description: "The historian is now drawing towards a conclusion of David\'s reign, and therefore gives us an account here, I. Of some of his last words, which he spoke by inspiration, and which s..."
 weight: 23
 ---
 
-# Chapter 23
+# 2 Samuel 23 
 
 The historian is now drawing towards a conclusion of David's reign, and therefore gives us an account here, I. Of some of his last words, which he spoke by inspiration, and which seem to have reference to his seed that was to be for evermore, spoken of in the close of the foregoing chapter, 2Sa 23:1-7. II. Of the great men, especially the military men, that were employed under him, the first three (2Sa 23:8-17), two of the next three (2Sa 23:18-23), and then the thirty, 2Sa 23:24-39.
 

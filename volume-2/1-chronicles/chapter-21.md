@@ -1,8 +1,11 @@
 ---
+title: "1 Chronicles 21 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "21"
+description: "As this rehearsal makes no mention of David\'s sin in the matter of Uriah, so neither of the troubles of his family that followed upon it; not a word of Absalom\'s rebellion, or Sheb..."
 weight: 21
 ---
 
-# Chapter 21
+# 1 Chronicles 21 
 
 As this rehearsal makes no mention of David's sin in the matter of Uriah, so neither of the troubles of his family that followed upon it; not a word of Absalom's rebellion, or Sheba's. But David's sin, in numbering the people, is here related, because, in the atonement made for that sin, an intimation was given of the spot of ground on which the temple should be built. Here is, I. David's sin, in forcing Joab to number the people, 1Ch 21:1-6. II. David's sorrow for what he had done, as soon as he perceived the sinfulness of it, 1Ch 21:7,8. III. The sad dilemma (or trilemma rather) he was brought to, when it was put to him to choose how he would be punished for this sin, and what rod he would be beaten with, 1Ch 21:9-13. IV. The woeful havoc which was made by the pestilence in the country, and the narrow escape which Jerusalem had from being laid waste by it, 1Ch 21:14-17. V. David's repentance, and sacrifice, upon this occasion, and the staying of the plaque thereupon, 1Ch 21:18-30. This awful story we met with, and meditated upon, 2Sa 24:1-25
 

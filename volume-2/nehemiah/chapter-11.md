@@ -1,8 +1,11 @@
 ---
+title: "Nehemiah 11 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "11"
+description: "Jerusalem was walled round, but it was not as yet fully inhabited, and therefore was weak and despicable. Nehemiah\'s next care is to bring people into it; of that we have here an a..."
 weight: 11
 ---
 
-# Chapter 11
+# Nehemiah 11 
 
 Jerusalem was walled round, but it was not as yet fully inhabited, and therefore was weak and despicable. Nehemiah's next care is to bring people into it; of that we have here an account. I. The methods taken to replenish it, Ne 11:1,2. II. The principal persons that resided there, of Judah and Benjamin (Ne 11:3-9), of the priests and Levites, Ne 11:10-19. III. The several cities and villages of Judah and Benjamin that were peopled by the rest of their families, Ne 11:20-36.
 

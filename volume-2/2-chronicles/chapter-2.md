@@ -1,8 +1,11 @@
 ---
+title: "2 Chronicles 2 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "2"
+description: "Solomon\'s trading, which we read of in the close of the foregoing chapter, and the encouragement he gave both to merchandise and manufacturers, were very commendable. But building ..."
 weight: 2
 ---
 
-# Chapter 2
+# 2 Chronicles 2 
 
 Solomon's trading, which we read of in the close of the foregoing chapter, and the encouragement he gave both to merchandise and manufacturers, were very commendable. But building was the work he was designed for, and to that business he is here applying himself. Here is, I. Solomon's determination to build the temple and a royal palace, and his appointing labourers to be employed herein, 2Ch 2:1,2,17,18. II. His request to Huram king of Tyre to furnish him both with artists and materials, 2Ch 2:3-10. III. Huram's obliging answer to, and compliance with, his request, 2Ch 2:11-16.
 

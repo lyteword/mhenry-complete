@@ -1,8 +1,11 @@
 ---
+title: "1 Kings 20 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "20"
+description: "This chapter is the history of a war between Ben-hadad king of Syria and Ahab king of Israel, in which Ahab was, once and again, victorious. We read nothing of Elijah or Elishain a..."
 weight: 20
 ---
 
-# Chapter 20
+# 1 Kings 20 
 
 This chapter is the history of a war between Ben-hadad king of Syria and Ahab king of Israel, in which Ahab was, once and again, victorious. We read nothing of Elijah or Elishain all this story; Jezebel's rage, it is probable, had abated, and the persecution of the prophets began to cool, which gleam of peace Elijah improved. He appeared not at court, but, being told how many thousands of good people there were in Israel more than he thought of, employed himself, as we may suppose, in founding religious houses, schools, or colleges of prophets, in several parts of the country, to be nurseries of religion, that they might help to reform the nation when the throne and court would not be reformed. While he was thus busied, God favoured the nation with the successes we here read of, which were the more remarkable because obtained against Ben-hadad king of Syria, whose successor, Hazael, was ordained to be a scourge to Israel. They must shortly suffer by the Syrians, and yet now triumphed over them, that, if possible, they might be led to repentance by the goodness of God. Here is, I. Ben-hadad's descent upon Israel, and his insolent demand, 1Ki 20:1-11. II. The defeat Ahab gave him, encouraged and directed by a prophet, 1Ki 20:12-21. III. The Syrians rallying again, and the second defeat Ahab gave them, 1Ki 20:22-30. IV. The covenant of peace Ahab made with Ben-hadad, when he had him at his mercy (1Ki 20:31-34), for which he is reproved and threatened by a prophet, 1Ki 20:35-43.
 

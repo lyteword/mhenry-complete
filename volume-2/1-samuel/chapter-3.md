@@ -1,8 +1,11 @@
 ---
+title: "1 Samuel 3 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "3"
+description: "In the foregoing chapter we had Samuel a young priest, though by birth a Levite only, for he ministered before the Lord in a linen ephod; in this chapter we have him a young prophe..."
 weight: 3
 ---
 
-# Chapter 3
+# 1 Samuel 3 
 
 In the foregoing chapter we had Samuel a young priest, though by birth a Levite only, for he ministered before the Lord in a linen ephod; in this chapter we have him a young prophet, which was more, God in an extraordinary manner revealing himself to him, and in him reviving, if not commencing, prophecy in Israel. Here is, I. God's first manifestation of himself in an extraordinary manner to Samuel, 1Sa 3:1-10. II. The message he sent by him to Eli, 1Sa 3:11-14. III. The faithful delivery of that message to Eli, and his submission to the righteousness of God in it, 1Sa 3:15-18. IV. The establishment of Samuel to be a prophet in Israel, 1Sa 3:19-21.
 

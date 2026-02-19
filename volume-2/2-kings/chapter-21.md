@@ -1,8 +1,11 @@
 ---
+title: "2 Kings 21 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "21"
+description: "In this chapter we have a short but sad account of the reigns of two of the kings of Judah, Manasseh and Amon. I. Concerning Manasseh, all the account we have of him here is, 1. Th..."
 weight: 21
 ---
 
-# Chapter 21
+# 2 Kings 21 
 
 In this chapter we have a short but sad account of the reigns of two of the kings of Judah, Manasseh and Amon. I. Concerning Manasseh, all the account we have of him here is, 1. That he devoted himself to sin, to all manner of wickedness, idolatry, and murder, 2Ki 21:1-9,16. 2. That therefore God devoted him, and Jerusalem for his sake, to ruin, 2Ki 21:10-18. In the book of Chronicles we have an account of his troubles, and his repentance. II. Concerning Amon we are only told that he lived in sin (2Ki 21:19-22), died quickly by the sword, and left good Josiah his successor, 2Ki 21:23-26. By these two reigns Jerusalem was much debauched and much weakened, and so hastened apace towards its destruction, which slumbered not.
 

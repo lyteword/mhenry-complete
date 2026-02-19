@@ -1,8 +1,11 @@
 ---
+title: "Joshua 6 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "6"
+description: "Joshua opened the campaign with the siege of Jericho, a city which could not trust so much to the courage of its people as to act offensively, and to send out its forces to oppose ..."
 weight: 6
 ---
 
-# Chapter 6
+# Joshua 6 
 
 Joshua opened the campaign with the siege of Jericho, a city which could not trust so much to the courage of its people as to act offensively, and to send out its forces to oppose Israel's landing and encamping, but trusted so much to the strength of its walls as to stand upon its defence, and not to surrender, or desire conditions of peace. Now here we have the story of the taking of it, I. The directions and assurances which the captain of the Lord's host gave concerning it, Jos 6:1-5. II. The trial of the people's patient obedience in walking round the city six days, Jos 6:6-14. III. The wonderful delivery of it into their hands the seventh day, with a solemn charge to them to use it as a devoted thing, Jos 6:15-21,24. IV. The preservation of Rahab and her relations, Jos 6:22,23,25. V. A curse pronounced upon the man that should dare to rebuild this city, Jos 6:26,27. An abstract of this story we find among the trophies of faith, Heb 11:30. "By faith the walls of Jericho fell down, after they were compassed about seven days."
 

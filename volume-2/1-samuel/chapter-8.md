@@ -1,8 +1,11 @@
 ---
+title: "1 Samuel 8 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "8"
+description: "Things went so very well with Israel, in the chapter before, under Samuel\'s administration, that, methinks, it is a pity to find him so quickly, as we do in this chapter, old, and ..."
 weight: 8
 ---
 
-# Chapter 8
+# 1 Samuel 8 
 
 Things went so very well with Israel, in the chapter before, under Samuel's administration, that, methinks, it is a pity to find him so quickly, as we do in this chapter, old, and going off, and things working towards a revolution. But so it is; Israel's good days seldom continue long. We have here, I. Samuel decaying, 1Sa 8:1. II. His sons degenerating, 1Sa 8:2,3. III. Israel discontented with the present government and anxious to see a change. For 1. They petition Samuel to set a king over them, 1Sa 8:4,5. 2. Samuel brings the matter to God, 1Sa 8:6. 3. God directs him what answer to give them, by way of reproof (1Sa 8:7,8), and by way of remonstrance, setting forth the consequences of a change of the government, and how uneasy they would soon be under it, 1Sa 8:9-18. 4. They insist upon their petition, 1Sa 8:19,20. 5. Samuel promises them, from God, that they shall shortly be gratified, 1Sa 8:21,22. Thus hard is it for people to know when they are well off.
 

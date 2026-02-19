@@ -1,8 +1,11 @@
 ---
+title: "Judges 11 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "11"
+description: "This chapter gives as the history of Jephthah, another of Israel\'s judges, and numbered among the worthies of the Old Testament, that by faith did great things (Heb 11:32), though ..."
 weight: 11
 ---
 
-# Chapter 11
+# Judges 11 
 
 This chapter gives as the history of Jephthah, another of Israel's judges, and numbered among the worthies of the Old Testament, that by faith did great things (Heb 11:32), though he had not such an extraordinary call as the rest there mentioned had. Here we have, I. The disadvantages of his origin, Jdg 11:1-3. II. The Gileadites' choice of him to be commander-in-chief against the Ammonites, and the terms he made with them, Jdg 11:4-11. III. His treaty with the king of Ammon about the rights of the two nations, that the matter might be determined, if possible, without bloodshed, Jdg 11:12-28. IV. His war with the Ammonites, which he enters upon with a solemn vow (Jdg 11:29-31), prosecutes with bravery (Jdg 11:32), and ends with a glorious victory, Jdg 11:33. V. The straits he was brought into at his return to his own house by the vow he had made, Jdg 11:34-40.
 

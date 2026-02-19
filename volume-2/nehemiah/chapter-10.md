@@ -1,8 +1,11 @@
 ---
+title: "Nehemiah 10 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "10"
+description: "We have in this chapter a particular account of the covenant which in the close of the foregoing chapter was resolved upon; they struck while the iron was hot, and immediately put ..."
 weight: 10
 ---
 
-# Chapter 10
+# Nehemiah 10 
 
 We have in this chapter a particular account of the covenant which in the close of the foregoing chapter was resolved upon; they struck while the iron was hot, and immediately put that good resolve in execution, when they were in a good frame, lest, if it should be delayed, it might be dropped. Here we have, I. The names of those that set their hands and seals to it, Ne 10:1-27. II. An account of those who signified their consent and concurrence, Ne 10:28,29. III. The covenant itself, and the articles of it in general, that they would "keep God's commandments" (Ne 10:29); in particular, that they would not marry with the heathen (Ne 10:30), nor profane the sabbath, nor be rigorous with their debtors (Ne 10:31), and that they would carefully pay their church-dues, for the maintenance of the temple service, which they promise faithfully to adhere to, Ne 10:32-39.
 

@@ -1,8 +1,11 @@
 ---
+title: "Esther 7 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "7"
+description: "We are now to attend the second banquet to which the king and Haman were invited: and there, I. Esther presents her petition to the king for her life and the life of her people, Es..."
 weight: 7
 ---
 
-# Chapter 7
+# Esther 7 
 
 We are now to attend the second banquet to which the king and Haman were invited: and there, I. Esther presents her petition to the king for her life and the life of her people, Es 7:1-4. II. She plainly tells the king that Haman is the man who designed her ruin and the ruin of all her friends, Es 7:5,6. III. The king thereupon gave orders for the hanging of Haman upon the gallows that he had prepared for Mordecai, which was done accordingly, Es 7:7-10. And thus, by the destruction of the plotter, a good step was taken towards the defeating of the plot.
 

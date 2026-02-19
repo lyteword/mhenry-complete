@@ -1,8 +1,11 @@
 ---
+title: "2 Chronicles 36 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "36"
+description: "We have here, I. A short but sad account of the utter ruin of Judah and Jerusalem within a few years after Josiah\'s death. 1. The history of it in the unhappy reigns of Jehoahaz fo..."
 weight: 36
 ---
 
-# Chapter 36
+# 2 Chronicles 36 
 
 We have here, I. A short but sad account of the utter ruin of Judah and Jerusalem within a few years after Josiah's death. 1. The history of it in the unhappy reigns of Jehoahaz for three months (2Ch 36:1-4), Jehoiakim (2Ch 36:5-8) for eleven years, Jehoiach in three months (2Ch 36:9,10), and Zedekiah eleven years, 2Ch 36:11. Additions were made to the national guilt, and advances towards the national destruction, in each of those reigns. The destruction was, at length, completed in the slaughter of multitudes (2Ch 36:17), the plundering and burning of the temple and all the palaces, the desolation of the city (2Ch 36:18,19), and the captivity of the people that remained, 2Ch 36:20. 2. Some remarks upon it—that herein sin was punished, Zedekiah's wickedness (2Ch 36:12,13), the idolatry the people were guilty of (2Ch 36:14), and their abuse of God's prophets, 2Ch 36:15,16. The word of God was herein fulfilled, 2Ch 36:21. II. The dawning of the day of their deliverance in Cyrus's proclamation, 2Ch 36:22,23.
 

@@ -1,8 +1,11 @@
 ---
+title: "2 Samuel 2 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "2"
+description: "David had paid due respect to the memory of Saul his prince and Jonathan his friend, and what he did was as much his praise as theirs; he is now considering what is to be done next..."
 weight: 2
 ---
 
-# Chapter 2
+# 2 Samuel 2 
 
 David had paid due respect to the memory of Saul his prince and Jonathan his friend, and what he did was as much his praise as theirs; he is now considering what is to be done next. Saul is dead, now therefore David arise. I. By direction from God he went up to Hebron, and was there anointed king, 2Sa 2:1-4. II. He returned thanks to the men of Jabesh-Gilead for burying Saul, 2Sa 2:5-7. III. Ishbosheth, the son of Saul, is set up in opposition to him, 2Sa 2:8-11. IV. A warm encounter happens between David's party and Ishbosheth's, in which, 1. Twelve of each side engaged hand to hand and were all slain, 2Sa 2:12-16. 2. Saul's party was beaten, 2Sa 2:17. 3. Asahel, on David's side, was slain by Abner, 2Sa 2:18-23. 4. Joab, at Abner's request, sounds a retreat, 2Sa 2:24-28. 5. Abner makes the best of his way (2Sa 2:29), and the loss on both sides is computed, 2Sa 2:3-32. So that here we have an account of a civil war in Israel, which, in process of time, ended in the complete settlement of David on the throne.
 

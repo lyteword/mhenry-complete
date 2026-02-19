@@ -1,8 +1,11 @@
 ---
+title: "2 Kings 17 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "17"
+description: "This chapter gives us an account of the captivity of the ten tribes, and so finishes the history of that kingdom, after it had continued about 265 years, from the setting up of Jer..."
 weight: 17
 ---
 
-# Chapter 17
+# 2 Kings 17 
 
 This chapter gives us an account of the captivity of the ten tribes, and so finishes the history of that kingdom, after it had continued about 265 years, from the setting up of Jeroboam the son of Nebat. In it we have, I. A short narrative of this destruction, 2Ki 17:1-6. II. Remarks upon it, and the causes of it, for the justifying of God in it and for warning to others, 2Ki 17:7-23. III. An account of the nations which succeeded them in the possession of their land, and the mongrel religion set up among them, 2Ki 17:24-41.
 

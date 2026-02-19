@@ -1,8 +1,11 @@
 ---
+title: "Ezra 5 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "5"
+description: "We left the temple-work at a full stop; but, being God\'s work, it shall be revived, and here we have an account of the reviving of it. It was hindered by might and power, but it wa..."
 weight: 5
 ---
 
-# Chapter 5
+# Ezra 5 
 
 We left the temple-work at a full stop; but, being God's work, it shall be revived, and here we have an account of the reviving of it. It was hindered by might and power, but it was set a-going again "by the Spirit of the Lord of hosts." Now here we are told how that blessed Spirit, I. Warmed its cool-hearted friends and excited them to build, Ezr 5:1,2. II. Cooled its hot-headed enemies, and brought them to better tempers; for, though they secretly disliked the work as much as those in the foregoing chapter, yet, 1. They were more mild towards the builders, Ezr 5:3-5. 2. They were more fair in their representation of the matter to the king, of which we have here an account, Ezr 5:6-17.
 

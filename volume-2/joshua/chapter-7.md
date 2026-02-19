@@ -1,8 +1,11 @@
 ---
+title: "Joshua 7 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "7"
+description: "More than once we have found the affairs of Israel, even when they were in the happiest posture and gave the most hopeful prospects, perplexed and embarrassed by sin, and a stop th..."
 weight: 7
 ---
 
-# Chapter 7
+# Joshua 7 
 
 More than once we have found the affairs of Israel, even when they were in the happiest posture and gave the most hopeful prospects, perplexed and embarrassed by sin, and a stop thereby put to the most promising proceedings. The golden calf, the murmuring at Kadesh, and the iniquity of Peor, had broken their measures and given them great disturbance; and in this chapter we have such another instance of the interruption given to the progress of their arms by sin. But it being only the sin of one person or family, and soon expiated, the consequences were not so mischievous as of those other sins; however it served to let them know that they were still upon their good behaviour. We have here, I. The sin of Achan in meddling with the accursed thing, Jos 7:1. II. The defeat of Israel before Ai thereupon, Jos 8:2-5. III. Joshua's humiliation and prayer on occasion of that sad disaster, Jos 8:6-9. IV. The directions God gave him for the putting away of the guilt which had provoked God thus to contend with them, Jos 8:10-15. V. The discovery, trial, conviction, condemnation, and execution, of the criminal, by which the anger of God was turned away, Jos 8:16-26. And by this story it appears that, as the laws, so Canaan itself, "made nothing perfect," the perfection both of holiness and peace to God's Israel is to be expected in the heavenly Canaan only.
 

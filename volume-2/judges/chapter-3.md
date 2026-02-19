@@ -1,8 +1,11 @@
 ---
+title: "Judges 3 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "3"
+description: "In this chapter, I. A general account of Israel\'s enemies is premised, and of the mischief they did them, Jdg 3:1-7. II. A particular account of the brave exploits done by the firs..."
 weight: 3
 ---
 
-# Chapter 3
+# Judges 3 
 
 In this chapter, I. A general account of Israel's enemies is premised, and of the mischief they did them, Jdg 3:1-7. II. A particular account of the brave exploits done by the first three of the judges. 1. Othniel, whom God raised up to fight Israel's battles, and plead their cause against the king of Mesopotamia, Jdg 3:8-11. 2. Ehud, who was employed in rescuing Israel out of the hands of the Moabites, and did it by stabbing the king of Moab, Jdg 3:12-30. 3. Shamgar, who signalized himself in an encounter with the Philistines, Jdg 3:31.
 

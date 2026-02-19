@@ -1,8 +1,11 @@
 ---
+title: "Joshua 19 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "19"
+description: "In the description of the lots of Judah and Benjamin we have an account both of the borders that surrounded them and of the cities contained in them. In that of Ephraim and Manasse..."
 weight: 19
 ---
 
-# Chapter 19
+# Joshua 19 
 
 In the description of the lots of Judah and Benjamin we have an account both of the borders that surrounded them and of the cities contained in them. In that of Ephraim and Manasseh we have the borders, but not the cities; in this chapter Simeon and Dan are described by their cities only, and not their borders, because they lay very much within Judah, especially the former; the rest have both their borders described and their cities names, especially frontiers. Here is, I. The lot of Simeon, Jos 19:1-9. II. Of Zebulun, Jos 19:10-16. III. Of Issachar, Jos 19:17-23. IV. Of Asher, Jos 19:24-31. V. Of Naphtali, Jos 19:32-39. VI. Of Dan, Jos 19:40-48. Lastly, The inheritance assigned to Joshua himself and his own family, Jos 19:49-51.
 

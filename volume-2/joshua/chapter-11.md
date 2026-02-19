@@ -1,8 +1,11 @@
 ---
+title: "Joshua 11 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "11"
+description: "This chapter continues and concludes the history of the conquest of Canaan; of the reduction of the southern parts we had an account in the foregoing chapter, after which we may su..."
 weight: 11
 ---
 
-# Chapter 11
+# Joshua 11 
 
 This chapter continues and concludes the history of the conquest of Canaan; of the reduction of the southern parts we had an account in the foregoing chapter, after which we may suppose Joshua allowed his forces some breathing-time; now here we have the story of the war in the north, and the happy success of that war. I. The confederacy of the northern crowns against Israel, Jos 11:1-5. II. The encouragement which God gave to Joshua to engage them, Jos 11:6. III. His victory over them, Jos 11:7-9. IV. The taking of their cities, Jos 11:10-15. V. The destruction of the Anakim, Jos 11:21,22. VI. The general conclusion of the story of this war, Jos 11:16-20,23.
 

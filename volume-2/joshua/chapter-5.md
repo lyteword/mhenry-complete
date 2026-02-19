@@ -1,8 +1,11 @@
 ---
+title: "Joshua 5 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "5"
+description: "Israel have now got over Jordan, and the waters which had opened before them, to favour their march forward, are closed again behind them, to forbid their retreat backward. They ha..."
 weight: 5
 ---
 
-# Chapter 5
+# Joshua 5 
 
 Israel have now got over Jordan, and the waters which had opened before them, to favour their march forward, are closed again behind them, to forbid their retreat backward. They have now got footing in Canaan, and must apply themselves to the conquest of it, in order to which this chapter tells us, I. How their enemies were dispirited, Jos 5:1. II. What was done at their first landing to assist and encourage them. 1. The covenant of circumcision was renewed, Jos 5:2-9. 2. The feast of the passover was celebrated, Jos 5:10. 3. Their camp was victualled with the corn of the land, whereupon the manna ceased, Jos 5:11,12. 4. The captain of the Lord's host himself appeared to Joshua to animate and direct him, Jos 5:13-15.
 

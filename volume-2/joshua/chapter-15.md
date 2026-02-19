@@ -1,8 +1,11 @@
 ---
+title: "Joshua 15 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "15"
+description: "Though the land was not completely conquered, yet being (as was said in the close of the foregoing chapter) as rest from war for the present, and their armies all drawn out of the ..."
 weight: 15
 ---
 
-# Chapter 15
+# Joshua 15 
 
 Though the land was not completely conquered, yet being (as was said in the close of the foregoing chapter) as rest from war for the present, and their armies all drawn out of the field to a general rendezvous at Gilgal, there they began to divide the land, though the work was afterwards perfected at Shiloh, Jos 18:1-10, etc. In this chapter we have the lot of the tribe of Judah, which in this, as in other things, had the precedency. I. The borders or bounds of the inheritance of Judah, Jos 16:1-12. II. The particular assignment of Hebron and the country thereabout to Caleb and his family, Jos 16:13-19. III. The names of the several cities that fell within Judah's lot, Jos 16:20-63.
 

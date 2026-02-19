@@ -1,8 +1,11 @@
 ---
+title: "1 Samuel 7 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "7"
+description: "In this chapter we have, I. The eclipsing of the glory of the ark, by its privacy in Kirjath-jearim for many years, 1Sa 7:1,2. II. The appearing of the glory of Samuel in his publi..."
 weight: 7
 ---
 
-# Chapter 7
+# 1 Samuel 7 
 
 In this chapter we have, I. The eclipsing of the glory of the ark, by its privacy in Kirjath-jearim for many years, 1Sa 7:1,2. II. The appearing of the glory of Samuel in his public services for the good of Israel, to whom he was raised up to be a judge, and he was the last that bore that character. This chapter gives us all the account we have of him when he was in the prime of his time; for what we had before was in his childhood (1Sa 2:1-3:21); what we have of him after was in his old age, 1Sa 8:1. We have him here active, 1. In the reformation of Israel from their idolatry, 1Sa 7:3,4. 2. In the reviving of religion among them, 1Sa 7:5,6. 3. In praying for them against the invading Philistines (1Sa 7:7-9), over whom God, in answer to his prayer, gave them a glorious victory, 1Sa 7:10,11. 4. In erecting a thankful memorial of that victory, 1Sa 7:12. 5. In the improvement of that victory, 1Sa 7:13,14. 6. In the administration of justice, 1Sa 7:15-17. And these were the things for which God was preparing the designing him, in the early vouchsafements of his grace to him.
 

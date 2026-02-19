@@ -1,8 +1,11 @@
 ---
+title: "2 Samuel 3 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "3"
+description: "The battle between Joab and Abner did not end the controversy between the two houses of Saul and David, but it is in this chapter working towards a period. Here is, I. The gradual ..."
 weight: 3
 ---
 
-# Chapter 3
+# 2 Samuel 3 
 
 The battle between Joab and Abner did not end the controversy between the two houses of Saul and David, but it is in this chapter working towards a period. Here is, I. The gradual advance of David's interest, 2Sa 3:1. II. The building up of his family, 2Sa 3:2-5. III. Abner's quarrel with Ish-bosheth, and his treaty with David, 2Sa 3:6-12. IV. The preliminaries settled, 2Sa 3:13-16. V. Abner's undertaking and attempt to bring Israel over to David, 2Sa 3:17-21. VI. The treacherous murder of Abner by Joab, when he was carrying on this matter, 2Sa 3:22-27. VII. David's great concern and trouble for the death of Abner, 2Sa 3:28-39.
 

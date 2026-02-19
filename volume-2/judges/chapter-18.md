@@ -1,8 +1,11 @@
 ---
+title: "Judges 18 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "18"
+description: "How idolatry crept into the family of Micah we read in the preceding chapter, how it was translated thence into the tribe of Dan we have an account in this chapter, and how it gain..."
 weight: 18
 ---
 
-# Chapter 18
+# Judges 18 
 
 How idolatry crept into the family of Micah we read in the preceding chapter, how it was translated thence into the tribe of Dan we have an account in this chapter, and how it gained a settlement in a city of note; for how great a matter does a little fire kindle! The tribe of Dan had their lot assigned them last of all the tribes, and, it happening to be too strait for them, a considerable city in the utmost corner of Canaan northward was added to it. "Let them get it, and take it;" it was called Laish or Leshem, Jos 19:47. Now here we are told, I. How they sent spies to bring them an account of the place, who, by the way, got acquainted with Micah's priest, Jdg 18:1-6. II. What an encouraging report these spies brought back, Jdg 18:7-10. III. What forces were sent to conquer Laish, Jdg 18:11-13. IV. How they, by the way, plundered Micah of his gods, Jdg 18:14-26. V. How easily they conquered Laish (Jdg 18:27-29), and, when they had it, set up the graven image in it, Jdg 18:30,31.
 

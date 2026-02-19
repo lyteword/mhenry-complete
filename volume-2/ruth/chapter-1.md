@@ -1,8 +1,11 @@
 ---
+title: "Ruth 1 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "1"
+description: "In this chapter we have Naomi\'s afflictions. I. As a distressed housekeeper, forced by famine to remove into the land of Moab, Ru 1:1,2. II. As a mournful widow and mother, bewaili..."
 weight: 1
 ---
 
-# Chapter 1
+# Ruth 1 
 
 In this chapter we have Naomi's afflictions. I. As a distressed housekeeper, forced by famine to remove into the land of Moab, Ru 1:1,2. II. As a mournful widow and mother, bewailing the death of her husband and her two sons, Ru 1:3-5. III. As a careful mother-in-law, desirous to be kind to her two daughters, but at a loss how to be so when she returns to her own country, Ru 1:6-13. Orpah she parts with in sorrow, Ru 1:14. Ruth she takes with her in fear, Ru 1:15-18. IV. As a poor woman sent back to the place of her first settlement, to be supported by the kindness of her friends, Ru 1:19-22. All these things were melancholy and seemed against her, and yet all were working for good.
 

@@ -1,8 +1,11 @@
 ---
+title: "Ruth 2 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "2"
+description: "There is scarcely any chapter in all the sacred history that stoops so low as this to take cognizance of so mean a person as Ruth, a poor Moabitish widow, so mean an action as her ..."
 weight: 2
 ---
 
-# Chapter 2
+# Ruth 2 
 
 There is scarcely any chapter in all the sacred history that stoops so low as this to take cognizance of so mean a person as Ruth, a poor Moabitish widow, so mean an action as her gleaning corn in a neighbour's field, and the minute circumstances thereof. But all this was in order to her being grafted into the line of Christ and taken in among his ancestors, that she might be a figure of the espousals of the Gentile church to Christ, Isa 54:1. This makes the story remarkable; and many of the passages of it are instructive and very improvable. Here we have, I. Ruth's humility and industry in gleaming corn, Providence directing her to Boaz's field, Ru 2:1-3. II. The great favour which Boaz showed to her in many instances, Ru 2:4-16. III. The return of Ruth to her mother-in-law, Ru 2:18-23.
 

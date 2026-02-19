@@ -1,8 +1,11 @@
 ---
+title: "2 Samuel 10 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "10"
+description: "This chapter gives us an account of a war David has with the Ammonites and the Syrians their allies, with the occasion and success of it. I. David sent a friendly embassy to Hanun ..."
 weight: 10
 ---
 
-# Chapter 10
+# 2 Samuel 10 
 
 This chapter gives us an account of a war David has with the Ammonites and the Syrians their allies, with the occasion and success of it. I. David sent a friendly embassy to Hanun king of the Ammonites, 2Sa 10:1,2. II. He, upon a base surmise that it was ill intended, abused David's ambassadors, 2Sa 10:3,4. III. David resenting it (2Sa 10:5), and the Ammonites prepared for war against him, 2Sa 10:6. IV. David carried the war into their country, sent against them. Joab and Abishai, who addressed themselves to the battle with a great deal of conduct and bravery, 2Sa 10:7-12. V. The Ammonites, and the Syrians their allies, were totally routed, 2Sa 10:13,14. VI. The forces of the Syrians, which rallied again, were a second time defeated, 2Sa 10:15-19. Thus did David advance his own reputation for gratitude, in returning kindness, and for justice, in repaying injuries.
 

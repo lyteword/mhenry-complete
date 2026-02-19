@@ -1,8 +1,11 @@
 ---
+title: "1 Samuel 16 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "16"
+description: "At this chapter begins the story of David, one that makes as great a figure in the sacred story as almost any of the worthies of the Old Testament, one that both with his sword and..."
 weight: 16
 ---
 
-# Chapter 16
+# 1 Samuel 16 
 
 At this chapter begins the story of David, one that makes as great a figure in the sacred story as almost any of the worthies of the Old Testament, one that both with his sword and with his pen served the honour of God and the interests of Israel as much as most ever did, and was as illustrious a type of Christ. Here I. Samuel is appointed and commissioned to anoint a king among the sons of Jesse at Bethlehem, 1Sa 16:1-5. II. All his elder sons are passed by and David the youngest is pitched upon and anointed, 1Sa 16:6-13. III. Saul growing melancholy, David is pitched upon to relieve him by music, 1Sa 16:14-23. Thus small are the beginnings of that great man.
 

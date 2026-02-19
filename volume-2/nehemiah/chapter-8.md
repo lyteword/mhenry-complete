@@ -1,8 +1,11 @@
 ---
+title: "Nehemiah 8 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "8"
+description: "Ezra came up out of Babylon thirteen years before Nehemiah came, yet we have here a piece of good work which he did, that might have been done before, but was not done till Nehemia..."
 weight: 8
 ---
 
-# Chapter 8
+# Nehemiah 8 
 
 Ezra came up out of Babylon thirteen years before Nehemiah came, yet we have here a piece of good work which he did, that might have been done before, but was not done till Nehemiah came, who, though he was not such a scholar nor such a divine as Ezra, nor such a scribe in the law of his God, yet was a man of a more lively active spirit. His zeal set Ezra's learning on work, and then great things were done, as we find here, where we have, I. The public and solemn reading and expounding of the law, Ne 8:1-8. II. The joy which the people were ordered to express upon that occasion, Ne 8:9-12. III. The solemn keeping of the feast of tabernacles according to the law, Ne 8:13-18.
 

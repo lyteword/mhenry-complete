@@ -1,8 +1,11 @@
 ---
+title: "1 Samuel 26 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "26"
+description: "David\'s troubles from Saul here begin again; and the clouds return after the rain, when one would have hoped the storm had blown over, and the sky had cleared upon that side; but a..."
 weight: 26
 ---
 
-# Chapter 26
+# 1 Samuel 26 
 
 David's troubles from Saul here begin again; and the clouds return after the rain, when one would have hoped the storm had blown over, and the sky had cleared upon that side; but after Saul had owned his fault in persecuting David, and acknowledged David's title to the crown, yet here he revives the persecution, so perfectly lost was he to all sense of honour and virtue. I. The Ziphites informed him where David was (1Sa 26:1), and thereupon he marched out with a considerable force in quest of him, 1Sa 26:2,3. II. David gained intelligence of his motions (1Sa 26:4), and took a view of his camp, 1Sa 26:5. III. He and one of his men ventured into his camp in the night and found him and all his guards fast asleep, 1Sa 26:6,7. IV. David, though much urged to it by his companions, would not take away Saul's life, but only carried off his spear and his cruse of water, 1Sa 26:8-12. V. He produced these as a further witness for him that he did not design any ill to Saul, and reasoned with him upon his conduct, 1Sa 26:13-20. VI. Saul was hereby convinced of his error, and once more desisted from persecuting David, 1Sa 26:21-25. The story is much like that which we had (1Sa 24:1-22). In both David is delivered out of Saul's hand, and Saul out of David's.
 

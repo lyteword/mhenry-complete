@@ -1,8 +1,11 @@
 ---
+title: "Judges 21 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "21"
+description: "The ruins of the tribe of Benjamin we read of in the foregoing chapter; now here we have, I. The lamentation which Israel made over these ruins, Jdg 21:1-4,6,15. II. The provision ..."
 weight: 21
 ---
 
-# Chapter 21
+# Judges 21 
 
 The ruins of the tribe of Benjamin we read of in the foregoing chapter; now here we have, I. The lamentation which Israel made over these ruins, Jdg 21:1-4,6,15. II. The provision they made for the repair of them out of the 600 men that escaped, for whom they procured wives, 1. Of the virgins of Jabesh-Gilead, when they destroyed that city for not sending its forces to the general rendezvous, Jdg 21:5-7. 2. Of the daughters of Shiloh, Jdg 21:16-25. And so this melancholy story concludes.
 

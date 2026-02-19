@@ -1,8 +1,11 @@
 ---
+title: "2 Chronicles 8 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "8"
+description: "In this chapter we are told, I. What cities Solomon built, 2Ch 8:1-6. II. What workmen Solomon employed, 2Ch 8:7-10. III. What care he took about a proper settlement for his wife, ..."
 weight: 8
 ---
 
-# Chapter 8
+# 2 Chronicles 8 
 
 In this chapter we are told, I. What cities Solomon built, 2Ch 8:1-6. II. What workmen Solomon employed, 2Ch 8:7-10. III. What care he took about a proper settlement for his wife, 2Ch 8:11. IV. What a good method he put the temple-service into, 2Ch 8:12-16. V. What trading he had with foreign countries, 2Ch 8:17,18.
 

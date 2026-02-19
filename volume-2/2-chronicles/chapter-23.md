@@ -1,8 +1,11 @@
 ---
+title: "2 Chronicles 23 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "23"
+description: "Six years bloody Athaliah had tyrannised; in this chapter we have her deposed and slain, and Joash, the rightful heir, enthroned. We had the story before nearly as it is here relat..."
 weight: 23
 ---
 
-# Chapter 23
+# 2 Chronicles 23 
 
 Six years bloody Athaliah had tyrannised; in this chapter we have her deposed and slain, and Joash, the rightful heir, enthroned. We had the story before nearly as it is here related, 2Ki 11:4-21, etc. I. Jehoiada prepared the people for the king, acquainted them with his design, armed them, and appointed them their posts, 2Ch 23:1-10. II. He produced the king to the people, crowned him, and anointed him, 2Ch 23:11. III. He slew the usurper, 2Ch 23:12-15. IV. He reformed the kingdom, re-established religion, and restored the civil government, 2Ch 23:16-21.
 

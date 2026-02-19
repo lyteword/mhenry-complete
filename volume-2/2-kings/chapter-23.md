@@ -1,8 +1,11 @@
 ---
+title: "2 Kings 23 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "23"
+description: "We have here, I. The happy continuance of the goodness of Josiah\'s reign, and the progress of the reformation he began, reading the law (2Ki 23:1,2), renewing the covenant (2Ki 23:..."
 weight: 23
 ---
 
-# Chapter 23
+# 2 Kings 23 
 
 We have here, I. The happy continuance of the goodness of Josiah's reign, and the progress of the reformation he began, reading the law (2Ki 23:1,2), renewing the covenant (2Ki 23:3), cleansing the temple (2Ki 23:4), and rooting out idols and idolatry, with all the relics thereof, in all places, as far as his power reached (2Ki 23:5-20), keeping a solemn passover (2Ki 23:21-23), and clearing the country of witches (2Ki 23:24); and in all this acting with extraordinary vigour, 2Ki 23:25 II. The unhappy conclusion of it in his untimely death, as a token of the continuance of God's wrath against Jerusalem, 2Ki 23:26-30 III. The more unhappy consequences of his death, in the bad reigns of his two sons Jehoahaz and Jehoiakim, that came after him, 2Ki 23:31-37
 

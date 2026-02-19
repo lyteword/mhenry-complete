@@ -1,8 +1,11 @@
 ---
+title: "Esther 1 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "1"
+description: "Several things in this chapter itself are very instructive and of great use; but the design of recording the story of it is to show how way was made for Esther to the crown, in ord..."
 weight: 1
 ---
 
-# Chapter 1
+# Esther 1 
 
 Several things in this chapter itself are very instructive and of great use; but the design of recording the story of it is to show how way was made for Esther to the crown, in order to her being instrumental to defeat Haman's plot, and this long before the plot was laid, that we may observe and admire the foresight and vast reaches of Providence. "Known unto God are all his works" before-hand. Ahasuerus the king, I. In his height feasts all his great men, Es 1:1-9. II. In his heat he divorces his queen, because she would not come to him when he sent for her, Es 1:10-22. This shows how God serves his own purposes even by the sins and follies of men, which he would not permit if he know not how to bring good out of them.
 

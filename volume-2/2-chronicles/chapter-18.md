@@ -1,8 +1,11 @@
 ---
+title: "2 Chronicles 18 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "18"
+description: "The story of this chapter we had just as it is here related in the story of the reign of Ahab king of Israel, 2Ki 22:41-50 There it looks more creditable to Ahab than any thing els..."
 weight: 18
 ---
 
-# Chapter 18
+# 2 Chronicles 18 
 
 The story of this chapter we had just as it is here related in the story of the reign of Ahab king of Israel, 2Ki 22:41-50 There it looks more creditable to Ahab than any thing else recorded of him that he was in league with so good a man as Jehoshaphat; here it is a great blemish in the reign of Jehoshaphat that he thus connected himself with so bad a man as Ahab. Here is, I. The alliance he contracted himself with Ahab, 2Ch 18:1. II. His consent to join with him in his expedition for the recovery of Ramoth-Gilead out of the hands of the Syrians, 2Ch 18:2,3. III. Their consulting with the prophets, false and true, before they went, 2Ch 18:4-27. IV. The success of their expedition. Jehoshaphat hardly escaped (2Ch 18:28-32) and Ahab received his death's wound, 2Ch 18:33,34.
 

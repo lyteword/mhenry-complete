@@ -1,8 +1,11 @@
 ---
+title: "Judges 14 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "14"
+description: "The idea which this chapter gives us of Samson is not what one might have expected concerning one who, by the special designation of heaven, was a Nazarite to God and a deliverer o..."
 weight: 14
 ---
 
-# Chapter 14
+# Judges 14 
 
 The idea which this chapter gives us of Samson is not what one might have expected concerning one who, by the special designation of heaven, was a Nazarite to God and a deliverer of Israel; and yet really he was both. Here is, I. Samson's courtship of a daughter of the Philistines, and his marriage to her, Jdg 14:1-5,7,8. II. His conquest of a lion, and the prize he found in the carcase of it, Jdg 14:5,6,8,9. III. Samson's riddle proposed to his companions (Jdg 14:10-14) and unriddled by the treachery of his wife, Jdg 14:15-18. IV. The occasion this gave him to kill thirty of the Philistines (Jdg 14:19) and to break off his new alliance, Jdg 14:20.
 

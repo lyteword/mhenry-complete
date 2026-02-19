@@ -1,8 +1,11 @@
 ---
+title: "Esther 3 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "3"
+description: "A very black and mournful scene here opens, and which threatens the ruin of all the people of God. Were there not some such dark nights, the light of the morning would not be so we..."
 weight: 3
 ---
 
-# Chapter 3
+# Esther 3 
 
 A very black and mournful scene here opens, and which threatens the ruin of all the people of God. Were there not some such dark nights, the light of the morning would not be so welcome. I. Haman is made the king's favourite, Es 3:1. II. Mordecai refuses to give him the honour he demands, Es 3:2-4. III. Haman, for his sake, vows to be revenged upon all the Jews, Es 3:5,6. IV. He, upon a malicious suggestion, obtains an order from the king to have them all massacred upon a certain day, Es 3:7-13. V. This order is dispersed through the kingdom, Es 3:14,15.
 

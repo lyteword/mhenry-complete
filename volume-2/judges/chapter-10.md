@@ -1,8 +1,11 @@
 ---
+title: "Judges 10 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "10"
+description: "In this chapter we have, I. The peaceable times Israel enjoyed under the government of two judges, Tola and Jair, Jdg 10:1-5. II. The troublesome times that ensued. 1. Israel\'s sin..."
 weight: 10
 ---
 
-# Chapter 10
+# Judges 10 
 
 In this chapter we have, I. The peaceable times Israel enjoyed under the government of two judges, Tola and Jair, Jdg 10:1-5. II. The troublesome times that ensued. 1. Israel's sin that brought them into trouble, Jdg 10:6. 2. The trouble itself they were in, Jdg 10:7-9. III. Their repentance and humiliation for sin, their prayers and reformation, and the mercy they found with God thereupon, Jdg 10:10-16. IV. Preparation made for their deliverance out of the hand of their oppressors, Jdg 10:17,18.
 

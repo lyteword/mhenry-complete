@@ -1,8 +1,11 @@
 ---
+title: "2 Chronicles 19 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "19"
+description: "We have here a further account of the good reign of Jehoshaphat, I. His return in peace to Jerusalem, 2Ch 19:1. II. The reproof given him for his league with Ahab, and his acting i..."
 weight: 19
 ---
 
-# Chapter 19
+# 2 Chronicles 19 
 
 We have here a further account of the good reign of Jehoshaphat, I. His return in peace to Jerusalem, 2Ch 19:1. II. The reproof given him for his league with Ahab, and his acting in conjunction with him, 2Ch 19:2,3. III. The great care he took thereupon to reform his kingdom, 2Ch 19:4. IV. The instructions he gave to his judges, both those in the country towns that kept the inferior courts (2Ch 19:5-7), and those in Jerusalem that sat in the supreme judicature of the kingdom, 2Ch 19:8-11.
 

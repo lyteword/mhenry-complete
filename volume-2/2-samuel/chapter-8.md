@@ -1,8 +1,11 @@
 ---
+title: "2 Samuel 8 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "8"
+description: "David having sought first the kingdom of God and the righteousness thereof, settling the ark as soon as he was himself well settled, we are here told how all other things were adde..."
 weight: 8
 ---
 
-# Chapter 8
+# 2 Samuel 8 
 
 David having sought first the kingdom of God and the righteousness thereof, settling the ark as soon as he was himself well settled, we are here told how all other things were added to him. Here is an account, I. Of his conquests. He triumphed, 1. Over the Philistines, 2Sa 8:1. 2. Over the Moabites, 2Sa 8:2. 3. Over the king of Zobah, 2Sa 8:3,4. 4. Over the Syrians, 2Sa 8:5-8,13. 5. Over the Edomites, 2Sa 8:14. II. Of the presents that were brought him and the wealth he got from the nations he subdued, which he dedicated to God, 2Sa 8:9-12. III. Of his court, the administration of his government (2Sa 8:15), and his chief officers, 2Sa 8:16-18. This gives us a general idea of the prosperity of David's reign.
 

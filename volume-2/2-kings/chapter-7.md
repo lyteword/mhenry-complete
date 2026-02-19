@@ -1,8 +1,11 @@
 ---
+title: "2 Kings 7 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "7"
+description: "Relief is here brought to Samaria and her king, when the case is, in a manner, desperate, and the king despairing. I. It is foretold by Elisha, and an unbelieving lord shut out fro..."
 weight: 7
 ---
 
-# Chapter 7
+# 2 Kings 7 
 
 Relief is here brought to Samaria and her king, when the case is, in a manner, desperate, and the king despairing. I. It is foretold by Elisha, and an unbelieving lord shut out from the benefit of it, 2Ki 7:1,2. II. It is brought about, 1. By an unaccountable fright into which God put the Syrians (2Ki 7:6), which caused them to retire precipitately, 2Ki 7:7. 2. By the seasonable discovery which four lepers made of this (2Ki 7:3-5), and the account which they gave of it to the court, 2Ki 7:8-11. 3. By the cautious trial which the king made of the truth of it, 2Ki 7:12-15. III. The event answered the prediction both in the sudden plenty (2Ki 7:16), and the death of the unbelieving lord (2Ki 7:17-20); for no word of God shall fall to the ground.
 

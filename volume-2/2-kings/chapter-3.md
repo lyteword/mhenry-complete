@@ -1,8 +1,11 @@
 ---
+title: "2 Kings 3 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "3"
+description: "We are now called to attend the public affairs of Israel, in which we shall find Elisha concerned. Here is, I. The general character of Jehoram, king of Israel, 2Ki 3:1-3. II. A wa..."
 weight: 3
 ---
 
-# Chapter 3
+# 2 Kings 3 
 
 We are now called to attend the public affairs of Israel, in which we shall find Elisha concerned. Here is, I. The general character of Jehoram, king of Israel, 2Ki 3:1-3. II. A war with Moab, in which Jehoram and his allies were engaged, 2Ki 3:4-8. III. The straits which the confederate army were reduced to in their expedition against Moab, and their consulting Elisha in that distress, with the answer of peace he gave them, 2Ki 3:9-19. IV. The glorious issue of this campaign (2Ki 3:20-25) and the barbarous method the king of Moab took to oblige the confederate army to retire, 2Ki 3:26,27. The house of Ahab is doomed to destruction; and, though in this chapter we have both its character and its condition better than before, yet the threatened ruin is not far off.
 

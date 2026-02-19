@@ -1,8 +1,11 @@
 ---
+title: "2 Chronicles 26 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "26"
+description: "This chapter gives us an account of the reign of Uzziah (Azariah he was called in the Kings) more fully than we had it before, though it was long, and in some respects illustrious,..."
 weight: 26
 ---
 
-# Chapter 26
+# 2 Chronicles 26 
 
 This chapter gives us an account of the reign of Uzziah (Azariah he was called in the Kings) more fully than we had it before, though it was long, and in some respects illustrious, yet it was very briefly related, 2Ki 14:21,15:1-7, etc. Here is, I. His good character in general, 2Ch 26:1-5. II. His great prosperity in his wars, his buildings, and all the affairs of his kingdom, 2Ch 26:6-15. III. His presumption in invading the priests' office, for which he was struck with a leprosy, and confined by it (2Ch 26:16-21) even to his death, 2Ch 26:22,23.
 

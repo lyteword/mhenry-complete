@@ -1,8 +1,11 @@
 ---
+title: "2 Kings 24 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "24"
+description: "Things are here ripening for, and hastening towards, the utter destruction of Jerusalem. We left Jehoiakim on the throne, placed there by the king of Egypt: now here we have, I. Th..."
 weight: 24
 ---
 
-# Chapter 24
+# 2 Kings 24 
 
 Things are here ripening for, and hastening towards, the utter destruction of Jerusalem. We left Jehoiakim on the throne, placed there by the king of Egypt: now here we have, I. The troubles of his reign, how he was brought into subjection by the king of Babylon, and severely chastised for attempting to shake off the yoke (2Ki 24:1-6), and how Egypt also was conquered by Nebuchadnezzar, 2Ki 24:7. II. The desolations of his son's reign, which continued but three months; and then he and all his great men, being forced to surrender at discretion, were carried captives to Babylon, 2Ki 24:8-16. III. The preparatives of the next reign (which was the last of all) for the utter ruin of Jerusalem, which the next chapter will give us an account of, 2Ki 24:17-20.
 

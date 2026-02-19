@@ -1,8 +1,11 @@
 ---
+title: "Judges 6 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "6"
+description: "Nothing that occurred in the quiet and peaceable times of Israel is recorded; the forty years\' rest after the conquest of Jabin is passed over in silence; and here begins the story..."
 weight: 6
 ---
 
-# Chapter 6
+# Judges 6 
 
 Nothing that occurred in the quiet and peaceable times of Israel is recorded; the forty years' rest after the conquest of Jabin is passed over in silence; and here begins the story of another distress and another deliverance, by Gideon, the fourth of the judges. Here is, I. The calamitous condition of Israel, by the inroads of the Midianites, Jdg 6:1-6. II. The message God sent them by a prophet, by convincing them of sin, to prepare them for deliverance, Jdg 6:7-10. III. The raising up of Gideon to be their deliverer. 1. A commission which God sent him by the hand of an angel, and confirmed by a sign, Jdg 6:11-24. 2. The first-fruits of his government in the reform of his father's house, Jdg 6:25-32. 3. The preparations he made for a war with the Midianites, and the encouragement given him by a sign, Jdg 6:33-40.
 

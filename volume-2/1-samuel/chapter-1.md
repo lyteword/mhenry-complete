@@ -1,8 +1,11 @@
 ---
+title: "1 Samuel 1 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "1"
+description: "The history of Samuel here begins as early as that of Samson did, even before he was born, as afterwards the history of John the Baptist and our blessed Saviour. Some of the script..."
 weight: 1
 ---
 
-# Chapter 1
+# 1 Samuel 1 
 
 The history of Samuel here begins as early as that of Samson did, even before he was born, as afterwards the history of John the Baptist and our blessed Saviour. Some of the scripture-worthies drop out of the clouds, as it were, and their first appearance is in their full growth and lustre. But others are accounted for from the birth, and from the womb, and from the conception. What God says of the prophet Jeremiah is true of all: "Before I formed thee in the belly I knew thee," Jer 1:5. But some great men were brought into the world with more observation than others, and were more early distinguished from common persons, as Samuel for one. God, in this matter, acts as a free agent. The story of Samson introduces him as a child of promise, Jdg 13:1-25. But the story of Samuel introduces him as a child of prayer. Samson's birth was foretold by an angel to his mother; Samuel was asked of God by his mother. Both together intimate what wonders are produced by the word and prayer. Samuel's mother was Hannah, the principal person concerned in the story of this chapter. I. Here is her affliction—she was childless, and this affliction aggravated by her rival's insolence, but in some measure balanced by her husband's kindness, 1Sa 1:1-8. II. The prayer and vow she made to God under this affliction, in which Eli the high priest at first censured her, but afterwards encouraged her, 1Sa 1:9-18. III. The birth and nursing of Samuel, 1Sa 1:19-23. IV. The presenting of him to the Lord, 1Sa 1:24-28.
 

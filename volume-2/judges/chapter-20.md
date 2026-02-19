@@ -1,8 +1,11 @@
 ---
+title: "Judges 20 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "20"
+description: "Into the book of the wars of the Lord the story of this chapter must be brought, but it looks as sad and uncomfortable as any article in all that history; for there is nothing in i..."
 weight: 20
 ---
 
-# Chapter 20
+# Judges 20 
 
 Into the book of the wars of the Lord the story of this chapter must be brought, but it looks as sad and uncomfortable as any article in all that history; for there is nothing in it that looks in the least bright or pleasant but the pious zeal of Israel against the wickedness of the men of Gibeah, which made it on their side a just and holy war; but otherwise the obstinacy of the Benjamites in protecting their criminals, which was the foundation of the war, the vast loss which the Israelites sustained in carrying on the war, and (though the righteous cause was victorious at last) the issuing of the war in the almost utter extirpation of the tribe of Benjamin, make it, from first to last, melancholy. And yet this happened soon after the glorious settlement of Israel in the land of promise, upon which one would have expected every thing to be prosperous and serene. In this chapter we have, I. The Levite's cause heard in a general convention of the tribes, Jdg 20:1-7. II. A unanimous resolve to avenge his quarrel upon the men of Gibeah, Jdg 20:8-11. III. The Benjamites appearing in defence of the criminals, Jdg 20:12-17. IV. The defeat of Israel in the first and second day's battle, Jdg 20:18-25. V. Their humbling themselves before God upon that occasion, Jdg 20:26-28. VI. The total rout they gave the Benjamites in the third engagement, by a stratagem, by which they were all cut off, except 600 men, Jdg 20:29-48. And all this the effect of the indignities done to one poor Levite and his wife; so little do those that do iniquity consider what will be the end thereof.
 

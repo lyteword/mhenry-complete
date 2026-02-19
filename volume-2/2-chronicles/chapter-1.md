@@ -1,8 +1,11 @@
 ---
+title: "2 Chronicles 1 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "1"
+description: "In the close of the foregoing book we read how God magnified Solomon and Israel obeyed him; God and Israel concurred to honour him. Now here we have an account, I. How he honoured ..."
 weight: 1
 ---
 
-# Chapter 1
+# 2 Chronicles 1 
 
 In the close of the foregoing book we read how God magnified Solomon and Israel obeyed him; God and Israel concurred to honour him. Now here we have an account, I. How he honoured God by sacrifice (2Ch 1:1-6) and by prayer, 2Ch 1:7-12. II. How he honoured Israel by increasing their strength, wealth, and trade, 2Ch 1:13-17.
 

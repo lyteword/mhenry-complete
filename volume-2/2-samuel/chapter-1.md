@@ -1,8 +1,11 @@
 ---
+title: "2 Samuel 1 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "1"
+description: "In the close of the foregoing book (with which this is connected as a continuation of the same history) we had Saul\'s exit; he went down slain to the pit, though he was the terror ..."
 weight: 1
 ---
 
-# Chapter 1
+# 2 Samuel 1 
 
 In the close of the foregoing book (with which this is connected as a continuation of the same history) we had Saul's exit; he went down slain to the pit, though he was the terror of the mighty in the land of the living. We are now to look towards the rising sun, and to enquire where David is, and what he is doing. In this chapter we have, I. Tidings brought him to Ziklag of the death of Saul and Jonathan, by an Amalekite, who undertook to give him a particular narrative of it, 2Sa 1:1-10. II. David's sorrowful reception of these tidings, 2Sa 1:11,12. III. Justice done upon the messenger, who boasted that he had helped Saul to dispatch himself, 2Sa 1:13-16. IV. An elegy which David penned upon this occasion, 2Sa 1:17-27. And in all this David's breast appears very happily free from the sparks both of revenge and ambition, and he observes a very suitable demeanour.
 

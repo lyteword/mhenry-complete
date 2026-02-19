@@ -1,8 +1,11 @@
 ---
+title: "2 Chronicles 7 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "7"
+description: "In this chapter we have God\'s answer to Solomon\'s prayer. I. His public answer by fire from heaven, which consumed the sacrifices (2Ch 7:1), with which the priests and people were ..."
 weight: 7
 ---
 
-# Chapter 7
+# 2 Chronicles 7 
 
 In this chapter we have God's answer to Solomon's prayer. I. His public answer by fire from heaven, which consumed the sacrifices (2Ch 7:1), with which the priests and people were much affected, 2Ch 7:2,3. By that token of God's acceptance they were encouraged to continue the solemnities of the feast for fourteen days, and Solomon was encouraged to pursue all his designs for the honour of God, 2Ch 7:4-11. II. His private answer by word of mouth, in a dream or vision of the night, 2Ch 7:12-22. Most of these things we had before, 1Ki 8:1-9:66
 

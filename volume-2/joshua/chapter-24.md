@@ -1,8 +1,11 @@
 ---
+title: "Joshua 24 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "24"
+description: "This chapter concludes the life and reign of Joshua, in which we have, I. The great care and pains he took to confirm the people of Israel in the true faith and worship of God, tha..."
 weight: 24
 ---
 
-# Chapter 24
+# Joshua 24 
 
 This chapter concludes the life and reign of Joshua, in which we have, I. The great care and pains he took to confirm the people of Israel in the true faith and worship of God, that they might, after his death, persevere therein. In order to this he called another general assembly of the heads of the congregation of Israel (Jos 24:1) and dealt with them. 1. By way of narrative, recounting the great things God had done for them and their fathers, Jos 24:2-13. 2. By way of charge to them, in consideration thereof, to serve God, Jos 24:14. 3. By way of treaty with them, wherein he aims to bring them, (1.) To make religion their deliberate choice; and they did so, with reasons for their choice, Jos 24:15-18. (2.) To make it their determinate choice, and to resolve to adhere to it, Jos 24:19-24. 4. By way of covenant upon that treaty, Jos 24:25-28. II. The conclusion of this history, with, 1. The death and burial of Joshua (Jos 24:29,30) and Eleazar (Jos 24:33), and the mention of the burial of Joseph's bones upon that occasion, Jos 24:32. 2. A general account of the state of Israel at that time, Jos 24:31.
 

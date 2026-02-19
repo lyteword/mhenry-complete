@@ -1,8 +1,11 @@
 ---
+title: "Ezra 2 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "2"
+description: "That many returned out of Babylon upon Cyrus\'s proclamation we were told in the foregoing chapter; we have here a catalogue of the several families that returned, Ezr 2:1. I. The l..."
 weight: 2
 ---
 
-# Chapter 2
+# Ezra 2 
 
 That many returned out of Babylon upon Cyrus's proclamation we were told in the foregoing chapter; we have here a catalogue of the several families that returned, Ezr 2:1. I. The leaders, Ezr 2:2. II. The people, Ezr 2:3-35. III. The priests, Levites, and retainers to the temple, Ezr 2:35-63. IV. The sum total, with an account of their retinue, Ezr 2:64-67. V. Their offerings to the service of the temple, Ezr 2:68-70.
 

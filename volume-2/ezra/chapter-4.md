@@ -1,8 +1,11 @@
 ---
+title: "Ezra 4 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "4"
+description: "The good work of rebuilding the temple was no sooner begun than it met with opposition from those that bore ill will to it; the Samaritans were enemies to the Jews and their religi..."
 weight: 4
 ---
 
-# Chapter 4
+# Ezra 4 
 
 The good work of rebuilding the temple was no sooner begun than it met with opposition from those that bore ill will to it; the Samaritans were enemies to the Jews and their religion, and they set themselves to obstruct it. I. They offered to be partners in the building of it, that they might have it in their power to retard it; but they were refused, Ezr 4:1-3. II. They discouraged them in it, and dissuaded them from it, Ezr 4:4,5. III. They basely misrepresented the undertaking, and the undertakers, to the king of Persia, by a memorial they sent him, Ezr 4:6-16. IV. They obtained from him an order to stop the building (Ezr 4:17-22), which they immediately put in execution, Ezr 4:23,24.
 

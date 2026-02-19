@@ -1,8 +1,11 @@
 ---
+title: "Nehemiah 9 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "9"
+description: "The tenth day of the seventh month between the feast of trumpets (Ne 8:2) and the feast of tabernacles (Ne 9:14) was appointed to be the day of atonement; we have no reason to thin..."
 weight: 9
 ---
 
-# Chapter 9
+# Nehemiah 9 
 
 The tenth day of the seventh month between the feast of trumpets (Ne 8:2) and the feast of tabernacles (Ne 9:14) was appointed to be the day of atonement; we have no reason to think but that it was religiously observed, though it is not mentioned. But here we have an account of an occasional fast that was kept a fortnight after that, with reference to the present posture of their affairs, and it was, as that, a day of humiliation. There is a time to weep as well as a time to laugh. We have here an account. I. How this fast was observed, Ne 9:1-3. II. What were the heads of the prayer that was made to God on that occasion, wherein they made a thankful acknowledgment of God's mercies, a penitent confession of sin, and a humble submission to the righteous hand of God in the judgments that were brought upon them, concluding with a solemn resolution of new obedience, Ne 9:4-38.
 

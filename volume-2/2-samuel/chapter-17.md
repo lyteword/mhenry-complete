@@ -1,8 +1,11 @@
 ---
+title: "2 Samuel 17 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "17"
+description: "The contest between David and Absalom is now hasting towards a crisis. It must be determined by the sword, and preparation is made accordingly in this chapter. I. Absalom calls a c..."
 weight: 17
 ---
 
-# Chapter 17
+# 2 Samuel 17 
 
 The contest between David and Absalom is now hasting towards a crisis. It must be determined by the sword, and preparation is made accordingly in this chapter. I. Absalom calls a council of war, in which Ahithophel urges despatch (2Sa 17:1-4), but Hushai recommends deliberation (2Sa 17:5-13); and Hushai's counsel is agreed to (2Sa 17:14), for vexation at which Ahithophel hangs himself, 2Sa 17:23. II. Secret intelligence is sent to David (but with much difficulty) of their proceedings, 2Sa 17:15-21. III. David marches to the other side Jordan (2Sa 17:22-24), and there his camp is victualled by some of his friends in that country, 2Sa 17:27-29. IV. Absalom and his forces march after him into the land of Gilead on the other side Jordan, 2Sa 17:25,26. There we shall, in the next chapter, find the cause decided by a battle: hitherto, every thing has looked black upon poor David, but now the day of his deliverance begins to dawn.
 

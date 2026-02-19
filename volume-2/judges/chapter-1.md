@@ -1,8 +1,11 @@
 ---
+title: "Judges 1 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "1"
+description: "This chapter gives us a particular account what sort of progress the several tribes of Israel made in the reducing of Canaan after the death of Joshua. He did (as we say) break the..."
 weight: 1
 ---
 
-# Chapter 1
+# Judges 1 
 
 This chapter gives us a particular account what sort of progress the several tribes of Israel made in the reducing of Canaan after the death of Joshua. He did (as we say) break the neck of that great work, and put it into such a posture that they might easily have perfected it in due time, if they had not been wanting to themselves; what they did in order hereunto, and wherein they came short, we are told. I. The united tribes of Judah and Simeon did bravely. 1. God appointed Judah to begin, Jdg 1:1,2. 2. Judah took Simeon to act in conjunction with him, Jdg 1:3. 3. They succeeded in their enterprises against Bezek (Jdg 1:4-7), Jerusalem, Jdg 1:8. Hebron and Debir (Jdg 1:9-15), Hormah, Gaza, and other places, Jdg 1:17-19. 4. Yet where there were chariots of iron their hearts failed them, Jdg 1:19. Mention is made of the Kenites settling among them, Jdg 1:16. II. The other tribes, in comparison with these, acted a cowardly part. 1. Benjamin failed, Jdg 1:21. 2. The house of Joseph did well against Beth-el (Jdg 1:22-26), but in other places did not improve their advantages, nor Manasseh (Jdg 1:27,28), nor Ephraim, Jdg 1:29. 3. Zebulun spared the Canaanites, Jdg 1:30. 4. Asher truckled worse than any of them to the Canaanites, Jdg 1:31,32. 5. Naphtali was kept out of the full possession of several of his cities, Jdg 1:33. 6. Dan was straitened by the Amorites, Jdg 1:34. No account is given of Issachar, nor of the two tribes and a half on the other side Jordan.
 

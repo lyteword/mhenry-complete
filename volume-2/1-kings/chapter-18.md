@@ -1,8 +1,11 @@
 ---
+title: "1 Kings 18 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "18"
+description: "We left the prophet Elijah wrapt up in obscurity. It does not appear that either the increase of the provision or the raising of the child had caused him to be taken notice of at Z..."
 weight: 18
 ---
 
-# Chapter 18
+# 1 Kings 18 
 
 We left the prophet Elijah wrapt up in obscurity. It does not appear that either the increase of the provision or the raising of the child had caused him to be taken notice of at Zarephath, for then Ahab would have discovered him; he would rather do good than be known to do it. But in this chapter his appearance was as public as before his retirement was close; the days appointed for his concealment (which was part of the judgment upon Israel) being finished, he is now commanded to show himself to Ahab, and to expect rain upon the earth, 1Ki 18:1. Pursuant to this order we have here, I. His interview with Obadiah, one of Ahab's servants, by whom he sends notice to Ahab of his coming, 1Ki 18:2-16. II. His interview with Ahab himself, 1Ki 18:17-20. III. His interview with all Israel upon Mount Carmel, in order to a public trial of titles between the Lord and Baal; a most distinguished solemnity it was, in which, 1. Baal and his prophets were confounded. 2. God and Elijah were honoured, 1Ki 18:21-39. IV. The execution he did upon the prophets of Baal, 1Ki 18:40. V. The return of the mercy of rain, at the word of Elijah, 1Ki 18:41-46. It is a chapter in which are many things very observable.
 

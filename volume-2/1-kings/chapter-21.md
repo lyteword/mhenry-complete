@@ -1,8 +1,11 @@
 ---
+title: "1 Kings 21 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "21"
+description: "Ahab is still the unhappy subject of the sacred history; from the great affairs of his camp and kingdom this chapter leads us into his garden, and gives us an account of some ill t..."
 weight: 21
 ---
 
-# Chapter 21
+# 1 Kings 21 
 
 Ahab is still the unhappy subject of the sacred history; from the great affairs of his camp and kingdom this chapter leads us into his garden, and gives us an account of some ill things (and ill indeed they proved to him) relating to his domestic affairs. I. Ahab is sick for Naboth's vineyard, 1Ki 21:1-4. II. Naboth dies by Jezebel's plot, that the vineyard may escheat to Ahab, 1Ki 21:5-14. III. Ahab goes to take possession, 1Ki 21:15-16. IV. Elijah meets him, and denounces the judgments of God against him for his injustice, 1Ki 21:17-24. V. Upon his humiliation a reprieve is granted, 1Ki 21:25-29.
 

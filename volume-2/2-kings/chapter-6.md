@@ -1,8 +1,11 @@
 ---
+title: "2 Kings 6 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "6"
+description: "In this chapter we have, I. A further account of the wondrous works of Elisha. 1. His making iron to swim, 2Ki 6:1-7. 2. His disclosing to the king of Israel the secret counsels of..."
 weight: 6
 ---
 
-# Chapter 6
+# 2 Kings 6 
 
 In this chapter we have, I. A further account of the wondrous works of Elisha. 1. His making iron to swim, 2Ki 6:1-7. 2. His disclosing to the king of Israel the secret counsels of the king of Syria, 2Ki 6:8-12. 3. His saving himself out of the hands of those who were sent to apprehend him, 2Ki 6:13-23. II. The besieging of Samaria by the Syrians and the great distress the city was reduced to, 2Ki 6:24-33. The relief of it is another of the wonders wrought by Elisha's word, which we shall have the story of in the next chapter. Elisha is still a great blessing both to church and state, both to the sons of the prophets and to his prince.
 

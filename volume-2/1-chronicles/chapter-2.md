@@ -1,8 +1,11 @@
 ---
+title: "1 Chronicles 2 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "2"
+description: "We have now come to what was principally intended, the register of the children of Israel, that distinguished people, that were to \"dwell alone, and not be reckoned among the natio..."
 weight: 2
 ---
 
-# Chapter 2
+# 1 Chronicles 2 
 
 We have now come to what was principally intended, the register of the children of Israel, that distinguished people, that were to "dwell alone, and not be reckoned among the nations." Here we have, I. The names of the twelve sons of Israel, 1Ch 2:1,2. II. An account of the tribe of Judah, which has the precedency, not so much for the sake of David as for the sake of the Son of David, our Lord, who sprang out of Judah, Heb 7:14. 1. The first descendants from Judah, down to Jesse, 1Ch 2:3-12. 2. The children of Jesse, 1Ch 2:13-17. 3. The posterity of Hezron, not only through Ram, from whom David came, but through Caleb (1Ch 2:18-20), Segub (1Ch 2:21-24), Jerahmeel (1Ch 2:25-33, and so to 1Ch 2:34-41), and more by Caleb (1Ch 2:42-49), with the family of Caleb the son of Hur, 1Ch 2:50-55. The best exposition we can have of this and the following chapters, and which will give the clearest view of them, is found in those genealogical tables which were published with some of the first impressions of the last English Bible about 100 years ago, and continued for some time; and it is a pity but they were revived in some of our later editions, for they are of great use to those who diligently search the scriptures. They are said to be drawn up by that great master in scripture-learning, Mr. Hugh Broughton. We meet with them sometimes in old Bibles.
 

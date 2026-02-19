@@ -1,8 +1,11 @@
 ---
+title: "2 Samuel 19 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "19"
+description: "We left David\'s army in triumph and yet David himself in tears: now here we have, I. His return to himself, by the persuasion of Joab, 2Sa 19:1-8. II. His return to his kingdom fro..."
 weight: 19
 ---
 
-# Chapter 19
+# 2 Samuel 19 
 
 We left David's army in triumph and yet David himself in tears: now here we have, I. His return to himself, by the persuasion of Joab, 2Sa 19:1-8. II. His return to his kingdom from his present banishment. 1. The men of Israel were forward of themselves to bring him back, 2Sa 19:9,10. 2. The men of Judah were dealt with by David's agents to do it (2Sa 19:11-14) and did it, 2Sa 19:15. III. At the king's coming over Jordan, Shimei's treason is pardoned (2Sa 19:16-23), Mephibosheth's failure is excused (2Sa 19:24-30), and Barzillai's kindness is thankfully owned, and recompensed to his son, 2Sa 19:31-39. IV. The men of Israel quarrelled with the men of Judah, for not calling them to the ceremony of the king's restoration, which occasioned a new rebellion, an account of which we have in the next chapter, 2Sa 19:40-43.
 

@@ -1,8 +1,11 @@
 ---
+title: "1 Chronicles 29 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "29"
+description: "David has said what he had to say to Solomon. But he had something more to say to the congregation before he parted with them. I. He pressed them to contribute, according to their ..."
 weight: 29
 ---
 
-# Chapter 29
+# 1 Chronicles 29 
 
 David has said what he had to say to Solomon. But he had something more to say to the congregation before he parted with them. I. He pressed them to contribute, according to their ability, towards the building and furnishing of the temple, 1Ch 29:1-5. II. They made their presents accordingly with great generosity, 1Ch 29:6-9. III. David offered up solemn prayers and praises to God upon that occasion (1Ch 29:10-20), with sacrifices, 1Ch 29:21,22. IV. Solomon was hereupon enthroned, with great joy and magnificence, 1Ch 29:23-25. V. David, soon after this finished his course, 1Ch 29:26-30. And it is hard to say which shines brighter here, the setting sun or the rising sun.
 

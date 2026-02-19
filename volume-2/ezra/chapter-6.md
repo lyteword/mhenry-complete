@@ -1,8 +1,11 @@
 ---
+title: "Ezra 6 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "6"
+description: "How solemnly the foundation of the temple was laid we read in Ezr 3:1-13 How slowly the building went on, and with how much difficulty, we found in Ezr 4:1-5:17 But how gloriously ..."
 weight: 6
 ---
 
-# Chapter 6
+# Ezra 6 
 
 How solemnly the foundation of the temple was laid we read in Ezr 3:1-13 How slowly the building went on, and with how much difficulty, we found in Ezr 4:1-5:17 But how gloriously the topstone was at length brought forth with shoutings we find in this chapter; and even we, at this distance of time, when we read of it, may cry, "Grace, grace to it." As for God, his work is perfect; it may be slow work, but it will be sure work. We have here, I. A recital of the decree of Cyrus for the building of the temple, Ezr 6:1-5. II. The enforcing of that decree by a new order from Darius for the perfecting of that work, Ezr 6:6-12. III. The finishing of it thereupon, Ezr 6:13-15. IV. The solemn dedication of it when it was built (Ezr 6:16-18), and the handselling of it (as I may say) with the celebration of the passover, Ezr 6:19-22. And now we may say that in Judah and Jerusalem things went well, very well.
 

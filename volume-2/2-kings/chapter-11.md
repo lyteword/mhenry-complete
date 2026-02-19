@@ -1,8 +1,11 @@
 ---
+title: "2 Kings 11 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "11"
+description: "The revolution in the kingdom of Israel was soon perfected in Jehu\'s settlement; we must now enquire into the affairs of the kingdom of Judah, which lost its head (such as it was) ..."
 weight: 11
 ---
 
-# Chapter 11
+# 2 Kings 11 
 
 The revolution in the kingdom of Israel was soon perfected in Jehu's settlement; we must now enquire into the affairs of the kingdom of Judah, which lost its head (such as it was) at the same time, and by the same hand, as Israel lost its head; but things continued longer there in distraction than in Israel, yet, after some years, they were brought into a good posture, as we find in this chapter. I. Athaliah usurps the government and destroys all the seed-royal, 2Ki 11:1. II. Joash, a child of a year old, is wonderfully preserved, 2Ki 11:2,3. III. At six years' end he is produced, and, by the agency of Jehoiada, made king, 2Ki 11:4-12. IV. Athaliah is slain, 2Ki 11:13-16. V. Both the civil and religious interests of the kingdom are well settled in the hands of Joash, 2Ki 11:17-21. And thus, after some interruption, things returned with advantage into the old channel.
 

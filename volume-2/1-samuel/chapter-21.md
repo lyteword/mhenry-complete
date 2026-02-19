@@ -1,8 +1,11 @@
 ---
+title: "1 Samuel 21 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "21"
+description: "David has now quite taken leave both of Saul\'s court and of his camp, has bidden farewell to his alter idem—his other self, the beloved Jonathan; and henceforward to the end of thi..."
 weight: 21
 ---
 
-# Chapter 21
+# 1 Samuel 21 
 
 David has now quite taken leave both of Saul's court and of his camp, has bidden farewell to his alter idem—his other self, the beloved Jonathan; and henceforward to the end of this book he is looked upon and treated as an outlaw and proclaimed a traitor. We still find him shifting from place to place for his own safety, and Saul pursuing him. His troubles are very particularly related in this and the following chapters, not only to be a key to the Psalms, but that he might be, as other prophets, an example to the saints in all ages, "of suffering affliction, and of patience," and especially that he might be a type of Christ, who, being anointed to the kingdom, humbled himself, and was therefore highly exalted. But the example of the suffering Jesus was a copy without a blot, that of David was not so; witness the records of this chapter, where we find David in his flight, I. Imposing upon Abimelech the priest, to get from him both victuals and arms, 1Sa 21:1-9. II. Imposing upon Achish, king of Gath, by feigning himself mad, 1Sa 21:10-15. Justly are troubles called temptations, for many are by them drawn into sin.
 

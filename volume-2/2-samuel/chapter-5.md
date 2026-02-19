@@ -1,8 +1,11 @@
 ---
+title: "2 Samuel 5 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "5"
+description: "How far Abner\'s deserting the house of Saul, his murder, and the murder of Ish-bosheth, might contribute to the perfecting of the revolution, and the establishing of David as king ..."
 weight: 5
 ---
 
-# Chapter 5
+# 2 Samuel 5 
 
 How far Abner's deserting the house of Saul, his murder, and the murder of Ish-bosheth, might contribute to the perfecting of the revolution, and the establishing of David as king over all Israel, does not appear; but, it should seem, that happy change followed presently thereupon, which in this chapter we have an account of. Here is, I. David anointed king by all the tribes, 2Sa 5:1-5. II. Making himself master of the strong-hold of Zion, 2Sa 5:6-10. III. Building himself a house and strengthening himself in his kingdom, 2Sa 5:11,12. IV. His children that were born after this, 2Sa 5:13-16. V. His victories over the Philistines, 2Sa 5:17-25.
 

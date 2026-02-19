@@ -1,8 +1,11 @@
 ---
+title: "1 Chronicles 19 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "19"
+description: "The story is here repeated of David\'s war with the Ammonites and the Syrians their allies, and the victories he obtained over them, which we read just as it is here related, 2Sa 10..."
 weight: 19
 ---
 
-# Chapter 19
+# 1 Chronicles 19 
 
 The story is here repeated of David's war with the Ammonites and the Syrians their allies, and the victories he obtained over them, which we read just as it is here related, 2Sa 10:1-19 Here is, I. David's civility to the king of Ammon, in sending an embassy of condolence to him on occasion of his father's death, 1Ch 19:1,2. II. His great incivility to David, in the base usage he gave to his ambassadors, 1Ch 19:3,4. III. David's just resentment of it, and the war which broke out thereupon, in which the Ammonites acted with policy in bringing the Syrians to their assistance (1Ch 19:6,7), Joab did bravely (1Ch 19:8-13), and Israel was once and again victorious, 1Ch 19:14-19.
 

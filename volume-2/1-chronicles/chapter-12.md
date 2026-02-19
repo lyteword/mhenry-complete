@@ -1,8 +1,11 @@
 ---
+title: "1 Chronicles 12 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "12"
+description: "What the mighty men did towards making David king we read in the foregoing chapter. Here we are told what the many did towards it. It was not all at once, but gradually, that David..."
 weight: 12
 ---
 
-# Chapter 12
+# 1 Chronicles 12 
 
 What the mighty men did towards making David king we read in the foregoing chapter. Here we are told what the many did towards it. It was not all at once, but gradually, that David ascended the throne. His kingdom was to last; and therefore, like fruits that keep longest, it ripened slowly. After he had long waited for the vacancy of the throne, it was at two steps and those above seven years distant, that he ascended it. Now we are here told, I. What help came in to him to Ziklag, to make him king of Judah, 1Ch 12:1-22. II. What help came in to him in Hebron, to make him king over all Israel, above seven years after, 1Ch 12:23-40.
 

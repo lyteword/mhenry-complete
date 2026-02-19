@@ -1,8 +1,11 @@
 ---
+title: "1 Samuel 28 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "28"
+description: "Preparations are herein making for that war which will put an end to the life and reign of Saul, and so make way for David to the throne. In this war, I. The Philistines are the ag..."
 weight: 28
 ---
 
-# Chapter 28
+# 1 Samuel 28 
 
 Preparations are herein making for that war which will put an end to the life and reign of Saul, and so make way for David to the throne. In this war, I. The Philistines are the aggressors and Achish their king makes David his confidant, 1Sa 28:1,2. II. The Israelites prepare to receive them, and Saul their king makes the devil his privy-counsellor, and thereby fills the measure of his iniquity. Observe, 1. The despairing condition which Saul was in, 1Sa 28:3-6. 2. The application he made to a witch, to bring him up Samuel, 1Sa 28:7-14. 3. His discourse with the apparition, 1Sa 28:15-19. The damp it struck upon him, 1Sa 28:20-25.
 

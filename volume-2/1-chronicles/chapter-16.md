@@ -1,8 +1,11 @@
 ---
+title: "1 Chronicles 16 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "16"
+description: "This chapter concludes that great affair of the settlement of the ark in the royal city, and with it the settlement of the public worship of God during the reign of David. Here is,..."
 weight: 16
 ---
 
-# Chapter 16
+# 1 Chronicles 16 
 
 This chapter concludes that great affair of the settlement of the ark in the royal city, and with it the settlement of the public worship of God during the reign of David. Here is, I. The solemnity with which the ark was fixed, 1Ch 16:1-6. II. The psalm David gave to be sung on this occasion, 1Ch 16:7-36. III. The settling of the stated public worship of God in order thenceforward, 1Ch 16:37-43.
 

@@ -1,8 +1,11 @@
 ---
+title: "2 Chronicles 29 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "29"
+description: "We are here entering upon a pleasant scene, the good and glorious reign of Hezekiah, in which we shall find more of God and religion than perhaps in any of the good reigns we have ..."
 weight: 29
 ---
 
-# Chapter 29
+# 2 Chronicles 29 
 
 We are here entering upon a pleasant scene, the good and glorious reign of Hezekiah, in which we shall find more of God and religion than perhaps in any of the good reigns we have yet met with; for he was a very zealous, devout, good man, none like him. In this chapter we have an account of the work of reformation which he set about with vigour immediately after his accession to the crown. Here is, I. His exhortation to the priests and Levites, when he put them in possession of the house of God again, 2Ch 29:1-11. II. The care and pains which the Levites took to cleanse the temple, and put things in order there, 2Ch 29:12-19. III. A solemn revival of God's ordinances that had been neglected, in which atonement was made for the sins of the last reign, and the wheels were set a-going again, to the great satisfaction of king and people, 2Ch 29:20-36.
 

@@ -1,8 +1,11 @@
 ---
+title: "1 Kings 10 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "10"
+description: "Still Solomon looks great, and every thing in this chapter adds to his magnificence. We read nothing indeed of his charity, of no hospitals he built, or alms-houses; he made his ki..."
 weight: 10
 ---
 
-# Chapter 10
+# 1 Kings 10 
 
 Still Solomon looks great, and every thing in this chapter adds to his magnificence. We read nothing indeed of his charity, of no hospitals he built, or alms-houses; he made his kingdom so rich that it did not need them; yet, no question, many poor were relieved from the abundance of his table. A church he had built, never to be equalled; schools or colleges he need not build any, his own palace is an academy, and his court a rendezvous of wise and learned men, as well as the centre of all the circulating riches of that part of the world. I. What abundance of wisdom there was there appears from the application the queen of Sheba made to him, and the great satisfaction she had in her entertainment there (1Ki 10:1-13), and others likewise, 1Ki 10:24. II. What abundance of wealth there was there appears here by the gold imported, with other things, yearly (1Ki 10:14,15), and in a triennial return, 1Ki 10:22. Gold presented (1Ki 10:25), and gold used in targets and shields (1Ki 10:16,17), and vessels, 1Ki 10:21. A stately throne made, 1Ki 10:18-20. His chariots and horsemen, 1Ki 10:26. His trade with Egypt, 1Ki 10:28,29. And the great plenty of silver and cedars among his people, 1Ki 10:27. So that, putting all together, it must be owned, as it is here said (1Ki 10:23), that "king Solomon exceeded all the kings of the earth for riches, and for wisdom." Yet what was he to the King of kings? Where Christ is, by his word and Spirit, "Behold, a greater than Solomon is there."
 

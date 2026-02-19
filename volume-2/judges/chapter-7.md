@@ -1,8 +1,11 @@
 ---
+title: "Judges 7 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "7"
+description: "This chapter presents us with Gideon in the field, commanding the army of Israel, and routing the army of the Midianites, for which great exploit we found in the former chapter how..."
 weight: 7
 ---
 
-# Chapter 7
+# Judges 7 
 
 This chapter presents us with Gideon in the field, commanding the army of Israel, and routing the army of the Midianites, for which great exploit we found in the former chapter how he was prepared by his converse with God and his conquest of Baal. We are here told, I. What direction God gave to Gideon for the modelling of his army, by which it was reduced to 300 men, Jdg 7:1,8. II. What encouragement God gave to Gideon to attack the enemy, by sending him secretly into their camp to hear a Midianite tell his dream, Jdg 7:9-15. III. How he formed his attack upon the enemy's camp with his 300 men, not to fight them, but to frighten them, Jdg 7:16-20. IV. The success of this attack; it put them to flight, and gave them a total rout, the disbanded forces, and their other neighbours, then coming in to his assistance, Jdg 7:21-25. It is a story that shines very brightly in the book of the wars of the Lord.
 

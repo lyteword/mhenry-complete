@@ -1,8 +1,11 @@
 ---
+title: "2 Kings 14 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "14"
+description: "This chapter continues the history of the succession in the kingdoms both of Judah and Israel. I. In the kingdom of Judah here is, 1. The entire history (as much as is recorded in ..."
 weight: 14
 ---
 
-# Chapter 14
+# 2 Kings 14 
 
 This chapter continues the history of the succession in the kingdoms both of Judah and Israel. I. In the kingdom of Judah here is, 1. The entire history (as much as is recorded in this book) of Amaziah's reign (1.) His good character, 2Ki 14:1-4. (2.) The justice he executed on the murderers of his father, 2Ki 14:5,6. (3.) His victory over the Edomites, 2Ki 14:7. (4.) His war with Joash, and his defeat in that war, 2Ki 14:8-14. (5.) His fall, at last, by a conspiracy against him, 2Ki 14:17-20. 2. The beginning of the history of Azariah, 2Ki 14:21,22. II. In the kingdom of Israel, the conclusion of the reign of Joash (2Ki 14:15,16), and the entire history of Jeroboam his son, the second of that name, 2Ki 14:23-29. How many great men are made to stand in a little compass in God's book!
 

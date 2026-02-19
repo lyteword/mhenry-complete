@@ -1,8 +1,11 @@
 ---
+title: "2 Kings 2 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "2"
+description: "In this chapter we have, I. That extraordinary event, the translation of Elijah. In the close of the foregoing chapter we had a wicked king leaving the world in disgrace, here we h..."
 weight: 2
 ---
 
-# Chapter 2
+# 2 Kings 2 
 
 In this chapter we have, I. That extraordinary event, the translation of Elijah. In the close of the foregoing chapter we had a wicked king leaving the world in disgrace, here we have a holy prophet leaving it in honour; the departure of the former was his greatest misery, of the latter his greatest bliss: men are as their end is. Here is, 1. Elijah taking leave of his friends, the sons of the prophets, and especially Elisha, who kept close to him, and walked with him through Jordan, 2Ki 2:1-10. 2. Elijah taken into heaven by the ministry of angels (2Ki 2:11), and Elisha's lamentation of the loss this earth has of him, 2Ki 2:12. II. The manifestation of Elisha, as a prophet in his room. 1. By the dividing of Jordan, 2Ki 2:13,14. 2. By the respect which the sons of the prophets paid him, 2Ki 2:15-18. 3. By the healing of the unwholesome waters of Jericho, 2Ki 2:19-22. 4. By the destruction of the children of Bethel that mocked him, 2Ki 2:23-25. This revolution in prophecy makes a greater figure than the revolution of a kingdom.
 

@@ -1,8 +1,11 @@
 ---
+title: "1 Samuel 6 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "6"
+description: "In this chapter we have the return of the ark to the land of Israel, whither we are now gladly to attend it, and observe, I. How the Philistines dismissed it, by the advice of thei..."
 weight: 6
 ---
 
-# Chapter 6
+# 1 Samuel 6 
 
 In this chapter we have the return of the ark to the land of Israel, whither we are now gladly to attend it, and observe, I. How the Philistines dismissed it, by the advice of their priests (2Sa 6:1-11), with rich presents to the God of Israel, to make an atonement for their sin (2Sa 6:3-5), and yet with a project to bring it back, unless Providence directed the kine, contrary to their inclination, to go to the land of Israel, 2Sa 6:8,9. II. How the Israelites entertained it. 1. With great joy and sacrifices of praise, 2Sa 6:12-18. 2. With an over-bold curiosity to look into it, for which many of them were struck dead, the terror of which moved them to send it forward to another city, 2Sa 6:19-21.
 

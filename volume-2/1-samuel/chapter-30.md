@@ -1,8 +1,11 @@
 ---
+title: "1 Samuel 30 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "30"
+description: "When David was dismissed from the army of the Philistines he did not go over to the camp of Israel, but, being expelled by Saul, observed an exact neutrality, and silently retired ..."
 weight: 30
 ---
 
-# Chapter 30
+# 1 Samuel 30 
 
 When David was dismissed from the army of the Philistines he did not go over to the camp of Israel, but, being expelled by Saul, observed an exact neutrality, and silently retired to his own city Ziklag, leaving the armies ready to engage. Now here we are told, I. What a melancholy posture he found the city in, all laid waste by the Amalekites, and what distress it occasioned him and his men, 1Sa 30:1-6. II. What course he took to recover what he had lost. He enquired of God, and took out a commission from him (1Sa 30:7,8), pursued the enemy (1Sa 30:9,10), gained intelligence from a straggler (1Sa 30:11-15), attacked and routed the plunderers (1Sa 30:16,17), and recovered all that they had carried off, 1Sa 30:18-20. III. What method he observed in the distribution of the spoil, 1Sa 30:21-31.
 

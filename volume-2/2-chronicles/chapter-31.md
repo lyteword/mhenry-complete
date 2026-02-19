@@ -1,8 +1,11 @@
 ---
+title: "2 Chronicles 31 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "31"
+description: "We have here a further account of that blessed reformation of which Hezekiah was a glorious instrument, and of the happy advances he made in it. I. All the remnants of idolatry wer..."
 weight: 31
 ---
 
-# Chapter 31
+# 2 Chronicles 31 
 
 We have here a further account of that blessed reformation of which Hezekiah was a glorious instrument, and of the happy advances he made in it. I. All the remnants of idolatry were destroyed and abolished, 2Ch 31:1. II. The priests and Levites were set to work again, every man in his place, 2Ch 31:2. III. Care was taken for their maintenance. 1. The royal bounty to the clergy, and for the support of the temple service, was duly paid, 2Ch 31:3. 2. Orders were given for the raising of the people's quota, 2Ch 31:4. 3. The people, thereupon, brought in their dues abundantly, 2Ch 31:5-10. 4. Commissioners were appointed for the due distribution of what was brought in, 2Ch 31:11-19. Lastly, Here is the general praise of Hezekiah's sincerity in all his undertakings, 2Ch 31:20,21.
 

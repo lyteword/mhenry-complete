@@ -1,8 +1,11 @@
 ---
+title: "Nehemiah 3 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "3"
+description: "Saying and doing are often two things: many are ready to say, \"Let us rise up and build,\" who sit still and do nothing, like that fair-spoken son who said, \"I go, Sir, but went not..."
 weight: 3
 ---
 
-# Chapter 3
+# Nehemiah 3 
 
 Saying and doing are often two things: many are ready to say, "Let us rise up and build," who sit still and do nothing, like that fair-spoken son who said, "I go, Sir, but went not." The undertakers here were none of those. As soon as they had resolved to build the wall about Jerusalem they lost no time, but set about it presently, as we find in this chapter. Let it never be said that we left that good work to be done to-morrow which we might as well have done to-day. This chapter gives an account of two things:—I. The names of the builders, which are recorded here to their honour, for they were such as herein discovered a great zeal for God and their country, both a pious and a public spirit, a great degree both of industry and courage; and what they did was fit to be thus largely registered, both for their praise and for the encouragement of others to follow their example. II. The order of the building; they took it before them, and ended where they began. They repaired, 1. From the sheep-gate to the fish-gate, Ne 1:1,2. 2. Thence to the old-gate, Ne 1:3-5. 3. Thence to the valley-gate, Ne 1:6-12. 4. Thence to the dung-gate, Ne 1:13,14. 5. Thence to the gate of the fountain, Ne 1:15. 6. Thence to the water-gate, Ne 1:16-26. 7. Thence by the horse-gate to the sheep-gate again, where they began (Ne 1:27-32), and so they brought their work quite round the city.
 

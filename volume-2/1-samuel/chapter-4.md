@@ -1,8 +1,11 @@
 ---
+title: "1 Samuel 4 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "4"
+description: "The predictions in the foregoing chapters concerning the ruin of Eli\'s house here begin to be fulfilled; how long after does not appear, but certainly not long. Such sinners God of..."
 weight: 4
 ---
 
-# Chapter 4
+# 1 Samuel 4 
 
 The predictions in the foregoing chapters concerning the ruin of Eli's house here begin to be fulfilled; how long after does not appear, but certainly not long. Such sinners God often makes quick work with. Here is, I. The disgrace and loss Israel sustained in an encounter with the Philistines, 1Sa 4:1,2. II. Their foolish project to fortify themselves by bringing the ark of God into their camp upon the shoulders of Hophni and Phinehas (1Sa 4:3,4), which made them secure (1Sa 4:5) and struck a fear into the Philistines, but such a fear as roused them, 1Sa 4:6-9. III. The fatal consequences of it: Israel was beaten, and the ark taken prisoner, 1Sa 4:10,11. IV. The tidings of this brought to Shiloh, and the sad reception of those tidings. 1. The city was put into confusion, 1Sa 4:12,13. 2. Eli fainted away, fell, and broke his neck, 1Sa 4:14-18. 3. Upon hearing what had occurred his daughter-in-law fell in labour, bore a son, but died immediately, 1Sa 4:19-22. These were the things which would make the ears of those that heard them to tingle.
 

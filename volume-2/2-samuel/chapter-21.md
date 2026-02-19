@@ -1,8 +1,11 @@
 ---
+title: "2 Samuel 21 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "21"
+description: "The date of the events of this chapter is uncertain. I incline to think that they happened as they are here placed, after Absalom\'s and Sheba\'s rebellion, and towards the latter en..."
 weight: 21
 ---
 
-# Chapter 21
+# 2 Samuel 21 
 
 The date of the events of this chapter is uncertain. I incline to think that they happened as they are here placed, after Absalom's and Sheba's rebellion, and towards the latter end of David's reign. That the battles with the Philistines, mentioned here, were long after the Philistines were subdued, appears by comparing 1Ch 18:1,20:4. The numbering of the people was just before the fixing of the place of the temple (as appears 1Ch 22:1), and that was towards the close of David's life; and, it should seem, the people were numbered just after the three years' famine for the Gibeonites, for that which is threatened as "three" years' famine (1Ch 21:12) is called "seven" years (2Sa 24:12,13), three more, with the year current, added to those three. We have here, I. The Gibeonites avenged, 1. By a famine in the land, 2Sa 21:1. 2. By the putting of seven of Saul's posterity to death (2Sa 21:2-9), care, however, being taken of their dead bodies, and of the bones of Saul, 2Sa 21:10-14. II. The giants of the Philistines slain in several battles, 2Sa 21:15-22.
 

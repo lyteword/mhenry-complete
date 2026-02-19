@@ -1,8 +1,11 @@
 ---
+title: "1 Samuel 15 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "15"
+description: "In this chapter we have the final rejection of Saul from being king, for his disobedience to God\'s command in not utterly destroying the Amalekites. By his wars and victories he ho..."
 weight: 15
 ---
 
-# Chapter 15
+# 1 Samuel 15 
 
 In this chapter we have the final rejection of Saul from being king, for his disobedience to God's command in not utterly destroying the Amalekites. By his wars and victories he hoped to magnify and perpetuate his own name and honour, but, by his mismanagement of them, he ruined himself, and laid his honour in the dust. Here is, I. The commission God gave him to destroy the Amalekites, with a command to do it utterly, 1Sa 15:1-3. II. Saul's preparation for this expedition, 1Sa 15:4-6. III. His success, and partial execution of this commission, 1Sa 15:7-9. IV. His examination before Samuel, and sentence passed upon him, notwithstanding the many frivolous pleas he made to excuse himself, 1Sa 15:10-31. V. The slaying of Agag, 1Sa 15:32,33. VI. Samuel's final farewell to Saul, 1Sa 15:34,35.
 

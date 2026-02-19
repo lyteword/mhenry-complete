@@ -1,8 +1,11 @@
 ---
+title: "Judges 13 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "13"
+description: "At this chapter begins the story of Samson, the last of the judges of Israel whose story is recorded in this book, and next before Eli. The passages related concerning him are, fro..."
 weight: 13
 ---
 
-# Chapter 13
+# Judges 13 
 
 At this chapter begins the story of Samson, the last of the judges of Israel whose story is recorded in this book, and next before Eli. The passages related concerning him are, from first to last, very surprising and uncommon. The figure he makes in this history is really great, and yet vastly different from that of his predecessors. We never find him at the head either of a court or of an army, never upon the throne of judgment nor in the field of battle, yet, in his own proper person, a great patriot of his country, and a terrible scourge and check to its enemies and oppressors; he was an eminent believer (Heb 11:32) and a glorious type of him who with his own arm wrought salvation. The history of the rest of the judges commences from their advancement to that station, but Samson's begins with his birth, nay, with his conception, no less than an angel from heaven ushers him into the world, as a pattern of what should be afterwards done to John Baptist and to Christ. This is related in this chapter. I. The occasion of raising up this deliverer was the oppression of Israel by the Philistines, Jdg 13:1. II. His birth is foretold by an angel to his mother, Jdg 13:2-5. III. She relates the prediction to his father, Jdg 13:6,7. IV. They both together have it again from the angel (Jdg 13:8-14), whom they treat with respect (Jdg 13:15-18), and who, to their great amazement, discovers his dignity at parting, Jdg 13:19-23. V. Samson is born, Jdg 13:24,25.
 

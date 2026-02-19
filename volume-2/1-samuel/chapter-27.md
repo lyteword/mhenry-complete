@@ -1,8 +1,11 @@
 ---
+title: "1 Samuel 27 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "27"
+description: "David was a man after God\'s own heart, and yet he had his faults, which are recorded, not for our imitation, but for our admonition; witness the story of this chapter, in which, th..."
 weight: 27
 ---
 
-# Chapter 27
+# 1 Samuel 27 
 
 David was a man after God's own heart, and yet he had his faults, which are recorded, not for our imitation, but for our admonition; witness the story of this chapter, in which, though, I. We find, to his praise, that he prudently took care of his own safety and his family's (1Sa 27:2-4) and valiantly fought Israel's battles against the Canaanites (1Sa 27:8-9), yet, II. We find, to his dishonour, 1. That he began to despair of his deliverance, 1Sa 27:1. 2. That he deserted his own country, and went to dwell in the land of the Philistines, 1Sa 27:1,5-7. 3. That he imposed upon Achish with an equivocation, if not a lie, concerning his expedition, 1Sa 27:10-12.
 

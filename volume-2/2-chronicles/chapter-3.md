@@ -1,8 +1,11 @@
 ---
+title: "2 Chronicles 3 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "3"
+description: "It was a much larger and more particular account of the building of the temple which we had in the book of Kings than is here in this book of Chronicles. In this chapter we have, I..."
 weight: 3
 ---
 
-# Chapter 3
+# 2 Chronicles 3 
 
 It was a much larger and more particular account of the building of the temple which we had in the book of Kings than is here in this book of Chronicles. In this chapter we have, I. The place and time of building the temple, 2Ch 3:1,2. II. The dimensions and rich ornaments of it, 2Ch 3:3-9. III. The cherubim in the most holy place, 2Ch 3:10-13. IV. The veil, 2Ch 3:14. V. The two pillars, 2Ch 3:15-17. Of all this we have already and an account, 1Ki 6:1-7:51
 

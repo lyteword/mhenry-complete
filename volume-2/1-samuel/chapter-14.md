@@ -1,8 +1,11 @@
 ---
+title: "1 Samuel 14 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "14"
+description: "We left the host of Israel in a very ill posture, in the close of the foregoing chapter; we saw in them no wisdom, nor strength, nor goodness, to give us ground to expect any other..."
 weight: 14
 ---
 
-# Chapter 14
+# 1 Samuel 14 
 
 We left the host of Israel in a very ill posture, in the close of the foregoing chapter; we saw in them no wisdom, nor strength, nor goodness, to give us ground to expect any other than that they should all be cut off by the army of the Philistines; yet here we find that infinite power which works without means, and that infinite goodness which gives without merit, glorified in a happy turn to their affairs, that still Samuel's words may be made good: "The Lord will not forsake his people, for his great name's sake," (1Sa 12:22. In this chapter we have, I. The host of the Philistines trampled upon, and triumphed over, by the faith and courage of Jonathan, who unknown to his father (1Sa 14:1-3), with his armour-bearer only, made a brave attack upon them, encouraging himself in the Lord his God, 1Sa 14:4-7. He challenged them (1Sa 14:8-12), and, upon their acceptance of the challenge, charged them with such fury, or rather such faith, that he put them to flight, and set them one against another (1Sa 14:13-14), which gave opportunity to Saul and his forces, with other Israelites, to follow the blow, and gain a victory, 1Sa 14:16-23. II. The host of Israel troubled and perplexed by the rashness and folly of Saul, who adjured the people to eat no food till night, which 1. Brought Jonathan to a præmunire, 1Sa 14:24-30. 2. Was a temptation to the people, when the time of their fast had expired, to eat with the blood, 1Sa 14:31-35. Jonathan's error, through ignorance, had like to have been his death, but the people rescued him, 1Sa 14:36-46. III. In the close we have a general account of Saul's exploits (1Sa 14:47,48) and of his family, 1Sa 14:49-52.
 
