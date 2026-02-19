@@ -1,7 +1,7 @@
 ---
 title: "Genesis 47 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "47"
-description: "In this chapter we have instances, I. Of Joseph's kindness and affection to his relations, presenting his brethren first and then his father to Pharaoh (Ge 47:1-10), settling them ..."
+description: "In this chapter we have instances, I. Of Joseph\'s kindness and affection to his relations, presenting his brethren first and then his father to Pharaoh (Ge 47:1-10), settling them ..."
 weight: 47
 ---
 

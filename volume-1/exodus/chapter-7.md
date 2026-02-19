@@ -1,7 +1,7 @@
 ---
 title: "Exodus 7 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "7"
-description: "In this chapter, I. The dispute between God and Moses finishes, and Moses applies himself to the execution of his commission, in obedience to God's command, Ex 7:1-7. II. The dispu..."
+description: "In this chapter, I. The dispute between God and Moses finishes, and Moses applies himself to the execution of his commission, in obedience to God\'s command, Ex 7:1-7. II. The dispu..."
 weight: 7
 ---
 

@@ -1,7 +1,7 @@
 ---
 title: "Deuteronomy 18 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "18"
-description: "In this chapter, I. The rights and revenues of the church are settled, and rules given concerning the Levites' ministration and maintenance, De 18:1-8. II. The caution against the ..."
+description: "In this chapter, I. The rights and revenues of the church are settled, and rules given concerning the Levites\' ministration and maintenance, De 18:1-8. II. The caution against the ..."
 weight: 18
 ---
 

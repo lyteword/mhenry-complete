@@ -1,7 +1,7 @@
 ---
 title: "Deuteronomy 2 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "2"
-description: "Moses, in this chapter, proceeds in the rehearsal of God's providences concerning Israel in their way to Canaan, yet preserves not the record of any thing that happened during thei..."
+description: "Moses, in this chapter, proceeds in the rehearsal of God\'s providences concerning Israel in their way to Canaan, yet preserves not the record of any thing that happened during thei..."
 weight: 2
 ---
 

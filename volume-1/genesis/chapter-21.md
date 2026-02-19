@@ -1,7 +1,7 @@
 ---
 title: "Genesis 21 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "21"
-description: "In this chapter we have, I. Isaac, the child of promise born into Abraham's family, Ge 21:1-8. II. Ishmael, the son of the bondwoman, cast out of it, Ge 21:9-21. III. Abraham's lea..."
+description: "In this chapter we have, I. Isaac, the child of promise born into Abraham\'s family, Ge 21:1-8. II. Ishmael, the son of the bondwoman, cast out of it, Ge 21:9-21. III. Abraham\'s lea..."
 weight: 21
 ---
 

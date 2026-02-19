@@ -1,7 +1,7 @@
 ---
 title: "Exodus 1 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "1"
-description: "We have here, I. God's kindness to Israel, in multiplying them exceedingly, (Ex 1:1-7). II. The Egyptians' wickedness to them, 1. Oppressing and enslaving them, (Ex 1:8-14). 2. Mur..."
+description: "We have here, I. God\'s kindness to Israel, in multiplying them exceedingly, (Ex 1:1-7). II. The Egyptians\' wickedness to them, 1. Oppressing and enslaving them, (Ex 1:8-14). 2. Mur..."
 weight: 1
 ---
 

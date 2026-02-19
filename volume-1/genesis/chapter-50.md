@@ -1,7 +1,7 @@
 ---
 title: "Genesis 50 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "50"
-description: "Here is, I. The preparation for Jacob's funeral, Ge 50:1-6. II. The funeral itself, Ge 50:7-14. III. The settling of a good understanding between Joseph and his brethren after the ..."
+description: "Here is, I. The preparation for Jacob\'s funeral, Ge 50:1-6. II. The funeral itself, Ge 50:7-14. III. The settling of a good understanding between Joseph and his brethren after the ..."
 weight: 50
 ---
 
