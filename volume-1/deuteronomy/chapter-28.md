@@ -1,8 +1,11 @@
 ---
+title: "Deuteronomy 28 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "28"
+description: "This chapter is a very large exposition of two words in the foregoing chapter, the blessing and the curse. Those were pronounced blessed in general that were obedient, and those cu..."
 weight: 28
 ---
 
-# Chapter 28
+# Deuteronomy 28 
 
 This chapter is a very large exposition of two words in the foregoing chapter, the blessing and the curse. Those were pronounced blessed in general that were obedient, and those cursed that were disobedient; but, because generals are not so affecting, Moses here descends to particulars, and describes the blessing and the curse, not in their fountains (these are out of sight, and therefore the most considerable, yet least considered, the favour of God the spring of all the blessings, and the wrath of God the spring of all the curses), but in their streams, the sensible effects of the blessing and the curse, for they are real things and have real effects. I. He describes the blessings that should come upon them if they were obedient; personal, family, and especially national, for in that capacity especially they are here treated with, De 28:1-14. II. He more largely describes the curses which would come upon them if they were disobedient; such as would be, 1. Their extreme vexation, De 28:15-44. 2. Their utter ruin and destruction at last, De 28:45-68. This chapter is much to the same purport with Le 26:1-46, setting before them life and death, good and evil; and the promise, in the close of that chapter, of their restoration, upon their repentance, is here likewise more largely repeated, De 30:1-20 Thus, as they had precept upon precept in the repetition of the law, so they had line upon line in the repetition of the promises and threatenings. And these are both there and here delivered, not only as sanctions of the law, what should be conditionally, but as predictions of the event, what would be certainly, that for a while the people of Israel would be happy in their obedience, but that at length they would be undone by their disobedience; and therefore it is said (De 30:1) that all those things would come upon them, both the blessing and the curse.
 

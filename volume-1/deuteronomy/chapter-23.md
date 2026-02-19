@@ -1,8 +1,11 @@
 ---
+title: "Deuteronomy 23 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "23"
+description: "The laws of this chapter provide, I. For the preserving of the purity and honour of the families of Israel, by excluding such as would be a disgrace to them, De 23:1-8. II. For the..."
 weight: 23
 ---
 
-# Chapter 23
+# Deuteronomy 23 
 
 The laws of this chapter provide, I. For the preserving of the purity and honour of the families of Israel, by excluding such as would be a disgrace to them, De 23:1-8. II. For the preserving of the purity and honour of the camp of Israel when it was abroad, De 23:9-14. III. For the encouraging and entertaining of slaves who fled to them, De 23:15. IV. Against whoredom, De 23:17,18. V. Against usury, De 23:19,20. IV. Against the breach of vows, De 23:21-23. VII. What liberty a man might take in his neighbour's field and vineyard, and what not, De 23:23,25.
 

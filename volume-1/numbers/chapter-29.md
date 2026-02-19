@@ -1,8 +1,11 @@
 ---
+title: "Numbers 29 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "29"
+description: "This chapter appoints the offerings that were to be made by fire unto the Lord in the three great solemnities of the seventh month. I. In the feast of trumpets on the first day of ..."
 weight: 29
 ---
 
-# Chapter 29
+# Numbers 29 
 
 This chapter appoints the offerings that were to be made by fire unto the Lord in the three great solemnities of the seventh month. I. In the feast of trumpets on the first day of that month, Nu 29:1-6. II. In the day of atonement on the tenth day, Nu 29:7-11. III. In the feast of tabernacles on the fifteenth day and the seven days following, Nu 29:12-38. And then the conclusion of these ordinances, Nu 29:39,40.
 

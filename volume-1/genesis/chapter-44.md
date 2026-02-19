@@ -1,8 +1,11 @@
 ---
+title: "Genesis 44 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "44"
+description: "Joseph, having entertained his brethren, dismissed them; but here we have them brought back in a greater fright than any they had been in yet. Observe, I. What method he took both ..."
 weight: 44
 ---
 
-# Chapter 44
+# Genesis 44 
 
 Joseph, having entertained his brethren, dismissed them; but here we have them brought back in a greater fright than any they had been in yet. Observe, I. What method he took both to humble them further and also to try their affection to his brother Benjamin, by which he would be able to judge of the sincerity of their repentance for what they had done against himself, of which he was desirous to be satisfied before he manifested his reconciliation to them. This he contrived to do by bringing Benjamin into distress, Ge 44:1-17. II. The good success of the experiment; he found them all heartily concerned, and Judah particularly, both for the safety of Benjamin and for the comfort of their aged father, Ge 44:18-34, etc.
 

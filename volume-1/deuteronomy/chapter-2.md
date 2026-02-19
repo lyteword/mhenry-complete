@@ -1,8 +1,11 @@
 ---
+title: "Deuteronomy 2 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "2"
+description: "Moses, in this chapter, proceeds in the rehearsal of God's providences concerning Israel in their way to Canaan, yet preserves not the record of any thing that happened during thei..."
 weight: 2
 ---
 
-# Chapter 2
+# Deuteronomy 2 
 
 Moses, in this chapter, proceeds in the rehearsal of God's providences concerning Israel in their way to Canaan, yet preserves not the record of any thing that happened during their tedious march back to the Red Sea, in which they wore out almost thirty-eight years, but passes that over in silence as a dark time, and makes his narrative to begin again when they faced about towards Canaan (De 2:1-3), and drew towards the countries that were inhabited, concerning which God here gives them direction, I. What nations they must not give any disturbance to. 1. Not to the Edomites, De 2:4-8. 2. Not to the Moabites (De 2:9), of the antiquities of whose country, with that of the Edomites, he gives some account, De 2:10-12. And here comes in an account of their passing the river Zered, De 2:13-16. 3. Not to the Ammonites, of whose country here is some account given, De 2:17-23. II. What nations they should attack and conquer. They must begin with Sihon, king of the Amorites, De 2:24,25. And accordingly, 1. They had a fair occasion of quarrelling with him, De 2:26-32. 2. God gave them a complete victory over him, De 2:33-37, etc.
 

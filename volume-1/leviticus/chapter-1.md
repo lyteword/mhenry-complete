@@ -1,8 +1,11 @@
 ---
+title: "Leviticus 1 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "1"
+description: "This book begins with the laws concerning sacrifices, of which the most ancient were the burnt-offerings, about which God gives Moses instructions in this chapter. Orders are here ..."
 weight: 1
 ---
 
-# Chapter 1
+# Leviticus 1 
 
 This book begins with the laws concerning sacrifices, of which the most ancient were the burnt-offerings, about which God gives Moses instructions in this chapter. Orders are here given how that sort of sacrifice must be managed. I. If it was a bullock out of the herd, Le 1:3-9. II. If it was a sheep or goat, a lamb or kid, out of the flock, Le 1:10-13. III. If it was a turtle-dove or a young pigeon, Le 1:14-17. And whether the offering was more or less valuable in itself, if it was offered with an upright heart, according to these laws, it was accepted of God.
 

@@ -1,8 +1,11 @@
 ---
+title: "Genesis 2 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "2"
+description: "This chapter is an appendix to the history of the creation, more particularly explaining and enlarging upon that part of the history which relates immediately to man, the favourite..."
 weight: 2
 ---
 
-# Chapter 2
+# Genesis 2 
 
 This chapter is an appendix to the history of the creation, more particularly explaining and enlarging upon that part of the history which relates immediately to man, the favourite of this lower world. We have in it, I. The institution and sanctification of the sabbath, which was made for man, to further his holiness and comfort (Ge 2:1-3). II. A more particular account of man's creation, as the centre and summary of the whole work (Ge 2:1-7). III. A description of the garden of Eden, and the placing of man in it under the obligations of a law and covenant (Ge 2:8-17). IV. The creation of the woman, her marriage to the man, and the institution of the ordinance of marriage (Ge 2:18-25, etc.).
 

@@ -1,8 +1,11 @@
 ---
+title: "Leviticus 17 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "17"
+description: "After the law concerning the atonement to be made for all Israel by the high priest, at the tabernacle, with the blood of bulls and goats, in this chapter we have two prohibitions ..."
 weight: 17
 ---
 
-# Chapter 17
+# Leviticus 17 
 
 After the law concerning the atonement to be made for all Israel by the high priest, at the tabernacle, with the blood of bulls and goats, in this chapter we have two prohibitions necessary for the preservation of the honour of that atonement. I. That no sacrifice should be offered by any other than the priests, nor anywhere but at the door of the tabernacle, and this upon pain of death, Le 17:1-9. II. That no blood should be eaten, and this under the same penalty, Le 17:10-16, etc.
 

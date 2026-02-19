@@ -1,8 +1,11 @@
 ---
+title: "Exodus 35 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "35"
+description: "What should have been said and done upon Moses' coming down the first time from the mount, if the golden calf had not broken the measures and put all into disorder, now at last, wh..."
 weight: 35
 ---
 
-# Chapter 35
+# Exodus 35 
 
 What should have been said and done upon Moses' coming down the first time from the mount, if the golden calf had not broken the measures and put all into disorder, now at last, when with great difficulty reconciliation was made, begins to be said and done; and that great affair of the setting up of God's worship is put into its former channel again, and goes on now without interruption. I. Moses gives Israel those instructions, received from God, which required immediate observance. 1. Concerning the sabbath, Ex 35:1-3. 2. Concerning the contribution that was to be made for the erecting of the tabernacle, Ex 35:4-9. 3. Concerning the framing of the tabernacle and the utensils of it, Ex 35:10-19. II. The people bring in their contributions, Ex 35:20-29. III. The head-workmen are nominated, Ex 35:30-35, etc.
 

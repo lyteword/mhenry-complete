@@ -1,8 +1,11 @@
 ---
+title: "Exodus 22 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "22"
+description: "The laws of this chapter relate, I. To the eighth commandment, concerning theft (Ex 22:1-4), trespass by cattle (Ex 22:5), damage by fire (Ex 22:6), trusts (Ex 22:7-13), borrowing ..."
 weight: 22
 ---
 
-# Chapter 22
+# Exodus 22 
 
 The laws of this chapter relate, I. To the eighth commandment, concerning theft (Ex 22:1-4), trespass by cattle (Ex 22:5), damage by fire (Ex 22:6), trusts (Ex 22:7-13), borrowing cattle (Ex 22:14,15), or money, Ex 22:25. II. To the seventh commandment. Against fornication (Ex 22:16,17), bestiality, Ex 22:19. III. To the first table, forbidding witchcraft (Ex 22:18), idolatry, Ex 22:20. Commanding to offer the firstfruits, Ex 22:29,30. IV. To the poor, Ex 22:21-24. V. To the civil government, Ex 22:28. VI. To the peculiarity of the Jewish nation, Ex 22:31.
 

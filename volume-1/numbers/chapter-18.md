@@ -1,8 +1,11 @@
 ---
+title: "Numbers 18 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "18"
+description: "Aaron being now fully established in the priesthood abundantly to his own satisfaction, and to the satisfaction of the people (which was the good that God brought out of the evil o..."
 weight: 18
 ---
 
-# Chapter 18
+# Numbers 18 
 
 Aaron being now fully established in the priesthood abundantly to his own satisfaction, and to the satisfaction of the people (which was the good that God brought out of the evil opposition made to him), in this chapter God gives him full instructions concerning his office or rather repeats those which he had before given him. He tells him, I. What must be his work and the care and charge committed to him, and what assistance he should have the Levites in that work, Nu 18:1-7. II. What should be his and the Levites' wages for this work. 1. The perquisites or fees peculiar to the priests, Nu 18:8-19. 2. The settled maintenance of the Levites, Nu 18:20-24. III. The portion which must be paid to the priests out of the Levites' maintenance, Nu 18:25-32. Thus every one knew what he had to do, and what he had to live upon.
 

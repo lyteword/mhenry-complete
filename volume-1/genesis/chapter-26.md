@@ -1,8 +1,11 @@
 ---
+title: "Genesis 26 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "26"
+description: "In this chapter we have, I. Isaac in adversity, by reason of a famine in the land, which, 1. Obliges him to change his quarters, Ge 26:1. But, 2. God visits him with direction and ..."
 weight: 26
 ---
 
-# Chapter 26
+# Genesis 26 
 
 In this chapter we have, I. Isaac in adversity, by reason of a famine in the land, which, 1. Obliges him to change his quarters, Ge 26:1. But, 2. God visits him with direction and comfort, Ge 26:2-5. 3. He foolishly denies his wife, being in distress and is reproved for it by Abimelech, Ge 26:6-11. II. Isaac in prosperity, by the blessing of God upon him, Ge 26:12-14. And, 1. The Philistines were envious at him, Ge 26:14-17. 2. He continued industrious in his business, Ge 26:18-23. 3. God appeared to him, and encouraged him, and he devoutly acknowledged God, Ge 26:24,25. 4. The Philistines, at length, made court to him, and made a covenant with him, Ge 26:26-33. 5. The disagreeable marriage of his son Esau was an alloy to the comfort of his prosperity, Ge 26:34,35.
 

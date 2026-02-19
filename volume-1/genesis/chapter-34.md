@@ -1,8 +1,11 @@
 ---
+title: "Genesis 34 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "34"
+description: "At this chapter begins the story of Jacob's afflictions in his children, which were very great, and are recorded to show, 1. The vanity of this world. That which is dearest to us m..."
 weight: 34
 ---
 
-# Chapter 34
+# Genesis 34 
 
 At this chapter begins the story of Jacob's afflictions in his children, which were very great, and are recorded to show, 1. The vanity of this world. That which is dearest to us may prove our greatest vexation, and we may meet with the greatest crosses in those things of which we said, "This same shall comfort us." 2. The common griefs of good people. Jacob's children were circumcised, were well taught, and prayed for, and had very good examples set them; yet some of them proved very untoward. "The race is not to the swift, nor the battle to the strong." Grace does not run in the blood, and yet the interrupting of the entail of grace does not cut off the entail of profession and visible church-privileges: nay, Jacob's sons, though they were his grief in some things, yet were all taken into covenant with God. In this chapter we have, I. Dinah debauched, Ge 34:1-5. II. A treaty of marriage between her and Shechem who had defiled her, Ge 34:6-19. III. The circumcision of the Shechemites, pursuant to that treaty, Ge 34:20-24. IV. The perfidious and bloody revenge which Simeon and Levi took upon them, Ge 34:25-31
 

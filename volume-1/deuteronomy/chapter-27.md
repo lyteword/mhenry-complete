@@ -1,8 +1,11 @@
 ---
+title: "Deuteronomy 27 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "27"
+description: "Moses having very largely and fully set before the people their duty, both to God and one another, in general and in particular instances,—having shown them plainly what is good, a..."
 weight: 27
 ---
 
-# Chapter 27
+# Deuteronomy 27 
 
 Moses having very largely and fully set before the people their duty, both to God and one another, in general and in particular instances,—having shown them plainly what is good, and what the law requires of them,—and having in the close of the foregoing chapter laid them under the obligation both of the command and the covenant, he comes in this chapter to prescribe outward means, I. For the helping of their memories, that they might not forget the law as a strange thing. They must write all the words of this law upon stones, De 27:1-10. II. For the moving of their affections, that they might not be indifferent to the law as a light thing. Whey they came into Canaan, the blessings and curses which were the sanctions of the law, were to be solemnly pronounced in the hearing of all Israel, who were to say Amen to them, De 27:11-26. And if such a solemnity as this would not make a deep impression upon them, and affect them with the great things of God's law, nothing would.
 

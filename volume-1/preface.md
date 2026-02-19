@@ -1,7 +1,11 @@
 ---
-title: Preface - Volume I
+title: "Preface - Volume 1 | Read the Matthew Henry Concise Bible Commentary Online"
+linkTitle: "Preface"
+description: "Though it is most my concern, that I be able to give a good account to God and my own conscience, yet, perhaps, it will be expected that I give the world also some account of this..."
 weight: 1
 ---
+
+# Preface to Volume I
 
 Though it is most my concern, that I be able to give a good account to God and my own conscience, yet, perhaps, it will be expected that I give the world also some account of this bold undertaking; which I shall endeavour to do with all plainness, and as one who believes, that if men must be reckoned with in the great day, for every vain and idle word they speak, much more for every vain and idle line they write. And it may be of use, in the first place, to lay down those great and sacred principles which I go upon, and am governed by, in this endeavour to explain and improve these portions of holy writ; which endeavour I humbly offer to the service of those (and to those only I expect it will be acceptable) who agree with me in these six principles:—
 

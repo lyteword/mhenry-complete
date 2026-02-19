@@ -1,8 +1,11 @@
 ---
+title: "Deuteronomy 22 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "22"
+description: "The laws of this chapter provide, I. For the preservation of charity and good neighbourship, in the care of strayed or fallen cattle, De 22:1-4. II. For the preservation of order a..."
 weight: 22
 ---
 
-# Chapter 22
+# Deuteronomy 22 
 
 The laws of this chapter provide, I. For the preservation of charity and good neighbourship, in the care of strayed or fallen cattle, De 22:1-4. II. For the preservation of order and distinction, that men and women should not wear one another's clothes (De 22:5), and that other needless mixtures should be avoided, De 22:9-11. III. For the preservation of birds, De 22:6,7. IV. Of life, De 22:8. V. Of the commandments, De 22:12. VI. Of the reputation of a wife abused, if she were innocent (De 22:13-19), but for her punishment if guilty, De 22:20,21. VII. For the preservation of the chastity of wives, De 22:22. Virgins betrothed (De 22:23-27), or not betrothed, De 22:28,29. And, lastly, against incest, De 22:30.
 

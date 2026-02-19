@@ -1,8 +1,11 @@
 ---
+title: "Deuteronomy 21 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "21"
+description: "In this chapter provision is made, I. For the putting away of the guilt of blood from the land, when he that shed it had fled from justice, De 21:1-9. II. For the preserving of the..."
 weight: 21
 ---
 
-# Chapter 21
+# Deuteronomy 21 
 
 In this chapter provision is made, I. For the putting away of the guilt of blood from the land, when he that shed it had fled from justice, De 21:1-9. II. For the preserving of the honour of a captive maid, De 21:10-14. III. For the securing of the right of a first-born son, though he were not a favourite, De 21:15-17. IV. For the restraining and punishing of a rebellious son, De 21:18-21. V. For the maintaining of the honour of human bodies, which must not be hanged in chains, but decently buried, even the bodies of the worst malefactors, De 21:22,23.
 

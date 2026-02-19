@@ -1,8 +1,11 @@
 ---
+title: "Deuteronomy 24 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "24"
+description: "In this chapter we have, I. The toleration of divorce, De 24:1-4. II. A discharge of new-married men from the war, De 24:5. III. Laws concerning pledges, De 24:6,10-13,17. IV. Agai..."
 weight: 24
 ---
 
-# Chapter 24
+# Deuteronomy 24 
 
 In this chapter we have, I. The toleration of divorce, De 24:1-4. II. A discharge of new-married men from the war, De 24:5. III. Laws concerning pledges, De 24:6,10-13,17. IV. Against man-stealing, De 24:7. V. Concerning the leprosy, De 24:8,9. VI. Against the injustice of masters towards their servants, De 24:14,15. Judges in capital causes (De 24:16), and civil concerns, De 24:17,18. VII. Of charity to the poor, De 24:19, etc.
 

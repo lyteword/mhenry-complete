@@ -1,8 +1,11 @@
 ---
+title: "Leviticus 15 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "15"
+description: "In this chapter we have laws concerning other ceremonial uncleannesses contracted either by bodily disease like that of the leper, or some natural incidents, and this either, I. In..."
 weight: 15
 ---
 
-# Chapter 15
+# Leviticus 15 
 
 In this chapter we have laws concerning other ceremonial uncleannesses contracted either by bodily disease like that of the leper, or some natural incidents, and this either, I. In men, Le 15:1-18. Or, II. In women, Le 15:19-33. We need not be at all curious in explaining these antiquated laws, it is enough if we observe the general intention; but we have need to be very cautious lest sin take occasion by the commandment to become more exceedingly sinful; and exceedingly sinful it is when lust is kindled by sparks of fire from God's altar. The case is bad with the soul when it is putrefied by that which should purify it.
 
