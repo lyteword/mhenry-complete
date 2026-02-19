@@ -1,8 +1,11 @@
 ---
+title: "2 Samuel 16 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "16"
+description: "In the close of the foregoing chapter we left David flying from Jerusalem, and Absalom entering into it; in this chapter, I. We are to follow David in his melancholy flight; and th..."
 weight: 16
 ---
 
-# Chapter 16
+# 2 Samuel 16 
 
 In the close of the foregoing chapter we left David flying from Jerusalem, and Absalom entering into it; in this chapter, I. We are to follow David in his melancholy flight; and there we find him, 1. Cheated by Ziba, 2Sa 16:1-4. 2. Cursed by Shimei, which he bears with wonderful patience, 2Sa 16:5-14. II. We are to meet Absalom in his triumphant entry; and there we find him, 1. Cheated by Hushai, 2Sa 16:15-19. 2. Counselled by Ahithophel to go in unto his father's concubines, 2Sa 16:20-23.
 

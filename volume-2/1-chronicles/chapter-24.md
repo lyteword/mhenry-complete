@@ -1,8 +1,11 @@
 ---
+title: "1 Chronicles 24 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "24"
+description: "This chapter gives us a more particular account of the distribution of the priests and Levites into their respective classes, for the more regular discharge of the duties of their ..."
 weight: 24
 ---
 
-# Chapter 24
+# 1 Chronicles 24 
 
 This chapter gives us a more particular account of the distribution of the priests and Levites into their respective classes, for the more regular discharge of the duties of their offices, according to their families. I. Of the priests, 1Ch 24:1-19. II. Of the Levites, 1Ch 24:20-31.
 

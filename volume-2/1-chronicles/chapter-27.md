@@ -1,8 +1,11 @@
 ---
+title: "1 Chronicles 27 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "27"
+description: "In this chapter we have the civil list, including the military, I. The twelve captains for every separate month of the year, 1Ch 27:1-15. II. The princes of the several tribes, 1Ch..."
 weight: 27
 ---
 
-# Chapter 27
+# 1 Chronicles 27 
 
 In this chapter we have the civil list, including the military, I. The twelve captains for every separate month of the year, 1Ch 27:1-15. II. The princes of the several tribes, 1Ch 27:16-24. III. The officers of the court, 1Ch 27:25-34.
 

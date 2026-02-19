@@ -1,8 +1,11 @@
 ---
+title: "1 Samuel 2 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "2"
+description: "In this chapter we have, I. Hannah\'s song of thanksgiving to God for his favour to her in giving her Samuel, 1Sa 2:1-10. II. Their return to their family, with Eli\'s blessing, 1Sa ..."
 weight: 2
 ---
 
-# Chapter 2
+# 1 Samuel 2 
 
 In this chapter we have, I. Hannah's song of thanksgiving to God for his favour to her in giving her Samuel, 1Sa 2:1-10. II. Their return to their family, with Eli's blessing, 1Sa 2:11,20. The increase of their family, 1Sa 2:21. Samuel's growth and improvement (1Sa 2:11,18,21,26), and the care Hannah took to clothe him, 1Sa 2:19. III. The great wickedness of Eli's sons, 1Sa 2:12-17,22. IV. The over-mild reproof that Eli gave them for it, 1Sa 2:23-25. V. The justly dreadful message God sent him by a prophet, threatening the ruin of his family for the wickedness of his sons, 1Sa 2:27-36.
 

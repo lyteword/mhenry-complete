@@ -1,8 +1,11 @@
 ---
+title: "2 Kings 12 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "12"
+description: "This chapter gives us the history of the reign of Joash, which does not answer to that glorious beginning of it which we had an account of in the foregoing chapter; he was not so i..."
 weight: 12
 ---
 
-# Chapter 12
+# 2 Kings 12 
 
 This chapter gives us the history of the reign of Joash, which does not answer to that glorious beginning of it which we had an account of in the foregoing chapter; he was not so illustrious at forty years old as he was at seven, yet his reign is to be reckoned one of the better sort, and appears much worse in Chronicles (2Ch 24:1-27) than it does here, for there we find the blood of one of God's prophets laid at his door; here we are only told, I. That he did well while Jehoiada lived, 2Ki 12:1-3. II. That he was careful and active to repair the temple, 2Ki 12:4-16. III. That after a mean compact with Hazael (2Ki 12:17,18) he died ingloriously, 2Ki 12:19-21.
 

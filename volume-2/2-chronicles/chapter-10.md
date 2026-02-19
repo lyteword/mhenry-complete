@@ -1,8 +1,11 @@
 ---
+title: "2 Chronicles 10 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "10"
+description: "This chapter is copied almost verbatim from 1Ki 12:1-19, 2Ch 10:1-19, where it was opened at large. Solomon\'s defection from God was not repeated, but the defection of the ten trib..."
 weight: 10
 ---
 
-# Chapter 10
+# 2 Chronicles 10 
 
 This chapter is copied almost verbatim from 1Ki 12:1-19, 2Ch 10:1-19, where it was opened at large. Solomon's defection from God was not repeated, but the defection of the ten tribes from his family is, in this chapter, where we find, I. How foolish Rehoboam was in his treating with them, 2Ch 10:1,5-14. II. How wicked the people were in complaining of Solomon (2Ch 10:2-4) and forsaking Rehoboam, 2Ch 10:16-19. III. How just and righteous God was in all this, 2Ch 10:15. His counsel was thereby fulfilled. With him are strength and wisdom; both the deceived and the deceiver (the fool and the knave) are his (Job 12:16), that is, are made use of by him to suit his purposes.
 

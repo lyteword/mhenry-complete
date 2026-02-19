@@ -1,8 +1,11 @@
 ---
+title: "1 Chronicles 28 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "28"
+description: "The account we have of David\'s exit, in the beginning of the first book of Kings, does not make his sun nearly so bright as that given in this and the following chapter, where we h..."
 weight: 28
 ---
 
-# Chapter 28
+# 1 Chronicles 28 
 
 The account we have of David's exit, in the beginning of the first book of Kings, does not make his sun nearly so bright as that given in this and the following chapter, where we have his solemn farewell both to his son and his subjects, and must own that he finished well. In this chapter we have, I. A general convention of the states summoned to meet, 1Ch 28:1. II. A solemn declaration of the divine entail both of the crown and of the honour of building the temple upon Solomon, 1Ch 28:2-7. III. An exhortation both to the people and to Solomon to make religion their business, 1Ch 28:8-10. IV. The model and materials delivered to Solomon for the building of the temple, 1Ch 28:11-19. V. Encouragement given him to undertake it and proceed in it, 1Ch 28:20,21.
 

@@ -1,8 +1,11 @@
 ---
+title: "Joshua 23 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "23"
+description: "In this and the following chapter we have two farewell sermons, which Joshua preached to the people of Israel a little before his death. Had he designed to gratify the curiosity of..."
 weight: 23
 ---
 
-# Chapter 23
+# Joshua 23 
 
 In this and the following chapter we have two farewell sermons, which Joshua preached to the people of Israel a little before his death. Had he designed to gratify the curiosity of succeeding ages, he would rather have recorded the method of Israel's settlement in their new conquests, their husbandry, manufacturers, trade, customs, courts of justice, and the constitutions of their infant commonwealth, which one would wish to be informed of; but that which he intended in the registers of this book was to entail on posterity a sense of religion and their duty to God; and therefore, overlooking these things which are the usual subjects of a common history, he here transmits to his reader the methods he took to persuade Israel to be faithful to their covenant with their God, which might have a good influence on the generations to come who should read those reasonings, as we may hope they had on that generation which then heard them. In this chapter we have, I. A convention of the states called (Jos 23:1,2), probably to consult about the common concerns of their land, and to set in order that which, after some years' trial, being left to their prudence, was found wanting. II. Joshua's speech to them as the opening, or perhaps at the concluding, of the sessions, to hear which was the principal design of their coming together. In it, 1. Joshua reminds them of what God had done for them (Jos 23:3,4,9,14), and what he was ready to do yet further, Jos 23:5,10. 2. He exhorts them carefully and resolutely to persevere in their duty to God, Jos 23:6,8,11. III. He cautions them against all familiarity with their idolatrous neighbours, Jos 23:7. IV. He gives them fair warning of the fatal consequences of it, if they should revolt from God and turn to idols, Jos 23:12,13,15,16. In all this he showed himself zealous for his God, and jealous over Israel with a godly jealousy.
 

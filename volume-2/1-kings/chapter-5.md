@@ -1,8 +1,11 @@
 ---
+title: "1 Kings 5 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "5"
+description: "The great work which Solomon was raised up to do was the building of the temple; his wealth and wisdom were given him to qualify him for that. In this, especially, he was to be a t..."
 weight: 5
 ---
 
-# Chapter 5
+# 1 Kings 5 
 
 The great work which Solomon was raised up to do was the building of the temple; his wealth and wisdom were given him to qualify him for that. In this, especially, he was to be a type of Christ, for "he shall build the temple of the Lord," Zec 6:12. In this chapter we have an account of the preparations he made for that and his other buildings. Gold and silver his good father had prepared in abundance, but timber and stones he must get ready; and about these we have him treating with Hiram king of Tyre. I. Hiram congratulated him on his accession to the throne, 1Ki 5:1. II. Solomon signified to him his design to build the temple and desired him to furnish him with workmen, 1Ki 5:2-6. III. Hiram agreed to do it, 1Ki 5:7-9. IV. Solomon's work was accordingly well done and Hiram's workmen were well paid, 1Ki 5:10-18.
 

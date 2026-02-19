@@ -1,8 +1,11 @@
 ---
+title: "Nehemiah 7 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "7"
+description: "The success of one good design for God and our generation should encourage us to proceed and form some other; Nehemiah did so, having fortified Jerusalem with gates and walls, his ..."
 weight: 7
 ---
 
-# Chapter 7
+# Nehemiah 7 
 
 The success of one good design for God and our generation should encourage us to proceed and form some other; Nehemiah did so, having fortified Jerusalem with gates and walls, his next care is, I. To see the city well kept, Ne 7:1-4. II. To see it well peopled, in order to which he here reviews and calls over the register of the children of the captivity, the families that returned at first, and records it, Ne 7:5-73. It is the same, in effect, with that which we had, Ezr 2:1-62 What use he made of it we shall find afterwards, when he brought one of ten to live in Jerusalem, Ne 11:1.
 

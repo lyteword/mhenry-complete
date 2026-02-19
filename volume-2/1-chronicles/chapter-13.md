@@ -1,8 +1,11 @@
 ---
+title: "1 Chronicles 13 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "13"
+description: "In the foregoing chapter we have David made king, by which the civil government was happily settled. In this chapter care is taken about religion. I. David consults with the repres..."
 weight: 13
 ---
 
-# Chapter 13
+# 1 Chronicles 13 
 
 In the foregoing chapter we have David made king, by which the civil government was happily settled. In this chapter care is taken about religion. I. David consults with the representatives of the people about bringing up the ark out of its obscurity into a public place; and it is resolved on, 1Ch 13:1-4. II. With a great deal of solemnity and joy, it is carried from Kirjath-jearim, 1Ch 13:5-8. III. Uzza is struck dead for touching it, which, for the present, spoils the solemnity and stops the proceedings, 1Ch 13:9-14.
 

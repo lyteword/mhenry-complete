@@ -1,8 +1,11 @@
 ---
+title: "2 Chronicles 30 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "30"
+description: "In this chapter we have an account of the solemn passover which Hezekiah kept in the first year of his reign. I. The consultation about it, and the resolution he and his people cam..."
 weight: 30
 ---
 
-# Chapter 30
+# 2 Chronicles 30 
 
 In this chapter we have an account of the solemn passover which Hezekiah kept in the first year of his reign. I. The consultation about it, and the resolution he and his people came to for the observance of it, 2Ch 30:2-5. II. The invitation he sent to Judah and Israel to come and keep it, 2Ch 30:1,6. III. The joyful celebration of it, 2Ch 30:13-27. By this the reformation, set on foot in the foregoing chapter, was greatly advanced and established, and that nail in God's holy place clenched.
 

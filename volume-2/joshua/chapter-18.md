@@ -1,8 +1,11 @@
 ---
+title: "Joshua 18 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "18"
+description: "In this chapter we have, I. The setting up of the tabernacle at Shiloh, Jos 18:1. II. The stirring up of the seven tribes that were yet unsettled to look after their lot, and the p..."
 weight: 18
 ---
 
-# Chapter 18
+# Joshua 18 
 
 In this chapter we have, I. The setting up of the tabernacle at Shiloh, Jos 18:1. II. The stirring up of the seven tribes that were yet unsettled to look after their lot, and the putting of them in a method for it, by Joshua, Jos 18:2-7. III. The distributing of the land into seven lots, by certain men employed for that purpose, Jos 18:8,9. IV. The determining of these seven portions to the seven tribes yet unprovided for by lot, Jos 18:10. V. The particular lot of the tribe of Benjamin, the borders of it, Jos 18:11-20. And the cities contained in it, Jos 18:21-28. The other six tribes we shall find well provided for in the next chapter.
 

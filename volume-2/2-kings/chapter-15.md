@@ -1,8 +1,11 @@
 ---
+title: "2 Kings 15 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "15"
+description: "In this chapter, I. The history of two of the kings of Judah is briefly recorded:—1. Of Azariah, or Uzziah, 2Ki 15:1-7. 2. Of Jotham his son, 2Ki 15:32-38. II. The history of many ..."
 weight: 15
 ---
 
-# Chapter 15
+# 2 Kings 15 
 
 In this chapter, I. The history of two of the kings of Judah is briefly recorded:—1. Of Azariah, or Uzziah, 2Ki 15:1-7. 2. Of Jotham his son, 2Ki 15:32-38. II. The history of many of the kings of Israel that reigned at the same time is given us in short, five in succession, all of whom, except one, went down slain to the pit, and their murders were their successors. 1. Zachariah, the last of the house of Jehu, reigned six months, and then was slain and succeeded by Shallum, 2Ki 15:8-12. 2. Shallum reigned one month, and then was slain and succeeded by Menahem, 2Ki 15:13-15. 3. Menahem reigned ten years, or tyrannised rather, such were his barbarous cruelties (2Ki 15:16) and unreasonable exactions (2Ki 15:20), and then died in his bed, and left his son to succeed him first, and then suffer for him, 2Ki 15:16-22. 4. Pekahiah reigned two years, and then was slain and succeeded by Pekah, 2Ki 15:23-26. 5. Pekah reigned twenty years, and then was slain and succeeded by Hoshea, the last of all the kings of Israel (2Ki 15:27-31) for things were now working and hastening apace towards the final destruction of that kingdom.
 

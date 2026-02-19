@@ -1,8 +1,11 @@
 ---
+title: "Nehemiah 1 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "1"
+description: "Here we first meet with Nehemiah at the Persian court, where we find him, I. Inquisitive concerning the state of the Jews and Jerusalem, Ne 1:1,2. II. Informed of their deplorable ..."
 weight: 1
 ---
 
-# Chapter 1
+# Nehemiah 1 
 
 Here we first meet with Nehemiah at the Persian court, where we find him, I. Inquisitive concerning the state of the Jews and Jerusalem, Ne 1:1,2. II. Informed of their deplorable condition, Ne 1:3. III. Fasting and praying thereupon (Ne 1:4), with a particular account of his prayer, Ne 1:5-11. Such is the rise of this great man, by piety, not by policy.
 

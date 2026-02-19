@@ -1,8 +1,11 @@
 ---
+title: "1 Chronicles 23 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "23"
+description: "David, having given charge concerning the building of the temple, in this and the following chapters settles the method of the temple-service and puts into order the offices and of..."
 weight: 23
 ---
 
-# Chapter 23
+# 1 Chronicles 23 
 
 David, having given charge concerning the building of the temple, in this and the following chapters settles the method of the temple-service and puts into order the offices and officers of it. In the late irregular times, and during the wars in the beginning of his reign, we may suppose that, though the Levitical ordinances were kept up, yet it was not in the order, nor with the beauty and exactness, that were desirable. Now David, being a prophet, as well as a prince, by divine warrant and direction, "set in order the things that were wanting." In this chapter we are informed, I. He declared Solomon to be his successor, 1Ch 23:1. II. He numbered the Levites, and appointed them to their respective offices, 1Ch 23:2-5. III. He took an account of the several families of the Levites, 1Ch 23:6-23. IV. He made a new reckoning of them from twenty years old, and appointed them their work, 1Ch 23:24-32. And in this he prepared for the temple as truly as when he laid up gold and silver for it; for the place is of small account in comparison with the work.
 

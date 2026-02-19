@@ -1,8 +1,11 @@
 ---
+title: "Ezra 9 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "9"
+description: "The affairs of the church were in a very good posture, we may well suppose, now that Ezra presided in them. Look without; the government was kind to them. We hear no complaints of ..."
 weight: 9
 ---
 
-# Chapter 9
+# Ezra 9 
 
 The affairs of the church were in a very good posture, we may well suppose, now that Ezra presided in them. Look without; the government was kind to them. We hear no complaints of persecution and oppression; their enemies had either their hearts turned or at least their hands tied; their neighbours were civil, and we hear of no wars nor rumours of wars; there were none to make them afraid; all was as well as could be, considering that they were few, and poor, and subjects to a foreign prince. Look at home; we hear nothing of Baal, or Ashtaroth, nor Moloch, no images, nor groves, nor golden calves, no, nor so much as high places (not only no idolatrous altars, but no separate ones), but the temple was duly respected and the temple service carefully kept up. Yet all was not well either. The purest ages of the church have had some corruptions, and it will never be presented "without spot or wrinkle" till it is "a glorious church," a church "triumphant," Eph 5:27. We have here, I. A complaint brought to Ezra of the many marriages that had been made with strange wives, Ezr 9:1,2. II. The great trouble which he, and others influenced by his example, were in upon this information, Ezr 9:3,4. III. The solemn confession which he made of this sin to God, with godly sorrow, and shame, Ezr 9:5-15.
 

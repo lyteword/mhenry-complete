@@ -1,8 +1,11 @@
 ---
+title: "Esther 10 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "10"
+description: "This is but a part of a chapter; the rest of it, beginning at Es 10:4, with six chapters more, being found only in the Greek, is rejected as apocryphal. In these three verses we ha..."
 weight: 10
 ---
 
-# Chapter 10
+# Esther 10 
 
 This is but a part of a chapter; the rest of it, beginning at Es 10:4, with six chapters more, being found only in the Greek, is rejected as apocryphal. In these three verses we have only some short hints, I. Concerning Ahasuerus in the throne, what a mighty prince he was, Es 10:1,2. II. Concerning Mordecai his favourite, what a distinguished blessing he was to his people, Es 10:2,3.
 

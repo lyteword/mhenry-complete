@@ -1,8 +1,11 @@
 ---
+title: "2 Kings 22 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "22"
+description: "This chapter begins the story of the reign of good king Josiah, whose goodness shines the brighter because it came just after so much wickedness, which he had the honour to reform,..."
 weight: 22
 ---
 
-# Chapter 22
+# 2 Kings 22 
 
 This chapter begins the story of the reign of good king Josiah, whose goodness shines the brighter because it came just after so much wickedness, which he had the honour to reform, and just before so great a destruction, which yet he had not the honour to prevent. Here, after his general character (2Ki 22:1,2), we have a particular account of the respect he paid I. To God's house, which he repaired, 2Ki 22:3-7 II. To God's book, which he was much affected with the reading of, 2Ki 22:8-11 III. To God's messengers, whom he thereupon consulted, 2Ki 22:12-14 And by whom he received from God an answer threatening Jerusalem's destruction (2Ki 22:15-17), but promising favour to him (2Ki 22:18-20), upon which he set about that glorious work of reformation which we have an account of in the next chapter.
 

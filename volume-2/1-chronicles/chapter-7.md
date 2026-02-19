@@ -1,8 +1,11 @@
 ---
+title: "1 Chronicles 7 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "7"
+description: "In this chapter we have some account of the genealogies, I. Of Issachar, 1Ch 7:1-5. II. Of Benjamin, 1Ch 7:6-12. III. Of Naphtali, 1Ch 7:13. IV. Of Manasseh, 1Ch 7:14-19. V. Of Eph..."
 weight: 7
 ---
 
-# Chapter 7
+# 1 Chronicles 7 
 
 In this chapter we have some account of the genealogies, I. Of Issachar, 1Ch 7:1-5. II. Of Benjamin, 1Ch 7:6-12. III. Of Naphtali, 1Ch 7:13. IV. Of Manasseh, 1Ch 7:14-19. V. Of Ephraim, 1Ch 7:20-29. VI. Of Asher, 1Ch 7:30-40. Here is no account either of Zebulun or Dan. Why they only should be omitted we can assign no reason; only it is the disgrace of the tribe of Dan that idolatry began in that colony of the Danites which fixed in Laish, and called Dan, and there one of the golden calves was set up by Jeroboam. Dan is omitted, Re 7:4-8
 

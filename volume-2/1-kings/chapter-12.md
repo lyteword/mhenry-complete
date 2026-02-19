@@ -1,8 +1,11 @@
 ---
+title: "1 Kings 12 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "12"
+description: "The glory of the kingdom of Israel was in its height and perfection in Solomon; it was long in coming to it, but it soon declined, and began to sink and wither in the very next rei..."
 weight: 12
 ---
 
-# Chapter 12
+# 1 Kings 12 
 
 The glory of the kingdom of Israel was in its height and perfection in Solomon; it was long in coming to it, but it soon declined, and began to sink and wither in the very next reign, as we find in this chapter, where we have the kingdom divided, and thereby weakened and made little in comparison with what it had been. Here is, I. Rehoboam's accession to the throne and Jeroboam's return out of Egypt, 1Ki 12:1,2. II. The people's petition to Rehoboam for the redress of grievances, and the rough answer he gave, by the advice of his young counsellors, to that petition, 1Ki 12:3-15. III. The revolt of the ten tribes thereupon, and their setting up Jeroboam, 1Ki 12:16-20. IV. Rehoboam's attempt to reduce them and the prohibition God gave to that attempt, 1Ki 12:21-24. V. Jeroboam's establishment of his government upon idolatry, 1Ki 12:25-33. Thus did Judah become weak, being deserted by their brethren, and Israel, by deserting the house of the Lord.
 

@@ -1,8 +1,11 @@
 ---
+title: "1 Kings 17 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "17"
+description: "So sad was the character both of the princes and people of Israel, as described in the foregoing chapter, that one might have expected God would cast off a people that had so cast ..."
 weight: 17
 ---
 
-# Chapter 17
+# 1 Kings 17 
 
 So sad was the character both of the princes and people of Israel, as described in the foregoing chapter, that one might have expected God would cast off a people that had so cast him off; but, as an evidence to the contrary, never was Israel so blessed with a good prophet as when it was so plagued with a bad king. Never was king so bold to sin as Ahab; never was prophet so bold to reprove and threaten as Elijah, whose story begins in this chapter and is full of wonders. Scarcely any part of the Old-Testament history shines brighter than this history of the spirit and power of Elias; he only, of all the prophets, had the honour of Enoch, the first prophet, to be translated, that he should not see death, and the honour of Moses, the great prophet, to attend our Saviour in his transfiguration. Other prophets prophesied and wrote, he prophesied and acted, but wrote nothing; but his actions cast more lustre on his name than their writings did on theirs. In this chapter we have, I. His prediction of a famine in Israel, through the want of rain, 1Ki 17:1. II. The provision made for him in that famine, 1. By the ravens at the brook Cherith, 1Ki 17:2-7. 2. When that failed, by the widow at Zarephath, who received him in the name of a prophet and had a prophet's reward; for (1.) He multiplied her meal and her oil, 1Ki 17:8-16. (2.) He raised her dead son to life, 1Ki 17:17-24. Thus his story begins with judgments and miracles, designed to awaken that stupid generation that had to deeply corrupted themselves.
 

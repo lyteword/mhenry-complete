@@ -1,8 +1,11 @@
 ---
+title: "Judges 12 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "12"
+description: "In this chapter we have, I. Jephthah\'s rencounter with the Ephraimites, and the blood shed on that unhappy occasion (Jdg 12:1-6), and the conclusion of Jephthah\'s life and governme..."
 weight: 12
 ---
 
-# Chapter 12
+# Judges 12 
 
 In this chapter we have, I. Jephthah's rencounter with the Ephraimites, and the blood shed on that unhappy occasion (Jdg 12:1-6), and the conclusion of Jephthah's life and government, Jdg 12:7. II. A short account of three other of the judges of Israel: Ibzan (Jdg 12:8-10), Elon (Jdg 12:11,12), Abdon, Jdg 12:13-15.
 

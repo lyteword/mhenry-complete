@@ -1,8 +1,11 @@
 ---
+title: "1 Kings 16 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "16"
+description: "This chapter relates wholly to the kingdom of Israel, and the revolutions of that kingdom—many in a little time. The utter ruin of Jeroboam\'s family, after it had been twenty-four ..."
 weight: 16
 ---
 
-# Chapter 16
+# 1 Kings 16 
 
 This chapter relates wholly to the kingdom of Israel, and the revolutions of that kingdom—many in a little time. The utter ruin of Jeroboam's family, after it had been twenty-four years a royal family, we read of in the foregoing chapter. In this chapter we have, I. The ruin of Baasha's family, after it had been but twenty-six years a royal family, foretold by a prophet (1Ki 16:1-7), and executed by Zimri, one of his captains, 1Ki 16:8-14. II. The seven days' reign of Zimri, and his sudden fall, 1Ki 16:15-20. III. The struggle between Omri and Tibni, and Omri's prevalency, and his reign, 1Ki 16:21-28. IV. The beginning of the reign of Ahab, of whom we shall afterwards read much, 1Ki 16:29-32. V. The rebuilding of Jericho, 1Ki 16:34. All this while, in Judah, things went well.
 

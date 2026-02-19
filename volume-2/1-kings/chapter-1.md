@@ -1,8 +1,11 @@
 ---
+title: "1 Kings 1 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "1"
+description: "In this chapter we have, I. David declining in his health, 1Ki 1:1-4. II. Adonijah aspiring to the kingdom, and treating his party, in order to it, 1Ki 1:5-10. III. Nathan and Bath..."
 weight: 1
 ---
 
-# Chapter 1
+# 1 Kings 1 
 
 In this chapter we have, I. David declining in his health, 1Ki 1:1-4. II. Adonijah aspiring to the kingdom, and treating his party, in order to it, 1Ki 1:5-10. III. Nathan and Bathsheba contriving to secure the succession to Solomon, and prevailing for an order from David for the purpose, 1Ki 1:11-31. IV. The anointing of Solomon accordingly, and the people's joy therein, 1Ki 1:32-40. V. The effectual stop this put to Adonijah's usurpation, and the dispersion of his party thereupon, 1Ki 1:41-49. VI. Solomon's dismission of Adonijah upon his good behaviour, 1Ki 1:50-53.
 

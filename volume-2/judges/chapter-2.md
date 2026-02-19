@@ -1,8 +1,11 @@
 ---
+title: "Judges 2 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "2"
+description: "In this chapter we have, I. A particular message which God sent to Israel by an angel, and the impression it made upon them, Jdg 2:1-5. II. A general idea of the state of Israel du..."
 weight: 2
 ---
 
-# Chapter 2
+# Judges 2 
 
 In this chapter we have, I. A particular message which God sent to Israel by an angel, and the impression it made upon them, Jdg 2:1-5. II. A general idea of the state of Israel during the government of the judges, in which observe, 1. Their adherence to God while Joshua and the elders lived, Jdg 2:6-10. 2. Their revolt afterwards to idolatry, Jdg 2:11-13. 3. God's displeasure against them, and his judgments upon them for it, Jdg 2:14,15. 4. His pity towards them, shown in raising them up deliverers, Jdg 2:16-18. 5. Their relapse into idolatry after the judgment was over, Jdg 2:17-19. 6. The full stop God in anger put to their successes, Jdg 2:20-23. These are the contents, not only of this chapter, but of the whole book.
 

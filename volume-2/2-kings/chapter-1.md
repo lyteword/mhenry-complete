@@ -1,8 +1,11 @@
 ---
+title: "2 Kings 1 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "1"
+description: "We here find Ahaziah, the genuine son and successor of Ahab, on the throne of Israel. His reign continued not two years; he died by a fall in his own house, of which, after the men..."
 weight: 1
 ---
 
-# Chapter 1
+# 2 Kings 1 
 
 We here find Ahaziah, the genuine son and successor of Ahab, on the throne of Israel. His reign continued not two years; he died by a fall in his own house, of which, after the mention of the revolt of Moab (2Ki 1:1), we have here an account. I. The message which, on that occasion, he sent to the god of Ekron, 2Ki 1:2. II. The message he received from the God of Israel, 2Ki 1:3-8. III. The destruction of the messengers he sent to seize the prophet, once and again, 2Ki 1:9-12. IV. His compassion to, and compliance with, the third messenger, upon his submission, and the delivery of the message to the king himself, 2Ki 1:13-16. IV. The death of Ahaziah, 2Ki 1:17,18. In the story we may observe how great the prophet looks and how little the prince.
 

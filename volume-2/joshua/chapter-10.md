@@ -1,8 +1,11 @@
 ---
+title: "Joshua 10 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "10"
+description: "We have in this chapter an account of the conquest of the kings and kingdoms of the southern part of the land of Canaan, as, in the next chapter, of the reduction of the northern p..."
 weight: 10
 ---
 
-# Chapter 10
+# Joshua 10 
 
 We have in this chapter an account of the conquest of the kings and kingdoms of the southern part of the land of Canaan, as, in the next chapter, of the reduction of the northern parts, which together completed the glorious successes of the wars of Canaan. In this chapter we have an account, I. Of the routing of their forces in the field, in which observe, 1. Their confederacy against the Gibeonites, Jos 10:1-5. 2. The Gibeonites' request to Joshua to assist them, Jos 10:6. 3. Joshua's speeds march under divine encouragement for their relief, Jos 10:7-9. 4. The defeat of the armies of these confederate kings, Jos 10:10,11. 5. The miraculous prolonging of the day by the standing still of the sun in favour of the conquerors, Jos 10:12-14. II. Of the execution of the kings that escaped out of the battle, Jos 10:15-27. III. Of the taking of the particular cities, and the total destruction of all that were found in them. Makkedah, Jos 10:28. Libnah, Jos 10:29,30. Lachish, Jos 10:31,32, and the king of Gezer that attempted its rescue, Jos 10:33. Eglon, Jos 10:34,35. Hebron, Jos 10:36,37. Debir, Jos 10:38,39. And the bringing of all that country into the hands of Israel, Jos 10:40-42. And, lastly, the return of the army to the head-quarters, Jos 10:43.
 

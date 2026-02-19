@@ -1,8 +1,11 @@
 ---
+title: "2 Kings 8 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "8"
+description: "The passages of story recorded in this chapter oblige us to look back. I. We read before of a Shunammite woman that was a kind benefactor to Elisha; now here we are told how she fa..."
 weight: 8
 ---
 
-# Chapter 8
+# 2 Kings 8 
 
 The passages of story recorded in this chapter oblige us to look back. I. We read before of a Shunammite woman that was a kind benefactor to Elisha; now here we are told how she fared the better for it, afterwards, in the advice Elisha gave her, and the favour the king showed her for his sake, 2Ki 8:1-6. II. We read before of the designation of Hazael to be king of Syria (1Ki 19:15), and here we have an account of his elevation to that throne and the way he forced for himself to it, by killing his master, 2Ki 8:7-15. III. We read before of Jehoram's reigning over Judah in the room of his father Jehoshaphat (1Ki 22:50), now here we have a short and sad history of his short and wicked reign (2Ki 8:16-24), and the beginning of the history of the reign of his son Ahaziah, 2Ki 8:25-29.
 

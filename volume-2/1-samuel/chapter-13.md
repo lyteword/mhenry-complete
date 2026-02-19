@@ -1,8 +1,11 @@
 ---
+title: "1 Samuel 13 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "13"
+description: "Those that desired a king like all the nations fancied that, when they had one, they should look very great and considerable; but in this chapter we find it proved much otherwise. ..."
 weight: 13
 ---
 
-# Chapter 13
+# 1 Samuel 13 
 
 Those that desired a king like all the nations fancied that, when they had one, they should look very great and considerable; but in this chapter we find it proved much otherwise. While Samuel was joined in commission with Saul things went well, 1Sa 11:7. But, now that Saul began to reign alone, all went to decay, and Samuel's words began to be fulfilled: "You shall be consumed, both you and your king;" for never was the state of Israel further gone in a consumption than in this chapter. I. Saul appears here a very silly prince. 1. Infatuated in his counsels, 1Sa 13:1-3. 2. Invaded by his neighbours, 1Sa 13:4,5. 3. Deserted by his soldiers, 1Sa 13:6,7. 4. Disordered in his own spirit, and sacrificing in confusion, 1Sa 13:8-10. 5. Chidden by Samuel, 1Sa 13:11-13. 6. Rejected of God from being king, 1Sa 13:14. II. The people appear here a very miserable people. 1. Disheartened and dispersed, ver. 1Sa 13:6,7. 2. Diminished, 1Sa 13:15,16. 3. Plundered, 1Sa 13:17,18. 4. Disarmed, 1Sa 13:19-23. This they got by casting off God's government, and making themselves like the nations: all their glory departed from them.
 

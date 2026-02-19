@@ -1,8 +1,11 @@
 ---
+title: "2 Kings 10 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "10"
+description: "We have in this chapter, I. A further account of Jehu\'s execution of his commission. He cut off, 1. All Ahab\'s sons, 2Ki 10:1-10. 2. All Ahab\'s kindred, 2Ki 10:11-14,17. 3. Ahab\'s ..."
 weight: 10
 ---
 
-# Chapter 10
+# 2 Kings 10 
 
 We have in this chapter, I. A further account of Jehu's execution of his commission. He cut off, 1. All Ahab's sons, 2Ki 10:1-10. 2. All Ahab's kindred, 2Ki 10:11-14,17. 3. Ahab's idolatry: his zeal against this he took Jonadab to be witness to (2Ki 10:15,16), summoned all the worshippers of Baal to attend (2Ki 10:18-23) and slew them all (2Ki 10:24,25), and then abolished that idolatry, 2Ki 10:26-28. II. A short account of the administration of his government. 1. The old idolatry of Israel, the worship of the calves, was retained, 2Ki 10:29-31. 2. This brought God's judgments upon them by Hazael, with which his reign concludes, 2Ki 10:32-36.
 

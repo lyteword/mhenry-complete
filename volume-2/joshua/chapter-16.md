@@ -1,8 +1,11 @@
 ---
+title: "Joshua 16 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "16"
+description: "It is a pity that this and the following chapter should be separated, for both of them give us the lot of the children of Joseph, Ephraim and Manasseh, who, next to Judah, were to ..."
 weight: 16
 ---
 
-# Chapter 16
+# Joshua 16 
 
 It is a pity that this and the following chapter should be separated, for both of them give us the lot of the children of Joseph, Ephraim and Manasseh, who, next to Judah, were to have the post of honour, and therefore had the first and best portion in the northern part of Canaan, as Judah now had in the southern part. In this chapter we have, I. A general account of the lot of these two tribes together, Jos 16:1-4. II. The borders of the lot of Ephraim in particular, Jos 16:5-10. That of Manasseh following in the next chapter.
 

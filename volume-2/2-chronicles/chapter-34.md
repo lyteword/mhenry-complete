@@ -1,8 +1,11 @@
 ---
+title: "2 Chronicles 34 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "34"
+description: "Before we see Judah and Jerusalem ruined we shall yet see some glorious years, while good Josiah sits at the helm. By his pious endeavours for reformation God tried them yet once m..."
 weight: 34
 ---
 
-# Chapter 34
+# 2 Chronicles 34 
 
 Before we see Judah and Jerusalem ruined we shall yet see some glorious years, while good Josiah sits at the helm. By his pious endeavours for reformation God tried them yet once more; if they had known in this their day, the day of their visitation, the things that belonged to their peace and improved them, their ruin might have been prevented. But after this reign they were hidden from their eyes, and the next reigns brought an utter desolation upon them. In this chapter we have, I. A general account of Josiah's character, 2Ch 34:1,2. II. His zeal to root out idolatry, 2Ch 34:3-7. III. His care to repair the temple, 2Ch 34:8-13. IV. The finding of the book of the law and the good use made of it, 2Ch 34:14-28. V. The public reading of the law to the people and their renewing their covenant with God thereupon, 2Ch 34:29-33. Much of this we had 2Ki 22:1-20
 

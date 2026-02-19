@@ -1,8 +1,11 @@
 ---
+title: "1 Chronicles 5 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "5"
+description: "This chapter gives us some account of the two tribes and a half that were seated on the other side Jordan. I. Of Reuben, 1Ch 5:1-10. II. Of Gad, 1Ch 5:11-17. III. Of the half-tribe..."
 weight: 5
 ---
 
-# Chapter 5
+# 1 Chronicles 5 
 
 This chapter gives us some account of the two tribes and a half that were seated on the other side Jordan. I. Of Reuben, 1Ch 5:1-10. II. Of Gad, 1Ch 5:11-17. III. Of the half-tribe of Manasseh, 1Ch 5:23,24. IV. Concerning all three acting in conjunction we are told, 1. How they conquered the Hagarites, 1Ch 5:18-22. 2. How they were, at length, themselves conquered, and made captives, by the king of Assyria, because they had forsaken God, 1Ch 5:25,26.
 

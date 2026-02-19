@@ -1,8 +1,11 @@
 ---
+title: "1 Samuel 5 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "5"
+description: "It is now time to enquire what has become of the ark of God; we cannot but think that we shall hear more of that sacred treasure. I should have thought the next news would have bee..."
 weight: 5
 ---
 
-# Chapter 5
+# 1 Samuel 5 
 
 It is now time to enquire what has become of the ark of God; we cannot but think that we shall hear more of that sacred treasure. I should have thought the next news would have been that all Israel, from Dan to Beersheba, had gathered together as one man, with a resolution to bring it back, or die in the attempt; but we find not any motion made of that kind, so little was there of zeal or courage left among them. Nay, we do not find that they desired a treaty with the Philistines about the ransom of it, or offered any thing in lieu of it. "It is gone, and let it go." Many have softness enough to lament the loss of the ark that have not hardiness enough to take one step towards the recovery of it, any more than Israel here. If the ark will help itself it may, for they will not help it. Unworthy they were of the name of Israelites that could thus tamely part with the glory of Israel. God would therefore take the work into his own hands and plead his own cause, since men would not appear for him. We are told in this chapter, I. How the Philistines triumphed over the ark (2Sa 5:1,2), and, II. How the ark triumphed over the Philistines, 1. Over Dagon their god, 2Sa 5:3-5. 2. Over the Philistines themselves, who were sorely plagued with emerods, and made weary of the ark; the men of Ashdod first (2Sa 5:6,7), then the men of Gath (2Sa 5:8,9), and lastly those of Ekron, which forced them at length upon a resolution to send the ark back to the land of Israel; for when God judgeth he will overcome.
 

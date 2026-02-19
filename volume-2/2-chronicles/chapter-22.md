@@ -1,8 +1,11 @@
 ---
+title: "2 Chronicles 22 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "22"
+description: "We read, in the foregoing chapter, of the carrying away of Jehoram\'s sons and his wives; but here we find one of his sons and one of his wives left, his son Ahaziah and his wife At..."
 weight: 22
 ---
 
-# Chapter 22
+# 2 Chronicles 22 
 
 We read, in the foregoing chapter, of the carrying away of Jehoram's sons and his wives; but here we find one of his sons and one of his wives left, his son Ahaziah and his wife Athaliah, both reserved to be the shame and plague of his family. I. Ahaziah was the shame of it as a partaker, 1. In the sin, and, 2. In the destruction, of the house of Ahab, 2Ch 22:1-9. II. Athaliah was the plague of it, for she destroyed all the seed-royal, and usurped the throne, 2Ch 22:10-12.
 

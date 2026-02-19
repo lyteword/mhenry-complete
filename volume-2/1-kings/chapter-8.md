@@ -1,8 +1,11 @@
 ---
+title: "1 Kings 8 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "8"
+description: "The building and furniture of the temple were very glorious, but the dedication of it exceeds in glory as much as prayer and praise, the work of saints, exceed the casting of metal..."
 weight: 8
 ---
 
-# Chapter 8
+# 1 Kings 8 
 
 The building and furniture of the temple were very glorious, but the dedication of it exceeds in glory as much as prayer and praise, the work of saints, exceed the casting of metal and the graving of stones, the work of the craftsman. The temple was designed for the keeping up of the correspondence between God and his people; and here we have an account of the solemnity of their first meeting there. I. The representatives of all Israel were called together (1Ki 8:1,2), to keep a feast to the honour of God, for fourteen days, 1Ki 8:65. II. The priests brought the ark into the most holy place, and fixed it there, 1Ki 8:3-9. III. God took possession of it by a cloud, 1Ki 8:10,11. IV. Solomon, with thankful acknowledgments to God, informed the people touching the occasion of their meeting, 1Ki 8:12-21. V. In a long prayer he recommended to God's gracious acceptance all the prayers that should be made in or towards this place, 1Ki 8:22-53. VI. He dismissed the assembly with a blessing and an exhortation, 1Ki 8:54-61. VII. He offered abundance of sacrifices, on which he and his people feasted, and so parted, with great satisfaction, 1Ki 8:62-66. These were Israel's golden days, days of the Son of man in type.
 

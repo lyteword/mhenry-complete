@@ -1,8 +1,11 @@
 ---
+title: "2 Chronicles 17 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "17"
+description: "Here begin the life and reign of Jehoshaphat, who was one of the first three among the royal worthies, one of the best that ever swayed the sceptre of Judah since David\'s head was ..."
 weight: 17
 ---
 
-# Chapter 17
+# 2 Chronicles 17 
 
 Here begin the life and reign of Jehoshaphat, who was one of the first three among the royal worthies, one of the best that ever swayed the sceptre of Judah since David's head was laid. He was the good son of a good father, so that, as this time, grace ran in the blood, even in the blood-royal. Happy the son that had such a father, to lay a good foundation in him and for him. Happy the father that had such a son, to build so wall upon the foundation he had laid! Happy the kingdom that was blessed with two such kings, two such reigns, together! In this chapter we have, I. His accession to and establishment in the throne, 2Ch 17:1,2,5. II. His personal piety, 2Ch 17:3,4,6. III. The course he took to promote religion in his kingdom, 2Ch 17:7-9. IV. The mighty sway he bore among the neighbours, 2Ch 17:10,11. V. The great strength of his kingdom, both in garrisons and standing forces, 2Ch 17:12-19. Thus was his prosperity the reward of his piety and his piety the brightest grace and ornament of his prosperity.
 

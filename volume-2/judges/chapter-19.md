@@ -1,8 +1,11 @@
 ---
+title: "Judges 19 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "19"
+description: "The three remaining chapters of this book contain a most tragical story of the wickedness of the men of Gibeah, patronised by the tribe of Benjamin, for which that tribe was severe..."
 weight: 19
 ---
 
-# Chapter 19
+# Judges 19 
 
 The three remaining chapters of this book contain a most tragical story of the wickedness of the men of Gibeah, patronised by the tribe of Benjamin, for which that tribe was severely chastised and almost entirely cut off by the rest of the tribes. This seems to have been done not long after the death of Joshua, for it was when there was no king, no judge, in Israel (Jdg 19:1,21:25), and Phinehas was then high priest, Jdg 20:28. These particular iniquities, the Danites' idolatry, and the Benjamites' immorality, let in that general apostasy, Jdg 3:7. The abuse of the Levite's concubine is here very particularly related. I. Her adulterous elopement from him, Jdg 19:1,2. II. His reconciliation to her, and the journey he took to fetch her home, Jdg 19:3. III. Her father's kind entertainment of him, Jdg 19:4-9. IV. The abuse he met with at Gibeah, where, being benighted, he was forced to stop. 1. He was neglected by the men of Gibeah (Jdg 19:10-15) and entertained by an Ephraimite that sojourned among them, Jdg 19:16-21. 2. They set upon him in his quarters, as the Sodomites did on Lot's quests, Jdg 19:22-24. 3. They villainously forced his concubine to death, Jdg 19:25-28. V. The course he took to send notice of this to all the tribes of Israel, Jdg 19:29,30.
 

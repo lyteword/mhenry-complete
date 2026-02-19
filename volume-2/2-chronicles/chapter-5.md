@@ -1,8 +1,11 @@
 ---
+title: "2 Chronicles 5 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "5"
+description: "The temple being built and furnished for God, we have here, I. Possession given to him, by bringing in the dedicated things (2Ch 5:1), but especially the ark, the token of his pres..."
 weight: 5
 ---
 
-# Chapter 5
+# 2 Chronicles 5 
 
 The temple being built and furnished for God, we have here, I. Possession given to him, by bringing in the dedicated things (2Ch 5:1), but especially the ark, the token of his presence, 2Ch 5:2-10. II. Possession taken by him, in a cloud, 2Ch 5:11-14. For if any man open the door of his heart to God he will come in, Re 3:20.
 

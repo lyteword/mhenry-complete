@@ -1,8 +1,11 @@
 ---
+title: "2 Chronicles 32 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "32"
+description: "This chapter continues and concludes the history of the reign of Hezekiah. I. The descent which Sennacherib made upon him, and the care he took to fortify himself, his city, and th..."
 weight: 32
 ---
 
-# Chapter 32
+# 2 Chronicles 32 
 
 This chapter continues and concludes the history of the reign of Hezekiah. I. The descent which Sennacherib made upon him, and the care he took to fortify himself, his city, and the minds of his people, against that enemy, 2Ch 32:1-8. II. The insolent blasphemous letters and messages which Sennacherib sent him, 2Ch 32:9-19. III. The real answer God gave to Sennacherib's blasphemies, and to Hezekiah's prayers, in the total rout of the Assyrian army, to the shame of Sennacherib and the honour of Hezekiah, 2Ch 32:20-23. IV. Hezekiah's sickness and his recovery from that, his sin and his recovery from that, with the honours that attended him living and dead, 2Ch 32:24-33.
 

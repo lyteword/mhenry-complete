@@ -1,8 +1,11 @@
 ---
+title: "Judges 4 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "4"
+description: "The method of the history of Deborah and Barak (the heroes in this chapter) is the same with that before. Here is, I. Israel revolted from God, Jdg 4:1. II. Israel oppressed by Jab..."
 weight: 4
 ---
 
-# Chapter 4
+# Judges 4 
 
 The method of the history of Deborah and Barak (the heroes in this chapter) is the same with that before. Here is, I. Israel revolted from God, Jdg 4:1. II. Israel oppressed by Jabin, Jdg 4:2,3. III. Israel judged by Deborah, Jdg 4:4,5. IV. Israel rescued out of the hands of Jabin. 1. Their deliverance is concerted between Deborah and Barak, Jdg 4:6,9. 2. It is accomplished by their joint-agency. Barak takes the field, Jdg 4:10. Sisera, Jabin's general, meets him, Jdg 4:12,13. Deborah encourages him, Jdg 4:14. And God gives him a complete victory. The army routed, Jdg 4:15,16. The general forced to flee, Jdg 4:17. And where he expected shelter he had his life stolen from him by Jael while he was asleep (Jdg 4:18-21), which completes Barak's triumph (Jdg 4:22) and Israel's deliverance, Jdg 4:23,24.
 

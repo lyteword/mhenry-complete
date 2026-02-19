@@ -1,8 +1,11 @@
 ---
+title: "Esther 8 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "8"
+description: "We left the plotter hanging, and are now to see what becomes of his plot. I. His plot was to raise an estate for himself; and all his estate, being confiscated for treason, is give..."
 weight: 8
 ---
 
-# Chapter 8
+# Esther 8 
 
 We left the plotter hanging, and are now to see what becomes of his plot. I. His plot was to raise an estate for himself; and all his estate, being confiscated for treason, is given to Esther and Mordecai, Es 8:1,2. II. His plot was to ruin the Jews; and as to that, 1. Esther earnestly intercedes for the reversing of the edict against them, Es 8:3-6. 2. It is in effect done by another edict, here published, empowering the Jews to stand up in their own defence against their enemies, Es 8:7-14. III. This occasions great joy to the Jews and all their friends, Es 8:15-17.
 

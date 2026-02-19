@@ -1,8 +1,11 @@
 ---
+title: "1 Kings 13 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "13"
+description: "In the close of the foregoing chapter we left Jeroboam attending his altar at Beth-el, and there we find him in the beginning of this, when he received a testimony from God against..."
 weight: 13
 ---
 
-# Chapter 13
+# 1 Kings 13 
 
 In the close of the foregoing chapter we left Jeroboam attending his altar at Beth-el, and there we find him in the beginning of this, when he received a testimony from God against his idolatry and apostasy. This was sent to him by a prophet, a man of God that lived in Judah, who is the principal subject of the story of this chapter, where we are told, I. What passed between him and the new king. 1. The prophet threatened Jeroboam's altar (1Ki 13:1,2), and gave him a sign (1Ki 13:3), which immediately came to pass, 1Ki 13:5. 2. The king threatened the prophet, and was himself made another sign, by the withering of his hand (1Ki 13:4), and the restoring of it upon his submission and the prophet's intercession, 1Ki 13:6. 3. The prophet refused the kindness offered him thereupon, 1Ki 13:7-10. II. What passed between him and the old prophet. 1. The old prophet fetched him back by a lie, and gave him entertainment, 1Ki 13:11-19. 2. He, for accepting it, in disobedience to the divine command, is threatened with death, 1Ki 13:20-22. And, 3. The threatening is executed, for he is slain by a lion (1Ki 13:23,24), and buried at Beth-el, 1Ki 13:25-32. 4. Jeroboam is hardened in his idolatry, 1Ki 13:33,34. "Thy judgments, Lord, are a great deep."
 

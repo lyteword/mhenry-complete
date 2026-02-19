@@ -1,8 +1,11 @@
 ---
+title: "2 Chronicles 20 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "20"
+description: "We have here, I. The great danger and distress that Jehoshaphat and his kingdom were in from a foreign invasion, 2Ch 20:1,2. II. The pious course he took for their safety, by fasti..."
 weight: 20
 ---
 
-# Chapter 20
+# 2 Chronicles 20 
 
 We have here, I. The great danger and distress that Jehoshaphat and his kingdom were in from a foreign invasion, 2Ch 20:1,2. II. The pious course he took for their safety, by fasting, and praying, and seeking God, 2Ch 20:3-13. III. The assurance which God, by a prophet, immediately gave them of victory, 2Ch 20:14-17. IV. Their thankful believing reception of those assurances, 2Ch 20:18-21. V. The defeat which God gave to their enemies thereupon, 2Ch 20:22-25. VI. A solemn thanksgiving which they kept for their victory, and for a happy consequences of it, 2Ch 20:26-30. VII. The conclusion of the reign of Jehoshaphat, not without some blemishes, 2Ch 20:31-37.
 

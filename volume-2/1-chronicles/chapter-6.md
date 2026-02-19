@@ -1,8 +1,11 @@
 ---
+title: "1 Chronicles 6 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "6"
+description: "Though Joseph and Judah shared between them the forfeited honours of the birthright, yet Levi was first of all the tribes, dignified and distinguished with an honour more valuable ..."
 weight: 6
 ---
 
-# Chapter 6
+# 1 Chronicles 6 
 
 Though Joseph and Judah shared between them the forfeited honours of the birthright, yet Levi was first of all the tribes, dignified and distinguished with an honour more valuable than either the precedency or the double portion, and that was the priesthood. That tribe God set apart for himself; it was Moses's tribe, and perhaps for his sake was thus favoured. Of that tribe we have an account in this chapter. I. Their pedigree, the first fathers of the tribe (1Ch 6:1-3), the line of the priests, from Aaron to the captivity (1Ch 6:4-15), and of some other of their families, 1Ch 6:16-30. II. Their work, the work of the Levites (1Ch 6:31-48), of the priests, 1Ch 6:49-53. III. The cities appointed them in the land of Canaan, 1Ch 6:54-81.
 

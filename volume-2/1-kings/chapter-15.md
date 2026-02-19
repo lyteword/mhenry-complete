@@ -1,8 +1,11 @@
 ---
+title: "1 Kings 15 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "15"
+description: "In this chapter we have an abstract of the history, I. Of two of the kings of Judah, Abijam, the days of whose reign were few and evil (1Ki 15:1-8), and Asa, who reigned well and l..."
 weight: 15
 ---
 
-# Chapter 15
+# 1 Kings 15 
 
 In this chapter we have an abstract of the history, I. Of two of the kings of Judah, Abijam, the days of whose reign were few and evil (1Ki 15:1-8), and Asa, who reigned well and long, 1Ki 15:9-24. II. Of two of the kings of Israel, Nadab the son of Jeroboam, and Baasha the destroyer of Jeroboam's house, 1Ki 15:25-34.
 

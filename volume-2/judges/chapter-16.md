@@ -1,8 +1,11 @@
 ---
+title: "Judges 16 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "16"
+description: "Samson\'s name (we have observed before) signifies a little sun (sol parvus); we have seen this sun rising very bright, and his morning ray strong and clear; and, nothing appearing ..."
 weight: 16
 ---
 
-# Chapter 16
+# Judges 16 
 
 Samson's name (we have observed before) signifies a little sun (sol parvus); we have seen this sun rising very bright, and his morning ray strong and clear; and, nothing appearing to the contrary, we take it for granted that the middle of the day was proportionably illustrious, while he judged Israel twenty years; but the melancholy story of this chapter gives us such an account of his evening as did not commend his day. This little sun set under a cloud, and yet, just in the setting, darted forth one such strong and glorious beam as made him even then a type of Christ, conquering by death. Here is, I. Samson greatly endangered by his familiarity with one harlot, and hardly escaping, Jdg 16:1-3. II. Samson quite ruined by his familiarity with another harlot, Delilah. Observe, 1. How he was betrayed to her by his own lusts, Jdg 16:4. 2. How he was betrayed by her to his sworn enemies, the Philistines, who, (1.) By her means got it out of him at last where his great strength lay, Jdg 16:5-17. (2.) Then robbed him of his strength, by taking from his head the crown of his separation, Jdg 16:18-20. (3.) Then seized him, blinded him, imprisoned him, abused him, and, at a solemn festival, made a show of him, Jdg 16:21-25. But, lastly, he avenged himself of them by pulling down the theatre upon their heads, and so dying with them, Jdg 16:26-31.
 

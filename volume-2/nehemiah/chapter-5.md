@@ -1,8 +1,11 @@
 ---
+title: "Nehemiah 5 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "5"
+description: "How bravely Nehemiah, as a wise and faithful governor, stood upon his guard against the attacks of enemies abroad, we read in the foregoing chapter. Here we have him no less bold a..."
 weight: 5
 ---
 
-# Chapter 5
+# Nehemiah 5 
 
 How bravely Nehemiah, as a wise and faithful governor, stood upon his guard against the attacks of enemies abroad, we read in the foregoing chapter. Here we have him no less bold and active to redress grievances at home, and, having kept them from being destroyed by their enemies, to keep them from destroying one another. Here is, I. The complaint which the poor made to him of the great hardships which the rich (of whom they were forced to borrow money) put upon them, Ne 5:1-5. II. The effectual course which Nehemiah took both to reform the oppressors and to relieve the oppressed, Ne 5:6-13. III. The good example which he himself, as governor, set them of compassion and tenderness, Ne 5:14-19.
 

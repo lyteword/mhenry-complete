@@ -1,8 +1,11 @@
 ---
+title: "1 Samuel 31 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "31"
+description: "In the foregoing chapter we had David conquering, yea, more than a conqueror. In this chapter we have Saul conquered and worse than a captive. Providence ordered it that both these..."
 weight: 31
 ---
 
-# Chapter 31
+# 1 Samuel 31 
 
 In the foregoing chapter we had David conquering, yea, more than a conqueror. In this chapter we have Saul conquered and worse than a captive. Providence ordered it that both these things should be doing just at the same time. The very same day; perhaps, that David was triumphing over the Amalekites, were the Philistines triumphing over Saul. One is set over against the other, that men may see what comes of trusting in God and what comes of forsaking him. We left Saul ready to engage the Philistines, with a shaking hand and an aching heart, having had his doom read him from hell, which he would not regard when it was read him from heaven. Let us now see what becomes of him. Here is, I. His army routed, 1Sa 31:1. II. His three sons slain, 1Sa 31:2. III. Himself wounded (1Sa 31:3), and slain by his own hand, 1Sa 31:4. The death of his armour-bearer (1Sa 31:5) and all his men, 1Sa 31:6. IV. His country possessed by the Philistines, 1Sa 31:7. His camp plundered, and his dead body deserted, 1Sa 31:8. His fall triumphed in, 1Sa 31:9. His body publicly exposed (1Sa 31:10) and with difficulty rescued by the men of Jabesh-Gilead, 1Sa 31:11-13. Thus fell the man that was rejected of God.
 

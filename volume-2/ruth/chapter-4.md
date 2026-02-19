@@ -1,8 +1,11 @@
 ---
+title: "Ruth 4 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "4"
+description: "In this chapter we have the wedding between Boaz and Ruth, in the circumstances of which there was something uncommon, which is kept upon record for the illustration, not only of t..."
 weight: 4
 ---
 
-# Chapter 4
+# Ruth 4 
 
 In this chapter we have the wedding between Boaz and Ruth, in the circumstances of which there was something uncommon, which is kept upon record for the illustration, not only of the law concerning the marrying of a brother's widow (De 25:5-10, etc.), for cases help to expound laws, but of the gospel too, for from this marriage descended David, and the Son of David, whose espousals to the Gentile church were hereby typified. We are here told, I. How Boaz got clear of his rival, and fairly shook him off, Ru 4:1-8. II. How his marriage with Ruth was publicly solemnized, and attended with the good wishes of his neighbours, Ru 4:9-12. III. The happy issue that descended from this marriage, Obed, the grandfather of David, Ru 4:13-17. And so the book concludes with the pedigree of David, Ru 4:18-22. Perhaps it was to oblige him that the blessed Spirit directed the inserting of this story in the sacred canon, he being desirous that the virtues of his great-grandmother Ruth, together with her Gentile extraction and the singular providences that attended her, should be transmitted to posterity.
 

@@ -1,8 +1,11 @@
 ---
+title: "2 Samuel 15 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "15"
+description: "Absalom\'s name signifies \"the peace of his father,\" yet he proves his greatest trouble; so often are we disappointed in our expectations from the creature. The sword entailed upon ..."
 weight: 15
 ---
 
-# Chapter 15
+# 2 Samuel 15 
 
 Absalom's name signifies "the peace of his father," yet he proves his greatest trouble; so often are we disappointed in our expectations from the creature. The sword entailed upon David's house had hitherto been among his children, but now it begins to be drawn against himself, with this aggravation, that he may thank himself for it, for, had he done justice upon the murderer, he would have prevented the traitor. The story of Absalom's rebellion begins with this chapter, but we must go over three or four more before we see the end of it. In this chapter we have, I. The arts Absalom used to insinuate himself into the people's affections, 2Sa 15:1-6. II. His open avowal of his pretensions to the crown at Hebron, whither he went under colour of a vow, and the strong party that appeared for him there, 2Sa 15:7-12. III. The notice brought of this to David, and his flight from Jerusalem thereupon, 2Sa 15:13-18. In his flight we are told, 1. What passed between him and Ittai, 2Sa 15:19-22. 2. The concern of the country for him, 2Sa 15:23. 3. His conference with Zadok, 2Sa 15:24-29. 4. His tears and prayers upon this occasion, 2Sa 15:30-31. 5. Matters concerted by him with Hushai, 2Sa 15:32-37. Now the word of God was fulfilled, that he would "raise up evil against him out of his own house," 2Sa 12:11.
 

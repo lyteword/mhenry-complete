@@ -1,8 +1,11 @@
 ---
+title: "2 Samuel 9 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "9"
+description: "The only thing recorded in this chapter is the kindness David showed to Jonathan\'s seed for his sake. I. The kind enquiry he made after the remains of the house of Saul, and his di..."
 weight: 9
 ---
 
-# Chapter 9
+# 2 Samuel 9 
 
 The only thing recorded in this chapter is the kindness David showed to Jonathan's seed for his sake. I. The kind enquiry he made after the remains of the house of Saul, and his discovery of Mephibosheth, 2Sa 9:1-4. II. The kind reception he gave to Mephibosheth, when he was brought to him, 2Sa 9:5-8. III. The kind provision he made for him and his, 2Sa 9:9-13.
 

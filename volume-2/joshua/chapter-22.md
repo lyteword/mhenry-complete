@@ -1,8 +1,11 @@
 ---
+title: "Joshua 22 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "22"
+description: "Many particular things we have read concerning the two tribes and a half, though nothing separated them from the rest of the tribes except the river Jordan, and this chapter is who..."
 weight: 22
 ---
 
-# Chapter 22
+# Joshua 22 
 
 Many particular things we have read concerning the two tribes and a half, though nothing separated them from the rest of the tribes except the river Jordan, and this chapter is wholly concerning them. I. Joshua's dismission of the militia of those tribes from the camp of Israel, in which the had served as auxiliaries, during all the wars of Canaan, and their return thereupon to their own country, Jos 22:1-9. II. The altar they built on the borders of Jordan, in token of their communion with the land of Israel, Jos 22:10. III. The offence which the rest of the tribes took at this altar, and the message they sent thereupon, Jos 22:11-20. IV. The apology which the two tribes and a half made for what they had done, Jos 22:21-29. V. The satisfaction which their apology gave to the rest of the tribes, Jos 22:30-34. And (which is strange), whereas in most differences that happen there is a fault on both sides, on this there was fault on no side; none (for aught that appears) were to be blamed, but all to be praised.
 

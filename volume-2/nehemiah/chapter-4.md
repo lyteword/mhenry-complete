@@ -1,8 +1,11 @@
 ---
+title: "Nehemiah 4 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "4"
+description: "We left all hands at work for the building of the wall about Jerusalem. But such good work is not wont to be carried on without opposition; now here we are told what opposition was..."
 weight: 4
 ---
 
-# Chapter 4
+# Nehemiah 4 
 
 We left all hands at work for the building of the wall about Jerusalem. But such good work is not wont to be carried on without opposition; now here we are told what opposition was given to it, and what methods Nehemiah took to forward the work, notwithstanding that opposition. I. Their enemies reproached and ridiculed their undertaking, but their scoffs they answered with prayers: they heeded them not, but went on with their work notwithstanding, Ne 2:1-6. II. They formed a bloody design against them, to hinder them by force of arms, Ne 2:7,8,10-12. To guard against this Nehemiah prayed (Ne 2:9), set guards (Ne 2:13), and encouraged them to fight (Ne 2:14), by which the design was broken (Ne 2:15), and so the work was carried on with all needful precaution against a surprise, Ne 2:16-23. In all this Nehemiah approved himself a man of great wisdom and courage, as well as great piety.
 

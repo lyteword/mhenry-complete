@@ -1,8 +1,11 @@
 ---
+title: "1 Kings 19 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "19"
+description: "We left Elijah at the entrance of Jezreel, still appearing publicly, and all the people\'s eyes upon him. In this chapter we have him again absconding, and driven into obscurity, at..."
 weight: 19
 ---
 
-# Chapter 19
+# 1 Kings 19 
 
 We left Elijah at the entrance of Jezreel, still appearing publicly, and all the people's eyes upon him. In this chapter we have him again absconding, and driven into obscurity, at a time when he could ill be spared; but we are to look upon it as a punishment to Israel for the insincerity and inconstancy of their reformation. When people will not learn it is just with God to remove their teachers into corners. Now observe, I. How he was driven into banishment by the malice of Jezebel his sworn enemy, 1Ki 19:1-3. II. How he was met, in his banishment, by the favour of God, his covenant-friend. 1. How God fed him, 1Ki 19:4-8. 2. How he conversed with him, and manifested himself to him (1Ki 19:9,11-13), heard his complaint (1Ki 19:10-14), directed him what to do (1Ki 19:15-17), and encouraged him, 1Ki 19:18. III. How his hands were strengthened, at his return out of banishment, by the joining of Elisha with him, 1Ki 19:19-21.
 

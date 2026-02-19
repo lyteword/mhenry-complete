@@ -1,8 +1,11 @@
 ---
+title: "2 Kings 5 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "5"
+description: "Two more of Elisha\'s miracles are recorded in this chapter. I. The cleansing of Naaman, a Syrian, a stranger, from his leprosy, and there, 1. The badness of his case, 2Ki 5:1. 2. T..."
 weight: 5
 ---
 
-# Chapter 5
+# 2 Kings 5 
 
 Two more of Elisha's miracles are recorded in this chapter. I. The cleansing of Naaman, a Syrian, a stranger, from his leprosy, and there, 1. The badness of his case, 2Ki 5:1. 2. The providence that brought him to Elisha, the intelligence given him by a captive maid, 2Ki 5:2-4. A letter from the king of Syria to the king of Israel, to introduce him, 2Ki 5:5-7. And the invitation Elisha sent him, 2Ki 5:8. 3. The method prescribed for his cure, his submission, with much ado, to that method, and his cure thereby, 2Ki 5:9-14. 4. The grateful acknowledgments he made to Elisha hereupon, 2Ki 5:15-19. II. The smiting of Gehazi, his own servant, with that leprosy. 1. Gehazi's sins, which were belying his master to Naaman (2Ki 5:20-24), and lying to his master when he examined him, 2Ki 5:25. 2. His punishment for these sins. Naaman's leprosy was entailed on his family, 2Ki 5:26,27. And, if Naaman's cure was typical of the calling of the Gentiles, as our Saviour seems to make it (Lu 4:27), Gehazi's stroke may be looked upon as typical of the blinding and rejecting of the Jews, who envied God's grace to the Gentiles, as Gehazi envied Elisha's favour to Naaman.
 

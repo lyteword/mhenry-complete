@@ -1,8 +1,11 @@
 ---
+title: "2 Chronicles 33 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "33"
+description: "In this chapter we have the history of the reign, I. Of Manasseh, who reigned long. 1. His wretched apostasy from God, and revolt to idolatry and all wickedness, 2Ch 33:1-10. 2. Hi..."
 weight: 33
 ---
 
-# Chapter 33
+# 2 Chronicles 33 
 
 In this chapter we have the history of the reign, I. Of Manasseh, who reigned long. 1. His wretched apostasy from God, and revolt to idolatry and all wickedness, 2Ch 33:1-10. 2. His happy return to God in his affliction; his repentance (2Ch 33:11-13), his reformation (2Ch 33:15-17), and prosperity (2Ch 33:14), with the conclusion of his reign, 2Ch 33:18-20. II. Of Amon, who reigned very wickedly (2Ch 33:21-23), and soon ended his days unhappily, 2Ch 33:24,25.
 

@@ -1,8 +1,11 @@
 ---
+title: "1 Chronicles 22 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "22"
+description: "\"Out of the eater comes forth meat.\" It was upon occasion of the terrible judgment inflicted on Israel for the sin of David that God gave intimation of the setting up of another al..."
 weight: 22
 ---
 
-# Chapter 22
+# 1 Chronicles 22 
 
 "Out of the eater comes forth meat." It was upon occasion of the terrible judgment inflicted on Israel for the sin of David that God gave intimation of the setting up of another altar, and of the place where he would have the temple to be built, upon which David was excited with great vigour to make preparation for that great work, wherein, though he had long since designed it, it should seem, he had, of late, grown remiss, till awakened by the alarm of that judgment. The tokens of God's favour he received after those of his displeasure, I. Directed him to the place, 1Ch 22:1. II. Encouraged and quickened him to the work. 1. He set himself to prepare for the building, 1Ch 22:2-5. 2. He instructed Solomon, and gave him a charge concerning this work, 1Ch 22:6-16. 3. He commanded the princes to assist him in it, 1Ch 22:17-19. There is a great deal of difference between the frame of David's spirit in the beginning of the former chapter and in the beginning of this. There, in the pride of his heart, he was numbering the people; here, in his humility, preparing for the service of God. There corruption was uppermost (but the well of living water in the soul, though it may be muddied, will work itself clear again); grace here has recovered the upper hand.
 

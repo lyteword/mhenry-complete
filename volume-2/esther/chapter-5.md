@@ -1,8 +1,11 @@
 ---
+title: "Esther 5 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "5"
+description: "The last news we had of Haman left him in his cups, Es 3:15. Our last news of queen Esther left her in tears, fasting and praying. Now this chapter brings in, I. Esther in her joys..."
 weight: 5
 ---
 
-# Chapter 5
+# Esther 5 
 
 The last news we had of Haman left him in his cups, Es 3:15. Our last news of queen Esther left her in tears, fasting and praying. Now this chapter brings in, I. Esther in her joys, smiled upon by the king and honoured with his company at her banquet of wine, Es 5:1-8. II. Haman upon the fret, because he had not Mordecai's cap and knee, and with great indignation setting up a gallows for him, Es 5:9-14. Thus those that sow in tears shall reap in joy, but the triumphing of the wicked is short.
 

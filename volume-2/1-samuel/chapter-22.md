@@ -1,8 +1,11 @@
 ---
+title: "1 Samuel 22 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "22"
+description: "David, being driven from Achish, returns into the land of Israel to be hunted by Saul. I. David sets up his standard in the cave of Adullam, entertains his relations (1Sa 22:1), en..."
 weight: 22
 ---
 
-# Chapter 22
+# 1 Samuel 22 
 
 David, being driven from Achish, returns into the land of Israel to be hunted by Saul. I. David sets up his standard in the cave of Adullam, entertains his relations (1Sa 22:1), enlists soldiers (1Sa 22:2), but removes his aged parents to a more quiet settlement (1Sa 22:3,4), and has the prophet Gad for his counsellor, 1Sa 22:5. Saul resolves to pursue him and find him out, complains of his servants and Jonathan (1Sa 22:6-8), and, finding by Doeg's information that Ahimelech had been kind to David, he ordered him and all the priests that were with him, eighty-five in all, to be put to death, and all that belonged to them destroyed (1Sa 22:9-19) from the barbarous execution of which sentence Abiathar escaped to David, 1Sa 22:20-23.
 
