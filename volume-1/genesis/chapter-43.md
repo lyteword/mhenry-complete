@@ -1,7 +1,7 @@
 ---
 title: "Genesis 43 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "43"
-description: "Here the story of Joseph's brethren is carried on, and very particularly related. I. Their melancholy parting with their father Jacob in Canaan, Ge 43:1-14. II. Their pleasant meet..."
+description: "Here the story of Joseph\'s brethren is carried on, and very particularly related. I. Their melancholy parting with their father Jacob in Canaan, Ge 43:1-14. II. Their pleasant meet..."
 weight: 43
 ---
 

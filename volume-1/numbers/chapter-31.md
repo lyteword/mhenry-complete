@@ -1,7 +1,7 @@
 ---
 title: "Numbers 31 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "31"
-description: "This chapter belongs to "the book of the wars of the Lord," in which it is probable it was inserted. It is the history of a holy war, a war with Midian. Here is, I. A divine comman..."
+description: "This chapter belongs to \"the book of the wars of the Lord,\" in which it is probable it was inserted. It is the history of a holy war, a war with Midian. Here is, I. A divine comman..."
 weight: 31
 ---
 

@@ -1,7 +1,7 @@
 ---
 title: "Genesis 38 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "38"
-description: "This chapter gives us an account of Judah and his family, and such an account it is that one would wonder that, of all Jacob's sons, our Lord should spring out of Judah, Heb 7:14. ..."
+description: "This chapter gives us an account of Judah and his family, and such an account it is that one would wonder that, of all Jacob\'s sons, our Lord should spring out of Judah, Heb 7:14. ..."
 weight: 38
 ---
 

@@ -1,7 +1,7 @@
 ---
 title: "Genesis 10 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "10"
-description: "This chapter shows more particularly what was said in general (Ge 9:19), concerning the three sons of Noah, that "of them was the whole earth overspread;" and the fruit of that ble..."
+description: "This chapter shows more particularly what was said in general (Ge 9:19), concerning the three sons of Noah, that \"of them was the whole earth overspread;\" and the fruit of that ble..."
 weight: 10
 ---
 

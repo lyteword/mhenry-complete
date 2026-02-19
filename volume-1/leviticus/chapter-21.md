@@ -1,7 +1,7 @@
 ---
 title: "Leviticus 21 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "21"
-description: "This chapter might borrow its title from Mal 2:1, "And now, O you priests, this commandment is for you." It is a law obliging priests with the utmost care and jealousy to preserve ..."
+description: "This chapter might borrow its title from Mal 2:1, \"And now, O you priests, this commandment is for you.\" It is a law obliging priests with the utmost care and jealousy to preserve ..."
 weight: 21
 ---
 

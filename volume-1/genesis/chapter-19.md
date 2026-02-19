@@ -1,7 +1,7 @@
 ---
 title: "Genesis 19 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "19"
-description: "The contents of this chapter we have, 2Pe 2:6-8, where we find that "God, turning the cities of Sodom and Gomorrah into ashes, condemned them with an overthrow, and delivered just ..."
+description: "The contents of this chapter we have, 2Pe 2:6-8, where we find that \"God, turning the cities of Sodom and Gomorrah into ashes, condemned them with an overthrow, and delivered just ..."
 weight: 19
 ---
 

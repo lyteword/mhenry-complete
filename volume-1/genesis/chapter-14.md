@@ -1,7 +1,7 @@
 ---
 title: "Genesis 14 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "14"
-description: "We have four things in the story of this chapter. I. A war with the king of Sodom and his allies, Ge 14:1-11. II. The captivity of Lot in that war, Ge 14:12. III. Abram's rescue of..."
+description: "We have four things in the story of this chapter. I. A war with the king of Sodom and his allies, Ge 14:1-11. II. The captivity of Lot in that war, Ge 14:12. III. Abram\'s rescue of..."
 weight: 14
 ---
 

@@ -1,7 +1,7 @@
 ---
 title: "Genesis 45 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "45"
-description: "It is a pity that this chapter and the foregoing should be parted, and read asunder. There we had Judah's intercession for Benjamin, with which, we may suppose, the rest of his bre..."
+description: "It is a pity that this chapter and the foregoing should be parted, and read asunder. There we had Judah\'s intercession for Benjamin, with which, we may suppose, the rest of his bre..."
 weight: 45
 ---
 

@@ -1,7 +1,7 @@
 ---
 title: "Deuteronomy 7 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "7"
-description: "Moses in this chapter exhorts Israel, I. In general, to keep God's commandments, De 8:11,12. II. In particular, and in order to that, to keep themselves pure from all communion wit..."
+description: "Moses in this chapter exhorts Israel, I. In general, to keep God\'s commandments, De 8:11,12. II. In particular, and in order to that, to keep themselves pure from all communion wit..."
 weight: 7
 ---
 

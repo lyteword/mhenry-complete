@@ -1,7 +1,7 @@
 ---
 title: "Genesis 30 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "30"
-description: "In this chapter we have an account of the increase, I. Of Jacob's family. Eight children more we find registered in this chapter; Dan and Naphtali by Bilhah, Rachel's maid, Ge 30:1..."
+description: "In this chapter we have an account of the increase, I. Of Jacob\'s family. Eight children more we find registered in this chapter; Dan and Naphtali by Bilhah, Rachel\'s maid, Ge 30:1..."
 weight: 30
 ---
 
