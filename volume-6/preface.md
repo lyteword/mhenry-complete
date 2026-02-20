@@ -1,7 +1,11 @@
 ---
-title: Preface - Volume VI
+title: "Preface - Volume 6 | Read the Matthew Henry Concise Bible Commentary Online"
+linkTitle: "Preface"
+description: "After much expectation, and many enquiries, the last volume of the late reverend Mr. Henry's Exposition now appears in the world..."
 weight: 1
 ---
+
+# Preface to Volume VI
 
 After much expectation, and many enquiries, the last volume of the late reverend Mr. Henry's Exposition now appears in the world. The common disadvantages that attend posthumous productions will doubtless be discerned in this; but we hope, though there are diversities of gifts, there will be found to be the same spirit. Some of the relations and hearers of that excellent person have been at the pains of transcribing the notes they took in short-hand of this part of the holy scripture, when expounded by him in his family or in the congregation; they have furnished us with very good materials for the finishing of this great work, and we doubt not but that the ministers who have been concerned in it have made that use of those assistances which may entitle this composure to the honour of Mr. Henry's name; and, if so, they can very willingly conceal their own.
 
