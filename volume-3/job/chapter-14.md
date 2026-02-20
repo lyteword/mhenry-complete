@@ -1,8 +1,11 @@
 ---
+title: "Job 14 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "14"
+description: "Job had turned from speaking to his friends, finding it to no purpose to reason with them, and here he goes on to speak to God and himself. He had reminded his friends of their fra..."
 weight: 14
 ---
 
-# Chapter 14
+# Job 14 
 
 Job had turned from speaking to his friends, finding it to no purpose to reason with them, and here he goes on to speak to God and himself. He had reminded his friends of their frailty and mortality (Job 13:12); here he reminds himself of his own, and pleads it with God for some mitigation of his miseries. We have here an account, I. Of man's life, that it is, 1. Short, Job 14:1. 2. Sorrowful, Job 14:1. 3. Sinful, Job 14:4. 4. Stinted, Job 14:5,14. II. Of man's death, that it puts a final period to our present life, to which we shall not again return (Job 14:7-12), that it hides us from the calamities of life (Job 14:13), destroys the hopes of life (Job 14:18,19), sends us away from the business of life (Job 14:20), and keeps us in the dark concerning our relations in this life, how much soever we have formerly been in care about them Job 14:21,22. III. The use Job makes of all this. 1. He pleads it with God, who, he thought, was too strict and severe with him (Job 14:16,17), begging that, in consideration of his frailty, he would not contend with him (Job 14:3), but grant him some respite, Job 14:6. 2. He engages himself to prepare for death (Job 14:14), and encourages himself to hope that it would be comfortable to him, Job 14:15. This chapter is proper for funeral solemnities; and serious meditations on it will help us both to get good by the death of others and to get ready for our own.
 

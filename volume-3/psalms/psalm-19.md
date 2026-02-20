@@ -1,4 +1,7 @@
 ---
+title: "Psalm 19 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "19"
+description: "There are two excellent books which the great God has published for the instruction and edification of the children of men; this psalm treats of them both, and recommends them both..."
 weight: 19
 ---
 

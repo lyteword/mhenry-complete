@@ -1,4 +1,7 @@
 ---
+title: "Psalm 107 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "107"
+description: "The psalmist, having in the two foregoing psalms celebrated the wisdom, power, and goodness of God, in his dealings with his church in particular, here observes some of the instanc..."
 weight: 107
 ---
 

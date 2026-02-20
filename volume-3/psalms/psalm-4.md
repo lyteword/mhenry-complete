@@ -1,4 +1,7 @@
 ---
+title: "Psalm 4 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "4"
+description: "David was a preacher, a royal preacher, as well as Solomon; many of his psalms are doctrinal and practical as well as devotional; the greatest part of this psalm is so, in which Wi..."
 weight: 4
 ---
 

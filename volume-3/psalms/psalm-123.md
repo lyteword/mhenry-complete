@@ -1,4 +1,7 @@
 ---
+title: "Psalm 123 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "123"
+description: "This psalm was penned at a time when the church of God was brought low and trampled upon; some think it was when the Jews were captives in Babylon, though that was not the only tim..."
 weight: 123
 ---
 

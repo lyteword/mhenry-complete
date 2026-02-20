@@ -1,8 +1,12 @@
 ---
+title: "Proverbs 21 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "21"
+description: "## Miscellaneous Maxims
+"
 weight: 21
 ---
 
-# Chapter 21
+# Proverbs 21 
 
 ## Miscellaneous Maxims
 

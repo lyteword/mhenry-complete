@@ -1,4 +1,7 @@
 ---
+title: "Psalm 1 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "1"
+description: "This is a psalm of instruction concerning good and evil, setting before us life and death, the blessing and the curse, that we may take the right way which leads to happiness and a..."
 weight: 1
 ---
 

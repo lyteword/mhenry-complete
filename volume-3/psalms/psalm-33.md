@@ -1,4 +1,7 @@
 ---
+title: "Psalm 33 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "33"
+description: "This is a psalm of praise; it is probable that David was the penman of it, but we are not told so, because God would have us look above the penmen of sacred writ, to that blessed S..."
 weight: 33
 ---
 

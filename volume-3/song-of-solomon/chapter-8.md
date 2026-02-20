@@ -1,8 +1,11 @@
 ---
+title: "Song Of Solomon 8 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "8"
+description: "The affections between Christ and his spouse are as strong and lively here, in this closing chapter of the song, as ever, and rather more so. I. The spouse continues her importunit..."
 weight: 8
 ---
 
-# Chapter 8
+# Song Of Solomon 8 
 
 The affections between Christ and his spouse are as strong and lively here, in this closing chapter of the song, as ever, and rather more so. I. The spouse continues her importunity for a more intimate communion and fellowship with him, So 8:1-3. II. She charges the daughters of Jerusalem not to interrupt her communion with her beloved (So 8:4); and they, thereupon, admire her dependence on him, So 8:5. III. She begs of her beloved, whom she raises up by her prayers (So 8:5), that he would by his grace confirm that blessed union with him to which she was admitted, So 8:6,7. IV. She makes intercession for others also, that care might be taken of them (So 8:8,9), and pleases herself with the thoughts of her own interest in Christ and his affection to her, So 8:10. V. She owns herself his tenant for a vineyard she held of him at Baal-hamon, So 8:11,12. VI. The song concludes with an interchanging of parting requests. Christ charges his spouse that she should often let him hear from her (So 8:13), and she begs of him that he would hasten his return to her, So 8:14).
 

@@ -1,4 +1,7 @@
 ---
+title: "Psalm 14 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "14"
+description: "It does not appear upon what occasion this psalm was penned nor whether upon any particular occasion. Some say David penned it when Saul persecuted him; others, when Absalom rebell..."
 weight: 14
 ---
 

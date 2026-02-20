@@ -1,4 +1,7 @@
 ---
+title: "Psalm 104 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "104"
+description: "It is very probable that this psalm was penned by the same hand, and at the same time, as the former; for as that ended this begins, with \"Bless the Lord, O my soul!\" and concludes..."
 weight: 104
 ---
 

@@ -1,8 +1,12 @@
 ---
+title: "Proverbs 15 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "15"
+description: "## The Proper Use of the Tongue
+"
 weight: 15
 ---
 
-# Chapter 15
+# Proverbs 15 
 
 ## The Proper Use of the Tongue
 

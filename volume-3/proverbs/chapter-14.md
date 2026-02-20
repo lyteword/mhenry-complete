@@ -1,8 +1,12 @@
 ---
+title: "Proverbs 14 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "14"
+description: "## Wisdom and Folly
+"
 weight: 14
 ---
 
-# Chapter 14
+# Proverbs 14 
 
 ## Wisdom and Folly
 

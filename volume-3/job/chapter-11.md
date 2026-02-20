@@ -1,8 +1,11 @@
 ---
+title: "Job 11 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "11"
+description: "Poor Job\'s wound\'s were yet bleeding, his sore still runs and ceases not, but none of his friends bring him any oil, any balm; Zophar, the third, pours into them as much vinegar as..."
 weight: 11
 ---
 
-# Chapter 11
+# Job 11 
 
 Poor Job's wound's were yet bleeding, his sore still runs and ceases not, but none of his friends bring him any oil, any balm; Zophar, the third, pours into them as much vinegar as the two former had done. I. He exhibits a very high charge against Job, as proud and false in justifying himself, Job 11:1-4. II. He appeals to God for his conviction, and begs that God would take him to task (Job 11:5) and that Job might be made sensible, 1. Of God's unerring wisdom and his inviolable justice, Job 11:6. 2. Of his unsearchable perfections, Job 11:7-9. 3. Of his incontestable sovereignty and uncontrollable power, Job 11:10. 4. Of the cognizance he takes of the children of men, Job 11:11,12. III. He assures him that, upon his repentance and reformation (Job 11:13,14), God would restore him to his former prosperity and safety (Job 11:15-19); but that, if he were wicked it was in vain to expect it, Job 11:20.
 

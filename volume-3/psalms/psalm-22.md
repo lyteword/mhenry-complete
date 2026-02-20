@@ -1,4 +1,7 @@
 ---
+title: "Psalm 22 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "22"
+description: "The Spirit of Christ, which was in the prophets, testifies in this psalm, as clearly and fully as any where in all the Old Testament, \"the sufferings of Christ and the glory that s..."
 weight: 22
 ---
 

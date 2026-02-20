@@ -1,4 +1,7 @@
 ---
+title: "Psalm 137 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "137"
+description: "There are divers psalms which are thought to have been penned in the latter days of the Jewish church, when prophecy was near expiring and the canon of the Old Testament ready to b..."
 weight: 137
 ---
 

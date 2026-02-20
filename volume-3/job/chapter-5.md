@@ -1,8 +1,11 @@
 ---
+title: "Job 5 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "5"
+description: "Eliphaz, in the foregoing chapter, for the making good of his charge against Job, had vouched a word from heaven, sent him in a vision. In this chapter he appeals to those that bea..."
 weight: 5
 ---
 
-# Chapter 5
+# Job 5 
 
 Eliphaz, in the foregoing chapter, for the making good of his charge against Job, had vouched a word from heaven, sent him in a vision. In this chapter he appeals to those that bear record on earth, to the saints, the faithful witnesses of God's truth in all ages, Job 5:1. They will testify, I. That the sin of sinners is their ruin, Job 5:2-5. II. That yet affliction is the common lot of mankind, Job 5:6,7. III. That when we are in affliction it is our wisdom and duty to apply to God, for he is able and ready to help us, Job 5:8-16. IV. That the afflictions which are borne well will end well; and Job particularly, if he would come to a better temper, might assure himself that God had great mercy in store for him, Job 5:17-27. So that he concludes his discourse in somewhat a better humour than he began it.
 

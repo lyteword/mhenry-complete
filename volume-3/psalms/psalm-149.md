@@ -1,4 +1,7 @@
 ---
+title: "Psalm 149 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "149"
+description: "The foregoing psalm was a hymn of praise to the Creator; this is a hymn of praise to the Redeemer. It is a psalm of triumph in the God of Israel, and over the enemies of Israel. Pr..."
 weight: 149
 ---
 

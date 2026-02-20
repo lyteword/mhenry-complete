@@ -1,8 +1,11 @@
 ---
+title: "Job 26 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "26"
+description: "This is Job\'s short reply to Bildad\'s short discourse, in which he is so far from contradicting him that he confirms what he had said, and out-does him in magnifying God and settin..."
 weight: 26
 ---
 
-# Chapter 26
+# Job 26 
 
 This is Job's short reply to Bildad's short discourse, in which he is so far from contradicting him that he confirms what he had said, and out-does him in magnifying God and setting forth his power, to show what reason he had still to say, as he did (Job 13:2), "What you know, the same do I know also." I. He shows that Bildad's discourse was foreign to the matter he was discoursing of—though very true and good, yet not to the purpose, Job 26:2-4. II. That it was needless to the person he was discoursing with; for he knew it, and believed it, and could speak of it as well as he and better, and could add to the proofs which he had produced of God's power and greatness, which he does in the rest of his discourse (Job 26:5-15), concluding that, when they had both said what they could, all came short of the merit of the subject and it was still far from being exhausted, Job 26:14.
 

@@ -1,8 +1,11 @@
 ---
+title: "Proverbs 9 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "9"
+description: "Christ and sin are rivals for the soul of man, and here we are told how they both make their court to it, to have the innermost and uppermost place in it. The design of this repres..."
 weight: 9
 ---
 
-# Chapter 9
+# Proverbs 9 
 
 Christ and sin are rivals for the soul of man, and here we are told how they both make their court to it, to have the innermost and uppermost place in it. The design of this representation is to set before us life and death, good and evil; and there needs no more than a fair stating of the case to determine us which of those to choose, and surrender our hearts to. They are both brought in making entertainment for the soul, and inviting it to accept of the entertainment; concerning both we are told what the issue will be; and, the matter being thus laid before us, let us consider, take advice, and speak our minds. And we are therefore concerned to put a value upon our own souls, because we see there is such striving for them. I. Christ, under the name of Wisdom, invites us to accept of his entertainment, and so to enter into acquaintance and communion with him, Pr 9:1-6. And having foretold the different success of his invitation (Pr 9:7-9) he shows, in short, what he requires from us (Pr 9:10) and what he designs for us (Pr 9:11), and then leaves it to our choice what we will do, Pr 9:12. II. Sin, under the character of a foolish woman, courts us to accept of her entertainment, and (Pr 9:13-16) pretends it is very charming, Pr 9:17. But Solomon tells us what the reckoning will be, Pr 9:18. And now choose you, this day, whom you will close with.
 

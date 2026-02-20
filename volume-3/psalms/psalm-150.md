@@ -1,4 +1,7 @@
 ---
+title: "Psalm 150 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "150"
+description: "The first and last of the psalms have both the same number of verses, are both short, and very memorable. But the scope of them is very different: the first psalm is an elaborate i..."
 weight: 150
 ---
 

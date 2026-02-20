@@ -1,4 +1,7 @@
 ---
+title: "Psalm 35 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "35"
+description: "David, in this psalm, appeals to the righteous Judge of heaven and earth against his enemies that hated and persecuted him. It is supposed that Saul and his party are the persons h..."
 weight: 35
 ---
 

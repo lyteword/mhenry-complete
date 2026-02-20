@@ -1,4 +1,7 @@
 ---
+title: "Psalm 80 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "80"
+description: "This psalm is much to the same purport with the foregoing. Some think it was penned upon occasion of the desolation and captivity of the ten tribes, as the foregoing psalm of the t..."
 weight: 80
 ---
 

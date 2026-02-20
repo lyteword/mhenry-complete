@@ -1,4 +1,7 @@
 ---
+title: "Psalm 8 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "8"
+description: "This psalm is a solemn meditation on, and admiration of, the glory and greatness of God, of which we are all concerned to think highly and honourably. It begins and ends with the s..."
 weight: 8
 ---
 

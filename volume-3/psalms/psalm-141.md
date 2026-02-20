@@ -1,4 +1,7 @@
 ---
+title: "Psalm 141 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "141"
+description: "David was in distress when he penned this psalm, pursued, it is most likely, by Saul, that violent man. Is any distressed? Let him pray; David did so, and had the comfort of it. I...."
 weight: 141
 ---
 

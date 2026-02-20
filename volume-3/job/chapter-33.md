@@ -1,8 +1,11 @@
 ---
+title: "Job 33 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "33"
+description: "Pompous prefaces, like the teeming mountain, often introduce poor performances; but Elihu\'s discourse here does not disappoint the expectations which his preface had raised. It is ..."
 weight: 33
 ---
 
-# Chapter 33
+# Job 33 
 
 Pompous prefaces, like the teeming mountain, often introduce poor performances; but Elihu's discourse here does not disappoint the expectations which his preface had raised. It is substantial, and lively, and very much to the purpose. He had, in the foregoing chapter, said what he had to say to Job's three friends; and now he comes up close to Job himself and directs his speech to him. I. He bespeaks Job's favourable acceptance of what he should say, and desires he would take him for that person whom he had so often wished for, that would plead with him, and receive his plea on God's behalf, Job 33:1-7. II. He does, in God's name, bring an action against him, for words which he had spoken, in the heat of disputation, reflecting upon God as dealing hardly with him, Job 33:8-11. III. He endeavours to convince him of his fault and folly herein, by showing him, 1. God's sovereign dominion over man, Job 33:12,13. 2. The care God takes of man, and the various ways and means he uses to do his soul good, which we have reason to think he designs when he lays bodily afflictions upon him, Job 33:14. (1.) Job had sometimes complained of unquiet dreams, Job 7:14. "Why," says Elihu, "God sometimes speaks conviction and instruction to men by such dreams," Job 33:15-18. (2.) Job had especially complained of his sicknesses and pains; and, as to these, he shows largely that they were so far from being tokens of God's wrath, as Job took them, or evidences of Job's hypocrisy, as his friends took them, that they were really wise and gracious methods, which divine grace took for the increase of his acquaintance with God, to work patience, experience, and hope, Job 33:19-30. And, lastly, he concludes with a request to Job, either to answer him or give him leave to go on, Job 33:31-33.
 

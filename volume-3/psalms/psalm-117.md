@@ -1,4 +1,7 @@
 ---
+title: "Psalm 117 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "117"
+description: "This psalm is short and sweet; I doubt the reason why we sing it so often as we do is for the shortness of it; but, if we rightly understood and considered it, we should sing it of..."
 weight: 117
 ---
 

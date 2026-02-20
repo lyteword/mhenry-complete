@@ -1,8 +1,11 @@
 ---
+title: "Job 30 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "30"
+description: "It is a melancholy \"But now\" which this chapter begins with. Adversity is here described as much to the life as prosperity was in the foregoing chapter, and the height of that did ..."
 weight: 30
 ---
 
-# Chapter 30
+# Job 30 
 
 It is a melancholy "But now" which this chapter begins with. Adversity is here described as much to the life as prosperity was in the foregoing chapter, and the height of that did but increase the depth of this. God sets the one over-against the other, and so did Job, that his afflictions might appear the more grievous, and consequently his case the more pitiable. I. He had lived in great honour, but now he had fallen into disgrace, and was as much vilified, even by the meanest, as ever he had been magnified by the greatest; this he insists much on, Job 30:1-14. II. He had had much inward comfort and delight, but now he was a terror and burden to himself (Job 30:15,16) and overwhelmed with sorrow, Job 30:28-31. III. He had long enjoyed a good state of health, but now he was sick and in pain, Job 30:17-19,29,30. IV. Time was when the secret of God was with him, but now his communication with heaven was cut off, Job 30:20-22. V. He had promised himself a long life, but now he saw death at the door, Job 30:23. One thing he mentions, which aggravated his affliction, that it surprised him when he looked for peace. But two things gave him some relief:—1. That his troubles would not follow him to the grave, Job 30:24. 2. That his conscience witnessed for him that, in his prosperity, he had sympathized with those that were in misery, Job 30:25.
 

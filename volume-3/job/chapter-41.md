@@ -1,8 +1,11 @@
 ---
+title: "Job 41 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "41"
+description: "The description here given of the leviathan, a very large, strong, formidable fish, or water-animal, is designed yet further to convince Job of his own impotency, and of God\'s omni..."
 weight: 41
 ---
 
-# Chapter 41
+# Job 41 
 
 The description here given of the leviathan, a very large, strong, formidable fish, or water-animal, is designed yet further to convince Job of his own impotency, and of God's omnipotence, that he might be humbled for his folly in making so bold with him as he had done. I. To convince Job of his own weakness he is here challenged to subdue and tame this leviathan if he can, and make himself master of him (Job 41:1-9), and, since he cannot do this, he must own himself utterly unable to stand before the great God, Job 41:10. II. To convince Job of God's power and terrible majesty several particular instances are here given of the strength and terror of the leviathan, which is no more than what God has given him, nor more than he has under his check, Job 41:11,12. The face of the leviathan is here described to be terrible (Job 41:12,14), his scales close (Job 41:15-17), his breath and neesings sparkling (Job 41:18-21), his flesh firm (Job 41:22-24), his strength and spirit, when he is attacked, insuperable (Job 41:25-30), his motions turbulent, and disturbing to the waters (Job 41:31,32), so that, upon the whole, he is a very terrible creature, and man is no match for him, Job 41:33,34.
 

@@ -1,4 +1,7 @@
 ---
+title: "Psalm 15 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "15"
+description: "The scope of this short but excellent psalm is to show us the way to heaven, and to convince us that, if we would be happy, we must be holy and honest. Christ, who is himself the w..."
 weight: 15
 ---
 

@@ -1,8 +1,11 @@
 ---
+title: "Proverbs 30 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "30"
+description: "This and the following chapter are an appendix to Solomon\'s proverbs; but they are both expressly called prophecies in the Pr 30:1,31:1, by which it appears that the penmen of them..."
 weight: 30
 ---
 
-# Chapter 30
+# Proverbs 30 
 
 This and the following chapter are an appendix to Solomon's proverbs; but they are both expressly called prophecies in the Pr 30:1,31:1, by which it appears that the penmen of them, whoever they were, were divinely inspired. This chapter was penned by one that bears the name of "Agur Ben Jakeh." What tribe he was of, or when he lived, we are not told; what he wrote, being indited by the Holy Ghost, is here kept upon record. We have here, I. His confession of faith, Pr 30:1-6. II. His prayer, Pr 30:7-9. III. A caution against wronging servants, Pr 30:10. IV. Four wicked generations, Pr 30:11-14. V. Four things insatiable (Pr 30:15,16), to which is added fair warning to undutiful children, Pr 30:17. VI. Four things unsearchable, Pr 30:18-20. VII. Four things intolerable, Pr 30:21-23. VIII. Four things little and wise, Pr 30:24-28. IX. Four things stately, Pr 30:29-33.
 

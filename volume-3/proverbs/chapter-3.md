@@ -1,8 +1,11 @@
 ---
+title: "Proverbs 3 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "3"
+description: "This chapter is one of the most excellent in all this book, both for argument to persuade us to be religious and for directions therein. I. We must be constant to our duty because ..."
 weight: 3
 ---
 
-# Chapter 3
+# Proverbs 3 
 
 This chapter is one of the most excellent in all this book, both for argument to persuade us to be religious and for directions therein. I. We must be constant to our duty because that is the way to be happy, Pr 3:1-4. II. We must live a life of dependence upon God because that is the way to be safe, Pr 3:5. III. We must keep up the fear of God because that is the way to be healthful, Pr 3:7,8. IV. We must serve God with our estates because that is the way to be rich, Pr 3:9,10. V. We must hear afflictions well because that is the way to get good by them, Pr 3:11,12. VI. We must take pains to obtain wisdom because that is the way to gain her, and to gain by her, Pr 3:13-20. VII. We must always govern ourselves by the rules of wisdom, of right reason and religion, because that is the way to be always easy, Pr 3:21-26. VIII. We must do all the good we can, and no hurt, to our neighbours, because according as men are just or unjust, charitable or uncharitable, humble or haughty, accordingly they shall receive of God, Pr 3:27-35. From all this it appears what a tendency religion has to make men both blessed and blessings.
 

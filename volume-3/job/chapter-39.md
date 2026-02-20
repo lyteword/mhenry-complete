@@ -1,8 +1,11 @@
 ---
+title: "Job 39 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "39"
+description: "God proceeds here to show Job what little reason he had to charge him with unkindness who was so compassionate to the inferior creatures and took such a tender care of them, or to ..."
 weight: 39
 ---
 
-# Chapter 39
+# Job 39 
 
 God proceeds here to show Job what little reason he had to charge him with unkindness who was so compassionate to the inferior creatures and took such a tender care of them, or to boast of himself, and his own good deeds before God, which were nothing to the divine mercies. He shows him also what great reason he had to be humble who knew so little of the nature of the creatures about him and had so little influence upon them, and to submit to that God on whom they all depend. He discourses particularly, I. Concerning the wild goats and hinds, Job 39:1-4. II. Concerning the wild ass, Job 39:5-8. III. Concerning the unicorn, Job 39:9-12. IV. Concerning the peacock, Job 39:13. V. Concerning the ostrich, Job 39:13-18. VI. Concerning the horse, Job 39:19-25. VII. Concerning the hawk and the eagle, Job 39:26-30.
 

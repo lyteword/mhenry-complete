@@ -1,8 +1,11 @@
 ---
+title: "Job 9 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "9"
+description: "In this and the following chapter we have Job\'s answer to Bildad\'s discourse, wherein he speaks honourably of God, humbly of himself, and feelingly of his troubles; but not one wor..."
 weight: 9
 ---
 
-# Chapter 9
+# Job 9 
 
 In this and the following chapter we have Job's answer to Bildad's discourse, wherein he speaks honourably of God, humbly of himself, and feelingly of his troubles; but not one word by way of reflection upon his friends, or their unkindness to him, nor in direct reply to what Bildad had said. He wisely keeps to the merits of the cause, and makes no remarks upon the person that managed it, nor seeks occasion against him. In this chapter we have, I. The doctrine of God's justice laid down, Job 9:2. II. The proof of it, from his wisdom, and power, and sovereign dominion, Job 9:3-13. III. The application of it, in which, 1. He condemns himself, as not able to contend with God either in law or battle, Job 9:14-21. 2. He maintains his point, that we cannot judge of men's character by their outward condition, Job 9:22-24. 3. He complains of the greatness of his troubles, the confusion he was in, and the loss he was at what to say or do, Job 9:25-35.
 

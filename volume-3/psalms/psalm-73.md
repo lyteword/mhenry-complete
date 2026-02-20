@@ -1,4 +1,7 @@
 ---
+title: "Psalm 73 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "73"
+description: "This psalm, and the ten that next follow it, carry the name of Asaph in the titles of them. If he was the penman of them (as many think), we rightly call them psalms of Asaph. If h..."
 weight: 73
 ---
 

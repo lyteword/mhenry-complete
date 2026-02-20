@@ -1,4 +1,7 @@
 ---
+title: "Psalm 31 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "31"
+description: "It is probable that David penned this psalm when he was persecuted by Saul; some passages in it agree particularly to the narrow escapes he had, at Keilah (1Sa 23:13), then in the ..."
 weight: 31
 ---
 

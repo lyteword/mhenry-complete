@@ -1,4 +1,7 @@
 ---
+title: "Psalm 114 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "114"
+description: "The deliverance of Israel out of Egypt gave birth to their church and nation, which were then founded, then formed; that work of wonder ought therefore to be had in everlasting rem..."
 weight: 114
 ---
 

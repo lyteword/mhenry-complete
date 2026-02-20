@@ -1,8 +1,11 @@
 ---
+title: "Song Of Solomon 5 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "5"
+description: "In this chapter we have, I. Christ\'s gracious acceptance of the invitation which his church had given him, and the kind visit which he made to her, So 5:1. II. The account which th..."
 weight: 5
 ---
 
-# Chapter 5
+# Song Of Solomon 5 
 
 In this chapter we have, I. Christ's gracious acceptance of the invitation which his church had given him, and the kind visit which he made to her, So 5:1. II. The account which the spouse gives of her own folly, in putting a slight upon her beloved, and the distress she was in by reason of his withdrawings, So 5:2-8. III. The enquiry of the daughters of Jerusalem concerning the amiable perfections of her beloved (So 5:9), and her particular answer to that enquiry, So 5:10-16. "Unto you that believe he is thus precious."
 

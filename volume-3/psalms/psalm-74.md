@@ -1,4 +1,7 @@
 ---
+title: "Psalm 74 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "74"
+description: "This psalm does so particularly describe the destruction of Jerusalem and the temple, by Nebuchadnezzar and the army of the Chaldeans, and can so ill be applied to any other event ..."
 weight: 74
 ---
 

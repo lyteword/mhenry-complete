@@ -1,4 +1,7 @@
 ---
+title: "Psalm 130 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "130"
+description: "This psalm relates not to any temporal concern, either personal or public, but it is wholly taken up with the affairs of the soul. It is reckoned one of the seven penitential psalm..."
 weight: 130
 ---
 

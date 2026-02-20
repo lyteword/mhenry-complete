@@ -1,4 +1,7 @@
 ---
+title: "Psalm 97 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "97"
+description: "This psalm dwells upon the same subject, and is set to the same tune, with the foregoing psalm. Christ is the Alpha and the Omega of both; they are both penned, and are both to be ..."
 weight: 97
 ---
 

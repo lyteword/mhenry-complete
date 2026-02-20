@@ -1,8 +1,11 @@
 ---
+title: "Job 27 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "27"
+description: "Job had sometimes complained of his friends that they were so eager in disputing that they would scarcely let him put in a word: \"Suffer me that I may speak;\" and, \"O that you woul..."
 weight: 27
 ---
 
-# Chapter 27
+# Job 27 
 
 Job had sometimes complained of his friends that they were so eager in disputing that they would scarcely let him put in a word: "Suffer me that I may speak;" and, "O that you would hold your peace!" But now, it seems, they were out of breath, and left him room to say what he would. Either they were themselves convinced that Job was in the right or they despaired of convincing him that he was in the wrong; and therefore they threw away their weapons and gave up the cause. Job was too hard for them, and forced them to quit the field; for great is the truth and will prevail. What Job had said (Job 26:1-14) was a sufficient answer to Bildad's discourse; and now Job paused awhile, to see whether Zophar would take his turn again; but, he declining it, Job himself went on, and, without any interruption or vexation given him, said all he desired to say in this matter. I. He begins with a solemn protestation of his integrity and of his resolution to hold it fast, Job 27:2-6. II. He expresses the dread he had of that hypocrisy which they charged him with, Job 27:7-10. III. He shows the miserable end of wicked people, notwithstanding their long prosperity, and the curse that attends them and is entailed upon their families, Job 27:11-23.
 

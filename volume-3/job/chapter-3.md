@@ -1,8 +1,11 @@
 ---
+title: "Job 3 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "3"
+description: "\"You have heard of the patience of Job,\" says the apostle, Jam 5:11. So we have, and of his impatience too. We wondered that a man should be so patient as he was (Job 1:1-2:13), bu..."
 weight: 3
 ---
 
-# Chapter 3
+# Job 3 
 
 "You have heard of the patience of Job," says the apostle, Jam 5:11. So we have, and of his impatience too. We wondered that a man should be so patient as he was (Job 1:1-2:13), but we wonder also that a good man should be so impatient as he is in this chapter, where we find him cursing his day, and, in passion, I. Complaining that he was born, Job 3:1-10. II. Complaining that he did not die as soon as he was born, Job 3:11-19. III. Complaining that his life was now continued when he was in misery, Job 3:20-26. In this it must be owned that Job sinned with his lips, and it is written, not for our imitation, but our admonition, that he who thinks he stands may take heed lest he fall.
 

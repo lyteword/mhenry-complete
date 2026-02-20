@@ -1,4 +1,7 @@
 ---
+title: "Psalm 110 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "110"
+description: "This psalm is pure gospel; it is only, and wholly, concerning Christ, the Messiah promised to the fathers and expected by them. It is plain that the Jews of old, even the worst of ..."
 weight: 110
 ---
 

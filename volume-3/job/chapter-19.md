@@ -1,8 +1,11 @@
 ---
+title: "Job 19 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "19"
+description: "This chapter is Job\'s answer to Bildad\'s discourse in the foregoing chapter. Though his spirit was grieved and much heated, and Bildad was very peevish, yet he gave him leave to sa..."
 weight: 19
 ---
 
-# Chapter 19
+# Job 19 
 
 This chapter is Job's answer to Bildad's discourse in the foregoing chapter. Though his spirit was grieved and much heated, and Bildad was very peevish, yet he gave him leave to say all he designed to say, and did not break in upon him in the midst of his argument; but, when he had done, he gave him a fair answer, in which, I. He complains of unkind usage. And very unkindly he takes it. 1. That his comforters added to his affliction, Job 19:2-7. 2. That his God was the author of his affliction, Job 19:8-12. 3. That his relations and friends were strange to him, and shy of him, in his affliction, Job 19:20-22. II. He comforts himself with the believing hopes of happiness in the other world, though he had so little comfort in this, making a very solemn confession of his faith, with a desire that it might be recorded as an evidence of his sincerity, Job 19:23-27. III. He concludes with a caution to his friends not to persist in their hard censures of him, Job 19:28,29. If the remonstrance Job here makes of his grievances may serve sometimes to justify our complaints, yet his cheerful views of the future state, at the same time, may shame us Christians, and may serve to silence our complaints, or at least to balance them.
 

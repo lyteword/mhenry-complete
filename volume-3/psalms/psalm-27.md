@@ -1,4 +1,7 @@
 ---
+title: "Psalm 27 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "27"
+description: "Some think David penned this psalm before his coming to the throne, when he was in the midst of his troubles, and perhaps upon occasion of the death of his parents; but the Jews th..."
 weight: 27
 ---
 

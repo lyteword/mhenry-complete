@@ -1,8 +1,11 @@
 ---
+title: "Proverbs 5 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "5"
+description: "The scope of this chapter is much the same with that of Pr 2:1-22. To write the same things, in other words, ought not to be grievous, for it is safe, Php 3:1. Here is, I. An exhor..."
 weight: 5
 ---
 
-# Chapter 5
+# Proverbs 5 
 
 The scope of this chapter is much the same with that of Pr 2:1-22. To write the same things, in other words, ought not to be grievous, for it is safe, Php 3:1. Here is, I. An exhortation to get acquaintance with and submit to the laws of wisdom in general, Pr 5:2. II. A particular caution against the sin of whoredom, Pr 5:3-14. III. Remedies prescribed against that sin. 1. Conjugal love, Pr 5:15-20. 2. A regard to God's omniscience, Pr 5:21. 3. A dread of the miserable end of wicked people, Pr 5:22,23. And all little enough to arm young people against those fleshly lusts which war against the soul.
 

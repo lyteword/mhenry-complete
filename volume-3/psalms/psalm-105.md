@@ -1,4 +1,7 @@
 ---
+title: "Psalm 105 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "105"
+description: "Some of the psalms of praise are very short, others very long, to teach us that, in our devotions, we should be more observant how our hearts work than how the time passes and neit..."
 weight: 105
 ---
 

@@ -1,8 +1,11 @@
 ---
+title: "Job 32 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "32"
+description: "The stage is clear, for Job and his three friends have sat down, and neither he nor they have any thing more to say; it is therefore very seasonable for a moderator to interpose, a..."
 weight: 32
 ---
 
-# Chapter 32
+# Job 32 
 
 The stage is clear, for Job and his three friends have sat down, and neither he nor they have any thing more to say; it is therefore very seasonable for a moderator to interpose, and Elihu is the man. In this chapter we have, I. Some account of him, his parentage, his presence at this dispute, and his sentiments concerning it, Job 32:1-5. II. The apology he made for his bold undertaking to speak to a question which had been so largely and learnedly argued by his seniors. He pleads, 1. That, though he had not the experience of an old man, yet he had the understanding of a man, Job 32:6-10. 2. That he had patiently heard all they had to say, Job 32:11-13. 3. That he had something new to offer, Job 32:14-17. 4. That his mind was full of this matter, and it would be a refreshment to him to give it vent, Job 32:18-20. 5. That he was resolved to speak impartially, Job 32:21,22. And he did speak so well to this matter that Job made no reply to him, and God gave him no rebuke when he checked both Job himself and his other three friends.
 

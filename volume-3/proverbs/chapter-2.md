@@ -1,8 +1,11 @@
 ---
+title: "Proverbs 2 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "2"
+description: "Solomon, having foretold the destruction of those who are obstinate in their impiety, in this chapter applies himself to those who are willing to be taught; and, I. He shows them t..."
 weight: 2
 ---
 
-# Chapter 2
+# Proverbs 2 
 
 Solomon, having foretold the destruction of those who are obstinate in their impiety, in this chapter applies himself to those who are willing to be taught; and, I. He shows them that, if they would diligently use the means of knowledge and grace, they should obtain of God the knowledge and grace which they seek, Pr 2:1-9. II. He shows them of what unspeakable advantage it would be to them. 1. It would preserve them from the snares of evil men (Pr 2:10-15) and of evil women, Pr 2:16-19. 2. It would direct them into, and keep them in, the way of good men, Pr 2:20-22. So that in this chapter we are taught both how to get wisdom and how to use it when we have it, that we may neither seek it, nor receive it in vain.
 

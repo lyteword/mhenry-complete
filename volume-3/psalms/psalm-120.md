@@ -1,4 +1,7 @@
 ---
+title: "Psalm 120 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "120"
+description: "This psalm is the first of those fifteen which are here put together under the title of \"songs of degrees.\" It is well that it is not material what the meaning of that title should..."
 weight: 120
 ---
 

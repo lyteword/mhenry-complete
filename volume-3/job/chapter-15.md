@@ -1,8 +1,11 @@
 ---
+title: "Job 15 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "15"
+description: "Perhaps Job was so clear, and so well satisfied, in the goodness of his own cause, that he thought, if he had not convinced, yet he had at least silenced all his three friends; but..."
 weight: 15
 ---
 
-# Chapter 15
+# Job 15 
 
 Perhaps Job was so clear, and so well satisfied, in the goodness of his own cause, that he thought, if he had not convinced, yet he had at least silenced all his three friends; but, it seems he had not: in this chapter they begin a second attack upon him, each of them charging him afresh with as much vehemence as before. It is natural to us to be fond of our own sentiments, and therefore to be firm to them, and with difficulty to be brought to recede from them. Eliphaz here keeps close to the principles upon which he had condemned Job, and, I. He reproves him for justifying himself, and fathers on him many evil things which are unfairly inferred thence, Job 15:2-13. II. He persuades him to humble himself before God and to take shame to himself, Job 15:14-16. III. He reads him a long lecture concerning the woeful estate of wicked people, who harden their hearts against God and the judgments which are prepared for them, Job 15:17-25. A good use may be made both of his reproofs (for they are plain) and of his doctrine (for it is sound), though both the one and the other are misapplied to Job.
 

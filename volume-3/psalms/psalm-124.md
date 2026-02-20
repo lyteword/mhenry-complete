@@ -1,4 +1,7 @@
 ---
+title: "Psalm 124 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "124"
+description: "David penned this psalm (we suppose) upon occasion of some great deliverance which God wrought for him and his people from some very threatening danger, which was likely to have in..."
 weight: 124
 ---
 

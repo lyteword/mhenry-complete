@@ -1,8 +1,11 @@
 ---
+title: "Job 18 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "18"
+description: "In this chapter Bildad makes a second assault upon Job. In his first discourse (Job 8:1-22) he had given him encouragement to hope that all should yet be well with him. But here th..."
 weight: 18
 ---
 
-# Chapter 18
+# Job 18 
 
 In this chapter Bildad makes a second assault upon Job. In his first discourse (Job 8:1-22) he had given him encouragement to hope that all should yet be well with him. But here there is not a word of that; he has grown more peevish, and is so far from being convinced by Job's reasonings that he is but more exasperated. I. He sharply reproves Job as haughty and passionate, and obstinate in his opinion, Job 18:1-4. II. He enlarges upon the doctrine he had before maintained, concerning the miser of wicked people and the ruin that attends them, Job 18:5-21. In this he seems, all along, to have an eye to Job's complaints of the miserable condition he was in, that he was in the dark, bewildered, ensnared, terrified, and hastening out of the world. "This," says Bildad, "is the condition of a wicked man; and therefore thou art one."
 

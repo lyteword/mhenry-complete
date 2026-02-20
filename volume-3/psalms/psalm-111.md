@@ -1,4 +1,7 @@
 ---
+title: "Psalm 111 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "111"
+description: "This and divers of the psalms that follow it seem to have been penned by David for the service of the church in their solemn feasts, and not upon any particular occasion. This is a..."
 weight: 111
 ---
 

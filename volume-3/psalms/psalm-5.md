@@ -1,4 +1,7 @@
 ---
+title: "Psalm 5 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "5"
+description: "The psalm is a prayer, a solemn address to God, at a time when the psalmist was brought into distress by the malice of his enemies. Many such times passed over David, nay, there wa..."
 weight: 5
 ---
 

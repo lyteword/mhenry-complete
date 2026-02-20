@@ -1,4 +1,7 @@
 ---
+title: "Psalm 66 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "66"
+description: "This is a thanksgiving-psalm, and it is of such a general use and application that we need not suppose it penned upon any particular occasion. All people are here called upon to pr..."
 weight: 66
 ---
 

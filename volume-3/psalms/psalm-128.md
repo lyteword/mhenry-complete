@@ -1,4 +1,7 @@
 ---
+title: "Psalm 128 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "128"
+description: "This, as the former, is a psalm for families. In that we were taught that the prosperity of our families depends upon the blessing of God; in this we are taught that the only way t..."
 weight: 128
 ---
 

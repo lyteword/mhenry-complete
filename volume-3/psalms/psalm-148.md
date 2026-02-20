@@ -1,4 +1,7 @@
 ---
+title: "Psalm 148 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "148"
+description: "This psalm is a most solemn and earnest call to all the creatures, according to their capacity, to praise their Creator, and to show forth his eternal power and Godhead, the invisi..."
 weight: 148
 ---
 

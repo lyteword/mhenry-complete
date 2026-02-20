@@ -1,8 +1,11 @@
 ---
+title: "Song Of Solomon 2 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "2"
+description: "In this chapter, I. Christ speaks both concerning himself and concerning his church, So 2:1,2. II. The church speaks, 1. Remembering the pleasure and satisfaction she has in commun..."
 weight: 2
 ---
 
-# Chapter 2
+# Song Of Solomon 2 
 
 In this chapter, I. Christ speaks both concerning himself and concerning his church, So 2:1,2. II. The church speaks, 1. Remembering the pleasure and satisfaction she has in communion with Christ, So 2:3,4. 2. Entertaining herself with the present tokens of his favour and taking care that nothing happen to intercept them, So 2:5-7. 3. Triumphing in his approaches towards her, So 2:8,9. 4. Repeating the gracious calls he had given her to go along with him a walking, invited by the pleasures of the returning spring (So 2:10-13), out of her obscurity (So 2:14), and the charge he had given to the servants to destroy that which would be hurtful to his vineyard, So 2:15. 5. Rejoicing in her interest in him, So 2:16. 6. Longing for his arrival, So 2:17. Those whose hearts are filled with love to Christ, and hope of heaven, know best what these things mean.
 

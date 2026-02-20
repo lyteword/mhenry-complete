@@ -1,4 +1,7 @@
 ---
+title: "Psalm 72 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "72"
+description: "The foregoing psalm was penned by David when he was old, and, it should seem, so was this too; for Solomon was now standing fair for the crown; that was his prayer for himself, thi..."
 weight: 72
 ---
 

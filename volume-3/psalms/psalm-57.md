@@ -1,4 +1,7 @@
 ---
+title: "Psalm 57 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "57"
+description: "This psalm is very much like that which goes next before it; it was penned upon a like occasion, when David was both in danger of trouble and in temptation to sin; it begins as tha..."
 weight: 57
 ---
 

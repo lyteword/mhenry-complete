@@ -1,4 +1,7 @@
 ---
+title: "Psalm 94 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "94"
+description: "This psalm was penned when the church of God was under hatches, oppressed and persecuted; and it is an appeal to God, as the judge of heaven and earth, and an address to him, to ap..."
 weight: 94
 ---
 

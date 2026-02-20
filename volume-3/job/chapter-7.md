@@ -1,8 +1,11 @@
 ---
+title: "Job 7 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "7"
+description: "Job, in this chapter, goes on to express the bitter sense he had of his calamities and to justify himself in his desire of death. I. He complains to himself and his friends of his ..."
 weight: 7
 ---
 
-# Chapter 7
+# Job 7 
 
 Job, in this chapter, goes on to express the bitter sense he had of his calamities and to justify himself in his desire of death. I. He complains to himself and his friends of his troubles, and the constant agitation he was in, Job 7:1-6. II. He turns to God, and expostulates with him (Job 7:7-21, to the end), in which, 1. He pleads the final period which death puts to our present state, Job 7:7-10. 2. He passionately complains of the miserable condition he was now in, Job 7:11-16. 3. He wonders that God will thus contend with him, and begs for the pardon of his sins and a speedy release out of his miseries, Job 7:17-21. It is hard to methodize the speeches of one who owned himself almost desperate, Job 6:26.
 

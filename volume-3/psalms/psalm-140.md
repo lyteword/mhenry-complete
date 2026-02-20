@@ -1,4 +1,7 @@
 ---
+title: "Psalm 140 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "140"
+description: "This and the four following psalms are much of a piece, and the scope of them the same with many that we met with in the beginning and middle of the book of Psalms, though with but..."
 weight: 140
 ---
 

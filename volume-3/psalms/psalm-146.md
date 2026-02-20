@@ -1,4 +1,7 @@
 ---
+title: "Psalm 146 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "146"
+description: "This and all the rest of the psalms that follow begin and end with Hallelujah, a word which puts much of God\'s praise into a little compass; for in it we praise him by his name Jah..."
 weight: 146
 ---
 

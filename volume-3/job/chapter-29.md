@@ -1,8 +1,11 @@
 ---
+title: "Job 29 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "29"
+description: "After that excellent discourse concerning wisdom in the foregoing chapter Job sat down and paused awhile, not because he had talked himself out of breath, but because he would not,..."
 weight: 29
 ---
 
-# Chapter 29
+# Job 29 
 
 After that excellent discourse concerning wisdom in the foregoing chapter Job sat down and paused awhile, not because he had talked himself out of breath, but because he would not, without the leave of the company, engross the talk to himself, but would give room for his friends, if they pleased, to make their remarks on what he had said; but they had nothing to say, and therefore, after he had recollected himself a little, he went on with his discourse concerning his own affairs, as recorded in this and the two following chapters, in which, I. He describes the height of the prosperity from which he had fallen. And, II. The depth of the adversity into which he had fallen; and this he does to move the pity of his friends, and to justify, or at least excuse, his own complaints. But then, III. To obviate his friends' censures of him, he makes a very ample and particular protestation of his own integrity notwithstanding. In this chapter he looks back to the days of his prosperity, and shows, 1. What comfort and satisfaction he had in his house and family, Job 29:1-6. 2. What a great deal of honour and power he had in his country, and what respect was paid him by all sorts of people, Job 29:7-10. 3. What abundance of good he did in his place, as a magistrate, Job 29:11-17. 4. What a just prospect he had of the continuance of his comfort at home (Job 29:18-20) and of his interest abroad, Job 29:21-25. All this he enlarges upon, to aggravate his present calamities; like Naomi, "I went out full," but am brought "home again empty."
 

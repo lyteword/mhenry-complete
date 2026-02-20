@@ -1,4 +1,7 @@
 ---
+title: "Psalm 26 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "26"
+description: "Holy David is in this psalm putting himself upon a solemn trial, not by God and his country, but by God and his own conscience, to both which he appeals touching his integrity (Ps ..."
 weight: 26
 ---
 

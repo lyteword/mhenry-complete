@@ -1,8 +1,11 @@
 ---
+title: "Song Of Solomon 7 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "7"
+description: "In this chapter, I. Christ, the royal bridegroom, goes on to describe the beauties of his spouse, the church, in many instances, and to express his love to her and the delight he h..."
 weight: 7
 ---
 
-# Chapter 7
+# Song Of Solomon 7 
 
 In this chapter, I. Christ, the royal bridegroom, goes on to describe the beauties of his spouse, the church, in many instances, and to express his love to her and the delight he has in her conversation, So 7:1-9. II. The spouse, the church, expresses her great delight in him, and the desire that she had of communion and fellowship with him, So 7:10-13. Such mutual esteem and endearment are there between Christ and believers. And what is heaven but an everlasting interchanging of loves between the holy God and holy souls!
 
