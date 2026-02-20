@@ -1,8 +1,11 @@
 ---
+title: "Matthew 26 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "26"
+description: "The narrative of the death and sufferings of Christ is more particularly and fully recorded by all the four evangelists than any part of his history; for what should be determine, ..."
 weight: 26
 ---
 
-# Chapter 26
+# Matthew 26 
 
 The narrative of the death and sufferings of Christ is more particularly and fully recorded by all the four evangelists than any part of his history; for what should be determine, and desire to know, but Christ, and him crucified? And this chapter begins that memorable narrative. The year of the redeemed was now come, the seventy weeks determined were now accomplished, when transgression must be finished, reconciliation made, and an everlasting righteousness brought in, by the cutting off of Messiah the Prince, Da 9:24,26. That awful scene is here introduced, to be read with reverence and holy fear. In this chapter, we have, I. The preliminaries, or prefaces, to Christ's sufferings. 1. The previous notice given by him to his disciples, Mt 26:1,2. 2. The rulers' conspiracy against him, Mt 26:3-5. 3. The anointing of his head at a supper in Bethany, Mt 26:6-13. 4. Judas's bargain with the priests to betray him, Mt 26:14-16. 5. Christ eating the passover with his disciples, Mt 26:17-25. 6. His instituting the Lord's supper, and his discourse with his disciples after it, Mt 26:26-35. II. His entrance upon them, and some of the particulars of them. 1. His agony in the garden, Mt 26:36-46. 2. The seizing of him by the officers, with Judas's help, Mt 26:47-56. 3. His arraignment before the chief priest, and his condemnation in his court, Mt 26:57-68. 4. Peter's denying him, Mt 26:69-75.
 

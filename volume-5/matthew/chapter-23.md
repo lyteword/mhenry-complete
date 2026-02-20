@@ -1,8 +1,11 @@
 ---
+title: "Matthew 23 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "23"
+description: "In the foregoing chapter, we had our Saviour\'s discourses with the scribes and Pharisees; here we have his discourse concerning them, or rather against them. I. He allows their off..."
 weight: 23
 ---
 
-# Chapter 23
+# Matthew 23 
 
 In the foregoing chapter, we had our Saviour's discourses with the scribes and Pharisees; here we have his discourse concerning them, or rather against them. I. He allows their office, Mt 23:2,3. II. He warns his disciples not to imitate their hypocrisy and pride, Mt 23:4-12. III. He exhibits a charge against them for divers high crimes and misdemeanors, corrupting the law, opposing the gospel, and treacherous dealing both with God and man; and to each article he prefixes a woe, Mt 23:13-33. IV. He passes sentence upon Jerusalem, and foretels the ruin of the city and temple, especially for the sin of persecution, Mt 23:34-39.
 

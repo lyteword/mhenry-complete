@@ -1,8 +1,11 @@
 ---
+title: "John 21 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "21"
+description: "The evangelist seemed to have concluded his history with the foregoing chapter; but (as St. Paul sometimes in his epistles), new matter occurring, he begins again. He had said that..."
 weight: 21
 ---
 
-# Chapter 21
+# John 21 
 
 The evangelist seemed to have concluded his history with the foregoing chapter; but (as St. Paul sometimes in his epistles), new matter occurring, he begins again. He had said that there were many other signs which Jesus did for the proof of his resurrection. And in this chapter he mentions one of these many, which was Christ's appearance to some of his disciples at the sea of Tiberias, in which we have an account, I. How he discovered himself to them as they were fishing, filled their net, and then very familiarly came and dined with them upon what they had caught, Joh 21:1-14. II. What discourse he had with Peter after dinner, 1. Concerning himself, Joh 21:15-19. 2. Concerning John, Joh 21:20-23. III. The solemn conclusion of this gospel, Joh 21:24,25. It is strange that any should suppose that this chapter was added by some other hand, when it is expressly said (Joh 21:24) that the disciple whom Jesus loved is he which testifieth of these things.
 

@@ -1,8 +1,11 @@
 ---
+title: "John 4 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "4"
+description: "It was, more than any thing else, the glory of the land of Israel, that it was Emmanuel\'s land (Isa 8:8), not only the place of his birth, but the scene of his preaching and miracl..."
 weight: 4
 ---
 
-# Chapter 4
+# John 4 
 
 It was, more than any thing else, the glory of the land of Israel, that it was Emmanuel's land (Isa 8:8), not only the place of his birth, but the scene of his preaching and miracles. This land in our Saviour's time was divided into three parts: Judea in the south, Galilee in the north, and Samaria lying between them. Now, in this chapter, we have Christ in each of these three parts of that land. I. Departing out of Judea, Joh 4:1-3. II. Passing through Samaria, which, though a visit in transitu, here takes up most room. 1. His coming into Samaria, Joh 4:4-6. 2. His discourse with the Samaritan woman at a well, Joh 4:7-26. 3. The notice which the woman gave of him to the city, Joh 4:27-30. 4. Christ's talk with his disciples in the meantime, Joh 4:31-38. 5. The good effect of this among the Samaritans, Joh 4:39-42. III. We find him residing for some time in Galilee (Joh 4:43-46), and his curing a nobleman's son there, that was at death's door, Joh 4:46-54.
 

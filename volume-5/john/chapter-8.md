@@ -1,8 +1,11 @@
 ---
+title: "John 8 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "8"
+description: "In this chapter we have, I. Christ\'s evading the snare which the Jews laid for him, in bringing to him a woman taken in adultery, Joh 8:1-11. II. Divers discourses or conferences o..."
 weight: 8
 ---
 
-# Chapter 8
+# John 8 
 
 In this chapter we have, I. Christ's evading the snare which the Jews laid for him, in bringing to him a woman taken in adultery, Joh 8:1-11. II. Divers discourses or conferences of his with the Jews that cavilled at him, and sought occasion against him, and made every thing he said a matter of controversy. 1. Concerning his being the light of the world, Joh 8:12-20. 2. Concerning the ruin of the unbelieving Jews, Joh 8:21-30. 3. Concerning liberty and bondage, Joh 8:31-37. 4. Concerning his Father and their father, Joh 8:38-47. 5. Here is his discourse in answer to their blasphemous reproaches, Joh 8:48-50. 6. Concerning the immortality of believers, Joh 8:51-59. And in all this he endured the contradiction of sinners against himself.
 

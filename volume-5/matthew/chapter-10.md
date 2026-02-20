@@ -1,8 +1,11 @@
 ---
+title: "Matthew 10 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "10"
+description: "This chapter is an ordination sermon, which our Lord Jesus preached, when he advanced his twelve disciples to the degree and dignity of apostles. In the close of the foregoing chap..."
 weight: 10
 ---
 
-# Chapter 10
+# Matthew 10 
 
 This chapter is an ordination sermon, which our Lord Jesus preached, when he advanced his twelve disciples to the degree and dignity of apostles. In the close of the foregoing chapter, he had stirred up them and others to pray that God would send forth labourers, and here we have an immediate answer to that prayer: while they are yet speaking he hears and performs. What we pray for, according to Christ's direction, shall be given, Now here we have, I. The general commission that was given them, Mt 10:1. II. The names of the persons to whom this commission was given, Mt 10:2-4. III. The instructions that were given them, which are very full and particular; 1. Concerning the services they were to do; their preaching; their working miracles; to whom they must apply themselves; how they must behave themselves; and in what method they must proceed, Mt 10:5-15. 2. Concerning the sufferings they were to undergo. They are told what they should suffer, and from whom; counsels are given them what course to take when persecuted, and encouragements to bear up cheerfully under their sufferings, Mt 10:16-42. These things, though primarily intended for direction to the apostles, are of use to all Christ's ministers, with whom, by his word, Christ, and will be always to end the world.
 

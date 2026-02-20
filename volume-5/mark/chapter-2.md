@@ -1,8 +1,11 @@
 ---
+title: "Mark 2 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "2"
+description: "In this chapter, we have, I. Christ\'s healing a man that was sick of a palsy, Mk 2:1-12. II. His calling of Matthew from the receipt of custom, and his eating, upon that occasion, ..."
 weight: 2
 ---
 
-# Chapter 2
+# Mark 2 
 
 In this chapter, we have, I. Christ's healing a man that was sick of a palsy, Mk 2:1-12. II. His calling of Matthew from the receipt of custom, and his eating, upon that occasion, with publicans and sinners, and justifying himself in so doing, Mk 2:13-17. III. His justifying his disciples in not fasting so much as those plucking the ears of corn on the sabbath day, Mk 2:23-28. All which passages we had before, Mt 9:1-38,12:1-50
 

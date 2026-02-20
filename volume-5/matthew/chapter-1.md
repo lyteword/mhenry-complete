@@ -1,8 +1,11 @@
 ---
+title: "Matthew 1 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "1"
+description: "This evangelist begins with the account of Christ\'s parentage and birth, the ancestors from whom he descended, and the manner of his entry into the world, to make it appear that he..."
 weight: 1
 ---
 
-# Chapter 1
+# Matthew 1 
 
 This evangelist begins with the account of Christ's parentage and birth, the ancestors from whom he descended, and the manner of his entry into the world, to make it appear that he was indeed the Messiah promised, for it was foretold that he should be the son of David, and should be born of a virgin; and that he was so is here plainly shown; for here is, I. His pedigree from Abraham in forty-two generations, three fourteens, Mt 1:1-17. II. An account of the circumstances of his birth, so far as was requisite to show that he was born of a virgin, Mt 1:18-25. Thus methodically is the life of our blessed Saviour written, as lives should be written, for the clearer proposing of the example of them.
 

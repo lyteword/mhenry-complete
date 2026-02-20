@@ -1,8 +1,11 @@
 ---
+title: "John 7 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "7"
+description: "In this chapter we have, I. Christ\'s declining for some time to appear publicly in Judea, Joh 7:1. II. His design to go up to Jerusalem at the feast of tabernacles, and his discour..."
 weight: 7
 ---
 
-# Chapter 7
+# John 7 
 
 In this chapter we have, I. Christ's declining for some time to appear publicly in Judea, Joh 7:1. II. His design to go up to Jerusalem at the feast of tabernacles, and his discourse with his kindred in Galilee concerning his going up to this feast, Joh 7:2-13. III. His preaching publicly in the temple at that feast. 1. In the midst of the feast, Joh 7:14,15. We have his discourse with the Jews, (1.) Concerning his doctrine, Joh 7:16-18. (2.) Concerning the crime of sabbath-breaking laid to his charge, Joh 7:19-24. (3.) Concerning himself, both whence he came and whither he was going, Joh 7:25-36. 2. On the last day of he feast. (1.) His gracious invitation to poor souls to come to him, Joh 7:37-39. (2.) The reception that it met with. [1.] Many of the people disputed about it, Joh 7:40-44. [2.] The chief priests would have brought him into trouble for it, but were first disappointed by their officers (Joh 7:45-49) and then silenced by one of their own court, Joh 7:50-53.
 

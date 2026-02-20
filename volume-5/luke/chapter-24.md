@@ -1,8 +1,11 @@
 ---
+title: "Luke 24 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "24"
+description: "Our Lord Jesus went gloriously down to death, in spite of the malice of his enemies, who did all they could to make his death ignominious; but he rose again more gloriously, of whi..."
 weight: 24
 ---
 
-# Chapter 24
+# Luke 24 
 
 Our Lord Jesus went gloriously down to death, in spite of the malice of his enemies, who did all they could to make his death ignominious; but he rose again more gloriously, of which we have an account in this chapter; and the proofs and evidences of Christ's resurrection are more fully related by this evangelist than they were by Matthew and Mark. Here is, I. Assurance given by two angels, to the woman who visited the sepulchre, that the Lord Jesus was risen from the dead, according to his own word, to which the angels refer them (Lu 24:1-7), and the report of this to the apostles, Lu 24:8-11. II. The visit which Peter made to the sepulchre, and his discoveries there, Lu 24:12. III. Christ's conference with the two disciples that were going to Emmaus, and his making himself known to them, Lu 24:13-35. IV. His appearing to the eleven disciples themselves, the same day at evening, Lu 24:39-46. V. The farewell he gave them, his ascension into heaven, and the joy and praise of his disciples whom he left behind, Lu 24:50-53.
 

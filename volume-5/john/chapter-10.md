@@ -1,8 +1,11 @@
 ---
+title: "John 10 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "10"
+description: "In this chapter we have, I. Christ\'s parabolical discourse concerning himself as the door of the sheepfold, and the shepherd of the sheep, Joh 10:1-18. II. The various sentiments o..."
 weight: 10
 ---
 
-# Chapter 10
+# John 10 
 
 In this chapter we have, I. Christ's parabolical discourse concerning himself as the door of the sheepfold, and the shepherd of the sheep, Joh 10:1-18. II. The various sentiments of people upon it, Joh 10:19-21. III. The dispute Christ had with the Jews in the temple at the feast of dedication, Joh 10:22-39. IV. His departure into the country thereupon, Joh 10:40-42.
 

@@ -1,8 +1,11 @@
 ---
+title: "Luke 12 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "12"
+description: "In this chapter we have divers excellent discourses of our Saviour\'s upon various occasions, many of which are to the same purport with what we had in Matthew upon other the like o..."
 weight: 12
 ---
 
-# Chapter 12
+# Luke 12 
 
 In this chapter we have divers excellent discourses of our Saviour's upon various occasions, many of which are to the same purport with what we had in Matthew upon other the like occasions; for we may suppose that our Lord Jesus preached the same doctrines, and pressed the same duties, at several times, in several companies, and that one of the evangelists took them as he delivered them at one time and another at another time; and we need thus to have precept upon precept, line upon line. Here, I. Christ warns his disciples to take heed of hypocrisy, and of cowardice in professing Christianity and preaching the gospel, Lu 12:1-12. II. He gives a caution against covetousness, upon occasion of a covetous motion made to him, and illustrates that caution by a parable of a rich man suddenly cut off by death in the midst of his worldly projects and hopes, Lu 12:13-21. III. He encourages his disciples to cast all their care upon God, and to live easy in a dependence upon his providence, and exhorts them to make religion their main business, Lu 12:22-34. IV. He stirs them up to watchfulness for their Master's coming, from the consideration of the reward of those who are then found faithful, and the punishment of those who are found unfaithful, Lu 12:35-48. V. He bids them expect trouble and persecution, Lu 12:49-53. VI. He warns the people to observe and improve the day of their opportunities and to make their peace with God in time, Lu 12:54-59.
 

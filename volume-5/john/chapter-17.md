@@ -1,8 +1,11 @@
 ---
+title: "John 17 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "17"
+description: "This chapter is a prayer, it is the Lord\'s prayer, the Lord Christ\'s prayer. There was one Lord\'s prayer which he taught us to pray, and did not pray himself, for he needed not to ..."
 weight: 17
 ---
 
-# Chapter 17
+# John 17 
 
 This chapter is a prayer, it is the Lord's prayer, the Lord Christ's prayer. There was one Lord's prayer which he taught us to pray, and did not pray himself, for he needed not to pray for the forgiveness of sin; but this was properly and peculiarly his, and suited him only as a Mediator, and is a sample of his intercession, and yet is of use to us both for instruction and encouragement in prayer. Observe, I. The circumstances of the prayer, Joh 17:1. II. The prayer itself. 1. He prays for himself, Joh 17:1-5. 2. He prays for those that are his. And in this see, (1.) The general pleas with which he introduces his petitions for them, Joh 17:6-10. (2.) The particular petitions he puts up for them [1.] That they might be kept, Joh 17:11-16. [2.] That they might be sanctified, Joh 17:17-19. [3.] That they might be united, Joh 17:11,20-23. [4.] That they might be glorified, Joh 17:24-26.
 

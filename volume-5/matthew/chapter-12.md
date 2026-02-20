@@ -1,8 +1,11 @@
 ---
+title: "Matthew 12 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "12"
+description: "In this chapter, we have, I. Christ\'s clearing of the law of the fourth commandment concerning the sabbath-day, and vindicating it from some superstitious notions advanced by the J..."
 weight: 12
 ---
 
-# Chapter 12
+# Matthew 12 
 
 In this chapter, we have, I. Christ's clearing of the law of the fourth commandment concerning the sabbath-day, and vindicating it from some superstitious notions advanced by the Jewish teachers; showing that works of necessity and mercy are to be done on that day, Mt 12:1-13. II. The prudence, humility, and self-denial of our Lord Jesus in working his miracles, Mt 12:14-21. III. Christ's answer to the blasphemous cavils and calumnies of the scribes and Pharisees, who imputed his casting out devils to a compact with the devil, Mt 12:22-37. IV. Christ's reply to a tempting demand of the scribes and Pharisees, challenging him to show them a sign from heaven, Mt 12:38-45. V. Christ's judgment about his kindred and relations, Mt 12:46-50.
 

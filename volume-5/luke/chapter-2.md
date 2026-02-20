@@ -1,8 +1,11 @@
 ---
+title: "Luke 2 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "2"
+description: "In this chapter, we have an account of the birth and infancy of our Lord Jesus: having had notice of his conception, and of the birth and infancy of his forerunner, in the former c..."
 weight: 2
 ---
 
-# Chapter 2
+# Luke 2 
 
 In this chapter, we have an account of the birth and infancy of our Lord Jesus: having had notice of his conception, and of the birth and infancy of his forerunner, in the former chapter. The First-begotten is here brought into the world; let us go meet him with our hosannas, blessed is he that cometh. Here is, I. The place and other circumstances of his birth, which proved him to be the true Messiah, and such a one as we needed, but not such a one as the Jews expected, Lu 2:1-7. II. The notifying of his birth to the shepherds in that neighbourhood by an angel, the song of praise which the angels sung upon that occasion, and the spreading of the report of it by the shepherds, Lu 2:8-20. III. The circumcision of Christ, and the naming of him, Lu 2:21. IV. The presenting of him in the temple, Lu 2:22-24. V. The testimonies of Simeon, and Anna the prophetess, concerning him, Lu 2:25-39. VI. Christ's growth and capacity, Lu 2:40-52. VIII. His observing the passover at twelve years old, and his disputing with the doctors in the temple, Lu 2:41-51. And this, with what we have met with (Mt 1:1-2:23), is all we have concerning our Lord Jesus, till he entered upon his public work in the thirtieth year of his age.
 

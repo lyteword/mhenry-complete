@@ -1,8 +1,11 @@
 ---
+title: "Mark 15 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "15"
+description: "What we read of the sufferings of Christ, in the foregoing chapter, was but the prologue or introduction; here we have the completing of them. We left him condemned by the chief pr..."
 weight: 15
 ---
 
-# Chapter 15
+# Mark 15 
 
 What we read of the sufferings of Christ, in the foregoing chapter, was but the prologue or introduction; here we have the completing of them. We left him condemned by the chief priests; but they could only show their teeth, they could not bite. Here we have him, I. Arraigned and accused before Pilate the Roman governor, Mk 15:1-5. II. Cried out against by the common people, at the instigation of the priests, Mk 15:6-14. III. Condemned to be crucified immediately, Mk 15:15. IV. Bantered and abused, as a mock-king, by the Roman soldiers, Mk 15:16-19. V. Led out to the place of execution with all possible ignominy and disgrace, Mk 15:20-24. VI. Nailed to the cross between two thieves, Mk 15:25-28. VII. Reviled and abused by all that passed by, Mk 15:29-32. VIII. Forsaken for a time by his father, Mk 15:33-36. IX. Dying, and rending the veil, Mk 15:37,38. X. Attested and witnessed to by the centurion and others, Mk 15:39-41. XI. Buried in the sepulchre of Joseph of Arimathea, Mk 15:42-47.
 

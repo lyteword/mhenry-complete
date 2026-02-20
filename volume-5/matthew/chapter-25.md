@@ -1,8 +1,11 @@
 ---
+title: "Matthew 25 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "25"
+description: "This chapter continues and concludes our Saviour\'s discourse, which began in the foregoing chapter, concerning his second coming and the end of the world. This was his farewell ser..."
 weight: 25
 ---
 
-# Chapter 25
+# Matthew 25 
 
 This chapter continues and concludes our Saviour's discourse, which began in the foregoing chapter, concerning his second coming and the end of the world. This was his farewell sermon of caution, as that, Joh 14:15,16, was of comfort to his disciples; and they had need of both in a world of so much temptation and trouble as this is. The application of that discourse, was, Watch therefore, and be ye also ready. Now, in prosecution of these serious awakening cautions, in this chapter we have three parables, the scope of which is the same—to quicken us all with the utmost care and diligence to get ready for Christ's second coming, which, in all his farewells to his church, mention was made of, as in that before he died (Joh 14:2), in that at his ascension (Ac 1:11), and in that at the shutting up of the canon of the scriptures, Re 22:20. Now it concerns us to prepare for Christ's coming; I. That we may then be ready to attend upon him; and this is shown in the parable of the ten virgins, Mt 25:1-13. II. That we may then be ready to give u our account to him; and this is shown in the parable of the three servants, Mt 25:14-30. III. That we may then be ready to receive from him our final sentence, and that it may be to eternal life; and this is shown in a more plain description of the process of the last judgment, Mt 25:31-46. These are things of awful consideration, because of everlasting concern to every one of us.
 

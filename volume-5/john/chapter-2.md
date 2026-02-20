@@ -1,8 +1,11 @@
 ---
+title: "John 2 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "2"
+description: "In the close of the foregoing chapter we had an account of the first disciples whom Jesus called, Andrew and Peter, Philip and Nathanael. These were the first-fruits to God and to ..."
 weight: 2
 ---
 
-# Chapter 2
+# John 2 
 
 In the close of the foregoing chapter we had an account of the first disciples whom Jesus called, Andrew and Peter, Philip and Nathanael. These were the first-fruits to God and to the Lamb, Re 14:4. Now, in this chapter, we have, I. The account of the first miracle which Jesus wrought-turning water into wine, at Cana of Galilee (Joh 2:1-11), and his appearing at Capernaum, Joh 2:12. II. The account of the first passover he kept at Jerusalem after he began his public ministry; his driving the buyers and sellers out of the temple (Joh 2:13-17); and the sign he gave to those who quarrelled with him for it (Joh 2:18-22), with an account of some almost believers, that followed him, thereupon, for some time (Joh 2:23-25), but he knew them too well to put any confidence in them.
 

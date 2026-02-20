@@ -1,8 +1,11 @@
 ---
+title: "Matthew 8 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "8"
+description: "The evangelist having, in the foregoing chapters, given us a specimen of our Lord\'s preaching, proceeds now to give some instances of the miracles he wrought, which prove him a Tea..."
 weight: 8
 ---
 
-# Chapter 8
+# Matthew 8 
 
 The evangelist having, in the foregoing chapters, given us a specimen of our Lord's preaching, proceeds now to give some instances of the miracles he wrought, which prove him a Teacher come from God, and the great Healer of a diseased world. In this chapter we have, I. Christ's cleansing of a leper, Mt 8:1-4. II. His curing a palsy and fever, Mt 8:5-18. III. His communing with two that were disposed to follow him, Mt 8:19-22. IV. His controlling the tempest, Mt 8:23-27. V. His casting out devils, Mt 8:28-34.
 

@@ -1,8 +1,11 @@
 ---
+title: "John 16 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "16"
+description: "Among other glorious things God hath spoken of himself this is one, I wound, and I heal, De 32:39. Christ\'s discourse in this chapter, which continues and concludes his farewell se..."
 weight: 16
 ---
 
-# Chapter 16
+# John 16 
 
 Among other glorious things God hath spoken of himself this is one, I wound, and I heal, De 32:39. Christ's discourse in this chapter, which continues and concludes his farewell sermon to his disciples, does so. I. Here are wounding words in the notice he gives them of the troubles that were before them, Joh 16:1-6. II. Here are healing words in the comforts he administers to them for their support under those troubles, which are five:—1. That he would send them the Comforter, Joh 16:7-15. 2. That he would visit them again at his resurrection, Joh 16:16-22. 3. That he would secure to them an answer of peace to all their prayers, Joh 16:23-27. 4. That he was now but returning to his Father, Joh 16:28-32. 5. That, whatever troubles they might meet with in this world, by virtue of his victory over it they should be sure of peace in him, Joh 16:33.
 

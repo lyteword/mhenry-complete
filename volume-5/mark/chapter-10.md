@@ -1,8 +1,11 @@
 ---
+title: "Mark 10 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "10"
+description: "In this chapter, we have, I. Christ\'s dispute with the Pharisees concerning divorce, Mk 10:1-12. II. The kind entertainment he gave to the little children that were brought to him ..."
 weight: 10
 ---
 
-# Chapter 10
+# Mark 10 
 
 In this chapter, we have, I. Christ's dispute with the Pharisees concerning divorce, Mk 10:1-12. II. The kind entertainment he gave to the little children that were brought to him to be blessed, Mk 10:13-16. III. His trial of the rich man that enquired what he must do to get to heaven, Mk 10:17-22. IV. His discourse with his disciples, upon that occasion, concerning the peril of riches (Mk 10:23-27), and the advantage of being impoverished for his sake, Mk 10:28-31. V. The repeated notice he gave his disciples of his sufferings and death approaching, Mk 10:32-34. VI. The counsel he gave to James and John, to think of suffering with him, rather than of reigning with him, Mk 10:15-45. VII. The cure of Bartimeus, a poor blind man, Mk 10:46-52. All which passages of story we had the substance of before, Mt 19:1-20:34
 

@@ -1,8 +1,11 @@
 ---
+title: "Matthew 15 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "15"
+description: "In this chapter, we have our Lord Jesus, as the great Prophet teaching, as the great Physician healing, and as the great Shepherd of the sheep feeding; as the Father of spirits ins..."
 weight: 15
 ---
 
-# Chapter 15
+# Matthew 15 
 
 In this chapter, we have our Lord Jesus, as the great Prophet teaching, as the great Physician healing, and as the great Shepherd of the sheep feeding; as the Father of spirits instructing them; as the Conqueror of Satan dispossessing him; and as concerned for the bodies of his people, providing for them. Here is, I. Christ's discourse with the scribes and Pharisees about human traditions and injunctions, Mt 15:1-9. II. His discourse with the multitude, and with his disciples, concerning the things that defile a man, Mt 15:10-20. III. His casting of the devil out of the woman of Canaan's daughter, Mt 15:21-28. IV. His healing of all that were brought to him, Mt 15:29-31. V. His feeding of four thousand men, with seven loaves and a few little fishes, Mt 15:32-39.
 

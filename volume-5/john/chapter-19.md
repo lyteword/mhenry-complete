@@ -1,8 +1,11 @@
 ---
+title: "John 19 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "19"
+description: "Though in the history hitherto this evangelist seems industriously to have declined the recording of such passages as had been related by the other evangelists, yet, when he comes ..."
 weight: 19
 ---
 
-# Chapter 19
+# John 19 
 
 Though in the history hitherto this evangelist seems industriously to have declined the recording of such passages as had been related by the other evangelists, yet, when he comes to the sufferings and death of Christ, instead of passing them over, as one ashamed of his Master's chain and cross, and looking upon them as the blemishes of his story, he repeats what had been before related, with considerable enlargements, as one that desired to know nothing but Christ and him crucified, to glory in nothing save in the cross of Christ. In the story of this chapter we have, I. he remainder of Christ's trial before Pilate, which was tumultuous and confused, Jer 19:1-15. II. Sentence given, and execution done upon it, Jer 19:16-18. III. The title over his head, Jer 19:19-22. IV. The parting of his garment, Jer 19:23,24. V. The care he took of his mother, Jer 19:25-27. VI. The giving him vinegar to drink, Jer 19:28,29. VII. His dying word, Jer 19:30. VIII. The piercing of his side, Jer 19:31-37. IX. The burial of his body, Jer 19:38-42. O that in meditating on these things we may experimentally know the power of Christ's death, and the fellowship of his sufferings!
 

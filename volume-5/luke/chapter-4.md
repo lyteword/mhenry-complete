@@ -1,8 +1,11 @@
 ---
+title: "Luke 4 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "4"
+description: "We left Christ newly baptized, and owned by a voice from heaven and the descent of the Holy Ghost upon him. Now, in this chapter, we have, I. A further preparation of him for his p..."
 weight: 4
 ---
 
-# Chapter 4
+# Luke 4 
 
 We left Christ newly baptized, and owned by a voice from heaven and the descent of the Holy Ghost upon him. Now, in this chapter, we have, I. A further preparation of him for his public ministry by his being tempted in the wilderness, of which we had the same account before in Matthew as we have here, Lu 4:1-13. II. His entrance upon his public work in Galilee (Lu 4:14,15), particularly, 1. At Nazareth, the city where he had been bred up (Lu 4:16-30), which we had no account of before in Matthew. 2. At Capernaum, where, having preached to admiration (Lu 4:31-32), he cast the devil out of a man that was possessed (Lu 4:33-37), cured Peter's mother-in-law of a fever (Lu 4:38,39), and many others that were sick and possessed (Lu 4:40,41), and then went and did the same in other cities of Galilee, Lu 4:42-44.
 

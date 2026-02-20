@@ -1,8 +1,11 @@
 ---
+title: "Matthew 6 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "6"
+description: "Christ having, in the former chapter, armed his disciples against the corrupt doctrines and opinions of the scribes and Pharisees, especially in their expositions of the law (that ..."
 weight: 6
 ---
 
-# Chapter 6
+# Matthew 6 
 
 Christ having, in the former chapter, armed his disciples against the corrupt doctrines and opinions of the scribes and Pharisees, especially in their expositions of the law (that was called their leaven, Mt 16:12), comes in this chapter to warn them against their corrupt practices, against the two sins which, though in their doctrine they did not justify, yet in their conversation they were notoriously guilty of, and so as even to recommend them to their admirers: these were hypocrisy and worldly-mindedness, sins which, of all others, the professors of religion need most to guard against, as sins that most easily beset those who have escaped the grosser pollutions that are in the world through lust, and which are therefore highly dangerous. We are here cautioned, I. Against hypocrisy; we must not be as the hypocrites are, nor do as the hypocrites do. 1. In the giving of alms, Mt 6:1-4. 2. In prayer, Mt 6:5-8. We are here taught what to pray for, and how to pray (Mt 6:9-13); and to forgive in prayer, Mt 6:14,15. 3. In fasting, Mt 6:16-18. II. Against worldly-mindedness, 1. In our choice, which is the destroying sin of hypocrites, Mt 6:19-24. 2. In our cares, which is the disquieting sin of many good Christians, Mt 6:25-34.
 

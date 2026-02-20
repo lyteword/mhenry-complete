@@ -1,8 +1,11 @@
 ---
+title: "Matthew 24 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "24"
+description: "Christ\'s preaching was mostly practical; but, in this chapter, we have a prophetical discourse, a prediction of things to come; such however as had a practical tendency, and was in..."
 weight: 24
 ---
 
-# Chapter 24
+# Matthew 24 
 
 Christ's preaching was mostly practical; but, in this chapter, we have a prophetical discourse, a prediction of things to come; such however as had a practical tendency, and was intended, not to gratify the curiosity of his disciples, but to guide their consciences and conversations, and it is therefore concluded with a practical application. The church has always had particular prophecies, besides general promises, both for direction and for encouragement to believers; but it is observable, Christ preached this prophetical sermon in the close of his ministry, as the Apocalypse is the last book of the New Testament, and the prophetical books of the Old Testament are placed last, to intimate to us, that we must be well grounded in plain truths and duties, and those must first be well digested, before we dive into those things that are dark and difficult; many run themselves into confusion by beginning their Bible at the wrong end. Now, in this chapter, we have, I. The occasion of this discourse, Mt 24:1-3. II. The discourse itself, in which we have, 1. The prophecy of divers events, especially referring to the destruction of Jerusalem, and the utter ruin of the Jewish church and nation, which were not hastening on, and were completed about forty years after; the prefaces to that destruction, the concomitants and consequences of it; yet looking further, to Christ's coming at the end of time, and the consummation of all things, of which that was a type and figure, Mt 24:4-31. 2. The practical application of this prophecy for the awakening and quickening of his disciples to prepare for these great and awful things, Mt 24:32-51.
 

@@ -1,8 +1,11 @@
 ---
+title: "Matthew 5 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "5"
+description: "This chapter, and the two that follow it, are a sermon; a famous sermon; the sermon upon the mount. It is the longest and fullest continued discourse of our Saviour that we have up..."
 weight: 5
 ---
 
-# Chapter 5
+# Matthew 5 
 
 This chapter, and the two that follow it, are a sermon; a famous sermon; the sermon upon the mount. It is the longest and fullest continued discourse of our Saviour that we have upon record in all the gospels. It is a practical discourse; there is not much of the credenda of Christianity in it—the things to be believed, but it is wholly taken up with the agenda—the things to be done; these Christ began with in his preaching; for if any man will do his will, he shall know of the doctrine, whether it be of God. The circumstances of the sermon being accounted for (Mt 5:1,2), the sermon itself follows, the scope of which is, not to fill our heads with notions, but to guide and regulate our practice. I. He proposes blessedness as the end, and gives us the character of those who are entitled to blessedness (very different from the sentiments of a vain world), in eight beatitudes, which may justly be called paradoxes, Mt 5:3-12. II. He prescribes duty as the way, and gives us standing rules of that duty. He directs his disciples, 1. To understand what they are—the salt of the earth, and the lights of the world, Mt 5:13-16. 2. To understand what they have to do—they are to be governed by the moral law. Here is, (1.) A general ratification of the law, and a recommendation of it to us, as our rule, Mt 5:17-20. (2.) A particular rectification of divers mistakes; or, rather, a reformation of divers wilful, gross corruptions, which the scribes and Pharisees had introduced in their exposition of the law; and an authentic explication of divers branches which most needed to be explained and vindicated, Mt 5:20. Particularly, here is an explication, [1.] Of the sixth commandment, which forbids murder, Mt 5:21-26. [2.] Of the seventh commandment, against adultery, Mt 5:27-32. [3.] Of the third commandment, Mt 5:33-37. [4.] Of the law of retaliation, Mt 5:38-42. [5.] Of the law of brotherly love, Mt 5:43-48. And the scope of the whole is, to show that the law is spiritual.
 

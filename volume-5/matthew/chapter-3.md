@@ -1,8 +1,11 @@
 ---
+title: "Matthew 3 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "3"
+description: "At the start of this chapter, concerning the baptism of John, begins the gospel (Mk 1:1); what went before is but preface or introduction; this is \"the beginning of the gospel of J..."
 weight: 3
 ---
 
-# Chapter 3
+# Matthew 3 
 
 At the start of this chapter, concerning the baptism of John, begins the gospel (Mk 1:1); what went before is but preface or introduction; this is "the beginning of the gospel of Jesus Christ." And Peter observes the same date, Ac 1:22, beginning from the baptism of John, for then Christ began first to appear in him, and then to appear to him, and by him to the world. Here is, I. The glorious rising of the morning-star—John the Baptist, Mt 3:1. 1. The doctrine he preached, Mt 3:2. 2. The fulfilling of the scripture in him, Mt 3:3. 3. His manner of life, Mt 3:4. 4. The resort of multitudes to him, and their submission to his baptism, Mt 3:5,6. 5. His sermon that he preached to the Pharisees and Sadducees, wherein he endeavours to bring them to repentance (Mt 3:7-10), and so to bring them to Christ, Mt 3:11,12. II. The more glorious shining forth of the Sun of righteousness, immediately after: where we have, 1. The honour done by him to the baptism of John, Mt 3:13-15. 2. The honour done to him by the descent of the Spirit upon him, and a voice from heaven, Mt 3:16,17.
 

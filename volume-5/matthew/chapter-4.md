@@ -1,8 +1,11 @@
 ---
+title: "Matthew 4 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "4"
+description: "John Baptist said concerning Christ, He must increase, but I must decrease; and so it proved. For, after John had baptized Christ, and borne his testimony to him, we hear little mo..."
 weight: 4
 ---
 
-# Chapter 4
+# Matthew 4 
 
 John Baptist said concerning Christ, He must increase, but I must decrease; and so it proved. For, after John had baptized Christ, and borne his testimony to him, we hear little more of his ministry; he had done what he came to do, and thenceforward there is as much talk of Jesus as ever there had been of John. As the rising Sun advances, the morning star disappears. Concerning Jesus Christ we have in this chapter, I. The temptation he underwent, the triple assault the tempter made upon him, and the repulse he gave to each assault, Mt 4:1-11. II. The teaching work he undertook, the places he preached in (Mt 4:12-16), and the subject he preached on, Mt 4:17. III. His calling of disciples, Peter and Andrew, James and John, Mt 4:18-22. IV. His curing diseases (Mt 4:23,24), and the great resort of the people to him, both to be taught and to be healed.
 

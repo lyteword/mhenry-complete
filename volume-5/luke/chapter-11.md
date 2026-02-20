@@ -1,8 +1,11 @@
 ---
+title: "Luke 11 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "11"
+description: "In this chapter, I. Christ teaches his disciples to pray, and quickens and encourages them to be frequent, instant, and importunate in prayer, Lu 11:1-13. II. He fully answers the ..."
 weight: 11
 ---
 
-# Chapter 11
+# Luke 11 
 
 In this chapter, I. Christ teaches his disciples to pray, and quickens and encourages them to be frequent, instant, and importunate in prayer, Lu 11:1-13. II. He fully answers the blasphemous imputation of the Pharisees, who charged him with casting out devils by virtue of a compact and confederacy with Beelzebub, the prince of the devils, and shows the absurdity and wickedness of it, Lu 11:14-26. III. He shows the honour of obedient disciples to be greater than that of his own mother, Lu 11:27,28. IV. He upbraids the men of that generation for their infidelity and obstinacy, notwithstanding all the means of conviction offered to them, Lu 11:29-36. V. He severely reproves the Pharisees and consciences of those that submitted to them, and their hating and persecuting those that witnessed against their wickedness, Lu 11:37-54.
 

@@ -1,8 +1,11 @@
 ---
+title: "Matthew 19 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "19"
+description: "In this chapter, we have, I. Christ changing his quarters, leaving Galilee, and coming into the coasts of Judea, Mt 19:1,2. II. His dispute with the Pharisees about divorce, and hi..."
 weight: 19
 ---
 
-# Chapter 19
+# Matthew 19 
 
 In this chapter, we have, I. Christ changing his quarters, leaving Galilee, and coming into the coasts of Judea, Mt 19:1,2. II. His dispute with the Pharisees about divorce, and his discourse with his disciples upon occasion of it, Mt 19:3-12. III. The kind entertainment he gave to some little children which were brought to him, Mt 19:13-15. IV. An account of what passed between Christ and a hopeful young gentleman that applied himself to him, Mt 19:16-22. V. His discourse with his disciples upon that occasion, concerning the difficulty of the salvation of those that have much in the world, and the certain recompence of those that leave all for Christ, Mt 19:23-30.
 

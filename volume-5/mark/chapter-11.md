@@ -1,8 +1,11 @@
 ---
+title: "Mark 11 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "11"
+description: "We are now come to the Passion-Week, the week in which Christ died, and the great occurrences of that week. I. Christ\'s riding in triumph into Jerusalem, Mk 11:1-11. II. His cursin..."
 weight: 11
 ---
 
-# Chapter 11
+# Mark 11 
 
 We are now come to the Passion-Week, the week in which Christ died, and the great occurrences of that week. I. Christ's riding in triumph into Jerusalem, Mk 11:1-11. II. His cursing the barren fig-tree, Mk 11:12-14. III. His driving those out of the temple that turned it into an exchange, Mk 11:15-19. IV. His discourse with his disciples concerning the power of faith and the efficacy of prayer, on occasion of the withering of the fig-tree he cursed, Mk 11:20-26. V. His reply to those who questioned his authority, Mk 11:27-33.
 

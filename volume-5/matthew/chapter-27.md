@@ -1,8 +1,11 @@
 ---
+title: "Matthew 27 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "27"
+description: "It is a very affecting story which is recorded in this chapter concerning the sufferings and death of our Lord Jesus. Considering the thing itself, there cannot be a more tragical ..."
 weight: 27
 ---
 
-# Chapter 27
+# Matthew 27 
 
 It is a very affecting story which is recorded in this chapter concerning the sufferings and death of our Lord Jesus. Considering the thing itself, there cannot be a more tragical story told us; common humanity would melt the heart, to find an innocent and excellent person thus misused. But considering the design and fruit of Christ's sufferings, it is gospel, it is good news, that Jesus Christ was thus delivered for our offences; and there is nothing we have more reason to glory in than the cross of Christ. In this chapter, observe, I. How he was prosecuted. 1. The delivering of him to Pilate, Mt 27:1,2. 2. The despair of Judas, Mt 27:3-10. 3. The arraignment and trial of Christ before Pilate, Mt 27:11-14. 4. The clamours of the people against him, Mt 27:15-25. 5. Sentence passed, and the warrant signed for his execution, Mt 27:26. II. How he was executed. 1. He was barbarously used, Mt 27:27-30. 2. Led to the place of execution, Mt 27:31-33. 3. There he had all possible indignities done him, and reproaches cast upon him, Mt 27:34-44. 4. Heaven frowned upon him, Mt 27:45-49. 5. Many remarkable things attended his death, Mt 27:50-56. He was buried and a watch set on his grave, Mt 27:57-66.
 

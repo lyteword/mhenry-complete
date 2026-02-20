@@ -1,8 +1,11 @@
 ---
+title: "Matthew 21 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "21"
+description: "The death and resurrection of Jesus Christ are the two main hinges upon which the door of salvation turns. He came into the world on purpose to give his life a ransom; so he had la..."
 weight: 21
 ---
 
-# Chapter 21
+# Matthew 21 
 
 The death and resurrection of Jesus Christ are the two main hinges upon which the door of salvation turns. He came into the world on purpose to give his life a ransom; so he had lately said, Mt 20:28. And therefore the history of his sufferings, even unto death, and his rising again, is more particularly recorded by all the evangelists than any other part of his story; and to that this evangelist now hastens apace. For at this chapter begins that which is called the passion-week. He had said to his disciples more than once, Behold, we go up to Jerusalem, and there the Son of man must be betrayed. A great deal of good work he did by the way, and now at length he is come up to Jerusalem; and here we have, I. The public entry which he made into Jerusalem, upon the first day of the passion-week, Mt 21:1-11. II. The authority he exercised there, in cleansing the temple, and driving out of it the buyers and sellers, Mt 21:12-16. III. The barren fig-tree, and his discourse with his disciples thereupon, Mt 21:17-22. IV. His justifying his own authority, by appealing to the baptism of John, Mt 21:23-27. V. His shaming the infidelity and obstinacy of the chief priests and elders, with the repentance of the publicans, illustrated by the parable of the two sons, Mt 21:29-32. VI. His reading the doom of the Jewish church for its unfruitfulness, in the parable of the vineyard let out to unthankful husbandmen, Mt 21:33-46.
 

@@ -1,8 +1,11 @@
 ---
+title: "Luke 10 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "10"
+description: "In this chapter we have, I. The ample commission which Christ gave to the seventy disciples to preach the gospel, and to confirm it by miracles; and the full instructions he gave t..."
 weight: 10
 ---
 
-# Chapter 10
+# Luke 10 
 
 In this chapter we have, I. The ample commission which Christ gave to the seventy disciples to preach the gospel, and to confirm it by miracles; and the full instructions he gave them how to manage themselves in the execution of their commissions, and great encouragements therein, Lu 10:1-16. II. The report which the seventy disciples made to their Master of the success of their negotiation, and his discourse thereupon, Lu 10:17-24. III. Christ's discourse with a lawyer concerning the way to heaven, and the instructions Christ gave him by a parable to look upon every one as his neighbour whom he had occasion to show kindness to, or receive kindness from, Lu 10:25-37. IV. Christ's entertainment at Martha's house, the reproof he gave to her for her care about the world, and his commendation of Mary for her care about her soul, Lu 10:38-42.
 
