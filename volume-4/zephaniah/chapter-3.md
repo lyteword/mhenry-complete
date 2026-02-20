@@ -1,8 +1,11 @@
 ---
+title: "Zephaniah 3 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "3"
+description: "We now return to Jerusalem, and must again hear what God has to say to her, I. By way of reproof and threatening, for the abundance of wickedness that was found in her, of which di..."
 weight: 3
 ---
 
-# Chapter 3
+# Zephaniah 3 
 
 We now return to Jerusalem, and must again hear what God has to say to her, I. By way of reproof and threatening, for the abundance of wickedness that was found in her, of which divers instances are given, with the aggravations of them, Zep 3:1-7. II. By way of promise of mercy and grace, which God had yet in reserve for them. Two general heads of promises here are:—1. That God would bring in a glorious work of reformation among them, cleanse them from their sins, and bring them home to himself; many promises of this kind here are, Zep 3:8-13. 2. That he would bring about a glorious work of salvation for them, when he had thus prepared them for it, Zep 3:14-20. Thus the "Redeemer shall come to Zion," and to clear his own way, shall "turn away ungodliness from Jacob." These promises were to have their full accomplishment in gospel-times and gospel-graces.
 

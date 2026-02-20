@@ -1,8 +1,11 @@
 ---
+title: "Habakkuk 3 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "3"
+description: "Still the correspondence is kept up between God and his prophet. In the Hab 1:1-17 he spoke to God, then God to him, and then he to God again; in the Hab 2:1-20 God spoke wholly to..."
 weight: 3
 ---
 
-# Chapter 3
+# Habakkuk 3 
 
 Still the correspondence is kept up between God and his prophet. In the Hab 1:1-17 he spoke to God, then God to him, and then he to God again; in the Hab 2:1-20 God spoke wholly to him by the Spirit of prophecy; now, in Hab 3:1-19, he speaks wholly to God by the Spirit of prayer, for he would not let the intercourse drop on his side, like a genuine son of Abraham, who "returned not to his place until God had left communing with him." Ge 18:33. The prophet's prayer, in this chapter, is in imitation of David's psalms, for it is directed "to the chief musician," and is set to musical instruments. The prayer is left upon record for the use of the church, and particularly of the Jews in their captivity, while they were waiting for their deliverance, promised by the vision in the foregoing chapter. I. He earnestly begs of God to relieve and succour his people in affliction, to hasten their deliverance, and to comfort them in the mean time, Hab 3:1. II. He calls to mind the experiences which the church formerly had of God's glorious and gracious appearances on her behalf, when he brought Israel out of Egypt through the wilderness to Canaan, and there many a time wrought wonderful deliverances for them, Hab 3:3-15. III. He affects himself with a holy concern for the present troubles of the church, but encourages himself and others to hope that the issue will be comfortable and glorious at last, though all visible means fail, Hab 3:16-19.
 

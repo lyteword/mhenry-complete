@@ -1,8 +1,11 @@
 ---
+title: "Jeremiah 33 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "33"
+description: "The scope of this chapter is much the same with that of the foregoing chapter—to confirm the promise of the restoration of the Jews, notwithstanding the present desolations of thei..."
 weight: 33
 ---
 
-# Chapter 33
+# Jeremiah 33 
 
 The scope of this chapter is much the same with that of the foregoing chapter—to confirm the promise of the restoration of the Jews, notwithstanding the present desolations of their country and dispersions of their people. And these promises have, both in type and tendency, a reference as far forward as to the gospel church, to which this second edition of the Jewish church was at length to resign its dignities and privileges. It is here promised, I. That the city shall be rebuilt and re-established "in statu quo—in its former state," Jer 33:1-6. II. That the captives, having their sins pardoned, shall be restored, Jer 33:7,8. III. That this shall redound very much to the glory of God, Jer 33:9. IV. That the country shall have both joy and plenty, Jer 33:10-14. V. That way shall be made for the coming of the Messiah, Jer 33:15,16. VI. That the house of David, the house of Levi, and the house of Israel, shall flourish again, and be established, and all three in the kingdom of Christ; a gospel ministry and the gospel church shall continue while the world stands, Jer 33:17-26.
 

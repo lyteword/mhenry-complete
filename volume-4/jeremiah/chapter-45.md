@@ -1,8 +1,11 @@
 ---
+title: "Jeremiah 45 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "45"
+description: "The prophecy we have in this chapter concerns Baruch only, yet is intended for the support and encouragement of all the Lord\'s people that serve him faithfully and keep closely to ..."
 weight: 45
 ---
 
-# Chapter 45
+# Jeremiah 45 
 
 The prophecy we have in this chapter concerns Baruch only, yet is intended for the support and encouragement of all the Lord's people that serve him faithfully and keep closely to him in difficult trying times. It is placed here after the story of the destruction of Jerusalem and the dispersion of the Jews, but was delivered long before, in the fourth year of Jehoiakim, as was the prophecy in the next chapter, and probably those that follow. We here find, I. How Baruch was terrified when he was brought into trouble for writing and reading Jeremiah's roll, Jer 45:1-3. II. How his fears were checked with a reproof for his great expectations and silenced with a promise of special preservation, Jer 45:4,5. Though Baruch was only Jeremiah's scribe, yet this notice is taken of his frights, and this provision made for his comfort; for God despises not any of his servants, but graciously concerns himself for the meanest and weakest, for Baruch the scribe as well as for Jeremiah the prophet.
 

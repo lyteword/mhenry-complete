@@ -1,8 +1,11 @@
 ---
+title: "Zechariah 1 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "1"
+description: "In this chapter, after the introduction (Zec 1:1), we have, I. An awakening call to a sinful people to repent of their sins and return to God, Zec 1:2-6. II. Great encouragement gi..."
 weight: 1
 ---
 
-# Chapter 1
+# Zechariah 1 
 
 In this chapter, after the introduction (Zec 1:1), we have, I. An awakening call to a sinful people to repent of their sins and return to God, Zec 1:2-6. II. Great encouragement given to hope for mercy. 1. By the vision of the horses, Zec 1:7-11. 2. By the prayer of the angel for Jerusalem, and the answer to that prayer, Zec 1:12-17. 3. By the vision of the four carpenters that were employed to cut off the four horns with which Judah and Jerusalem were scattered, Zec 1:18-21.
 

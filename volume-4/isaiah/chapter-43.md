@@ -1,8 +1,11 @@
 ---
+title: "Isaiah 43 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "43"
+description: "The contents of this chapter are much the same with those of the foregoing chapter, looking at the release of the Jews out of their captivity, but looking through that, and beyond ..."
 weight: 43
 ---
 
-# Chapter 43
+# Isaiah 43 
 
 The contents of this chapter are much the same with those of the foregoing chapter, looking at the release of the Jews out of their captivity, but looking through that, and beyond that, to the great work of man's redemption by Jesus Christ, and the grace of the gospel, which through him believers partake of. Here are, I. Precious promises made to God's people in their affliction, of his presence with them, for their support under it, and their deliverance out of it, Isa 43:1-7. II. A challenge to idols to vie with the omniscience and omnipotence of God, Isa 43:8-13. III. Encouragement given to the people of God to hope for their deliverance out of Babylon, from the consideration of what God did for their fathers when he brought them out of Egypt, Isa 43:14-21. IV. A method taken to prepare the people for their deliverance, by putting them in mind of their sins, by which they had provoked God to send them into captivity and continue them there, that they might repent and seek to God for pardoning mercy, Isa 43:22-28.
 

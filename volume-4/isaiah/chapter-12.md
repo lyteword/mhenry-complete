@@ -1,8 +1,11 @@
 ---
+title: "Isaiah 12 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "12"
+description: "The salvation promised in the foregoing chapter was compared to that of Israel \"in the day that he came up out of the land of Egypt;\" so that chapter ends. Now as Moses and the chi..."
 weight: 12
 ---
 
-# Chapter 12
+# Isaiah 12 
 
 The salvation promised in the foregoing chapter was compared to that of Israel "in the day that he came up out of the land of Egypt;" so that chapter ends. Now as Moses and the children of Israel then sang a song of praise to the glory of God (Ex 15:1) so shall the people of God do in that day when the root of Jesse shall stand for an ensign of the people and shall be the desire and joy of all nations. In that day, I. Every particular believer shall sing a song of praise for his own interest in that salvation, Isa 12:1,2). "Thou shalt say, Lord, I will praise thee." Thanksgiving-work shall be closet-work. II. Many in concert shall join in praising God for the common benefit arising from this salvation (Isa 12:4-6): "You shall say, Praise you the Lord." Thanksgiving-work shall be congregation-work; and the praises of God shall be publicly sung in the congregations of the upright.
 

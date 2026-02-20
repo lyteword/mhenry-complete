@@ -1,8 +1,11 @@
 ---
+title: "Isaiah 8 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "8"
+description: "This chapter, and the four next that follow it (to chap. xiii.) are all one continued discourse or sermon, the scope of which is to show the great destruction that should now short..."
 weight: 8
 ---
 
-# Chapter 8
+# Isaiah 8 
 
 This chapter, and the four next that follow it (to chap. xiii.) are all one continued discourse or sermon, the scope of which is to show the great destruction that should now shortly be brought upon the kingdom of Israel, and the great disturbance that should be given to the kingdom of Judah by the king of Assyria, and that both were for their sins; but rich provision is made of comfort for those that feared God in those dark times, referring especially to the days of the Messiah. In this chapter we have, I. A prophecy of the destruction of the confederate kingdoms of Syria and Israel by the king of Assyria, Isa 8:1-4. II. Of the desolations that should be made by that proud victorious prince in the land of Israel and Judah, Isa 8:5-8. III. Great encouragement given to the people of God in the midst of those distractions; they are assured, 1. That the enemies shall not gain their point against them, Isa 8:9,10. 2. That if they kept up the fear of God, and kept down the fear of man, they should find God their refuge (Isa 8:11-14), and while others stumbled, and fell into despair, they should be enabled to wait on God, and should see themselves reserved for better times, Isa 8:15-18. Lastly, He gives a necessary caution to all, at their peril, not to consult with familiar spirits, for they would thereby throw themselves into despair, but to keep close to the word of God, Isa 8:19-22. And these counsels and these comforts will still be of use to us in time of trouble.
 

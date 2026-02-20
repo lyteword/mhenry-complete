@@ -1,8 +1,11 @@
 ---
+title: "Daniel 4 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "4"
+description: "The penman of this chapter is Nebuchadnezzar himself: the story here recorded concerning him is given us in his own words, as he himself drew it up and published it; but Daniel, a ..."
 weight: 4
 ---
 
-# Chapter 4
+# Daniel 4 
 
 The penman of this chapter is Nebuchadnezzar himself: the story here recorded concerning him is given us in his own words, as he himself drew it up and published it; but Daniel, a prophet, by inspiration, inserts it in his history, and so it has become a part of sacred writ and a very memorable part. Nebuchadnezzar was as daring a rival with God Almighty for the sovereignty as perhaps any mortal man ever was; but here he fairly owns himself conquered, and gives it under his hand that the God of Israel is above him. Here is, I. The preface to his narrative, wherein he acknowledges God's dominion over him, Da 4:1-3. II. The narrative itself, wherein he relates, 1. His dream, which puzzled the magicians, Da 4:1-18. 2. The interpretation of his dream by Daniel, who showed him that it was a prognostication of his own fall, advising him therefore to repent and reform, Da 4:19-27. 3. The accomplishment of it in his running stark mad for seven years, and then recovering the use of his reason again, Da 4:28-36. 4. The conclusion of the narrative, with a humble acknowledgment and adoration of God as Lord of all, Da 4:37. This was extorted from him by the overruling power of that God who has all men's hearts in his hand, and stands upon record a lasting proof of God's supremacy, a monument of his glory, a trophy of his victory, and a warning to all not to think of prospering while they lift up or harden their hearts against God.
 

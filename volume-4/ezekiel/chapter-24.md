@@ -1,8 +1,11 @@
 ---
+title: "Ezekiel 24 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "24"
+description: "Here are two sermons in this chapter, preached on a particular occasion, and they are both from Mount Sinai, the mount of terror, both from Mount Ebal, the mount of curses; both sp..."
 weight: 24
 ---
 
-# Chapter 24
+# Ezekiel 24 
 
 Here are two sermons in this chapter, preached on a particular occasion, and they are both from Mount Sinai, the mount of terror, both from Mount Ebal, the mount of curses; both speak the approaching fate of Jerusalem. The occasion of them was the king of Babylon's laying siege to Jerusalem, and the design of them is to show that in the issue of that siege he should be not only master of the place, but destroyer of it. I. By the sign of flesh boiling in a pot over the fire are shown the miseries that Jerusalem should suffer during the siege, and justly, for her filthiness, Eze 24:1-14. II. By the sign of Ezekiel's not mourning for the death of his wife is shown that the calamities coming upon Jerusalem were too great to be lamented, so great that they should sink down under them into a silent despair, Eze 24:15-27.
 

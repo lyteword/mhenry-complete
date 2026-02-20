@@ -1,8 +1,11 @@
 ---
+title: "Jonah 3 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "3"
+description: "In this chapter we have, I. Jonah\'s mission renewed, and the command a second time given him to go preach at Nineveh, Jon 3:1,2. II. Jonah\'s message to Nineveh faithfully delivered..."
 weight: 3
 ---
 
-# Chapter 3
+# Jonah 3 
 
 In this chapter we have, I. Jonah's mission renewed, and the command a second time given him to go preach at Nineveh, Jon 3:1,2. II. Jonah's message to Nineveh faithfully delivered, by which its speedy overthrow was threatened, Jon 3:3,4. III. The repentance, humiliation, and reformation of the Ninevites hereupon, Jon 3:5-9. IV. God's gracious revocation of the sentence passed upon them, and the preventing of the ruin threatened, Jon 3:10.
 

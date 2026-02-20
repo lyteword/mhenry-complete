@@ -1,8 +1,11 @@
 ---
+title: "Ezekiel 37 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "37"
+description: "The threatenings of the destruction of Judah and Jerusalem for their sins, which we had in the former part of this book, were not so terrible, but the promises of their restoration..."
 weight: 37
 ---
 
-# Chapter 37
+# Ezekiel 37 
 
 The threatenings of the destruction of Judah and Jerusalem for their sins, which we had in the former part of this book, were not so terrible, but the promises of their restoration and deliverance for the glory of God, which we have here in the latter part of the book, are as comfortable; and as those were illustrated with many visions and similitudes, for the awakening of a holy fear, so are these, for the encouraging of a humble faith. God had assured them, in the foregoing chapter, that he would gather the house of Israel, even all of it, and would bring them out of their captivity, and return them to their own land; but there were two things that rendered this very unlikely:—I. That they were so dispersed among their enemies, so destitute of all helps and advantages which might favour or further their return, and so dispirited likewise in their own minds; upon all these accounts they are here, in vision, compared to a valley full of the dry bones of dead men, which should be brought together and raised to life. The vision of this we have (Eze 37:1-10) and the explication of it, with its application to the present case, Eze 37:11-14. II. That they were so divided among themselves, too much of the old enmity between Judah and Ephraim remaining even in their captivity. But, as to this, by a sign of two sticks made one in the hand of the prophet is foreshown the happy coalition that should be, at their return, between the two nations of Israel and Judah, Eze 37:15-22. In this there was a type of the uniting of Jews and Gentiles, Jews and Samaritans, in Christ and his church. And so the prophet slides into a prediction of the kingdom of Christ, which should be set up in the world with God's tabernacle in it, and of the glories and graces of that kingdom, Eze 37:23-28.
 

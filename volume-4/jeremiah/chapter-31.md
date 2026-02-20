@@ -1,8 +1,11 @@
 ---
+title: "Jeremiah 31 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "31"
+description: "This chapter goes on with the good words and comfortable words which we had in the chapter before, for the encouragement of the captives, assuring them that God would in due time r..."
 weight: 31
 ---
 
-# Chapter 31
+# Jeremiah 31 
 
 This chapter goes on with the good words and comfortable words which we had in the chapter before, for the encouragement of the captives, assuring them that God would in due time restore them or their children to their own land, and make them a great and happy nation again, especially by sending them the Messiah, in whose kingdom and grace many of these promises were to have their full accomplishment. I. They shall be restored to peace and honour, and joy and great plenty, Jer 31:1-14. II. Their sorrow for the loss of their children shall be at an end, Jer 31:15-17. III. They shall repent of their sins, and God will graciously accept them in their repentance, Jer 31:18-20. IV. They shall be multiplied and increased, both their children and their cattle, and not be cut off and diminished as they had been, Jer 31:21-30. V. God will renew his covenant with them, and enrich it with spiritual blessings, Jer 31:31-34. VI. These blessings shall be secured to theirs after them, even to the spiritual seed of Israel for ever, Jer 31:35-37. VII. As an earnest of this the city of Jerusalem shall be rebuilt, Jer 31:38-40. These exceedingly great and precious promises were firm foundations of hope and full fountains of joy to the poor captives; and we also may apply them to ourselves and mix faith with them.
 

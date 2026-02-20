@@ -1,8 +1,11 @@
 ---
+title: "Isaiah 50 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "50"
+description: "In this chapter, I. Those to whom God sends are justly charged with bringing all the troubles they were in upon themselves, by their own wilfulness and obstinacy, it being made to ..."
 weight: 50
 ---
 
-# Chapter 50
+# Isaiah 50 
 
 In this chapter, I. Those to whom God sends are justly charged with bringing all the troubles they were in upon themselves, by their own wilfulness and obstinacy, it being made to appear that God was able and ready to help them if they had been fit for deliverance, Isa 50:1-3. II. He by whom God sends produces his commission (Isa 50:4), alleges his own readiness to submit to all the services and sufferings he was called to in the execution of it (Isa 50:5,6), and assures himself that God, who sent him, would stand by him and bear him out against all opposition, Isa 50:7-9. III. The message that is sent is life and death, good and evil, the blessing and the curse, comfort to desponding saints and terror to presuming sinners, Isa 50:10,11. Now all this seems to have a double reference, 1. To the unbelieving Jews in Babylon, who quarrelled with God for his dealings with them, and to the prophet Isaiah, who, though dead long before the captivity, yet, prophesying so plainly and fully of it, saw fit to produce his credentials, to justify what he had said. 2. To the unbelieving Jews in our Saviour's time, whose own fault it was that they were rejected, Christ having preached much to them, and suffered much from them, and being herein borne up by a divine power. The "contents" of this chapter, in our Bibles, give this sense of it, very concisely, thus:—"Christ shows that the dereliction of the Jews is not to be imputed to him, by his ability to save, by his obedience in that work, and by his confidence in divine assistance." The prophet concludes with an exhortation to trust in God and not in ourselves.
 

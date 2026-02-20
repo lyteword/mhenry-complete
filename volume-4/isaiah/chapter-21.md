@@ -1,8 +1,11 @@
 ---
+title: "Isaiah 21 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "21"
+description: "In this chapter we have a prophecy of sad times coming, and heavy burdens, I. Upon Babylon, here called \"the desert of the sea,\" that it should be destroyed by the Medes and Persia..."
 weight: 21
 ---
 
-# Chapter 21
+# Isaiah 21 
 
 In this chapter we have a prophecy of sad times coming, and heavy burdens, I. Upon Babylon, here called "the desert of the sea," that it should be destroyed by the Medes and Persians with a terrible destruction, which yet God's people should have advantage by, Isa 21:1-10. II. Upon Dumah, or Idumea, Isa 21:11,12. III. Upon Arabia, or Kedar, the desolation of which country was very near, Isa 21:13-17. These and other nations which the princes and people of Israel had so much to do with the prophets of Israel could not but have something to say to. Foreign affairs must be taken notice of as well as domestic ones, and news from abroad enquired after as well as news at home.
 

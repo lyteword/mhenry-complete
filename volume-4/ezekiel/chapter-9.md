@@ -1,8 +1,11 @@
 ---
+title: "Ezekiel 9 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "9"
+description: "The prophet had, in vision, seen the wickedness that was committed at Jerusalem, in the foregoing chapter, and we may be sure that it was not represented to him worse than really i..."
 weight: 9
 ---
 
-# Chapter 9
+# Ezekiel 9 
 
 The prophet had, in vision, seen the wickedness that was committed at Jerusalem, in the foregoing chapter, and we may be sure that it was not represented to him worse than really it was; now here follows, of course, a representation of their ruin approaching; for when sin goes before judgments come next. Here is, I. Preparation made of instruments that were to be employed in the destruction of the city, Eze 9:1,2. II. The removal of the Shechinah from the cherubim to the threshold of the temple, Eze 9:3. III. Orders given to one of the persons employed, who is distinguished from the rest, for the marking of a remnant to be preserved from the common destruction, Eze 9:3,4. IV. The warrant signed for the execution of those that were not marked, and the execution begun accordingly, Eze 9:5-7. V. The prophet's intercession for the mitigation of the sentence, and a denial of any mitigation, the decree having now gone forth, Eze 9:8-10. VI. The report made by him that was to mark the pious remnant of what he had done in that matter, Eze 9:11. And this shows a usual method of Providence in the government of the world.
 

@@ -1,8 +1,11 @@
 ---
+title: "Hosea 8 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "8"
+description: "This chapter, as that before, divides itself into the sins and punishments of Israel; every verse almost declares both, and all to bring them to repentance. When they saw the malig..."
 weight: 8
 ---
 
-# Chapter 8
+# Hosea 8 
 
 This chapter, as that before, divides itself into the sins and punishments of Israel; every verse almost declares both, and all to bring them to repentance. When they saw the malignant nature of their sin, in the descriptions of that, they could not but be convinced now much it was their duty to repent of what was so bad in itself; and when they saw the mischievous consequences of their sin, in the predictions of them, they could not but see how much it was their interest to repent for the preventing of them. I. The sin of Israel is here set forth, 1. In many general expressions, Ho 8:1,3,12,14. 2. In many particular instances; setting up kings without God (Ho 8:4), setting up idols against God (Ho 8:4-6), and courting alliances with the neighbouring nations, Ho 8:8-10. 3. In this aggravation of it, that they still kept up a profession of religion and relation to God, Ho 8:2,13,14. II. The punishment of Israel is here set forth as answering to the sin. God would bring an enemy upon them, Ho 8:1,3. All their projects should be blasted, Ho 8:7. Their confidence both in their idols and in their foreign alliances should disappoint them, Ho 8:6,8,10. Their strength at home should fail them, Ho 8:14. Their sacrifices should have no reckoning made of them, and their sins should have a reckoning made for them, Ho 8:13.
 

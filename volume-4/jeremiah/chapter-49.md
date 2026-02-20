@@ -1,8 +1,11 @@
 ---
+title: "Jeremiah 49 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "49"
+description: "The cup of trembling still goes round, and the nations must all drink of it, according to the instructions given to Jeremiah, Jer 25:15. This chapter puts it into the hands, I. Of ..."
 weight: 49
 ---
 
-# Chapter 49
+# Jeremiah 49 
 
 The cup of trembling still goes round, and the nations must all drink of it, according to the instructions given to Jeremiah, Jer 25:15. This chapter puts it into the hands, I. Of the Ammonites, Jer 49:1-6. II. Of the Edomites, Jer 49:7-22. III. Of the Syrians, Jer 49:23-27. IV. Of the Kedarenes, and the kingdoms of Hazor, Jer 49:28-33. V. Of the Elamites, Jer 49:34-39. When Israel was scarcely saved where shall all these appear?
 

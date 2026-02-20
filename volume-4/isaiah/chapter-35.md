@@ -1,8 +1,11 @@
 ---
+title: "Isaiah 35 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "35"
+description: "As after a prediction of God\'s judgments upon the world (Isa 24:1-23) follows a promise of great mercy to be had in store for his church (Isa 25:1-2), so here after a black and dre..."
 weight: 35
 ---
 
-# Chapter 35
+# Isaiah 35 
 
 As after a prediction of God's judgments upon the world (Isa 24:1-23) follows a promise of great mercy to be had in store for his church (Isa 25:1-2), so here after a black and dreadful scene of confusion in the foregoing chapter we have, in this, a bright and pleasant one, which, though it foretel the flourishing estate of Hezekiah's kingdom in the latter part of his reign, yet surely looks as far beyond that as the prophecy in the foregoing chapter does beyond the destruction of the Edomites; both were typical, and it concerns us most to look at those things which they were typical of, the kingdom of Christ and the kingdom of heaven. When the world, which lies in wickedness, shall be laid in ruins, and the Jewish church, which persisted in infidelity, shall become a desolation, then the gospel church shall be set up and made to flourish. I. The Gentiles shall be brought into it, Isa 35:1,2,7. II. The well-wishers to it, who were weak and timorous, shall be encouraged, Isa 35:3,4. III. Miracles shall be wrought both on the souls and on the bodies of men, Isa 35:5,6. IV. The gospel church shall be conducted in the way of holiness, Isa 35:8,9. V. It shall be brought at last to endless joys, Isa 35:10. Thus do we find more of Christ and heaven in this chapter than one would have expected in the Old Testament.
 

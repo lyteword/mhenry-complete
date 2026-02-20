@@ -1,8 +1,11 @@
 ---
+title: "Isaiah 3 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "3"
+description: "The prophet, in this chapter, goes on to foretel the desolations that were coming upon Judah and Jerusalem for their sins, both that by the Babylonians and that which completed the..."
 weight: 3
 ---
 
-# Chapter 3
+# Isaiah 3 
 
 The prophet, in this chapter, goes on to foretel the desolations that were coming upon Judah and Jerusalem for their sins, both that by the Babylonians and that which completed their ruin by the Romans, with some of the grounds of God's controversy with them. God threatens, I. To deprive them of all the supports both of their life and of their government, Isa 3:1-3. II. To leave them to fall into confusion and disorder, Isa 3:4,5,12. III. To deny them the blessing of magistracy, Isa 3:6-8. IV. To strip the daughters of Zion of their ornaments, Isa 3:17-24. V. To lay all waste by the sword of war, Isa 3:25,26. The sins that provoked God to deal thus with them were, 1. Their defiance of God, Isa 3:8. 2. Their impudence, Isa 3:9. 3. The abuse of power to oppression and tyranny, Isa 3:12-15. 4. The pride of the daughters of Zion, Isa 3:16. In the midst of the chapter the prophet is directed how to address particular persons. (1.) To assure good people that it should be well with them, notwithstanding those general calamities, Isa 3:10. (2.) To assure wicked people that, however God might, in judgment, remember mercy, yet it should go ill with them, Isa 3:11. O that the nations of the earth, at this day, would hearken to rebukes and warnings which this chapter gives!
 

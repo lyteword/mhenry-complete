@@ -1,8 +1,11 @@
 ---
+title: "Ezekiel 26 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "26"
+description: "The prophet had soon done with those four nations that he set his face against in the foregoing chapters; for they were not at that time very considerable in the world, nor would t..."
 weight: 26
 ---
 
-# Chapter 26
+# Ezekiel 26 
 
 The prophet had soon done with those four nations that he set his face against in the foregoing chapters; for they were not at that time very considerable in the world, nor would their fall make any great noise among the nations nor any figure in history. But the city of Tyre is next set to the bar; this, being a place of vast trade, was known all the world over; and therefore here are three whole chapters, this and the two that follow, spent in the prediction of the destruction of Tyre. We have "the burden of Tyre," Isa 23:1-18 It is but just mentioned in Jeremiah, as sharing with the natives in the common calamity, Jer 25:22,27:3,47:4. But Ezekiel is ordered to be copious upon that head. In this chapter we have, I. The sin charged upon Tyre, which was triumphing in the destruction of Jerusalem, Eze 25:2. II. The destruction of Tyrus itself foretold. 1. The extremity of this destruction: it shall be utterly ruined, Eze 25:4-6,12-14. 2. The instruments of this destruction, many nations (Eze 25:3), and the king of Babylon by name with his vast victorious army, Eze 25:7-11. 3. The great surprise that this should give to the neighbouring nations, who would all wonder at the fall of so great a city and be alarmed at it, Eze 25:15-21.
 

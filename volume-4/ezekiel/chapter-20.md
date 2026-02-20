@@ -1,8 +1,11 @@
 ---
+title: "Ezekiel 20 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "20"
+description: "In this chapter, I. The prophet is consulted by some of the elders of Israel, Eze 20:1. II. He is instructed by his God what answer to give them. He must, 1. Signify God\'s displeas..."
 weight: 20
 ---
 
-# Chapter 20
+# Ezekiel 20 
 
 In this chapter, I. The prophet is consulted by some of the elders of Israel, Eze 20:1. II. He is instructed by his God what answer to give them. He must, 1. Signify God's displeasure against them, Eze 20:2,3. And, 2. He must show them what just cause he had for that displeasure, by giving them a history of God's grateful dealings with their fathers and their treacherous dealings with God. (1.) In Egypt, Eze 20:5-9. (2.) In the wilderness, Eze 20:10-26. (3.) In Canaan, Eze 20:27-32. 3. He must denounce the judgments of God against them, Eze 20:33-36. 4. He must tell them likewise what mercy God had in store for them, when he would bring a remnant of them to repentance, re-establish them in their own land, and set up his sanctuary among them again, Eze 20:37-44. 5. Here is another word dropped towards Jerusalem, which is explained and enlarged upon in the next chapter, Eze 20:45-49.
 

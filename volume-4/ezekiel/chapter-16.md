@@ -1,8 +1,11 @@
 ---
+title: "Ezekiel 16 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "16"
+description: "Still God is justifying himself in the desolations he is about to bring upon Jerusalem; and very largely, in this chapter, he shows the prophet, and orders him to show the people, ..."
 weight: 16
 ---
 
-# Chapter 16
+# Ezekiel 16 
 
 Still God is justifying himself in the desolations he is about to bring upon Jerusalem; and very largely, in this chapter, he shows the prophet, and orders him to show the people, that he did but punish them as their sins deserved. In the foregoing chapter he had compared Jerusalem to an unfruitful vine, that was fit for nothing but the fire; in this chapter he compares it to an adulteress, that, in justice, ought to be abandoned and exposed, and he must therefore show the people their abominations, that they might see how little reason they had to complain of the judgments they were under. In this long discourse are set forth, I. The despicable and deplorable beginnings of that church and nation, Eze 16:3-5. II. The many honours and favours God had bestowed upon them, Eze 16:6-14. III. Their treacherous and ungrateful departures from him to the services and worship of idols, here represented by the most impudent whoredom, Eze 16:15-34. IV. A threatening of terrible destroying judgments, which God would bring upon them for this sin, Eze 16:35-43. V. An aggravation both of their sin and of their punishment, by comparison with Sodom and Samaria, Eze 16:44-59. VI. A promise of mercy in the close, which God would show to a penitent remnant, Eze 16:60-63. And this is designed for admonition to us.
 

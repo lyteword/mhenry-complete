@@ -1,8 +1,11 @@
 ---
+title: "Ezekiel 3 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "3"
+description: "In this chapter we have the further preparation of the prophet for the work to which God called him. I. His eating the roll that was presented to him in the close of the foregoing ..."
 weight: 3
 ---
 
-# Chapter 3
+# Ezekiel 3 
 
 In this chapter we have the further preparation of the prophet for the work to which God called him. I. His eating the roll that was presented to him in the close of the foregoing chapter, Eze 3:1-3. II. Further instructions and encouragements given him to the same purport with those in the foregoing chapter, Eze 3:4-11. III. The mighty impulse he was under, with which he was carried to those that were to be his hearers, Eze 3:12-15. IV. A further explication of his office and business as a prophet, under the similitude of a watchman, Eze 3:16-21. V. The restraining and restoring of the prophet's liberty of speech, as God pleased, Eze 3:22-27.
 

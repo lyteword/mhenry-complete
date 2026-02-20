@@ -1,8 +1,11 @@
 ---
+title: "Hosea 13 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "13"
+description: "The same strings, though generally unpleasing ones, are harped upon in this chapter that were in those before. People care not to be told either of their sin or of their danger by ..."
 weight: 13
 ---
 
-# Chapter 13
+# Hosea 13 
 
 The same strings, though generally unpleasing ones, are harped upon in this chapter that were in those before. People care not to be told either of their sin or of their danger by sin; and yet it is necessary, and for their good, that they should be told of both, nor can they better hear of either than from the word of God and from their faithful ministers, while the sin may be repented of and the danger prevented. Here, I. The people of Israel are reproved and threatened for their idolatry, Ho 13:1-4. II. They are reproved and threatened for their wantonness, pride, and luxury, and other abuses of their wealth and prosperity, Ho 13:5-8. III. The ruin that is coming upon them for these and all their other sins is foretold as very terrible, Ho 13:12,13,15,16. IV. Those among them that yet retain a respect for their God are here encouraged to hope that he will yet appear for their relief, though their kings and princes, and all their other supports and succours, fail them, Ho 13:9-11,14.
 

@@ -1,8 +1,11 @@
 ---
+title: "Jeremiah 23 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "23"
+description: "In this chapter the prophet, in God\'s name, is dealing his reproofs and threatenings, I. Among the careless princes, or pastors of the people (Jer 23:1,2), yet promising to take ca..."
 weight: 23
 ---
 
-# Chapter 23
+# Jeremiah 23 
 
 In this chapter the prophet, in God's name, is dealing his reproofs and threatenings, I. Among the careless princes, or pastors of the people (Jer 23:1,2), yet promising to take care of the flock, which they had been wanting in their duty to, Jer 23:3-8. II. Among the wicked prophets and priests, whose bad character is here given at large in divers instances, especially their imposing upon the people with their pretended inspirations, at which the prophet is astonished, and for which they must expect to be punished, Jer 23:9-32. III. Among the profane people, who ridiculed God's prophets and bantered them, Jer 23:33-40. When all have thus corrupted their way they must all expect to be told faithfully of it.
 

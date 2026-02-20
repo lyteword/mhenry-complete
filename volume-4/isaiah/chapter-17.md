@@ -1,8 +1,11 @@
 ---
+title: "Isaiah 17 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "17"
+description: "Syria and Ephraim were confederate against Judah (Isa 7:1,2), and, they being so closely linked together in their counsels, this chapter, though it be entitled \"the burden of Damas..."
 weight: 17
 ---
 
-# Chapter 17
+# Isaiah 17 
 
 Syria and Ephraim were confederate against Judah (Isa 7:1,2), and, they being so closely linked together in their counsels, this chapter, though it be entitled "the burden of Damascus" (which was the head city of Syria), reads the doom of Israel too. I. The destruction of the strong cities both of Syria and Israel is here foretold, Isa 17:1-5,9-11. II. In the midst of judgment mercy is remembered to Israel, and a gracious promise made that a remnant should be preserved from the calamities and should get good by them, Isa 17:6-8. III. The overthrow of the Assyrian army before Jerusalem is pointed at, Isa 17:12-14. In order of time this chapter should be placed next after Isa 19:1-25, for the destruction of Damascus, here foretold, happened in the reign of Ahaz, 2Ki 16:9.
 

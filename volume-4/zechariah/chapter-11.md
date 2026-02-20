@@ -1,8 +1,11 @@
 ---
+title: "Zechariah 11 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "11"
+description: "God\'s prophet, who, in the chapters before, was an ambassador sent to promise peace, is here a herald sent to declare war. The Jewish nation shall recover its prosperity, and shall..."
 weight: 11
 ---
 
-# Chapter 11
+# Zechariah 11 
 
 God's prophet, who, in the chapters before, was an ambassador sent to promise peace, is here a herald sent to declare war. The Jewish nation shall recover its prosperity, and shall flourish for some time and become considerable; it shall be very happy, at length, in the coming of the long-expected Messiah, in the preaching of his gospel, and in the setting up of his standard there. But, when thereby the chosen remnant among them are effectually called in and united to Christ, the body of the nation, persisting in unbelief, shall be utterly abandoned and given up to ruin, for rejecting Christ; and it is this that is foretold here in this chapter—the Jews rejecting Christ, which was their measure-filling sin, and the wrath which for that sin came upon them to the uttermost. Here is, I. A prediction of the destruction itself that should come upon the Jewish nation, Zec 11:1-3. II. The putting of it into the hands of the Messiah. 1. He is charged with the custody of that flock, Zec 11:4-6. 2. He undertakes it, and bears rule in it, Zec 11:7,8. 3. Finding it perverse, he gives it up (Zec 11:9), breaks his shepherd's staff (Zec 11:10,11), resents the indignities done him and the contempt put upon him (Zec 11:12,13), and then breaks his other staff, Zec 11:14. 4. He turns them over into the hands of foolish shepherds, who, instead of preventing, shall complete their ruin, and both the blind leaders and the blind followers shall fall together into the ditch, Zec 11:15-17. This is foretold to the poor of the flock before it comes to pass, that, when it does come to pass, they may not be offended.
 

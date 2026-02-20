@@ -1,8 +1,11 @@
 ---
+title: "Amos 6 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "6"
+description: "In this chapter we have, I. A sinful people studying to put a slight upon God\'s threatenings and to make them appear trivial, confiding in their privileges and pre-eminences above ..."
 weight: 6
 ---
 
-# Chapter 6
+# Amos 6 
 
 In this chapter we have, I. A sinful people studying to put a slight upon God's threatenings and to make them appear trivial, confiding in their privileges and pre-eminences above other nations (Am 6:2,3), and their power (Am 6:13), and wholly addicted to their pleasures, Am 6:4-6. II. A serious prophet studying to put a weight upon God's threatenings and to make them appear terrible, by setting forth the severity of those judgments that were coming upon these sensualists (Am 6:7), God's abhorring them, and abandoning them and theirs to death (Am 6:8-11), and bringing utter desolation upon them, since they would not be wrought upon by the methods he had taken for their conviction, Am 6:12-14.
 

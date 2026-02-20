@@ -1,8 +1,11 @@
 ---
+title: "Isaiah 9 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "9"
+description: "The prophet in this chapter (according to the directions given him, Isa 3:10,11) saith to the righteous, It shall be well with thee, but Woe to the wicked, it shall be ill with him..."
 weight: 9
 ---
 
-# Chapter 9
+# Isaiah 9 
 
 The prophet in this chapter (according to the directions given him, Isa 3:10,11) saith to the righteous, It shall be well with thee, but Woe to the wicked, it shall be ill with him. Here are, I. Gracious promises to those that adhere to the law and to the testimony; while those that seek to familiar spirits shall be driven into darkness and dimness, they shall see a great light, relief in the midst of their distresses, typical of gospel grace. 1. In the doctrine of the Messiah, Isa 9:1-3. 2. His victories, Isa 9:4,5. 3. His government and dominion as Immanuel, Isa 9:6,7. II. Dreadful threatenings against the people of Israel, who had revolted from and were enemies to the house of David, that they should be brought to utter ruin, that their pride should bring them down (Isa 9:8-10), that their neighbours should make a prey of them (Isa 9:11,12), that, for their impenitence and hypocrisy, all their ornaments and supports should be cut off (Isa 9:13-17), and that by the wrath of God against them, and their wrath one against another, they should be brought to utter ruin, Isa 9:18-21. And this is typical of the final destruction of all the enemies of the Son of David and his kingdom.
 

@@ -1,8 +1,11 @@
 ---
+title: "Ezekiel 11 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "11"
+description: "This chapter concludes the vision which Ezekiel saw, and this part of it furnished him with two messages:—I. A message of wrath against those who continued still at Jerusalem, and ..."
 weight: 11
 ---
 
-# Chapter 11
+# Ezekiel 11 
 
 This chapter concludes the vision which Ezekiel saw, and this part of it furnished him with two messages:—I. A message of wrath against those who continued still at Jerusalem, and were there in the height of presumption, thinking they should never fall, Eze 11:1-13. II. A message of comfort to those who were carried captives into Babylon and were there in the depth of despondency, thinking they should never rise. And, as the former are assured that God has judgments in store for them notwithstanding their present security, so the later are assured that God has mercy in store for them notwithstanding their present distress, Eze 11:14-21. And so the glory of God removes further, Eze 11:22,23. The vision disappears (Eze 11:24), and Ezekiel faithfully gives his hearers an account of it, Eze 11:25.
 

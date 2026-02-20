@@ -1,8 +1,11 @@
 ---
+title: "Isaiah 5 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "5"
+description: "In this chapter the prophet, in God\'s name, shows the people of God their transgressions, even the house of Jacob their sins, and the judgments which were likely to be brought upon..."
 weight: 5
 ---
 
-# Chapter 5
+# Isaiah 5 
 
 In this chapter the prophet, in God's name, shows the people of God their transgressions, even the house of Jacob their sins, and the judgments which were likely to be brought upon them for their sins, I. By a parable, under the similitude of an unfruitful vineyard, representing the great favours God had bestowed upon them, their disappointing his expectations from them, and the ruin they had thereby deserved, Isa 5:1-7. II. By an enumeration of the sins that did abound among them, with a threatening of punishments that should answer to the sins. 1. Covetousness, and greediness of worldly wealth, which shall be punished with famine, Isa 5:8-10. 2. Rioting, revelling, and drunkenness (Isa 5:11,12,22,23), which shall be punished with captivity and all the miseries that attend it, Isa 5:13-17. 3. Presumption in sin, and defying the justice of God, Isa 5:18,19. 4. Confounding the distinctions between virtue and vice, and so undermining the principles of religion, Isa 5:20. 5. Self-conceit, Isa 5:21. 6. Perverting justice, for which, and the other instances of reigning wickedness among them, a great and general desolation in threatened, which should lay all waste (Isa 5:24,25), and which should be effected by a foreign invasion (Isa 5:26-30), referring perhaps to the havoc made not long after by Sennacherib's army.
 

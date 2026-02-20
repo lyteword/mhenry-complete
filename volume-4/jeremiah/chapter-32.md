@@ -1,8 +1,11 @@
 ---
+title: "Jeremiah 32 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "32"
+description: "In this chapter we have, I. Jeremiah imprisoned for foretelling the destruction of Jerusalem and the captivity of king Zedekiah, Jer 32:1-5. II. We have him buying land, by divine ..."
 weight: 32
 ---
 
-# Chapter 32
+# Jeremiah 32 
 
 In this chapter we have, I. Jeremiah imprisoned for foretelling the destruction of Jerusalem and the captivity of king Zedekiah, Jer 32:1-5. II. We have him buying land, by divine appointment, as an assurance that in due time a happy end should be put to the present troubles, Jer 32:6-15. III. We have his prayer, which he offered up to God upon that occasion, Jer 32:16-25. IV. We have a message which God thereupon entrusted him to deliver to the people. 1. He must foretel the utter destruction of Judah and Jerusalem for their sins, Jer 32:26-35. But, 2. At the same time he must assure them that, though the destruction was total, it should not be final, but that at length their posterity should recover the peaceable possession of their own land, Jer 32:36-44. The predictions of this chapter, both threatenings and promises, are much the same with what we have already met with again and again, but here are some circumstances that are very particular and remarkable.
 

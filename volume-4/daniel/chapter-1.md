@@ -1,8 +1,11 @@
 ---
+title: "Daniel 1 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "1"
+description: "This chapter gives us a more particular account of the beginning of Daniel\'s life, his original and education, than we have of any other of the prophets. Isaiah, Jeremiah, and Ezek..."
 weight: 1
 ---
 
-# Chapter 1
+# Daniel 1 
 
 This chapter gives us a more particular account of the beginning of Daniel's life, his original and education, than we have of any other of the prophets. Isaiah, Jeremiah, and Ezekiel, began immediately with divine visions; but Daniel began with the study of human learning, and was afterwards honoured with divine visions; such variety of methods has God taken in training up men for the service of his church. We have here, I. Jehoiakim's first captivity (Da 1:1,2), in which Daniel, with others of the seed-royal, was carried to Babylon. II. The choice made of Daniel, and some other young men, to be brought up in the Chaldean literature, that they might be fitted to serve the government, and the provision made for them, Da 1:3-7. III. Their pious refusal to eat the portion of the king's meat, and their determining to live upon pulse and water, which, having tried it, the master of the eunuchs allowed them to do, finding that it agreed very well with them, Da 1:8-16. IV. Their wonderful improvement, above all their fellows, in wisdom and knowledge, Da 1:17-21.
 

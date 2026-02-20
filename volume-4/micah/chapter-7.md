@@ -1,8 +1,11 @@
 ---
+title: "Micah 7 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "7"
+description: "In this chapter, I. The prophet, in the name of the church, sadly laments the woeful decay of religion in the age wherein he lived, and the deluge of impiety and immorality which o..."
 weight: 7
 ---
 
-# Chapter 7
+# Micah 7 
 
 In this chapter, I. The prophet, in the name of the church, sadly laments the woeful decay of religion in the age wherein he lived, and the deluge of impiety and immorality which overwhelmed the nation, which levelled the differences, and bore down the fences, of all that is just and sacred, Mic 7:1-6. II. The prophet, for the sake of the church, prescribes comforts, which may be of use at such a time, and gives counsel what to do. 1. They must have an eye to God, Mic 7:7. 2. They must courageously bear up against the insolences of the enemy, Mic 7:8-10. 3. They must patiently lie down under the rebukes of their God, Mic 7:9. 4. They must expect no other than that the trouble would continue long, and must endeavour to make the best of it, Mic 7:11-13. 5. They must encourage themselves with God's promises, in answer to the prophet's prayers, Mic 7:14,15. 6. They must foresee the fall of their enemies, that now triumphed over them, Mic 7:16,17. 7. They must themselves triumph in the mercy and grace of God, and his faithfulness to his covenant (Mic 7:18-20), and with that comfortable word the prophecy concludes.
 

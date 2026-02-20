@@ -1,8 +1,11 @@
 ---
+title: "Jeremiah 15 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "15"
+description: "When we left the prophet, in the close of the foregoing chapter, so pathetically poring out his prayers before God, we had reason to hope that in this chapter we should find God re..."
 weight: 15
 ---
 
-# Chapter 15
+# Jeremiah 15 
 
 When we left the prophet, in the close of the foregoing chapter, so pathetically poring out his prayers before God, we had reason to hope that in this chapter we should find God reconciled to the land and the prophet brought into a quiet composed frame; but, to our great surprise, we find it much otherwise as to both. I. Notwithstanding the prophet's prayers, God here ratifies the sentence given against the people, and abandons them to ruin turning a deaf ear to all the intercessions made for them, Jer 15:1-9. II. The prophet himself, notwithstanding the satisfaction he had in communion with God, still finds himself uneasy and out of temper. 1. He complains to God of his continual struggle with his persecutors, Jer 15:10. 2. God assures him that he shall be taken under special protection, though there was a general desolation coming upon the land, Jer 15:11-14. 3. He appeals to God concerning his sincerity in the discharge of his prophetic office and thinks it hard that he should not have more of the comfort of it, Jer 15:15-18. 4. Fresh security is given him that, upon condition he continue faithful, God will continue his care of him and his favour to him, Jer 15:19-21. And thus, at length, we hope he regained the possession of his own soul.
 

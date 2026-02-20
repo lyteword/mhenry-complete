@@ -1,8 +1,11 @@
 ---
+title: "Daniel 9 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "9"
+description: "In this chapter we have, I. Daniel\'s prayer for the restoration of the Jews who were in captivity, in which he confesses sin, and acknowledges the justice of God in their calamitie..."
 weight: 9
 ---
 
-# Chapter 9
+# Daniel 9 
 
 In this chapter we have, I. Daniel's prayer for the restoration of the Jews who were in captivity, in which he confesses sin, and acknowledges the justice of God in their calamities, but pleads God's promises of mercy which he had yet in store for them, Da 9:1-19. II. An immediate answer sent him by an angel to his prayer, in which, 1. He is assured of the speedy release of the Jews out of their captivity, Da 9:20-23. And, 2. He is informed concerning the redemption of the world by Jesus Christ (of which that was a type), what should be the nature of it and when it should be accomplished, Da 9:24-27. And it is the clearest, brightest, prophecy of the Messiah, in all the Old Testament.
 

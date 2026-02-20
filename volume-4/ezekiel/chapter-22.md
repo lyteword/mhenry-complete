@@ -1,8 +1,11 @@
 ---
+title: "Ezekiel 22 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "22"
+description: "Here are three separate messages which God entrusts the prophet to deliver concerning Judah and Jerusalem, and all to the same purport, to show them their sins and the judgments th..."
 weight: 22
 ---
 
-# Chapter 22
+# Ezekiel 22 
 
 Here are three separate messages which God entrusts the prophet to deliver concerning Judah and Jerusalem, and all to the same purport, to show them their sins and the judgments that were coming upon them for those sins. I. Here is a catalogue of their sins, by which they had exposed themselves to shame and for which God would bring them to ruin, Eze 22:1-16. II. They are here compared to dross, and are condemned as dross to the fire, Eze 22:17-22. III. All orders and degrees of men among them are here found guilty of the neglect of the duty of their place and of having contributed to the national guilt, which therefore, since none appeared as intercessors, they must all expect to share in the punishment of, Eze 22:23-31.
 

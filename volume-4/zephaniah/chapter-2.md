@@ -1,8 +1,11 @@
 ---
+title: "Zephaniah 2 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "2"
+description: "In this chapter we have, I. An earnest exhortation to the nation of the Jews to repent and make their peace with God, and so to prevent the judgments threatened before it was too l..."
 weight: 2
 ---
 
-# Chapter 2
+# Zephaniah 2 
 
 In this chapter we have, I. An earnest exhortation to the nation of the Jews to repent and make their peace with God, and so to prevent the judgments threatened before it was too late (Zep 2:1-3), and this inferred from the revelation of God's wrath against them in the foregoing chapter. II. A denunciation of the judgments of God against several of the neighbouring nations that had assisted, or rejoiced in, the calamity of Israel. 1. The Philistines, Zep 2:4-7. 2. The Moabites and Ammonites, Zep 2:8-11. 3. The Ethiopians and Assyrians, Zep 2:12-15. All these shall drink of the same cup of trembling that is put into the hands of God's people, as was also foretold by other prophets before and after.
 

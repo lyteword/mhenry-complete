@@ -1,8 +1,11 @@
 ---
+title: "Jeremiah 37 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "37"
+description: "This chapter brings us very near the destruction of Jerusalem by the Chaldeans, for the story of it lies in the latter end of Zedekiah\'s reign; we have in it, I. A general idea of ..."
 weight: 37
 ---
 
-# Chapter 37
+# Jeremiah 37 
 
 This chapter brings us very near the destruction of Jerusalem by the Chaldeans, for the story of it lies in the latter end of Zedekiah's reign; we have in it, I. A general idea of the bad character of that reign, Jer 37:1,2. II. The message which Zedekiah, notwithstanding, sent to Jeremiah to desire his prayers, Jer 37:3. III. The flattering hopes which the people had conceived, that the Chaldeans would quit the siege of Jerusalem, Jer 37:5. IV. The assurance God gave them by Jeremiah (who was now at liberty, Jer 37:4) that the Chaldean army should renew the siege and take the city, Jer 37:6-10. V. The imprisonment of Jeremiah, under pretence that he was a deserter, Jer 37:11-15. VI. The kindness which Zedekiah showed him when he was a prisoner, Jer 37:16-21.
 

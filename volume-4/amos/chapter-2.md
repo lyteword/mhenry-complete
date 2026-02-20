@@ -1,8 +1,11 @@
 ---
+title: "Amos 2 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "2"
+description: "In this chapter, I. God, by the prophet, proceeds in a like controversy with Moab as before with other nations, Am 2:1-3. II. He shows what quarrel he had with Judah, Am 2:4,5. III..."
 weight: 2
 ---
 
-# Chapter 2
+# Amos 2 
 
 In this chapter, I. God, by the prophet, proceeds in a like controversy with Moab as before with other nations, Am 2:1-3. II. He shows what quarrel he had with Judah, Am 2:4,5. III. He at length begins his charge against Israel, to which all that goes before is but an introduction. Observe, 1. The sins they are charged with—injustice, oppression, whoredom, Am 2:6-8. 2. The aggravations of those sins—the temporal and spiritual mercies God had bestowed upon them, for which they had made him such ungrateful returns, Am 2:9-12. 3. God's complaint of them for their sins (Am 2:13) and his threatenings of their ruin, and their utter inability to prevent it, Am 2:14-16.
 

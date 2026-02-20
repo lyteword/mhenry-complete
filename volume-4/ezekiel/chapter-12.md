@@ -1,8 +1,11 @@
 ---
+title: "Ezekiel 12 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "12"
+description: "Though the vision of God\'s glory had gone up from the prophet, yet his word comes to him still, and is by him sent to the people, and to the same purport with that which was discov..."
 weight: 12
 ---
 
-# Chapter 12
+# Ezekiel 12 
 
 Though the vision of God's glory had gone up from the prophet, yet his word comes to him still, and is by him sent to the people, and to the same purport with that which was discovered to him in the vision, namely, to set forth the terrible judgments that were coming upon Jerusalem, by which the city and temple should be entirely laid waste. In this chapter, I. The prophet, by removing his stuff, and quitting his lodgings, must be a sign to set forth Zedekiah's flight out of Jerusalem in the utmost confusion when the Chaldeans took the city, Eze 12:1-16. II. The prophet, by eating his meat with trembling, must be a sign to set forth the famine in the city during the siege, and the consternation that the inhabitants should be in, Eze 12:17-20. III. A message is sent from God to the people, to assure them that all these predictions should have their accomplishment very shortly, and not be deferred, as they flattered themselves they would be, Eze 12:21-28.
 

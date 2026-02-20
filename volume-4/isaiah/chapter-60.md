@@ -1,8 +1,11 @@
 ---
+title: "Isaiah 60 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "60"
+description: "This whole chapter is all to the same purport, all in the same strain; it is a part of God\'s covenant with his church, which is spoken of in the Isa 59:21 of the foregoing chapter,..."
 weight: 60
 ---
 
-# Chapter 60
+# Isaiah 60 
 
 This whole chapter is all to the same purport, all in the same strain; it is a part of God's covenant with his church, which is spoken of in the Isa 59:21 of the foregoing chapter, and the blessings here promised are the fruits of the word and Spirit there promised. The long continuance of the church, even unto the utmost ages of time, was there promised, and here the large extent of the church, even unto the utmost regions of the earth; and both these tend to the honour of the Redeemer. It is here promised, I. That the church shall be enlightened and shone upon, Isa 60:1,2. II. That it shall be enlarged and great additions made to it, to join in the service of God, Isa 60:3-8. III. That the new converts shall be greatly serviceable to the church and to the interests of it, Isa 60:9-13. IV. That the church shall be in great honour and reputation among men, Isa 60:14-16. V. That it shall enjoy a profound peace and tranquility, Isa 60:17,18. VI. That, the members of it being all righteous, the glory and joy of it shall be everlasting, Isa 60:19-22. Now this has some reference to the peaceable and prosperous condition which the Jews were sometimes in after their return out of captivity into their own land; but it certainly looks further, and was to have its full accomplishment in the kingdom of the Messiah, the enlargement of that kingdom by the bringing in of the Gentiles into it, and the spiritual blessings in heavenly things by Christ Jesus with which it should be enriched, and all these earnests of eternal joy and glory.
 

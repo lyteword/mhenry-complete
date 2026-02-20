@@ -1,8 +1,11 @@
 ---
+title: "Jeremiah 21 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "21"
+description: "It is plain that the prophecies of this book are not placed here in the same order in which they were preached; for there are chapters after this which concern Jehoahaz, Jehoiakim,..."
 weight: 21
 ---
 
-# Chapter 21
+# Jeremiah 21 
 
 It is plain that the prophecies of this book are not placed here in the same order in which they were preached; for there are chapters after this which concern Jehoahaz, Jehoiakim, and Jeconiah, who all reigned before Zedekiah, in whose reign the prophecy of this chapter bears date. Here is, I. The message which Zedekiah sent to the prophet, to desire him to enquire of the Lord for them, Jer 21:1,2. II. The answer which Jeremiah, in God's name, sent to that message, in which, 1. He foretels the certain and inevitable ruin of the city, and the fruitlessness of their attempts for its preservation, Jer 21:3-7. 2. He advises the people to make the best of bad, by going over to the king of Babylon, Jer 21:8-10. 3. He advises the king and his family to repent and reform (Jer 21:11,12), and not to trust to the strength of their city and grow secure, Jer 21:13,14.
 

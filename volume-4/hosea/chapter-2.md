@@ -1,8 +1,11 @@
 ---
+title: "Hosea 2 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "2"
+description: "The scope of this chapter seems to be much the same with that of the foregoing chapter, and to point at the same events, and the causes of them. As there, so here, I. God, by the p..."
 weight: 2
 ---
 
-# Chapter 2
+# Hosea 2 
 
 The scope of this chapter seems to be much the same with that of the foregoing chapter, and to point at the same events, and the causes of them. As there, so here, I. God, by the prophet, discovers sin to them, and charges it home upon them, the sin of their idolatry, their spiritual whoredom, their serving idols and forgetting God and their obligations to him, Ho 2:1,2,5,8. II. He threatens to take away from them that plenty of all good things with which they had served their idols, and to abandon them to ruin without remedy, Ho 2:3,4,6,7,9-13. III. Yet he promises at last to return in ways of mercy to them for his own sake (Ho 2:14), to restore them to their former plenty (Ho 2:15), to cure them of their inclination to idolatry (Ho 2:16,17), to renew his covenant with them (Ho 2:18-20), and to bless them with all good things, Ho 2:21-23.
 

@@ -1,8 +1,11 @@
 ---
+title: "Zechariah 6 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "6"
+description: "The two kingdoms of providence and grace are what we are all very nearly interested in, and therefore are concerned to acquaint ourselves with, all our temporal affairs being in a ..."
 weight: 6
 ---
 
-# Chapter 6
+# Zechariah 6 
 
 The two kingdoms of providence and grace are what we are all very nearly interested in, and therefore are concerned to acquaint ourselves with, all our temporal affairs being in a necessary subjection to divine Providence, and all our spiritual and eternal concerns in a necessary dependence upon divine grace; and these two are represented to us in this chapter—the former by a vision, the latter by a type. Here is, I. God, as King of nations, ruling the world by the ministry of angels, in the vision of the four chariots, Zec 6:1-8. II. God, as King of saints, ruling the church by the mediation of Christ, in the figure of Joshua the high priest crowned, the ceremony performed, and then explained concerning Christ, Zec 6:9-15.
 

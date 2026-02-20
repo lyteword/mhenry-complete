@@ -1,8 +1,11 @@
 ---
+title: "Isaiah 18 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "18"
+description: "Whatever country it is that is meant here by \"the land shadowing with wings,\" here is a woe denounced against it, for God has, upon his people\'s account, a quarrel with it. I. They..."
 weight: 18
 ---
 
-# Chapter 18
+# Isaiah 18 
 
 Whatever country it is that is meant here by "the land shadowing with wings," here is a woe denounced against it, for God has, upon his people's account, a quarrel with it. I. They threaten God's people, Isa 18:1,2. II. All the neighbours are hereupon called to take notice what will be the issue, Isa 18:3. III. Though God seem unconcerned in the distress of his people for a time, he will at length appear against their enemies and will remarkably cut them off, Isa 18:4-6. IV. This shall redound very much to the glory of God, Isa 18:7.
 

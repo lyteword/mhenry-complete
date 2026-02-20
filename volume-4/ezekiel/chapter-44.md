@@ -1,8 +1,11 @@
 ---
+title: "Ezekiel 44 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "44"
+description: "In this chapter we have, I. The appropriating of the east gate of the temple to the prince, Eze 44:1-3. II. A reproof sent to the house of Israel for their former profanations of G..."
 weight: 44
 ---
 
-# Chapter 44
+# Ezekiel 44 
 
 In this chapter we have, I. The appropriating of the east gate of the temple to the prince, Eze 44:1-3. II. A reproof sent to the house of Israel for their former profanations of God's sanctuary, with a charge to them to be more strict for the future, Eze 44:4-9. III. The degrading of those Levites that had formerly been guilty of idolatry and the establishing of the priesthood in the family of Zadok, which had kept their integrity, Eze 44:10-16. IV. Divers laws and ordinances concerning the priests, Eze 44:17-31.
 

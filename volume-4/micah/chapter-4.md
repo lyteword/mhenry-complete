@@ -1,8 +1,11 @@
 ---
+title: "Micah 4 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "4"
+description: "Comparing this chapter with the close of the foregoing chapter, the comfortable promises here with the terrible threatenings there, we may, with the apostle, \"behold the goodness a..."
 weight: 4
 ---
 
-# Chapter 4
+# Micah 4 
 
 Comparing this chapter with the close of the foregoing chapter, the comfortable promises here with the terrible threatenings there, we may, with the apostle, "behold the goodness and severity of God," (Ro 11:22), towards the Jewish church which fell, severity when Zion was ploughed as a field, but towards the Christian church, which was built upon the ruins of it, goodness, great goodness; for it is here promised, I. That it shall be advanced and enlarged by the accession of the nations to it, Mic 4:1,2. II. That it shall be protected in tranquility and peace, Mic 4:3,4. III. That it shall be kept close, and constant, and faithful to God, Mic 4:5. IV. That under Christ's government, all its grievances shall be redressed, Mic 4:6,7. V. That it shall have an ample and flourishing dominion, Mic 4:8. VI. That its troubles shall be brought to a happy issue at length, Mic 4:9,10. VII. That its enemies shall be disquieted, nay, that they shall be destroyed in and by their attempts against it, Mic 4:11-13.
 

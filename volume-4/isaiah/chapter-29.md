@@ -1,8 +1,11 @@
 ---
+title: "Isaiah 29 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "29"
+description: "This woe to Ariel, which we have in this chapter, is the same with the \"burden of the valley of vision\" (Isa 21:1), and (it is very probable) points at the same event—the besieging..."
 weight: 29
 ---
 
-# Chapter 29
+# Isaiah 29 
 
 This woe to Ariel, which we have in this chapter, is the same with the "burden of the valley of vision" (Isa 21:1), and (it is very probable) points at the same event—the besieging of Jerusalem by the Assyrian army, which was cut off there by an angel; yet it is applicable to the destruction of Jerusalem by the Chaldeans, and its last desolations by the Romans. Here is, I. The event itself foretold, that Jerusalem should be greatly distressed, Isa 29:1-4,6), but that their enemies, who distressed them, should be baffled and defeated, Isa 29:5,7,8. II. A reproof to three sorts of sinners:—1. Those that were stupid, and regardless of the warnings which the prophet gave them, Isa 29:9-12. 2. Those that were formal and hypocritical in their religious performances, Isa 29:13,14. 3. Those politicians that atheistically and profanely despised God's providence, and set up their own projects in competition with it, Isa 29:15,16. III. Precious promises of grace and mercy to a distinguished remnant whom God would sanctify, and in whom he would be sanctified, when their enemies and persecutors should be cut off, Isa 29:17-24.
 

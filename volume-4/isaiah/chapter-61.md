@@ -1,8 +1,11 @@
 ---
+title: "Isaiah 61 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "61"
+description: "In this chapter, I. We are sure to find the grace of Christ, published by himself to a lost world in the everlasting gospel, under the type and figure of Isaiah\'s province, which w..."
 weight: 61
 ---
 
-# Chapter 61
+# Isaiah 61 
 
 In this chapter, I. We are sure to find the grace of Christ, published by himself to a lost world in the everlasting gospel, under the type and figure of Isaiah's province, which was to foretel the deliverance of the Jews out of Babylon, Isa 61:1-3. II. We think we find the glories of the church of Christ, its spiritual glories, described under the type and figure of the Jews' prosperity after their return out of their captivity. 1. It is promised that they decays of the church shall be repaired, Isa 61:4. 2. That those from without shall be made serviceable to the church, Isa 61:5. 3. That the church shall be a royal priesthood, maintained by the riches of the Gentiles, Isa 61:6. 4. That she shall have honour and joy in lieu of all her shame and sorrow, Isa 61:7. 5. That her affairs shall prosper, Isa 61:8. 6. That prosperity shall enjoy these blessings, Isa 61:9. 7. That righteousness and salvation shall be the eternal matter of the church's rejoicing and thanksgiving, Isa 61:10,11. If the Jewish church was ever thus blessed, much more shall the Christian church be so, and all that belong to it.
 

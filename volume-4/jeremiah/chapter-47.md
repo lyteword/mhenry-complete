@@ -1,8 +1,11 @@
 ---
+title: "Jeremiah 47 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "47"
+description: "This chapter reads the Philistines their doom, as the former read the Egyptians theirs and by the same hand, that of Nebuchadnezzar. It is short, but terrible; and Tyre and Zidon, ..."
 weight: 47
 ---
 
-# Chapter 47
+# Jeremiah 47 
 
 This chapter reads the Philistines their doom, as the former read the Egyptians theirs and by the same hand, that of Nebuchadnezzar. It is short, but terrible; and Tyre and Zidon, though they lay at some distance from them, come in sharers with them in the destruction here threatened. I. It is foretold that the forces of the northern crowns should come upon them, to their great terror, Jer 47:1-5. II. That the war should continue long, and their endeavours to put an end to it should be in vain, Jer 47:6,7.
 

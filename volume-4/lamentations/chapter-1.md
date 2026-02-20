@@ -1,8 +1,11 @@
 ---
+title: "Lamentations 1 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "1"
+description: "We have here the first alphabet of this lamentation, twenty-two stanzas, in which the miseries of Jerusalem are bitterly bewailed and her present deplorable condition is aggravated..."
 weight: 1
 ---
 
-# Chapter 1
+# Lamentations 1 
 
 We have here the first alphabet of this lamentation, twenty-two stanzas, in which the miseries of Jerusalem are bitterly bewailed and her present deplorable condition is aggravated by comparing it with her former prosperous state; all along, sin is acknowledged and complained of as the procuring cause of all these miseries; and God is appealed to for justice against their enemies and applied to for compassion towards them. The chapter is all of a piece, and the several remonstrances are interwoven; but here is, I. A complaint made to God of their calamities, and his compassionate consideration desired, La 1:1-11. II. The same complaint made to their friends, and their compassionate consideration desired, La 1:12-17. III. An appeal to God and his righteousness concerning it (La 1:18-22), in which he is justified in their affliction and is humbly solicited to justify himself in their deliverance.
 

@@ -1,8 +1,11 @@
 ---
+title: "Ezekiel 7 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "7"
+description: "In this chapter the approaching ruin of the land of Israel is most particularly foretold in affecting expressions often repeated, that if possible they might be awakened by repenta..."
 weight: 7
 ---
 
-# Chapter 7
+# Ezekiel 7 
 
 In this chapter the approaching ruin of the land of Israel is most particularly foretold in affecting expressions often repeated, that if possible they might be awakened by repentance to prevent it. The prophet must tell them, I. That it will be a final ruin, a complete utter destruction, which would make an end of them, a miserable end, Eze 7:1-6. II. That it is an approaching ruin, just at the door, Eze 7:7-10. III. That it is an unavoidable ruin, because they had by sin brought it upon themselves, Eze 7:10-15. IV. That their strength and wealth should be no fence against it, Eze 7:16-19. V. That the temple, which they trusted in, should itself be ruined, Eze 7:20-22. VI. That it should be a universal ruin, the sin that brought it having been universal, Eze 7:23-27.
 

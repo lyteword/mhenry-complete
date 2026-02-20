@@ -1,8 +1,11 @@
 ---
+title: "Jeremiah 17 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "17"
+description: "In this chapter, I. God convicts the Jews of the sin of idolatry by the notorious evidence of the fact, and condemns them to captivity for it, Jer 17:1-4. II. He shows them the fol..."
 weight: 17
 ---
 
-# Chapter 17
+# Jeremiah 17 
 
 In this chapter, I. God convicts the Jews of the sin of idolatry by the notorious evidence of the fact, and condemns them to captivity for it, Jer 17:1-4. II. He shows them the folly of all their carnal confidences, which should stand them in no stead when God's time came to contend with them, and that this was one of the sins upon which his controversy with them was grounded, Jer 17:5-11. III. The prophet makes his appeal and address to God upon occasion of the malice of his enemies against him, committing himself to the divine protection, and begging of God to appear for him, Jer 17:12-18. IV. God, by the prophet, warns the people to keep holy the sabbath day, assuring them that, if they did, it should be the lengthening out of their tranquility, but that, if not, God would by some desolating judgment assert the honour of his sabbaths, Jer 17:19-27.
 

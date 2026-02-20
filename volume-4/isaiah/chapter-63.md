@@ -1,8 +1,11 @@
 ---
+title: "Isaiah 63 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "63"
+description: "In this chapter we have, I. God coming towards his people in ways of mercy and deliverance, and this is to be joined to the close of the foregoing chapter, where it was said to Zio..."
 weight: 63
 ---
 
-# Chapter 63
+# Isaiah 63 
 
 In this chapter we have, I. God coming towards his people in ways of mercy and deliverance, and this is to be joined to the close of the foregoing chapter, where it was said to Zion, "Behold, thy salvation comes;" for here it is shown how it comes, Isa 63:1-6. II. God's people meeting him with their devotions, and addressing themselves to him with suitable affections; and this part of the chapter is carried on to the close of the next. In this we have, 1. A thankful acknowledgment of the great favours God had bestowed upon them, Isa 63:7. 2. The magnifying of these favours, from the consideration of God's relation to them (Isa 63:8), his compassionate concern for them (Isa 63:9), their unworthiness (Isa 63:10), and the occasion which it gave both him and them to call to mind former mercies, Isa 63:11-14. 3. A very humble and earnest prayer to God to appear for them in their present distress, pleading God's mercy (Isa 63:15), their relation to him (Isa 63:16), their desire towards him (Isa 63:17), and the insolence of their enemies, Isa 63:18,19. So that, upon the whole, we learn to embrace God's promises with an active faith, and then to improve them, and make use of them, both in prayers and praises.
 

@@ -1,8 +1,11 @@
 ---
+title: "Isaiah 26 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "26"
+description: "This chapter is a song of holy joy and praise, in which the great things God had engaged, in the foregoing chapter, to do for his people against his enemies and their enemies are c..."
 weight: 26
 ---
 
-# Chapter 26
+# Isaiah 26 
 
 This chapter is a song of holy joy and praise, in which the great things God had engaged, in the foregoing chapter, to do for his people against his enemies and their enemies are celebrated: it is prepared to be sung when that prophecy should be accomplished; for we must be forward to meet God with our thanksgivings when he is coming towards us with his mercies. Now the people of God are here taught, I. To triumph in the safety and holy security both of the church in general and of every particular member of it, under the divine protection, Isa 26:1-4. II. To triumph over all opposing powers, Isa 26:5,6. III. To walk with God, and wait for him, in the worst and darkest times, Isa 26:7-9. IV. To lament the stupidity of those who regarded not the providence of God, either merciful or afflictive, Isa 26:10,11. V. To encourage themselves, and one another, with hopes that God would still continue to do them good (Isa 26:12,14), and engage themselves to continue in his service, Isa 26:13. VI. To recollect the kind providences of God towards them in their low and distressed condition, and their conduct under those providences, Isa 26:15-18. VII. To rejoice in hope of a glorious deliverance, which should be as a resurrection to them (Isa 26:19), and to retire in the expectation of it, Isa 26:20,21. And this is written for the support and assistance of the faith and hope of God's people in all ages, even those upon whom the ends of the world have come.
 

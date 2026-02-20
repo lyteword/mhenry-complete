@@ -1,8 +1,11 @@
 ---
+title: "Jeremiah 9 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "9"
+description: "In this chapter the prophet goes on faithfully to reprove sin and to threaten God\'s judgments for it, and yet bitterly to lament both, as one that neither rejoiced at iniquity nor ..."
 weight: 9
 ---
 
-# Chapter 9
+# Jeremiah 9 
 
 In this chapter the prophet goes on faithfully to reprove sin and to threaten God's judgments for it, and yet bitterly to lament both, as one that neither rejoiced at iniquity nor was glad at calamities. I. He here expresses his great grief for the miseries of Judah and Jerusalem, and his detestation of their sins, which brought those miseries upon them, Jer 9:1-11. II. He justifies God in the greatness of the destruction brought upon them, Jer 9:9-16. III. He calls upon others to bewail the woeful case of Judah and Jerusalem, Jer 9:17-22. IV. He shows them the folly and vanity of trusting in their own strength or wisdom, or the privileges of their circumcision, or any thing but God only, Jer 9:23-26.
 

@@ -1,8 +1,11 @@
 ---
+title: "Ezekiel 36 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "36"
+description: "We have done with Mount Seir, and left it desolate, and likely to continue so, and must now turn ourselves, with the prophet, to the mountains of Israel, which we find desolate too..."
 weight: 36
 ---
 
-# Chapter 36
+# Ezekiel 36 
 
 We have done with Mount Seir, and left it desolate, and likely to continue so, and must now turn ourselves, with the prophet, to the mountains of Israel, which we find desolate too, but hope before we have done with the chapter to leave in better plight. Here are two distinct prophecies in this chapter:—I. Here is one that seems chiefly to relate to the temporal estate of the Jews, wherein their present deplorable condition is described and the triumphs of their neighbours in it; but it is promised that their grievances shall be all redressed and that in due time they shall be settled again in their own land, in the midst of peace and plenty, Eze 36:1-15. II. Here is another that seems chiefly to concern their spiritual estate, wherein they are reminded of their former sins and God's judgments upon them, to humble them for their sins and under God's mighty hand, Eze 36:16-20. But it is promised, 1. That God would glorify himself in showing mercy to them, Eze 36:21-24. 2. That he would sanctify them, by giving them his grace and fitting them for his service; and this for his own name's sake and in answer to their prayers, Eze 36:25-38.
 

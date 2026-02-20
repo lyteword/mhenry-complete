@@ -1,8 +1,11 @@
 ---
+title: "Hosea 6 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "6"
+description: "The closing words of the foregoing chapter gave us some hopes that God and his Israel, notwithstanding their sins and his wrath, might yet be happily brought together again, that t..."
 weight: 6
 ---
 
-# Chapter 6
+# Hosea 6 
 
 The closing words of the foregoing chapter gave us some hopes that God and his Israel, notwithstanding their sins and his wrath, might yet be happily brought together again, that they would seek him and he would be found of them; now this chapter carries that matter further, and some join the beginning of this chapter with the end of that, "They will seek me early," saying, "Come and let us return." But God doth again complain of the wickedness of this people; for, though some did repent and reform, the greater part continued obstinate. Observe, I. Their resolution to return to God, and the comforts wherewith they encourage themselves in their return, Ho 6:1-3. II. The instability of many of them in their professions and promises of repentance, and the severe course which God therefore took with them, Ho 6:4,5. III. The covenant God made with them, and his expectations from them (Ho 6:6); their violation of that covenant and frustrating those expectations, Ho 6:7-11.
 

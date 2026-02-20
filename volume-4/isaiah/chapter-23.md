@@ -1,8 +1,11 @@
 ---
+title: "Isaiah 23 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "23"
+description: "This chapter is concerning Tyre, an ancient wealthy city, situated upon the sea, and for many ages one of the most celebrated cities for trade and merchandise in those parts of the..."
 weight: 23
 ---
 
-# Chapter 23
+# Isaiah 23 
 
 This chapter is concerning Tyre, an ancient wealthy city, situated upon the sea, and for many ages one of the most celebrated cities for trade and merchandise in those parts of the world. The lot of the tribe of Asher bordered upon it. See Jos 19:29, where it is called "the strong city Tyre." We seldom find it a dangerous enemy to Israel, but sometimes their faithful ally, as in the reigns of David and Solomon; for trading cities maintain their grandeur, not by the conquest of their neighbours, but by commerce with them. In this chapter is foretold, I. The lamentable desolation of Tyre, which was performed by Nebuchadnezzar and the Chaldean army, about the time that they destroyed Jerusalem; and a hard task they had of it, as appears Eze 29:18, where they are said to have "served a hard service against Tyre," and yet to have no wages, Isa 23:1-14. II. The restoration of Tyre after seventy years, and the return of the Tyrians out of their captivity to their trade again, Isa 23:15-18.
 

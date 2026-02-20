@@ -1,8 +1,11 @@
 ---
+title: "Joel 3 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "3"
+description: "In the close of the foregoing chapter we had a gracious promise of deliverance in Mount Zion and Jerusalem; now this whole chapter is a comment upon that promise, showing what that..."
 weight: 3
 ---
 
-# Chapter 3
+# Joel 3 
 
 In the close of the foregoing chapter we had a gracious promise of deliverance in Mount Zion and Jerusalem; now this whole chapter is a comment upon that promise, showing what that deliverance shall be, how it shall be wrought by the destruction of the church's enemies, and how it shall be perfected in the everlasting rest and joy of the church. This was in part accomplished in the deliverance of Jerusalem from the attempt that Sennacherib made upon it in Hezekiah's time, and afterwards in the return of the Jews out of their captivity in Babylon, and other deliverances wrought for the Jewish church between that and Christ's coming. But it has a further reference, to the great redemption wrought out for us by Jesus Christ, and the destruction of our spiritual enemies and all their agents, and will have its full accomplishment in the judgment of the great day. Here is a prediction, I. Of God's reckoning with the enemies of his people for all the injuries and indignities that they had done them, and returning them upon their own head, Joe 3:1-8. II. Of God's judging all nations when the measure of their iniquity is full, and appearing publicly, to the everlasting confusion of all impenitent sinners and the everlasting comfort of all his faithful servants, Joe 3:9-17. III. Of the provision God has made for the refreshment of his people, for their safety and purity, when their enemies shall be made desolate, Joe 3:18-21. These promises were not of private interpretation only, but were written for our learning, "that we, through patience and comfort of this scripture, might have hope."
 

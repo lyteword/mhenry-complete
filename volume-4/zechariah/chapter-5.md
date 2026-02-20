@@ -1,8 +1,11 @@
 ---
+title: "Zechariah 5 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "5"
+description: "Hitherto we have seen visions of peace only, and all the words we have heard have been good words and comfortable words. But the pillar of cloud and fire has a black and dark side ..."
 weight: 5
 ---
 
-# Chapter 5
+# Zechariah 5 
 
 Hitherto we have seen visions of peace only, and all the words we have heard have been good words and comfortable words. But the pillar of cloud and fire has a black and dark side towards the Egyptians, as well as a bright and pleasant side towards Israel; so have Zechariah's visions; for God's prophets are not only his ambassadors, to treat of peace with the sons of peace, but heralds, to proclaim war against those that delight in war, and persist in their rebellion. In this chapter we have two visions, by which "the wrath of God is revealed from heaven against all ungodliness and unrighteousness of men." God will do great and kind things for his people, which the faithful sons of Zion shall rejoice in; but "let the sinners in Zion be afraid;" for, I. God will reckon severely with those particular persons among them that are wicked and profane, and that hated to be reformed in these times of reformation; while God is showing kindness to the body of the nation, and loading that with his blessings, they and their families shall, notwithstanding that, lie under the curse, which the prophet sees in a flying roll, Zec 5:1-4. II. If the body of the nation hereafter degenerate, and wickedness prevail among them, it shall be carried off and hurried away with a swift destruction, under the pressing weight of divine wrath, represented by a talent of lead upon the mouth of an ephah, carried upon the wing I know not where, Zec 5:5-11.
 

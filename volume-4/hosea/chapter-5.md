@@ -1,8 +1,11 @@
 ---
+title: "Hosea 5 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "5"
+description: "The scope of this chapter is the same with that of the foregoing chapter, to discover the sin both of Israel and Judah, and to denounce the judgments of God against them. I. They a..."
 weight: 5
 ---
 
-# Chapter 5
+# Hosea 5 
 
 The scope of this chapter is the same with that of the foregoing chapter, to discover the sin both of Israel and Judah, and to denounce the judgments of God against them. I. They are called to hearken to the charge, Ho 5:1,8. II. They are accused of many sins, which are here aggravated. 1. Persecution, Ho 5:1,2. 2. Spiritual whoredom, Ho 5:3,4. 3. Pride, Ho 5:5. 4. Apostasy from God, Ho 5:7. 5. The tyranny of the princes, and the tameness of the people in submitting to it, Ho 5:10,11. III. They are threatened with God's displeasure for their sins; he knows all their wickedness (Ho 5:3) and makes known his wrath against them for it, Ho 5:9. 1. They shall fall in their iniquity, Ho 5:5. 2. God will forsake them, Ho 5:6. 3. Their portions shall be devoured, Ho 5:7. 4. God will rebuke them, and pour out his wrath upon them, Ho 5:9,10. 5. They shall be oppressed, Ho 5:11. 6. God will be as a moth to them in secret judgments (Ho 5:12) and as a lion in public judgments, Ho 5:14. IV. They are blamed for the wrong course they took under their afflictions, Ho 5:13. V. It is intimated that they shall at length take a right course, Ho 5:15. The more generally these things are expressed of so much the more general use they are for our learning, and particularly for our admonition.
 

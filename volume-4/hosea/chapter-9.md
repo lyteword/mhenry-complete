@@ -1,8 +1,11 @@
 ---
+title: "Hosea 9 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "9"
+description: "In this chapter, I. God threatens to deprive this degenerate seed of Israel of all their worldly enjoyments, because by sin they had forfeited their title to them; so that they sho..."
 weight: 9
 ---
 
-# Chapter 9
+# Hosea 9 
 
 In this chapter, I. God threatens to deprive this degenerate seed of Israel of all their worldly enjoyments, because by sin they had forfeited their title to them; so that they should have no comfort either in receiving them themselves or in offering them to God, Ho 9:1-5. II. He dooms them to utter ruin, for their own sins and the sins of their prophets, Ho 9:6-8. III. He upbraids them with the wickedness of their fathers before them, whose steps they trod in, Ho 9:9,10. IV. He threatens them with the destruction of their children and the rooting out of their posterity, Ho 9:11-17.
 

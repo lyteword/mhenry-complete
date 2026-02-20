@@ -1,8 +1,11 @@
 ---
+title: "Isaiah 31 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "31"
+description: "This chapter is an abridgment of the foregoing chapter; the heads of it are much the same. Here is, I. A woe to those who, when the Assyrian army invaded them, trusted to the Egypt..."
 weight: 31
 ---
 
-# Chapter 31
+# Isaiah 31 
 
 This chapter is an abridgment of the foregoing chapter; the heads of it are much the same. Here is, I. A woe to those who, when the Assyrian army invaded them, trusted to the Egyptians, and not to God, for succour, Isa 31:1-3. II. Assurance given of the care God would take of Jerusalem in that time of danger and distress, Isa 31:4,5. III. A call to repentance and reformation, Isa 31:6,7. IV. A prediction of the fall of the Assyrian army, and the fright which the Assyrian king should thereby be put into, Isa 31:8,9.
 

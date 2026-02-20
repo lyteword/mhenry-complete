@@ -1,8 +1,11 @@
 ---
+title: "Jeremiah 7 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "7"
+description: "The prophet having in God\'s name reproved the people for their sins, and given them warning of the judgments of God that were coming upon them, in this chapter prosecutes the same ..."
 weight: 7
 ---
 
-# Chapter 7
+# Jeremiah 7 
 
 The prophet having in God's name reproved the people for their sins, and given them warning of the judgments of God that were coming upon them, in this chapter prosecutes the same intention for their humiliation and awakening. I. He shows them the invalidity of the plea they so much relied on, that they had the temple of God among them and constantly attended the service of it, and endeavours to take them off from their confidence in their external privileges and performances, Jer 7:1-11. II. He reminds them of the desolations of Shiloh, and foretels that such should be the desolations of Jerusalem, Jer 7:12-16. III. He represents to the prophet their abominable idolatries, for which he was thus incensed against them, Jer 7:17-20. IV. He sets before the people that fundamental maxim of religion that "to obey is better than sacrifice" (1Sa 15:22), and that God would not accept the sacrifices of those that obstinately persisted in disobedience, Jer 7:21-28. V. He threatens to lay the land utterly waste for their idolatry and impiety, and to multiply their slain as they had multiplied their sin, Jer 7:29-34.
 

@@ -1,8 +1,11 @@
 ---
+title: "Habakkuk 2 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "2"
+description: "In this chapter we have an answer expected by the prophet (Hab 2:1), and returned by the Spirit of God, to the complaints which the prophet made of the violences and victories of t..."
 weight: 2
 ---
 
-# Chapter 2
+# Habakkuk 2 
 
 In this chapter we have an answer expected by the prophet (Hab 2:1), and returned by the Spirit of God, to the complaints which the prophet made of the violences and victories of the Chaldeans in the close of the foregoing chapter. The answer is, I. That after God has served his own purposes by the prevailing power of the Chaldeans, has tried the faith and patience of his people, and distinguished between the hypocrites and the sincere among them, he will reckon with the Chaldeans, will humble and bring down, not only that proud monarch Nebuchadnezzar, but that proud monarchy, for their boundless and insatiable thirst after dominion and wealth, for which they themselves should at length be made a prey, Hab 2:2-8. II. That not they only, but all other sinners like them, should perish under a divine woe. 1. Those that are covetous, are greedy of wealth and honours, Hab 2:9,11. 2. Those that are injurious and oppressive, and raise estates by wrong and rapine, Hab 2:12-14. 3. Those that promote drunkenness that they may expose their neighbours to shame, Hab 2:15-17. 4. Those that worship idols, Hab 2:18-20.
 

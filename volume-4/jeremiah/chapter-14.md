@@ -1,8 +1,11 @@
 ---
+title: "Jeremiah 14 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "14"
+description: "This chapter was penned upon occasion of a great drought, for want of rain. This judgment began in the latter end of Josiah\'s reign, but, as it should seem, continued in the beginn..."
 weight: 14
 ---
 
-# Chapter 14
+# Jeremiah 14 
 
 This chapter was penned upon occasion of a great drought, for want of rain. This judgment began in the latter end of Josiah's reign, but, as it should seem, continued in the beginning of Jehoiakim's: for less judgments are sent to give warning of greater coming, if not prevented by repentance. This calamity was mentioned several times before, but here, in this chapter, more fully. Here is, I. A melancholy description of it, Jer 14:1-6. II. A prayer to God to put an end to this calamity and to return in mercy to their land, Jer 14:7-9. III. A severe threatening that God would proceed in his controversy, because they proceeded in their iniquity, Jer 14:10-12. IV. The prophet's excusing the people, by laying the blame on their false prophets; and the doom passed both on the deceivers and the deceived, Jer 14:13-16. V. Directions given to the prophet, instead of interceding for them, to lament them; but his continuing notwithstanding to intercede for them, Jer 14:17-22.
 

@@ -1,8 +1,11 @@
 ---
+title: "Isaiah 62 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "62"
+description: "The business of prophets was both to preach and pray. In this chapter, I. The prophet determines to apply closely and constantly to this business, Isa 62:1. II. God appoints him an..."
 weight: 62
 ---
 
-# Chapter 62
+# Isaiah 62 
 
 The business of prophets was both to preach and pray. In this chapter, I. The prophet determines to apply closely and constantly to this business, Isa 62:1. II. God appoints him and others of his prophets to continue to do so, for the encouragement of his people during the delays of their deliverance, Isa 62:6,7. III. The promises are here repeated and ratified of the great things God would do for his church, for the Jews after their return out of captivity and for the Christian church when it shall be set up in the world. 1. The church shall be made honourable in the eyes of the world, Isa 62:2. 2. It shall appear to be very dear to God, precious and honourable in his sight, Isa 62:3-5. 3. It shall enjoy great plenty, Isa 62:8,9. 4. It shall be released out of captivity and grow up again into a considerable nation, particularly owned and favoured by heaven, Isa 62:10-12.
 

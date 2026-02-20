@@ -1,8 +1,11 @@
 ---
+title: "Zechariah 8 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "8"
+description: "The work of ministers is rightly to divide the word of truth and to give every one his portion. So the prophet is here instructed to do, in the further answer he gives to the case ..."
 weight: 8
 ---
 
-# Chapter 8
+# Zechariah 8 
 
 The work of ministers is rightly to divide the word of truth and to give every one his portion. So the prophet is here instructed to do, in the further answer he gives to the case of conscience proposed about continuing the public fasts. His answer, in the foregoing chapter, is by way of reproof to those that were disobedient and would not obey the truth. But here he is ordered to change his voice, and to speak by way of encouragement to the willing and obedient. Here are two words from the Lord of hosts, and they are both good words and comfortable words. In the former of these messages (Zec 8:1) God promises that Jerusalem shall be restored, reformed, replenished (Zec 8:2-8), that the country shall be rich, and the affairs of the nation shall be successful, their reputation retrieved, and their state in all respects the reverse of what it had been for many years past (Zec 8:9-15); he then exhorts them to reform what was amiss among them, that they might be ready for these favours designed them (Zec 8:16,17). In the latter of these messages (Zec 8:18) he promises that their fasts should be superseded by the return of mercy (Zec 8:19), and that thereupon they should be replenished, enriched, and strengthened, by the accession of foreigners to them, Zec 8:20-23.
 

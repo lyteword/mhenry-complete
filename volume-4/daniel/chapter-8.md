@@ -1,8 +1,11 @@
 ---
+title: "Daniel 8 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "8"
+description: "The visions and prophecies of this chapter look only and entirely at the events that were then shortly to come to pass in the monarchies of Persia and Greece, and seem not to have ..."
 weight: 8
 ---
 
-# Chapter 8
+# Daniel 8 
 
 The visions and prophecies of this chapter look only and entirely at the events that were then shortly to come to pass in the monarchies of Persia and Greece, and seem not to have any further reference at all. Nothing is here said of the Chaldean monarchy, for that was now just at its period; and therefore this chapter is written not in Chaldee, as the six foregoing chapters were, for the benefit of the Chaldeans, but in Hebrew, and so are the rest of the chapters to the end of the book, for the service of the Jews, that they might know what troubles were before them and what the issue of them would be, and might provide accordingly. In this chapter we have, I. The vision itself of the ram, and the he-goat, and the little horn that should fight and prevail against the people of God, for a certain limited time, Da 8:1-14. II. The interpretation of this vision by an angel, showing that the ram signified the Persian empire, the he-goat the Grecian, and the little horn a king of the Grecian monarchy, that should set himself against the Jews and religion, which was Antiochus Epiphanes, Da 8:15-27. The Jewish church, from its beginning, had been all along, more or less, blessed with prophets, men divinely inspired to explain God's mind to them in his providences and give them some prospect of what was coming upon them; but, soon after Ezra's time, divine inspiration ceased, and there was no more any prophet till the gospel day dawned. And therefore the events of that time were here foretold by Daniel, and left upon record, that even then God might not leave himself without witness, nor them without a guide.
 

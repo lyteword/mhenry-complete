@@ -1,8 +1,11 @@
 ---
+title: "Isaiah 13 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "13"
+description: "Hitherto the prophecies of this book related only to Judah and Israel, and Jerusalem especially; but now the prophet begins to look abroad, and to read the doom of divers of the ne..."
 weight: 13
 ---
 
-# Chapter 13
+# Isaiah 13 
 
 Hitherto the prophecies of this book related only to Judah and Israel, and Jerusalem especially; but now the prophet begins to look abroad, and to read the doom of divers of the neighbouring states and kingdoms: for he that is King of saints is also King of nations, and rules in the affairs of the children of men as well as in those of his own children. But the nations to whom these prophecies do relate were all such as the people of God were in some way or other conversant and concerned with, such as had been kind or unkind to Israel, and accordingly God would deal with them, either in favour or in wrath; for the Lord's portion is his people, and to them he has an eye in all the dispensations of his providence concerning those about them, De 32:8,9. The threatenings we find here against Babylon, Moab, Damascus, Egypt, Tyre, etc., were intended for comfort to those in Israel that feared God, but were terrified and oppressed by those potent neighbours, and for alarm to those among them that were wicked. If God would thus severely reckon with those for their sins that knew him not, and made no profession of his name, how severe would he be with those that were called by his name and yet lived in rebellion against him! And perhaps the directing of particular prophecies to the neighbouring nations might invite some of those nations to the reading of the Jews' Bible, and so they might be brought to their religion. This chapter, and that which follows, contain what God had to say to Babylon and Babylon's king, who were at present little known to Israel, but would in process of time become a greater enemy to them than any other had been, for which God would at last reckon with them. In this chapter we have, I. A general rendezvous of the forces that were to be employed against Babylon, Isa 13:1-5. II. The dreadfully bloody work that those forces should make in Babylon, Isa 13:6-18. III. The utter ruin and desolation of Babylon, which this should end in, Isa 13:19-22.
 

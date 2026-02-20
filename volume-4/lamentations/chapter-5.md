@@ -1,8 +1,11 @@
 ---
+title: "Lamentations 5 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "5"
+description: "This chapter, though it has the same number of verses with the 1st, 2nd, and 4th, is not alphabetical, as they were, but the scope of it is the same with that of all the foregoing ..."
 weight: 5
 ---
 
-# Chapter 5
+# Lamentations 5 
 
 This chapter, though it has the same number of verses with the 1st, 2nd, and 4th, is not alphabetical, as they were, but the scope of it is the same with that of all the foregoing elegies. We have in it, I. A representation of the present calamitous state of God's people in their captivity, La 5:1-16. II. A protestation of their concern for God's sanctuary, as that which lay nearer their heart than any secular interest of their own, La 5:17,18. III. A humble supplication to God and expostulation with him, for the returns of mercy (La 5:19-22); for those that lament and do not pray sin in their lamentations. Some ancient versions call this chapter, "The Prayer of Jeremiah."
 

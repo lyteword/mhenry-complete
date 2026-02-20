@@ -1,8 +1,11 @@
 ---
+title: "Jeremiah 20 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "20"
+description: "Such plain dealing as Jeremiah used in the foregoing chapter, one might easily foresee, if it did not convince and humble men, would provoke and exasperate them; and so it did; for..."
 weight: 20
 ---
 
-# Chapter 20
+# Jeremiah 20 
 
 Such plain dealing as Jeremiah used in the foregoing chapter, one might easily foresee, if it did not convince and humble men, would provoke and exasperate them; and so it did; for here we find, I. Jeremiah persecuted by Pashur for preaching that sermon, Jer 20:1,2. II. Pashur threatened for so doing, and the word which Jeremiah had preached confirmed, Jer 20:3-6. III. Jeremiah complaining to God concerning it, and the other instances of hard measure that he had since he began to be a prophet, and the grievous temptations he had struggled with (Jer 20:7-10), encouraging himself in God, lodging his appeal with him, not doubting but that he shall yet praise him, by which it appears that he had much grace (Jer 20:11-13) and yet peevishly cursing the day of his birth (Jer 20:14-18), by which it appears that he had sad remainders of corruption in him too, and was a man subject to like passions as we are.
 

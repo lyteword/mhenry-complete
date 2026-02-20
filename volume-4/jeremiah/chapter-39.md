@@ -1,8 +1,11 @@
 ---
+title: "Jeremiah 39 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "39"
+description: "As the prophet Isaiah, after he had largely foretold the deliverance of Jerusalem out of the hands of the king of Assyria, gave a particular narrative of the story, that it might a..."
 weight: 39
 ---
 
-# Chapter 39
+# Jeremiah 39 
 
 As the prophet Isaiah, after he had largely foretold the deliverance of Jerusalem out of the hands of the king of Assyria, gave a particular narrative of the story, that it might appear how exactly the event answered to the prediction, so the prophet Jeremiah, after he had largely foretold the delivering of Jerusalem into the hands of the king of Babylon, gives a particular account of that sad event for the same reason. That melancholy story we have in this chapter, which serves to disprove the false flattering prophets and to confirm the word of God's messengers. We are here told, I. That Jerusalem, after eighteen months' siege, was taken by the Chaldean army, Jer 39:1-3. II. That king Zedekiah, attempting to make his escape, was seized and made a miserable captive to the king of Babylon, Jer 39:4-7. III. That Jerusalem was burnt to the ground, and the people were carried captive, except the poor, Jer 39:8-10. IV. That the Chaldeans were very kind to Jeremiah, and took particular care of him, Jer 39:11-14. V. That Ebed-melech too, for his kindness, had a protection from God himself in this day of desolation, Jer 39:15-18.
 

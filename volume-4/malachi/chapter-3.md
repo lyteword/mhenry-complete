@@ -1,8 +1,11 @@
 ---
+title: "Malachi 3 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "3"
+description: "In this chapter we have, I. A promise of the coming of the Messiah, and of his forerunner; and the errand he comes upon is here particularly described, both the comfort which his c..."
 weight: 3
 ---
 
-# Chapter 3
+# Malachi 3 
 
 In this chapter we have, I. A promise of the coming of the Messiah, and of his forerunner; and the errand he comes upon is here particularly described, both the comfort which his coming brings to his church and people and the terror which it will bring to the wicked, Mal 3:1-6. II. A reproof of the Jews for their corrupting God's ordinances and sacrilegiously robbing him of his dues, with a charge to them to amend this matter, and a promise that, if they did, God would return in mercy to them, Mal 3:7-12. III. A description of the wickedness of the wicked that speak against God (Mal 3:13-15), and of the righteousness of the righteous that speak for him, with the precious promises made to them, Mal 3:16-18.
 

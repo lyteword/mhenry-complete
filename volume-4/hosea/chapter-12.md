@@ -1,8 +1,11 @@
 ---
+title: "Hosea 12 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "12"
+description: "In this chapter we have, I. A high charge drawn up against both Israel and Judah for their sins, which were the ground of God\'s controversy with them, Ho 12:1,2. Particularly the s..."
 weight: 12
 ---
 
-# Chapter 12
+# Hosea 12 
 
 In this chapter we have, I. A high charge drawn up against both Israel and Judah for their sins, which were the ground of God's controversy with them, Ho 12:1,2. Particularly the sin of fraud and injustice, which Ephraim is charged with (Ho 12:7), and justifies himself in, Ho 12:8. And the sin of idolatry (Ho 12:11), by which God is provoked to contend with them, Ho 12:14. II. The aggravations of the sins they are charged with, taken from the honour God put upon their father Jacob (Ho 12:3-5), the advancement of them into a people from low and mean beginnings (Ho 12:12,13), and the provision he had made them of helps for their souls by the prophets he sent them, Ho 12:10. III. A call to the unconverted to turn to God, Ho 12:6. IV. An intimation of mercy that God had in store for them, Ho 12:9.
 

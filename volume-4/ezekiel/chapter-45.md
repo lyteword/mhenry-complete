@@ -1,8 +1,11 @@
 ---
+title: "Ezekiel 45 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "45"
+description: "In this chapter is further represented to the prophet, in vision, I. The division of the holy land, so much for the temple, and the priests that attended the service of it (Eze 45:..."
 weight: 45
 ---
 
-# Chapter 45
+# Ezekiel 45 
 
 In this chapter is further represented to the prophet, in vision, I. The division of the holy land, so much for the temple, and the priests that attended the service of it (Eze 45:1-4), so much for the Levites (Eze 45:5), so much for the city (Eze 45:6), so much for the prince, and the residue to the people, Eze 45:7,8. II. The ordinances of justice that were given both to prince and people, Eze 45:9-12. III. The oblations they were to offer, and the prince's part in those oblations, Eze 45:13-17. Particularly in the beginning of the year (Eze 45:18-20) and in the passover, and the feast of tabernacles, Eze 45:21-25. And all this seems to point at the new church-state that should be set up under the gospel, which, both for extent and for purity, should far exceed that of the Old Testament.
 

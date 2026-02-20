@@ -1,8 +1,11 @@
 ---
+title: "Ezekiel 41 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "41"
+description: "An account was given of the porch of the house in the close of the foregoing chapter; this brings us to the temple itself, the description of which here given creates much difficul..."
 weight: 41
 ---
 
-# Chapter 41
+# Ezekiel 41 
 
 An account was given of the porch of the house in the close of the foregoing chapter; this brings us to the temple itself, the description of which here given creates much difficulty to the critical expositors and occasions differences among them. Those must consult them who are nice in their enquiries into the meaning of the particulars of this delineation; it shall suffice us to observe, I. The dimensions of the house, the posts of it (Eze 41:1), the door (Eze 41:2), the wall and the side-chambers (Eze 41:5,6), the foundations and wall of the chambers, their doors (Eze 41:8-11), and the house itself, Eze 41:13. II. The dimensions of the oracle, or most holy place, Eze 41:3,4. III. An account of another building over against the separate place, Eze 41:12-15. IV. The manner of the building of the house, Eze 41:7,16,17. V. The ornaments of the house, Eze 41:18-20. VI. The altar of incense and the table, Eze 41:22. VII. The doors between the temple and the oracle, Eze 41:23-26. There is so much difference both in the terms and in the rules of architecture between one age and another, one place and another, that it ought not to be any stumbling-block to us that there is so much in these descriptions dark and hard to be understood, about the meaning of which the learned are not agreed. To one not skilled in mathematics the mathematical description of a modern structure would be scarcely intelligible; and yet to a common carpenter or mason among the Jews at that time we may suppose that all this, in the literal sense of it, was easy enough.
 

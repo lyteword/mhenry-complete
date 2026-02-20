@@ -1,8 +1,11 @@
 ---
+title: "Isaiah 4 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "4"
+description: "In this chapter we have, I. A threatening of the paucity and scarceness of man (Isa 4:1), which might fitly enough have been added to the close of the foregoing chapter, to which i..."
 weight: 4
 ---
 
-# Chapter 4
+# Isaiah 4 
 
 In this chapter we have, I. A threatening of the paucity and scarceness of man (Isa 4:1), which might fitly enough have been added to the close of the foregoing chapter, to which it has a plain reference. II. A promise of the restoration of Jerusalem's peace and purity, righteousness and safety, in the days of the Messiah, Isa 4:2-6. Thus, in wrath, mercy is remembered, and gospel grace is a sovereign relief, in reference to the terrors of the law and the desolations made by sin.
 

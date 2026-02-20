@@ -1,8 +1,11 @@
 ---
+title: "Jeremiah 12 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "12"
+description: "In this chapter we have, I. The prophet\'s humble complaint to God of the success that wicked people had in their wicked practices (Jer 12:1,2) and his appeal to God concerning his ..."
 weight: 12
 ---
 
-# Chapter 12
+# Jeremiah 12 
 
 In this chapter we have, I. The prophet's humble complaint to God of the success that wicked people had in their wicked practices (Jer 12:1,2) and his appeal to God concerning his own integrity (Jer 12:3), with a prayer that God would, for the sake of the public, bring the wickedness of the wicked to an end, Jer 12:3,4. II. God's rebuke to the prophet for his uneasiness at his present troubles, bidding him prepare for greater, Jer 12:5,6. III. A sad lamentation of the present deplorable state of the Israel of God, Jer 12:7-13. IV. An intimation of mercy to God's people, in a denunciation of wrath against their neighbours that helped forward their affliction, that they should be plucked out; but with a promise that if they would at last join themselves with the people of God they should come in sharers with them in their privileges, Jer 12:14-17.
 

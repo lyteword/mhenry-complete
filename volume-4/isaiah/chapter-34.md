@@ -1,8 +1,11 @@
 ---
+title: "Isaiah 34 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "34"
+description: "In this chapter we have the fatal doom of all the nations that are enemies to God\'s church and people, though Edom only is mentioned, because of the old enmity of Esau to Jacob, wh..."
 weight: 34
 ---
 
-# Chapter 34
+# Isaiah 34 
 
 In this chapter we have the fatal doom of all the nations that are enemies to God's church and people, though Edom only is mentioned, because of the old enmity of Esau to Jacob, which was typical, as much as that more ancient enmity of Cain to Abel, and flowed from the original enmity of the serpent to the seed of the woman. It is probable that this prophecy had its accomplishment in the great desolations made by the Assyrian army first, or rather by Nebuchadnezzar's army some time after, among those nations that were neighbours to Israel and had been in some way or other injurious to them. That mighty conqueror took a pride in shedding blood, and laying countries waste, and therein, quite beyond his design, he was fulfilling what God here threatened against his and his people's enemies. But we have reason to think it is intended as a denunciation of the wrath of God against all those who fight against the interests of his kingdom among men, that it has its frequent accomplishment in the havoc made by the wars of the nations and other desolating judgments, and will have its full accomplishment in the final dissolution of all things at the day of judgment and perdition of ungodly men. Here is, I. A demand of universal attention, Isa 34:1. II. A direful scene of blood and confusion presented, Isa 34:2-7. III. The reason given for these judgments, Isa 34:8. IV. The continuance of this desolation, the country being made like the lake of Sodom (Isa 34:9,10), and the cities abandoned to wild beasts and melancholy fowls, Isa 34:11-15. V. The solemn ratification of all this, Isa 34:16,17. Let us hear, and fear.
 

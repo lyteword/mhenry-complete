@@ -1,8 +1,11 @@
 ---
+title: "Ezekiel 29 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "29"
+description: "Three chapters we had concerning Tyre and its king; next follow four chapters concerning Egypt and its king. This is the first of them. Egypt had formerly been a house of bondage t..."
 weight: 29
 ---
 
-# Chapter 29
+# Ezekiel 29 
 
 Three chapters we had concerning Tyre and its king; next follow four chapters concerning Egypt and its king. This is the first of them. Egypt had formerly been a house of bondage to God's people; of late they had had but too friendly a correspondence with it, and had depended too much upon it; and therefore, whether the prediction reached Egypt or no, it would be of use to Israel, to take them off from their confidence in their alliance with it. The prophecies against Egypt, which are all laid together in these four chapters, were of five several dates; the first in the 10th year of the captivity (Eze 29:1), the second in the 27th (Eze 29:17), the third in the 11th year and the first month (Eze 30:20), the fourth in the 11th year and the third month (Eze 31:1), the fifth in the 12th year (Eze 32:1), and another in the same year, Eze 29:17. In this chapter we have, I. The destruction of Pharaoh foretold, for his dealing deceitfully with Israel, Eze 29:1-7. II. The desolation of the land of Egypt foretold, Eze 29:8-12. III. A promise of the restoration thereof, in part, after forty years, Eze 29:13-16. IV. The possession that should be given to Nebuchadnezzar of the land of Egypt, Eze 29:17-20. V. A promise of mercy to Israel, Eze 29:21.
 

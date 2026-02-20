@@ -1,8 +1,11 @@
 ---
+title: "Isaiah 11 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "11"
+description: "It is a very good transition in prophecy (whether it be so in rhetoric or no), and a very common one, to pass from the prediction of the temporal deliverances of the church to that..."
 weight: 11
 ---
 
-# Chapter 11
+# Isaiah 11 
 
 It is a very good transition in prophecy (whether it be so in rhetoric or no), and a very common one, to pass from the prediction of the temporal deliverances of the church to that of the great salvation, which in the fulness of time should be wrought out by Jesus Christ, of which the other were types and figures, to which all the prophets bore witness; and so the ancient Jews understood them. For what else was it that raised so great an expectation of the Messiah at the time he came. Upon occasion of the prophecy of the deliverance of Jerusalem from Sennacherib, here comes in a prophecy concerning Messiah the Prince. I. His rise out of the house of David, Isa 11:1. II. His qualifications for his great undertaking, Isa 11:2,3. III. The justice and equity of his government, Isa 11:3-5. IV. The peaceableness of his kingdom, Isa 11:6-9. V. The accession of the Gentiles to it (Isa 11:10), and with them the remnant of the Jews, that should be united with them in the Messiah's kingdom (Isa 11:11-16) and of all this God would now shortly give them a type, and some dark representation, in the excellent government of Hezekiah, the great peace which the nation should enjoy under him, after the ruin of Sennacherib's design, and the return of many of the ten tribes out of their dispersion to their brethren of the land of Judah, when they enjoyed that great tranquility.
 

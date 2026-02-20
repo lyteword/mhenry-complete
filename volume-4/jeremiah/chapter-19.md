@@ -1,8 +1,11 @@
 ---
+title: "Jeremiah 19 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "19"
+description: "The same melancholy theme is the subject of this chapter that was of those foregoing—the approaching ruin of Judah and Jerusalem for their sins. This Jeremiah had often foretold; h..."
 weight: 19
 ---
 
-# Chapter 19
+# Jeremiah 19 
 
 The same melancholy theme is the subject of this chapter that was of those foregoing—the approaching ruin of Judah and Jerusalem for their sins. This Jeremiah had often foretold; here he has particularly full orders to foretel it again. I. He must set their sins in order before them, as he had often done, especially their idolatry, Jer 19:4,5. II. He must describe the particular judgments which were now coming apace upon them for these sins, Jer 19:6-9. III. He must do this in the valley of Tophet, with great solemnity, and for some particular reasons, Jer 19:2,3. IV. He must summon a company of the elders together to be witnesses of this, Jer 19:1. V. He must confirm this, and endeavour to affect his hearers with it, by a sign, which was the breaking of an earthen bottle, signifying that they should be dashed to pieces like a potter's vessel, Jer 19:10-13. VI. When he had done this in the valley of Tophet he ratified it in the court of the temple, Jer 19:14,15. Thus were all likely means tried to awaken this stupid senseless people to repentance, that their ruin might be prevented; but all in vain.
 

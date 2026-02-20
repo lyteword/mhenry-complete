@@ -1,8 +1,11 @@
 ---
+title: "Daniel 2 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "2"
+description: "It was said (Da 1:17) that Daniel had understanding in dreams; and here we have an early and eminent instance of it, which soon made him famous in the court of Babylon, as Joseph b..."
 weight: 2
 ---
 
-# Chapter 2
+# Daniel 2 
 
 It was said (Da 1:17) that Daniel had understanding in dreams; and here we have an early and eminent instance of it, which soon made him famous in the court of Babylon, as Joseph by the same means came to be so in the court of Egypt. This chapter is a history, but it is the history of a prophecy, by a dream and the interpretation of it. Pharaoh's dream, and Joseph's interpretation of it, related only to the years of plenty and famine and the interest of God's Israel in them; but Nebuchadnezzar's dream here, and Daniel's interpretation of that, look much higher, to the four monarchies, and the concerns of Israel in them, and the kingdom of the Messiah, which should be set up in the world upon the ruins of them. In this chapter we have, I. The great perplexity that Nebuchadnezzar was put into by a dream which he had forgotten, and his command to the magicians to tell him what it was, which they could not pretend to do, Da 2:1-11. II. Orders given for the destroying of all the wise men of Babylon, and of Daniel among the rest, with his fellows, Da 2:12-15. III. The discovery of this secret to him, in answer to prayer, and the thanksgiving he offered up to God thereupon, Da 2:16-23. IV. His admission to the king, and the discovery he made to him both of his dream and of the interpretation of it, Da 2:24-45. V. The great honour which Nebuchadnezzar put upon Daniel, in recompence for this service, and the preferment of his companions with him, Da 2:46-49.
 

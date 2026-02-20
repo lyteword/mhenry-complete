@@ -1,8 +1,11 @@
 ---
+title: "Zechariah 3 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "3"
+description: "The vision in the foregoing chapter gave assurances of the re-establishing of the civil interests of the Jewish nation, the promises of which terminated in Christ. Now the vision i..."
 weight: 3
 ---
 
-# Chapter 3
+# Zechariah 3 
 
 The vision in the foregoing chapter gave assurances of the re-establishing of the civil interests of the Jewish nation, the promises of which terminated in Christ. Now the vision in this chapter concerns their church-state, and their ecclesiastical interests, and assures them that they shall be put into a good posture again; and the promises of this also have an eye to Christ, who is not only our prince, but the high priest of our profession, of whom Joshua was a type. Here is, I. A vision relating to Joshua, as the representative of the church in his time, representing the disadvantages he laboured under, and the people in him, with the redress of the grievances of both. 1. He is accused by Satan, but is brought off by Christ, Zec 1:1,2. 2. He appears in filthy garments, but has them changed, Zec 1:3-5. 3. He is assured of being established in his office if he conduct himself well, Zec 1:6,7. II. A sermon relating to Christ, who is here called "The branch," who should be endued with all perfections for his undertaking, should be carried triumphantly through it, and by whom we should have pardon and peace, Zec 1:8-10.
 

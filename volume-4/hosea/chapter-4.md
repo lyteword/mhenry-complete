@@ -1,8 +1,11 @@
 ---
+title: "Hosea 4 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "4"
+description: "Prophets were sent to be reprovers, to tell people of their faults, and to warn them of the judgments of God, to which by sin they exposed themselves; so the prophet is employed in..."
 weight: 4
 ---
 
-# Chapter 4
+# Hosea 4 
 
 Prophets were sent to be reprovers, to tell people of their faults, and to warn them of the judgments of God, to which by sin they exposed themselves; so the prophet is employed in this and the following chapters. He is here, as counsel for the King of kings, opening an indictment against the people of Israel, and labouring to convince them of sin, and of their misery and danger because of sin, that he might prevail with them to repent and reform. I. He shows them what were the grounds of God's controversy with them, a general prevalency of vice and profaneness (Ho 4:1,2), ignorance and forgetfulness of God (Ho 4:6,7), the worldly-mindedness of the priests (Ho 4:8), drunkenness and uncleanness (Ho 4:11), using divination and witchcraft (Ho 4:12), offering sacrifice in the high places (Ho 4:13), whoredoms (Ho 4:14,18), and bribery among magistrates, Ho 4:18. II. He shows them what would be the consequences of God's controversy. God would punish them for these things, Ho 4:9. The whole land should be laid waste (Ho 4:3), all sorts of people cut off (Ho 4:5), their honour lost (Ho 4:7), their creature-comforts unsatisfying (Ho 4:10), and themselves made ashamed, Ho 4:19. And, which is several times mentioned here as the sorest judgment of all, they should be let alone in their sins (Ho 4:17), they shall not reprove one another (Ho 4:4), God will not punish them (Ho 4:14), nay, he will let them prosper, Ho 4:16. III. He gives warning to Judah not to tread in the steps of Israel, because they saw their steps went down to hell, Ho 4:15.
 

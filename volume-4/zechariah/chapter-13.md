@@ -1,8 +1,11 @@
 ---
+title: "Zechariah 13 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "13"
+description: "In this chapter we have, I. Some further promises relating to gospel-times. Here is a promise of the remission of sins (Zec 13:1), of the reformation of manners (Zec 13:2), and par..."
 weight: 13
 ---
 
-# Chapter 13
+# Zechariah 13 
 
 In this chapter we have, I. Some further promises relating to gospel-times. Here is a promise of the remission of sins (Zec 13:1), of the reformation of manners (Zec 13:2), and particularly of the convicting and silencing of false prophets, Zec 13:2-6. II. A clear prediction of the sufferings of Christ and the dispersion of his disciples thereupon (Zec 13:7), of the destruction of the greater part of the Jewish nation not long after (Zec 13:8), and of the purifying of a remnant of them, a peculiar people to God, Zec 13:9.
 

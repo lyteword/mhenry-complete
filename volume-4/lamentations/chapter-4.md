@@ -1,8 +1,11 @@
 ---
+title: "Lamentations 4 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "4"
+description: "This chapter is another single alphabet of Lamentations for the destruction of Jerusalem, like those in the first two chapters. I. The prophet here laments the injuries and indigni..."
 weight: 4
 ---
 
-# Chapter 4
+# Lamentations 4 
 
 This chapter is another single alphabet of Lamentations for the destruction of Jerusalem, like those in the first two chapters. I. The prophet here laments the injuries and indignities done to those to whom respect used to be shown, La 4:1,2. II. He laments the direful effects of the famine to which they were reduced by the siege, La 4:3-10. III. He laments the taking and sacking of Jerusalem and its amazing desolations, La 4:11,12. IV. He acknowledges that the sins of their leaders were the cause of all these calamities, La 4:13-16. V. He gives up all as doomed to utter ruin, for their enemies were every way too hard for them, La 4:17-20. VI. He foretels the destruction of the Edomites who triumphed in Jerusalem's fall, La 4:21. VII. He foretels the return of the captivity of Zion at last, La 4:22.
 

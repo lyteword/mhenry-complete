@@ -1,8 +1,11 @@
 ---
+title: "Jeremiah 8 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "8"
+description: "The prophet proceeds, in this chapter, both to magnify and to justify the destruction that God was bringing upon this people, to show how grievous it would be and yet how righteous..."
 weight: 8
 ---
 
-# Chapter 8
+# Jeremiah 8 
 
 The prophet proceeds, in this chapter, both to magnify and to justify the destruction that God was bringing upon this people, to show how grievous it would be and yet how righteous. I. He represents the judgments coming as so very terrible that death should appear so as most to be dreaded and yet should be desired, Jer 8:1-3. II. He aggravates the wretched stupidity and wilfulness of this people as that which brought this ruin upon them, Jer 8:4-12. III. He describes the great confusion and consternation that the whole land should be in upon the alarm of it, Jer 8:13-17. IV. The prophet is himself deeply affected with it and lays it very much to heart, Jer 8:18-22.
 

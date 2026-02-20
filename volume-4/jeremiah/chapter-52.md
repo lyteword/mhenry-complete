@@ -1,8 +1,11 @@
 ---
+title: "Jeremiah 52 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "52"
+description: "History is the best expositor of prophecy; and therefore, for the better understanding of the prophecies of this book which relate to the destruction of Jerusalem and the kingdom o..."
 weight: 52
 ---
 
-# Chapter 52
+# Jeremiah 52 
 
 History is the best expositor of prophecy; and therefore, for the better understanding of the prophecies of this book which relate to the destruction of Jerusalem and the kingdom of Judah, we are here furnished with an account of that sad event. It is much he same with the history we had 2Ki 24:1-25:30, and many of the particulars we had before in that book, but the matter is here repeated and put together, to give light to the book of the Lamentations, which follows next, and to serve as a key to it. That article in the close concerning the advancement of Jehoiachin in his captivity, which happened after Jeremiah's time, gives colour to the conjecture of those who suppose that this chapter was not written by Jeremiah himself, but by some man divinely inspired among those in captivity, for a constant memorandum to those who in Babylon preferred Jerusalem above their chief joy. In this chapter we have, I. The bad reign of Zedekiah, very bad in regard both of sin and of punishment, Jer 52:1-3. II. The besieging and taking of Jerusalem by the Chaldeans, Jer 52:4-7. III. The severe usage which Zedekiah and the princes met with, Jer 52:8-11. IV. The destruction of the temple and the city, Jer 52:12-14. V. The captivity of the people (Jer 52:15,16) and the numbers of those that were carried away into captivity, Jer 52:28-30. VI. The carrying off of the plunder of the temple, Jer 52:17-23. VII. The slaughter of the priests, and some other great men, in cold blood, Jer 52:24-27. VIII. The better days which king Jehoiachin lived to see in the latter end of his time, after the death of Nebuchadnezzar, Jer 52:31-34.
 

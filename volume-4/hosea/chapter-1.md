@@ -1,8 +1,11 @@
 ---
+title: "Hosea 1 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "1"
+description: "The mind of God is revealed to this prophet, and by him to the people, in the first three chapters, by signs and types, but afterwards only by discourse. In this chapter we have, I..."
 weight: 1
 ---
 
-# Chapter 1
+# Hosea 1 
 
 The mind of God is revealed to this prophet, and by him to the people, in the first three chapters, by signs and types, but afterwards only by discourse. In this chapter we have, I. The general title of the whole book, Ho 1:1. II. Some particular instructions which he was ordered to give to the people of God. 1. He must convince them of their sin in going a whoring from God, by marrying a wife of whoredoms, Ho 1:2,3. 2. He must foretel the ruin coming upon them for their sin, in the names of his sons, which signified God's disowning and abandoning them, Ho 1:4-6,8,9. 3. He must speak comfortable to the kingdom of Judah, which still retained the pure worship of God, and assure them of the salvation of the Lord, Ho 1:7. 4. He must give an intimation of the great mercy God had in store both for Israel and Judah, in the latter days (Ho 1:10,1), for in this prophecy many precious promises of mercy are mixed with the threatenings of wrath.
 

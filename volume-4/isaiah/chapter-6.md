@@ -1,8 +1,11 @@
 ---
+title: "Isaiah 6 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "6"
+description: "Hitherto, it should seem, Isaiah had prophesied as a candidate, having only a virtual and tacit commission; but here we have him (if I may so speak) solemnly ordained and set apart..."
 weight: 6
 ---
 
-# Chapter 6
+# Isaiah 6 
 
 Hitherto, it should seem, Isaiah had prophesied as a candidate, having only a virtual and tacit commission; but here we have him (if I may so speak) solemnly ordained and set apart to the prophetic office by a more express or explicit commission, as his work grew more upon his hands: or perhaps, having seen little success of his ministry, he began to think of giving it up; and therefore God saw fit to renew his commission here in this chapter, in such a manner as might excite and encourage his zeal and industry in the execution of it, though he seemed to labour in vain. In this chapter we have, I. A very awful vision which Isaiah saw of the glory of God (Isa 6:1-4), the terror it put him into (Isa 6:5), and the relief given him against that terror by an assurance of the pardon of his sins, Isa 6:6,7. II. A very awful commission which Isaiah received to go as a prophet, in God's name (Isa 6:8), by his preaching to harden the impenitent in sin and ripen them for ruin (Isa 6:9-12) yet with a reservation of mercy for a remnant, (Isa 6:13). And it was as to an evangelical prophet that these things were shown him and said to him.
 
