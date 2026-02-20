@@ -1,4 +1,7 @@
 ---
+title: "Psalm 83 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "83"
+description: "This psalm is the last of those that go under the name of Asaph. It is penned, as most of those, upon a public account, with reference to the insults of the church\'s enemies, who s..."
 weight: 83
 ---
 

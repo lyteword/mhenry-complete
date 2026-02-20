@@ -1,8 +1,11 @@
 ---
+title: "Proverbs 8 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "8"
+description: "The word of God is two-fold, and, in both senses, is wisdom; for a word without wisdom is of little value, and wisdom without a word is of little use. Now, I. Divine revelation is ..."
 weight: 8
 ---
 
-# Chapter 8
+# Proverbs 8 
 
 The word of God is two-fold, and, in both senses, is wisdom; for a word without wisdom is of little value, and wisdom without a word is of little use. Now, I. Divine revelation is the word and wisdom of God, and that pure religion and undefiled which is built upon it; and of that Solomon here speaks, recommending it to us as faithful, and well worthy of all acceptation, Pr 8:1-21. God, by it, instructs, and governs, and blesses, the children of men. II. The redeemer is the eternal Word and wisdom, the Logos. He is the Wisdom that speaks to the children of men in the former part of the chapter. All divine revelation passes through his hand, and centres in him; but of him as the personal Wisdom, the second person in the Godhead, in the judgment of many of the ancients, Solomon here speaks, Pr 8:22-31. He concludes with a repeated charge to the children of men diligently to attend to the voice of God in his word, Pr 8:32-36.
 

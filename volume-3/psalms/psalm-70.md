@@ -1,4 +1,7 @@
 ---
+title: "Psalm 70 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "70"
+description: "This psalm is adapted to a state of affliction; it is copied almost word for word from the fortieth, and, some think for that reason, is entitled, \"a psalm to bring to remembrance;..."
 weight: 70
 ---
 

@@ -1,8 +1,12 @@
 ---
+title: "Proverbs 12 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "12"
+description: "## Advantages of the Righteous
+"
 weight: 12
 ---
 
-# Chapter 12
+# Proverbs 12 
 
 ## Advantages of the Righteous
 

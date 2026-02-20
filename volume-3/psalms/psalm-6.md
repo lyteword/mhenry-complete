@@ -1,4 +1,7 @@
 ---
+title: "Psalm 6 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "6"
+description: "David was a weeping prophet as well as Jeremiah, and this psalm is one of his lamentations: either it was penned in a time, or at least calculated for a time, of great trouble, bot..."
 weight: 6
 ---
 

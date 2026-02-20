@@ -1,8 +1,11 @@
 ---
+title: "Proverbs 4 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "4"
+description: "When the things of God are to be taught precept must be upon precept, and line upon line, not only because the things themselves are of great worth and weight, but because men\'s mi..."
 weight: 4
 ---
 
-# Chapter 4
+# Proverbs 4 
 
 When the things of God are to be taught precept must be upon precept, and line upon line, not only because the things themselves are of great worth and weight, but because men's minds, at the best, are unapt to admit them and commonly prejudiced against them; and therefore Solomon, in this chapter, with a great variety of expression and a pleasant powerful flood of divine eloquence, inculcates the same things that he had pressed upon us in the foregoing chapters. Here is, I. An earnest exhortation to the study of wisdom, that is, of true religion and godliness, borrowed from the good instructions which his father gave him, and enforced with many considerable arguments, Pr 4:1-13. II. A necessary caution against bad company and all fellowship with the unfruitful works of darkness, Pr 4:14-19. III. Particular directions for the attaining and preserving of wisdom, and bringing forth the fruits of it, Pr 4:20-27. So plainly, so pressingly, is the case laid before us, that we shall be for ever inexcusable if we perish in our folly.
 

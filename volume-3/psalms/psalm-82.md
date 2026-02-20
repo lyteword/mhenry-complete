@@ -1,4 +1,7 @@
 ---
+title: "Psalm 82 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "82"
+description: "This psalm is calculated for the meridian of princes\' courts and courts of justice, not in Israel only, but in other nations; yet it was probably penned primarily for the use of th..."
 weight: 82
 ---
 

@@ -1,8 +1,11 @@
 ---
+title: "Job 40 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "40"
+description: "Many humbling confounding questions God had put to Job, in the foregoing chapter; now, in this chapter, I. He demands an answer to them, Job 40:1,2. II. Job submits in a humble sil..."
 weight: 40
 ---
 
-# Chapter 40
+# Job 40 
 
 Many humbling confounding questions God had put to Job, in the foregoing chapter; now, in this chapter, I. He demands an answer to them, Job 40:1,2. II. Job submits in a humble silence, Job 40:3-5. III. God proceeds to reason with him, for his conviction, concerning the infinite distance and disproportion between him and God, showing that he was by no means an equal match for God. He challenges him (Job 40:6,7) to vie with him, if he durst, for justice (Job 40:8), power (Job 40:9), majesty (Job 40:10), and dominion over the proud (Job 40:11-14), and he gives an instance of his power in one particular animal, here called "Behemoth," Job 40:15-24.
 

@@ -1,4 +1,7 @@
 ---
+title: "Psalm 87 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "87"
+description: "The foregoing psalm was very plain and easy, but in this are things dark and hard to be understood. It is an encomium of Zion, as a type and figure of the gospel-church, to which w..."
 weight: 87
 ---
 

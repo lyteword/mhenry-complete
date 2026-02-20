@@ -1,4 +1,7 @@
 ---
+title: "Psalm 52 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "52"
+description: "David, no doubt, was in very great grief when he said to Abiathar (1Sa 22:22), \"I have occasioned the death of all the persons of thy father\'s house,\" who were put to death upon Do..."
 weight: 52
 ---
 

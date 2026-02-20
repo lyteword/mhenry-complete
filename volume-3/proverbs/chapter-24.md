@@ -1,8 +1,12 @@
 ---
+title: "Proverbs 24 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "24"
+description: "## The Excellence of Wisdom
+"
 weight: 24
 ---
 
-# Chapter 24
+# Proverbs 24 
 
 ## The Excellence of Wisdom
 

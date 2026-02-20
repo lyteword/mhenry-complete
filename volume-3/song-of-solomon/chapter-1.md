@@ -1,8 +1,11 @@
 ---
+title: "Song Of Solomon 1 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "1"
+description: "In this chapter, after the title of the book (So 1:1), we have Christ and his church, Christ and a believer, expressing their esteem for each other. I. The bride, the church, speak..."
 weight: 1
 ---
 
-# Chapter 1
+# Song Of Solomon 1 
 
 In this chapter, after the title of the book (So 1:1), we have Christ and his church, Christ and a believer, expressing their esteem for each other. I. The bride, the church, speaks to the bridegroom (So 1:2-4), to the daughters of Jerusalem (So 1:5,6), and then to the bridegroom, So 1:7. II. Christ, the bridegroom, speaks in answer to the complaints and requests of his spouse, So 1:8-11. III. The church expresses the great value she has for Christ, and the delights she takes in communion with him, So 1:12-14. IV. Christ commends the church's beauty, So 1:15. V. The church returns the commendation, So 1:16,17. Where there is a fire of true love to Christ in the heart this will be of use to blow it up into a flame.
 

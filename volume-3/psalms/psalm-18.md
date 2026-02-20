@@ -1,4 +1,7 @@
 ---
+title: "Psalm 18 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "18"
+description: "This psalm we met with before, in the history of David\'s life, 2Sa 22:1-51 That was the first edition of it; here we have it revived, altered a little, and fitted for the service o..."
 weight: 18
 ---
 

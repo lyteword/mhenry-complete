@@ -1,4 +1,7 @@
 ---
+title: "Psalm 44 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "44"
+description: "We are not told either who was the penmen of this psalm or when and upon what occasion it was penned, upon a melancholy occasion, we are sure, not so much to the penman himself (th..."
 weight: 44
 ---
 

@@ -1,8 +1,11 @@
 ---
+title: "Song Of Solomon 6 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "6"
+description: "In this chapter, I. The daughters of Jerusalem, moved with the description which the church had given of Christ, enquire after him, So 6:1. II. The church directs them where they m..."
 weight: 6
 ---
 
-# Chapter 6
+# Song Of Solomon 6 
 
 In this chapter, I. The daughters of Jerusalem, moved with the description which the church had given of Christ, enquire after him, So 6:1. II. The church directs them where they may meet with him, So 6:2,3. III. Christ is now found of those that sought him, and very highly applauds the beauty of his spouse, as one extremely smitten with it (So 6:4-7), preferring her before all others (So 6:8,9), recommending her to the love and esteem of all her neighbours (So 6:10), and, lastly, acknowledging the impressions which her beauty had made upon him and the great delight he took in it, So 6:11-13.
 

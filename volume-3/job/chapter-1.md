@@ -1,8 +1,11 @@
 ---
+title: "Job 1 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "1"
+description: "The history of Job begins here with an account, I. Of his great piety in general (Job 1:1), and in a particular instance, Job 1:5. II. Of his great prosperity, Job 1:2-4. III. Of t..."
 weight: 1
 ---
 
-# Chapter 1
+# Job 1 
 
 The history of Job begins here with an account, I. Of his great piety in general (Job 1:1), and in a particular instance, Job 1:5. II. Of his great prosperity, Job 1:2-4. III. Of the malice of Satan against him, and the permission he obtained to try his constancy, Job 1:6-12. IV. Of the surprising troubles that befel him, the ruin of his estate (Job 1:13-17), and the death of his children, Job 1:18,19. V. Of his exemplary patience and piety under these troubles, Job 1:20-22. In all this he is set forth for an example of suffering affliction, from which no prosperity can secure us, but through which integrity and uprightness will preserve us.
 

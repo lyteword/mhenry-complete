@@ -1,4 +1,7 @@
 ---
+title: "Psalm 54 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "54"
+description: "The key of this psalm hangs at the door, for the title tells us upon what occasion it was penned—when the inhabitants of Ziph, men of Judah (types of Judas the traitor), betrayed D..."
 weight: 54
 ---
 

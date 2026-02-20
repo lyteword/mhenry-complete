@@ -1,4 +1,7 @@
 ---
+title: "Psalm 92 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "92"
+description: "It is a groundless opinion of some of the Jewish writers (who are usually free of their conjectures) that this psalm was penned and sung by Adam in innocency, on the first sabbath...."
 weight: 92
 ---
 

@@ -1,8 +1,11 @@
 ---
+title: "Job 21 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "21"
+description: "This is Job\'s reply to Zophar\'s discourse, in which he complains less of his own miseries than he had done in his former discourses (finding that his friends were not moved by his ..."
 weight: 21
 ---
 
-# Chapter 21
+# Job 21 
 
 This is Job's reply to Zophar's discourse, in which he complains less of his own miseries than he had done in his former discourses (finding that his friends were not moved by his complaints to pity him in the least), and comes closer to the general question that was in dispute between him and them, Whether outward prosperity, and the continuance of it, were a mark of the true church and the true members of it, so that the ruin of a man's prosperity is sufficient to prove him a hypocrite, though no other evidence appear against him: this they asserted, but Job denied. I. His preface here is designed for the moving of their affections, that he might gain their attention, Job 21:1-6. II. His discourse is designed for the convincing of their judgments and the rectifying of their mistakes. He owns that God does sometimes hang up a wicked man as it were in chains, *in terrorem*—as a terror to others, by some visible remarkable judgment in this life, but denies that he always does so; nay, he maintains that commonly he does otherwise, suffering even the worst of sinners to live all their days in prosperity and to go out of the world without any visible mark of his wrath upon them. 1. He describes the great prosperity of wicked people, Job 21:7-13. 2. He shows their great impiety, in which they are hardened by their prosperity, Job 21:14-16. 3. He foretels their ruin at length, but after a long reprieve, Job 21:17-21. 4. He observes a very great variety in the ways of God's providence towards men, even towards bad men, Job 21:22-26. 5. He overthrows the ground of their severe censures of him, by showing that the destruction of the wicked is reserved for the other world, and that they often escape to the last in this world (Job 21:27-34), and in this Job was clearly in the right.
 

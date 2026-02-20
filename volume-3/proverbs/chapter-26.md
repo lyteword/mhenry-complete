@@ -1,8 +1,12 @@
 ---
+title: "Proverbs 26 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "26"
+description: "## Proper Treatment of Fools
+"
 weight: 26
 ---
 
-# Chapter 26
+# Proverbs 26 
 
 ## Proper Treatment of Fools
 

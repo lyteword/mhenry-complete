@@ -1,4 +1,7 @@
 ---
+title: "Psalm 75 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "75"
+description: "Though this psalm is attributed to Asaph in the title, yet it does so exactly agree with David\'s circumstances, at his coming to the crown after the death of Saul, that most interp..."
 weight: 75
 ---
 

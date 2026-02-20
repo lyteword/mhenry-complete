@@ -1,4 +1,7 @@
 ---
+title: "Psalm 139 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "139"
+description: "Some of the Jewish doctors are of opinion that this is the most excellent of all the psalms of David; and a very pious devout meditation it is upon the doctrine of God\'s omniscienc..."
 weight: 139
 ---
 

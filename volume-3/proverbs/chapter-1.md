@@ -1,8 +1,11 @@
 ---
+title: "Proverbs 1 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "1"
+description: "Those who read David\'s psalms, especially those towards the latter end, would be tempted to think that religion is all rapture and consists in nothing but the ecstasies and transpo..."
 weight: 1
 ---
 
-# Chapter 1
+# Proverbs 1 
 
 Those who read David's psalms, especially those towards the latter end, would be tempted to think that religion is all rapture and consists in nothing but the ecstasies and transports of devotion; and doubtless there is a time for them, and if there be a heaven upon earth it is in them: but, while we are on earth, we cannot be wholly taken up with them; we have a life to live in the flesh, must have a conversation in the world, and into that we must now be taught to carry our religion, which is a rational thing, and very serviceable to the government of human life, and tends as much to make us discreet as to make us devout, to make the face shine before men, in a prudent, honest, useful conversation, as to make the heart burn towards God in holy and pious affections. In this chapter we have, I. The title of the book, showing the general scope and design of it, Pr 1:1-6. II. The first principle of it recommended to our serious consideration, Pr 1:7-9. III. A necessary caution against bad company, Pr 1:10-19. IV. A faithful and lively representation of wisdom's reasonings with the children of men, and the certain ruin of those who turn a deaf ear to those reasonings, Pr 1:20-33.
 

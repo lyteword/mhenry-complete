@@ -1,8 +1,11 @@
 ---
+title: "Job 34 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "34"
+description: "Elihu, it is likely, paused awhile, to see if Job had any thing to say against his discourse in the foregoing chapter; but he sitting silent, and it is likely intimating his desire..."
 weight: 34
 ---
 
-# Chapter 34
+# Job 34 
 
 Elihu, it is likely, paused awhile, to see if Job had any thing to say against his discourse in the foregoing chapter; but he sitting silent, and it is likely intimating his desire that he would go on, he here proceeds. And, I. He bespeaks not only the audience, but the assistance of the company, Job 33:2-4. II. He charges Job with some more indecent expressions that had dropped from him, Job 33:5-9. III. He undertakes to convince him that he had spoken amiss, by showing very fully, 1. God's incontestable justice, Job 33:10-12,17,19,23. 2. His sovereign dominion, Job 33:13-15. 3. His almighty power, Job 33:20,24. 4. His omniscience, Job 33:21,22,25. 5. His severity against sinners, Job 33:26-28. 6. His overruling providence, Job 33:29,30. IV. He teaches him what he should say, Job 33:31,32. And then, lastly, he leaves the matter to Job's own conscience, and concludes with a sharp reproof of him for his peevishness and discontent, Job 33:33-37. All this Job not only bore patiently, but took kindly, because he saw that Elihu meant well; and, whereas his other friends had accused him of that from which his own conscience acquitted him, Elihu charged him with that only for which, it is probable, his own heart, now upon the reflection, began to smite him.
 

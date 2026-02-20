@@ -1,4 +1,7 @@
 ---
+title: "Psalm 2 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "2"
+description: "As the foregoing psalm was moral, and showed us our duty, so this is evangelical, and shows us our Saviour. Under the type of David\'s kingdom (which was of divine appointment, met ..."
 weight: 2
 ---
 

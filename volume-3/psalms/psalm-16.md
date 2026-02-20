@@ -1,4 +1,7 @@
 ---
+title: "Psalm 16 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "16"
+description: "This psalm has something of David in it, but much more of Christ. It begins with such expressions of devotion as may be applied to Christ; but concludes with such confidence of a r..."
 weight: 16
 ---
 

@@ -1,8 +1,11 @@
 ---
+title: "Job 12 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "12"
+description: "In this and the two following chapters we have Job\'s answer to Zophar\'s discourse, in which, as before, he first reasons with his friends (see Job 13:19) and then turns to his God,..."
 weight: 12
 ---
 
-# Chapter 12
+# Job 12 
 
 In this and the two following chapters we have Job's answer to Zophar's discourse, in which, as before, he first reasons with his friends (see Job 13:19) and then turns to his God, and directs his expostulations to him, from thence to the end of his discourse. In this chapter he addresses himself to his friends, and, I. He condemns what they had said of him, and the judgment they had given of his character, Job 12:1-5. II. He contradicts and confronts what they had said of the destruction of wicked people in this world, showing that they often prosper, Job 12:6-11. III. He consents to what they had said of the wisdom, power, and sovereignty of God, and the dominion of his providence over the children of men and all their affairs; he confirms this, and enlarges upon it, Job 12:12-25.
 

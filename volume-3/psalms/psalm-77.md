@@ -1,4 +1,7 @@
 ---
+title: "Psalm 77 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "77"
+description: "This psalm, according to the method of many other psalms, begins with sorrowful complaints but ends with comfortable encouragements. The complaints seem to be of personal grievance..."
 weight: 77
 ---
 

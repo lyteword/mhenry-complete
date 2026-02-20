@@ -1,4 +1,7 @@
 ---
+title: "Psalm 53 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "53"
+description: "God speaks once, yea, twice, and it were well if man would even then perceive it; God, in this psalm, speaks twice, for this is the same almost verbatim with the fourteenth psalm. ..."
 weight: 53
 ---
 

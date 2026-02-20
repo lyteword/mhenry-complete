@@ -1,4 +1,7 @@
 ---
+title: "Psalm 62 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "62"
+description: "This psalm has nothing in it directly either of prayer or praise, nor does it appear upon what occasion it was penned, nor whether upon any particular occasion, whether mournful or..."
 weight: 62
 ---
 

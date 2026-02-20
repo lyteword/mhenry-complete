@@ -1,8 +1,11 @@
 ---
+title: "Job 35 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "35"
+description: "Job being still silent, Elihu follows his blow, and here, a third time, undertakes to show him that he had spoken amiss, and ought to recant. Three improper sayings he here charges..."
 weight: 35
 ---
 
-# Chapter 35
+# Job 35 
 
 Job being still silent, Elihu follows his blow, and here, a third time, undertakes to show him that he had spoken amiss, and ought to recant. Three improper sayings he here charges him with, and returns answer to them distinctly:—I. He had represented religion as an indifferent unprofitable thing, which God enjoins for his own sake, not for ours; Elihu evinces the contrary, Job 35:1-8. II. He had complained of God as deaf to the cries of the oppressed, against which imputation Elihu here justifies God, Job 35:9-13. III. He had despaired of the return of God's favour to him, because it was so long deferred, but Elihu shows him the true cause of the delay, Job 35:14-16.
 

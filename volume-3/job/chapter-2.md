@@ -1,8 +1,11 @@
 ---
+title: "Job 2 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "2"
+description: "We left Job honourably acquitted upon a fair trial between God and Satan concerning him. Satan had leave to touch, to touch and take, all he had, and was confident that he would th..."
 weight: 2
 ---
 
-# Chapter 2
+# Job 2 
 
 We left Job honourably acquitted upon a fair trial between God and Satan concerning him. Satan had leave to touch, to touch and take, all he had, and was confident that he would then curse God to his face; but, on the contrary, he blessed him, and so he was proved an honest man and Satan a false accuser. Now, one would have thought, this would be conclusive, and that Job would never have his reputation called in question again; but Job is known to be armour of proof, and therefore is here set up for a mark, and brought upon his trial, a second time. I. Satan moves for another trial, which should touch his bone and his flesh, Job 2:1-5. II. God, for holy ends, permits it, Job 2:6. III. Satan smites him with a very painful and loathsome disease, Job 2:7,8. IV. His wife tempts him to curse God, but he resists the temptation, Job 2:9,10. V. His friends come to condole with him and to comfort him, Job 2:11-13. And in this that good man is set forth for an example of suffering affliction and of patience.
 

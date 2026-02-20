@@ -1,8 +1,11 @@
 ---
+title: "Job 23 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "23"
+description: "This chapter begins Job\'s reply to Eliphaz. In this reply he takes no notice of his friends, either because he saw it was to no purpose or because he liked the good counsel Eliphaz..."
 weight: 23
 ---
 
-# Chapter 23
+# Job 23 
 
 This chapter begins Job's reply to Eliphaz. In this reply he takes no notice of his friends, either because he saw it was to no purpose or because he liked the good counsel Eliphaz gave him in the close of his discourse so well that he would make no answer to the peevish reflections he began with; but he appeals to God, begs to have his cause heard, and doubts not but to make it good, having the testimony of his own conscience concerning his integrity. Here seems to be a struggle between flesh and spirit, fear and faith, throughout this chapter. I. He complains of his calamitous condition, and especially of God's withdrawings from him, so that he could not get his appeal heard (Job 23:2-5), nor discern the meaning of God's dealings with him (Job 23:8,9), nor gain any hope of relief, Job 23:13,14. This made deep impressions of trouble and terror upon him, Job 23:15-17. But, II. In the midst of these complaints he comforts himself with the assurance of God's clemency (Job 23:6,7), and his own integrity, which God himself was a witness to, Job 23:10-12. Thus was the light of his day like that spoken of, Zec 14:6,7, neither perfectly clear nor perfectly dark, but "at evening time it was light."
 

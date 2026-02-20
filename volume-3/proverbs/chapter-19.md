@@ -1,8 +1,12 @@
 ---
+title: "Proverbs 19 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "19"
+description: "## The Disadvantages of Poverty
+"
 weight: 19
 ---
 
-# Chapter 19
+# Proverbs 19 
 
 ## The Disadvantages of Poverty
 

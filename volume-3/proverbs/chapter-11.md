@@ -1,8 +1,12 @@
 ---
+title: "Proverbs 11 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "11"
+description: "## Weighty Sayings
+"
 weight: 11
 ---
 
-# Chapter 11
+# Proverbs 11 
 
 ## Weighty Sayings
 

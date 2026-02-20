@@ -1,8 +1,11 @@
 ---
+title: "Job 20 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "20"
+description: "One would have thought that such an excellent confession of faith as Job made, in the close of the foregoing chapter, would satisfy his friends, or at least mollify them; but they ..."
 weight: 20
 ---
 
-# Chapter 20
+# Job 20 
 
 One would have thought that such an excellent confession of faith as Job made, in the close of the foregoing chapter, would satisfy his friends, or at least mollify them; but they do not seem to have taken any notice of it, and therefore Zophar here takes his turn, enters the lists with Job, and attacks him with as much vehemence as before. I. His preface is short, but hot, Job 20:2,3. II. His discourse is long, and all upon one subject, the very same that Bildad was large upon (Job 18:1-21), the certain misery of wicked people and the ruin that awaits them. 1. He asserts, in general, that the prosperity of a wicked person is short, and his ruin sure, Job 20:4-9. 2. He proves the misery of his condition by many instances—that he should have a diseased body, a troubled conscience, a ruined estate, a beggared family, an infamous name and that he himself should perish under the weight of divine wrath: all this is most curiously described here in lofty expressions and lively similitudes; and it often proves true in this world, and always in another, without repentance, Job 20:10-29. But the great mistake was, and (as bishop Patrick expresses it) all the flaw in his discourse (which was common to him with the rest), that he imagined God never varied from this method, and therefore Job was, without doubt, a very bad man, though it did not appear that he was, any other way than by his infelicity.
 

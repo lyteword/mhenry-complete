@@ -1,8 +1,12 @@
 ---
+title: "Proverbs 18 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "18"
+description: "## Wisdom and Folly
+"
 weight: 18
 ---
 
-# Chapter 18
+# Proverbs 18 
 
 ## Wisdom and Folly
 

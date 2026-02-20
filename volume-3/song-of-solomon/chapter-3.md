@@ -1,8 +1,11 @@
 ---
+title: "Song Of Solomon 3 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "3"
+description: "In this chapter, I. The church gives an account of a sore trial wherewith she was exercised through the withdrawing of her beloved from her, the pains she was at before she recover..."
 weight: 3
 ---
 
-# Chapter 3
+# Song Of Solomon 3 
 
 In this chapter, I. The church gives an account of a sore trial wherewith she was exercised through the withdrawing of her beloved from her, the pains she was at before she recovered the comfortable sense of his favour again, and the resolution she took, when she did recover it, not to lose it again, as she had done through her own carelessness, So 3:1-5. II. The daughters of Jerusalem admire the excellencies of the church, So 3:6. III. The church admires Jesus Christ under the person of Solomon, his bed, and the life-guards about it (So 3:7,8), his chariot, So 3:9,10. She calls upon the daughters of Zion, who were admiring her, to admire him rather, especially as he appeared on his coronation day and the day of his nuptials, So 3:11.
 

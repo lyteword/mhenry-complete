@@ -1,4 +1,7 @@
 ---
+title: "Psalm 96 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "96"
+description: "This psalm is part of that which was delivered into the hand of Asaph and his brethren (1Ch 16:7), by which it appears both that David was the penman of it and that it has referenc..."
 weight: 96
 ---
 

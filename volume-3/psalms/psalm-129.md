@@ -1,4 +1,7 @@
 ---
+title: "Psalm 129 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "129"
+description: "This psalm relates to the public concerns of God\'s Israel. It is not certain when it was penned, probably when they were in captivity in Babylon, or about the time of their return...."
 weight: 129
 ---
 

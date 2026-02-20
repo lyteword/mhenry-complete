@@ -1,8 +1,11 @@
 ---
+title: "Job 16 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "16"
+description: "This chapter begins Job\'s reply to that discourse of Eliphaz which we had in the foregoing chapter; it is but the second part of the same song of lamentation with which he had befo..."
 weight: 16
 ---
 
-# Chapter 16
+# Job 16 
 
 This chapter begins Job's reply to that discourse of Eliphaz which we had in the foregoing chapter; it is but the second part of the same song of lamentation with which he had before bemoaned himself, and is set to the same melancholy tune. I. He upbraids his friends with their unkind usage of him, Job 16:1-5. II. He represents his own case as very deplorable upon all accounts, Job 16:6-16. III. He still holds fast his integrity, concerning which he appeals to God's righteous judgment from the unrighteous censures of his friends, Job 16:14-22.
 

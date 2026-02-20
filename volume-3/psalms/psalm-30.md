@@ -1,4 +1,7 @@
 ---
+title: "Psalm 30 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "30"
+description: "This is a psalm of thanksgiving for the great deliverances which God had wrought for David, penned upon occasion of the dedicating of his house of cedar, and sung in that pious sol..."
 weight: 30
 ---
 

@@ -1,8 +1,11 @@
 ---
+title: "Proverbs 10 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "10"
+description: "Hitherto we have been in the porch or preface to the proverbs, here they begin. They are short but weighty sentences; most of them are distichs, two sentences in one verse, illustr..."
 weight: 10
 ---
 
-# Chapter 10
+# Proverbs 10 
 
 Hitherto we have been in the porch or preface to the proverbs, here they begin. They are short but weighty sentences; most of them are distichs, two sentences in one verse, illustrating each other; but it is seldom that there is any coherence between the verses, much less any thread of discourse, and therefore in these chapters we need not attempt to reduce the contents to their proper heads, the several sentences will appear best in their own places. The scope of them all is to set before us good and evil, the blessing and the curse. Many of the proverbs in this chapter relate to the good government of the tongue, without which men's religion is vain.
 

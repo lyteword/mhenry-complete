@@ -1,7 +1,11 @@
 ---
-title: Preface - Volume III
+title: "Preface - Volume 3 | Read the Matthew Henry Concise Bible Commentary Online"
+linkTitle: "Preface"
+description: "These five books of scripture which are contained in this third volume and which I have here endeavoured, according to the measure of the gift given to me, to explain and improve..."
 weight: 1
 ---
+
+# Preface to Volume III
 
 These five books of scripture which are contained in this third volume and which I have here endeavoured, according to the measure of the gift given to me, to explain and improve, for the use of those who desire to read them, not only with understanding, but to their edification—though they have the same divine origin, design, and authority, as those that went before, yet, upon some accounts, are of a very different nature from them, and from the rest of the sacred writings, such variety of methods has Infinite Wisdom seen fit to take in conveying the light of divine revelation to the children of men, that this heavenly food might have (as the Jews say of the manna) something in it agreeable to every palate and suited to every constitution. If every eye be not thus opened, every mouth will be stopped, and such as perish in their ignorance will be left without excuse. *We have piped unto you, and you have not danced, we have mourned unto you, and you have not lamented,* Mt 11:17.
 

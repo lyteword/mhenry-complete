@@ -1,4 +1,7 @@
 ---
+title: "Psalm 106 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "106"
+description: "We must give glory to God by making confession, not only of his goodness but our own badness, which serve as foils to each other. Our badness makes his goodness appear the more ill..."
 weight: 106
 ---
 

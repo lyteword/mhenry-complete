@@ -1,4 +1,7 @@
 ---
+title: "Psalm 65 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "65"
+description: "In this psalm we are directed to give to God the glory of his power and goodness, which appear, I. In the kingdom of grace (Ps 65:1), hearing prayer (Ps 65:2), pardoning sin (Ps 65..."
 weight: 65
 ---
 

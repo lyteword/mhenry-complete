@@ -1,8 +1,11 @@
 ---
+title: "Job 22 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "22"
+description: "Eliphaz here leads on a third attack upon poor Job, in which Bildad followed him, but Zophar drew back, and quitted the field. It was one of the unhappinesses of Job, as it is of m..."
 weight: 22
 ---
 
-# Chapter 22
+# Job 22 
 
 Eliphaz here leads on a third attack upon poor Job, in which Bildad followed him, but Zophar drew back, and quitted the field. It was one of the unhappinesses of Job, as it is of many an honest man, to be misunderstood by his friends. He had spoken of the prosperity of wicked men in this world as a mystery of Providence, but they took it for a reflection upon Providence, as countenancing their wickedness; and they reproached him accordingly. In this chapter, I. Eliphaz checks him for his complaints of God, and of his dealings with him, as if he thought God had done him wrong, Job 22:2-4. II. He charges him with many high crimes and misdemeanours, for which he supposes God was now punishing him. 1. Oppression and injustice, Job 22:5-11. 2. Atheism and infidelity, Job 22:12-14. III. He compares his case to that of the old world, Job 22:15-20. IV. He gives him very good counsel, assuring him that, if he would take it, God would return in mercy to him and he should return to his former prosperity, Job 22:21-30.
 

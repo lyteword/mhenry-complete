@@ -1,8 +1,11 @@
 ---
+title: "Job 28 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "28"
+description: "The strain of this chapter is very unlike the rest of this book. Job forgets his sores, and all his sorrows, and talks like a philosopher or a virtuoso. Here is a great deal both o..."
 weight: 28
 ---
 
-# Chapter 28
+# Job 28 
 
 The strain of this chapter is very unlike the rest of this book. Job forgets his sores, and all his sorrows, and talks like a philosopher or a virtuoso. Here is a great deal both of natural and moral philosophy in this discourse; but the question is, How does it come in here? Doubtless it was not merely for an amusement, or diversion from the controversy; though, if it had been only so, perhaps it would not have been much amiss. When disputes grow hot, better lose the question than lose our temper. But this is pertinent and to the business in hand. Job and his friends had been discoursing about the dispensations of Providence towards the wicked and the righteous. Job had shown that some wicked men live and die in prosperity, while others are presently and openly arrested by the judgments of God. But, if any ask the reason why some are punished in this world and not others, they must be told it is a question that cannot be answered. The knowledge of the reasons of state in God's government of the world is kept from us, and we must neither pretend to it nor reach after it. Zophar had wished that God would show Job the "secrets of wisdom" (Job 11:6). No, says Job, "secret things belong not to us, but things revealed," De 29:29. And here he shows, I. Concerning worldly wealth, how industriously that is sought for and pursued by the children of men, what pains they take, what contrivances they have, and what hazards they run to get it, Job 28:1-11. II. Concerning wisdom, Job 28:12. In general, the price of it is very great; it is of inestimable value, Job 28:15-19. The place of it is very secret, Job 28:14,20,22. In particular, there is a wisdom which is hidden in God (Job 28:23-27) and there is a wisdom which is revealed to the children of men, Job 28:28. Our enquiries into the former must be checked, into the latter quickened, for that is it which is our concern.
 

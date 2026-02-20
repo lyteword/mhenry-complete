@@ -1,4 +1,7 @@
 ---
+title: "Psalm 88 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "88"
+description: "This psalm is a lamentation, one of the most melancholy of all the psalms; and it does not conclude, as usually the melancholy psalms do, with the least intimation of comfort or jo..."
 weight: 88
 ---
 

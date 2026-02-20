@@ -1,4 +1,7 @@
 ---
+title: "Psalm 86 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "86"
+description: "This psalm is entitled \"a prayer of David;\" probably it was not penned upon any particular occasion, but was a prayer he often used himself, and recommended to others for their use..."
 weight: 86
 ---
 

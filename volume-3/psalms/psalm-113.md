@@ -1,4 +1,7 @@
 ---
+title: "Psalm 113 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "113"
+description: "This psalm begins and ends with \"Hallelujah;\" for, as many others, it is designed to promote the great and good work of praising God. I. We are here called upon and urged to praise..."
 weight: 113
 ---
 

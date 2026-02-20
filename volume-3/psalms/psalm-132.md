@@ -1,4 +1,7 @@
 ---
+title: "Psalm 132 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "132"
+description: "It is probable that this psalm was penned by Solomon, to be sung at the dedication of the temple which he built according to the charge his father gave him, 1Ch 28:2-21, etc. Havin..."
 weight: 132
 ---
 

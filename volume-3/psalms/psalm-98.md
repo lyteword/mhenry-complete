@@ -1,4 +1,7 @@
 ---
+title: "Psalm 98 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "98"
+description: "This psalm is to the same purport with the Ps 96:1-13, Ps 97:1-12; it is a prophecy of the kingdom of the Messiah, the settling of it up in the world, and the bringing of the Genti..."
 weight: 98
 ---
 
