@@ -1,8 +1,11 @@
 ---
+title: "Revelation 16 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "16"
+description: "In this chapter we have an account of the pouring forth of these vials that were filled with the wrath of God. They were poured out upon the whole antichristian empire, and on ever..."
 weight: 16
 ---
 
-# Chapter 16
+# Revelation 16 
 
 In this chapter we have an account of the pouring forth of these vials that were filled with the wrath of God. They were poured out upon the whole antichristian empire, and on every thing appertaining to it. I. Upon the earth, Re 16:2. II. Upon the sea, Re 16:3. III. Upon the rivers and fountains of water, Re 16:4. Here the heavenly hosts proclaim and applaud the righteousness of the judgments of God. IV. The fourth vial was poured out on the sun, Re 16:8. V. The fifth on the seat of the beast. VI. The sixth on the river Euphrates. VII. The seventh in the air, upon which the cities of the nations fell, and great Babylon came in remembrance before God.
 

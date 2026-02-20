@@ -1,8 +1,11 @@
 ---
+title: "Hebrews 7 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "7"
+description: "The doctrine of the priestly office of Christ is so excellent in itself, and so essential a part of the Christian faith, that the apostle loves to dwell upon it. Nothing made the J..."
 weight: 7
 ---
 
-# Chapter 7
+# Hebrews 7 
 
 The doctrine of the priestly office of Christ is so excellent in itself, and so essential a part of the Christian faith, that the apostle loves to dwell upon it. Nothing made the Jews so fond of the Levitical dispensation as the high esteem they had of their priesthood, and it was doubtless a sacred and most excellent institution; it was a very severe threatening denounced against the Jews (Ho 3:4), that the children of Israel should abide many days without a prince or priest, and without a sacrifice, and with an ephod, and without teraphim. Now the apostle assures them that by receiving the Lord Jesus they would have a much better high priest, a priesthood of a higher order, and consequently a better dispensation or covenant, a better law and testament; this he shows in this chapter, where, I. We have a more particular account of Melchisedec, Heb 7:1-3. II. The superiority of his priesthood to that of Aaron, Heb 7:4-10. III. An accommodation of all to Christ, to show the superior excellency of his person, office, and covenant, Heb 7:11-28.
 

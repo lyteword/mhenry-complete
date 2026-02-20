@@ -1,8 +1,11 @@
 ---
+title: "Revelation 15 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "15"
+description: "Hitherto, according to the judgment of very eminent expositors, God had represented to his servant, John, I. The state of the church under the pagan powers, in the six seals opened..."
 weight: 15
 ---
 
-# Chapter 15
+# Revelation 15 
 
 Hitherto, according to the judgment of very eminent expositors, God had represented to his servant, John, I. The state of the church under the pagan powers, in the six seals opened; and then, II. The state of the church under the papal powers, in the vision of the six trumpets that began to sound upon the opening of the seventh seal: and then is inserted. III. A more general and brief account of the past, present, and future state of the church, in the little book, etc. He now proceeds, IV. To show him how antichrist should be destroyed, by what steps that destruction should be accomplished, in the vision of the seven vials. This chapter contains an awful introduction or preparation for the pouring out of the vials, in which we have, 1. A sight of those angels in heaven who were to have the execution of this great work, and with what acclamations of joy the heavenly hosts applauded the great design, Re 15:1-4. 2. A sight of these angels coming out of heaven to receive those vials which they were to pour out, and the great commotions this caused in the world, Re 15:5-8, etc.
 

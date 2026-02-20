@@ -1,8 +1,11 @@
 ---
+title: "Acts 26 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "26"
+description: "We left Paul at the bar, and Festus, and Agrippa, and Bernice, and all the great men of the city of Cæsarea, upon the bench, or about it, waiting to hear what he had to say for him..."
 weight: 26
 ---
 
-# Chapter 26
+# Acts 26 
 
 We left Paul at the bar, and Festus, and Agrippa, and Bernice, and all the great men of the city of Cæsarea, upon the bench, or about it, waiting to hear what he had to say for himself. Now in this chapter we have, I. The account he gives of himself, in answer to the calumnies of the Jews. And in this, 1. His humble address to king Agrippa, and the compliment he passed upon him, Ac 26:1-3. 2. His account of his origin, and education, his profession as a Pharisee, and his adherence still to that which was then the main article of his creed, in distinction from the Sadducees, the "resurrection of the dead," however in rituals he had since departed from it, Ac 26:3-8. 3. Of his zeal against the Christian religion, and the professors of it, in the beginning of his time, Ac 26:9-11. 4. Of his miraculous conversion to the faith of Christ, Ac 26:12-16. 5. Of the commission he received from heaven to preach the gospel to the Gentiles, Ac 26:17,18. 6. Of his proceedings pursuant to that commission, which had given this mighty offence to the Jews, Ac 26:19-21. 7. Of the doctrine which he had made it his business to preach to the Gentiles, which was so far from destroying the law and the prophets that it showed the fulfilling of both, Ac 26:22,23. II. The remarks that were made upon his apology. 1. Festus thought he never heard a man talk so madly, and slighted him as crazed, Ac 26:24. In answer to him, he denies the charge, and appeals to king Agrippa, Ac 26:25-27. 2. King Agrippa, being more closely and particularly dealt with, thinks he never heard a man talk more rationally and convincingly, and owns himself almost his convert (Ac 26:28), and Paul heartily wishes him so, Ac 26:29. 3. They all agreed that he was an innocent man, that he ought to be set at liberty, and that it was a pity he was provoked to put a bar in his own door by appealing to Cæsar, Ac 26:30-32.
 

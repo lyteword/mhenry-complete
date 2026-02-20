@@ -1,8 +1,11 @@
 ---
+title: "Acts 21 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "21"
+description: "We have, with a great deal of pleasure, attended the apostle in his travels throughout the Gentile nations to preach the gospel, and have seen a great harvest of souls gathered in ..."
 weight: 21
 ---
 
-# Chapter 21
+# Acts 21 
 
 We have, with a great deal of pleasure, attended the apostle in his travels throughout the Gentile nations to preach the gospel, and have seen a great harvest of souls gathered in to Christ; there we have seen likewise what persecutions he endured; yet still out of them all the Lord presently delivered him, 2Ti 3:11. But now we are to attend him to Jerusalem, and there into lasting bonds; the days of his service now seem to be over, and nothing to remain but days of suffering, days of darkness, for they are many. It is a thousand pities that such a workman should be laid aside; yet so it is, and we must not only acquiesce, as his friends then did, saying, "The will of the Lord be done;" but we must believe, and shall find reason to do so, that Paul in the prison, and at the bar, is as truly glorifying God, and serving Christ's interest, as Paul in the pulpit was. In this chapter we have, I. A journal of Paul's voyage from Ephesus to Cæsarea, the next sea-port to Jerusalem, some places he touched at, and his landing there, Ac 21:1-7. II. The struggles he had with his friends at Cæsarea, who mightily opposed his going up to Jerusalem, but could not prevail, Ac 21:8-14. III. Paul's journey from Cæsarea to Jerusalem, and the kind entertainment which the Christians there gave him, Ac 21:15-17. IV. His compliance with the persuasions of the brethren there, who advised him so far to compliment the Jews as to go and purify that it might appear he was no such enemy to the Mosaic rites and ceremonies as he was reported to be, Ac 21:18-26. V. The turning of this very thing against him by the Jews, and the apprehending of him in the temple as a criminal thereupon, Ac 21:27-30. VI. The narrow escape he had of being pulled to pieces by the rabble, and the taking of him into fair and legal custody by the chief captain, who permitted him to speak for himself to the people, Ac 21:31-40. And so we have him made a prisoner, and shall never have him otherwise to the end of the history of this book.
 

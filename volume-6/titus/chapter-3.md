@@ -1,8 +1,11 @@
 ---
+title: "Titus 3 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "3"
+description: "Of duties which concern Christians more in common, and the reasons of them, Tit 3:1-8. What Titus in teaching should avoid, and how he should deal with a heretic, with some other d..."
 weight: 3
 ---
 
-# Chapter 3
+# Titus 3 
 
 Of duties which concern Christians more in common, and the reasons of them, Tit 3:1-8. What Titus in teaching should avoid, and how he should deal with a heretic, with some other directions (Tit 3:9-14), and salutations in the close, Tit 3:15.
 

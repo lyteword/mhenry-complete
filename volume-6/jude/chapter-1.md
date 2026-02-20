@@ -1,8 +1,11 @@
 ---
+title: "Jude 1 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "1"
+description: "We have here, I. An account of the penman of this epistle, a character of the church, the blessings and privileges of that happy society, Jude 1:1,2. II. The occasion of writing th..."
 weight: 1
 ---
 
-# Chapter 1
+# Jude 1 
 
 We have here, I. An account of the penman of this epistle, a character of the church, the blessings and privileges of that happy society, Jude 1:1,2. II. The occasion of writing this epistle, Jude 1:3. III. A character of evil and perverse men, who had already sprung up in that infant state of the church, and would be succeeded by others of the like evil spirit and temper in after-times, Jude 1:4. IV. A caution against hearkening to and following after such, from the severity of God towards the unbelieving murmuring Israelites at their coming out of Egypt, the angels that fell, the sin and punishment of Sodom and Gomorrah, Jude 1:5-7. V. To these the apostle likens the seducers against whom he was warning them, and describes them at large, (Jude 1:8-10, inclusive). VI. Then (as specially suitable to his argument) he cites an ancient prophecy of Enoch foretelling and describing the future judgment, Jude 1:14,15. VII. He enlarges on the seducers' character, and guards against the offence which honest minds might be apt to take at the so early permission of such things, by showing that it was foretold long before that so it must be, Jude 1:16-19. VIII. Exhorts them to perseverance in the faith, fervency in prayer, watchfulness against falling from the love of God, and a lively hope of eternal life, Jude 1:20,21. IX. Directs them how to act towards the erroneous and scandalous, Jude 1:22,23. And, X. Closes with an admirable doxology in the Jude 1:24,25.
 

@@ -1,8 +1,11 @@
 ---
+title: "Acts 1 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "1"
+description: "The inspired historian begins his narrative of the Acts of the Apostles, I. With a reference to, and a brief recapitulation of, his gospel, or history of the life of Christ, inscri..."
 weight: 1
 ---
 
-# Chapter 1
+# Acts 1 
 
 The inspired historian begins his narrative of the Acts of the Apostles, I. With a reference to, and a brief recapitulation of, his gospel, or history of the life of Christ, inscribing this, as he had done that, to his friend Theophilus, Ac 1:1,2. II. With a summary of the proofs of Christ's resurrection, his conference with his disciples, and the instructions he gave them during the forty days, of his continuance on earth, Ac 1:3-5. III. With a particular narrative of Christ's ascension into heaven, his disciples' discourse with him before he ascended, and the angels' discourse with them after he ascended, Ac 1:6-11. IV. With a general idea of the embryo of the Christian church, and its state from Christ's ascension to the pouring out of the Spirit, Ac 1:12-14. V. With a particular account of the filling up of the vacancy that was made in the sacred college by the death of Judas, by the electing of Matthias in his room, Ac 1:15-26.
 

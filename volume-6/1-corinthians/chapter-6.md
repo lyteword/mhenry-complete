@@ -1,8 +1,11 @@
 ---
+title: "1 Corinthians 6 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "6"
+description: "In this chapter the apostle, I. Reproves them for going to law with one another about small matters, and bringing the cause before heathen judges, 1Co 6:1-8. II. He takes occasion ..."
 weight: 6
 ---
 
-# Chapter 6
+# 1 Corinthians 6 
 
 In this chapter the apostle, I. Reproves them for going to law with one another about small matters, and bringing the cause before heathen judges, 1Co 6:1-8. II. He takes occasion hence to warn them against many gross sins, to which they had been formerly addicted, 1Co 6:9-11. III. And, having cautioned them against the abuse of their liberty, he vehemently dehorts them from fornication, by various arguments, 1Co 6:12-20.
 

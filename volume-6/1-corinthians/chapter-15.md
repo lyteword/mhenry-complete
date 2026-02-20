@@ -1,8 +1,11 @@
 ---
+title: "1 Corinthians 15 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "15"
+description: "In this chapter the apostle treats of that great article of Christianity—the resurrection of the dead. I. He establishes the certainty of our Saviour\'s resurrection, 1Co 15:1-11. I..."
 weight: 15
 ---
 
-# Chapter 15
+# 1 Corinthians 15 
 
 In this chapter the apostle treats of that great article of Christianity—the resurrection of the dead. I. He establishes the certainty of our Saviour's resurrection, 1Co 15:1-11. II. He, from this truth, sets himself to refute those who said, There is no resurrection of the dead, 1Co 15:12-19. III. From our Saviour's resurrection he establishes the resurrection of the dead and confirms the Corinthians in the belief of it by some other considerations, 1Co 15:20-34. IV. He answers an objection against this truth, and takes occasion thence to show what a vast change will be made in the bodies of believers at the resurrection, 1Co 15:35-50. V. He informs us what a change will be made in those who shall be living at the sound of the last trumpet, and the complete conquest the just shall then obtain over death and the grave, 1Co 15:51-57. And, VI. He sums up the argument with a very serious exhortation to Christians, to be resolved and diligent in their Lord's service, because they know they shall be so gloriously rewarded by him, 1Co 15:58.
 

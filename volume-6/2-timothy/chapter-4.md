@@ -1,8 +1,11 @@
 ---
+title: "2 Timothy 4 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "4"
+description: "In this chapter, I. Paul with great solemnity and earnestness presses Timothy to the diligent and conscientious discharge of his work and office as an evangelist; and the charge gi..."
 weight: 4
 ---
 
-# Chapter 4
+# 2 Timothy 4 
 
 In this chapter, I. Paul with great solemnity and earnestness presses Timothy to the diligent and conscientious discharge of his work and office as an evangelist; and the charge given to him all gospel ministers are to take to themselves, 2Ti 4:1-5. II. The reason of his concern in this case, Why must Timothy now be instant in season, etc., in a particular manner? Because the church was likely to be deprived of the apostle's labours, for his departure was at hand, 2Ti 4:6-8. III. Divers particular matters, with a hint and caution, about Alexander the coppersmith, 2Ti 4:9-15. IV. He informs him of what befel him at his first answer; though men forsook him, the Lord stood by him, and this encouraged him to hope for future deliverance (2Ti 4:16-18) And then he concludes with salutations and a benediction, 2Ti 4:19-22.
 

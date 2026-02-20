@@ -1,8 +1,11 @@
 ---
+title: "Galatians 3 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "3"
+description: "The apostle in this chapter, I. Reproves the Galatians for their folly, in suffering themselves to be drawn away from the faith of the gospel, and endeavours, from several consider..."
 weight: 3
 ---
 
-# Chapter 3
+# Galatians 3 
 
 The apostle in this chapter, I. Reproves the Galatians for their folly, in suffering themselves to be drawn away from the faith of the gospel, and endeavours, from several considerations, to impress them with a sense of it. II. He proves the doctrine which he had reproved them for departing from—that of justification by faith without the works of the law, 1. From the example of Abraham's justification. 2. From the nature and tenour of the law. 3. From the express testimony of the Old Testament; and, 4. From the stability of the covenant of God with Abraham. Lest any should hereupon say, "Wherefore then serveth the law?" he answers, (1.) It was added because of transgressions. (2.) It was given to convince the world of the necessity of a Saviour. (3.) It was designed as a schoolmaster, to bring us to Christ. And then he concludes the chapter by acquainting us with the privilege of Christians under the gospel state.
 

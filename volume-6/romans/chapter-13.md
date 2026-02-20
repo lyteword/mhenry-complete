@@ -1,8 +1,11 @@
 ---
+title: "Romans 13 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "13"
+description: "There are three good lessons taught us in this chapter, where the apostle enlarges more upon his precepts than he had done in the foregoing chapter, finding them more needful to be..."
 weight: 13
 ---
 
-# Chapter 13
+# Romans 13 
 
 There are three good lessons taught us in this chapter, where the apostle enlarges more upon his precepts than he had done in the foregoing chapter, finding them more needful to be fully pressed. I. A lesson of subjection to lawful authority, Ro 13:1-6. II. A lesson of justice and love to our brethren, Ro 13:7-10. III. A lesson of sobriety and godliness in ourselves, Ro 13:11-14.
 

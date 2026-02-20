@@ -1,8 +1,11 @@
 ---
+title: "1 Corinthians 4 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "4"
+description: "In this chapter the apostle, I. Directs them how to account of him and his fellow-ministers, and therein, tacitly at least, reproves them for their unworthy carriage towards him, 1..."
 weight: 4
 ---
 
-# Chapter 4
+# 1 Corinthians 4 
 
 In this chapter the apostle, I. Directs them how to account of him and his fellow-ministers, and therein, tacitly at least, reproves them for their unworthy carriage towards him, 1Co 4:1-6. II. He cautions them against pride and self-elation, and hints at the many temptations they had to conceive too highly of themselves, and despise him and other apostles, because of the great diversity in their circumstances and condition, 1Co 4:7-13. III. He challenges their regard to him as their father in Christ, 1Co 4:14-16. IV. He tells them of his having sent Timothy to them, and of his own purpose to come to them shortly, however some among them had pleased themselves, and grown vain, upon the quite contrary expectation, 1Co 4:17-21.
 

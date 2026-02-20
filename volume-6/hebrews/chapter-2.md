@@ -1,8 +1,11 @@
 ---
+title: "Hebrews 2 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "2"
+description: "In this chapter the apostle, I. Makes some application of the doctrine laid down in the chapter foregoing concerning the excellency of the person of Christ, both by way of exhortat..."
 weight: 2
 ---
 
-# Chapter 2
+# Hebrews 2 
 
 In this chapter the apostle, I. Makes some application of the doctrine laid down in the chapter foregoing concerning the excellency of the person of Christ, both by way of exhortation and argument, Heb 2:1-4. II. Enlarges further upon the pre-eminence of Christ above the angels, Heb 2:5-9. III. Proceeds to remove the scandal of the cross, Heb 2:10-15. IV. Asserts the incarnation of Christ, taking upon him not the nature of angels, but the seed of Abraham, and assigns the reason of his so doing, Heb 2:16-18.
 

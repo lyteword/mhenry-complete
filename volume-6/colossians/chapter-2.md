@@ -1,8 +1,11 @@
 ---
+title: "Colossians 2 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "2"
+description: "I\\. The apostle expresses concern for the Colossians, Col 2:1-3. II. He repeats it again, Col 2:5. III. He cautions them against false teachers among the Jews (Col 2:4,6,7), and ag..."
 weight: 2
 ---
 
-# Chapter 2
+# Colossians 2 
 
 I\. The apostle expresses concern for the Colossians, Col 2:1-3. II. He repeats it again, Col 2:5. III. He cautions them against false teachers among the Jews (Col 2:4,6,7), and against the Gentile philosophy, Col 2:8-12. IV. He represents the privileges of Christians, Col 2:13-15. And, V. Concludes with a caution against the judaizing teachers, and those who would introduce the worship of angels, Col 2:16-23.
 

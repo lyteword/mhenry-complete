@@ -1,8 +1,11 @@
 ---
+title: "Revelation 11 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "11"
+description: "In this chapter we have an account, I. Of the measuring—reed given to the apostle, to take the dimensions of the temple, Re 11:1,2. II. Of the two witnesses of God, Re 11:3-13. III..."
 weight: 11
 ---
 
-# Chapter 11
+# Revelation 11 
 
 In this chapter we have an account, I. Of the measuring—reed given to the apostle, to take the dimensions of the temple, Re 11:1,2. II. Of the two witnesses of God, Re 11:3-13. III. Of the sounding of the seventh trumpet, and what followed upon it, Re 11:14-19, etc.
 

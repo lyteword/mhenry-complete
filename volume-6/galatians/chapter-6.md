@@ -1,8 +1,11 @@
 ---
+title: "Galatians 6 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "6"
+description: "This chapter chiefly consists of two parts. In the former the apostle gives us several plain and practical directions, which more especially tend to instruct Christians in their du..."
 weight: 6
 ---
 
-# Chapter 6
+# Galatians 6 
 
 This chapter chiefly consists of two parts. In the former the apostle gives us several plain and practical directions, which more especially tend to instruct Christians in their duty to one another, and to promote the communion of saints in love, Ga 6:1-10. In the latter he revives the main design of the epistle, which was to fortify the Galatians against the arts of their judaizing teachers, and confirm them in the truth and liberty of the gospel, for which purpose he, I. Gives them the true character of these teachers, and shows them from what motives, and with what views, they acted, Ga 6:11-14. And, II. On the other hand he acquaints them with his own temper and behaviour. From both these they might easily see how little reason they had to slight him, and to fall in with them. And then he concludes the epistle with a solemn benediction.
 

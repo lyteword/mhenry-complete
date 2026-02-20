@@ -1,8 +1,11 @@
 ---
+title: "Acts 13 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "13"
+description: "We have not yet met with any things concerning the spreading of the gospel to the Gentiles which bears any proportion to the largeness of that commission, \"Go, and disciple all nat..."
 weight: 13
 ---
 
-# Chapter 13
+# Acts 13 
 
 We have not yet met with any things concerning the spreading of the gospel to the Gentiles which bears any proportion to the largeness of that commission, "Go, and disciple all nations." The door was opened in the baptizing of Cornelius and his friends; but since then we had the gospel preached to the Jews only, Ac 11:19. It should seem as if the light which began to shine upon the Gentile world had withdrawn itself. But here in this chapter that work, that great good work, is revived in the midst of the years; and though the Jews shall still have the first offer of the gospel made to them, yet, upon their refusal, the Gentiles shall have their share of the offer of it. Here is, I. The solemn ordination of Barnabas and Saul, by divine direction, to the ministry, to the great work of spreading the gospel among the nations about (and it is probable that other apostles or apostolical men dispersed themselves by order from Christ, upon the same errand, Ac 13:1-3). II. Their preaching the gospel in Cyprus, and the opposition they met with there from Elymas the sorcerer, Ac 13:4-13. III. The heads of a sermon which Paul preached to the Jews at Antioch in Pisidia, in their synagogue, which is given us as a specimen of what they usually preached to the Jews, and the method they took with them, Ac 13:14-41. IV. The preaching of the gospel to the Gentiles at their request, and upon the Jews' refusal of it, wherein the apostles justified themselves against the displeasure which the Jews conceived at it, and God owned them, Ac 13:42-49. V. The trouble which the infidel Jews gave to the apostles, which obliged them to remove to another place (Ac 13:50-52), so that the design of this chapter is to show how cautiously, how gradually, and with what good reason the apostles carried the gospel into the Gentile world, and admitted the Gentiles into the church, which was so great an offence to the Jews, and which Paul is so industrious to justify in his epistles.
 

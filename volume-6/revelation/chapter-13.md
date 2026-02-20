@@ -1,8 +1,11 @@
 ---
+title: "Revelation 13 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "13"
+description: "We have, in this chapter, a further discovery and description of the church\'s enemies: not other enemies than are mentioned before, but described after another manner, that the met..."
 weight: 13
 ---
 
-# Chapter 13
+# Revelation 13 
 
 We have, in this chapter, a further discovery and description of the church's enemies: not other enemies than are mentioned before, but described after another manner, that the methods of their enmity may more fully appear. They are represented as two beasts; the first you have an account of (Re 13:1-10) the second, Re 13:11-18, etc. By the first some understand Rome pagan, and by the second Rome papal; but others understand Rome papal to be represented by both these beasts, by the first in its secular power, by the second in its ecclesiastical.
 

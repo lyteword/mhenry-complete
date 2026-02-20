@@ -1,8 +1,11 @@
 ---
+title: "Romans 14 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "14"
+description: "The apostle having, in the former chapter, directed our conduct one towards another in civil things, and prescribed the sacred laws of justice, peaceableness, and order, to be obse..."
 weight: 14
 ---
 
-# Chapter 14
+# Romans 14 
 
 The apostle having, in the former chapter, directed our conduct one towards another in civil things, and prescribed the sacred laws of justice, peaceableness, and order, to be observed by us as members of the commonwealth, comes in this and part of the following chapter in like manner to direct our demeanour one towards another in sacred things, which pertain more immediately to conscience and religion, and which we observe as members of the church. Particularly, he gives rules how to manage our different apprehensions about indifferent things, in the management of which, it seems, there was something amiss among the Roman Christians, to whom he wrote, which he here labours to redress. But the rules are general, and of standing use in the church, for the preservation of that Christian love which he had so earnestly pressed in the foregoing chapter as the fulfilling of the law. It is certain that nothing is more threatening, nor more often fatal, to Christian societies, than the contentions and divisions of their members. By these wounds the life and soul of religion expire. Now in this chapter we are furnished with the sovereign balm of Gilead; the blessed apostle prescribes like a wise physician. "Why then is not the hurt of the daughter of my people recovered," but because his directions are not followed? This chapter, rightly understood, made use of, and lived up to, would set things to rights, and heal us all.
 

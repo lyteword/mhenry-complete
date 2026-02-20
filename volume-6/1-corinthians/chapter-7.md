@@ -1,8 +1,11 @@
 ---
+title: "1 Corinthians 7 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "7"
+description: "In this chapter the apostle answers some cases proposed to him by the Corinthians about marriage. He, I. Shows them that marriage was appointed as a remedy against fornication, and..."
 weight: 7
 ---
 
-# Chapter 7
+# 1 Corinthians 7 
 
 In this chapter the apostle answers some cases proposed to him by the Corinthians about marriage. He, I. Shows them that marriage was appointed as a remedy against fornication, and therefore that persons had better marry than burn, 1Co 7:1-9. II. He gives direction to those who are married to continue together, though they might have an unbelieving relative, unless the unbeliever would part, in which case a Christian would not be in bondage, 1Co 7:10-16. III. He shows them that becoming Christians does not change their external state; and therefore advises every one to continue, in the general, in that state in which he was called, 1Co 7:17-24. IV. He advises them, by reason of the present distress, to keep themselves unmarried; hints the shortness of time, and how they should improve it, so as to grow dead and indifferent to the comforts of the world; and shows them how worldly cares hinder their devotions, and distract them in the service of God, 1Co 7:25-35. V. He directs them in the disposal of their virgins, 1Co 7:36-38. VI. And closes the chapter with advice to widows how to dispose of themselves in that state, 1Co 7:39,40.
 

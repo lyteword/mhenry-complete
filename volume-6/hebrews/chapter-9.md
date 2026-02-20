@@ -1,8 +1,11 @@
 ---
+title: "Hebrews 9 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "9"
+description: "The apostle, having declared the Old-Testament dispensation antiquated and vanishing away, proceeds to let the Hebrews see the correspondence there was between the Old Testament an..."
 weight: 9
 ---
 
-# Chapter 9
+# Hebrews 9 
 
 The apostle, having declared the Old-Testament dispensation antiquated and vanishing away, proceeds to let the Hebrews see the correspondence there was between the Old Testament and the New; and that whatever was excellent in the Old was typical and representative of the New, which therefore must as far excel the Old as the substance does the shadow. The Old Testament was never intended to be rested in, but to prepare for the institutions of the gospel. And here he treats, I. Of the tabernacle, the place of worship, Heb 9:1-5. II. Of the worship and services performed in the tabernacle, Heb 9:6,7. III. He delivers the spiritual sense and the main design of all, Heb 9:8-28.
 

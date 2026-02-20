@@ -1,8 +1,11 @@
 ---
+title: "Romans 7 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "7"
+description: "We may observe in this chapter, I. Our freedom from the law further urged as an argument to press upon us sanctification, Ro 7:1-6. II. The excellency and usefulness of the law ass..."
 weight: 7
 ---
 
-# Chapter 7
+# Romans 7 
 
 We may observe in this chapter, I. Our freedom from the law further urged as an argument to press upon us sanctification, Ro 7:1-6. II. The excellency and usefulness of the law asserted and proved from the apostle's own experience, notwithstanding, Ro 7:7-14. III. A description of the conflict between grace and corruption in the heart, Ro 7:14-25.
 

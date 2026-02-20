@@ -1,8 +1,11 @@
 ---
+title: "Revelation 18 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "18"
+description: "We have here, I. An angel proclaiming the fall of Babylon, Re 18:1,2. II. Assigning the reasons of her fall, Re 18:3. III. Giving warning to all who belonged to God to come out of ..."
 weight: 18
 ---
 
-# Chapter 18
+# Revelation 18 
 
 We have here, I. An angel proclaiming the fall of Babylon, Re 18:1,2. II. Assigning the reasons of her fall, Re 18:3. III. Giving warning to all who belonged to God to come out of her (Re 18:4,5), and to assist in her destruction, Re 18:6-8. IV. The great lamentation made for her by those who had been large sharers in her sinful pleasures and profits, Re 18:9-19. V. The great joy that there would be among others at the sight of her irrecoverable ruin, Re 18:20-24, etc.
 

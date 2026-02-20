@@ -1,8 +1,11 @@
 ---
+title: "Ephesians 3 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "3"
+description: "This chapter consists of two parts. I. Of the account which Paul gives the Ephesians concerning himself, as he was appointed by God to be the apostle of the Gentiles, Eph 3:1-13. I..."
 weight: 3
 ---
 
-# Chapter 3
+# Ephesians 3 
 
 This chapter consists of two parts. I. Of the account which Paul gives the Ephesians concerning himself, as he was appointed by God to be the apostle of the Gentiles, Eph 3:1-13. II. Of his devout and affectionate prayer to God for the Ephesians, Eph 3:14-21. We may observe it to have been very much the practice of this apostle to intermix, with his instructions and counsels, intercessions and prayers to God for those to whom he wrote, as knowing that all his instructions and teachings would be useless and vain, except God did co-operate with them, and render them effectual. This is an example that all the ministers of Christ should copy after, praying earnestly that the efficacious operations of the divine Spirit may attend their ministrations, and crown them with success.
 

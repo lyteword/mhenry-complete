@@ -1,8 +1,11 @@
 ---
+title: "Romans 2 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "2"
+description: "The scope of the first two chapters of this epistle may be gathered from Ro 3:9, \"We have before proved both Jews and Gentiles that they are all under sin.\" This we have proved upo..."
 weight: 2
 ---
 
-# Chapter 2
+# Romans 2 
 
 The scope of the first two chapters of this epistle may be gathered from Ro 3:9, "We have before proved both Jews and Gentiles that they are all under sin." This we have proved upon the Gentiles (Ro 1:1-32), now in this chapter he proves it upon the Jews, as appears by Ro 2:1-17, "thou art called a Jew." I. He proves in general that Jews and Gentiles stand upon the same level before the justice of God, to Ro 2:1-11. II. He shows more particularly what sins the Jews were guilty of, notwithstanding their profession and vain pretensions (Ro 2:17-29).
 

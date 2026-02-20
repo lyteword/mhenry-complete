@@ -1,8 +1,11 @@
 ---
+title: "Romans 6 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "6"
+description: "The apostle having at large asserted, opened, and proved, the great doctrine of justification by faith, for fear lest any should suck poison out of that sweet flower, and turn that..."
 weight: 6
 ---
 
-# Chapter 6
+# Romans 6 
 
 The apostle having at large asserted, opened, and proved, the great doctrine of justification by faith, for fear lest any should suck poison out of that sweet flower, and turn that grace of God into wantonness and licentiousness, he, with a like zeal, copiousness of expression, and cogency of argument, presses the absolute necessity of sanctification and a holy life, as the inseparable fruit and companion of justification; for, wherever Jesus Christ is made of God unto any soul righteousness, he is made of God unto that soul sanctification, 1Co 1:30. The water and the blood came streaming together out of the pierced side of the dying Jesus. And what God hath thus joined together let not us dare to put asunder.
 

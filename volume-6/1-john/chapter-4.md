@@ -1,8 +1,11 @@
 ---
+title: "1 John 4 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "4"
+description: "In this chapter the apostle exhorts to try spirits (1Jo 4:1), gives a note to try by (1Jo 4:2,3), shows who are of the world and who of God (1Jo 4:4-6), urges Christian love by div..."
 weight: 4
 ---
 
-# Chapter 4
+# 1 John 4 
 
 In this chapter the apostle exhorts to try spirits (1Jo 4:1), gives a note to try by (1Jo 4:2,3), shows who are of the world and who of God (1Jo 4:4-6), urges Christian love by divers considerations (1Jo 4:7-16), describes our love to God, and the effect of it, 1Jo 4:17-21.
 

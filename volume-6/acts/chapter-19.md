@@ -1,8 +1,11 @@
 ---
+title: "Acts 19 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "19"
+description: "We left Paul in his circuit visiting the churches (Ac 18:23), but we have not forgotten, nor has he, the promise he made to his friends at Ephesus, to return to them, and make some..."
 weight: 19
 ---
 
-# Chapter 19
+# Acts 19 
 
 We left Paul in his circuit visiting the churches (Ac 18:23), but we have not forgotten, nor has he, the promise he made to his friends at Ephesus, to return to them, and make some stay there; now this chapter shows us his performance of that promise, his coming to Ephesus, and his continuance there two years; we are here told, I. How he laboured there in the word and doctrine, how he taught some weak believers that had gone no further than John's baptism (Ac 19:1-7), how he taught three months in the synagogue of the Jews (Ac 19:8), and, when he was driven thence, how he taught the Gentiles a long time in a public school (Ac 19:9,10), and how he confirmed his doctrine by miracles, Ac 19:11,12. II. What was the fruit of his labour, particularly among the conjurors, the worst of sinners: some were confounded, that did but make use of his name (Ac 19:13-17), but others were converted, that received and embraced his doctrine, Ac 19:18-20. III. What projects he had of further usefulness (Ac 19:21,22), and what trouble at length he met with at Ephesus from the silversmiths, which forced him thence to pursue the measures he had laid; how a mob was raised by Demetrius to cry up Diana (Ac 19:23-34), and how it was suppressed and dispersed by the town-clerk, Ac 19:35-41.
 

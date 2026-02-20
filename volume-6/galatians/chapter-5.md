@@ -1,8 +1,11 @@
 ---
+title: "Galatians 5 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "5"
+description: "In this chapter the apostle comes to make application of his foregoing discourse. He begins it with a general caution, or exhortation (Ga 5:1), which he afterwards enforces by seve..."
 weight: 5
 ---
 
-# Chapter 5
+# Galatians 5 
 
 In this chapter the apostle comes to make application of his foregoing discourse. He begins it with a general caution, or exhortation (Ga 5:1), which he afterwards enforces by several considerations, Ga 5:2-12. He then presses them to serious practical godliness, which would be the best antidote against the snares of their false teachers; particularly, I. That they should not strive with one another, Ga 5:13-15. II. That they would strive against sin, where he shows, 1. That there is in every one a struggle between flesh and spirit, Ga 5:17. 2. That it is our duty and interest, in this struggle, to side with the better part, Ga 5:16,18. 3. He specifies the works of the flesh, which must be watched against and mortified, and the fruits of the Spirit, which must be brought forth and cherished, and shows of what importance it is that they be so, Ga 5:19-24. And then concludes the chapter with a caution against pride and envy.
 

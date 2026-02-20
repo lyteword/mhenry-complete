@@ -1,8 +1,11 @@
 ---
+title: "2 Corinthians 2 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "2"
+description: "In this chapter the apostle proceeds in the account of the reasons why he did not come to Corinth, 2Co 2:1-4. Then he writes concerning the incestuous person who lay under censure;..."
 weight: 2
 ---
 
-# Chapter 2
+# 2 Corinthians 2 
 
 In this chapter the apostle proceeds in the account of the reasons why he did not come to Corinth, 2Co 2:1-4. Then he writes concerning the incestuous person who lay under censure; and gives direction for restoring him, together with the reasons for their so doing (2Co 2:5-11), and afterwards informs them of his labours and success in preaching the gospel in several places, 2Co 2:12-17.
 

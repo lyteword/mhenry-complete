@@ -1,8 +1,11 @@
 ---
+title: "Acts 17 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "17"
+description: "We have here a further account of the travels of Paul, and his services and sufferings for Christ. He was not like a candle upon a table, that gives light only to one room, but lik..."
 weight: 17
 ---
 
-# Chapter 17
+# Acts 17 
 
 We have here a further account of the travels of Paul, and his services and sufferings for Christ. He was not like a candle upon a table, that gives light only to one room, but like the sun that goes its circuit to give light to many. He was called into Macedonia, a large kingdom, Ac 16:9. He began with Philippi, because it was the first city he came to; but he must not confine himself to this. We have him here, I. Preaching and persecuted at Thessalonica, another city of Macedonia, Ac 17:1-9. II. Preaching at Berea, where he met with an encouraging auditory, but was driven thence also by persecution, Ac 17:10-15. III. Disputing at Athens, the famous university of Greece (Ac 17:16-21), and the account he gave of natural religion, for the conviction of those that were addicted to polytheism and idolatry, and to lead them to the Christian religion (Ac 17:22-31), together with the success of this sermon, Ac 17:32-34.
 

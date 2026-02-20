@@ -1,8 +1,11 @@
 ---
+title: "2 Thessalonians 2 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "2"
+description: "The apostle is very careful to hinder the spreading of an error into which some among them had fallen concerning the coming of Christ, as being very near, 2Th 2:1-3. Then he procee..."
 weight: 2
 ---
 
-# Chapter 2
+# 2 Thessalonians 2 
 
 The apostle is very careful to hinder the spreading of an error into which some among them had fallen concerning the coming of Christ, as being very near, 2Th 2:1-3. Then he proceeds to confute the error he cautioned them against, by telling them of two great events that were antecedent to the coming of Christ—a general apostasy, and the revelation of antichrist, concerning whom the apostle tells them many remarkable things, about his name, his character, his rise, his fall, his reign, and the sin and ruin of his subjects, 2Th 2:4-12. He then comforts them against the terror of this apostasy, and exhorts them to stedfastness, 2Th 2:13-15. And concludes with a prayer for them, 2Th 2:16,17.
 

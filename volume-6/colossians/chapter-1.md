@@ -1,8 +1,11 @@
 ---
+title: "Colossians 1 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "1"
+description: "We have here, I. The inscription, as usual, Col 1:1,2. II. His thanksgiving to God for what he had heard concerning them—their faith, love, and hope, Col 1:3-8. III. His prayer for..."
 weight: 1
 ---
 
-# Chapter 1
+# Colossians 1 
 
 We have here, I. The inscription, as usual, Col 1:1,2. II. His thanksgiving to God for what he had heard concerning them—their faith, love, and hope, Col 1:3-8. III. His prayer for their knowledge, fruitfulness, and strength, Col 1:9-11. IV. An admirable summary of the Christian doctrine concerning the operation of the Spirit, the person of the Redeemer, the work of redemption, and the preaching of it in the gospel, Col 1:12-29.
 

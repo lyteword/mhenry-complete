@@ -1,8 +1,11 @@
 ---
+title: "2 Corinthians 9 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "9"
+description: "In this chapter the apostle seems to excuse his earnestness in pressing the Corinthians to the duty of charity (2Co 9:1-5), and proceeds to give directions about the acceptable way..."
 weight: 9
 ---
 
-# Chapter 9
+# 2 Corinthians 9 
 
 In this chapter the apostle seems to excuse his earnestness in pressing the Corinthians to the duty of charity (2Co 9:1-5), and proceeds to give directions about the acceptable way and manner of performing it, namely, bountifully, deliberately, and freely; and gives good encouragement for so doing, 2Co 9:6-15.
 

@@ -1,8 +1,11 @@
 ---
+title: "1 Corinthians 11 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "11"
+description: "In this chapter the apostle blames, and endeavours to rectify, some great indecencies and manifest disorders in the church of Corinth; as, I. The misconduct of their women (some of..."
 weight: 11
 ---
 
-# Chapter 11
+# 1 Corinthians 11 
 
 In this chapter the apostle blames, and endeavours to rectify, some great indecencies and manifest disorders in the church of Corinth; as, I. The misconduct of their women (some of whom seem to have been inspired) in the public assembly, who laid by their veils, the common token of subjection to their husbands in that part of the world. This behaviour he reprehends, requires them to keep veiled, asserts the superiority of the husband, yet so as to remind the husband that both were made for mutual help and comfort, Ro 11:1-16. II. He blames them for their discord and neglect and contempt of the poor, at the Lord's supper, Ro 11:17-22. III. To rectify these scandalous disorders, he sets before them the nature and intentions of this holy institution, directs them how they should attend on it, and warns them of the danger of a conduct to indecent as theirs, and of all unworthy receiving, Ro 11:23-34.
 

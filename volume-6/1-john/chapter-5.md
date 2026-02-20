@@ -1,8 +1,11 @@
 ---
+title: "1 John 5 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "5"
+description: "In this chapter the apostle asserts, I. The dignity of believers, 1Jo 5:1. II. Their obligation to love, and the trial of it, 1Jo 5:1-3. III. Their victory, 1Jo 5:4,5. IV. The cred..."
 weight: 5
 ---
 
-# Chapter 5
+# 1 John 5 
 
 In this chapter the apostle asserts, I. The dignity of believers, 1Jo 5:1. II. Their obligation to love, and the trial of it, 1Jo 5:1-3. III. Their victory, 1Jo 5:4,5. IV. The credibility and confirmation of their faith, 1Jo 5:6-10. V. The advantage of their faith in eternal life, 1Jo 5:11-13. VI. The audience of their prayers, unless for those who have sinned unto death, 1Jo 5:14-17. VII. The preservation from sin and Satan, 1Jo 5:18. VIII. Their happy distinction from the world, 1Jo 5:19. IX. Their true knowledge of God (1Jo 5:20), upon which they must depart from idols, 1Jo 5:21.
 

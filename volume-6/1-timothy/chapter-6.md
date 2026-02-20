@@ -1,8 +1,11 @@
 ---
+title: "1 Timothy 6 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "6"
+description: "I\\. He treats of the duty of servants, 1Ti 6:1,2. II. Of false teachers, 1Ti 6:3-5. III. Of godliness and covetousness, 1Ti 6:6-10. IV. What Timothy was to flee, and what to follow..."
 weight: 6
 ---
 
-# Chapter 6
+# 1 Timothy 6 
 
 I\. He treats of the duty of servants, 1Ti 6:1,2. II. Of false teachers, 1Ti 6:3-5. III. Of godliness and covetousness, 1Ti 6:6-10. IV. What Timothy was to flee, and what to follow, 1Ti 6:11,12. V. A solemn charge, 1Ti 6:13-16. VI. A charge for the rich, 1Ti 6:17-19. And lastly, a charge to Timothy, 1Ti 6:20,21.
 

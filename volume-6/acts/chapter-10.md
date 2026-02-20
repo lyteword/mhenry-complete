@@ -1,8 +1,11 @@
 ---
+title: "Acts 10 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "10"
+description: "It is a turn very new and remarkable which the story of this chapter gives to the Acts of the apostles; hitherto, both at Jerusalem and every where else where the ministers of Chri..."
 weight: 10
 ---
 
-# Chapter 10
+# Acts 10 
 
 It is a turn very new and remarkable which the story of this chapter gives to the Acts of the apostles; hitherto, both at Jerusalem and every where else where the ministers of Christ came, they preached the gospel only to the Jews, or those Greeks that were circumcised and proselyted to the Jews' religion; but now, "Lo, we turn to the Gentiles;" and to them the door of faith is here opened: good news indeed to us sinners of the Gentiles. The apostle Peter is the man that is first employed to admit uncircumcised Gentiles into the Christian church; and Cornelius, a Roman centurion or colonel, is the first that with his family and friends is so admitted. Now here we are told, I. How Cornelius was directed by a vision to send for Peter, and did send for him accordingly, Ac 10:1-8. II. How Peter was directed by a vision to go to Cornelius, though he was a Gentile, without making any scruple of it, and did go accordingly, Ac 10:9-23. III. The happy interview between Peter and Cornelius at Cesarea, Ac 10:24-33. IV. The sermon Peter preached in the house of Cornelius to him and to his friends, Ac 10:34-43. V. The baptizing of Cornelius and his friends with the Holy Ghost first, and then with water, Ac 10:44-48.
 

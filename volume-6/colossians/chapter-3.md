@@ -1,8 +1,11 @@
 ---
+title: "Colossians 3 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "3"
+description: "I\\. The apostle exhorts us to set our hearts upon heaven and take them off from this world, Col 3:1-4. II. He exhorts to the mortification of sin, in the various instances of it, C..."
 weight: 3
 ---
 
-# Chapter 3
+# Colossians 3 
 
 I\. The apostle exhorts us to set our hearts upon heaven and take them off from this world, Col 3:1-4. II. He exhorts to the mortification of sin, in the various instances of it, Col 3:5-11. III. He earnestly presses to mutual love and compassion, Col 3:12-17. And concludes with exhortations to relative duties, of wives and husbands, parents and children, masters and servants, Col 3:18-25.
 

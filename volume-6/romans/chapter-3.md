@@ -1,8 +1,11 @@
 ---
+title: "Romans 3 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "3"
+description: "The apostle, in this chapter, carries on his discourse concerning justification. He had already proved the guilt both of Gentiles and Jews. Now in this chapter, I. He answers some ..."
 weight: 3
 ---
 
-# Chapter 3
+# Romans 3 
 
 The apostle, in this chapter, carries on his discourse concerning justification. He had already proved the guilt both of Gentiles and Jews. Now in this chapter, I. He answers some objections that might be made against what he had said about the Jews, Ro 3:1-8. II. He asserts the guilt and corruption of mankind in common, both Jews and Gentiles, Ro 3:9-18. III. He argues thence that justification must needs be by faith, and not by the law, which he gives several reasons for (Ro 3:19-31). The many digressions in his writings render his discourse sometimes a little difficult, but his scope is evident.
 

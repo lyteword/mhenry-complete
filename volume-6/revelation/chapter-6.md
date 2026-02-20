@@ -1,8 +1,11 @@
 ---
+title: "Revelation 6 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "6"
+description: "The book of the divine counsels being thus lodged in the hand of Christ, he loses no time, but immediately enters upon the work of opening the seals and publishing the contents; bu..."
 weight: 6
 ---
 
-# Chapter 6
+# Revelation 6 
 
 The book of the divine counsels being thus lodged in the hand of Christ, he loses no time, but immediately enters upon the work of opening the seals and publishing the contents; but this is done in such a manner as still leaves the predictions very abstruse and difficult to be understood. Hitherto the waters of the sanctuary have been as those in Ezekiel's vision, only to the ankles, or to the knees, or to the loins at least; but here they begin to be a river that cannot be passed over. The visions which John saw, the epistles to the churches, the songs of praise, in the two foregoing chapters, had some things dark and hard to be understood; and yet they were rather milk for babes than meat for strong men; but now we are to launch into the deep, and our business is not so much to fathom it as to let down our net to take a draught. We shall only hint at what seems most obvious. The prophecies of this book are divided into seven seals opened, seven trumpets sounding, and seven vials poured out. It is supposed that the opening of the seven seals discloses those providences that concerned the church in the first three centuries, from the ascension of our Lord and Saviour to the reign of Constantine; this was represented in a book rolled up, and sealed in several places, so that, when one seal was opened, you might read so far of it, and so on, till the whole was unfolded. Yet we are not here told what was written in the book, but what John saw in figures enigmatical and hieroglyphic; and it is not for us to pretend to know "the times and seasons which the Father has put in his own power." In this chapter six of the seven seals are opened, and the visions attending them are related; the first seal in Re 6:1,2, the second seal in Re 6:3,4, the third seal in Re 6:5,6, the fourth seal in Re 6:7,8, the fifth seal in Re 6:9-11, the sixth seal in Re 6:12-17, etc.
 

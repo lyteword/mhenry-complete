@@ -1,8 +1,11 @@
 ---
+title: "Acts 4 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "4"
+description: "In going over the last two chapters, where we met with so many good things that the apostles did, I wondered what was become of the scribes and Pharisees, and chief priests, that t..."
 weight: 4
 ---
 
-# Chapter 4
+# Acts 4 
 
 In going over the last two chapters, where we met with so many good things that the apostles did, I wondered what was become of the scribes and Pharisees, and chief priests, that they did not appear to contradict and oppose them, as they had used to treat Christ himself; surely they were so confounded at first with the pouring out of the Spirit that they were for a time struck dumb! But I find we have not lost them; their forces rally again, and here we have an encounter between them and the apostles; for from the beginning the gospel met with opposition. Here, I. Peter and John are taken up, upon a warrant from the priests, and committed to jail, Ac 4:1-4. II. They are examined by a committee of the great sanhedrim, Ac 4:5-7. III. They bravely avow what they have done, and preach Christ to their persecutors, Ac 4:8-12. IV. Their persecutors, being unable to answer them, enjoin them silence, threatening them if they go on to preach the gospel, and so dismiss them, Ac 4:13-22. V. They apply to God by prayer, for the further operations of that grace which they had already experienced, Ac 4:23-30. VI. God owns them, both outwardly and inwardly, by manifest tokens of his presence with them, Ac 4:31-33. VII. The believers had their hearts knit together in holy love, and enlarged their charity to the poor, and the church flourished more than ever, to the glory of Christ, Ac 4:33-37.
 

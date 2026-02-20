@@ -1,8 +1,11 @@
 ---
+title: "Revelation 14 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "14"
+description: "After an account of the great trials and sufferings which the servants of God had endured, we have now a more pleasant scene opening; the day begins now to dawn, and here we have r..."
 weight: 14
 ---
 
-# Chapter 14
+# Revelation 14 
 
 After an account of the great trials and sufferings which the servants of God had endured, we have now a more pleasant scene opening; the day begins now to dawn, and here we have represented, I. The Lord Jesus at the head of his faithful followers, Re 14:1-5. II. Three angels sent successively to proclaim the fall of Babylon and the things antecedent and consequent to so great an event, Re 14:6-13. III. The vision of the harvest, Re 14:14-20, etc.
 

@@ -1,8 +1,11 @@
 ---
+title: "1 Thessalonians 4 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "4"
+description: "In this chapter the apostle gives earnest exhortations to abound in holiness, with a caution against uncleanness, enforced with several arguments, 1Th 4:1-8. He then mentions the g..."
 weight: 4
 ---
 
-# Chapter 4
+# 1 Thessalonians 4 
 
 In this chapter the apostle gives earnest exhortations to abound in holiness, with a caution against uncleanness, enforced with several arguments, 1Th 4:1-8. He then mentions the great duties of brotherly love, and quietness with industry in our callings, 1Th 4:9-12. And concludes with comforting those who mourned for their relations and friends that died in the Lord, 1Th 4:13-18.
 

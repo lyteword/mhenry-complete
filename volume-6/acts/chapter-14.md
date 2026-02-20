@@ -1,8 +1,11 @@
 ---
+title: "Acts 14 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "14"
+description: "We have, in this chapter, a further account of the progress of the gospel, by the ministry of Paul and Barnabas among the Gentiles; it goes on conquering and to conquer, yet meetin..."
 weight: 14
 ---
 
-# Chapter 14
+# Acts 14 
 
 We have, in this chapter, a further account of the progress of the gospel, by the ministry of Paul and Barnabas among the Gentiles; it goes on conquering and to conquer, yet meeting with opposition, as before, among the unbelieving Jews. Here is, I. Their successful preaching of the gospel for some time at Iconium, and their being driven thence by the violence of their persecutors, both Jews and Gentiles, and forced into the neighbouring countries, Ac 14:1-7. II. Their healing a lame man at Lystra, and the profound veneration which the people conceived of them thereupon, which they had much ado to keep from running into an extreme, Ac 14:8-18. III. The outrage of the people against Paul, at the instigation of the Jews, the effect of which was that they stoned him, as they thought, to death; but he was wonderfully restored to life, Ac 14:19,20. IV. The visit which Paul and Barnabas made to the churches which they had planted, to confirm them, and put them into order, Ac 14:21-23. V. They return to Antioch, whence they were sent forth; the good they did by the way, and the report they made to the church of Antioch of their expedition, and, if I may so say, of the campaign they had made, Ac 14:24-28.
 

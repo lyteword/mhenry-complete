@@ -1,8 +1,11 @@
 ---
+title: "Acts 18 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "18"
+description: "In this chapter we have, I. Paul\'s coming to Corinth, his private converse with Aquila and Priscilla, and his public reasonings with the Jews, from whom, when they rejected him, he..."
 weight: 18
 ---
 
-# Chapter 18
+# Acts 18 
 
 In this chapter we have, I. Paul's coming to Corinth, his private converse with Aquila and Priscilla, and his public reasonings with the Jews, from whom, when they rejected him, he turned to the Gentiles, Ac 18:1-6. II. The great success of his ministry there, and the encouragement Christ gave him in a vision to continue his labours there, in hopes of further success, Ac 18:7-11. III. The molestations which after some time he met with there from the Jews, which he got pretty well through by the coldness of Gallio, the Roman governor, in the cause, Ac 18:12-17. IV. The progress Paul made through many countries, after he had continued long at Corinth, for the edifying and watering of the churches which he had founded and planted, in which circuit he made a short visit to Jerusalem, Ac 18:18-23. V. An account of Apollo's improvement in knowledge, and of his usefulness in the church, Ac 18:24-28.
 

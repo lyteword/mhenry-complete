@@ -1,8 +1,11 @@
 ---
+title: "Acts 25 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "25"
+description: "Some think that Felix was turned out, and Festus succeeded him, quickly after Paul\'s imprisonment, and that the two years mentioned in the close of the foregoing chapter are to be ..."
 weight: 25
 ---
 
-# Chapter 25
+# Acts 25 
 
 Some think that Felix was turned out, and Festus succeeded him, quickly after Paul's imprisonment, and that the two years mentioned in the close of the foregoing chapter are to be reckoned from the beginning of Nero's reign; but it seems more natural to compute them from Paul's being delivered into the hands of Felix. However, we have here much the same management of Paul's case as we had in the foregoing chapter; cognizance is here taken of it, I. By Festus the governor; it is brought before him by the Jews, Ac 25:1-3. The hearing of it is appointed to be, not at Jerusalem, as the Jews desired, out at Cæsarea, Ac 25:4-6. The Jews appear against Paul and accuse him (Ac 25:7), but he stands upon his own innocency (Ac 25:8); and to avoid the removing of the cause to Jerusalem, to which he was pressed to consent, he at length appeals to Cæsar, Ac 25:9-12. II. By king Agrippa, to whom Festus relates his case (Ac 25:13-21), and Agrippa desires he might have the hearing of it himself, Ac 25:22. The court is accordingly set, and Paul brought to the bar (Ac 25:23), and Festus opens the cause (Ac 25:24-27), to introduce Paul's defence in the next chapter.
 
