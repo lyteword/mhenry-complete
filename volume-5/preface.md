@@ -1,7 +1,11 @@
 ---
-title: Preface - Volume V
+title: "Preface - Volume 5 | Read the Matthew Henry Concise Bible Commentary Online"
+linkTitle: "Preface"
+description: "The one half of our undertaking upon the New Testament. It may be proper to apprise the reader that the volume to which this preface was originally prefixed included the Acts of the Apostles..."
 weight: 1
 ---
+
+# Preface to Volume V
 
 The one half of our undertaking upon the New Testament. It may be proper to apprise the reader that the volume to which this preface was originally prefixed included the Acts of the Apostles, which in the present edition will commence the second volume, in order to secure a more equal division of the New Testament—the commentary on the remaining books being less extended than the author contemplated.—Ed. is now, by the assistance of divine grace, finished, and presented to the reader, who, it is hoped, the Lord working with it, may hereby be somewhat helped in understanding and improving the sacred history of Christ and his apostles, and in making it, as it certainly is, the best exposition of our creed, in which these inspired writers are summed up, as is intimated by that evangelist who calls his gospel *A Declaration of those things which are most surely believed among us,* Lu 1:1. And, as there is no part of scripture in the belief of which it concerns more to be established, so there is none with which the generality of Christians are more conversant, or which they speak of more frequently. It is therefore our duty, by constant pains in meditation and prayer, to come to an intimate acquaintance with the true intent and meaning of these narratives, what our concern is in them, and what we are to build upon them and draw from them; that we may not rest in such a knowledge of them as that which we had when in our childhood we were taught to read English out of the translation and Greek out of the originals of these books. We ought to know them as the physician does his dispensatory, the lawyer his books of reports, and the sailor his chart and compass; that is, to know how to make use of them in that to which we apply ourselves as our business in this world, which is to serve God here and enjoy him hereafter, and both in Christ the Mediator.
 
