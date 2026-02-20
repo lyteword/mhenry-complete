@@ -1,8 +1,11 @@
 ---
+title: "Acts 12 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "12"
+description: "In this chapter we have the story, I. Of the martyrdom of James the apostle, and the imprisonment of Peter by Herod Agrippa, who now reigned as king in Judea, Ac 12:1-4. II. The mi..."
 weight: 12
 ---
 
-# Chapter 12
+# Acts 12 
 
 In this chapter we have the story, I. Of the martyrdom of James the apostle, and the imprisonment of Peter by Herod Agrippa, who now reigned as king in Judea, Ac 12:1-4. II. The miraculous deliverance of Peter out of prison by the ministry of an angel, in answer to the prayers of the church for him, Ac 12:6-19. III. The cutting off of Herod in the height of his pride by the stroke of an angel, the minister of God's justice (Ac 12:20-23); and this was done while Barnabas and Saul were at Jerusalem, upon the errand that the church of Antioch sent them on, to carry their charity; and therefore in the close we have an account of their return to Antioch, Ac 12:24,25.
 

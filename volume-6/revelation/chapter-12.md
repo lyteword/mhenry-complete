@@ -1,8 +1,11 @@
 ---
+title: "Revelation 12 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "12"
+description: "It is generally agreed by the most learned expositors that the narrative we have in this and the two following chapters, from the sounding of the seventh trumpet to the opening of ..."
 weight: 12
 ---
 
-# Chapter 12
+# Revelation 12 
 
 It is generally agreed by the most learned expositors that the narrative we have in this and the two following chapters, from the sounding of the seventh trumpet to the opening of the vials, is not a prediction of things to come, but rather a recapitulation and representation of things past, which, as God would have the apostle to foresee while future, he would have him to review now that they were past, that he might have a more perfect idea of them in his mind, and might observe the agreement between the prophecy and that Providence that is always fulfilling the scriptures. In this chapter we have an account of the contest between the church and antichrist, the seed of the woman and the seed of the serpent. I. As it was begun in heaven, Re 12:1-11. II. As it was carried on in the wilderness, Re 12:12-17, etc.
 

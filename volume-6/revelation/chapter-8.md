@@ -1,8 +1,11 @@
 ---
+title: "Revelation 8 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "8"
+description: "We have already seen what occurred upon opening six of the seals; we now come to the opening of the seventh, which introduced the sounding of the seven trumpets; and a direful scen..."
 weight: 8
 ---
 
-# Chapter 8
+# Revelation 8 
 
 We have already seen what occurred upon opening six of the seals; we now come to the opening of the seventh, which introduced the sounding of the seven trumpets; and a direful scene now opens. Most expositors agree that the seven seals represent the interval between the apostle's time and the reign of Constantine, but that the seven trumpets are designed to represent the rise of antichrist, some time after the empire became Christian. In this chapter we have, I. The preface, or prelude, to the sounding of the trumpets, Re 8:1-6. II. The sounding of four of the trumpets, Re 8:7-13, etc.).
 

@@ -1,8 +1,11 @@
 ---
+title: "Romans 8 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "8"
+description: "The apostle, having fully explained the doctrine of justification, and pressed the necessity of sanctification, in this chapter applies himself to the consolation of the Lord\'s peo..."
 weight: 8
 ---
 
-# Chapter 8
+# Romans 8 
 
 The apostle, having fully explained the doctrine of justification, and pressed the necessity of sanctification, in this chapter applies himself to the consolation of the Lord's people. Ministers are helpers of the joy of the saints. "Comfort ye, comfort ye my people," so runs our commission, Isa 40:1. It is the will of God that his people should be a comforted people. And we have here such a draught of the gospel charter, such a display of the unspeakable privileges of true believers, as may furnish us with abundant matter for joy and peace in believing, that by all these immutable things, in which it is impossible for God to lie, we might have strong consolation. Many of the people of God have, accordingly, found this chapter a well-spring of comfort to their souls, living and dying, and have sucked and been satisfied from these breasts of consolation, and with joy drawn water out of these wells of salvation. There are three things in this chapter: I. The particular instances of Christians' privileges, Ro 8:1-28. II. The ground thereof laid in predestination, Ro 8:29,30. III. The apostle's triumph herein, in the name of all the saints, Ro 8:31-39.
 

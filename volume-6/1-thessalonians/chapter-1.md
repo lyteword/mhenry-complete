@@ -1,8 +1,11 @@
 ---
+title: "1 Thessalonians 1 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "1"
+description: "After the introduction (1Th 1:1) the apostle begins with a thanksgiving to God for the saving benefits bestowed on them, 1Th 1:2-5. And then mentions the sure evidences of the good..."
 weight: 1
 ---
 
-# Chapter 1
+# 1 Thessalonians 1 
 
 After the introduction (1Th 1:1) the apostle begins with a thanksgiving to God for the saving benefits bestowed on them, 1Th 1:2-5. And then mentions the sure evidences of the good success of the gospel among them, which was notorious and famous in several other places, 1Th 1:6-10.
 

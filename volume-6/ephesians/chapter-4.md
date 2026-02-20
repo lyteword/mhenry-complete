@@ -1,8 +1,11 @@
 ---
+title: "Ephesians 4 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "4"
+description: "We have gone through the former part of this epistle, which consists of several important doctrinal truths, contained in the three preceding chapters. We enter now on the latter pa..."
 weight: 4
 ---
 
-# Chapter 4
+# Ephesians 4 
 
 We have gone through the former part of this epistle, which consists of several important doctrinal truths, contained in the three preceding chapters. We enter now on the latter part of it, in which we have the most weighty and serious exhortations that can be given. We may observe that in this, as in most others of Paul's epistles, the former part is doctrinal, and fitted to inform the minds of men in the great truths and doctrines of the gospel, the latter is practical, and designed for the direction of their lives and manners, all Christians being bound to endeavour after soundness in the faith, and regularity in life and practice. In what has gone before we have heard of Christian privileges, which are the matter of our comfort. In what follows we shall hear of Christian duties, and what the Lord our God requires of us in consideration of such privileges vouchsafed to us. The best way to understand the mysteries and partake of the privileges of which we have read before is conscientiously to practise the duties prescribed to us in what follows: as, on the other hand, a serious consideration and belief of the doctrines that have been taught us in the foregoing chapters will be a good foundation on which to build the practice of the duties prescribed in those which are yet before us. Christian faith and Christian practice mutually befriend each other. In this chapter we have divers exhortations to important duties. I. One that is more general, Eph 4:1. II. An exhortation to mutual love, unity, and concord, with the proper means and motives to promote them, Eph 4:2-16. III. An exhortation to Christian purity and holiness of life; and that both more general (Eph 4:17-24) and in several particular instances, Eph 4:25-32.
 

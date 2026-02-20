@@ -1,8 +1,11 @@
 ---
+title: "Revelation 7 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "7"
+description: "The things contained in this chapter came in after the opening of the six seals, which foretold great calamities in the world; and before the sound of the seven trumpets, which gav..."
 weight: 7
 ---
 
-# Chapter 7
+# Revelation 7 
 
 The things contained in this chapter came in after the opening of the six seals, which foretold great calamities in the world; and before the sound of the seven trumpets, which gave notice of great corruptions arising in the church: between these comes in this comfortable chapter, which secures the graces and comforts of the people of God in times of common calamity. We have, I. An account of the restraint laid upon the winds, Re 7:1-3. II. The sealing of the servants of God, Re 7:4-8. III. The songs of angels and saints on this occasion, Re 7:9-12. IV. A description of the honour and happiness of those who had faithfully served Christ, and suffered for him, Re 7:13-17, etc.
 

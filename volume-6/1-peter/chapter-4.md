@@ -1,8 +1,11 @@
 ---
+title: "1 Peter 4 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "4"
+description: "The work of a Christian is twofold—doing the will of God and suffering his pleasure. This chapter directs us in both. The duties we are here exhorted to employ ourselves in are the..."
 weight: 4
 ---
 
-# Chapter 4
+# 1 Peter 4 
 
 The work of a Christian is twofold—doing the will of God and suffering his pleasure. This chapter directs us in both. The duties we are here exhorted to employ ourselves in are the mortification of sin, living to God, sobriety, prayer, charity, hospitality, and the best improvement of our talents, which the apostle presses upon Christians from the consideration of the time they have lost in their sins, and the approaching end of all things, 1Pe 4:1-11. The directions for sufferings are that we should not be surprised at them, but rejoice in them, only take care not to suffer as evil-doers. He intimates that their trials were near at hand, that their souls were in danger as well as their bodies, and that the best way to preserve their souls is to commit them to God in well-doing.
 

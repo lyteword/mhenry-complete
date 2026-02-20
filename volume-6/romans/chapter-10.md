@@ -1,8 +1,11 @@
 ---
+title: "Romans 10 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "10"
+description: "The dissolving of the peculiar church-state of the Jews, and the rejection of that polity by the repealing of their ceremonial law, the vacating of all the institutions of it, the ..."
 weight: 10
 ---
 
-# Chapter 10
+# Romans 10 
 
 The dissolving of the peculiar church-state of the Jews, and the rejection of that polity by the repealing of their ceremonial law, the vacating of all the institutions of it, the abolishing of their priesthood, the burning of their temple, and the taking away of their place and nation, and in their room the substituting and erecting of a catholic church-state among the Gentile nations, though to us, now that these things have long since been done and completed, they may seem no great matter, yet to those who lived when they were doing, who knew how high the Jews had stood in God's favour, and how deplorable the condition of the Gentile world had been for many ages, it appeared very great and marvellous, and a mystery hard to be understood. The apostle, in this chapter, as in the foregoing and that which follows, is explaining and proving it; but with several very useful digressions, which a little interrupt the thread of his discourse. To two great truths I would reduce this chapter:—I. That there is a great difference between the righteousness of the law, which the unbelieving Jews were wedded to, and the righteousness of faith offered in the gospel, Ro 10:1-11. II. That there is no difference between Jews and Gentiles; but, in point of justification and acceptance with God, the gospel sets them both upon the same level, Ro 12-21.
 

@@ -1,8 +1,11 @@
 ---
+title: "Acts 2 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "2"
+description: "Between the promise of the Messiah (even the latest of those promises) and his coming many ages intervened; but between the promise of the Spirit and his coming there were but a fe..."
 weight: 2
 ---
 
-# Chapter 2
+# Acts 2 
 
 Between the promise of the Messiah (even the latest of those promises) and his coming many ages intervened; but between the promise of the Spirit and his coming there were but a few days; and during those days the apostles, though they had received orders to preach the gospel to every creature, and to begin at Jerusalem, yet lay perfectly wind-bound, incognito—concealed, and not offering to preach. But in this chapter the north wind and the south wind awake, and then they awake, and we have them in the pulpit presently. Here is, I. The descent of the Spirit upon the apostles, and those that were with them, on the day of pentecost, Ac 2:1-4. II. The various speculations which this occasioned among the people that were now met in Jerusalem from all parts, Ac 2:5-13. III. The sermon which Peter preached to them hereupon, wherein he shows that this pouring out of the Spirit was the accomplishment of an Old-Testament promise (Ac 2:14-21), that it was a confirmation of Christ's being the Messiah, which was already proved by his resurrection (Ac 2:22-32), and that is was a fruit and evidence of his ascension into heaven, Ac 2:33-36. IV. The good effect of this sermon in the conversion of many to the faith of Christ, and their addition to the church, Ac 2:37-41. V. The eminent piety and charity of those primitive Christians, and the manifest tokens of God's presence with them, and power in them, Ac 2:42-47.
 

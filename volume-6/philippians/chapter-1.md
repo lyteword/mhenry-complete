@@ -1,8 +1,11 @@
 ---
+title: "Philippians 1 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "1"
+description: "He begins with the inscription and benediction, Php 1:1,2. He gives thanks for the saints at Philippi, Php 1:3-6. He speaks of his great affection and concern for their spiritual w..."
 weight: 1
 ---
 
-# Chapter 1
+# Philippians 1 
 
 He begins with the inscription and benediction, Php 1:1,2. He gives thanks for the saints at Philippi, Php 1:3-6. He speaks of his great affection and concern for their spiritual welfare (Php 1:7,8), his prayers for them (Php 1:9-11), his care to prevent their offence at his sufferings (Php 1:12-20), his readiness to glorify Christ by life or death (Php 1:21-26), and then concludes with a double exhortation to strictness and constancy, Php 1:27-30.
 

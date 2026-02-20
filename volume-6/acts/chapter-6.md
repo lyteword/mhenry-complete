@@ -1,8 +1,11 @@
 ---
+title: "Acts 6 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "6"
+description: "In this chapter we have, I. The discontent that was among the disciples about the distribution of the public charity, Ac 6:1. II. The election and ordination of seven men, who shou..."
 weight: 6
 ---
 
-# Chapter 6
+# Acts 6 
 
 In this chapter we have, I. The discontent that was among the disciples about the distribution of the public charity, Ac 6:1. II. The election and ordination of seven men, who should take care of that matter, and ease the apostles of the burden, Ac 6:2-6. III. The increase of the church, by the addition of many to it, Ac 6:7. IV. A particular account of Stephen, one of the seven. 1. His great activity for Christ, Ac 6:8. 2. The opposition he met with from the enemies of Christianity, and his disputes with them, Ac 6:9,10. 3. The convening of him before the great sanhedrim, and the crimes laid to his charge, Ac 6:11-14. 4. God's owning him upon his trial, Ac 6:15.
 

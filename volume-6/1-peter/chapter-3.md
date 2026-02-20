@@ -1,8 +1,11 @@
 ---
+title: "1 Peter 3 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "3"
+description: "Wherein the apostle describes the duties of husbands and wives one to another, beginning with the duty of the wife, 1Pe 3:1-7. He exhorts Christians to unity, love, compassion, pea..."
 weight: 3
 ---
 
-# Chapter 3
+# 1 Peter 3 
 
 Wherein the apostle describes the duties of husbands and wives one to another, beginning with the duty of the wife, 1Pe 3:1-7. He exhorts Christians to unity, love, compassion, peace, and patience under sufferings; to oppose the slanders of their enemies, not by returning evil for evil, or railing for railing, but by blessing; by a ready account of their faith and hope, and by keeping a good conscience, 1Pe 3:8-17. To encourage them to this, he proposes the example of Christ, who suffered, the just for the unjust, but yet punished the old world for their disobedience, and saved the few who were faithful in the days of Noah, 1Pe 3:18-22.
 

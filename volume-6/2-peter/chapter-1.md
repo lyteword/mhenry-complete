@@ -1,8 +1,11 @@
 ---
+title: "2 Peter 1 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "1"
+description: "In this chapter we have, I. An introduction, or preface, making way for, and leading to, what is principally designed by the apostle, 2Pe 1:1-4. II. An exhortation to advance and i..."
 weight: 1
 ---
 
-# Chapter 1
+# 2 Peter 1 
 
 In this chapter we have, I. An introduction, or preface, making way for, and leading to, what is principally designed by the apostle, 2Pe 1:1-4. II. An exhortation to advance and improve in all Christian graces, 2Pe 1:5-7. III. To enforce this exhortation, and engage them seriously and heartily to comply with it, he adds, 1. A representation of the very great advantage which will thereby accrue to them, 2Pe 1:8-11. 2. A promise of the best assistance the apostle was able to give to facilitate and forward this good work, 2Pe 1:12-15. 3. A declaration of the certain truth and divine origin of the gospel of Christ, in the grace whereof they were exhorted to increase and persevere.
 

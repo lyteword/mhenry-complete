@@ -1,8 +1,11 @@
 ---
+title: "James 1 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "1"
+description: "After the inscription and salutation (Jam 1:1) Christians are taught how to conduct themselves when under the cross. Several graces and duties are recommended; and those who endure..."
 weight: 1
 ---
 
-# Chapter 1
+# James 1 
 
 After the inscription and salutation (Jam 1:1) Christians are taught how to conduct themselves when under the cross. Several graces and duties are recommended; and those who endure their trials and afflictions as the apostle here directs are pronounced blessed and are assured of a glorious reward, Jam 1:2-12. But those sins which bring sufferings, or the weakness and faults men are chargeable with under them, are by no means to be imputed to God, who cannot be the author of sin, but is the author of all good, Jam 1:13-18. All passion, and rash anger, and vile affections, ought to be suppressed. The word of God should be made our chief study: and what we hear and know of it we must take care to practise, otherwise our religion will prove but a vain thing. To this is added an account wherein pure religion consists, Jam 1:19-27.
 

@@ -1,8 +1,11 @@
 ---
+title: "1 Peter 1 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "1"
+description: "The apostle describes the persons to whom he writes, and salutes them (1Pe 1:1,2), blesses God for their regeneration to a lively hope of eternal salvation (1Pe 1:3-5), in the hope..."
 weight: 1
 ---
 
-# Chapter 1
+# 1 Peter 1 
 
 The apostle describes the persons to whom he writes, and salutes them (1Pe 1:1,2), blesses God for their regeneration to a lively hope of eternal salvation (1Pe 1:3-5), in the hope of this salvation he shows they had great cause of rejoicing, though for a little while they were in heaviness and affliction, for the trial of their faith, which would produce joy unspeakable and full of glory, 1Pe 1:6-9. This is that salvation which the ancient prophets foretold and the angels desire to look into, 1Pe 1:10-12. He exhorts them to sobriety and holiness, which he presses from the consideration of the blood of Jesus, the invaluable price of man's redemption (1Pe 1:13-21), and to brotherly love, from the consideration of their regeneration, and the excellency of their spiritual state, 1Pe 1:22-25.
 

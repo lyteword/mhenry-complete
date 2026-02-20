@@ -1,8 +1,11 @@
 ---
+title: "Acts 8 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "8"
+description: "In this chapter we have an account of the persecutions of the Christians, and the propagating of Christianity thereby. It was strange, but very true, that the disciples of Christ t..."
 weight: 8
 ---
 
-# Chapter 8
+# Acts 8 
 
 In this chapter we have an account of the persecutions of the Christians, and the propagating of Christianity thereby. It was strange, but very true, that the disciples of Christ the more they were afflicted the more they multiplied. I. Here is the church suffering; upon the occasion of putting Stephen to death a very sharp storm arose, which forced many from Jerusalem, Ac 8:1-3. II. Here is the church spreading by the ministry of Philip and others that were dispersed upon that occasion. We have here, 1. The gospel brought to Samaria, preached there (Ac 8:4,5), embraced there (Ac 8:6-8), even by Simon Magus (Ac 8:9-13); the gift of the Holy Ghost conferred upon some of the believing Samaritans by the imposition of the hands of Peter and John (Ac 8:14-17); and the severe rebuke given by Peter to Simon Magus for offering money for a power to bestow that gift, Ac 8:18-25. 2. The gospel sent to Ethiopia, by the eunuch, a person of quality of that country. He is returning home in his chariot from Jerusalem, Ac 8:26-28. Philip is sent to him, and in his chariot preaches Christ to him (Ac 8:29-35), baptizes him upon his profession of the Christian faith (Ac 8:36-38), and the leaves him, Ac 8:39,40. Thus in different ways and methods the gospel was dispersed among the nations, and, one way or other, "Have they not all heard?"
 

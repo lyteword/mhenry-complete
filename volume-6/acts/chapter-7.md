@@ -1,8 +1,11 @@
 ---
+title: "Acts 7 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "7"
+description: "When our Lord Jesus called his apostles out to be employed in services and sufferings for him, he told them that yet the last should be first, and the first last, which was remarka..."
 weight: 7
 ---
 
-# Chapter 7
+# Acts 7 
 
 When our Lord Jesus called his apostles out to be employed in services and sufferings for him, he told them that yet the last should be first, and the first last, which was remarkably fulfilled in St. Stephen and St. Paul, who were both of them late converts, in comparison of the apostles, and yet got the start of them both in services and sufferings; for God, in conferring honours and favours, often crosses hands. In this chapter we have the martyrdom of Stephen, the first martyr of the Christian church, who led the van in the noble army. And therefore his sufferings and death are more largely related than those of any other, for direction and encouragement to all those who are called out to resist unto blood, as he did. Here is, I. His defence of himself before the council, in answer to the matters and things he stood charged with, the scope of which is to show that it was no blasphemy against God, nor any injury at all to the glory of his name, to say that the temple should be destroyed and the customs of the ceremonial law changed. And, 1. He shows this by going over the history of the Old Testament, and observing that God never intended to confine his favours to that place, or that ceremonial law; and that they had no reason to expect he should, for the people of the Jews had always been a provoking people, and had forfeited the privileges of their peculiarity: nay, that that holy place and that law were but figures of good things to come, and it was no disparagement at all to them to say that they must give place to better things, Ac 7:1-50. And then, 2. He applies this to those that prosecuted him, and sat in judgment upon him, sharply reproving them for their wickedness, by which they had brought upon themselves the ruin of their place and nation, and then could not bear to hear of it, Ac 7:51-53. II. The putting of him to death by stoning him, and his patient, cheerful, pious submission to it, Ac 7:54-60.
 

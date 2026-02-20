@@ -1,8 +1,11 @@
 ---
+title: "Revelation 20 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "20"
+description: "This chapter is thought by some to be the darkest part of all this prophecy: it is very probable that the things contained in it are not yet accomplished; and therefore it is the w..."
 weight: 20
 ---
 
-# Chapter 20
+# Revelation 20 
 
 This chapter is thought by some to be the darkest part of all this prophecy: it is very probable that the things contained in it are not yet accomplished; and therefore it is the wiser way to content ourselves with general observations, rather than to be positive and particular in our explications of it. Here we have an account, I. Of the binding of Satan for a thousand years, Re 20:1-3. II. The reign of the saints with Christ for the same time, Re 20:4-6. III. Of the loosing of Satan, and the conflict of the church with Gog and Magog, Re 20:7-10. IV. Of the day of judgment, Re 20:11-15, etc.
 

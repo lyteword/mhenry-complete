@@ -1,8 +1,11 @@
 ---
+title: "2 Peter 2 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "2"
+description: "The apostle, having in the foregoing chapter exhorted them to proceed and advance in the Christian race, now comes to remove, as much as in him lay, what he could not but apprehend..."
 weight: 2
 ---
 
-# Chapter 2
+# 2 Peter 2 
 
 The apostle, having in the foregoing chapter exhorted them to proceed and advance in the Christian race, now comes to remove, as much as in him lay, what he could not but apprehend would hinder their complying with his exhortation. He therefore gives them fair warning of false teachers, by whom they might be in danger of being seduced. To prevent this, I. He describes these seducers as impious in themselves, and very pernicious to others, 2Pe 2:1-3. II. He assures them of the punishment that shall be inflicted on them, 2Pe 2:3-6. III. He tells us how contrary the method is which God takes with those who fear him, 2Pe 2:7-9. IV. He fills up the rest of the chapter with a further description of those seducers of whom he would have them beware.
 

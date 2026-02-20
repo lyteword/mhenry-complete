@@ -1,8 +1,11 @@
 ---
+title: "Acts 27 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "27"
+description: "This whole chapter is taken up with an account of Paul\'s voyage towards Rome, when he was sent thither a prisoner by Festus the governor, upon his appeal to Cæsar. I. The beginning..."
 weight: 27
 ---
 
-# Chapter 27
+# Acts 27 
 
 This whole chapter is taken up with an account of Paul's voyage towards Rome, when he was sent thither a prisoner by Festus the governor, upon his appeal to Cæsar. I. The beginning of the voyage was well enough, it was calm and prosperous, Ac 27:1-8. II. Paul gave them notice of a storm coming, but could not prevail with them to lie by, Ac 27:9-11. III. As they pursued their voyage, they met with a great deal of tempestuous weather, which reduced them to such extremity that they counted upon nothing but being cast away, Ac 27:12-20. IV. Paul assured them that though they would not be advised by him to prevent their coming into this danger, yet, by the good providence of God, they should be brought safely through it, and none of them should be lost, Ac 27:21-26. V. At length they were at midnight thrown upon an island, which proved to be Malta, and then they were in the utmost danger imaginable, but were assisted by Paul's counsel to keep the mariners in the ship, and encouraged by his comforts to eat their meat, and have a good heart on it, Ac 27:27-36. VI. Their narrow escape with their lives, when they came to shore, when the ship was wrecked, but all the persons wonderfully preserved, Ac 27:37-44.
 

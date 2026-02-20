@@ -1,8 +1,11 @@
 ---
+title: "Acts 11 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "11"
+description: "In this chapter we have, I. Peter\'s necessary vindication of what he did in receiving Cornelius and his friends into the church, from the censure he lay under for it among the bret..."
 weight: 11
 ---
 
-# Chapter 11
+# Acts 11 
 
 In this chapter we have, I. Peter's necessary vindication of what he did in receiving Cornelius and his friends into the church, from the censure he lay under for it among the brethren, and their acquiescence in it, Ac 11:1-18. II. The good success of the gospel at Antioch, and the parts adjacent, Ac 11:19-21. III. The carrying on of the good work that was begun at Antioch, by the ministry of Barnabas first, and afterwards of Paul in conjunction with him, and the lasting name of Christian first given to the disciples there, Ac 11:22-26. IV. A prediction of an approaching famine, and the contribution that was made among the Gentile converts for the relief of the poor saints in Judea, upon that occasion, Ac 11:27-30.
 

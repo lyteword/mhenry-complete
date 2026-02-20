@@ -1,8 +1,11 @@
 ---
+title: "1 Timothy 4 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "4"
+description: "Paul here foretels, I. A dreadful apostasy, 1Ti 4:1-3. II. He treats of Christian liberty, 1Ti 4:4,5. III. He gives Timothy divers directions with respect to himself, his doctrine,..."
 weight: 4
 ---
 
-# Chapter 4
+# 1 Timothy 4 
 
 Paul here foretels, I. A dreadful apostasy, 1Ti 4:1-3. II. He treats of Christian liberty, 1Ti 4:4,5. III. He gives Timothy divers directions with respect to himself, his doctrine, and the people under his care, 1Ti 4:6-16.
 

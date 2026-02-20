@@ -1,8 +1,11 @@
 ---
+title: "Hebrews 10 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "10"
+description: "The apostle knew very well that the Hebrews, to whom he wrote, were strangely fond of the Levitical dispensation, and therefore he fills his mouth with arguments to wean them from ..."
 weight: 10
 ---
 
-# Chapter 10
+# Hebrews 10 
 
 The apostle knew very well that the Hebrews, to whom he wrote, were strangely fond of the Levitical dispensation, and therefore he fills his mouth with arguments to wean them from it; and in order thereto proceeds in this chapter, I. To lay low the whole of that priesthood and sacrifice, Heb 10:1-6. II. He raises and exalts the priesthood of Christ very high, that he might effectually recommend him and his gospel to them, Heb 10:7-18. III. He shows to believers the honours and dignities of their state, and calls them to suitable duties, Heb 10:19-39.
 

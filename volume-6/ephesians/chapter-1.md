@@ -1,8 +1,11 @@
 ---
+title: "Ephesians 1 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "1"
+description: "In this chapter we have, I. The introduction to the whole epistle, which is much the same as in others, Eph 1:1,2. II. The apostle\'s thanksgivings and praises to God for his inesti..."
 weight: 1
 ---
 
-# Chapter 1
+# Ephesians 1 
 
 In this chapter we have, I. The introduction to the whole epistle, which is much the same as in others, Eph 1:1,2. II. The apostle's thanksgivings and praises to God for his inestimable blessings bestowed on the believing Ephesians, Eph 1:3-14. III. His earnest prayers to God in their behalf, Eph 1:15-23. This great apostle was wont to abound in prayers and in thanksgivings to almighty God, which he generally so disposes and orders that at the same time they carry with them and convey the great and important doctrines of the Christian religion, and the most weighty instructions to all those who seriously peruse them.
 

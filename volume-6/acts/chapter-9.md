@@ -1,8 +1,11 @@
 ---
+title: "Acts 9 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "9"
+description: "In this chapter we have, I. The famous story of St. Paul\'s conversion from being an outrageous persecutor of the gospel of Christ to be an illustrious professor and preacher of it...."
 weight: 9
 ---
 
-# Chapter 9
+# Acts 9 
 
 In this chapter we have, I. The famous story of St. Paul's conversion from being an outrageous persecutor of the gospel of Christ to be an illustrious professor and preacher of it. 1. How he was first awakened and wrought upon by an appearance of Christ himself to him as he was going upon an errand of persecution to Damascus: and what a condition he was in while he lay under the power of those convictions and terrors, Ac 9:1-9. 2. How he was baptized by Ananias, by immediate directions from heaven, Ac 9:10-19. 3. How he immediately commenced doctor, and preached the faith of Christ, and proved what he preached, Ac 9:20-22. 4. How he was persecuted, and narrowly escaped with his life, Ac 9:23-25. 5. How he was admitted among the brethren at Jerusalem: how he preached, and was persecuted there, Ac 9:26-30. 6. The rest and quietness which the churches enjoyed for some time after this, Ac 9:31. II. The cure wrought by Peter on Eneas, who had long been laid up with a palsy, Ac 9:32-35. III. The raising of Tabitha from death to life, at the prayer of Peter, Ac 9:36-43.
 

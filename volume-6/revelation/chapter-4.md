@@ -1,8 +1,11 @@
 ---
+title: "Revelation 4 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "4"
+description: "In this chapter the prophetical scene opens; and, as the epistolary part opened with a vision of Christ (Re 1:1-20), so this part is introduced with a glorious appearance of the gr..."
 weight: 4
 ---
 
-# Chapter 4
+# Revelation 4 
 
 In this chapter the prophetical scene opens; and, as the epistolary part opened with a vision of Christ (Re 1:1-20), so this part is introduced with a glorious appearance of the great God, whose throne is in heaven, compassed about with the heavenly host. This discovery was made to John, and in this chapter he, I. Records the heavenly sight he saw, Re 4:1-7. And then, II. The heavenly songs he heard, Re 4:8-11.
 

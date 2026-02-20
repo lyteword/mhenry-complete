@@ -1,8 +1,11 @@
 ---
+title: "Philippians 2 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "2"
+description: "The apostle proceeds to further exhortations to several duties, to be like-minded, and lowly-minded, which he presses from the example of Christ (Php 2:1-11), to be diligent and se..."
 weight: 2
 ---
 
-# Chapter 2
+# Philippians 2 
 
 The apostle proceeds to further exhortations to several duties, to be like-minded, and lowly-minded, which he presses from the example of Christ (Php 2:1-11), to be diligent and serious in the Christian course (Php 2:12,13), and to adorn their Christian profession by several suitable graces, Php 2:14-18. He then concludes with particular notice and commendation of two good ministers, Timothy and Epaphroditus, whom he designed to send to them, Php 2:19-30.
 

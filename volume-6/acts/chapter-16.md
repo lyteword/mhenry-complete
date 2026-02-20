@@ -1,8 +1,11 @@
 ---
+title: "Acts 16 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "16"
+description: "It is some rebuke to Barnabas that after he left Paul we hear no more of him, of what he did or suffered for Christ. But Paul, as he was recommended by the brethren to the grace of..."
 weight: 16
 ---
 
-# Chapter 16
+# Acts 16 
 
 It is some rebuke to Barnabas that after he left Paul we hear no more of him, of what he did or suffered for Christ. But Paul, as he was recommended by the brethren to the grace of God, so his services for Christ after this are largely recorded; we are to attend him in this chapter from place to place, wherever he came doing good, either watering or planting, beginning new work or improving what was done. Here is, I. The beginning of his acquaintance with Timothy, and taking him to be his assistant, Ac 16:1-3. II. The visit he made to the churches for their establishment, Ac 16:4,5. III. His call to Macedonia (after a restraint he had been under from going to some other places), and his coming to Philippi, the chief city of Macedonia, with his entertainment there, Ac 16:6-13. IV. The conversion of Lydia there, Ac 16:14,15. V. The casing of an evil spirit out of a damsel, Ac 16:16-18. VI. The accusing and abusing of Paul and Silas for it, their imprisonment, and the indignities done them, Ac 16:19-24. VII. The miraculous conversion of the jailer to the faith of Christ, Ac 16:25-34. VIII. The honourable discharge of Paul and Silas by the magistrates, Ac 16:35-40.
 

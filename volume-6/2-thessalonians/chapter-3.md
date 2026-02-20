@@ -1,8 +1,11 @@
 ---
+title: "2 Thessalonians 3 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "3"
+description: "In the close of the foregoing chapter, the apostle had prayed earnestly for the Thessalonians, and now he desires their prayers, encouraging them to trust in God, to which he subjo..."
 weight: 3
 ---
 
-# Chapter 3
+# 2 Thessalonians 3 
 
 In the close of the foregoing chapter, the apostle had prayed earnestly for the Thessalonians, and now he desires their prayers, encouraging them to trust in God, to which he subjoins another petition for them, 2Th 3:1-5. He then proceeds to give them commands and directions for correcting some things he was informed were amiss among them (2Th 3:6-15) and concludes with benedictions and prayers, 2Th 3:16-18.
 

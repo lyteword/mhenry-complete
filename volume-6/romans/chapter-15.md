@@ -1,8 +1,11 @@
 ---
+title: "Romans 15 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "15"
+description: "The apostle, in this chapter, continues the discourse of the former, concerning mutual forbearance in indifferent things; and so draws towards a conclusion of the epistle. Where su..."
 weight: 15
 ---
 
-# Chapter 15
+# Romans 15 
 
 The apostle, in this chapter, continues the discourse of the former, concerning mutual forbearance in indifferent things; and so draws towards a conclusion of the epistle. Where such differences of apprehension, and consequently distances of affection, are among Christians, there is need of precept upon precept, line upon line, to allay the heat, and to beget a better temper. The apostle, being desirous to drive the nail home, as a nail in a sure place, follows his blow, unwilling to leave the subject till he has some hopes of prevailing, to which end he orders the cause before them and fills his mouth with the most pressing arguments. We may observe, in this chapter, I. His precepts to them. II. His prayers for them. III. His apology for writing to them. IV. His account of himself and his own affairs. V. His declaration of his purpose to come and see them. VI. His desire of a share in their prayers.
 

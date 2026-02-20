@@ -1,8 +1,11 @@
 ---
+title: "Acts 3 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "3"
+description: "In this chapter we have a miracle and a sermon: the miracle wrought to make way for the sermon, to confirm the doctrine that was to be preached, and to make way for it into the min..."
 weight: 3
 ---
 
-# Chapter 3
+# Acts 3 
 
 In this chapter we have a miracle and a sermon: the miracle wrought to make way for the sermon, to confirm the doctrine that was to be preached, and to make way for it into the minds of the people; and then the sermon to explain the miracle, and to sow the ground which by it was broken up. I. The miracle was the healing of a man that was lame from his birth, with a word speaking (Ac 3:1-8), and the impression which this made upon the people, Ac 3:9-11. II. The scope of the sermon which was preached here upon was to bring people to Christ, to repent of their sin in crucifying him (Ac 3:12-19), to believe in him now that he was glorified, and to comply with the Father's design in glorifying him, Ac 3:20-26. The former part of the discourse opens the wound, the latter applies the remedy.
 

@@ -1,8 +1,11 @@
 ---
+title: "Romans 11 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "11"
+description: "The apostle, having reconciled that great truth of the rejection of the Jews with the promise made unto the fathers, is, in this chapter, further labouring to mollify the harshness..."
 weight: 11
 ---
 
-# Chapter 11
+# Romans 11 
 
 The apostle, having reconciled that great truth of the rejection of the Jews with the promise made unto the fathers, is, in this chapter, further labouring to mollify the harshness of it, and to reconcile it to the divine goodness in general. It might be said, "Hath God then cast away his people?" The apostles therefore sets himself, in this chapter, to make a reply to this objection, and that two ways:—I. He shows at large what the mercy is that is mixed with this wrath, Ro 11:1-32. II. He infers thence the infinite wisdom and sovereignty of God, with the adoration of which he concludes this chapter and subject, Ro 11:33-36.
 

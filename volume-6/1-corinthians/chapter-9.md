@@ -1,8 +1,11 @@
 ---
+title: "1 Corinthians 9 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "9"
+description: "In this chapter the apostle seems to answer some cavils against himself. I. He asserts his apostolical mission and authority, and gives in his success among them as a testimony to ..."
 weight: 9
 ---
 
-# Chapter 9
+# 1 Corinthians 9 
 
 In this chapter the apostle seems to answer some cavils against himself. I. He asserts his apostolical mission and authority, and gives in his success among them as a testimony to it, 1Co 9:1,2. II. He claims a right to subsist by his ministry, and defends it by several arguments from natural reason and the Mosaical law, and asserts it also to be a constitution of Christ, 1Co 9:3-14. III. He shows that he had willingly waived this privilege and power for their benefit, 1Co 9:15-18. IV. He specifies several other things, in which he had denied himself for the sake of other men's spiritual interest and salvation, 1Co 9:19-23. And, V. Concludes his argument by showing what animated him to this course, even the prospect of an incorruptible crown, 1Co 9:24-27.
 

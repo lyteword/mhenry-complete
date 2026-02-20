@@ -1,8 +1,11 @@
 ---
+title: "1 Corinthians 10 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "10"
+description: "In this chapter the apostle prosecutes the argument at the close of the last, and, I. Warns the Corinthians against security, by the example of the Jews, who, notwithstanding their..."
 weight: 10
 ---
 
-# Chapter 10
+# 1 Corinthians 10 
 
 In this chapter the apostle prosecutes the argument at the close of the last, and, I. Warns the Corinthians against security, by the example of the Jews, who, notwithstanding their profession and privileges, were terribly punished of God for their many sins, their history being left upon record for the admonition of Christians, 1Co 10:1-14. II. He resumes his former argument (1Co 8:1-13), about eating things offered to idols; and shows that it was utterly inconsistent with true Christianity, that it was downright gross idolatry, to eat them as things offered to idols; it is having fellowship with devils, which cannot consist with having fellowship with God, 1Co 10:15-22. III. He lets them yet know that though they must not eat of things sacrificed to idols as such, and out of any regard to the idol, yet they might buy such flesh in the markets, or eat it at the table of heathen acquaintances, without asking any questions; for that the heathens' abuse of them did not render the creatures of God unfit to be the food of his servants. Yet liberty of this kind must be used with a due regard to weak consciences, and no offence given by it t Jew nor Gentile, nor to the church of God, 1Co 10:23-33.
 

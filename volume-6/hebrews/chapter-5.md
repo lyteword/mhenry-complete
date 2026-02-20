@@ -1,8 +1,11 @@
 ---
+title: "Hebrews 5 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "5"
+description: "In this chapter the apostle continues his discourse upon the priesthood of Christ, a sweet subject, which he would not too soon dismiss. And here, I. He explains the nature of the ..."
 weight: 5
 ---
 
-# Chapter 5
+# Hebrews 5 
 
 In this chapter the apostle continues his discourse upon the priesthood of Christ, a sweet subject, which he would not too soon dismiss. And here, I. He explains the nature of the priestly office in general, Heb 5:1-3. II. The proper and regular call there must be to this office, Heb 5:4-6. III. The requisite qualifications for the work, Heb 5:7-9. IV. The peculiar order of the priesthood of Christ; it was not after the order of Aaron, but of Melchisedec, Heb 5:6,7,10. V. He reproves the Hebrews, that they had not made those improvements in knowledge which might have made them capable of looking into the more abstruse and mysterious parts of scripture, Heb 5:11-14.
 

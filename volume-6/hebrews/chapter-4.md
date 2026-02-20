@@ -1,8 +1,11 @@
 ---
+title: "Hebrews 4 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "4"
+description: "The apostle, having in the foregoing chapter set forth the sin and punishment of the ancient Jews, proceeds in this, I. To declare that our privileges by Christ under the gospel ex..."
 weight: 4
 ---
 
-# Chapter 4
+# Hebrews 4 
 
 The apostle, having in the foregoing chapter set forth the sin and punishment of the ancient Jews, proceeds in this, I. To declare that our privileges by Christ under the gospel exceed the privileges of the Jewish church under Moses, as a reason why we should make a right improvement of them, Heb 4:1-4. II. He assigns the cause why the ancient Hebrews did not profit by their religious privileges, Heb 4:2. Then, III. Confirms the privileges of those who believe, and the misery of those who continue in unbelief, Heb 4:3-10. IV. Concludes with proper and powerful arguments and motives to faith and obedience.
 

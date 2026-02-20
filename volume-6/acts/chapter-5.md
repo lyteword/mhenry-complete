@@ -1,8 +1,11 @@
 ---
+title: "Acts 5 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "5"
+description: "In this chapter we have, I. The sin and punishment of Ananias and Sapphira, who, for lying to the Holy Ghost, were struck dead at the word of Peter, Ac 5:1-11. II. The flourishing ..."
 weight: 5
 ---
 
-# Chapter 5
+# Acts 5 
 
 In this chapter we have, I. The sin and punishment of Ananias and Sapphira, who, for lying to the Holy Ghost, were struck dead at the word of Peter, Ac 5:1-11. II. The flourishing state of the church, in the power that went along with the preaching of the gospel, Ac 5:12-16. III. The imprisonment of the apostles, and their miraculous discharge out of prison, with fresh orders to go on to preach the gospel, which they did, to the great vexation of their persecutors, Ac 5:17-26. IV. Their arraignment before the great sanhedrim, and their justification of themselves in what they did, Ac 5:27-33. V. Gamaliel's counsel concerning them, that they should not persecute them, but let them alone, and see what would come of it, and their concurrence, for the present, with this advice, in the dismission of the apostles with no more than a scourging, Ac 5:34-40. VI. The apostles' cheerful progress in their work notwithstanding the prohibition laid upon them and the indignity done them, Ac 5:41,42.
 

@@ -1,8 +1,11 @@
 ---
+title: "Romans 9 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "9"
+description: "The apostle, having plainly asserted and largely proved that justification and salvation are to had by faith only, and not by the works of the law, by Christ and not by Moses, come..."
 weight: 9
 ---
 
-# Chapter 9
+# Romans 9 
 
 The apostle, having plainly asserted and largely proved that justification and salvation are to had by faith only, and not by the works of the law, by Christ and not by Moses, comes in this and the following chapters to anticipate an objection which might be made against this. If this be so, then what becomes of the Jews, of them all as a complex body, especially those of them that do not embrace Christ, nor believe the gospel? By this rule they must needs come short of happiness; and then what becomes of the promise made to the fathers, which entailed salvation upon the Jews? Is not that promise nullified and made of none effect? Which is not a thing to be imagined concerning any word of God. That doctrine therefore, might they say, is not to be embraced, from which flows such a consequence as this. That the consequence of the rejection of the unbelieving Jews follows from Paul's doctrine he grants, but endeavours to soften and mollify, Ro 9:1-15. But that from this it follows that the word of God takes no effect he denies (Ro 9:6), and proves the denial in the rest of the chapter, which serves likewise to illustrate the great doctrine of predestination, which he had spoken of (Ro 8:28) as the first wheel which in the business of salvation sets all the other wheels a-going.
 

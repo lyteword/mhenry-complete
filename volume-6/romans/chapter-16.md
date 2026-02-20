@@ -1,8 +1,11 @@
 ---
+title: "Romans 16 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "16"
+description: "Paul is now concluding this long and excellent epistle, and he does it with a great deal of affection. As in the main body of the epistle he appears to have been a very knowing man..."
 weight: 16
 ---
 
-# Chapter 16
+# Romans 16 
 
 Paul is now concluding this long and excellent epistle, and he does it with a great deal of affection. As in the main body of the epistle he appears to have been a very knowing man, so in these appurtenances of it he appears to have been a very loving man. So much knowledge and so much love are a very rare, but (where they exist) a very excellent and amiable—composition; for what is heaven but knowledge and love made perfect? It is observable how often Paul speaks as if he were concluding, and yet takes fresh hold again. One would have thought that solemn benediction which closed the foregoing chapter should have ended the epistle; and yet here he begins again, and in this chapter he repeats the blessing (Ro 16:20), "The grace of our Lord Jesus Christ be with you, Amen." And yet he has something more to say; nay, again he repeats the blessing (Ro 16:24), and yet has not done; an expression of his tender love. These repeated benedictions, which stand for valedictions, speak Paul loth to part. Now, in this closing chapter, we may observe, I. His recommendation of one friend to the Roman Christians, and his particular salutation of several among them, Ro 16:1-16. II. A caution to take heed of those who caused divisions, Ro 16:17-20. III. Salutations added from some who were with Paul, Ro 16:21-24. IV. He concludes with a solemn celebration of the glory of God, Ro 16:25-27.
 

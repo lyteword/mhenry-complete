@@ -1,8 +1,11 @@
 ---
+title: "Ephesians 6 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "6"
+description: "In this chapter, I. The apostle proceeds in the exhortation to relative duties which he began in the former, particularly he insists on the duties of children and parents, and of s..."
 weight: 6
 ---
 
-# Chapter 6
+# Ephesians 6 
 
 In this chapter, I. The apostle proceeds in the exhortation to relative duties which he began in the former, particularly he insists on the duties of children and parents, and of servants and masters, Eph 6:1-9. II. He exhorts and directs Christians how to behave themselves in the spiritual warfare with the enemies of their souls; and to the exercise of several Christian graces, which he proposes to them as so many pieces of spiritual armour, to preserve and defend them in the conflict, Eph 6:10-18. III. We have here the conclusion of the epistle, in which he takes his leave of them, recommending himself to the prayers of the believing Ephesians, and praying for them, Eph 6:19-24.
 

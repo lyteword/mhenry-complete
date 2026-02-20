@@ -1,8 +1,11 @@
 ---
+title: "Acts 20 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "20"
+description: "In this chapter we have, I. Paul\'s travels up and down about Macedonia, Greece, and Asia, and his coming at length to Troas, Ac 20:1-6. II. A particular account of his spending one..."
 weight: 20
 ---
 
-# Chapter 20
+# Acts 20 
 
 In this chapter we have, I. Paul's travels up and down about Macedonia, Greece, and Asia, and his coming at length to Troas, Ac 20:1-6. II. A particular account of his spending one Lord's day at Troas, and his raising Eutychus to life there, Ac 20:7-12. III. His progress, or circuit, for the visiting of the churches he had planted, in his way towards Jerusalem, where he designed to be by the next feast of pentecost, Ac 20:13-16. IV. The farewell sermon he preached to the presbyters at Ephesus, now that he was leaving that country, Ac 20:17-35. V. The very sorrowful parting between him and them, Ac 20:36-38. And in all these we find Paul very busy to serve Christ, and to do good to the souls of men, not only in the conversion of heathen, but in the edification of Christians.
 
