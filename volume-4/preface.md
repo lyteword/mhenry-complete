@@ -1,7 +1,11 @@
 ---
-title: Preface - Volume IV
+title: "Preface - Volume 4 | Read the Matthew Henry Concise Bible Commentary Online"
+linkTitle: "Preface"
+description: "Those books of scripture are all prophetical of which here, *in weakness, and in fear, and in much trembling,* we have endeavoured a methodical explication and a practical improvement..."
 weight: 1
 ---
+
+# Preface to Volume IV
 
 Those books of scripture are all prophetical of which here, *in weakness, and in fear, and in much trembling,* we have endeavoured a methodical explication and a practical improvement. I call them *prophetical* because so they are for the main, though we have some histories (here and there brought in for the illustration of the prophecies) and a book of Lamentations. Our Saviour often puts *the Law and the Prophets* for all the Old Testament. The prophets, by waiving the ceremonial precepts, and not insisting on them, but only on the weightier matters of the law, plainly intimated the abolishing of that part of the law of Moses by the gospel; and by their many predictions of Christ, and the kingdom of his grace, they intimated the accomplishing the perfecting of that part of the law of Moses in the gospel. Thus the prophets were the *nexus—the connecting bond* between the law and the gospel, and are therefore fitly placed between them.
 
