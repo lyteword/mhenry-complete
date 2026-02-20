@@ -1,8 +1,11 @@
 ---
+title: "John 5 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "5"
+description: "We have in the gospels a faithful record of all that Jesus began both to do and to teach, Ac 1:1. These two are interwoven, because what he taught explained what he did, and what h..."
 weight: 5
 ---
 
-# Chapter 5
+# John 5 
 
 We have in the gospels a faithful record of all that Jesus began both to do and to teach, Ac 1:1. These two are interwoven, because what he taught explained what he did, and what he did confirmed what he taught. Accordingly, we have in this chapter a miracle and a sermon. I. The miracle was the cure of an impotent man that had been diseased thirty-eight years, with the circumstances of that cure, Joh 5:1-16. II. The sermon was Christ's vindication of himself before the sanhedrim, when he was prosecuted as a criminal for healing the man on the sabbath day, in which, 1. He asserts his authority as Messiah, and Mediator between God and man, Joh 5:17-29. 2. He proves it by the testimony of his Father, of John Baptist, of his miracles, and of the scriptures of the Old Testament, and condemns the Jews for their unbelief, Joh 5:30-47.
 

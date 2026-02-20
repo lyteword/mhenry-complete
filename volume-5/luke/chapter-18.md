@@ -1,8 +1,11 @@
 ---
+title: "Luke 18 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "18"
+description: "In this chapter we have, I. The parable of the importunate widow, designed to teach us fervency in prayer, Lu 18:1-8. II. The parable of the Pharisee and publican, designed to teac..."
 weight: 18
 ---
 
-# Chapter 18
+# Luke 18 
 
 In this chapter we have, I. The parable of the importunate widow, designed to teach us fervency in prayer, Lu 18:1-8. II. The parable of the Pharisee and publican, designed to teach us humility, and humiliation for sin, in prayer, Lu 18:9-14. III. Christ's favour to little children that were brought to him, Lu 18:15-17. IV. The trial of a rich man that had a mind to follow Christ, whether he loved better Christ or his riches; his coming short upon that trial; and Christ's discourse with his disciples upon that occasion, Lu 18:18-30. V. Christ's foretelling his own death and sufferings, Lu 18:31-34. VI. His restoring sight to a blind man, Lu 18:35-43. And these four passages we had before in Matthew and Mark.
 

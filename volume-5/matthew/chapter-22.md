@@ -1,8 +1,11 @@
 ---
+title: "Matthew 22 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "22"
+description: "This chapter is a continuation of Christ\'s discourses in the temple, two or three days before he died. His discourses then are largely recorded, as being of special weight and cons..."
 weight: 22
 ---
 
-# Chapter 22
+# Matthew 22 
 
 This chapter is a continuation of Christ's discourses in the temple, two or three days before he died. His discourses then are largely recorded, as being of special weight and consequence. In this chapter, we have, I. Instruction given, by the parable of the marriage-supper, concerning the rejection of the Jews, and the calling of the Gentiles (Mt 22:1-10), and, by the doom of the guest that had not the wedding-garment, the danger of hypocrisy in the profession of Christianity, Mt 22:11-14. II. Disputes with the Pharisees, Sadducees, and scribes, who opposed Christ, 1. Concerning paying tribute to Cæsar, Mt 22:15-22. 2. Concerning the resurrection of the dead, and the future state, Mt 22:23-33. 3. Concerning the great commandment of the law, Mt 22:34-40. 4. Concerning the relation of the Messiah to David, Mt 22:41-46.
 

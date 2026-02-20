@@ -1,8 +1,11 @@
 ---
+title: "Mark 16 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "16"
+description: "In this chapter, we have a short account of the resurrection and ascension of the Lord Jesus: and the joys and triumphs which it furnished all believers with, will be very acceptab..."
 weight: 16
 ---
 
-# Chapter 16
+# Mark 16 
 
 In this chapter, we have a short account of the resurrection and ascension of the Lord Jesus: and the joys and triumphs which it furnished all believers with, will be very acceptable to those who sympathised and suffered with Christ in the foregoing chapters. Here is, I. Christ's resurrection notified by an angel to the women that came to the sepulchre to anoint him, Mk 16:1-8. II. His appearance to Mary Magdalene, and the account she gave of it to the disciples, Mk 16:9-11. III. His appearance to the two disciples, going to Emmaus, and the report they made of it to their brethren, Mk 16:12,13. IV. His appearance to the eleven with the commission he gave them to set up his kingdom in the world, and full instructions and credentials in order thereunto, Mk 16:14-18. V. His ascension into heaven, the apostles' close application to their work, and God's owning of them in it, Mk 16:19,20.
 

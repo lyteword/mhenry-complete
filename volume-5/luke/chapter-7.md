@@ -1,8 +1,11 @@
 ---
+title: "Luke 7 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "7"
+description: "In this chapter we have, I. Christ confirming the doctrine he had preached in the former chapter, with two glorious miracles—the curing of one at a distance, and that was the centu..."
 weight: 7
 ---
 
-# Chapter 7
+# Luke 7 
 
 In this chapter we have, I. Christ confirming the doctrine he had preached in the former chapter, with two glorious miracles—the curing of one at a distance, and that was the centurion's servant (Lu 7:1-10), and the raising of one to life that was dead, the widow's son at Nain, Lu 7:11-18. II. Christ confirming the faith of John who was now in prison, and of some of his disciples, by sending him a short account of the miracles he wrought, in answer to a question he received from him (Lu 7:19-23), to which he adds an honourable testimony concerning John, and a just reproof to the men of that generation for the contempt they put upon him and his doctrine, Lu 7:24-35. III. Christ comforting a poor penitent that applied herself to him, all in tears of godly sorrow for sin, assuring her that her sins were pardoned, and justifying himself in the favour he showed her against the cavils of a proud Pharisee, Lu 7:36-50.
 

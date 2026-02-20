@@ -1,8 +1,11 @@
 ---
+title: "Luke 15 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "15"
+description: "Evil manners, we say, beget good laws; so, in this chapter, the murmuring of the scribes and Pharisees at the grace of Christ, and the favour he showed to publicans and sinners, ga..."
 weight: 15
 ---
 
-# Chapter 15
+# Luke 15 
 
 Evil manners, we say, beget good laws; so, in this chapter, the murmuring of the scribes and Pharisees at the grace of Christ, and the favour he showed to publicans and sinners, gave occasion for a more full discovery of that grace than perhaps otherwise we should have had in these three parables which we have in this chapter, the scope of all of which is the same, to show, not only what God had said and sworn in the Old Testament, that he had no pleasure in the death and ruin of sinners, but that he had great pleasure in their return and repentance, and rejoices in the gracious entertainment he gives them thereupon. Here is, I. The offence which the Pharisees took at Christ for conversing with heathen men and publicans, and preaching his gospel to them, Lu 15:1,2. II. His justifying himself in it, by the design and proper tendency of it, which with many had been the effect of it, and that was, the bringing of them to repent and reform their lives, than which there could not be a more pleasing and acceptable service done to God, which he shows in the parables, 1. Of the lost sheep that was brought home with joy, Lu 15:4-7. 2. Of the lost silver that was found with joy, Lu 15:8-10. 3. Of the lost son that had been a prodigal, but returned to his father's house, and was received with great joy, though his elder brother, like these scribes and Pharisees, was offended at it, Lu 15:11-32.
 

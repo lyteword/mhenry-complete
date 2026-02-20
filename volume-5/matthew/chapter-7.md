@@ -1,8 +1,11 @@
 ---
+title: "Matthew 7 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "7"
+description: "This chapter continues and concludes Christ\'s sermon on the mount, which is purely practical, directing us to order our conversation aright, both toward God and man; for the design..."
 weight: 7
 ---
 
-# Chapter 7
+# Matthew 7 
 
 This chapter continues and concludes Christ's sermon on the mount, which is purely practical, directing us to order our conversation aright, both toward God and man; for the design of the Christian religion is to make men good, every way good. We have, I. Some rules concerning censure and reproof, Mt 7:1-6. II. Encouragements given us to pray to God for what we need, Mt 7:7-11. III. The necessity of strictness in conversation urged upon us, Mt 7:12-14. IV. A caution given us to take heed of false prophets, Mt 7:15-20. V. The conclusion of the whole sermon, showing the necessity of universal obedience to Christ's commands, without which we cannot expect to be happy, Mt 7:21-27. VI. The impression which Christ's doctrine made upon his hearers, Mt 7:28,29.
 

@@ -1,8 +1,11 @@
 ---
+title: "John 11 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "11"
+description: "In this chapter we have the history of that illustrious miracle which Christ wrought a little before his death—the raising of Lazarus to life, which is recorded only by this evange..."
 weight: 11
 ---
 
-# Chapter 11
+# John 11 
 
 In this chapter we have the history of that illustrious miracle which Christ wrought a little before his death—the raising of Lazarus to life, which is recorded only by this evangelist; for the other three confine themselves to what Christ did in Galilee, where he resided most, and scarcely ever carried their history into Jerusalem till the passion-week: whereas John's memoirs relate chiefly to what passed at Jerusalem; this passage therefore was reserved for his pen. Some suggest that, when the other evangelists wrote, Lazarus was alive, and it would not well agree either with his safety or with his humility to have it recorded till now, when it is supposed he was dead. It is more largely recorded than any other of Christ's miracles, not only because there are many circumstances of it so very instructive and the miracle of itself so great a proof of Christ's mission, but because it was an earnest of that which was to be the crowning proof of all—Christ's own resurrection. Here is, I. The tidings sent to our Lord Jesus of the sickness of Lazarus, and his entertainment of those tidings, Joh 11:1-16. II. The visit he made to Lazarus's relations when he had heard of his death, and their entertainment of the visit, Joh 11:17-32. III. The miracle wrought in the raising of Lazarus from the dead, Joh 11:33-44. IV. The effect wrought by this miracle upon others, Joh 11:45-57.
 

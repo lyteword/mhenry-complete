@@ -1,8 +1,11 @@
 ---
+title: "Luke 22 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "22"
+description: "All the evangelists, whatever they omit, give us a particular account of the death and resurrection of Christ, because he died for our sins and rose for our justification, this eva..."
 weight: 22
 ---
 
-# Chapter 22
+# Luke 22 
 
 All the evangelists, whatever they omit, give us a particular account of the death and resurrection of Christ, because he died for our sins and rose for our justification, this evangelist as fully as any, and with many circumstances and passages added which we had not before. In this chapter we have, I. The plot to take Jesus, and Judas's coming into it, Lu 22:1-6. II. Christ's eating the passover with his disciples, Lu 22:7-18. III. The instituting of the Lord's supper, Lu 22:19,20. IV. Christ's discourse with his disciples after supper, upon several heads, Lu 22:21-38. V. His agony in the garden, Lu 22:39-46. VI. The apprehending of him, by the assistance of Judas, Lu 22:47-53. VII. Peter's denying him, Lu 22:54-62. VIII. The indignities done to Christ by those that had him in custody, and his trial and condemnation in the ecclesiastical court, Lu 22:63-71.
 

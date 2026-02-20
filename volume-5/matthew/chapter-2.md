@@ -1,8 +1,11 @@
 ---
+title: "Matthew 2 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "2"
+description: "In this chapter, we have the history of our Saviour\'s infancy, where we find how early he began to suffer, and that in him the word of righteousness was fulfilled, before he himsel..."
 weight: 2
 ---
 
-# Chapter 2
+# Matthew 2 
 
 In this chapter, we have the history of our Saviour's infancy, where we find how early he began to suffer, and that in him the word of righteousness was fulfilled, before he himself began to fulfil all righteousness. Here is, I. The wise men's solicitous enquiry after Christ, Mt 2:1-8. II. Their devout attendance on him, when they found out where he was, Mt 2:9-12. III. Christ's flight into Egypt, to avoid the cruelty of Herod, Mt 2:13-15. IV. The barbarous murder of the infants of Bethlehem, Mt 2:16-18. V. Christ's return out of Egypt into the land of Israel again, Mt 2:19-23.
 

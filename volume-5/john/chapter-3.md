@@ -1,8 +1,11 @@
 ---
+title: "John 3 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "3"
+description: "In this chapter we have, I. Christ\'s discourse with Nicodemus, a Pharisee, concerning the great mysteries of the gospel, in which he here privately instructs him, Joh 3:1-21. II. J..."
 weight: 3
 ---
 
-# Chapter 3
+# John 3 
 
 In this chapter we have, I. Christ's discourse with Nicodemus, a Pharisee, concerning the great mysteries of the gospel, in which he here privately instructs him, Joh 3:1-21. II. John Baptist's discourse with his disciples concerning Christ, upon occasion of his coming into the neighbourhood where John was (Joh 3:22-36), in which he fairly and faithfully resigns all his honour and interest to him.
 

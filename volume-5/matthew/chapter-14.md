@@ -1,8 +1,11 @@
 ---
+title: "Matthew 14 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "14"
+description: "John the Baptist had said concerning Christ, He must increase, but I must decrease, Joh 3:30. The morning-star is here disappearing, and the Sun of righteousness rising to its meri..."
 weight: 14
 ---
 
-# Chapter 14
+# Matthew 14 
 
 John the Baptist had said concerning Christ, He must increase, but I must decrease, Joh 3:30. The morning-star is here disappearing, and the Sun of righteousness rising to its meridian lustre. Here is, I. The martyrdom of John; his imprisonment for his faithfulness to Herod (Mt 14:1-5), and the beheading of him to please Herodias, Mt 14:6-12. II. The miracles of Christ. 1. His feeding five thousand men that came to him to be taught, with five loaves and two fishes, Mt 14:13-21. 2. Christ's walking on the waves to his disciples in a storm, Mt 14:22-23. 3. His healing the sick with the touch of the hem of his garment, Mt 14:34-36. Thus he went forth, thus he went on, conquering and to conquer, or rather, curing and to cure.
 

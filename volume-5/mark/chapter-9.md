@@ -1,8 +1,11 @@
 ---
+title: "Mark 9 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "9"
+description: "In this chapter, we have, I. Christ\'s transfiguration upon the mount, Mk 10:1-13. II. His casting the devil out of a child, when the disciples could not do it, Mk 10:14-29. III. Hi..."
 weight: 9
 ---
 
-# Chapter 9
+# Mark 9 
 
 In this chapter, we have, I. Christ's transfiguration upon the mount, Mk 10:1-13. II. His casting the devil out of a child, when the disciples could not do it, Mk 10:14-29. III. His prediction of his own sufferings and death, Mk 10:30-32. IV. The check he gave to his disciples for disputing who should be greatest (Mk 10:33-37); and to John for rebuking one who cast out devils in Christ's name, and did not follow with them, Mk 10:38-41. V. Christ's discourse with his disciples of the danger of offending one of his little ones (Mk 10:42), and of indulging that in ourselves, which is an offence and an occasion of sin to us (Mk 10:43-50), most of which passages we had before, Mt 17:1-18:35
 

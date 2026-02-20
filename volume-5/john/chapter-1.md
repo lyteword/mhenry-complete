@@ -1,8 +1,11 @@
 ---
+title: "John 1 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "1"
+description: "The scope and design of this chapter is to confirm our faith in Christ as the eternal Son of God, and the true Messiah and Saviour of the world, that we may be brought to receive h..."
 weight: 1
 ---
 
-# Chapter 1
+# John 1 
 
 The scope and design of this chapter is to confirm our faith in Christ as the eternal Son of God, and the true Messiah and Saviour of the world, that we may be brought to receive him, and rely upon him, as our Prophet, Priest, and King, and to give up ourselves to be ruled, and taught, and saved by him. In order to this, we have here, I. An account given of him by the inspired penman himself, fairly laying down, in the beginning, what he designed his whole book should be the proof of (Joh 1:1-5); and again (Joh 1:10-14); and again, Joh 1:16-18. II. The testimony of John Baptist concerning him (Joh 1:6-9; and again, Joh 1:15); but most fully and particularly, Joh 1:19-37. III. His own manifestation of himself to Andrew and Peter (Joh 1:38-42), to Philip and Nathanael, Joh 1:43-51.
 

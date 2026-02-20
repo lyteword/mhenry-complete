@@ -1,8 +1,11 @@
 ---
+title: "John 20 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "20"
+description: "This evangelist, though he began not his gospel as the rest did, yet concludes it as they did, with the history of Christ\' resurrection; not of the thing itself, for none of them d..."
 weight: 20
 ---
 
-# Chapter 20
+# John 20 
 
 This evangelist, though he began not his gospel as the rest did, yet concludes it as they did, with the history of Christ' resurrection; not of the thing itself, for none of them describe how he rose, but of the proofs and evidences of it, which demonstrated that he was risen. The proofs of Christ's resurrection, which we have in this chapter, are I. Such as occurred immediately at the sepulchre. 1. The sepulchre found empty, and the graveclothes in good order, Joh 20:1-10. 2. Two angels appearing to Mary Magdalene at the sepulchre, Joh 20:11-13. 3. Christ himself appearing to her, Joh 20:14-18. II. Such as occurred afterwards at the meetings of the apostles. 1. At one, the same day at evening that Christ rose, when Thomas was absent, Joh 20:19-25. 2. At another, that day seven-night, when Thomas was with them, Joh 20:26-31. What is related here is mostly what was omitted by the other evangelists.
 

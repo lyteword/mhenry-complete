@@ -1,8 +1,11 @@
 ---
+title: "John 15 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "15"
+description: "It is generally agreed that Christ\'s discourse in this and the next chapter was at the close of the last supper, the night in which he was betrayed, and it is a continued discourse..."
 weight: 15
 ---
 
-# Chapter 15
+# John 15 
 
 It is generally agreed that Christ's discourse in this and the next chapter was at the close of the last supper, the night in which he was betrayed, and it is a continued discourse, not interrupted as that in the foregoing chapter was; and what he chooses to discourse of is very pertinent to the present sad occasion of a farewell sermon. Now that he was about to leave them, I. They would be tempted to leave him, and return to Moses again; and therefore he tells them how necessary it was that they should by faith adhere to him and abide in him. II. They would be tempted to grow strange one to another; and therefore he presses it upon them to love one another, and to keep up that communion when he was gone which had hitherto been their comfort. III. They would be tempted to shrink from their apostleship when they met with hardships; and therefore he prepared them to bear the shock of the world's ill will. There are four words to which his discourse in this chapter may be reduced; 1. Fruit, Joh 15:1-8. 2. Love, Joh 15:9-17. 3. Hatred, Joh 15:18-25. 4. The Comforter, Joh 15:26,27.
 

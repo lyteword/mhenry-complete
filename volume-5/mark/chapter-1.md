@@ -1,8 +1,11 @@
 ---
+title: "Mark 1 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "1"
+description: "Mark\'s narrative does not take rise so early as those of Matthew and Luke do, from the birth of our Saviour, but from John\'s baptism, from which he soon passes to Christ\'s public m..."
 weight: 1
 ---
 
-# Chapter 1
+# Mark 1 
 
 Mark's narrative does not take rise so early as those of Matthew and Luke do, from the birth of our Saviour, but from John's baptism, from which he soon passes to Christ's public ministry. Accordingly, in this chapter, we have, I. The office of John Baptist illustrated by the prophecy of him (Mk 1:1-3), and by the history of him, Mk 1:4-8. II. Christ's baptism, and his being owned from heaven, Mk 1:9-11. III. His temptation, Mk 1:12,13. IV. His preaching, Mk 1:14,15,21,22,38,39. V. His calling disciples, Mk 1:16-20. VI. His praying, Mk 1:35. VII. His working miracles. 1. His rebuking an unclean spirit, Mk 1:23-28. 2. His curing Peter's mother-in-law, who was ill of a fever, Mk 1:29-31. 3. His healing all that came to him, Mk 1:32,34. 4. His cleansing a leper, Mk 1:40-45.
 

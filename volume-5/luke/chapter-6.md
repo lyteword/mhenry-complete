@@ -1,8 +1,11 @@
 ---
+title: "Luke 6 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "6"
+description: "In this chapter we have Christ\'s exposition of the moral law, which he came not to destroy, but to fulfil, and to fill up, by his gospel. I. Here is a proof of the lawfulness of wo..."
 weight: 6
 ---
 
-# Chapter 6
+# Luke 6 
 
 In this chapter we have Christ's exposition of the moral law, which he came not to destroy, but to fulfil, and to fill up, by his gospel. I. Here is a proof of the lawfulness of works of necessity and mercy on the sabbath day, the former in vindication of his disciples' plucking the ears of corn, the latter in vindication of himself healing the withered hand on that day, Lu 6:1-11. II. His retirement for secret prayer, Lu 6:12. III. His calling his twelve apostles, Lu 6:13-16. IV. His curing the multitudes of those under various diseases who made their application to him, Lu 6:17-19. V. The sermon that he preached to his disciples and the multitude, instructing them in their duty both to God and man, Lu 6:20-49.
 

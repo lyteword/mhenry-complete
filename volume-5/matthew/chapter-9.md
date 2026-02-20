@@ -1,8 +1,11 @@
 ---
+title: "Matthew 9 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "9"
+description: "We have in this chapter remarkable instances of the power and pity of the Lord Jesus, sufficient to convince us that he is both able to save to the uttermost all that come to God b..."
 weight: 9
 ---
 
-# Chapter 9
+# Matthew 9 
 
 We have in this chapter remarkable instances of the power and pity of the Lord Jesus, sufficient to convince us that he is both able to save to the uttermost all that come to God by him, and as willing as he is able. His power and pity appear here in the good offices he did, I. To the bodies of people, in curing the palsy (Mt 9:2-8); raising to life the ruler's daughter, and healing the bloody issue (Mt 9:18-26); giving sight to two blind men (Mt 9:27-31); casting the devil out of one possessed (Mt 9:32-34); and healing all manner of sickness, Mt 9:35. II. To the souls of people; in forgiving sins (Mt 9:2); calling Matthew, and conversing freely with publicans and sinners (Mt 9:9-13); considering the frame of his disciples, with reference to the duty of fasting (Mt 9:14-17); preaching the gospel, and, in compassion to the multitude, providing preachers for them, Mt 9:35-38. Thus did he prove himself to be, as undoubtedly he is, the skilful, faithful Physician, both of soul and body, who has sufficient remedies for all the maladies of both: for which we must, therefore, apply ourselves to him, and glorify him both with our bodies and with our spirits, which are his, in return to him for his kindness to both.
 

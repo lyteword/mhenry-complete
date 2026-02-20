@@ -1,8 +1,11 @@
 ---
+title: "Luke 3 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "3"
+description: "Nothing is related concerning our Lord Jesus from his twelfth year to his entrance on his thirtieth year. We often think it would have been a pleasure and advantage to us if we had..."
 weight: 3
 ---
 
-# Chapter 3
+# Luke 3 
 
 Nothing is related concerning our Lord Jesus from his twelfth year to his entrance on his thirtieth year. We often think it would have been a pleasure and advantage to us if we had journals, or at least annuls, of occurrences concerning him; but we have as much as Infinite Wisdom thought fit to communicate to us, and, if we improve not that, neither should we have improved more if we had had it. The great intention of the evangelists was to give us an account of the gospel of Christ, which we are to believe, and by which we hope for salvation: now that began in the ministry and baptism of John, and therefore they hasten to give us an account of that. We could wish, perhaps, that Luke had wholly passed by what was related by Matthew and Mark, and had written only what was new, as he has done in his two first chapters. But it was the will of the Spirit that some things should be established out of the mouth, not only of two, but of three witnesses; and we must not reckon it a needless repetition, nor shall we do so if we renew out meditations upon these things, with suitable affections. In this chapter we have, I. The beginning of John's baptism, and the scope and intention of it, Lu 3:1-6. His exhortation to the multitude (Lu 3:7-9), and the particular instructions he gave to those who desired to be told their duty, Lu 3:10-14. II. The notice he gave them of the approach of the Messiah (Lu 3:15-18), to which is added (though it happened after what follows) the mention of his imprisonment, Lu 3:19-20. III. Christ coming to be baptized of John, and his entrance therein upon the execution of his prophetical office, Lu 3:21,22. IV. His pedigree and genealogy recorded up to Adam, Lu 3:23-38.
 

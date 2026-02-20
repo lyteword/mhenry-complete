@@ -1,8 +1,11 @@
 ---
+title: "Matthew 18 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "18"
+description: "The gospels are, in short, a record of what Jesus began both to do and to teach. In the foregoing chapter, we had an account of his doings, in this, of his teachings; probably, not..."
 weight: 18
 ---
 
-# Chapter 18
+# Matthew 18 
 
 The gospels are, in short, a record of what Jesus began both to do and to teach. In the foregoing chapter, we had an account of his doings, in this, of his teachings; probably, not all at the same time, in a continued discourse, but at several times, upon divers occasions, here put together, as near akin. We have here, I. Instructions concerning humility, Mt 18:1-6. II. Concerning offences in general (Mt 18:7), particularly offences given, 1. By us to ourselves, Mt 18:8,9. 2. By us to others, Mt 18:10-14. 3. By others to us; which are of two sorts, (1.) Scandalous sins, which are to be reproved, Mt 18:15-20. (2.) Personal wrongs, which are to be forgiven, Mt 18:21-35. See how practical Christ's preaching was; he could have revealed mysteries, but he pressed plain duties, especially those that are most displeasing to flesh and blood.
 

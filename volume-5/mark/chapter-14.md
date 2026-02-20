@@ -1,8 +1,11 @@
 ---
+title: "Mark 14 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "14"
+description: "In this chapter begins the account which this evangelist gives of the death and sufferings of our Lord Jesus, which we are all concerned to be acquainted, not only with the history..."
 weight: 14
 ---
 
-# Chapter 14
+# Mark 14 
 
 In this chapter begins the account which this evangelist gives of the death and sufferings of our Lord Jesus, which we are all concerned to be acquainted, not only with the history of, but with the mystery of. Here is, I. The plot of the chief priests and scribes against Christ, Mk 14:1,2. II. The anointing of Christ's head at a supper in Bethany, two days before his death, Mk 14:3-9. III. The contract Judas made with the chief priests, to betray him, Mk 14:10,11. IV. Christ's eating the passover with his disciples, his instituting the Lord's supper, and his discourse with his disciples, at and after supper, Mk 14:12-31. V. Christ's agony in the garden, Mk 14:32-42. VI. The betraying of him by Judas, and the apprehending of him by the chief priests' agents, Mk 14:43-52. VII. His arraignment before the high priest, his conviction, and the indignities done him at that bar, Mk 14:53-65. VIII. Peter's denying him, Mk 14:66-72. Most of which passages we had before, Mt 26:1-75
 

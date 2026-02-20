@@ -1,8 +1,11 @@
 ---
+title: "John 12 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "12"
+description: "It was a melancholy account which we had in the close of the foregoing chapter of the dishonour done to our Lord Jesus, when the scribes and Pharisees proclaimed him a traitor to t..."
 weight: 12
 ---
 
-# Chapter 12
+# John 12 
 
 It was a melancholy account which we had in the close of the foregoing chapter of the dishonour done to our Lord Jesus, when the scribes and Pharisees proclaimed him a traitor to their church, and put upon him all the marks of ignominy they could: but the story of this chapter balances that, by giving us an account of the honour done to the Redeemer, notwithstanding all that reproach thrown upon him. Thus the one was set over against the other. Let us see what honours were heaped on the head of the Lord Jesus, even in the depths of his humiliation. I. Mary did him honour, by anointing his feet at the supper in Bethany, Joh 12:1-11. II. The common people did him honour, with their acclamations of joy, when he rode in triumph into Jerusalem, Joh 12:12-19. III. The Greeks did him honour, by enquiring after him with a longing desire to see him, Joh 12:20-26. IV. God the Father did him honour, by a voice from heaven, bearing testimony to him, Joh 12:27-36. V. He had honour done him by the Old Testament prophets, who foretold the infidelity of those that heard the report of him, Joh 12:37-41. VI. He had honour done him by some of the chief rulers, whose consciences witnessed for him, though they had not courage to own it, Joh 12:42,43. VII. He claimed honour to himself, by asserting his divine mission, and the account he gave of his errand into the world, Joh 12:44-50.
 

@@ -1,8 +1,11 @@
 ---
+title: "Mark 12 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "12"
+description: "In this chapter, we have, I. The parable of the vineyard let out to unthankful husbandmen, representing the sin and ruin of the Jewish church, Mk 12:1-12. II. Christ\'s silencing th..."
 weight: 12
 ---
 
-# Chapter 12
+# Mark 12 
 
 In this chapter, we have, I. The parable of the vineyard let out to unthankful husbandmen, representing the sin and ruin of the Jewish church, Mk 12:1-12. II. Christ's silencing those who thought to ensnare him with a question about paying tribute Cæsar, Mk 12:13-17. III. His silencing the Sadducees, who attempted to perplex the doctrine of the resurrection, Mk 12:18-27. IV. His conference with a scribe about the first and great command of the law, Mk 12:28-34. V. His puzzling the scribes with a question about Christ's being the Son of David, Mk 12:35-37. VI. The caution he gave the people, to take heed of the scribes, Mk 12:38-40. VII. His commendation of the poor widow that cast her two mites into the treasury, Mk 12:41-44.
 

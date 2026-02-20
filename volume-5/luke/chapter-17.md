@@ -1,8 +1,11 @@
 ---
+title: "Luke 17 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "17"
+description: "In this chapter we have, I. Some particular discourses which Christ had with his disciples, in which he teaches them to take heed of giving offence, and to forgive the injuries don..."
 weight: 17
 ---
 
-# Chapter 17
+# Luke 17 
 
 In this chapter we have, I. Some particular discourses which Christ had with his disciples, in which he teaches them to take heed of giving offence, and to forgive the injuries done them (Lu 17:1-4), encourages them to pray for the increase of their faith (Lu 17:5,6), and then teaches them humility, whatever service they had done for God, Lu 17:7-10. II. His cleansing ten lepers, and the thanks he had from one of them only, and he a Samaritan, Lu 17:11-19. III. His discourse with his disciples, upon occasion of an enquiry of the Pharisees, when the kingdom of God should appear, Lu 17:20-37.
 

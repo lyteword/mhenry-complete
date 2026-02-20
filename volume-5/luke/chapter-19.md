@@ -1,8 +1,11 @@
 ---
+title: "Luke 19 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "19"
+description: "In this chapter we have, I. The conversion of Zaccheus the publican at Jericho, Lu 19:1-10. II. The parable of the pounds which the king entrusted with his servants, and of his reb..."
 weight: 19
 ---
 
-# Chapter 19
+# Luke 19 
 
 In this chapter we have, I. The conversion of Zaccheus the publican at Jericho, Lu 19:1-10. II. The parable of the pounds which the king entrusted with his servants, and of his rebellious citizens, Lu 19:11-27. III. Christ's riding in triumph (such triumph as it was) into Jerusalem; and his lamentation in prospect of the ruin of that city, Lu 19:28-44. IV. His teaching in the temple, and casting the buyers and sellers out of it, Lu 19:45-48.
 

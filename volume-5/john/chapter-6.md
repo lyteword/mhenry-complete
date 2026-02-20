@@ -1,8 +1,11 @@
 ---
+title: "John 6 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "6"
+description: "In this chapter we have, I. The miracle of the loaves, Joh 6:1-14. II. Christ\'s walking upon the water, Joh 6:15-21. III. The people\'s flocking after him to Capernaum, Joh 6:22-25...."
 weight: 6
 ---
 
-# Chapter 6
+# John 6 
 
 In this chapter we have, I. The miracle of the loaves, Joh 6:1-14. II. Christ's walking upon the water, Joh 6:15-21. III. The people's flocking after him to Capernaum, Joh 6:22-25. IV. His conference with them, occasioned by the miracle of the loaves, in which he reproves them for seeking carnal food, and directs them to spiritual food (Joh 6:26,27), showing them how they must labour for spiritual food (Joh 6:28,29), and what that spiritual food is, Joh 6:30-59. V. Their discontent at what he said, and the reproof he gave them for it, Joh 6:60-65. VI. The apostasy of many from him, and his discourse with his disciples that adhered to him upon that occasion, Joh 6:66-71.
 

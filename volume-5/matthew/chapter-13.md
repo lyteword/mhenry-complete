@@ -1,8 +1,11 @@
 ---
+title: "Matthew 13 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "13"
+description: "In this chapter, we have, I. The favour which Christ did to his countrymen in preaching the kingdom of heaven to them, Mt 13:1-2. He preached to them in parables, and here gives th..."
 weight: 13
 ---
 
-# Chapter 13
+# Matthew 13 
 
 In this chapter, we have, I. The favour which Christ did to his countrymen in preaching the kingdom of heaven to them, Mt 13:1-2. He preached to them in parables, and here gives the reason why he chose that way of instructing, Mt 13:10-17. And the evangelist gives another reason, Mt 13:34,35. There are eight parables recorded in this chapter, which are designed to represent the kingdom of heaven, the method of planting the gospel kingdom in the world, and of its growth and success. The great truths and laws of that kingdom are in other scriptures laid down plainly, and without parables: but some circumstances of its beginning and progress are here laid open in parables. 1. Here is one parable to show what are the great hindrances of people's profiting by the word of the gospel, and in how many it comes short of its end, through their own folly, and that is the parable of the four sorts of ground, delivered, Mt 13:3-9, and expounded, Mt 13:18-23. 2. Here are two parables intended to show that there would be a mixture of good and bad in the gospel church, which would continue till the great separation between them in the judgment day: the parable of the tares put forth (Mt 13:24-30), and expounded at the request of the disciples (Mt 13:36-43); and that of the net cast into the sea, Mt 13:47-50. 3. Here are two parables intended to show that the gospel church should be very small at first, but that in process of time it should become a considerable body: that of the grain of mustard-seed (Mt 13:31,32), and that of the leaven, Mt 13:33. 4. Here are two parables intended to show that those who expect salvation by the gospel must be willing to venture all, and quit all, in the prospect of it, and that they shall be no losers by the bargain; that of the treasure hid in the field (Mt 13:44), and that of the pearl of great price, Mt 13:45,46. 5. Here is one parable intended for direction to the disciples, to make use of the instructions he had given them for the benefit of others; and that is the parable of the good householder, Mt 13:51,52. II. The contempt which his countrymen put upon him on account of the meanness of his parentage, Mt 13:53-58.
 

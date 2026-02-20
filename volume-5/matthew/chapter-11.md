@@ -1,8 +1,11 @@
 ---
+title: "Matthew 11 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "11"
+description: "In this chapter we have, I. The constant and unwearied diligence of our Lord Jesus in his great work of preaching the gospel, Mt 11:1. II. His discourse with the disciples of John ..."
 weight: 11
 ---
 
-# Chapter 11
+# Matthew 11 
 
 In this chapter we have, I. The constant and unwearied diligence of our Lord Jesus in his great work of preaching the gospel, Mt 11:1. II. His discourse with the disciples of John concerning his being the Messiah, Mt 11:2-6. III. The honourable testimony that Christ bore to John Baptist, Mt 11:7-15. IV. The sad account he gives of that generation in general, and of some particular places with reference to the success, both of John's ministry and of his own, Mt 11:16-24. V. His thanksgiving to his Father for the wise and gracious method he had taken in revealing the great mysteries of the gospel, Mt 11:25,26. VI. His gracious call and invitation of poor sinners to come to him, and to be ruled, and taught, and saved by him, Mt 11:27-30. No Where have we more of the terror of gospel woes for warning to us, or of the sweetness of gospel grace for encouragement to us, than in this chapter, which sets before us life and death, the blessing and the curse.
 

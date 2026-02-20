@@ -1,8 +1,11 @@
 ---
+title: "John 13 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "13"
+description: "Our Saviour having finished his public discourses, in which he \"endured the contradiction of sinners,\" now applies himself to a private conversation with his friends, in which he d..."
 weight: 13
 ---
 
-# Chapter 13
+# John 13 
 
 Our Saviour having finished his public discourses, in which he "endured the contradiction of sinners," now applies himself to a private conversation with his friends, in which he designed the consolation of saints. Henceforward we have an account of what passed between him and his disciples, who were to be entrusted with the affairs of his household, when he was gone into a far country; the necessary instructions and comforts he furnished them with. His hour being at hand, he applies himself to set his house in order. In this chapter I. He washes his disciples' feet, Joh 13:1-17. II. He foretels who should betray him, Joh 13:18-30. III. He instructs them in the great doctrine of his own death, and the great duty of brotherly love, Joh 13:31-35. IV. He foretels Peter's denying him, Joh 13:36-38.
 

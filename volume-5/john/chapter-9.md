@@ -1,8 +1,11 @@
 ---
+title: "John 9 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "9"
+description: "After Christ\'s departure out of the temple, in the close of the foregoing chapter, and before this happened which is recorded in this chapter, he had been for some time abroad in t..."
 weight: 9
 ---
 
-# Chapter 9
+# John 9 
 
 After Christ's departure out of the temple, in the close of the foregoing chapter, and before this happened which is recorded in this chapter, he had been for some time abroad in the country, it is supposed about two or three months; in which interval of time Dr. Lightfoot and other harmonists place all the passages that occur from Lu 10:17-13:17. What is recorded in Joh 7:1-8:59 was at the feast of tabernacles, in September; what is recorded in this and the following chapter was at the feast of dedication in December, Joh 10:22. Mr. Clark and others place this immediately after the foregoing chapter. In this chapter we have, I. The miraculous cure of a man that was born blind, Joh 9:1-7. II. The discourses which were occasioned by it. 1. A discourse of the neighbours among themselves, and with the man, Joh 9:8-12. 2. Between the Pharisees and the man, Joh 9:13-34. 3. Between Christ and the poor man, Joh 9:35-38. 4. Between Christ and the Pharisees, Joh 9:39-41.
 

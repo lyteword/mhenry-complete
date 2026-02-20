@@ -1,8 +1,11 @@
 ---
+title: "Luke 5 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "5"
+description: "In this chapter, we have, I. Christ preaching to the people out of Peter\'s ship, for want of a better pulpit, Lu 5:1-3. II. The recompence he made to Peter for the loan of his boat..."
 weight: 5
 ---
 
-# Chapter 5
+# Luke 5 
 
 In this chapter, we have, I. Christ preaching to the people out of Peter's ship, for want of a better pulpit, Lu 5:1-3. II. The recompence he made to Peter for the loan of his boat, in a miraculous draught of fishes, by which he intimated to him and his partners his design to make them, as apostles, fishers of men, Lu 5:4-11. III. His cleansing the leper, Lu 5:12-15. IV. A short account of his private devotion and public ministry, Lu 5:16,17. V. His cure of the man sick of the palsy, Lu 5:18-26. VI. His calling Levi the publican, and conversing with publicans on that occasion, Lu 5:27-32. VII. His justifying his disciples in not fasting so frequently as the disciples of John and the Pharisees did, Lu 5:33-39.
 

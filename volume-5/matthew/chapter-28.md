@@ -1,8 +1,11 @@
 ---
+title: "Matthew 28 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "28"
+description: "In the foregoing chapters, we saw the Captain of our salvation engaged with the powers of darkness, attacked by them, and vigorously attacking them; victory seemed to hover between..."
 weight: 28
 ---
 
-# Chapter 28
+# Matthew 28 
 
 In the foregoing chapters, we saw the Captain of our salvation engaged with the powers of darkness, attacked by them, and vigorously attacking them; victory seemed to hover between the combatants; nay, at length, it inclined to the enemies' side, and our Champion fell before them; behold, God has delivered his strength into captivity, and his glory into the enemies' hand. Christ in the grave is like the ark in Dagon's temple; the powers of darkness seemed to ride masters, but then the Lord awaked as one out of sleep, and like a mighty man that shouteth by reason of wine, Ps 78:61,65. The prince of our peace is in this chapter rallying again, coming out of the grave, a Conqueror, yea, more than a conqueror, leading captivity captive; though the ark be a prisoner, Dagon falls before it, and it proves that none is able to stand before the holy Lord God. Now the resurrection of Christ being one of the main foundations of our religion, it is requisite that we should have infallible proofs of it; four of which proofs we have in this chapter, which are but a few of many, for Luke and John give a larger account of the proofs of Christ's resurrection than Matthew and Mark do. Here is, I. The testimony of the angel to Christ's resurrection, Mt 28:1-8. II. His appearance himself to the women, Mt 28:9,10. III. The confession of the adversaries that were upon the guard, Mt 28:11-15. IV. Christ's appearance to the disciples in Galilee, and the commission he gave them, Mt 28:16-20.
 

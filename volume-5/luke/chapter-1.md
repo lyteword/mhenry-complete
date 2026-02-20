@@ -1,8 +1,11 @@
 ---
+title: "Luke 1 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "1"
+description: "The narrative which this evangelist gives us (or rather God by him) of the life of Christ begins earlier than either Matthew or Mark. We have reason to thank God for them all, as w..."
 weight: 1
 ---
 
-# Chapter 1
+# Luke 1 
 
 The narrative which this evangelist gives us (or rather God by him) of the life of Christ begins earlier than either Matthew or Mark. We have reason to thank God for them all, as we have for all the gifts and graces of Christ's ministers, which in one make up what is wanting in the other, while all put together make a harmony. In this chapter we have, I. Luke's preface to his gospel, or his epistle dedicatory to his friend Theophilus, Lu 1:1-4. II. The prophecy and history of the conception of John Baptist, who was Christ's forerunner, Lu 1:5-25. The annunciation of the virgin Mary, or the notice given to her that she should be the mother of the Messiah, Lu 1:26-38. IV. The interview between Mary the mother of Jesus and Elisabeth the mother of John, when they were both with child of those pregnant births, and the prophecies they both uttered upon that occasion, Lu 1:39-56. V. The birth and circumcision of John Baptist, six months before the birth of Christ, Lu 1:57-66. VI. Zacharias's song of praise, in thankfulness for the birth of John, and in prospect of the birth of Jesus, Lu 1:67-79. VII. A short account of John Baptist's infancy, Lu 1:80. And these do more than give us an entertaining narrative; they will lead us into the understanding of the mystery of godliness, God manifest in the flesh.
 

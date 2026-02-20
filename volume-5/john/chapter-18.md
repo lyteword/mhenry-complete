@@ -1,8 +1,11 @@
 ---
+title: "John 18 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "18"
+description: "Hitherto this evangelist has recorded little of the history of Christ, only so far as was requisite to introduce his discourses; but now that the time drew nigh that Jesus must die..."
 weight: 18
 ---
 
-# Chapter 18
+# John 18 
 
 Hitherto this evangelist has recorded little of the history of Christ, only so far as was requisite to introduce his discourses; but now that the time drew nigh that Jesus must die he is very particular in relating the circumstances of his sufferings, and some which the others had omitted, especially his sayings. So far were his followers from being ashamed of his cross, or endeavouring to conceal it, that this was what, both by word and writing, they were most industrious to proclaim, and gloried in it. This chapter relates, I. How Christ was arrested in the garden and surrendered himself a prisoner, Joh 18:1-12. II. How he was abused in the high priest's court, and how Peter, in the meantime, denied him, Joh 18:13-27. III. How he was prosecuted before Pilate, and examined by him, and put in election with Barabbas for the favour of the people, and lost it, Joh 18:28-40.
 

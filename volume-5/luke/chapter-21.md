@@ -1,8 +1,11 @@
 ---
+title: "Luke 21 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "21"
+description: "In this chapter we have, I. The notice Christ took, and the approbation he gave, of a poor widow that cast two mites into the treasury, Lu 21:1-4. II. A prediction of future events..."
 weight: 21
 ---
 
-# Chapter 21
+# Luke 21 
 
 In this chapter we have, I. The notice Christ took, and the approbation he gave, of a poor widow that cast two mites into the treasury, Lu 21:1-4. II. A prediction of future events, in answer to his disciples' enquiries concerning them, Lu 21:5-7. 1. Of what should happen between that and the destruction of Jerusalem—false Christs arising, bloody wars and persecutions of Christ's followers, Lu 21:8-19. 2. Of that destruction itself, Lu 21:20-24. 3. Of the second coming of Jesus Christ to judge the world, under the type and figure of that, Lu 21:25-33. III. A practical application of this, by way of caution and counsel (Lu 21:34-36), and an account of Christ's preaching and the people's attendance on it, Lu 21:37,38.
 

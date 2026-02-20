@@ -1,8 +1,11 @@
 ---
+title: "Matthew 17 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "17"
+description: "In this chapter we have, I. Christ in his pomp and glory transfigured, Mt 17:1-3. II. Christ in his power and grace, casting the devil out of a child, Mt 17:14-21. And, III. Christ..."
 weight: 17
 ---
 
-# Chapter 17
+# Matthew 17 
 
 In this chapter we have, I. Christ in his pomp and glory transfigured, Mt 17:1-3. II. Christ in his power and grace, casting the devil out of a child, Mt 17:14-21. And, III. Christ in his poverty and great humiliation, 1. Foretelling his own sufferings, Mt 17:22,23. 2. Paying tribute, Mt 17:24-27. So that here is Christ, the Brightness of his Father's glory, by himself purging our sins, paying our debts, and destroying for us him that had the power of death, that is, the devil. Thus were the several indications of Christ's gracious intentions admirable interwoven.
 

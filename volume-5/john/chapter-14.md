@@ -1,8 +1,11 @@
 ---
+title: "John 14 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "14"
+description: "This chapter is a continuation of Christ\'s discourse with his disciples after supper. When he had convicted and discarded Judas, he set himself to comfort the rest, who were full o..."
 weight: 14
 ---
 
-# Chapter 14
+# John 14 
 
 This chapter is a continuation of Christ's discourse with his disciples after supper. When he had convicted and discarded Judas, he set himself to comfort the rest, who were full of sorrow upon what he had said of leaving them, and a great many good words and comfortable words he here speaks to them. The discourse in interlocutory; as Peter in the foregoing chapter, so Thomas, and Philip, and Jude, in this interposed their thoughts upon what he said, according to the liberty he was pleased to allow them. Free conferences are as instructive as solemn speeches, and more so. The general scope of this chapter is in the Joh 14:1; it is designed to keep trouble from their hearts; now in order to this they must believe: and let them consider, I. Heaven as their everlasting rest, Joh 14:2,3. II. Christ himself as their way, Joh 14:4-11. III. The great power they shall be clothed with by the prevalency of their prayers, Joh 14:12-14. IV. The coming of another comforter, Joh 14:15-17. V. The fellowship and communion that should be between him and them after his departure, Joh 14:18-24. VI. The instructions which the Holy Ghost should give them, Joh 14:25,26. VII. The peace Christ bequeathed to them, Joh 14:27. VIII. Christ's own cheerfulness in his departure, Joh 14:28-31. And this which he said to them is designed for the comfort of all his faithful followers.
 
