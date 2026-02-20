@@ -1,8 +1,11 @@
 ---
+title: "Isaiah 1 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "1"
+description: "The first verse of this chapter is intended for a title to the whole book, and it is probable that this was the first sermon that this prophet was appointed to publish and to affix..."
 weight: 1
 ---
 
-# Chapter 1
+# Isaiah 1 
 
 The first verse of this chapter is intended for a title to the whole book, and it is probable that this was the first sermon that this prophet was appointed to publish and to affix in writing (as Calvin thinks the custom of the prophets was) to the door of the temple, as with us proclamations are fixed to public places, that all might read them (Hab 2:2), and those that would might take out authentic copies of them, the original being, after some time, laid up by the priests among the records of the temple. The sermon which is contained in this chapter has in it, I. A high charge exhibited, in God's name, against the Jewish church and nation, 1. For their ingratitude, Isa 1:2,3. 2. For their incorrigibleness, Isa 1:5. 3. For the universal corruption and degeneracy of the people, Isa 1:4,6,21,22. 4. For the perversion of justice by their rulers, Isa 1:23. II. A sad complaint of the judgments of God, which they had brought upon themselves by their sins, and by which they were brought almost to utter ruin, Isa 1:7-9. III. A just rejection of those shows and shadows of religion which they kept up among them, notwithstanding this general defection and apostasy, Isa 1:10-15. IV. An earnest call to repentance and reformation, setting before them life and death, life if they compiled with the call and death if they did not, Isa 1:16-20. V. A threatening of ruin to those that would not be reformed, Isa 1:24,28-31. VI. A promise of a happy reformation at last, and a return to their primitive purity and prosperity, Isa 1:25-27. And all this is to be applied by us, not only to the communities we are members of, in their public interests, but to the state of our own souls.
 

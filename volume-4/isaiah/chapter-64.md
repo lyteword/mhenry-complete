@@ -1,8 +1,11 @@
 ---
+title: "Isaiah 64 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "64"
+description: "This chapter goes on with that pathetic pleading prayer which the church offered up to God in the latter part of the foregoing chapter. They had argued from their covenant-relation..."
 weight: 64
 ---
 
-# Chapter 64
+# Isaiah 64 
 
 This chapter goes on with that pathetic pleading prayer which the church offered up to God in the latter part of the foregoing chapter. They had argued from their covenant-relation to God and his interest and concern in them; now here, I. They pray that God would appear in some remarkable and surprising manner for them against his and their enemies, Isa 64:1,2. II. They plead what God had formerly done, and was always ready to do, for his people, Isa 64:3-5. III. They confess themselves to be sinful and unworthy of God's favour, and that they had deserved the judgments they were now under, Isa 64:6,7. IV. They refer themselves to the mercy of God as a Father, and submit themselves to his sovereignty, Isa 64:8. V. They represent the very deplorable condition they were in, and earnestly pray for the pardon of sin and the turning away of God's anger, Isa 64:9-12. And this was not only intended for the use of the captive Jews, but may serve for direction to the church in other times of distress, what to ask of God and how to plead with him. Are God's people at any time in affliction, in great affliction? Let them pray, let them thus pray.
 

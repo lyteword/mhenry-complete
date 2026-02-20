@@ -1,8 +1,11 @@
 ---
+title: "Ezekiel 30 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "30"
+description: "In this chapter we have, I. A continuation of the prophecy against Egypt, which we had in the latter part of the foregoing chapter, just before the desolation of that once flourish..."
 weight: 30
 ---
 
-# Chapter 30
+# Ezekiel 30 
 
 In this chapter we have, I. A continuation of the prophecy against Egypt, which we had in the latter part of the foregoing chapter, just before the desolation of that once flourishing kingdom was completed by Nebuchadnezzar, in which is foretold the destruction of all her allies and confederates, all her interests and concerns, and the several steps which the king of Babylon should take in pushing on this destruction, Eze 30:1-19. II. A repetition of a former prophecy against Egypt, just before the desolation of it begun by their own bad conduct, which gradually weakened them and prepared the way for the king of Babylon, Eze 30:20-26. It is all much to the same purport with what we had before.
 

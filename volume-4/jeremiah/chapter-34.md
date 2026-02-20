@@ -1,8 +1,11 @@
 ---
+title: "Jeremiah 34 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "34"
+description: "In this chapter we have two messages which God sent by Jeremiah. I. One to foretel the fate of Zedekiah king of Judah, that he should fall into the hands of the king of Babylon, th..."
 weight: 34
 ---
 
-# Chapter 34
+# Jeremiah 34 
 
 In this chapter we have two messages which God sent by Jeremiah. I. One to foretel the fate of Zedekiah king of Judah, that he should fall into the hands of the king of Babylon, that he should live a captive, but should at last die in peace in his captivity, Jer 34:1-7. II. Another to read the doom both of prince and people for their treacherous dealings with God, in bringing back into bondage their servants whom they had released according to the law, and so playing fast and loose with God. They had walked at all adventures with God (Jer 34:8-11), and therefore God would walk at all adventures with them, in bringing the Chaldean army upon them again when they began to hope that they had got clear of them, Jer 34:12-22.
 

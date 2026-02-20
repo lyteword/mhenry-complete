@@ -1,8 +1,11 @@
 ---
+title: "Daniel 3 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "3"
+description: "In the close of the foregoing chapter we left Daniel\'s companions, Shadrach, Meshach, and Abednego, in honour and power, princes of the provinces, and preferred for their relation ..."
 weight: 3
 ---
 
-# Chapter 3
+# Daniel 3 
 
 In the close of the foregoing chapter we left Daniel's companions, Shadrach, Meshach, and Abednego, in honour and power, princes of the provinces, and preferred for their relation to the God of Israel and the interest they had in him. I know not whether I should say. It were well if this honour had all the saints. No, there are many whom it would not be good for; the saints' honour is reserved for another world. But here we have those same three men as much under the king's displeasure as when they were in his favour, and yet more truly, more highly, honoured by their God than there they were honoured by their prince, both by the grace wherewith he enabled them rather to suffer than to sin and by the miraculous and glorious deliverance which he wrought for them out of their sufferings. It is a very memorable story, a glorious instance of the power and goodness of God, and a great encouragement to the constancy of his people in trying times. The apostle refers to it when he mentions, among the believing heroes, those who by faith "quenched the violence of fire," Heb 11:34. We have here, I. Nebuchadnezzar's erecting and dedicating a golden image, and his requiring all his subjects, of what rank or degree soever, to fall down and worship it, and the general compliance of his people with that command, Da 3:1-7. II. Information given against the Jewish princes for refusing to worship this golden image, Da 3:8-12. III. Their constant persisting in that refusal, notwithstanding his rage and menaces, Da 3:13-18. IV. The casting of them into the fiery furnace for their refusal, Da 3:19-23. V. Their miraculous preservation in the fire by the power of God, and their invitation out of the fire by the favour of the king, who was by this miracle convinced of his error in casting them in, Da 3:24-27. VI. The honour which the king gave to God hereupon, and the favour he showed to those faithful worthies, Da 3:28-30.
 

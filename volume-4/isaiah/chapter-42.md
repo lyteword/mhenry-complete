@@ -1,8 +1,11 @@
 ---
+title: "Isaiah 42 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "42"
+description: "The prophet seems here to launch out yet further into the prophecy of the Messiah and his kingdom under the type of Cyrus; and, having the great work of man\'s salvation by him yet ..."
 weight: 42
 ---
 
-# Chapter 42
+# Isaiah 42 
 
 The prophet seems here to launch out yet further into the prophecy of the Messiah and his kingdom under the type of Cyrus; and, having the great work of man's salvation by him yet more in view, he almost forgets the occasion that led him into it and drops the return out of Babylon; for indeed the prospect of this would be a greater comfort and support to the believing pious Jews, in their captivity, than the hope of that. And (as Mr. Gataker well observes) in this and similar prophecies of Christ, that are couched in types, as of David and Solomon, some passages agree to the type and not to the truth, other to the truth and not to the type, and many to the type in one sense and the truth in another. Here is, I. A prophecy of the Messiah's coming with meekness, and yet with power, to do the Redeemer's work, Isa 42:1-4. II. His commission opened, which he received from the Father, Isa 42:5-9. III. The joy and rejoicing with which the glad tidings of this should be received, Isa 42:10-12. IV. The wonderful success of the gospel, for the overthrow of the devil's kingdom, Isa 42:13-17. V. The rejection and ruin of the Jews for their unbelief, Isa 42:18-25.
 

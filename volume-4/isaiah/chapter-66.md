@@ -1,8 +1,11 @@
 ---
+title: "Isaiah 66 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "66"
+description: "The scope of this chapter is much the same as that of the foregoing chapter and many expressions of it are the same; it therefore looks the same way, to the different state of the ..."
 weight: 66
 ---
 
-# Chapter 66
+# Isaiah 66 
 
 The scope of this chapter is much the same as that of the foregoing chapter and many expressions of it are the same; it therefore looks the same way, to the different state of the good and bad among the Jews at their return out of captivity, but that typifying the rejection of the Jews in the days of the Messiah, the conversion of the Gentiles, and the setting up of the gospel-kingdom in the world. The Isa 66:1 of this chapter is applied by Stephen to the dismantling of the temple by the planting of the Christian church (Ac 7:49,50), which may serve as a key to the whole chapter. We have here, I. The contempt God puts upon ceremonial services in comparison with moral duties, and an intimation therein of his purpose shortly to put an end to the temple, and sacrifice and reject those that adhered to them, Isa 66:1-4. II. The salvation God will in due time work for his people out of the hands of their oppressors (Isa 66:5), speaking terror to the persecutors (Isa 66:6) and comfort to the persecuted, a speedy and complete deliverance (Isa 66:7-9), a joyful settlement (Isa 66:10,11), the accession of the Gentiles to them, and abundance of satisfaction therein, Isa 66:12-14. III. The terrible vengeance which God will bring upon the enemies of his church and people, Isa 66:15-18. IV. The happy establishment of the church upon large and sure foundations, its constant attendance on God and triumph over its enemies, Isa 66:19-24. And we may well expect that this evangelical prophet, here, in the close of his prophecy, should (as he does) look as far forward as to the latter days, to the last day, to the days of eternity.
 

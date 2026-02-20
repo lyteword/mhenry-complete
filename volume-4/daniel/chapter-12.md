@@ -1,8 +1,11 @@
 ---
+title: "Daniel 12 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "12"
+description: "After the prediction of the troubles of the Jews under Antiochus, prefiguring the troubles of the Christian church under the anti-christian power, we have here, I. Comforts, and ve..."
 weight: 12
 ---
 
-# Chapter 12
+# Daniel 12 
 
 After the prediction of the troubles of the Jews under Antiochus, prefiguring the troubles of the Christian church under the anti-christian power, we have here, I. Comforts, and very precious ones, prescribed as cordials for the support of God's people in those times of trouble; and they are such as may indifferently serve both for those former times of trouble under Antiochus and those latter which were prefigured by them, Da 12:1-4. II. A conference between Christ and an angel concerning the time of the continuance of these events, designed for Daniel's satisfaction, Da 12:5-7. III. Daniel's enquiry for his own satisfaction, Da 12:8. And the answer he received to that enquiry, Da 12:9-12.
 

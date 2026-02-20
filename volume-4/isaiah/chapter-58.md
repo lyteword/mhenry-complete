@@ -1,8 +1,11 @@
 ---
+title: "Isaiah 58 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "58"
+description: "The prophet, in this chapter, has his commission and charge renewed to reprove the sinners in Zion, particularly the hypocrites, to show them their transgressions, Isa 58:1. It is ..."
 weight: 58
 ---
 
-# Chapter 58
+# Isaiah 58 
 
 The prophet, in this chapter, has his commission and charge renewed to reprove the sinners in Zion, particularly the hypocrites, to show them their transgressions, Isa 58:1. It is intended for admonition and warning to all hypocrites, and is not to be confined to those of any one age. Some refer it primarily to those at that time when Isaiah prophesied; see Isa 33:14, Isa 29:13. Others to the captives in Babylon, the wicked among them, to whom the prophet had declared there was no peace Isa 57:21. Against the terror of that word they thought to shelter themselves with their external performances, particularly their fastings, which they kept up in Babylon, and for some time after their return to their own land, Zec 7:3, etc. The prophet therefore here shows them that their devotions would not entitle them to peace while their conversations were not at all of a piece with them. Others think it is principally intended against the hypocrisy of the Jews, especially the Pharisees before and in our Saviour's time: they boasted of their fastings, but Christ (as the prophet here) showed them their transgressions (Mt 23:1-39), much the same with those they are here charged with. Observe, I. The plausible profession of religion which they made, Isa 58:2. II. The boasts they made of that profession, and the blame they laid upon God for taking no more notice of it, Isa 58:3. III. The sins they are charged with, which spoiled the acceptableness of their fasts, Isa 58:4,5. IV. Instructions given them how to keep fasts aright, Isa 58:6,7. V. Precious promises made to those who do so keep fasts, Isa 58:8-12. VI. The like precious promises made to those that sanctify sabbaths aright, Isa 58:13,14.
 

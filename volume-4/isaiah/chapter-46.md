@@ -1,8 +1,11 @@
 ---
+title: "Isaiah 46 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "46"
+description: "God, by the prophet here, designing shortly to deliver them out of their captivity, prepared them for that deliverance by possessing them with a detestation of idols and with a bel..."
 weight: 46
 ---
 
-# Chapter 46
+# Isaiah 46 
 
 God, by the prophet here, designing shortly to deliver them out of their captivity, prepared them for that deliverance by possessing them with a detestation of idols and with a believing confidence in God, even their own God. I. Let them not be afraid of the idols of Babylon, as if they could in any way obstruct their deliverance, for they should be defaced (Isa 46:1,2); but let them trust in that God who had often delivered them to do it still, to do it now, Isa 46:3,4. II. Let them not think to make idols of their own, images of the God of Israel, by them to worship him, as the Babylonians worship their gods, Isa 46:5-7. Let them not be so sottish (Isa 46:8), but have an eye to God in his word, not in an image; let them depend upon that, and upon the promises and predictions of it, and God's power to accomplish them all, Isa 46:9-11. And let them know that the unbelief of man shall not make the word of God of no effect, Isa 46:12,13.
 

@@ -1,8 +1,11 @@
 ---
+title: "Lamentations 3 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "3"
+description: "The scope of this chapter is the same with that of the two foregoing chapters, but the composition is somewhat different; that was in long verse, this is in short, another kind of ..."
 weight: 3
 ---
 
-# Chapter 3
+# Lamentations 3 
 
 The scope of this chapter is the same with that of the two foregoing chapters, but the composition is somewhat different; that was in long verse, this is in short, another kind of metre; that was in single alphabets, this is in a treble one. Here is, I. A sad complaint of God's displeasure and the fruits of it, La 3:1-20. II. Words of comfort to God's people when they are in trouble and distress, La 3:21-36. III. Duty prescribed in this afflicted state, La 3:37-41. IV. The complaint renewed, La 3:42-54. V. Encouragement taken to hope in God, and continue waiting for his salvation, with an appeal to his justice against the persecutors of the church, La 3:55-66. Some make all this to be spoken by the prophet himself when he was imprisoned and persecuted; but it seems rather to be spoken in the person of the church now in captivity and in a manner desolate, and in the desolations of which the prophet did in a particular manner interest himself. But the complaints here are somewhat more general than those in the foregoing chapter, being accommodated to the case as well of particular persons as of the public, and intended for the use of the closet rather than of the solemn assembly. Some think Jeremiah makes these complaints, not only as an intercessor for Israel, but as a type of Christ, who was thought by some to be Jeremiah the weeping prophet, because he was much in tears (Mt 16:14) and to him many of the passages here may be applied.
 

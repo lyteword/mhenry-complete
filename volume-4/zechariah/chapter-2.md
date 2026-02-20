@@ -1,8 +1,11 @@
 ---
+title: "Zechariah 2 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "2"
+description: "In this chapter we have, I. Another vision which the prophet saw, not for his own entertainment, but for his satisfaction and the edification of those to whom he was sent, Zec 2:1,..."
 weight: 2
 ---
 
-# Chapter 2
+# Zechariah 2 
 
 In this chapter we have, I. Another vision which the prophet saw, not for his own entertainment, but for his satisfaction and the edification of those to whom he was sent, Zec 2:1,2. II. A sermon upon it, in the rest of the chapter, 1. By way of explication of the vision, showing it to be a prediction of the replenishing of Jerusalem and of its safety and honour, Zec 2:3-5. 2. By way of application. Here is, (1.) A use of exhortation to the Jews that were yet in Babylon, pressing them to hasten their return to their own land, Zec 2:6-9. (2.) A use of consolation to those that were returned, in reference to the many difficulties they had to struggle with, Zec 2:10-12. (3.) A use of caution to all not to prescribe to God, or limit him, but patiently to wait for him, Zec 2:13.
 

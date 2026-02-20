@@ -1,8 +1,11 @@
 ---
+title: "Jeremiah 29 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "29"
+description: "The contest between Jeremiah and the false prophets was carried on before by preaching, here by writing; there we had sermon against sermon, here we have letter against letter, for..."
 weight: 29
 ---
 
-# Chapter 29
+# Jeremiah 29 
 
 The contest between Jeremiah and the false prophets was carried on before by preaching, here by writing; there we had sermon against sermon, here we have letter against letter, for some of the false prophets are now carried away into captivity in Babylon, while Jeremiah remains in his own country. Now here is, I. A letter which Jeremiah wrote to the captives in Babylon, against their prophets that they had there (Jer 29:1-3), in which letter, 1. He endeavours to reconcile them to their captivity, to be easy under it and to make the best of it, Jer 29:4-7. 2. He cautions them not to give any credit to their false prophets, who fed them with hopes of a speedy release, Jer 29:8,9. 3. He assures them that God would restore them in mercy to their own land again, at the end of 70 years, Jer 29:10-14. 4. He foretels the destruction of those who yet continued, and that they should be persecuted with one judgment after another, and sent at last into captivity, Jer 29:15-19. 5. He prophesies the destruction of two of their false prophets that they had in Babylon, that both soothed them up in their sins and set them bad examples (Jer 29:20-23), and this is the purport of Jeremiah's letter. II. Here is a letter which Shemaiah, a false prophet in Babylon, wrote to the priests at Jerusalem, to stir them up to persecute Jeremiah (Jer 29:24-29), and a denunciation of God's wrath against him for writing such a letter, Jer 29:30-32. Such struggles as these have there always been between the seed of the woman and the seed of the serpent.
 

@@ -1,8 +1,11 @@
 ---
+title: "Jeremiah 30 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "30"
+description: "The sermon which we have in this and the following chapter is of a very different complexion from all those before. The prophet does indeed, by direction from God, change his voice..."
 weight: 30
 ---
 
-# Chapter 30
+# Jeremiah 30 
 
 The sermon which we have in this and the following chapter is of a very different complexion from all those before. The prophet does indeed, by direction from God, change his voice. Most of what he had said hitherto was by way of reproof and threatening; but these two chapters are wholly taken up with precious promises of a return out of captivity, and that typical of the glorious things reserved for the church in the days of the Messiah. The prophet is told not only to preach this, but to write it, because it is intended for the comfort of the generation to come, Jer 30:1-3. It is here promised, I. That they should hereafter have a joyful restoration. 1. Though they were now in a great deal of pain and terror, Jer 30:4-7. 2. Though their oppressors were very strong, Jer 30:8-10. 3. Though a full end was made of other nations, and they were not restored, Jer 30:11. 4. Though all means of their deliverance seemed to fail and be cut off, Jer 30:12-14. 5. Though God himself had sent them into captivity, and justly, for their sins, Jer 30:15,16. 6. Though all about them looked upon their case as desperate, Jer 30:17. II. That after their joyful restoration they should have a happy settlement, that their city should be rebuilt (Jer 30:18), their numbers increased (Jer 30:19), their government established (Jer 30:21), God's covenant with them renewed (Jer 30:22), and their enemies destroyed and cut off, Jer 30:23,24.
 

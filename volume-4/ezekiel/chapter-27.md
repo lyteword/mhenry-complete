@@ -1,8 +1,11 @@
 ---
+title: "Ezekiel 27 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "27"
+description: "Still we are attending the funeral of Tyre and the lamentations made for the fall of that renowned city. In this chapter we have, I. A large account of the dignity, wealth, and spl..."
 weight: 27
 ---
 
-# Chapter 27
+# Ezekiel 27 
 
 Still we are attending the funeral of Tyre and the lamentations made for the fall of that renowned city. In this chapter we have, I. A large account of the dignity, wealth, and splendour of Tyre, while it was in its strength, the vast trade it drove, and the interest it had among the nations (Eze 27:1-25), which is designed to make its ruin the more lamentable. II. A prediction of its fall and ruin, and the confusion and consternation which all its neighbours shall thereby be put into, Eze 27:26-36. And this is intended to stain the pride of all worldly glory, and, by setting the one over-against the other, to let us see the vanity and uncertainty of the riches, honours, and pleasures of the world, and what little reason we have to place our happiness in them or to be confident of the continuance of them; so that all this is written for our learning.
 

@@ -1,8 +1,11 @@
 ---
+title: "Jeremiah 11 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "11"
+description: "In this chapter, I. God by the prophet puts the people in mind of the covenant he had made with their fathers, and how much he had insisted upon it, as the condition of the covenan..."
 weight: 11
 ---
 
-# Chapter 11
+# Jeremiah 11 
 
 In this chapter, I. God by the prophet puts the people in mind of the covenant he had made with their fathers, and how much he had insisted upon it, as the condition of the covenant, that they should be obedient to him, Jer 11:1-7. II. He charges it upon them that they, in succession to their fathers, and in confederacy among themselves, had obstinately refused to obey him, Jer 11:8-10. III. He threatens to punish them with utter ruin for their disobedience, especially for their idolatry (Jer 11:11,13), and tells them that their idols should not save them (Jer 11:12), that their prophets should not pray for them (Jer 11:14); he also justifies his proceedings herein, they having brought all this mischief upon themselves by their own folly and wilfulness, Jer 11:15-17. IV. Here is an account of a conspiracy formed against Jeremiah by his fellow-citizens, the men of Anathoth; God's discovery of it to him (Jer 11:18,19), his prayer against them (Jer 11:20), and a prediction of God's judgments upon them for it, Jer 11:21-23.
 

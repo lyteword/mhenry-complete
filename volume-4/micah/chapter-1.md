@@ -1,8 +1,11 @@
 ---
+title: "Micah 1 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "1"
+description: "In this chapter we have, I. The title of the book (Mic 1:1) and a preface demanding attention, Mic 1:2. II. Warning given of desolating judgments hastening upon the kingdoms of Isr..."
 weight: 1
 ---
 
-# Chapter 1
+# Micah 1 
 
 In this chapter we have, I. The title of the book (Mic 1:1) and a preface demanding attention, Mic 1:2. II. Warning given of desolating judgments hastening upon the kingdoms of Israel and Judah (Mic 1:3,4), and all for sin, Mic 1:5. III. The particulars of the destruction specified, Mic 1:6,7. IV. The greatness of the destruction illustrated, 1. By the prophet's sorrow for it, Mic 1:8,9. 2. By the general sorrow that should be for it, in the several places that must expect to share in it, Mic 1:10-16. These prophecies of Micah might well be called his lamentations.
 

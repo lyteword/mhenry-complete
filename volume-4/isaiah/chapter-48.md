@@ -1,8 +1,11 @@
 ---
+title: "Isaiah 48 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "48"
+description: "God, having in the foregoing chapter reckoned with the Babylonians, and shown them their sins and the desolation that was coming upon them for their sins, to show that he hates sin..."
 weight: 48
 ---
 
-# Chapter 48
+# Isaiah 48 
 
 God, having in the foregoing chapter reckoned with the Babylonians, and shown them their sins and the desolation that was coming upon them for their sins, to show that he hates sin wherever he finds it and will not connive at it in his own people, comes, in this chapter, to show the house of Jacob their sins, but, withal, the mercy God had in store for them notwithstanding; and he therefore sets their sins in order before them, that by their repentance and reformation they might be prepared for that mercy. I. He charges them with hypocrisy in that which is good and obstinacy in that which is evil, especially in their idolatry, notwithstanding the many convincing proofs God had given them that he is God alone, Isa 47:1-8. II. He assures them that their deliverance would be wrought purely for the sake of God's own name and not for any merit of theirs, Isa 47:9-11. III. He encourages them to depend purely upon God's power and promise for this deliverance, Isa 47:12-15. IV. He shows them that, as it was by their own sin that they brought themselves into captivity, so it would be only by the grace of God that they would obtain the necessary preparatives for their enlargement, Isa 47:16-19. V. He proclaims their release, yet with a proviso that the wicked shall have no benefit by it, Isa 47:20-22.
 

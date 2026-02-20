@@ -1,8 +1,11 @@
 ---
+title: "Micah 3 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "3"
+description: "What the apostle says of another of the prophets is true of this, who was also his contemporary—\"Esaias is very bold,\" Ro 10:20. So, in this chapter, Micah is very bold in reprovin..."
 weight: 3
 ---
 
-# Chapter 3
+# Micah 3 
 
 What the apostle says of another of the prophets is true of this, who was also his contemporary—"Esaias is very bold," Ro 10:20. So, in this chapter, Micah is very bold in reproving and threatening the great men that were the ringleaders in sin; and he gives the reason (Mic 3:8) why he was so bold, because he had commission and instruction from God to say what he said, and was carried out in it by a higher spirit and power than his own. Magistracy and ministry are two great ordinances of God, for good to his church, but these were both corrupted and the intentions of them perverted; and upon those that abused them, and so abused the church with them, the prophet is very severe, and justly so. I. He gives them their lesson severally, reproving and threatening princes (Mic 3:1-4) and false flattering prophets, Mic 3:5-7. II. He gives them their lesson jointly, putting them together, as acting in conjunction for the ruin of the kingdom, which they should see the ruins of, Mic 3:9-12.
 

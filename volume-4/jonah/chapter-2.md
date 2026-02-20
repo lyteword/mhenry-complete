@@ -1,8 +1,11 @@
 ---
+title: "Jonah 2 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "2"
+description: "We left Jonah in the belly of the fish, and had reason to think we should hear no more of him, that if he were not destroyed by the waters of the sea he would be consumed in the bo..."
 weight: 2
 ---
 
-# Chapter 2
+# Jonah 2 
 
 We left Jonah in the belly of the fish, and had reason to think we should hear no more of him, that if he were not destroyed by the waters of the sea he would be consumed in the bowels of that leviathan, "out of whose mouth go burning lamps, and sparks of fire, and whose breath kindles coals," Job 41:19,21. But God brings his people through fire, and through water (Ps 66:12); and by his power, behold, Jonah the prophet is yet alive, and is heard of again. In this chapter God hears from him, for we find him praying; in the next Nineveh hears from him, for we find him preaching. In his prayer we have, I. The great distress and danger he was in, Jon 2:2,3,5,6. II. The despair he was thereby almost reduced to, Jon 2:4. III. The encouragement he took to himself, in this deplorable condition, Jon 2:4,7. IV. The assurance he had of God's favour to him, Jon 2:6,7. V. The warning and instruction he gives to others, Jon 2:8. VI. The praise and glory of all given to God, Jon 2:9. In the Jon 2:10 we have Jonah's deliverance out of the belly of the fish, and his coming safe and sound upon dry land again.
 

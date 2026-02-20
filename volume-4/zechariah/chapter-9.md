@@ -1,8 +1,11 @@
 ---
+title: "Zechariah 9 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "9"
+description: "At this chapter begins another sermon, which is continued to the end of Zec 11:1-17 It is called, \"The burden of the word of the Lord,\" for every word of God has weight in it to th..."
 weight: 9
 ---
 
-# Chapter 9
+# Zechariah 9 
 
 At this chapter begins another sermon, which is continued to the end of Zec 11:1-17 It is called, "The burden of the word of the Lord," for every word of God has weight in it to those who regard it, and will be a heavy weight upon those who do not, a dead weight. Here is, I. A prophecy against the Jews' unrighteous neighbours—the Syrians, Tyrians, Philistines, and others (Zec 9:1-6), with an intimation of mercy to some of them, in their conversion (Zec 9:7), and a promise of mercy to God's people, in their protection, Zec 9:8. II. A prophecy of their righteous King, the Messiah, and his coming, with a description of him (Zec 9:9) and of his kingdom, the nature and extent of it, Zec 9:10. III. An account of the obligation the Jews lay under to Christ for their deliverance out of their captivity in Babylon, Zec 9:11,12. IV. A prophecy of the victories and successes God would grant to the Jews over their enemies, as typical of our great deliverance by Christ, Zec 9:13-15. V. A promise of great plenty, and joy, and honour, which God had in reserve for his people (Zec 9:16,17), which was written for their encouragement.
 

@@ -1,8 +1,11 @@
 ---
+title: "Jeremiah 36 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "36"
+description: "Here is another expedient tried to work upon this heedless and untoward people, but it is tried in vain. A roll of a book is provided, containing an abstract or abridgment of all t..."
 weight: 36
 ---
 
-# Chapter 36
+# Jeremiah 36 
 
 Here is another expedient tried to work upon this heedless and untoward people, but it is tried in vain. A roll of a book is provided, containing an abstract or abridgment of all the sermons that Jeremiah had preached to them, that they might be put in mind of what they had heard and might the better understand it, when they had it all before them at one view. Now here we have, I. The writing of this roll by Baruch, as Jeremiah dictated it, Jer 36:1-4. II. The reading of the roll by Baruch to all the people publicly on a fast-day (Jer 36:5-10), afterwards by Baruch to the princes privately (Jer 36:11-19), and lastly by Jehudi to the king, Jer 36:20,21. III. The burning of the roll by the king, with orders to prosecute Jeremiah and Baruch, Jer 36:22-26. IV. The writing of another roll, with large additions, particularly of Jehoiakim's doom for burning the former, Jer 36:27-32.
 

@@ -1,8 +1,11 @@
 ---
+title: "Isaiah 65 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "65"
+description: "We are now drawing towards the conclusion of this evangelical prophecy, the last two chapters of which direct us to look as far forward as the new heavens and the new earth, the ne..."
 weight: 65
 ---
 
-# Chapter 65
+# Isaiah 65 
 
 We are now drawing towards the conclusion of this evangelical prophecy, the last two chapters of which direct us to look as far forward as the new heavens and the new earth, the new world which the gospel dispensation should bring in, and the separation that should by it be made between the precious and the vile. "For judgment" (says Christ) "have I come into this world." And why should it seem absurd that the prophet here should speak of that to which all the prophets bore witness? 1Pe 1:10,11. The rejection of the Jews, and the calling in of the Gentiles, are often mentioned in the New Testament as that which was foreseen and foretold by the prophets, Ac 10:43,13:40, Ro 16:26. In this chapter we have, I. The anticipating of the Gentiles with the gospel call, Isa 65:1. II. The rejection of the Jews for their obstinacy and unbelief, Isa 65:2-7. III. The saving of a remnant of them by bringing them into the gospel church, Isa 65:8-10. IV. The judgments of God that should pursue the rejected Jews, Isa 65:11-16. V. The blessings reserved for the Christian church, which should be its joy and glory, Isa 65:17-25. But these things are here prophesied of under the type and figure of the difference God would make between some and others of the Jews after their return out of captivity, between those that feared God and those that did not, with reproofs of the sins then found among them and promises of the blessings then in reserve for them.
 

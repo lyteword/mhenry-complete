@@ -1,8 +1,11 @@
 ---
+title: "Isaiah 37 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "37"
+description: "In this chapter we have a further repetition of the story which we had before in the book of Kings concerning Sennacherib. In the foregoing chapter we had him conquering and threat..."
 weight: 37
 ---
 
-# Chapter 37
+# Isaiah 37 
 
 In this chapter we have a further repetition of the story which we had before in the book of Kings concerning Sennacherib. In the foregoing chapter we had him conquering and threatening to conquer. In this chapter we have him falling, and at last fallen, in answer to prayer, and in fulfillment of many of the prophecies which we have met with in the foregoing chapters. Here we have, I. Hezekiah's pious reception of Rabshakeh's impious discourse, Isa 37:1. II. The gracious message he sent to Isaiah to desire his prayers, Isa 37:2-5. III. The encouraging answer which Isaiah sent to him from God, assuring him that God would plead his cause against the king of Assyria, Isa 37:6,7. IV. An abusive letter which the king of Assyria sent to Hezekiah, to the same purport with Rabshakeh's speech, Isa 37:8-13. V. Hezekiah's humble prayer to God upon the receipt of this letter, Isa 37:14-20. VI. The further full answer which God sent him by Isaiah, promising him that his affairs should shortly take a happy turn, that the storm should blow over and every thing should appear bright and serene, Isa 37:21-35. VII. The immediate accomplishment of this prophecy in the ruin of his army (Isa 37:36) and the murder of himself, Isa 37:37,38. All this was largely opened, 2Ki 19:1-37
 

@@ -1,8 +1,11 @@
 ---
+title: "Ezekiel 33 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "33"
+description: "The prophet has now come off his circuit, which he went as judge, in God\'s name, to try and pass sentence upon the neighbouring nations, and, having finished with them, and read th..."
 weight: 33
 ---
 
-# Chapter 33
+# Ezekiel 33 
 
 The prophet has now come off his circuit, which he went as judge, in God's name, to try and pass sentence upon the neighbouring nations, and, having finished with them, and read them all their doom, in the eight chapters foregoing, he now returns to the children of his people, and receives further instructions what to say to them. I. He must let them know what office he was in among them as a prophet, that he was a watchman, and had received a charge concerning them, for which he was accountable, Eze 33:1-9. The substance of this we had before, Eze 3:17, etc. II. He must let them know upon what terms they stand with God, that they are upon their trial, upon their good behaviour, that if a wicked man repent he shall not perish, but that if a righteous man apostatize he shall perish, Eze 33:10-20. III. Here is a particular message sent to those who yet remained in the land of Israel, and (which is very strange) grew secure there, and confident that they should take root there again, to tell them that their hopes would fail them because they persisted in their sins, Eze 33:21-29. IV. Here is a rebuke to those who personally attended Ezekiel's ministry, but were not sincere in their professions of devotion, Eze 33:30-33.
 

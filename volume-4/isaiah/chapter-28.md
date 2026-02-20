@@ -1,8 +1,11 @@
 ---
+title: "Isaiah 28 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "28"
+description: "In this chapter, I. The Ephraimites are reproved and threatened for their pride and drunkenness, their security and sensuality, Isa 28:1-8. But, in the midst of this, here is a gra..."
 weight: 28
 ---
 
-# Chapter 28
+# Isaiah 28 
 
 In this chapter, I. The Ephraimites are reproved and threatened for their pride and drunkenness, their security and sensuality, Isa 28:1-8. But, in the midst of this, here is a gracious promise of God's favour to the remnant of his people, Isa 28:5,6. II. They are likewise reproved and threatened for their dulness and stupidity, and unaptness to profit by the instructions which the prophets gave them in God's name, Isa 28:9-13. III. The rulers of Jerusalem are reproved and threatened for their insolent contempt of God's judgments, and setting them at defiance; and, after a gracious promise of Christ and his grace, they are made to know that the vain hopes of escaping the judgments of God with which they flattered themselves would certainly deceive them, Isa 28:14-22. IV. All this is confirmed by a comparison borrowed from the method which the husbandman takes with his ground and grain, according to which they must expect God would proceed with his people, whom he had lately called his threshing and the corn of his floor (Isa 21:10) Isa 28:23-29. This is written for our admonition, and is profitable for reproof and warning to us.
 

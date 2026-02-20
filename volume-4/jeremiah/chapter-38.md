@@ -1,8 +1,11 @@
 ---
+title: "Jeremiah 38 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "38"
+description: "In this chapter, just as in the former, we have Jeremiah greatly debased under the frowns of the princes, and yet greatly honoured by the favour of the king. They used him as a cri..."
 weight: 38
 ---
 
-# Chapter 38
+# Jeremiah 38 
 
 In this chapter, just as in the former, we have Jeremiah greatly debased under the frowns of the princes, and yet greatly honoured by the favour of the king. They used him as a criminal; he used him as a privy-counsellor. Here, I. Jeremiah for his faithfulness is put into the dungeon by the princes, Jer 38:1-6. II. At the intercession of Ebed-melech the Ethiopian, by special order from the king, he is taken up out of the dungeon and confined only to the court of the prison, Jer 38:7-13. III. He has a private conference with the king upon the present conjuncture of affairs, Jer 38:14-22. IV. Care is taken to keep that conference private, Jer 38:24-28.
 

@@ -1,8 +1,11 @@
 ---
+title: "Jeremiah 25 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "25"
+description: "The prophecy of this chapter bears date some time before those prophecies in the chapters next foregoing, for they are not placed in the exact order of time in which they were deli..."
 weight: 25
 ---
 
-# Chapter 25
+# Jeremiah 25 
 
 The prophecy of this chapter bears date some time before those prophecies in the chapters next foregoing, for they are not placed in the exact order of time in which they were delivered. This is dated in the first year of Nebuchadrezzar, that remarkable year when the sword of the Lord began to be drawn and furbished. Here is, I. A review of the prophecies that had been delivered to Judah and Jerusalem for many years past, by Jeremiah himself and other prophets, with the little regard given to them and the little success of them, Jer 25:1-7. II. A very express threatening of the destruction of Judah and Jerusalem, by the king of Babylon, for their contempt of God, and their continuance in sin (Jer 25:8-11), to which is annexed a promise of their deliverance out of their captivity in Babylon, after 70 years, Jer 25:12-14. III. A prediction of the devastation of divers other nations about, by Nebuchadrezzar, represented by a "cup of fury" put into their hands (Jer 25:15-28), by a sword sent among them (Jer 25:29-33), and a desolation made among the shepherds and their flocks and pastures (Jer 25:34-38); so that we have here judgment beginning at the house of God, but not ending there.
 

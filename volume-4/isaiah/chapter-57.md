@@ -1,8 +1,11 @@
 ---
+title: "Isaiah 57 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "57"
+description: "The prophet, in this chapter, makes his observations, I. Upon the deaths of good men, comforting those that were taken away in their integrity and reproving those that did not make..."
 weight: 57
 ---
 
-# Chapter 57
+# Isaiah 57 
 
 The prophet, in this chapter, makes his observations, I. Upon the deaths of good men, comforting those that were taken away in their integrity and reproving those that did not make a due improvement of such providences, Isa 57:1,2. II. Upon the gross idolatries and spiritual whoredoms which the Jews were guilty of, and the destroying judgments they were thereby bringing upon themselves, Isa 57:3-12. III. Upon the gracious returns of God to his people to put an end to their captivity and re-establish their prosperity, Isa 57:13-21.
 

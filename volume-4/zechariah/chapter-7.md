@@ -1,8 +1,11 @@
 ---
+title: "Zechariah 7 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "7"
+description: "We have done with the visions, but not with the revelations of this book; the prophet sees no more such signs as he had seen, but still \"the word of the Lord came to him.\" In this ..."
 weight: 7
 ---
 
-# Chapter 7
+# Zechariah 7 
 
 We have done with the visions, but not with the revelations of this book; the prophet sees no more such signs as he had seen, but still "the word of the Lord came to him." In this chapter we have, I. A case of conscience proposed to the prophet by the children of the captivity concerning fasting, whether they should continue their solemn fasts which they had religiously observed during the seventy years of their captivity, Zec 7:1-3. II. The answer to this question, which is given in this and the next chapter; and this answer was given not all at once, but by piece-meal, and, it should seem, at several times, for here are four distinct discourses which have all of them reference to this case, each of them prefaced with "the word of the Lord came," Zec 4:8,8:1,18. The method of them is very observable. In this chapter, 1. The prophet sharply reproves them for the mismanagements of their fasts, Zec 7:4-7. 2. He exhorts them to reform their lives, which would be the best way of fasting, and to take heed of those sins which brought those judgments upon them which they kept these fasts in memory of, Zec 7:8-14. And then in the next chapter, having searched the wound, he binds it up, and heals it, with gracious assurances of great mercy God had yet in store for them, by which he would turn their fasts into feasts.
 

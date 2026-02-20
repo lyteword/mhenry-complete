@@ -1,8 +1,11 @@
 ---
+title: "Ezekiel 5 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "5"
+description: "In this chapter we have a further, and no less terrible, denunciation of the judgments of God, which were coming with all speed and force upon the Jewish nation, which would utterl..."
 weight: 5
 ---
 
-# Chapter 5
+# Ezekiel 5 
 
 In this chapter we have a further, and no less terrible, denunciation of the judgments of God, which were coming with all speed and force upon the Jewish nation, which would utterly ruin it; for when God judges he will overcome. This destruction of Judah and Jerusalem is here, I. Represented by a sign, the cutting, and burning, and scattering of hair, Eze 5:1-4. II. That sign is expounded, and applied to Jerusalem. 1. Sin is charged upon Jerusalem as the cause of this desolation—contempt of God's law (Eze 5:5-7) and profanation of his sanctuary, Eze 5:11. 2. Wrath is threatened, great wrath (Eze 5:8-10), a variety of miseries (Eze 5:12,16,17), such as should be their reproach and ruin, Eze 5:13-15.
 

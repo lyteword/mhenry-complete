@@ -1,8 +1,11 @@
 ---
+title: "Amos 1 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "1"
+description: "In this chapter we have, I. The general title of this prophecy (Am 1:1), with the general scope of it, Am 1:2. II. God\'s particular controversy with Syria (Am 1:3-5), with Palestin..."
 weight: 1
 ---
 
-# Chapter 1
+# Amos 1 
 
 In this chapter we have, I. The general title of this prophecy (Am 1:1), with the general scope of it, Am 1:2. II. God's particular controversy with Syria (Am 1:3-5), with Palestine (Am 1:6-8), with Tyre (Am 1:9), with Edom (Am 1:11), and with Ammon (Am 1:13-15), for their cruelty to his people and the many injuries they had done them. This explains God's pleading with the nations, Joe 3:2.
 

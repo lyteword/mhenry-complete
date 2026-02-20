@@ -1,8 +1,11 @@
 ---
+title: "Hosea 14 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "14"
+description: "The strain of this chapter differs from that of the foregoing chapters. Those were generally made up of reproofs for sin and threatenings of wrath; but this is made up of exhortati..."
 weight: 14
 ---
 
-# Chapter 14
+# Hosea 14 
 
 The strain of this chapter differs from that of the foregoing chapters. Those were generally made up of reproofs for sin and threatenings of wrath; but this is made up of exhortations to repentance and promises of mercy, and with these the prophet closes; for all the foregoing convictions and terrors he had spoken were designed to prepare and make way for these. He wounds that he may heal. The Spirit convinces that he may comfort. This chapter is a lesson for penitents; and some such there were in Israel at this day, bad as things were. We have here, I. Directions in repenting, what to do and what to say, Ho 14:1-3. II. Encouragements to repent taken from God's readiness to receive returning sinners (Ho 14:4,8) and the comforts he has treasured up for them, Ho 14:5-7. III. A solemn recommendation of these things to our serious thoughts, Ho 14:9.
 

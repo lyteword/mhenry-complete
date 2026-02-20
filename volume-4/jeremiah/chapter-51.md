@@ -1,8 +1,11 @@
 ---
+title: "Jeremiah 51 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "51"
+description: "The prophet, in this chapter, goes on with the prediction of Babylon\'s fall, to which other prophets also bore witness. He is very copious and lively in describing the foresight Go..."
 weight: 51
 ---
 
-# Chapter 51
+# Jeremiah 51 
 
 The prophet, in this chapter, goes on with the prediction of Babylon's fall, to which other prophets also bore witness. He is very copious and lively in describing the foresight God had given him of it, for the encouragement of the pious captives, whose deliverance depended upon it and was to be the result of it. Here is, I. The record of Babylon's doom, with the particulars of it, intermixed with the grounds of God's controversy with her, many aggravations of her fall, and great encouragements given thence to the Israel of God, that suffered such hard things by her, Jer 51:1-58. II. The representation and ratification of this by the throwing of a copy of this prophecy into the river Euphrates, Jer 51:59-64.
 

@@ -1,8 +1,11 @@
 ---
+title: "Isaiah 59 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "59"
+description: "In this chapter we have sin appearing exceedingly sinful, and grace appearing exceedingly gracious; and, as what is here said of the sinner\'s sin (Isa 59:7,8) is applied to the gen..."
 weight: 59
 ---
 
-# Chapter 59
+# Isaiah 59 
 
 In this chapter we have sin appearing exceedingly sinful, and grace appearing exceedingly gracious; and, as what is here said of the sinner's sin (Isa 59:7,8) is applied to the general corruption of mankind (Ro 3:15), so what is here said of a Redeemer (Isa 59:20) is applied to Christ, Ro 11:26. I. It is here charged upon this people that they had themselves stopped the current of God's favours to them, and the particular sins are specified which kept good things from them, Isa 59:1-8. II. It is here charged upon them that they had themselves procured the judgments of God upon them, and they are told both what the judgments were which they had brought upon their own heads (Isa 59:9-11) and what the sins were which provoked God to send those judgments, Isa 59:12-15. III. It is here promised that, notwithstanding this, God would work deliverance for them, purely for his own name's sake (Isa 59:16-19), and would reserve mercy in store for them and entail it upon them, Isa 59:20,21.
 

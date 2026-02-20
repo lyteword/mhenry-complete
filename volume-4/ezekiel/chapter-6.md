@@ -1,8 +1,11 @@
 ---
+title: "Ezekiel 6 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "6"
+description: "In this chapter we have, I. A threatening of the destruction of Israel for their idolatry, and the destruction of their idols with them, Eze 6:1-7. II. A promise of the gracious re..."
 weight: 6
 ---
 
-# Chapter 6
+# Ezekiel 6 
 
 In this chapter we have, I. A threatening of the destruction of Israel for their idolatry, and the destruction of their idols with them, Eze 6:1-7. II. A promise of the gracious return of a remnant of them to God, by true repentance and reformation, Eze 6:8-10. III. Directions given to the prophet and others, the Lord's servants, to lament both the iniquities and the calamities of Israel, Eze 6:11-14.
 

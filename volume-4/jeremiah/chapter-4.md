@@ -1,8 +1,11 @@
 ---
+title: "Jeremiah 4 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "4"
+description: "It should seem that the Jer 3:29-37,4:1-2 of this chapter might better have been joined to the close of the foregoing chapter, for they are directed to Israel, the ten tribes, by w..."
 weight: 4
 ---
 
-# Chapter 4
+# Jeremiah 4 
 
 It should seem that the Jer 3:29-37,4:1-2 of this chapter might better have been joined to the close of the foregoing chapter, for they are directed to Israel, the ten tribes, by way of reply to their compliance with God's call, directing and encouraging them to hold their resolution, Jer 4:1,2. The rest of the chapter concerns Judah and Jerusalem. I. They are called to repent and reform, Jer 4:3,4. II. They are warned of the advance of Nebuchadnezzar and his forces against them, and are told that it is for their sins, from which they are again exhorted to wash themselves, Jer 4:5-18. III. To affect them the more with the greatness of the desolation that was coming, the prophet does himself bitterly lament it, and sympathize with his people in the calamities it brought upon them, and the plunge it brought them to, representing it as a reduction of the world to its first chaos, Jer 4:19-31.
 

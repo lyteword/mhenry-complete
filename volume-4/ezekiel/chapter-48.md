@@ -1,8 +1,11 @@
 ---
+title: "Ezekiel 48 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "48"
+description: "In this chapter we have particular directions given for the distribution of the land, of which we had the metes and bounds assigned in the foregoing chapter. I. The portions of the..."
 weight: 48
 ---
 
-# Chapter 48
+# Ezekiel 48 
 
 In this chapter we have particular directions given for the distribution of the land, of which we had the metes and bounds assigned in the foregoing chapter. I. The portions of the twelve tribes, seven to the north of the sanctuary (Eze 48:1-7) and five to the south, Eze 48:23-29. II. The allotment of land for the sanctuary, and the priests (Eze 48:8-11), for the Levites (Eze 48:12-14), for the city (Eze 48:15-20), and for the prince, Eze 48:21,22. Much of this we had before, Eze 45:1-25 III. A plan of the city, its gates, and the new name given to it (Eze 48:30-35), which seals up, and concludes, the vision and prophecy of this book.
 

@@ -1,8 +1,11 @@
 ---
+title: "Micah 6 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "6"
+description: "After the precious promises in the two foregoing chapters, relating to the Messiah\'s kingdom, the prophet is here directed to set the sins of Israel in order before them, for their..."
 weight: 6
 ---
 
-# Chapter 6
+# Micah 6 
 
 After the precious promises in the two foregoing chapters, relating to the Messiah's kingdom, the prophet is here directed to set the sins of Israel in order before them, for their conviction and humiliation, as necessary to make way for the comfort of gospel-grace. Christ's forerunner was a reprover, and preached repentance, and so prepared his way. Here, I. God enters an action against his people for their base ingratitude, and the bad returns they had made him for his favours, Mic 6:1-5. II. He shows the wrong course they should have taken, Mic 6:6-8. III. He calls upon them to hear the voice of his judgments, and sets the sins in order before them for which he still proceeded in his controversy with them (Mic 6:9), their injustice (Mic 6:10-15), and their idolatry (Mic 6:16), for both which ruin was coming upon them.
 

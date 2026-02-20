@@ -1,8 +1,11 @@
 ---
+title: "Zechariah 14 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "14"
+description: "Divers things were foretold, in the two foregoing chapters, which should come to pass \"in that day;\" this chapter speaks of a \"day of the Lord that cometh,\" a day of his judgment, ..."
 weight: 14
 ---
 
-# Chapter 14
+# Zechariah 14 
 
 Divers things were foretold, in the two foregoing chapters, which should come to pass "in that day;" this chapter speaks of a "day of the Lord that cometh," a day of his judgment, and ten times in the foregoing chapters, and seven times in this, it is repeated, "in that day;" but what that day is that is here meant is uncertain, and perhaps will be so (as the Jews speak) till Elias comes; whether it refer to the whole period of time from the prophet's days to the days of the Messiah, or to some particular events in that time, or to Christ's coming, and the setting up of his kingdom upon the ruins of the Jewish polity, we cannot determine, but divers passages here seem to look as far forward as gospel-times. Now the "day of the Lord" brings with it both judgment and mercy, mercy to his church, judgment to her enemies and persecutors. I. The gates of hell are here threatening the church (Zec 14:1,2) and yet not prevailing. II. The power of Heaven appears here for the church and against the enemies of it, Zec 14:3,5. III. The events concerning the church are here represented as mixed (Zec 14:6,7), but issuing well at last. IV. The spreading of the means of knowledge is here foretold, and the setting up of the gospel-kingdom in the world (Zec 14:8,9), which shall be the enlargement and establishment of another Jerusalem, Zec 14:10,11. V. Those shall be reckoned with that fought against Jerusalem (Zec 14:12-15) and those that neglect his worship there, Zec 14:17-19. VI. It is promised that there shall be great resort to the church, and great purity and piety in it, Zec 14:16,20,21.
 

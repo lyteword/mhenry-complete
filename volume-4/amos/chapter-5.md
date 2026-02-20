@@ -1,8 +1,11 @@
 ---
+title: "Amos 5 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "5"
+description: "The scope of this chapter is to prosecute the exhortation given to Israel in the close of the foregoing chapter to prepare to meet their God; the prophet here tells them, I. What p..."
 weight: 5
 ---
 
-# Chapter 5
+# Amos 5 
 
 The scope of this chapter is to prosecute the exhortation given to Israel in the close of the foregoing chapter to prepare to meet their God; the prophet here tells them, I. What preparation they must make; they must "seek the Lord," and not seek any more to idols (Am 5:4-8); they must seek good, and love it, Am 5:14,15. II. Why they must make this preparation to meet their God, 1. Because of the present deplorable condition they were in, Am 5:1-3. 2. Because it was by sin that they were brought into such a condition, Am 5:7,10-12. 3. Because it would be their happiness to seek God, and he was ready to be found of them, Am 5:8,9,14. 4. Because he would proceed, in his wrath, to their utter ruin, if they did not seek him, Am 5:5,6,13,16,17. 5. Because all their confidences would fail them if they did not seek unto God, and make him their friend. (1.) Their profane contempt of God's judgments, and setting them at defiance, would not secure them, Am 5:18-20. (2.) Their external services in religion, and the shows of devotion, would not avail to turn away the wrath of God, Am 5:21-24. (3.) Their having been long in possession of church-privileges, and in a course of holy duties, would not be their protection, while all along they had kept up their idolatrous customs, Am 5:25-27. They have therefore no way left them to save themselves, but by repentance and reformation.
 

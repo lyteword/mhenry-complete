@@ -1,8 +1,11 @@
 ---
+title: "Jonah 1 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "1"
+description: "In this chapter we have, I. A command given to Jonah to preach at Nineveh, Jon 1:1,2. II. Jonah\'s disobedience to that command, Jon 1:3. III. The pursuit and arrest of him for that..."
 weight: 1
 ---
 
-# Chapter 1
+# Jonah 1 
 
 In this chapter we have, I. A command given to Jonah to preach at Nineveh, Jon 1:1,2. II. Jonah's disobedience to that command, Jon 1:3. III. The pursuit and arrest of him for that disobedience by a storm, in which he was asleep, Jon 1:4-6. IV. The discovery of him, and his disobedience, to be the cause of the storm, Jon 1:7-10. V. The casting of him into the sea, for the stilling of the storm, Jon 1:11-16. VI. The miraculous preservation of his life there in the belly of a fish (Jon 1:17), which was his reservation for further services.
 

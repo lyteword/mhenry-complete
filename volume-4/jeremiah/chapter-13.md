@@ -1,8 +1,11 @@
 ---
+title: "Jeremiah 13 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "13"
+description: "Still the prophet is attempting to awaken this secure and stubborn people to repentance, by the consideration of the judgments of God that were coming upon them. He is to tell them..."
 weight: 13
 ---
 
-# Chapter 13
+# Jeremiah 13 
 
 Still the prophet is attempting to awaken this secure and stubborn people to repentance, by the consideration of the judgments of God that were coming upon them. He is to tell them, I. By the sign of a girdle spoiled that their pride should be stained, Jer 13:1-11. II. By the sign of bottles filled with wine that their counsels should be blasted, Jer 13:12-14. III. In consideration hereof he is to call them to repent and humble themselves, Jer 13:15-21. IV. He is to convince them that it is for their obstinacy and incorrigibleness that the judgments of God are so prolonged and brought to extremity, Jer 13:22-27.
 

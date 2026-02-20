@@ -1,8 +1,11 @@
 ---
+title: "Jeremiah 24 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "24"
+description: "In the close of the foregoing chapter we had a general prediction of the utter ruin of Jerusalem, that it should be forsaken and forgotten, which, whatever effect it had upon other..."
 weight: 24
 ---
 
-# Chapter 24
+# Jeremiah 24 
 
 In the close of the foregoing chapter we had a general prediction of the utter ruin of Jerusalem, that it should be forsaken and forgotten, which, whatever effect it had upon others, we have reason to think made the prophet himself very melancholy. Now, in this chapter, God encourages him, by showing him that, though the desolation seemed to be universal, yet all were not equally involved in it, but God knew how to distinguish, how to separate, between the precious and the vile. Some had gone into captivity already with Jeconiah; over them Jeremiah lamented, but God tells him that it should turn to their good. Others yet remained hardened in their sins, against whom Jeremiah had a just indignation; but those, God tells him, should go into captivity, and it should prove to their hurt. To inform the prophet of this, and affect him with it, here is, I. A vision of two baskets of figs, one very good and the other very bad, Jer 24:1-3. II. The explication of this vision, applying the good figs to those that were already sent into captivity for their good (Jer 24:4-7), the bad figs to those that should hereafter be sent into captivity for their hurt, Jer 24:8-10.
 

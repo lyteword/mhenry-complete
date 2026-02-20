@@ -1,8 +1,11 @@
 ---
+title: "Isaiah 2 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "2"
+description: "With this chapter begins a new sermon, which is continued in the two following chapters. The subject of this discourse is Judah and Jerusalem, Isa 2:1. In this chapter the prophet ..."
 weight: 2
 ---
 
-# Chapter 2
+# Isaiah 2 
 
 With this chapter begins a new sermon, which is continued in the two following chapters. The subject of this discourse is Judah and Jerusalem, Isa 2:1. In this chapter the prophet speaks, I. Of the glory of the Christians, Jerusalem, the gospel-church in the latter days, in the accession of many to it (Isa 2:2,3), and the great peace it should introduce into the world (Isa 2:4), whence he infers the duty of the house of Jacob, Isa 2:5. II. Of the shame of the Jews, Jerusalem, as it then was, and as it would be after its rejection of the gospel and being rejected of God. 1. Their sin was their shame, Isa 2:6-9. 2. God by his judgments would humble them and put them to shame, Isa 2:10-17. 3. They should themselves be ashamed of their confidence in their idols and in an arm of flesh, Isa 2:18-22. And now which of these Jerusalems will we be the inhabitants of—that which is full of the knowledge of God, which will be our everlasting honour, or that which is full of horses and chariots, and silver and gold, and such idols, which will in the end be our shame?
 

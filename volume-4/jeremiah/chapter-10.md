@@ -1,8 +1,11 @@
 ---
+title: "Jeremiah 10 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "10"
+description: "We may conjecture that the prophecy of this chapter was delivered after the first captivity, in the time of Jeconiah or Jehoiachin, when many were carried away to Babylon; for it h..."
 weight: 10
 ---
 
-# Chapter 10
+# Jeremiah 10 
 
 We may conjecture that the prophecy of this chapter was delivered after the first captivity, in the time of Jeconiah or Jehoiachin, when many were carried away to Babylon; for it has a double reference:—I. To those that were carried away into the land of the Chaldeans, a country notorious above any other for idolatry and superstition; and they are here cautioned against the infection of the place, not to learn the way of the heathen (Jer 10:1,2), for their astrology and idolatry are both foolish things (Jer 10:3-5), and the worshippers of idols brutish, Jer 10:8,9. So it will appear in the day of their visitation, Jer 10:14,15. They are likewise exhorted to adhere firmly to the God of Israel, for there is none like him, Jer 10:6,7. He is the true God, lives for ever, and has the government of the world (Jer 10:10-13), and his people are happy in him, Jer 10:16. II. To those that yet remained in their own land. They are cautioned against security, and told to expect distress (Jer 10:17,18) and that by a foreign enemy, which God would bring upon them for their sin, Jer 10:20-22. This calamity the prophet laments (Jer 10:19) and prays for the mitigation of it, Jer 10:23-25.
 

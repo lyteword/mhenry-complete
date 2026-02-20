@@ -1,8 +1,11 @@
 ---
+title: "Ezekiel 21 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "21"
+description: "In this chapter we have, I. An explication of the prophecy in the close of the foregoing chapter concerning the fire in the forest, which the people complained they could not under..."
 weight: 21
 ---
 
-# Chapter 21
+# Ezekiel 21 
 
 In this chapter we have, I. An explication of the prophecy in the close of the foregoing chapter concerning the fire in the forest, which the people complained they could not understand (Eze 21:1-5), with directions to the prophet to show himself deeply affected with it, Eze 21:6,7. II. A further prediction of the sword that was coming upon the land, by which all should be laid waste; and this expressed very emphatically, Eze 21:8-17. III. A prospect given of the king of Babylon's approach to Jerusalem, to which he was determined by divination, Eze 21:18-24. IV. Sentence passed upon Zedekiah king of Judah, Eze 21:25-27. V. The destruction of the Ammonites by the sword foretold, Eze 21:28-32. Thus is this chapter all threatenings.
 

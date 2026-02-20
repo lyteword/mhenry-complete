@@ -1,8 +1,11 @@
 ---
+title: "Jeremiah 48 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "48"
+description: "Moab is next set to the bar before Jeremiah the prophet, whom God has constituted judge over nations and kingdoms, from his mouth to receive its doom. Isaiah\'s predictions concerni..."
 weight: 48
 ---
 
-# Chapter 48
+# Jeremiah 48 
 
 Moab is next set to the bar before Jeremiah the prophet, whom God has constituted judge over nations and kingdoms, from his mouth to receive its doom. Isaiah's predictions concerning Moab had had their accomplishment (we had the predictions Isa 15:1-16:14 and the like Am 2:1), and they were fulfilled when the Assyrians, under Salmanassar, invaded and distressed Moab. But this is a prophecy of the desolations of Moab by the Chaldeans, which were accomplished under Nebuzaradan, about five years after he had destroyed Jerusalem. Here is, I. The destruction foretold, that it should be great and general, should extend itself to all parts of the country (Jer 48:1-6,8, and again Jer 48:21-25,34), that spoilers should come upon them and force some to flee (Jer 48:9), should carry many into captivity (Jer 48:12,46), that the enemy should come shortly (Jer 48:16), come swiftly and surprise them (Jer 48:40,41), that he should make thorough work (Jer 48:10) and lay the country quite waste, though it was very strong (Jer 48:14,15), that there should be no escaping (Jer 48:42,45), that this should force them to quit their idols (Jer 48:13,35) and put an end to all their joy (Jer 48:33,34), that their neighbours shall lament them (Jer 48:17-19) and the prophet himself does (Jer 48:31,36, etc.). II. The causes of this destruction assigned; it was sin that brought this ruin upon them, their pride, and security, and carnal confidence (Jer 48:7,11,14,29), and their contempt of and enmity to God and his people, Jer 48:26,27,30. III. A promise of the restoration of Moab, Jer 48:48).
 

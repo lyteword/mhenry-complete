@@ -1,8 +1,11 @@
 ---
+title: "Zechariah 10 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "10"
+description: "The scope of this chapter is much the same with that of the foregoing chapter—to encourage the Jews that had returned with hopes that though they had been under divine rebukes for ..."
 weight: 10
 ---
 
-# Chapter 10
+# Zechariah 10 
 
 The scope of this chapter is much the same with that of the foregoing chapter—to encourage the Jews that had returned with hopes that though they had been under divine rebukes for their negligence in rebuilding the temple, and were now surrounded with enemies and dangers, yet God would do them good, and make them prosperous at home and victorious abroad. Now, I. They are here directed to eye the great God in all events that concerned them, and, both in the evils they suffered and in the comforts they desired, to acknowledge his hand, Zec 10:1-4. II. They are encouraged to expect strength and success from him in all their struggles with the enemies of their church and state, and to hope that the issue would be glorious at last, Zec 10:5-12.
 

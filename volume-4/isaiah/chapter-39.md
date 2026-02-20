@@ -1,8 +1,11 @@
 ---
+title: "Isaiah 39 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "39"
+description: "The story of this chapter likewise we had before, 2Ki 20:12, etc. It is here repeated, not only as a very memorable and improvable passage, but because it concludes with a prophecy..."
 weight: 39
 ---
 
-# Chapter 39
+# Isaiah 39 
 
 The story of this chapter likewise we had before, 2Ki 20:12, etc. It is here repeated, not only as a very memorable and improvable passage, but because it concludes with a prophecy of the captivity in Babylon; and as the former part of the prophecy of this book frequently referred to Sennacherib's invasion and the defeat of that, to which therefore the history of that was very fitly subjoined, so the latter part of this book speaks much of the Jews' captivity in Babylon and their deliverance out of that, to which therefore the first prediction of it, with the occasion thereof, is very fitly prefixed. We have here, I. The pride and folly of Hezekiah, in showing his treasures to the king of Babylon's ambassadors that were sent to congratulate him on his recovery, Isa 39:1,2. II. Isaiah's examination of him concerning it, in God's name, and his confession of it, Isa 39:3,4. III. The sentence passed upon him for it, that all his treasures should, in process of time, be carried to Babylon, Isa 39:5-7. IV. Hezekiah's penitent and patient submission to this sentence, Isa 39:8.
 

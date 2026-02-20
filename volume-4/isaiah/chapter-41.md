@@ -1,8 +1,11 @@
 ---
+title: "Isaiah 41 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "41"
+description: "This chapter, as the former, in intended both for the conviction of idolaters and for the consolation of all God\'s faithful worshippers; for the Spirit is sent, and ministers are e..."
 weight: 41
 ---
 
-# Chapter 41
+# Isaiah 41 
 
 This chapter, as the former, in intended both for the conviction of idolaters and for the consolation of all God's faithful worshippers; for the Spirit is sent, and ministers are employed by him, both to convince and to comfort. And however this might be primarily intended for the conviction of Babylonians, and the comfort of Israelites, or for the conviction of those in Israel that were addicted to idolatry, as multitudes were, and the comfort of those that kept their integrity, doubtless it was intended both for admonition and encouragement to us, admonition to keep ourselves from idols and encouragement to trust in God. Here, I. God by the prophet shows the folly of those that worshipped idols, especially that thought their idols able to contest with him and control him, Isa 41:1-9. II. He encourages his faithful ones to trust in him, with an assurance that he would take their part against their enemies, make them victorious over them, and bring about a happy change of their affairs, Isa 41:10-20. III. He challenges the idols, that were rivals with him for men's adoration, to vie with him either for knowledge or power, either to show things to come or to do good or evil, Isa 41:21-29. So that the chapter may be summed up in those words of Elijah, "If Jehovah be God, then follow him; but, if Baal be God, then follow him;" and in the people's acknowledgment, upon the issue of the trial, "Jehovah he is the God, Jehovah he is the God."
 

@@ -1,8 +1,11 @@
 ---
+title: "Jeremiah 41 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "41"
+description: "It is a very tragical story that is related in this chapter, and shows that evil pursues sinners. The black cloud that was gathering in the foregoing chapter here bursts in a dread..."
 weight: 41
 ---
 
-# Chapter 41
+# Jeremiah 41 
 
 It is a very tragical story that is related in this chapter, and shows that evil pursues sinners. The black cloud that was gathering in the foregoing chapter here bursts in a dreadful storm. Those few Jews that escaped the captivity were proud to think that they were still in their own land, when their brethren had gone they knew not whither, were fond of the wine and summer-fruits they had gathered, and were very secure under Gedaliah's protectorship, when, on a sudden, even these remains prove ruins too. I. Gedaliah is barbarously slain by Ishmael, Jer 41:1,2. II. All the Jews that were with him were slain likewise (Jer 41:3) and a pit filled with their dead bodies, Jer 41:9. III. Some devout men, to the number of fourscore, that were going towards Jerusalem, were drawn in by Ishmael, and murdered likewise, Jer 41:4-7. Only ten of them escaped, Jer 41:8. IV. Those that escaped the sword were taken prisoners by Ishmael, and carried off towards the country of the Ammonites, Jer 41:10. V. By the conduct and courage of Johanan, though the death of the slain is not revenged, yet the prisoners are recovered, and he now becomes their commander-in-chief, Jer 41:11-16. VI. His project is to carry them into the land of Egypt (ver. Jer 41:17-18), which we shall hear more of in the next chapter.
 

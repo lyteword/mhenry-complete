@@ -1,8 +1,11 @@
 ---
+title: "Isaiah 44 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "44"
+description: "God, by the prophet, goes on in this chapter, as before, I. To encourage his people with the assurance of great blessings he had in store for them at their return out of captivity,..."
 weight: 44
 ---
 
-# Chapter 44
+# Isaiah 44 
 
 God, by the prophet, goes on in this chapter, as before, I. To encourage his people with the assurance of great blessings he had in store for them at their return out of captivity, and those typical of much greater which the gospel church, his spiritual Israel, should partake of in the days of the Messiah; and hereby he proves himself to be God alone against all pretenders, Isa 44:1-8. II. To expose the sottishness and amazing folly of idol-makers and idol-worshippers, Isa 44:9-20. III. To ratify and confirm the assurances he had given to his people of those great blessings, and to raise their joyful and believing expectations of them, Isa 44:21-28.
 

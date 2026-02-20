@@ -1,8 +1,11 @@
 ---
+title: "Joel 2 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "2"
+description: "In this chapter we have, I. A further description of that terrible desolation which should be made in the land of Judah by the locusts and caterpillars, Joe 2:1-11. II. A serious c..."
 weight: 2
 ---
 
-# Chapter 2
+# Joel 2 
 
 In this chapter we have, I. A further description of that terrible desolation which should be made in the land of Judah by the locusts and caterpillars, Joe 2:1-11. II. A serious call to the people, when they are under this sore judgment, to return and repent, to fast and pray, and to seek unto God for mercy, with directions how to do this aright, Joe 2:12-17. III. A promise that, upon their repentance, God would remove the judgment, would repair the breaches made upon them by it, and restore unto them plenty of all good things, Joe 2:18-27. IV. A prediction of the setting up of the kingdom of the Messiah in the world, by the pouring out of the Spirit in the latter days, Joe 2:28-32. Thus the beginning of this chapter is made terrible with the tokens of God's wrath, but the latter end of it made comfortable with the assurances of his favour, and it is in the way of repentance that this blessed change is made; so that, though it is only the last paragraph of the chapter that points directly at gospel-times, yet the whole may be improved as a type and figure, representing the curses of the law invading men for their sins, and the comforts of the gospel flowing in to them upon their repentance.
 

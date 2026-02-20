@@ -1,8 +1,11 @@
 ---
+title: "Jeremiah 43 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "43"
+description: "Jeremiah had faithfully delivered his message from God in the foregoing chapter, and the case was made so very plain by it that one would have thought there needed no more words ab..."
 weight: 43
 ---
 
-# Chapter 43
+# Jeremiah 43 
 
 Jeremiah had faithfully delivered his message from God in the foregoing chapter, and the case was made so very plain by it that one would have thought there needed no more words about it; but we find it quite otherwise. Here is, I. The people's contempt of this message; they denied it to be the word of God (Jer 43:1-3) and then made no difficulty of going directly contrary to it. Into Egypt they went, and took Jeremiah himself along with them, Jer 43:4-7. II. God's pursuit of them with another message, foretelling the king of Babylon's pursuit of them into Egypt, Jer 43:8-13.
 

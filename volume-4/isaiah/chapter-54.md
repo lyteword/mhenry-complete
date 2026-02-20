@@ -1,8 +1,11 @@
 ---
+title: "Isaiah 54 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "54"
+description: "The death of Christ is the life of the church and of all that truly belong to it; and therefore very fitly, after the prophet had foretold the sufferings of Christ, he foretels the..."
 weight: 54
 ---
 
-# Chapter 54
+# Isaiah 54 
 
 The death of Christ is the life of the church and of all that truly belong to it; and therefore very fitly, after the prophet had foretold the sufferings of Christ, he foretels the flourishing of the church, which is a part of his glory, and that exaltation of him which was the reward of his humiliation: it was promised him that he should see his seed, and this chapter is an explication of that promise. It may easily be granted that it has a primary reference to the welfare and prosperity of the Jewish church after their return out of Babylon, which (as other things that happened to them) was typical of the glorious liberty of the children of God, which through Christ we are brought into; yet it cannot be denied but that it has a further and principal reference to the gospel church, into which the Gentiles were to be admitted. And the first words being understood by the apostle Paul of the New-Testament Jerusalem (Ga 4:26) may serve as a key to the whole chapter and that which follows. It is here promised concerning the Christian church, I. That, though the beginnings of it were small, it should be greatly enlarged by the accession of many to it among the Gentiles, who had been wholly destitute of church privileges, Isa 54:1-5. II. That though sometimes God might seem to withdraw from her, and suspend the tokens of his favour, he would return in mercy and would not return to contend with them any more, Isa 54:6-10. III. That, though for a while she was in sorrow and under oppression, she should at length be advanced to greater honour and splendour than ever, Isa 54:11,12. IV. That knowledge, righteousness, and peace, should flourish and prevail, Isa 54:13,14. V. That all attempts against the church should be baffled, and she should be secured from the malice of her enemies, Isa 54:14-17.
 

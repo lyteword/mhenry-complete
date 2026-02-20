@@ -1,8 +1,11 @@
 ---
+title: "Daniel 7 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "7"
+description: "The six former chapters of this book were historical; we now enter with fear and trembling upon the six latter, which are prophetical, wherein are many things dark and hard to be u..."
 weight: 7
 ---
 
-# Chapter 7
+# Daniel 7 
 
 The six former chapters of this book were historical; we now enter with fear and trembling upon the six latter, which are prophetical, wherein are many things dark and hard to be understood, which we dare not positively determine the sense of, and yet many things plain and profitable, which I trust God will enable us to make a good use of. In this chapter we have, I. Daniel's vision of the four beasts, Da 7:1-8. II. His vision of God's throne of government and judgment, Da 7:9-14. III. The interpretation of these visions, given him by an angel that stood by, Da 7:15-28. Whether those visions look as far forward as the end of time, or whether they were to have a speedy accomplishment, is hard to say, nor are the most judicious interpreters agreed concerning it.
 

@@ -1,8 +1,11 @@
 ---
+title: "Jeremiah 16 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "16"
+description: "In this chapter, I. The greatness of the calamity that was coming upon the Jewish nation is illustrated by prohibitions given to the prophet neither to set up a house of his own (J..."
 weight: 16
 ---
 
-# Chapter 16
+# Jeremiah 16 
 
 In this chapter, I. The greatness of the calamity that was coming upon the Jewish nation is illustrated by prohibitions given to the prophet neither to set up a house of his own (Jer 16:1-4) nor to go into the house of mourning (Jer 16:5-7) nor into the house of feasting, Jer 16:8,9. II. God is justified in these severe proceedings against them by an account of their great wickedness, Jer 16:10-13. III. An intimation is given of mercy in reserve, Jer 16:14,15. IV. Some hopes are given that the punishment of the sin should prove the reformation of the sinners, and that they should return to God at length in a way of duty, and so be qualified for his returns to them in a way of favour, Jer 16:16-21.
 

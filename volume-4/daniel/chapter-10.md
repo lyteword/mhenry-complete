@@ -1,8 +1,11 @@
 ---
+title: "Daniel 10 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "10"
+description: "This chapter and the two next (which conclude this book) make up one entire vision and prophecy, which was communicated to Daniel for the use of the church, not by signs and figure..."
 weight: 10
 ---
 
-# Chapter 10
+# Daniel 10 
 
 This chapter and the two next (which conclude this book) make up one entire vision and prophecy, which was communicated to Daniel for the use of the church, not by signs and figures, as before (Da 7:1-8:27), but by express words; and this was about two years after the vision in the foregoing chapter. Daniel prayed daily, but had a vision only now and then. In this chapter we have some things introductory to the prophecy, in the eleventh chapter the particular predictions, and Da 12:1-13 the conclusion of it. This chapter shows us, I. Daniel's solemn fasting and humiliation, before he had this vision, Da 10:1-3. II. A glorious appearance of the Son of God to him, and the deep impression it made upon him, Da 10:4-9. III. The encouragement that was given him to expect such a discovery of future events as should be satisfactory and useful both to others and to himself, and that he should be enabled both to understand the meaning of this discovery, though difficult, and to bear up under the lustre of it, though dazzling and dreadful, Da 10:10-21.
 

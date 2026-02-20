@@ -1,8 +1,11 @@
 ---
+title: "Zephaniah 1 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "1"
+description: "After the title of the book (Zep 1:1) here is, I. A threatening of the destruction of Judah and Jerusalem, an utter destruction, by the Chaldeans, Zep 1:2-4. II. A charge against t..."
 weight: 1
 ---
 
-# Chapter 1
+# Zephaniah 1 
 
 After the title of the book (Zep 1:1) here is, I. A threatening of the destruction of Judah and Jerusalem, an utter destruction, by the Chaldeans, Zep 1:2-4. II. A charge against them for their gross sin, which provoked God to bring that destruction upon them (Zep 1:5,6); and so he goes on in the rest of the chapter, setting both the judgments before them, that they might prevent them or prepare for them, and the sins that destroy them, that they might judge themselves, and justify God in what was brought upon them. 1. They must hold their peace because they had greatly sinned, Zep 1:7-9. But, 2, They shall howl because the trouble will be great. The day of the Lord is near, and it will be a terrible day, Zep 1:10-18. Such fair and timely warning as this did God give to the Jews of the approaching captivity; but they hardened their neck, which made their destruction remediless.
 

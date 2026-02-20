@@ -1,8 +1,11 @@
 ---
+title: "Isaiah 14 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "14"
+description: "In this chapter, I. More weight is added to the burden of Babylon, enough to sink it like a mill-stone; I. It is Israel\'s cause that is to be pleaded in this quarrel with Babylon, ..."
 weight: 14
 ---
 
-# Chapter 14
+# Isaiah 14 
 
 In this chapter, I. More weight is added to the burden of Babylon, enough to sink it like a mill-stone; I. It is Israel's cause that is to be pleaded in this quarrel with Babylon, Isa 14:1-3. 2. The king of Babylon, for the time being, shall be remarkably brought down and triumphed over, Isa 14:4-20. 3. The whole race of the Babylonians shall be cut off and extirpated, Isa 14:21-23. II. A confirmation of the prophecy of the destruction of Babylon, which was a thing at a distance, is here given in the prophecy of the destruction of the Assyrian army that invaded the land, which happened not long after, Isa 14:24-27. III. The success of Hezekiah against the Philistines is here foretold, and the advantages which his people would gain thereby, Isa 14:28-32.
 

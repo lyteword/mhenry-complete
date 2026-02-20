@@ -1,8 +1,11 @@
 ---
+title: "Ezekiel 31 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "31"
+description: "The prophecy of this chapter, as the two chapters before, is against Egypt, and designed for the humbling and mortifying of Pharaoh. In passing sentence upon great criminals it is ..."
 weight: 31
 ---
 
-# Chapter 31
+# Ezekiel 31 
 
 The prophecy of this chapter, as the two chapters before, is against Egypt, and designed for the humbling and mortifying of Pharaoh. In passing sentence upon great criminals it is usual to consult precedents, and to see what has been done to others in the like case, which serves both to direct and to justify the proceedings. Pharaoh stands indicted at the bar of divine justice for his pride and haughtiness, and the injuries he had done to God's people; but he thinks himself so high, so great, as not to be accountable to any authority, so strong, and so well guarded, as not to be conquerable by any force. The prophet is therefore directed to make a report to him of the case of the king of Assyria, whose head city was Nineveh. I. He must show him how great a monarch the king of Assyria had been, what a vast empire he had, what a mighty sway he bore; the king of Egypt, great as he was could not go beyond him, Eze 31:3-9. II. He must then show him how like he was to the king of Assyria in pride and carnal security, Eze 31:10. III. He must next read him the history of the fall and ruin of the king of Assyria, what a noise it made among the nations and what a warning it gave to all potent princes to take heed of pride, Eze 31:11-17. IV. He must leave the king of Egypt to apply all this to himself, to see his own face in the looking-glass of the king of Assyria's sin, and to foresee his own fall through the perspective glass of his ruin, Eze 31:18.
 

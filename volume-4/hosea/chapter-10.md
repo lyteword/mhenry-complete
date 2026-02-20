@@ -1,8 +1,11 @@
 ---
+title: "Hosea 10 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "10"
+description: "In this chapter, I. The people of Israel are charged with gross corruptions in the worship of God and are threatened with the destruction of their images and altars, Ho 10:1,2,5,6,..."
 weight: 10
 ---
 
-# Chapter 10
+# Hosea 10 
 
 In this chapter, I. The people of Israel are charged with gross corruptions in the worship of God and are threatened with the destruction of their images and altars, Ho 10:1,2,5,6,8. II. They are charged with corruptions in the administration of the civil government and are threatened with the ruin of that, Ho 10:3,4,7. III. They are charged with imitating the sins of their fathers, and with security in their own sins, and are threatened with smarting humbling judgments, Ho 10:9-11. IV. They are earnestly invited to repent and reform, and are threatened with ruin if they did not, Ho 10:12-15.
 

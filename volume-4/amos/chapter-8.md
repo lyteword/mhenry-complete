@@ -1,8 +1,11 @@
 ---
+title: "Amos 8 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "8"
+description: "Sinful times are here attended with sorrowful times, so necessary is the connexion between them; it is threatened here again and again that the laughter shall be turned into mourni..."
 weight: 8
 ---
 
-# Chapter 8
+# Amos 8 
 
 Sinful times are here attended with sorrowful times, so necessary is the connexion between them; it is threatened here again and again that the laughter shall be turned into mourning. I. By the vision of "basket of summer-fruit" is signified the hastening on of the ruin threatened (Am 8:1-3) and that shall change their note. II. Oppressors are here called to an account for their abusing the poor; and their destruction is foretold, which will set them a mourning, Am 8:4-10. III. A famine of the word of God is here made the punishment of a people that go a whoring after other gods (Am 8:11-14); yet for this, which is the most mournful judgment of all, they are not here brought in mourning.
 

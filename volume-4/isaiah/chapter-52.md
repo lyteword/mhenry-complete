@@ -1,8 +1,11 @@
 ---
+title: "Isaiah 52 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "52"
+description: "The greater part of this chapter is on the same subject with the chapter before, concerning the deliverance of the Jews out of Babylon, which yet is applicable to the great salvati..."
 weight: 52
 ---
 
-# Chapter 52
+# Isaiah 52 
 
 The greater part of this chapter is on the same subject with the chapter before, concerning the deliverance of the Jews out of Babylon, which yet is applicable to the great salvation Christ has wrought out for us; but the Isa 52:13-15 are on the same subject with the following chapter, concerning the person of the Redeemer, his humiliation and exaltation. Observe, I. The encouragement that is given to the Jews in captivity to hope that God would deliver them in his own way and time, Isa 52:1-6. II. The great joy and rejoicing that shall be both with ministers and people upon that occasion, Isa 52:7-10. III. The call given to those that remained in captivity to shift for their own enlargement when liberty was proclaimed, Isa 52:11,12. IV. A short idea given here of the Messiah, which is enlarged upon in the next chapter, Isa 52:13-15.
 

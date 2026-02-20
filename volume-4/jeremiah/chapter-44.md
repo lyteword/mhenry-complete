@@ -1,8 +1,11 @@
 ---
+title: "Jeremiah 44 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "44"
+description: "In this chapter we have, I. An awakening sermon which Jeremiah preaches to the Jews in Egypt, to reprove them for their idolatry, notwithstanding the warnings given them both by th..."
 weight: 44
 ---
 
-# Chapter 44
+# Jeremiah 44 
 
 In this chapter we have, I. An awakening sermon which Jeremiah preaches to the Jews in Egypt, to reprove them for their idolatry, notwithstanding the warnings given them both by the word and the rod of God and to threaten the judgments of God against them for it, Jer 44:1-14. II. The impudent and impious contempt which the people put upon this admonition, and their declared resolution to persist in their idolatries notwithstanding, in despite of God and Jeremiah, Jer 44:15-19. III. The sentence passed upon them for their obstinacy, that they should all be cut off and perish in Egypt except a very small number; and, as a sign or earnest of it, the king of Egypt should shortly fall into the hands of the king of Babylon and be unable any longer to protect them, Jer 44:20-30.
 

@@ -1,8 +1,11 @@
 ---
+title: "Ezekiel 1 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "1"
+description: "In this chapter we have, I. The common circumstances of the prophecy now to be delivered, the time when it was delivered (Eze 1:1), the place where (Eze 1:2), and the person by who..."
 weight: 1
 ---
 
-# Chapter 1
+# Ezekiel 1 
 
 In this chapter we have, I. The common circumstances of the prophecy now to be delivered, the time when it was delivered (Eze 1:1), the place where (Eze 1:2), and the person by whom, Eze 1:3. II. The uncommon introduction to it by a vision of the glory of God, 1. In his attendance and retinue in the upper world, where his throne is surrounded with angels, here called "living creatures," Eze 1:4-14. 2. In his providences concerning the lower world, represented by the wheels and their motions, Eze 1:15-25. 3. In the face of Jesus Christ sitting upon the throne, Eze 1:26-28. And the more we are acquainted, and the more intimately we converse, with the glory of God in these three branches of it, the more commanding influence will divine revelation have upon us and the more ready shall we be to submit to it, which is the thing aimed at in prefacing the prophecies of this book with these visions. When such a God of glory speaks, it concerns us to hear with attention and reverence; it is at our peril if we do not.
 

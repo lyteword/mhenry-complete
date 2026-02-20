@@ -1,8 +1,11 @@
 ---
+title: "Isaiah 15 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "15"
+description: "This chapter, and that which follows it, are the burden of Moab—a prophecy of some great desolation that was coming upon that country, which bordered upon this land of Israel, and ..."
 weight: 15
 ---
 
-# Chapter 15
+# Isaiah 15 
 
 This chapter, and that which follows it, are the burden of Moab—a prophecy of some great desolation that was coming upon that country, which bordered upon this land of Israel, and had often been injurious and vexatious to it, though the Moabites were descended from Lot, Abraham's kinsman and companion, and though the Israelites, by the appointment of God, had spared them when they might both easily and justly have cut them off with their neighbours. In this chapter we have, I. Great lamentation made by the Moabites, and by the prophet himself for them, Isa 15:1-5. II. The great calamities which should occasion that lamentation and justify it, Isa 15:6-9.
 

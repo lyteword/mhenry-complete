@@ -1,8 +1,11 @@
 ---
+title: "Ezekiel 8 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "8"
+description: "God, having given the prophet a clear foresight of the people\'s miseries that were hastening on, here gives him a clear insight into the people\'s wickedness, by which God was provo..."
 weight: 8
 ---
 
-# Chapter 8
+# Ezekiel 8 
 
 God, having given the prophet a clear foresight of the people's miseries that were hastening on, here gives him a clear insight into the people's wickedness, by which God was provoked to bring these miseries upon them, that he might justify God in all his judgments, might the more particularly reprove the sins of the people, and with the more satisfaction foretel their ruin. Here God, in vision, brings him to Jerusalem, to show him the sins that were committed there, though God had begun to contend with them (Eze 8:1-4), and there he sees, I. The image of jealousy set up at the gate of the altar, Eze 8:5,6. II. The elders of Israel worshipping all manner of images in a secret chamber, Eze 8:7-12. III. The women weeping for Tammuz, Eze 8:13,14. IV. The men worshipping the sun, Eze 8:15,16. And then appeals to him whether such a provoking people should have any pity shown them, Eze 8:17,18.
 

@@ -1,8 +1,11 @@
 ---
+title: "Jeremiah 22 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "22"
+description: "Upon occasion of the message sent in the foregoing chapter to the house of the king, we have here recorded some sermons which Jeremiah preached at court, in some preceding reigns, ..."
 weight: 22
 ---
 
-# Chapter 22
+# Jeremiah 22 
 
 Upon occasion of the message sent in the foregoing chapter to the house of the king, we have here recorded some sermons which Jeremiah preached at court, in some preceding reigns, that it might appear they had had fair warning long before that fatal sentence was pronounced upon them, and were put in a way to prevent it. Here is, I. A message sent to the royal family, as it should seem in the reign of Jehoiakim, relating partly to Jehoahaz, who was carried away captive into Egypt, and partly to Jehoiakim, who succeeded him and was now upon the throne. The king and princes are exhorted to execute judgment, and are assured that, if they did so, the royal family should flourish, but otherwise it should be ruined, Jer 22:1-9. Jehoahaz, called here Shallum, is lamented, Jer 22:10-12. Jehoiakim is reproved and threatened, Jer 22:13-19. II. Another message sent them in the reign of Jehoiachin (alias, Jeconiah) the son of Jehoiakim. He is charged with an obstinate refusal to hear, and is threatened with destruction, and it is foretold that in him Solomon's house should fail, Jer 22:20-30.
 

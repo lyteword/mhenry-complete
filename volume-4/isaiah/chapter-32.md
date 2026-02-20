@@ -1,8 +1,11 @@
 ---
+title: "Isaiah 32 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "32"
+description: "This chapter seems to be such a prophecy of the reign of Hezekiah as amounts to an abridgment of the history of it, and this with an eye to the kingdom of the Messiah, whose govern..."
 weight: 32
 ---
 
-# Chapter 32
+# Isaiah 32 
 
 This chapter seems to be such a prophecy of the reign of Hezekiah as amounts to an abridgment of the history of it, and this with an eye to the kingdom of the Messiah, whose government was typified by the thrones of the house of David, for which reason he is so often called "the Son of David." Here is, I. A prophecy of that good work of reformation with which he should begin his reign, and the happy influence it should have upon the people, who had been wretchedly corrupted and debauched in the reign of his predecessor, Isa 32:1-8. II. A prophecy of the great disturbance that would be given to the kingdom in the middle of his reign by the Assyrian invasion, Isa 32:9-14. III. A promise of better times afterwards, towards the latter end of his reign, in respect both of piety and peace (Isa 32:15-20), which promise may be supposed to look as far forward as the days of the Messiah.
 

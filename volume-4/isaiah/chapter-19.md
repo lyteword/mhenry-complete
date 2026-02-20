@@ -1,8 +1,11 @@
 ---
+title: "Isaiah 19 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "19"
+description: "As Assyria was a breaking rod to Judah, with which it was smitten, so Egypt was a broken reed, with which it was cheated; and therefore God had a quarrel with them both. We have be..."
 weight: 19
 ---
 
-# Chapter 19
+# Isaiah 19 
 
 As Assyria was a breaking rod to Judah, with which it was smitten, so Egypt was a broken reed, with which it was cheated; and therefore God had a quarrel with them both. We have before read the doom of the Assyrians; now here we have the burden of Egypt, a prophecy concerning that nation, I. That it should be greatly weakened and brought low, and should be as contemptible among the nations as now it was considerable, rendered so by a complication of judgments which God would bring upon them, Isa 19:1-17. II. That at length God's holy religion should be brought into Egypt, and set up there, in part by the Jews that should flee thither for refuge, but more fully by the preachers of the gospel of Christ, through whose ministry churches should be planted in Egypt in the days of the Messiah (Isa 19:18-25), which would abundantly balance all the calamities here threatened.
 

@@ -1,8 +1,11 @@
 ---
+title: "Jeremiah 27 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "27"
+description: "Jeremiah the prophet, since he cannot persuade people to submit to God\'s precept, and so to prevent the destruction of their country by the king of Babylon, is here persuading them..."
 weight: 27
 ---
 
-# Chapter 27
+# Jeremiah 27 
 
 Jeremiah the prophet, since he cannot persuade people to submit to God's precept, and so to prevent the destruction of their country by the king of Babylon, is here persuading them to submit to God's providence, by yielding tamely to the king of Babylon, and becoming tributaries to him, which was the wisest course they could now take, and would be a mitigation of the calamity, and prevent the laying of their country waste by fire and sword; the sacrificing of their liberties would be the saving of their lives. I. He gives this counsel, in God's name, to the kings of the neighbouring nations, that they might make the best of bad, assuring them that there was no remedy, but they must serve the king of Babylon; and yet in time there should be relief, for his dominion should last but 70 years, Jer 27:1-11. II. He gives this counsel to Zedekiah king of Judah particularly (Jer 27:12-15) and to the priests and people, assuring them that the king of Babylon should still proceed against them till things were brought to the last extremity, and a patient submission would be the only way to mitigate the calamity and make it easy, Jer 27:16-22. Thus the prophet, if they would but have hearkened to him, would have directed them in the paths of true policy as well as of true piety.
 

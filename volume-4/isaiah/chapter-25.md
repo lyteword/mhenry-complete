@@ -1,8 +1,11 @@
 ---
+title: "Isaiah 25 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "25"
+description: "After the threatenings of wrath in the foregoing chapter we have here, I. Thankful praises for what God had done, which the prophet, in the name of the church, offers up to God, an..."
 weight: 25
 ---
 
-# Chapter 25
+# Isaiah 25 
 
 After the threatenings of wrath in the foregoing chapter we have here, I. Thankful praises for what God had done, which the prophet, in the name of the church, offers up to God, and teaches us to offer the like, Isa 25:1-5. II. Precious promises of what God would yet further do for his church, especially in the grace of the gospel, Isa 25:6-8. III. The church's triumph in God over her enemies thereupon, Isa 25:9-12. This chapter looks as pleasantly upon the church as the former looked dreadfully upon the world.
 

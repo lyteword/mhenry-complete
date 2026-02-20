@@ -1,8 +1,11 @@
 ---
+title: "Hosea 3 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "3"
+description: "God is still by the prophet inculcating the same thing upon this careless people, and much in the same manner as before, by a type or sign, that of the dealings of a husband with a..."
 weight: 3
 ---
 
-# Chapter 3
+# Hosea 3 
 
 God is still by the prophet inculcating the same thing upon this careless people, and much in the same manner as before, by a type or sign, that of the dealings of a husband with an adulterous wife. In this chapter we have, I. The bad character which the people of Israel now had; they were, as is said of the Athenians (Ac 17:16), "wholly given to idolatry," Ho 3:1. II. The low condition which they should be reduced to by their captivity, and the other instances of God's controversy with them, Ho 3:2-4. III. The blessed reformation that should at length be wrought upon them in the latter days, Ho 3:5.
 

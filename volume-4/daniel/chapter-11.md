@@ -1,8 +1,11 @@
 ---
+title: "Daniel 11 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "11"
+description: "The angel Gabriel, in this chapter, performs his promise made to Daniel in the foregoing chapter, that he would \"show him what should befal his people in the latter days,\" accordin..."
 weight: 11
 ---
 
-# Chapter 11
+# Daniel 11 
 
 The angel Gabriel, in this chapter, performs his promise made to Daniel in the foregoing chapter, that he would "show him what should befal his people in the latter days," according to that which was "written in the scriptures of truth:" very particularly does he here foretel the succession of the kings of Persia and Grecia, and the affairs of their kingdoms, especially the mischief which Antiochus Epiphanes did in his time to the church, which was foretold before (Da 8:11-12). Here is, I. A brief prediction of the setting up of the Grecian monarchy upon the ruins of the Persian monarchy, which was now newly begun, Da 11:1-4. II. A prediction of the affairs of the two kingdoms of Egypt and Syria, with reference to each other, Da 11:5-20. III. Of the rise of Antiochus Epiphanes, and his actions and successes, Da 11:21-29. IV. Of the great mischief that he should do to the Jewish nation and religion, and his contempt of all religion, Da 11:30-39. V. Of his fall and ruin at last, when he is in the heat of his pursuit, Da 11:40-45.
 

@@ -1,8 +1,11 @@
 ---
+title: "Ezekiel 23 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "23"
+description: "This long chapter (as before Eze 16:1-62,20:1-44) is a history of the apostasies of God\'s people from him and the aggravations of those apostasies under the similitude of corporal ..."
 weight: 23
 ---
 
-# Chapter 23
+# Ezekiel 23 
 
 This long chapter (as before Eze 16:1-62,20:1-44) is a history of the apostasies of God's people from him and the aggravations of those apostasies under the similitude of corporal whoredom and adultery. Here the kingdoms of Israel and Judah, the ten tribes and the two, with their capital cities, Samaria and Jerusalem, are considered distinctly. Here is, I. The apostasy of Israel and Samaria from God (Eze 23:1-8) and their ruin for it, Eze 23:9,10. II. The apostasy of Judah and Jerusalem from God (Eze 23:11-21) and sentence passed upon them, that they shall in like manner be destroyed for it, Eze 23:22-35. III. The joint wickedness of them both together (Eze 23:36-44) and the joint ruin of them both, Eze 23:45-49. And all that is written for warning against the sins of idolatry, and confidence in an arm of flesh, and sinful leagues and confederacies with wicked people (which are the sins here meant by committing whoredom), is that others may hear and fear, and not sin after the similitude of the transgressions of Israel and Judah.
 

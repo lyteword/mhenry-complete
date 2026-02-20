@@ -1,8 +1,11 @@
 ---
+title: "Joel 1 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "1"
+description: "This chapter is the description of a lamentable devastation made of the country of Judah by locusts and caterpillars. Some think that the prophet speaks of it as a thing to come an..."
 weight: 1
 ---
 
-# Chapter 1
+# Joel 1 
 
 This chapter is the description of a lamentable devastation made of the country of Judah by locusts and caterpillars. Some think that the prophet speaks of it as a thing to come and gives warning of it beforehand, as usually the prophets did of judgments coming. Others think that it was now present, and that his business was to affect the people with it and awaken them by it to repentance. I. It is spoken of as a judgment which there was no precedent of in former ages, Joe 1:1-7. II. All sorts of people sharing in the calamity are called upon to lament it, Joe 1:8-13. III. They are directed to look up to God in their lamentations, and to humble themselves before him, Joe 1:14-20.
 

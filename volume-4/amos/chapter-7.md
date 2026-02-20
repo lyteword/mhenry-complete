@@ -1,8 +1,11 @@
 ---
+title: "Amos 7 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "7"
+description: "In this chapter we have, I. God contending with Israel, by the judgments, but are reprieved, and the judgments turned away at the prayer of Amos, Am 7:1-6. 2. God\'s patience is at ..."
 weight: 7
 ---
 
-# Chapter 7
+# Amos 7 
 
 In this chapter we have, I. God contending with Israel, by the judgments, but are reprieved, and the judgments turned away at the prayer of Amos, Am 7:1-6. 2. God's patience is at length worn out by their obstinacy, and they are rejected, and sentenced to utter ruin, Am 7:7-9. II. Israel contending with God, by the opposition given to his prophet. 1. Amaziah informs against Amos (Am 7:10,11) and does what he can to rid the country of him as a public nuisance, Am 7:12,13. 2. Amos justifies himself in what he did as a prophet (Am 7:14,15) and denounces the judgments of God against Amaziah his prosecutor (Am 7:16,17); for, when the contest is between God and man, it is easy to foresee, it is very easy to foretel, who will come off with the worst of it.
 

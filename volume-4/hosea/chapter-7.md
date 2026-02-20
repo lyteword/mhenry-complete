@@ -1,8 +1,11 @@
 ---
+title: "Hosea 7 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "7"
+description: "In this chapter we have, I. A general charge drawn up against Israel for those high crimes and misdemeanors by which they had obstructed the course of God\'s favours to them, Ho 7:1..."
 weight: 7
 ---
 
-# Chapter 7
+# Hosea 7 
 
 In this chapter we have, I. A general charge drawn up against Israel for those high crimes and misdemeanors by which they had obstructed the course of God's favours to them, Ho 7:1,2. II. A particular accusation, 1. Of the court—the king, princes, and judges, Ho 7:3-7. 2. Of the country. Ephraim is here charged with conforming to the nations (Ho 7:8), senselessness and stupidity under the judgments of God (Ho 7:9-11), ingratitude to God for his mercies (Ho 7:13), incorrigibleness under his judgments (Ho 7:14), contempt of God (Ho 7:15), and hypocrisy in their pretences to return to him, Ho 7:16. They are also threatened with a severe chastisement, which shall humble them (Ho 7:12), and, if that prevail not, then with an utter destruction (Ho 7:13), particularly their princes, Ho 7:16.
 

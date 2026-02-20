@@ -1,8 +1,11 @@
 ---
+title: "Isaiah 51 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "51"
+description: "This chapter is designed for the comfort and encouragement of those that fear God and keep his commandments, even when they walk in darkness and have no light. Whether it was inten..."
 weight: 51
 ---
 
-# Chapter 51
+# Isaiah 51 
 
 This chapter is designed for the comfort and encouragement of those that fear God and keep his commandments, even when they walk in darkness and have no light. Whether it was intended primarily for the support of the captives in Babylon is not certain, probably it was; but comforts thus generally expressed ought not to be so confined. Whenever the church of God is in distress her friends and well-wishers may comfort themselves and one another with these words, I. That God, who raised his church at first out of nothing, will take care that it shall not perish, Isa 51:1-3. II. That the righteousness and salvation he designs for his church are sure and near, very near and very sure, Isa 51:4-6. III. That the persecutors of the church are weak and dying creatures, Isa 51:7,8. IV. That the same power which did wonders for the church formerly is now engaged and employed for her protection and deliverance, Isa 51:9-11. V. That God himself, the Maker of the world, had undertaken both to deliver his people out of their distress and to comfort them under it, and sent his prophet to assure them of it, Isa 51:12-16. VI. That, deplorable as the condition of the church now was (Isa 51:17-20), to the same woeful circumstances her persecutors and oppressors should shortly be reduced, and worse, Isa 51:21-23. The first three paragraphs of this chapter begin with, "Hearken unto me," and they are God's people that are all along called to hearken; for even when comforts are spoken to them sometimes they "hearken not, through anguish of spirit" (Ex 6:9); therefore they are again and again called to hearken, Isa 51:1,4,7. The two other paragraphs of this chapter begin with "Awake, awake;" in the former (Isa 51:9) God's people call upon him to awake and help them; in the latter, Isa 51:17. God calls upon them to awake and help themselves.
 

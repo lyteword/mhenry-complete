@@ -1,8 +1,11 @@
 ---
+title: "Lamentations 2 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "2"
+description: "The second alphabetical elegy is set to the same mournful tune with the former, and the substance of it is much the same; it begins with Ecah, as that did, \"How sad is our case! Al..."
 weight: 2
 ---
 
-# Chapter 2
+# Lamentations 2 
 
 The second alphabetical elegy is set to the same mournful tune with the former, and the substance of it is much the same; it begins with Ecah, as that did, "How sad is our case! Alas for us!" I. Here is the anger of Zion's God taken notice of as the cause of her calamities, La 2:1-9. II. Here is the sorrow of Zion's children taken notice of as the effect of her calamities, La 2:10-19. III. The complaint is made to God, and the matter referred to his compassionate consideration, La 2:20-22. The hand that wounded must make whole.
 

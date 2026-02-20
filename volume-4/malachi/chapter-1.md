@@ -1,8 +1,11 @@
 ---
+title: "Malachi 1 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "1"
+description: "Thus prophet is sent first to convince and then to comfort, first to discover sin and to reprove for that and then to promise the coming of him who shall take away sin. And this me..."
 weight: 1
 ---
 
-# Chapter 1
+# Malachi 1 
 
 Thus prophet is sent first to convince and then to comfort, first to discover sin and to reprove for that and then to promise the coming of him who shall take away sin. And this method the blessed Spirit takes in dealing with souls, Joh 16:8. He first opens the wound and then applies the healing balm. God had provided (and one would think effectually) for the engaging of Israel to himself by providences and ordinances; but it seems, by the complaints here made of them, that they received the grace of God in both these in vain. I. They were very ungrateful to God for his favours to them, and rendered not again according to the benefit they received, Mal 1:1-5. II. They were very careless and remiss in the observance of his institutions; the priests especially were so, who were in a particular manner charged with them, Mal 1:6-14. And what shall we say of those whom neither providences nor ordinances work upon, and who affront God in those very things wherein they should honour him?
 

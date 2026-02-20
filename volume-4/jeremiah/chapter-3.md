@@ -1,8 +1,11 @@
 ---
+title: "Jeremiah 3 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "3"
+description: "The foregoing chapter was wholly taken up with reproofs and threatenings against the people of God, for their apostasies from him; but in this chapter gracious invitations and enco..."
 weight: 3
 ---
 
-# Chapter 3
+# Jeremiah 3 
 
 The foregoing chapter was wholly taken up with reproofs and threatenings against the people of God, for their apostasies from him; but in this chapter gracious invitations and encouragements are given them to return and repent, notwithstanding the multitude and greatness of their provocations, which are here specified, to magnify the mercy of God, and to show that as sin abounded grace did much more abound. Here, I. It is further shown how bad they had been and how well they deserved to be quite abandoned, and yet how ready God was to receive them into his favour upon their repentance, Jer 3:1-5. II. The impenitence of Judah, and their persisting in sin, are aggravated from the judgments of God upon Israel, which they should have taken warning by, Jer 3:6-11. III. Great encouragements are given to these backsliders to return and repent, and promises made of great mercy which God had in store for them, and which he would prepare them for by bringing them home to himself, Jer 3:12-19. IV. The charge renewed against them for their apostasy from God, and the invitation repeated to return and repent, to which are here added the words that are put in their mouth, which they should make use of in their return to God, Jer 3:20-25.
 
