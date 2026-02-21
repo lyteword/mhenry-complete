@@ -1,7 +1,8 @@
 ---
 title: "Job 11 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "11"
-description: "Poor Job\'s wound\'s were yet bleeding, his sore still runs and ceases not, but none of his friends bring him any oil, any balm; Zophar, the third, pours into them as much vinegar as..."
+description: >
+  Poor Job's wound's were yet bleeding, his sore still runs and ceases not, but none of his friends bring him any oil, any balm; Zophar, the third, pours into them as much vinegar as...
 weight: 11
 ---
 

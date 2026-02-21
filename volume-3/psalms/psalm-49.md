@@ -1,7 +1,8 @@
 ---
 title: "Psalm 49 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "49"
-description: "This psalm is a sermon, and so is the next. In most of the psalms we have the penman praying or praising; in these we have him preaching; and it is our duty, in singing psalms, to ..."
+description: >
+  This psalm is a sermon, and so is the next. In most of the psalms we have the penman praying or praising; in these we have him preaching; and it is our duty, in singing psalms, to ...
 weight: 49
 ---
 

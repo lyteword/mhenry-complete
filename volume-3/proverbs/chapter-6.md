@@ -1,7 +1,8 @@
 ---
 title: "Proverbs 6 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "6"
-description: "In this chapter we have, I. A caution against rash suretiship, Pr 6:1-5. II. A rebuke to slothfulness, Pr 6:6-11. III. The character and fate of a malicious mischievous man, Pr 6:1..."
+description: >
+  In this chapter we have, I. A caution against rash suretiship, Pr 6:1-5. II. A rebuke to slothfulness, Pr 6:6-11. III. The character and fate of a malicious mischievous man, Pr 6:1...
 weight: 6
 ---
 

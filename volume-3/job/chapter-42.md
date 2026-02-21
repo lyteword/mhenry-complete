@@ -1,7 +1,8 @@
 ---
 title: "Job 42 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "42"
-description: "Solomon says, \"Better is the end of a thing than the beginning thereof,\" Ec 7:8. It was so here in the story of Job; at the evening-time it was light. Three things we have met with..."
+description: >
+  Solomon says, "Better is the end of a thing than the beginning thereof," Ec 7:8. It was so here in the story of Job; at the evening-time it was light. Three things we have met with...
 weight: 42
 ---
 

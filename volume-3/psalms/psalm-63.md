@@ -1,7 +1,8 @@
 ---
 title: "Psalm 63 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "63"
-description: "This psalm has in it as much of warmth and lively devotion as any of David\'s psalms in so little a compass. As the sweetest of Paul\'s epistles were those that bore date out of a pr..."
+description: >
+  This psalm has in it as much of warmth and lively devotion as any of David's psalms in so little a compass. As the sweetest of Paul's epistles were those that bore date out of a pr...
 weight: 63
 ---
 

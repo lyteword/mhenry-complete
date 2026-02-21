@@ -1,7 +1,8 @@
 ---
 title: "Psalm 115 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "115"
-description: "Many ancient translations join this psalm to that which goes next before it, the Septuagint particularly, and the vulgar Latin; but it is, in the Hebrew, a distinct psalm. In it we..."
+description: >
+  Many ancient translations join this psalm to that which goes next before it, the Septuagint particularly, and the vulgar Latin; but it is, in the Hebrew, a distinct psalm. In it we...
 weight: 115
 ---
 

@@ -1,7 +1,8 @@
 ---
 title: "Psalm 12 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "12"
-description: "It is supposed that David penned this psalm in Saul\'s reign, when there was a general decay of honesty and piety both in court and country, which he here complains of to God, and v..."
+description: >
+  It is supposed that David penned this psalm in Saul's reign, when there was a general decay of honesty and piety both in court and country, which he here complains of to God, and v...
 weight: 12
 ---
 

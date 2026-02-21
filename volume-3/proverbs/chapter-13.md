@@ -1,7 +1,8 @@
 ---
 title: "Proverbs 13 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "13"
-description: "## Moral Maxims
+description: >
+  "## Moral Maxims
 "
 weight: 13
 ---

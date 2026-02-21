@@ -1,7 +1,8 @@
 ---
 title: "Job 24 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "24"
-description: "Job having by his complaints in the foregoing chapter given vent to his passion, and thereby gained some ease, breaks them off abruptly, and now applies himself to a further discus..."
+description: >
+  Job having by his complaints in the foregoing chapter given vent to his passion, and thereby gained some ease, breaks them off abruptly, and now applies himself to a further discus...
 weight: 24
 ---
 

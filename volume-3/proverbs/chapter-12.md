@@ -1,7 +1,8 @@
 ---
 title: "Proverbs 12 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "12"
-description: "## Advantages of the Righteous
+description: >
+  "## Advantages of the Righteous
 "
 weight: 12
 ---

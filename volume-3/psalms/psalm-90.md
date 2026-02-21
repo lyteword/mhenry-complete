@@ -1,7 +1,8 @@
 ---
 title: "Psalm 90 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "90"
-description: "The foregoing psalm is supposed to have been penned as late as the captivity in Babylon; this, it is plain, was penned as early as the deliverance out of Egypt, and yet they are pu..."
+description: >
+  The foregoing psalm is supposed to have been penned as late as the captivity in Babylon; this, it is plain, was penned as early as the deliverance out of Egypt, and yet they are pu...
 weight: 90
 ---
 

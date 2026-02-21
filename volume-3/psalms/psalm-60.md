@@ -1,7 +1,8 @@
 ---
 title: "Psalm 60 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "60"
-description: "After many psalms which David penned in a day of distress this comes which was calculated for a day of triumph; it was penned after he was settled in the throne, upon occasion of a..."
+description: >
+  After many psalms which David penned in a day of distress this comes which was calculated for a day of triumph; it was penned after he was settled in the throne, upon occasion of a...
 weight: 60
 ---
 

@@ -1,7 +1,8 @@
 ---
 title: "Psalm 45 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "45"
-description: "This psalm is an illustrious prophecy of Messiah the Prince: it is all over gospel, and points at him only, as a bridegroom espousing the church to himself and as a king ruling in ..."
+description: >
+  This psalm is an illustrious prophecy of Messiah the Prince: it is all over gospel, and points at him only, as a bridegroom espousing the church to himself and as a king ruling in ...
 weight: 45
 ---
 

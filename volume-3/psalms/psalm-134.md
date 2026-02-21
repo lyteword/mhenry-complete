@@ -1,7 +1,8 @@
 ---
 title: "Psalm 134 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "134"
-description: "This is the last of the fifteen songs of degrees; and, if they were at any time sung all together in the temple-service, it is fitly made the conclusion of them, for the design of ..."
+description: >
+  This is the last of the fifteen songs of degrees; and, if they were at any time sung all together in the temple-service, it is fitly made the conclusion of them, for the design of ...
 weight: 134
 ---
 

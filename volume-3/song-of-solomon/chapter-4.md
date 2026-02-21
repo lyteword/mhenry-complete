@@ -1,7 +1,8 @@
 ---
 title: "Song Of Solomon 4 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "4"
-description: "In this chapter, I. Jesus Christ, having espoused his church to himself (So 3:11), highly commends her beauty in the several expressions of it, concluding her fair, all fair, So 4:..."
+description: >
+  In this chapter, I. Jesus Christ, having espoused his church to himself (So 3:11), highly commends her beauty in the several expressions of it, concluding her fair, all fair, So 4:...
 weight: 4
 ---
 

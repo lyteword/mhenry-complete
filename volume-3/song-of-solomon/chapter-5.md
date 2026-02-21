@@ -1,7 +1,8 @@
 ---
 title: "Song Of Solomon 5 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "5"
-description: "In this chapter we have, I. Christ\'s gracious acceptance of the invitation which his church had given him, and the kind visit which he made to her, So 5:1. II. The account which th..."
+description: >
+  In this chapter we have, I. Christ's gracious acceptance of the invitation which his church had given him, and the kind visit which he made to her, So 5:1. II. The account which th...
 weight: 5
 ---
 

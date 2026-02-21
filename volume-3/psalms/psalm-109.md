@@ -1,7 +1,8 @@
 ---
 title: "Psalm 109 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "109"
-description: "Whether David penned this psalm when he was persecuted by Saul, or when his son Absalom rebelled against him, or upon occasion of some other trouble that was given him, is uncertai..."
+description: >
+  Whether David penned this psalm when he was persecuted by Saul, or when his son Absalom rebelled against him, or upon occasion of some other trouble that was given him, is uncertai...
 weight: 109
 ---
 

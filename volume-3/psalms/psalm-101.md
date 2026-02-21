@@ -1,7 +1,8 @@
 ---
 title: "Psalm 101 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "101"
-description: "David was certainly the penman of this psalm, and it has in it the genuine spirit of the man after God\'s own heart; it is a solemn vow which he made to God when he took upon him th..."
+description: >
+  David was certainly the penman of this psalm, and it has in it the genuine spirit of the man after God's own heart; it is a solemn vow which he made to God when he took upon him th...
 weight: 101
 ---
 

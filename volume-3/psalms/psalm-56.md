@@ -1,7 +1,8 @@
 ---
 title: "Psalm 56 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "56"
-description: "It seems by this, and many other psalms, that even in times of the greatest trouble and distress David never hung his harp upon the willow-trees, never unstrung it or laid it by; b..."
+description: >
+  It seems by this, and many other psalms, that even in times of the greatest trouble and distress David never hung his harp upon the willow-trees, never unstrung it or laid it by; b...
 weight: 56
 ---
 

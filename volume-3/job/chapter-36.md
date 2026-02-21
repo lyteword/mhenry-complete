@@ -1,7 +1,8 @@
 ---
 title: "Job 36 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "36"
-description: "Elihu, having largely reproved Job for some of his unadvised speeches, which Job had nothing to say in the vindication of, here comes more generally to set him to rights in his not..."
+description: >
+  Elihu, having largely reproved Job for some of his unadvised speeches, which Job had nothing to say in the vindication of, here comes more generally to set him to rights in his not...
 weight: 36
 ---
 

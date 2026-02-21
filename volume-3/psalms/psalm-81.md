@@ -1,7 +1,8 @@
 ---
 title: "Psalm 81 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "81"
-description: "This psalm was penned, as is supposed, not upon occasion of any particular providence, but for the solemnity of a particular ordinance, either that of the new-moon in general or th..."
+description: >
+  This psalm was penned, as is supposed, not upon occasion of any particular providence, but for the solemnity of a particular ordinance, either that of the new-moon in general or th...
 weight: 81
 ---
 

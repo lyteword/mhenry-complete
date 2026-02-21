@@ -1,7 +1,8 @@
 ---
 title: "Job 41 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "41"
-description: "The description here given of the leviathan, a very large, strong, formidable fish, or water-animal, is designed yet further to convince Job of his own impotency, and of God\'s omni..."
+description: >
+  The description here given of the leviathan, a very large, strong, formidable fish, or water-animal, is designed yet further to convince Job of his own impotency, and of God's omni...
 weight: 41
 ---
 

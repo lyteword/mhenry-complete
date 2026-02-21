@@ -1,7 +1,8 @@
 ---
 title: "Job 28 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "28"
-description: "The strain of this chapter is very unlike the rest of this book. Job forgets his sores, and all his sorrows, and talks like a philosopher or a virtuoso. Here is a great deal both o..."
+description: >
+  The strain of this chapter is very unlike the rest of this book. Job forgets his sores, and all his sorrows, and talks like a philosopher or a virtuoso. Here is a great deal both o...
 weight: 28
 ---
 

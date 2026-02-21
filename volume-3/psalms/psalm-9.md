@@ -1,7 +1,8 @@
 ---
 title: "Psalm 9 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "9"
-description: "In this psalm, I. David praises God for pleading his cause, and giving him victory over his enemies and the enemies of his country (Ps 9:1-6), and calls upon others to join with hi..."
+description: >
+  In this psalm, I. David praises God for pleading his cause, and giving him victory over his enemies and the enemies of his country (Ps 9:1-6), and calls upon others to join with hi...
 weight: 9
 ---
 

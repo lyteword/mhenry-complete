@@ -1,7 +1,8 @@
 ---
 title: "Preface - Volume 3 | Read the Matthew Henry Concise Bible Commentary Online"
 linkTitle: "Preface"
-description: "These five books of scripture which are contained in this third volume and which I have here endeavoured, according to the measure of the gift given to me, to explain and improve..."
+description: >
+  These five books of scripture which are contained in this third volume and which I have here endeavoured, according to the measure of the gift given to me, to explain and improve...
 weight: 1
 ---
 

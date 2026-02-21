@@ -1,7 +1,8 @@
 ---
 title: "Psalm 20 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "20"
-description: "It is the will of God that prayers, intercessions, and thanksgivings, should be made, in special manner, for kings and all in authority. This psalm is a prayer, and the next a than..."
+description: >
+  It is the will of God that prayers, intercessions, and thanksgivings, should be made, in special manner, for kings and all in authority. This psalm is a prayer, and the next a than...
 weight: 20
 ---
 

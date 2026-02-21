@@ -1,7 +1,8 @@
 ---
 title: "Proverbs 14 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "14"
-description: "## Wisdom and Folly
+description: >
+  "## Wisdom and Folly
 "
 weight: 14
 ---

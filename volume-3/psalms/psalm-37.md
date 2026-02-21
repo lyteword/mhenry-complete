@@ -1,7 +1,8 @@
 ---
 title: "Psalm 37 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "37"
-description: "This psalm is a sermon, and an excellent useful sermon it is, calculated not (as most of the psalms) for our devotion, but for our conversation; there is nothing in it of prayer or..."
+description: >
+  This psalm is a sermon, and an excellent useful sermon it is, calculated not (as most of the psalms) for our devotion, but for our conversation; there is nothing in it of prayer or...
 weight: 37
 ---
 

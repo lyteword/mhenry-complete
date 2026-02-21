@@ -1,7 +1,8 @@
 ---
 title: "Job 14 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "14"
-description: "Job had turned from speaking to his friends, finding it to no purpose to reason with them, and here he goes on to speak to God and himself. He had reminded his friends of their fra..."
+description: >
+  Job had turned from speaking to his friends, finding it to no purpose to reason with them, and here he goes on to speak to God and himself. He had reminded his friends of their fra...
 weight: 14
 ---
 

@@ -1,7 +1,8 @@
 ---
 title: "Song Of Solomon 2 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "2"
-description: "In this chapter, I. Christ speaks both concerning himself and concerning his church, So 2:1,2. II. The church speaks, 1. Remembering the pleasure and satisfaction she has in commun..."
+description: >
+  In this chapter, I. Christ speaks both concerning himself and concerning his church, So 2:1,2. II. The church speaks, 1. Remembering the pleasure and satisfaction she has in commun...
 weight: 2
 ---
 

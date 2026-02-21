@@ -1,7 +1,8 @@
 ---
 title: "Psalm 76 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "76"
-description: "This psalm seems to have been penned upon occasion of some great victory obtained by the church over some threatening enemy or other, and designed to grace the triumph. The LXX. ca..."
+description: >
+  This psalm seems to have been penned upon occasion of some great victory obtained by the church over some threatening enemy or other, and designed to grace the triumph. The LXX. ca...
 weight: 76
 ---
 

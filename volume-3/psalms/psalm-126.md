@@ -1,7 +1,8 @@
 ---
 title: "Psalm 126 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "126"
-description: "It was with reference to some great and surprising deliverance of the people of God out of bondage and distress that this psalm was penned, most likely their return out of Babylon ..."
+description: >
+  It was with reference to some great and surprising deliverance of the people of God out of bondage and distress that this psalm was penned, most likely their return out of Babylon ...
 weight: 126
 ---
 

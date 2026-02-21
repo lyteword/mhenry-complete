@@ -1,7 +1,8 @@
 ---
 title: "Job 8 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "8"
-description: "Job\'s friends are like Job\'s messengers: the latter followed one another close with evil tidings, the former followed him with harsh censures: both, unawares, served Satan\'s design..."
+description: >
+  Job's friends are like Job's messengers: the latter followed one another close with evil tidings, the former followed him with harsh censures: both, unawares, served Satan's design...
 weight: 8
 ---
 

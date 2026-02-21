@@ -1,7 +1,8 @@
 ---
 title: "Psalm 118 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "118"
-description: "It is probable that David penned this psalm when he had, after many a story, weathered his point at last, and gained a full possession of the kingdom to which he had been anointed...."
+description: >
+  It is probable that David penned this psalm when he had, after many a story, weathered his point at last, and gained a full possession of the kingdom to which he had been anointed....
 weight: 118
 ---
 

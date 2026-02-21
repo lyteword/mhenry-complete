@@ -1,7 +1,8 @@
 ---
 title: "Job 16 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "16"
-description: "This chapter begins Job\'s reply to that discourse of Eliphaz which we had in the foregoing chapter; it is but the second part of the same song of lamentation with which he had befo..."
+description: >
+  This chapter begins Job's reply to that discourse of Eliphaz which we had in the foregoing chapter; it is but the second part of the same song of lamentation with which he had befo...
 weight: 16
 ---
 

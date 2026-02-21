@@ -1,7 +1,8 @@
 ---
 title: "Job 1 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "1"
-description: "The history of Job begins here with an account, I. Of his great piety in general (Job 1:1), and in a particular instance, Job 1:5. II. Of his great prosperity, Job 1:2-4. III. Of t..."
+description: >
+  The history of Job begins here with an account, I. Of his great piety in general (Job 1:1), and in a particular instance, Job 1:5. II. Of his great prosperity, Job 1:2-4. III. Of t...
 weight: 1
 ---
 

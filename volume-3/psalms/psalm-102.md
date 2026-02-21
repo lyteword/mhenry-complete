@@ -1,7 +1,8 @@
 ---
 title: "Psalm 102 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "102"
-description: "Some think that David penned this psalm at the time of Absalom\'s rebellion; others that Daniel, Nehemiah, or some other prophet, penned it for the use of the church, when it was in..."
+description: >
+  Some think that David penned this psalm at the time of Absalom's rebellion; others that Daniel, Nehemiah, or some other prophet, penned it for the use of the church, when it was in...
 weight: 102
 ---
 

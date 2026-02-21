@@ -1,7 +1,8 @@
 ---
 title: "Proverbs 7 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "7"
-description: "The scope of this chapter is, as of several before, to warn young men against the lusts of the flesh. Solomon remembered of what ill consequence it was to his father, perhaps found..."
+description: >
+  The scope of this chapter is, as of several before, to warn young men against the lusts of the flesh. Solomon remembered of what ill consequence it was to his father, perhaps found...
 weight: 7
 ---
 

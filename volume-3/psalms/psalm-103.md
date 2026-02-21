@@ -1,7 +1,8 @@
 ---
 title: "Psalm 103 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "103"
-description: "This psalm calls more for devotion than exposition; it is a most excellent psalm of praise, and of general use. The psalmist, I. Stirs up himself and his own soul to praise God (Ps..."
+description: >
+  This psalm calls more for devotion than exposition; it is a most excellent psalm of praise, and of general use. The psalmist, I. Stirs up himself and his own soul to praise God (Ps...
 weight: 103
 ---
 

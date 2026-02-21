@@ -1,7 +1,8 @@
 ---
 title: "Psalm 100 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "100"
-description: "It is with good reason that many sing this psalm very frequently in their religious assemblies, for it is very proper both to express and to excite pious and devout affections towa..."
+description: >
+  It is with good reason that many sing this psalm very frequently in their religious assemblies, for it is very proper both to express and to excite pious and devout affections towa...
 weight: 100
 ---
 

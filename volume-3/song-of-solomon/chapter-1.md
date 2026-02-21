@@ -1,7 +1,8 @@
 ---
 title: "Song Of Solomon 1 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "1"
-description: "In this chapter, after the title of the book (So 1:1), we have Christ and his church, Christ and a believer, expressing their esteem for each other. I. The bride, the church, speak..."
+description: >
+  In this chapter, after the title of the book (So 1:1), we have Christ and his church, Christ and a believer, expressing their esteem for each other. I. The bride, the church, speak...
 weight: 1
 ---
 

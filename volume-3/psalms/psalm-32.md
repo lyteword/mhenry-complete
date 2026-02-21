@@ -1,7 +1,8 @@
 ---
 title: "Psalm 32 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "32"
-description: "This psalm, though it speaks not of Christ, as many of the psalms we have hitherto met with have done, has yet a great deal of gospel in it. The apostle tells us that David, in thi..."
+description: >
+  This psalm, though it speaks not of Christ, as many of the psalms we have hitherto met with have done, has yet a great deal of gospel in it. The apostle tells us that David, in thi...
 weight: 32
 ---
 

@@ -1,7 +1,8 @@
 ---
 title: "Psalm 10 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "10"
-description: "The Septuagint translation joins this psalm with the ninth, and makes them but one; but the Hebrew makes it a distinct psalm, and the scope and style are certainly different. In th..."
+description: >
+  The Septuagint translation joins this psalm with the ninth, and makes them but one; but the Hebrew makes it a distinct psalm, and the scope and style are certainly different. In th...
 weight: 10
 ---
 

@@ -1,7 +1,8 @@
 ---
 title: "Psalm 147 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "147"
-description: "This is another psalm of praise. Some think it was penned after the return of the Jews from their captivity; but it is so much of a piece with Ps 145:1-21 that I rather think it wa..."
+description: >
+  This is another psalm of praise. Some think it was penned after the return of the Jews from their captivity; but it is so much of a piece with Ps 145:1-21 that I rather think it wa...
 weight: 147
 ---
 

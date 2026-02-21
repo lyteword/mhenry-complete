@@ -1,7 +1,8 @@
 ---
 title: "Psalm 11 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "11"
-description: "In this psalm we have David\'s struggle with and triumph over a strong temptation to distrust God and betake himself to indirect means for his own safety in a time of danger. It is ..."
+description: >
+  In this psalm we have David's struggle with and triumph over a strong temptation to distrust God and betake himself to indirect means for his own safety in a time of danger. It is ...
 weight: 11
 ---
 

@@ -1,7 +1,8 @@
 ---
 title: "Proverbs 5 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "5"
-description: "The scope of this chapter is much the same with that of Pr 2:1-22. To write the same things, in other words, ought not to be grievous, for it is safe, Php 3:1. Here is, I. An exhor..."
+description: >
+  The scope of this chapter is much the same with that of Pr 2:1-22. To write the same things, in other words, ought not to be grievous, for it is safe, Php 3:1. Here is, I. An exhor...
 weight: 5
 ---
 

@@ -1,7 +1,8 @@
 ---
 title: "Psalm 93 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "93"
-description: "This short psalm sets forth the honour of the kingdom of God among men, to his glory, the terror of his enemies, and the comfort of all his loving subjects. It relates both to the ..."
+description: >
+  This short psalm sets forth the honour of the kingdom of God among men, to his glory, the terror of his enemies, and the comfort of all his loving subjects. It relates both to the ...
 weight: 93
 ---
 

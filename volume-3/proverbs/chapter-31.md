@@ -1,7 +1,8 @@
 ---
 title: "Proverbs 31 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "31"
-description: "This chapter is added to Solomon\'s proverbs, some think because it is of the same author, supposing king Lemuel to be king Solomon; others only because it is of the same nature, th..."
+description: >
+  This chapter is added to Solomon's proverbs, some think because it is of the same author, supposing king Lemuel to be king Solomon; others only because it is of the same nature, th...
 weight: 31
 ---
 

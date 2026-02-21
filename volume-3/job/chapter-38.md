@@ -1,7 +1,8 @@
 ---
 title: "Job 38 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "38"
-description: "In most disputes the strife is who shall have the last word. Job\'s friends had, in this controversy, tamely yielded it to Job, and then he to Elihu. But, after all the wranglings o..."
+description: >
+  In most disputes the strife is who shall have the last word. Job's friends had, in this controversy, tamely yielded it to Job, and then he to Elihu. But, after all the wranglings o...
 weight: 38
 ---
 

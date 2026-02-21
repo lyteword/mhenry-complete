@@ -1,7 +1,8 @@
 ---
 title: "Job 19 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "19"
-description: "This chapter is Job\'s answer to Bildad\'s discourse in the foregoing chapter. Though his spirit was grieved and much heated, and Bildad was very peevish, yet he gave him leave to sa..."
+description: >
+  This chapter is Job's answer to Bildad's discourse in the foregoing chapter. Though his spirit was grieved and much heated, and Bildad was very peevish, yet he gave him leave to sa...
 weight: 19
 ---
 

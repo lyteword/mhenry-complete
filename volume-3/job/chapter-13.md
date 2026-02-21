@@ -1,7 +1,8 @@
 ---
 title: "Job 13 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "13"
-description: "Job here comes to make application of what he had said in the foregoing chapter; and now we have him not in so good a temper as he was in then: for, I. He is very bold with his fri..."
+description: >
+  Job here comes to make application of what he had said in the foregoing chapter; and now we have him not in so good a temper as he was in then: for, I. He is very bold with his fri...
 weight: 13
 ---
 

@@ -1,7 +1,8 @@
 ---
 title: "Psalm 133 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "133"
-description: "This psalm is a brief encomium on unity and brotherly love, which, if we did not see the miseries of discord among men, we should think needless; but we cannot say too much, it wer..."
+description: >
+  This psalm is a brief encomium on unity and brotherly love, which, if we did not see the miseries of discord among men, we should think needless; but we cannot say too much, it wer...
 weight: 133
 ---
 

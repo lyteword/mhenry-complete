@@ -1,7 +1,8 @@
 ---
 title: "Song Of Solomon 6 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "6"
-description: "In this chapter, I. The daughters of Jerusalem, moved with the description which the church had given of Christ, enquire after him, So 6:1. II. The church directs them where they m..."
+description: >
+  In this chapter, I. The daughters of Jerusalem, moved with the description which the church had given of Christ, enquire after him, So 6:1. II. The church directs them where they m...
 weight: 6
 ---
 

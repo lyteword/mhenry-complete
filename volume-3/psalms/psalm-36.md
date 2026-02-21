@@ -1,7 +1,8 @@
 ---
 title: "Psalm 36 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "36"
-description: "It is uncertain when, and upon what occasion, David penned this psalm, probably when he was struck at either by Saul or by Absalom; for in it he complains of the malice of his enem..."
+description: >
+  It is uncertain when, and upon what occasion, David penned this psalm, probably when he was struck at either by Saul or by Absalom; for in it he complains of the malice of his enem...
 weight: 36
 ---
 

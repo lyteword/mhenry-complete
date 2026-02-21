@@ -1,7 +1,8 @@
 ---
 title: "Psalm 61 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "61"
-description: "David, in this psalm, as in many others, begins with a sad heart, but concludes with an air of pleasantness—begins with prayers and tears, but ends with songs of praise. Thus the s..."
+description: >
+  David, in this psalm, as in many others, begins with a sad heart, but concludes with an air of pleasantness—begins with prayers and tears, but ends with songs of praise. Thus the s...
 weight: 61
 ---
 

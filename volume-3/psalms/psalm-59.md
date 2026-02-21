@@ -1,7 +1,8 @@
 ---
 title: "Psalm 59 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "59"
-description: "This psalm is of the same nature and scope with six or seven foregoing psalms; they are all filled with David\'s complaints of the malice of his enemies and of their cursed and crue..."
+description: >
+  This psalm is of the same nature and scope with six or seven foregoing psalms; they are all filled with David's complaints of the malice of his enemies and of their cursed and crue...
 weight: 59
 ---
 

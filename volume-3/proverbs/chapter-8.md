@@ -1,7 +1,8 @@
 ---
 title: "Proverbs 8 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "8"
-description: "The word of God is two-fold, and, in both senses, is wisdom; for a word without wisdom is of little value, and wisdom without a word is of little use. Now, I. Divine revelation is ..."
+description: >
+  The word of God is two-fold, and, in both senses, is wisdom; for a word without wisdom is of little value, and wisdom without a word is of little use. Now, I. Divine revelation is ...
 weight: 8
 ---
 

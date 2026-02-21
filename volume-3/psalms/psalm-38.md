@@ -1,7 +1,8 @@
 ---
 title: "Psalm 38 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "38"
-description: "This is one of the penitential psalms; it is full of grief and complaint from the beginning to the end. David\'s sins and his afflictions are the cause of his grief and the matter o..."
+description: >
+  This is one of the penitential psalms; it is full of grief and complaint from the beginning to the end. David's sins and his afflictions are the cause of his grief and the matter o...
 weight: 38
 ---
 

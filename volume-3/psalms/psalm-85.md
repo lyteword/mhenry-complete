@@ -1,7 +1,8 @@
 ---
 title: "Psalm 85 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "85"
-description: "Interpreters are generally of the opinion that this psalm was penned after the return of the Jews out of their captivity in Babylon, when they still remained under some tokens of G..."
+description: >
+  Interpreters are generally of the opinion that this psalm was penned after the return of the Jews out of their captivity in Babylon, when they still remained under some tokens of G...
 weight: 85
 ---
 

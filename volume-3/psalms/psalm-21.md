@@ -1,7 +1,8 @@
 ---
 title: "Psalm 21 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "21"
-description: "As the foregoing psalm was a prayer for the king that God would protect and prosper him, so this is a thanksgiving for the success God had blessed him with. Those whom we have pray..."
+description: >
+  As the foregoing psalm was a prayer for the king that God would protect and prosper him, so this is a thanksgiving for the success God had blessed him with. Those whom we have pray...
 weight: 21
 ---
 

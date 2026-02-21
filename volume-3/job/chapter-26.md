@@ -1,7 +1,8 @@
 ---
 title: "Job 26 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "26"
-description: "This is Job\'s short reply to Bildad\'s short discourse, in which he is so far from contradicting him that he confirms what he had said, and out-does him in magnifying God and settin..."
+description: >
+  This is Job's short reply to Bildad's short discourse, in which he is so far from contradicting him that he confirms what he had said, and out-does him in magnifying God and settin...
 weight: 26
 ---
 

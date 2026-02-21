@@ -1,7 +1,8 @@
 ---
 title: "Job 17 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "17"
-description: "In this chapter, I. Job reflects upon the harsh censures which his friends had passed upon him, and looking upon himself as a dying man (Job 17:1), he appeals to God, and begs of h..."
+description: >
+  In this chapter, I. Job reflects upon the harsh censures which his friends had passed upon him, and looking upon himself as a dying man (Job 17:1), he appeals to God, and begs of h...
 weight: 17
 ---
 

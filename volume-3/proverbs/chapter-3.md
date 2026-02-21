@@ -1,7 +1,8 @@
 ---
 title: "Proverbs 3 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "3"
-description: "This chapter is one of the most excellent in all this book, both for argument to persuade us to be religious and for directions therein. I. We must be constant to our duty because ..."
+description: >
+  This chapter is one of the most excellent in all this book, both for argument to persuade us to be religious and for directions therein. I. We must be constant to our duty because ...
 weight: 3
 ---
 

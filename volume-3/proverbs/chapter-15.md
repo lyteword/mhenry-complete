@@ -1,7 +1,8 @@
 ---
 title: "Proverbs 15 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "15"
-description: "## The Proper Use of the Tongue
+description: >
+  "## The Proper Use of the Tongue
 "
 weight: 15
 ---

@@ -1,7 +1,8 @@
 ---
 title: "Job 40 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "40"
-description: "Many humbling confounding questions God had put to Job, in the foregoing chapter; now, in this chapter, I. He demands an answer to them, Job 40:1,2. II. Job submits in a humble sil..."
+description: >
+  Many humbling confounding questions God had put to Job, in the foregoing chapter; now, in this chapter, I. He demands an answer to them, Job 40:1,2. II. Job submits in a humble sil...
 weight: 40
 ---
 

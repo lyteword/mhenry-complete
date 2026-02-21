@@ -1,7 +1,8 @@
 ---
 title: "Proverbs 10 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "10"
-description: "Hitherto we have been in the porch or preface to the proverbs, here they begin. They are short but weighty sentences; most of them are distichs, two sentences in one verse, illustr..."
+description: >
+  Hitherto we have been in the porch or preface to the proverbs, here they begin. They are short but weighty sentences; most of them are distichs, two sentences in one verse, illustr...
 weight: 10
 ---
 

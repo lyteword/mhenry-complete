@@ -1,7 +1,8 @@
 ---
 title: "Job 30 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "30"
-description: "It is a melancholy \"But now\" which this chapter begins with. Adversity is here described as much to the life as prosperity was in the foregoing chapter, and the height of that did ..."
+description: >
+  It is a melancholy "But now" which this chapter begins with. Adversity is here described as much to the life as prosperity was in the foregoing chapter, and the height of that did ...
 weight: 30
 ---
 

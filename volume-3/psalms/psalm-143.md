@@ -1,7 +1,8 @@
 ---
 title: "Psalm 143 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "143"
-description: "This psalm, as those before, is a prayer of David, and full of complaints of the great distress and danger he was in, probably when Saul persecuted him. He did not only pray in tha..."
+description: >
+  This psalm, as those before, is a prayer of David, and full of complaints of the great distress and danger he was in, probably when Saul persecuted him. He did not only pray in tha...
 weight: 143
 ---
 

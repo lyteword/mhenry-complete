@@ -1,7 +1,8 @@
 ---
 title: "Psalm 55 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "55"
-description: "It is the conjecture of many expositors that David penned this psalm upon occasion of Absalom\'s rebellion, and that the particular enemy he here speaks of, that dealt treacherously..."
+description: >
+  It is the conjecture of many expositors that David penned this psalm upon occasion of Absalom's rebellion, and that the particular enemy he here speaks of, that dealt treacherously...
 weight: 55
 ---
 

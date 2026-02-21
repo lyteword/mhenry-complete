@@ -1,7 +1,8 @@
 ---
 title: "Psalm 51 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "51"
-description: "Though David penned this psalm upon a very particular occasion, yet, it is of as general use as any of David\'s psalms; it is the most eminent of the penitential psalms, and most ex..."
+description: >
+  Though David penned this psalm upon a very particular occasion, yet, it is of as general use as any of David's psalms; it is the most eminent of the penitential psalms, and most ex...
 weight: 51
 ---
 

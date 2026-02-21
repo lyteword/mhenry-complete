@@ -1,7 +1,8 @@
 ---
 title: "Psalm 116 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "116"
-description: "This is a thanksgiving psalm; it is not certain whether David penned it upon any particular occasion or upon a general review of the many gracious deliverances God had wrought for ..."
+description: >
+  This is a thanksgiving psalm; it is not certain whether David penned it upon any particular occasion or upon a general review of the many gracious deliverances God had wrought for ...
 weight: 116
 ---
 

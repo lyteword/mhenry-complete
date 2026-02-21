@@ -1,7 +1,8 @@
 ---
 title: "Job 4 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "4"
-description: "Job having warmly given vent to his passion, and so broken the ice, his friends here come gravely to give vent to their judgment upon his case, which perhaps they had communicated ..."
+description: >
+  Job having warmly given vent to his passion, and so broken the ice, his friends here come gravely to give vent to their judgment upon his case, which perhaps they had communicated ...
 weight: 4
 ---
 

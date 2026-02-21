@@ -1,7 +1,8 @@
 ---
 title: "Proverbs 1 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "1"
-description: "Those who read David\'s psalms, especially those towards the latter end, would be tempted to think that religion is all rapture and consists in nothing but the ecstasies and transpo..."
+description: >
+  Those who read David's psalms, especially those towards the latter end, would be tempted to think that religion is all rapture and consists in nothing but the ecstasies and transpo...
 weight: 1
 ---
 

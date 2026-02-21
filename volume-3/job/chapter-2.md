@@ -1,7 +1,8 @@
 ---
 title: "Job 2 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "2"
-description: "We left Job honourably acquitted upon a fair trial between God and Satan concerning him. Satan had leave to touch, to touch and take, all he had, and was confident that he would th..."
+description: >
+  We left Job honourably acquitted upon a fair trial between God and Satan concerning him. Satan had leave to touch, to touch and take, all he had, and was confident that he would th...
 weight: 2
 ---
 

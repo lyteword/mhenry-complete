@@ -1,7 +1,8 @@
 ---
 title: "Psalm 99 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "99"
-description: "Still we are celebrating the glories of the kingdom of God among men, and are called upon to praise him, as in the foregoing psalms; but those psalms looked forward to the times of..."
+description: >
+  Still we are celebrating the glories of the kingdom of God among men, and are called upon to praise him, as in the foregoing psalms; but those psalms looked forward to the times of...
 weight: 99
 ---
 

@@ -1,7 +1,8 @@
 ---
 title: "Psalm 25 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "25"
-description: "This psalm is full of devout affection to God, the out-goings of holy desires towards his favour and grace and the lively actings of faith in his promises. We may learn out of it, ..."
+description: >
+  This psalm is full of devout affection to God, the out-goings of holy desires towards his favour and grace and the lively actings of faith in his promises. We may learn out of it, ...
 weight: 25
 ---
 

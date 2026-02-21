@@ -1,7 +1,8 @@
 ---
 title: "Psalm 41 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "41"
-description: "God\'s kindness and truth have often been the support and comfort of the saints when they have had most experience of man\'s unkindness and treachery. David here found them so, upon ..."
+description: >
+  God's kindness and truth have often been the support and comfort of the saints when they have had most experience of man's unkindness and treachery. David here found them so, upon ...
 weight: 41
 ---
 

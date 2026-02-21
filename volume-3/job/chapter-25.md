@@ -1,7 +1,8 @@
 ---
 title: "Job 25 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "25"
-description: "Bildad here makes a very short reply to Job\'s last discourse, as one that began to be tired of the cause. He drops the main question concerning the prosperity of wicked men, as bei..."
+description: >
+  Bildad here makes a very short reply to Job's last discourse, as one that began to be tired of the cause. He drops the main question concerning the prosperity of wicked men, as bei...
 weight: 25
 ---
 

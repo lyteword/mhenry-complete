@@ -1,7 +1,8 @@
 ---
 title: "Psalm 89 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "89"
-description: "Many psalms that begin with complaint and prayer end with joy and praise, but this begins with joy and praise and ends with sad complaints and petitions; for the psalmist first rec..."
+description: >
+  Many psalms that begin with complaint and prayer end with joy and praise, but this begins with joy and praise and ends with sad complaints and petitions; for the psalmist first rec...
 weight: 89
 ---
 

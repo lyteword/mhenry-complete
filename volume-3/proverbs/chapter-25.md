@@ -1,7 +1,8 @@
 ---
 title: "Proverbs 25 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "25"
-description: "## Pleasures and Advantages of Wisdom
+description: >
+  "## Pleasures and Advantages of Wisdom
 "
 weight: 25
 ---
