@@ -1,7 +1,8 @@
 ---
 title: "Jeremiah 2 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "2"
-description: "It is probable that this chapter was Jeremiah\'s first sermon after his ordination; and a most lively pathetic sermon it is as any we have is all the books of the prophets. Let him ..."
+description: >
+  It is probable that this chapter was Jeremiah's first sermon after his ordination; and a most lively pathetic sermon it is as any we have is all the books of the prophets. Let him ...
 weight: 2
 ---
 

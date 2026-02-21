@@ -1,7 +1,8 @@
 ---
 title: "Malachi 1 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "1"
-description: "Thus prophet is sent first to convince and then to comfort, first to discover sin and to reprove for that and then to promise the coming of him who shall take away sin. And this me..."
+description: >
+  Thus prophet is sent first to convince and then to comfort, first to discover sin and to reprove for that and then to promise the coming of him who shall take away sin. And this me...
 weight: 1
 ---
 

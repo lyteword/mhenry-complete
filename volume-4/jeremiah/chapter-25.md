@@ -1,7 +1,8 @@
 ---
 title: "Jeremiah 25 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "25"
-description: "The prophecy of this chapter bears date some time before those prophecies in the chapters next foregoing, for they are not placed in the exact order of time in which they were deli..."
+description: >
+  The prophecy of this chapter bears date some time before those prophecies in the chapters next foregoing, for they are not placed in the exact order of time in which they were deli...
 weight: 25
 ---
 

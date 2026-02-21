@@ -1,7 +1,8 @@
 ---
 title: "Lamentations 1 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "1"
-description: "We have here the first alphabet of this lamentation, twenty-two stanzas, in which the miseries of Jerusalem are bitterly bewailed and her present deplorable condition is aggravated..."
+description: >
+  We have here the first alphabet of this lamentation, twenty-two stanzas, in which the miseries of Jerusalem are bitterly bewailed and her present deplorable condition is aggravated...
 weight: 1
 ---
 

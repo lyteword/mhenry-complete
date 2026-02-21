@@ -1,7 +1,8 @@
 ---
 title: "Isaiah 21 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "21"
-description: "In this chapter we have a prophecy of sad times coming, and heavy burdens, I. Upon Babylon, here called \"the desert of the sea,\" that it should be destroyed by the Medes and Persia..."
+description: >
+  In this chapter we have a prophecy of sad times coming, and heavy burdens, I. Upon Babylon, here called "the desert of the sea," that it should be destroyed by the Medes and Persia...
 weight: 21
 ---
 

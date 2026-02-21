@@ -1,7 +1,8 @@
 ---
 title: "Ezekiel 6 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "6"
-description: "In this chapter we have, I. A threatening of the destruction of Israel for their idolatry, and the destruction of their idols with them, Eze 6:1-7. II. A promise of the gracious re..."
+description: >
+  In this chapter we have, I. A threatening of the destruction of Israel for their idolatry, and the destruction of their idols with them, Eze 6:1-7. II. A promise of the gracious re...
 weight: 6
 ---
 

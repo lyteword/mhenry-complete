@@ -1,7 +1,8 @@
 ---
 title: "Malachi 4 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "4"
-description: "We have here proper instructions given us (very proper to close the canon of the Old Testament with), I. Concerning the state of recompence and retribution that is before us, the m..."
+description: >
+  We have here proper instructions given us (very proper to close the canon of the Old Testament with), I. Concerning the state of recompence and retribution that is before us, the m...
 weight: 4
 ---
 

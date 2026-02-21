@@ -1,7 +1,8 @@
 ---
 title: "Amos 3 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "3"
-description: "A stupid, senseless, heedless people, are, in this chapter, called upon to take notice, I. Of the judgments of God denounced against them and the warnings he gave them of those jud..."
+description: >
+  A stupid, senseless, heedless people, are, in this chapter, called upon to take notice, I. Of the judgments of God denounced against them and the warnings he gave them of those jud...
 weight: 3
 ---
 

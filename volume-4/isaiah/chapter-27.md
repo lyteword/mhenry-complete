@@ -1,7 +1,8 @@
 ---
 title: "Isaiah 27 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "27"
-description: "In this chapter the prophet goes on to show, I. What great things God would do for his church and people, which should now shortly be accomplished in the deliverance of Jerusalem f..."
+description: >
+  In this chapter the prophet goes on to show, I. What great things God would do for his church and people, which should now shortly be accomplished in the deliverance of Jerusalem f...
 weight: 27
 ---
 

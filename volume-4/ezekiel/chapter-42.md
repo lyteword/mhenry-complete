@@ -1,7 +1,8 @@
 ---
 title: "Ezekiel 42 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "42"
-description: "This chapter continues and concludes the describing and measuring of this mystical temple, which it is very hard to understand the particular architecture of, and yet more hard to ..."
+description: >
+  This chapter continues and concludes the describing and measuring of this mystical temple, which it is very hard to understand the particular architecture of, and yet more hard to ...
 weight: 42
 ---
 

@@ -1,7 +1,8 @@
 ---
 title: "Amos 8 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "8"
-description: "Sinful times are here attended with sorrowful times, so necessary is the connexion between them; it is threatened here again and again that the laughter shall be turned into mourni..."
+description: >
+  Sinful times are here attended with sorrowful times, so necessary is the connexion between them; it is threatened here again and again that the laughter shall be turned into mourni...
 weight: 8
 ---
 

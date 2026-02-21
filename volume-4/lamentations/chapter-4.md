@@ -1,7 +1,8 @@
 ---
 title: "Lamentations 4 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "4"
-description: "This chapter is another single alphabet of Lamentations for the destruction of Jerusalem, like those in the first two chapters. I. The prophet here laments the injuries and indigni..."
+description: >
+  This chapter is another single alphabet of Lamentations for the destruction of Jerusalem, like those in the first two chapters. I. The prophet here laments the injuries and indigni...
 weight: 4
 ---
 

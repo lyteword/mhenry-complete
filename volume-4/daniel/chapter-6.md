@@ -1,7 +1,8 @@
 ---
 title: "Daniel 6 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "6"
-description: "Daniel does not give a continued history of the reigns in which he lived, nor of the state-affairs of the kingdoms of Chaldea and Persia, though he was himself a great man in those..."
+description: >
+  Daniel does not give a continued history of the reigns in which he lived, nor of the state-affairs of the kingdoms of Chaldea and Persia, though he was himself a great man in those...
 weight: 6
 ---
 

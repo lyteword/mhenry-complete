@@ -1,7 +1,8 @@
 ---
 title: "Ezekiel 38 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "38"
-description: "This chapter, and that which follows it, are concerning Gog and Magog, a powerful enemy to the people of Israel, that should make a formidable descent upon them, and put them into ..."
+description: >
+  This chapter, and that which follows it, are concerning Gog and Magog, a powerful enemy to the people of Israel, that should make a formidable descent upon them, and put them into ...
 weight: 38
 ---
 

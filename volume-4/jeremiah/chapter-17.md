@@ -1,7 +1,8 @@
 ---
 title: "Jeremiah 17 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "17"
-description: "In this chapter, I. God convicts the Jews of the sin of idolatry by the notorious evidence of the fact, and condemns them to captivity for it, Jer 17:1-4. II. He shows them the fol..."
+description: >
+  In this chapter, I. God convicts the Jews of the sin of idolatry by the notorious evidence of the fact, and condemns them to captivity for it, Jer 17:1-4. II. He shows them the fol...
 weight: 17
 ---
 

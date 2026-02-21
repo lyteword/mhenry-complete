@@ -1,7 +1,8 @@
 ---
 title: "Ezekiel 45 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "45"
-description: "In this chapter is further represented to the prophet, in vision, I. The division of the holy land, so much for the temple, and the priests that attended the service of it (Eze 45:..."
+description: >
+  In this chapter is further represented to the prophet, in vision, I. The division of the holy land, so much for the temple, and the priests that attended the service of it (Eze 45:...
 weight: 45
 ---
 

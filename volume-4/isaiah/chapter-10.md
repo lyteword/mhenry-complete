@@ -1,7 +1,8 @@
 ---
 title: "Isaiah 10 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "10"
-description: "The prophet, in this chapter, is dealing, I. With the proud oppressors of his people at home, that abused their power, to pervert justice, whom he would reckon with for their tyran..."
+description: >
+  The prophet, in this chapter, is dealing, I. With the proud oppressors of his people at home, that abused their power, to pervert justice, whom he would reckon with for their tyran...
 weight: 10
 ---
 

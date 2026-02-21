@@ -1,7 +1,8 @@
 ---
 title: "Ezekiel 34 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "34"
-description: "The iniquities and calamities of God\'s Israel had been largely and pathetically lamented before, in this book. Now in this chapter the shepherds of Israel, their rulers both in chu..."
+description: >
+  The iniquities and calamities of God's Israel had been largely and pathetically lamented before, in this book. Now in this chapter the shepherds of Israel, their rulers both in chu...
 weight: 34
 ---
 

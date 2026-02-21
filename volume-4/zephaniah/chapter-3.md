@@ -1,7 +1,8 @@
 ---
 title: "Zephaniah 3 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "3"
-description: "We now return to Jerusalem, and must again hear what God has to say to her, I. By way of reproof and threatening, for the abundance of wickedness that was found in her, of which di..."
+description: >
+  We now return to Jerusalem, and must again hear what God has to say to her, I. By way of reproof and threatening, for the abundance of wickedness that was found in her, of which di...
 weight: 3
 ---
 

@@ -1,7 +1,8 @@
 ---
 title: "Jeremiah 36 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "36"
-description: "Here is another expedient tried to work upon this heedless and untoward people, but it is tried in vain. A roll of a book is provided, containing an abstract or abridgment of all t..."
+description: >
+  Here is another expedient tried to work upon this heedless and untoward people, but it is tried in vain. A roll of a book is provided, containing an abstract or abridgment of all t...
 weight: 36
 ---
 

@@ -1,7 +1,8 @@
 ---
 title: "Micah 2 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "2"
-description: "In this chapter we have, I. The sins with which the people of Israel are charged—covetousness and oppression, fraudulent and violent practices (Mic 2:1,2), dealing barbarously, eve..."
+description: >
+  In this chapter we have, I. The sins with which the people of Israel are charged—covetousness and oppression, fraudulent and violent practices (Mic 2:1,2), dealing barbarously, eve...
 weight: 2
 ---
 

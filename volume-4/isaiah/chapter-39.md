@@ -1,7 +1,8 @@
 ---
 title: "Isaiah 39 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "39"
-description: "The story of this chapter likewise we had before, 2Ki 20:12, etc. It is here repeated, not only as a very memorable and improvable passage, but because it concludes with a prophecy..."
+description: >
+  The story of this chapter likewise we had before, 2Ki 20:12, etc. It is here repeated, not only as a very memorable and improvable passage, but because it concludes with a prophecy...
 weight: 39
 ---
 

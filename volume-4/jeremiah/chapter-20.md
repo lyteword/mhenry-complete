@@ -1,7 +1,8 @@
 ---
 title: "Jeremiah 20 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "20"
-description: "Such plain dealing as Jeremiah used in the foregoing chapter, one might easily foresee, if it did not convince and humble men, would provoke and exasperate them; and so it did; for..."
+description: >
+  Such plain dealing as Jeremiah used in the foregoing chapter, one might easily foresee, if it did not convince and humble men, would provoke and exasperate them; and so it did; for...
 weight: 20
 ---
 

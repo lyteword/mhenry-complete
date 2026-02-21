@@ -1,7 +1,8 @@
 ---
 title: "Haggai 2 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "2"
-description: "In this chapter we have three sermons preached by the prophet Haggai for the encouragement of those that are forward to build the temple. In the first he assures the builders that ..."
+description: >
+  In this chapter we have three sermons preached by the prophet Haggai for the encouragement of those that are forward to build the temple. In the first he assures the builders that ...
 weight: 2
 ---
 

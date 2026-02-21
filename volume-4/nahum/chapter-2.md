@@ -1,7 +1,8 @@
 ---
 title: "Nahum 2 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "2"
-description: "We now come closer to Nineveh, that great city; she took, not warning by the destruction of her armies and the fall of her king, and therefore may expect, since she persists in her..."
+description: >
+  We now come closer to Nineveh, that great city; she took, not warning by the destruction of her armies and the fall of her king, and therefore may expect, since she persists in her...
 weight: 2
 ---
 

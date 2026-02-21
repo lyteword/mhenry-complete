@@ -1,7 +1,8 @@
 ---
 title: "Isaiah 17 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "17"
-description: "Syria and Ephraim were confederate against Judah (Isa 7:1,2), and, they being so closely linked together in their counsels, this chapter, though it be entitled \"the burden of Damas..."
+description: >
+  Syria and Ephraim were confederate against Judah (Isa 7:1,2), and, they being so closely linked together in their counsels, this chapter, though it be entitled "the burden of Damas...
 weight: 17
 ---
 

@@ -1,7 +1,8 @@
 ---
 title: "Daniel 2 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "2"
-description: "It was said (Da 1:17) that Daniel had understanding in dreams; and here we have an early and eminent instance of it, which soon made him famous in the court of Babylon, as Joseph b..."
+description: >
+  It was said (Da 1:17) that Daniel had understanding in dreams; and here we have an early and eminent instance of it, which soon made him famous in the court of Babylon, as Joseph b...
 weight: 2
 ---
 

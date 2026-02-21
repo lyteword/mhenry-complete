@@ -1,7 +1,8 @@
 ---
 title: "Ezekiel 3 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "3"
-description: "In this chapter we have the further preparation of the prophet for the work to which God called him. I. His eating the roll that was presented to him in the close of the foregoing ..."
+description: >
+  In this chapter we have the further preparation of the prophet for the work to which God called him. I. His eating the roll that was presented to him in the close of the foregoing ...
 weight: 3
 ---
 

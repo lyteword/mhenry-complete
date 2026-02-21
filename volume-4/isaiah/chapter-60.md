@@ -1,7 +1,8 @@
 ---
 title: "Isaiah 60 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "60"
-description: "This whole chapter is all to the same purport, all in the same strain; it is a part of God\'s covenant with his church, which is spoken of in the Isa 59:21 of the foregoing chapter,..."
+description: >
+  This whole chapter is all to the same purport, all in the same strain; it is a part of God's covenant with his church, which is spoken of in the Isa 59:21 of the foregoing chapter,...
 weight: 60
 ---
 

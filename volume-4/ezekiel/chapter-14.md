@@ -1,7 +1,8 @@
 ---
 title: "Ezekiel 14 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "14"
-description: "Hearing the word, and prayer, are two great ordinances of God, in which we are to give honour to him and may hope to find favour and acceptance with him; and yet in this chapter, t..."
+description: >
+  Hearing the word, and prayer, are two great ordinances of God, in which we are to give honour to him and may hope to find favour and acceptance with him; and yet in this chapter, t...
 weight: 14
 ---
 

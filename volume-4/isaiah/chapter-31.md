@@ -1,7 +1,8 @@
 ---
 title: "Isaiah 31 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "31"
-description: "This chapter is an abridgment of the foregoing chapter; the heads of it are much the same. Here is, I. A woe to those who, when the Assyrian army invaded them, trusted to the Egypt..."
+description: >
+  This chapter is an abridgment of the foregoing chapter; the heads of it are much the same. Here is, I. A woe to those who, when the Assyrian army invaded them, trusted to the Egypt...
 weight: 31
 ---
 

@@ -1,7 +1,8 @@
 ---
 title: "Ezekiel 1 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "1"
-description: "In this chapter we have, I. The common circumstances of the prophecy now to be delivered, the time when it was delivered (Eze 1:1), the place where (Eze 1:2), and the person by who..."
+description: >
+  In this chapter we have, I. The common circumstances of the prophecy now to be delivered, the time when it was delivered (Eze 1:1), the place where (Eze 1:2), and the person by who...
 weight: 1
 ---
 

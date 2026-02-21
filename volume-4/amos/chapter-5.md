@@ -1,7 +1,8 @@
 ---
 title: "Amos 5 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "5"
-description: "The scope of this chapter is to prosecute the exhortation given to Israel in the close of the foregoing chapter to prepare to meet their God; the prophet here tells them, I. What p..."
+description: >
+  The scope of this chapter is to prosecute the exhortation given to Israel in the close of the foregoing chapter to prepare to meet their God; the prophet here tells them, I. What p...
 weight: 5
 ---
 

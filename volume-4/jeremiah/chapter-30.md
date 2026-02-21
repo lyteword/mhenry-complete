@@ -1,7 +1,8 @@
 ---
 title: "Jeremiah 30 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "30"
-description: "The sermon which we have in this and the following chapter is of a very different complexion from all those before. The prophet does indeed, by direction from God, change his voice..."
+description: >
+  The sermon which we have in this and the following chapter is of a very different complexion from all those before. The prophet does indeed, by direction from God, change his voice...
 weight: 30
 ---
 

@@ -1,7 +1,8 @@
 ---
 title: "Amos 6 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "6"
-description: "In this chapter we have, I. A sinful people studying to put a slight upon God\'s threatenings and to make them appear trivial, confiding in their privileges and pre-eminences above ..."
+description: >
+  In this chapter we have, I. A sinful people studying to put a slight upon God's threatenings and to make them appear trivial, confiding in their privileges and pre-eminences above ...
 weight: 6
 ---
 

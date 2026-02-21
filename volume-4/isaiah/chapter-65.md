@@ -1,7 +1,8 @@
 ---
 title: "Isaiah 65 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "65"
-description: "We are now drawing towards the conclusion of this evangelical prophecy, the last two chapters of which direct us to look as far forward as the new heavens and the new earth, the ne..."
+description: >
+  We are now drawing towards the conclusion of this evangelical prophecy, the last two chapters of which direct us to look as far forward as the new heavens and the new earth, the ne...
 weight: 65
 ---
 

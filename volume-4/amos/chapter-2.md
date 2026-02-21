@@ -1,7 +1,8 @@
 ---
 title: "Amos 2 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "2"
-description: "In this chapter, I. God, by the prophet, proceeds in a like controversy with Moab as before with other nations, Am 2:1-3. II. He shows what quarrel he had with Judah, Am 2:4,5. III..."
+description: >
+  In this chapter, I. God, by the prophet, proceeds in a like controversy with Moab as before with other nations, Am 2:1-3. II. He shows what quarrel he had with Judah, Am 2:4,5. III...
 weight: 2
 ---
 

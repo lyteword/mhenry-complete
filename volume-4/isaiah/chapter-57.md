@@ -1,7 +1,8 @@
 ---
 title: "Isaiah 57 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "57"
-description: "The prophet, in this chapter, makes his observations, I. Upon the deaths of good men, comforting those that were taken away in their integrity and reproving those that did not make..."
+description: >
+  The prophet, in this chapter, makes his observations, I. Upon the deaths of good men, comforting those that were taken away in their integrity and reproving those that did not make...
 weight: 57
 ---
 

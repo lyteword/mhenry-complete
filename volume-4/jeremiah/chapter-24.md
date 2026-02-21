@@ -1,7 +1,8 @@
 ---
 title: "Jeremiah 24 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "24"
-description: "In the close of the foregoing chapter we had a general prediction of the utter ruin of Jerusalem, that it should be forsaken and forgotten, which, whatever effect it had upon other..."
+description: >
+  In the close of the foregoing chapter we had a general prediction of the utter ruin of Jerusalem, that it should be forsaken and forgotten, which, whatever effect it had upon other...
 weight: 24
 ---
 

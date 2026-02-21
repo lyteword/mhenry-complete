@@ -1,7 +1,8 @@
 ---
 title: "Isaiah 42 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "42"
-description: "The prophet seems here to launch out yet further into the prophecy of the Messiah and his kingdom under the type of Cyrus; and, having the great work of man\'s salvation by him yet ..."
+description: >
+  The prophet seems here to launch out yet further into the prophecy of the Messiah and his kingdom under the type of Cyrus; and, having the great work of man's salvation by him yet ...
 weight: 42
 ---
 

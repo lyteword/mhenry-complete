@@ -1,7 +1,8 @@
 ---
 title: "Jeremiah 19 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "19"
-description: "The same melancholy theme is the subject of this chapter that was of those foregoing—the approaching ruin of Judah and Jerusalem for their sins. This Jeremiah had often foretold; h..."
+description: >
+  The same melancholy theme is the subject of this chapter that was of those foregoing—the approaching ruin of Judah and Jerusalem for their sins. This Jeremiah had often foretold; h...
 weight: 19
 ---
 

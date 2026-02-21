@@ -1,7 +1,8 @@
 ---
 title: "Isaiah 11 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "11"
-description: "It is a very good transition in prophecy (whether it be so in rhetoric or no), and a very common one, to pass from the prediction of the temporal deliverances of the church to that..."
+description: >
+  It is a very good transition in prophecy (whether it be so in rhetoric or no), and a very common one, to pass from the prediction of the temporal deliverances of the church to that...
 weight: 11
 ---
 

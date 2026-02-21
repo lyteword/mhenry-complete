@@ -1,7 +1,8 @@
 ---
 title: "Isaiah 24 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "24"
-description: "It is agreed that here begins a new sermon, which is continued to the end of Isa 24:1-27:13 And in it the prophet, according to the directions he had received, does, in many precio..."
+description: >
+  It is agreed that here begins a new sermon, which is continued to the end of Isa 24:1-27:13 And in it the prophet, according to the directions he had received, does, in many precio...
 weight: 24
 ---
 

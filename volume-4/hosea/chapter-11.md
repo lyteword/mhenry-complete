@@ -1,7 +1,8 @@
 ---
 title: "Hosea 11 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "11"
-description: "In this chapter we have, I. The great goodness of God towards his people Israel, and the great things he had done for them, Ho 11:1,3,4. II. Their ungrateful conduct towards him, n..."
+description: >
+  In this chapter we have, I. The great goodness of God towards his people Israel, and the great things he had done for them, Ho 11:1,3,4. II. Their ungrateful conduct towards him, n...
 weight: 11
 ---
 

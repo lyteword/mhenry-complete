@@ -1,7 +1,8 @@
 ---
 title: "Isaiah 37 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "37"
-description: "In this chapter we have a further repetition of the story which we had before in the book of Kings concerning Sennacherib. In the foregoing chapter we had him conquering and threat..."
+description: >
+  In this chapter we have a further repetition of the story which we had before in the book of Kings concerning Sennacherib. In the foregoing chapter we had him conquering and threat...
 weight: 37
 ---
 

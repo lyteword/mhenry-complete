@@ -1,7 +1,8 @@
 ---
 title: "Amos 1 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "1"
-description: "In this chapter we have, I. The general title of this prophecy (Am 1:1), with the general scope of it, Am 1:2. II. God\'s particular controversy with Syria (Am 1:3-5), with Palestin..."
+description: >
+  In this chapter we have, I. The general title of this prophecy (Am 1:1), with the general scope of it, Am 1:2. II. God's particular controversy with Syria (Am 1:3-5), with Palestin...
 weight: 1
 ---
 

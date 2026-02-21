@@ -1,7 +1,8 @@
 ---
 title: "Isaiah 12 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "12"
-description: "The salvation promised in the foregoing chapter was compared to that of Israel \"in the day that he came up out of the land of Egypt;\" so that chapter ends. Now as Moses and the chi..."
+description: >
+  The salvation promised in the foregoing chapter was compared to that of Israel "in the day that he came up out of the land of Egypt;" so that chapter ends. Now as Moses and the chi...
 weight: 12
 ---
 

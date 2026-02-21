@@ -1,7 +1,8 @@
 ---
 title: "Haggai 1 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "1"
-description: "In this chapter, after the preamble of the prophecy, we have, I. A reproof of the people of the Jews for their dilatoriness and slothfulness in building the temple, which had provo..."
+description: >
+  In this chapter, after the preamble of the prophecy, we have, I. A reproof of the people of the Jews for their dilatoriness and slothfulness in building the temple, which had provo...
 weight: 1
 ---
 

@@ -1,7 +1,8 @@
 ---
 title: "Isaiah 30 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "30"
-description: "The prophecy of this chapter seems to relate (as that in the foregoing chapter) to the approaching danger of Jerusalem and desolations of Judah by Sennacherib\'s invasion. Here is, ..."
+description: >
+  The prophecy of this chapter seems to relate (as that in the foregoing chapter) to the approaching danger of Jerusalem and desolations of Judah by Sennacherib's invasion. Here is, ...
 weight: 30
 ---
 

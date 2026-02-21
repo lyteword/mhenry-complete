@@ -1,7 +1,8 @@
 ---
 title: "Ezekiel 27 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "27"
-description: "Still we are attending the funeral of Tyre and the lamentations made for the fall of that renowned city. In this chapter we have, I. A large account of the dignity, wealth, and spl..."
+description: >
+  Still we are attending the funeral of Tyre and the lamentations made for the fall of that renowned city. In this chapter we have, I. A large account of the dignity, wealth, and spl...
 weight: 27
 ---
 

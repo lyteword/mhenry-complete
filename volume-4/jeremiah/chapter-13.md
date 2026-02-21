@@ -1,7 +1,8 @@
 ---
 title: "Jeremiah 13 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "13"
-description: "Still the prophet is attempting to awaken this secure and stubborn people to repentance, by the consideration of the judgments of God that were coming upon them. He is to tell them..."
+description: >
+  Still the prophet is attempting to awaken this secure and stubborn people to repentance, by the consideration of the judgments of God that were coming upon them. He is to tell them...
 weight: 13
 ---
 

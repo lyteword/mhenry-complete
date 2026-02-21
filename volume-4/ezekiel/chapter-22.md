@@ -1,7 +1,8 @@
 ---
 title: "Ezekiel 22 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "22"
-description: "Here are three separate messages which God entrusts the prophet to deliver concerning Judah and Jerusalem, and all to the same purport, to show them their sins and the judgments th..."
+description: >
+  Here are three separate messages which God entrusts the prophet to deliver concerning Judah and Jerusalem, and all to the same purport, to show them their sins and the judgments th...
 weight: 22
 ---
 

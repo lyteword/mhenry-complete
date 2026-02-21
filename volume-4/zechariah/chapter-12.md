@@ -1,7 +1,8 @@
 ---
 title: "Zechariah 12 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "12"
-description: "The apostle (Ga 4:25,26) distinguishes between \"Jerusalem which now is, and is in bondage with her children\"—the remaining carcase of the Jewish church that rejected Christ, and \"J..."
+description: >
+  The apostle (Ga 4:25,26) distinguishes between "Jerusalem which now is, and is in bondage with her children"—the remaining carcase of the Jewish church that rejected Christ, and "J...
 weight: 12
 ---
 

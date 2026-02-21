@@ -1,7 +1,8 @@
 ---
 title: "Isaiah 40 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "40"
-description: "At this chapter begins the latter part of the prophecy of this book, which is not only divided from the former by the historical chapters that come between, but seems to be disting..."
+description: >
+  At this chapter begins the latter part of the prophecy of this book, which is not only divided from the former by the historical chapters that come between, but seems to be disting...
 weight: 40
 ---
 

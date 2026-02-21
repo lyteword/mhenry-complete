@@ -1,7 +1,8 @@
 ---
 title: "Ezekiel 33 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "33"
-description: "The prophet has now come off his circuit, which he went as judge, in God\'s name, to try and pass sentence upon the neighbouring nations, and, having finished with them, and read th..."
+description: >
+  The prophet has now come off his circuit, which he went as judge, in God's name, to try and pass sentence upon the neighbouring nations, and, having finished with them, and read th...
 weight: 33
 ---
 

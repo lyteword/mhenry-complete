@@ -1,7 +1,8 @@
 ---
 title: "Isaiah 56 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "56"
-description: "After the exceedingly great and precious promises of gospel grace, typified by temporal deliverances, which we had in the foregoing chapter, we have here, I. A solemn charge given ..."
+description: >
+  After the exceedingly great and precious promises of gospel grace, typified by temporal deliverances, which we had in the foregoing chapter, we have here, I. A solemn charge given ...
 weight: 56
 ---
 

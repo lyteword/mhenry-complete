@@ -1,7 +1,8 @@
 ---
 title: "Jeremiah 14 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "14"
-description: "This chapter was penned upon occasion of a great drought, for want of rain. This judgment began in the latter end of Josiah\'s reign, but, as it should seem, continued in the beginn..."
+description: >
+  This chapter was penned upon occasion of a great drought, for want of rain. This judgment began in the latter end of Josiah's reign, but, as it should seem, continued in the beginn...
 weight: 14
 ---
 

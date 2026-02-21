@@ -1,7 +1,8 @@
 ---
 title: "Ezekiel 24 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "24"
-description: "Here are two sermons in this chapter, preached on a particular occasion, and they are both from Mount Sinai, the mount of terror, both from Mount Ebal, the mount of curses; both sp..."
+description: >
+  Here are two sermons in this chapter, preached on a particular occasion, and they are both from Mount Sinai, the mount of terror, both from Mount Ebal, the mount of curses; both sp...
 weight: 24
 ---
 

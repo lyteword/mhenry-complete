@@ -1,7 +1,8 @@
 ---
 title: "Isaiah 16 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "16"
-description: "This chapter continues and concludes the burden of Moab. In it, I. The prophet gives good counsel to the Moabites, to reform what was amiss among them, and particularly to be kind ..."
+description: >
+  This chapter continues and concludes the burden of Moab. In it, I. The prophet gives good counsel to the Moabites, to reform what was amiss among them, and particularly to be kind ...
 weight: 16
 ---
 

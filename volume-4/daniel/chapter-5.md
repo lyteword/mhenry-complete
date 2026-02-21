@@ -1,7 +1,8 @@
 ---
 title: "Daniel 5 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "5"
-description: "The destruction of the kingdom of Babylon had been long and often foretold when it was at a distance; in this chapter we have it accomplished, and a prediction of it the very same ..."
+description: >
+  The destruction of the kingdom of Babylon had been long and often foretold when it was at a distance; in this chapter we have it accomplished, and a prediction of it the very same ...
 weight: 5
 ---
 

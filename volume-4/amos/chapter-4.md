@@ -1,7 +1,8 @@
 ---
 title: "Amos 4 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "4"
-description: "In this chapter, I. The oppressors in Israel are threatened for their oppression of the poor, Am 4:1-3. II. The idolaters in Israel, being joined to idols, are given up to their ow..."
+description: >
+  In this chapter, I. The oppressors in Israel are threatened for their oppression of the poor, Am 4:1-3. II. The idolaters in Israel, being joined to idols, are given up to their ow...
 weight: 4
 ---
 

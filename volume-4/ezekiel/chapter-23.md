@@ -1,7 +1,8 @@
 ---
 title: "Ezekiel 23 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "23"
-description: "This long chapter (as before Eze 16:1-62,20:1-44) is a history of the apostasies of God\'s people from him and the aggravations of those apostasies under the similitude of corporal ..."
+description: >
+  This long chapter (as before Eze 16:1-62,20:1-44) is a history of the apostasies of God's people from him and the aggravations of those apostasies under the similitude of corporal ...
 weight: 23
 ---
 

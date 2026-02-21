@@ -1,7 +1,8 @@
 ---
 title: "Micah 4 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "4"
-description: "Comparing this chapter with the close of the foregoing chapter, the comfortable promises here with the terrible threatenings there, we may, with the apostle, \"behold the goodness a..."
+description: >
+  Comparing this chapter with the close of the foregoing chapter, the comfortable promises here with the terrible threatenings there, we may, with the apostle, "behold the goodness a...
 weight: 4
 ---
 

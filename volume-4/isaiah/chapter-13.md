@@ -1,7 +1,8 @@
 ---
 title: "Isaiah 13 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "13"
-description: "Hitherto the prophecies of this book related only to Judah and Israel, and Jerusalem especially; but now the prophet begins to look abroad, and to read the doom of divers of the ne..."
+description: >
+  Hitherto the prophecies of this book related only to Judah and Israel, and Jerusalem especially; but now the prophet begins to look abroad, and to read the doom of divers of the ne...
 weight: 13
 ---
 

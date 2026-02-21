@@ -1,7 +1,8 @@
 ---
 title: "Isaiah 61 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "61"
-description: "In this chapter, I. We are sure to find the grace of Christ, published by himself to a lost world in the everlasting gospel, under the type and figure of Isaiah\'s province, which w..."
+description: >
+  In this chapter, I. We are sure to find the grace of Christ, published by himself to a lost world in the everlasting gospel, under the type and figure of Isaiah's province, which w...
 weight: 61
 ---
 

@@ -1,7 +1,8 @@
 ---
 title: "Jeremiah 23 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "23"
-description: "In this chapter the prophet, in God\'s name, is dealing his reproofs and threatenings, I. Among the careless princes, or pastors of the people (Jer 23:1,2), yet promising to take ca..."
+description: >
+  In this chapter the prophet, in God's name, is dealing his reproofs and threatenings, I. Among the careless princes, or pastors of the people (Jer 23:1,2), yet promising to take ca...
 weight: 23
 ---
 

@@ -1,7 +1,8 @@
 ---
 title: "Isaiah 46 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "46"
-description: "God, by the prophet here, designing shortly to deliver them out of their captivity, prepared them for that deliverance by possessing them with a detestation of idols and with a bel..."
+description: >
+  God, by the prophet here, designing shortly to deliver them out of their captivity, prepared them for that deliverance by possessing them with a detestation of idols and with a bel...
 weight: 46
 ---
 

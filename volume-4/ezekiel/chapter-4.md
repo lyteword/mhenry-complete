@@ -1,7 +1,8 @@
 ---
 title: "Ezekiel 4 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "4"
-description: "Ezekiel was now among the captives in Babylon, but they there had Jerusalem still upon their hearts; the pious captives looked towards it with an eye of faith (as Da 6:10), the pre..."
+description: >
+  Ezekiel was now among the captives in Babylon, but they there had Jerusalem still upon their hearts; the pious captives looked towards it with an eye of faith (as Da 6:10), the pre...
 weight: 4
 ---
 

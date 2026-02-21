@@ -1,7 +1,8 @@
 ---
 title: "Malachi 3 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "3"
-description: "In this chapter we have, I. A promise of the coming of the Messiah, and of his forerunner; and the errand he comes upon is here particularly described, both the comfort which his c..."
+description: >
+  In this chapter we have, I. A promise of the coming of the Messiah, and of his forerunner; and the errand he comes upon is here particularly described, both the comfort which his c...
 weight: 3
 ---
 

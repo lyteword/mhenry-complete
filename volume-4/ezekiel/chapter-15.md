@@ -1,7 +1,8 @@
 ---
 title: "Ezekiel 15 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "15"
-description: "Ezekiel has again and again, in God\'s name, foretold the utter ruin of Jerusalem; but, it should seem, he finds it hard to reconcile himself to it, and to acquiesce in the will of ..."
+description: >
+  Ezekiel has again and again, in God's name, foretold the utter ruin of Jerusalem; but, it should seem, he finds it hard to reconcile himself to it, and to acquiesce in the will of ...
 weight: 15
 ---
 

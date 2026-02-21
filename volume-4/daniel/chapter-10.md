@@ -1,7 +1,8 @@
 ---
 title: "Daniel 10 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "10"
-description: "This chapter and the two next (which conclude this book) make up one entire vision and prophecy, which was communicated to Daniel for the use of the church, not by signs and figure..."
+description: >
+  This chapter and the two next (which conclude this book) make up one entire vision and prophecy, which was communicated to Daniel for the use of the church, not by signs and figure...
 weight: 10
 ---
 

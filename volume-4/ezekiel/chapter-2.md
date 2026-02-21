@@ -1,7 +1,8 @@
 ---
 title: "Ezekiel 2 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "2"
-description: "What our Lord Jesus said to St. Paul (Ac 26:16) may fitly be applied to the prophet Ezekiel, to whom the same Jesus is here speaking, \"Rise and stand upon thy feet, for I have appe..."
+description: >
+  What our Lord Jesus said to St. Paul (Ac 26:16) may fitly be applied to the prophet Ezekiel, to whom the same Jesus is here speaking, "Rise and stand upon thy feet, for I have appe...
 weight: 2
 ---
 

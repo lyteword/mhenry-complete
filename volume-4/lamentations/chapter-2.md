@@ -1,7 +1,8 @@
 ---
 title: "Lamentations 2 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "2"
-description: "The second alphabetical elegy is set to the same mournful tune with the former, and the substance of it is much the same; it begins with Ecah, as that did, \"How sad is our case! Al..."
+description: >
+  The second alphabetical elegy is set to the same mournful tune with the former, and the substance of it is much the same; it begins with Ecah, as that did, "How sad is our case! Al...
 weight: 2
 ---
 

@@ -1,7 +1,8 @@
 ---
 title: "Jonah 4 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "4"
-description: "We read, with a great deal of pleasure, in the close of the foregoing chapter, concerning the repentance of Nineveh; but in this chapter we read, with a great deal of uneasiness, c..."
+description: >
+  We read, with a great deal of pleasure, in the close of the foregoing chapter, concerning the repentance of Nineveh; but in this chapter we read, with a great deal of uneasiness, c...
 weight: 4
 ---
 

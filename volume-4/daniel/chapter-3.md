@@ -1,7 +1,8 @@
 ---
 title: "Daniel 3 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "3"
-description: "In the close of the foregoing chapter we left Daniel\'s companions, Shadrach, Meshach, and Abednego, in honour and power, princes of the provinces, and preferred for their relation ..."
+description: >
+  In the close of the foregoing chapter we left Daniel's companions, Shadrach, Meshach, and Abednego, in honour and power, princes of the provinces, and preferred for their relation ...
 weight: 3
 ---
 

@@ -1,7 +1,8 @@
 ---
 title: "Ezekiel 9 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "9"
-description: "The prophet had, in vision, seen the wickedness that was committed at Jerusalem, in the foregoing chapter, and we may be sure that it was not represented to him worse than really i..."
+description: >
+  The prophet had, in vision, seen the wickedness that was committed at Jerusalem, in the foregoing chapter, and we may be sure that it was not represented to him worse than really i...
 weight: 9
 ---
 

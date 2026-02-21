@@ -1,7 +1,8 @@
 ---
 title: "Isaiah 48 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "48"
-description: "God, having in the foregoing chapter reckoned with the Babylonians, and shown them their sins and the desolation that was coming upon them for their sins, to show that he hates sin..."
+description: >
+  God, having in the foregoing chapter reckoned with the Babylonians, and shown them their sins and the desolation that was coming upon them for their sins, to show that he hates sin...
 weight: 48
 ---
 

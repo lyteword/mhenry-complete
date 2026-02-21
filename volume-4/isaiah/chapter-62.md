@@ -1,7 +1,8 @@
 ---
 title: "Isaiah 62 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "62"
-description: "The business of prophets was both to preach and pray. In this chapter, I. The prophet determines to apply closely and constantly to this business, Isa 62:1. II. God appoints him an..."
+description: >
+  The business of prophets was both to preach and pray. In this chapter, I. The prophet determines to apply closely and constantly to this business, Isa 62:1. II. God appoints him an...
 weight: 62
 ---
 

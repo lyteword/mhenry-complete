@@ -1,7 +1,8 @@
 ---
 title: "Hosea 2 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "2"
-description: "The scope of this chapter seems to be much the same with that of the foregoing chapter, and to point at the same events, and the causes of them. As there, so here, I. God, by the p..."
+description: >
+  The scope of this chapter seems to be much the same with that of the foregoing chapter, and to point at the same events, and the causes of them. As there, so here, I. God, by the p...
 weight: 2
 ---
 

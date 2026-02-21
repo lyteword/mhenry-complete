@@ -1,7 +1,8 @@
 ---
 title: "Habakkuk 1 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "1"
-description: "In this chapter, I. The prophet complains to God of the violence done by the abuse of the sword of justice among his own people and the hardships thereby put upon many good people,..."
+description: >
+  In this chapter, I. The prophet complains to God of the violence done by the abuse of the sword of justice among his own people and the hardships thereby put upon many good people,...
 weight: 1
 ---
 

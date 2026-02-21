@@ -1,7 +1,8 @@
 ---
 title: "Jeremiah 49 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "49"
-description: "The cup of trembling still goes round, and the nations must all drink of it, according to the instructions given to Jeremiah, Jer 25:15. This chapter puts it into the hands, I. Of ..."
+description: >
+  The cup of trembling still goes round, and the nations must all drink of it, according to the instructions given to Jeremiah, Jer 25:15. This chapter puts it into the hands, I. Of ...
 weight: 49
 ---
 

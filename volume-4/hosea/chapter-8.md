@@ -1,7 +1,8 @@
 ---
 title: "Hosea 8 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "8"
-description: "This chapter, as that before, divides itself into the sins and punishments of Israel; every verse almost declares both, and all to bring them to repentance. When they saw the malig..."
+description: >
+  This chapter, as that before, divides itself into the sins and punishments of Israel; every verse almost declares both, and all to bring them to repentance. When they saw the malig...
 weight: 8
 ---
 

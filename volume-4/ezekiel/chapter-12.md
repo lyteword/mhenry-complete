@@ -1,7 +1,8 @@
 ---
 title: "Ezekiel 12 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "12"
-description: "Though the vision of God\'s glory had gone up from the prophet, yet his word comes to him still, and is by him sent to the people, and to the same purport with that which was discov..."
+description: >
+  Though the vision of God's glory had gone up from the prophet, yet his word comes to him still, and is by him sent to the people, and to the same purport with that which was discov...
 weight: 12
 ---
 

@@ -1,7 +1,8 @@
 ---
 title: "Isaiah 20 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "20"
-description: "This chapter is a prediction of the carrying away of multitudes both of the Egyptians and the Ethiopians into captivity by the king of Assyria. Here is, I. The sign by which this w..."
+description: >
+  This chapter is a prediction of the carrying away of multitudes both of the Egyptians and the Ethiopians into captivity by the king of Assyria. Here is, I. The sign by which this w...
 weight: 20
 ---
 

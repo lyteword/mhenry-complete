@@ -1,7 +1,8 @@
 ---
 title: "Isaiah 6 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "6"
-description: "Hitherto, it should seem, Isaiah had prophesied as a candidate, having only a virtual and tacit commission; but here we have him (if I may so speak) solemnly ordained and set apart..."
+description: >
+  Hitherto, it should seem, Isaiah had prophesied as a candidate, having only a virtual and tacit commission; but here we have him (if I may so speak) solemnly ordained and set apart...
 weight: 6
 ---
 

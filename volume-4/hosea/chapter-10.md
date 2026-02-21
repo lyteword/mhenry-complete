@@ -1,7 +1,8 @@
 ---
 title: "Hosea 10 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "10"
-description: "In this chapter, I. The people of Israel are charged with gross corruptions in the worship of God and are threatened with the destruction of their images and altars, Ho 10:1,2,5,6,..."
+description: >
+  In this chapter, I. The people of Israel are charged with gross corruptions in the worship of God and are threatened with the destruction of their images and altars, Ho 10:1,2,5,6,...
 weight: 10
 ---
 

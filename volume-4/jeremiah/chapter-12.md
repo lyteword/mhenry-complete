@@ -1,7 +1,8 @@
 ---
 title: "Jeremiah 12 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "12"
-description: "In this chapter we have, I. The prophet\'s humble complaint to God of the success that wicked people had in their wicked practices (Jer 12:1,2) and his appeal to God concerning his ..."
+description: >
+  In this chapter we have, I. The prophet's humble complaint to God of the success that wicked people had in their wicked practices (Jer 12:1,2) and his appeal to God concerning his ...
 weight: 12
 ---
 

@@ -1,7 +1,8 @@
 ---
 title: "Zechariah 6 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "6"
-description: "The two kingdoms of providence and grace are what we are all very nearly interested in, and therefore are concerned to acquaint ourselves with, all our temporal affairs being in a ..."
+description: >
+  The two kingdoms of providence and grace are what we are all very nearly interested in, and therefore are concerned to acquaint ourselves with, all our temporal affairs being in a ...
 weight: 6
 ---
 

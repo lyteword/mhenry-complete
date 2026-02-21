@@ -1,7 +1,8 @@
 ---
 title: "Hosea 3 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "3"
-description: "God is still by the prophet inculcating the same thing upon this careless people, and much in the same manner as before, by a type or sign, that of the dealings of a husband with a..."
+description: >
+  God is still by the prophet inculcating the same thing upon this careless people, and much in the same manner as before, by a type or sign, that of the dealings of a husband with a...
 weight: 3
 ---
 

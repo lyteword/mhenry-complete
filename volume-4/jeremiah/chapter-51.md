@@ -1,7 +1,8 @@
 ---
 title: "Jeremiah 51 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "51"
-description: "The prophet, in this chapter, goes on with the prediction of Babylon\'s fall, to which other prophets also bore witness. He is very copious and lively in describing the foresight Go..."
+description: >
+  The prophet, in this chapter, goes on with the prediction of Babylon's fall, to which other prophets also bore witness. He is very copious and lively in describing the foresight Go...
 weight: 51
 ---
 

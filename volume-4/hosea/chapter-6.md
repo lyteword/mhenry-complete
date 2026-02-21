@@ -1,7 +1,8 @@
 ---
 title: "Hosea 6 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "6"
-description: "The closing words of the foregoing chapter gave us some hopes that God and his Israel, notwithstanding their sins and his wrath, might yet be happily brought together again, that t..."
+description: >
+  The closing words of the foregoing chapter gave us some hopes that God and his Israel, notwithstanding their sins and his wrath, might yet be happily brought together again, that t...
 weight: 6
 ---
 

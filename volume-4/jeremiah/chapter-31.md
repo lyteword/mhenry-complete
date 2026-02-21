@@ -1,7 +1,8 @@
 ---
 title: "Jeremiah 31 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "31"
-description: "This chapter goes on with the good words and comfortable words which we had in the chapter before, for the encouragement of the captives, assuring them that God would in due time r..."
+description: >
+  This chapter goes on with the good words and comfortable words which we had in the chapter before, for the encouragement of the captives, assuring them that God would in due time r...
 weight: 31
 ---
 

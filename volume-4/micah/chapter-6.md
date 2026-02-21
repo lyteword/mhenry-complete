@@ -1,7 +1,8 @@
 ---
 title: "Micah 6 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "6"
-description: "After the precious promises in the two foregoing chapters, relating to the Messiah\'s kingdom, the prophet is here directed to set the sins of Israel in order before them, for their..."
+description: >
+  After the precious promises in the two foregoing chapters, relating to the Messiah's kingdom, the prophet is here directed to set the sins of Israel in order before them, for their...
 weight: 6
 ---
 

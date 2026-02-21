@@ -1,7 +1,8 @@
 ---
 title: "Daniel 9 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "9"
-description: "In this chapter we have, I. Daniel\'s prayer for the restoration of the Jews who were in captivity, in which he confesses sin, and acknowledges the justice of God in their calamitie..."
+description: >
+  In this chapter we have, I. Daniel's prayer for the restoration of the Jews who were in captivity, in which he confesses sin, and acknowledges the justice of God in their calamitie...
 weight: 9
 ---
 

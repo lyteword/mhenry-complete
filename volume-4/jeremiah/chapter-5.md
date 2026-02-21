@@ -1,7 +1,8 @@
 ---
 title: "Jeremiah 5 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "5"
-description: "Reproof for sin and threatenings of judgment are intermixed in this chapter, and are set the one over against the other: judgments are threatened, that the reproofs of sin might be..."
+description: >
+  Reproof for sin and threatenings of judgment are intermixed in this chapter, and are set the one over against the other: judgments are threatened, that the reproofs of sin might be...
 weight: 5
 ---
 

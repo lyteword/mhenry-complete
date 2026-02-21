@@ -1,7 +1,8 @@
 ---
 title: "Daniel 12 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "12"
-description: "After the prediction of the troubles of the Jews under Antiochus, prefiguring the troubles of the Christian church under the anti-christian power, we have here, I. Comforts, and ve..."
+description: >
+  After the prediction of the troubles of the Jews under Antiochus, prefiguring the troubles of the Christian church under the anti-christian power, we have here, I. Comforts, and ve...
 weight: 12
 ---
 

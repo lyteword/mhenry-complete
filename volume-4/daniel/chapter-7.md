@@ -1,7 +1,8 @@
 ---
 title: "Daniel 7 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "7"
-description: "The six former chapters of this book were historical; we now enter with fear and trembling upon the six latter, which are prophetical, wherein are many things dark and hard to be u..."
+description: >
+  The six former chapters of this book were historical; we now enter with fear and trembling upon the six latter, which are prophetical, wherein are many things dark and hard to be u...
 weight: 7
 ---
 

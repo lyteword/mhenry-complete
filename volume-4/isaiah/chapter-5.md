@@ -1,7 +1,8 @@
 ---
 title: "Isaiah 5 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "5"
-description: "In this chapter the prophet, in God\'s name, shows the people of God their transgressions, even the house of Jacob their sins, and the judgments which were likely to be brought upon..."
+description: >
+  In this chapter the prophet, in God's name, shows the people of God their transgressions, even the house of Jacob their sins, and the judgments which were likely to be brought upon...
 weight: 5
 ---
 

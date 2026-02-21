@@ -1,7 +1,8 @@
 ---
 title: "Isaiah 41 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "41"
-description: "This chapter, as the former, in intended both for the conviction of idolaters and for the consolation of all God\'s faithful worshippers; for the Spirit is sent, and ministers are e..."
+description: >
+  This chapter, as the former, in intended both for the conviction of idolaters and for the consolation of all God's faithful worshippers; for the Spirit is sent, and ministers are e...
 weight: 41
 ---
 

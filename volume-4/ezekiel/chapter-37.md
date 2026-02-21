@@ -1,7 +1,8 @@
 ---
 title: "Ezekiel 37 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "37"
-description: "The threatenings of the destruction of Judah and Jerusalem for their sins, which we had in the former part of this book, were not so terrible, but the promises of their restoration..."
+description: >
+  The threatenings of the destruction of Judah and Jerusalem for their sins, which we had in the former part of this book, were not so terrible, but the promises of their restoration...
 weight: 37
 ---
 

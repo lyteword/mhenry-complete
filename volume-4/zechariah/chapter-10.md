@@ -1,7 +1,8 @@
 ---
 title: "Zechariah 10 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "10"
-description: "The scope of this chapter is much the same with that of the foregoing chapter—to encourage the Jews that had returned with hopes that though they had been under divine rebukes for ..."
+description: >
+  The scope of this chapter is much the same with that of the foregoing chapter—to encourage the Jews that had returned with hopes that though they had been under divine rebukes for ...
 weight: 10
 ---
 

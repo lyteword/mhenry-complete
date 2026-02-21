@@ -1,7 +1,8 @@
 ---
 title: "Hosea 7 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "7"
-description: "In this chapter we have, I. A general charge drawn up against Israel for those high crimes and misdemeanors by which they had obstructed the course of God\'s favours to them, Ho 7:1..."
+description: >
+  In this chapter we have, I. A general charge drawn up against Israel for those high crimes and misdemeanors by which they had obstructed the course of God's favours to them, Ho 7:1...
 weight: 7
 ---
 

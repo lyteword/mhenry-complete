@@ -1,7 +1,8 @@
 ---
 title: "Lamentations 3 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "3"
-description: "The scope of this chapter is the same with that of the two foregoing chapters, but the composition is somewhat different; that was in long verse, this is in short, another kind of ..."
+description: >
+  The scope of this chapter is the same with that of the two foregoing chapters, but the composition is somewhat different; that was in long verse, this is in short, another kind of ...
 weight: 3
 ---
 

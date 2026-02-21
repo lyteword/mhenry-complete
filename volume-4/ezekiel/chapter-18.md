@@ -1,7 +1,8 @@
 ---
 title: "Ezekiel 18 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "18"
-description: "Perhaps, in reading some of the foregoing chapters, we may have been tempted to think ourselves not much concerned in them (though they also were written for our learning); but thi..."
+description: >
+  Perhaps, in reading some of the foregoing chapters, we may have been tempted to think ourselves not much concerned in them (though they also were written for our learning); but thi...
 weight: 18
 ---
 

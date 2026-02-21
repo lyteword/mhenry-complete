@@ -1,7 +1,8 @@
 ---
 title: "Isaiah 45 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "45"
-description: "Cyrus was nominated, in the foregoing chapter, to be God\'s shepherd; more is said to him and more of him in this chapter, not only because he was to be instrumental in the release ..."
+description: >
+  Cyrus was nominated, in the foregoing chapter, to be God's shepherd; more is said to him and more of him in this chapter, not only because he was to be instrumental in the release ...
 weight: 45
 ---
 

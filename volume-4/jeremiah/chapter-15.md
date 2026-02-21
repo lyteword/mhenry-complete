@@ -1,7 +1,8 @@
 ---
 title: "Jeremiah 15 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "15"
-description: "When we left the prophet, in the close of the foregoing chapter, so pathetically poring out his prayers before God, we had reason to hope that in this chapter we should find God re..."
+description: >
+  When we left the prophet, in the close of the foregoing chapter, so pathetically poring out his prayers before God, we had reason to hope that in this chapter we should find God re...
 weight: 15
 ---
 

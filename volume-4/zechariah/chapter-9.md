@@ -1,7 +1,8 @@
 ---
 title: "Zechariah 9 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "9"
-description: "At this chapter begins another sermon, which is continued to the end of Zec 11:1-17 It is called, \"The burden of the word of the Lord,\" for every word of God has weight in it to th..."
+description: >
+  At this chapter begins another sermon, which is continued to the end of Zec 11:1-17 It is called, "The burden of the word of the Lord," for every word of God has weight in it to th...
 weight: 9
 ---
 

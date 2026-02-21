@@ -1,7 +1,8 @@
 ---
 title: "Isaiah 22 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "22"
-description: "We have now come nearer home, for this chapter is \"the burden of the valley of vision,\" Jerusalem; other places had their burden for the sake of their being concerned in some way o..."
+description: >
+  We have now come nearer home, for this chapter is "the burden of the valley of vision," Jerusalem; other places had their burden for the sake of their being concerned in some way o...
 weight: 22
 ---
 

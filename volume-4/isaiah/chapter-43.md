@@ -1,7 +1,8 @@
 ---
 title: "Isaiah 43 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "43"
-description: "The contents of this chapter are much the same with those of the foregoing chapter, looking at the release of the Jews out of their captivity, but looking through that, and beyond ..."
+description: >
+  The contents of this chapter are much the same with those of the foregoing chapter, looking at the release of the Jews out of their captivity, but looking through that, and beyond ...
 weight: 43
 ---
 

@@ -1,7 +1,8 @@
 ---
 title: "Ezekiel 48 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "48"
-description: "In this chapter we have particular directions given for the distribution of the land, of which we had the metes and bounds assigned in the foregoing chapter. I. The portions of the..."
+description: >
+  In this chapter we have particular directions given for the distribution of the land, of which we had the metes and bounds assigned in the foregoing chapter. I. The portions of the...
 weight: 48
 ---
 

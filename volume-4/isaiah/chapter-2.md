@@ -1,7 +1,8 @@
 ---
 title: "Isaiah 2 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "2"
-description: "With this chapter begins a new sermon, which is continued in the two following chapters. The subject of this discourse is Judah and Jerusalem, Isa 2:1. In this chapter the prophet ..."
+description: >
+  With this chapter begins a new sermon, which is continued in the two following chapters. The subject of this discourse is Judah and Jerusalem, Isa 2:1. In this chapter the prophet ...
 weight: 2
 ---
 

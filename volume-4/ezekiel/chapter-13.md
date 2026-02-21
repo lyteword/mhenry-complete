@@ -1,7 +1,8 @@
 ---
 title: "Ezekiel 13 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "13"
-description: "Mention had been made, in the chapter before, of the vain visions and flattering divinations with which the people of Israel suffered themselves to be imposed upon (Eze 13:24); now..."
+description: >
+  Mention had been made, in the chapter before, of the vain visions and flattering divinations with which the people of Israel suffered themselves to be imposed upon (Eze 13:24); now...
 weight: 13
 ---
 

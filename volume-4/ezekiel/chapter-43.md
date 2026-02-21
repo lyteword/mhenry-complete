@@ -1,7 +1,8 @@
 ---
 title: "Ezekiel 43 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "43"
-description: "The prophet, having given us a view of the mystical temple, the gospel-church, as he received it from the Lord, that it might appear not to be erected in vain, comes to describe, i..."
+description: >
+  The prophet, having given us a view of the mystical temple, the gospel-church, as he received it from the Lord, that it might appear not to be erected in vain, comes to describe, i...
 weight: 43
 ---
 

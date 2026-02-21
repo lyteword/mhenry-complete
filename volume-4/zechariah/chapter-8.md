@@ -1,7 +1,8 @@
 ---
 title: "Zechariah 8 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "8"
-description: "The work of ministers is rightly to divide the word of truth and to give every one his portion. So the prophet is here instructed to do, in the further answer he gives to the case ..."
+description: >
+  The work of ministers is rightly to divide the word of truth and to give every one his portion. So the prophet is here instructed to do, in the further answer he gives to the case ...
 weight: 8
 ---
 

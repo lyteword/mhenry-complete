@@ -1,7 +1,8 @@
 ---
 title: "Isaiah 54 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "54"
-description: "The death of Christ is the life of the church and of all that truly belong to it; and therefore very fitly, after the prophet had foretold the sufferings of Christ, he foretels the..."
+description: >
+  The death of Christ is the life of the church and of all that truly belong to it; and therefore very fitly, after the prophet had foretold the sufferings of Christ, he foretels the...
 weight: 54
 ---
 

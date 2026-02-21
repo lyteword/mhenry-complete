@@ -1,7 +1,8 @@
 ---
 title: "Isaiah 35 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "35"
-description: "As after a prediction of God\'s judgments upon the world (Isa 24:1-23) follows a promise of great mercy to be had in store for his church (Isa 25:1-2), so here after a black and dre..."
+description: >
+  As after a prediction of God's judgments upon the world (Isa 24:1-23) follows a promise of great mercy to be had in store for his church (Isa 25:1-2), so here after a black and dre...
 weight: 35
 ---
 

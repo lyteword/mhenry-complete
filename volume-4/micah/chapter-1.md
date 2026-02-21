@@ -1,7 +1,8 @@
 ---
 title: "Micah 1 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "1"
-description: "In this chapter we have, I. The title of the book (Mic 1:1) and a preface demanding attention, Mic 1:2. II. Warning given of desolating judgments hastening upon the kingdoms of Isr..."
+description: >
+  In this chapter we have, I. The title of the book (Mic 1:1) and a preface demanding attention, Mic 1:2. II. Warning given of desolating judgments hastening upon the kingdoms of Isr...
 weight: 1
 ---
 

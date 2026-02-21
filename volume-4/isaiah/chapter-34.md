@@ -1,7 +1,8 @@
 ---
 title: "Isaiah 34 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "34"
-description: "In this chapter we have the fatal doom of all the nations that are enemies to God\'s church and people, though Edom only is mentioned, because of the old enmity of Esau to Jacob, wh..."
+description: >
+  In this chapter we have the fatal doom of all the nations that are enemies to God's church and people, though Edom only is mentioned, because of the old enmity of Esau to Jacob, wh...
 weight: 34
 ---
 

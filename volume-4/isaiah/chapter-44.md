@@ -1,7 +1,8 @@
 ---
 title: "Isaiah 44 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "44"
-description: "God, by the prophet, goes on in this chapter, as before, I. To encourage his people with the assurance of great blessings he had in store for them at their return out of captivity,..."
+description: >
+  God, by the prophet, goes on in this chapter, as before, I. To encourage his people with the assurance of great blessings he had in store for them at their return out of captivity,...
 weight: 44
 ---
 

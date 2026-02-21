@@ -1,7 +1,8 @@
 ---
 title: "Jeremiah 38 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "38"
-description: "In this chapter, just as in the former, we have Jeremiah greatly debased under the frowns of the princes, and yet greatly honoured by the favour of the king. They used him as a cri..."
+description: >
+  In this chapter, just as in the former, we have Jeremiah greatly debased under the frowns of the princes, and yet greatly honoured by the favour of the king. They used him as a cri...
 weight: 38
 ---
 

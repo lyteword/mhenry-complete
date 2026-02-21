@@ -1,7 +1,8 @@
 ---
 title: "Joel 2 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "2"
-description: "In this chapter we have, I. A further description of that terrible desolation which should be made in the land of Judah by the locusts and caterpillars, Joe 2:1-11. II. A serious c..."
+description: >
+  In this chapter we have, I. A further description of that terrible desolation which should be made in the land of Judah by the locusts and caterpillars, Joe 2:1-11. II. A serious c...
 weight: 2
 ---
 

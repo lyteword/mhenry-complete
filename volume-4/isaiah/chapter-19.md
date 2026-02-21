@@ -1,7 +1,8 @@
 ---
 title: "Isaiah 19 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "19"
-description: "As Assyria was a breaking rod to Judah, with which it was smitten, so Egypt was a broken reed, with which it was cheated; and therefore God had a quarrel with them both. We have be..."
+description: >
+  As Assyria was a breaking rod to Judah, with which it was smitten, so Egypt was a broken reed, with which it was cheated; and therefore God had a quarrel with them both. We have be...
 weight: 19
 ---
 
