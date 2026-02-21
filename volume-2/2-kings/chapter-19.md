@@ -1,7 +1,8 @@
 ---
 title: "2 Kings 19 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "19"
-description: "Jerusalem\'s great distress we read of in the foregoing chapter, and left it besieged, insulted, threatened, terrified, and just ready to be swallowed up by the Assyrian army. But i..."
+description: >
+  Jerusalem's great distress we read of in the foregoing chapter, and left it besieged, insulted, threatened, terrified, and just ready to be swallowed up by the Assyrian army. But i...
 weight: 19
 ---
 

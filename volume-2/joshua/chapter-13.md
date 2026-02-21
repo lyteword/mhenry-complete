@@ -1,7 +1,8 @@
 ---
 title: "Joshua 13 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "13"
-description: "At this chapter begins the account of the dividing of the land of Canaan among the tribes of Israel by lot, a narrative not so entertaining and instructive as that of the conquest ..."
+description: >
+  At this chapter begins the account of the dividing of the land of Canaan among the tribes of Israel by lot, a narrative not so entertaining and instructive as that of the conquest ...
 weight: 13
 ---
 

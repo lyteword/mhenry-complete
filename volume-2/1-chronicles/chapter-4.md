@@ -1,7 +1,8 @@
 ---
 title: "1 Chronicles 4 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "4"
-description: "In this chapter we have, I. A further account of the genealogies of the tribe of Judah, the most numerous and most famous of all the tribes. The posterity of Shobal the son of Hur ..."
+description: >
+  In this chapter we have, I. A further account of the genealogies of the tribe of Judah, the most numerous and most famous of all the tribes. The posterity of Shobal the son of Hur ...
 weight: 4
 ---
 

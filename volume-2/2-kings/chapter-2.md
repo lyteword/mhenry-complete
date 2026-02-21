@@ -1,7 +1,8 @@
 ---
 title: "2 Kings 2 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "2"
-description: "In this chapter we have, I. That extraordinary event, the translation of Elijah. In the close of the foregoing chapter we had a wicked king leaving the world in disgrace, here we h..."
+description: >
+  In this chapter we have, I. That extraordinary event, the translation of Elijah. In the close of the foregoing chapter we had a wicked king leaving the world in disgrace, here we h...
 weight: 2
 ---
 

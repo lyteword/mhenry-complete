@@ -1,7 +1,8 @@
 ---
 title: "2 Samuel 23 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "23"
-description: "The historian is now drawing towards a conclusion of David\'s reign, and therefore gives us an account here, I. Of some of his last words, which he spoke by inspiration, and which s..."
+description: >
+  The historian is now drawing towards a conclusion of David's reign, and therefore gives us an account here, I. Of some of his last words, which he spoke by inspiration, and which s...
 weight: 23
 ---
 

@@ -1,7 +1,8 @@
 ---
 title: "Nehemiah 3 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "3"
-description: "Saying and doing are often two things: many are ready to say, \"Let us rise up and build,\" who sit still and do nothing, like that fair-spoken son who said, \"I go, Sir, but went not..."
+description: >
+  Saying and doing are often two things: many are ready to say, "Let us rise up and build," who sit still and do nothing, like that fair-spoken son who said, "I go, Sir, but went not...
 weight: 3
 ---
 

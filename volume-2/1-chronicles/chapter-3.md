@@ -1,7 +1,8 @@
 ---
 title: "1 Chronicles 3 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "3"
-description: "Of all the families of Israel none was so illustrious as the family of David. That is the family which was mentioned in the foregoing chapter, 1Ch 2:15. Here we have a full account..."
+description: >
+  Of all the families of Israel none was so illustrious as the family of David. That is the family which was mentioned in the foregoing chapter, 1Ch 2:15. Here we have a full account...
 weight: 3
 ---
 

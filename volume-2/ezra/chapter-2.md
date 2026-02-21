@@ -1,7 +1,8 @@
 ---
 title: "Ezra 2 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "2"
-description: "That many returned out of Babylon upon Cyrus\'s proclamation we were told in the foregoing chapter; we have here a catalogue of the several families that returned, Ezr 2:1. I. The l..."
+description: >
+  That many returned out of Babylon upon Cyrus's proclamation we were told in the foregoing chapter; we have here a catalogue of the several families that returned, Ezr 2:1. I. The l...
 weight: 2
 ---
 

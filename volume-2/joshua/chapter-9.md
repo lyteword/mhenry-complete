@@ -1,7 +1,8 @@
 ---
 title: "Joshua 9 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "9"
-description: "Here is in this chapter, I. The impolite confederacy of the kings of Canaan against Israel, Jos 9:1,2. II. The polite confederacy of the inhabitants of Gibeon with Israel, 1. How i..."
+description: >
+  Here is in this chapter, I. The impolite confederacy of the kings of Canaan against Israel, Jos 9:1,2. II. The polite confederacy of the inhabitants of Gibeon with Israel, 1. How i...
 weight: 9
 ---
 

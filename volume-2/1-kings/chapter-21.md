@@ -1,7 +1,8 @@
 ---
 title: "1 Kings 21 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "21"
-description: "Ahab is still the unhappy subject of the sacred history; from the great affairs of his camp and kingdom this chapter leads us into his garden, and gives us an account of some ill t..."
+description: >
+  Ahab is still the unhappy subject of the sacred history; from the great affairs of his camp and kingdom this chapter leads us into his garden, and gives us an account of some ill t...
 weight: 21
 ---
 

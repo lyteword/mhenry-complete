@@ -1,7 +1,8 @@
 ---
 title: "2 Kings 5 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "5"
-description: "Two more of Elisha\'s miracles are recorded in this chapter. I. The cleansing of Naaman, a Syrian, a stranger, from his leprosy, and there, 1. The badness of his case, 2Ki 5:1. 2. T..."
+description: >
+  Two more of Elisha's miracles are recorded in this chapter. I. The cleansing of Naaman, a Syrian, a stranger, from his leprosy, and there, 1. The badness of his case, 2Ki 5:1. 2. T...
 weight: 5
 ---
 

@@ -1,7 +1,8 @@
 ---
 title: "Nehemiah 13 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "13"
-description: "Nehemiah, having finished what he undertook for the fencing and filling of the holy city, returned to the king his master, who was not willing to be long without him, as appears (N..."
+description: >
+  Nehemiah, having finished what he undertook for the fencing and filling of the holy city, returned to the king his master, who was not willing to be long without him, as appears (N...
 weight: 13
 ---
 

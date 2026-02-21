@@ -1,7 +1,8 @@
 ---
 title: "1 Chronicles 12 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "12"
-description: "What the mighty men did towards making David king we read in the foregoing chapter. Here we are told what the many did towards it. It was not all at once, but gradually, that David..."
+description: >
+  What the mighty men did towards making David king we read in the foregoing chapter. Here we are told what the many did towards it. It was not all at once, but gradually, that David...
 weight: 12
 ---
 

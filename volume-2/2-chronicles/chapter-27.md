@@ -1,7 +1,8 @@
 ---
 title: "2 Chronicles 27 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "27"
-description: "Here is a very short account of the reign of Jotham, a pious prosperous prince, of whom one would wish to have known more: but we may better dispense with the brevity of his story ..."
+description: >
+  Here is a very short account of the reign of Jotham, a pious prosperous prince, of whom one would wish to have known more: but we may better dispense with the brevity of his story ...
 weight: 27
 ---
 

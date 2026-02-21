@@ -1,7 +1,8 @@
 ---
 title: "Nehemiah 7 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "7"
-description: "The success of one good design for God and our generation should encourage us to proceed and form some other; Nehemiah did so, having fortified Jerusalem with gates and walls, his ..."
+description: >
+  The success of one good design for God and our generation should encourage us to proceed and form some other; Nehemiah did so, having fortified Jerusalem with gates and walls, his ...
 weight: 7
 ---
 

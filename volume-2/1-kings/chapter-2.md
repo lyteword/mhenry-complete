@@ -1,7 +1,8 @@
 ---
 title: "1 Kings 2 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "2"
-description: "In this chapter we have David setting and Solomon at the same time rising. I. The conclusion of David\'s reign with his life. 1. The charge he gives to Solomon upon his death-bed, i..."
+description: >
+  In this chapter we have David setting and Solomon at the same time rising. I. The conclusion of David's reign with his life. 1. The charge he gives to Solomon upon his death-bed, i...
 weight: 2
 ---
 

@@ -1,7 +1,8 @@
 ---
 title: "2 Kings 1 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "1"
-description: "We here find Ahaziah, the genuine son and successor of Ahab, on the throne of Israel. His reign continued not two years; he died by a fall in his own house, of which, after the men..."
+description: >
+  We here find Ahaziah, the genuine son and successor of Ahab, on the throne of Israel. His reign continued not two years; he died by a fall in his own house, of which, after the men...
 weight: 1
 ---
 

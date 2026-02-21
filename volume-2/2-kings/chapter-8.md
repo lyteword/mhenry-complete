@@ -1,7 +1,8 @@
 ---
 title: "2 Kings 8 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "8"
-description: "The passages of story recorded in this chapter oblige us to look back. I. We read before of a Shunammite woman that was a kind benefactor to Elisha; now here we are told how she fa..."
+description: >
+  The passages of story recorded in this chapter oblige us to look back. I. We read before of a Shunammite woman that was a kind benefactor to Elisha; now here we are told how she fa...
 weight: 8
 ---
 

@@ -1,7 +1,8 @@
 ---
 title: "2 Chronicles 12 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "12"
-description: "This chapter gives us a more full account of the reign of Rehoboam than we had before in Kings and it is a very melancholy account. Methinks we are in the book of Judges again; for..."
+description: >
+  This chapter gives us a more full account of the reign of Rehoboam than we had before in Kings and it is a very melancholy account. Methinks we are in the book of Judges again; for...
 weight: 12
 ---
 

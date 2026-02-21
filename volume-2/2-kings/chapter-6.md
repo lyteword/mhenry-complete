@@ -1,7 +1,8 @@
 ---
 title: "2 Kings 6 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "6"
-description: "In this chapter we have, I. A further account of the wondrous works of Elisha. 1. His making iron to swim, 2Ki 6:1-7. 2. His disclosing to the king of Israel the secret counsels of..."
+description: >
+  In this chapter we have, I. A further account of the wondrous works of Elisha. 1. His making iron to swim, 2Ki 6:1-7. 2. His disclosing to the king of Israel the secret counsels of...
 weight: 6
 ---
 

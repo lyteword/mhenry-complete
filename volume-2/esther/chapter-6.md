@@ -1,7 +1,8 @@
 ---
 title: "Esther 6 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "6"
-description: "It is a very surprising scene that opens in this chapter. Haman, when he hoped to be Mordecai\'s judge, was made his page, to his great confusion and mortification; and thus way was..."
+description: >
+  It is a very surprising scene that opens in this chapter. Haman, when he hoped to be Mordecai's judge, was made his page, to his great confusion and mortification; and thus way was...
 weight: 6
 ---
 

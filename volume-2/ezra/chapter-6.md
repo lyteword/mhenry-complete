@@ -1,7 +1,8 @@
 ---
 title: "Ezra 6 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "6"
-description: "How solemnly the foundation of the temple was laid we read in Ezr 3:1-13 How slowly the building went on, and with how much difficulty, we found in Ezr 4:1-5:17 But how gloriously ..."
+description: >
+  How solemnly the foundation of the temple was laid we read in Ezr 3:1-13 How slowly the building went on, and with how much difficulty, we found in Ezr 4:1-5:17 But how gloriously ...
 weight: 6
 ---
 

@@ -1,7 +1,8 @@
 ---
 title: "1 Kings 10 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "10"
-description: "Still Solomon looks great, and every thing in this chapter adds to his magnificence. We read nothing indeed of his charity, of no hospitals he built, or alms-houses; he made his ki..."
+description: >
+  Still Solomon looks great, and every thing in this chapter adds to his magnificence. We read nothing indeed of his charity, of no hospitals he built, or alms-houses; he made his ki...
 weight: 10
 ---
 

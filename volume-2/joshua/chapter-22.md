@@ -1,7 +1,8 @@
 ---
 title: "Joshua 22 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "22"
-description: "Many particular things we have read concerning the two tribes and a half, though nothing separated them from the rest of the tribes except the river Jordan, and this chapter is who..."
+description: >
+  Many particular things we have read concerning the two tribes and a half, though nothing separated them from the rest of the tribes except the river Jordan, and this chapter is who...
 weight: 22
 ---
 

@@ -1,7 +1,8 @@
 ---
 title: "1 Chronicles 16 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "16"
-description: "This chapter concludes that great affair of the settlement of the ark in the royal city, and with it the settlement of the public worship of God during the reign of David. Here is,..."
+description: >
+  This chapter concludes that great affair of the settlement of the ark in the royal city, and with it the settlement of the public worship of God during the reign of David. Here is,...
 weight: 16
 ---
 

@@ -1,7 +1,8 @@
 ---
 title: "2 Chronicles 4 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "4"
-description: "We have here a further account of the furniture of God\'s house. I. Those things that were of brass. The altar for burnt-offerings (2Ch 4:1), the sea and lavers to hold water (2Ch 4..."
+description: >
+  We have here a further account of the furniture of God's house. I. Those things that were of brass. The altar for burnt-offerings (2Ch 4:1), the sea and lavers to hold water (2Ch 4...
 weight: 4
 ---
 

@@ -1,7 +1,8 @@
 ---
 title: "2 Chronicles 23 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "23"
-description: "Six years bloody Athaliah had tyrannised; in this chapter we have her deposed and slain, and Joash, the rightful heir, enthroned. We had the story before nearly as it is here relat..."
+description: >
+  Six years bloody Athaliah had tyrannised; in this chapter we have her deposed and slain, and Joash, the rightful heir, enthroned. We had the story before nearly as it is here relat...
 weight: 23
 ---
 

@@ -1,7 +1,8 @@
 ---
 title: "2 Samuel 14 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "14"
-description: "How Absalom threw himself out of his royal father\'s protection and favour we read in the foregoing chapter, which left him an exile, outlawed, and proscribed; in this chapter we ha..."
+description: >
+  How Absalom threw himself out of his royal father's protection and favour we read in the foregoing chapter, which left him an exile, outlawed, and proscribed; in this chapter we ha...
 weight: 14
 ---
 

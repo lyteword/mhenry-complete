@@ -1,7 +1,8 @@
 ---
 title: "2 Samuel 20 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "20"
-description: "How do the clouds return after the rain! No sooner is one of David\'s troubles over than another arises, as it were out of the ashes of the former, wherein the threatening is fulfil..."
+description: >
+  How do the clouds return after the rain! No sooner is one of David's troubles over than another arises, as it were out of the ashes of the former, wherein the threatening is fulfil...
 weight: 20
 ---
 

@@ -1,7 +1,8 @@
 ---
 title: "Joshua 1 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "1"
-description: "The book begins with the history, not of Joshua\'s life (many remarkable passages of that we had before in the books of Moses) but of his reign and government. In this chapter, I. G..."
+description: >
+  The book begins with the history, not of Joshua's life (many remarkable passages of that we had before in the books of Moses) but of his reign and government. In this chapter, I. G...
 weight: 1
 ---
 

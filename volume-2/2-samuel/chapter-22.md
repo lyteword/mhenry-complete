@@ -1,7 +1,8 @@
 ---
 title: "2 Samuel 22 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "22"
-description: "This chapter is a psalm, a psalm of praise; we find it afterwards inserted among David\'s psalms (Ps 18:1-50) with some little variation. We have it here as it was first composed fo..."
+description: >
+  This chapter is a psalm, a psalm of praise; we find it afterwards inserted among David's psalms (Ps 18:1-50) with some little variation. We have it here as it was first composed fo...
 weight: 22
 ---
 

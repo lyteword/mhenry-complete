@@ -1,7 +1,8 @@
 ---
 title: "1 Chronicles 8 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "8"
-description: "We had some account given us of Benjamin in the foregoing chapter; here we have a larger catalogue of the great men of that tribe. 1. Because of that tribe Saul came, the first kin..."
+description: >
+  We had some account given us of Benjamin in the foregoing chapter; here we have a larger catalogue of the great men of that tribe. 1. Because of that tribe Saul came, the first kin...
 weight: 8
 ---
 

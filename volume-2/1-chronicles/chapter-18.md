@@ -1,7 +1,8 @@
 ---
 title: "1 Chronicles 18 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "18"
-description: "David\'s piety and his prayer we had an account of in the foregoing chapter; here follows immediately that which one might reasonably expect, an account of his prosperity; for those..."
+description: >
+  David's piety and his prayer we had an account of in the foregoing chapter; here follows immediately that which one might reasonably expect, an account of his prosperity; for those...
 weight: 18
 ---
 

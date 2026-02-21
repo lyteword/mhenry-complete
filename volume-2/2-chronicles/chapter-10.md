@@ -1,7 +1,8 @@
 ---
 title: "2 Chronicles 10 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "10"
-description: "This chapter is copied almost verbatim from 1Ki 12:1-19, 2Ch 10:1-19, where it was opened at large. Solomon\'s defection from God was not repeated, but the defection of the ten trib..."
+description: >
+  This chapter is copied almost verbatim from 1Ki 12:1-19, 2Ch 10:1-19, where it was opened at large. Solomon's defection from God was not repeated, but the defection of the ten trib...
 weight: 10
 ---
 

@@ -1,7 +1,8 @@
 ---
 title: "Judges 18 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "18"
-description: "How idolatry crept into the family of Micah we read in the preceding chapter, how it was translated thence into the tribe of Dan we have an account in this chapter, and how it gain..."
+description: >
+  How idolatry crept into the family of Micah we read in the preceding chapter, how it was translated thence into the tribe of Dan we have an account in this chapter, and how it gain...
 weight: 18
 ---
 

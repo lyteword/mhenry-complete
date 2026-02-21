@@ -1,7 +1,8 @@
 ---
 title: "1 Chronicles 29 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "29"
-description: "David has said what he had to say to Solomon. But he had something more to say to the congregation before he parted with them. I. He pressed them to contribute, according to their ..."
+description: >
+  David has said what he had to say to Solomon. But he had something more to say to the congregation before he parted with them. I. He pressed them to contribute, according to their ...
 weight: 29
 ---
 

@@ -1,7 +1,8 @@
 ---
 title: "2 Kings 20 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "20"
-description: "In this chapter we have, I. Hezekiah\'s sickness, and his recovery from that, in answer to prayer, in performance of a promise, in the use of means, and confirmed with a sign, 2Ki 2..."
+description: >
+  In this chapter we have, I. Hezekiah's sickness, and his recovery from that, in answer to prayer, in performance of a promise, in the use of means, and confirmed with a sign, 2Ki 2...
 weight: 20
 ---
 

@@ -1,7 +1,8 @@
 ---
 title: "Joshua 6 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "6"
-description: "Joshua opened the campaign with the siege of Jericho, a city which could not trust so much to the courage of its people as to act offensively, and to send out its forces to oppose ..."
+description: >
+  Joshua opened the campaign with the siege of Jericho, a city which could not trust so much to the courage of its people as to act offensively, and to send out its forces to oppose ...
 weight: 6
 ---
 

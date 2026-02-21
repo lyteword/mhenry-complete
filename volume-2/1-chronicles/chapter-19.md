@@ -1,7 +1,8 @@
 ---
 title: "1 Chronicles 19 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "19"
-description: "The story is here repeated of David\'s war with the Ammonites and the Syrians their allies, and the victories he obtained over them, which we read just as it is here related, 2Sa 10..."
+description: >
+  The story is here repeated of David's war with the Ammonites and the Syrians their allies, and the victories he obtained over them, which we read just as it is here related, 2Sa 10...
 weight: 19
 ---
 

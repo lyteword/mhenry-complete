@@ -1,7 +1,8 @@
 ---
 title: "2 Chronicles 28 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "28"
-description: "This chapter is the history of the reign of Ahaz the son of Jotham; a bad reign it was, and which helped to augment the fierce anger of the Lord. We have here, I. His great wickedn..."
+description: >
+  This chapter is the history of the reign of Ahaz the son of Jotham; a bad reign it was, and which helped to augment the fierce anger of the Lord. We have here, I. His great wickedn...
 weight: 28
 ---
 

@@ -1,7 +1,8 @@
 ---
 title: "1 Kings 19 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "19"
-description: "We left Elijah at the entrance of Jezreel, still appearing publicly, and all the people\'s eyes upon him. In this chapter we have him again absconding, and driven into obscurity, at..."
+description: >
+  We left Elijah at the entrance of Jezreel, still appearing publicly, and all the people's eyes upon him. In this chapter we have him again absconding, and driven into obscurity, at...
 weight: 19
 ---
 

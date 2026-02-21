@@ -1,7 +1,8 @@
 ---
 title: "1 Kings 14 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "14"
-description: "The kingdom being divided into that of Judah and that of Israel, we must henceforward, in these books of Kings, expect and attend their separate history, the succession of their ki..."
+description: >
+  The kingdom being divided into that of Judah and that of Israel, we must henceforward, in these books of Kings, expect and attend their separate history, the succession of their ki...
 weight: 14
 ---
 

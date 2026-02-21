@@ -1,7 +1,8 @@
 ---
 title: "1 Chronicles 7 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "7"
-description: "In this chapter we have some account of the genealogies, I. Of Issachar, 1Ch 7:1-5. II. Of Benjamin, 1Ch 7:6-12. III. Of Naphtali, 1Ch 7:13. IV. Of Manasseh, 1Ch 7:14-19. V. Of Eph..."
+description: >
+  In this chapter we have some account of the genealogies, I. Of Issachar, 1Ch 7:1-5. II. Of Benjamin, 1Ch 7:6-12. III. Of Naphtali, 1Ch 7:13. IV. Of Manasseh, 1Ch 7:14-19. V. Of Eph...
 weight: 7
 ---
 

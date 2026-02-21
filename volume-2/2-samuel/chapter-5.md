@@ -1,7 +1,8 @@
 ---
 title: "2 Samuel 5 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "5"
-description: "How far Abner\'s deserting the house of Saul, his murder, and the murder of Ish-bosheth, might contribute to the perfecting of the revolution, and the establishing of David as king ..."
+description: >
+  How far Abner's deserting the house of Saul, his murder, and the murder of Ish-bosheth, might contribute to the perfecting of the revolution, and the establishing of David as king ...
 weight: 5
 ---
 

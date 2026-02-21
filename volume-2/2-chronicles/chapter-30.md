@@ -1,7 +1,8 @@
 ---
 title: "2 Chronicles 30 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "30"
-description: "In this chapter we have an account of the solemn passover which Hezekiah kept in the first year of his reign. I. The consultation about it, and the resolution he and his people cam..."
+description: >
+  In this chapter we have an account of the solemn passover which Hezekiah kept in the first year of his reign. I. The consultation about it, and the resolution he and his people cam...
 weight: 30
 ---
 

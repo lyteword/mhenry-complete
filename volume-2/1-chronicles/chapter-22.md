@@ -1,7 +1,8 @@
 ---
 title: "1 Chronicles 22 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "22"
-description: "\"Out of the eater comes forth meat.\" It was upon occasion of the terrible judgment inflicted on Israel for the sin of David that God gave intimation of the setting up of another al..."
+description: >
+  "Out of the eater comes forth meat." It was upon occasion of the terrible judgment inflicted on Israel for the sin of David that God gave intimation of the setting up of another al...
 weight: 22
 ---
 

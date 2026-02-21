@@ -1,7 +1,8 @@
 ---
 title: "Judges 20 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "20"
-description: "Into the book of the wars of the Lord the story of this chapter must be brought, but it looks as sad and uncomfortable as any article in all that history; for there is nothing in i..."
+description: >
+  Into the book of the wars of the Lord the story of this chapter must be brought, but it looks as sad and uncomfortable as any article in all that history; for there is nothing in i...
 weight: 20
 ---
 

@@ -1,7 +1,8 @@
 ---
 title: "1 Chronicles 9 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "9"
-description: "This chapter intimates to us that one end of recording all these genealogies was to direct the Jews, now that they had returned out of captivity, with whom to incorporate and where..."
+description: >
+  This chapter intimates to us that one end of recording all these genealogies was to direct the Jews, now that they had returned out of captivity, with whom to incorporate and where...
 weight: 9
 ---
 

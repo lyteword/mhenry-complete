@@ -1,7 +1,8 @@
 ---
 title: "Judges 4 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "4"
-description: "The method of the history of Deborah and Barak (the heroes in this chapter) is the same with that before. Here is, I. Israel revolted from God, Jdg 4:1. II. Israel oppressed by Jab..."
+description: >
+  The method of the history of Deborah and Barak (the heroes in this chapter) is the same with that before. Here is, I. Israel revolted from God, Jdg 4:1. II. Israel oppressed by Jab...
 weight: 4
 ---
 

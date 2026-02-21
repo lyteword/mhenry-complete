@@ -1,7 +1,8 @@
 ---
 title: "Esther 7 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "7"
-description: "We are now to attend the second banquet to which the king and Haman were invited: and there, I. Esther presents her petition to the king for her life and the life of her people, Es..."
+description: >
+  We are now to attend the second banquet to which the king and Haman were invited: and there, I. Esther presents her petition to the king for her life and the life of her people, Es...
 weight: 7
 ---
 

@@ -1,7 +1,8 @@
 ---
 title: "2 Chronicles 22 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "22"
-description: "We read, in the foregoing chapter, of the carrying away of Jehoram\'s sons and his wives; but here we find one of his sons and one of his wives left, his son Ahaziah and his wife At..."
+description: >
+  We read, in the foregoing chapter, of the carrying away of Jehoram's sons and his wives; but here we find one of his sons and one of his wives left, his son Ahaziah and his wife At...
 weight: 22
 ---
 

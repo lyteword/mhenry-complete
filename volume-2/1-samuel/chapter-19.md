@@ -1,7 +1,8 @@
 ---
 title: "1 Samuel 19 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "19"
-description: "Immediately after David\'s marriage, which one would have hoped would secure him Saul\'s affection, we find his troubles coming upon him faster than ever and Saul\'s enmity to him the..."
+description: >
+  Immediately after David's marriage, which one would have hoped would secure him Saul's affection, we find his troubles coming upon him faster than ever and Saul's enmity to him the...
 weight: 19
 ---
 

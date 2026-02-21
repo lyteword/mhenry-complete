@@ -1,7 +1,8 @@
 ---
 title: "1 Chronicles 10 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "10"
-description: "The design of Ezra, in these books of the Chronicles, was to preserve the records of the house of David, which, though much sunk and lessened in a common eye by the captivity, yet ..."
+description: >
+  The design of Ezra, in these books of the Chronicles, was to preserve the records of the house of David, which, though much sunk and lessened in a common eye by the captivity, yet ...
 weight: 10
 ---
 

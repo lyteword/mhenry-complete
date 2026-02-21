@@ -1,7 +1,8 @@
 ---
 title: "Ezra 7 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "7"
-description: "Ezra\'s precious name saluted us, at first, in the title of the book, but in the history we have not met with it till this chapter introduces him into public action in another reign..."
+description: >
+  Ezra's precious name saluted us, at first, in the title of the book, but in the history we have not met with it till this chapter introduces him into public action in another reign...
 weight: 7
 ---
 

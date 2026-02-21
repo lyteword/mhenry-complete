@@ -1,7 +1,8 @@
 ---
 title: "1 Chronicles 17 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "17"
-description: "This excellent chapter is the same with 2Sa 7:1-29 It will be worth while to look back upon what was there said upon it. Two things in general we have in it:—I. God\'s gracious acce..."
+description: >
+  This excellent chapter is the same with 2Sa 7:1-29 It will be worth while to look back upon what was there said upon it. Two things in general we have in it:—I. God's gracious acce...
 weight: 17
 ---
 

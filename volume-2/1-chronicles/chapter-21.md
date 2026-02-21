@@ -1,7 +1,8 @@
 ---
 title: "1 Chronicles 21 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "21"
-description: "As this rehearsal makes no mention of David\'s sin in the matter of Uriah, so neither of the troubles of his family that followed upon it; not a word of Absalom\'s rebellion, or Sheb..."
+description: >
+  As this rehearsal makes no mention of David's sin in the matter of Uriah, so neither of the troubles of his family that followed upon it; not a word of Absalom's rebellion, or Sheb...
 weight: 21
 ---
 

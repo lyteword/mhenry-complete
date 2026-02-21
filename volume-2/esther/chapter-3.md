@@ -1,7 +1,8 @@
 ---
 title: "Esther 3 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "3"
-description: "A very black and mournful scene here opens, and which threatens the ruin of all the people of God. Were there not some such dark nights, the light of the morning would not be so we..."
+description: >
+  A very black and mournful scene here opens, and which threatens the ruin of all the people of God. Were there not some such dark nights, the light of the morning would not be so we...
 weight: 3
 ---
 

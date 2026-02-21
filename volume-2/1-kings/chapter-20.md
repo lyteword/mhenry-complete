@@ -1,7 +1,8 @@
 ---
 title: "1 Kings 20 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "20"
-description: "This chapter is the history of a war between Ben-hadad king of Syria and Ahab king of Israel, in which Ahab was, once and again, victorious. We read nothing of Elijah or Elishain a..."
+description: >
+  This chapter is the history of a war between Ben-hadad king of Syria and Ahab king of Israel, in which Ahab was, once and again, victorious. We read nothing of Elijah or Elishain a...
 weight: 20
 ---
 

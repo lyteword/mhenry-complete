@@ -1,7 +1,8 @@
 ---
 title: "Nehemiah 10 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "10"
-description: "We have in this chapter a particular account of the covenant which in the close of the foregoing chapter was resolved upon; they struck while the iron was hot, and immediately put ..."
+description: >
+  We have in this chapter a particular account of the covenant which in the close of the foregoing chapter was resolved upon; they struck while the iron was hot, and immediately put ...
 weight: 10
 ---
 

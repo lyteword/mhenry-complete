@@ -1,7 +1,8 @@
 ---
 title: "1 Kings 13 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "13"
-description: "In the close of the foregoing chapter we left Jeroboam attending his altar at Beth-el, and there we find him in the beginning of this, when he received a testimony from God against..."
+description: >
+  In the close of the foregoing chapter we left Jeroboam attending his altar at Beth-el, and there we find him in the beginning of this, when he received a testimony from God against...
 weight: 13
 ---
 

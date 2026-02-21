@@ -1,7 +1,8 @@
 ---
 title: "1 Samuel 14 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "14"
-description: "We left the host of Israel in a very ill posture, in the close of the foregoing chapter; we saw in them no wisdom, nor strength, nor goodness, to give us ground to expect any other..."
+description: >
+  We left the host of Israel in a very ill posture, in the close of the foregoing chapter; we saw in them no wisdom, nor strength, nor goodness, to give us ground to expect any other...
 weight: 14
 ---
 

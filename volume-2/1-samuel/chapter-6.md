@@ -1,7 +1,8 @@
 ---
 title: "1 Samuel 6 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "6"
-description: "In this chapter we have the return of the ark to the land of Israel, whither we are now gladly to attend it, and observe, I. How the Philistines dismissed it, by the advice of thei..."
+description: >
+  In this chapter we have the return of the ark to the land of Israel, whither we are now gladly to attend it, and observe, I. How the Philistines dismissed it, by the advice of thei...
 weight: 6
 ---
 

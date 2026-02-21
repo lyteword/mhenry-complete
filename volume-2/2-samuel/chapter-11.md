@@ -1,7 +1,8 @@
 ---
 title: "2 Samuel 11 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "11"
-description: "What David said of the mournful report of Saul\'s death may more fitly be applied to the sad story of this chapter, the adultery and murder David was guilty of.—\"Tell it not in Gath..."
+description: >
+  What David said of the mournful report of Saul's death may more fitly be applied to the sad story of this chapter, the adultery and murder David was guilty of.—"Tell it not in Gath...
 weight: 11
 ---
 

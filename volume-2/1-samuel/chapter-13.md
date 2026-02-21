@@ -1,7 +1,8 @@
 ---
 title: "1 Samuel 13 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "13"
-description: "Those that desired a king like all the nations fancied that, when they had one, they should look very great and considerable; but in this chapter we find it proved much otherwise. ..."
+description: >
+  Those that desired a king like all the nations fancied that, when they had one, they should look very great and considerable; but in this chapter we find it proved much otherwise. ...
 weight: 13
 ---
 

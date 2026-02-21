@@ -1,7 +1,8 @@
 ---
 title: "1 Samuel 3 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "3"
-description: "In the foregoing chapter we had Samuel a young priest, though by birth a Levite only, for he ministered before the Lord in a linen ephod; in this chapter we have him a young prophe..."
+description: >
+  In the foregoing chapter we had Samuel a young priest, though by birth a Levite only, for he ministered before the Lord in a linen ephod; in this chapter we have him a young prophe...
 weight: 3
 ---
 

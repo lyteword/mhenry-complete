@@ -1,7 +1,8 @@
 ---
 title: "Ruth 4 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "4"
-description: "In this chapter we have the wedding between Boaz and Ruth, in the circumstances of which there was something uncommon, which is kept upon record for the illustration, not only of t..."
+description: >
+  In this chapter we have the wedding between Boaz and Ruth, in the circumstances of which there was something uncommon, which is kept upon record for the illustration, not only of t...
 weight: 4
 ---
 

@@ -1,7 +1,8 @@
 ---
 title: "Ezra 5 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "5"
-description: "We left the temple-work at a full stop; but, being God\'s work, it shall be revived, and here we have an account of the reviving of it. It was hindered by might and power, but it wa..."
+description: >
+  We left the temple-work at a full stop; but, being God's work, it shall be revived, and here we have an account of the reviving of it. It was hindered by might and power, but it wa...
 weight: 5
 ---
 

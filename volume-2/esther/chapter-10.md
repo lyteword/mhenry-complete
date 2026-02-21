@@ -1,7 +1,8 @@
 ---
 title: "Esther 10 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "10"
-description: "This is but a part of a chapter; the rest of it, beginning at Es 10:4, with six chapters more, being found only in the Greek, is rejected as apocryphal. In these three verses we ha..."
+description: >
+  This is but a part of a chapter; the rest of it, beginning at Es 10:4, with six chapters more, being found only in the Greek, is rejected as apocryphal. In these three verses we ha...
 weight: 10
 ---
 

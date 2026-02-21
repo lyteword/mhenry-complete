@@ -1,7 +1,8 @@
 ---
 title: "2 Samuel 16 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "16"
-description: "In the close of the foregoing chapter we left David flying from Jerusalem, and Absalom entering into it; in this chapter, I. We are to follow David in his melancholy flight; and th..."
+description: >
+  In the close of the foregoing chapter we left David flying from Jerusalem, and Absalom entering into it; in this chapter, I. We are to follow David in his melancholy flight; and th...
 weight: 16
 ---
 

@@ -1,7 +1,8 @@
 ---
 title: "1 Kings 15 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "15"
-description: "In this chapter we have an abstract of the history, I. Of two of the kings of Judah, Abijam, the days of whose reign were few and evil (1Ki 15:1-8), and Asa, who reigned well and l..."
+description: >
+  In this chapter we have an abstract of the history, I. Of two of the kings of Judah, Abijam, the days of whose reign were few and evil (1Ki 15:1-8), and Asa, who reigned well and l...
 weight: 15
 ---
 

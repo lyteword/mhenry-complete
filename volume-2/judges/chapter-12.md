@@ -1,7 +1,8 @@
 ---
 title: "Judges 12 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "12"
-description: "In this chapter we have, I. Jephthah\'s rencounter with the Ephraimites, and the blood shed on that unhappy occasion (Jdg 12:1-6), and the conclusion of Jephthah\'s life and governme..."
+description: >
+  In this chapter we have, I. Jephthah's rencounter with the Ephraimites, and the blood shed on that unhappy occasion (Jdg 12:1-6), and the conclusion of Jephthah's life and governme...
 weight: 12
 ---
 

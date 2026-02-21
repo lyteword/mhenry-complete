@@ -1,7 +1,8 @@
 ---
 title: "2 Chronicles 26 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "26"
-description: "This chapter gives us an account of the reign of Uzziah (Azariah he was called in the Kings) more fully than we had it before, though it was long, and in some respects illustrious,..."
+description: >
+  This chapter gives us an account of the reign of Uzziah (Azariah he was called in the Kings) more fully than we had it before, though it was long, and in some respects illustrious,...
 weight: 26
 ---
 

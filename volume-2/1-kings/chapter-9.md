@@ -1,7 +1,8 @@
 ---
 title: "1 Kings 9 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "9"
-description: "In this chapter we have, I. The answer which God, in a vision, gave to Solomon\'s prayer, and the terms he settled with him, 1Ki 9:1-9. II. The interchanging of grateful kindnesses ..."
+description: >
+  In this chapter we have, I. The answer which God, in a vision, gave to Solomon's prayer, and the terms he settled with him, 1Ki 9:1-9. II. The interchanging of grateful kindnesses ...
 weight: 9
 ---
 

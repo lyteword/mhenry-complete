@@ -1,7 +1,8 @@
 ---
 title: "2 Samuel 2 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "2"
-description: "David had paid due respect to the memory of Saul his prince and Jonathan his friend, and what he did was as much his praise as theirs; he is now considering what is to be done next..."
+description: >
+  David had paid due respect to the memory of Saul his prince and Jonathan his friend, and what he did was as much his praise as theirs; he is now considering what is to be done next...
 weight: 2
 ---
 

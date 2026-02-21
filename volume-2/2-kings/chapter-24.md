@@ -1,7 +1,8 @@
 ---
 title: "2 Kings 24 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "24"
-description: "Things are here ripening for, and hastening towards, the utter destruction of Jerusalem. We left Jehoiakim on the throne, placed there by the king of Egypt: now here we have, I. Th..."
+description: >
+  Things are here ripening for, and hastening towards, the utter destruction of Jerusalem. We left Jehoiakim on the throne, placed there by the king of Egypt: now here we have, I. Th...
 weight: 24
 ---
 

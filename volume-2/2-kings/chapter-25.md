@@ -1,7 +1,8 @@
 ---
 title: "2 Kings 25 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "25"
-description: "Ever since David\'s time Jerusalem had been a celebrated place, beautiful for situation and the joy of the whole earth: while the book of psalms lasts that name will sound great. In..."
+description: >
+  Ever since David's time Jerusalem had been a celebrated place, beautiful for situation and the joy of the whole earth: while the book of psalms lasts that name will sound great. In...
 weight: 25
 ---
 

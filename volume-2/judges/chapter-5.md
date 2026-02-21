@@ -1,7 +1,8 @@
 ---
 title: "Judges 5 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "5"
-description: "This chapter contains the triumphal song which was composed and sung upon occasion of that glorious victory which Israel obtained over the forces of Jabin king of Canaan and the ha..."
+description: >
+  This chapter contains the triumphal song which was composed and sung upon occasion of that glorious victory which Israel obtained over the forces of Jabin king of Canaan and the ha...
 weight: 5
 ---
 

@@ -1,7 +1,8 @@
 ---
 title: "1 Samuel 20 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "20"
-description: "David, having several times narrowly escaped Saul\'s fury, begins to consider at last whether it may not be necessary for him to retire into the country and to take up arms in his o..."
+description: >
+  David, having several times narrowly escaped Saul's fury, begins to consider at last whether it may not be necessary for him to retire into the country and to take up arms in his o...
 weight: 20
 ---
 

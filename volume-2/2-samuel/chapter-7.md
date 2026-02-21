@@ -1,7 +1,8 @@
 ---
 title: "2 Samuel 7 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "7"
-description: "Still the ark is David\'s care as well as his joy. In this chapter we have, I. His consultation with Nathan about building a house for it; he signifies his purpose to do it (2Sa 7:1..."
+description: >
+  Still the ark is David's care as well as his joy. In this chapter we have, I. His consultation with Nathan about building a house for it; he signifies his purpose to do it (2Sa 7:1...
 weight: 7
 ---
 

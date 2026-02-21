@@ -1,7 +1,8 @@
 ---
 title: "Ezra 10 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "10"
-description: "In this chapter we have that grievance redressed which was complained of and lamented in the foregoing chapter. Observe, I. How the people\'s hearts were prepared for the redress of..."
+description: >
+  In this chapter we have that grievance redressed which was complained of and lamented in the foregoing chapter. Observe, I. How the people's hearts were prepared for the redress of...
 weight: 10
 ---
 

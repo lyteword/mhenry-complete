@@ -1,7 +1,8 @@
 ---
 title: "1 Samuel 18 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "18"
-description: "In the course of the foregoing chapter we left David in triumph; now in this chapter we have, I. The improvement of his triumphs; he soon became, 1. Saul\'s constant attendant, 1Sa ..."
+description: >
+  In the course of the foregoing chapter we left David in triumph; now in this chapter we have, I. The improvement of his triumphs; he soon became, 1. Saul's constant attendant, 1Sa ...
 weight: 18
 ---
 

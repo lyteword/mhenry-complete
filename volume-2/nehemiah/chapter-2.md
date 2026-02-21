@@ -1,7 +1,8 @@
 ---
 title: "Nehemiah 2 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "2"
-description: "How Nehemiah wrestled with God and prevailed we read in the foregoing chapter; now here we are told how, like Jacob, he prevailed with men also, and so found that his prayers were ..."
+description: >
+  How Nehemiah wrestled with God and prevailed we read in the foregoing chapter; now here we are told how, like Jacob, he prevailed with men also, and so found that his prayers were ...
 weight: 2
 ---
 

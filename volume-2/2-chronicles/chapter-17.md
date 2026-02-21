@@ -1,7 +1,8 @@
 ---
 title: "2 Chronicles 17 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "17"
-description: "Here begin the life and reign of Jehoshaphat, who was one of the first three among the royal worthies, one of the best that ever swayed the sceptre of Judah since David\'s head was ..."
+description: >
+  Here begin the life and reign of Jehoshaphat, who was one of the first three among the royal worthies, one of the best that ever swayed the sceptre of Judah since David's head was ...
 weight: 17
 ---
 

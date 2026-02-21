@@ -1,7 +1,8 @@
 ---
 title: "1 Samuel 28 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "28"
-description: "Preparations are herein making for that war which will put an end to the life and reign of Saul, and so make way for David to the throne. In this war, I. The Philistines are the ag..."
+description: >
+  Preparations are herein making for that war which will put an end to the life and reign of Saul, and so make way for David to the throne. In this war, I. The Philistines are the ag...
 weight: 28
 ---
 

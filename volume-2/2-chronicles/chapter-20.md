@@ -1,7 +1,8 @@
 ---
 title: "2 Chronicles 20 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "20"
-description: "We have here, I. The great danger and distress that Jehoshaphat and his kingdom were in from a foreign invasion, 2Ch 20:1,2. II. The pious course he took for their safety, by fasti..."
+description: >
+  We have here, I. The great danger and distress that Jehoshaphat and his kingdom were in from a foreign invasion, 2Ch 20:1,2. II. The pious course he took for their safety, by fasti...
 weight: 20
 ---
 

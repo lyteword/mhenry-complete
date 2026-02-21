@@ -1,7 +1,8 @@
 ---
 title: "2 Chronicles 15 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "15"
-description: "Asa and his army were now returning in triumph from the battle, laden with spoils and adorned with the trophies of victory, the pious prince, we may now suppose, studying what he s..."
+description: >
+  Asa and his army were now returning in triumph from the battle, laden with spoils and adorned with the trophies of victory, the pious prince, we may now suppose, studying what he s...
 weight: 15
 ---
 

@@ -1,7 +1,8 @@
 ---
 title: "Joshua 4 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "4"
-description: "This chapter gives a further account of the miraculous passage of Israel through Jordan. I. The provision that was made at that time to preserve the memorial of it, by twelve stone..."
+description: >
+  This chapter gives a further account of the miraculous passage of Israel through Jordan. I. The provision that was made at that time to preserve the memorial of it, by twelve stone...
 weight: 4
 ---
 

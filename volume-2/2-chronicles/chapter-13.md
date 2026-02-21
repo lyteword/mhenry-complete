@@ -1,7 +1,8 @@
 ---
 title: "2 Chronicles 13 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "13"
-description: "We have here a much fuller account of the reign of Abijah, the son of Rehoboam, than we had in the Kings. There we found that his character was no better than his father\'s—he \"walk..."
+description: >
+  We have here a much fuller account of the reign of Abijah, the son of Rehoboam, than we had in the Kings. There we found that his character was no better than his father's—he "walk...
 weight: 13
 ---
 

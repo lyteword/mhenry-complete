@@ -1,7 +1,8 @@
 ---
 title: "Nehemiah 4 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "4"
-description: "We left all hands at work for the building of the wall about Jerusalem. But such good work is not wont to be carried on without opposition; now here we are told what opposition was..."
+description: >
+  We left all hands at work for the building of the wall about Jerusalem. But such good work is not wont to be carried on without opposition; now here we are told what opposition was...
 weight: 4
 ---
 

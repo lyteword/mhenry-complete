@@ -1,7 +1,8 @@
 ---
 title: "Nehemiah 12 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "12"
-description: "In this chapter are preserved upon record, I. The names of the chief of the priests and the Levites that came up with Zerubbabel, Ne 12:1-9. II. The succession of the high priests,..."
+description: >
+  In this chapter are preserved upon record, I. The names of the chief of the priests and the Levites that came up with Zerubbabel, Ne 12:1-9. II. The succession of the high priests,...
 weight: 12
 ---
 

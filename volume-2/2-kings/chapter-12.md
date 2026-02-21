@@ -1,7 +1,8 @@
 ---
 title: "2 Kings 12 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "12"
-description: "This chapter gives us the history of the reign of Joash, which does not answer to that glorious beginning of it which we had an account of in the foregoing chapter; he was not so i..."
+description: >
+  This chapter gives us the history of the reign of Joash, which does not answer to that glorious beginning of it which we had an account of in the foregoing chapter; he was not so i...
 weight: 12
 ---
 

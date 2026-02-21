@@ -1,7 +1,8 @@
 ---
 title: "2 Chronicles 32 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "32"
-description: "This chapter continues and concludes the history of the reign of Hezekiah. I. The descent which Sennacherib made upon him, and the care he took to fortify himself, his city, and th..."
+description: >
+  This chapter continues and concludes the history of the reign of Hezekiah. I. The descent which Sennacherib made upon him, and the care he took to fortify himself, his city, and th...
 weight: 32
 ---
 

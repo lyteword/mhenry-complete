@@ -1,7 +1,8 @@
 ---
 title: "1 Kings 18 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "18"
-description: "We left the prophet Elijah wrapt up in obscurity. It does not appear that either the increase of the provision or the raising of the child had caused him to be taken notice of at Z..."
+description: >
+  We left the prophet Elijah wrapt up in obscurity. It does not appear that either the increase of the provision or the raising of the child had caused him to be taken notice of at Z...
 weight: 18
 ---
 

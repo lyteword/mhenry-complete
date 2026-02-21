@@ -1,7 +1,8 @@
 ---
 title: "1 Samuel 22 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "22"
-description: "David, being driven from Achish, returns into the land of Israel to be hunted by Saul. I. David sets up his standard in the cave of Adullam, entertains his relations (1Sa 22:1), en..."
+description: >
+  David, being driven from Achish, returns into the land of Israel to be hunted by Saul. I. David sets up his standard in the cave of Adullam, entertains his relations (1Sa 22:1), en...
 weight: 22
 ---
 

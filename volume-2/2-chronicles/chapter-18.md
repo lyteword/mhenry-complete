@@ -1,7 +1,8 @@
 ---
 title: "2 Chronicles 18 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "18"
-description: "The story of this chapter we had just as it is here related in the story of the reign of Ahab king of Israel, 2Ki 22:41-50 There it looks more creditable to Ahab than any thing els..."
+description: >
+  The story of this chapter we had just as it is here related in the story of the reign of Ahab king of Israel, 2Ki 22:41-50 There it looks more creditable to Ahab than any thing els...
 weight: 18
 ---
 

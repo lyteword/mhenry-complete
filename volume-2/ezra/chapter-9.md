@@ -1,7 +1,8 @@
 ---
 title: "Ezra 9 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "9"
-description: "The affairs of the church were in a very good posture, we may well suppose, now that Ezra presided in them. Look without; the government was kind to them. We hear no complaints of ..."
+description: >
+  The affairs of the church were in a very good posture, we may well suppose, now that Ezra presided in them. Look without; the government was kind to them. We hear no complaints of ...
 weight: 9
 ---
 

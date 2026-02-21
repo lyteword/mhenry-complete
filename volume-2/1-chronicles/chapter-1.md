@@ -1,7 +1,8 @@
 ---
 title: "1 Chronicles 1 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "1"
-description: "This chapter and many that follow it repeat the genealogies we have hitherto met with in the sacred history, and put them all together, with considerable additions. We may be tempt..."
+description: >
+  This chapter and many that follow it repeat the genealogies we have hitherto met with in the sacred history, and put them all together, with considerable additions. We may be tempt...
 weight: 1
 ---
 

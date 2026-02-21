@@ -1,7 +1,8 @@
 ---
 title: "1 Samuel 25 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "25"
-description: "We have here some intermission of David\'s troubles by Saul. Providence favoured him with a breathing time, and yet this chapter gives us instances of the troubles of David. If one ..."
+description: >
+  We have here some intermission of David's troubles by Saul. Providence favoured him with a breathing time, and yet this chapter gives us instances of the troubles of David. If one ...
 weight: 25
 ---
 

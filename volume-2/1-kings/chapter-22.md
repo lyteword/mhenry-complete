@@ -1,7 +1,8 @@
 ---
 title: "1 Kings 22 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "22"
-description: "This chapter finishes the history of Ahab\'s reign. It was promised in the close of the foregoing chapter that the ruin of his house should not come in his days, but his days were s..."
+description: >
+  This chapter finishes the history of Ahab's reign. It was promised in the close of the foregoing chapter that the ruin of his house should not come in his days, but his days were s...
 weight: 22
 ---
 

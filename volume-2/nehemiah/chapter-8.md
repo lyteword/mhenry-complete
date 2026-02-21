@@ -1,7 +1,8 @@
 ---
 title: "Nehemiah 8 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "8"
-description: "Ezra came up out of Babylon thirteen years before Nehemiah came, yet we have here a piece of good work which he did, that might have been done before, but was not done till Nehemia..."
+description: >
+  Ezra came up out of Babylon thirteen years before Nehemiah came, yet we have here a piece of good work which he did, that might have been done before, but was not done till Nehemia...
 weight: 8
 ---
 

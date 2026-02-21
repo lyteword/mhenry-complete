@@ -1,7 +1,8 @@
 ---
 title: "1 Samuel 10 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "10"
-description: "We left Samuel and Saul walking together, probably some private way over the fields down from Ramah, perhaps in the paths of the vineyards, and Saul expecting to hear from Samuel t..."
+description: >
+  We left Samuel and Saul walking together, probably some private way over the fields down from Ramah, perhaps in the paths of the vineyards, and Saul expecting to hear from Samuel t...
 weight: 10
 ---
 

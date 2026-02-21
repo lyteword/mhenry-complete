@@ -1,7 +1,8 @@
 ---
 title: "2 Chronicles 25 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "25"
-description: "Amaziah\'s reign, recorded in this chapter, was not one of the worse and yet for from good. Most of the passages in this chapter we had before more briefly related, 2Ki 14:1-22 Here..."
+description: >
+  Amaziah's reign, recorded in this chapter, was not one of the worse and yet for from good. Most of the passages in this chapter we had before more briefly related, 2Ki 14:1-22 Here...
 weight: 25
 ---
 

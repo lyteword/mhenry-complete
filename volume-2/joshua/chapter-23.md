@@ -1,7 +1,8 @@
 ---
 title: "Joshua 23 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "23"
-description: "In this and the following chapter we have two farewell sermons, which Joshua preached to the people of Israel a little before his death. Had he designed to gratify the curiosity of..."
+description: >
+  In this and the following chapter we have two farewell sermons, which Joshua preached to the people of Israel a little before his death. Had he designed to gratify the curiosity of...
 weight: 23
 ---
 

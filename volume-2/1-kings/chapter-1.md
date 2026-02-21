@@ -1,7 +1,8 @@
 ---
 title: "1 Kings 1 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "1"
-description: "In this chapter we have, I. David declining in his health, 1Ki 1:1-4. II. Adonijah aspiring to the kingdom, and treating his party, in order to it, 1Ki 1:5-10. III. Nathan and Bath..."
+description: >
+  In this chapter we have, I. David declining in his health, 1Ki 1:1-4. II. Adonijah aspiring to the kingdom, and treating his party, in order to it, 1Ki 1:5-10. III. Nathan and Bath...
 weight: 1
 ---
 

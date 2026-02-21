@@ -1,7 +1,8 @@
 ---
 title: "1 Chronicles 23 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "23"
-description: "David, having given charge concerning the building of the temple, in this and the following chapters settles the method of the temple-service and puts into order the offices and of..."
+description: >
+  David, having given charge concerning the building of the temple, in this and the following chapters settles the method of the temple-service and puts into order the offices and of...
 weight: 23
 ---
 

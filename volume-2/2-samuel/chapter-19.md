@@ -1,7 +1,8 @@
 ---
 title: "2 Samuel 19 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "19"
-description: "We left David\'s army in triumph and yet David himself in tears: now here we have, I. His return to himself, by the persuasion of Joab, 2Sa 19:1-8. II. His return to his kingdom fro..."
+description: >
+  We left David's army in triumph and yet David himself in tears: now here we have, I. His return to himself, by the persuasion of Joab, 2Sa 19:1-8. II. His return to his kingdom fro...
 weight: 19
 ---
 

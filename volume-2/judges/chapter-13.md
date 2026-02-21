@@ -1,7 +1,8 @@
 ---
 title: "Judges 13 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "13"
-description: "At this chapter begins the story of Samson, the last of the judges of Israel whose story is recorded in this book, and next before Eli. The passages related concerning him are, fro..."
+description: >
+  At this chapter begins the story of Samson, the last of the judges of Israel whose story is recorded in this book, and next before Eli. The passages related concerning him are, fro...
 weight: 13
 ---
 

@@ -1,7 +1,8 @@
 ---
 title: "Judges 8 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "8"
-description: "This chapter gives us a further account of Gideon\'s victory over the Midianites, with the residue of the story of his life and government. I. Gideon prudently pacifies the offended..."
+description: >
+  This chapter gives us a further account of Gideon's victory over the Midianites, with the residue of the story of his life and government. I. Gideon prudently pacifies the offended...
 weight: 8
 ---
 

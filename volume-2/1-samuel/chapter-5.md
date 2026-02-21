@@ -1,7 +1,8 @@
 ---
 title: "1 Samuel 5 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "5"
-description: "It is now time to enquire what has become of the ark of God; we cannot but think that we shall hear more of that sacred treasure. I should have thought the next news would have bee..."
+description: >
+  It is now time to enquire what has become of the ark of God; we cannot but think that we shall hear more of that sacred treasure. I should have thought the next news would have bee...
 weight: 5
 ---
 

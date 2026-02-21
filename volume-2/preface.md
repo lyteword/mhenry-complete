@@ -1,7 +1,8 @@
 ---
 title: "Preface - Volume 2 | Read the Matthew Henry Concise Bible Commentary Online"
 linkTitle: "Preface"
-description: "This second volume of methodized and practical expositions of the inspired writings ventures abroad with fear and trembling in the same plain and homely dress with the former on the Pentateuch."
+description: >
+  This second volume of methodized and practical expositions of the inspired writings ventures abroad with fear and trembling in the same plain and homely dress with the former on the Pentateuch.
 weight: 1
 ---
 

@@ -1,7 +1,8 @@
 ---
 title: "Joshua 5 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "5"
-description: "Israel have now got over Jordan, and the waters which had opened before them, to favour their march forward, are closed again behind them, to forbid their retreat backward. They ha..."
+description: >
+  Israel have now got over Jordan, and the waters which had opened before them, to favour their march forward, are closed again behind them, to forbid their retreat backward. They ha...
 weight: 5
 ---
 
