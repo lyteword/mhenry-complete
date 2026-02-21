@@ -1,7 +1,8 @@
 ---
 title: "Numbers 27 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "27"
-description: "Here is, I. The case of Zelophehad\'s daughters determined, Nu 27:1-11. II. Notice given to Moses of his death approaching, Nu 27:12-14. III. Provision made of a successor in the go..."
+description: >
+  Here is, I. The case of Zelophehad's daughters determined, Nu 27:1-11. II. Notice given to Moses of his death approaching, Nu 27:12-14. III. Provision made of a successor in the go...
 weight: 27
 ---
 

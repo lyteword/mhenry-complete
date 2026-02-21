@@ -1,7 +1,8 @@
 ---
 title: "Numbers 18 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "18"
-description: "Aaron being now fully established in the priesthood abundantly to his own satisfaction, and to the satisfaction of the people (which was the good that God brought out of the evil o..."
+description: >
+  Aaron being now fully established in the priesthood abundantly to his own satisfaction, and to the satisfaction of the people (which was the good that God brought out of the evil o...
 weight: 18
 ---
 

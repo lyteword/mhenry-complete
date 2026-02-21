@@ -1,7 +1,8 @@
 ---
 title: "Numbers 21 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "21"
-description: "The armies of Israel now begin to emerge out of the wilderness, and to come into a land inhabited, to enter upon action, and take possession of the frontiers of the land of promise..."
+description: >
+  The armies of Israel now begin to emerge out of the wilderness, and to come into a land inhabited, to enter upon action, and take possession of the frontiers of the land of promise...
 weight: 21
 ---
 

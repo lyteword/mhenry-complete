@@ -1,7 +1,8 @@
 ---
 title: "Genesis 18 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "18"
-description: "We have an account in this chapter of another interview between God and Abraham, probably within a few days after the former, as the reward of his cheerful obedience to the law of ..."
+description: >
+  We have an account in this chapter of another interview between God and Abraham, probably within a few days after the former, as the reward of his cheerful obedience to the law of ...
 weight: 18
 ---
 

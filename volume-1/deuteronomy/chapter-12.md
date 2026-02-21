@@ -1,7 +1,8 @@
 ---
 title: "Deuteronomy 12 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "12"
-description: "Moses at this chapter comes to the particular statues which he had to give in charge to Israel, and he begins with those which relate to the worship of God, and particularly those ..."
+description: >
+  Moses at this chapter comes to the particular statues which he had to give in charge to Israel, and he begins with those which relate to the worship of God, and particularly those ...
 weight: 12
 ---
 

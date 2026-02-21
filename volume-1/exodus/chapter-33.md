@@ -1,7 +1,8 @@
 ---
 title: "Exodus 33 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "33"
-description: "In this chapter we have a further account of the mediation of Moses between God and Israel, for the making up of the breach that sin had made between them. I. He brings a very humb..."
+description: >
+  In this chapter we have a further account of the mediation of Moses between God and Israel, for the making up of the breach that sin had made between them. I. He brings a very humb...
 weight: 33
 ---
 

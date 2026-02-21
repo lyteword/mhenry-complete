@@ -1,7 +1,8 @@
 ---
 title: "Numbers 2 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "2"
-description: "The thousands of Israel, having been mustered in the former chapter, in this are marshalled, and a regular disposition is made of their camp, by a divine appointment. Here is, I. A..."
+description: >
+  The thousands of Israel, having been mustered in the former chapter, in this are marshalled, and a regular disposition is made of their camp, by a divine appointment. Here is, I. A...
 weight: 2
 ---
 

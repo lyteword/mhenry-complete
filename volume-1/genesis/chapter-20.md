@@ -1,7 +1,8 @@
 ---
 title: "Genesis 20 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "20"
-description: "We are here returning to the story of Abraham; yet that part of it which is here recorded is not to his honour. The fairest marbles have their flaws, and, while there are spots in ..."
+description: >
+  We are here returning to the story of Abraham; yet that part of it which is here recorded is not to his honour. The fairest marbles have their flaws, and, while there are spots in ...
 weight: 20
 ---
 

@@ -1,7 +1,8 @@
 ---
 title: "Exodus 19 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "19"
-description: "This chapter introduces the solemnity of the giving of the law upon Mount Sinai, which was one of the most striking appearances of the divine glory that ever was in this lower worl..."
+description: >
+  This chapter introduces the solemnity of the giving of the law upon Mount Sinai, which was one of the most striking appearances of the divine glory that ever was in this lower worl...
 weight: 19
 ---
 

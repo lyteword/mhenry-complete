@@ -1,7 +1,8 @@
 ---
 title: "Deuteronomy 31 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "31"
-description: "In this chapter Moses, having finished his sermon, I. Encourages both the people who were now to enter Canaan (De 31:1-6), and Joshua who was to lead them, De 31:7,8,23. And, II. H..."
+description: >
+  In this chapter Moses, having finished his sermon, I. Encourages both the people who were now to enter Canaan (De 31:1-6), and Joshua who was to lead them, De 31:7,8,23. And, II. H...
 weight: 31
 ---
 

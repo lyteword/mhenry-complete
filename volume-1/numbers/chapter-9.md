@@ -1,7 +1,8 @@
 ---
 title: "Numbers 9 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "9"
-description: "This chapter is, I. Concerning the great ordinance of the passover; 1. Orders given for the observance of it, at the return of the year, Nu 9:1-5. 2. Provisos added in regard to su..."
+description: >
+  This chapter is, I. Concerning the great ordinance of the passover; 1. Orders given for the observance of it, at the return of the year, Nu 9:1-5. 2. Provisos added in regard to su...
 weight: 9
 ---
 

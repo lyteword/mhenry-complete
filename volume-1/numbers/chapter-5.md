@@ -1,7 +1,8 @@
 ---
 title: "Numbers 5 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "5"
-description: "In this chapter we have, I. An order, pursuant to the laws already made, for the removing of the unclean out of the camp, Nu 5:1-4. II. A repetition of the laws concerning restitut..."
+description: >
+  In this chapter we have, I. An order, pursuant to the laws already made, for the removing of the unclean out of the camp, Nu 5:1-4. II. A repetition of the laws concerning restitut...
 weight: 5
 ---
 

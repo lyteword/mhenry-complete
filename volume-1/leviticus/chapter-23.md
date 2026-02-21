@@ -1,7 +1,8 @@
 ---
 title: "Leviticus 23 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "23"
-description: "Hitherto the levitical law had been chiefly conversant about holy persons, holy things, and holy places; in this chapter we have the institution of holy times, many of which had be..."
+description: >
+  Hitherto the levitical law had been chiefly conversant about holy persons, holy things, and holy places; in this chapter we have the institution of holy times, many of which had be...
 weight: 23
 ---
 

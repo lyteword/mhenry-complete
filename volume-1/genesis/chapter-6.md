@@ -1,7 +1,8 @@
 ---
 title: "Genesis 6 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "6"
-description: "The most remarkable thing we have upon record concerning the old world is the destruction of it by the universal deluge, the account of which commences in this chapter, wherein we ..."
+description: >
+  The most remarkable thing we have upon record concerning the old world is the destruction of it by the universal deluge, the account of which commences in this chapter, wherein we ...
 weight: 6
 ---
 

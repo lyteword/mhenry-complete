@@ -1,7 +1,8 @@
 ---
 title: "Deuteronomy 15 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "15"
-description: "In this chapter Moses gives orders, I. Concerning the release of debts, every seventh year (De 15:1-6), with a caution that this should be no hindrance to charitable lending, De 15..."
+description: >
+  In this chapter Moses gives orders, I. Concerning the release of debts, every seventh year (De 15:1-6), with a caution that this should be no hindrance to charitable lending, De 15...
 weight: 15
 ---
 

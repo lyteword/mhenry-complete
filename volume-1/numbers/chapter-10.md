@@ -1,7 +1,8 @@
 ---
 title: "Numbers 10 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "10"
-description: "In this chapter we have, I. Orders given about the making and using of silver trumpets, which seems to have been the last of all the commandments God gave upon Mount Sinai, and one..."
+description: >
+  In this chapter we have, I. Orders given about the making and using of silver trumpets, which seems to have been the last of all the commandments God gave upon Mount Sinai, and one...
 weight: 10
 ---
 

@@ -1,7 +1,8 @@
 ---
 title: "Genesis 22 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "22"
-description: "We have here the famous story of Abraham\'s offering up his son Isaac, that is, his offering to offer him, which is justly looked upon as one of the wonders of the church. Here is, ..."
+description: >
+  We have here the famous story of Abraham's offering up his son Isaac, that is, his offering to offer him, which is justly looked upon as one of the wonders of the church. Here is, ...
 weight: 22
 ---
 

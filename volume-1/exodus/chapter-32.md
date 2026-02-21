@@ -1,7 +1,8 @@
 ---
 title: "Exodus 32 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "32"
-description: "It is a very lamentable interruption which the story of this chapter gives to the record of the establishment of the church, and of religion among the Jews. Things went on admirabl..."
+description: >
+  It is a very lamentable interruption which the story of this chapter gives to the record of the establishment of the church, and of religion among the Jews. Things went on admirabl...
 weight: 32
 ---
 

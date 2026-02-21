@@ -1,7 +1,8 @@
 ---
 title: "Leviticus 4 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "4"
-description: "This chapter is concerning the sin-offering, which was properly intended to make atonement for a sin committed through ignorance, I. By the priest himself, Le 4:1-12. Or, II. By th..."
+description: >
+  This chapter is concerning the sin-offering, which was properly intended to make atonement for a sin committed through ignorance, I. By the priest himself, Le 4:1-12. Or, II. By th...
 weight: 4
 ---
 

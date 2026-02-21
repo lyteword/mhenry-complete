@@ -1,7 +1,8 @@
 ---
 title: "Exodus 11 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "11"
-description: "Pharaoh had told Moses to get out of his presence (Ex 10:28), and Moses had promised this should be the last time he would trouble him, yet he resolves to say out what he had to sa..."
+description: >
+  Pharaoh had told Moses to get out of his presence (Ex 10:28), and Moses had promised this should be the last time he would trouble him, yet he resolves to say out what he had to sa...
 weight: 11
 ---
 

@@ -1,7 +1,8 @@
 ---
 title: "Numbers 20 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "20"
-description: "At this chapter begins the history of the fortieth year (which was the last year) of the Israelites\' wandering in the wilderness. And since the beginning of their second year, when..."
+description: >
+  At this chapter begins the history of the fortieth year (which was the last year) of the Israelites' wandering in the wilderness. And since the beginning of their second year, when...
 weight: 20
 ---
 

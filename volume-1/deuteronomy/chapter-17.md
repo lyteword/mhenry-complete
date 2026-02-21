@@ -1,7 +1,8 @@
 ---
 title: "Deuteronomy 17 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "17"
-description: "The charge of this chapter is, I. Concerning the purity and perfection of all those animals that were offered in sacrifice, De 17:1. II. Concerning the punishment of those that wor..."
+description: >
+  The charge of this chapter is, I. Concerning the purity and perfection of all those animals that were offered in sacrifice, De 17:1. II. Concerning the punishment of those that wor...
 weight: 17
 ---
 

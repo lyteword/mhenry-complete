@@ -1,7 +1,8 @@
 ---
 title: "Genesis 37 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "37"
-description: "At this chapter begins the story of Joseph, who, in every subsequent chapter but one to the end of this book, makes the greatest figure. He was Jacob\'s eldest son by his beloved wi..."
+description: >
+  At this chapter begins the story of Joseph, who, in every subsequent chapter but one to the end of this book, makes the greatest figure. He was Jacob's eldest son by his beloved wi...
 weight: 37
 ---
 

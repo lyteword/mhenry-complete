@@ -1,7 +1,8 @@
 ---
 title: "Deuteronomy 19 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "19"
-description: "The laws which Moses had hitherto been repeating and urging mostly concerned the acts of religion and devotion towards God; but here he comes more fully to press the duties of righ..."
+description: >
+  The laws which Moses had hitherto been repeating and urging mostly concerned the acts of religion and devotion towards God; but here he comes more fully to press the duties of righ...
 weight: 19
 ---
 

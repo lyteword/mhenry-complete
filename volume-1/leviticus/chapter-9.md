@@ -1,7 +1,8 @@
 ---
 title: "Leviticus 9 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "9"
-description: "Aaron and his sons, having been solemnly consecrated to the priesthood, are in this chapter entering upon the execution of their office, the very next day after their consecration ..."
+description: >
+  Aaron and his sons, having been solemnly consecrated to the priesthood, are in this chapter entering upon the execution of their office, the very next day after their consecration ...
 weight: 9
 ---
 

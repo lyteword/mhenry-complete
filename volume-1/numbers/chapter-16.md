@@ -1,7 +1,8 @@
 ---
 title: "Numbers 16 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "16"
-description: "The date of the history contained in this chapter is altogether uncertain. Probably these mutinies happened after their removal back again from Kadesh-barnea, when they were fixed ..."
+description: >
+  The date of the history contained in this chapter is altogether uncertain. Probably these mutinies happened after their removal back again from Kadesh-barnea, when they were fixed ...
 weight: 16
 ---
 

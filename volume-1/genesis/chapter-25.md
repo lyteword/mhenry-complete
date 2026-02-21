@@ -1,7 +1,8 @@
 ---
 title: "Genesis 25 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "25"
-description: "The sacred historian, in this chapter, I. Takes his leave of Abraham, with an account, 1. Of his children by another wife, Ge 25:1-4. 2. Of his last will and testament, Ge 25:5,6. ..."
+description: >
+  The sacred historian, in this chapter, I. Takes his leave of Abraham, with an account, 1. Of his children by another wife, Ge 25:1-4. 2. Of his last will and testament, Ge 25:5,6. ...
 weight: 25
 ---
 

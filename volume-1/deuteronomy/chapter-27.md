@@ -1,7 +1,8 @@
 ---
 title: "Deuteronomy 27 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "27"
-description: "Moses having very largely and fully set before the people their duty, both to God and one another, in general and in particular instances,—having shown them plainly what is good, a..."
+description: >
+  Moses having very largely and fully set before the people their duty, both to God and one another, in general and in particular instances,—having shown them plainly what is good, a...
 weight: 27
 ---
 

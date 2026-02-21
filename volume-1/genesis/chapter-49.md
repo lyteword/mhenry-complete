@@ -1,7 +1,8 @@
 ---
 title: "Genesis 49 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "49"
-description: "This chapter is a prophecy; the likest to it we have yet met with was that of Noah, Ge 9:25-27, etc. Jacob is here upon his death-bed, making his will. He put it off till now, beca..."
+description: >
+  This chapter is a prophecy; the likest to it we have yet met with was that of Noah, Ge 9:25-27, etc. Jacob is here upon his death-bed, making his will. He put it off till now, beca...
 weight: 49
 ---
 

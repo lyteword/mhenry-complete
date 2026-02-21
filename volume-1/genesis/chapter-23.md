@@ -1,7 +1,8 @@
 ---
 title: "Genesis 23 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "23"
-description: "Here is, I. Abraham a mourner for the death of Sarah, Ge 23:1,2. II. Abraham a purchaser of a burying-place for Sarah. 1. The purchase humbly proposed by Abraham, Ge 23:3,4. 2. Fai..."
+description: >
+  Here is, I. Abraham a mourner for the death of Sarah, Ge 23:1,2. II. Abraham a purchaser of a burying-place for Sarah. 1. The purchase humbly proposed by Abraham, Ge 23:3,4. 2. Fai...
 weight: 23
 ---
 

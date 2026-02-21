@@ -1,7 +1,8 @@
 ---
 title: "Deuteronomy 13 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "13"
-description: "Moses is still upon that necessary subject concerning the peril of idolatry. In the close of the foregoing chapter he had cautioned them against the peril that might arise from the..."
+description: >
+  Moses is still upon that necessary subject concerning the peril of idolatry. In the close of the foregoing chapter he had cautioned them against the peril that might arise from the...
 weight: 13
 ---
 

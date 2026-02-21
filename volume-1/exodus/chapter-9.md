@@ -1,7 +1,8 @@
 ---
 title: "Exodus 9 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "9"
-description: "In this chapter we have an account of three more of the plagues of Egypt. I. Murrain among the cattle, which was fatal to them, Ex 9:1-7. II. Boils upon man and beast, Ex 9:8-12. I..."
+description: >
+  In this chapter we have an account of three more of the plagues of Egypt. I. Murrain among the cattle, which was fatal to them, Ex 9:1-7. II. Boils upon man and beast, Ex 9:8-12. I...
 weight: 9
 ---
 

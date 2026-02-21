@@ -1,7 +1,8 @@
 ---
 title: "Genesis 40 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "40"
-description: "In this chapter things are working, though slowly, towards Joseph\'s advancement. I. Two of Pharaoh\'s servants are committed to prison, and there to Joseph\'s care, and so become wit..."
+description: >
+  In this chapter things are working, though slowly, towards Joseph's advancement. I. Two of Pharaoh's servants are committed to prison, and there to Joseph's care, and so become wit...
 weight: 40
 ---
 

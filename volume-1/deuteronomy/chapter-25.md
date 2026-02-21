@@ -1,7 +1,8 @@
 ---
 title: "Deuteronomy 25 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "25"
-description: "Here is, I. A law to moderate the scourging of malefactors, De 25:1-3. II. A law in favour of the ox that treads out the corn, De 25:4. III. For the disgracing of him that refused ..."
+description: >
+  Here is, I. A law to moderate the scourging of malefactors, De 25:1-3. II. A law in favour of the ox that treads out the corn, De 25:4. III. For the disgracing of him that refused ...
 weight: 25
 ---
 

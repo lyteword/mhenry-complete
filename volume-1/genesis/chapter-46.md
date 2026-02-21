@@ -1,7 +1,8 @@
 ---
 title: "Genesis 46 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "46"
-description: "Jacob is here removing to Egypt in his old age, forced thither by a famine, and invited thither by a son. Here, I. God sends him thither, Ge 46:1-4. II. All his family goes with hi..."
+description: >
+  Jacob is here removing to Egypt in his old age, forced thither by a famine, and invited thither by a son. Here, I. God sends him thither, Ge 46:1-4. II. All his family goes with hi...
 weight: 46
 ---
 

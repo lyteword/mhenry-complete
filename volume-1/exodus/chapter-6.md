@@ -1,7 +1,8 @@
 ---
 title: "Exodus 6 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "6"
-description: "Much ado there was to bring Moses to his work, and when the ice was broken, some difficulty having occurred in carrying it on, there was no less ado to put him forward in it. Witne..."
+description: >
+  Much ado there was to bring Moses to his work, and when the ice was broken, some difficulty having occurred in carrying it on, there was no less ado to put him forward in it. Witne...
 weight: 6
 ---
 

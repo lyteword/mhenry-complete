@@ -1,7 +1,8 @@
 ---
 title: "Deuteronomy 16 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "16"
-description: "In this chapter we have, I. A repetition of the laws concerning the three yearly feasts; in particular, that of the passover, De 16:1-8. That of pentecost, De 16:9-12. That of tabe..."
+description: >
+  In this chapter we have, I. A repetition of the laws concerning the three yearly feasts; in particular, that of the passover, De 16:1-8. That of pentecost, De 16:9-12. That of tabe...
 weight: 16
 ---
 

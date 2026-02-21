@@ -1,7 +1,8 @@
 ---
 title: "Numbers 26 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "26"
-description: "This book is called Numbers, from the numberings of the children of Israel, of which it gives an account. Once they were numbered at Mount Sinai, in the first year after they came ..."
+description: >
+  This book is called Numbers, from the numberings of the children of Israel, of which it gives an account. Once they were numbered at Mount Sinai, in the first year after they came ...
 weight: 26
 ---
 

@@ -1,7 +1,8 @@
 ---
 title: "Genesis 26 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "26"
-description: "In this chapter we have, I. Isaac in adversity, by reason of a famine in the land, which, 1. Obliges him to change his quarters, Ge 26:1. But, 2. God visits him with direction and ..."
+description: >
+  In this chapter we have, I. Isaac in adversity, by reason of a famine in the land, which, 1. Obliges him to change his quarters, Ge 26:1. But, 2. God visits him with direction and ...
 weight: 26
 ---
 

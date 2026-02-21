@@ -1,7 +1,8 @@
 ---
 title: "Exodus 17 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "17"
-description: "Two passages of story are recorded in this chapter, I. The watering of the host of Israel. 1. In the wilderness they wanted water, Ex 17:1. 2. In their want they chided Moses, Ex 1..."
+description: >
+  Two passages of story are recorded in this chapter, I. The watering of the host of Israel. 1. In the wilderness they wanted water, Ex 17:1. 2. In their want they chided Moses, Ex 1...
 weight: 17
 ---
 

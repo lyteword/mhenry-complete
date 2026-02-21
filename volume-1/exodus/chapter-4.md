@@ -1,7 +1,8 @@
 ---
 title: "Exodus 4 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "4"
-description: "This chapter, I. Continues and concludes God\'s discourse with Moses at the bush concerning this great affair of bringing Israel out of Egypt. 1. Moses objects the people\'s unbelief..."
+description: >
+  This chapter, I. Continues and concludes God's discourse with Moses at the bush concerning this great affair of bringing Israel out of Egypt. 1. Moses objects the people's unbelief...
 weight: 4
 ---
 

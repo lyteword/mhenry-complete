@@ -1,7 +1,8 @@
 ---
 title: "Leviticus 11 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "11"
-description: "The ceremonial law is described by the apostle (Heb 9:9,10) to consist, not only \"in gifts and sacrifices,\" which hitherto have been treated of in this book, but \"in meats, and dri..."
+description: >
+  The ceremonial law is described by the apostle (Heb 9:9,10) to consist, not only "in gifts and sacrifices," which hitherto have been treated of in this book, but "in meats, and dri...
 weight: 11
 ---
 

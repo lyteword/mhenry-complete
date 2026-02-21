@@ -1,7 +1,8 @@
 ---
 title: "Exodus 21 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "21"
-description: "The laws recorded in this chapter relate to the fifth and sixth commandments; and though they are not accommodated to our constitution, especially in point of servitude, nor are th..."
+description: >
+  The laws recorded in this chapter relate to the fifth and sixth commandments; and though they are not accommodated to our constitution, especially in point of servitude, nor are th...
 weight: 21
 ---
 

@@ -1,7 +1,8 @@
 ---
 title: "Genesis 13 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "13"
-description: "In this chapter we have a further account concerning Abram. I. In general, of his condition and behaviour in the land of promise, which was now the land of his pilgrimage. 1. His r..."
+description: >
+  In this chapter we have a further account concerning Abram. I. In general, of his condition and behaviour in the land of promise, which was now the land of his pilgrimage. 1. His r...
 weight: 13
 ---
 

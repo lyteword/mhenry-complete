@@ -1,7 +1,8 @@
 ---
 title: "Genesis 29 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "29"
-description: "This chapter gives us an account of God\'s providences concerning Jacob, pursuant to the promises made to him in the foregoing chapter. I. How he was brought in safety to his journe..."
+description: >
+  This chapter gives us an account of God's providences concerning Jacob, pursuant to the promises made to him in the foregoing chapter. I. How he was brought in safety to his journe...
 weight: 29
 ---
 

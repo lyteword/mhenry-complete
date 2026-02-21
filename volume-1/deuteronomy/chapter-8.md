@@ -1,7 +1,8 @@
 ---
 title: "Deuteronomy 8 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "8"
-description: "Moses had charged parents in teaching their children to whet the word of God upon them (De 6:7) by frequent repetition of the same things over and over again; and here he himself t..."
+description: >
+  Moses had charged parents in teaching their children to whet the word of God upon them (De 6:7) by frequent repetition of the same things over and over again; and here he himself t...
 weight: 8
 ---
 

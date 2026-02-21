@@ -1,7 +1,8 @@
 ---
 title: "Genesis 1 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "1"
-description: "The foundation of all religion being laid in our relation to God as our Creator, it was fit that the book of divine revelations which was intended to be the guide, support, and rul..."
+description: >
+  The foundation of all religion being laid in our relation to God as our Creator, it was fit that the book of divine revelations which was intended to be the guide, support, and rul...
 weight: 1
 ---
 

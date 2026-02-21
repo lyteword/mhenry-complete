@@ -1,7 +1,8 @@
 ---
 title: "Exodus 12 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "12"
-description: "This chapter gives an account of one of the most memorable ordinances, and one of the most memorable providences, of all that are recorded in the Old Testament. I. Not one of all t..."
+description: >
+  This chapter gives an account of one of the most memorable ordinances, and one of the most memorable providences, of all that are recorded in the Old Testament. I. Not one of all t...
 weight: 12
 ---
 

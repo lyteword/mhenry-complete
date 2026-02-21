@@ -1,7 +1,8 @@
 ---
 title: "Leviticus 7 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "7"
-description: "Here is, I. The law of the trespass-offering (Le 7:1-7), with some further directions concerning the burnt-offering and the meat-offering, Le 7:8-10. II. The law of the peace-offer..."
+description: >
+  Here is, I. The law of the trespass-offering (Le 7:1-7), with some further directions concerning the burnt-offering and the meat-offering, Le 7:8-10. II. The law of the peace-offer...
 weight: 7
 ---
 

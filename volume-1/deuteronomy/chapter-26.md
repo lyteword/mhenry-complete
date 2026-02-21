@@ -1,7 +1,8 @@
 ---
 title: "Deuteronomy 26 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "26"
-description: "With this chapter Moses concludes the particular statutes which he thought fit to give Israel in charge at his parting with them; what follows is by way of sanction and ratificatio..."
+description: >
+  With this chapter Moses concludes the particular statutes which he thought fit to give Israel in charge at his parting with them; what follows is by way of sanction and ratificatio...
 weight: 26
 ---
 

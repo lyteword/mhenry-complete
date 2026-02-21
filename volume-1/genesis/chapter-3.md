@@ -1,7 +1,8 @@
 ---
 title: "Genesis 3 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "3"
-description: "The story of this chapter is perhaps as sad a story (all things considered) as any we have in all the Bible. In the foregoing chapters we have had the pleasant view of the holiness..."
+description: >
+  The story of this chapter is perhaps as sad a story (all things considered) as any we have in all the Bible. In the foregoing chapters we have had the pleasant view of the holiness...
 weight: 3
 ---
 

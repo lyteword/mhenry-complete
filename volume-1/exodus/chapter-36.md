@@ -1,7 +1,8 @@
 ---
 title: "Exodus 36 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "36"
-description: "In this chapter, I. The work of the tabernacle is begun, Ex 36:1-4. II. A stop is put to the people\'s contributions, Ex 36:5-7. III. A particular account is given of the making of ..."
+description: >
+  In this chapter, I. The work of the tabernacle is begun, Ex 36:1-4. II. A stop is put to the people's contributions, Ex 36:5-7. III. A particular account is given of the making of ...
 weight: 36
 ---
 

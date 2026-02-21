@@ -1,7 +1,8 @@
 ---
 title: "Deuteronomy 28 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "28"
-description: "This chapter is a very large exposition of two words in the foregoing chapter, the blessing and the curse. Those were pronounced blessed in general that were obedient, and those cu..."
+description: >
+  This chapter is a very large exposition of two words in the foregoing chapter, the blessing and the curse. Those were pronounced blessed in general that were obedient, and those cu...
 weight: 28
 ---
 

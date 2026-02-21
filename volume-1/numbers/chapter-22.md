@@ -1,7 +1,8 @@
 ---
 title: "Numbers 22 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "22"
-description: "At this chapter begins the famous story of Balak and Balaam, their attempt to curse Israel, and the baffling of that attempt; God\'s people are long afterwards told to remember what..."
+description: >
+  At this chapter begins the famous story of Balak and Balaam, their attempt to curse Israel, and the baffling of that attempt; God's people are long afterwards told to remember what...
 weight: 22
 ---
 

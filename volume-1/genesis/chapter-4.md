@@ -1,7 +1,8 @@
 ---
 title: "Genesis 4 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "4"
-description: "In this chapter we have both the world and the church in a family, in a little family, in Adam\'s family, and a specimen given of the character and state of both in after-ages, nay,..."
+description: >
+  In this chapter we have both the world and the church in a family, in a little family, in Adam's family, and a specimen given of the character and state of both in after-ages, nay,...
 weight: 4
 ---
 

@@ -1,7 +1,8 @@
 ---
 title: "Deuteronomy 5 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "5"
-description: "In this chapter we have the second edition of the ten commandments. I. The general intent of them; they were in the nature of a covenant between God and Israel, De 5:1-5. II. The p..."
+description: >
+  In this chapter we have the second edition of the ten commandments. I. The general intent of them; they were in the nature of a covenant between God and Israel, De 5:1-5. II. The p...
 weight: 5
 ---
 

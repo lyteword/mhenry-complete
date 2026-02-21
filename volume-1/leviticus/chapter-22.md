@@ -1,7 +1,8 @@
 ---
 title: "Leviticus 22 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "22"
-description: "In this chapter we have divers laws concerning the priests and sacrifices all for the preserving of the honour of the sanctuary. I. That the priests should not eat the holy things ..."
+description: >
+  In this chapter we have divers laws concerning the priests and sacrifices all for the preserving of the honour of the sanctuary. I. That the priests should not eat the holy things ...
 weight: 22
 ---
 

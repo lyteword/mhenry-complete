@@ -1,7 +1,8 @@
 ---
 title: "Exodus 35 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "35"
-description: "What should have been said and done upon Moses\' coming down the first time from the mount, if the golden calf had not broken the measures and put all into disorder, now at last, wh..."
+description: >
+  What should have been said and done upon Moses' coming down the first time from the mount, if the golden calf had not broken the measures and put all into disorder, now at last, wh...
 weight: 35
 ---
 

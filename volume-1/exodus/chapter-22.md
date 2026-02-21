@@ -1,7 +1,8 @@
 ---
 title: "Exodus 22 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "22"
-description: "The laws of this chapter relate, I. To the eighth commandment, concerning theft (Ex 22:1-4), trespass by cattle (Ex 22:5), damage by fire (Ex 22:6), trusts (Ex 22:7-13), borrowing ..."
+description: >
+  The laws of this chapter relate, I. To the eighth commandment, concerning theft (Ex 22:1-4), trespass by cattle (Ex 22:5), damage by fire (Ex 22:6), trusts (Ex 22:7-13), borrowing ...
 weight: 22
 ---
 

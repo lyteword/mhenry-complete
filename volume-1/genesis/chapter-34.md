@@ -1,7 +1,8 @@
 ---
 title: "Genesis 34 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "34"
-description: "At this chapter begins the story of Jacob\'s afflictions in his children, which were very great, and are recorded to show, 1. The vanity of this world. That which is dearest to us m..."
+description: >
+  At this chapter begins the story of Jacob's afflictions in his children, which were very great, and are recorded to show, 1. The vanity of this world. That which is dearest to us m...
 weight: 34
 ---
 

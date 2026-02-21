@@ -1,7 +1,8 @@
 ---
 title: "Genesis 33 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "33"
-description: "We read, in the former chapter, how Jacob had power with God, and prevailed; here we find what power he had with men too, and how his brother Esau was mollified, and, on a sudden, ..."
+description: >
+  We read, in the former chapter, how Jacob had power with God, and prevailed; here we find what power he had with men too, and how his brother Esau was mollified, and, on a sudden, ...
 weight: 33
 ---
 

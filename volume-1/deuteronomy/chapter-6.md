@@ -1,7 +1,8 @@
 ---
 title: "Deuteronomy 6 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "6"
-description: "Moses, in this chapter, goes on with his charge to Israel, to be sure to keep up their religion in Canaan. It is much the same with De 4:1-40 I. His preface is a persuasive to obed..."
+description: >
+  Moses, in this chapter, goes on with his charge to Israel, to be sure to keep up their religion in Canaan. It is much the same with De 4:1-40 I. His preface is a persuasive to obed...
 weight: 6
 ---
 

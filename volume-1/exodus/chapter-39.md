@@ -1,7 +1,8 @@
 ---
 title: "Exodus 39 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "39"
-description: "This chapter gives us an account of the finishing of the work of the tabernacle. I. The last things prepared were the holy garments. The ephod and its curious girdle, Ex 39:1-5. Th..."
+description: >
+  This chapter gives us an account of the finishing of the work of the tabernacle. I. The last things prepared were the holy garments. The ephod and its curious girdle, Ex 39:1-5. Th...
 weight: 39
 ---
 

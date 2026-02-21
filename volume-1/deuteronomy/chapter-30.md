@@ -1,7 +1,8 @@
 ---
 title: "Deuteronomy 30 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "30"
-description: "One would have thought that the threatenings in the close of the foregoing chapter had made a full end of the people of Israel, and had left their case for ever desperate; but in t..."
+description: >
+  One would have thought that the threatenings in the close of the foregoing chapter had made a full end of the people of Israel, and had left their case for ever desperate; but in t...
 weight: 30
 ---
 

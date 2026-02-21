@@ -1,7 +1,8 @@
 ---
 title: "Leviticus 8 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "8"
-description: "This chapter gives us an account of the solemn consecration of Aaron and his sons to the priest\'s office. I. It was done publicly, and the congregation was called together to be wi..."
+description: >
+  This chapter gives us an account of the solemn consecration of Aaron and his sons to the priest's office. I. It was done publicly, and the congregation was called together to be wi...
 weight: 8
 ---
 

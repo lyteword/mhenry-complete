@@ -1,7 +1,8 @@
 ---
 title: "Deuteronomy 3 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "3"
-description: "Moses, in this chapter, relates, I. The conquest of Og, king of Bashan, and the seizing of his country, De 3:1-11. II. The distribution of these new conquests to the two tribes and..."
+description: >
+  Moses, in this chapter, relates, I. The conquest of Og, king of Bashan, and the seizing of his country, De 3:1-11. II. The distribution of these new conquests to the two tribes and...
 weight: 3
 ---
 

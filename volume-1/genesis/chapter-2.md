@@ -1,7 +1,8 @@
 ---
 title: "Genesis 2 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "2"
-description: "This chapter is an appendix to the history of the creation, more particularly explaining and enlarging upon that part of the history which relates immediately to man, the favourite..."
+description: >
+  This chapter is an appendix to the history of the creation, more particularly explaining and enlarging upon that part of the history which relates immediately to man, the favourite...
 weight: 2
 ---
 

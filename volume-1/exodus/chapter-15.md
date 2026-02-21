@@ -1,7 +1,8 @@
 ---
 title: "Exodus 15 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "15"
-description: "In this chapter, I. Israel looks back upon Egypt with a song of praise for their deliverance. Here is, 1. The song itself, Ex 15:1-19. 2. The solemn singing of it, Ex 15:20,21. II...."
+description: >
+  In this chapter, I. Israel looks back upon Egypt with a song of praise for their deliverance. Here is, 1. The song itself, Ex 15:1-19. 2. The solemn singing of it, Ex 15:20,21. II....
 weight: 15
 ---
 

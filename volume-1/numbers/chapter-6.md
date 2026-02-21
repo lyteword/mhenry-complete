@@ -1,7 +1,8 @@
 ---
 title: "Numbers 6 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "6"
-description: "In this chapter we have, I. The law concerning Nazarites, 1. What it was to which the vow of a Nazarite obliged him, Nu 6:1-8. 2. A remedial law in case a Nazarite happened to be p..."
+description: >
+  In this chapter we have, I. The law concerning Nazarites, 1. What it was to which the vow of a Nazarite obliged him, Nu 6:1-8. 2. A remedial law in case a Nazarite happened to be p...
 weight: 6
 ---
 

@@ -1,7 +1,8 @@
 ---
 title: "Preface - Volume 1 | Read the Matthew Henry Concise Bible Commentary Online"
 linkTitle: "Preface"
-description: "Though it is most my concern, that I be able to give a good account to God and my own conscience, yet, perhaps, it will be expected that I give the world also some account of this..."
+description: >
+  Though it is most my concern, that I be able to give a good account to God and my own conscience, yet, perhaps, it will be expected that I give the world also some account of this...
 weight: 1
 ---
 

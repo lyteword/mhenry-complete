@@ -1,7 +1,8 @@
 ---
 title: "Numbers 23 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "23"
-description: "In this chapter we have Balak and Balaam busy at work to do Israel a mischief, and, for ought that appears, neither Moses nor the elders of Israel know any thing of the matter, nor..."
+description: >
+  In this chapter we have Balak and Balaam busy at work to do Israel a mischief, and, for ought that appears, neither Moses nor the elders of Israel know any thing of the matter, nor...
 weight: 23
 ---
 

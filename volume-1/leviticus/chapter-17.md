@@ -1,7 +1,8 @@
 ---
 title: "Leviticus 17 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "17"
-description: "After the law concerning the atonement to be made for all Israel by the high priest, at the tabernacle, with the blood of bulls and goats, in this chapter we have two prohibitions ..."
+description: >
+  After the law concerning the atonement to be made for all Israel by the high priest, at the tabernacle, with the blood of bulls and goats, in this chapter we have two prohibitions ...
 weight: 17
 ---
 

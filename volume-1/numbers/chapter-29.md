@@ -1,7 +1,8 @@
 ---
 title: "Numbers 29 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "29"
-description: "This chapter appoints the offerings that were to be made by fire unto the Lord in the three great solemnities of the seventh month. I. In the feast of trumpets on the first day of ..."
+description: >
+  This chapter appoints the offerings that were to be made by fire unto the Lord in the three great solemnities of the seventh month. I. In the feast of trumpets on the first day of ...
 weight: 29
 ---
 

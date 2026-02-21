@@ -1,7 +1,8 @@
 ---
 title: "Exodus 25 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "25"
-description: "At this chapter begins an account of the orders and instructions God gave to Moses upon the mount for the erecting and furnishing of a tabernacle to the honour of God. We have here..."
+description: >
+  At this chapter begins an account of the orders and instructions God gave to Moses upon the mount for the erecting and furnishing of a tabernacle to the honour of God. We have here...
 weight: 25
 ---
 

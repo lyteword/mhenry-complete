@@ -1,7 +1,8 @@
 ---
 title: "Genesis 27 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "27"
-description: "In this chapter we return to the typical story of the struggle between Esau and Jacob. Esau had profanely sold the birthright to Jacob; but Esau hopes he shall be never the poorer,..."
+description: >
+  In this chapter we return to the typical story of the struggle between Esau and Jacob. Esau had profanely sold the birthright to Jacob; but Esau hopes he shall be never the poorer,...
 weight: 27
 ---
 

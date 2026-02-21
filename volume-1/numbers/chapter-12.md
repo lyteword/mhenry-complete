@@ -1,7 +1,8 @@
 ---
 title: "Numbers 12 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "12"
-description: "In the foregoing chapter we had the vexation which the people gave to Moses; in this we have his patience tried by his own relations. I. Miriam and Aaron, his own brother and siste..."
+description: >
+  In the foregoing chapter we had the vexation which the people gave to Moses; in this we have his patience tried by his own relations. I. Miriam and Aaron, his own brother and siste...
 weight: 12
 ---
 

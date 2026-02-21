@@ -1,7 +1,8 @@
 ---
 title: "Deuteronomy 1 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "1"
-description: "The first part of Moses\'s farewell sermon to Israel begins with this chapter, and is continued to the latter end of the fourth chapter. In the first five verses of this chapter we ..."
+description: >
+  The first part of Moses's farewell sermon to Israel begins with this chapter, and is continued to the latter end of the fourth chapter. In the first five verses of this chapter we ...
 weight: 1
 ---
 

@@ -1,7 +1,8 @@
 ---
 title: "Numbers 1 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "1"
-description: "Israel was now to be formed into a commonwealth, or rather a kingdom; for \"the Lord was their King\" (1Sa 12:12), their government a theocracy, and Moses under him was king in Jeshu..."
+description: >
+  Israel was now to be formed into a commonwealth, or rather a kingdom; for "the Lord was their King" (1Sa 12:12), their government a theocracy, and Moses under him was king in Jeshu...
 weight: 1
 ---
 

@@ -1,7 +1,8 @@
 ---
 title: "Leviticus 15 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "15"
-description: "In this chapter we have laws concerning other ceremonial uncleannesses contracted either by bodily disease like that of the leper, or some natural incidents, and this either, I. In..."
+description: >
+  In this chapter we have laws concerning other ceremonial uncleannesses contracted either by bodily disease like that of the leper, or some natural incidents, and this either, I. In...
 weight: 15
 ---
 

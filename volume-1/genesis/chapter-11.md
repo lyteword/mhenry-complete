@@ -1,7 +1,8 @@
 ---
 title: "Genesis 11 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "11"
-description: "The old distinction between the sons of God and the sons of men (professors and profane) survived the flood, and now appeared again, when men began to multiply: according to this d..."
+description: >
+  The old distinction between the sons of God and the sons of men (professors and profane) survived the flood, and now appeared again, when men began to multiply: according to this d...
 weight: 11
 ---
 

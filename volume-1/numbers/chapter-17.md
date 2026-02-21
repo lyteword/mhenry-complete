@@ -1,7 +1,8 @@
 ---
 title: "Numbers 17 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "17"
-description: "Enough had been done in the chapter before to quash all pretensions of the families of the tribe of Levi that would set up in competition with Aaron, and to make it appear that Aar..."
+description: >
+  Enough had been done in the chapter before to quash all pretensions of the families of the tribe of Levi that would set up in competition with Aaron, and to make it appear that Aar...
 weight: 17
 ---
 

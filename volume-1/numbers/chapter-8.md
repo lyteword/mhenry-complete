@@ -1,7 +1,8 @@
 ---
 title: "Numbers 8 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "8"
-description: "This chapter is concerning the lamps or lights of the sanctuary. I. The burning lamps in the candlestick, which the priests were charged to tend, Nu 8:1-4. II. The living lamps (if..."
+description: >
+  This chapter is concerning the lamps or lights of the sanctuary. I. The burning lamps in the candlestick, which the priests were charged to tend, Nu 8:1-4. II. The living lamps (if...
 weight: 8
 ---
 

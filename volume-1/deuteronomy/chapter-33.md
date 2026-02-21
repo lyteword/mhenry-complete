@@ -1,7 +1,8 @@
 ---
 title: "Deuteronomy 33 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "33"
-description: "Yet Moses has not done with the children of Israel; he seemed to have taken final leave of them in the close of the foregoing chapter, but still he has something more to say. He ha..."
+description: >
+  Yet Moses has not done with the children of Israel; he seemed to have taken final leave of them in the close of the foregoing chapter, but still he has something more to say. He ha...
 weight: 33
 ---
 

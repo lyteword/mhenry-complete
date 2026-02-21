@@ -1,7 +1,8 @@
 ---
 title: "Genesis 42 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "42"
-description: "We had, in the foregoing chapter, the fulfilling of the dreams which Joseph had interpreted: in this and the following chapters we have the fulfilling of the dreams which Joseph hi..."
+description: >
+  We had, in the foregoing chapter, the fulfilling of the dreams which Joseph had interpreted: in this and the following chapters we have the fulfilling of the dreams which Joseph hi...
 weight: 42
 ---
 

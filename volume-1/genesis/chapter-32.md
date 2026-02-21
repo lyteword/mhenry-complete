@@ -1,7 +1,8 @@
 ---
 title: "Genesis 32 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "32"
-description: "We have here Jacob still upon his journey towards Canaan. Never did so many memorable things occur in any march as in this of Jacob\'s little family. By the way he meets, I. With go..."
+description: >
+  We have here Jacob still upon his journey towards Canaan. Never did so many memorable things occur in any march as in this of Jacob's little family. By the way he meets, I. With go...
 weight: 32
 ---
 
