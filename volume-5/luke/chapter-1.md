@@ -1,7 +1,8 @@
 ---
 title: "Luke 1 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "1"
-description: "The narrative which this evangelist gives us (or rather God by him) of the life of Christ begins earlier than either Matthew or Mark. We have reason to thank God for them all, as w..."
+description: >
+  The narrative which this evangelist gives us (or rather God by him) of the life of Christ begins earlier than either Matthew or Mark. We have reason to thank God for them all, as w...
 weight: 1
 ---
 

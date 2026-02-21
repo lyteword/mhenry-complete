@@ -1,7 +1,8 @@
 ---
 title: "Mark 16 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "16"
-description: "In this chapter, we have a short account of the resurrection and ascension of the Lord Jesus: and the joys and triumphs which it furnished all believers with, will be very acceptab..."
+description: >
+  In this chapter, we have a short account of the resurrection and ascension of the Lord Jesus: and the joys and triumphs which it furnished all believers with, will be very acceptab...
 weight: 16
 ---
 

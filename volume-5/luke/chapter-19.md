@@ -1,7 +1,8 @@
 ---
 title: "Luke 19 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "19"
-description: "In this chapter we have, I. The conversion of Zaccheus the publican at Jericho, Lu 19:1-10. II. The parable of the pounds which the king entrusted with his servants, and of his reb..."
+description: >
+  In this chapter we have, I. The conversion of Zaccheus the publican at Jericho, Lu 19:1-10. II. The parable of the pounds which the king entrusted with his servants, and of his reb...
 weight: 19
 ---
 

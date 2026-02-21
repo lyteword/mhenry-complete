@@ -1,7 +1,8 @@
 ---
 title: "Mark 4 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "4"
-description: "In this chapter, we have, I. The parable of the seed, and the four sorts of ground (Mk 4:1-9), with the exposition of it (Mk 4:10-20), and the application of it, Mk 4:21-25. II. Th..."
+description: >
+  In this chapter, we have, I. The parable of the seed, and the four sorts of ground (Mk 4:1-9), with the exposition of it (Mk 4:10-20), and the application of it, Mk 4:21-25. II. Th...
 weight: 4
 ---
 

@@ -1,7 +1,8 @@
 ---
 title: "Matthew 3 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "3"
-description: "At the start of this chapter, concerning the baptism of John, begins the gospel (Mk 1:1); what went before is but preface or introduction; this is \"the beginning of the gospel of J..."
+description: >
+  At the start of this chapter, concerning the baptism of John, begins the gospel (Mk 1:1); what went before is but preface or introduction; this is "the beginning of the gospel of J...
 weight: 3
 ---
 

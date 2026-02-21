@@ -1,7 +1,8 @@
 ---
 title: "John 21 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "21"
-description: "The evangelist seemed to have concluded his history with the foregoing chapter; but (as St. Paul sometimes in his epistles), new matter occurring, he begins again. He had said that..."
+description: >
+  The evangelist seemed to have concluded his history with the foregoing chapter; but (as St. Paul sometimes in his epistles), new matter occurring, he begins again. He had said that...
 weight: 21
 ---
 

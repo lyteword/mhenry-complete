@@ -1,7 +1,8 @@
 ---
 title: "Mark 10 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "10"
-description: "In this chapter, we have, I. Christ\'s dispute with the Pharisees concerning divorce, Mk 10:1-12. II. The kind entertainment he gave to the little children that were brought to him ..."
+description: >
+  In this chapter, we have, I. Christ's dispute with the Pharisees concerning divorce, Mk 10:1-12. II. The kind entertainment he gave to the little children that were brought to him ...
 weight: 10
 ---
 

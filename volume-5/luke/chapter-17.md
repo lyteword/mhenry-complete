@@ -1,7 +1,8 @@
 ---
 title: "Luke 17 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "17"
-description: "In this chapter we have, I. Some particular discourses which Christ had with his disciples, in which he teaches them to take heed of giving offence, and to forgive the injuries don..."
+description: >
+  In this chapter we have, I. Some particular discourses which Christ had with his disciples, in which he teaches them to take heed of giving offence, and to forgive the injuries don...
 weight: 17
 ---
 

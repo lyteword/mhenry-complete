@@ -1,7 +1,8 @@
 ---
 title: "Matthew 20 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "20"
-description: "We have four things in this chapter. I. The parable of the labourers in the vineyard, Mt 20:1-16. II. A prediction of Christ\'s approaching sufferings, Mt 20:17-19. III. The petitio..."
+description: >
+  We have four things in this chapter. I. The parable of the labourers in the vineyard, Mt 20:1-16. II. A prediction of Christ's approaching sufferings, Mt 20:17-19. III. The petitio...
 weight: 20
 ---
 

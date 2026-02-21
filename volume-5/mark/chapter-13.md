@@ -1,7 +1,8 @@
 ---
 title: "Mark 13 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "13"
-description: "We have here the substance of that prophetical sermon which our Lord Jesus preached, pointing at the destruction of Jerusalem, and the consummation of all things; it was one of the..."
+description: >
+  We have here the substance of that prophetical sermon which our Lord Jesus preached, pointing at the destruction of Jerusalem, and the consummation of all things; it was one of the...
 weight: 13
 ---
 

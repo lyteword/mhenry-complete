@@ -1,7 +1,8 @@
 ---
 title: "Luke 21 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "21"
-description: "In this chapter we have, I. The notice Christ took, and the approbation he gave, of a poor widow that cast two mites into the treasury, Lu 21:1-4. II. A prediction of future events..."
+description: >
+  In this chapter we have, I. The notice Christ took, and the approbation he gave, of a poor widow that cast two mites into the treasury, Lu 21:1-4. II. A prediction of future events...
 weight: 21
 ---
 

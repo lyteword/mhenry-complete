@@ -1,7 +1,8 @@
 ---
 title: "Matthew 28 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "28"
-description: "In the foregoing chapters, we saw the Captain of our salvation engaged with the powers of darkness, attacked by them, and vigorously attacking them; victory seemed to hover between..."
+description: >
+  In the foregoing chapters, we saw the Captain of our salvation engaged with the powers of darkness, attacked by them, and vigorously attacking them; victory seemed to hover between...
 weight: 28
 ---
 

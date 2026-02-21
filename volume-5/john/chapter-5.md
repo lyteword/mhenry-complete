@@ -1,7 +1,8 @@
 ---
 title: "John 5 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "5"
-description: "We have in the gospels a faithful record of all that Jesus began both to do and to teach, Ac 1:1. These two are interwoven, because what he taught explained what he did, and what h..."
+description: >
+  We have in the gospels a faithful record of all that Jesus began both to do and to teach, Ac 1:1. These two are interwoven, because what he taught explained what he did, and what h...
 weight: 5
 ---
 

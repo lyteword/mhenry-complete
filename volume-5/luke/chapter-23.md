@@ -1,7 +1,8 @@
 ---
 title: "Luke 23 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "23"
-description: "This chapter carries on and concludes the history of Christ\'s sufferings and death. We have here, I. His arraignment before Pilate the Roman governor, Lu 23:1-5. II. His examinatio..."
+description: >
+  This chapter carries on and concludes the history of Christ's sufferings and death. We have here, I. His arraignment before Pilate the Roman governor, Lu 23:1-5. II. His examinatio...
 weight: 23
 ---
 

@@ -1,7 +1,8 @@
 ---
 title: "John 14 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "14"
-description: "This chapter is a continuation of Christ\'s discourse with his disciples after supper. When he had convicted and discarded Judas, he set himself to comfort the rest, who were full o..."
+description: >
+  This chapter is a continuation of Christ's discourse with his disciples after supper. When he had convicted and discarded Judas, he set himself to comfort the rest, who were full o...
 weight: 14
 ---
 

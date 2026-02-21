@@ -1,7 +1,8 @@
 ---
 title: "Luke 4 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "4"
-description: "We left Christ newly baptized, and owned by a voice from heaven and the descent of the Holy Ghost upon him. Now, in this chapter, we have, I. A further preparation of him for his p..."
+description: >
+  We left Christ newly baptized, and owned by a voice from heaven and the descent of the Holy Ghost upon him. Now, in this chapter, we have, I. A further preparation of him for his p...
 weight: 4
 ---
 

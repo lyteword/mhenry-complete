@@ -1,7 +1,8 @@
 ---
 title: "Mark 2 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "2"
-description: "In this chapter, we have, I. Christ\'s healing a man that was sick of a palsy, Mk 2:1-12. II. His calling of Matthew from the receipt of custom, and his eating, upon that occasion, ..."
+description: >
+  In this chapter, we have, I. Christ's healing a man that was sick of a palsy, Mk 2:1-12. II. His calling of Matthew from the receipt of custom, and his eating, upon that occasion, ...
 weight: 2
 ---
 

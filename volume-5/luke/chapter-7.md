@@ -1,7 +1,8 @@
 ---
 title: "Luke 7 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "7"
-description: "In this chapter we have, I. Christ confirming the doctrine he had preached in the former chapter, with two glorious miracles—the curing of one at a distance, and that was the centu..."
+description: >
+  In this chapter we have, I. Christ confirming the doctrine he had preached in the former chapter, with two glorious miracles—the curing of one at a distance, and that was the centu...
 weight: 7
 ---
 

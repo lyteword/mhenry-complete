@@ -1,7 +1,8 @@
 ---
 title: "Mark 3 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "3"
-description: "In this chapter, we have, I. Christ\'s healing a man that had a withered hand, on the sabbath day, and the combination of his enemies against him for it, Mk 3:1-6. II. The universal..."
+description: >
+  In this chapter, we have, I. Christ's healing a man that had a withered hand, on the sabbath day, and the combination of his enemies against him for it, Mk 3:1-6. II. The universal...
 weight: 3
 ---
 

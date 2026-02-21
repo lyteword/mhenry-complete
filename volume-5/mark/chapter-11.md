@@ -1,7 +1,8 @@
 ---
 title: "Mark 11 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "11"
-description: "We are now come to the Passion-Week, the week in which Christ died, and the great occurrences of that week. I. Christ\'s riding in triumph into Jerusalem, Mk 11:1-11. II. His cursin..."
+description: >
+  We are now come to the Passion-Week, the week in which Christ died, and the great occurrences of that week. I. Christ's riding in triumph into Jerusalem, Mk 11:1-11. II. His cursin...
 weight: 11
 ---
 

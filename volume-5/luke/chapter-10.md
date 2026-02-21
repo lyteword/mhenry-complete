@@ -1,7 +1,8 @@
 ---
 title: "Luke 10 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "10"
-description: "In this chapter we have, I. The ample commission which Christ gave to the seventy disciples to preach the gospel, and to confirm it by miracles; and the full instructions he gave t..."
+description: >
+  In this chapter we have, I. The ample commission which Christ gave to the seventy disciples to preach the gospel, and to confirm it by miracles; and the full instructions he gave t...
 weight: 10
 ---
 

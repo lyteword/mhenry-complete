@@ -1,7 +1,8 @@
 ---
 title: "Luke 2 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "2"
-description: "In this chapter, we have an account of the birth and infancy of our Lord Jesus: having had notice of his conception, and of the birth and infancy of his forerunner, in the former c..."
+description: >
+  In this chapter, we have an account of the birth and infancy of our Lord Jesus: having had notice of his conception, and of the birth and infancy of his forerunner, in the former c...
 weight: 2
 ---
 

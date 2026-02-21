@@ -1,7 +1,8 @@
 ---
 title: "Matthew 23 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "23"
-description: "In the foregoing chapter, we had our Saviour\'s discourses with the scribes and Pharisees; here we have his discourse concerning them, or rather against them. I. He allows their off..."
+description: >
+  In the foregoing chapter, we had our Saviour's discourses with the scribes and Pharisees; here we have his discourse concerning them, or rather against them. I. He allows their off...
 weight: 23
 ---
 

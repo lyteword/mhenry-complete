@@ -1,7 +1,8 @@
 ---
 title: "Luke 16 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "16"
-description: "The scope of Christ\'s discourse in this chapter is to awaken and quicken us all so to use this world as not to abuse it, so to manage all our possessions and enjoyments here as tha..."
+description: >
+  The scope of Christ's discourse in this chapter is to awaken and quicken us all so to use this world as not to abuse it, so to manage all our possessions and enjoyments here as tha...
 weight: 16
 ---
 

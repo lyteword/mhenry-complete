@@ -1,7 +1,8 @@
 ---
 title: "Matthew 24 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "24"
-description: "Christ\'s preaching was mostly practical; but, in this chapter, we have a prophetical discourse, a prediction of things to come; such however as had a practical tendency, and was in..."
+description: >
+  Christ's preaching was mostly practical; but, in this chapter, we have a prophetical discourse, a prediction of things to come; such however as had a practical tendency, and was in...
 weight: 24
 ---
 

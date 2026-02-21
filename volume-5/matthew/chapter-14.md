@@ -1,7 +1,8 @@
 ---
 title: "Matthew 14 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "14"
-description: "John the Baptist had said concerning Christ, He must increase, but I must decrease, Joh 3:30. The morning-star is here disappearing, and the Sun of righteousness rising to its meri..."
+description: >
+  John the Baptist had said concerning Christ, He must increase, but I must decrease, Joh 3:30. The morning-star is here disappearing, and the Sun of righteousness rising to its meri...
 weight: 14
 ---
 

@@ -1,7 +1,8 @@
 ---
 title: "Luke 20 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "20"
-description: "In this chapter we have, I. Christ\'s answer to the chief priests\' question concerning his authority, Lu 20:1-8. II. The parable of the vineyard let out to the unjust and rebellious..."
+description: >
+  In this chapter we have, I. Christ's answer to the chief priests' question concerning his authority, Lu 20:1-8. II. The parable of the vineyard let out to the unjust and rebellious...
 weight: 20
 ---
 

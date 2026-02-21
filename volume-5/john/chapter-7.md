@@ -1,7 +1,8 @@
 ---
 title: "John 7 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "7"
-description: "In this chapter we have, I. Christ\'s declining for some time to appear publicly in Judea, Joh 7:1. II. His design to go up to Jerusalem at the feast of tabernacles, and his discour..."
+description: >
+  In this chapter we have, I. Christ's declining for some time to appear publicly in Judea, Joh 7:1. II. His design to go up to Jerusalem at the feast of tabernacles, and his discour...
 weight: 7
 ---
 

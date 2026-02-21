@@ -1,7 +1,8 @@
 ---
 title: "Matthew 25 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "25"
-description: "This chapter continues and concludes our Saviour\'s discourse, which began in the foregoing chapter, concerning his second coming and the end of the world. This was his farewell ser..."
+description: >
+  This chapter continues and concludes our Saviour's discourse, which began in the foregoing chapter, concerning his second coming and the end of the world. This was his farewell ser...
 weight: 25
 ---
 

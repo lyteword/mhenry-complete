@@ -1,7 +1,8 @@
 ---
 title: "John 8 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "8"
-description: "In this chapter we have, I. Christ\'s evading the snare which the Jews laid for him, in bringing to him a woman taken in adultery, Joh 8:1-11. II. Divers discourses or conferences o..."
+description: >
+  In this chapter we have, I. Christ's evading the snare which the Jews laid for him, in bringing to him a woman taken in adultery, Joh 8:1-11. II. Divers discourses or conferences o...
 weight: 8
 ---
 

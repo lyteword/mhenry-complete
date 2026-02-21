@@ -1,7 +1,8 @@
 ---
 title: "Luke 9 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "9"
-description: "In this chapter we have, I. The commission Christ gave to his twelve apostles to go out for some time to preach the gospel, and confirm it by miracles, Lu 9:1-6. II. Herod\'s terror..."
+description: >
+  In this chapter we have, I. The commission Christ gave to his twelve apostles to go out for some time to preach the gospel, and confirm it by miracles, Lu 9:1-6. II. Herod's terror...
 weight: 9
 ---
 

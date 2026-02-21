@@ -1,7 +1,8 @@
 ---
 title: "Luke 12 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "12"
-description: "In this chapter we have divers excellent discourses of our Saviour\'s upon various occasions, many of which are to the same purport with what we had in Matthew upon other the like o..."
+description: >
+  In this chapter we have divers excellent discourses of our Saviour's upon various occasions, many of which are to the same purport with what we had in Matthew upon other the like o...
 weight: 12
 ---
 

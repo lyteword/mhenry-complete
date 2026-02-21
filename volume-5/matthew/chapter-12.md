@@ -1,7 +1,8 @@
 ---
 title: "Matthew 12 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "12"
-description: "In this chapter, we have, I. Christ\'s clearing of the law of the fourth commandment concerning the sabbath-day, and vindicating it from some superstitious notions advanced by the J..."
+description: >
+  In this chapter, we have, I. Christ's clearing of the law of the fourth commandment concerning the sabbath-day, and vindicating it from some superstitious notions advanced by the J...
 weight: 12
 ---
 

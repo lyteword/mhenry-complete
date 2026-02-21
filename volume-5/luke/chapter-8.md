@@ -1,7 +1,8 @@
 ---
 title: "Luke 8 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "8"
-description: "Most of this chapter is a repetition of divers passages of Christ\'s preaching and miracles which we had before in Matthew and Mark; they are all of such weight, that they are worth..."
+description: >
+  Most of this chapter is a repetition of divers passages of Christ's preaching and miracles which we had before in Matthew and Mark; they are all of such weight, that they are worth...
 weight: 8
 ---
 

@@ -1,7 +1,8 @@
 ---
 title: "John 19 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "19"
-description: "Though in the history hitherto this evangelist seems industriously to have declined the recording of such passages as had been related by the other evangelists, yet, when he comes ..."
+description: >
+  Though in the history hitherto this evangelist seems industriously to have declined the recording of such passages as had been related by the other evangelists, yet, when he comes ...
 weight: 19
 ---
 

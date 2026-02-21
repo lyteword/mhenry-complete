@@ -1,7 +1,8 @@
 ---
 title: "Luke 11 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "11"
-description: "In this chapter, I. Christ teaches his disciples to pray, and quickens and encourages them to be frequent, instant, and importunate in prayer, Lu 11:1-13. II. He fully answers the ..."
+description: >
+  In this chapter, I. Christ teaches his disciples to pray, and quickens and encourages them to be frequent, instant, and importunate in prayer, Lu 11:1-13. II. He fully answers the ...
 weight: 11
 ---
 

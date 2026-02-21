@@ -1,7 +1,8 @@
 ---
 title: "John 1 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "1"
-description: "The scope and design of this chapter is to confirm our faith in Christ as the eternal Son of God, and the true Messiah and Saviour of the world, that we may be brought to receive h..."
+description: >
+  The scope and design of this chapter is to confirm our faith in Christ as the eternal Son of God, and the true Messiah and Saviour of the world, that we may be brought to receive h...
 weight: 1
 ---
 

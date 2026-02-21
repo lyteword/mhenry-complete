@@ -1,7 +1,8 @@
 ---
 title: "Matthew 8 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "8"
-description: "The evangelist having, in the foregoing chapters, given us a specimen of our Lord\'s preaching, proceeds now to give some instances of the miracles he wrought, which prove him a Tea..."
+description: >
+  The evangelist having, in the foregoing chapters, given us a specimen of our Lord's preaching, proceeds now to give some instances of the miracles he wrought, which prove him a Tea...
 weight: 8
 ---
 

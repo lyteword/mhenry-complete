@@ -1,7 +1,8 @@
 ---
 title: "Mark 7 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "7"
-description: "In this chapter we have, I. Christ\'s dispute with the scribes and Pharisees about eating meat with unwashen hands (Mk 7:1-13); and the needful instructions he gave to the people on..."
+description: >
+  In this chapter we have, I. Christ's dispute with the scribes and Pharisees about eating meat with unwashen hands (Mk 7:1-13); and the needful instructions he gave to the people on...
 weight: 7
 ---
 

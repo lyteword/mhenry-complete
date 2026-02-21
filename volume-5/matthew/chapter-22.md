@@ -1,7 +1,8 @@
 ---
 title: "Matthew 22 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "22"
-description: "This chapter is a continuation of Christ\'s discourses in the temple, two or three days before he died. His discourses then are largely recorded, as being of special weight and cons..."
+description: >
+  This chapter is a continuation of Christ's discourses in the temple, two or three days before he died. His discourses then are largely recorded, as being of special weight and cons...
 weight: 22
 ---
 

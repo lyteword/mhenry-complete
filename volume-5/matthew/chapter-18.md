@@ -1,7 +1,8 @@
 ---
 title: "Matthew 18 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "18"
-description: "The gospels are, in short, a record of what Jesus began both to do and to teach. In the foregoing chapter, we had an account of his doings, in this, of his teachings; probably, not..."
+description: >
+  The gospels are, in short, a record of what Jesus began both to do and to teach. In the foregoing chapter, we had an account of his doings, in this, of his teachings; probably, not...
 weight: 18
 ---
 
